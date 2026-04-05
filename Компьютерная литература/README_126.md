@@ -1,159 +1,3 @@
-###  Публикация: 1766571   (33375) от 22.12.2024
-
-В. Молочков | Создание сайта, его SEO-продвижение и монетизация (2022) [PDF]
-
->>Компьютерная литература
->>Веб-дизайн
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33375.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подробно рассмотрено создание сайта с использованием CMS WordPress: выбор хостинга, подключение домена, установка шаблонов и плагинов. Рассказано о наполнении сайта контентом, о поисковой (SEO) оптимизации, подключении аналитических сервисов Яндекса и Google. Даны советы по бесплатному и коммерческому продвижению сайта в социальных сетях «ВКонтакте», «Одноклассники», (   Читать дальше...   )Жанр: Web-технологии, создание сайтовИздательство: БХВ-ПетербургФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3FBABAE6F13665F8D7D5192CE710D7B736DB378
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767568   (33374) от 22.12.2024
-
-Gema Socorro Rodríguez | Thriving in Android Development Using Kotlin (2024)  [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33374.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы получите практические навыки разработки под Android, создав приложение, аналогичное WhatsApp. Далее вы научитесь реактивно обрабатывать асинхронные сообщения, визуализировать их с помощью Jetpack Compose и перейдете к созданию и загрузке резервной копии этих сообщений. По мере продвижения вы разработаете Packtagram, приложение, вдохновленное Instagram, сфокусированное (   Читать дальше...   )Жанр: Компьютерная литература, программирование, Kotlin, разработка под AndroidЯзык: АнглийскийИздательство: Packt Publishing Ltd.Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:321EFA040C326C85396D58530AF1688CFE782C96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767604   (33369) от 22.12.2024
-
-Carl Fredrik Samson | Asynchronous Programming in Rust (2024) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33369.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы начнете с создания прочного фундамента асинхронного программирования и изучения различных стратегий моделирования потока программ. Затем книга проведет вас через реализацию языка, объясняя на практических примерах такие понятия, как epoll, stackfull coroutines, green threads и callbacks. Последний раздел посвящен языку Rust, в нем рассматриваются фьючерсы, генераторы (   Читать дальше...   )Жанр: Программирование, системное программирование, RustЯзык: АнглийскийИздательство: Packt Publishing Ltd.Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AA2ADFA667E8AA3C1325DB789B1D3B617798DEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767587   (33365) от 22.12.2024
-
-Neil Smyth | C# 13 Programming Essentials (2024) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33365.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга представляет собой всеобъемлющее руководство по освоению языка программирования C# 13 и .NET 9 SDK, обеспечивающее всестороннее изучение как для начинающих, так и для опытных разработчиков. Это руководство, состоящее из 31 подробной главы, 30 онлайн-тестов на знания и доступа к загружаемому коду проекта, структурировано таким образом, чтобы помочь вам пройти (   Читать дальше...   )Жанр: Программирование, С# 13, .NET 9Язык: АнглийскийИздательство: C# 13 Programming EssentialsФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C8578EEE99ABFD8487D92487AC55A2C80F710E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767578   (33363) от 22.12.2024
-
-Dennis Vroegop | Systems Programming with C# and .NET (2024) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33363.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание охватывает фундаментальные концепции, такие как низкоуровневые API, управление памятью и оптимизация производительности. Каждая глава содержит практические упражнения, направленные на освоение потоков, файлового ввода/вывода и сетевых протоколов. Особое внимание уделено отладке, профилированию и решению задач, связанных с многопоточностью и асинхронным кодом. (   Читать дальше...   )Жанр: Компьютерная литература, программирование, платформа .NET, C#Язык: АнглийскийИздательство: Packt Publishing Ltd.Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B91F62D88FEC7E27A44FCFFE8822BFBA5ECAFE07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767585   (33361) от 22.12.2024
-
-Alex Rios | System Programming Essentials with Go (2024) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33361.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью практических проектов вы освоите такие основные понятия, как файловый ввод-вывод, управление процессами и межпроцессное взаимодействие, чтобы автоматизировать задачи и эффективно взаимодействовать с системой. Вы погрузитесь в сетевое программирование на Go и приобретете навыки создания надежных распределенных приложений. Эта книга выходит за рамки основ, (   Читать дальше...   )Жанр: Программирование, системное программирование, сетевое программирование, GoЯзык: АнглийскийИздательство: Packt Publishing Ltd.Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E94F3B0A7CD7BDEFC4A557A38E6D6DE82BCFF63A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1766659   (33360) от 22.12.2024
 
 Adam Freeman | Mastering Node.js Web Development (2024) [PDF] [EN]
@@ -162,7 +6,7 @@ Adam Freeman | Mastering Node.js Web Development (2024) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33360.jpg" />
 </div>
 
 
@@ -188,7 +32,7 @@ Nick Parlow | PowerShell 7 Workshop (2024) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33356.jpg" />
 </div>
 
 
@@ -214,7 +58,7 @@ Marc Gregoire | Professional C++ (6th Edition) (2024) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33355.jpg" />
 </div>
 
 
@@ -240,7 +84,7 @@ Jakub Narębski | Mastering Git, 2nd Edition (2024) [EPUB] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33333.jpg" />
 </div>
 
 
@@ -266,7 +110,7 @@ Alexey Soshin | Kotlin Design Patterns and Best Practices (3rd Edition) (2024) [
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33205.jpg" />
 </div>
 
 
@@ -292,7 +136,7 @@ Mikhail Sakhniuk, Adam Boduch | React and React Native (5th Edition) (2024) [PDF
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33174.jpg" />
 </div>
 
 
@@ -318,7 +162,7 @@ Frances Buontempo | Learn C++ by Example (2024) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33172.jpg" />
 </div>
 
 
@@ -344,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32437.jpg" />
 </div>
 
 
@@ -371,7 +215,7 @@ Charlie Boyle, Laura Bailey | Red Hat Enterprise Linux 7 Performance Tuning Guid
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32332.jpg" />
 </div>
 
 
@@ -397,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32065.jpg" />
 </div>
 
 
@@ -423,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31335.jpg" />
 </div>
 
 
@@ -449,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31237.jpg" />
 </div>
 
 
@@ -476,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30809.jpg" />
 </div>
 
 
@@ -503,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30579.jpg" />
 </div>
 
 
@@ -529,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29649.jpg" />
 </div>
 
 
@@ -556,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29251.jpg" />
 </div>
 
 
@@ -583,7 +427,7 @@ Antonio Gomes Rodrigues, Bruno Demion (Milamber), Philippe Mouawad | Master Apac
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28764.jpg" />
 </div>
 
 
@@ -609,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28207.jpg" />
 </div>
 
 
@@ -637,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28100.jpg" />
 </div>
 
 
@@ -663,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27387.jpg" />
 </div>
 
 
@@ -674,6 +518,173 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3DFE5F2F6C219EB10C0D25EFB82A750D4F867CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780438   (27235) от 18.02.2025
+
+В. А. Ажеронок, А. В. Островерх, М. Г. Радченко и др. | Разработка интерфейса прикладных решений на платформе «1С:Предприятие 8» (2-е изд.) (2024) [PDF, EPUB]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга адресована специалистам, имеющим опыт разработки на платформе «1С:Предприятие 8.3». Также она будет интересна и полезна всем программистам, желающим познакомиться с тем, как создаются прикладные решения, работающие в интерфейсе «Такси».
+
+Состоит из пяти частей, посвящённых различным областям разработки интерфейса: формированию командного интерфейса, разработке (   Читать дальше...   )Жанр: прикладная информатика, программирование 1С, программы, продукты 1СИздательство: 1С-ПаблишингФормат: PDF, EPUBКачество: изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E548E8C0E9E8586B0B64E831A2949FE37673D63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780447   (27228) от 18.02.2025
+
+Е. Ю. Хрусталева | Разработка сложных отчётов в «1С:Предприятии 8». Система компоновки данных (4-е изд.) (2024) [PDF, EPUB]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27228.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная книга адресована программистам и разработчикам прикладных решений в системе «1С:Предприятие 8». Она позволяет самостоятельно изучить возможности системы компоновки данных – механизма, предназначенного для создания сложных аналитических отчётов в программах «1С:Предприятия 8».
+
+Для начинающих разработчиков в книге описывается устройство системы компоновки данных, (   Читать дальше...   )Жанр: программирование 1С, программы, разработка программного обеспеченияИздательство: 1С-ПаблишингФормат: PDF, EPUBКачество: изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EA81F3875A5329DE4BADE1A44BAA8D04214FBD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780624   (27125) от 19.02.2025
+
+Ольга Пономарева | ТОП-100 вопросов и ответов из собеседований на системного аналитика (2023) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27125.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тщательно подготовьтесь к теоретической части собеседования и откройте двери к предложениям от ведущих компаний.
+
+В течение нескольких лет я как сама проходила собеседования, так и проводила их. За это время я собрала список из 100 наиболее часто задаваемых вопросов по различным темам.
+(   Читать дальше...   )Жанр: Системный анализИздательство: System AnalystФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5E295A56C5B9A7A2F7EFEF836A5476C2096A97F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780692   (27121) от 19.02.2025
+
+В. А. Ажеронок, А. В. Островерх, М. Г. Радченко и др. | Разработка интерфейса прикладных решений на платформе «1С:Предприятие 8» (2018) [EPUB]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга является обновлённым и дополненным изданием книги «Разработка управляемого интерфейса». Книга адресована специалистам, имеющим опыт разработки на платформе «1С:Предприятие 8.3». Также она будет интересна и полезна всем программистам, желающим познакомиться с тем, как создаются прикладные решения, работающие в интерфейсе «Такси».
+
+Книга состоит из пяти частей, (   Читать дальше...   )Жанр: прикладная информатика, программирование 1С, программы, продукты 1СИздательство: 1С-ПаблишингФормат: EPUBКачество: изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85289CCB42521D1DAB574DA9DBB6FDE685DBBB5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780700   (27115) от 19.02.2025
+
+Е. Ю. Хрусталева | 101 совет начинающим разработчикам в системе «1С:Предприятие 8» (2015) [EPUB]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27115.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга адресована начинающим разработчикам прикладных решений в системе «1С:Предприятие 8». Она поможет овладеть наиболее эффективными приёмами разработки приложений.
+
+Средства разработки «1С:Предприятия 8» позволяют решать широкий круг задач. Начинающим разработчикам бывает сложно сориентироваться в многообразии имеющихся инструментов и возможностей. Зачастую бывает (   Читать дальше...   )Жанр: 1С:Предприятие, программирование 1С, продукты 1СИздательство: 1С-ПаблишингФормат: EPUBКачество: изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C41492AD894089577FFC578C7DCFECE0DBC268E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781076   (26943) от 21.02.2025
+
+Мария Новосадова | Справочник IT-терминов (2023) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлены основные IT-термины в области разработки, тестирования, системного администрирования, облачных вычислений. Для начинающих IT-рекрутеров и всех, кто интересуется информационными технологиями.Жанр: Компьютерная литература, справочникИздательство: Инфра-ИнженерияФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03F520FBB2630D0325D880327F594403A310BC0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

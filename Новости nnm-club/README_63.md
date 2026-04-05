@@ -1,3 +1,29 @@
+###  Публикация: 1113292   (837490) от 11.03.2017
+
+Adobe After Effects CC 2017.1 14.1.0.57 RePack by KpoJIuK (09.03.2017) [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837490.jpg" />
+</div>
+
+
+###  Подробнее
+
+After Effects CC — это ведущая в отрасли программа для создания и компоновки анимированной графики, которую используют многие разработчики визуальных эффектов и анимированной графики. Она предлагает великолепные функции управления, широкий выбор инструментов для творчества, а также возможность интеграции с другими приложениями для постобработки видеоматериалов. Сделайте (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CAD2793737C76D29761D4AB69A1A6065E25D81D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113266   (837487) от 11.03.2017
 
 Кредо убийцы / Assassin's Creed (2016) WEB-DL [H.264/1080p-LQ] [Line]
@@ -6,7 +32,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837487.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837324.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837252.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ F-Secure Freedome VPN 2.34.6377 RePack by elchupacabra [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837228.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ P-51: Истребитель драконов / P-51 Dragon Fighter (2014) HDRip
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836794.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836791.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Vivaldi 1.0.435.42 Final [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836144.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835844.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ AVG PC Tuneup 16.32.2.3320 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835754.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835740.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835738.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835526.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ Autodesk Inventor Professional 2014 Build 170 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835474.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835451.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ Paradise (2006) [Ru] (1.1) License
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835149.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_834879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_834879.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834499.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_834165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_834165.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834067.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ Company of Heroes (2013) [Ru/En] (2.700.0) RePack R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834063.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ D-Frag! / Д-Фраг [2014, TV, 12] HDTV 720p raw
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_834044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_834044.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833959.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ Comodo Internet Security Premium 8.2.0.5005 Final [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833916.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ Alcohol 120% 2.0.3.8806 Free Edition RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833689.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ Samorost 3 (2016) [Ru/Multi] (1.1.281) License HI2U
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833682.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ Samorost 3 — приключенческая исследовательская
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2DF8967A275C5C545B26EB7D0F8975CDBA8D87A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005067   (833676) от 08.04.2016
-
-Джой / Joy (2015) WEB-DL [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833676.jpg" />
-</div>
-
-
-###  Подробнее
-
-Волнующая история четырех поколений семьи. В центре сюжета — девушка Джой, превращающаяся в женщину, которая становится основательницей бизнес-династии и ее главой. Предательство и измена, потеря невинности и шрамы любви открывают дорогу в эмоциональную комедию о том, как стать истинным лидером семьи, и о том, как любое предприятие неумолимо сталкивается с миром (   Читать дальше...   )Производство: США, Annapurna Pictures, Davis Entertainment, Fox 2000 PicturesЖанр: Драма, Комедия, БиографияРежиссер: Дэвид О. РасселлАктеры: Дженнифер Лоуренс, Роберт Де Ниро, Брэдли Купер, Эдгар Рамирес, Дайан Лэдд, Вирджиния Мэдсен, Изабелла Росселлини, Даша Поланко, Элизабет Рём, Сьюзэн Луччи, Лаура Райт, Морис Бернард, Джимми Жан-Луи, Кен Ховард, Джон Инос III, Марианн Леоне, Дрена Де Ниро, Изабелла Крамп, Эмили Нунез, Мэдисон ВульфПеревод: Дублированный (iTunes)Язык субтитров: Английский (Full)Продолжительность: 02:04:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64C7B7CD77ECE30744A9EDE2E209449E9345D3FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

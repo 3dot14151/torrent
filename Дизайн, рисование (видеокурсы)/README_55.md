@@ -1,3 +1,55 @@
+###  Публикация: 1569994   (241304) от 15.08.2022
+
+SideFX, Adrien Lambert | Ultimate Terrain Workflow (2020) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241304.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я много экспериментировал с Houdini для своего короткометражного фильма. Я так много узнал, что решил поделиться серией уроков об окружающей среде и о том, почему бы вам не заинтересоваться созданием ландшафта в Houdini!Производство: SideFXЖанр: Houdini 18Язык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 02:39:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8927782C7EC8B8202B903807EE69ED3A3F0214DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569995   (241283) от 15.08.2022
+
+SideFX, Jeff Wagner | Top Ten Under-the-Radar Features in Houdini 18.5 (2020) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241283.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вышла Houdini 18.5, и в ней появилось несколько новых полезных функций, которые помогут техническим директорам и аналитикам быстрее и удобнее выполнять свою повседневную работу. Присоединяйтесь к Джеффу, который представит свой личный "Топ-10 малоизвестных функций Гудини" и даст представление о том, что ожидать от версии 18.5. Джефф "Old School" (   Читать дальше...   )Производство: SideFXЖанр: Houdini 18.5Язык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 01:06:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9312F4AC0ADD82C9A2B5C4D3A0EEB087A026E905
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1544873   (241089) от 17.04.2022
 
 Zenja Gammer, Zenzcourses | Photoshop Digital Art Bundle By Zenja Gammer (2021) PCRec [EN]
@@ -6,7 +58,7 @@ Zenja Gammer, Zenzcourses | Photoshop Digital Art Bundle By Zenja Gammer (2021) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241089.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ Substance Academy, Nikola Damjanov | Tree Bark with Nikola Damjanov (2021) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240752.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ Yiihuu, Mrousix | Product Animation. Design 3D Product (2021) PCRec [CN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240649.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ Wingfox, Job Menting | Creating a Cyberpunk City with C4D and PS (2021) PCRec [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240616.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ Yiihuu, Yang Fan | Super Dynamic Designer (2021) PCRec [CN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240414.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ Artstation Learning, Javier Perez | Substance Designer: 10 Most Useful Nodes (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240403.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ Schoolism, Scott Robertson | Rendering Reflective Surfaces (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240385.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ Rebelway, JAMES HODGART | Mastering Environment creation in Houdini (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239575.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239567.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239473.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ SideFX, Arise.Works | Houdini Clouds with VOPs (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239290.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ The Gnomon Workshop, Patrick Przybyla | Creating a Combat Finishing Takedown Wit
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239018.jpg" />
 </div>
 
 
@@ -325,7 +377,7 @@ Udemy, Jose Moreno | Substance Designer 2020: Stylized Material Creation PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238902.jpg" />
 </div>
 
 
@@ -353,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238640.jpg" />
 </div>
 
 
@@ -382,7 +434,7 @@ Schoolism, Wouter Tulp | Digital Painting Workout with Wouter Tulp Part 3 (2020)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238634.jpg" />
 </div>
 
 
@@ -409,7 +461,7 @@ ArtStation, Tyler Smith | UE4 VFX Ocean Material Tutorial (2019) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238618.jpg" />
 </div>
 
 
@@ -435,7 +487,7 @@ CGcircuit, Steven Knipping | Applied Houdini Rigids II version 2.0 (2020) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238607.jpg" />
 </div>
 
 
@@ -461,7 +513,7 @@ Gumroad, Lance Wilkinson | Keyshot Passes and Photoshop Composite (2017) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238515.jpg" />
 </div>
 
 
@@ -487,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238497.jpg" />
 </div>
 
 
@@ -516,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238462.jpg" />
 </div>
 
 
@@ -545,7 +597,7 @@ FlippedNormals, Chunck Trafagander | UV Mapping for Games (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238461.jpg" />
 </div>
 
 
@@ -571,7 +623,7 @@ Alessandro Zamboni | Discover The Secrets To Creating Bestselling Sticker Design
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238378.jpg" />
 </div>
 
 
@@ -600,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238352.jpg" />
 </div>
 
 
@@ -629,7 +681,7 @@ Gumroad, Henrique Campanha | Painting a Realistic Skin Texture using Mari (2015)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238141.jpg" />
 </div>
 
 
@@ -642,58 +694,6 @@ Gumroad, Henrique Campanha | Painting a Realistic Skin Texture using Mari (2015)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9F08E3A9AEA19A080B25C661617073C2B282524
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573331   (238063) от 31.08.2022
-
-Pluralsight, Dan Cox | Realistic Texturing of Modular Structures in Substance Painter 2 (2016) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238063.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе вы займетесь текстурированием модульных структур, это завершающий этап подготовки игровых ассетов. Все элементы и детали мы будем текстурировать процедурным способом с помощью Substance Painter 2, этот программный пакет позволяет наиболее быстрым способом проработать все участки и области ваших моделей. В этом курсе вы научитесь использовать процедурное (   Читать дальше...   )Производство: PluralsightЖанр: ВидеокурсЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 02:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C814B7D865EE026A561419A69F048CC940154A51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548172   (237902) от 02.05.2022
-
-Motiondesign.school, Markus Magnusson | Science of Character Animation (2019) PCRec [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237902.jpg" />
-</div>
-
-
-###  Подробнее
-
-Придайте своим 2D-персонажам как можно больше жизни в этом всеобъемлющем курсе о потрясающем мире Анимации Персонажа. Маркус рассмотрит множество принципов классической анимации и дизайна персонажа. А кроме того он поделится своими уникальными приемами, которые он проработал за годы опыта в качестве профессионального аниматора и дизайнера моушен-графики.Производство: Motiondesign.schoolЖанр: Анимация персонажейЯзык озвучки: РусскийПродолжительность: 09:21:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51AD5B37AC9683DF6AA426EFAEA50F634D811D21
 ```
 
 https://mybot314.ru/tekegram_catalog/

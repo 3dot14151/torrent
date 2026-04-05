@@ -6,7 +6,7 @@ ProPresenter 6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706497.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Rhinoceros 5.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706309.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Forecast Bar 2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706149.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Together 3.5.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706148.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Sketches Pro 1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706064.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ TG Pro (Temperature Gauge Pro) 2.9.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705970.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Capture One Pro 11 v11.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705891.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ RightFont 3.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705869.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ TurnTable 3.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705795.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Audirvana Plus 2.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705772.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ MediaInfo 20.08 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705701.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ A Better Finder Attributes 7 v7.00b02 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705699.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Coherence X 3.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705698.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ Blocs 3.5.3  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705697.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Trim Enabler Pro 3.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705672.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Scherlokk - Files finder 3 v3.8 (38011) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705522.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Money Pro 2.0.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705517.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ MaxSnap 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705371.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Duplicate Photos Fixer Pro 2.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705370.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Wondershare AllMyTube 7.3.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705368.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Internet Status 4.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705367.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ URL Extractor 4 v 4.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705366.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Transmit 5.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705200.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Total Video Converter Pro 4.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705194.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Serial 1.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705105.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ PhotoSweeper X 3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705095.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978157.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978094.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Deep Purple - Live In California 74 (2005) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977888.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977593.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ Katy Perry - Лучшее видео [24 видеоклипа] (2007-2011) DVDRi
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977475.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976878.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Rage Against The Machine - Live at Finsbury Park (2010) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976705.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Architects (UK) - 34 Music Videos (2006-2019) WEB-DL [Н.264/480p/720p/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976658.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976574.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Various ‎– Nightmoves (2008) 3 х DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976560.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975641.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ VA - Зимний марафон № 218: Зимняя волна новинок
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975575.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ U-ka saegusa IN db Film Collection Vol.1 -Shocking Blue- (2003) DVDRip [H.264/48
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975530.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Behemoth - 6 Music Videos (2011-2020) WEB-DL [H.264|VP9/2560p/1080p/720p-LQ] <De
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975453.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Alice Cooper - Live at Montreux (2005) BDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975066.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974857.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974654.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974536.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974326.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973262.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Crystal Lake feat. Beth - Dear God (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972478.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Shakira - Antes de las Seis (Live from Paris) (2011) [1080i] BDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972461.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Shakira - Je L'Aime a Mourir (Live from Paris) (2011) [1080i] BDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972353.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ BAZUKA - Shake Dat Ass (2013) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972350.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Delerium - Days Turn Into Nights (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972275.jpg" />
 </div>
 
 
@@ -727,7 +727,7 @@ DVJ Bazuka - Run (2013) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972200.jpg" />
 </div>
 
 

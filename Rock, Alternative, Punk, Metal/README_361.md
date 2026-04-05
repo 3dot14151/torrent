@@ -1,3 +1,148 @@
+###  Публикация: 1127479   (731051) от 22.04.2017
+
+Incubus - 8 (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Alt.Rock, Alt. Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731051.jpg" />
+</div>
+
+
+###  Подробнее
+
+Восьмой студийный альбом американских альтернативных рокеров Incubus «8». Продюсером нового альбома Incubus 8 стал Skrillex. Совсем недавно в студии вместе с Incubus и Чино Морено был замечен Skrillex. Теперь же музыканты поделились новостью о том, что Сони Джон Мур (Skrillex) непросто участвовал в записи одного из будущих треков, а стал продюсером альбома. Гитарист (   Читать дальше...   )01. No Fun (3:22)
+02. Nimble Bastard (New Mix) (3:40)
+03. State Of The Art (3:47)
+04. Glitterbomb (4:45)(   Читать дальше...   )Жанр: Alt.Rock, Alt. MetalПродолжительность: 00:40:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C6CBD33A0EAD11F4E0EE92717FAE5023A9AE6A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283812   (731044) от 19.02.2019
+
+Talos - Far Out Dust (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boy Was I Wrong (02:42)
+02. The Light Upon Us (03:49)
+03. The Light (Interlude) (01:04)
+04. To Each His Own (03:10)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:40:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CE81C0A1C5B05AFE67D007E496C9F860E795B46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284012   (731038) от 19.02.2019
+
+Liza Anne - Fine But Dying (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731038.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paranoia (03:08)
+02. Small Talks (02:40)
+03. Panic Attack (03:44)
+04. Socks (03:01)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD9172E5D19D6C85443034057B4D701055F05138
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283591   (731026) от 19.02.2019
+
+Viana - Forever Free (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forever Free (04:14)
+02. In The Name Of Love (03:54)
+03. Heart Of Stone (05:26)
+04. We Can’t Choose (03:38)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:48:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A25DAAAC8EBB7FA30D5ADA3CCDB33CBB893FB4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127518   (730988) от 22.04.2017
+
+Bear’s Den - Red Earth & Pouring Rain (2016) [FLAC|Lossless|tracks + .cue] <Rock, Alternative, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Red Earth & Pouring Rain  (04:52) 
+02. Emeralds  (04:30) 
+03. Dew On The Vine  (05:02) 
+04. Roses On A Breeze  (05:21) (   Читать дальше...   )Жанр: Rock, Alternative, FolkПродолжительность: 01:00:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E32A8B244ACA3DB21938C40EBFCD42C9472448B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283911   (730984) от 19.02.2019
 
 Phoebe Bridgers - Stranger In The Alps (2017) Deluxe Edition, 2018, Dead Oceans [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Folk>
@@ -6,7 +151,7 @@ Phoebe Bridgers - Stranger In The Alps (2017) Deluxe Edition, 2018, Dead Oceans 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730984.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Brymir - Slayer Of Gods (2016) Japanese Edition [MP3|320 кб/с] <Symphonic Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730982.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Steve Hackett - At The Edge Of Light (2019) Limited Edition, Mediabook [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730960.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730938.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Houston - IV (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730891.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Peter Goalby - Easy With The Heartaches (2021) [FLAC|Lossless|image + .cue] <Mel
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730888.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Mad Head - По Лезвию Правды (2022) [MP3|320 Kbps] <Hard Rock, Heav
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730886.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Cate le Bon - Pompeii (2022) [FLAC 2.0|96/24|tracks|WEB-DL] <Psychedelic Rock, F
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730884.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730875.jpg" />
 </div>
 
 
@@ -266,7 +411,7 @@ Geordie - A Band From Geordieland 1972-1996 (1996) Unofficial Release [FLAC|Loss
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730863.jpg" />
 </div>
 
 
@@ -295,7 +440,7 @@ Antti Martikainen - The Sound Of Courage (2017) [MP3|320 Kbps] <Epic Metal, Neo-
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730837.jpg" />
 </div>
 
 
@@ -324,7 +469,7 @@ Uriah Heep - Golden Ballads (1996) Unofficial Release [FLAC|Lossless|image + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730830.jpg" />
 </div>
 
 
@@ -353,7 +498,7 @@ The Kelly Family - Growin' Up (1997) [APE|Lossless|image + .cue] <Country Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730821.jpg" />
 </div>
 
 
@@ -382,7 +527,7 @@ VA - Трибьют Сергею "Чиж" Чигракову, Vol. 2 (2022) [FLA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730763.jpg" />
 </div>
 
 
@@ -411,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730714.jpg" />
 </div>
 
 
@@ -440,7 +585,7 @@ Marilyn Manson - Lest We Forget (The Best Of) (2004) Japanese Edition [FLAC|Loss
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730682.jpg" />
 </div>
 
 
@@ -469,7 +614,7 @@ Atlanta Rhythm Section - Truth In A Structured Form (1989) [FLAC|Lossless|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730671.jpg" />
 </div>
 
 
@@ -498,7 +643,7 @@ VA - Трибьют Сергею "Чиж" Чигракову, Vol. 2 (2022) [MP3
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730655.jpg" />
 </div>
 
 
@@ -527,7 +672,7 @@ Camel - A Nod And A Wink (2002) [FLAC|Lossless]<Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_730497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_730497.jpg" />
 </div>
 
 
@@ -556,7 +701,7 @@ Iggy Pop, The Stooges & Others - Коллекция 12 альбомов (1969 - 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_730458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_730458.jpg" />
 </div>
 
 
@@ -585,7 +730,7 @@ Lacuna Coil - Delirium (2016) Limited Edition [FLAC|Lossless|image + .cue] <Goth
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730366.jpg" />
 </div>
 
 
@@ -599,151 +744,6 @@ Lacuna Coil - Delirium (2016) Limited Edition [FLAC|Lossless|image + .cue] <Goth
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBF368433D0995E86F3AB18E152DB286456F3A35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 63936   (730262) от 22.04.2017
-
-Iggy Pop & The Stooges - Абсолютная дискография (1964-2007)
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_730262.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Iguanas - 1964 - Jumpin' With ~224 kb/s VBR 
-The Stooges - 1969 - Funhouse 192 kb/s CBR
-The Stooges - 1969 - The Stooges 192 kb/s CBR
-The Stooges - 1973 - Open Up And Bleed 192 kb/s CBR(   Читать дальше...   )Жанр: Панк-рокПродолжительность: 25:22:42
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284123   (730100) от 20.02.2019
-
-Before The Rain - Frail (2011) [FLAC|Lossless|image + .cue] <Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. And The World Ends There (10:39)
-02. Shards (11:52)
-03. Breaking The Waves (17:32)
-04. A Glimpse Towards The Sun (8:56)(   Читать дальше...   )Производство: Avantgarde Music – AV205Жанр: Doom MetalПродолжительность: 01:14:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC32607818CB046F2716F3B74BB811F070C269A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284022   (730097) от 20.02.2019
-
-Foxwarren - Foxwarren (2018) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Folk, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To Be (02:54)
-02. Lost In a Dream (02:55)
-03. Everything Apart (04:16)
-04. In Another Life (02:59)(   Читать дальше...   )Жанр: Alternative Rock, Folk, Indie RockПродолжительность: 00:35:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CDD081FB20EF4E4BDD576632B2153FEBE404D32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284122   (730086) от 20.02.2019
-
-Au Pairs - Sense And Sensuality (1982) Remaster, 2002, Castle Music [FLAC|Lossless|tracks + .cue] <Alternative Rock, Punk, Post Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stepping Out of Line (6:01)
-02. Sex Without Stress (4:32)
-03. Instant Touch (3:00)
-04. That's When Its Worth It (4:07)(   Читать дальше...   )Жанр: Alternative Rock, Punk, Post RockПродолжительность: 00:42:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20D6FFCF41C3F55F69DE880E1F7DCAC925D11609
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127895   (730082) от 23.04.2017
-
-Night Demon - Darkness Remains (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome To The Night (3:53)
-02. Hallowed Ground (3:24)
-03. Maiden Hell (2:46)
-04. Stranger In The Room (4:11)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B63A91344598BD8088D6E8E40730859457757A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

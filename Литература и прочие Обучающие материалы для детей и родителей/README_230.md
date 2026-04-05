@@ -1,3 +1,56 @@
+###  Публикация: 1555754   (567481) от 05.06.2022
+
+Константин Ушинский | Книги – мои друзья. Плутишка кот. Любимые сказки (2014) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаем вашему вниманию иллюстрированный сборник сказок великого русского педагога Константина Дмитриевича Ушинского. В издание вошли: «Плутишка кот», «Охотник до сказок», «Бишка», «Лиса Патрикеевна» и другие самые лучшие сказки.Жанр: Детская литература, СказкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9D601FB0C81D2116A967A45CD9BFCF5A740C641
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152295   (567306) от 22.07.2017
+
+Н.Н.  Плавильщиков | Юным любителям природы (1975) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567306.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга в помощь любителям природы. Ее написал известный энтомолог доктор биологических наук Н.Н. Плавильщиков. Но в ней рассказывается не только о жизни насекомых. Автор знакомит с сезонными изменениями в природе; рассказывает, какие можно провести наблюдения и поставить опыты над растениями и животными.
+Много интересных сведений и полезных советов сообщает в (   Читать дальше...   )Жанр: Научно-популярнаяФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15C52E6D644936DDAC9664C816BD18A5B6610CFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044143   (567302) от 19.08.2016
 
 Леонид Яхнин | Студёная река - красные берега (1989) [PDF]
@@ -6,7 +59,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567302.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567117.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566943.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566847.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566444.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566267.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566233.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566194.jpg" />
 </div>
 
 
@@ -220,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565755.jpg" />
 </div>
 
 
@@ -248,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565658.jpg" />
 </div>
 
 
@@ -274,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565507.jpg" />
 </div>
 
 
@@ -300,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565495.jpg" />
 </div>
 
 
@@ -326,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565171.jpg" />
 </div>
 
 
@@ -352,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565163.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564888.jpg" />
 </div>
 
 
@@ -404,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564884.jpg" />
 </div>
 
 
@@ -431,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564615.jpg" />
 </div>
 
 
@@ -458,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564532.jpg" />
 </div>
 
 
@@ -484,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564439.jpg" />
 </div>
 
 
@@ -512,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564396.jpg" />
 </div>
 
 
@@ -538,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564064.jpg" />
 </div>
 
 
@@ -565,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563462.jpg" />
 </div>
 
 
@@ -591,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563251.jpg" />
 </div>
 
 
@@ -617,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563249.jpg" />
 </div>
 
 
@@ -628,58 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A82CE48D89F936FA3566220E4FDF9C4A2C827421
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044860   (563248) от 21.08.2016
-
-Журнал | Счастливые родители №9 (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Журналы для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563248.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Счастливые родители» - журнал, который давно стал незаменимым помощником для молодых родителей. На страницах издания вы найдете: рекомендации и материалы, написанные лучшими российскими докторами ( гинекологами, педиатрами, диетологами, детскими психологами), они отвечают на самые насущные вопросы, касающиеся беременности и первых лет жизни ребенка. Кроме того, (   Читать дальше...   )Жанр: Детский журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E416304A8E9F9BC35F40CEDCD7579B558F9DAB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923688   (562854) от 01.08.2015
-
-О. Зобнин | Неразлучные друзья (1957) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562854.jpg" />
-</div>
-
-
-###  Подробнее
-
-Таня проснулась, когда ещё все девочки спали. Она встала и подошла к окну. Со двора тянуло ароматным лесным настоем. За частыми, словно к празднику побелёнными стволами берёз, на клубной веранде лагеря пестрели разноцветные стенгазеты, вывешенные к приезду родителей. Под окном, на усыпанной жёлтым песком дорожке, бегала трясогузка. Не переставая покачивать своим (   Читать дальше...   )Жанр: Детская проза, приключенияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7133FB2C8EE9D6E805B0C78A85DA163CFFD9B8A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

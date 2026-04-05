@@ -1,3 +1,55 @@
+###  Публикация: 988502   (777405) от 04.05.2016
+
+Люцифер / Lucifer (2016) WEB-DLRip (сезон 1, серии 1-13 из 13) NewStudio [AD]
+
+>>След.
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777405.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заскучавший и несчастный повелитель преисподней, Люцифер Морнингстар оставил свой престол и отправился в современный Лос-Анджелес, где основал ночной клуб «Lux». Очаровательный, харизматичный и дьявольски привлекательный Люцифер наслаждается своим отдыхом — вином, женщинами и музыкой — пока красивая поп-звезда не оказывается убитой на пороге его клуба…Производство: США / Aggressive Mediocrity, DC Entertainment, Jerry Bruckheimer Television, Warner Bros. TelevisionЖанр: детектив, драма, фэнтезиРежиссер: Лен УайзманАктеры: Том Эллис, Лорен Джерман, Кевин Алехандро, Д.Б. Вудсайд, Лесли-Энн Брандт, Рэйчел Харрис, Кайла Юэлл, Скарлет Эстевез, Джонатан Салисбери, Мэтт Корбой и др.Перевод: Многоголосый, профессиональный - NewStudioЯзык озвучки: русский, английскийПродолжительность: ~00:44:00 серияРеклама: присутствуют голосовые вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:387D8F3DA28DFC71C8D775F80C72FC0FB37DCC58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212191   (776268) от 10.03.2018
+
+Джессика Джонс / Jessica Jones (2018) WEBRip [H.264/720p-LQ] (сезон 2, серии 1-13 из 13) Sunshine Studio [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776268.jpg" />
+</div>
+
+
+###  Подробнее
+
+После трагических событий, оборвавших короткую супергеройскую карьеру Джессики Джонс, девушка пытается восстановить свою личную жизнь и свою карьеру частного детектива, расследуя таинственную активность людей со сверхспособностями в Нью-Йорке.Производство: США / ShondaLand, ABC StudiosЖанр: фантастика, боевик, триллер, драма, криминалРежиссер: С.Дж. Кларксон, Дэвид Петрарка, Стивен СерджикАктеры: Кристен Риттер, Дэвид Теннант, Майк Колтер, Рэйчел Тейлор, Кэрри-Энн Мосс, Эйка Дарвилл, Эрин Мориарти, Уил Трэвэл, Сьюзи Абромейт, Фил КаппадораПеревод: Двухголосый закадровый, любительский - Sunshine StudioПродолжительность: ~00:50:00 серияРеклама: присутствуют аудио, текстовые вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E24AE6537A96FE63BB575A467CA5EAEEE221F97B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200861   (775573) от 12.03.2018
 
 Падающая вода / Falling Water (2018) WEB-DL/WEBRip [H.264/1080p-LQ] (сезон 2, серии 1-10 из 10) OMSKBIRD [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775573.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774129.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773045.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769026.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769022.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769015.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768387.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767745.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764773.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764266.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764262.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764193.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764037.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764033.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763621.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763493.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763185.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761512.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761425.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759911.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759780.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759528.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757772.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754672.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D1D4A8C1E20875D19A1FEBCC97791F774CDBE6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522608   (754666) от 09.01.2022
-
-Кобра Кай / Cobra Kai (2021) WEBRip [H.264/1080p-LQ] (сезон 4, серии 1-10 из 10) LakeFilms [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754666.jpg" />
-</div>
-
-
-###  Подробнее
-
-В прошлом хулиган, а ныне разорившийся неудачник, Джонни Лоуренс считает, что единственный его шанс вернуться к нормальной жизни — заново открыть печально известную школу карате «Кобра Кай». Попытка наладить свои дела сводит Джонни с Дэниелом ЛаРуссо — успешным мужчиной, и он изо всех сил старается сохранять жизненную гармонию, которой когда-то учил его мистер Мияги. (   Читать дальше...   )Производство: США, Hurwitz & Schlossberg Productions, Overbrook Entertainment, Sony Pictures TelevisionЖанр: Комедия, спорт, боевик, драмаРежиссер: Джон Харвитц, Хейден Шлоссберг, Дженнифер ЧелоттаАктеры: Мэри Мэтилин Маусер, Уильям Забка, Джейкоб Бертран, Тэннер Бьюкэнэн, Ральф Маччио, Холо Маридуэньо, Кортни Хенгелер, Джанни Десенцо, Nichole Brown, Оуэн МорганПеревод: Двуголосый любительский (LakeFilms)Язык озвучки: РусскийПродолжительность: ~00:38:00 серияРеклама: присутствуют видео, аудио, текстовые вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13D88A88436323BBE4E4A37D1535F971C45959CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522610   (754665) от 09.01.2022
-
-Кобра Кай / Cobra Kai (2021) WEBRip [H.264/720p-LQ] (сезон 4, серии 1-10 из 10) LakeFilms [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754665.jpg" />
-</div>
-
-
-###  Подробнее
-
-В прошлом хулиган, а ныне разорившийся неудачник, Джонни Лоуренс считает, что единственный его шанс вернуться к нормальной жизни — заново открыть печально известную школу карате «Кобра Кай». Попытка наладить свои дела сводит Джонни с Дэниелом ЛаРуссо — успешным мужчиной, и он изо всех сил старается сохранять жизненную гармонию, которой когда-то учил его мистер Мияги. (   Читать дальше...   )Производство: США, Hurwitz & Schlossberg Productions, Overbrook Entertainment, Sony Pictures TelevisionЖанр: Комедия, спорт, боевик, драмаРежиссер: Джон Харвитц, Хейден Шлоссберг, Дженнифер ЧелоттаАктеры: Мэри Мэтилин Маусер, Уильям Забка, Джейкоб Бертран, Тэннер Бьюкэнэн, Ральф Маччио, Холо Маридуэньо, Кортни Хенгелер, Джанни Десенцо, Nichole Brown, Оуэн МорганПеревод: Двуголосый любительский (LakeFilms)Язык озвучки: РусскийПродолжительность: ~00:38:00 серияРеклама: присутствуют видео, аудио, текстовые вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F59BD37591F39E370707B24C5F0945C5950C9E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

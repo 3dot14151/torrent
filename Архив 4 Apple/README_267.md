@@ -6,7 +6,7 @@ Permute 3 v3.5.2 (build 2290) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707807.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Multitouch 1.18.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707805.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Coda 2.6.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707785.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Downie 4 v4.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707695.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Hazel 4.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707688.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Hardware Monitor 5.31 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707627.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Elmedia Player Pro 7.14 (build 2226)  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707581.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Sketch 68 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707578.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Allegorithmic Substance Designer 2020.1.3 (build 3587) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707577.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Sweet Home 3D 6.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707391.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ GrandTotal 5 v5.2.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707377.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Butler 4.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707362.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Mirror for Panasonic TV 3.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707344.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Studies 1.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707340.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Affinity Designer Beta 1.7.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707297.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Tenorshare iCareFone for WhatsApp Transfer 1.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707166.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Permute 2.4.4 [Muli/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707152.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ File Cabinet Pro 4.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707147.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ NoteBurner M4V Converter Plus 4.3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707115.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Parkitect v1.3 (2018) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707083.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Alien Skin Exposure X4 Bundle 4.0.7.179 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707008.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Lyn 1.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706992.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ WiFi Explorer Pro 2.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706898.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ SSH Config Editor Pro 1.13.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706825.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Hardware Monitor 5.52 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706816.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Navicat Premium 11.2.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706602.jpg" />
 </div>
 
 

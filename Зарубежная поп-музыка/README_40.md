@@ -6,7 +6,7 @@ R5 - Sometime Last Night (2015) [MP3|320 кб/с]<Pop Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588672.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Life In Film - Here It Comes (2015) Deluxe Version [MP3|320 кб/с]<Indie Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587993.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Women’s Stories (2015) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587938.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Discotech & About Nu Disco (2022) [MP3|320 Kbps] <Nu Disco, Dance, Deep Hou
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586749.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Black Jack - 3 Albums (1979-1982) [MP3|320 Kbps] <Electronic, Disco, Synth-pop, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586481.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Танцевальный рай: RIO (2016) [MP3|320 Kbps] <Pop, Eurodisco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586435.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Tight Fit - Back To The 60's (1981) LP [MP3|320 Kbps] <Pop, Disco, Rock & Roll>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586178.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ VA - DMC Halloween In The Mix (Classic Mixes) (Volume 1) (2019) [MP3|320 Kbps] <
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585792.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ VA - RTL Hits Sommer 2019 (2019) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583280.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Dolly Dots - 8 Albums (1979-1986) [MP3|320 Kbps] <Electronic, Disco,  Europop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581430.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Wincent Weiss - Irgendwie anders (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580363.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Carly Rae Jepsen - Dedicated (2019) [MP3|320 Kbps] <Pop, Electropop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579326.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ VA - Italo Disco Party, Vol. 1 (2019) [MP3|320 Kbps] <Italo-Disco, Europop, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579319.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - Songs Sunny Italy (2015) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578782.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Tamar Kaprelian - 3 альбома и 1 сингл (2009-2015) Дискогра�
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578742.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578690.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Supercharge - Body Rhythm (1979) LP [MP3|320 Kbps] <Electronic, Disco, Pop Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578031.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ VA - Romantic Serenade (2001) [MP3|320 Kbps] <Pop, Vocal, Easy Listening>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578013.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ VA - Metropolis (Original Motion Picture Soundtrack) (1984) By Giorgio Moroder [
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577891.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ VA - Die Hit Giganten Best Of 2000er (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576316.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ VA - New Hit 2019 (Vol.2) (2019) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576313.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Bee Gees - 21 cтудийный альбом (1967 - 2001) [MP3|320 кб/с]<pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576212.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Sparks - Exotic Creatures of the Deep (2008) Deluxe Edition, 2022, BMG [MP3|320 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575776.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Teach In - The Best of the Best (2012) [MP3|320 кб/с]<Disco, Pop, Pop Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574739.jpg" />
 </div>
 
 
@@ -712,7 +712,7 @@ John Paul Young - Greatest Hits (1997) CD [MP3|320 Kbps] <Electronic, Disco, Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574341.jpg" />
 </div>
 
 
@@ -741,7 +741,7 @@ Adriano Celentano - The Best (2012) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574306.jpg" />
 </div>
 
 

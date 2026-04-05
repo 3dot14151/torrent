@@ -1,3 +1,57 @@
+###  Публикация: 561563   (406221) от 17.10.2012
+
+Журнал | Здоровье в доме №41 [2012] [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406221.jpg" />
+</div>
+
+
+###  Подробнее
+
+О печени уже писали. И читатели знают, что от нее зависит здоровье всего организма. Но все равно многие не на шутку рискуют печенью. Бьют по ней ежедневно! Алкоголем, жирной или фастфудовской едой, токсичными веществами (в быту их полно!) и лекарствами.
+То, что печень современного человека нуждается в защите, уже не секрет. Так чем же ее защитить? Правильным питанием. Включите в рационе продукты из 5 основных групп: злаки, молочные продукты, овощи и фрукты, а также жиры и белки (чтобы определить суточную долю белка в граммах, умножьте свой вес на 0,8). Пейте от 1 до 2 литров жидкости в день. И посвящайте минимум 30 минут физическим нагрузкам. При работе с химикатами используйте маску и перчатки, проветривайте помещение. Будьте осторожны со спиртным. А если вам назначены лекарства, попросите врача также посоветовать вам гепатопротекторы (средства для защиты печени).
+И еще - не злитесь, а лучше улыбнитесь!Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B784310AB13680C04D5BC8ED3C92436BE3D026BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561731   (406200) от 17.10.2012
+
+Журнал | Энциклопедия здоровья №18 [сентябрь 2012] [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это издание своего рода настольная энциклопедия здоровья, в каждом выпуске которого вы найдете информацию посвященную лечению и профилактике наиболее распространенных заболеваний.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F0A34BC7698DAE5476B827F05ECE4D551F39105
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 561635   (406195) от 17.10.2012
 
 Газета | Вятская правда № 233 [15 октября 1921] [PDF]
@@ -6,7 +60,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406195.jpg" />
 </div>
 
 
@@ -40,7 +94,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406184.jpg" />
 </div>
 
 
@@ -68,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405858.jpg" />
 </div>
 
 
@@ -94,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405625.jpg" />
 </div>
 
 
@@ -120,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405603.jpg" />
 </div>
 
 
@@ -146,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405080.jpg" />
 </div>
 
 
@@ -172,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404992.jpg" />
 </div>
 
 
@@ -198,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404759.jpg" />
 </div>
 
 
@@ -227,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403961.jpg" />
 </div>
 
 
@@ -253,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403904.jpg" />
 </div>
 
 
@@ -279,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403901.jpg" />
 </div>
 
 
@@ -305,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403786.jpg" />
 </div>
 
 
@@ -331,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403769.jpg" />
 </div>
 
 
@@ -363,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403143.jpg" />
 </div>
 
 
@@ -390,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402424.jpg" />
 </div>
 
 
@@ -416,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402392.jpg" />
 </div>
 
 
@@ -442,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402344.jpg" />
 </div>
 
 
@@ -468,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402212.jpg" />
 </div>
 
 
@@ -495,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401550.jpg" />
 </div>
 
 
@@ -521,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401543.jpg" />
 </div>
 
 
@@ -549,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401183.jpg" />
 </div>
 
 
@@ -575,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401174.jpg" />
 </div>
 
 
@@ -601,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401168.jpg" />
 </div>
 
 
@@ -627,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401112.jpg" />
 </div>
 
 
@@ -638,59 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF0E2D72F9B688CDEC48A2498F15F09F2E4F287D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170655   (399735) от 01.10.2017
-
-Журнал | Здоровье №9 (сентябрь 2017) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Здоровье — первый и главный на сегодня российский журнал о здоровом образе жизни. Это яркое и интересное издание о том, как достичь физического и эмоционального благополучия, не болеть, всегда сохранять прекрасную форму и высокий жизненный тонус. Красота, antiage, полезная еда, фитнес, здоровые привычки, психология, новейшие медицинские открытия, детское здоровье (   Читать дальше...   )Жанр: ЗдоровьеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D89B0A71EA06AAE96A3F1852D7F25E832B760B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170478   (399727) от 01.10.2017
-
-Журнал | Story [Россия] №10 (106) (октябрь 2017) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399727.jpg" />
-</div>
-
-
-###  Подробнее
-
-"STORY" не исторический журнал, а журнал историй, которые позволяют увидеть и понять многообразность человеческих судеб.
-Наши герои - исторические и современные, персоны знаковые, определившие лицо своего времени и поколения, сумевшие изменить ход истории, будь то история кинематографа, живописи, литературы, музыки, науки . или же истории в широком понимании (   Читать дальше...   )Жанр: ПублицистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D9761F008F71F805CFFE69890AF44E12BBB6F11
 ```
 
 https://mybot314.ru/tekegram_catalog/

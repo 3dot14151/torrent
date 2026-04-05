@@ -6,7 +6,7 @@ Quantum Theory (2010) [PS3] [EUR] 3.41 [Cobra ODE / E3 ODE PRO ISO] [License] [E
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591273.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Free MC Boot [Английский] (2010) [PS2]
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590439.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ The Chronicles of Riddick: Assault on Dark Athena (2009) [PS3] [USA] 2.60 [Cobra
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590264.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Steins;Gate (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [E
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589813.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PSP
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589442.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Car Mechanic Simulator (2019) [PS4] [USA] 5.05 [HEN] [License / 1.07 / DLC] [Ru/
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588884.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ ARK: Survival Evolved (2017) [PS4] [EUR] 6.72 [HEN] [License / 2.77 / DLC] [Ru/M
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585616.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ SAW II: Flesh and Blood (2010) [PS3] [EUR] 3.41 [Cobra ODE / E3 ODE PRO] [Unoffi
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584591.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ A Plague Tale: Innocence (2019) [PS4] [EUR] 9.0 [HEN] [License / 1.09 / DLC] [Ru
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584506.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Majin and the Forsaken Kingdom / Мадзин. Забытое королевст
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583892.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ My Friend Pedro (2020) [PS4] [USA] 5.05  [HEN] [License / 1.01] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583692.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583658.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Your Shape: Fitness Evolved 2013 (2012) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [Licen
 >>Wii U
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583259.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Just Dance 4 (2012) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583242.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Sports Connection (2012) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [Ru/Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583182.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Metal Gear Solid V: Ground Zeroes (2014) [PS3] [EUR] 4.53 [HEN] [Repack] [Ru/Mul
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582908.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PSP
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582603.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS2
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582591.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Disney Universe / Disney: Мир Героев (2011) [PS3] [EUR] 3.70 [Cobra ODE
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582553.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Spider-Man: Friend or Foe [Wii] [NTSC] [ENG] (2007)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581597.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PSP
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581539.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Metal Gear Solid V: The Phantom Pain (2015) [PS3] [EUR] 4.60 [HEN] [Repack] [Ru/
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580999.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Grand Theft Auto V (2014) [PS4] [EUR] 5.05 [HEN] [License / 1.38] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580777.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580492.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578430.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PSP
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578300.jpg" />
 </div>
 
 

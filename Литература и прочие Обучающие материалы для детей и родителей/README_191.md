@@ -1,3 +1,56 @@
+###  Публикация: 906909   (641841) от 10.06.2015
+
+Вера Иванова | Засекреченное счастье (2009) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641841.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юля собиралась на дачу как в ссылку: еще бы, три месяца без друзей и развлечений! Но неожиданно все изменилось, ведь Юля встретилась с Ним. Девочка раньше и подумать не могла, что какой-то другой человек — парень, с которым они познакомились совсем недавно! — может значить для нее так много. И только для того, чтобы еще раз его увидеть, она готова будет осуществить (   Читать дальше...   )Жанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A11FE801D89055696102E609E6E50A7EDEB84F74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032947   (641793) от 09.07.2016
+
+Давид Златопольский | Удивительные превращения. Детям о секретах земного притяжения (2008) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641793.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор комплекта пособий кандидат технических наук Д.С.Злато-польский дает возможность родителям и воспитателям ответить на сот­ни "почему" детей старшего дошкольного возраста, открыв им дорогу в загадочный и удивительный мир науки и техники.
+Работая с тетрадью под руководством взрослых, ребенок получит первоначальные знания о физических явлениях и технических (   Читать дальше...   )Жанр: Познавательная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA3C4798F20B0FA1534234150846EEED4E4AB2E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 906925   (641707) от 10.06.2015
 
 Леонид Савельев | Штурм Зимнего (1938) [DJVU]
@@ -6,7 +59,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641707.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641630.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641628.jpg" />
 </div>
 
 
@@ -88,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641626.jpg" />
 </div>
 
 
@@ -115,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641581.jpg" />
 </div>
 
 
@@ -142,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641508.jpg" />
 </div>
 
 
@@ -168,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641386.jpg" />
 </div>
 
 
@@ -197,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641300.jpg" />
 </div>
 
 
@@ -223,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641298.jpg" />
 </div>
 
 
@@ -250,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641282.jpg" />
 </div>
 
 
@@ -276,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641261.jpg" />
 </div>
 
 
@@ -302,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641252.jpg" />
 </div>
 
 
@@ -328,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641251.jpg" />
 </div>
 
 
@@ -354,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641152.jpg" />
 </div>
 
 
@@ -383,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641028.jpg" />
 </div>
 
 
@@ -409,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640895.jpg" />
 </div>
 
 
@@ -435,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640886.jpg" />
 </div>
 
 
@@ -461,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640877.jpg" />
 </div>
 
 
@@ -490,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640844.jpg" />
 </div>
 
 
@@ -517,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640606.jpg" />
 </div>
 
 
@@ -543,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640508.jpg" />
 </div>
 
 
@@ -572,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640282.jpg" />
 </div>
 
 
@@ -598,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640281.jpg" />
 </div>
 
 
@@ -624,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640279.jpg" />
 </div>
 
 
@@ -635,58 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A4A2C42FA001791D2B2984F06F50E55B952F283
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033191   (640215) от 10.07.2016
-
-Лев Кузьмин | Луна над заставой (1983) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повесть о пограничных буднях, о жизни на заставе семьи офицера-пограничникаЖанр: Детская прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF0EBD5BDE0A7985B3CF34929D7D088E068BC629
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033253   (640212) от 10.07.2016
-
-Лариса Васильева. (пер.) | Круглый камень (Венгерские сказки) (1981) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четыре сказки с прекрасными иллюстрациями Бориса Аркадьевича Диодорова.Жанр: СказкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC0ADE62A4C34812166142361683B023F84BA2CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

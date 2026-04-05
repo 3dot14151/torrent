@@ -1,3 +1,81 @@
+###  Публикация: 1653212   (194314) от 15.08.2023
+
+Nightmare Manor (2023) [Ru/Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в Nightmare Manor - ужасающую хоррор игру, которая отправит вас в старое поместье, пропитанное мрачной историей. В этой игре вы ощутите на себе холодное дыхание прошлого, оказавшись в месте, где живут зловещие сущности. Вы совершенно одни в страшном и неизвестном вам поместье. Или не одни? В любом случае вам придётся исследовать это место. Надеюсь (   Читать дальше...   )Тип издания: SceneРазработчик: Twisted Shell GamesЖанр: Экшены, Приключенческие игры, Казуальные игры, ИндиЯзык субтитров: Русский, Английский, НемецкийЯзык интерфейса: Русский, Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA5E2041FFA6DBB6AB99B651833EEC15EEA396B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653023   (194292) от 14.08.2023
+
+Greyhill Incident (2023) [Ru/Multi] (1.0.6) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Greyhill Incident – проект, разработанный в жанре хоррора на выживание, который порадует держащей в напряжении атмосферой и незаурядной сюжетной линией. События отправляют нас на просторы мира двадцатого века, когда учёные всячески исключали существование НЛО, но жителям небольшого городка пришлось испытать на себе влияние инопланетных обитателей.Тип издания: SceneРазработчик: Refugium GamesЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80D80D2C5FDEE8DD0A012643B190515F5E827078
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653080   (194289) от 14.08.2023
+
+Cat's Request (2023) [Ru/Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194289.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фантастическая детективная история про инопланетного кота Эша и его виртуальную помощницу, которые живут в мегаполисе, управляемом искусственным интеллектом. Однажды их спокойную жизнь нарушает внезапное появление компьютерного вируса, который ставит под угрозу все живые программы. Эш берёт на себя роль детектива, чтобы раскрыть тайну этого вируса. Вы можете переключаться (   Читать дальше...   )Тип издания: SceneРазработчик: BOVЖанр: Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2A9088A66AAB55F313DAD8B5725F76635993143
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1653308   (194249) от 15.08.2023
 
 Nightmare Manor (2023) [Ru/Multi] (Build 11921472) Repack Other s
@@ -6,7 +84,7 @@ Nightmare Manor (2023) [Ru/Multi] (Build 11921472) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194249.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Verne: The Shape of Fantasy (2023) [Multi] (1.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194171.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Labyrinthine (2023) [Ru/Multi] (Build 11965072) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193944.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Clover Day's Plus (2023) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193928.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Trek to Yomi (2022) [Ru/Multi] (build 10443135) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193865.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Frank and Drake (2023) [Multi] (1.0.1) Scene Tenoke [Special Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193854.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Orbo's Odyssey (2023) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193748.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Last Labyrinth (2019) [Ru/Multi] (1.0.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193702.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Apartament 1406: Horror (2023) [Ru/Multi] (1.1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193519.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Agatha Christie - Hercule Poirot: The London Case (2023) [Ru/Multi] (1.0) Scene 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193494.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Paper Cut Mansion (2022) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193063.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ KAGITORI -BIRD IN THE CAGE HIDING THE KEY- (2023) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192992.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ HeadHorse Legacy (2023) [Ru/Multi] (2.031) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192902.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ FAITH: The Unholy Trinity (2022) [En] (1.00) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192754.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Murder Is Game Over (2022) [En] (2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192475.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Behind the Frame: The Finest Scenery (2021) [Ru/Multi] (2.0.4_01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192281.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Great North Shelter 2 (2023) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191748.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Great North Shelter 2 (2023) [Ru/En] (Build 12078048) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191664.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Fort Solis (2023) [Ru/Multi] (Build 11938463) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191653.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Under The Waves (2023) [Ru/Multi] (Build 11920395) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191651.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Sumatra: Fate of Yandi (2019) [Multi] (1.2) License GOG [Collector's Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191570.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Alfred Hitchcock: Vertigo (2021) [Ru/Multi] (2022093001/dlc) License GOG [Digita
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191182.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Lempo (2023) [Multi] (1.0) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191064.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Lempo – это психологический хоррор, вдохновле
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C32CB1AB6037CBF125E71F85537D433500978A9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654251   (190760) от 09.09.2023
-
-The Cosmic Wheel Sisterhood (2023) [Ru/Multi] (1.1.0) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Познакомьтесь с историей Фортуны – ведьмы-прорицательницы, которую приговорили к изгнанию на уединённом астероиде. Создайте собственную колоду гадальных карт, верните себе свободу и определите будущее сообщества ведьм. The Cosmic Wheel Sisterhood – это повествовательная философская игра от создателей The Red Strings Club, которая, в частности, призывает поразмыслить (   Читать дальше...   )Тип издания: LicenseРазработчик: DeconstructeamЖанр: Приключение, Визуальные новеллыЯзык субтитров: Русский, Английский, Французский, Японский и другиеЯзык интерфейса: Русский, Английский, Французский, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE5AB3D4C0321909D42DB5D32028509C4BA54B81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588931   (190757) от 07.11.2022
-
-Saint Kotar: The Yellow Mask (2020) [Ru/Multi] (1.6) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190757.jpg" />
-</div>
-
-
-###  Подробнее
-
-Saint Kotar: The Yellow Mask - хоррор-квест, представленный двумя главными героями - Бенедеком Дохнаном и Николаем Калякиным. Они расследуют таинственное дело о серии загадочных убийств. Постепенно улики приводят их к мистическим событиям, связанные с черной магией и самим Дьяволом. Два персонажа представлены двумя индивидуальными сюжетными линиями.Тип издания: LicenseРазработчик: Red Martyr EntertainmentЖанр: Adventure, IndieЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DE8756B2E17D96CF4956CC45A703B7715BB8C25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589974   (189604) от 11.11.2022
-
-Christmas Massacre (2021) [En] (1.02) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рождественская елка Ларри велела ему убивать. Но на чьей стороне дерево на самом деле? И может ли он доверять тому, что слышит? Christmas Massacre - это игра в стиле стелс-слешера 80-х годов с низкополигональной графикой в стиле PS1. Подкрадывайтесь, преследуйте и убивайте свою жертву, не будучи пойманным. Вы должны убивать незаметно, чтобы пройти каждый уровень.Тип издания: LicenseРазработчик: Puppet ComboЖанр: Экшны, Приключение, ХоррорЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA8647DA6C9CF651AACF2E405316B321907AA3A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

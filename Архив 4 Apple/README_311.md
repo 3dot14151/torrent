@@ -6,7 +6,7 @@ Airmail 3.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622747.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Xojo 2015 r4 visual basic for MAC [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622669.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ QR Factory 2.9.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622663.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ VueScan Pro 9.5.52 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622661.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Principle 3.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622624.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ EdgeView 3 v3.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622373.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Lyn 2.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622365.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ iNet Network Scanner 2.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622353.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Nik Complete Collection by DxO 1.2.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622280.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Fix My iPhone 2.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622212.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Money Pro - Personal Finance 2.7.24 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622085.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Adobe Media Encoder 2022 v22.3 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621884.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Viscosity 1.7.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621762.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Beyond Compare 4.0.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621665.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Loopback 1.1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621633.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ iStat Menus 5.11 (610) Beta 6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621447.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Cashew 1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621175.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ HoudahGeo 5.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621173.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Together 3.5.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621159.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ NeoFinder 6.9.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621003.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Sketch 39 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621000.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ iMazing 2.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620784.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ OnyX 4.1.8 for macOS Monterey 12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620326.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Sketch 54.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620079.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Adobe Audition 2022 v22.3.0 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620057.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ MacFamilyTree 8.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619687.jpg" />
 </div>
 
 

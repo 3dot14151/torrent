@@ -1,163 +1,3 @@
-###  Публикация: 84664   (298253) от 27.10.2019
-
-Энтони Боланте | Adobe After Effects 7.0. Спецэффекты и создание видеокомпозиций [2007] [DJVU]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая книга написана профессионалом в области видеодизайна и видеомонтажа на основании личного опыта преподавания и является одним из самых полных руководств по программеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A78E51C461C183845969FFA200ADDF612E0E0F12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334233   (296661) от 28.10.2019
-
-А.А. Петровский (ред.) | Анализаторы речевых и звуковых сигналов. Методы, алгоритмы и практика (с MATLAB примерами) (2009) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296661.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данной книге обобщен многолетний опыт сотрудников НИЛ 3.1 «Мультипроцессорные системы реального времени» БГУИР проектирования различных компонентов систем мультимедиа таких как субполосное кодирование аудио- и речевых сигналов, подавление шумов окружающей среды в речевом сигнале, компенсация акустического и электрического эхосигналов, и т.д.
-Главные направления (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9579EFAD90D50227651C76E66A9C6B064BE1A92D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261818   (296522) от 14.11.2018
-
-Рафаэль Херцог и др. | Kali Linux от разработчиков (2019) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296522.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге предложен краткий курс работы с командной строкой Linux и ее концепциями, описаны типичные сценарии установки Kali Linux. Прочитав эту книгу, вы научитесь конфигурировать, отлаживать и защищать Kali Linux, а также работать с мощным менеджером пакетов дистрибутива Debian. Научитесь правильно устанавливать Kali Linux в любых окружениях, в том числе, в крупных (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ED6B5CEBA999B80D5DB4471C7D667E7E71E6700
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424162   (295453) от 15.11.2020
-
-Фабиан Уэске, Василики Калаври | Потоковая обработка данных с Apache Flink (2021) [EPUB]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295453.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начните работу с Apache Flink, фреймворком с открытым исходным кодом, на котором основаны многие крупнейшие в мире системы для обработки потоковых данных. В данной книге вы изучите фундаментальные понятия параллельной потоковой обработки и узнаете, чем эта технология отличается от традиционной пакетной обработки данных. Ф. Уэске и В.Калаври, занятые в проекте Apache (   Читать дальше...   )Жанр: Компьютерная литератураФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E21D9F85211D461228857E35186EF1282FD79BF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 268590   (295431) от 10.12.2010
-
-С.В.Гордейчик, В.В.Дубровин | Безопасность беспроводных сетей [2008] [DJVU]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295431.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представлен подробный анализ причин возникновения уязвимостей и типичных ошибок, допускаемых при развертывании беспроводных сетей. Описываются этапы построения защищенной беспроводной сети - от создания политики безопасности до настройки систем обнаружения беспроводных атак и проведения тестов на проникновения.
- Рассматриваются современные средства и технологии защиты, такие как 802.1Х, PEAP, SSL, IPSec, WPA и 802.11. Отдельный раздел посвящен защите мобильных устройств на основе ОС Windows Mobile.
- Рассматривается реализованная в Windows Mobile модель безопасности, а также приводятся рекомендации по использованию встроенных защитных механизмов для безопасного доступа к корпоративным ресурсам.
- Для системных администраторов, инженеров, специалистов в области информационной безопасности.2008Жанр: Безопасность в ИнтернетеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F2D4186AC5CE15DBB0AFF5B337544FDD8B5046B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424141   (295320) от 15.11.2020
-
-Фабиан Уэске, Василики Калаври | Потоковая обработка данных с Apache Flink (2021) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начните работу с Apache Flink, фреймворком с открытым исходным кодом, на котором основаны многие крупнейшие в мире системы для обработки потоковых данных. В данной книге вы изучите фундаментальные понятия параллельной потоковой обработки и узнаете, чем эта технология отличается от традиционной пакетной обработки данных. Ф. Уэске и В.Калаври, занятые в проекте Apache (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F141E23CA600D51D363993E143B07825E07AE75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1424164   (295134) от 15.11.2020
 
 А.А. Гладкий | Как быстро восстановить потерянные компьютерные данные. Подробное руководство по спасению информации (2020) [PDF]
@@ -166,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295134.jpg" />
 </div>
 
 
@@ -193,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293980.jpg" />
 </div>
 
 
@@ -219,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292683.jpg" />
 </div>
 
 
@@ -245,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292669.jpg" />
 </div>
 
 
@@ -271,7 +111,7 @@ James Cook / Джеймс Кук | LibGDX Game Development By Example / LibGDX �
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292508.jpg" />
 </div>
 
 
@@ -299,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292468.jpg" />
 </div>
 
 
@@ -325,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288675.jpg" />
 </div>
 
 
@@ -351,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287109.jpg" />
 </div>
 
 
@@ -379,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286815.jpg" />
 </div>
 
 
@@ -408,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285506.jpg" />
 </div>
 
 
@@ -434,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285356.jpg" />
 </div>
 
 
@@ -460,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281842.jpg" />
 </div>
 
 
@@ -488,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281824.jpg" />
 </div>
 
 
@@ -514,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281821.jpg" />
 </div>
 
 
@@ -541,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281519.jpg" />
 </div>
 
 
@@ -567,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281516.jpg" />
 </div>
 
 
@@ -593,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280503.jpg" />
 </div>
 
 
@@ -620,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280328.jpg" />
 </div>
 
 
@@ -647,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278829.jpg" />
 </div>
 
 
@@ -673,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278460.jpg" />
 </div>
 
 
@@ -685,6 +525,167 @@ Blender - это бесплатная графическая программа 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFDA6790BC0D2FE38C34EF163DB39C46BB77DDA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336772   (277167) от 08.11.2019
+
+Бен Симондс | Мастер класс по Blender / Blender Master Class [+ DVD] (2013) [PDF, EPUB, ODT] [Ru/En]
+
+>>Компьютерная литература
+>>3D графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Практическое руководство по моделированию, скульптингу, материалам и рендерингу.
+Blender - это мощный и бесплатный инструмент для 3D-графики, используемый художниками и дизайнерами по всему миру. Но даже опытные дизайнеры могут найти его сложным, чтобы превратить идею в нужный результат.
+Для тех, кто хотел узнать как создавать профессиональные проекты в Blender, (   Читать дальше...   )Жанр: 3D моделированиеФормат: PDF, EPUB, ODT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A56D548F78876C3978BE22A00A69AA739F69807
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336948   (277163) от 08.11.2019
+
+Джеймс Кронистер | Основы Blender. Учебное пособие / Blender Basics [4-ое издание по Blender 2.5/2.6] (2011) [PDF] [Ru/En]
+
+>>Компьютерная литература
+>>3D графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277163.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джеймс Кронистер написал это учебное пособие, основываясь на своем трёхлетнем опыте преподавания 3D-моделирования и анимации студентам Central Dauphin Hight School. Книга представляет собой готовый курс по трёхмерной компьютерной графике. Каждая глава рассчитана на 2 академических часа и включает теоретическую часть, на базе которой выполняется практическое задание, (   Читать дальше...   )Жанр: 3D моделирование, АнимацияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40E3999536A9276513D3B1822D9D3291F7AF1E45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336907   (277042) от 08.11.2019
+
+Брент Ластер | Jenkins 2. Приступаем к работе (2019) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена Jenkins – программной системе с открытым исходным кодом на Java, предназначенной для обеспечения процесса непрерывной интеграции программного обеспечения. Автор показывает, насколько Jenkins 2 отличается от более традиционных версий этой популярной платформы автоматизации с открытым исходным кодом, предназначенных только для интернета.
+
+Если вы знакомы (   Читать дальше...   )Жанр: Разработка программного обеспечения, Системное администрированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDB8628B63AB6630895E2AA901AA437BC85C3B18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337108   (275895) от 09.11.2019
+
+Джеймс Кронистер | Основы Blender. Учебное пособие / Blender Basics [5-ое издание по Blender 2.78] (2017) [PDF] [En]
+
+>>Компьютерная литература
+>>3D графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275895.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джеймс Кронистер написал это учебное пособие, основываясь на своем трёхлетнем опыте преподавания 3D-моделирования и анимации студентам Central Dauphin Hight School. Книга представляет собой готовый курс по трёхмерной компьютерной графике. Каждая глава рассчитана на 2 академических часа и включает теоретическую часть, на базе которой выполняется практическое задание, (   Читать дальше...   )Жанр: 3D моделирование, АнимацияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE4F09EA436E1123B979B98B197FB7CDABFCFEDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337140   (275848) от 09.11.2019
+
+Николай Путько | Всё о Blender за 16 уроков (2014) [PDF, DOCX]
+
+>>Компьютерная литература
+>>3D графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275848.jpg" />
+</div>
+
+
+###  Подробнее
+
+16 уроков по Blender 2.7x в которых мы рассмотрим: 3D моделирование, текстурирование, риггинг, скининг, анимацию, симуляцию, рендеринг, композитинг. Также мы создадим несколько простых 3D игр прямо в Blender.
+Для прохождения уроков нужны базовые знания по Blender.Жанр: 3D моделирование, АнимацияФормат: PDF, DOCX
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:585E84CAEA06ADCBECCE81E8D102448AB2AB6516
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 273682   (274298) от 22.12.2010
+
+Е.В. Филимонова  | 1С: Предприятие 8.1. Управление торговлей. Пошаговый самоучитель по бухгалтерскому учету на компьютере [2010] [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274298.jpg" />
+</div>
+
+
+###  Подробнее
+
+1С: Предприятие 8.1. Управление торговлей. Пошаговый самоучитель по бухгалтерскому учету на компьютере (2010). Пособие предназначено для бухгалтеров, пользователей персональных компьютеров и руководителей фирм, работников складов и кадровых служб, менеджеров предприятий, решающих задачи планирования закупок и продаж, управления поставками, взаиморасчетов с контрагентами, (   Читать дальше...   )Жанр: Обучающий курсФормат: PDFКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91A7F2774F6B8DFAC53098AEBC46F8F90D7D0A0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

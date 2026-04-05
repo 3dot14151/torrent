@@ -6,7 +6,7 @@ Patron (2021) [Ru/Multi] (1.040.0/dlc) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807658.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mafia II / Мафия 2 (2010) [Ru/En] (1.0.0.1/dlc) Repack xatab [Digital Delux
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807617.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Agarest: Generations of War 2 (2015) [En] (1.0) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807305.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Project Zomboid (2013) [Ru/Multi] (b.33.20/Early Access) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807186.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Nail'd [Ru] (RePack) 2010 | UltraISO
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807114.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Battlefleet Gothic: Armada (2016) [En/Multi] (1.0) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807043.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Defend the Rook (2021) [Ru/Multi] (1.02) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805869.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Travellers Rest (2020) [Ru/Multi] (0.4.4.2) License GOG [Early Access]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805866.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ SolSuite Solitaire 2020 (2020) [Ru/En] (20.05) Repack/Portable TryRooM (обно
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805716.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Terrain of Magical Expertise (2021) [Ru/Multi] (1.04) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805704.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Wingspan (2020) [Ru/Multi] (1.1.83.1020.1502) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805701.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ The Whispered World (2009) [Ru/Multi] (3.2.0418) SteamRip Let'sPlay [Special Edi
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805007.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Sniper Elite III / Sniper Elite 3 (2014) [Ru/En] (1.15a/dlc) Repack R.G. Мех�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804573.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Grotto (2021) [En] (1.1.1) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804128.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Tormented Souls (2021) [Ru/Multi] (1.0) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802227.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Styx: Shards of Darkness (2017) [Ru/Multi] (1.02/dlc) SteamRip Let'sPlay
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801146.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Darksiders Warmastered Edition (2016) [Ru/Multi] (1.0.2617) License PROPHET
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801018.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Time Loader (2021) [Ru/Muti] (1.0) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797916.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Otem's Defiance (2016) [En/Es] (2.0.0.9) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797472.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ The Walking Dead: Michonne - Episode 1-3 (2016) [Ru/Multi] (1.0.0.0) License COD
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797289.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Plague Inc: Evolved (2016) [Ru/Multi] (1.0.1) Repack АRMENIAC
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797228.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Corpse Party (2016) [En/Jp] (1.0) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796604.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Time Loader (2021) [Ru/Muti] (1.3) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794741.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Everybodys Gone to the Rapture / Хроники последних дней (201
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794362.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Gateways (2012) [En] (1.15) Repack R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793447.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Breaking Wheel (2017) [Ru/Multi] (4.14) License HI2U
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793031.jpg" />
 </div>
 
 

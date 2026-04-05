@@ -1,3 +1,61 @@
+###  Публикация: 1098310   (908944) от 30.01.2017
+
+Holly Davis - Animal Healing Workshop (2006) [FLAC|Lossless|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction [00:07:37]
+02. A Safe Place [00:06:00]
+03. Sensing the Emotion [00:03:16]
+04. Working With Energy [00:03:32](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42EBF3A647C2AA48DABA4506140D5EFE35E6669F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098324   (908937) от 30.01.2017
+
+Asha - Thunderheart (2016) [MP3|320 Kbps] <New Age, Contemporary Christian>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sacramental Song
+02. Will You Marry Me
+03. Where Are You
+04. Thunderheart(   Читать дальше...   )Жанр: New Age, Contemporary ChristianПродолжительность: 01:13:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5A7E71DBF46E90FBE9A8689CD4829CADF2852E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1098274   (908862) от 30.01.2017
 
 Fionnuala Sherry - Songs From Before (2011) [FLAC|Lossless|tracks + .cue] <New Age, Celtic, Neo-Classical>
@@ -6,7 +64,7 @@ Fionnuala Sherry - Songs From Before (2011) [FLAC|Lossless|tracks + .cue] <New A
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908862.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Tom Barabas - The Very Best Of (2004) Compilation [FLAC|Lossless|tracks + .cue] 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908812.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Sacred Earth - Inyan (2005) [FLAC|Lossless|image + .cue] <Meditative, New Age, M
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908721.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ American Indian Coalition - Native Spirit (2008) [MP3|320 Kbps] <Native American
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908697.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Greg Maroney - 2 альбома (2003, 2005) [FLAC|Lossless|image + .cue] <New A
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908569.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Jean Michel Jarre - Greatest Hits (2008) 2CD [APE|Lossless|image + .cue] <Electr
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908494.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908465.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - The Best Of Piano (2009) [FLAC|Lossless|tracks] <New Age, Instrumental, Pia
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908437.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Dennis Michael Tenney - Night Of The Demons /  Ночь демонов (1988) 20
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907211.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Cornelius + Cretu - Cornelius + Cretu (1992) [FLAC|Lossless]<Downtempo, Enigmati
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907002.jpg" />
 </div>
 
 
@@ -297,7 +355,7 @@ Henri Seroka & Ralph Benatar - Akhnaton Pharaoh (Myths And Legends) (1997) [FLAC
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905644.jpg" />
 </div>
 
 
@@ -326,7 +384,7 @@ Leonard Cohen - The Future (1992) [FLAC|Lossless]<Contemporary folk, Soft rock, 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905386.jpg" />
 </div>
 
 
@@ -355,7 +413,7 @@ Apache Dream & Enrique Camac - Native American Music (2012) [MP3|320 Kbps] <Nati
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905251.jpg" />
 </div>
 
 
@@ -384,7 +442,7 @@ VA - Kontor Top Of The Clubs: Electric 80s Vol.2 (2020) [MP3|320 Kbps] <Pop, Ele
 >>Other
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905095.jpg" />
 </div>
 
 
@@ -413,7 +471,7 @@ Various - Dali Stereo Demonstration CD (2002) [FLAC|Lossless|image + .cue] <Jazz
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905075.jpg" />
 </div>
 
 
@@ -442,7 +500,7 @@ David Arnold & Michael Price - Sherlock  - The Final Problem (2017) OST Sherlock
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904879.jpg" />
 </div>
 
 
@@ -471,7 +529,7 @@ Jean Michel Jarre - Zoolook (1984) [FLAC|Lossless|tracks + .cue] <Electronic>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904665.jpg" />
 </div>
 
 
@@ -500,7 +558,7 @@ Timothy Wenzel - Distant Horseman (2016) [MP3|320 кб/с] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904357.jpg" />
 </div>
 
 
@@ -529,7 +587,7 @@ Russill Paul - P.M. Yoga Chants (2001) [FLAC|Lossless|tracks + .cue] <World Musi
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904238.jpg" />
 </div>
 
 
@@ -558,7 +616,7 @@ Gaetir The Mountainkeeper - Vetrarljós (Vetrarljos) (2020) [FLAC|Lossless|Web-D
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903803.jpg" />
 </div>
 
 
@@ -587,7 +645,7 @@ Indian Calling, Alison - Native American Soundtracks (10 Best Native Indian Soun
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903649.jpg" />
 </div>
 
 
@@ -616,7 +674,7 @@ Guenter Haas - Tales of a Broken Planet (2013) [FLAC|Lossless|WEB-DL|tracks] <In
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903547.jpg" />
 </div>
 
 
@@ -645,7 +703,7 @@ Tatanka - Best Of Indian's Song (2005) [MP3|320 Kbps] <Native American, New age,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903513.jpg" />
 </div>
 
 
@@ -674,7 +732,7 @@ Nazca & Wayra Rodriguez - Traditional Indian (2010) [MP3|320 Kbps] <Native Ameri
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903401.jpg" />
 </div>
 
 
@@ -688,64 +746,6 @@ Nazca & Wayra Rodriguez - Traditional Indian (2010) [MP3|320 Kbps] <Native Ameri
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3A3496CBFB8D1486DEAF068DFD64E11CE9AC7D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099659   (903399) от 02.02.2017
-
-Andreas - Music for Pregnant Women (2013) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Music for Pregnant Women (16:00)
-02. Touch of Magic (05:46)
-03. Bluebells and Angels (05:11)
-04. Sanctify (06:44)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:57:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D713BA18DF55B6B4068E3FAD8F6A2C53AE67BC46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099606   (903376) от 02.02.2017
-
-Ron Allen - The First Flute (Songs Of Courtship) 1998 [FLAC|Lossless|tracks] <New Age, World, Aboriginal>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  She Is Untouchable  (06:37) 
-02|  The Journey  (05:38) 
-03|  Gift from the Spirits  (07:01) 
-04|  Woodpecker Dance  (05:42) (   Читать дальше...   )Жанр: New Age, World, AboriginalПродолжительность: 00:50:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD0AF4D0AF1DADFF081F2467EE98C6FD1555782E
 ```
 
 https://mybot314.ru/tekegram_catalog/

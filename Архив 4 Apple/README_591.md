@@ -6,7 +6,7 @@ Mic Drop 1.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173977.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Topaz Photo AI for Mac 2.0.5 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173976.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ File List Export 2.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173972.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Piezo 1.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173969.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Perfect Horizon Full 1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173950.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ USBclean 3.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173947.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ DVD-Cloner 2020 v7.40.719[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173943.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Blocs 4.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173940.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ DxO PureRAW 3 for Mac v.3.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173931.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Storyist 4 v4.2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173923.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Swift Publisher 5 v5.5.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173914.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ AnyTrans for iOS 8.8.0.20201208 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173909.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Get Backup Pro 3 v3.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173906.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Omni Recover 2.9.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173904.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Audio Playr 2.3  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173902.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ NAMO 1.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173884.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Luminar Neo 1.14.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173860.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Ableton Live Suite 11 v.11.3.12 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173833.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Pixelmator Pro 3.4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173698.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ djay Pro AI 3.0.3  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173668.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Artlantis 2021 v9.5.2.24851 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173662.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Audio Hijack 3.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173647.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ EtreCheck Pro 6.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173506.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Marked 2 - Markdown Preview 2.6.29 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173504.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Dropzone 4 Pro 4.7.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173503.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Permute 3 v.3.11.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173502.jpg" />
 </div>
 
 

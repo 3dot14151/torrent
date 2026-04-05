@@ -1,3 +1,160 @@
+###  Публикация: 982261   (930120) от 14.02.2016
+
+Игро-Новости Февраля
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dying Light - разработчики опубликовали занятное видео, освещающее эволюцию зомби в поп-культуреСтудия Techland, которая готовит к скорому выходу крупное дополнение для зомби-экшена Dying Light - The Following, опубликовала в сети довольно занятное видео. Посвящено оно тем, кто являются частью поп-культуры уже на протяжении долгого периода времени - зомби.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986643   (930113) от 14.02.2016
+
+Воскресный вечер с Владимиром Соловьевым (2016.02.14) SATRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930113.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Мы ставили задачу сделать программу для умного, неравнодушного зрителя, которая позволит обсуждать актуальные проблемы в разных форматах: от интервью "один на один" до "круглого стола". Надеемся, она будет такой же острой, как политическое ток-шоу "Поединок". Но если в "Поединке" сталкиваются две полярные точки зрения, (   Читать дальше...   )Телекомпания: РоссияЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: ~ 02:56:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57E4811235BBE20E27243A197AFB21D9DE703537
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986043   (929976) от 14.02.2016
+
+Компания Northrop Grumman выпустила ролик, демонстрирующий концепт будущего истребителя 6-го поколения
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американская оборонная компания Northrop Grumman, известная, прежде всего, как разработчик и изготовитель  бомбардировщика-невидимки B-2 Spirit, нового бомбардировщика Long Range Strike Bomber, недавно опубликовала короткий 30-секундный видеоролик, который по праву можно отнести к разряду рекламы. Действующими "лицами" этого видеоролика являются боевые летательные (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 286081   (929942) от 24.01.2011
+
+Microsoft Windows 7 SP1 RUS-ENG x86-x64 -18in1- Activated (AIO) [22.01.11]
+
+>>3
+>>37
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929942.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная сборка включает в себя 9 модификаций русской и 9 модификаций английской версииЯзык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920055   (929872) от 07.03.2020
+
+Пираты ХХ века (1979) HDTVRip [H.264]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929872.jpg" />
+</div>
+
+
+###  Подробнее
+
+Советский сухогрузный корабль перевозил большой груз опиума для фармакологической промышленности. Современные пираты, охотившиеся за ценным грузом, коварством завладели кораблем и экипажем. Чтобы не осталось свидетелей этого разбойного нападения, пираты попытались уничтожить всю команду корабля. В океанских просторах разыгралась напряженная борьба между горсткой (   Читать дальше...   )Производство: СССР / Киностудия имени М. ГорькогоЖанр: Боевик, триллер, криминал, приключенияРежиссер: Борис ДуровАктеры: Николай Ерёменко мл., Пётр Вельяминов, Талгат Нигматулин, Рейн Арен, Дилором Камбарова, Наталья Хорохорина, Майя Эглите, Тадеуш Касьянов, Павел Ремезов, Виктор Жиганов, Виктор ГордеевПеревод: Не требуетсяСубтитры: Русские / UTF-8 (вшитые, отключаемые)Продолжительность: 01:19:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89431D8895F1B319787C736F5F918DB6AB98DAA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364834   (929869) от 07.03.2020
+
+Проект SETI@home по поиску внеземных цивилизаций завершает работу после 21 года безрезультатных поисков
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929869.jpg" />
+</div>
+
+
+###  Подробнее
+
+SETI (Search for Extraterrestrial Intelligence) — общее название проектов и мероприятий по поиску внеземных цивилизаций и возможному вступлению с ними в контакт. И SETI@home, некоммерческий проект на платформе распределенных вычислений BOINC, пожалуй, является самым известным в своем роде. Точнее, являлся.После 21 года безрезультатных поисков исследовательский центр (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364836   (929863) от 07.03.2020
 
 Пользователь обнаружил, что Windows 10 нельзя установить на ПК с 19 января 3001 года
@@ -6,7 +163,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929863.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ Mairimashita! Iruma-kun | Welcome to Demon School! Iruma-kun | Добро пож
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929847.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ The Elder Scrolls IV: Oblivion Bevilex & Reisen Abe's ModLists (2006) [Ru/En] (1
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929844.jpg" />
 </div>
 
 
@@ -84,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929840.jpg" />
 </div>
 
 
@@ -110,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929837.jpg" />
 </div>
 
 
@@ -136,7 +293,7 @@ BootHDD 2017(EFI) Final [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929834.jpg" />
 </div>
 
 
@@ -162,7 +319,7 @@ Hiren's BootCD 15.2 Standart | Full [Русский от Lexapass] (исправ
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929830.jpg" />
 </div>
 
 
@@ -188,7 +345,7 @@ World of Warcraft (2004) [En] (1.12.1) Official
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929823.jpg" />
 </div>
 
 
@@ -214,7 +371,7 @@ Adobe Illustrator CC 2017.0.2 21.0.2 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929821.jpg" />
 </div>
 
 
@@ -240,7 +397,7 @@ Voco Enterprise 2.0.464.1268 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929815.jpg" />
 </div>
 
 
@@ -266,7 +423,7 @@ Spintires (2014) [Ru/Multi] (1.0/DEV.25.12.15c) Repack R.G. Механики
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929814.jpg" />
 </div>
 
 
@@ -292,7 +449,7 @@ Bad guy | eXeLAB ВИДЕОКУРС 3D (2015) [unpacked]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929813.jpg" />
 </div>
 
 
@@ -320,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929812.jpg" />
 </div>
 
 
@@ -346,7 +503,7 @@ Zorin OS 11 Ultimate [x64] (1xDVD)
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929810.jpg" />
 </div>
 
 
@@ -373,7 +530,7 @@ NARUTO SHIPPUDEN: Ultimate Ninja STORM 4 (2016) [Ru/Multi] (1.01/dlc) SteamRip L
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929809.jpg" />
 </div>
 
 
@@ -399,7 +556,7 @@ Subterrain (2016) [Ru/Multi] (1.0.3.5) SteamRip Let'sРlay
 >>10
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929808.jpg" />
 </div>
 
 
@@ -425,7 +582,7 @@ This War of Mine (2014) [Ru/Multi] (2.0.2/dlc) SteamRip Let'sPlay
 >>17
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929807.jpg" />
 </div>
 
 
@@ -451,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929660.jpg" />
 </div>
 
 
@@ -477,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929590.jpg" />
 </div>
 
 
@@ -503,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929584.jpg" />
 </div>
 
 
@@ -514,167 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E798E158AA217CAEF533D9917F00E403573D8EF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 862368   (929578) от 23.01.2015
-
-Profileschool | Творческая Ретушь Vol.2 (2014) PCRec
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929578.jpg" />
-</div>
-
-
-###  Подробнее
-
-Творческая ретушь – очень сложный и интересный онлайн курс, который весомо отличается от курса поКоммерческой ретуши, но основывается на тех же Базовом и Продвинутом курсах Photoshop. Поэтому мы считаем этот курс логичной второй ступенью: от иллюстраторов – к живописцам, от музыкантов – к композиторам, от ремесленников – к мастерам.Жанр: Ретушь фотоПродолжительность: 16:15:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21432C769D8812585EEC9EE52D3145D292B9D82F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 851464   (929569) от 23.01.2015
-
-Metal Gear Solid V Ground Zeroes (2014) [Ru/Multi] (1.003) SteamRip Let'sPlay
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929569.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всемирно известная студия Kojima Productions представляет вашему вниманию свой очередной шедевр из серии Metal Gear Solid - Metal Gear Solid V: Ground Zeroes. Это первая часть игры Metal Gear Solid V Experience, которая служит прологом к грядущей более масштабной второй части Metal Gear Solid V: The Phantom Pain.
-MGSV: GZ приглашает самых заядлых геймеров опробовать (   Читать дальше...   )Тип издания: SteamRipРазработчик: Kojima ProductionsЖанр: Action / 3D / 3rd Person / StealthЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский, Немецкий, Испанский, Японский, ПортугальскийЯзык интерфейса: Русский, Английский, Французский, Итальянский, Немецкий, Испанский, Японский, Португальский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73D521672416967F2F6C418C4BC31B742F3CA764
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 862240   (929567) от 23.01.2015
-
-Ёлки 1914 (2014) HDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929567.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: Россия, Базелевс ПродакшнЖанр: Комедия, Семейный, ДрамаРежиссер: Ольга Харина, Тимур Бекмамбетов, Заур ЗасеевАктеры: Константин Хабенский, Иван Ургант, Сергей Светлаков, Евгения Брик, Нина Дворжецкая, Ирина Архипова, Альберт Филозов, Елена Плаксина, Антон Богданов, Ян ЦапникПеревод: Не требуется (русский) ЛицензияСубтитры: ОтсутствуютПродолжительность: 01:47:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F72204E63BF5BC548EE29DD5F1F8F1D9904F4D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 630084   (929524) от 14.03.2013
-
-Dead Space 3: Awakened [Ru/En] (RePack/1.0.0.1) 2013 | R.G. Repacker's
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929524.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dead Space 3 отправляет Айзека Кларка и безжалостного солдата Джона Карвера в глубины космоса, где спрятан источник нашествия Некроморфов. Совершив аварийную посадку на скованной холодом планете Тау Волантис, они будут вынуждены противостоять враждебной среде, искать необходимые ресурсы и оборудование. Айзеку понадобятся весь его опыт и навыки, чтобы обойти ловушки, собрать и улучшить оружие. В глубинах планеты таится ответ, который позволит раз и навсегда положить конец Некроморфам. Но путь к нему стерегут лавины, ледники и опасные хищники. Айзеку и его напарнику предстоит сражаться вместе, чтобы спасти человечество от апокалипсиса.(   Читать дальше...   )Тип издания: RePackЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C5998F310E0926F0BAF032F479EB03FFC7C7988
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 629926   (929520) от 14.03.2013
-
-Gears of War: Judgment [XBOX360] [Region Free] [RUSSOUND] [LT+3.0] (XGD3 / 15574) (2013) | R.G. X360Club
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929520.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра Gears of War: Judgment стала одной из самых динамичных и сложных по сюжетной линии игр, возвращающих вас в наиболее значимый день Вселенной, где разворачиваются события игры, – в момент, наступивший сразу после Дня Прорыва. Игра как будто впервые испытывает вас на прочность характера в супер динамичном многопользовательском режиме.
-Сюжет новой серии «Judgment» вращается вокруг отряда солдат Kilo Squad, который возглавляют Деймон Байрд (Damon Baird) и Август «Колтрейн» Кол (Augustus «The Cole Train» Cole), сформированного за несколько лет до событий предыдущей серии трилогии Gears of War.
-В этой серии к ним присоединились новички София Хендрикс и Гарон Падак, объединенные одной целью – спасти оккупированный новым ужасным врагом город Халво Бей.
-
-Gears of War: Judgment предоставляет возможность совместной игры с тремя друзьями через Xbox LIVE (всего 4 человека), с которыми вы сможете спасти планету Сера от уничтожения Локустами. (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Epic Games и People Can FlyЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C42FF057079581949C56AA477146D6D6BE9937F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 628364   (929518) от 14.03.2013
-
-Pinnacle Studio 16 Ultimate 16.1.0.115 VPP 2013 (58.2GB) [MULTi / Русский]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929518.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Corel официально выпустил новую версию известнейшей платформы для обработки видеоматериалов Pinnacle Studio 16. Это первый релиз Pinnacle Studio с тех пор, как компания Corel приобрела бизнес компании Avid по выпуску потребительских инструментов видеомонтажа в июле этого года. На данный момент компания Corel свертывает развитие линейки продуктов Avid Studio, (   Читать дальше...   )Язык интерфейса: MULTi / Русский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

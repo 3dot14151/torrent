@@ -1,3 +1,57 @@
+###  Публикация: 1534773   (674058) от 12.03.2022
+
+CGMA, Hannah Kang | Stylized Characters in 3D (2020) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основная задача этого курса - научить вас процессу создания стилизованного персонажа. В итоге вы создадите стилизованного персонажа с нуля. Мы начнем со сбора концептов и референсов и на их основе создадим базовую форму персонажа. Проработаем первичные и вторичные формы, создадим более подробную детализацию. Особое внимание будет уделено созданию привлекательности (   Читать дальше...   )Производство: CGMAЖанр: СкульптингЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 07:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:215923C188C1E9B9EE9859A6A4ECDE47B47A02C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535713   (674050) от 12.03.2022
+
+Udemy, Rob Tuytel, Erik Selin | Creating 3D environments in Blender (2020) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674050.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этом курсе вы получите фундаментальные знания по созданию объемных пейзажей, научитесь получать максимум от программы Blender в создании высококачественных 3D окружений.
+Начнем с нуля.
+Видимая внешняя сложность часто отталкивает многих людей от создания пейзажей и окружения в 3D. Большая часть дизайнеров бросает это занятие на пол-пути, работы остаются незаконченными, (   Читать дальше...   )Производство: UdemyЖанр: Создание 3D окруженияЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 28:16:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:686B4E8FB7524C6618AB23EB218741C30B0D1E52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1534779   (674048) от 12.03.2022
 
 CGMA, Michael Pavlovich | ZBrush for Concept & Iteration (2021) PCRec [EN, RU]
@@ -6,7 +60,7 @@ CGMA, Michael Pavlovich | ZBrush for Concept & Iteration (2021) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674048.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Yiihuu, Hooman Raad | The Dwarf Warrior: 3D Character Creation For Game (2019) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674046.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674040.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ Udemy, Nikolay Naydenov | Absolute Beginners 3D Character in Blender Course (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670422.jpg" />
 </div>
 
 
@@ -111,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669870.jpg" />
 </div>
 
 
@@ -137,7 +191,7 @@ TeachVideo.ru | Adobe Premiere Pro CS4 [2009, RUS] Видеокурс
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669696.jpg" />
 </div>
 
 
@@ -163,7 +217,7 @@ ArtStation, Emiel Sleegers | Ultimate Environmental Texture Creation Course (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667608.jpg" />
 </div>
 
 
@@ -190,7 +244,7 @@ VFX for FilmMakers, Matt Skonicki | Scratch to Substance Volume 1a-1b (2018) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665264.jpg" />
 </div>
 
 
@@ -217,7 +271,7 @@ Udemy, Darrin Lile | Blender 3.0 Vintage Car Creation (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660859.jpg" />
 </div>
 
 
@@ -243,7 +297,7 @@ Daarken | Введение в цифровую живопись [Обновля�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658403.jpg" />
 </div>
 
 
@@ -272,7 +326,7 @@ Geekbrains | Веб-дизайн. От новичка до профи (2015) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658386.jpg" />
 </div>
 
 
@@ -299,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657605.jpg" />
 </div>
 
 
@@ -327,7 +381,7 @@ lynda.com |  After Effects Apprentice 15: Final Project - After Effects. Обу�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657421.jpg" />
 </div>
 
 
@@ -353,7 +407,7 @@ Rebelway, Igor Zanic | Water FX in Houdini (2016) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655982.jpg" />
 </div>
 
 
@@ -380,7 +434,7 @@ Uartsy, David Lesperance | Environment Creation in Unreal Engine 4 (2016) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655875.jpg" />
 </div>
 
 
@@ -407,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655482.jpg" />
 </div>
 
 
@@ -433,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648883.jpg" />
 </div>
 
 
@@ -459,7 +513,7 @@ Levelup.Digital, Carlos Perfume | Substance Designer Dome of Cologne (2021) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648302.jpg" />
 </div>
 
 
@@ -486,7 +540,7 @@ CGcircuit, Matthew Skonicki | Photogrammetry Pipeline (2018) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646533.jpg" />
 </div>
 
 
@@ -512,7 +566,7 @@ CGcircuit, Matthew Skonicki | Photogrammetry Pipeline V2 (2018) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644783.jpg" />
 </div>
 
 
@@ -539,7 +593,7 @@ MZED, Vincent Laforet's | Directing Motion Daytime Movement and Direction Worksh
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644663.jpg" />
 </div>
 
 
@@ -565,7 +619,7 @@ The Gnomon workshop, Derrick Sesson | Introduction to creating facial blendshape
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644415.jpg" />
 </div>
 
 
@@ -593,7 +647,7 @@ FastTrack Tutorials, Emiel Sleegers | Large Game Environment Creation - In-Depth
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644246.jpg" />
 </div>
 
 
@@ -621,7 +675,7 @@ video2brain |Adobe Illustrator CS6: Learn by Video [Jun 27, 2012] PCRec [Eng]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640587.jpg" />
 </div>
 
 
@@ -632,61 +686,6 @@ video2brain |Adobe Illustrator CS6: Learn by Video [Jun 27, 2012] PCRec [Eng]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE606FB0DD92CAA2C68D623689C144D9AA48A00E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518123   (640468) от 04.07.2012
-
-video2brain |Adobe Premiere Pro CS6: Learn by Video [Jun 8, 2012] PCRec [Eng]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640468.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Premiere Pro быстро становятся номер один в системе редактирования для широкого круга специалистов и полупрофессиональных редакторов во всем мире. Вот и в CS6 версии, Adobe добавила ряд новых элементов, задача которых - экономить Ваше время при нелинейном монтаже. К ним относятся специальные эффекты новой линейки, которые раньше можно было увидеть только в Adobe After Effects а также новый улучшеный интерфейс. В этом курсе эксперт - редактор и ведущий Maxim Jago представит полное руководство по работе с Adobe Premiere Pro CS6, охватывающее все: от основ нелинейного монтажа до самых современных новых возможностей. Вы научитесь использовать несколько типов медиа - файлов в Premiere Pro, объединить их для производства профессиональные изменений, применить эффекты, добавить названия, работать с аудио и в различных форматах, включая DVD, Blu-ray и файлы.Жанр: Видеоредакторы (Обучающее видео + файлы упражнений)Продолжительность: 14:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08B730EEA90178DDF584A77E8408BF594443FBFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 679797   (639756) от 18.07.2013
-
-Евгений Попов | Как быстро и бесплатно создать 3D-обложку [2012] PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скорее всего, вы уже многократно видели в Сети 3D-обложки для различных программ, курсов и прочих виртуальных вещей. Из моего урока вы узнаете как создать подобную обложку своими силами, используя специальный сервис и фотошоп.
-Приятного просмотра!
-
-С уважением, Евгений Попов.Жанр: обучающий видеоурокПродолжительность: 00:08:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A4BB9AF50AD9E98B20465FB2C793C9B45FCC0E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

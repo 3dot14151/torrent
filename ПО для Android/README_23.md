@@ -1,3 +1,112 @@
+###  Публикация: 1455348   (1025721) от 18.03.2021
+
+WiFi Analyzer Pro v3.2.1 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025721.jpg" />
+</div>
+
+
+###  Подробнее
+
+ВАЖНО для Android начиная с 6 (Marshmallow): пожалуйста, включите определение местоположения (Настройки > Местоположение). В противном случае, приложение не будет корректно работать. Приложение не требует этой функции, это проблема версии Android 6.0 и выше (без включенного определения местоположения, приложение не увидит доступных сетей). Приложение исследует (   Читать дальше...   )Тип издания: Pro (Paid с Маркета))Релиз состоялся: 13.03.2021Разработчик: Zoltán PallagiПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E76987200CC7E51148A095B3816F88ACCC74312D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019296   (1025682) от 18.03.2021
+
+Speed camera radar / Радар детектор v3.1.29 [Ru/Multi] (обновляемая)
+
+>>След.
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025682.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатное приложение для обнаружения камер скорости на дороге (мобильные засады, статические камеры, камеры встроенные в светофоры), лежачих полицейских, плохих дорог и прочих опасностей по обновляемой базе данных. В последней версии поддерживаются все страны мира!Тип издания: Paid (Pro с Маркета)Релиз состоялся: 14.02.2021Разработчик: Road SoftПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:084B465C8597FEDFADA13382DCF6EA1BC9364C98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455477   (1025612) от 19.03.2021
+
+Piano Ear Training Pro ver.Improved UI (118) [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025612.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piano Ear Training Pro - тренажер для слуха
+• Подходит для начинающих и продвинутых музыкантов со всеми необходимыми упражнениями  для тренировки слуха на разных уровнях.
+• Быстро развивайте слуховые навыки, персонализируя свое обучение, сосредотачиваясь на определенных аккордах, интервалах, прогрессиях, гаммах и т. Д.
+• Отслеживайте прогресс по мере вашего повышения (   Читать дальше...   )Тип издания: Пиратка (Pro с Маркета)Релиз состоялся: 17.03.2021Разработчик: Learn To MasterПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBC2F7295B185235DBBC7C05CFAC787B087F2641
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355533   (1025537) от 19.03.2021
+
+Хатха йога для начинающих v3.1.3 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025537.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хатха йога для начинающих дома - это синтез самых лучших и проверенных временем на эффективность асан и упражнений, которые познакомят Вас с Хатхой. Приложение будет очень полезно для новичков, впервые освоившим йога упражнения тренировка и асаны, так и для продвинутых пользователей как для мужчин, так и для женщин.
+
+Йога тренировки дома составлены таким образом, (   Читать дальше...   )Тип издания: Пиратка (разблокирована)Релиз состоялся: 01.03.2021Разработчик: mEL StudioПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9A9E1EEE28A048DE353E79798CB67D3CEC86505
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455638   (1025505) от 19.03.2021
 
 TiviMate IPTV Плеер v2.8.0 [Ru]
@@ -6,7 +115,7 @@ TiviMate IPTV Плеер v2.8.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025505.jpg" />
 </div>
 
 
@@ -35,7 +144,7 @@ Map Marker v2.19.1 [Ru/Multi] - создание собственных мето
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025444.jpg" />
 </div>
 
 
@@ -61,7 +170,7 @@ Instander 11.0 [Ru/Multi] – неофициальный клиент Instagram 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025340.jpg" />
 </div>
 
 
@@ -87,7 +196,7 @@ Radardroid Pro v3.73 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025204.jpg" />
 </div>
 
 
@@ -113,7 +222,7 @@ Cinema HD TV v2.3.6.1 Mod [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025156.jpg" />
 </div>
 
 
@@ -139,7 +248,7 @@ BackCountry Navigator TOPO GPS v7.1.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025150.jpg" />
 </div>
 
 
@@ -165,7 +274,7 @@ VOA Learning English v4.9.1 [En] - Practice listening everyday
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025065.jpg" />
 </div>
 
 
@@ -193,7 +302,7 @@ Atlas Напоминания v1.8.1 Pro [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024982.jpg" />
 </div>
 
 
@@ -219,7 +328,7 @@ Rock Identifier v1.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024903.jpg" />
 </div>
 
 
@@ -245,7 +354,7 @@ Picture Bird v2.1 [Ru/Multi] - Bird Identifier
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024893.jpg" />
 </div>
 
 
@@ -272,7 +381,7 @@ Picture Mushroom v2.0 [Ru/Multi] - Mushroom ID
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024871.jpg" />
 </div>
 
 
@@ -299,7 +408,7 @@ Tingles ASMR v3.4.1 [Ru/En] - звуки для сна и расслаблени
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024835.jpg" />
 </div>
 
 
@@ -325,7 +434,7 @@ Car Radio v1.1.3 [En] - for Android Stereo Head Units
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024550.jpg" />
 </div>
 
 
@@ -353,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024529.jpg" />
 </div>
 
 
@@ -379,7 +488,7 @@ YAATA SMS 1.44.10.21936 Mod by papasha55, unz1p, solokot, Uksus17, Mare12 [Ru/En
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024393.jpg" />
 </div>
 
 
@@ -405,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024061.jpg" />
 </div>
 
 
@@ -431,7 +540,7 @@ AutoResponder for WA / Автоответчик для WhatsApp v1.9.9 [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024049.jpg" />
 </div>
 
 
@@ -457,7 +566,7 @@ ClockWork Tomato v3.7.0 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023799.jpg" />
 </div>
 
 
@@ -484,7 +593,7 @@ AirDroid v4.2.6.6 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023716.jpg" />
 </div>
 
 
@@ -510,7 +619,7 @@ Jeejen 3.1.20 Mod by Martin H3 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023656.jpg" />
 </div>
 
 
@@ -536,7 +645,7 @@ Jasi Patcher 4.11 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023441.jpg" />
 </div>
 
 
@@ -562,7 +671,7 @@ Tiny Scan: PDF Document Scanner 4.2.10 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023439.jpg" />
 </div>
 
 
@@ -573,110 +682,6 @@ Tiny Scan: PDF Document Scanner - Теперь преобразовать обы
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66196DD8AF756C0BA9FBED3A72F2ECA6A419BB4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367559   (1023421) от 31.03.2021
-
-SwiftScan (Ранее Scanbot) 7.9.0 [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023421.jpg" />
-</div>
-
-
-###  Подробнее
-
-SwiftScan (Ранее Scanbot) - это мобильное приложение, которое позволяет сканировать документы в премиум-качестве. Создавайте PDF документы высокого разрешения. Отправляйте их по электронной почте или загружайте в Box, Dropbox, Evernote и другие облачные сервисы.Тип издания: Mod (Разблокирован Pro)Релиз состоялся: 08.03.2021Разработчик: Document Scanner App - PDF, OCR, QR & Cloud SyncПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2651E270EA1E8D0DA3B6A916C653F265E290AE4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366620   (1023412) от 31.03.2021
-
-Hi-Q MP3 Voice Recorder 2.9.0 Mod by Balatan, Rainontheradio, vars0ug [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hi-Q MP3 Voice Recorder – бесплатный качественный MP3 диктофон на андроид. Скачайте и установите программу на Ваш смартфон и с легкостью записывайте важные разговоры, где бы Вы ни были!Тип издания: Paid + МодификацииРелиз состоялся: 05.10.2020Разработчик: AudiophileПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D918DB60A8DBC9802888C1350FD5510C1F227142
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353002   (1023192) от 01.04.2021
-
-Spotify Music 8.6.12.986 Mod by Balatan, Sentex, jwwwg [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Spotify — один из тех счастливчиков, которые, наверное, в представлении не нуждаются. Но если вы все же не в курсе, поясним, что это отличный сервис, позволяющий слушать музыку практически без ограничений, выбирая любимые композиции из поистине безграничной базы. Принцип работы схож с конкурентами: вы выбираете любимые жанры и исполнителей, далее Spotify подберет (   Читать дальше...   )Тип издания: Free + ModificationsРелиз состоялся: 23.03.2021Разработчик: Spotify Ltd.Поддерживаемая ОС: Android 4.1+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF731D73D9AFA005CD424498F3DF8783CE55A5BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459558   (1023117) от 02.04.2021
-
-Витамины и минералы v1.5.0 [Ru] (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023117.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Витамины и минералы» - полезное приложение, содержащее в себе подробное описание всех витаминов и минералов, необходимых организму человека.Тип издания: Пиратка (AdFree - без рекламы)Релиз состоялся: 09.09.2020Разработчик: Victor TokarevПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E445B76276583A5481E43C458DB594D06FB93F7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

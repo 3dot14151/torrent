@@ -6,7 +6,7 @@ Debian Edu - Skolelinux 11.5.0 Bullseye + nonfree [Linux для школы] [i38
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340653.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Sabayon 16.11 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE, LXQt и server) [amd64
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340087.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Q4OS 1.8.1 (Легкий дистрибутив) [Trinity - форк KDE 3.5] [i
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339807.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Arch Linux 2015.11.01 [i686, x86-64] 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339117.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Red Hat Enterprise Linux (Server, Workstation, Client) 7.6 [x86-64] 9xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322724.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Red Hat Enterprise Linux (Server) 7.2 [x86-64] 1xDVD + 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321105.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ JonDo 0.9.87 [анонимный доступ в сети] [x86] DVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316967.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ KNOPPIX 7.6 [x32, x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316608.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ KaOS Linux 2015.11 (Arch + Plasma KDE 5) [x86-64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311546.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ CentOS 7.7 (1908) [i386] 2xDVD, 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309111.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ CentOS 7.7 (1908) [x86-64] 5xDVD, 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308935.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Fedora 25 [i386] 11xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306321.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Red Hat Enterprise Linux (Server, Workstation, Client) 6.10 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305904.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Red Hat Enterprise Linux 7.9
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305888.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Red Hat Enterprise Linux 8.3
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305727.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Manjaro Linux 0.8.8 (Arch + зоопарк рабочих столов) [i686] 9
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304851.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Fedora 27 Live spins [x86-64] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304773.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Manjaro Linux 0.8.8 (Arch + зоопарк рабочих столов) [x86-64]
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304324.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Debian GNU/Linux 9.6.0 + nonfree Stretch [amd64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298514.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Q4OS 1.4.4 (Легкий дистрибутив) [Trinity - форк KDE 3.5] [i
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298460.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Debian GNU/Linux 9.6.0 + nonfree Stretch [i386] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298413.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ CentOS 7.9 (209) [x86-64, i386] 5xDVD, 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297189.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Mageia 5.1 Cauldron [i586] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295699.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Mageia 5.1 Cauldron [x86-64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295586.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ PCLinuxOS 2013.12 KDE FullMonty [x32, x64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295400.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ Sabayon 14.12 (KDE, XFCE, GNOME, SpinBase, Minimal) [amd64] 4xDVD, 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293797.jpg" />
 </div>
 
 

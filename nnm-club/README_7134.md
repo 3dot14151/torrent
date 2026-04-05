@@ -1,48 +1,25 @@
-###  Публикация: 1014087   (776880) от 06.05.2016
+###  Публикация: 1013642   (777348) от 05.05.2016
 
-Анна Павловская | 5 O'clock и другие традиции Англии (2014) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга доктора исторических наук А. Павловской расскажет все об образе жизни англичан. Что любят и не любят англичане, что и как пьют, едят, какая у них система ценностей, в чем своеобразие их жизни, быта, национального характера. Английские повара, садовники, рестораторы, лучшие в мире чайные специалисты, профессора ведущих университетов, священники и многие, многие (   Читать дальше...   )Жанр: История, этнографияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1832EE68DC7AA08952AF8C478BE931921A181F18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013935   (776879) от 06.05.2016
-
-Free Studio 6.6.8.505 [Multi/Ru]
+VA - Top Trance Anthems Vol.3 (Nation Of Epic Melodic And Progressive Hardtrance) (2016) [MP3|320 кб/с] <Trance>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777348.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Приложение представляет собой пакет программ для обработки и создания мультимедийных файлов. Внутри общего интерфейса утилиты разбиты на ряд категорий (Youtube, Качалки, Конвертеры, Рекордеры, Редакторы). Богатый функционал позволяет выполнять все наиболее востребованные действия с медиа-ресурсами, а простой интерфейс рассчитан на рядовых пользователей.Язык интерфейса: Русский, Английский, др.
+01. Arrakeen, Jaki Song -  Time (Original Instrumental Mix)  9:19
+02. Altek -  2nd Chance  7:46
+03. Akira Kayosa, Firestorm -  Reflections (Eldritch Project Remix)  8:05
+04. Dark Sector -  Strings of Anger (Marc De Simon Remix)  7:58(   Читать дальше...   )Жанр: TranceПродолжительность: 03:20:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6BA9826C589292377540A4B24B4F3BBEC29BA20B
+magnet:?xt=urn:btih:49CF21C7FA6E4459E748BB8B3A2C2E77E2415893
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,83 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014236   (776878) от 06.05.2016
+###  Публикация: 1013637   (777347) от 05.05.2016
 
-Anvir Task Manager 8.0.1 Final + Portable [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776878.jpg" />
-</div>
-
-
-###  Подробнее
-
-AnVir Task Manager предоставляет подробную информацию о работе системы и, в то же время, предоставляет большое количество инструментов для управления Windows. Для того, чтобы заменить все функции AnVir Task Manager, придется установить около 10 разных программ.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FEC661FF3828F592A2E6DF24386A081CA9FC52F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014012   (776877) от 06.05.2016
-
-VA - Ministry of Sound - Just Chillin' (2016) [MP3|320 кб/с] <Dance, Music>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Justin Bieber - Love Yourself [03:54]
-02. The Weeknd - The Hills [04:03]
-03. Alessia Cara - Here [03:21]
-04. Snakehips - All My Friends (Feat. Oliver Dickinson, Chance The Rapper & Tinashe) [03:50](   Читать дальше...   )Жанр: DanceПродолжительность: 07:26:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A46009E55B229ECA3E81456E7663AB4F7AAD9E11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211838   (776876) от 09.03.2018
-
-VA - Die Landpartie Vol.03 (Best Of Chillout And Ambient Music Deluxe) (2018) [MP3|320 Kbps] <Chillout, Ambient, Lo-Fi>
+VA - Mediterranean Chill Out Session Vol.1 (2016) [MP3|320 кб/с] <Lounge>
 
 >>Electronic
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777347.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Arman Behdad feat. Jean Mare  -  Nathalia (Ambient Chill Mix)  5:00
-02.  Artenovum  -  Lanibia Dreams (7 Stars Mix)  4:40
-03.  Mare Et Monti  -  No Man’s Land (Energy Chillout Version)  5:21
-04.  Jean Mare  -  Ageless (Allmira Enigmatic Mix)  4:53(   Читать дальше...   )Жанр: Chillout, Ambient, Lo-FiПродолжительность: 01:55:32
+01. NLDA - Yes We Are
+02. Angela Puxi - Anima
+03. Area Code 51 - Teldrassil
+04. Florzinho - Like The First Moment(   Читать дальше...   )Жанр: LoungeПродолжительность: 02:01:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:329013C416820F644F0B33631009969EF432C76E
+magnet:?xt=urn:btih:831DC520CA84039962CEAA222262F184A00B02CB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -134,25 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211757   (776875) от 09.03.2018
+###  Публикация: 1013706   (777346) от 05.05.2016
 
-Вл. Мирошевский | Буржуазные юношеские организации в Германии (1924) [PDF]
+VA - San Trance Disko Vol.1 (2016) [MP3|320 кб/с] <House, Progressve, Tech House>
 
->>Разное (категория книг)
->>Публицистика
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777346.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Уяснить себе развитие буржуазного юношеского движения можно только в сопоставлении с теми объективными общественными условиями, которые вызвали это движение к жизни. Если буржуазные организации молодежи играли и играют весьма значительную роль в социальной жизни Германии (достаточно вспомнить хотя бы о фашистских союзах молодежи, образующих основные боевые силы воинствующей (   Читать дальше...   )Жанр: История, политология, религиоведение, экономикаФормат: PDF
+01. Skyroom -  Stella (Blue Amazon Vocal Remix)  9:11
+02. Lucas Oggier -  That's It  7:25
+03. Kid Massive -  Creeping for Girls  7:36
+04. Matan Caspi -  Check the Windows (East Cafe Remix)  7:33(   Читать дальше...   )Жанр: House, Progressve, Tech HouseПродолжительность: 03:37:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9B8DCB6A798C826D77814CAD951FD129CDD2237D
+magnet:?xt=urn:btih:074C125B7623E831BBD97710AC40AB4FC3C239B0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -160,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211571   (776874) от 09.03.2018
+###  Публикация: 1013807   (777345) от 05.05.2016
 
-Jeff Grace - Cold in July (2014) [FLAC|Lossless] <Soundtrack, Electronic>
+Autumn of Communion - Broken Apart By Sunlight (2016) [MP3|320 кб/с] <Ambient, Experimental, Space>
 
->>Other Styles
->>OST (Lossless)
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777345.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Wait (2006 Remastered LP Version) – White Lion
-2. Intruder
-3. Whole Lot Like You
-4. Crank Call and Break-In(   Читать дальше...   )Жанр: Soundtrack, ElectronicПродолжительность: 00:57:32
+01. Cassini’s Visible Raindrops (21:47)
+02. KELT-4Ab (21:50 )
+03. TW Hydrae Observations (21:42 )
+04. Broken Apart By Sunlight (21:45 )(   Читать дальше...   )Жанр: Ambient, Experimental, SpaceПродолжительность: 01:48:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3BA855CFCF7E72402BC0DD8A7C275699686673EE
+magnet:?xt=urn:btih:99021DF9D7BA0BE804CF96C86BA7974666DEB946
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -189,111 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211905   (776873) от 09.03.2018
+###  Публикация: 1013740   (777344) от 05.05.2016
 
-Michael Musillami - Groove Teacher (1999) Playscape Recordings [FLAC|Lossless|tracks + .cue] <Post-Bop, Modern Creative>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seven Blend [06:27]
-02. The Gift [08:25]
-03. Open Ended [09:39]
-04. Off the Glass [08:10](   Читать дальше...   )Жанр: Post-Bop, Modern CreativeПродолжительность: 01:00:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BFF7A12A556CE0EB407039DB7D20224E4AF6B48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211835   (776872) от 09.03.2018
-
-Анна Никольская | В самолёте со страусом (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кто такой подросток? Ребенок или уже взрослый? А может, кто-то застрявший на полпути… Вилке — тринадцать, у нее есть «зеленый» папа — охотник за озоновыми дырами и деспотичная бабушка, подслушивающая чужие телефонные разговоры. А раньше у Вилки была мама, но, кажется, она сбежала с бродячим цирком. Однажды Вилку отправили в Англию, поучиться уму-разуму у неких Джексонов. (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 05:31:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E3DC193F205E950DC6871D4932A8E3417227667
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211834   (776871) от 09.03.2018
-
-MacFamilyTree 8.3.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776871.jpg" />
-</div>
-
-
-###  Подробнее
-
-MacFamilyTree 8 поможет вам запечатлеть историю своей семьи и превратит данные и факты в отчёты и впечатляющие графики.
-
-MacFamilyTree 8 предлагает множество вариантов захвата и визуализации истории вашей семьи. Теперь от того, как вы хотите проиллюстрировать свои семейные отношения - MacFamilyTree 8 найдёт правильное решение, предлагая различные типы отчётов, диаграмм (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.03.2018Разработчик: Synium Software GmbHПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA5D7F4A1B0F60C8153A48896C5A4B868E94F647
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211860   (776870) от 09.03.2018
-
-VA - Pop Rock and RnB Romantic Songs (2018) [MP3|320 Kbps] <Pop Rock, RnB>
+VA - Festival Anthems Club EDM (2016) [MP3|320 кб/с] <House, Club, Dance>
 
 >>Неофициальные сборники
->>Прочее (сборники)
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777344.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Miley Cyrus - Stay
-002. Espen Lind - Where The Lost Ones Go
-003. Mark Medlock - Never Let You Go
-004. Hooverphonic - Jacky Cane(   Читать дальше...   )Жанр: Pop Rock, RnBПродолжительность: 10:04:39
+01. Scotty -  On the Move (Cj Stone Edit)  2:57
+02. StadiumX -  Mombasa (Radio Edit)  3:17
+03. Alejandro Yanni -  Grenade (Original Mix)  5:25
+04. Saccao & Stage Rockers feat. Ryan Konline -  Sweetest Memory (Radio Edit)  3:24(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 04:48:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:98588A25D5928E4AD578820D9C300BB639B4285C
+magnet:?xt=urn:btih:84ADB5E60EAF6A8BE7F98F61D44B832558055081
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -301,25 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211801   (776869) от 09.03.2018
+###  Публикация: 1013647   (777343) от 05.05.2016
 
-Журнал | Строю и ремонтирую №12 (135) (декабрь 2017) [PDF]
+VA - Straight Up Ear Candy Vol. 2 (2016) [MP3|320 кб/с] <Electro House >
 
->>Журналы
->>Домоводство (журналы)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777343.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Полезный журнал-каталог о строительстве, ремонте, отделке и декорировании - для тех, кто строит свой дом, ремонтирует квартиру. Материалы журнала Строю и ремонтирую обращены не только к профессиональным строительным фирмам, строителям, декораторам и дизайнерам, но и всем интересующимся читателям, которым интересны теория и практика современной архитектуры, строительства, (   Читать дальше...   )Жанр: Архитектура, строительство, ремонтФормат: PDF
+01. MitiS, Fathom - Breathe feat Fathom (Original Mix) [3:12]
+02. SugarBeats - Moon Walker feat Veronica RockStar [5:06]
+03. Khai - Do You Go Up (Madnap Remix) [3:29]
+04. Kicks n Licks - Young ft Adara (Original Mix) [4:09](   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:20:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2ED255785E780BF3300DAFB318FBEE46241C7313
+magnet:?xt=urn:btih:C2409B666BA543C9B7B08EB471FB5FFA35D2DEEA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -327,83 +172,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211771   (776868) от 09.03.2018
+###  Публикация: 1013771   (777342) от 05.05.2016
 
-Jens Buchert - Lifecode (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo, Chillout>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreamgirl (04:01)
-02. Lifecode (05:35)
-03. Messias Code (05:33)
-04. Transcendence (05:05)(   Читать дальше...   )Жанр: Ambient, Downtempo, ChilloutПродолжительность: 00:50:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD1043F8F72A41201DC859F9DAD9BD8BE46CBAC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211815   (776867) от 09.03.2018
-
-For The Fallen Dreams - Six (2018) [MP3|320 Kbps] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stone
-02. The Undertow
-03. Unstoppable
-04. Forever(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:40:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CEB823C098F23B9B79C8B33E648665D9B27B5F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 741515   (776866) от 09.03.2018
-
-Юрий Гагарин | Дорога в космос (1961) [FB2, TXT, DOC]
+Ем. Ярославский | Анархизм в России (1939) [DJVU]
 
 >>Научная и техническая литература
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777342.jpg" />
 </div>
 
 
 ###  Подробнее
 
-12 апреля 1961 года навечно вошло в историю нашей Родины, В историю всего человечества В этот день советский космический корабль-спутник «Восток» с майором Юрием Гагариным на борту поднялся в космос и, совершив полет вокруг земного шара, благополучно вернулся на Землю. Эта беспримерная победа человека над силами природы воплотила в себе гений советского народа, могучую (   Читать дальше...   )Формат: FB2, TXT, DOC
+Анархист строит свои планы будущего анархического общественного устройства не на основании знания законов общественного развития, а на основании придуманной общественной организации, которая бы обеспечивала неограниченную свободу отдельной личности. В основу своей деятельности анархисты кладут не интересы общества, а интересы отдельной личности - индивидуума. Так (   Читать дальше...   )Жанр: История, политология, философияФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:28DAE133A9DC808CFC58FD60919F8A2E45CEEA57
+magnet:?xt=urn:btih:3F1CFD5E1755AB4E19B8FE6420B785ADFCBC6072
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -411,28 +198,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211892   (776865) от 09.03.2018
+###  Публикация: 1013757   (777341) от 05.05.2016
 
-VA - Time For A Kiss (2CD) (2016) [FLAC|Lossless|image + .cue] <Pop, Oldies>
+John Coltrane featuring Pharoah Sanders - Live In Seattle (1965) 2011, Verve[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz>
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777341.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dean Martin - Kiss (2:25)
-02. Tony Bennett - Kiss You (2:57)
-03. Billie Holiday - Prelude To A Kiss (5:38 )
-04. Vic Damone - We Kiss In A Shadow (4:01)(   Читать дальше...   )Жанр: Pop, OldiesПродолжительность: 01:26:15
+01.Cosmos [10:53]
+ 02.Out Of This World [23:43]
+ 03.Evolution [35:56]
+ 04.Tapestry In Sound [06:09]Жанр: Avant-Garde JazzПродолжительность: 01:16:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B5FF659C03A2B188AB3063693781D240932D0ABF
+magnet:?xt=urn:btih:EBD10D40883594C1236C6E9847BE8E402607B7F0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -440,26 +227,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209626   (776864) от 09.03.2018
+###  Публикация: 1013764   (777340) от 05.05.2016
 
-Ewol - Opaque / Odessa (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep Drum & Bass, Atmospheric>
+Germind - Antimatter, Vol. 4 (2016) [MP3|320 кб/с] <Psybient Downtempo, Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Snow Butterfly (05:58)
+ 02. Water Air Thoughts (07:47)
+ 03. Stars On Ice (06:09)
+ 04. Bird Flight Mission (07:47)(   Читать дальше...   )Жанр: Psybient, Downtempo, AmbientПродолжительность: 00:58:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4C5F89B2589307B5EA5BAD9D8DBDE616753E685
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013869   (777339) от 05.05.2016
+
+Haldo, Clelia Liguori & Erika Scherlin - Napoli Lounge # 1 (2016) [MP3|320 кб/с] <Lounge, Chill Out, Easy Listening>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Haldo & Clelia Liguori - Tu Si' 'na Cosa Grande (Lounge mix) (03:13)
+02. Haldo & Clelia Liguori - Lacrime Napulitane (Lounge mix) (04:49)
+03. Haldo & Erika Scherlin - I Say I Sto Cca' (Dream mix) (04:39)
+04. Haldo & Erika Scherlin - Torna A Surriento (Lounge mix) (03:58)(   Читать дальше...   )Производство: Rebus RecordsЖанр: Lounge, Chill Out, Easy ListeningПродолжительность: 00:51:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF492B7BB630CEAC7B117F2F0D0AC18714B85BC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013742   (777338) от 05.05.2016
+
+SZRP - 23 (2016) [MP3|320 кб/с] <Hip-Hop Instrumental>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777338.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Opaque (04:29)
- 02. Odessa (05:03)Жанр: Deep Drum & Bass, AtmosphericПродолжительность: 00:09:32
+01. 11
+02. 2.12AM
+03. 143U2
+04. 1NAME(   Читать дальше...   )Жанр: Hip-Hop InstrumentalПродолжительность: 00:20:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:999CC3F684FC9567A2880A537F36B233A34119BF
+magnet:?xt=urn:btih:ECFB1C6D6D84D69CE069BCD824AEBECED44F2DBF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -467,51 +314,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211982   (776863) от 09.03.2018
+###  Публикация: 1013752   (777337) от 05.05.2016
 
-Леонид Филатов. Надеюсь, я вам не наскучил... (2018) DVB [H.264/1080i-LQ]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776863.jpg" />
-</div>
-
-
-###  Подробнее
-
-Его называли секс-символом 80-х. После роли усатого плейбоя, летчика Скворцова в знаменитом «Экипаже» Александра Митты, по Леониду Филатову сходило с ума все женское население страны. Он всем казался этаким любимцем фортуны, настоящим баловнем судьбы: яркий, талантливый, остроумный.Телекомпания: Россия / ТК «Останкино»Жанр: Документальный, Биография, ИскусствоЯзык субтитров: Русский, teletext (888)Продолжительность: 00:50:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4F89225AF9A42E1073C1A3DECF7DF3BD2EF56AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211800   (776862) от 09.03.2018
-
-Sandboxie 5.23.7 Beta [Multi/Ru]
+Lingon X 4.0.1 [Multi]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777337.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Sandboxie - yтилита для контроля за работой различных программ. После установки утилиты взаимодействия всевозможных программ с системой будут происходить через неё. Это даст возможность удалять следы последнего сеанса работы приложений. Таким образом Sandboxie выступает своеобразным фильтром, в котором задерживаются все изменения, вносимые в систему различными программами. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Lingon X  - автоматический запуск приложений и сценариев
+Lingon позволяет визуально создавать файлы автозагрузки, которые используются для запуска приложений и скриптов автоматически при загрузке Mac OS X. Список всех программ выносится в таблицу, где его удобно редактировать. Тут же отображается статус каждой программы: чем она занимается, работает ли в данный момент (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 09 апреля 2016Разработчик: Peter Borg Apps ABПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский, Немецкий  и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0369BA9D0B1B0523FA4AFD8FE38E7F92FCE53A38
+magnet:?xt=urn:btih:1D5A9DA830C5AB0D4B1124CCD75323DFD156CEBA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -519,28 +341,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211897   (776861) от 09.03.2018
+###  Публикация: 1013773   (777336) от 05.05.2016
 
-Jill Fulton - Southern Breeze (2018) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock, Country>
+В. В. Комин | Анархизм в России (1969) [PDF]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Научная и техническая литература
+>>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777336.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Python Boots (4:11)
-02. Girls' Night Out In Nashville (3:21)
-03. Memphis (3:29)
-04. Big City Girl (3:19)(   Читать дальше...   )Жанр: Blues, Rock, CountryПродолжительность: 00:36:57
+Специальный курс лекций, прочитанный на историческом факультете педагогического института - одна из первых, после долгого "молчания", попыток рассмотрения в советской исторической науке истории российского анархизма. В книге рассматривается зарождение анархизма, его идейная эволюция, роль анархистов в российском революционном движении, их участие в революциях (   Читать дальше...   )Жанр: История, политология, философияФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3952CE245431830517D94D3EF2C0C6620BD96FFB
+magnet:?xt=urn:btih:5D8D75197EEBCF612FA7902543AD9BB25EF2559A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -548,25 +367,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211845   (776860) от 09.03.2018
+###  Публикация: 1013232   (777335) от 05.05.2016
 
-Хилари Мантел | Чернее черного (2012) [MP3]
+VA - Ibiza Techhouse Weekend Session (2016) [MP3|320 кб/с] <House>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777335.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В романе "Чернее черного" показана спиритическая изнанка старой и новой Англии. На сеансы, устраиваемые Элисон Харт и ее приятельницами-медиумами, являются настоящие призраки - духи, которые жаждут не покоя, но мести. А мстить им есть за что - ведь прошлое Элисон скрывает массу загадок, о которых ее новая помощница Колетт, обратившаяся к спиритизму после (   Читать дальше...   )Жанр: МистикаПродолжительность: 17:04:27
+01. Self Explanatory - Backwater
+02. Unexpected Marvel - The Search
+03. Spiced Boogie - Another Way
+04. Riffle Shuffle - Warning Function(   Читать дальше...   )Жанр: HouseПродолжительность: 02:18:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:032159D606EA23F4DCD3925664CC08AE72D7374F
+magnet:?xt=urn:btih:94A5BBD0B5DA40C372B09B6CAE04007E147FC6AD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -574,25 +396,135 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211802   (776859) от 09.03.2018
+###  Публикация: 1013793   (777334) от 05.05.2016
 
-Журнал | Строю и ремонтирую №1 (136) (январь 2018) [PDF]
+Место встречи. Назовём своими именами? (05.05.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777334.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый день по будням гости в студии вместе с ведущими будут в прямом эфире разбирать наиболее актуальные темы, которые подбрасывает сама жизнь. Все, что волнует зрителей, — от сезонных эпидемий до военной операции в Сирии — может стать поводом для обсуждения.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:57:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D36B30062265D40E9EAF84AA2460E822E16DE4BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013720   (777333) от 05.05.2016
+
+VA - 50 Dance Club Full of Essential Music (2016) [MP3|320 кб/с] <Club, Hands Up, Dancecore>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Housegeist -  This Dreams (Orange & Blue Remix)  3:58
+02. Boyz From TBG -  The Fatherland (Radio Edit)  3:44
+03. DJ Jawesome -  Street Sharks (Radio Edit)  3:29
+04. Floorfilla With P. Moody -  On & on (Radio Edit)  3:27(   Читать дальше...   )Жанр: Club, Hands Up, DancecoreПродолжительность: 03:55:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:838AB6A7BA0F61A729F7D35B49595CB2C68FE053
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013810   (777332) от 05.05.2016
+
+Право голоса. "Рецепт от Обамы" (05.05.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Общественно-политические и пропагандистские ток-шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777332.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Право голоса» - это место для дискуссий и арена для политических баталий. Здесь поднимаются самые острые общественно-политические проблемы страны. В этой студии нет безразличных ораторов и безучастных зрителей. У нас каждый имеет право высказаться и быть услышанным. Мы задаем политикам и чиновникам неудобные вопросы, потому что хотим получить честные ответы. Здесь (   Читать дальше...   )В этом выпуске: ЕС нужно как можно скорее создавать вместе с США Трансатлантическое торговое партнёрство, а России выгодно будет сотрудничать с сильной единой Европой - такой рецепт на будущее дал президент Соединённых Штатов Барак Обама. Почему американцы так торопят европейцев? Как будут выстраиваться наши отношения на практике?Телекомпания: ТВ-ЦентрЖанр: Ток-шоу, дискуссия, политикаПродолжительность: 01:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F97CEFE76793A019F13145B9DE4072B6FF1DB968
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013521   (777331) от 05.05.2016
+
+Faderhead - Black Friday (2010) [FLAC|Lossless|image + .cue] <Electro, EBM, Synth-Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Obnoxiated [2:09]
+02. Escape From The Machine [4:43]
+03. Hot Bath And A Cold Razor [3:41]
+04. The Moth And The Fire [3:59](   Читать дальше...   )Жанр: Electro, EBM, Synth-PopПродолжительность: 00:55:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1964C88EBA2645FC43B925A702563C012A1E2643
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013839   (777330) от 05.05.2016
+
+Газета | Сезон у дачи №8 (210) (Апрель 2016) [PDF]
 
 >>Журналы
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777330.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Полезный журнал-каталог о строительстве, ремонте, отделке и декорировании - для тех, кто строит свой дом, ремонтирует квартиру. Материалы журнала Строю и ремонтирую обращены не только к профессиональным строительным фирмам, строителям, декораторам и дизайнерам, но и всем интересующимся читателям, которым интересны теория и практика современной архитектуры, строительства, (   Читать дальше...   )Жанр: Архитектура, строительство, ремонтФормат: PDF
+Журнал для садоводов. Множество практических советов и рекомендаций специалистов, овощеводов-любителей помогут вам в выращивании и получении гарантированного и высокого урожая. Очень много интересной и полезной информации.Жанр: Дача, сад, огородФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:23E64453F3D1CF0B39DD948F85F1BB051D7B19FC
+magnet:?xt=urn:btih:B61663F7336A80FC47B2185F0E53AD0B48FFDEDE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -600,28 +532,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211927   (776858) от 09.03.2018
+###  Публикация: 1013811   (777329) от 05.05.2016
 
-Rolo Tomassi - Time Will Die And Love Will Bury It (2018) [MP3|320 Kbps] <Mathcore, Post-Hardcore, Experimemtal, Female Vocal>
+Журнал | Дачные сезоны №4 (Апрель 2016) [PDF]
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777329.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Towards Dawn
-02. Aftermath
-03. Rituals
-04. The Hollow Hour(   Читать дальше...   )Жанр: Mathcore, Post-Hardcore, Experimemtal, Female VocalПродолжительность: 00:53:07
+Отличный журнал для дачников, в котором вы найдёте много полезных советов.Жанр: Дом, сад, огородФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C58DBACB97B0A773E6737B16266CB905F84747C1
+magnet:?xt=urn:btih:3125ECCA94FC16E2A5401211C0C41B9040A9D8B7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -629,28 +558,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211911   (776857) от 09.03.2018
+###  Публикация: 1013719   (777328) от 05.05.2016
 
-VA - Good Times Roll (2018) [MP3|320 Kbps] <Rock and Roll, Rock>
+Calendar 366 Plus 1.3.3 [Multi]
 
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777328.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Hornbuckle - Knife In Your Hand
-002. Fatboy - Down At The Room
-003. The Boo Devils - Tonight
-004. Gaspard Royant - 7' Club(   Читать дальше...   )Жанр: Rock and Roll, RockПродолжительность: 05:13:58
+Calendar 366 Plus - календарь событий и напоминаний для меню бара
+Посмотреть, добавлять, редактировать и удалять свои мероприятия легко. Создать и выполнить ваши напоминания с помощью всего одного клика. Calendar 366 Plus предоставит вам легкий доступ ко всем календарям, а также сделает более легким управление  событиями и напоминаниями.
+
+Нажмите на иконку и получите (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 04 мая 2016Разработчик: n.spektorПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский, Немецкий и Испанский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6130F6DBD23BEBA053FBF1C0DB8D2CFECCAED0B9
+magnet:?xt=urn:btih:D9A7007B0A06194FC313157422AD8B62F8A28D21
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -658,25 +587,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014037   (776856) от 06.05.2016
+###  Публикация: 1013708   (777327) от 05.05.2016
 
-Владимир Бойко | Иностранные подводные лодки в составе ВМФ СССР (2016) [FB2]
+Джонатан Коу | Прикосновение к любви (2015) [MP3]
 
->>Научная и техническая литература
->>Военная литература
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777327.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Победа Советского Союза в Великой Отечественной войне досталась дорогой ценой. В ходе боевых действий Военно-Морской Флот СССР потерял 50.3 % подводных лодок и вышел из войны ослабленным, особенно по подводным лодкам, строительство которых требовало значительных затрат времени и материальных ресурсов. В этих условиях определенные перспективы быстрого восполнения (   Читать дальше...   )Жанр: История, Военная документалистикаФормат: FB2
+Робин Грант — потерянная душа, когда-то он любил девушку, но она вышла за другого. А Робин стал университетским отшельником, вечным аспирантом. Научная карьера ему не светит, а реальный мир кажется средоточием тоски и уродства. Но у Робина есть отдушина — рассказы, которые он пишет, забавные и мрачные, странные, как он сам. Робин ищет любви, но когда она оказывается (   Читать дальше...   )Жанр: Современная прозаПеревод: с англ. Игоря АлюковаПродолжительность: 06:54:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6B7DF27536D32CB372033409AA3A623CF15D0F75
+magnet:?xt=urn:btih:5C7965F836191A5E45B8E636E522204D5DC52D49
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -684,25 +613,110 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014170   (776855) от 06.05.2016
+###  Публикация: 1013769   (777326) от 05.05.2016
 
-Моя Великая война. Алексей Рапота (2016) SATRip
+Late Night Union - Connections (2016) [MP3|320 кб/с] <Blues, Instrumental>
 
->>Документалистика и Телепередачи
->>Вторая Мировая война
+>>Jazz, Blues, Soul
+>>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777326.jpg" />
 </div>
 
 
 ###  Подробнее
 
-По статистике сегодня осталось около ста тысяч ветеранов Великой Отечественной войны. С каждым днем их, живых очевидцев, становится все меньше. Наши дети и внуки будут знать о той войне только по кинофильмам и историческим документам. Поэтому сегодня как никогда важно успеть зафиксировать живые свидетельства живых людей. Герои фильма – ветераны Великой Отечественной (   Читать дальше...   )Производство: Россия, ИП Гранина Ольга Юрьевна, ГТРК "Культура"Телекомпания: Россия КЖанр: ДокументальныйРежиссер: Андрей ЗайцевПродолжительность: 00:39:16
+01. Mountain
+02. Life On Hold
+03. Drinking
+04. Beautiful Eyes(   Читать дальше...   )Жанр: Blues, InstrumentalПродолжительность: 00:46:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C8D4DBC1B04870A491FD77243FB00DD920F15269
+magnet:?xt=urn:btih:66994179E991444C17C79480A0FF216A7D6394DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013837   (777325) от 05.05.2016
+
+Hazel 4.0.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hazel – это ваш личный уборщик, который организует и очистит папки так, как вы захотите. Hazel может также управлять вашей корзиной и удалять приложения. Hazel позволяет сортировать файлы по названиям, типу, дате, сайту или адресу электронной почты, с которого пришёл файл. С помощью этой программы вы также имеете возможность прикреплять цветные ярлыки, создавать (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 05 мая 2016Разработчик: Noodlesoft, LLC.Поддерживаемая ОС: OS X 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:558FD1A7D580D36912FFED554332B2AD24040690
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013876   (777324) от 05.05.2016
+
+Журнал | Мир криминала №9 (май 2016) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777324.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Мир криминала» - одно из самых популярных СМИ криминальной тематики, на рынке свыше 10 лет.
+Недавно был сделан ребрендинг издания. У журнала теперь обновленный макет, постепенно меняется и содержание номеров. Хотя упор, как и прежде, делается на самые громкие и скандальные преступления в России и за рубежом, специальные расследования, эксклюзивные материалы из жизни (   Читать дальше...   )Жанр: История, криминалистика, детективФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CE9548F9F57FD863E9F3B82116FB8AD49D808F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013868   (777323) от 05.05.2016
+
+Faderhead - FH2 (2007) [APE|Lossless|image + .cue] <Electro, EBM, Synth-Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Is Not A Clubtrack
+02. Girly Show
+03. Gritty Beats, No Relief
+04. Break Apart Again(   Читать дальше...   )Жанр: Electro, EBM, Synth-PopПродолжительность: 01:01:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61446A0AC27C6D3D716975DCC647EB1FC163ED8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

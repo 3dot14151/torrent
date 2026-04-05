@@ -6,7 +6,7 @@ BBC. Мир природы. Королева морских дьяволов / T
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514815.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Discovery. Гигантские мечи / Big Giant Swords (2015) HDTV [H.264/7
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513794.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Discovery. Нашествие гигантских медуз / Attack of The Gi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513727.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BBC. Horizon: Питание, голодание и долголетие / Eat, 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513263.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512355.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ BBC. Horizon: Видим ли мы одно и то же? / Do You See What I Se
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512272.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511439.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ NG. Прекрасная Америка / America the Beautiful (2022) WEB-DL [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511436.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ BBC: Грязные города. Революционный Париж [час�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510458.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ History Channel: Детективы морских глубин-5. Алекса�
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510452.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510365.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ BBC. В краю муссонов: Засуха / Wonders of the Monsoon: The Dr
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510039.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Discovery: Джек Потрошитель. Первый серийный уби
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509719.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507050.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Discovery: Призрак большой белой / Great Whaite Abyss (2018) 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506829.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Animal Planet. Дикие жёны саванны / Wildwives of Savannah Lane (
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506814.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Animal Planet. Снежный барс в зелёном Лондоне / Snow L
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505834.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Animal Planet. Самые большие и страшные жуки в мир�
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505331.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ NG: Последние львы / The Last Lions (2011) BDRip [H.264/576p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505285.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ BBC. Империя Смерти / Empair of Death (2009) SATRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504684.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ BBC: Грязные города. Индустриальный Нью-Йорк [
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504589.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ BBC: Мир природы: Полярные медведи и гризли на
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504534.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ BBC: История Шотландии с Нейлом Оливером [Сез�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504113.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Discovery. Сквозь червоточину с Морганом Фримен�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504039.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ BBC. Горизонт. 10 вещей, которые мы должны знат�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504037.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503704.jpg" />
 </div>
 
 

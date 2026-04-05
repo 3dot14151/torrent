@@ -1,3 +1,58 @@
+###  Публикация: 1348373   (144881) от 27.12.2019
+
+Зина Сурова, Филипп Суров | Занималки. Зима. Увлекательные занятия для детей и родителей (2014) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Настольные игры и Поделки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144881.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это сборник творческих заданий и игр для детей и родителей, которые хотят провести незабываемую зиму!
+Как вылепить самого необычного снеговика во дворе? Как собрать из снежных шаров крепость и лабиринт? Как сделать кормушку для зимних птиц? Как украсить дом новогодними поделками? Во что еще поиграть зимним вечером?
+С этой книгой вы будете конструировать, клеить, (   Читать дальше...   )Жанр: Альбомы для творчестваФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42B106292C214A5A8DDD57E66A92E55BAB4B57DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348186   (144869) от 27.12.2019
+
+Люси Бауман | Новогодние задания для мальчишек и девчонок (2018) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Рабочие тетради, прописи и разукрашки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144869.jpg" />
+</div>
+
+
+###  Подробнее
+
+«100 заданий на Новый год для мальчишек и девчонок» - книжка для тех, кто любит проводить время не только интересно, но и с пользой! Рисуйте, раскрашивайте, решайте задачки, проходите лабиринты, ищите отличия, выполняйте задания с помощью наклеек. Скучно не будет!
+Эта книга надолго займёт вашего ребёнка, а заодно поможет развить внимание, сообразительность и чувство (   Читать дальше...   )Жанр: Головоломки, развитие ребенкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A636E6FCC76EC38827488BEBE614CAE36660207
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 365010   (144865) от 26.12.2021
 
 Морис Карем | Слоны (1980) [DJVU]
@@ -6,7 +61,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144865.jpg" />
 </div>
 
 
@@ -33,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144851.jpg" />
 </div>
 
 
@@ -59,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144811.jpg" />
 </div>
 
 
@@ -85,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144801.jpg" />
 </div>
 
 
@@ -111,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144793.jpg" />
 </div>
 
 
@@ -138,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144684.jpg" />
 </div>
 
 
@@ -165,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144618.jpg" />
 </div>
 
 
@@ -191,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144574.jpg" />
 </div>
 
 
@@ -217,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144403.jpg" />
 </div>
 
 
@@ -252,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144386.jpg" />
 </div>
 
 
@@ -278,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144345.jpg" />
 </div>
 
 
@@ -305,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144315.jpg" />
 </div>
 
 
@@ -340,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144313.jpg" />
 </div>
 
 
@@ -368,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144277.jpg" />
 </div>
 
 
@@ -394,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144200.jpg" />
 </div>
 
 
@@ -421,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144159.jpg" />
 </div>
 
 
@@ -447,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144080.jpg" />
 </div>
 
 
@@ -475,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143920.jpg" />
 </div>
 
 
@@ -501,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143899.jpg" />
 </div>
 
 
@@ -528,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143877.jpg" />
 </div>
 
 
@@ -554,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143868.jpg" />
 </div>
 
 
@@ -580,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143861.jpg" />
 </div>
 
 
@@ -608,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143848.jpg" />
 </div>
 
 
@@ -636,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143833.jpg" />
 </div>
 
 
@@ -648,59 +703,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA8D1B5190A29D8CCB431452B359BEA347B4C6CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970325   (143827) от 29.12.2015
-
-Павел Алашкин | Ливергиния (2015) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143827.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая книга Павла Алашкина рассказывает о волшебной стране Ливергинии, в которую попадают обычные российские школьники.
-Ребятам предстоит пережить невероятные и захватывающие приключения, которые, как и положено в доброй сказке, заканчиваются хорошо. Необычные жители, говорящие животные, добрые и злые волшебники, духи замков и лесов – все можно найти в этой книжке. (   Читать дальше...   )Жанр: Сказка, Детские приключенияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD2A9D0F7E0F3991858947F59C73C43337B31F2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970329   (143816) от 29.12.2015
-
-Надежда Белякова | Сказки Мухи Жужжалки [сборник] (2015) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143816.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веселый хоровод сказок встречает читателей книги Надежды Беляковой «Сказки Мухи Жужжалки». Сказка – наш друг навсегда, потому что она не покидает нас даже тогда, когда мы вырастаем. Став родителями, мы возвращаемся в светлый мир сказки, чтобы познакомить с ним наших детей и внуков. И сказка становится нашим волшебным помощником и общим другом с нашими детьми. Читая (   Читать дальше...   )Жанр: Сказка, Детская прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFB1E18CFEADB97620BA2E91314D24ECB9A605B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

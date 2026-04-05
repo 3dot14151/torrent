@@ -1,3 +1,56 @@
+###  Публикация: 1711316   (61430) от 29.03.2024
+
+Wise Folder Hider Pro 5.0.5.235 [Multi/Ru] (акция "GiveAway")
+
+>>Безопасность
+>>Разное (остальные программы по безопасности)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wise Folder Hider Pro скроет файлы и папки на локальных или съёмных дисках. Файлы будут безопасно скрыты согласно усовершенствованному алгоритму шифрования. Вы сможете защитить их паролем так, что скрытые данные станут видимы и доступны только после его введения. По сравнению с другими программами по скрытию папок, Wise Folder Hider Pro является наиболее безопасной (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81059D434AF04593B04A4B987BE12F9809FBAA2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717960   (58915) от 22.04.2024
+
+Abelssoft Win10-11 PrivacyFix 2024 6.0.51494 / 3.0.51621 Portable by FC Portables [Multi/Ru]
+
+>>Безопасность
+>>Разное (остальные программы по безопасности)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58915.jpg" />
+</div>
+
+
+###  Подробнее
+
+Abelssoft Win11PrivacyFix - позволяет включать и выключать различные настройки одним щелчком мыши в Windows 11. Инструмент Win11PrivacyFix предотвращает, например, постоянную активность микрофона или постоянную передачу записей с клавиатуры. Серверы сбора данных Microsoft заблокированы, а важные службы просто деактивированы.
+Abelssoft Win10PrivacyFix - утилита позволяющая (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B4C55DBF3E21028CCC314127EADFCA7E20B9247
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1720779   (57657) от 04.05.2024
 
 IObit Malware Fighter PRO 11.2.0.1334 Portable by FC Portables [Multi/Ru]
@@ -6,7 +59,7 @@ IObit Malware Fighter PRO 11.2.0.1334 Portable by FC Portables [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57657.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ DefenderUI 1.22 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55441.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ DefenderUI Pro 1.23 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54202.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ RogueKiller Anti-Malware 15.17.3.0 + Portable [Multi]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52709.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ UnHackMe 16.10.2024.0521 (акция Comss) [Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52638.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51990.jpg" />
 </div>
 
 
@@ -167,7 +220,7 @@ Dr.Web LiveDisk 9.0.0 (01.07.2024) [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51458.jpg" />
 </div>
 
 
@@ -195,7 +248,7 @@ Auslogics Anti-Malware Pro 1.23.0.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51246.jpg" />
 </div>
 
 
@@ -221,7 +274,7 @@ Adguard 7.18.1 (7.18.4778.0) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50523.jpg" />
 </div>
 
 
@@ -247,7 +300,7 @@ Kaspersky Virus Removal Tool (KVRT) 20.0.12.0 (16.08.2024) [Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46660.jpg" />
 </div>
 
 
@@ -273,7 +326,7 @@ Gpg4win 4.3.1 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38840.jpg" />
 </div>
 
 
@@ -299,7 +352,7 @@ Kaspersky Rescue Disk 2024 Beta [03.11.2024] [Ru/En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38150.jpg" />
 </div>
 
 
@@ -326,7 +379,7 @@ Sticky Password Premium 8.8.6.1987 (промо Comss) [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34965.jpg" />
 </div>
 
 
@@ -352,7 +405,7 @@ Kaspersky Password Manager 24.3.0.324 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31321.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ Security Task Manager 3.0 Portable by zeka.k [Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27995.jpg" />
 </div>
 
 
@@ -404,7 +457,7 @@ Kaspersky Secure Connection 21.20.8.505 [Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24737.jpg" />
 </div>
 
 
@@ -430,7 +483,7 @@ Glarysoft Malware Hunter PRO 1.197.0.826 Portable by FC Portables [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22932.jpg" />
 </div>
 
 
@@ -457,7 +510,7 @@ Cryptomator 1.15.2 + portable [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22100.jpg" />
 </div>
 
 
@@ -483,7 +536,7 @@ Sandboxie plus 1.15.12 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19698.jpg" />
 </div>
 
 
@@ -509,7 +562,7 @@ Sandboxie 5.70.12 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19657.jpg" />
 </div>
 
 
@@ -535,7 +588,7 @@ Malwarebytes AdwCleaner 8.6.0.613 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6352.jpg" />
 </div>
 
 
@@ -561,7 +614,7 @@ RegRun Reanimator 17.50.2025.819 [En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5907.jpg" />
 </div>
 
 
@@ -587,7 +640,7 @@ Adguard 7.21.3 (7.21.5089.0) RePack by KpoJIuK [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4597.jpg" />
 </div>
 
 
@@ -613,7 +666,7 @@ Folder Guard Pro 25.9 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3780.jpg" />
 </div>
 
 
@@ -624,59 +677,6 @@ Folder Guard - программа для защиты информации, хр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADFF07C6A02E9289F2F638592AD994B98D768865
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817511   (3355) от 11.09.2025
-
-Auslogics Anti-Malware Pro 1.23.0.2 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Безопасность
->>Разное (остальные программы по безопасности)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3355.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics Anti-Malware предлагает дополнительную защиту для вашего основного антивируса, установленного в системе. Утилита, совместимая с другими программами безопасности, поможет проверить ваш компьютер на наличие распространенных вредоносных программ и опасных изменений в критических областях системы Windows, потенциальных угроз безопасности ваших данных и потенциально (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DA1842B42F78F0BB554E760E17E65C113A4E00A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817642   (3217) от 12.09.2025
-
-Antivirus Removal Tool 2025.8 [Multi/Ru]
-
->>Безопасность
->>Разное (остальные программы по безопасности)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Antivirus Removal Tool - портативный набор официальных утилит для удаления антивирусных программ. Сборник включает удобную графическую оболочку, которая автоматически определяет установленный антивирус и предлагает запустить соответствующую утилиту удаления.
-С помощью графической оболочки можно выбрать и запустить нужную утилиту удаления или просканировать систему (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:345C151E887AD6BEA71F8BAF1BB5D2B3B1DFA0A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

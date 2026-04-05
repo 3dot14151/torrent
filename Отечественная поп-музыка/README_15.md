@@ -1,32 +1,3 @@
-###  Публикация: 1555826   (567172) от 05.06.2022
-
-Дора - MISS (2022) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567172.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Розовые волосы
-2. Автопилот
-3. Заставь
-4. La bohème(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74CF23AFB6D8371C4F7EFD9CC3F1CC0576681EE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304149   (566983) от 24.05.2019
 
 Григорий Лепс - Гимн Российской Федерации (2019) Single [MP3|320 Kbps] <Pop>
@@ -35,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566983.jpg" />
 </div>
 
 
@@ -61,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566701.jpg" />
 </div>
 
 
@@ -87,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565119.jpg" />
 </div>
 
 
@@ -116,7 +87,7 @@ Smash - Viva Amnesia (2019) [MP3|320 Kbps] <Electro-House, Club-House, Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563577.jpg" />
 </div>
 
 
@@ -145,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558214.jpg" />
 </div>
 
 
@@ -174,7 +145,7 @@ Dj Smash - The Best (Remastered) (2018) [MP3|320 Kbps] <Pop, Dance>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556248.jpg" />
 </div>
 
 
@@ -203,7 +174,7 @@ VA - Первый дачный, Vol. 4 (2018) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556245.jpg" />
 </div>
 
 
@@ -232,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555801.jpg" />
 </div>
 
 
@@ -261,7 +232,7 @@ Rashida (Rasheeda) - 3 альбома (2001, 2002, 2005) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553981.jpg" />
 </div>
 
 
@@ -290,7 +261,7 @@ NEЯ - 2 альбома (2001-2002) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553776.jpg" />
 </div>
 
 
@@ -319,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551762.jpg" />
 </div>
 
 
@@ -348,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549455.jpg" />
 </div>
 
 
@@ -377,7 +348,7 @@ Hospital - Uncommon Sense (2015) [MP3|320 Kbps] <Indie Pop, Brit Pop, Dream Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549173.jpg" />
 </div>
 
 
@@ -406,7 +377,7 @@ VA - Хитовый Dance (2016) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548081.jpg" />
 </div>
 
 
@@ -435,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546965.jpg" />
 </div>
 
 
@@ -464,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543522.jpg" />
 </div>
 
 
@@ -493,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538949.jpg" />
 </div>
 
 
@@ -522,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537482.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535549.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534191.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534182.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ MAXI Наши 2000-е (2012) [MP3|320 кб/с]<Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533994.jpg" />
 </div>
 
 
@@ -679,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526300.jpg" />
 </div>
 
 
@@ -708,7 +679,7 @@ VA - Созвездие хитов - Романтические хиты Vol.1 (
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524856.jpg" />
 </div>
 
 
@@ -737,7 +708,7 @@ Elvira T - Не люби (2022) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522646.jpg" />
 </div>
 
 
@@ -751,6 +722,35 @@ Elvira T - Не люби (2022) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C21F55859530B80116589A4ACBDEB42CCF863A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314150   (521211) от 12.07.2019
+
+Инфинити - Inti (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521211.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Inti (Album Intro)
+2. Океан
+3. Трек
+4. Последний раз(   Читать дальше...   )Жанр: PopПродолжительность: 00:28:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0122D1F4C97768858DB28B8251EF2A5578AA1069
 ```
 
 https://mybot314.ru/tekegram_catalog/

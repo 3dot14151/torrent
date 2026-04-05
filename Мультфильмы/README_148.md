@@ -1,3 +1,135 @@
+###  Публикация: 900417   (667741) от 22.05.2015
+
+Губка Боб в 3D / The SpongeBob Movie: Sponge Out of Water (2015) BDRemux 3D [H.264/1080p] [3D/2D]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всемирный любимчик со дна океана Губка Боб Квадратные Штаны должен спасти свой глубоководный мир, но для этого ему и его друзьям придется выбраться на сушу и оказаться в нашем.Производство: США, Paramount Animation, Nickelodeon Movies, United Plankton PicturesЖанр: Мультфильм, Комедия, Приключения, СемейныйРежиссер: Пол ТиббитПерсонажи: Антонио Бандерас, Том Кенни, Эрик Бауза, Тим Конуэй, Эдди Дизен, Роб Полсен, Кевин Майкл Ричардсон, Эйприл Стюарт, Кри Саммер, Билли УэстПеревод: Дублированный (iTunes Russia)Язык субтитров: Русский, английскийПродолжительность: 01:32:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A894DFF2C06FE764260716F2E3EF4FF16E7F33F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537505   (667732) от 16.03.2022
+
+Чарли на ферме / Charley on the Farm (1919) DVDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667732.jpg" />
+</div>
+
+
+###  Подробнее
+
+Образ чаплинского бродяги вдохновил режиссёра Пэта Салливана (будущего создателя знаменитого кота Феликса) сделать несколько мультфильмов, где главным героем был неутомимый и неунывающий Чарли. В этом фильме Чарли волей случая оказывается в глухой деревеньке, где устраивается работником на довольно необычную ферму, не имея никакого представления о работе, которую (   Читать дальше...   )Производство: США, Keen Cartoon Corporation / Nestor Film CompanyЖанр: Рисованная анимация, комедия, короткометражныйРежиссер: Пэт СалливанПеревод: Немой с интертитрамиСубтитры: Английские интертиры, русские отдельным файломПродолжительность: 00:10:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDD80BA20D14395B076DA62B464F9587FDE6C16A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 900557   (667680) от 22.05.2015
+
+Губка Боб в 3D / The SpongeBob Movie: Sponge Out of Water (2015) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всемирный любимчик со дна океана Губка Боб Квадратные Штаны должен спасти свой глубоководный мир, но для этого ему и его друзьям придется выбраться на сушу и оказаться в нашем.Производство: США, Paramount Animation, Nickelodeon Movies, United Plankton PicturesЖанр: Мультфильм, Комедия, Приключения, СемейныйРежиссер: Пол ТиббитАктеры: Антонио Бандерас, Том Кенни, Эрик Бауза, Тим Конуэй, Эдди Дизен, Роб Полсен, Кевин Майкл Ричардсон, Эйприл Стюарт, Кри Саммер, Билли УэстПеревод: Дублированный (iTunes Russia)Продолжительность: 01:32:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EF8B386282D52132370D3C485B299AF17790F03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136924   (667644) от 26.05.2017
+
+Босс-молокосос / The Boss Baby (2017) WEB-DLRip [H.264] [MP4|1024x432]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667644.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта актуальная во все времена история для взрослых и детей рассказывается от лица семилетнего брата новорожденного — фантазера Тима, который ревнует его к родителям. Но главный герой — совсем не простой ребенок, он обладает лидерскими задатками, уже носит деловые костюмы и во всем видит бизнес-задачу. Однажды Тим узнает о готовящемся заговоре, целью которого является (   Читать дальше...   )Производство: США, DreamWorks AnimationЖанр: мультфильм, комедия, семейныйРежиссер: Том МакГратАктеры: Алек Болдуин, Стив Бушеми, Джимми Киммел, Лиза Кудроу, Тоби Магуайр, Майлз Кристофер Бакши, James McGrath, Конрад Вернон, ВивиЭнн Йи, Эрик Белл млПеревод: Дублированный (iTunes)Субтитры: Русские (full, forced), Английские (full, forced)Продолжительность: 01:37:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A4B8343DE6CED465787A0CF32F68BAD55E62CC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 900610   (667599) от 22.05.2015
+
+Гнездо дракона / Dragon Nest: Warriors' Dawn (2014) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667599.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кто бы мог подумать, что всегда неуклюжий, но несомненно талантливый парень станет великим героем, который спасет свою красивейшую планету от пробудившегося зла?
+
+Много лет, пока легендарный Черный дракон спал, земля Алтера хранила хрупкий мир между расами людей, эльфов и неведомых нашему миру животных. Когда же он пробудился, охваченные ужасом жители были вынуждены (   Читать дальше...   )Производство: США, Китай, Франция / Mili PicturesЖанр: Мультфильм, Фэнтези, Приключения, СемейныйРежиссер: Юэфэн СонгПерсонажи: Цзяо Сюй, Гуаньлин Джи, Йинг Хуан, Давей Шен, Сянлонг Менг, Йе Сунь, Тиан Джин, Хон Шан, Цзытун Ся, Блайт ОффартПеревод: ДублированныйПродолжительность: 01:30:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC7262CB2E05ED3DCD170A7CB2321CC5D1047C27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1137453   (667404) от 26.05.2017
 
 Босс-молокосос / The Boss Baby (2017) WEB-DLRip
@@ -6,7 +138,7 @@
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667404.jpg" />
 </div>
 
 
@@ -34,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667307.jpg" />
 </div>
 
 
@@ -60,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667219.jpg" />
 </div>
 
 
@@ -86,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667115.jpg" />
 </div>
 
 
@@ -112,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667048.jpg" />
 </div>
 
 
@@ -139,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667034.jpg" />
 </div>
 
 
@@ -166,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667003.jpg" />
 </div>
 
 
@@ -192,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666970.jpg" />
 </div>
 
 
@@ -218,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666895.jpg" />
 </div>
 
 
@@ -244,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666885.jpg" />
 </div>
 
 
@@ -270,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666357.jpg" />
 </div>
 
 
@@ -296,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666253.jpg" />
 </div>
 
 
@@ -324,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_665863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_665863.jpg" />
 </div>
 
 
@@ -350,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665779.jpg" />
 </div>
 
 
@@ -376,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665773.jpg" />
 </div>
 
 
@@ -402,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665728.jpg" />
 </div>
 
 
@@ -429,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665324.jpg" />
 </div>
 
 
@@ -455,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665273.jpg" />
 </div>
 
 
@@ -481,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665259.jpg" />
 </div>
 
 
@@ -507,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665184.jpg" />
 </div>
 
 
@@ -533,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665170.jpg" />
 </div>
 
 
@@ -545,137 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD6920275D62116D0D8B88618C41F0E2F510D93D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 340247   (664964) от 22.05.2011
-
-Пинчер Боб и семь колокольчиков (1984) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664964.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ДетскийРежиссер: Кузьма КресницкийРоли озвучивают: Вера Кавалерова, Н. Янковская, Е. ПетросоваПродолжительность: 00:10:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:455C3F4E77D92BC05B4E5C4F9D059619304B0F5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 340245   (664889) от 22.05.2011
-
-Пингвины (1968) TVRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ДетскийРежиссер: Владимир ПолковниковПродолжительность: 00:12:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F43D08B304A138C5C5ECA055E2E7FA033B06211
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 512135   (664727) от 18.06.2012
-
-Джок / Jock (2011) [H.264/720p-LQ] BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664727.jpg" />
-</div>
-
-
-###  Подробнее
-
-История приключений очаровательного и бесстрашного пса по кличке Джок — самого младшего, и, как оказалось, самого слабого из своих братьев и сестер. Его ждут удивительные приключения и невероятные испытания. Он станет сильным и отважным, храбрым и преданным — лучшим другом для своего юного хозяина.Производство: США / ЮАР, Jock Animation / Motion Sound & PictureЖанр: Мультфильм, Комедия, ПриключенияРежиссер: Дункан МакНилиАктеры: Брайан Адамс, Уильям Болдуин, Энтони Бишоп, Луиса Сердан, Филина Цердан, Тед Дэнсон, Роуз Эмануэл, Ава Флюти, Катерина Флюти, Ким ХартПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:19:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D1556002E9E7F61E5236F1B78546FFB33704053
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 511385   (664620) от 18.06.2012
-
-Пиноккио / Pinocchio (1940) [1080p] 2*Blu-ray / Специальное 2-х дисковое издание
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664620.jpg" />
-</div>
-
-
-###  Подробнее
-
-Голубая фея оживила куклу-марионетку, но чтобы стать настоящим человеком, герою надо в добрых делах проявить свою храбрость и честность. И вот длинноносый непоседа и его совестливый друг сверчок Джимини Крикет отправляются навстречу самым невероятным приключениям.
-Они встретят злого кукольника Стромболи, заглянут на обманчивый Остров удовольствий, где непослушных (   Читать дальше...   )Жанр: Детский, Семейный, АнимационныйРежиссер: Гамильтон Ласки, Бен Шарпстин / Hamilton Luske, Ben SharpsteenПерсонажи: Пиноккио, Джепетто, голубая фея, сверчок Джимини Крикет, кукольник СтромболиПеревод: AнглийскийСубтитры: Английский, Русский, Португальский, Арабский, ПольскийПродолжительность: 01:25:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D745B491481BBFE52292C53F04D309B95231E3E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 512115   (664612) от 18.06.2012
-
-Тарбозавр / Jeombaki: Hanbandoeui Gongryong (2011)  [H.264/720p-LQ] BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664612.jpg" />
-</div>
-
-
-###  Подробнее
-
-70 миллионов лет назад динозавры владели миром. В бескрайних лесах обитало бесчисленное множество разновидностей этих удивительных животных. Самый молодой из семьи Тарбозавров, игривый и любопытный малыш по имени Пятнистый, с нетерпением ждет, когда же старшие собратья возьмут его на охоту, чтобы преподать первые уроки взрослой жизни. Но когда наступает этот долгожданный (   Читать дальше...   )Жанр: Мультфильм, приключенияРежиссер: Сань-хо ХаньАктеры: ДинозаврыПеревод: ДублированныйПродолжительность: 01:28:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF095C845F3B229C22928216A1D82AE796A2B4D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

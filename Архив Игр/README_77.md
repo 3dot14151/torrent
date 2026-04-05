@@ -1,3 +1,55 @@
+###  Публикация: 479014   (86873) от 06.04.2012
+
+Minecraft IndustrialClient 1.4.1 (P) [Multi56/+] 2012
+
+>>След.
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Minecraft это игра наподобие песочницы в которой можно строить. В настоящее время в процессе развития. Разрабатывается Маркусом Перссоном, известным также как "Notch". Игра была задумана как клон игры Infiniminer, хотя Перссон хочет, чтобы геймплей был больше похож на Dwarf Fortress. В режиме выживания, основной задачей является строительство и зарабатывание очков, но в него также включен ряд дополнительных функций. Такими является наличие враждебных монстров, а так же необходимость собирать ресурсы на постройку сооружений и материалы для ковки инструментов работы и защиты от монстров. Сайт Minecraft IndustrialServerТип издания: ПираткаЖанр: Аркада, Кросс-платформерЯзык озвучки: n/aЯзык интерфейса: Русский, Английский, Французский, Испанский... (multi 56)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1D87C0E2A392AA2700EDF7DB57E8C9ED635F895
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479034   (86863) от 06.04.2012
+
+Top Gun: Hard Lock [En] (RePack) 2012 | z10yded
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86863.jpg" />
+</div>
+
+
+###  Подробнее
+
+Боевой симулятор полета Top Gun: Hard Lock создан на основе фильма «Лучший стрелок» 1986 года. В игре представлена новая сюжетная линия, действия которой разворачивается в наше время. Кроме одиночной кампании, состоящей из 15 миссий, в Top Gun: Hard Lock есть многопользовательский режим, поддерживающий одновременно до 16 игроков. В мультиплеере пользователи смогут вместе противостоять врагам или играть друг против друга.Тип издания: RePackЖанр: Arcade / Flight Combat / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81100AD731BCB4319B2B3B358E2B5C8DADEC2BFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 478584   (86851) от 06.04.2012
 
 Counter-Strike 1.6 {Чистый клиент} (P) [En] 2000 (2012)
@@ -6,7 +58,7 @@ Counter-Strike 1.6 {Чистый клиент} (P) [En] 2000 (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86851.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86833.jpg" />
 </div>
 
 
@@ -62,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86829.jpg" />
 </div>
 
 
@@ -91,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86814.jpg" />
 </div>
 
 
@@ -121,7 +173,7 @@ Fugu the Blowfish (P) [En] 2008
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86707.jpg" />
 </div>
 
 
@@ -147,7 +199,7 @@ Tom Clancy's Splinter Cell: Conviction [Ru] (Rip/1.04) 2010 | Naitro
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86675.jpg" />
 </div>
 
 
@@ -173,7 +225,7 @@ Confrontation [En] (L/Steam-Rip) 2012 | МалышШок [Без таблетк�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86668.jpg" />
 </div>
 
 
@@ -203,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86653.jpg" />
 </div>
 
 
@@ -229,7 +281,7 @@ Counter-Strike 1.6 (RePack) [Ru] 2012 | trofian
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86647.jpg" />
 </div>
 
 
@@ -256,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86638.jpg" />
 </div>
 
 
@@ -284,7 +336,7 @@ Warp [Ru] (RePack) 2012 | Naitro
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86556.jpg" />
 </div>
 
 
@@ -310,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86538.jpg" />
 </div>
 
 
@@ -338,7 +390,7 @@ Warp [Ru] (RePack) 2012 | R.G. Repacker's
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86533.jpg" />
 </div>
 
 
@@ -364,7 +416,7 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl / S.T.A.L.K.E.R.: Тень Чернобыл�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86474.jpg" />
 </div>
 
 
@@ -390,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86427.jpg" />
 </div>
 
 
@@ -416,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86362.jpg" />
 </div>
 
 
@@ -442,7 +494,7 @@ Warp [Ru] (RePack) 2012 | Sash HD
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86345.jpg" />
 </div>
 
 
@@ -468,7 +520,7 @@ Counter Strike: Source - Modern Warfare 3 (RePack) [Ru] 2012 | By Wh40k clan
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86273.jpg" />
 </div>
 
 
@@ -494,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86264.jpg" />
 </div>
 
 
@@ -522,7 +574,7 @@ WRC: FIA World Rally Championship Дилогия [Ru] (Lossless Repack) 2010-201
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86250.jpg" />
 </div>
 
 
@@ -548,7 +600,7 @@ Defenders of Ardania [En] (RePack/1.2) 2012 | Daytone
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86234.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Painkiller: Абсолютное зло / Painkiller: Recurring Evil [Ru] 2012 |
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86226.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86067.jpg" />
 </div>
 
 
@@ -635,7 +687,7 @@ Stacking + 1 DLC [En] (RePack) 2012 l Naitro
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85959.jpg" />
 </div>
 
 
@@ -646,58 +698,6 @@ Stacking – приключение с элементами головоломо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02EA494CCA63C2A8A604AC7E671EB49FBF76F456
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475056   (85861) от 01.04.2012
-
-[Антология] Angry Birds (RePack) [Ru/En] 2009-2012 | SomeOne
-
->>След.
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85861.jpg" />
-</div>
-
-
-###  Подробнее
-
-Angry Birds Space - главная особенность новой игры - стрелять птичками нам придется в условиях нулевой гравитации. Впрочем, не совсем нулевой, ведь в Angry Birds Space будут и планеты, притягивающие к себе предметы. Так что на протяжении 60 уровней нас ждут и расчеты баллистической траектории, и даже орбитальные маневры. Как и всегда, в новой игре появились и новые птички, с которыми можно поэкспериментировать, а также бонусные уровни, спрятанные по всей игре.Тип издания: ПираткаЖанр: Arcade / Logic (Puzzle)Язык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61215BA81AC9A026F1A1954073C32A578A31E506
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476882   (85810) от 01.04.2012
-
-Warlords: Battlecry II \ Варлорды: Боевой клич 2 (RePack) [Ru] 2002 | Pilotus
-
->>След.
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85810.jpg" />
-</div>
-
-
-###  Подробнее
-
-Погружение в фэнтезийный мир Warlords продолжается. Новые битвы ждут своих героев. Огромные армии рвутся в бой. И только опытный полководец сможет привести их к победе. Сражение за сражением вы пройдете через всю войну бок о бок со своими солдатами. Используя магические способности и боевые навыки героя, вы сыграете решающую роль в сражениях рас.Тип издания: RePackЖанр: Изометрическая  стратегияЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0515795ECCCB23AED0B429F64034ECA7AC8055A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

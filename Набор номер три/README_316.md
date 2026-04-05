@@ -1,3 +1,217 @@
+###  Публикация: 912736   (608577) от 27.06.2015
+
+Количество Android-вирусов увеличилось на 390% в 2014 году
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_608577.jpg" />
+</div>
+
+
+###  Подробнее
+
+В течение 12 месяцев исследователи выявили порядка одного миллиона новых вредоносных приложений.Как сообщают исследователи безопасности из Pulse Secure, в течение 2014 года количество Android-вирусов увеличилось на 390%. За этот период компания зафиксировала более одного миллиона новых вредоносных программ, ориентированных на популярную мобильную платформу. Согласно (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912604   (608439) от 27.06.2015
+
+Сборная России досрочно выиграла медальный зачет на Европейских играх
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_608439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборная России досрочно выиграла общекомандный медальный зачет первых Европейских игр, которые проходят в Баку. Об этом сообщает ТАСС.За три дня до конца соревнований на счету российских спортсменов 123 медали (59 золотых, 32 серебряных и 32 бронзовых). У ближайших преследователей — команды Азербайджана — 46 медалей, 15 из которых — золотые. Третьей идет сборная (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231126   (608311) от 16.06.2018
+
+Linux Deepin 15.6 [x64] 1xDVD
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608311.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deepin — дистрибутив Linux, основанный на пакетной базе Debian (ранее на Ubuntu) с собственным окружением рабочего стола DDE — Deepin Desktop Environment, с оконным менеджером Gala (форк Mutter) и рядом приложений домашней разработки, среди которых музыкальный проигрыватель — аудиоплеер Deepin, видеоплеер — DMovie, система обмена сообщениями - DTalk, инсталлятор (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00F01F1EE4193FF934CC877A3149EF7D4EA8BBFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230817   (608300) от 16.06.2018
+
+Microsoft прекратит техподдержку Windows 7 и Windows 8 на своих форумах
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_608300.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начиная с июля 2018 года Microsoft больше не будет предоставлять решения или ответы на вопросы об устаревших программных и аппаратных продуктах, которые пользователи публикуют на форумах компании.Программные продукты, для которых сотрудники Microsoft больше не будут предоставлять техническую поддержку, включают Windows 7, Windows 8.1, Windows 8.1 RT, Microsoft Security (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230790   (608299) от 16.06.2018
+
+Windows 10 (x86/x64) 10in1 + LTSB +/- Office 2016 by SmokieBlahBlah 14.06.18 [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608299.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 редакций Windows 10 (русские и английские) с обновлениями по июнь 2018, основанных на оригинальных образах Redstone 4 (1803) и LTSB 1607 (образа LTSB новее не существует!!!) и интегрированными системными библиотеками
++10 таких же редакций со встроенным MS Office 2016 Pro Plus x86 (можно выбрать, ставить ли Office. Галочка перед началом установки.) Язык офиса зависит (   Читать дальше...   )Язык интерфейса: русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A65E9EE3E80CB1F0F5971097CB89DE8A844AB846
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231013   (608295) от 16.06.2018
+
+Windows 8.1 (x86/x64) 10in1 +/- Office 2016 SmokieBlahBlah 15.06.18 [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608295.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 редакций Windows 8.1 (русские и английские) с обновлениями по июнь 2018 и интегрированными системными библиотеками + 10 таких же редакций со встроенным Office 2016 Pro Plus VL x86 (можно выбрать, ставить ли Office. Галочка перед началом установки.). Язык офиса зависит от выбранного языка ОС.
+
+Ничего не вырезано и не изменено, кроме: см. спойлер "Изменения (   Читать дальше...   )Язык интерфейса: Русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02175E34C440D2741699F22D3EBFBCBBB3F09A8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231016   (608293) от 16.06.2018
+
+Windows 10 (x86/x64) 10in1 + LTSB +/- Office 2016 by SmokieBlahBlah 15.06.18 [Ru/En]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608293.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 редакций Windows 10 (русские и английские) с обновлениями по июнь 2018, основанных на оригинальных образах Redstone 4 (1803) и LTSB 1607 (образа LTSB новее не существует!!!) и интегрированными системными библиотеками
++10 таких же редакций со встроенным MS Office 2016 Pro Plus x86 (можно выбрать, ставить ли Office. Галочка перед началом установки.) Язык офиса зависит (   Читать дальше...   )Язык интерфейса: русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE43FD2F4DF9500105FE78B0810DF84C45DDC7DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231008   (608292) от 16.06.2018
+
+Windows 7 SP1 (x86/x64) 13in1 +/- Office 2016 by SmokieBlahBlah 15.06.18 [Ru/En]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608292.jpg" />
+</div>
+
+
+###  Подробнее
+
+13 редакций Windows 7 (русские и английские) с IE 11, важными и рекомендуемыми обновлениями по июнь 2018 (кроме нежелательных) и интегрированными системными библиотеками +13 таких же редакций со встроенным MS Office 2016 Pro Plus VL х86 (можно выбрать, ставить ли Office. Галочка перед началом установки.). Язык офиса зависит от выбранного языка ОС.
+
+Ничего не вырезано (   Читать дальше...   )Язык интерфейса: Русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D6DC9028DEF68EAFA2B43F29576DE61C026012E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1230716   (608291) от 16.06.2018
 
 Тренер (2018) WEB-DL [H.264/1080p-LQ]
@@ -6,7 +220,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608291.jpg" />
 </div>
 
 
@@ -32,7 +246,7 @@ Adobe Muse CC 2015 Multilingual
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608179.jpg" />
 </div>
 
 
@@ -58,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608175.jpg" />
 </div>
 
 
@@ -84,7 +298,7 @@ VA - Xtended 80 - Non Stop Dance Mix vol.01-33 (2009-2015) [MP3|192 кб/с]<Dis
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608173.jpg" />
 </div>
 
 
@@ -111,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_608057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_608057.jpg" />
 </div>
 
 
@@ -137,7 +351,7 @@ Adobe Creative Suite 5.5 Production Premium Retail (4*DVD) [Multi/Eng]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_608016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_608016.jpg" />
 </div>
 
 
@@ -163,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_607901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_607901.jpg" />
 </div>
 
 
@@ -190,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_607899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_607899.jpg" />
 </div>
 
 
@@ -217,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607890.jpg" />
 </div>
 
 
@@ -243,7 +457,7 @@ Heroes of Might and Magic V: Bundle (2006) [Ru/Multi] (2.1v2/3.1v2) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607887.jpg" />
 </div>
 
 
@@ -269,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607886.jpg" />
 </div>
 
 
@@ -295,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607776.jpg" />
 </div>
 
 
@@ -321,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607774.jpg" />
 </div>
 
 
@@ -347,7 +561,7 @@ Kaspersky Internet Security 2017 17.0.0.611 Final [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607773.jpg" />
 </div>
 
 
@@ -373,7 +587,7 @@ Kaspersky Anti-Virus 2017 17.0.0.611 Final [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607772.jpg" />
 </div>
 
 
@@ -399,7 +613,7 @@ Autodesk 3ds Max 2017 SP2 [Multi]
 >>11
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607771.jpg" />
 </div>
 
 
@@ -425,7 +639,7 @@ InSSIDer 4.0.0.20 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607630.jpg" />
 </div>
 
 
@@ -451,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607628.jpg" />
 </div>
 
 
@@ -462,221 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECBA17EAA5487D8804EA2B7DAF50BE5EC159BC93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546155   (607315) от 23.04.2022
-
-У ютубера отобрали лицензию пилота за видео крушения самолета
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_607315.jpg" />
-</div>
-
-
-###  Подробнее
-
-После выхода ролика на YouTube «I Crashed My Plane» от видеоблогера Тревора Джейкоба, Федеральное авиационное управление США (FAA) решило лишить его лицензии и наложить штраф.В видео, которое набрало с декабря 2021 года почти 2 млн просмотров, Джейкоб выпрыгивает с парашютом из учебного самолета.В письме регулятор написал, что блогер «продемонстрировал отсутствие (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546026   (607310) от 23.04.2022
-
-Группировка Starlink расширяется. Первая ступень Falcon 9 совершила рекордный 12-й полёт
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_607310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вчера была запущена ракета Falcon 9 со станции космических сил на мысе Канаверал во Флориде, которая доставила на орбиту 53 интернет-спутника SpaceX Starlink. Это был 12-й старт для этой первой ступени Falcon 9, которая установила рекорд повторного использования SpaceX. Ожидается, что это будет не последний полет ракеты-носителя.Примерно через 8,5 минут после старта (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545982   (607302) от 23.04.2022
-
-Outline Client VPN 1.7.1 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Получите доступ к многочисленным бесплатным VPN серверами из 20 стран мира.
-Outline VPN – бесплатный VPN с неограниченным трафиком.
-VPN-проект, предлагающий как серверное, так и клиентское решение.
-В качестве VPN-протокола используется протокол с открытым исходным кодом – Shadowsocks, который обеспечивает доступ к открытому интернету, в то время как традиционные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34D334DF672B0B560A1F47565E3C0D1BC81913A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018523   (607178) от 03.07.2017
-
-Подборка | Книги в кратком изложении Smart Reading [178 книги] (2017) [MP3]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтение становится роскошью, доступной очень немногим. При этом, мы теряем возможность получения идей по развитию бизнеса и учимся самым дорогим и долгим способом — совершая ошибки.
-Мы придумали решение! Саммари — тексты, в которых в сжатой форме рассказывается о ключевых идеях каждой книги. Мы не просто сокращаем текст, а анализируем и собираем всю «соль», которую (   Читать дальше...   )Жанр: Саммари, Бизнес, Биографии, Психология, Здоровье, ОтношенияПродолжительность: 91:31:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E54D670B609B53102037708DD608E7CBB0B1231B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913169   (606568) от 28.06.2015
-
-Руководство НАСА начинает выбор места, в котором нога человека впервые коснется поверхности Марса
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_606568.jpg" />
-</div>
-
-
-###  Подробнее
-
-В планах американского космического агентства НАСА стоит отправка на Марс первой пилотируемой экспедиции и по срокам это должно произойти в середине или ближе к концу 2030-х годов. Но уже сегодня, за два десятилетия до того, как первые астронавты-пионеры отправятся к Красной Планете, НАСА начинает заниматься выбором подходящего для посадки места. Процесс выбора начнется (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231202   (606518) от 17.06.2018
-
-Windows 10 Enterprise LTSB (x86/x64) Elgujakviso Edition (v.16.06.18) [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606518.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборки сделаны на основе оригинальных образов от MSDN:
- ru_windows_10_enterprise_2016_ltsb_x86_dvd_9058173.iso
- ru_windows_10_enterprise_2016_ltsb_x64_dvd_9057886.iso
-(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F58760F16D96E7417B792C51DF215A4844BBD22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231182   (606516) от 17.06.2018
-
-Microsoft Windows 7 Ultimate Ru x86/x64 nBook IE11 by OVGorskiy® 06.2018 1 DVD
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606516.jpg" />
-</div>
-
-
-###  Подробнее
-
-32-х и 64-х битные ОС Windows® 7™ максимальная с интегрированными обновлениями и дополнительными программами, оформлением в светло-голубом стиле и стандартной ручной установкой на 1 DVD. Дополнительно в сборку интегрирована профессиональная 64-х битная редакция для установки системы на GPT диски. После установки в системе будут присутствовать практически все возможные (   Читать дальше...   )Язык интерфейса: Русский (Russian)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A77DA1381139D5756344283EC9BFC708893A8DF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166620   (606515) от 17.06.2018
-
-Grand Theft Auto V (2015) [Ru/En] (1.0.1180.1/1.41) Repack R.G. Механики
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606515.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтобы провести серию дерзких ограблений и выжить в большом неприветливом городе, уличному ловчиле, вышедшему на пенсию грабителю банков и вселяющему ужас психопату приходится иметь дело с самыми опасными и безумными преступниками, а также шоуменами и госслужащими Западного побережья. Версия Grand Theft Auto V для PC содержит массу графических и технических усовершенствований.Тип издания: RepackРазработчик: Rockstar North, Rockstar San Diego и Rockstar LeedsЖанр: Action (Shooter), Racing (Cars), 3D, 1st Person, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B73A735D8FE7DB9103288F134371586FDDFAB6FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

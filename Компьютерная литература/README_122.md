@@ -1,164 +1,3 @@
-###  Публикация: 1725693   (55450) от 25.05.2024
-
-Robert C. Martin | Clean Code Collection (2012) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55450.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Robert C. Martin Clean Code Collection consists of two best-selling eBooks:
-Clean Code: A Handbook of Agile Software Craftmanship
-The Clean Coder: A Code of Conduct for Professional Programmers.
-In Clean Code, legendary software expert Robert C. Martin has teamed up with his colleagues from Object Mentor to distill their best agile practice of cleaning code "on (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Pearson Education, IncФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F808F7F695047D98D3B72F0AEC027FBAAD717447
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726588   (54936) от 30.05.2024
-
-Никита Шахулов | Этичный хакер (2022) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этичный хакер (пентестер) — это специалист в сфере кибербезопасности, который профессионально занимается выискиванием «дыр» в коде и помогает устранить утечки данных. Название специальности происходит от англоязычного термина pentest (penetration test), то есть «тест на проникновение». Имеется в виду проникновение в систему через скрытые уязвимости.Жанр: Информационная безопасность, компьютерная литератураИздательство: Издательские решенияФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:577ADBD80226A637608F09519CEA86FAFE25416D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726831   (54903) от 30.05.2024
-
-Zed A. Shaw | Learn More Python 3 the Hard Way: The Next Step for New Python Programmers (2017) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54903.jpg" />
-</div>
-
-
-###  Подробнее
-
-In Learn Python 3 the Hard Way, Zed Shaw taught you the basics of Programming with Python 3. Now, in Learn More Python 3 the Hard Way, you’ll go far beyond the basics by working through 52 brilliantly crafted projects. Each one helps you build a key practical skill, combining demos to get you started and challenges to deepen your understanding. Zed then teaches you (   Читать дальше...   )Жанр: учебникЯзык: английскийИздательство: Addison-Wesley ProfessionalФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:030A5A827153BB56969C51D3A6347B8C42D4E4DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669804   (54741) от 01.06.2024
-
-Книжная серия | Библиотека программиста часть 2 [94 книги] (2000-2024) [PDF, DJVU][Обновляемая]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия "Библиотека программиста" предназначена как для опытных мастеров своего дела, так и для тех, кто только приступил к изучению программирования... Библиотека программиста - неотъемлемая часть его работы. Ни одному представителю других профессий не приходится столько работать со справочным материалом. Удержать в голове всю массу необходимой информации (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ПитерФормат: PDF, DJVUКачество: Различное
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D054EF2B84FD6D29471CC26AEFA77C1D1C9A6B9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727313   (54723) от 01.06.2024
-
-Х.А. Гуэрра, А. Тигранян, Д. Асатрян и др.| Эксперт C++ (2023) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54723.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в Expert C++! Если вы опытный разработчик на C++, желающий повысить свою квалификацию и раскрыть весь потенциал C++20, вы пришли по адресу.
-В этом экспертном руководстве мы тщательно продумали путь обучения, чтобы дать вам передовые методы программирования и практические знания, которые выходят за рамки традиционного объектно-ориентированного программирования. (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: DeepLИздательство: Packt Publishing LtdФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D5EFE6B28E48227482736A593512A0F30044151
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727219   (54719) от 01.06.2024
-
-Крис Ричардсон | Микросервисы. Паттерны разработки и рефакторинга (2023) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54719.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вам давно кажется, что вся разработка и развертывание в вашей компании донельзя замедлились — переходите на микросервисную архитектуру. Она обеспечивает непрерывную разработку, доставку и развертывание приложений любой сложности.
-Книга, предназначенная для разработчиков и архитекторов из больших корпораций, рассказывает, как проектировать и писать приложения (   Читать дальше...   )Жанр: Техническая литератураИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63BB62574811E3404624994E2EC77821543D502E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727231   (54714) от 01.06.2024
 
 Kyran Dale | Data Visualization with Python and JavaScript (2016) [PDF] [EN]
@@ -167,7 +6,7 @@ Kyran Dale | Data Visualization with Python and JavaScript (2016) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54714.jpg" />
 </div>
 
 
@@ -194,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54649.jpg" />
 </div>
 
 
@@ -220,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54645.jpg" />
 </div>
 
 
@@ -246,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54597.jpg" />
 </div>
 
 
@@ -273,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54471.jpg" />
 </div>
 
 
@@ -299,7 +138,7 @@ Paul Barry | Head First Python. Second edition (2016) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54447.jpg" />
 </div>
 
 
@@ -325,7 +164,7 @@ Osvaldo Martin | Bayesian Analysis with Python (2016) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54368.jpg" />
 </div>
 
 
@@ -354,7 +193,7 @@ Brendan Gregg | Systems Performance. Enterprise and the Cloud (2013) [PDF] [EN]
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54290.jpg" />
 </div>
 
 
@@ -382,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54220.jpg" />
 </div>
 
 
@@ -410,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53894.jpg" />
 </div>
 
 
@@ -436,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53883.jpg" />
 </div>
 
 
@@ -462,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53805.jpg" />
 </div>
 
 
@@ -490,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53491.jpg" />
 </div>
 
 
@@ -516,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53277.jpg" />
 </div>
 
 
@@ -542,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52954.jpg" />
 </div>
 
 
@@ -569,7 +408,7 @@ Zhiyong Tan | Acing the System Design Interview (2024) [PDF]  [EN]
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52491.jpg" />
 </div>
 
 
@@ -596,7 +435,7 @@ Daniel Jones | Power BI, 3 in 1 (2021) [EPUB] [EN]
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52379.jpg" />
 </div>
 
 
@@ -623,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52152.jpg" />
 </div>
 
 
@@ -649,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52149.jpg" />
 </div>
 
 
@@ -675,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52067.jpg" />
 </div>
 
 
@@ -686,6 +525,164 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E73691CD21B7D3161CC95AB8ED3AB70BCDC1F40E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821416   (52066) от 02.10.2025
+
+Мария Райдер | Как подружиться с ChatGPT (2025) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга станет вашим проводником в мир общения с ChatGPT — одной из наиболее продвинутых нейросетей современности. Автор подробно рассказывает обо всех возможностях платформы, показывает эффективные методы взаимодействия с ней, помогает избежать распространенных ошибок и раскрывает секреты эффективного использования инструмента для решения повседневных задач.Жанр: Компьютерная литература, нейросетиИздательство: КнигиумФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91D7D33AB982571E28FBA6AD56F7A6E7D17A0785
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558904   (51879) от 27.06.2024
+
+Книжная серия | Профессиональное программирование [63 книги (+2СD, код, пример)] (2005-2023) [PDF][Обновляемая]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51879.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия "Профессиональное программирование" - незаменимый помощник в изучении современных технологий программирования и выборе оптимальных и эффективных решений при разработке программ. Для квалифицированных разработчиков программного обеспечивания, системных аналитиков, архитекторов проектовЖанр: Компьютерная литератураИздательство: БХВ-ПетербургФормат: PDFКачество: Различное
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B8F70AD38088D42DEFA6149F529383EF8102CE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733088   (51870) от 27.06.2024
+
+О.И. Цилюрик | Расширения ядра Linux: драйверы и модули (2023) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51870.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге подробно рассмотрено программирование драйверов ядра Linux, исследованы возможности расширяемости ядра при помощи модулей. Основная версия ядра — 5.15. Код примеров отработан и проверен на десятках различных инсталляций Linux, установленных из различных дистрибутивов и разных семейств дистрибутивов: Fedora, CentOS, Debian, Ubuntu, Mint. Уделено внимание архитектурам (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: БХВ-ПетербургФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32AEA08763BDF3D8A99737E4BAA3F0381C20F049
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733195   (51771) от 28.06.2024
+
+Э.Г. Бурнаева, С.Н. Леора | Обработка и представление данных в MS Excel 3-е изд. (2024) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена эффективному использованию инструментов приложения Excel для обработки и анализа многомерных данных с целью их систематизации, выявления характера и структуры взаимосвязей. Пройдя путь от структурирования данных до создания простейшей базы данных, на основе которой можно строить различные сводные таблицы для нахождения ответов на поставленные вопросы, (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ЛаньФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD01129F14E6B1D2FFFC0A4868BE0240BD6290B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732521   (51578) от 30.06.2024
+
+Брюс М. Ван Хорн II, Куан Нгуен | PyCharm. Профессиональная работа на Python (2024) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51578.jpg" />
+</div>
+
+
+###  Подробнее
+
+PyCharm – лучшая профессиональная среда разработки для программистов Python среди множества доступных интегрированных сред. Независимо от того, в каких целях используется Python – для общих задач автоматизации, создания утилит, веб-приложений, анализа данных, машинного обучения или бизнес-приложений, – инструменты PyCharm упрощают выполнение сложных задач и оптимизируют (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: И.Л. ЛюскоИздательство: ДМК-ПрессФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEA1A209B3F7D6051CD0842B8B9B1FA6F7FF0C33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734117   (50571) от 09.07.2024
+
+Комплект вопросов и ответов на них  сертификационного экзамена на знание  конфигурации «1С:Зарплата и управление персоналом»  для Казахстана (2024) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50571.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шпаргалка "Комплект вопросов и ответов на них сертификационного экзамена на знание конфигурации «1С:Зарплата и управление персоналом» для Казахстана".
+Не является официальным изданием фирмы «1С»
+Версия экзамена на 20.06.2024Жанр: 1СИздательство: 1С ПрофессионалФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDE9C4BF325CD4145937054D5A793D64C6FE21C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

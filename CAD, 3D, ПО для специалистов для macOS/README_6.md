@@ -6,7 +6,7 @@ Artlantis 2021 v9.5.2.25095 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153482.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Live Home 3D Standart 3.5.1 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152329.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Isotropix Clarisse iFX 4.0 SP14 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148070.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Planetside Terragen for Mac 4 v.4.7.15 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145786.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Explaindio Platinum 4 v4.011 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143991.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Live Home 3D Pro Edition 4.8.3 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141897.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ CADintosh X 8.8.6 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134909.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Garden Planner 3.8.53 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134219.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Blackmagic Design Fusion Studio 18.6.4 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122589.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Cheetah3D for Mac 8.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120791.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ JetBrains Clion 2023.3.3 for Mac Intel/ARM [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120368.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ JetBrains GoLand for Mac 2023.2.3 Intel/ARM  [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119973.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Cycling'74 Max 8.6.0 + RNBO U2B [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119961.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ JetBrains DataGrip for Mac 2023.3.4 Intel/ARM [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118653.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ FabFilter Total Bundle v.13.02.2024 U2B STANDALONE, VST, VST3, DPM, AU [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117838.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ OmniGraffle Pro 7.22.6 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113420.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Room Arranger 9 fo Mac 9.8.3 U2B [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113195.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Native Instruments Kontakt 7 for Mac v.7.9.0 U2B [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112611.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Cycling'74 Max 8.6.2 + RNBO U2B [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112520.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Autodesk AutoCAD 2012 [Eng]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79089.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Rhinoceros 8 v.8.5 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63089.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ JetBrains WebStorm for Mac 2023.3.5 Intel/ARM [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62488.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ JetBrains Rider for Mac 2023.3.4 Intel/Mac [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62429.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ JetBrains GoLand for Mac 2023.3.5 ARM  [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62242.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ JetBrains RubyMine for Mac 2023.3.5 Intel/ARM [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62232.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ JetBrains GoLand for Mac 2023.3.5 Intel  [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62219.jpg" />
 </div>
 
 

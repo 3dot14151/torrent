@@ -1,3 +1,61 @@
+###  Публикация: 1380275   (831572) от 04.05.2020
+
+Salvador Candel - Caminante Del Cielo (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831572.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Namaste 04:10
+2. Evocación 06:21
+3. Caminante del cielo 05:20
+4. Sámba 04:09(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:54:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2E7C2B377BD20F00C4111572F7687691FF3EBD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380592   (831567) от 04.05.2020
+
+Inon Zur - Syberia 3 (Original Soundtrack) (2017) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Syberia 3 Main Theme
+02. Thrill of Nature
+03. Dark Force in Motion
+04. Call of Tradition(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:57:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB15EBE195C1F66A3DEFAD103C82DD55B50D8134
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380230   (831564) от 04.05.2020
 
 Salvador Candel - Luna (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -6,7 +64,7 @@ Salvador Candel - Luna (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831564.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Silvis Silentii - The Sounds of Nature (2016-2020) (2020) [FLAC|Lossless|WEB-DL|
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831453.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Asian Zen - Valentine’s Healthy Rituals (2020) [FLAC|Lossless|WEB-DL|tracks] <
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831361.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Salvador Candel - Tocando Cielo (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830754.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Vineyard - Unto the King (1989) [FLAC|Lossless|tracks + .cue] <Praise & Worship>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830743.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Wychazel - Mirage (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830003.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Inon Zur - Syberia 3 (Official Soundtrack) (2017) [FLAC|Lossless|tracks] <Soundt
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829763.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Inon Zur - Syberia II (Official Soundtrack) (2017) [FLAC|Lossless|tracks] <Sound
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829748.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Terry Scott Taylor - Neverhood Songs (1996) [MP3|192 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829743.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Gregorian Chants: Sanctus (2009) Limited Edition, Box Set [FLAC|Lossless|tr
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829711.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Gregorian Chants: Sanctus (2009) Limited Edition, Box Set [MP3|320 Kbps] <E
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829706.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - The Crow/из к/ф "Ворон" (1994) Compilation [FLAC|Lossless|tracks +
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828959.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828801.jpg" />
 </div>
 
 
@@ -384,7 +442,7 @@ Salvador Candel & Carlos Fiel - Tengo Un Gran Amor (2020) [FLAC|Lossless|WEB-DL|
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827809.jpg" />
 </div>
 
 
@@ -413,7 +471,7 @@ David Hollandsworth - Imagine a World (2020) [FLAC|Lossless|WEB-DL|tracks] <New 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827807.jpg" />
 </div>
 
 
@@ -442,7 +500,7 @@ Asian Zen - Yoga Meditation Edition 2020 [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827735.jpg" />
 </div>
 
 
@@ -471,7 +529,7 @@ Terry Scott Taylor - Return To The Neverhood (Comic Book Soundtrack) (2012) [MP3
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827730.jpg" />
 </div>
 
 
@@ -500,7 +558,7 @@ Power Glove - Far Cry 3 Blood Dragon OST (2013) [FLAC|Lossless|tracks + .cue] <S
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827649.jpg" />
 </div>
 
 
@@ -529,7 +587,7 @@ Motoi Sakuraba, Yuka Kitamura - Dark Souls III (Original Soundtrack) (2016) [MP3
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826905.jpg" />
 </div>
 
 
@@ -558,7 +616,7 @@ Equador - Bones Of Man (2016) [MP3|320 Kbps] <Ambient, Electronic, Downtempo>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826452.jpg" />
 </div>
 
 
@@ -587,7 +645,7 @@ Paul Ruskay - Homeworld 2 Remastered Soundtrack (2015) [FLAC|Lossless]<OST>
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826190.jpg" />
 </div>
 
 
@@ -616,7 +674,7 @@ VA - Acoustic Covers 90s (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instrumenta
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826167.jpg" />
 </div>
 
 
@@ -645,7 +703,7 @@ Terry Scott Taylor - Imaginarium - Songs from the Neverhood (2004) 2CD [MP3|320 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826145.jpg" />
 </div>
 
 
@@ -671,7 +729,7 @@ Voez (2016) [FLAC 2.0|24/44|WEB-DL|tracks] <OST, Pop, Instrumental>
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826060.jpg" />
 </div>
 
 
@@ -685,64 +743,6 @@ Voez (2016) [FLAC 2.0|24/44|WEB-DL|tracks] <OST, Pop, Instrumental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D72F2BBE9A7C4552BB15484BF09D55C4B5BFA8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 880985   (826004) от 24.03.2015
-
-James Bay - Chaos And The Calm (2015) [FLAC|Lossless]<Indie Pop, Indie Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Craving
-02. Hold Back The River
-03. Let It Go
-04. If You Ever Want To Be In Love(   Читать дальше...   )Жанр: Indie Pop, Indie FolkПродолжительность: 00:48:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9332A0865A94EF484B0D8F4F3EFFF351CEDB2440
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381840   (824805) от 08.05.2020
-
-Terry Scott Taylor - The Music of Armikrog. (2015) [FLAC|Lossless|tracks] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Theme Armikrog
-02. Hot and Beefed (The Zipkicker)
-03. Scaly Maps
-04. The Squarely Beast(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:52:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E6A334F2DF1EE29AA96DC0DF4C56F8730B572AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

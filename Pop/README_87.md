@@ -1,174 +1,3 @@
-###  Публикация: 1387805   (790674) от 03.06.2020
-
-Hitmasters - Hey Sexy Lady (2003) [FLAC|Lossless|image + .cue] <Pop, Parody>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Der Steuersong (Lass Kanzlern) (3:10)
-02. Ein Rudi Völler (3:14)
-03. Everytime (3:02)
-04. Can't Get You Out Of My Head (3:50)(   Читать дальше...   )Жанр: Pop, ParodyПродолжительность: 00:54:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F21D52D343C6BC73017CF9D92222BF6D78F79B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387800   (790673) от 03.06.2020
-
-VA - The Non-Stop Party Album (2000) [FLAC|Lossless|image + .cue] <Disco, Euro House, Cover>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shout - Lulu (2:55)
-02. Back to the 60s Vol. 1- Dancing in the Street- (I Can't Get No) - Tight Fit (3:56)
-03. Stars on 45 Vol. 1-The Beatles Medley- Stars on 45-Venus-Sugar Sugar - Starsound Orchestra (4:30)
-04. You Sexy Thing - Hot Chocolate (3:55)(   Читать дальше...   )Жанр: Disco, Euro House, CoverПродолжительность: 01:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78C032BF42FD44A7ECBA5C9A3D9781B9EAB63EA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202353   (790534) от 28.01.2018
-
-DNCE - DNCE (2016) [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DNCE
-02. Body Moves
-03. Cake by the Ocean
-04. Doctor You(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75E4584019AA1669DD33A4D9E7ADAF16680B18F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202163   (790527) от 28.01.2018
-
-Charlotte Gainsbourg - Stage Whisper (2011) 2CD, Limited Edition [FLAC|Lossless|tracks + .cue] <Indie Pop, French Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/11. IRM (2:41)
-02/11. Set Yourself On Fire (3:53)
-03/11. Jamais (4:02)
-04/11. Heaven Can Wait (2:22)(   Читать дальше...   )Жанр: Indie Pop, French Pop-Rock |Продолжительность: 00:37:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90B5A822818A4F46654EE576325C96BDB21A889E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202319   (790493) от 28.01.2018
-
-Сати Казанова - Спасибо тебе (2018) EP [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Радость, Привет
-02. Спит Мое Счастье
-03. Всем Салам (fеаt. Ринат Каримов)
-04. Моя Правда(   Читать дальше...   )Жанр: PopПродолжительность: 00:23:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80A19F77D27200B7A4B0721D5C6A1B9CDE5BE744
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275438   (790435) от 11.01.2019
-
-Alizee - Remixes (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moi… Lolita (Reloaded)Жанр: Deep House, PopПродолжительность: 02:26:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C30D9F096810210F66043AC747A6864FF4A840F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202142   (790414) от 28.01.2018
 
 Марк Бернес - Огромное небо (2001) [APE|Lossless|tracks] <Советская эстрада, Ретро>
@@ -177,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790414.jpg" />
 </div>
 
 
@@ -206,7 +35,7 @@ Modern Talking - Original Album Classics (2011) 5xCD, Box Set, Compilation, Reis
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790147.jpg" />
 </div>
 
 
@@ -235,7 +64,7 @@ Britney Spears - Glory (2020) Explicit [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790039.jpg" />
 </div>
 
 
@@ -264,7 +93,7 @@ Randy Newman - Sail Away (1972) 2002, Rhino Records, Reprise Records [FLAC|Lossl
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790038.jpg" />
 </div>
 
 
@@ -293,7 +122,7 @@ Guy Lafleur - Lafleur! (1979) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789853.jpg" />
 </div>
 
 
@@ -322,7 +151,7 @@ VA - Top Of The Pops '1981 (2017) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <19
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789787.jpg" />
 </div>
 
 
@@ -353,7 +182,7 @@ Burito - Небесный ампир (2021) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789737.jpg" />
 </div>
 
 
@@ -382,7 +211,7 @@ Donna Summer - I'm a Rainbow: Recovered & Recoloured (2021) [FLAC|Lossless|WEB-D
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789714.jpg" />
 </div>
 
 
@@ -411,7 +240,7 @@ VA - NOW That's What I Call Music! 80 (2021) USA version [FLAC|Lossless|tracks +
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789708.jpg" />
 </div>
 
 
@@ -441,7 +270,7 @@ VA - NOW That's What I Call Music! 110 (2021) 2 CD, UK Series [FLAC|Lossless|tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789653.jpg" />
 </div>
 
 
@@ -470,7 +299,7 @@ James Blunt - The Stars Beneath My Feet (2004-2021) (2021) Compilation [FLAC|Los
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789638.jpg" />
 </div>
 
 
@@ -499,7 +328,7 @@ Supermax - Greatest Hits (2012) [FLAC|Lossless] <Rock, Pop-Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789628.jpg" />
 </div>
 
 
@@ -528,7 +357,7 @@ VA - Party Dance Vibes (2019) [MP3|320 Kbps] <Euro Dance, Pop Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789489.jpg" />
 </div>
 
 
@@ -557,7 +386,7 @@ VA - Dance Club 2019.01 [Explicit] (2019) [MP3|320 Kbps] <Pop, House, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789484.jpg" />
 </div>
 
 
@@ -586,7 +415,7 @@ VA - Памяти Анны Герман - "Мы долгое эхо друг-д�
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789457.jpg" />
 </div>
 
 
@@ -615,7 +444,7 @@ VA - Disco Planet (1979) LP [MP3|320 Kbps] <Funk/Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789441.jpg" />
 </div>
 
 
@@ -644,7 +473,7 @@ Mono Mind - Mind Control (2019) BMG [FLAC|Lossless|WEB-DL|tracks] <Electronic, P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789440.jpg" />
 </div>
 
 
@@ -673,7 +502,7 @@ Yaku & Supermax - The Message (2012) Clip Production Ltd. [FLAC|Lossless|WEB-DL|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789391.jpg" />
 </div>
 
 
@@ -702,7 +531,7 @@ VA - VA - Eurodance Party 2019 (2019) [MP3|320 Kbps] <Euro Dance, Pop Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789045.jpg" />
 </div>
 
 
@@ -731,7 +560,7 @@ Plazma - Indian Summer (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Synth-pop, Eur
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789024.jpg" />
 </div>
 
 
@@ -745,6 +574,181 @@ Plazma - Indian Summer (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Synth-pop, Eur
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDE918A53F98D5030389BEF494524E5388E17E43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203049   (789022) от 31.01.2018
+
+Justin Timberlake - Man of the Woods (2018) [MP3|320 Kbps] <Pop, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Filthy
+02. Midnight Summer Jam
+03. Sauce
+04. Man of the Woods(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 01:06:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AA7FC00E3DFB260A0A246C57D62BCB91959F8A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276035   (789010) от 14.01.2019
+
+VA - 50 Chart Hits of 2019-The Winter Workout Album (2019) [MP3|320 Kbps] <Nu Disco, Pop, Club>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chrizz Morisson & Jair - Baby (Don't Let Me Be Alone) (Dolls House Remix) 3:55
+02. B.G. The Prince Of Rap Feat. Timi Kullai & Nathan Reynolds Iii - Once You Have Me (Remundo Remix) 5:00
+03. Chrizz Morisson & Latisha Van Simon - From Here On Up (Dolls Uk Edit) 3:12
+04. Real System - There Is No More Love (Randy Norton Edit) 3:43(   Читать дальше...   )Жанр: Nu Disco, Pop, ClubПродолжительность: 03:27:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AB64D06B84FA6FE9C0768F37FAB03065620703B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511396   (788848) от 21.11.2021
+
+VA - The Best New Year's Party Album In The World...Ever! (2021) Explicit [MP3|320 Kbps] <Pop, Rock, R&B, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. THE ANXIETY - Meet Me At Our Spot [00:02:42]
+02. Billie Eilish - bad guy [00:03:14]
+03. Surf Mesa - ily (i love you baby) [00:03:01]
+04. Maroon 5 - What Lovers Do [00:03:19](   Читать дальше...   )Жанр: Pop, Rock, R&B, DanceПродолжительность: 08:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0AD26D0C02CADBE318E1FCCB40E51F5671D2ADA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509969   (788755) от 21.11.2021
+
+Mylene Farmer - Studio albums & Remixes (1986 - 2018) 15 CD [APE|Lossless|image + .cue] <Chanson, Pop Rock, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788755.jpg" />
+</div>
+
+
+###  Подробнее
+
+Милен Жанна Готье (фр. Mylène Jeanne Gautier), профессионально известная как Милен Фармер (Mylène Farmer), французская певица канадского происхождения, композитор, актриса и поэтесса. Одна из самых известных современных французских исполнительниц популярной музыки.
+Редко появляясь в СМИ и избегая обсуждения своей личной жизни, она построила долговременный (   Читать дальше...   )1986 - Cendres de lune
+1988 - Ainsi soit je
+1991 - L'autre
+1995 - Anamorphosee(   Читать дальше...   )Жанр: Chanson, Pop Rock, Synth-popПродолжительность: 13:59:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0215552BE5237F423749E8A27FE51C63926159A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203363   (788649) от 01.02.2018
+
+X Ray Connection - X Ray Connection (1984) LP [MP3|320 Kbps] <Electronic, Electro, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shoot (Special Video Version) (5:58)
+02. Escape From Space (6:56)
+03. No More Communication (5:33)
+04. Replay (5:21)(   Читать дальше...   )Жанр: Electronic, Electro, DiscoПродолжительность: 00:37:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7460279D004920D4A8D45A80CD971AA90D3294EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203306   (788607) от 01.02.2018
+
+O-Zone - VIP (2005) [MP3|320 Kbps] <EuroDance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Doi (3:46)
+02. VIP (2:49)
+03. De Ce Plang Chitarele (4:10)
+04. Number 1 (3:41)(   Читать дальше...   )Жанр: EuroDanceПродолжительность: 01:18:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A72E2F39186F12A7815FF0E684D42B9894B6FCE
 ```
 
 https://mybot314.ru/tekegram_catalog/

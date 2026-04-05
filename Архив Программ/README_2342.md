@@ -6,7 +6,7 @@ Coolmuster Android Assistant 6.0.78 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3804.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ FL Studio Producer Edition 25.1.5.4976 - All Plugins Edition + Addons (x64) RePa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3773.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ FL Studio Producer Edition 25.1.5.4976 - All Plugins Edition + Addons [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3766.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ PotPlayer 250625 (1.7.22570) RePack (& Portable) by elchupacabra (09.09.2025) [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3644.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Flyoobe 1.10.340 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3638.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ PDF24 Creator 11.28.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3627.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Adobe Acrobat Pro 2025.001.20693 (x86/x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3525.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Blackmagic Design DaVinci Resolve Studio 20.2.0 Build 13 RePack by KpoJIuK [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3517.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Microsoft Activation Scripts (MAS) 3.6 portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3515.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Chromium 140.0.7339.128 + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3500.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Google Chrome 140.0.7339.128 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3494.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ IObit Uninstaller Pro 15.0.0.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3473.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.14 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3470.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Adobe Acrobat Pro 2025.001.20693 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3424.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Topaz Gigapixel AI Pro 8.4.3 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3408.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Psiphon 3 build 186 RePack (& Portable) by elchupacabra (DC 05.09.2025) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3374.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Opera One 122.0.5643.17 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3363.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ VueScan Pro 9.8.47 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3356.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Vivaldi 7.5.3735.74 include standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3204.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ YT Downloader 9.16.8 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3190.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ MyLanViewer 6.5.8 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3189.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Rufus 4.10 (Build 2278) Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3078.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2990.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Master PDF Editor 5.9.94 (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2806.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 8.00.8000 Final ReP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2689.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ AOMEI Backupper Technician Plus 8.0.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2679.jpg" />
 </div>
 
 

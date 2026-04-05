@@ -6,7 +6,7 @@ Savoy (Paul Waaktaar-Savoy of A-ha) - See The Beauty In Your Drab Hometown (2018
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301191.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Pia Mora - ... Perchè no?... (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Jazz>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298757.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Tanita Tikaram - Tanita Tikaram (Acoustic) (2018) [FLAC|Lossless|WEB-DL|tracks] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298591.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Francesca Michielin - FEAT (Stato di Natura) (2020) [FLAC|Lossless|WEB-DL|tracks
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297966.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Roxette - Bag Of Trix Vol. 2 (Music From The Roxette Vaults) (2020) [FLAC|Lossle
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297752.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Sia - Everyday Is Christmas (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296942.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Best Hits Of Jerusalem Radio (2012) [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296923.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - 100 Hits 90s Originals (2017) Box Set, Demon Muzic Group [FLAC|Lossless|tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296839.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Kim Wilde - Discography (14 Albums) (1981 - 2006) [APE | FLAC|lossless]<Pop, New
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296087.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ VA - Hotel Lobby Instrumental Greatest Hits (2020) [FLAC|Lossless|WEB-DL|tracks]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295798.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ VA - Elevator Music: Greatest Hits Instrumental (2020) [FLAC|Lossless|WEB-DL|tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295795.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ VA - Coffee Shop Instrumental Greatest Hits (2020) [FLAC|Lossless|WEB-DL|tracks]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295791.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Supermax  - World Of Today (1977) Reissue, 1987, Atlantic [FLAC|Lossless|tracks 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295687.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ VA - Instrumental Covers: Greatest Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295658.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ VA - Instrumental Greatest Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Instr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295570.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Air Supply - Greatest Hits (1984) [FLAC|Lossless]<Pop, Rock, Soft-Rock, Adult Co
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295533.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ VA - 100 Greatest Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295442.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Gloria Estefan - Greatest Hits Vol. II (2001) [FLAC|tracks+.cue]<Latin, Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295048.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Tom Jones - The Best Of... Tom Jones (1997) [FLAC|tracks+.cue]<Vocal>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295035.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Eros Ramazzotti - Eros Duets (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294916.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ VA - Now That's What I Call Music! 98 (2017) Sony Music [FLAC|Lossless|tracks + 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294804.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ VA - Absolute Music 79 (2015) 2CD [FLAC|track+.cue]<Top 40, Pop Compilation, Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294738.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Backstreet Boys - Greatest Hits - Chapter One (2001) [FLAC|tracks+.cue]<Europop,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294729.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Lara Fabian - Greatest Hits (2010) 2CD [FLAC|image + .cue]<Pop, Vocal, Ballad>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294618.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Vanessa Paradis - Les sources (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293320.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ The Real ABBA Gold - Janus (1998) Hey Presto! 1999 [FLAC|Lossless|image + .cue] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292912.jpg" />
 </div>
 
 

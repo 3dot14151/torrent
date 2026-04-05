@@ -1,3 +1,32 @@
+###  Публикация: 1580303   (330878) от 01.10.2022
+
+Vanilla Fudge - Vanilla Zeppelin (2005) Remastered, 2022, Golden Robot Records [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330878.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Rock and Roll
+2.Immigrant Song
+3.Ramble On
+4.Dancing Days?(   Читать дальше...   )Жанр: Psychedelic Rock, Stoner RockПродолжительность: 01:02:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:216D30ACCB88F1E9683556A509C13598E2B802A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580519   (330811) от 01.10.2022
 
 Icon For Hire - 5 Albums (2011-2021) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Female Vocal>
@@ -6,7 +35,7 @@ Icon For Hire - 5 Albums (2011-2021) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, F
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330811.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Def Leppard - CD Collection Volume 3 (2021) (6 CD), Remastered, Compilation, 202
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330802.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Officer X - Hell Is Coming (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard & Heavy>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330796.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Manfred Mann’s Earth Band - Messin’ (1973) Japanese Edition, Reissue, 2022, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330728.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Frontline - Scream All You Want (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330618.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Nestor - Kids In A Ghost Town (2021) Deluxe Version [FLAC 2.0|44/24|tracks|WEB-D
 >>Hard Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330613.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Hedley - Storms (2011) Deluxe Edition [FLAC|tracks+.cue]<Alt Rock, Pop Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330383.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Beth Hart - Leave The Light On (2006) [FLAC|image + .cue]<Rock,  Blues Rock, Pop
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330271.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Marillion - B'Sides Themselves (1988) EMI Records Ltd.[FLAC|image + .cue]<Neo-Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330268.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Biopsyhoz (Биопсихоз) - Демонстрация 15 (2015) [MP3|320 к�
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330215.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Zdob Si Zdub - Белое вино / Красное вино (2010) [MP3|320 к�
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330213.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Swallow The Sun - Songs From The North I, II & III (2015) Special Box Set Editio
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330208.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330207.jpg" />
 </div>
 
 
@@ -382,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330176.jpg" />
 </div>
 
 
@@ -411,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329999.jpg" />
 </div>
 
 
@@ -440,7 +469,7 @@ The Project Hate MCMXCIX - 9 Albums (2003-2021) [MP3|320 Kbps] <Industrial Death
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329996.jpg" />
 </div>
 
 
@@ -469,7 +498,7 @@ Rik Swinn - Strum (2022) [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329995.jpg" />
 </div>
 
 
@@ -498,7 +527,7 @@ Jess Harnell - The Sound Of Your Voice (1995) Japanese Edition, Reissue, 1998, A
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329994.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329991.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329990.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ Def Leppard - London To Vegas (2020) (4 CD) [OGG Vorbis|484 Kbps] <Rock, Hard Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329984.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ Allen/Olzon - Army Of Dreamers (2022) [FLAC|Lossless|image + .cue] <Symphonic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329982.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329978.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329976.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ Compass - Theory of Tides (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, Pro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329930.jpg" />
 </div>
 
 
@@ -715,35 +744,6 @@ Compass - Theory of Tides (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, Pro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:671F0361DA574E1EA943AB36AB6A25CC5A88A4BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580656   (329928) от 02.10.2022
-
-Dynazty - Final Advent (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Power Of Will (3:55)
-02. Advent (3:48)
-03. Natural Born Killer (3:26)
-04. Yours (4:26)(   Читать дальше...   )Жанр: Hard Rock, Melodic MetalПродолжительность: 00:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13CA5491F753E136BB87CCD3AF39804A42031BC8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,82 +1,3 @@
-###  Публикация: 909618   (621667) от 20.06.2015
-
-Э. В. Ртвеладзе, Ш. Р. Пидаев | Каталог древних монет Южного Узбекистана (1981) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621667.jpg" />
-</div>
-
-
-###  Подробнее
-
-В монографии дается подробное описание монет, найденных при раскопках древних поселений Сурхандарьинской области. Этот большой нумизматический материал позволяет осветить многие вопросы товарно-денежных отношений, политической истории и экономики юга Узбекистана в греко-бактрнйское и кушанское время (III в. до и. э.—IV в. н. э.). Прослеживаются экономические и культурные (   Читать дальше...   )Жанр: НумизматикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C79EE4025F20339DE92D0EB8BAE1E5376DA726D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909597   (621663) от 20.06.2015
-
-А. Ф. Медведев | Ручное метательное оружие. Лук и стрелы, самострел VIII-XIV вв. [Выпуск E1-36] (1966) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621663.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказана история возникновения и развития ручного метательного оружия древней Руси. Описано его устройство, процесс изготовления. Подробно рассмотрены многочисленные варианты наконечников.
-В работе использованы чрезвычайно ценные этнографические данные о луке и стрелах, многочисленные статьи и общие труды по истории оружия и военного искусства, а главное - археологические (   Читать дальше...   )Жанр: АрхеологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FD1480C5AA4C93FDC8DE37746D4A95A7F829936
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295480   (620766) от 12.04.2019
-
-В. А. Карпушин (отв. ред.) | Традиция в истории культуры (1978) [DJVU, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620766.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник содержит статьи теоретического и исторического характера. В теоретических статьях рассматривается понятие «традиции», роль и место традиции в истории культуры, ее социальная обусловленность, функционирование традиции в антагонистическом обществе и в социалистической культуре; ставятся проблемы традиции и традиционности, традиции и новаторства. Большая часть (   Читать дальше...   )Жанр: История, культурология, литературоведение, искусство, публицистикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E2E6852547E1086B2244D0CC52F5ACB93ADC7F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1064628   (620500) от 12.04.2019
 
 М. М. Розенталь | Марксистский диалектический метод (1952) [DJVU, PDF]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620500.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620355.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619995.jpg" />
 </div>
 
 
@@ -163,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619255.jpg" />
 </div>
 
 
@@ -189,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619243.jpg" />
 </div>
 
 
@@ -215,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619149.jpg" />
 </div>
 
 
@@ -241,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618234.jpg" />
 </div>
 
 
@@ -267,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617915.jpg" />
 </div>
 
 
@@ -293,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617681.jpg" />
 </div>
 
 
@@ -319,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617403.jpg" />
 </div>
 
 
@@ -345,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617281.jpg" />
 </div>
 
 
@@ -371,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617264.jpg" />
 </div>
 
 
@@ -399,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616482.jpg" />
 </div>
 
 
@@ -428,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616434.jpg" />
 </div>
 
 
@@ -454,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616432.jpg" />
 </div>
 
 
@@ -480,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616354.jpg" />
 </div>
 
 
@@ -506,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616187.jpg" />
 </div>
 
 
@@ -532,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616185.jpg" />
 </div>
 
 
@@ -559,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616088.jpg" />
 </div>
 
 
@@ -587,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616083.jpg" />
 </div>
 
 
@@ -613,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615851.jpg" />
 </div>
 
 
@@ -639,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615846.jpg" />
 </div>
 
 
@@ -667,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615840.jpg" />
 </div>
 
 
@@ -678,6 +599,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6237A688A1BBEC269D2DC0207725606BE29F83DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911086   (615722) от 23.06.2015
+
+Эдуард Фукс | Иллюстрированная история эротического искусства (1995) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это книга немецкого ученого и писателя Э.Фукса - о вечной теме в мировом искусстве. На протяжении многих веков художники, поэты, писатели стремились отобразить в своем творчестве красоту человеческого тела, все, что связано с чувственной любовью, интимными отношениями, и в то же время обличали, высмеивали человеческие пороки, излишества, непристойности. В книге рассказывается (   Читать дальше...   )Жанр: ИскусствоведениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E4123416438FF3741F79818DEAE0E4691F82299
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912066   (614493) от 24.06.2015
+
+Мартин Бубер | Два образа веры (1995) [DJVU, FB2]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614493.jpg" />
+</div>
+
+
+###  Подробнее
+
+В издание включены наиболее значительные работы известного еврейского философа Мартина Бубера, в творчестве которого соединились исследование основ иудаистской традиции, опыт религиозной жизни и современное философское мышление. Стержневая тема его произведений – то особое состояние личности, при котором возможен "диалог" между человеком и Богом, между (   Читать дальше...   )Жанр: ФилософияФормат: DJVU, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E65EBF4B545E2EB8FFB2BF22C16CFE853853A7B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912077   (614487) от 24.06.2015
+
+Т.П. Лифинцева | Философия диалога Мартина Бубера (1999) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614487.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работа посвящена творчеству выдающегося философа и теолога Мартина Бубера (1878—1965). Ключевая тема творчества Бубера — онтология диалога — есть у него как бы точка пересечения всех линий перспективы, иначе говоря, всех классических тем философии и культуры XX века, получающих в этой точке свое, оригинальное буберовское решение или преломление. Знаменитая книга (   Читать дальше...   )Жанр: ФилософияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A97FD43074905F8BF53DB60D9E6227BEAB56119
 ```
 
 https://mybot314.ru/tekegram_catalog/

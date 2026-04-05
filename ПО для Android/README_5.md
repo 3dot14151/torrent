@@ -1,3 +1,107 @@
+###  Публикация: 1853547   (1056834) от 13.02.2026
+
+Screen Mirroring - TV Miracast v4.0.0.230 Mod by vadj [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение для зеркалирования и трансляции экрана на телевизор. Хотите легко отразить экран своего телефона на телевизоре? Хотите, чтобы проекция экрана была быстрой, стабильной и отзывчивой? Используйте Screen Mirroring – Miracast for TV — бесплатное приложение для дублирования экрана, которое обеспечивает плавное зеркальное отображение вашего смартфона на экране (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 13.02.2026Разработчик: StudiosoolterПоддерживаемая ОС: Android 6.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D72A703B5FB6A4AC4184753F90DE859B8F914A58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853544   (1056833) от 13.02.2026
+
+Grok - ИИ ассистент v1.1.20-release.19 Mod by kljovyj [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056833.jpg" />
+</div>
+
+
+###  Подробнее
+
+Grok — это AI-ассистент, разработанный xAI, предназначенный для максимальной правдивости, полезности и любопытства. Получайте ответы на любые вопросы, генерируйте впечатляющие изображения и видео, ведите естественные разговоры в голосовом режиме и загружайте картинки, чтобы глубже понять свой мир. С Grok вселенная в ваших руках!Тип издания: ModРелиз состоялся: 12.02.2026Разработчик: xAIПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDA34B37D5D838090752B85E68EDB5FA608DD84B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853564   (1056820) от 13.02.2026
+
+TV+ HD v1.2.5 Mod by ajrys [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056820.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатное приложение, в котором представлены основные российские телеканалы. Есть возможность настроить приложение под свой вкус и добавить стримы/телеканалы из любых источников (HLS). Просмотр онлайн ТВ осуществляется через интернет (IPTV/ОТТ), поэтому для стабильной работы требуется интернет-канал с пропускной способностью от 2 Мбит/с для обычных каналов от 6 (   Читать дальше...   )Тип издания: ModРелиз состоялся: 12.02.2026Разработчик: AndevAppsПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8731FFE96B26860D6293F81D47D24E34B3C617B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853541   (1056625) от 14.02.2026
+
+Moon+ Reader Pro v10.4 (b1004000) Mod by Lucky Las [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056625.jpg" />
+</div>
+
+
+###  Подробнее
+
+Moon+reader относится к категории универсальных читалок, поддерживающих большое количество форматов и станет хорошим дополнением для вашего Android смартфона или планшета. Приложение поддерживает форматы EPUB, PDF, DJVU, AZW3, MOBI, FB2, PRC, CHM, CBZ, CBR, UMD, DOCX, ODT, RTF, TXT, HTML, MD(MarkDown), WEBP, RAR, ZIP и OPDS. Наличие голосового движка в платной версии (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 12.02.2026Разработчик: Moon+Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69EEE4D0CD223097BA834BF9AFCC7F20F20FDD36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1853543   (1056624) от 14.02.2026
 
 Moon+ Reader Pro v10.4 (b1004000) Mod by Balatan [Ru/Multi]
@@ -6,7 +110,7 @@ Moon+ Reader Pro v10.4 (b1004000) Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056624.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Business Calendar / Бизнес-календарь 2 - планер 2.53.7 Mod 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056615.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056594.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Vanced Tube v5.5.80.396 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056593.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Rosetta Stone: Изучение языков 8.35.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056570.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056430.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056429.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056427.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056421.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056420.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ Bria Mobile: VoIP Softphone v6.22.2 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056419.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ FacePic - AI Face App v3.5.1 Pro Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056418.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ Battery Guru: Monitor & Health v2.4.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056417.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ PictureThis - Plant Identification v5.20.0 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056048.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056047.jpg" />
 </div>
 
 
@@ -400,7 +504,7 @@ Mary’s recipes: рецепты, меню v7.2.0 Mod by Alex.Strannik [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056033.jpg" />
 </div>
 
 
@@ -426,7 +530,7 @@ MiX Camera 9.2 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056032.jpg" />
 </div>
 
 
@@ -452,7 +556,7 @@ Eatr・Здоровые рецепты v2.49.0 Mod by vadj [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056025.jpg" />
 </div>
 
 
@@ -478,7 +582,7 @@ Audio Editor Pro / Аудио редактор: обрезка музыки v2.0
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056013.jpg" />
 </div>
 
 
@@ -504,7 +608,7 @@ AI Photo Editor Pro - Polish v1.721.248 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056010.jpg" />
 </div>
 
 
@@ -530,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056009.jpg" />
 </div>
 
 
@@ -559,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055998.jpg" />
 </div>
 
 
@@ -570,110 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFFB57E00C1D45FFA65784779CCE46F7F692ED72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852430   (1055997) от 07.02.2026
-
-Remini / Улучшение Фото v3.7.1263.202519097 Mod by Mixroot [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055997.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превратите ваши старые, смазанные, размытые или поврежденные фото в фотографии высокой четкости одним касанием! Remini использует современный искусственный интеллект для восстановления четкости и улучшения любого фото. Подарите новую жизнь старым воспоминания в потрясающем, кристально чистом HD качестве. На сегодня мы обновили более 100 миллионов фотографий. Фоторедактор (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 06.02.2026Разработчик: Splice Video EditorПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:161ACE5D072676B17E0B08787787A0B75DD249EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852423   (1055994) от 07.02.2026
-
-Справочник рыбака v1.2.7 Mod vadj [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055994.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Справочник рыбака» - полезное приложение, содержащее в себе подробное описание наиболее известных видов рыб, обитающих в водоёмах России и ближнего зарубежья. Оно будет полезно как начинающим, так и опытным рыболовам-любителям.Тип издания: ModРелиз состоялся: 06.02.2026Разработчик: VT LabsПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FB1284B859B1C74926455A8A56FD33A502438AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852416   (1055993) от 07.02.2026
-
-Грибы v1.5.4 Mod by vadj [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055993.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Грибы» - полезное приложение, содержащее в себе подробное описание наиболее известных съедобных, несъедобных и ядовитых грибов, произрастающих на территории России и ближнего зарубежья. Оно будет полезно как начинающим грибникам, так и опытным любителям тихой охоты.Тип издания: Premium / ModРелиз состоялся: 06.02.2025Разработчик: VT LabsПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E2ACE03D498C309B2EE02AE57DB73A86D4C25A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852411   (1055992) от 07.02.2026
-
-Лекарственные растения 1.4.9 Mod by vadj [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055992.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Лекарственные растения» - приложение, содержащее в себе подробное описание наиболее известных лекарственных растений. Оно будет полезно всем людям, которые любят природу и заботятся о своем здоровье.Тип издания: FullРелиз состоялся: 06.02.2026Разработчик: VT LabsПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ECAEA244C6A5DD3024D525B443C7B427CF387FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1539895   (234970) от 27.03.2022
+
+Константин Ушинский | Книги – мои друзья. Четыре желания. Рассказы (2019) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234970.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли рассказы выдающегося русского педагога и писателя Константина Дмитриевича Ушинского «Четыре желания», «Проказы старухи зимы», «Гадюка», «Дети в роще» и другие.Жанр: Детская литература, РассказыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E657A3A154B40C337FC7EB074A65812F8BE7731
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539871   (234965) от 27.03.2022
+
+Софья Прокофьева | Добрые сказки. Сказки про Машу и Ойку (2019) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234965.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге небольшие сказки про двух подружек Машу и Ойку. Автор этих добрых, мудрых прелестных сказок Софья Прокофьева, замечательная детская писательница, которая обладает уникальным даром — писать для самых маленьких, детей до трёх лет. Сказки про Машу и Ойку родители читают своим малышам уже много-много лет. Именно такие сказки — большое подспорье родителям в воспитании (   Читать дальше...   )Жанр: Детская литература, СказкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0C5955EC9BDFEA5162EA43FD9AE3D773FEAD17B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1539890   (234960) от 27.03.2022
 
 Джулиан Гоф, Джим Филд | Кролик и Мишка. Неожиданное нападение (2019) [PDF]
@@ -6,7 +58,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234960.jpg" />
 </div>
 
 
@@ -35,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234879.jpg" />
 </div>
 
 
@@ -62,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234817.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234721.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234697.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234672.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234639.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234612.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234570.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234405.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234378.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234322.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234306.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233905.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233899.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233864.jpg" />
 </div>
 
 
@@ -431,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233601.jpg" />
 </div>
 
 
@@ -458,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233431.jpg" />
 </div>
 
 
@@ -486,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233326.jpg" />
 </div>
 
 
@@ -513,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233202.jpg" />
 </div>
 
 
@@ -542,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232975.jpg" />
 </div>
 
 
@@ -569,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232921.jpg" />
 </div>
 
 
@@ -596,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232841.jpg" />
 </div>
 
 
@@ -624,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232830.jpg" />
 </div>
 
 
@@ -635,58 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C2D883BD5D1B784007FD4C9FB3D1020E9686683
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554034   (232532) от 28.05.2022
-
-М.Л. Водолазова | Прикольные тетради. Прописи. Секретные материалы будущего отличника (2017) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Рабочие тетради, прописи и разукрашки
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232532.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга «Прописи. Секретные материалы будущего отличника» поможет сделать занятия с дошкольниками лёгкими и увлекательными. Выполнять графические упражнения очень интересно, маленький ученик станет участником увлекательных приключений, научится правильно держать ручку и карандаш, ориентироваться на листе бумаги. Раскрашивание, обводка, дорисовка тренируют мелкую моторику, (   Читать дальше...   )Жанр: Детская развивающая литература, Прописи, РаскраскаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E583B63EA06ECE49A5B26FA6AEED2AEEC0EBB39F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635760   (232255) от 27.05.2023
-
-А.Х. Шахмейстер | Доказательства неравенств. Математическая индукция. Теория сравнений. Введение в криптографию (2018) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232255.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное пособие предназначено для углубленного изучения школьного курса математики, содержит большое количество разноуровневого тренировочного материала. В книге представлена программа для проведения элективных курсов в профильных и предпрофильных классах. Пособие адресовано широкому кругу учащихся, абитуриентов, студентов педагогических вузов, учителей.Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5818FCC0A8BA3E5DBAAE80F21ECC21A8D8465C2F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1260968   (302544) от 11.11.2018
+
+Imagine Dragons - 4 Albums (2012-2018) [MP3|320 Kbps] <Indie Rock, Alternative Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Night Visions (2012)
+Smoke + Mirrors (2015)
+Evolve (2017)
+Origins (2018)Жанр: Indie Rock, Alternative Rock, Pop RockПродолжительность: 04:00:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0315C7F0341B58A30F672E7137D7282BAE39E40F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1423204   (302447) от 12.11.2020
 
 Kadavar - Studio Live Session Vol. I (2020) [MP3|320 Kbps] <Psychedelic Rock, Stoner>
@@ -6,7 +35,7 @@ Kadavar - Studio Live Session Vol. I (2020) [MP3|320 Kbps] <Psychedelic Rock, St
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302447.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ The Kentish Spires ‎– Sprezzatura (2019) [FLAC|Lossless|image + .cue] <Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302443.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Megaton Sword - Blood Hails Steel - Steel Hails Fire (2020) [MP3|320 Kbps] <Epic
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302439.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Clouds - Durere (2020) [FLAC|Lossless|image + .cue] <Atmospheric Doom, Funeral D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302425.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Death Dealer - Conquered Lands (2020) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302411.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ The Rolling Stones - Blue & Lonesome (2016) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302410.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Dirt Poor Robins - Deadhorse (2020) 2xCD,  Deluxe Edition [MP3|320 Kbps] <Progre
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302401.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Final Conflict - The Rise Of The Artisan (2020) [MP3|320 Kbps] <Progressive Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302387.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302303.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ Blue Stahli - Copper (2020) [MP3|320 Kbps] <Industrial Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302183.jpg" />
 </div>
 
 
@@ -302,7 +331,7 @@ Doro - Magic Diamonds: Best of Rock, Ballads & Rare Treasures (2020) 3xCD [MP3|3
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302102.jpg" />
 </div>
 
 
@@ -331,7 +360,7 @@ The Smashing Pumpkins - Monuments to an Elegy (2014) [MP3|320 кб/с]<Alternati
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302083.jpg" />
 </div>
 
 
@@ -360,7 +389,7 @@ Bring Me The Horizon - POST HUMAN: SURVIVAL HORROR (2020) EP [FLAC|Lossless|WEB-
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301892.jpg" />
 </div>
 
 
@@ -389,7 +418,7 @@ Visceral Disgorge - Slithering Evisceration (2019) [WavPack|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301594.jpg" />
 </div>
 
 
@@ -418,7 +447,7 @@ Soilwork - Feverish (2019) Single [FLAC|Lossless|Web-DL|tracks] <Melodic Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301589.jpg" />
 </div>
 
 
@@ -445,7 +474,7 @@ Scratching Soil - War Experience (2003) [FLAC|Lossless|image + .cue] <Black Meta
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301588.jpg" />
 </div>
 
 
@@ -474,7 +503,7 @@ Ghost Ship Octavius - Delirium (2018) [FLAC|Lossless|image + .cue] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301587.jpg" />
 </div>
 
 
@@ -503,7 +532,7 @@ Syrinx - Meteora (1980) LP [MP3|320 Kbps] <Electronic, Krautrock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301586.jpg" />
 </div>
 
 
@@ -532,7 +561,7 @@ Lynn Stokes & The Sol Surfers - Terra Nocturne (2008) [FLAC|Lossless|image + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301585.jpg" />
 </div>
 
 
@@ -561,7 +590,7 @@ Space Avenue - Voices From The Other Worlds (2006) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301582.jpg" />
 </div>
 
 
@@ -590,7 +619,7 @@ Distillator - Summoning The Malicious (2017) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301496.jpg" />
 </div>
 
 
@@ -619,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301466.jpg" />
 </div>
 
 
@@ -648,7 +677,7 @@ Fit For An Autopsy - The Sea of Tragic Beasts (2019) [MP3|320 Kbps] <Deathcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301461.jpg" />
 </div>
 
 
@@ -677,7 +706,7 @@ Road To Ruin - Road To Ruin (2007) [FLAC|Lossless|image + .cue] <Hard Rock, Melo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301458.jpg" />
 </div>
 
 
@@ -706,7 +735,7 @@ IQ - Resistance (Digipak) (2019) [FLAC|Lossless|image + .cue] <Neo-progressive R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301444.jpg" />
 </div>
 
 
@@ -717,35 +746,6 @@ IQ - Resistance (Digipak) (2019) [FLAC|Lossless|image + .cue] <Neo-progressive R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3BA494A18638DCDE241DDB90A479FE35D8CADF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961137   (301416) от 01.12.2015
-
-Unleashed - Where No Life Dwells / And the Laughter Has Died... (1991) [FLAC|image+.cue]<Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Where No Life Dwells
-02 Dead Forever
-03 Before the Creation of Time
-04 For They Shall Be Slain(   Читать дальше...   )Жанр: Death MetalПродолжительность: 01:02:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC64B7687BA8130619DBA5FFFA7DB7AE0B916A92
 ```
 
 https://mybot314.ru/tekegram_catalog/

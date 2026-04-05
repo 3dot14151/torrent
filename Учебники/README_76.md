@@ -1,3 +1,56 @@
+###  Публикация: 962929   (288953) от 07.12.2015
+
+Е.О. Антонова и др. | Основы нефтегазового дела (2003) [DOC]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изложены основные сведения о месторождениях нефти и газа, способах их формирования, разведки. Описано оборудование для обустройства месторождений и добычи нефти и газа. Приведены основные данные по обустройству месторождений и методах подготовки нефти и газа к дальнему транспорту. Рассмотрены составы оборудования и технология транспорта нефти и газа по магистральным (   Читать дальше...   )Жанр: Природные ресурсыФормат: DOC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26988E71BFAADD5B0B69E04C7B1365FC70184732
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962976   (288947) от 07.12.2015
+
+П.М. Чернянский | Основы проектирования точных станков. Теория и расчет (2010) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288947.jpg" />
+</div>
+
+
+###  Подробнее
+
+На заре развития машиностроения в России был сформулирован стратегический путь развития станкостроения - точная и производительная работа станков. Прошедшее с тех пор столетие полностью подтвердило эту позицию. Точность и производительность - главное функциональное качество металлорежущих станков.
+ Для студентов вузов, обучающихся по направлению "Конструкторско-технологическое (   Читать дальше...   )Жанр: МашиностроениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04A3B2C8DCF76929474676B212788FD304B751FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 962599   (288839) от 07.12.2015
 
 С.С. Бодрухина | Правила технической эксплуатации электроустановок потребителей в вопросах и ответах (2010) [PDF]
@@ -6,7 +59,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288839.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288784.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288627.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288473.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288462.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288393.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288276.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288265.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287485.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287279.jpg" />
 </div>
 
 
@@ -268,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287160.jpg" />
 </div>
 
 
@@ -294,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285329.jpg" />
 </div>
 
 
@@ -320,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285302.jpg" />
 </div>
 
 
@@ -347,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283917.jpg" />
 </div>
 
 
@@ -373,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282673.jpg" />
 </div>
 
 
@@ -400,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282372.jpg" />
 </div>
 
 
@@ -426,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282230.jpg" />
 </div>
 
 
@@ -455,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282089.jpg" />
 </div>
 
 
@@ -481,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281820.jpg" />
 </div>
 
 
@@ -507,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280475.jpg" />
 </div>
 
 
@@ -534,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279971.jpg" />
 </div>
 
 
@@ -561,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277337.jpg" />
 </div>
 
 
@@ -587,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277136.jpg" />
 </div>
 
 
@@ -613,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277130.jpg" />
 </div>
 
 
@@ -625,59 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:757B52E4CF126BE6E4BE155500263A60871EFA0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081918   (276934) от 13.12.2016
-
-А.В. Кузнецов | Элементарная электротехника (2014) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276934.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге приводятся основные понятия об элементах электрических и магнитных цепей. Объясняются физические процессы, происходящие в этих цепях. Излагается методика их расчета. Книга содержит основные сведения об электростатике и электромагнитной индукции, о действиях электрического тока, постоянном и переменном токе, об электрохимии.
-Материал изложен простым и доступным (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56C555267C1ACA4CA205AA94DE56F23BEDF082E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265232   (276415) от 26.11.2018
-
-С.В. Лукинских и др. | Инженерная графика. Разработка конструкторской документации с элементами конструирования (2016) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276415.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии представлен материал, имеющий важное практическое значение при разработке конструкторских документов: элементы конструкций, соединения деталей, сборочные операции. Рассмотрены положения стандартов Единой системы конструкторской документации (ЕСКД), касающиеся общих правил выполнения конструкторских документов на изделие, приведены примеры создания различных (   Читать дальше...   )Жанр: Инженерная графикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2167D807AE57B9EDD4410DDECEFE57F05F90E49F
 ```
 
 https://mybot314.ru/tekegram_catalog/

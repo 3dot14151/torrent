@@ -1,31 +1,3 @@
-###  Публикация: 1758932   (38226) от 05.11.2024
-
-Deepin 23 [x86_64] 1xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deepin 23 — новый релиз популярного дистрибутива Linux с улучшенной стабильностью, поддержкой ARM64, интеграцией с ИИ, атомарными обновлениями и обновлённым интерфейсом DDE.
-
-Китайская компания Deepin Technology, разработчик одноимённого дистрибутива на базе Debian, представила новый релиз — Deepin 23. Этот дистрибутив давно завоевал популярность благодаря элегантному (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5C2C75808FD76134DD624006D01DA96640935C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1760305   (37423) от 13.11.2024
 
 MiniOS (все редакции) v3.3.4 [amd64, i386] 10xCD [RU]
@@ -34,7 +6,7 @@ MiniOS (все редакции) v3.3.4 [amd64, i386] 10xCD [RU]
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37423.jpg" />
 </div>
 
 
@@ -60,7 +32,7 @@ Elementary OS 8 Circe [x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35676.jpg" />
 </div>
 
 
@@ -86,7 +58,7 @@ Red Hat Enterprise Linux 9.5 [x86_64, aarch64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34756.jpg" />
 </div>
 
 
@@ -114,7 +86,7 @@ AlmaLinux 9.5 (Gnome, Xfce, KDE, Mate) [x86_64] 8xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34457.jpg" />
 </div>
 
 
@@ -140,7 +112,7 @@ DR14 T.meter 2.0.0 [x32, x64] (py)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34312.jpg" />
 </div>
 
 
@@ -168,7 +140,7 @@ GreenLinux 22.1.0 Novosibirsk [x86_64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27809.jpg" />
 </div>
 
 
@@ -196,7 +168,7 @@ ALT Linux 8 СП C10F2 [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24634.jpg" />
 </div>
 
 
@@ -222,7 +194,7 @@ Astra Linux Special Edition 1.6.15 [amd64] 5xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24602.jpg" />
 </div>
 
 
@@ -250,7 +222,7 @@ MiniOS (все редакции) v4.1.2 [amd64, i386] 4xDVD [RU]
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24106.jpg" />
 </div>
 
 
@@ -276,7 +248,7 @@ Astra Linux Special Edition 1.8.1.UU2 [amd64] 5xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24100.jpg" />
 </div>
 
 
@@ -304,7 +276,7 @@ CentOS 10 Stream [x86_64 / aarch64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21803.jpg" />
 </div>
 
 
@@ -331,7 +303,7 @@ UALinux CyberPack FaP 22.04 [Multi]
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20745.jpg" />
 </div>
 
 
@@ -357,7 +329,7 @@ Astra Linux Special Edition 1.7.7 UU1 [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20312.jpg" />
 </div>
 
 
@@ -385,7 +357,7 @@ Astra Linux Special Edition 1.7.7 [amd64] 5xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20311.jpg" />
 </div>
 
 
@@ -413,7 +385,7 @@ Astra Linux Special Edition 1.7.7 UU2 [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18248.jpg" />
 </div>
 
 
@@ -441,7 +413,7 @@ Red Hat Enterprise Linux 10.0 [x86_64, aarch64] 4xDVD 1xZIP
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17722.jpg" />
 </div>
 
 
@@ -469,7 +441,7 @@ Astra Linux Special Edition 1.8.2.UU1 [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16901.jpg" />
 </div>
 
 
@@ -497,7 +469,7 @@ Kerio Control v9.4.5 Patch 2 Build 8629 [x64] (iso, img) [Multi/Ru]
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15788.jpg" />
 </div>
 
 
@@ -523,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15527.jpg" />
 </div>
 
 
@@ -549,7 +521,7 @@ MeeGo OS 1.2 cedartrail  [i386] 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12569.jpg" />
 </div>
 
 
@@ -576,7 +548,7 @@ MeeGo OS 1.2 [i386] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12284.jpg" />
 </div>
 
 
@@ -603,7 +575,7 @@ Ubuntu*Pack 22.04 Xfce / Xubuntu (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9820.jpg" />
 </div>
 
 
@@ -630,7 +602,7 @@ Ubuntu*Pack 22.04 (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9803.jpg" />
 </div>
 
 
@@ -657,7 +629,7 @@ Ubuntu ServerPack 22.04 (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9800.jpg" />
 </div>
 
 
@@ -684,7 +656,7 @@ Ubuntu*Pack 22.04 MATE (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9798.jpg" />
 </div>
 
 
@@ -696,6 +668,33 @@ Ubuntu*Pack 22.04 MATE (июль 2025) [amd64] 1xDVD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01F9F593CDBD084C1E81403DBD44970C5B559005
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708263   (9797) от 31.07.2025
+
+Ubuntu*Pack 22.04 GNOME (июль 2025) [amd64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
+ИнтерфейсЯзык интерфейса: Мультиязычный (русский присутствует)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE4B34643867C0D1D88C1869523940E42D901DA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

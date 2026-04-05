@@ -1,3 +1,56 @@
+###  Публикация: 1331517   (322617) от 16.10.2019
+
+Ночная Маргарита / Marguerite de la Nuit (1955) DVDRip [H.264] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ради любви прекрасной Маргариты последний представитель рода Фаустов продал душу дьяволу, чтобы вновь стать молодым и красивым. Но сделка с Мефистофелем меняет его характер: это проникает в сердце, дьявольские соблазны разъедают невинную душу Фауста. Дорого приходится платить влюбленным. Только одно может их спасти — новая жертва должна попасть в сети Мефистофеля (   Читать дальше...   )Производство: Франция, Италия / Cino del DucaЖанр: Драма, мистикаРежиссер: Клод Отан-ЛараАктеры: Мишель Морган, Ив Монтан, Жан Дебюкур, Жак Кланси, Поль Деманж, Жак Эрвин, Камилла Герини, Макс Меги, Женевьева МорелПеревод: Многоголосый профессиональныйСубтитры: отсутствуютПродолжительность: 02:04:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:948AF36608A2F6A49E1BE2062D07CC3C60779D13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421021   (321899) от 03.11.2020
+
+Шпион, который меня любил / The Spy Who Loved Me (1977) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321899.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спасая мир от безумного злодея Стромберга, который разрабатывает план по уничтожению жизни на земле с помощью сверхмощного звука, Джеймс Бонд знакомится с очаровательной русской разведчицей. Вместе они вступают в неравную схватку с негодяем и его преданным слугой Джозом.
+Это по-настоящему гигантского размера детина с железными зубами, которыми он с легкостью перекусывает (   Читать дальше...   )Производство: Великобритания / Eon ProductionsЖанр: боевик, триллер, приключенияРежиссер: Льюис ГилбертАктеры: Роджер Мур, Барбара Бах, Курд Юргенс, Ричард Кил, Кэролайн Манро, Уолтер Готелл, Джеффри Кин, Бернард Ли, Джордж Бейкер, Майкл БилингтонПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 02:05:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8D78B33ED07DC8D8F32D995CC3F99E8195573F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1416589   (321774) от 03.11.2020
 
 Северная звезда / L'etoile du Nord (1982) DVDRip
@@ -6,7 +59,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321774.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321764.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321724.jpg" />
 </div>
 
 
@@ -88,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321661.jpg" />
 </div>
 
 
@@ -116,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321206.jpg" />
 </div>
 
 
@@ -142,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321045.jpg" />
 </div>
 
 
@@ -168,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320414.jpg" />
 </div>
 
 
@@ -194,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320315.jpg" />
 </div>
 
 
@@ -220,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319593.jpg" />
 </div>
 
 
@@ -246,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319545.jpg" />
 </div>
 
 
@@ -273,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319537.jpg" />
 </div>
 
 
@@ -300,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319536.jpg" />
 </div>
 
 
@@ -327,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319533.jpg" />
 </div>
 
 
@@ -354,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319531.jpg" />
 </div>
 
 
@@ -381,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319444.jpg" />
 </div>
 
 
@@ -407,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319014.jpg" />
 </div>
 
 
@@ -434,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318970.jpg" />
 </div>
 
 
@@ -461,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318178.jpg" />
 </div>
 
 
@@ -488,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318111.jpg" />
 </div>
 
 
@@ -514,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317387.jpg" />
 </div>
 
 
@@ -541,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317217.jpg" />
 </div>
 
 
@@ -568,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316929.jpg" />
 </div>
 
 
@@ -594,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316807.jpg" />
 </div>
 
 
@@ -620,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316439.jpg" />
 </div>
 
 
@@ -631,59 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:697B65B57C49BD0A5A7278D6E16DF3ABB66AF94B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 254940   (315718) от 19.10.2019
-
-Лагерь для военнопленных №17 / Stalag 17 (1953) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315718.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда двое сбежавших американских заключённых Второй Мировой были убиты, немецкий военнопленный, спекулянт лагерных казарм, Джей Джей Сефтон стал подозреваться в доносе.Жанр: Военный, ТрагикомедияРежиссер: Билли УайлдерАктеры: Уильям Холден, Дон Тейлор, Отто Преминжер, Роберт Штраусс, Харви Лембек, Ричард Эрдман, Питер Грейвз, Невилл Брэнд, Сиг Руман, Майкл МурПеревод: Многоголосый закадровый + оригиналПродолжительность: 01:55:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7F671CF3A6C3DF55B36BB48735A3C136BAD338A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 418307   (314818) от 06.11.2020
-
-Ад / L'inferno (1911) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314818.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят по мотивам «Божественной комедии» Данте, но представляет собой лишь её первую часть. Фильм построен как смесь причудливых видений, объединённых фигурой Данте, где он в сопровождении поэта Вергилия путешествует по кругам ада и знакомится с их обитателями.
-Эта эпическая лента итальянских кинематографистов была впервые показана в театре Меркаданте (Неаполь) (   Читать дальше...   )Производство: Италия, Helios, SAFFI-ComerioЖанр: Фантастика, ужасы, драмаРежиссер: Франческо Бертолини, Адольфо Падован, Джузеппе де ЛигороАктеры: Сальваторе Папа, Артуро Пировано, Джузеппе де Лигоро, Пьер Делле Винье, Августо Милла, Аттилио Мотта, Эмилис БереттаЯзык озвучки: НемойСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 01:10:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C41C1DD1CBB1B12B76E4D2CDDB211C07FC56C0E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

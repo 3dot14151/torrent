@@ -1,137 +1,3 @@
-###  Публикация: 1025406   (709941) от 12.06.2016
-
-Р. А. Дулицкая, Р. И. Фельдман | Практикум по физической и коллоидной химии (1978) [PDF, DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709941.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии описаны практические работы по физической и коллоидной химии. В практикум включены разделы: строение молекул, термохимия, электрохимия. потенциометрическое титрование, коллоидные системы. В каждой главе приведены теоретическое введение, несколько вариантов лабораторных работ с использованием различных веществ, описаны приемы исследования и аппаратура. контрольные (   Читать дальше...   )Жанр: УчебникФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33CBDF92A847A11D6A7A6A7A1301E0AB5D14B849
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025446   (709939) от 12.06.2016
-
-Н. А. Голубкина | Лабораторный практикум по экологии (2009) [PDF, DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709939.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии представлены темы лабораторных работ по экологии для самого широкого круга учащихся от школьников до студентов колледжей и институтов.
-
-Включенные в сборник химические методы анализа широко используются в настоящее время в центрах Санэпиднадзора России и за рубежом, а тематика лабораторных работ максимально приближена к наиболее актуальным проблемам (   Читать дальше...   )Жанр: УчебникФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5136951345E70C035A5D5098B990FF9B98BCED46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025411   (709926) от 12.06.2016
-
-Д. П. Добычин и др. | Физическая и коллоидная химия (1986) [PDF, DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Содержание книги соответствует программам для педагогических институтов по специальностям "химия" и "химия и биология". Будущему читателю химии для квалифицированного изложения многообразного фактического материала, предусмотренного программой средней школы, необходимо усвоить теоретические основы физической и коллоидной химии. Данный курс будет (   Читать дальше...   )Жанр: УчебникФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E23FE5BD4EB859B38406A9A3A7F2F90D07A9664
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025527   (709925) от 12.06.2016
-
-А.Н. Игнатов | Оптоэлектронные приборы и устройства (2006) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709925.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изложены физические основы работы оптоэлектронных приборов, систематизирован материал по излучающим, фотоприемным и индикаторным приборам; рассмотрены вопросы применения оптоэлектронных приборов в аналоговых и цифровых электронных устройствах. Главное внимание уделено полупроводниковым оптоэлектронным приборам и устройствам, предназначенным для использования в микроэлектронной (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0382AA8C4FCDA1AF7A7194D5BD3B63C3C3CCB9B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025452   (709840) от 12.06.2016
-
-Е. П. Гора | Экология человека. Практикум (2008) [PDF, DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Практикум включает работы, посвященные изучению эффектов разнообразных факторов окружающей среды. В нем использованы современные методы, позволяющие исследовать изменения функционального состояния организма человека под влиянием этих факторов, с учетом возрастных особенностей.
-
-Пособие предназначено для преподавателей и студентов экологических специальностей, а также (   Читать дальше...   )Жанр: УчебникФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD59241F5B9DFDEF5B4FCCAC74E23DEE7716D52B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025235   (709829) от 12.06.2016
 
 В.С. Верба, В.И. Меркулов (ред.) | Авиационные системы радиоуправления (2014) [DJVU]
@@ -140,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709829.jpg" />
 </div>
 
 
@@ -167,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709724.jpg" />
 </div>
 
 
@@ -194,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709719.jpg" />
 </div>
 
 
@@ -223,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709718.jpg" />
 </div>
 
 
@@ -249,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709711.jpg" />
 </div>
 
 
@@ -276,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709431.jpg" />
 </div>
 
 
@@ -303,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709427.jpg" />
 </div>
 
 
@@ -331,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709299.jpg" />
 </div>
 
 
@@ -357,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709137.jpg" />
 </div>
 
 
@@ -383,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709014.jpg" />
 </div>
 
 
@@ -409,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708976.jpg" />
 </div>
 
 
@@ -436,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708962.jpg" />
 </div>
 
 
@@ -462,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708845.jpg" />
 </div>
 
 
@@ -488,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708844.jpg" />
 </div>
 
 
@@ -514,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708789.jpg" />
 </div>
 
 
@@ -540,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708729.jpg" />
 </div>
 
 
@@ -566,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708727.jpg" />
 </div>
 
 
@@ -592,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708635.jpg" />
 </div>
 
 
@@ -618,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708621.jpg" />
 </div>
 
 
@@ -644,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708550.jpg" />
 </div>
 
 
@@ -670,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708492.jpg" />
 </div>
 
 
@@ -681,6 +547,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19B6EF1408D22F657F7D457520AB372EEB81923C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131333   (708363) от 05.05.2017
+
+А.В. Родин, Н.А. Тюнин (ред.) | Электронные модули стиральных машин Beko, Bosch, Candy, Indesit, Whirpool (2014) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708363.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассматриваются электронные модули стиральных машин Вeko, Candy/Hoover/Zerowatt, Indesit/Hotpoint-Ariston, Bosch, Whirpool (всего более 200 моделей), относящихся к бюджетному и среднему классам. Помимо описания принципиальных схем модулей, характерных неисправностей и способов их устранения, даны материалы по взаимодействию основных цепей модулей с компонентами (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44B0407F4C3EACA94A31A1E415B123906F5E5A7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219838   (708176) от 17.04.2018
+
+В. Н. Даниленко | Политические партии и буржуазное государство (1984) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708176.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге дан развернутый анализ правовой регламентации деятельности буржуазных политических партий, законодательного закрепления их роли и места в политической системе буржуазного общества в целом и в государственном механизме, в частности. Автор рассматривает основные предпосылки этого явления, его формы, классовую сущность и содержание. Особое внимание уделяется (   Читать дальше...   )Жанр: История, политология, экономика, правоведениеФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9220E017D87EDF6D67DBA92C484C30461BB0D43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219842   (708169) от 17.04.2018
+
+А. Геде | Философия кризиса (1978) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная книга рассматривает некоторые теоретические и исторические тенденции буржуазного философского кризисного сознания (как сознания философского кризиса и как философского сознания кризиса), приведшие к этой «потере дороги».
+
+Автор исходит из современного состояния кризиса буржуазной философии и направлений его движения, возвращается к генезису философского сознания (   Читать дальше...   )Жанр: История, политология, философияФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90C55E233EEC1A283E79CD8EA845079D1A9DDF58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220151   (707902) от 17.04.2018
+
+Лина Палаткина | Главбух: Все документы для расчетов с подотчетниками (2018) [PDF]
+
+>>Научная и техническая литература
+>>Нормативная документация
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707902.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2018 году у командированных работников появились новые расходы. С 1 мая гостиницы взимают обязательный курортный сбор в четырех регионах России — Алтайском крае, Краснодарском крае, Ставрополье и Крыму. Однако фактически эти затраты ложатся на компанию. Ведь работодатель обязан возмещать сотруднику все издержки, связанные со служебной поездкой. В книге подскажем, (   Читать дальше...   )Жанр: Бухгалтерия, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9896BB0B15982A48B7C7C63CA8268D91F35313DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025731   (707840) от 13.06.2016
+
+В.М. Подгорнов | Введение в нефтегазовое буровое дело (2011) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707840.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрено современное состояние бурового дела в нефтегазовом производстве, показаны перспективные направления его развития в ближайшем будущем.
+  Для читателя, интересующегося особенностями разработки месторождений нефти и газа, и для студентов, бакалавров и магистрантов, изучающих основы нефтегазового производства, а также для              работников нефтегазовой отрасли, обучающихся (   Читать дальше...   )Жанр: Нефтегазовое делоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F523987839FAEA7E394C1396888C75390D8757E
 ```
 
 https://mybot314.ru/tekegram_catalog/

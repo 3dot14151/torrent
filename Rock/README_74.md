@@ -6,7 +6,7 @@ Alan Simon - Excalibur III - The Origins (2012) [MP3|320 кб/с]<Folk, Rock, Ce
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247916.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ Frank Stallone - Frank Stallone (1984) [MP3|320 Kbps] <Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246000.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ Moonlight Benjamin - Wayo (2023) [MP3|320 Kbps] <Blues Rock, Voodoo Rock, Native
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245353.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ The Adekaem - 5 Albums (2015-2023) [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245078.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Sharp Edges - Slice of Life (1983) [MP3|320 Kbps] <AOR, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245069.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Marco Bernard (The Samurai Of Prog) - The Boy Who Wouldn’t Grow Up (2023) [MP3
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245061.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ R.A.F. - Restless Spirit (1986) [MP3|320 Kbps] <AOR, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245029.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ DizzRoxx - Personal Message (2016) [MP3|320 Kbps] <Blues Rock, Hard Rock, Rock &
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244977.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ IT - Live At ProgDreams VIII (2021) [MP3|320 Kbps] <Neo Prog>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244878.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Kenny Loggins - Playing with the Boys (1986) US 12" Single [MP3|320 Kbps] <Pop R
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244705.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Amplifier - Hologram (2023) [MP3|320 Kbps] <Psychedelic, Space Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244691.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Avi Rosenfeld & Lain Barbier - Seasons Blues (2023) [MP3|320 Kbps] <Classic Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244622.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Avi Rosenfeld & XIS & JJ Sprondel - Rock Rock Baby (2022) [MP3|320 Kbps] <Classi
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244598.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Tom Raley - Day To Day (2023) [MP3|320 Kbps] <Classic Rock, Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244561.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Dozer - Drifting in the Endless Void (2023) [MP3|320 Kbps] <Stoner Rock, Heavy R
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244493.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244366.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Peter Gee - Pilgrim (2023) [MP3|320 Kbps] <Neo-Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244268.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Second Story - Thin Twisting Line (2020) 2CDSet [MP3|320 Kbps] <Progressive Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244228.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Dave Kerzner - The Traveler (2022) 2CD, Special Edition [MP3|320 Kbps] <Progress
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244203.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ High Five - Salad Balloon (2023) [MP3|320 Kbps] <Psychedelic, Space Rock, Krautr
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244147.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Goblin Hovel - The Comedy of Forms, The Tragedy of Function (2021) [MP3|320 Kbps
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244106.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Bort - Valhalla (2021) [MP3|320 Kbps] <Stoner, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244081.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ T3nors - Naked Soul (2023) [MP3|320 Kbps] <AOR, Melodic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244065.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Cosmos - 4 Albums (1994 - 2012) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244037.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ Ted Nugent - Spirit of the Wild (1995) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243998.jpg" />
 </div>
 
 
@@ -734,7 +734,7 @@ Strange Omen - Marasma (2023) [MP3|320 Kbps] <Hard 'n' Heavy>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243960.jpg" />
 </div>
 
 

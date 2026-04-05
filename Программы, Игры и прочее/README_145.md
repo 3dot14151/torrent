@@ -1,3 +1,107 @@
+###  Публикация: 1729233   (53722) от 10.06.2024
+
+Breezy Weather - прогноз погоды 5.2.4 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Breezy Weather - это приложение с открытым исходным кодом для просмотра прогнозов погоды от следующих поставщиков: Metro France, Open-Meteo, AccuWeather, MET Norway, OpenWeatherMap и другие - для поиска местоположения и параметров погоды.Тип издания: FreeРелиз состоялся: 01.06.2024Разработчик: Breezy WeatherПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:115C3AF133EA948B845083C93786688B27ADA698
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729257   (53710) от 10.06.2024
+
+Weather Underground - прогноз погоды 6.17.0 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53710.jpg" />
+</div>
+
+
+###  Подробнее
+
+Weather Underground - очень популярный за счёт своих отличных качеств и функциональный погодный проект, что может обрадовать всех кто искал действительно удобное и универсальное приложение. Точные прогнозы по выбранной локации, перемещение элементов по интерактивной карте, система оповещению о резких изменениях или приближающейся угрозе, несколько отслеживаемых точек, (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 20.02.2024Разработчик: Weather UndergroundПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7695309B1C8A215F43EA8C9F4B71B2CB3C450B62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729714   (53549) от 12.06.2024
+
+MX Player 1.85.1 Mod by AjeethK [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощный видеоплеер с аппаратным ускорением и поддержкой субтитров для Android-смартфонов и планшетов. Плеер отличается удобной системой управления. Так, для изменения громкости достаточно провести пальцем вверх или вниз по правому краю экрана, для изменения яркости картинки - слева. Скольжение вправо или влево отвечает за перемотку позиции воспроизведения. С помощью (   Читать дальше...   )Тип издания: ModРелиз состоялся: 03.06.2024Разработчик: MX Media & Entertainment Pte LtdПоддерживаемая ОС: Android 11+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BC17C44ED1947E8A22513274CE41EF9A0D1AFCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729814   (53531) от 12.06.2024
+
+Before Launcher | Go Minimal 7.5.0-1172052821 Mod by derrin [Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Before Launcher - крайне минималистичный лаунчер, что предоставляет пользователям всё, что им только может потребоваться и при этом гарантирует весьма низкие запросы по ресурсам из-за своего аскетичного дизайна, отсутствия лишней анимации и всего прочего, что в итоге затрудняет взаимодействие. Тут же все происходит быстро и без каких-либо особых требований к техническим (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 11.06.2024Разработчик: ⎋ Before LabsПоддерживаемая ОС: Android 7.0+Язык интерфейса: Английский, Немецкий, Французский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E1D4A2D0738700AD3C5E2AA1FEC9B75123AE927
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1729653   (53516) от 12.06.2024
 
 Взахлёб v3.6.1 Mod by 0x7d [Ru]
@@ -6,7 +110,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53516.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Nova Launcher Prime 8.0.18 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53481.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Knots 360 Pro (3D) v2.8 Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53476.jpg" />
 </div>
 
 
@@ -87,7 +191,7 @@ Nova Launcher Prime 8.0.18 Lite-Mod by cvvar00 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53472.jpg" />
 </div>
 
 
@@ -113,7 +217,7 @@ PicWish: AI Photo Editor v1.6.15 Mod by derrin [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53457.jpg" />
 </div>
 
 
@@ -140,7 +244,7 @@ Nova Launcher Prime 8.0.18 Lite-Mod by Number one' [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53451.jpg" />
 </div>
 
 
@@ -166,7 +270,7 @@ Minecraft: Pocket Edition 1.21.10.20.BETA Mod by MODAPKOKI [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53172.jpg" />
 </div>
 
 
@@ -192,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53060.jpg" />
 </div>
 
 
@@ -218,7 +322,7 @@ BitTorrent Pro - Torrent App 8.2.7 Mod by ImanAlien [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53044.jpg" />
 </div>
 
 
@@ -244,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53041.jpg" />
 </div>
 
 
@@ -270,7 +374,7 @@ BIG Launcher 5.3.0 Mod by TryRoom [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53038.jpg" />
 </div>
 
 
@@ -296,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53037.jpg" />
 </div>
 
 
@@ -322,7 +426,7 @@ Pro PDF Reader v1.0.8 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53027.jpg" />
 </div>
 
 
@@ -348,7 +452,7 @@ Overlays - Floating Launcher 8.1.1 Mod by Alex.Strannik [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53015.jpg" />
 </div>
 
 
@@ -374,7 +478,7 @@ BitTorrent Pro - Torrent App 8.2.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53008.jpg" />
 </div>
 
 
@@ -400,7 +504,7 @@ Overlays - Floating Launcher 8.1.1 Mod by Balatan [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52983.jpg" />
 </div>
 
 
@@ -426,7 +530,7 @@ ViewBox v1.8.10 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52975.jpg" />
 </div>
 
 
@@ -452,7 +556,7 @@ NewPipe Sponsor Block 0.27.0 Mod by N3k1t4_1996 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52953.jpg" />
 </div>
 
 
@@ -478,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52945.jpg" />
 </div>
 
 
@@ -504,7 +608,7 @@ Smart Launcher 6.4 build 031 Lite-Mod by Number one' [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52933.jpg" />
 </div>
 
 
@@ -530,7 +634,7 @@ Zaycev.net v9.4.0 Mod by Timozhai  [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52927.jpg" />
 </div>
 
 
@@ -556,7 +660,7 @@ Smart Launcher 6.4 build 031 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52898.jpg" />
 </div>
 
 
@@ -567,113 +671,6 @@ Smart Launcher - лаунчер являющийся одним из самых 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CB73294878363931B2842338D1028665AFF5761
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717488   (52849) от 19.06.2024
-
-Songsterr Guitar Tabs & Chords v5.24.0 Mod by derrin [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Songsterr — приложение для просмотра и разучивания табов и аккордов музыки ваших любимых исполнителей. Приобретая его, вы получаете более 500.000 интерактивных табулатур для гитары, баса и барабанов с возможностью проигрывания.
-Табулатуры
-• Реалистичный звук. Высококачественные инструментальные сэмплы.
-• Отдельные дорожки для каждого инструмента (гитары, баса, барабанов, (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 19.06.2024Разработчик: SongsterrПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5469B47C92028363A6DFFAF0B3FF149183F46401
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731201   (52839) от 19.06.2024
-
-GreenTuber - неофициальный клиент YouTube 0.1.4.2 Mod by MDNIY [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52839.jpg" />
-</div>
-
-
-###  Подробнее
-
-GreenTuber - это неофициальный клиент YouTube, что станет отличной находкой для всех кто хочет существенно повысить комфорт взаимодействия с известным видеохостингом. Удобное управление, различные интересные идеи в механике воспроизведения, сохранение всех главных и классических функций, отсутствие рекламы, работа с закладками, крайне экономный подход к ресурсам (   Читать дальше...   )Тип издания: ModРелиз состоялся: 01.06.2024Разработчик: MaxsortubeПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4993D89772A86D1546D19C0298BF14D3148E4072
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731241   (52824) от 19.06.2024
-
-UpNote - Записка, дневник 9.4.0 Mod by Mixroot [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52824.jpg" />
-</div>
-
-
-###  Подробнее
-
-UpNote - проект, что является платформой для небольших записей и заметок, и для ведения полноценного дневника или же даже журнала событий с многочисленными деталями. При этом есть и система защиты, так что никакие конфиденциальные данные не выйдут за пределы личного пользования. Удобная структура и механика обеспечивает и работу и редактирование. Переделка, обновление, (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 09.06.2024Разработчик: UpNote Co LtdПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2D2FAA7C08E7C6D801B7ADEB0D7E3567DA57CFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731027   (52816) от 19.06.2024
-
-Microsoft Edge 124.0.2478.71 (ARM64) Lite-Mod by Rarity$ [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52816.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Edge - это современный веб-браузер для Android с ИИ функциями. Отличается высокой скоростью работы, хорошей производительностью и совместимостью со всеми современными веб-стандартами. Microsoft Edge - это скорость, производительность и совместимость со всеми вашими любимыми сайтами и расширениями.Тип издания: Lite-Mod (облегчённый)Релиз состоялся: 29.04.2024Разработчик: Microsoft CorporationПоддерживаемая ОС: Android 8.0+ (Только для ARM64)Язык интерфейса: Русский, Английский и Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:601166426F9B851AD2AB1A0EF38975FBED35175B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,134 +1,3 @@
-###  Публикация: 1765392   (34272) от 13.12.2024
-
-Н.В. Илиевский, А.М. Сокролов, Д.М. Филлиповых | СССР во Второй мировой войне: вопросы и ответы (2025) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34272.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Разрушение СССР стало величайшей геополитической катастрофой и подлинной трагедией для многих стран и народов. Новая демократическая Россия в течение тридцати лет прилагала гигантские усилия, искренне желая выстроить с Западом подлинные партнерские отношения, основанные на взаимных интересах и общечеловеческих идеалах. Однако, этого не случилось. Соединенные Штаты (   Читать дальше...   )Жанр: монография, политологияИздательство: Наукоемкие технологииФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3A7C7980B26F4B28ED3D73041AA6D9EC57EC5A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765670   (34209) от 14.12.2024
-
-В. Шпаковский | Оружие мира. Револьверы и пистолеты. Большой иллюстрированный атлас (2024) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34209.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга "Оружие мира: револьверы и пистолеты" –– это не просто справочник с перечислением тактико-технических характеристик, но и подробные, интересные рассказы, посвященные творчеству в области изготовления короткоствольного огнестрельного оружия. Читатель познакомится с разными видами револьверов и пистолетов: от самых старых образцов до современных, от (   Читать дальше...   )Жанр: Историческая и военная литератураИздательство: АСТФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D617F3048A11DD5217719B30900A4EB424D8E8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765947   (34091) от 15.12.2024
-
-Д.В. Тихомиров, Я.И. Грищенко | Гражданская оборона и защита от чрезвычайных ситуаций (2021) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34091.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие разработано специалистами ООО «ТЕРМИКА.РУ» и предназначено для изучения (в т.ч. и самостоятельного) широким кругом лиц, включая и проводящих обучение и инструктаж по вопросам гражданской обороны и защиты от чрезвычайных ситуаций природного и техногенного характера на предприятиях и в учебных центрах, лиц, проходящих обучение в качестве работников организаций, (   Читать дальше...   )Жанр: учебное пособие, безопасность жизнедеятельности, гражданская оборонаИздательство: ТермикФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C0619EB373E45180780DA8C186DB89FF31485D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766013   (34082) от 15.12.2024
-
-Дж. Фритц, Г. Шенк | Количественный анализ (1978) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34082.jpg" />
-</div>
-
-
-###  Подробнее
-
-Руководство по аналитической химии, написанное на высоком теоретическом уровне, которое может быть использовано в качестве учебного пособия. В отличие от многих существующих учебников и учебных пособий в данной книге достаточно полно представлены и хорошо освещены наиболее современные физико-химические инструментальные методы анализа. Книга богато иллюстрирована (   Читать дальше...   )Жанр: ХимияИздательство: МирФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:362FE62C3B9D9EFB4E21D2BAE042E201BCE35335
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765977   (34069) от 15.12.2024
-
-Г. Беккер и др. | Органикум [2 книги] (1979) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34069.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном издании, написанном авторским коллективом из Германии, подробно рассмотрены особенности работы в практикуме по органической химии, включая лабораторное оборудование и методики синтеза.
-Том 1 включает описание лабораторного оборудования и приемов работы, краткие теоретические основы органической химии, а также описание препаративных методов синтеза (методики (   Читать дальше...   )Жанр: ХимияИздательство: МирФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECB55359DA40AF3B4F90E02BF5F69097340449AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1765982   (34066) от 15.12.2024
 
 Г. Блументаль и др. | Анорганикум [2 книги] (1984) [DJVU]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34066.jpg" />
 </div>
 
 
@@ -166,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34062.jpg" />
 </div>
 
 
@@ -192,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34028.jpg" />
 </div>
 
 
@@ -219,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34026.jpg" />
 </div>
 
 
@@ -245,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34016.jpg" />
 </div>
 
 
@@ -272,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34012.jpg" />
 </div>
 
 
@@ -299,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33998.jpg" />
 </div>
 
 
@@ -325,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33996.jpg" />
 </div>
 
 
@@ -351,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33995.jpg" />
 </div>
 
 
@@ -378,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33992.jpg" />
 </div>
 
 
@@ -404,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33990.jpg" />
 </div>
 
 
@@ -430,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33988.jpg" />
 </div>
 
 
@@ -456,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33982.jpg" />
 </div>
 
 
@@ -483,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33948.jpg" />
 </div>
 
 
@@ -510,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33911.jpg" />
 </div>
 
 
@@ -537,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33893.jpg" />
 </div>
 
 
@@ -563,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33872.jpg" />
 </div>
 
 
@@ -590,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33856.jpg" />
 </div>
 
 
@@ -616,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33852.jpg" />
 </div>
 
 
@@ -643,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33781.jpg" />
 </div>
 
 
@@ -669,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33778.jpg" />
 </div>
 
 
@@ -681,6 +550,136 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7602A05E661D7AAC8155C2625A3BEAF3EABD1FD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766495   (33775) от 18.12.2024
+
+Р. Тиль | Электрические измерения неэлектрических величин (1987) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основное внимание в книге уделено собственно измерениям неэлектрических величин: методам измерений, схемным вопросам, касающимся процесса измерений, начиная от получения измерительной информации, необходимых преобразований измерительных сигналов, погрешностям измерений, помехам и др. В книге нашли отражение современные технические средства, применяемые для измерений. (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: ЭнергоатомиздатФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7C75CC562804504992E239928FEAF3FC923CC93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766478   (33772) от 18.12.2024
+
+Королькова О.А. и др. | Восприятие микроэкспрессий лица в условиях кажущегося движения и маскировки (2021) [PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33772.jpg" />
+</div>
+
+
+###  Подробнее
+
+Монография посвящена проблеме влияния кажущегося изменения лица на оценку эмоциональных микроэкспрессий – быстрых преобразований эмоционального выражения в течение сотых долей секунды. В работе впервые про веден систематический анализ влияния кажущегося изменения выражения лица на идентификацию эмоциональных микроэкспрессий. Разработана и апробирована оригинальная (   Читать дальше...   )Жанр: монография, психосемантикаИздательство: Когито-ЦентрФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D5D19FC395CAF44DF388D69934D739BADA3014B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766476   (33674) от 19.12.2024
+
+Мария Кича | Серия «Биография великих городов мира» [5 книг] (2020-2023) [FB2, PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удивительное прошлое и невероятные реформы настоящего, волшебные легенды и жестокая реальность, коварство и любовь, скандалы и интриги – все это история стран и городов Востока.Жанр: Культурология, Популярно об историиИздательство: Бомбора, ЭксмоФормат: FB2, PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1528CE7947DE81839D41709D0E44BAD12FEF1736
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766516   (33655) от 19.12.2024
+
+К.А. Татаринов | Человек и мир зверей (1980) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33655.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассмотрены специфика териториальной фауны западной части УССР, основные ее представители, в т.ч. обитавшие на данной территории в глубокой древности, предложены мероприятия по охране редких и исчезающих видов.Жанр: ПриродоведениеИздательство: Вища школаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:415841E9FF990437523B3F950C5E18B0D0791418
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766498   (33645) от 19.12.2024
+
+А. Пуле, Ж.-П. Матье | Колебательные спектры и симметрия кристаллов (1973) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33645.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет собой монографию крупнейших французских специалистов, в которой систематически излагаются теория колебательных спектров кристаллов и ее экспериментальные приложения. В ней весьма полно освещается вопрос о взаимодействии с фононами и появлении такого взаимодействия в спектрах комбинационного рассеяния и инфракрасного поглощения. Рассматривается (   Читать дальше...   )Жанр: ХимияИздательство: МирФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0590D90EF310AE5063C7C93A1F1EB0233F77F8B
 ```
 
 https://mybot314.ru/tekegram_catalog/

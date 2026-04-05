@@ -1,3 +1,32 @@
+###  Публикация: 1547836   (602027) от 30.04.2022
+
+Оризонт - Между Нами Снег (1984) ЕР [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Между Нами Снег
+(В. Шаинский - С. Алиханов, А. Жигарев)
+02. Песня Куклы
+(В. Шаинский - С. Алиханов, А. Жигарев)(   Читать дальше...   )Жанр: PopПродолжительность: 00:13:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6727DDBAB1C47846FA52E37E23D51591DA2BD391
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1547850   (602019) от 30.04.2022
 
 Людмила Сенчина - Аист На Крыше (1986) ЕР [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Pop Rock>
@@ -6,7 +35,7 @@
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602019.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - RETROспектива, часть XVIII. Зарубежные исполн�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601971.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - RETROспектива, часть XIX. Зарубежные исполни�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601967.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - RETROспектива часть XX. Зарубежные исполнит�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601963.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Мелодии экрана, 9 серия (1962) [FLAC 1.0|96/24|tracks|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601962.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - RETROспектива, часть XVII. Зарубежные исполни
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601959.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Elton John - Captain Fantastic And The Brown Dirt Cowboy (1975) Reissue, 1980 [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601943.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Bad Boys Blue - Super 20. Greatest Hits (1995) [FLAC 2.0|48/24|image+.cue|MC-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601561.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Melody Gardot - 3 Альбома (2008-2012)[FLAC 2.0 24/96|image (Vinyl-Rip)]<J
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601259.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_601064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_601064.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Frankie Laine - Frankie Laine's Greatest Hits (1975) Compilation [FLAC 2.0|192/2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601023.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Karat - Schwanenkönig (Schwanenkonig) (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599863.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599858.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ P.R. Computer - P.R. Computer (1983) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Elec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599856.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ VA - Марк Минков - Парад Планет (1983) [FLAC 2.0|96/24|imag
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599584.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Ricchi E Poveri - Богатые и Бедные (1985) [FLAC 2.0|96/24|image+.c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599576.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Triosphere - Studio Albums (3 releases) (2006-2014) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598193.jpg" />
 </div>
 
 
@@ -498,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597791.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ Pat Boone · Пэт Бун - April Love · Любовь В Апреле (1986) [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597751.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ Jeff Lynne - Armchair Theatre (1990) [FLAC 2.0|192/24|image|Vinyl-Rip]<Album Roc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597630.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ VA - XXXL Европейский 3 (2000) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597590.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ Argo/ Арго - Discophonia/Дискофония (1981) [FLAC 2.0|96/24|image+.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597588.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ VA - Heavenly Bodies: Original Motion Picture Soundtrack (1988) [FLAC 2.0|96/24|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597582.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ Middle Of The Road - It's the Middle Of The Road (1973) [FLAC 2.0|192/24|image +
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597581.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ Uriah Heep - Innocent Victim (1977) Reissue, 1978, Bronze [FLAC 2.0|192/24|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597369.jpg" />
 </div>
 
 
@@ -715,34 +744,6 @@ Uriah Heep - Innocent Victim (1977) Reissue, 1978, Bronze [FLAC 2.0|192/24|image
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBDFFC492D13357BC3A0CEF1CB27C731BA894362
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299572   (595897) от 03.05.2019
-
-ZZ Top - Hit Collection 2000 (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Blues Rock, Texas Blues>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595897.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. My Mind is Gone
-02. Just Got PaidЖанр: Blues Rock, Texas BluesПродолжительность: 01:17:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA9BC1DE0C466BC3F64B5398EDB5229BC15D7852
 ```
 
 https://mybot314.ru/tekegram_catalog/

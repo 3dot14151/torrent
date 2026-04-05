@@ -1,3 +1,211 @@
+###  Публикация: 1348074   (140755) от 29.12.2019
+
+МТС: Марвин вам в помощь
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140755.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крупнейший российский сотовый оператор МТС разработал собственную "умную" колонку и виртуального помощника, следует из письма директора центра искусственного интеллекта МТС Аркадия Сандлера сотрудникам компании (копия есть в распоряжении РИА Новости).В письме сотрудникам МТС предлагается принять участие в тестировании новинки. В нем отмечается, что компания (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678785   (140719) от 23.11.2023
+
+Телекинез (2022) WEBRip [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140719.jpg" />
+</div>
+
+
+###  Подробнее
+
+Москва, 1977 год. В режиме полной секретности ученые исследуют паранормальные явления. Профессор-физик, специалист по телекинезу и гипнозу, сталкивается с необъяснимой силой, в существование которой невозможно поверить. Вскоре его дочь Анна обнаруживает у себя смертельно опасный дар.Производство: Россия, ОДА-ФильмЖанр: триллер, ужасыРежиссер: Константин МаксимовАктеры: Владислав Абашин, Алевтина Майер, Ольга Погодина, Евгений Коряковский, Николай Добрынин, Алексей Онежен, Екатерина Тарасова, Андрей Анисимов, Вадим Скоб, Василий СедыхПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:28:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EFD4877E935700DA59D43FEBA27B9273E7FE51D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 391118   (140708) от 23.11.2023
+
+Might and Magic: Clash of Heroes / Меч и магия: Битвы героев (2009)  [Ru/Multi] (1.0.0.2) Scene RELOADED
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Might and Magic: Clash of Heroes - это увлекательный микс из пошаговой стратегии и ролевой игры под соусом из головоломок. События данной части происходят за 40 лет до истории, рассказанной в пятерке, в том же королевстве Асхан. Каждое полнолуние земли фэнтезийного царства подвергались нападению со стороны демонов, проникающих в наш мир из портала Шио. Люди, эльфы (   Читать дальше...   )Тип издания: SceneРазработчик: Capybara GamesЖанр: Strategy (Turn-based), Logic (Puzzle)Язык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Польский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Польский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C956E907779C9FD49AF82CBB0702CFF103FEBD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673425   (140696) от 23.11.2023
+
+Call of Duty: Black Ops Cold War (2020) [Ru/En] (1.34.0.15931218) Rip Other s
+
+>>3
+>>14
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в Call of Duty®: Black Ops Cold War — прямое продолжение культовой игры Call of Duty®: Black Ops, положившей начало одноименной серии. Действие игры Black Ops Cold War происходит в начале 1980-х годов — в один из напряженных периодов холодной войны. В ходе захватывающей кампании невиданных масштабов, рассчитанной на одного игрока, вам предстоит встретиться (   Читать дальше...   )Тип издания: RipРазработчик: Treyarch, Raven Software, BeenoxЖанр: Action (Shooter), 1st Person, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:452C798D43514531EF80C88F1BE39469484D9B26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970446   (140678) от 30.12.2015
+
+Компания Boston Dynamics прекращает работу по дальнейшему развитию роботов серии BigDog
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140678.jpg" />
+</div>
+
+
+###  Подробнее
+
+В течение достаточно длительного промежутка времени робот LS3, более известный под названием BigDog, рассматривался как перспективная транспортная система, которая позволяет перемещать по пересеченной местности грузы, предназначенные для снабжения служащих специальных подразделений и морской пехоты, принимающих участие в боевых действиях. Однако, за все время работы (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087944   (140563) от 30.12.2016
+
+Новый астрономический инструмент позволит проверить глубины Вселенной на предмет наличия в них воды
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вода является одним из основополагающих компонентов для всех основанных на углероде форм жизни. Именно поэтому ученые-астрономы, изучающие далекие планеты, ищут признаки наличия там воды. Однако, обнаружение следов воды с большого расстояния является сложным делом, и для облегчения таких поисков радиотелескоп ALMA (Atacama Large Millimetre/submillimetre Array) скоро (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348929   (140504) от 29.12.2019
+
+Kerish Doctor 2020 4.80 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140504.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kerish Doctor — комплексное решение для автоматического ухода за компьютером под управлением ОС Windows. Программа предлагает два режима работы. В режиме работы в реальном времени Kerish Doctor в фоновом режиме защищает систему и автоматически исправляет ошибки автоматически, показывает уведомления о проделанной работе. Программа запускается вместе со стартом Windows. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C43F0E530F7DA95971A843099DCDCCFD7957488
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329641   (140274) от 29.12.2019
+
+Hataage! Kemono Michi | Kemono Michi: Rise Up | Дорога зверя [2019, TV, 12 эп.] WEBRip 720p raw
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессиональный рестлер-в-маске Гендзо Щибата — могучий воин, более известный под именем Пушистая Маска, — был призван в фэнтезийный мир прямо накануне важного матча с единственной целью: уничтожить заполонивших королевство магических тварей. Вот только Гендзо очень любит животных. Всех без исключения. Потому такая оскорбительная просьба из уст местной принцессы (   Читать дальше...   )Жанр: комедия, фэнтезиРежиссер: Миура КадзуяПеревод: Funimation; AniLibriaЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB3E0CC5451833F0C0E50315015C3E41747EF7BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329223   (140262) от 29.12.2019
 
 Shinchou Yuusha: Kono Yuusha ga Ore Tueee Kuse ni Shinchou Sugiru | Этот герой неуязвим, но очень осторожен [2019, TV, 12 эп.] WEBRip 720p raw
@@ -6,7 +214,7 @@ Shinchou Yuusha: Kono Yuusha ga Ore Tueee Kuse ni Shinchou Sugiru | Этот г�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140262.jpg" />
 </div>
 
 
@@ -32,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140252.jpg" />
 </div>
 
 
@@ -58,7 +266,7 @@ Monogatari Series: Second Season / Истории, сезон второй [2013
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140135.jpg" />
 </div>
 
 
@@ -84,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140132.jpg" />
 </div>
 
 
@@ -110,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140116.jpg" />
 </div>
 
 
@@ -136,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140079.jpg" />
 </div>
 
 
@@ -162,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140065.jpg" />
 </div>
 
 
@@ -188,7 +396,7 @@ OS X Hackintosh. Ответы на вопросы.
 >>98
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140054.jpg" />
 </div>
 
 
@@ -214,7 +422,7 @@ GoodbyeDPI.0.1.6. Launcher-3.9 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140047.jpg" />
 </div>
 
 
@@ -243,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140027.jpg" />
 </div>
 
 
@@ -269,7 +477,7 @@ Windows 10 (v1809) x64 5in1 by kuloymin v17 (esd) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140020.jpg" />
 </div>
 
 
@@ -298,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140011.jpg" />
 </div>
 
 
@@ -324,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139988.jpg" />
 </div>
 
 
@@ -350,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139984.jpg" />
 </div>
 
 
@@ -377,7 +585,7 @@ Arcania: Gothic 4 / Готика 4: Аркания (2010-2011) [Ru/En/Ge] (1.1.0
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139976.jpg" />
 </div>
 
 
@@ -403,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139973.jpg" />
 </div>
 
 
@@ -431,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139963.jpg" />
 </div>
 
 
@@ -458,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139957.jpg" />
 </div>
 
 
@@ -469,219 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968375   (139943) от 30.12.2015
-
-Николай Ягодкин, Светлана Ахметова | Интенсив-погружение "Разговорный Английский" (2015) HDRip [H.264/720p]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сверхинтенсивный курс разговорного английского, построенный на технологиях Николая Ягодкина. Самый результативный формат изучения английского - от 1 до 3х уровней всего за 7 дней.
-Всего за 7 полных дней Вы освоите всю необходимую для разговора и письма грамматику и переведете ее в активный разговорный навык.Производство: Центр Образовательных технологий Николая Ягодкина «Advance»Жанр: Английский языкПродолжительность: 20:33:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:761D3DB61DDA9772CDC7BA2589CEBBC8570CBEDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272793   (139935) от 29.12.2018
-
-Windows x86 x64 Present by StartSoft 50-2018 Final [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139935.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка предназначена для установки на компьютеры операционных систем Windows с разной разрядностью. Загрузочный образ ISO, входящий в состав сборки, предназначен для записи на Flash накопитель размером от 32 Гигабайт. Установка операционных систем осуществляется при помощи  модифицированного загрузчика соответствующей разрядности в состав которого входят приложения (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18A16BD8FBA7FB50AB3257A18A453010595904FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272692   (139929) от 29.12.2018
-
-Windows 10 x86 x64 DVD  Present by StartSoft 43-49 2018 [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139929.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка предназначена для установки на компьютеры операционной системы Windows 10 с разной разрядностью с русским или с английским языковыми интерфейсами. Загрузочные образы ISO входящие в состав сборки предназначены для записи на стандартный диск DVD размером 4,7 Гигабайта, либо на Flash накопитель. Сборка поддерживает установку операционной системы Windows 10 на (   Читать дальше...   )Язык интерфейса: Русский/Английский США
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08F93BE3FFE53FAF63EEAF96829C828E617DD5B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970466   (139925) от 30.12.2015
-
-Лексс / Lexx (1997-2002) DVD Remux (сезон 1-4, серии 1-61 из 61)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139925.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесстрашный воин погибшей расы Бруннен-Джи, младший помощник вспомогательного заместителя курьера Стэнли Твидл, очаровательная раба любви Зэв с характером межзвездного ящера и романтическая голова-робот 790 захватывают огромный живой космический корабль «Лексc», самое мощное оружие разрушения в двух Вселенных.
-Спасаясь от гнева Божественной Тени, безжалостного властителя (   Читать дальше...   )Производство: Канада, Германия, Великобритания, СШАЖанр: фантастика, фэнтези, комедия, приключенияРежиссер: Крис Боулд, Пол Донован, Кристоф ШревеАктеры: Майкл МакМанус, Ксения Сиберг, Патриция Зентилли, Рольф Канис, Лекс Гигерофф, Брайан Дауни, Найджел Беннетт, Ева Хаберманн, Том Галлант, Джеффри Хиршфилд и др.Перевод: Двуголосый закадровый, профессиональный - AXN Sci-fi, ТВ 6; одноголосый закадровый от Е.Лурье.Продолжительность: ~00:51:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:986EBFF963E8A78F80995BFB6CDBF533DE412070
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271878   (139916) от 29.12.2018
-
-AllWinUSB Constructor by SmokieBlahBlah 28.12.18 [Ru/En]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139916.jpg" />
-</div>
-
-
-###  Подробнее
-
-    Конструктор мультизагрузочной флешки (или внешнего жесткого диска) с выбором компонентов для записи, содержащий все сборки Windows от SmokieBlahBlah (XP/7/8.1/10) с обновлениями по декабрь 2018 (кроме XP и 10 LTSB). Также есть возможность добавить 2k10 Live и WinPE Sergei Strelec.
-    При установке Windows опционально (ставите нужные галочки) доступны: активация, (   Читать дальше...   )Язык интерфейса: Русский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C6B0B69F78FCE6A73C0DCFC60E3B7927ABD8DB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272811   (139905) от 29.12.2018
-
-Adobe Premiere Pro CC 2019 13.0.1.13 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139905.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Premiere Pro CC 2019 - профессиональная программа для нелинейного видеомонтажа. Приложение обеспечивает высококачественное редактирование видео разрешения 4K и выше, с 32-битовым цветом, как в RGB, так и YUV цветовом пространстве. Редактирование аудиосемплов, поддержка VST аудиоплагинов (plug-in) и звуковых дорожек 5.1 surround. Архитектура Premiere Pro плагинов (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C901BC25CCB174728DE08507D00869BA6AA2D01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271870   (139896) от 29.12.2018
-
-Windows 8.1 (x86/x64) 40in1 +/- Office 2016 SmokieBlahBlah 25.12.18 [Ru/En]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139896.jpg" />
-</div>
-
-
-###  Подробнее
-
-10 редакций Windows 8.1 (русские и английские) с обновлениями по декабрь 2018 и интегрированными системными библиотеками + 10 таких же редакций со встроенным Office 2016 Pro Plus VL x86 (можно выбрать, ставить ли Office. Галочка перед началом установки.). Язык офиса зависит от выбранного языка ОС.
-
-Ничего не вырезано и не изменено, кроме: см. спойлер "Изменения (   Читать дальше...   )Язык интерфейса: Русский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:162984960BA791E3C428D15F5CB9DD482F4EB078
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 783241   (139890) от 29.12.2018
-
-Храбрейшие Воины / Bravest Warriors (2012-2018) WEB-DL [H.264/1080p-LQ] (Сезон: 1-4, Серии: 1-82 из 82, Минизоды: 1-5 из 5) [EN, RU Sub] (Обновляемая)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139890.jpg" />
-</div>
-
-
-###  Подробнее
-
-Храбрейшие Воины - американский анимационный веб-сериал, созданный Пендлтоном Вордом. Сериал повествует о четырёх 16-летних героях, которые путешествуют по галактикам, спасая милые инопланетные мирки при помощи своих эмоций.Производство: США, Frederator StudiosЖанр: Рисованная анимация, Приключения, КомедияРежиссер: Брин Бёрнс / Breehn BurnsПерсонажи: Алекс Уолш - Крис Кёркман, Лилиана Мами - Бет Тезука, Йен Джонс-Кварти - Волло, Джон Омоандро - Дэнни ВаскезПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские (отдельным файлом), перевод Павел Самойлов aka TanisПродолжительность: ~00:05:00 х Серия (1 и 2 сезон), ~00:11:00 х Серия (3 и 4 сезон)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA458CC8C8EA2B89B3B79F8451E7623957F1419C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1300754   (592752) от 07.05.2019
+
+Возвращение незваных гостей / The Squatters Return (2018) HDTVRip
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как объяснить неожиданное возвращение разных видов жуков? Ученые говорят о глобальном потеплении, нашем образе жизни и их генетических мутациях. Справимся ли мы с этими проблемами?Производство: Франция, Arte France Mona Lisa ProductionЖанр: Документальный, природа, флора, фаунаРежиссер: Тири БэрродПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:52:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E9A779A96F088B38BDCEA5A7DBD17A9425D69EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1551422   (590144) от 15.05.2022
 
 Один дикий день / One Wild Day (2017) WEB-DL [H.264/1080p] (серии 1-3 из 3)
@@ -6,7 +32,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590144.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588956.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585229.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583991.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581841.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581195.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Nat Geo Wild . Дикое меню / Wild Menu (2014) HDTVRip [H.264/720p] [1-26
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580918.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580829.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Nat Geo Wild. Дикое меню / Wild Menu (2014) HDTV [H.264/1080i] [26 се
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579700.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579269.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579070.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578718.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578576.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578056.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578002.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577934.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576936.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576016.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ Discovery. Нападение шершней-убийц / Attack of the Murder H
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575572.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574630.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574573.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573702.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566406.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ IMAX. Тайна жизни на Земле / IMAX. The Secret Of Life On Earth 
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562946.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562145.jpg" />
 </div>
 
 
@@ -648,32 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:947DF07C69D8FE55832A111C949BA23A24421AF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235222   (562044) от 10.07.2018
-
-Живой свет с Дэвидом Аттенборо. Биолюминесценция / David Attenborough’s Light on Earth (Life That Glows) (2016) BDRemux [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Биолюминесценция во многом загадочное явление. Ученые обнаруживают по всему миру множество удивительных живых существ, способных излучать свет. А открытие все большего количества странных светящихся созданий, порождает еще большее количество вопросов. Почему, для чего и каким образом они производят этот свет? В последние годы ученые начали находить ответы на эти (   Читать дальше...   )Производство: Австрия, Великобритания, Terra Mater Factual Studios, Ammonite FilmsЖанр: Документальный, природа, флора, фаунаРежиссер: Джо ЛонкрейнПеревод: Одноголосый закадровый, профессиональныйСубтитры: Русские, АнглийскиеПродолжительность: 00:59:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0AE8966968E0DE9FCF665467F8AA6C7168DA6F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

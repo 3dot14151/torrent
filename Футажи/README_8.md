@@ -1,3 +1,32 @@
+###  Публикация: 831349   (418961) от 15.10.2014
+
+Футажи - Artbeats - Dreamlight 1 [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418961.jpg" />
+</div>
+
+
+###  Подробнее
+
+От Injulir:
+
+Средь развевающихся тонких линий света
+Ищу нить Ариадны с давних пор.(   Читать дальше...   )Формат: MOVРазрешение файлов: 720х486
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:104C3A6982694423A95C85A96175954C5F55CD64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1167086   (418905) от 19.09.2017
 
 Футажи - VideoHive - Realistic Red Curtain Opening [MOV]
@@ -6,7 +35,7 @@
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418905.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416599.jpg" />
 </div>
 
 
@@ -59,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416582.jpg" />
 </div>
 
 
@@ -86,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416413.jpg" />
 </div>
 
 
@@ -114,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416395.jpg" />
 </div>
 
 
@@ -142,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414283.jpg" />
 </div>
 
 
@@ -169,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414243.jpg" />
 </div>
 
 
@@ -197,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414221.jpg" />
 </div>
 
 
@@ -223,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414206.jpg" />
 </div>
 
 
@@ -249,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414204.jpg" />
 </div>
 
 
@@ -275,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414139.jpg" />
 </div>
 
 
@@ -304,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412011.jpg" />
 </div>
 
 
@@ -330,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412010.jpg" />
 </div>
 
 
@@ -356,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412009.jpg" />
 </div>
 
 
@@ -384,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411969.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411852.jpg" />
 </div>
 
 
@@ -437,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411846.jpg" />
 </div>
 
 
@@ -463,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411842.jpg" />
 </div>
 
 
@@ -492,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411823.jpg" />
 </div>
 
 
@@ -520,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411806.jpg" />
 </div>
 
 
@@ -546,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408513.jpg" />
 </div>
 
 
@@ -574,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399163.jpg" />
 </div>
 
 
@@ -600,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399161.jpg" />
 </div>
 
 
@@ -628,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388639.jpg" />
 </div>
 
 
@@ -657,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388550.jpg" />
 </div>
 
 
@@ -670,32 +699,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8ED0DF91768E44FA0DB331EC98AF50FB6E71767
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174522   (384691) от 15.10.2017
-
-Футажи - VideoHive - Hacker [MOV]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384691.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футаж - женщина хакер просматривает код.Формат: MOVРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5C4BA2C22518E178FB481DAB8BD6B7A4DB7FF64
 ```
 
 https://mybot314.ru/tekegram_catalog/

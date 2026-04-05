@@ -1,3 +1,55 @@
+###  Публикация: 1022073   (667360) от 26.05.2017
+
+Dead Island: Riptide (2016) [Ru/Multi] (1.1.2.0/upd2) Repack Other s [Definitive Edition]
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dead Island Riptide Definitive Edition – переиздание, состоящее из серьезно улучшенной версии зомби-экшена Dead Island Riptide и всех выпущенных DLC. Dead Island Riptide является спин-оффом Dead Island, который разработан на улучшенном движке. В игре появилась новая система погоды, включающая наводнения и необходимость преодолевать кишащие зомби реки на маленьких (   Читать дальше...   )Тип издания: RepackРазработчик: TechlandЖанр: Action, 1st Person, 3D, CompilationЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41C315962D62C1A8076B0D528AE332888334B3D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224264   (666934) от 09.05.2018
+
+Singularity (2010) [Multi] (1.1) License GOG
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каторга-12 — советский научный центр, расположенный на небольшом острове у побережья Камчатки. В результате неудачного эксперимента остров попал во временную ловушку и теперь постоянно перемещается между 1950 и 2010 годами.Тип издания: LicenseРазработчик: Raven SoftwareЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9C00090E7897FE478CC100BDB3EC68751E4959C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 511573   (666901) от 16.06.2012
 
 Doom [En] (L) 1993
@@ -6,7 +58,7 @@ Doom [En] (L) 1993
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666901.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ TimeShift (2007) [Ru/Multi] (1.02) SteamRip Let'sPlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662940.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Perception (2017) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662934.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Putrefaction 2: Void Walker (2017) [Ru/En] (1.0а) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662931.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Dead Island + Dead Island: Riptide (2016) [Ru/Multi] (1.1.2.0upd2/dlc) Repack xa
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661642.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Perception (2017) [Ru/Multi] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660807.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Secret Doctrine (2017) [Ru/En/Ch] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658798.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Necromunda: Hired Gun (2021) [Ru/Multi] (62662/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658750.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Brothers in Arms: Hell's Highway (2008) [Ru] (1.0.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656488.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Bulletstorm (2011) [Ru/En] (1.0.7147/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656482.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Cryostasis: Sleep of Reason / Анабиоз: Сон разума (2008) [Ru/En]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655520.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Conarium (2017) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655508.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Depth Hunter (Lossless RePack/v1.10) [Multi5/+] 2011 | R.G. Catalyst и R.G. ExP
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655193.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ AMOK (2016) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653048.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ S.T.A.L.K.E.R.: Call of Pripyat / S.T.A.L.K.E.R.: Зов Припяти / Strong
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648908.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ Hard Reset Redux (2016) [Ru/Multi] (1.1.1.0) Repack R.G.Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647172.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ Killing Floor 2 (2016) [Ru/Multi] (1078/dlc) License CODEX [Digital Deluxe Editi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646332.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ Zeno Clash 2 (2013) [Ru/En] (1.04) SteamRip Let'sРlay [Special Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642949.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ Dead Island. Game of the Year Edition [Ru/En] (Steam-Rip/1.3) 2011 | R.G. Игр
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640479.jpg" />
 </div>
 
 
@@ -511,7 +563,7 @@ Dying Light: The Following (2016) [Ru/Multi] (1.12.2/dlc) SteamRip Let'sPlay [En
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640381.jpg" />
 </div>
 
 
@@ -537,7 +589,7 @@ Dishonored (2013) [Ru/En] (1.4/dlc) Repack R.G. Механики [Game of the Ye
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640379.jpg" />
 </div>
 
 
@@ -563,7 +615,7 @@ House of Evil 2 (2019) [Ru/Multi] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638817.jpg" />
 </div>
 
 
@@ -589,7 +641,7 @@ Bulletstorm (2017) [Ru/Multi] (1.1.12022) Repack xatab [Full Clip Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638587.jpg" />
 </div>
 
 
@@ -615,7 +667,7 @@ Dead Effect - Дилогия (2014-2016) [Ru/En] (1.4/1.0.3) Repack Mizantrop133
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637549.jpg" />
 </div>
 
 
@@ -626,59 +678,6 @@ Dead Effect 2 – научно-фантастический шутер, прод
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CDBFE7E523754E05BAAEFFFDCFEE25132DDA4D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228419   (637235) от 31.05.2018
-
-Downward Spiral: Horus Station (2018) [Ru/Multi] (1.0) Repack xatab
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Downward Spiral: Horus Station - это таинственный и атмосферный триллер, действие в котором происходит в полной невесомости на заброшенной станции "Horus Station".
-В игре Downward Spiral: Horus Station, где акцент сделан на графическое развитие сюжета, игрок попадет на корабль, покинутый экипажем.Тип издания: RepackРазработчик: 3rd Eye StudiosЖанр: Adventure, Action, 3D, 1st PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAAC05D144919CEE954B616FF8683028A20D9BC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228421   (637089) от 31.05.2018
-
-Downward Spiral: Horus Station (2018) [Ru/Multi] (1.0) Repack Other s
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637089.jpg" />
-</div>
-
-
-###  Подробнее
-
-В игре Downward Spiral: Horus Station, где акцент сделан на графическое развитие сюжета, игрок попадет на корабль, покинутый экипажем. Играть можно в одиночку или вдвоем в режиме сетевой совместной игры. Игрокам придется восстановить сюжет по кусочкам, наблюдая и интерпретируя происходящее на заброшенной космической станции. Атмосферное действие сопровождается электронной (   Читать дальше...   )Тип издания: RepackРазработчик: 3rd Eye StudiosЖанр: Adventure, Action, 3D, 1st PersonЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0309E5E1302DFBBC58FAAB0FAB90873F156758A
 ```
 
 https://mybot314.ru/tekegram_catalog/

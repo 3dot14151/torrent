@@ -1,3 +1,31 @@
+###  Публикация: 1543413   (631536) от 10.04.2022
+
+Лариса Черкашина | Живой Пушкин. Повседневная жизнь великого поэта (2021) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иногда сквозь наслоения веков уже не разглядеть живых черт, не услышать заразительного смеха, не увидеть печальных глаз великого поэта…
+А что любил Пушкин в жизни и что презирал, чему радовался и что отвергал? Каков был мир увлечений поэта?
+Эта книга – ещё одна попытка воссоздать живой образ поэта со всеми его человеческими слабостями и пристрастиями, странностями (   Читать дальше...   )Жанр: Биографии и Мемуары, Документальная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:661DCF5FF1B834AA16C3057A5D3D1A9199B3EDBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1383682   (631221) от 10.04.2022
 
 В.В.Жириновский | Последний вагон на Север (1995) [PDF]
@@ -6,7 +34,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631221.jpg" />
 </div>
 
 
@@ -35,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630418.jpg" />
 </div>
 
 
@@ -61,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630078.jpg" />
 </div>
 
 
@@ -87,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629960.jpg" />
 </div>
 
 
@@ -114,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629907.jpg" />
 </div>
 
 
@@ -142,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629774.jpg" />
 </div>
 
 
@@ -170,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629762.jpg" />
 </div>
 
 
@@ -196,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629618.jpg" />
 </div>
 
 
@@ -223,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628488.jpg" />
 </div>
 
 
@@ -251,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628469.jpg" />
 </div>
 
 
@@ -277,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628464.jpg" />
 </div>
 
 
@@ -303,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628255.jpg" />
 </div>
 
 
@@ -329,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628205.jpg" />
 </div>
 
 
@@ -355,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627928.jpg" />
 </div>
 
 
@@ -381,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627623.jpg" />
 </div>
 
 
@@ -408,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627616.jpg" />
 </div>
 
 
@@ -434,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627391.jpg" />
 </div>
 
 
@@ -460,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627262.jpg" />
 </div>
 
 
@@ -486,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626162.jpg" />
 </div>
 
 
@@ -512,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626070.jpg" />
 </div>
 
 
@@ -540,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625805.jpg" />
 </div>
 
 
@@ -566,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625129.jpg" />
 </div>
 
 
@@ -593,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624575.jpg" />
 </div>
 
 
@@ -621,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624488.jpg" />
 </div>
 
 
@@ -647,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624475.jpg" />
 </div>
 
 
@@ -658,34 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1AD051EEB3FE64A42A6528B3583079EEA4796C75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229559   (624346) от 07.06.2018
-
-Алексей Венедиктов | Мое особое мнение. Записки главного редактора «Эха Москвы» (2018) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624346.jpg" />
-</div>
-
-
-###  Подробнее
-
-НОВАЯ КНИГА известного журналиста Алексея Венедиктова – это предельно откровенный (как и все его эфиры) разговор с читателем. Впервые на книжных страницах главный редактор «Эха Москвы» рассказывает о главных политических событиях последней четверти века и своем участии в них; делится личными историями и размышлениями…
-
-О дружбе с Горбачевым и противостоянии с Березовским; (   Читать дальше...   )Жанр: Публицистика, Современное политическое положениеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31266614B9EBED61A69F42C6ABA801EAFF57D7FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,159 @@
+###  Публикация: 1097776   (911481) от 28.01.2017
+
+CyberLink PowerDirector Ultimate 15.0.2509.0 [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911481.jpg" />
+</div>
+
+
+###  Подробнее
+
+PowerDirector - самое быстрое и передовое программное обеспечения для редактирования видео. В состав PowerDirector входит комплект самых передовых и простых в использовании средств для создания профессиональных видеоматериалов. Также в наличии имеется технология обработки видео (SVRT), NVIDIA CUDA, ATI-Stream для многоядерных блоков обработки, которые помогут вам (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B04F3DECC83C3D0C249862021AF96FCF0E6C2FA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096462   (911480) от 28.01.2017
+
+Отсев / The Thinning (2016) WEB-DL [H.264/1080p-LQ] [AD]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Недалекое будущее. Ресурсы планеты истощены из-за перенаселения. ООН требует от всех стран ежегодно сокращать численность своего населения на 5%. Все ученики школ в США ежегодно сдают стандартный экзамен. Набравшие наименьшее количество баллов подлежат физическому уничтожению. Официальный номер экзамена – 10-241. Но обычно его называют...Отсев.Производство: США, Cinemand, Kids At Play, Legendary Digital MediaЖанр: ТриллерРежиссер: Майкл Дж. ГаллахерАктеры: Пейтон Лист, Логан Пол, Лия Мари Джонсон, Кэлам Уорси, Мэттью Глэйв, Майкл Трэйнор, Райан Ньюман, Патрик О’Салливан, Яна Винтерниц, Кирстен УорренПеревод: Любительский многоголосый (@MUZOBOZ@)Язык субтитров: ОтсутствуетПродолжительность: 01:24:04Реклама: Присутствуют голосовые и текстовые вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C846423046BA86BED38FEDBCB27CCC0E8870C0C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 776894   (911476) от 28.01.2017
+
+Инструкция для вменяемой части мирного населения - на время любой информационной войны
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911476.jpg" />
+</div>
+
+
+###  Подробнее
+
+- Любая война закончится. Это точно. В итоге политики договорятся, а ты останешься в том дерьме, которым ты поливаешь своих "идеологических противников".- Когда кидаешь в человека грязью, помни: она до него может не долететь, а на твоих руках останется.- В каждом народе или стране есть разные люди, и не все участвуют в войне, не стоит оскорблять всех подряд. Если тебе очень важно высказать своё отношение к политике - выскажи, но при этом не обязательно кого-то оскорблять.- Во время войны врут ВСЕ. Не распространяй информацию анонимную и ту, истинность которой меньше 150%, то-есть, пиши только (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097655   (911473) от 28.01.2017
+
+Голос монстра / A Monster Calls (2016) WEB-DL [H.264/720p-LQ]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911473.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о мальчике Конноре и монстре из его снов. Когда Коннору особенно тяжело, происходит нечто невероятное — старое тисовое дерево за окном оживает и превращается в громадное чудовище. По ночам монстр рассказывает Коннору истории, которые помогут ему понять, что даже когда весь мир рушится, можно найти в себе силы и не отчаиваться.Производство: США, Испания, Apaches Entertainment, La Trini, Monster Calls, A, Participant Media, River Road EntertainmentЖанр: Фэнтези, ДрамаРежиссер: Хуан Антонио БайонаАктеры: Льюис МакДугалл, Сигурни Уивер, Фелисити Джонс, Тоби Кеббелл, Бен Моор, Джеймс Мелвилл, Оливер Стир, Доминик Бойл, Дженнифер Лим, Макс ГаббейПеревод: Многоголосый закадровый, любительский (MUZOBOZ)Продолжительность: 01:48:21Реклама: Присутствуют текстовые вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7819F59F4F48C1E76C6EB70BC36BC2BD5D6B2BFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990569   (910953) от 25.02.2016
+
+Bandicam 3.0.3.1025 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_910953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bandicam позволяет записать определенную область на экране ПК, или в программе, которая использует графические технологии DirectX/OpenGL. Bandicam поможет вам выполнить видеозапись с высокой степенью сжатия, сохраняя качество видео ближе к оригинальной работе и обеспечивает производительность намного выше других программ, которые обладают подобными функциями.Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BD3D86C978647CE310E84F7535B72385009E76A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990535   (910952) от 25.02.2016
+
+В сердце моря / In the Heart of the Sea (2015) BDRip [H.264/720p-LQ] [Line]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_910952.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1819 году американский корабль «Эссекс» с командой из двух десятков человек на борту отправился из порта в штате Массачусетс на китобойный промысел. Осенью 1820-го успешная на протяжении полутора лет охота была прервана атакой гигантского кашалота на судно, в результате чего морякам пришлось пересесть в шлюпки. В течение трех с лишним месяцев они боролись за выживание (   Читать дальше...   )Производство: США, Австралия, Испания, Великобритания, Канада / Cott Productions, Enelmar Productions, Imagine EntertainmentЖанр: Приключения, Драма, БиографияРежиссер: Рон ХовардАктеры: Крис Хемсворт, Киллиан Мёрфи, Том Холлэнд, Бен Уишоу, Мишель Фэйрли, Шарлотта Райли, Брендан Глисон, Пол Андерсон, Бенджамин Уокер, Хорди МольяПеревод: Дублированный (чистый звук)Язык субтитров: Русский, АнглийскийПродолжительность: 02:02:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F27233A8E97540964B8E428A756232FCA35CB79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990403   (910941) от 25.02.2016
 
 Помнить / Remember (2015) HDRip
@@ -6,7 +162,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910941.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910939.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Windows 7 SP1 RUS-ENG x86-x64 -18in1- Activated v5 (AIO)
 >>37
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910934.jpg" />
 </div>
 
 
@@ -86,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910933.jpg" />
 </div>
 
 
@@ -112,7 +268,7 @@ Recovery USB-flash for Acer Aspire V3-771G / Windows 8 (х64) [Русский]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910277.jpg" />
 </div>
 
 
@@ -138,7 +294,7 @@ Apple призналась, что сканировала почту польз�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910069.jpg" />
 </div>
 
 
@@ -164,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>10
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909957.jpg" />
 </div>
 
 
@@ -190,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909949.jpg" />
 </div>
 
 
@@ -216,7 +372,7 @@ KRT CLUB ATB 3.1.0.29 v4 RePack [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909948.jpg" />
 </div>
 
 
@@ -245,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909946.jpg" />
 </div>
 
 
@@ -271,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>14
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909945.jpg" />
 </div>
 
 
@@ -297,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909824.jpg" />
 </div>
 
 
@@ -326,7 +482,7 @@ Microsoft Office 2016-2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909821.jpg" />
 </div>
 
 
@@ -352,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909649.jpg" />
 </div>
 
 
@@ -378,7 +534,7 @@ Fable: Anthology / Fable: Антология (2005-2014) [Ru/En] (1.0/1.1.3.0/1.
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909641.jpg" />
 </div>
 
 
@@ -404,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909631.jpg" />
 </div>
 
 
@@ -430,7 +586,7 @@ macOS Sierra 10.12.3 ISO[En/Ru] Apple [Intel only]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909627.jpg" />
 </div>
 
 
@@ -456,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909624.jpg" />
 </div>
 
 
@@ -482,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909618.jpg" />
 </div>
 
 
@@ -508,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909462.jpg" />
 </div>
 
 
@@ -519,162 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 866259   (909387) от 04.02.2015
-
-Ёлки лохматые (2014) HDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: Россия, Bazelevs DistributionЖанр: Семейный, КомедияРежиссер: Максим СвешниковАктеры: Андрей Мерзликин, Ян Цапник, Лера Стреляева, Галина Коньшина, Игорь Власов, Сергей Троев, Айса Энимал Арт, Пётр Фёдоров, Анна Чиповская, Андрей ФедорцовПеревод: Не требуется (русский) ЛицензияСубтитры: ОтсутствуютПродолжительность: 01:25:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30CC1F5C59FD0B032ABA71673FF11E2E1B2FE1DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 866323   (909385) от 04.02.2015
-
-Kaspersky Internet Security 2015 15.0.2.361 MR2 Final [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909385.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kaspersky Internet Security 2015 - комплексный Антивирус Касперского, который предлагает расширенные возможности: Безопасные платежи, Виртуальная клавиатура, Родительский контроль и Контроль программ. Новая версия обеспечивает комплексную защиту от всех видов вредоносных программ и интернет-угроз за счет комбинации облачных, проактивных и антивирусных технологий, (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37846133806BE94243FCCD29F4F449E6B761434A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990670   (909350) от 26.02.2016
-
-Новый летающий автомобиль Terrafugia TF-X станет реальностью в 2018 году
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все люди, которые следят за новостями и событиями в области летающих автомобилей, задаются вопросом, когда же, наконец, все это перейдет из разряда научной фантастики в разряд реальных обыденных вещей? Одним из лидеров этого направления является известная компания Terrafugia, специалисты которой сейчас занимаются разработкой и изготовлением первого опытного образца (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990370   (909247) от 26.02.2016
-
-Российский ученый доказал, что создатели "Звездных войн" украли сцены из "Кащея Бессмертного"
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой ученый из Томска заявил, что содержание первого фильма фантастической саги «Звездных войн» на 96 процентов копирует советскую киносказку 1944 года «Кащей Бессмертный». Как сообщает РИА Томск, аспирант Томского госуниверситета систем управления и радиоэлектроники (ТУСУР) Евгений Гарин направил письмо министру культуры Владимиру Мединскому и председателю Союза (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990611   (909241) от 26.02.2016
-
-Movavi Video Editor 11.3.0 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Movavi Video Editor - мощный и между тем достаточно простой видео редактор, позволяющий пользователю редактировать видео файлы, используя простой и дружелюбный пользовательский интерфейс. При помощи этого видео редактора, можно легко импортировать медиафайл, открыть файл DVD или 3D видео, а также записать видео или аудио поток.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0A53D88559AC286275EF3683C98C46D40852B39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990607   (909236) от 26.02.2016
-
-MathType 6.9b [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909236.jpg" />
-</div>
-
-
-###  Подробнее
-
-MathType — это мощный интерактивный инструмент, который кардинально меняет способ создания печатных и электронных документов, содержащих математические формулы. MathType может применяться вместе с любым текстовым и HTML-редактором, презентационной или издательской программой, и другими типами программного обеспечения - для создания формул в научных статьях, учебных (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C4CBD387015FCCF126B82C53BC695C34CB98857
 ```
 
 https://mybot314.ru/tekegram_catalog/

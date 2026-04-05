@@ -1,32 +1,3 @@
-###  Публикация: 1693187   (122013) от 19.01.2024
-
-CobraKill - Serpent’s Kiss (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Above The Law (3:53)
-02. Bazooka (3:53)
-03. Concrete Jungle (4:18)
-04. Razor Blade (3:45)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:47:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED5BF23CF9E1E5A5C4EE581AD8512F5E3E806C2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693069   (122007) от 19.01.2024
 
 Revolution Saints - Against The Winds (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard 'n' Heavy>
@@ -35,7 +6,7 @@ Revolution Saints - Against The Winds (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122007.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Dred Buffalo - The Dark Age (2022) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122003.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Good Mood Music Academy - Sunny Winter Jazz Instrumental December Good Mood and 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121994.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Dred Buffalo - Dred Buffalo (2020) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121983.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Hollywood Undead - Studio Albums (9 releases) (2008-2022) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121872.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Rosalba Piccinni - Rosa che s'inchina (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121833.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Saxon - Дискография (33 releases) (1979-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121761.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121708.jpg" />
 </div>
 
 
@@ -266,7 +237,7 @@ Balint Gyemant (Bálint Gyémánt) - Vortex Of Silence (2024) [FLAC 24/48|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121688.jpg" />
 </div>
 
 
@@ -295,7 +266,7 @@ Caitlyn Smith - I Think of You (The Heartache Collection) (2024) [FLAC 24/44.1, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121685.jpg" />
 </div>
 
 
@@ -324,7 +295,7 @@ Circus Maximus - Studio Albums (5 releases) (2005-2019) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121681.jpg" />
 </div>
 
 
@@ -353,7 +324,7 @@ Kari Antila - Dahill Road (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contempo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121666.jpg" />
 </div>
 
 
@@ -382,7 +353,7 @@ Collapse 7 - Studio Albums (4 releases) (2004-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121583.jpg" />
 </div>
 
 
@@ -411,7 +382,7 @@ Immorium - Studio Albums (3 releases) (2015-2024) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121581.jpg" />
 </div>
 
 
@@ -439,7 +410,7 @@ Neil Young - Neil Young Archives Vol. III 1976 - 1987 (2025) Box Set [FLAC 24/19
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121517.jpg" />
 </div>
 
 
@@ -468,7 +439,7 @@ Jeremy Renner - Love and Titanium (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121497.jpg" />
 </div>
 
 
@@ -497,7 +468,7 @@ Evan Nicole Bell - Runaway Girl (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121495.jpg" />
 </div>
 
 
@@ -526,7 +497,7 @@ Background Music Masters, Instrumental Jazz Music Guys - Evening Revelry Harmoni
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121487.jpg" />
 </div>
 
 
@@ -555,7 +526,7 @@ L.A. Guns - The Dark Horse (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Glam-Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121479.jpg" />
 </div>
 
 
@@ -584,7 +555,7 @@ Stateside Red - Far From The Delta (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121470.jpg" />
 </div>
 
 
@@ -613,7 +584,7 @@ KJ Dale - Plays songs from Pioneers - End of time album (2024) [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121464.jpg" />
 </div>
 
 
@@ -642,7 +613,7 @@ Suncity Blues - Blues on my mind (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121457.jpg" />
 </div>
 
 
@@ -671,7 +642,7 @@ Polarnik - Протокол (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Post-Bla
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121450.jpg" />
 </div>
 
 
@@ -700,7 +671,7 @@ Fumo - Entropy (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121448.jpg" />
 </div>
 
 
@@ -729,7 +700,7 @@ Denny Newman - Reach Out - Music For Ruth Cape (2024) [FLAC 24/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121445.jpg" />
 </div>
 
 
@@ -743,6 +714,35 @@ Denny Newman - Reach Out - Music For Ruth Cape (2024) [FLAC 24/44.1|Lossless|WEB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3AD4C8ADF4CF00B30DDBB5B6B9754A0A60E5AB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693787   (121442) от 22.01.2024
+
+Michael Messer & Chaz Jankel - Mostly We Drive (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Runaway Train (4:22)
+02. Slow Down Billy (4:05)
+03. Mostly We Drive (5:23)
+04. It Doesn't Matter (4:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBBE6DBC54F3DE12E387FCFEFBFEAF6B4D51A761
 ```
 
 https://mybot314.ru/tekegram_catalog/

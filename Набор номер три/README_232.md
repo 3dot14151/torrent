@@ -1,3 +1,161 @@
+###  Публикация: 1396981   (741191) от 19.07.2020
+
+Экс-глава РАО признал в суде вину в хищении 762 миллионов рублей
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_741191.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший глава Российского авторского общества (РАО) Сергей Федотов полностью признал вину в мошенничестве на более чем 762 миллиона рублей, передает корреспондент РИА Новости из зала Пресненского суда Москвы.
+"Вину признаю, раскаиваюсь", - ответил Федотов на вопрос судьи. Он добавил, что просит рассмотреть дело в особом порядке, хотя и не сможет после оспорить (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396844   (741174) от 19.07.2020
+
+Появились изображения пользовательских терминалов Starlink и детали бета-теста спутникового интернета SpaceX
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_741174.jpg" />
+</div>
+
+
+###  Подробнее
+
+В процессе анализа кода сайта SpaceX Starlink удалось найти новые изображения спутниковых терминалов будущих пользователей компании. Речь идёт об антеннах, которые клиенты будут использовать для подключения к создаваемой на орбите Земли группировке интернет-спутников. Белое дискообразное устройство выглядит как «НЛО на палочке», как однажды описал генеральный директор (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396914   (741091) от 19.07.2020
+
+Microsoft® Windows® 7 Ultimate Ru x64 SP1 7DB by OVGorskiy® 07.2020
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741091.jpg" />
+</div>
+
+
+###  Подробнее
+
+64-х битная операционная система Windows® 7™ максимальная (x64) с интегрированными обновлениями, оформлением в темно-голубом стиле и стандартной ручной установкой на 1 DVD. Содержит удобное предзагрузочное меню для проверки компьютера.   Дополнительно в образ системы добавлена профессиональная редакция для установки на GPT диски.   Сборка предназначена для тех, кто предпочитает (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D32D90DD2FBB67CA58E6F75C3631E61903A3C9E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397314   (741086) от 19.07.2020
+
+Windows 10 2004 (x86/x64) 32in1 +/- Office 2019 by Eagle123 (07.2020) [Ru/En]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741086.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 v2004 19041.388, включающая в себя 8 русских и 8 английских редакций x86/x64, с обновлениями по 07.2020, дополнительными системными библиотеками (C++ Redistributable Package), с возможностью выбора опций установки и наличием MSDaRT. А также инсталляции Windows c уже предустановленным (или без - по выбору) Word, Excel, PowerPoint, Access, Publisher, Outlook (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7D3D6871BA21111174F85C6AB7079F9AB83FFEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282852   (740759) от 15.02.2019
+
+Очередное достижение: 4000 релизов от Telebalt!!!
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_740759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередное достижение: 4000 релизов от Telebalt!!!Друзья, рад сообщить о новом достижении нашего верного релизера Telebalt и поздравить его с 4000-м релизом!Насыщающий наш форум раздачами по домоводству, изданиями по радиоэлектронике и учебными пособиями, он пользуется заслуженным успехом и уважением широкой аудитории форума. Так давайте выразим ему нашу благодарность за его трудолюбие и упорный и ничем невознаграждаемый труд и пожелаем ему счастья, крепкого здоровья, а также новых релизов.От всей души поздравляем
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282449   (740673) от 15.02.2019
+
+Microsoft: Своевременные обновления Windows защищают только от 3% кибератак
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_740673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft недавно заявила, что повышенные риски безопасности и эксплуатации уязвимостей не являются главной причиной необходимости установки новых обновлений Windows 10Microsoft обычно не любит обсуждать концепцию принудительных обновлений Windows, потому что с момента релиза Windows 10 в июле 2015 года данная стратегия является предметом острой критики.Microsoft (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282810   (740659) от 15.02.2019
 
 В России предложили отменить плату за "коммуналку" и снизить цены на бензин
@@ -6,7 +164,7 @@
 >>9
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_740659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_740659.jpg" />
 </div>
 
 
@@ -33,7 +191,7 @@ Phantom Doctrine (2018) [Ru/Multi] (1.1/dlc) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740654.jpg" />
 </div>
 
 
@@ -59,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740653.jpg" />
 </div>
 
 
@@ -85,7 +243,7 @@ Heroes of Might and Magic 3: Legend of the Red Dragon / Герои Меча и �
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740652.jpg" />
 </div>
 
 
@@ -111,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740623.jpg" />
 </div>
 
 
@@ -137,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740619.jpg" />
 </div>
 
 
@@ -163,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>16
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740614.jpg" />
 </div>
 
 
@@ -191,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>51
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740607.jpg" />
 </div>
 
 
@@ -220,7 +378,7 @@ Facebook: если вы наш пользователь, ваши данные �
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_740579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_740579.jpg" />
 </div>
 
 
@@ -247,7 +405,7 @@ ESET Internet Security 11.1.42.0 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740537.jpg" />
 </div>
 
 
@@ -273,7 +431,7 @@ Cloudflare представила самый быстрый в мире DNS-се
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_740532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_740532.jpg" />
 </div>
 
 
@@ -300,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740522.jpg" />
 </div>
 
 
@@ -329,7 +487,7 @@ foobar2000 1.3.15 DarkOne + DUIFoon Portable by MC Web [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740487.jpg" />
 </div>
 
 
@@ -355,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740485.jpg" />
 </div>
 
 
@@ -381,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740483.jpg" />
 </div>
 
 
@@ -407,7 +565,7 @@ The Disney Afternoon Collection (2017) [Ru/Multi] (1.0) SteamRip Let'sPlay
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740481.jpg" />
 </div>
 
 
@@ -433,7 +591,7 @@ KMS Tools Portable 08.04.2017 by Ratiborus [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740478.jpg" />
 </div>
 
 
@@ -459,7 +617,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4498.1000
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740477.jpg" />
 </div>
 
 
@@ -485,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_740299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_740299.jpg" />
 </div>
 
 
@@ -511,7 +669,7 @@ Windows 10 Pro 2004 b19041.388 x64 ru by SanLex (edition 2020-07-20) [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740291.jpg" />
 </div>
 
 
@@ -522,162 +680,6 @@ Windows 10 Pro 2004 b19041.388 x64 ru by SanLex (edition 2020-07-20) [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82BFAE970EC142CC8392F499C4D6F7AF96D70219
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397279   (740290) от 20.07.2020
-
-Microsoft® Windows® 10 Professional VL x86-x64 2004 20H1 RU by OVGorskiy® 07.2020 2DVD
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740290.jpg" />
-</div>
-
-
-###  Подробнее
-
-сборка на основе оригинальных русских образов новейшей операционной системы Windows 10 Pro VL x86-x64 (20H1) от Microsoft с дополнительным материалом разных разрядностей (архитектуры) на 2-х разных DVD (x86 и x64). Установка полностью стандартная "вручную" с выбором параметров установки ОС. Интегрированы: программа для возврата в систему привычных нам кнопки (   Читать дальше...   )Язык интерфейса: Русский (Russian).
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3ADA2A26224F9AAEB3AB5FBCF379ADC65AEDDD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282936   (740019) от 16.02.2019
-
-Джеймс Кэмерон объявил название нового "Терминатора"
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_740019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джеймс Кэмерон анонсировал рабочее название нового фильма из серии "Терминатор". В беседе с корреспондентами Yahoo! Entertainment создатель знаменитой фантастической франшизы объявил, что картина называется "Терминатор: Мрачная судьба". "Сейчас мы имеем дело с таким заглавием", - сказал он.Станет ли это же название прокатным, продюсер (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 166679   (740008) от 16.02.2019
-
-Юрий Петухов | Звездная месть (эпопея) [1990-1995] [FB2]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740008.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роман “Звездная Месть” – грандиозное эпическое полотно (полный текст 2500 стр., общ. тир. свыше 10 млн.). События разворачиваются в ХХУ-ХХХ веках. Вместе с апогеем развития цивилизации наступает апогей её вырождения. Могущество Земной Цивилизации неизмеримо. Степень её духовной деградации ещё выше. Сверхкрутой сюжет, нетрадиционные повороты событий, десятки измерений, (   Читать дальше...   )Жанр: ФантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96C413BF35E06C19351ACDB44FD2379FEA02EBB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283115   (740006) от 16.02.2019
-
-Ace Combat 7: Skies Unknown (2019) [Ru/Multi] (1.0.1) License CPY
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740006.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вам выпал шанс сесть за штурвал самых продвинутых военных самолетов и оказаться в эпицентре яростных воздушных сражений. Ace Combat 7: Skies Unknown – это фотореалистичная графика, высший пилотаж, невероятные современные и футуристические истребители, захватывающий сюжет и даже виртуальная реальность!Тип издания: LicenseРазработчик: BANDAI NAMCO StudiosЖанр: Action, SimulatorЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B509AC451136800C27E2BC6AC1525872F73AA24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283122   (740005) от 16.02.2019
-
-KMS Tools Portable 15.02.2019 by Ratiborus [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740005.jpg" />
-</div>
-
-
-###  Подробнее
-
-KMS Tools — сборник программ от Ratiborus в одной оболочке, выбираем нужную и сразу можно пользоваться, никакой установки, все полностью портативно. К каждой программе прилагается описание на русском языке. Если есть вопросы по программе, не знаете зачем она нужна, нажимаем справа на вопросик и видим значки рядом с названиями ПО, нажимаем на них и получаем полную (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37B215ECDDF97AF6D2BAF922FBFBA0260C26FC55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 777278   (739965) от 08.05.2014
-
-The Foundry Nuke/NukeX 8.0 v4 [En]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739965.jpg" />
-</div>
-
-
-###  Подробнее
-
-Высокоуровневый программный продукт для композитинга и спецэффектов, созданный художниками для решения задач, возникающих в ходе процесса киновидеопроизводства. Программа применяется при обработке, наложении эффектов, финальной сборке и прочего отснятого видео и кино-материала, при создании рекламных роликов, а также для других задач. Продукт является явным представителем (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:242F85312019F82ED9857A0D95F01536ED159C5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

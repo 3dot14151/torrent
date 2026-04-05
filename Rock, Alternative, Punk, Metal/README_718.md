@@ -1,3 +1,32 @@
+###  Публикация: 1180093   (341736) от 03.11.2017
+
+Deep Purple - A Fire in the Sky (2017) 3CD [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341736.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Hell to Pay
+02. Vincent Price
+03. Wrong Man(   Читать дальше...   )Жанр: Hard RockПродолжительность: 03:20:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95BF73DF40E0B1B0507C1D61E712CD1CDB7AE0AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 600130   (341686) от 07.11.2015
 
 ТонкаяКраснаяНить (Тонкая Красная Нить) - 2 альбома (2009-2011) [FLAC|Lossless] <MetalCore, Alternative>
@@ -6,7 +35,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341686.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341676.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341545.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Less Than Jake - Pezcore (1995) 2008, Reissue [FLAC|Lossless|tracks + .cue] <Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341442.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Elbow - Giants of All Sizes (2019) [FLAC|Lossless|tracks] <Britpop, Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341393.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Abney Park - Under The Floor, Over The Wall (2016) [FLAC|Lossless|tracks + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341337.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Ensiferum - Two Paths (2017) [FLAC|Lossless|tracks + .cue] <Folk Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341336.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Axxis - Monster Hero (2018) [FLAC|Lossless|image + .cue] <Melodic Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341333.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Cavem3n - A Prehistoric Anthology (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341227.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Bloated Pig - 6 (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341226.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Stratovarius - Fourth Dimension (1995) Remastered, 1995, T&T [OGG Vorbis|484 Kbp
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341225.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Beside - Almighty God (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341224.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Stratovarius - Intermission (2001) [OGG Vorbis|484 Kbps] <Rock, Prog Rock, Heavy
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341223.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Bloodbath - Survival of the Sickest (2022) [FLAC|Lossless|WEB-DL|tracks] <Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341222.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Art of Attrition - The Void Eternal (2022) [FLAC|Lossless|WEB-DL|tracks] <Sympho
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341221.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Become the Watcher - Trauma (2022) [FLAC|Lossless|WEB-DL|tracks] <Slamming Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341220.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Black Angel - 5 Albums (2019-2022) [MP3|320 Kbps] <Gothic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341219.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Squared - Strange Affairs (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341217.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Blackbraid - Blackbraid I (2022) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341216.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Megadeth - Th1rt3en (2011) Official Russian Edition [FLAC|Lossless|tracks + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341213.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Limbonic Art - Spectre Abysm (2017) [FLAC|Lossless|tracks + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341208.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Fatal Vision - Once (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341094.jpg" />
 </div>
 
 
@@ -645,7 +674,7 @@ Liar - Sunset Plaza Drive (2020) [FLAC|Lossless|image + .cue] <Hard Rock, Classi
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341093.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ Band Of Spice - How We Play The Game (2022) [FLAC|Lossless|WEB-DL|tracks] <Stone
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341091.jpg" />
 </div>
 
 
@@ -703,7 +732,7 @@ Lastworld - Escape The Eclipse (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341090.jpg" />
 </div>
 
 
@@ -717,35 +746,6 @@ Lastworld - Escape The Eclipse (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86C688036B5805458AC6C33B91682629434377BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578773   (341083) от 25.09.2022
-
-Purpendicular & Ian Paice - Human Mechanic (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Nothing Box [00:04:59]
-02. Ghost [00:05:58]
-03. No One's Getting Out Alive [00:03:41]
-04. Something Magical [00:03:57](   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:46:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B165A16DFB7022713AC4F629CDCB3E170231E8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

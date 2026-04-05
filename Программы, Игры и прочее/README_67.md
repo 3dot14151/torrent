@@ -1,3 +1,108 @@
+###  Публикация: 1313731   (522121) от 11.07.2019
+
+Mighty Final Fight 1.1.0 [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит в вымышленном городе Metro City (Метро Сити), который много лет имеет репутацию криминальной столицы. Джессика, дочь мэра города, похищена бандой «Mad Gear». О происшедшем узнаёт ее отец — Майк Хаггар. Сам Хаггар — бывший профессиональный реслер, поэтому решает вызволить дочь из плена своими силами. Помочь Хаггару вызвались Коди Трэверс — парень (   Читать дальше...   )Тип издания: НеофициальныйРелиз состоялся: 05.03.2016Разработчик: MKLIUKANG1Поддерживаемая ОС: Android 2.3 и вышеЖанр: Arcade, Fighting, Beat em upЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE282B45A49AFC6A3F9A9B4E9562E1A8D4B36384
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169227   (518954) от 14.07.2019
+
+Perfectly Clear v4.3.7 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Perfectly Clear позволяет создать идеальную фотографию без лишних хлопот.
+В мире великое множество фотоприложений. Но большинство из них слишком долго и трудно использовать, а некоторые из них даже делают фотографию хуже. Perfectly Clear — это необычный редактор. Он объединил все самые мощные инструменты для редактирования фотографий в едином удобном пакете, который (   Читать дальше...   )Тип издания: Пиратка (разблокирован Premium)Релиз состоялся: 01.11.2018Разработчик: AthentechПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28F2BCCF3249ED77B6A72CE9EFB6BC8184B6C806
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1561025   (517658) от 02.07.2022
+
+Garmin: TOPO Alaska Enhanced v.2.0 [En]
+
+>>Программы, Игры и прочее
+>>Карты для навигационного ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517658.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подробные топографические карты в масштабе 1:24 000 и 1:100 000, для вашего следующего похода или кемпинга на Аляске. В этом продукте представлены тропы, контуры местности, высоты, вершины, парки, реки, озера, географические точки и проложенные дороги.Тип издания: карты разблокированыРелиз состоялся: март 2011Разработчик: Here / GarminПоддерживаемая ОС: GarminЯзык интерфейса: английскийФормат: .IMG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0F75169EBAB505C05CB5A785E51F751C2A229A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1561051   (517602) от 02.07.2022
+
+vRGB - LED ИК Пульт Управления v4.5 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517602.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простое-но-многофункциональное приложение для управления инфракрасными (ИК) световыми приборами, такими как RGB ленты и беспроводные LED лампы. Благодаря простому пользовательскому интерфейсу, Вам остается лишь выбрать внешне похожий пульт, и начать пользоваться!Тип издания: Пиратка (Full)Релиз состоялся: 9 апр. 2022 г.Разработчик: VINALEX EntertainmentПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DA49B7F6752942D89A5C006F719012102BEEA2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1561026   (517601) от 02.07.2022
 
 Garmin: TOPO Stan Countries v4 Ligh [En]
@@ -6,7 +111,7 @@ Garmin: TOPO Stan Countries v4 Ligh [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517601.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ Rain Alarm Plus / Дождевая сигнализация плюс - Все ф
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517600.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ SMD info v1.34 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517590.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ Electronics Calculator Pro v1.6.2 [En] - различные утилиты дл�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516986.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ PickU - Редактор фотографий 3.6.6 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516658.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ Momo Music Player 1.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516643.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ Supershift - График смен v2022.4 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516599.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516597.jpg" />
 </div>
 
 
@@ -214,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515710.jpg" />
 </div>
 
 
@@ -240,7 +345,7 @@ Video Converter, Compressor 0.9.4 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515581.jpg" />
 </div>
 
 
@@ -266,7 +371,7 @@ Pixlr Pro 3.4.63 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515524.jpg" />
 </div>
 
 
@@ -292,7 +397,7 @@ JAVAD Mobile Tools v4.4.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513527.jpg" />
 </div>
 
 
@@ -319,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513520.jpg" />
 </div>
 
 
@@ -345,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513459.jpg" />
 </div>
 
 
@@ -371,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512574.jpg" />
 </div>
 
 
@@ -400,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512572.jpg" />
 </div>
 
 
@@ -429,7 +534,7 @@ Shuttle+ Music Player 2.0.17 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512408.jpg" />
 </div>
 
 
@@ -455,7 +560,7 @@ MarineTraffic v4.0.31 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512406.jpg" />
 </div>
 
 
@@ -482,7 +587,7 @@ KReader PRO v3.4.3 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512368.jpg" />
 </div>
 
 
@@ -509,7 +614,7 @@ BlackPlayer Music Player / BlackPlayer EX 20.61 Mod by Balatan, CMAPTOC [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512357.jpg" />
 </div>
 
 
@@ -535,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512352.jpg" />
 </div>
 
 
@@ -561,7 +666,7 @@ Night Slashers X Remake 1.2.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511728.jpg" />
 </div>
 
 
@@ -573,110 +678,6 @@ Night Slashers X – Ремейк кровавой игрушки в жанре 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C08B8CE1771426F7A4E191F79BF90665DB323F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931361   (511552) от 26.08.2015
-
-Петька и ВИЧ 2: Судный день v1.0 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511552.jpg" />
-</div>
-
-
-###  Подробнее
-
-Петька и ВИЧ 2: Судный день - шел 1917 год. Раненый  и утомленный командир Чапаев пытается с трудом перебраться через реку Урал, в то время как пуля настигает его почти в конце реки. Ну вот и все кажется, спасения уже нету. Но внезапно откуда-то появляется странный луч из космоса и доставляет Василия Ивановича на корабль инопланетян. После невероятных опытов, тело (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 19 августа 2015 г.Разработчик: BUKA DevelopmentПоддерживаемая ОС: Android 2.3.3+Жанр: Приключения/ГоловоломкиЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F8C3735BBA0475A6286A4B0EB6DCB3B49846C8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562290   (511480) от 08.07.2022
-
-Flat Equalizer - Bass Booster 4.2.8 Mod by derrin [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Flat Equalizer - Bass Booster - это приложение для улучшения звука вашего Android устройства с 10-и полосным эквалайзером. Flat Equalizer - Bass Booster позволяет Вам настроить уровни звуковых эффектов и амплитудно-частотную характеристику выходного сигнала для лучшего звучания Вашего устройства. Так же есть дополнительные эффекты - Усиление басов для подчеркивания (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 19.06.2022Разработчик: jAppПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3680978A009BED3B5508EC89886DFAD1B85C884
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562351   (511454) от 08.07.2022
-
-Weather Radar Live Tracker PRO v1.0 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511454.jpg" />
-</div>
-
-
-###  Подробнее
-
-Получите мощную и простую в использовании метеорологическую радиолокационную станцию ​​прямо на вашем смартфоне! Нужны ли вам радиолокационные карты, предупреждения о погоде, отслеживание штормов или просто проверка прогноза погоды. Приложение Weather Radar Live Tracker PRO - это полная версия Weather Radar для просмотра и мониторинга погоды в реальном (   Читать дальше...   )Тип издания: Paid (Куплено в Google Play)Релиз состоялся: 08.07.2022Разработчик: Grillar TechПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C84E5766D5AD978C40330E84EEAF1B4AE320C65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562129   (511446) от 08.07.2022
-
-Pulsar Music Player Pro 1.11.1 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511446.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pulsar - прекрасный представитель своего класса: достаточно легкий, чтобы не быть обузой смартфону и при этом достаточно функциональный, чтобы радовать своего пользователя. Предусмотрена систематизация фонотеки по массе параметров (жанр, исполнитель, альбом и т.д.), имеется встроенный эквалайзер, усилитель басов. Предусмотрены поиск по различным параметрам, автозагрузка (   Читать дальше...   )Тип издания: Pro (Unlocked)Релиз состоялся: 05.07.22Разработчик: Rhythm SoftwareПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04140814C9B5C9E0D323784E3104B0E1DA5CC51C
 ```
 
 https://mybot314.ru/tekegram_catalog/

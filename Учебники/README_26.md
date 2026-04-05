@@ -1,3 +1,57 @@
+###  Публикация: 1274586   (792963) от 07.01.2019
+
+А.А. Трухан, Т.В. Огородникова | Обыкновенные дифференциальные уравнения и методы их решения. Ряды. Элементы вариационного исчисления (2019) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие содержит подробное изложение основных вопросов курсов «Обыкновенные дифференциальные уравнения», «Операционное исчисление», «Ряды» и «Вариационное исчисление», соответствующее требованиям к минимуму основной обязательной программы по подготовке дипломированных специалистов.
+Рассматриваются методы решения дифференциальных уравнений (ДУ) первого и второго (   Читать дальше...   )Жанр: МатематикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34B02C1F01BADC0DCABFF1307F82F2C684EE0706
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274485   (792956) от 07.01.2019
+
+А.В. Строгонов | Цифровая обработка сигналов в базисе программируемых логических интегральных схем (2018) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792956.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии рассматривается проектирование устройств цифровой обработки сигналов для реализации в базисе ПЛИС. Даются практические примеры проектирования цифровых фильтров с использованием высокоуровневого языка описания аппаратурных средств VHDL и мегафункций в САПР ПЛИС Altera Quartus II и Xilinx ISE Design Suite.
+Издание соответствует требованиям Федерального (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:226DE9FAFC5E87EBFDA684FCA5511DC13CDEDDC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201305   (792769) от 24.01.2018
 
 И.Е. Иродов | Волновые процессы. Основные законы (2015) [PDF]
@@ -6,7 +60,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792769.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792766.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792748.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792722.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792679.jpg" />
 </div>
 
 
@@ -139,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792181.jpg" />
 </div>
 
 
@@ -165,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791963.jpg" />
 </div>
 
 
@@ -191,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789920.jpg" />
 </div>
 
 
@@ -217,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789879.jpg" />
 </div>
 
 
@@ -243,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789852.jpg" />
 </div>
 
 
@@ -269,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789846.jpg" />
 </div>
 
 
@@ -295,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789703.jpg" />
 </div>
 
 
@@ -321,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789205.jpg" />
 </div>
 
 
@@ -347,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788777.jpg" />
 </div>
 
 
@@ -374,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788636.jpg" />
 </div>
 
 
@@ -400,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788628.jpg" />
 </div>
 
 
@@ -426,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788605.jpg" />
 </div>
 
 
@@ -452,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788572.jpg" />
 </div>
 
 
@@ -478,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788554.jpg" />
 </div>
 
 
@@ -504,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788553.jpg" />
 </div>
 
 
@@ -530,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788552.jpg" />
 </div>
 
 
@@ -558,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788147.jpg" />
 </div>
 
 
@@ -584,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787691.jpg" />
 </div>
 
 
@@ -610,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787607.jpg" />
 </div>
 
 
@@ -622,59 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7775EB3009E3BA06030D4C82E192B5EE151A48A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203732   (787573) от 03.02.2018
-
-Г.В. Куликов | Бытовая аудиоаппаратура. Ремонт и обслуживание (2017) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787573.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге излагаются принципы построения основных функциональных узлов современной бытовой аудиоаппаратуры отечественного и зарубежного производства: тюнеров, магнитофонов, проигрывателей компакт-дисков, низкочастотных трактов, систем управления и источников питания.
-Рассматриваются основные параметры, характеризующие качество функционирования бытовой аудиоаппаратуры, (   Читать дальше...   )Жанр: АудиотехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB45971D0709C5B53F1670E565F7149EE0B850C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512441   (787357) от 24.11.2021
-
-Ю.М. Баженов и др. | Системный анализ в строительном материаловедении (2012) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787357.jpg" />
-</div>
-
-
-###  Подробнее
-
-С позиций системного анализа рассмотрены методы и алгоритмы структурно-параметрического систеза, идентификации и управления в сложных системах. Предложены методы оптимизации, основанные на скаляризации глобального критерия и построении множеств Парето. Применительно к синтезу строительных композиционных материалов функционального назначения сформулированы принципы (   Читать дальше...   )Жанр: СтроительствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCA0001A84AE664411706555D433763361AF0556
 ```
 
 https://mybot314.ru/tekegram_catalog/

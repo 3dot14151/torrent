@@ -1,3 +1,29 @@
+###  Публикация: 1780667   (27128) от 19.02.2025
+
+Кирилл Поздняков | Продвинутый backend на nodejs за 12 часов (2024) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27128.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе мы пройдемся по темам Nodejs в углубленном формате. Курс рассчитан на разработчиков разного уровня. Тут вы рассмотрите продвинутые темы и полный спектр возможностей языка на продвинутом уровне.Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 08:06:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ADC26EB74F82DBF1173C35E17B3B795D49840C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780621   (27126) от 19.02.2025
 
 Кирилл Поздняков | Продвинутый курс по Фронту (2024) WEB-DL [RU]
@@ -6,7 +32,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27126.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ Systems.Education, Babok School, Анна Вичугова | Паттерны п
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27122.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ JUG Ru Group | SmartData 2024. Конференция по инженерии д
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27117.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Deworker Pro, Дмитрий Елисеев | Идеи разделения на
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27103.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27101.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27080.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ JUG Ru Group | Flow 2024 Autumn. Конференция по системном�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27077.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27073.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ PurpleSchool, Антон Ларичев | Основы тестирования 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27072.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ Udemy, Knowledge Hub | Adobe Illustrator 2025 Top Gear Master Course; Basic To P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27045.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ Udemy, Cipher Schools | Game Development for Beginners using Unity and C# (2025)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27041.jpg" />
 </div>
 
 
@@ -302,7 +328,7 @@ Udemy, Intellezy Trainers | Adobe Premiere Pro Essentials - Beginner (2025) WEB-
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27039.jpg" />
 </div>
 
 
@@ -330,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27027.jpg" />
 </div>
 
 
@@ -358,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27008.jpg" />
 </div>
 
 
@@ -387,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26997.jpg" />
 </div>
 
 
@@ -413,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26980.jpg" />
 </div>
 
 
@@ -442,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26972.jpg" />
 </div>
 
 
@@ -471,7 +497,7 @@ Udemy, Leszek Pyrka | Master Camera movements in Blender - Create Awesome Videos
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26945.jpg" />
 </div>
 
 
@@ -499,7 +525,7 @@ Udemy, Krishan pathirana | Learn D5 Render Advance 2025 (2025) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26917.jpg" />
 </div>
 
 
@@ -525,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26914.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ ProfIT | Ликбез будущего программиста (2018) PCRec [H.
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26857.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Pluralsight | Penetration Testing in Action / Тестирование на пр
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26856.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26782.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26774.jpg" />
 </div>
 
 
@@ -661,7 +687,7 @@ SmartMe University | Разработка API с Node.js (2015) PCRec [H.264/720
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26756.jpg" />
 </div>
 
 
@@ -672,32 +698,6 @@ SmartMe University | Разработка API с Node.js (2015) PCRec [H.264/720
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB9757B8199D589E1835B29B2E24773B1224B606
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 827014   (26755) от 23.02.2025
-
-Seelentera | Ajax vs Node.JS (2014) PCRec [H.264/720p-LQ]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26755.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс Ajax vs Node.JS от учебного центра Seelentera Курс Ajax vs Node.JS научит вас создавать свой собственный чат, используя jQuery Ajax и Node.JS.Жанр: Обучающее видеоЯзык: РусскийПродолжительность: 01.34.41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEB955EAD403A6994E5FC4410CA11406A7777ABD
 ```
 
 https://mybot314.ru/tekegram_catalog/

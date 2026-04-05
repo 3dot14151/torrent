@@ -1,3 +1,160 @@
+###  Публикация: 1365893   (926605) от 09.03.2020
+
+OTUS | Linux для начинающих (2019) PCRec [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926605.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс рассчитан для программистов и администраторов, которые хотят освоить ОС Linux с нуля.Производство: Андрей БурановЖанр: Программирование, LinuxПродолжительность: 07:38:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B47D04D84C11C3AB726682455EF7D36AD564E03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913289   (926604) от 09.03.2020
+
+A Soul of Fallen Worlds - Ruined America (2020) [Ru] (3.0.9) Mod Falcon-Lair Team
+
+>>3
+>>16
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926604.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fallout A Soul of Fallen World - Ruined America + Addons является самой крупной и самой стабильной русскоязычной официальной сборкой от команды Falcon-Lair Team, добавляющий коллосальное количество контента (около 90 гигабайт), сотни новых квестов, сотни новых земель, тысячи новых локаций, тысячи новых предметов, оружия и брони, новые геймплейные особенности, расстягивающие (   Читать дальше...   )Тип издания: ModРазработчик: Obsidian EntertainmentЖанр: RPG, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AB4134A7C490B074BB29E990F0A819E35E76BE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488976   (926542) от 15.08.2021
+
+Атака Netflix на VPN оставила без фильмов легальных пользователей по всему миру
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926542.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американский Netflix в своей борьбе против VPN-сервисов, помогающих обходить региональные ограничения, дошел до блокировки домашних IP-адресов. В результате, по некоторым данным, пострадали сотни тысяч добропорядочных пользователей интернет-кинотеатра, которые исправно оплачивают его услуги. Теперь они вынуждены довольствоваться оригинальным контентом Netflix или (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489280   (926523) от 15.08.2021
+
+Хороший Джо Белл / Good Joe Bell / Joe Bell (2020) WEB-DLRip [DVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926523.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джейдин Белл совершил самоубийство из-за травли, которой подвергался лично и в интернете из-за своей сексуальной ориентации. После смерти Джейдина его отец Джо Белл решил совершить пеший переход через всю континентальную часть США, чтобы привлечь внимание общества к систематическим издевательствам и преследованиям ЛГБТ-подростков.Производство: США, Argent Pictures, Closest to the Hole Productions, Endeavor ContentЖанр: Драма, биографияРежиссер: Рейнальдо Маркус ГринАктеры: Марк Уолберг, Рейд Миллер, Конни Бриттон, Макс Дженкинс, Гэри Синиз, Морган Лили, Блейн Майе, Игби Ригни, Корал Чэмберс, Скаут СмитПеревод: Двуголосый любительский (Pazl Voice // thx. KinoPub)Субтитры: отсутствуютПродолжительность: 01:33:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B4A24466A8F8A4B42CAB334B98A7E8E5C9190C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489036   (926511) от 15.08.2021
+
+Безумное кино для взрослых (Неудачный трах, или Безумное порно) / Babardeala cu bucluc sau porno balamuc (Bad Luck Banging or Loony Porn) (2021) WEBRip [H.264/1080p-LQ] [VO] [PR]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эми — школьная учительница, чья карьера и репутация оказываются под угрозой, когда в интернет попадает интимное видео с ее участием. Возмущенные до глубины души родители требуют ее немедленного увольнения. Но Эми не собирается так легко сдаваться.Производство: Румыния, Люксембург, Чехия, Хорватия, Швейцария, Великобритания / Bord Cadre Films, Endorfilm, Kinorama, Microfilm, KinoramaЖанр: Драма, КомедияРежиссер: Раду ЖудеАктеры: Катя Паскарю, Клаудия Иеремия, Олимпия Малаи, Никодим Унгуряну, Александру Поточан, Анди Васлуяну, Габриел Спахиу, Кристина ЧепрагаПеревод: Одноголосый любительский (porcellus)Субтитры: Русские, Английские
+Внимание! Присутствуют откровенные сексуальные сцены 18+ и ненормативная лексика!Продолжительность: 01:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C868FA4E6BBDD77E4899364695AA43BDFC53B19D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 863024   (926502) от 25.01.2015
+
+Ёлки 1914 (2014) BDRip [1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: Россия / Базелевс ПродакшнЖанр: Комедия, Семейный, ДрамаРежиссер: Ольга Харина, Тимур Бекмамбетов, Заур ЗасеевАктеры: Константин Хабенский, Иван Ургант, Сергей Светлаков, Евгения Брик, Нина Дворжецкая, Ирина Архипова, Альберт Филозов, Елена Плаксина, Антон Богданов, Ян ЦапникПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:47:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9326824C76FD317984CD9B888443C3372A7F9F31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 287204   (926481) от 26.01.2011
 
 Турист / The Tourist (2010) DVD5
@@ -6,7 +163,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_926481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_926481.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926476.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_926471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_926471.jpg" />
 </div>
 
 
@@ -84,7 +241,7 @@ League of Legends: Clash of Fates / Лига Легенд (ENG) 2009
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_926079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_926079.jpg" />
 </div>
 
 
@@ -112,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926074.jpg" />
 </div>
 
 
@@ -138,7 +295,7 @@ City Navigator Russia NT 2013.40 [Карта] (Garmin)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926039.jpg" />
 </div>
 
 
@@ -166,7 +323,7 @@ Sword Art Online -Infinity Moment- [PSP] [JPN] (2013)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_926034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_926034.jpg" />
 </div>
 
 
@@ -192,7 +349,7 @@ Dead Space 3 (2013) [Ru/En] (1.0.0.1/3dlc) Repack R.G. Revenants [Limited Editio
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926029.jpg" />
 </div>
 
 
@@ -218,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925707.jpg" />
 </div>
 
 
@@ -244,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925647.jpg" />
 </div>
 
 
@@ -270,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925589.jpg" />
 </div>
 
 
@@ -296,7 +453,7 @@ TimeShift (2007) [Ru] (1.02) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925585.jpg" />
 </div>
 
 
@@ -322,7 +479,7 @@ Apple Final Cut Pro X 10.3.2, Motion 5.3.1 & Compressor 4.3.1 [Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925576.jpg" />
 </div>
 
 
@@ -351,7 +508,7 @@ Boom 2 v1.4.1 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925519.jpg" />
 </div>
 
 
@@ -378,7 +535,7 @@ Corel VideoStudio Ultimate X9 19.1.0.12 [Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925508.jpg" />
 </div>
 
 
@@ -404,7 +561,7 @@ Grass Valley EDIUS Pro 8.10.188 [En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925487.jpg" />
 </div>
 
 
@@ -430,7 +587,7 @@ Layers of Fear (2016) [Ru/Multi] (5.1.3.48304) License RELOADED
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925483.jpg" />
 </div>
 
 
@@ -456,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925480.jpg" />
 </div>
 
 
@@ -482,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925479.jpg" />
 </div>
 
 
@@ -508,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925478.jpg" />
 </div>
 
 
@@ -519,162 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:291BC7C25D6F30D4C834B385B19ED6FB7BEBB890
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987621   (925476) от 17.02.2016
-
-Navitel / Навител Навигатор v9.6.2131 Full и другие  [Ru/Multi] - только программа навигации
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925476.jpg" />
-</div>
-
-
-###  Подробнее
-
-Навигационная программа Навител отображает текущее местоположение пользователя на карте и способна с помощью отображения маневра на экране навигатора и голосом подсказать водителю, когда и куда необходимо повернуть на автоматически проложенном маршруте для скорейшего прибытия в необходимое место. Также Навител может предсказать время прибытия в точку назначения, (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 16.02.2016Разработчик: NAVITEL ®Поддерживаемая ОС: Android 2.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30B0A4E318AEB5E84ACD2516787B94E435017F5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986894   (925475) от 17.02.2016
-
-Adobe Master Collection CC 2015 RUS/ENG Update 3
-
->>3
->>24
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925475.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как, надеюсь, вам известно, пакета Adobe Master Collection CC 2015 в природе не существует, компания Adobe его никогда не выпускала. Но, тем не менее, он перед вами! Я очень постарался, чтобы этот пакет появился на свет. Он представляет из себя сборник программ линейки Creative Cloud 2015, объединенный единым инсталлером. Выглядит все очень похоже на старый добрый (   Читать дальше...   )Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46E2D5230F5E7B5031615338ED7A3084C28F368A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 819128   (925474) от 17.02.2016
-
-Pillars Of Eternity (2015) [Ru/Multi] (3.00.967 PX1 PX2/dlc) SteamRip Let'sPlay [Champion Edition]
-
->>3
->>14
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925474.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pillars of Eternity – ролевая игра с изометрическим видом, действия которой развиваются в фэнтезийном мире. В проекте представлена тактическая боевая система, позволяющая в любой момент остановить действие и раздать приказы герою и его компаньонам. Карта мира содержит множество уникальных локаций и дополнительных зон с разнообразными квестами. Диалоговая система (   Читать дальше...   )Тип издания: SteamRipРазработчик: Obsidian EntertainmentЖанр: RPG, IsometricЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1257D5C02FAE26EBFCFAAB15D54CB30CA39700A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095119   (925470) от 20.01.2017
-
-Adobe After Effects CC 2017.1 14.1.0.57 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925470.jpg" />
-</div>
-
-
-###  Подробнее
-
-After Effects CC — это ведущая в отрасли программа для создания и компоновки анимированной графики, которую используют многие разработчики визуальных эффектов и анимированной графики. Она предлагает великолепные функции управления, широкий выбор инструментов для творчества, а также возможность интеграции с другими приложениями для постобработки видеоматериалов. Сделайте (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44CB9A5D3ED3D884F5872CA97EB6672EA7951B7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095112   (925462) от 20.01.2017
-
-Adobe Audition CC 2017.0.2 10.0.2.27 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для работы с аудио-данными Adobe Audition представляет собой профессиональный инструмент для специалистов, которые работают в сфере обработки аудио и видеопродукции, предлагая им практически неограниченные возможности. Простота использования прекрасно сочетается с гибкостью работы, позволяя создавать мастер-копии высочайшего класса, редактировать, микшировать, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68A0A0E6935B48270A09D499317BB8395CA9779F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095390   (925449) от 20.01.2017
-
-Arcanum: Of Steamworks and Magick Obscura (2001) [Ru/En] (1.3.0.x) Repack/Mod Multiverse Team [Arcanum Multiverse Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925449.jpg" />
-</div>
-
-
-###  Подробнее
-
-Arcanum: Of Steamworks and Magick Obscura - классическая ролевая игра от разработчиков первых двух игр в линейке Fallout. В основу игры ложится история, разворачивающаяся вокруг выжившего в трагедии дирижабля «Зефир», которому предстоит найти свою роль в мире увядающей магии и технологического прогресса. Насколько сильно он повлияет на события в мире Арканума, на (   Читать дальше...   )Тип издания: Глобальная модификацияРазработчик: Troika GamesЖанр: RPG, IsometricЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44E148C047D7FD7A8AD54E94893C5AF37E6D8E72
 ```
 
 https://mybot314.ru/tekegram_catalog/

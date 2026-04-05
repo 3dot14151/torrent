@@ -1,29 +1,3 @@
-###  Публикация: 247894   (419157) от 20.10.2010
-
-Alan Parsons Project - The Turn of a Friendly Card [DTS CD from DVD-Audio) (1980) <Art Rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_419157.jpg" />
-</div>
-
-
-###  Подробнее
-
-1  May Be A Price To PayЖанр: Art RockПродолжительность: 00:41:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1324794   (418846) от 12.09.2019
 
 Wanda Jackson & Karel Zich - Let's Have A Party In Prague (1988) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Rock & Roll>
@@ -32,7 +6,7 @@ Wanda Jackson & Karel Zich - Let's Have A Party In Prague (1988) [FLAC 2.0|96/24
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418846.jpg" />
 </div>
 
 
@@ -61,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418629.jpg" />
 </div>
 
 
@@ -90,7 +64,7 @@ Peter White - Glow (2001) [DTS 5.1 44.1/16 | .wav+.cue (SACD)] <Smooth Jazz, Gui
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418411.jpg" />
 </div>
 
 
@@ -116,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416484.jpg" />
 </div>
 
 
@@ -145,7 +119,7 @@ The Rolling Stones - Emotional Rescue (1980) [FLAC 2.0|192/24|image + .cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416172.jpg" />
 </div>
 
 
@@ -174,7 +148,7 @@ Chimaira - Studio Albums (1999 - 2013) hand made [restored, declipped] [FLAC 2.0
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414623.jpg" />
 </div>
 
 
@@ -203,7 +177,7 @@ T.Rex - Electric Warrior (1971) 2020 [DSD 128|tracks|Vinyl-Rip] <Glam Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413465.jpg" />
 </div>
 
 
@@ -232,7 +206,7 @@ The Jimi Hendrix Experience - Are You Experienced (1967) 2020 [DSD64 2.0|1bit/28
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412209.jpg" />
 </div>
 
 
@@ -261,7 +235,7 @@ The Beatles - Вкус мёда (1986) WavPack|192/32|tracks|Vinyl-Rip] <Beat, R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409401.jpg" />
 </div>
 
 
@@ -290,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408054.jpg" />
 </div>
 
 
@@ -319,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407914.jpg" />
 </div>
 
 
@@ -348,7 +322,7 @@ Freddie Mercury & Montserrat Caballe - Barcelona (1988) VinylRip 24 bit/96 kHz [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407625.jpg" />
 </div>
 
 
@@ -374,7 +348,7 @@ Breaking Benjamin - Studio Albums (8 releases) (2002 - 2020)  hand made [restore
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407383.jpg" />
 </div>
 
 
@@ -403,7 +377,7 @@ VA - Best Hit Of Japan (Shungo Sawada/Akira Fukuhara Quintet) (19??) [FLAC 2.0|4
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407367.jpg" />
 </div>
 
 
@@ -432,7 +406,7 @@ Fourplay - Energy (2008) [DSD 2.0/5.1 1bit/2822,4kHz |SACD-R]<Smooth Jazz>
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404404.jpg" />
 </div>
 
 
@@ -467,7 +441,7 @@ Alice Cooper - Paranormal (2017) 2LP, 45RPM [WavPack 2.0|192/32|image + .cue|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403027.jpg" />
 </div>
 
 
@@ -496,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401420.jpg" />
 </div>
 
 
@@ -522,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401416.jpg" />
 </div>
 
 
@@ -550,7 +524,7 @@ Nirvana - Nevermind (1991) [LPCM2.0 96/24, DTS HD MA 2.0 96/24, Dolby TrueHD 2.0
 >>Blu-ray Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401294.jpg" />
 </div>
 
 
@@ -579,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392005.jpg" />
 </div>
 
 
@@ -614,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391665.jpg" />
 </div>
 
 
@@ -643,7 +617,7 @@ Oasis - (What’s the Story) Morning Glory? (1995) [DST 2.0, 5.1 1bit/2822,4kHz 
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388996.jpg" />
 </div>
 
 
@@ -678,7 +652,7 @@ Genesis - ...Calling All Stations... (1997) Europe/2007 Reissue [FLAC 5.1 24/88,
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387809.jpg" />
 </div>
 
 
@@ -707,7 +681,7 @@ Steve Strauss - Just Like Love (2005) [DST 5.1, 2.0 1bit/2822,4kHz |SACD-R]<Acou
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387342.jpg" />
 </div>
 
 
@@ -742,7 +716,7 @@ Kodo - Mondo Head (2001) [DST 5.1, 2.0 1bit/2822,4kHz |SACD-R]<World music>
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387222.jpg" />
 </div>
 
 
@@ -762,6 +736,41 @@ Kodo - Mondo Head (2001) [DST 5.1, 2.0 1bit/2822,4kHz |SACD-R]<World music>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16F302003D0FA60D914F2D5E554933E8BDFC54D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570616   (387218) от 07.11.2012
+
+Los Angeles Guitar Quartet - LAGQ’s Guitar Heroes (2004) [DST 5.1, 2.0 1bit/2822,4kHz |SACD-R]<Classical, Jazz, Blues, Folk-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387218.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ralph Towner – Icarus - 3:31
+2. Norman Blake & David Bromberg – B & B - 4:18
+3. John McLaughlin – We Know You Know: Reverie For Mahavishnu - 5:02
+4. Jimi Hendrix – Pluck, Strum, And Hammer - 4:15
+5. Pat Metheny – Letter From Home - 3:25
+6. Assad Duo – Uarekena - 8:19
+7. Steve Howe – Aire Para Un Día (Mood For A Day) - 4:13
+8. Django Reinhardt – Gypsy Flower - 5:58
+9. Duane York – Pop - 2:16
+10. Los Romeros – El Baile De Luis Alonso - 3:22(   Читать дальше...   )Жанр: Classical, Jazz, Blues, Folk-RockПродолжительность: 01:00:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:599FB8A3785DF5DF0A7FF4FBD4BAF654A104FFD1
 ```
 
 https://mybot314.ru/tekegram_catalog/

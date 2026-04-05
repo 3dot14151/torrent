@@ -1,137 +1,3 @@
-###  Публикация: 1466075   (1018718) от 28.04.2021
-
-Семен Федосеев, Алексей Ардашев | Снайперы. Самая полная энциклопедия (2021) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018718.jpg" />
-</div>
-
-
-###  Подробнее
-
-САМАЯ ПОЛНАЯ ЭНЦИКЛОПЕДИЯ СНАЙПЕРСКОГО ИСКУССТВА. Не ремесла, а именно искусства! – ведь точность выстрела зависит от десятков факторов: времени суток и температуры воздуха, скорости и направления ветра, расстояния до цели, как падает свет, куда перемещаются тени…
-
-Искусство боевого снайпера окружено целым ворохом мифов и легенд и часто граничит с мистикой. Эффект (   Читать дальше...   )Жанр: Военное дело / спецслужбы, ЭнциклопедииФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79A28204F23B20C1EC52D7E5D02F5B05E1DC0891
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466917   (1016363) от 12.05.2021
-
-Николай Глиноецкiй | Исторiя Русскаго генеральнаго штаба в 2 томахъ (1883-1894) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016363.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 том.
-В первом томе, двухтомного издания, книги описывается история русского генерального штаба периода 1698-1825 годов. - Квартирмерские чины и их обязанности по воинскому уставу Вейде (1698 г.), образование генерального штаба Екатериной II, участие генерального штаба в военных действиях, участие офицеров квартирмейстерской части в астрономических, геодезических (   Читать дальше...   )Жанр: Военная история, раритетЯзык: Русский (старая орфография)Издательство: Военная Типографiя, С.-Петербургъ, Россiйская ИмперiяФормат: PDFКачество: Хороший скан, OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6661AECEB63F38CF663D7754F530006FB6C50338
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459581   (1016237) от 13.05.2021
-
-В. И. Чекмарев | Атлас сражений XIX века (1894-1899) [DJVU, PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второе издание «Атласа сражений XIX века»  представляет собой перевод на русский язык, выпускавшегося в военно-научном комитете Главного штаба на немецком языке с 1830-х гг., разрозненного собрания карт и планов военных кампаний армий мира в XIX века.
-Автором, данного издания является Виктор Иванович Чекмарев (1861–1939) — генерал-лейтенант (1912), видный военный (   Читать дальше...   )Жанр: Военная историяФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7B5625C553B7F2CDD426B9CE78684490B463B64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470452   (1015766) от 16.05.2021
-
-Юрий Селезнев | Русские князья при дворе ханов Золотой Орды (2017) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015766.jpg" />
-</div>
-
-
-###  Подробнее
-
-В середине XIII века Русь оказалась в тяжелейшей зависимости от Монгольской империи, а затем, после ее распада, от Джучиева Улуса, или — как это государство стали называть значительно позже, когда оно уже исчезло с политической карты, — Золотой Орды. Русские князья вынуждены были время от времени, по нескольку раз за правление, ездить на поклон к ханам Джучиева Улуса, (   Читать дальше...   )Жанр: ИсторияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0ECF56BEE959EEBE648BDB9FC5F07349D8C17B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470435   (1015746) от 16.05.2021
-
-Людмила Ивонина | Герцог Мальборо. Человек, полководец, политик (2019) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015746.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герой этой книги — прославленный английский полководец и политик герцог Джон Мальборо. Он был едва ли не самым известным человеком в Европе начала века Просвещения, а его мнение - едва ли не самым влиятельным. Таланты военачальника сочетались в нем с изворотливостью дипломата и ловкостью придворного. С Мальборо считались европейские монархи, а некоторые из них вынуждены (   Читать дальше...   )Жанр: Биографии и Мемуары, ИсторияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42C74C304450D22277E0D7673EF31112400EBCD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1472046   (1014654) от 23.05.2021
 
 Леонид Прайсман | Дело Дрейфуса (2020) [FB2]
@@ -140,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014654.jpg" />
 </div>
 
 
@@ -166,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014156.jpg" />
 </div>
 
 
@@ -192,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010647.jpg" />
 </div>
 
 
@@ -219,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010461.jpg" />
 </div>
 
 
@@ -245,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010317.jpg" />
 </div>
 
 
@@ -271,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010308.jpg" />
 </div>
 
 
@@ -297,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009207.jpg" />
 </div>
 
 
@@ -324,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008469.jpg" />
 </div>
 
 
@@ -350,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008134.jpg" />
 </div>
 
 
@@ -376,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006478.jpg" />
 </div>
 
 
@@ -402,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005917.jpg" />
 </div>
 
 
@@ -428,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004975.jpg" />
 </div>
 
 
@@ -454,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004490.jpg" />
 </div>
 
 
@@ -480,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004037.jpg" />
 </div>
 
 
@@ -507,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004010.jpg" />
 </div>
 
 
@@ -533,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003915.jpg" />
 </div>
 
 
@@ -559,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003770.jpg" />
 </div>
 
 
@@ -585,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003673.jpg" />
 </div>
 
 
@@ -611,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003589.jpg" />
 </div>
 
 
@@ -637,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003494.jpg" />
 </div>
 
 
@@ -664,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002917.jpg" />
 </div>
 
 
@@ -675,6 +541,136 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B679C3D21A0D16284640AFB584E3B0A2F632B228
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350934   (1002674) от 08.01.2020
+
+Алексей Исаев | Берлин 45-го. Сражение в логове зверя (2020) [PDF, FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002674.jpg" />
+</div>
+
+
+###  Подробнее
+
+1945. Год Великой Победы. «Звездный час» советского народа. Дата величайшего триумфа в русской истории. Однако и сейчас, спустя 75 лет после Победы, финал Великой Отечественной, ожесточенная Битва за Берлин, вызывает множество вопросов. Каковы реальные потери в Берлинской операции? Можно ли было обойтись без штурма Зееловских высот? Действительно ли было «соревнование» (   Читать дальше...   )Жанр: Военная историяФормат: PDF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C80D44A5FA50305B29AC5CF4C8FF830998D8395
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400708   (1002601) от 09.08.2021
+
+Gordon Thomas, Max Morgan-Witts | Enola Gay: Mission to Hiroshima / Энола Гей: полёт до Хиросимы (1995) [EPUB] [EN]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тщательно изученная история решения отправить Enola Gay бомбить Хиросиму рассказана из первых рук. От закулисных дипломатических шагов до действий Японии и призыва к действиям ВВС США - нераскрытых деталей не останется.Жанр: История, Военная историяФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FBDAA7C78106019ADB93D35598789710E9317A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352294   (1001314) от 13.01.2020
+
+А. Чернышев | 1941 год на Балтике: подвиг и трагедия (2009) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трагический Таллинский переход и эвакуация Ханко, ожесточенная битва за Моонзунд и героическая оборона Ленинграда — новая книга ведущего историка флота подробно освещает все ключевые события 1941 года на Балтике, неопровержимо доказывая, что 41-й был годом не только «Балтийской катастрофы», но и великого подвига советских моряков, выстоявших в неравной борьбе и сорвавших (   Читать дальше...   )Жанр: Военная историяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D862059376D9C1BF14F5661B7B8479480DFE4569
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352288   (1001310) от 13.01.2020
+
+Герман Гот | Танковые операции (2006) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001310.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга написана на основе архивных материалов и личных воспоминаний бывшего командующего 3-й танковой группой немецких войск на советско-германском фронте. Большая часть книги посвящена описанию подготовки гитлеровского командования к нападению на Советский Союз и военных действий на Восточном фронте во время летне-осенней кампании 1941 г. Обобщая опыт использования (   Читать дальше...   )Жанр: Военная история, Военная техникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A41F42B9F1CC5D7FB4707FA4A6553138ECBCF8D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352290   (1001308) от 13.01.2020
+
+А.Б. Широкорад | Битва за Черное море (2005) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена военным действиям в Северном Причерноморье во время Великой Отечественной войны. Подготовка вторжения в Крым, сражения за Днепро-Бугский лиман и Новороссийск, оборона Одессы и Севастополя, десанты в Керчи, Евпатории и Судаке — все Эти события и стали «Битвой за Черное море». Книга будет интересна как специалистам, так и любителям военной истории.Жанр: Военная историяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C3383218EA2821A1963F0CAF5A23C84B08E6ACF
 ```
 
 https://mybot314.ru/tekegram_catalog/

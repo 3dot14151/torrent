@@ -1,3 +1,60 @@
+###  Публикация: 1565800   (490431) от 25.07.2022
+
+Mission Control Plus 1.8 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490431.jpg" />
+</div>
+
+
+###  Подробнее
+
+Управляйте окнами в Mission Control Plus, добавляйте навигацию с помощью клавиатуры, ярлыки и многое другое.
+Верните «контроль» обратно в Центр управления полетами. Управляйте своими окнами в Mission Control Plus, добавляя навигацию с помощью клавиатуры, ярлыки и многое другое.
+Закрывайте окна прямо из приложения. Быстро закрывайте окна, нажимая кнопку (X).Тип издания: macOS SoftwareРелиз состоялся: 25.07.2022Разработчик: © 2021 Rony FadelПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:933AE8A797157E06507167240B64111347E7DCDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1055220   (490360) от 21.09.2016
+
+Recordee 1.0 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Recordee маленькое и легкое приложение для записи аудио на вашем Mac.
+ Он находится на панели меню, как маленький значок и требует всего два щелчка, чтобы начать запись.
+ Он продолжает делать свою работу в самой строке меню. Таким образом, это делает его полностью скрытым от вашего внимания, которое  полезно при записи рассказа.
+(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 18 сентября 2016Разработчик: inspiringlife.coПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:587A4A440EEB93F09D68B331B337809763318FD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1243469   (490121) от 28.08.2018
 
 OmniOutliner Pro 5.3.4 [Multi/Ru]
@@ -6,7 +63,7 @@ OmniOutliner Pro 5.3.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490121.jpg" />
 </div>
 
 
@@ -34,7 +91,7 @@ BusyContacts 2022.3.1 U2B  [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488457.jpg" />
 </div>
 
 
@@ -61,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488409.jpg" />
 </div>
 
 
@@ -88,7 +145,7 @@ NCH Express Animate 7.34 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488365.jpg" />
 </div>
 
 
@@ -114,7 +171,7 @@ OmniPlan Pro 3.5.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488160.jpg" />
 </div>
 
 
@@ -140,7 +197,7 @@ Sparkle 1.2.5 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487778.jpg" />
 </div>
 
 
@@ -168,7 +225,7 @@ Umbrella 1.1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487388.jpg" />
 </div>
 
 
@@ -196,7 +253,7 @@ Screenotate 3.0.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487387.jpg" />
 </div>
 
 
@@ -222,7 +279,7 @@ A Better Finder Rename 11 v11.51 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486514.jpg" />
 </div>
 
 
@@ -249,7 +306,7 @@ Artlantis 2021.2 v9.5.2.32351 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486279.jpg" />
 </div>
 
 
@@ -275,7 +332,7 @@ iSubtitle 3.1.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486169.jpg" />
 </div>
 
 
@@ -302,7 +359,7 @@ Wondershare TunesGo 9.7.0.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485948.jpg" />
 </div>
 
 
@@ -328,7 +385,7 @@ Audio Record Studio 2.1.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485597.jpg" />
 </div>
 
 
@@ -354,7 +411,7 @@ Monterey Cache Cleaner 17.0.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484517.jpg" />
 </div>
 
 
@@ -380,7 +437,7 @@ SoundSource 5.5.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484418.jpg" />
 </div>
 
 
@@ -407,7 +464,7 @@ TotalFinder 1.9.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484029.jpg" />
 </div>
 
 
@@ -435,7 +492,7 @@ Tadam: Stay focused at work 2.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483990.jpg" />
 </div>
 
 
@@ -463,7 +520,7 @@ Paste 2.0.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483885.jpg" />
 </div>
 
 
@@ -491,7 +548,7 @@ SupremePlayer - A player can play all media file 6.0.1 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483621.jpg" />
 </div>
 
 
@@ -517,7 +574,7 @@ Processes Monitor 1.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483243.jpg" />
 </div>
 
 
@@ -543,7 +600,7 @@ DotPass 1.5.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482439.jpg" />
 </div>
 
 
@@ -570,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482438.jpg" />
 </div>
 
 
@@ -596,7 +653,7 @@ Athentech Perfectly Clear QuickDesk & QuickServer v4 4.1.2 [Multi/ Rus]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482436.jpg" />
 </div>
 
 
@@ -622,7 +679,7 @@ WiFiSpoof 3.8.5 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482348.jpg" />
 </div>
 
 
@@ -633,58 +690,6 @@ WiFiSpoof - небольшая утилита, которая поможет в�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DE21C2A13D66CE30F743D3971893FFEB0B20033
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566433   (482338) от 29.07.2022
-
-MarsEdit 4 v4.6 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первое, на что обычно обращаешь внимание, выбирая программу для написания в блог - это количество сервисов, которые она поддерживает, с этим параметром у MarsEdit все отлично. Клиент умеет работать с WordPress, Blogger, Tumblr, Squarespace, TypePad, Movable Type, LiveJournal, Drupal, Vox и еще с множеством менее популярных блог-платформ.Тип издания: macOS SoftwareРелиз состоялся: 28.07.2022Разработчик: © 2022 Red SweaterПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA49DEF02BD8E341157CD85CCF6595B3090DF357
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566452   (482333) от 29.07.2022
-
-Virtual Background Customizer 1.1 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482333.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быстрый и простой инструмент для ключевых функций при настройках видео или фоновых изображений для видеоконференций.Тип издания: macOS SoftwareРелиз состоялся: 22.12.2020Разработчик: © 2022 MacmanusПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47D0461119EE4CB3CFA002E2BF71B96410B68D96
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1570313   (444838) от 16.08.2022
+
+Masterboy - Generation Of Love - The Album (1995) Vinyl-rip, Reissue, Remastered, 2021, Maschina Records [OGG|485 Kbps] <Electronic>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro	2:51
+02. Give Me Your Love	4:12
+03. Anybody (Movin' On)	3:53
+04. Baby Let It Be	4:06(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:48:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:189F37B622B314C5AE0517453024C99B150C59E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062054   (444772) от 12.10.2016
+
+VA - Stay a While and Dance (2016) [MP3|320 Kbps] <Funky, Progressive, House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simon Sims And Tymers - I Feel You (Extended Mix) (Feat. Luny) 04:38
+02. Ibiza Bitches - Be Happy (Radio Version) 03:22
+03. Claudio Mordax - U Can I Know 06:28
+04. Danny Sinatra - Glimpse Of Light (Single Version) 04:08(   Читать дальше...   )Жанр: Funky, Progressive, HouseПродолжительность: 03:40:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B4B4D782E8A9C7F8546AF47C1D085D37EF8B16D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1322822   (444701) от 31.08.2019
+
+Craig Connelly - Live @ Pepsi Max Arena, Creamfields UK, United Kingdom 2019-08-25 [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above & Beyond ft. Zoe Johnston - Good For Me (Above & Beyond Club Mix)
+02. Craig Connelly - Solstice
+03. Ferry Tayle ft. Poppy - The Way Back Home (Craig Connelly Remix)
+04. Scott Bond vs. Solarstone - Red Line Highway (Factor B Back To The Future Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:15:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CF054EC4FAA055BD56FDD4E12A810A1EB312AE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1322850   (444699) от 31.08.2019
+
+VA - Bikini Beach, Vol. 9 (2019) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mitsuhiko Ishikawa - Capture (03:12)
+02. Yako Beatz - Restaurants (03:08)
+03. B.O.S - Meteora (04:00)
+04. Da Angerboyz - Stay Awake (05:55)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:36:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99FABB98806884F679E9705F5D81B19D03F1A047
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1322800   (444697) от 31.08.2019
 
 Modjo - Modjo Remixes (2013) [FLAC|Lossless|WEB-DL|tracks] <House, Nu Disco, Electro>
@@ -6,7 +122,7 @@ Modjo - Modjo Remixes (2013) [FLAC|Lossless|WEB-DL|tracks] <House, Nu Disco, Ele
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444697.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Markus Schulz – World Tour Best Of (2012)(2CD)[FLAC|Lossless|image + .cue
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444669.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Avicii - Stories (2015) [FLAC|image+.cue]<Dance, House, Electronic>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444614.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ V.A. - Vintage Cafe: Lounge & Jazz Blend Vol. 14 (2019) Special Selection [FLAC|
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444566.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ BineMusic - Label Pack 27 Releases (2009-2017) [FLAC|Lossless|tracks+.cue, track
 >>Label-Packs
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444561.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Halloween Rave (2017) [MP3|320 Kbps] <House, Tech House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444475.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Various Artists - Club 86 Recordings Ibiza Closing 12 (2012) [MP3|320 кб/с]<P
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444348.jpg" />
 </div>
 
 
@@ -215,7 +331,7 @@ VA - Ibiza Summer Club 2012 (2012) [MP3|320 кб/с]<Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444156.jpg" />
 </div>
 
 
@@ -243,7 +359,7 @@ Dunkan - Freshtime (2012) [MP3|320 кб/с]<Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444154.jpg" />
 </div>
 
 
@@ -278,7 +394,7 @@ VA - Ministry of Progressive (50 Supreme Tunes) Vol. 1 (2018) [MP3|320 Kbps] <Pr
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444134.jpg" />
 </div>
 
 
@@ -307,7 +423,7 @@ Various Artists - Ministry Of Sound - Deep House (2012) [MP3|320 кб/с]<Deep H
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443973.jpg" />
 </div>
 
 
@@ -342,7 +458,7 @@ VA - Deep Nu Disco House Sounds (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443927.jpg" />
 </div>
 
 
@@ -371,7 +487,7 @@ Faction - The End Of Tel Aviv Redux (2020) False Industries [FLAC|Lossless|WEB-D
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443337.jpg" />
 </div>
 
 
@@ -400,7 +516,7 @@ VA - Female Vocal Trance Vol. 2 (2020) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443264.jpg" />
 </div>
 
 
@@ -429,7 +545,7 @@ Global Communication - Transmissions (2020) Remastered | Evolution [FLAC|Lossles
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443138.jpg" />
 </div>
 
 
@@ -458,7 +574,7 @@ VA - Unique Sense History Vol. 1 (Mixed By Abstract Vision) (2015) [MP3|320 кб
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443126.jpg" />
 </div>
 
 
@@ -487,7 +603,7 @@ Le Couleur - Concorde (2020) [MP3|320 Kbps] <Synthpop, Disco>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443028.jpg" />
 </div>
 
 
@@ -516,7 +632,7 @@ VA - Black Hole Trance Music 09-20 (2020) [FLAC|Lossless|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443016.jpg" />
 </div>
 
 
@@ -545,7 +661,7 @@ VA - Flowmotion - Visual Pleasure Volume 1.0 (2002) Elektrolux [FLAC|Lossless|tr
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443004.jpg" />
 </div>
 
 
@@ -571,7 +687,7 @@ VA - Flowmotion - Visual Pleasure Volume 2.0 (2003) Elektrolux [FLAC|Lossless|tr
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443001.jpg" />
 </div>
 
 
@@ -597,7 +713,7 @@ VA - Trance Nation (Mixed By Simon Patterson) (2015) [FLAC|tracks+.cue]<Trance, 
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442943.jpg" />
 </div>
 
 
@@ -626,7 +742,7 @@ VA - York Planet Chill: The Best Of Volume 1 (2015) [FLAC|tracks+.cue]<Chill Out
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442764.jpg" />
 </div>
 
 
@@ -640,122 +756,6 @@ VA - York Planet Chill: The Best Of Volume 1 (2015) [FLAC|tracks+.cue]<Chill Out
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:766AE9593A26E42DE96F7CF4B9C5D2A7724BFF23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944347   (442662) от 06.10.2015
-
-VA - Always Alive Recordings 100 (Mixed By Ferry Tayle & Dan Stone) (2015) [FLAC|tracks+.cue]<Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ferry Tayle feat. Driftmoon - Geometrix (Intro Mix) (6:08)
-02. Driftmoon - Drifter (Original Mix) (5:36)
-03. Ferry Tayle feat. Sarah Shields & Ludovic H - The Most Important Thing (Original Mix) (5:07)
-04. Suncatcher - Transylvania Cowgirl (Original Mix) (5:34)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:17:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F5675DCB922B98D3061AD844E0510F0A748897C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944308   (442651) от 06.10.2015
-
-Blank & Jones - Relax Edition Nine (2015) [FLAC|tracks+.cue]<Chill Out, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blank & Jones - Morning of the Earth (3:21)
-02. Blank & Jones with Jason Caesar - A Drop of Rain (6:46)
-03. Blank & Jones - Summer Wind (3:55)
-04. Blank & Jones with Coralie Clement - C'est Beau La Vie (4:57)(   Читать дальше...   )Жанр: Chill Out, LoungeПродолжительность: 01:02:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBC99DF29DF4089F20D0C1825928C55DA33FDC61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248696   (442559) от 20.09.2018
-
-VA - Markus Schulz - Global DJ Broadcast: Top 20 September (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Markus Schulz & Emma Hewitt - Safe from Harm (Giuseppe Ottaviani Extended Remix)
-02.Jam El Mar & Adina Butar - Right in the Night (Extended Mix)
-03.Dennis Sheperd & Bjorn Akesson - Memoria (Extended Mix)
-04.Darren Tate - Timeless (Original Mix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:19:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7965DBF961739D8181DC0EA2D40DD50DF16627C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409656   (442547) от 18.09.2020
-
-Asian Dub Foundation - Access Denied (2020) [MP3|320 Kbps] <Breakbeat, Electronic>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Pay Won't Pay [02:52]
-02. Stealing The Future [03:47]
-03. Frontline [03:06]
-04. Access Denied [03:38](   Читать дальше...   )Жанр: Breakbeat, ElectronicПродолжительность: 00:52:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:208747CC38800862F282BC36E271F62801275838
 ```
 
 https://mybot314.ru/tekegram_catalog/

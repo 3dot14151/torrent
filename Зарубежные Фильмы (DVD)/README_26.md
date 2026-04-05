@@ -1,85 +1,3 @@
-###  Публикация: 1229054   (629708) от 04.06.2018
-
-Из машины / Ex Machina (2015) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629708.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре сюжета — молодой человек, которого нанимает миллиардер, сделавший состояние на высокотехнологичных разработках. Задача работника — провести неделю в удаленном местечке, тестируя женщину-робота с искусственным интеллектом.Производство: Великобритания / Universal Pictures, Film4, DNA FilmsЖанр: Фантастика, триллер, драмаРежиссер: Алекс ГарлендАктеры: Донал Глисон, Алисия Викандер, Оскар Айзек, Соноя Мидзуно, Кори Джонсон, Клер Шелби, Симара А. Темплмен, Гана Баярсайкан, Тиффани Писани, Элина АлминасПеревод: Дублированный (лицензия)Субтитры: Русские, английские, чешские, венгерские, польские, болгарские, хорватские, эстонские, греческие, иврит, латышские, литовские, румынские, словенские, украинскиеПродолжительность: 01:43:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03035B92EB6B51F033331A26EFA97387E2B87C91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229050   (629564) от 04.06.2018
-
-Звездные войны: Последние джедаи / Star Wars: Episode VIII - The Last Jedi (2017) DVD5 [Custom]
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая история о противостоянии света и тьмы, добра и зла начинается после гибели Хана Соло. В Галактике, где Первый Орден и Сопротивление яростно сражаются друг с другом в войне, героиня Рей пробудила в себе Силу. Но что произойдет, когда она встретится с единственным оставшимся в живых рыцарем-джедаем — Люком Скайуокером?
-
-Кайло Рен перешел на Темную сторону Силы (   Читать дальше...   )Производство: США / Lucasfilm Ltd., Ram Bergman Productions, Walt Disney PicturesЖанр: Фантастика, фэнтези, боевик, приключенияРежиссер: Райан ДжонсонАктеры: Марк Хэмилл, Кэрри Фишер, Адам Драйвер, Дэйзи Ридли, Джон Бойега, Оскар Айзек, Энди Серкис, Лупита Нионго, Донал Глисон, Энтони ДэниелсПеревод: ДублированныйСубтитры: Русские, английскиеПродолжительность: 02:25:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94F234E5708C3E60D3575EFB6BA0432A2520F598
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521289   (628560) от 10.07.2012
-
-Гнев Титанов / Wrath of the Titans (2012) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_628560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прошло десять лет после героического поражения Персеем морского чудовища Кракена, теперь он живет спокойной жизнью деревенского рыбака и воспитывает своего 10-летнего сына.
-
-Тем временем, бушует борьба за превосходство между Богами и Титанами. Опасно ослабленные нехваткой человеческой любви и преданности, Боги теряют контроль над заключенными в тюрьму Титанами и (   Читать дальше...   )Производство: США, Warner Bros. Pictures, Legendary PicturesЖанр: Фэнтези, Боевик, ПриключенияРежиссер: Джонатан ЛибесманАктеры: Сэм Уортингтон, Лиам Нисон, Рэйф Файнс, Эдгар Рамирез, Тоби Кеббелл, Розамунд Пайк, Билл Найи, Дэнни Хьюстон, Джон Белл, Лили Джеймс, Алехандро Нараньо, Кэтрин Карпентер, Мэтт Милн, Кетт Тортон, Шинед Кьюсак, Спенсер Уидлинг, Хуан Рейс, Дэниэл Галиндо Рохас, Ламберто Гуерра, Джордж Благден, Киллиан Бурк, Алистер Кординг, Доминго Де Луис, Ричард Госс, Джимми Петрус, (   Читать дальше...   )Перевод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: русский, украинский, чешский, эстонский, латышский, литовский, сербский, хорватский, словенский, португальский, английскийПродолжительность: 01:35:26
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035150   (628167) от 16.07.2016
 
 И грянул шторм / The Finest Hours (2016) DVD5
@@ -88,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628167.jpg" />
 </div>
 
 
@@ -114,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627955.jpg" />
 </div>
 
 
@@ -140,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627941.jpg" />
 </div>
 
 
@@ -166,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627680.jpg" />
 </div>
 
 
@@ -192,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627238.jpg" />
 </div>
 
 
@@ -218,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627135.jpg" />
 </div>
 
 
@@ -244,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627133.jpg" />
 </div>
 
 
@@ -270,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_627063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_627063.jpg" />
 </div>
 
 
@@ -296,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627021.jpg" />
 </div>
 
 
@@ -322,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627017.jpg" />
 </div>
 
 
@@ -348,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627012.jpg" />
 </div>
 
 
@@ -374,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_625273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_625273.jpg" />
 </div>
 
 
@@ -400,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625251.jpg" />
 </div>
 
 
@@ -426,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625119.jpg" />
 </div>
 
 
@@ -452,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_624938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_624938.jpg" />
 </div>
 
 
@@ -478,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_624824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_624824.jpg" />
 </div>
 
 
@@ -504,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_624696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_624696.jpg" />
 </div>
 
 
@@ -530,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_622970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_622970.jpg" />
 </div>
 
 
@@ -556,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_621605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_621605.jpg" />
 </div>
 
 
@@ -582,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_621119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_621119.jpg" />
 </div>
 
 
@@ -608,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620774.jpg" />
 </div>
 
 
@@ -634,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620648.jpg" />
 </div>
 
 
@@ -660,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620510.jpg" />
 </div>
 
 
@@ -671,6 +589,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93DAE24D5CFA8F22366C19A24AD75378600D055D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910821   (619491) от 21.06.2015
+
+Подмена (Кара небесная) / Switch (1991) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стив Брукс, сердцеед и соблазнитель женщин, отправляясь на очередную вечеринку, не знал, что погибнет от рук своих любимиц и на следующий день превратится в эффектную блондинку. Теперь, чтобы не попасть в ад, он должен понравиться хотя бы одному человеку…Производство: США, Beco Films, Cinema Plus, Home Box OfficeЖанр: Комедия, ФэнтезиРежиссер: Блейк ЭдвардсАктеры: Эллен Баркин, Джимми Смитс, ДжоБет Уильямс, Лоррейн Бракко, Тони Робертс, Перри Кинг, Брюс Пэйн, Лизетт Энтони, Виктория Махони, Бэзил ХоффманПеревод: Дублированный, многоголосый закадровый х3, авторский х2Язык субтитров: Испанский, английский,
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A570D84CEA797CDE4B88EAE66494E1F5BA86473B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910878   (619404) от 21.06.2015
+
+Kingsman: Секретная служба / Kingsman: The Secret Service (2014) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эггси — молодой парень, который прошел службу в морской пехоте и имеет очень высокий уровень интеллекта. Он мог бы добиться многого, но выбрал другой путь и стал мелким преступником. Однажды он знакомится с Гарри Хартом, которому его отец когда-то спас жизнь. Этот человек решил сделать все возможное, чтобы сделать жизнь Эггси лучше и открыть для него новые возможности. (   Читать дальше...   )Производство: Великобритания / 20th Century Fox Film Corporation, Marv Films, TSG EntertainmentЖанр: Боевик, комедия, криминал, приключенияРежиссер: Мэттью ВонАктеры: Тэрон Эджертон, Колин Фёрт, Сэмюэл Л. Джексон, Марк Стронг, Софи Куксон, Майкл Кейн, София Бутелла, Саманта Янус, Джофф Белл, Марк ХэмиллПеревод: Дублированный (лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Английский, испанский, русский, эстонский, латышский, литовский, украинскийПродолжительность: 02:03:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8BC84203257D9C49B0377B18526E6DFC9A65951
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 803564   (618866) от 10.07.2014
+
+Обжора / L'outremangeur (2003) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618866.jpg" />
+</div>
+
+
+###  Подробнее
+
+160 килограммов веса, упрямство быка и поразительная интуиция делают комиссара Селену грозным защитником закона и порядка на улицах Марселя. Но есть тайный враг, против которого этот гений сыска бессилен - неудержимое чревоугодничество... Расследуя убийство влиятельного судовладельца, Селена влюбляется в Эльзу, юную племянницу убитого. Поняв, что в преступлении повинна (   Читать дальше...   )Производство: Франция, Film Par FilmЖанр: Драма, мелодрама, криминал, детективРежиссер: Тьерри Бинисти/Thierry BinistiАктеры: Эрик Кантона, Рашида Бракни, Каролин Сиоль, Ришар Боренже, Жослин Киврен, Жан-Мишель Нуари, Юбер Сен-Макари, Валери Месса, Люсьен Жан-Батист, Ричард Гуеди, Эрик Аверлан, Эммануэль Бариллей, Арман Бинисти, Жан-Люк Боссо, Микаэль ШишПеревод: Профессиональный (двухголосый, закадровый)Язык субтитров: РусскийПродолжительность: 01:26:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:601E2C34DEE9F9F1E89AA34C975F01489E355C2D
 ```
 
 https://mybot314.ru/tekegram_catalog/

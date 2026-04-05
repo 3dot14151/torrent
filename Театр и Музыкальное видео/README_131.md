@@ -6,7 +6,7 @@ Nightwish- Призрак оперы / Nightwish-Phantom of the opera (2006)[720
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87461.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87434.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Bee Gees - The Ultimate DVD only (2009) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87234.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ ABBA - Number Ones (2006) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87227.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Simon and Garfunkel - The Concert In Central Park, 1981 (2004) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87197.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ John Lennon / Lennon - Legend - The Very Best of John Lennon (2003) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87167.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Basshunter - Saturday (Uncensored) (2012) [H.264] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86964.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86926.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Jennifer Lopez ft. Pitbull - Dance Again (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86899.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86807.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86689.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Nightwish -End Of Innocence (2003) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86612.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86544.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86515.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86329.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86322.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86308.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Red Hot Chili Peppers: Live at Rock in Rio (2011) [1080i] HDTV
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86196.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Red Hot Chili Peppers: I'm With You (Live in Cologne) (2011) [1080i] HDTV
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86175.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86121.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86120.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ B.B. King: Live (2006) [720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85969.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85945.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Rammstein - Live Aus Moskau 2012-02-11 (2012)[1080p] HDCamRip (Ver. 1)
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85784.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Armin van Buuren / Ultra Music Festival (2012)[1080p] HDTV
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85765.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Rammstein - Live Aus Moskau 2012-02-11 (2012) HDCamRip[1080p] (Ver. 2)
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85761.jpg" />
 </div>
 
 

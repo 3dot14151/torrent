@@ -1,3 +1,56 @@
+###  Публикация: 1080118   (276745) от 13.12.2016
+
+Битва за Рим / Kampf um Rom (1968-1969) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276745.jpg" />
+</div>
+
+
+###  Подробнее
+
+По роману Феликса Дана.
+Действие картины начинается в конце IV века нашей эры, когда Римская империя распалась. В 476 году был низложен последний римский император Ромул Августус. Готы, завоевавшие Рим, и Византия - вот враги, которые поведут битву за Рим, надеясь подмять по себя древний город. За освобождение города от варваров после смерти короля вестготов Теодориха (   Читать дальше...   )Производство: ФРГ, Румыния, Италия (CCC-Studios, Германия, "Бухарест" Румыния, "Документа-фильм" Италия)Жанр: Драма, ИсторическийРежиссер: Роберт Сьодмак, Эндрю Мортон, Серджиу НиколаескуАктеры: Лоуренс Харви, Орсон Уэллс, Сильвия Кошина, Хонор Блэкман, Роберт Хоффман, Майкл Данн, Ингрид Бретт, Ланг Джефрис, Флорин Пьерсик, Эманоил Петруц, Фридрих фон Ледебур, Дитер Эпплер и др.Перевод: Дублированный (к/с М.Горького) + вставки авторского (grombg)Язык субтитров: РусскийПродолжительность: 01:34:51 + 01:16:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:566E0A9111C834CDBE770F23F50AC37FB03CB6BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183375   (276700) от 30.11.2017
+
+Близкие контакты третьей степени / Close Encounters of the Third Kind (1977) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сбои в подаче электроэнергии, возвращение из ниоткуда самолетов, исчезнувших в 1945 году, обескураживают ученых. Наименее скептичные люди науки расценивают эти явления, как прямое доказательство существования разумной инопланетной формы жизни. Рой Неари едет в пустыню, где были найдены самолеты, чтобы провести собственное расследование. Ночью его автомобиль застревает (   Читать дальше...   )Производство: США / Columbia Pictures Corporation, EMI Films Ltd., Julia Phillips and Michael Phillips ProductionsЖанр: Фантастика, ДрамаРежиссер: Стивен СпилбергАктеры: Ричард Дрейфусс, Франсуа Трюффо, Тери Гарр, Мелинда Диллон, Боб Бэлабан, Дж. Патрик МакНамара, Уоррен Дж. Кеммерлинг, Робертс Блоссом, Филип Доддс, Кэри ГуффиПеревод: Многоголосый, двуголосый закадровый, авторскийСубтитры: Русские, английскиеПродолжительность: 02:17:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55B5A11D7A9F65DB2758A07CD12ED86F3C11B11D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1079284   (276632) от 13.12.2016
 
 Здесь спала Сьюзен / Susan Slept Here (1954) DVDRip [H.264] [VO]
@@ -6,7 +59,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276632.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275487.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275305.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275150.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274356.jpg" />
 </div>
 
 
@@ -141,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273543.jpg" />
 </div>
 
 
@@ -168,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273470.jpg" />
 </div>
 
 
@@ -194,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272962.jpg" />
 </div>
 
 
@@ -222,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272324.jpg" />
 </div>
 
 
@@ -248,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271712.jpg" />
 </div>
 
 
@@ -274,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271707.jpg" />
 </div>
 
 
@@ -300,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271126.jpg" />
 </div>
 
 
@@ -326,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271060.jpg" />
 </div>
 
 
@@ -352,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271027.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270965.jpg" />
 </div>
 
 
@@ -404,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270957.jpg" />
 </div>
 
 
@@ -432,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270901.jpg" />
 </div>
 
 
@@ -458,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270334.jpg" />
 </div>
 
 
@@ -485,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270162.jpg" />
 </div>
 
 
@@ -511,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270157.jpg" />
 </div>
 
 
@@ -539,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269997.jpg" />
 </div>
 
 
@@ -565,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269964.jpg" />
 </div>
 
 
@@ -591,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269349.jpg" />
 </div>
 
 
@@ -617,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269109.jpg" />
 </div>
 
 
@@ -628,60 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6900BA38224C06B12F0B1B83E84788FD53D6F41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992858   (268746) от 16.11.2019
-
-Высшее общество / High Society (1956) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268746.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очаровательная и избалованная светская львица из высшего общества Трэйси Саманта Лорд собирается выйти замуж во второй раз. Она нашла себе, как ей кажется, «идеального» мужчину — служащего своего отца. Но тут появляется ее бывший муж Декстер-Хэвен, известнейший композитор и исполнитель джаза, в котором солирует знаменитый джазовый трубач Луи Армстронг.
-К этой джазовой (   Читать дальше...   )Производство: США / Bing Crosby Productions, Metro-Goldwyn-Mayer (MGM), Sol C. Siegel ProductionsЖанр: Мьюзикл, Мелодрама, КомедияРежиссер: Чарльз УолтерсАктеры: Бинг Кросби, Грэйс Келли, Фрэнк Синатра, Селест Холм, Джон Ланд, Луи Кэлхерн, Сидни Блэкмер, Луи Армстронг, Маргало Гиллмор, Лидия РидПеревод: Двуголосый закадровый (ООО "Имидж-Арт")Субтитры: ОтсутствуютПродолжительность: 01:51:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AB5594237601DFD5AE54CA8BE948B6D270797C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186252   (268647) от 08.12.2017
-
-Перестрелка в О.К. Коррал / Gunfight at the O.K. Corral (1957) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268647.jpg" />
-</div>
-
-
-###  Подробнее
-
-Америка после гражданской войны. Вышедший в отставку шериф Уайтт Эрп переезжает в небольшой городок Тумстоун, чтобы начать спокойную семейную жизнь. Но здесь, как оказалось, промышляет многочисленная банда головорезов, которая держит в страхе весь город и близлежащие окрестности.
-Бывшему шерифу вновь приходиться брать в руки оружие. На сторону закона встанут братья (   Читать дальше...   )Производство: США / Wallis-HazenЖанр: Драма, Вестерн, БиографияРежиссер: Джон СтёрджесАктеры: Берт Ланкастер, Кирк Дуглас, Ронда Флеминг, Джо Ван Флит, Джон Айрленд, Лайл Беттгер, Фрэнк Фэйлен, Эрл Холлиман, Тед де Корсия, Деннис Хоппер, Уит Бисселл, Джордж Мэтьюз, Джон Хадсон, ДеФорест Келли, Ли Ван КлифПеревод: Многоголосый, двуголосый закадровыйСубтитры: АнглийскиеПродолжительность: 02:02:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEC35EEA87BBB11A8280747BE55BB483B1FB5857
 ```
 
 https://mybot314.ru/tekegram_catalog/

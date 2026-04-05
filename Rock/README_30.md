@@ -6,7 +6,7 @@ Blackball Bandits - The Lost Mission (2018) [MP3|320 Kbps] <60's Surf Rock, Inst
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708173.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Russ Ballard - 13 альбомов (1974-2006) [MP3|128-320 kbps] <Classic Rock 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_707726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_707726.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ Roy Orbison - Discography (1960 - 2008)[MP3|192-320 kbps]<Rockabilly, Rock’n R
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_707449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_707449.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ Velvet Volume - Nest (2022) [MP3|320 Kbps] <Rock, Female Vocal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707213.jpg" />
 </div>
 
 
@@ -125,7 +125,7 @@ Roland Nipp - In the Cool of the Dawn (2017) [MP3|320 Kbps] <Roots Rock, Instrum
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706184.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Roland Nipp - Better Days (2018) [MP3|320 Kbps] <Roots Rock, Instrumental Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706183.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Joe's Garage - The Best Of (2018) [MP3|320 Kbps] <Electronic Pop Rock, Female Vo
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706182.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706133.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Trapeze - Medusa (1970) Remastered, 1994, Threshold Records [MP3|320 кб/с] <R
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706071.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Beth Hart - A Tribute To Led Zeppelin (2022) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705180.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Blackball Bandits - Confrontation on the Extraterrestrial Highway (2016) EP [MP3
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704488.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Black Stone Cherry - Family Tree (2018) [MP3|320 Kbps] <Southern Rock, Hard Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704319.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Arlett (ex-Леді Арлет) - Arlett (2016) [MP3|320 кб/с] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704158.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Epolets - Cult (2016) [MP3|320 кб/с] <Alternative Rock, Indie Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704065.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703218.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701715.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ The Rubettes - The Singles Collection (1992) [MP3|320 Kbps] <Rock & Roll, Pop Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700828.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699846.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ VA - Space Oddities (2009) CD, Vol. 2 [MP3|320 Kbps] <Electronic, Psychedelic Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698863.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Bullfrog - Second Wind (1980) Reissue, 2012, Sireena Records [MP3|320 кб/с] <
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698560.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Dreamworld - 2 Albums (1980, 1983) LP [MP3|320 Kbps] <Electronic, Krautrock, Pro
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695951.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ VA - Soft Rock Forever (2018) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694826.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ VA - Acoustic Rock (Polygram) (1995) [MP3|320 кб/с] <Rock, Acoustic>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694556.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ VA - Rock Now (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694032.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ Alice Jayne - Inside The Cover (2017) [MP3|320 Kbps] <Rockabilly, Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693325.jpg" />
 </div>
 
 
@@ -734,7 +734,7 @@ Aaron Fink (ex. Breaking Benjamin) - Galaxies (2017) [MP3|320 Kbps] <Classic Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693175.jpg" />
 </div>
 
 

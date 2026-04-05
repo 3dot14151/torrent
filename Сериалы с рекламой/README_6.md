@@ -1,3 +1,56 @@
+###  Публикация: 1501068   (837987) от 08.10.2021
+
+Дуайт в сияющих доспехах / Dwight in Shining Armor (2020) WEB-DLRip [H.264/720p-LQ] (сезон 4, серии 1-10 из 10) OmskBird [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подросток по имени Дуайт во время прогулки случайно проваливается в заброшенный тоннель и находит там принцессу-воительницу Гретту, которая спит вот уже тысячу лет. Появление молодого человека разрушает магические чары, и Гретта пробуждается. Вскоре вслед за принцессой возвращается к жизни и придворный маг Болдрик, а вместе с ним и древние злодеи, мечтающие захватить (   Читать дальше...   )Производство: США / BYU TelevisionЖанр: фэнтези, комедия, приключенияРежиссер: Джеффри Дж. Хант, Джеймс Ларкин, Эял ГординАктеры: Слоун Морган Сигел, Кэйтлин Кармайкл, Джоэль МакКрэри, Даниэль Бисутти, Ивэн Хофер, Джошуа Бреслоу, Бонита Фридериси, Марк Фарли, Эбби Кобб, Брайан Льюис и другие.Перевод: Многоголосый закадровый (OmskBird)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: ~00:24:10 серияРеклама: Присутствуют аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4B1DCB51204DBDDCFB44ACFC8ED61109BF8245D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501127   (837985) от 08.10.2021
+
+В расчёте / Breaking Even (2020) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-6 из 6) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой юрист Нора Шахин устраивается на работу в компанию-производитель автомобилей «Линдеманн», чтобы сделать там карьеру. Но вдруг дочь руководителя компании Шарлотта Линдеманн во время тест-драйва беспилотного автомобиля сбивает насмерть велосипедиста. Автомобиль «Линди», престижный проект компании, должен был предотвратить аварию.
+Нора убеждает босса Бенедикта (   Читать дальше...   )Производство: Германия / NEUESUPERЖанр: драма, триллер, детективРежиссер: Борис КунцАктеры: Лаура Берлин, Синье Ирслингер, Lorna Ishema, Марион Миттерхаммер, Юстус фон Донаньи, Irene Della Casa, Ван Лам Виссай, Нисан Арикан, Selman Iyi, Бернд Блёмер и др.Перевод: Профессиональный двуголосый (ViruseProject)Язык озвучки: Русский, немецкийСубтитры: РусскиеПродолжительность: ~00:45:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9AC8CD8B288C6AEDD6562535B8769437E90C82E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 946339   (837512) от 06.04.2016
 
 Ходячие мертвецы / The Walking Dead (2015) WEB-DLRip (сезон 6, серии 1-16 из 16) HamsterStudio [AD]
@@ -6,7 +59,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837512.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835760.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833652.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833636.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833355.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833353.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831947.jpg" />
 </div>
 
 
@@ -188,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828955.jpg" />
 </div>
 
 
@@ -214,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820956.jpg" />
 </div>
 
 
@@ -240,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820642.jpg" />
 </div>
 
 
@@ -266,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818906.jpg" />
 </div>
 
 
@@ -292,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817495.jpg" />
 </div>
 
 
@@ -318,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817493.jpg" />
 </div>
 
 
@@ -344,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815736.jpg" />
 </div>
 
 
@@ -370,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815731.jpg" />
 </div>
 
 
@@ -396,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812540.jpg" />
 </div>
 
 
@@ -422,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811300.jpg" />
 </div>
 
 
@@ -448,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810918.jpg" />
 </div>
 
 
@@ -474,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808967.jpg" />
 </div>
 
 
@@ -500,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808210.jpg" />
 </div>
 
 
@@ -526,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808081.jpg" />
 </div>
 
 
@@ -552,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807616.jpg" />
 </div>
 
 
@@ -578,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806048.jpg" />
 </div>
 
 
@@ -604,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806047.jpg" />
 </div>
 
 
@@ -615,58 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E22C4B4D28CF863E22120FCF6CC9F24A0F99A79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197541   (805752) от 12.01.2018
-
-Человек будущего / Future Man (2017) WEB-DL [H.264/720p-LQ] (сезон 1, серии 1-13 из 13) AMS [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Довольно известные режиссеры Брэндон Трост, Эван Голдберг и Сет Роген (сериал "Проповедник", мультфильмы "Симпсоны" и "Кунг-фу панда") решили порадовать мир новым фантастическим сериалом "Человек будущего". У героя явные способности к киберспорту, и Джош намерен развивать эти навыки. Особенно ему нравится игра "Кибергеддон" (   Читать дальше...   )Производство: СШАЖанр: фантастика, комедияРежиссер: Ниша Ганатра, Эван Голдберг, Сет РогенАктеры: Джош Хатчерсон, Дерек Уилсон, Элиза Куп, Эд Бегли мл., Дрю Джеймс, Роберт Крэйгхед, Кит Дэвид, Хэйли Джоэл Осмент, Джейсон Скотт Дженкинс, Кевин Калибер, Грег Брайан и др.Перевод: Многоголосый закадровый, профессиональный - AMS (Adiós Muchachos Studio)Субтитры: английскиеПродолжительность: ~00:30:00 серияРеклама: присутствуют аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0205C177436CBCF589ECAD4E0251A4A48E8BC429
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184012   (802465) от 14.01.2018
-
-Искатели сокровищ / Detectorists (2017) HDTVRip (сезон 3, серии 1-6 из 6) Lord32x Studio [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802465.jpg" />
-</div>
-
-
-###  Подробнее
-
-И снова мы встречаемся с двумя друзьями Энди (Маккензи Крук) и Лэнсом (Тоби Джонса), общей страстью которых является кладоискательство. Вернувшись из Африки, Энди и Бекки на время перебрались к матери Бекки, со всеми вытекающими последствиями отношений зять-тёща. Лэнс пытается построить отношения с Тони, а также ужиться со своей дочерью, чему не способствует появление (   Читать дальше...   )Производство: Великобритания / Channel XЖанр: комедияРежиссер: Маккензи КрукАктеры: Маккензи Крук, Тоби Джонс, Рэйчел Стирлинг, Эйми-Ффион Эдвардс, Люси Бенджамин, Орион Бен, Софи Томпсон, Люси Менджамин и др.Перевод: Одноголосый закадровый, любительский - Lord32x StudioПродолжительность: ~00:30:00 серияРеклама: Присутствует (звуковая и текстовая в начале и конце серии на 5 секунд) + рекламная надпись и адрес сайта в правом верхнем углу.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6612D9147528959177487EEB8BA01660876627A
 ```
 
 https://mybot314.ru/tekegram_catalog/

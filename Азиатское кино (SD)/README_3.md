@@ -1,3 +1,81 @@
+###  Публикация: 1451414   (1028344) от 02.03.2021
+
+Снова весна / Dasi, Bom / Spring, Again (2019) WEB-DLRip [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028344.jpg" />
+</div>
+
+
+###  Подробнее
+
+После смерти дочери, Ын Чжо решает покончить с собой. Очнувшись после неудачной попытки самоубийства, она понимает, что проснулась за день до самоубийства и делает новую попытку покинуть мир. Проснувшись снова, она понимает - время ее жизни пошло в обратном направлении. И просыпаясь, каждый день она оказывается всё глубже в прошлом. Она решает спасти дочь. Но даже (   Читать дальше...   )Производство: Корея Южная, 26 CompanyЖанр: Драма, фантастика, мелодрамаРежиссер: Чон Ён-джуАктеры: Ли Чхон-а, Хон Джон-хён, Пак Кён-хе, Ли Хе-ран, О Хён-джун, Пак Чи-бин, Пак Чи-иль, Ким Но-джин, Пак Со-и, Ким Мин-санПеревод: Двуголосый любительский (RIOK FILMS)Субтитры: отсутствуютПродолжительность: 01:44:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CFCF943AF3569D9D4EB6696AE58885B41653EBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451429   (1028341) от 02.03.2021
+
+Однажды (Три жизни? Три эпохи? Десять миль персикового цвета) / San sheng san shi shi li tao hua / Once Upon a Time (2017) HDRip [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028341.jpg" />
+</div>
+
+
+###  Подробнее
+
+История Богини и правительницы Небесных Царств Бай Цянь. В своей первой жизни она была ученицей Мо Юань, во время разрушительной войны душа Мо Юань была уничтожена Владыкой Демонов. 17 000 лет спустя Бай Цянь отправилась в царство смертных, чтобы сразиться с Владыкой Демонов и стать Верховной Богиней. Там она встречает E Xya, влюбляется и выходит за него замуж. Однако (   Читать дальше...   )Производство: Китай, Alibaba Pictures Group, Shanghai Ruyi Entertainment Co.Жанр: Мелодрама, фэнтезиРежиссер: Энтони ЛаМолинара, Чжао СяодинАктеры: Лю Ифэй, Ян Ян, Ли Чунь, Ло Цзинь, Янь Икуань, Алекс Чжан, Чжан ЯциньПеревод: Двуголосый любительский (VOICE PROJECT STUDIO)Субтитры: отсутствуютПродолжительность: 01:49:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C98AC108DE0370DEE55758D0C04C45A4F8614A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451834   (1028050) от 04.03.2021
+
+Пять минут до полуночи / Five Minutes to Tomorrow (2014) WEB-DLRip [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028050.jpg" />
+</div>
+
+
+###  Подробнее
+
+Часовщик Рё (Миура Харума) влюблён в Жолань, у которой есть сестра-близнец Жумэй. У сестёр с детства одинаковый вкус, поэтому Жолань тайно влюблена в жениха своей сестры, Тяньлуня. Несмотря на это Рё и Жолань начинают встречаться. Перед свадьбой Жумэй сёстры решают отправиться в путешествие и попадают в кораблекрушение, в котором выживает только Жумэй. После этой (   Читать дальше...   )Производство: Китай, Япония, Amuse, Toei Company, Kinoshita KomutenЖанр: Драма, мелодрамаРежиссер: Исао ЮкисадаАктеры: Джозеф Чан, Сесилия Лю, Харума Миура, Ван Чжихуа, Ню Бэнь, Чжан Ибай, Юй Я, Шэнь Кэсинь, Шэнь Кэи, Цзя Хун, Ай ЦзяниПеревод: Двуголосый любительский (XDUB DORAMA)Субтитры: Английские, китайские - hardsub (неотключаемые)Продолжительность: 02:01:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB779B5FFA08D32C92E6FEB388B34E3ECD3C9077
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451825   (1028034) от 04.03.2021
 
 Дом вне времени / Si-gan-wi-ui jib / House of the Disappeared (2017) WEB-DLRip [MVO]
@@ -6,7 +84,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028034.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027685.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027196.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027070.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026906.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026735.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026366.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026243.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026121.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025967.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025963.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025950.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025770.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025626.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025297.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025296.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025084.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024894.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024722.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024205.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024054.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023648.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023569.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F0AFB792641EFAD1BD060F62D9C6F0ACAF21C20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458992   (1023471) от 31.03.2021
-
-Жена шпиона / Spy no Tsuma / Wife of a Spy (2020) WEB-DLRip [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023471.jpg" />
-</div>
-
-
-###  Подробнее
-
-1940 год. Юсаку управляет торговой компанией в Кобе. Он женат на Сатоко. Находясь в командировке в Маньчжурии, Юсаку узнает страшную государственную тайну. Чтобы восстановить справедливость, он решает сообщить всему миру о своем открытии. Сатоко верит Юсаку, которого теперь обвиняют в предательстве, и клянется быть с ним независимо от последствий.Производство: Япония, C&I Entertainment, InclineЖанр: Драма, история, мелодрамаРежиссер: Киёси КуросаваАктеры: Ю Аои, Иссэй Такахаси, Масахиро Хигасидэ, Хюнри, Такаси Сасано, Юри Цунэмацу, Чак Джонсон, Рёта Бандо, Нихи, МиносукэПеревод: ФСГ АрхиАзисСубтитры: Английские - отдельным файломПродолжительность: 01:55:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A69FEB44818877A4C40D500BBD355511EA1AB36A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458714   (1023365) от 31.03.2021
-
-Колдун / Shi shen ling / The Yinyang Master (2021) WEBRip [H.264] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023365.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чиновника Юань Боя, перевозившего с конвоем груз ценностей, ограбила компания монстров под предводительством получеловека-полумонстра Цинмина. Того самого бывшего служащего Бюро ин-янь, семь лет назад обвинённого в попытке кражи Шкального камня и убийстве коллеги, и из-за этого теперь находящегося в бегах. Взяв в проводницы девушку Шэньле, Боя отправляется в мир (   Читать дальше...   )Производство: КитайЖанр: Боевик, ФентезиРежиссер: Ли ВэйжаньАктеры: Чэнь Кунь, Чжоу Сюнь, Уильям Чань, Цюй Чусяо, Ван Ликунь, Ван Цзысюань, Шэнь Юэ, Чжан Цзыфэн, Сунь ХунлэйПеревод: Любительский (многоголосый, закадровый) l MUZOVOZЯзык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 02:00:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73125524FEED7BEA86D8B18DBDBC5CF98D136CE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459903   (1022978) от 03.04.2021
-
-Кровавое Караоке / Showa kayo daizenshu / Karaoke Terror (2003) WEB-DLRip [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022978.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шесть молодых хулиганов любят попеть караоке и устроить «veselie». Один из них потехи ради убивает ножом женщину средних лет. И это было большой ошибкой, ведь его жертва состоит в группе таких же дам среднего возраста, также любящих попеть караоке и вовсе не собирающихся мириться со смертью своей подруги. Ножи, пистолеты, гранатометы — в ход пойдет все!Производство: Япония, Fellah Pictures, Kouwa InternationalЖанр: Ужасы, драмаРежиссер: Тэцуо СинохараАктеры: Рюхэй Мацуда, Каёко Кисимото, Хироюки Икэути, Ёитиро Сайто, Сава Судзуки, Мивако Итикава, Арата Фурута, Мицу Мурата, Коэн Кондо, Кандзи ЦудаПеревод: Одноголосый любительскийСубтитры: Английские - отдельным файломПродолжительность: 01:52:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:988609BD476B1DC0EB8C400FDBACC323A8E5E85B
 ```
 
 https://mybot314.ru/tekegram_catalog/

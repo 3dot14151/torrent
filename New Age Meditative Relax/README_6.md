@@ -1,3 +1,32 @@
+###  Публикация: 1276700   (787534) от 17.01.2019
+
+Shinnobu - The Enigma VII (Star Seeds) (2019) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787534.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Indigo (5:14)
+2.By Peace (5:05)
+3.Awakening Within Me (5:57)
+4.Like a Shadow (6:09)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:03:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43BE3F23EAB563F0E3F3ED151989FC738A26795C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123668   (786379) от 08.04.2017
 
 VA - Sunrise Energy Morning Meditation (Deep Meditation Music) (2017) [MP3|320 Kbps] <Ambient, New Age>
@@ -6,7 +35,7 @@ VA - Sunrise Energy Morning Meditation (Deep Meditation Music) (2017) [MP3|320 K
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786379.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Hooman Rad - Quiet Dream of a Sweetbrier (2017) [MP3|320 Kbps] <New Age, Piano>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786167.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785646.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Valefim Planet - Oscillation (2018) [MP3|320 Kbps] <Chillout, Enigmatic, New Age
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783204.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - New Crystal Vibrations. Compilation 1 - 11 (2010) [MP3|192-320 kbps]<New Ag
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781495.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ Ken Verheecke - Consider the Moon & Stars (2018) [MP3|320 Kbps] <Electronic, New
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780856.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ VA - New Age Style - Greatest New Age Hits, Vol. 18 (2018) [MP3|320 Kbps] <New a
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780245.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ Guido Negraszus - Night Cafe III (Freedom Travellers) (2012) Guido Negraszus Mus
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780097.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ David Wahler - Mosaic (2018) [MP3|320 Kbps] <New age, Relax, Instrumental>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780078.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ VA - Amazing Piano Music (2018) [MP3|320 Kbps] <New Age, Piano>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779520.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ Mathieu Age - Feminin Sacre (2018) [MP3|320 Kbps] <New age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779288.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ Andrew Kinsella - Cosmic Dawn (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779281.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ Wychazel - Akashic Dream (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779273.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ David Davidson - Celtic Dreams (2018) [MP3|320 Kbps] <New Age, Celtic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779272.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ Jay Stapley - Ambient Blues (1996) [MP3|320 Kbps] <New Age, Blues, World>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779264.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ Midori - The Healer (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779128.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ David Arkenstone - Parisian Lounge (2018) [MP3|320 Kbps] <New Age, Chillout, Lou
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778987.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ Hennie Bekker - Temba (1995) Holborne [MP3|320 Kbps] <New Age, Tribal, African>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778728.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ Hennie Bekker - Kusasa (1999) Holborne [MP3|320 Kbps] <New Age, Tribal, African>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778721.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ Hennie Bekker - The Smoke That Thunders (1997) Holborne [MP3|320 Kbps] <New Age,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778720.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ Hennie Bekker - Jabula (The Joyful Spirit Of Southern Africa) (1998) Avalon Musi
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778712.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ Peder B. Helland - Bright Future (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778652.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ Hennie Bekker - Summer Breeze (1993) Holborne [MP3|256 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778559.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ Hennie Bekker - Relaxing Pachelbel (2005) Tapestries [MP3|320 Kbps] <New Age, Tr
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778551.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ Hennie Bekker - Winter Reflections (1994) Holborne [MP3|256 Kbps] <New Age, Pian
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778549.jpg" />
 </div>
 
 
@@ -713,35 +742,6 @@ Hennie Bekker - Winter Reflections (1994) Holborne [MP3|256 Kbps] <New Age, Pian
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4CAAC54184BD62706A8CC77E242BC63FE1C6BB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210624   (778546) от 04.03.2018
-
-Hennie Bekker - Spring Rain (1992) Holborne [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Канадский мульти-инструменталист Hennie Bekker начинал свою карьеру в Лондоне, как гитарист в местой музыкальной команде, игравшей на дискотеках и вечеринках. Однако вскоре он стал тяготеть к исполнению классических мелодий, попробовав себя в качестве пианиста и аранжировщика музыки к документальным фильмам на BBC и National Geographic. Композитор много путешествовал (   Читать дальше...   )01. Old Friends 3:56
-02. Spring Rain 5:57
-03. Time Out 6:02
-04. Hello Again 5:33(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B18EC7007B24BF1B689F0613553E1B88FCD76296
 ```
 
 https://mybot314.ru/tekegram_catalog/

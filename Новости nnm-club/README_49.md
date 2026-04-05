@@ -1,3 +1,29 @@
+###  Публикация: 1102425   (888664) от 10.02.2017
+
+AT&T готовится запустить интернет по линиям электропередач
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888664.jpg" />
+</div>
+
+
+###  Подробнее
+
+AT&T — крупнейшая в мире телекоммуникационная компания и один из крупнейших медиаконгломератов сообщили о начале испытаний проекта по передаче данных с использованием линий электропередач. Представители компании убеждены, что проект под названием AirGig позволит предоставлять высокоскоростной многогигабитный интернет с гораздо меньшими издержками и на большей (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1102604   (888629) от 10.02.2017
 
 Total Commander 9.0a (x86) Freemen 17.2 slim RePack (& Portable) by notn [Multi/Ru]
@@ -6,7 +32,7 @@ Total Commander 9.0a (x86) Freemen 17.2 slim RePack (& Portable) by notn [Multi/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888629.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888596.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888593.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888250.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887989.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ Mozilla Firefox ESR 45.0 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887452.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ Auto PowerOFF 6.3 [Ru] (Авторская раздача)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887276.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887252.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887219.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887155.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ W10 Digital Activation 1.4.1 TEST by Ratiborus [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886931.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ Detroit: Become Human (2020) [Ru/Multi] (1.0) Repack West4it
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886929.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886886.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886710.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886382.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ Little Snitch 4.5 [Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886273.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ Adobe Photoshop 2020 21.1.1 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886267.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ The Complex (2020) [Ru/Multi] (PUBLIC 911) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886261.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886183.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885819.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ NVIDIA GeForce Desktop 364.51 BETA + For Notebooks [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885712.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885514.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885512.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ Windows 7 Professional SP1 IDimm Edition х86/x64 v.22.16 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885500.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.41.1.66s/dlc) SteamRip =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885308.jpg" />
 </div>
 
 
@@ -652,32 +678,6 @@ American Truck Simulator (2016) [Ru/Multi] (1.41.1.66s/dlc) SteamRip =nemos=
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB3E6998992364B89BF78B20F38D3BA13DD4476D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360374   (884550) от 03.04.2020
-
-Нам надо серьезно поговорить (2020) WEB-DLRip (выпуски 1-9 из ??) (обновляемая)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884550.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Нам надо серьезно поговорить» — это шоу, созданное в уникальном формате, которого еще не было на российском телевидении. По словам создателей передачи, это смесь стендапа и социального реалити. Героями шоу становятся настоящие влюбленные пары, которые испытывают знакомые многим россиянам проблемы в отношениях. По словам Юлии Ахмедовой, она станет неким проводником (   Читать дальше...   )Производство: Россия / Comedy Club ProductionЖанр: ТВ-шоу, юморСубтитры: ОтсутствуютПродолжительность: ~00:23:00 выпуск
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A89660E45B14985920D0E6668C56AC20DF3ED7DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

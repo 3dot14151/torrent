@@ -6,7 +6,7 @@
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372078.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ VideoHive - Animated Ink Font - 12001699 [AEP]
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371743.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VideoHive - The Elegant Spin HD - 84491 [AEP]
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368719.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Motion Array - TwirTurl Titles & Lower Thirds - 214694 [AEP]
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367531.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ VideoHive - Awards Show Opener - 24677156 [AEP]
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367514.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367125.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366291.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366088.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365415.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364174.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364024.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362292.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359881.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357810.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357759.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357693.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356717.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356607.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ VideoHive - T Shirt Opener - 15488015 [AEP]
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353957.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352899.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351916.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ VideoHive - Galaxy Opener Titles - 24747194 [AEP]
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351781.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ VideoHive - Fireworks Titles - 24750446 [AEP]
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351775.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351456.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351286.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349467.jpg" />
 </div>
 
 

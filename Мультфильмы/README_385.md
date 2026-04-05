@@ -1,3 +1,134 @@
+###  Публикация: 1717449   (59086) от 20.04.2024
+
+Король лев / The Lion King (1994) WEB-DL [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59086.jpg" />
+</div>
+
+
+###  Подробнее
+
+У величественного Короля-Льва Муфасы рождается наследник по имени Симба. Уже в детстве любознательный малыш становится жертвой интриг своего завистливого дяди Шрама, мечтающего о власти.
+Симба познаёт горе утраты, предательство и изгнание, но в конце концов обретает верных друзей и находит любимую. Закалённый испытаниями, он в нелёгкой борьбе отвоёвывает своё законное (   Читать дальше...   )Производство: США / Walt DisneyЖанр: мультфильм, мюзикл, драма, приключения, семейныйРежиссер: Роджер Аллерс, Роб МинкоффПеревод: дублированныйСубтитры: русские, английскиеПродолжительность: 01:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6310E98AFFE5E8B298B53EFB8AB5F4E39BCFBBB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717445   (59073) от 20.04.2024
+
+Аладдин / Aladdin (1992) WEB-DL [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59073.jpg" />
+</div>
+
+
+###  Подробнее
+
+В славном граде Аграба живёт Аладдин, веселый воришка с золотым сердцем. Живёт и не знает, что вскоре его ждёт величайшее приключение в жизни. Ведь только с его помощью чёрный маг Джафар может овладеть невероятным сокровищем — лампой, в которой заключён исполняющий желания могущественный Джинн. И только хитроумие, смекалка и доброта Аладдина и его друзей — обезьянки (   Читать дальше...   )Производство: США / Walt Disney Pictures, Silver Screen Partners IV, Walt Disney Animation StudiosЖанр: мультфильм, мюзикл, фэнтези, мелодрама, комедия, приключения, семейныйРежиссер: Рон Клементс, Джон МаскерПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:27:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B31D788DFA7FD1BEF49E41C47C9EC7678C7325E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717367   (59071) от 20.04.2024
+
+Возвращение Джафара / The Return of Jafar (1994) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59071.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение волшебной сказки об Аладдине. Вторая часть захватывающей трилогии о храбром уличном воришке начинается прямо там, где закончился первый мультфильм. Уже казалось бы, что черному чародею и новоявленному джинну Джафару суждено навеки остаться пленником волшебной лампы, - но ему удается освободиться! И на уме у коварного злодея лишь одно: он жаждет отомстить (   Читать дальше...   )Производство: США, Япония, Австралия / Walt Disney PicturesЖанр: мультфильм, мюзикл, фэнтези, мелодрама, комедия, приключения, семейныйРежиссер: Тоби Шелтон, Тэд Стоунс, Алан ЗасловАктеры: Джейсон Александер, Джонатан Фриман, Джефф Беннетт, Гилберт Готтфрид, Вэл Бэттин, Брэд Кэйн, Лиз Колэуэй, Линда Ларкин, Дэн Кастелланета, Б.Дж. УордПеревод: Дублированный (Невафильм)Язык озвучки: Русский, АнглийскийСубтитры: русскиеПродолжительность: 01:06:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:723C8A251E39A7ECAA4D47B5F8B7BF5B8338101F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717682   (59030) от 21.04.2024
+
+Русалочка / The Little Mermaid (1989) WEB-DLRip [H.264/1080p-LQ] [Локализованная версия] [handmade AI]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Таинственные глубины моря хранят немало тайн, а обитатели океана могут рассказать множество удивительных историй. И самой невероятной из них была и остаётся история русалочки Ариэль. Дочь могущественного царя подводного мира Тритона, она однажды влюбляется в прекрасного и мужественного принца. Но разве они могут быть вместе - земной человек и морская дева? Однако (   Читать дальше...   )Производство: США, Япония / Walt Disney PicturesЖанр: мультфильм, мюзикл, фэнтези, мелодрама, приключенияРежиссер: Рон Клементс, Джон МаскерАктеры: Джоди Бенсон, Пэт Кэрролл, Рене Обержонуа, Кристофер Дэниэл Барнс, Пэдди Эдвардс, Бадди Хэкетт, Джейсон Марин, Кеннет Марс ,Эди Макклёрг, Уилл РайанПеревод: Дублированный (Пифагор)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:19:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16AE6BDC8E73D1635808E2DE89E401CDD455DC81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717686   (58987) от 21.04.2024
+
+Черный котел / The Black Cauldron (1985) BDRip [H.264/1080p-LQ] [handmade AI]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой — Таран, мальчик-свинопас, мечтающий стать великим воином и защитником родного Придейна. Его антагонист — злой и могущественный Рогатый король, вознамерившийся завладеть Чёрным котлом и с помощью заключённой в нём силы воскресить армию нежити и покорить мир. Однако найти Чёрный котёл — непростая задача. Его местонахождение может указать волшебная свинка (   Читать дальше...   )Производство: США / Walt Disney PicturesЖанр: мультфильм, фэнтези, приключенияРежиссер: Тед Берман, Ричард РичАктеры: Грант Бардсли, Сьюзэн Шеридан, Фредди Джонс, Найджел Хоторн, Артур Мэлет, Джон Байнер, Линдсэй Рич, Брэндон Колл, Грегори Левинсон, Эда Рейсс МеринПеревод: Дублированный (Пифагор)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:20:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E8C990533BEFE720DF7BEB577FBFD9727A5308C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1717776   (58962) от 21.04.2024
 
 Гуси-лебеди (1949) WEBRip [VP9/2160p]
@@ -6,7 +137,7 @@
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58962.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58932.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58896.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58842.jpg" />
 </div>
 
 
@@ -110,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58839.jpg" />
 </div>
 
 
@@ -136,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58797.jpg" />
 </div>
 
 
@@ -162,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58693.jpg" />
 </div>
 
 
@@ -188,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58559.jpg" />
 </div>
 
 
@@ -214,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58517.jpg" />
 </div>
 
 
@@ -241,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58444.jpg" />
 </div>
 
 
@@ -269,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58369.jpg" />
 </div>
 
 
@@ -295,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58259.jpg" />
 </div>
 
 
@@ -321,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58062.jpg" />
 </div>
 
 
@@ -348,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58055.jpg" />
 </div>
 
 
@@ -376,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58039.jpg" />
 </div>
 
 
@@ -402,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58015.jpg" />
 </div>
 
 
@@ -428,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57968.jpg" />
 </div>
 
 
@@ -454,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57962.jpg" />
 </div>
 
 
@@ -480,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57878.jpg" />
 </div>
 
 
@@ -506,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57851.jpg" />
 </div>
 
 
@@ -532,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57848.jpg" />
 </div>
 
 
@@ -543,140 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6ACE85F407B43F128D63057561500BE34459494
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720226   (57816) от 02.05.2024
-
-Великий мышиный сыщик / The Great Mouse Detective (1986) BDRip [H.264/1080p-LQ] [handmade AI]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57816.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оливия обращается за помощью к Базилю с Бэйкер-стрит. Она просит найти исчезнувшего отца. Базиль, его друг и соратник доктор Доусон, а также пес Тоби берутся за расследование. Следы ведут к профессору Ратигану, крупному преступнику, которому Базилю и придется противостоять.Производство: США / Walt Disney PicturesЖанр: мультфильм, мюзикл, приключенияРежиссер: Рон Клементс, Барни Мэттинсон, Дэвид МиченерАктеры: Винсент Прайс, Бэрри Ингэм, Вэл Бэттин, Сюзанна Полащек, Кэнди Кандидо, Диана Чесни, Ив Бреннер, Алан Янг, Бэзил Рэтбоун, Лори МайнПеревод: Дублированный (Невафильм)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:14:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29CD7335A0BDBCE6CB3AF7227869458D940A5A5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720255   (57734) от 03.05.2024
-
-Покахонтас / Pocahontas (1995) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из Европы отправляется в Новый Свет корабль с нашим героем Джоном Смитом. Экипаж, как объясняет капитан, плывет навстречу приключениям, успеху, богатству.
-
-Но сам капитан намерен найти там нечто вполне определенное - золото. А живут в Америке индейцы, и рассказ пойдет о благородной принцессе Покахонтас.Производство: США, Япония/ Walt Disney PicturesЖанр: мультфильм, мюзикл, драма, мелодрама, приключения, семейныйРежиссер: Майк Гэбриел, Эрик ГолдбергПеревод: Дублированный (Невафильм)Язык озвучки: Русский, АнглийскийСубтитры: русскиеПродолжительность: 01:21:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:988BBE3EC547C115F5AD3136CABEB599676598A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720256   (57729) от 03.05.2024
-
-Полиция будущего / Kido Keisatsu Patoreba: Gekijouban / Patlabor: The Movie (1989) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57729.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для строительных работ изобретены специальные роботы лаборы, однако преступники приспособили их для боевых действий. Чтобы справиться с волной криминала, организована мобильная полиция, которая использует патлаборы — полицейскую версию строительных роботов, оснащенную револьверной пушкой и электрошоковой дубинкой.Производство: Япония / Studio DEEN, Production I.GЖанр: аниме, мультфильм, фантастика, боевикРежиссер: Мамору ОсииПеревод: Многоголосый профессиональный (MC Entertainment)Язык озвучки: Русский, ЯпонскийСубтитры: русскиеПродолжительность: 01:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3E4836D1BC2E32E3E6F4BFB9DE18F16999B5352
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720776   (57637) от 04.05.2024
-
-Король Лев / The Lion King (1994) WEB-DLRip [H.264/1080p-LQ] [handmade AI] [Локализованная версия]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57637.jpg" />
-</div>
-
-
-###  Подробнее
-
-У величественного Короля-Льва Муфасы рождается наследник по имени Симба. Уже в детстве любознательный малыш становится жертвой интриг своего завистливого дяди Шрама, мечтающего о власти.
-Симба познаёт горе утраты, предательство и изгнание, но в конце концов обретает верных друзей и находит любимую. Закалённый испытаниями, он в нелёгкой борьбе отвоёвывает своё законное (   Читать дальше...   )Производство: США / Walt Disney PicturesЖанр: мультфильм, мюзикл, драма, приключенияРежиссер: Роджер Аллерс, Роб МинкоффАктеры: Мэттью Бродерик, Джереми Айронс, Нэйтан Лейн, Эрни Сабелла, Джеймс Эрл Джонс, Мойра Келли, Роуэн Эткинсон, Вупи Голдберг, Чич Марин, Никета КаламПеревод: Дублированный (Невафильм)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9679957BE9E3713A4E68E6ADF37A0319A1C3AC1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720702   (57606) от 04.05.2024
-
-Меч в камне / The Sword in the Stone (1963) WEB-DLRip [H.264/1080p-LQ] [handmade AI]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57606.jpg" />
-</div>
-
-
-###  Подробнее
-
-В стародавние времена в центре Лондона появился громадный камень с замурованным в нем старинным мечом. Золотая надпись на мече гласила, что королем Англии станет тот, кто вытащит этот заколдованный меч, доказав тем самым свою особую силу и право на власть. Пока это не удавалось никому.
-А между тем в далекой лесной глуши жил себе 11-летний мальчик Артур, прислуживал (   Читать дальше...   )Производство: США / Walt Disney ProductionsЖанр: мультфильм, мюзикл, фэнтези, комедия, приключенияРежиссер: Вольфганг Райтерман, Клайд Джероними, Дэвид ХэндАктеры: Себастьян Кабот, Карл Свенсон, Рикки Соренсен, Джуниос Мэтьюз, Джинни Тайлер, Марта Вентуорф, Норман Элден, Алан Напье, Ричард Рейтерман, Роберт РейтерманПеревод: Дублированный (Пифагор)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:19:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:680BF9FAF43156894356D8EC22FC52503916867E
 ```
 
 https://mybot314.ru/tekegram_catalog/

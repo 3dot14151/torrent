@@ -1,3 +1,134 @@
+###  Публикация: 1272375   (143739) от 27.12.2018
+
+Обнаженная за забором / Naakt over de schutting (1973) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143739.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подпольные порнодеятели рассчитывают хорошо заработать на эксклюзивных съемках с участием звезды поп-музыки и чемпиона по каратэ. Обманом они завлекают в свои сети певицу Лилли Марушку и ее бойфренда, каратиста Эда Свана. Но в последний момент все срывается, Эд и Лилли бегут из студии, а приятель спортсмена Рик Лемминг выкрадывает уже отснятый материал. Естественно, (   Читать дальше...   )Производство: Нидерланды / Cinécentrum N.V., ParkfilmЖанр: ТриллерРежиссер: Франс ВайзАктеры: Рейк де Гойер, Дженнифер Уиллемс, Йон Блуминг, Аделе Блумендал, Сильвия Кристель, Тон Ленсинк, Йером Рехёйс, Джерри Броувер, Ханс Сисес, Лодевейк СисесПеревод: Одноголосый закадровый (Horror Maker)Субтитры: РусскиеПродолжительность: 01:32:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04250860FDBA9698DBCEEADBCBFF9ECBF2536730
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678641   (143619) от 22.11.2023
+
+Небеса могут подождать / Heaven Can Wait (1978) BDRip [H.264] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143619.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стареющая звезда футбола Джо Пендлтон погибает в результате несчастного случая на дороге, а его дух оказывается в руках сверхусердного ангела. После того как тело Джо уже кремировано, на небесах выясняется, что ему ещё не пришло время умирать. И перед ангелом и самим Всевышним стоит нелёгкая задача — найти на Земле наиболее подходящий объект для его души. Свободным (   Читать дальше...   )Производство: США, Paramount Pictures, Shelburne AssociatesЖанр: фэнтези, мелодрама, комедия, спортРежиссер: Уоррен Битти, Бак ГенриАктеры: Уоррен Битти, Джули Кристи, Бак Генри, Джеймс Мэйсон, Дайэн Кэннон, Джек Уорден, Чарльз Гродин, Винсент Гардения, Джозеф Маэр, Хэмилтон Кэмп, Артур Мэлет, Стефани Фэраси, Джинни Линеро, Гарри Д. К. Вон, Джордж Дж. МэносПеревод: профессиональный многоголосый, авторскийЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C6EA165E505A01A2B23276C5C22B667D15C4A4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 718844   (142829) от 28.12.2019
+
+В пятницу в половине двенадцатого / An einem Freitag um halb zwolf (1961) HDTVRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142829.jpg" />
+</div>
+
+
+###  Подробнее
+
+По одноименному роману Джеймса Хедли Чейза (James Hadley Chase) "Весь мир в кармане". Фрэнк Морган - криминальный авторитет со стажем - предлагает своим друзьям и партнерам по криминальному бизнесу необычное дело. Он решил ограбить броневик, который раз в неделю перевозит на военную базу сумму в один миллион долларов. Моргану удаётся уговорить своих друзей (   Читать дальше...   )Жанр: Драма, КриминалРежиссер: Элвин РакоффАктеры: Род Стайгер, Надя Тиллер, Питер ван Эйк, Жан Серве, Ян Баннен, Мариса Мерлини, Меммо Каротенуто, Эдоардо Невола, Карло ДжьюстиниПеревод: Многоголосый закадровыйПродолжительность: 01:37:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F499E18BA21E0E10D6B1872014F60A442E242F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348529   (142741) от 28.12.2019
+
+Спокойные деревенские женщины / Tranquille donne di campagna (1980) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Италия, конец тридцатых годов. Режим Муссолини — в самом расцвете, итальянские добровольцы отправляются на гражданскую войну в Испанию. На фоне мирных деревенских пейзажей, за стенами поместья немолодой Флорианы царит своя диктатура: всем заправляет ее брат Гвидо, требующий беспрекословного подчинения своей воле.
+Он считает всех окружающих женщин своей собственностью, (   Читать дальше...   )Производство: Италия / Black Horse InternationalЖанр: ДрамаРежиссер: Клаудио ДжорджиАктеры: Сильвия Дионисио, Филипп Леруа, Кармен Скарпитта, Кристиан Борромео, Россана Подеста, Джермана Саво, Серена Гранди, Сильвано Транквилли, Марио Марандзана, Дэниэл ГолПеревод: Одноголосый любительский, Диколон ДелонСубтитры: РусскиеПродолжительность: 01:30:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F7115684F2C351F1CA7F34B1A94B6B183C55DFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678986   (142607) от 23.11.2023
+
+Наша банда. Настоящие полицейские / Our Gang. Official Officers (1925) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лет сорок назад в СССР была такая детская организация - ЮДМ, "Юный друг милиции". там ребятишки изображали из себя милиционеров, носили подобие милицейской формы, следили за порядком в школе и во дворе, боролись с малолетними хулиганами, ну и тому подобное. На своем, детском, уровне, конечно. Но все равно, дело-то хорошее, полезное. А в США, лет сто назад, (   Читать дальше...   )Производство: США, Hal Roach StudiosЖанр: короткометражный, комедия, семейный, немое киноРежиссер: Роберт Ф. МакгоунАктеры: Джо Кобб, Джеки Кондон, Мики Дэниелс, Джонни Даунс, Аллен ’Фарина’ Хоскинс, Мэри Корнман, Пегги Эхерн, Эльмо Биллингс, Чет Бранденбург, Джеймс ФинлейсонПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:26:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90167A58C36FCBB491D9D471BF2A50E68815AA02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970193   (142378) от 29.12.2015
 
 Мегера / Vixen! (1968) DVDRip [H.264]
@@ -6,7 +137,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142378.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142345.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142334.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142252.jpg" />
 </div>
 
 
@@ -110,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142039.jpg" />
 </div>
 
 
@@ -136,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141997.jpg" />
 </div>
 
 
@@ -162,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141978.jpg" />
 </div>
 
 
@@ -188,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141739.jpg" />
 </div>
 
 
@@ -214,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141504.jpg" />
 </div>
 
 
@@ -240,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141226.jpg" />
 </div>
 
 
@@ -267,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140804.jpg" />
 </div>
 
 
@@ -293,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140785.jpg" />
 </div>
 
 
@@ -319,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140757.jpg" />
 </div>
 
 
@@ -345,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140662.jpg" />
 </div>
 
 
@@ -371,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140592.jpg" />
 </div>
 
 
@@ -397,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140576.jpg" />
 </div>
 
 
@@ -423,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140495.jpg" />
 </div>
 
 
@@ -449,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140017.jpg" />
 </div>
 
 
@@ -477,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139944.jpg" />
 </div>
 
 
@@ -504,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139657.jpg" />
 </div>
 
 
@@ -530,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139363.jpg" />
 </div>
 
 
@@ -541,136 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77F28097AFF6018669C07786B4A09A74EBCC8789
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435885   (139322) от 30.12.2020
-
-Роско Арбакл. Помощник мясника / The Butcher Boy (1917) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139322.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фатти работает в мясном отделе - неудивительно, что он такой упитанный. Его возлюбленную, Алису, отец отправляет в пансион для девушек. Фатти и его соперник Аль решают во что бы то ни стало проникнуть в пансион. Правда, для этого им придётся переодеться в женские платья... Роско Арбакл - один из величайших комиков немой эпохи. И то, что он малоизвестен, - результат (   Читать дальше...   )Производство: США, Comique Film CompanyЖанр: Короткометражка, комедия, немое киноРежиссер: Роско АрбаклАктеры: Роско Арбакл, Бастер Китон, Аль Сент-Джон, Джозефина Стивенс, Артур Эрл, Элис Лейк, Агнес НельсонЯзык озвучки: НемойСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:24:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB6E5E2A5D98F52EF2098825E74B4BBECAB7CC21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520857   (139291) от 30.12.2021
-
-Проклятие / Karhozat / Damnation (1988) BDRip [H.264] [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139291.jpg" />
-</div>
-
-
-###  Подробнее
-
-По роману "Сатанинское танго" венгерского писателя Ласло Краснахоркаи (1985). Главный герой Каррер — одинокий мужчина, страдающий депрессией и алкогольной зависимостью. Он безответно влюблён в замужнюю певицу, поющую в баре «Титаник», который принадлежит её мужу. Каррер узнаёт, что его возлюбленная мечтает прославиться, и решает помочь ей в этом и, заодно, (   Читать дальше...   )Производство: Венгрия, Hungarian Film Institute, Hungarian Television, MoképЖанр: драма, мелодрама, криминалРежиссер: Бела ТаррАктеры: Миклош Б. Секей, Вали Керекеш, Хеди Темешши, Дьюла Пауэр, Дьёрдь Черхальми, Габор Балог, Янош Балог, Петер Брезньик Берг, Имре Чмелик, Зольтан ЧорбаПеревод: профессиональный многоголосый (Студия Лексикон по заказу Камертон-Медиа), авторский (Сергей Кузнецов)Субтитры: русские, английскиеПродолжительность: 02:01:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0289662B040DBE2E275101A45F5D47B73E0958BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348649   (139212) от 30.12.2019
-
-Дюпон Лажуа (Это случилось в праздник) / Dupont Lajoie (1975) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139212.jpg" />
-</div>
-
-
-###  Подробнее
-
-В один из летних отпусков мсье Лажуа «положил глаз» на повзрослевшую Брижитт, подружку сына. Встретив её загорающей голой в уединенном месте, он не выдерживает, насилует и убивает девушку…Производство: Франция / SofracimaЖанр: ДрамаРежиссер: Ив БуассеАктеры: Жан Карме, Пьер Торнад, Жан Буиз, Мишель Пейрелон, Жинетт Гарсен, Паскаль Робертс, Жан-Пьер Марьель, Робер Кастель, Пино Карузо, Изабель ЮпперПеревод: Дублированный (Мосфильм, со вставками одноголосого закадрового)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:36:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AA847177B82FA992AB58CAB734A86EB539EA524
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520893   (139135) от 30.12.2021
-
-Женщины, останавливающие грузовики / Truck Stop Women (1974) BDRip [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139135.jpg" />
-</div>
-
-
-###  Подробнее
-
-Под вывеской обычной стоянки для дальнобойщиков прячется криминальная шайка, промышляющая угоном грузовиков и кражей товара. Мафия из Лос-Анджелеса пытается взять стоянку под контроль, но её хозяйка Анна не желает делиться с заезжими бандитами своей территорией.Производство: США, Lester-Traynor ProductionsЖанр: Боевик, драма, криминалРежиссер: Марк Л. ЛестерАктеры: Клаудия Дженнингс, Льё Дресслер, Джон Мартино, Пол Карр, Деннис Фимпл, Джин Дрю, Дженнифер Бертон, Долорес Дорн, Лен Лессер, Спид СтернсПеревод: Авторский (Андрей Дольский)Субтитры: отсутствуютПродолжительность: 01:28:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFDA4FEA84DAC1A95A3B082D0F6DFD643BB9F8EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088284   (138778) от 31.12.2016
-
-Бамбуковые боги и стальные бойцы / Bamboo Gods and Iron Men (1974) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138778.jpg" />
-</div>
-
-
-###  Подробнее
-
-Медовый месяц четы Джефферсонов в Гонконге омрачен появлением нескольких бандитов, желающих украсть статуэтку Будды, которую новоиспеченный муж предлагал жене, в тот день когда они ходили по магазинам. И когда ситуация становится взрывоопасной их спасает лишь то, что Кэл Джефферсон - лучший американский боксер. Сам того не ведая, он становится пешкой в игре, целью (   Читать дальше...   )Производство: Филиппины, США / American International Pictures (AIP), Premiere ProductionsЖанр: Боевик, Драма, Комедия, Криминал, ПриключенияРежиссер: Сизар ГаллардоАктеры: Джеймс Инглехарт, Ширли Вашингтон, Чикито, Марисса Дельгадо, Эдди Гарсиа, Кен Меткаф, Джозеф Дзуккеро, Берт Ривера, Субас ЭррероПеревод: Одноголосый закадровый (А.Багичев)Субтитры: ОтсутствуютПродолжительность: 01:35:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C00A17313757EBEF1242AC8620A89CB83108E01
 ```
 
 https://mybot314.ru/tekegram_catalog/

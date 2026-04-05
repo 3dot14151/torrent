@@ -1,3 +1,263 @@
+###  Публикация: 1316940   (503227) от 29.07.2019
+
+AnyMP4 Blu-ray Ripper 7.2.32 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503227.jpg" />
+</div>
+
+
+###  Подробнее
+
+AnyMP4 Blu-ray Ripper - простой в использовании инструмент для создания копий Blu-Ray фильмов (в том числе и 3D Blu-Ray) с возможностью конвертации в 2D и 3D форматы видео, включая такие популярные как MP4, MOV, M4V, MPEG, MKV, VOB, AVI, WMV, FLV, ASF, SWF, RMVB и т.д. Кроме того программа позволяет извлекать аудио-дорожки с Blu-Ray дисков и сохранять их в AAC, MP3, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB92C2FE443E48CA788615DF48C907CBDB930FEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317123   (502511) от 30.07.2019
+
+AnyMP4 DVD Converter 7.2.16 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502511.jpg" />
+</div>
+
+
+###  Подробнее
+
+AnyMP4 DVD Converter - удобный и простой в работе конвертер DVD, с помощью которого их можно преобразовать в наиболее популярные форматы видео, как например TS, MP4, 3GP, AVI, WMV, MPEG, MKV, MOV, M4V, FLV, ASF, DivX, XviD, RMVB, а также извлекать с дисков аудио-дорожки с последующим сохранением в MP3, MP2, AAC, AIFF, ALAC, FLAC и т.д.Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34D9114C51FE4162239FE8D2E5E6C68762FE8140
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 934892   (500006) от 07.09.2015
+
+Explaindio Video Creator 2.0.14 [En]
+
+>>След.
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Explaindio Video Creator создания Анимации, Doodle рисунков, и движущегося видео программа для создания видео. Создавайте на технологии Adobe Air свое видео, загружайте или перетаскивайте элементы в главное окно, субтитры, создателей видео. Загружайте уже готовое видео и редактируйте его под себя, вносите изменения с помощью интерактивных элементов.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:141E6D56F01C6F18C292578CC03EDD115BDBB66C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935550   (498232) от 09.09.2015
+
+Aunsoft SWF Converter 2.1.2.80 [En]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498232.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aunsoft SWF Converter является таким фантастическим конвертером, который может конвертировать SWF файлы включает в себя аудио, сценарии действий, видеоклипов и exe-файлы флэш-видео в другие видео и аудио форматы, такие как MP4, MPG, AVI, MP3, FLAC, MKV, OGG, M4A, WAV,  3G2, VOB, SWF, MOV, HD AVI, HD MKV, HD MPG, HD TS, HD WMV, HD MOV и т.д., чтобы воспроизвести и (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD4E184636A901537DC0E77E8CEB9E5DA3FE3F74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935899   (497013) от 10.09.2015
+
+AVS Video ReMaker 5.0.1.172 [Ru/En]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497013.jpg" />
+</div>
+
+
+###  Подробнее
+
+AVS Video ReMaker - программа для быстрого редактирования видео файлов без потерь качества. Алгоритм обнаружения сцены, используемый в AVS Video ReMaker, сэкономит время при обработке видео изображения и разделения его на эпизоды. Таким образом, нет никакой потребности в предварительном просмотре кадра за кадром видеофайла для нахождения монтажных переходов вручную. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:908735453437D0837CC9D68E95A8C46089ABE1CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243209   (493538) от 26.08.2018
+
+Silhouette FX 7.0.7 [En]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Silhouette - интересная программа, которая открывает совершенно новые возможности и поднимает планку инструментов ротоскопинга используемых в пост-продакшн Из плюшек можно отметить морфинг (плавную трансформацию одного объекта в другой) и 2Д/3Д инструменты для преобразования, а также ротоскопирование (анимационная техника, которая позволит создать мультфильм путём (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AA73A98DD534F4C12DA531600514DB68878F1DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318795   (492721) от 07.08.2019
+
+CoolUtils Total Movie Converter 4.1.0.32 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Total Movie Converter - многофункциональная программа для конвертирования видео-файлов в любые популярные форматы такие, как: AVI, MPG, WMV, MPEG, FLV. К тому-же, программа способна подготовить видео для самых различных устройств - iPod, iPhone, Zune, Apple TV, Archos, Creative Zen Vision, XBox и многих других. Предусмотрена возможность пакетного конвертирования (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76D49EF61804DF0E888C2DE4F31BAA353830A05D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318899   (490686) от 08.08.2019
+
+Acrok Video Converter Ultimate 6.6.101.1240 RePack (& Portable) by TryRooM [Ru/En]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490686.jpg" />
+</div>
+
+
+###  Подробнее
+
+Acrok Video Converter Ultimate – это конвертер для Blu-ray, DVD и HD видео, позволяет конвертировать в любые видео форматы и с легкостью редактировать видео. С Acrok Video Converter можно легко конвертировать Blu-ray и DVD/HD-фильмы в форматы для программ редактирования или портативных устройствах, таких как iPad Air, iPad Pro, iPhone 6, iPad Mini 4, Android планшетов (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFE92C6CD32E740DE146D9B6CF8EC3520F7B5E30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1055580   (485516) от 23.09.2016
+
+Aiseesoft MTS Converter 7.2.6 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485516.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aiseesoft MTS Converter - универсальный MTS видео конвертер для преобразования файлов M2TS, TS, МТС AVI, WMV, MP4, 3GP, 3G2, MOV, FLV, MKV, SWF, MPG и т.д. Этот конвертер не только владеет мощной технологией кодера, но и мощной технологией декодера, такими как конвертирование MPG, MPEG, VOB, DAT, MP4, M4V, RM, RMVB, WMV и других форматов видеофайлов высокой чёткости. (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EEA4687766D6FF61D308EC017EEBFF0EA47FB19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159559   (483731) от 20.08.2017
+
+Aiseesoft Total Video Converter 9.2.18 RePack by вовава [Ru/En]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483731.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aiseesoft Total Video Converter является многофункциональным программным обеспечением для конвертации видео в другие популярные форматы, такие как MP4, MKV, WMV, AVI, H.264/MPEG-4 AVC, H.265/HEVC, FLV, 3GP, DivX, VOB, HD видео и другие. Кроме того, программа может извлекать аудио дорожки из видеофайлов и конвертировать их в AAC, AC3, AIFF, MP3, M4V, MP2, WAV, WMA (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D29219FE689CCF9991B07B26146139AC371F441E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1055903   (483298) от 24.09.2016
 
 Aiseesoft MP4 Video Converter 8.2.10 RePack (& Portable) by TryRooM [Multi/Ru]
@@ -6,7 +266,7 @@ Aiseesoft MP4 Video Converter 8.2.10 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483298.jpg" />
 </div>
 
 
@@ -32,7 +292,7 @@ AnyMP4 Video Enhancement 7.2.12 RePack by вовава [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481958.jpg" />
 </div>
 
 
@@ -58,7 +318,7 @@ AnyMP4 4K Converter 7.2.12 RePack by вовава [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481936.jpg" />
 </div>
 
 
@@ -84,7 +344,7 @@ AnyMP4 MP4 Converter 7.2.16 RePack by вовава [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481863.jpg" />
 </div>
 
 
@@ -110,7 +370,7 @@ FilmConvert Pro OFX 2.07 for DaVinci, Sony Vegas and Scratch [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481123.jpg" />
 </div>
 
 
@@ -136,7 +396,7 @@ Xilisoft Video Editor 2.2.0 Build 20120901 Portable by SamDel [MULTi / Русс�
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480020.jpg" />
 </div>
 
 
@@ -162,7 +422,7 @@ Movavi Video Converter 20.2.1 Premium RePack (& Portable) by Dodakaedr [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478681.jpg" />
 </div>
 
 
@@ -188,7 +448,7 @@ AnyMP4 BD to MKV Backup 6.0.16.43011 RePack (& Portable) by AlekseyPopovv [Multi
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473095.jpg" />
 </div>
 
 
@@ -214,7 +474,7 @@ Aiseesoft BD to MKV Copy 6.1.6.14343 RePack (& Portable) by AlekseyPopovv [Multi
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473089.jpg" />
 </div>
 
 
@@ -240,7 +500,7 @@ Photodex ProShow Producer 9.0.3771 [Ru/En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471282.jpg" />
 </div>
 
 
@@ -266,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470607.jpg" />
 </div>
 
 
@@ -292,7 +552,7 @@ FilmConvert Pro 2.35 for After Effects and Premiere Pro [En]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463796.jpg" />
 </div>
 
 
@@ -318,7 +578,7 @@ Ashampoo Video Optimizer Pro 2.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462167.jpg" />
 </div>
 
 
@@ -344,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461333.jpg" />
 </div>
 
 
@@ -370,7 +630,7 @@ Faasoft Video Converter 5.4.20.6448 RePack by вовава [Multi/Ru]
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461203.jpg" />
 </div>
 
 
@@ -396,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461196.jpg" />
 </div>
 
 
@@ -407,267 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DDE2F1A6FF14E922906DF14FEAAB3155E4F4B62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568612   (459315) от 09.08.2022
-
-Boris FX Continuum Complete 2022 15.5.1.565 RePack by KpoJIuK [En]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459315.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция подключаемых модулей, от авторов, отмеченной наградой Оскар технологии Mocha. Функционал Continuum варьируются от восстановления изображения до экструдированного текста, титров и трехмерных объектов, а также цветности и компоновки, частиц и стабилизации изображения. Данный дистрибутив построен, в том числе, на оригинальных Mocha-алгоритмах выбора пикселей (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66DE9F9DE81A3C6441C5E0E8EB1C0CA64DF2600B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408457   (455588) от 12.09.2020
-
-GiliSoft Video Editor 13.1.0 RePack (& Portable) by Dodakaedr [Ru/En]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455588.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощный и многофункциональный видеоредактор. С его помощью можно обрезать черные полосы по краям видео, вырезать из видео ненужные фрагменты, склеить несколько видеоклипов в один ролик, повернуть видео, добавить визуальные эффекты, наложить на видео водяной знак. В Gilisoft Video Editor также есть инструменты для наложения фоновой музыки на видео и работы с субтитрами.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C4E329CEFC4B90EF0F1AD115A74E954261C6AD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942310   (455136) от 30.09.2015
-
-Nero Video 2016 17.0.12000 + ContentPack Portable by PortableWares [Multi/Ru]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эффективное и универсальное решение Nero Video 2016 для ваших проектов: простые функции импорта фотографий и видео из практически любого устройства; редактирование посредством монтажа, текстовых, видео и звуковых эффектов; создание DVD, AVCHD и дисков Blu-ray™; воспроизведение и потоковая передача изображений.Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB4EA81EEF5E92327E181B0D0E46AA198BD8440E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408746   (453285) от 13.09.2020
-
-Ashampoo Video Optimizer Pro 2.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453285.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ashampoo Video Optimizer Pro является эффективным решением для увеличения качества ваших видео. С легкостью стабилизируйте шатающиеся записи, оптимизируйте контрасты и цвета или повышайте резкость ваших клипов. Невероятно быстро удаляйте цифровой и фликкерный шум. Создавайте эффекты медленного движения или замедленной съемки и устраняйте дисторсию объектива всего (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC357A881FD6752CF7A36DFEA2B585D639E8231D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408781   (451308) от 14.09.2020
-
-GiliSoft Video Converter Discovery Edition 11.0.0 RePack (& Portable) by TryRooM [Ru/En]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451308.jpg" />
-</div>
-
-
-###  Подробнее
-
-GiliSoft Video Converter Discovery Edition (Repack & Portable) - легкий, быстрый, надежный и очень функциональный конвертер с поддержкой CUDA & NVENC. Он конвертирует видео во все популярные форматы, включая HEVC/H265 - mp4/mkv, так-же AVI, MPEG, WMV, DivX, MP4, H.264/AVC, AVCHD, MKV, RM, МОВ, XviD, 3GP, и аудио MP3, WMA, WAV, РА, М4А, AAC, AC3, OGG. Теперь (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23853780E1032018D540AEE3D8227471CE668665
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061423   (447835) от 10.10.2016
-
-Nero Video 2017 18.0.00900 Retail [Multi/Ru]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447835.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эффективное и универсальное решение Nero Video 2017 для ваших проектов: простые функции импорта фотографий и видео из практически любого устройства; редактирование посредством монтажа, текстовых, видео и звуковых эффектов; создание DVD, AVCHD и дисков Blu-ray™; воспроизведение и потоковая передача изображений.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E13AC2FD3D1632A3C47EBC0630919A19C5C2D4C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322692   (444381) от 31.08.2019
-
-Tipard 4K UHD Converter 9.2.22 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444381.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tipard 4K UHD Converter - мощный конвертер для преобразований любых 4K UHD, HEVC H.265 и видео HD 1080p. Это один из лучших программных продуктов, дающий возможность обрабатывать видео высокой четкости в любой другой видео формат с сохранением превосходного качества и поддержкой огромного количества популярных медиа форматов.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C99594F49113E53D31159D6A2F69D86F79D1787
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943728   (441987) от 06.10.2015
-
-DFT Tiffen Dfx 4.0 v8 CE RePack by Team VR [En]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441987.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tiffen Dfx - Программный комплекс состоящий из более чем 2000 разнообразных фильтров, спецэффектов, пресетов, гелей, включая моделирование многих популярных стеклянных фильтров, реалистично моделирующий действие фильтров по цвету и плотности, объемности изображения, характерной для диффузионных фильтров.
-Программа позволяет перебирать фильтры, перемещать градиентные (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A3A00F27B95046346158C578CC2CE9EDBFFFA70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944120   (441980) от 06.10.2015
-
-TMPGEnc Movie Plug-in AVC v1.0.5.5 CE RePack by Team VR [En]
-
->>След.
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441980.jpg" />
-</div>
-
-
-###  Подробнее
-
-TMPGEnc Movie Plug-in AVC для Premiere Pro даёт возможность выводить в H.264/AVC из Adobe Premiere Pro CC. Этот плагин использует x264 движок для главного кодера, обеспечивая высокое качество и высокоскоростной экспорт путём объединения запатентованной Pegasys технологии с высококачественными функциями X264 и многочисленными детальными параметрами.Язык интерфейса: английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E62DD2471A03EDB819BAFEAD06D1C02CCD71D5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945168   (435058) от 09.10.2015
-
-Nero Recode 2016 17.0.10000 Portable by PortableWares [Multi/Ru]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435058.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nero Recode — очень мощное и в то же время простое в использовании приложении для преобразования видео на дисках и в файлах в другие форматы. Nero Recode поддерживает практически все последние аудио- и видеоформаты. Кроме того, это приложение поддерживает предварительно настраиваемые профили для самых популярных мобильных и развлекательных устройств, так что вы сможете (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:896228F6FEB60EF2A9EF147FDC85868E8717AE6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

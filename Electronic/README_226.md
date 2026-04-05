@@ -1,3 +1,119 @@
+###  Публикация: 1228255   (639411) от 30.05.2018
+
+VA - Redux Frankfurt Selection (Mixed by A-Tronix & Sven E) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sven E - Tell Me (Brent Rix Club Remix)
+02. Rene Ablaze feat. Crystal Blakk - Torn Into Pieces (Original Mix)
+03. Brent Rix - Dream Chaser (Original Mix)
+04. Gosselt feat. Robin Vane - U & I (A-Tronix & Sven E Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:56:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC5CB9180DBC274167736F4821DC6406B1A91BC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228245   (639408) от 30.05.2018
+
+VA - The Sound Of Trance Vol. 10 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreamline - Winter Lights (Original Mix)
+02. Prodeeboy - Qwerty (Original Mix)
+03. Sothzanne String - Looking For Happiness (Original Mix)
+04. Daun Giventi - Valkyrie (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:42:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:143F897396A7B693AA06AC78FE926F6C5239E2B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228089   (639407) от 30.05.2018
+
+VA - Trance Runner - Episode Six (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brisby & Jingles - It's My Life (Andestro Edit)
+02. Sun Liquide - New Dawn (Radio Mix)
+03. Dima Krasnik - Heaven (Radio Cut)
+04. Symon, Jay - Aerify (Radio Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:01:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3F565B41C5617B17798ABB6D1F51968673CB0AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228081   (639403) от 30.05.2018
+
+Orjan Nilsen - Prism (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swoosh (Intro Extended Mix)
+02. That One Night (Extended Mix)
+03. Hi There Radio (Been Too Long) (Feat. Mike James)
+04. Iconic (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:01:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67A5B14F8073918620CA1D4477D294B702BDE320
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228136   (639396) от 30.05.2018
 
 VA - Trance Euphoria Vol.1 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive>
@@ -6,7 +122,7 @@ VA - Trance Euphoria Vol.1 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance, Prog
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639396.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Ibiza Chill House Sensations (2017) [MP3|320 Kbps] <Deep House, Chillhouse>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639345.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ DJ Sports - Modern Species (2017) [MP3|320 Kbps] <House, Jungle, Ambient>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639340.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Way Out West - Tuesday Maybe (2017) [FLAC|Lossless|WEB|tracks] <Progressive Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639214.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - The Fire This Time (2002) Hidden Art [FLAC|Lossless|WEB-DL|tracks+.cue] <ID
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639197.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Fennesz - Agora (2019) Touch [FLAC|Lossless|tracks+.cue] <Ambient, Experimental>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639195.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639080.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ UNKLE - The Road: Part II (Lost Highway) (2019) Limited Edition 3CD [FLAC|Lossle
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639061.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Zuhause Ist Es Am Schonsten: Chillout Musik (2016) [MP3|320 Kbps] <Downtemp
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638245.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - Be Spa EP (2016) [MP3|320 Kbps] <Electronic, Disco, Nu-Disco>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638228.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - Brightness of Chillout and Lounge (2015) [MP3|320 кб/с]<Downtempo, Chill
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638202.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - Chillout Music For Cafes (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638166.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ VA - New Age Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638084.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Dj Feel - TOP 30 OF MAY (2015) [MP3|320 kbps]<Trance, Progressive Trance>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637979.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Space - All Gold Of The World (2002) [FLAC|Lossless|image + .cue] <Electronic>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637848.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ VA - WMC 2019 (2019) Bonzai Progressive Label [FLAC|Lossless|WEB-DL|tracks] <Dee
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637658.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Tuomo Väänänen (Tuomo Vaananen) - A Small Flood (2017) Ljudverket [FLAC|Lossl
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637528.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ VA - Friends Connection 3: Odd Machinery (Mixed By Nightbob) (2018) [MP3|320 Kbp
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637527.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Michael Rehulka - Balearic Soul (2018) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637524.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ VA - 5 Years Suanda (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637523.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ VA - Ibiza Tech House Dance Sounds (2018) [MP3|320 Kbps] <Minimal, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637522.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Musicformessier & Dan Caine - Timelessness (2017) [MP3|320 Kbps] <Ambient>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637341.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Musicformessier & Dan Caine - Timelessness (2017) [MP3|320 Kbps] <Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25374ABAF128F490A12C13CCF2BBA47F50641D0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143192   (637340) от 17.06.2017
-
-VA - Chillout, Love & Sex (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Woody Fran - Oh My Own (A Night In Venice Mix) 07:13
-02. Keith Goodwin - Good Enough (On The Lake Mix) 06:26
-03. Ryan Wendell - Fire And Works (Gray Eyes Mix) 06:08
-04. Bennie Cullen - Lying Down (The Grand Chill Mix) 07:12(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC0D58CE295DC4A78FBC2006B8A11D8DAECB5072
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907987   (636166) от 13.06.2015
-
-VA - Lounge Sensations (2015) [MP3|320 кб/с]<Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mystical Plants - Where's The Love
-02. Marga Sol - Love Comes Along
-03. Matisse & Jury Jet - Early Sunrise (feat S Khovansky)
-04. Charly McLion - Prelude(   Читать дальше...   )Жанр: DowntempoПродолжительность: 01:51:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C01180BC339328AE8F1B0212264DF4A0D8F9880
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907993   (636153) от 13.06.2015
-
-VA - Hawaiian Sunset - Lounge & Chillout (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light in Color - Lovely Shelters [06:09]
-02. Chillo - Chillo Six (Lounge Mix) [04:41]
-03. Francoise Jardin - Louvre Dub (Remix Edit) [03:14]
-04. Carlos Bonito - Chango Tango [04:39](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:22:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A908AF44DAC428305D5CE07414F70EBE45D21EC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228494   (635950) от 01.06.2018
-
-VA - Trance Festival Ibiza (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Iris Dee Jay & Robert Holland feat. Erin - Faster (Type 41 Remix) 6:42
-02. Bernd Loorbach - Cafe Del Mar (TbO & Vega Trance Mix) 4:57
-03. The North Works feat. Jenny - We Are Back (Vocal Edit) 4:25
-04. Aruso - On My Own (Festival Version) 6:48(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 05:20:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6930D5BC7805D80B058A7E6C6F83B0594910621A
 ```
 
 https://mybot314.ru/tekegram_catalog/

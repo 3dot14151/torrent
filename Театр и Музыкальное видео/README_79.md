@@ -6,7 +6,7 @@ Animusic HD (2010) BDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486504.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Tarja Turunen - Act 1 (2012) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486411.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486075.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485854.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485749.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ Legends of Jazz with Ramsey Lewis, Vol. 2, 3 (2006) 2хDVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485105.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484987.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484718.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484611.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ VA - Осенний марафон № 190 / Видеоклипы (Осенни�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483720.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ V. A. - Smoke On The Water (The Metropolis Sessions of Rock Aid Armenia)(1989) D
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482997.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Rolling Stones - Let's Spend the Night Together (1983) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482911.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482904.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Metallica & San Francisco Symphony - S&M2 (2020) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482854.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482690.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Pharrell Williams - iTunes Festival London (2014) WEB-DL [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481851.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Shar Airag Rock Band - Tribute to Pink Floyd (2013) WEBRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481626.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Europe: The Final Countdown – Live At The Roundhouse (2017) [30th Anniversary 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481617.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Queen - Live At The Rainbow '74 (2014) SD Blu-ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481543.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ I Like a Beautiful Dream 3 (2014) WEBRip [H.264/720p-LQ], [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479770.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Europe: The Final Countdown – Live At The Roundhouse (2017) [30th Anniversary 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479750.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479729.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ VA - Осенний марафон № 191 / Видеоклипы (Коктей�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479676.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ The Beatles - документальные ролики из ремастери�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479593.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Slayer - Repentless (Live At Wacken) (2015) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479453.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ Deep Purple - From the Setting Sun... in Wacken (2015) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479364.jpg" />
 </div>
 
 

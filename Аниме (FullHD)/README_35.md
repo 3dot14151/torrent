@@ -6,7 +6,7 @@ Shikioriori | Flavors of Youth | Ароматы юности [2018, Movie] WEB-D
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420038.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Violet Evergarden / Виолетта Эвергарден [2018, MV, 4] BDrip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419858.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Violet Evergarden | Виолетта Эвергарден [2018, TV, 14 эп.] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419702.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Kono Oto Tomare! 2 | Stop This Sound! 2 | Задержите этот звук! 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418207.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Kono Oto Tomare! | Stop This Sound! | Задержите этот звук! [201
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418203.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Fate/Kaleid Liner Prisma Illya: Prisma Phantasm | Судьба: Девочка-�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418189.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Dorohedoro | Дорохедоро [2020, TV, 12 из 12 + 1 из 1] BDRip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417830.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ JoJo no Kimyou na Bouken: Stardust Crusaders | JoJo`s Bizarre Adventure: Stardus
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417541.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Arslan Senki: Fuujin Ranbu | The Heroic Legend of Arslan: Dust Storm Dance | С�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415893.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Arslan Senki | The Heroic Legend of Arslan | Сказание об Арслан�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415707.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Kuroshitsuji: Book of the Atlantic | Black Butler: Book of the Atlantic | Тём
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414546.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Kikou Soseiki Mospeada | Genesis Climber Mospeada | Моспида - оружи�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413605.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Soba e | Рядом с тобой [2019, Web] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412717.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Madoromi no Vevara | Vevara in Your Dream | Вевара из мира дрём�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412591.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Bartender | Бармен [2006, TV, 11 из 11] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408212.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Ore o Suki na no wa Omae Dake ka yo | Oresuki | Ты единственная, �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406727.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Gekijouban Kuroko no Baske: Last Game | Kuroko's basketbal: Last Game | Баск
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399305.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Sherlock Hound: The Adventure of the Blue Carbuncle | Meitantei Holmes: Aoi Akad
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391726.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Kobayashi-san Chi no Maid Dragon | Miss Kobayashi's Dragon Maid | Кобаяcи 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391712.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391699.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Ajin | Полулюди [2015, MV, 3] BDRip 1080p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390233.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Plastic Nee-san / +Tic Elder Sister / Сестрёнка-моделистка [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388956.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Kono Sekai no Katasumi ni | In This Corner of the World | В этом уголк
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388769.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Kurogane no Linebarrels | Linebarrels of Iron | Стальной Лайнбар�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387590.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Gekijouban Mahouka Koukou no Rettousei: Hoshi o Yobu Shoujo | Непутевый
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387273.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Gekijouban Kidou Senshi Gundam 00: A Wakening of the Trailblazer | Mobile Suit G
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386807.jpg" />
 </div>
 
 

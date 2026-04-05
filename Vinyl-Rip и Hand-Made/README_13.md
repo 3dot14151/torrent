@@ -1,3 +1,33 @@
+###  Публикация: 882873   (812853) от 31.03.2015
+
+Кино - запись студии "Тон" (1991) [FLAC 2.0 24/96|image (Tape-Rip)]<русский рок>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Это не Любовь
+02.Спокойная ночь
+03.Троллейбус
+04.Закрой за мной дверь я ухожу
+05.Попробуй спеть вместе со мной(   Читать дальше...   )Жанр: русский рокПродолжительность: 0:22:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9B9DFEF0958E0E409EF36361E761A7DC95B7479
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197258   (811616) от 09.01.2018
 
 Каролина (Люба Гусева) - Наш Летний Дискобар (2017) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop>
@@ -6,7 +36,7 @@
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811616.jpg" />
 </div>
 
 
@@ -35,7 +65,7 @@ Arabesque - 6 Альбомов (1977-1982) [FLAC 2.0 24/192|image/tracks (Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811111.jpg" />
 </div>
 
 
@@ -64,7 +94,7 @@ Ingrid Kup - Feel Me (Music By Frank Duval) (1982) [FLAC 2.0 24/192|image (Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809507.jpg" />
 </div>
 
 
@@ -90,7 +120,7 @@ Depeche Mode - Delta Machine (2013) [FLAC 2.0 24/192|Tracks (Vinyl-Rip)]<Electro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809319.jpg" />
 </div>
 
 
@@ -125,7 +155,7 @@ Suzi Quatro - Два альбома (1973, 1974) [LPCM 2.0 96/24 | Audio-DVD (Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809318.jpg" />
 </div>
 
 
@@ -152,7 +182,7 @@ Queen - A Kind Of Magic (1986) [FLAC 2.0|192/24|tracks+.cue|Vinyl-Rip] <Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808803.jpg" />
 </div>
 
 
@@ -181,7 +211,7 @@ Varios - Колокольные звоны Псково-Печорского м�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806626.jpg" />
 </div>
 
 
@@ -208,7 +238,7 @@ Hidehiko Matsumoto & Yoshio Kimura - Festival of Enka (1969) [FLAC 2.0|192/24|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806041.jpg" />
 </div>
 
 
@@ -237,7 +267,7 @@ Felix Slovacek - Феликс Словачек (1984) [FLAC 2.0|96/24|image+.cue
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803133.jpg" />
 </div>
 
 
@@ -266,7 +296,7 @@ VA - RETROспектива, часть XV. Мелодии и песни из к�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801927.jpg" />
 </div>
 
 
@@ -295,7 +325,7 @@ VA - Мелодии экрана, 6 серия (1961) [FLAC 1.0|96/24|tracks|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801204.jpg" />
 </div>
 
 
@@ -327,7 +357,7 @@ Freddie Mercury - Mr. Bad Guy (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801075.jpg" />
 </div>
 
 
@@ -356,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800961.jpg" />
 </div>
 
 
@@ -385,7 +415,7 @@ U2 - Легенды Зарубежного Рока (2000) Unofficial Release [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799933.jpg" />
 </div>
 
 
@@ -414,7 +444,7 @@ Marie Wulfing - Get Out Of The Boat (1990) [FLAC 2.0|48/24|image+.cue|MC-Rip] <P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799891.jpg" />
 </div>
 
 
@@ -443,7 +473,7 @@ Emmylou Harris - Profile / Best Of Emmylou Harris (1978) [FLAC 2.0|48/24|image+.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799785.jpg" />
 </div>
 
 
@@ -472,7 +502,7 @@ Tina Turner - Twenty Four Seven (1999) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799731.jpg" />
 </div>
 
 
@@ -501,7 +531,7 @@ VA - RETROспектива, часть XVI. Мелодии и песни из к
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799603.jpg" />
 </div>
 
 
@@ -530,7 +560,7 @@ KOTO - Plays Synthesizer World Hits (1990)  [WavPack 2.0|192/32|image+.cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799579.jpg" />
 </div>
 
 
@@ -559,7 +589,7 @@ Sade - Stronger Than Pride (1988) Unofficial Release [FLAC 2.0|192/24|image + .c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796143.jpg" />
 </div>
 
 
@@ -588,7 +618,7 @@ Pete Seeger - Waist Deep In The Big Muddy And Other Love Songs (1993) 1967 [FLAC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794133.jpg" />
 </div>
 
 
@@ -617,7 +647,7 @@ The Alan Parsons Project - Vulture Culture (1984) [FLAC 2.0|192/24|image + .cue|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792403.jpg" />
 </div>
 
 
@@ -646,7 +676,7 @@ ABBA - Voyage (2021) [WavPack 2.0|32/192|image + .cue|Vinyl-Rip] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791953.jpg" />
 </div>
 
 
@@ -675,7 +705,7 @@ Moby - Reprise (2021) [WavPack 2.0|32/192|image + .cue|Vinyl-Rip] <Downtempo, El
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791928.jpg" />
 </div>
 
 
@@ -704,7 +734,7 @@ The Prodigy - The Fat Of The Land (2012) 2LP Reissue [FLAC 2.0|24/192|image +.cu
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791882.jpg" />
 </div>
 
 
@@ -718,35 +748,6 @@ B2. Funky Shit (05:23)(   Читать дальше...   )Жанр: BreakbeatП�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:782AF8D99A0F7D8CA2F55BDE1BC1800BE8963D27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387269   (791768) от 01.06.2020
-
-Diana Krall - All For You (A Dedication to the Nat King Cole Trio) (1996) 2016 [DSD 128|tracks|Vinyl-Rip] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm an Errand Girl for Rhythm (2:55)
- 02. Gee Baby, Ain't I Good to You (4:07)
- 03. You Call It Madness (4:36)
- 04. Frim Fram Sauce (5:01)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F168EFECC63290A2C66FD7EE949660AA2BB0E0B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

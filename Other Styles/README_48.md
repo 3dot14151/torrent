@@ -1,3 +1,61 @@
+###  Публикация: 1389730   (783348) от 14.06.2020
+
+Giorgio Costantini - Atmosphere (432 Hz) (2015) [FLAC|Lossless|WEB-DL|tracks] <Electronic, New Age, Modern Classical, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rain (432 Hz Version) (2:54)
+ 02. Cantus (432 Hz Version) (3:56)
+ 03. Adagio (432 Hz Version) (4:39)
+ 04. Eolian (432 Hz Version) (3:17)(   Читать дальше...   )Жанр: Electronic, New Age, Modern Classical, PianoПродолжительность: 00:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6B5E8C6C8DEC68A8471DC2D54C87AFFA99EA1EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205788   (783204) от 11.02.2018
+
+Valefim Planet - Oscillation (2018) [MP3|320 Kbps] <Chillout, Enigmatic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783204.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Amen
+2.Christe
+3.Oscillation
+4.Come With Me(   Читать дальше...   )Жанр: Chillout, Enigmatic, New AgeПродолжительность: 00:32:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E9EB6F2EFD482C6F41DE3A3375EF6C8B4560D7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1390368   (782990) от 15.06.2020
 
 Giorgio Costantini - Universound (432 Hz) (2012) [FLAC|Lossless|WEB-DL|tracks] <Electronic, New Age, Modern Classical, Piano>
@@ -6,7 +64,7 @@ Giorgio Costantini - Universound (432 Hz) (2012) [FLAC|Lossless|WEB-DL|tracks] <
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782990.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Armik - Discography (32CD) (1994/2018) [MP3|320 Kbps] <Nuevo Flamenco, Spanish G
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782852.jpg" />
 </div>
 
 
@@ -61,7 +119,7 @@ The Byrds - Sweetheart Of The Rodeo (1968) Remastered 1997 [FLAC|Lossless|tracks
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782694.jpg" />
 </div>
 
 
@@ -90,7 +148,7 @@ John Martyn - One World (1977) CD album, Reissue 1990 [FLAC|Lossless|tracks + .c
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782686.jpg" />
 </div>
 
 
@@ -119,7 +177,7 @@ Johnny Cash - Johnny Cash At San Quentin (1969) [FLAC|Lossless|tracks + .cue] <R
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782673.jpg" />
 </div>
 
 
@@ -148,7 +206,7 @@ Robert Wyatt - EPs (1974-1978) 1999 Box Set 5 CD, Compilation [FLAC|Lossless|tra
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782253.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ Justin Johnson - Turquoise Trail: Soundtrack for a Western (2017) 2CD [MP3|320 K
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782053.jpg" />
 </div>
 
 
@@ -206,7 +264,7 @@ Tim Buckley - Discography (1966-2001) [FLAC|Lossless|tracks + .cue] <Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781881.jpg" />
 </div>
 
 
@@ -235,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781784.jpg" />
 </div>
 
 
@@ -264,7 +322,7 @@ VA - New Crystal Vibrations. Compilation 1 - 11 (2010) [MP3|192-320 kbps]<New Ag
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781495.jpg" />
 </div>
 
 
@@ -290,7 +348,7 @@ Ken Verheecke - Consider the Moon & Stars (2018) [MP3|320 Kbps] <Electronic, New
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780856.jpg" />
 </div>
 
 
@@ -319,7 +377,7 @@ Maria Rita - Amor E Musica (2018) [MP3|320 Kbps] <Latin Music, Samba>
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780391.jpg" />
 </div>
 
 
@@ -348,7 +406,7 @@ VA - New Age Style - Greatest New Age Hits, Vol. 18 (2018) [MP3|320 Kbps] <New a
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780245.jpg" />
 </div>
 
 
@@ -377,7 +435,7 @@ Brandi Carlile - By the Way, I Forgive You (2018) [FLAC|Lossless|tracks + .cue] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780242.jpg" />
 </div>
 
 
@@ -406,7 +464,7 @@ Guido Negraszus - Night Cafe III (Freedom Travellers) (2012) Guido Negraszus Mus
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780097.jpg" />
 </div>
 
 
@@ -435,7 +493,7 @@ David Wahler - Mosaic (2018) [MP3|320 Kbps] <New age, Relax, Instrumental>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780078.jpg" />
 </div>
 
 
@@ -464,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780042.jpg" />
 </div>
 
 
@@ -493,7 +551,7 @@ Greg Butler - Whispering Piano (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Pi
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779804.jpg" />
 </div>
 
 
@@ -522,7 +580,7 @@ VA - Amazing Piano Music (2018) [MP3|320 Kbps] <New Age, Piano>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779520.jpg" />
 </div>
 
 
@@ -551,7 +609,7 @@ Mathieu Age - Feminin Sacre (2018) [MP3|320 Kbps] <New age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779288.jpg" />
 </div>
 
 
@@ -580,7 +638,7 @@ Andrew Kinsella - Cosmic Dawn (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779281.jpg" />
 </div>
 
 
@@ -609,7 +667,7 @@ Wychazel - Akashic Dream (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779273.jpg" />
 </div>
 
 
@@ -638,7 +696,7 @@ David Davidson - Celtic Dreams (2018) [MP3|320 Kbps] <New Age, Celtic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779272.jpg" />
 </div>
 
 
@@ -667,7 +725,7 @@ Jay Stapley - Ambient Blues (1996) [MP3|320 Kbps] <New Age, Blues, World>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779264.jpg" />
 </div>
 
 
@@ -681,64 +739,6 @@ Jay Stapley - Ambient Blues (1996) [MP3|320 Kbps] <New Age, Blues, World>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4D28987696CAB0191C9EC8DC61FB2251997817A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209189   (779259) от 27.02.2018
-
-Acoustic Garden - Concept Emotional (2018) [MP3|320 Kbps] <Country, Folk, Blues>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Not Ready To Lose
-02. Always
-03. The Present
-04. Change The Weather(   Читать дальше...   )Жанр: Country, Folk, BluesПродолжительность: 00:54:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96A0CE063E76BE3FB2C67448B0444D26EE8D3D18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209910   (779128) от 28.02.2018
-
-Midori - The Healer (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779128.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Those Loving Hands (10:29)
-2. The Orbs (10:11)
-3. Light and Warmth (11:50)
-4. Gentle was the Moment (6:47)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76B07D438DBA32E548A2E46D8AFF2A7476428048
 ```
 
 https://mybot314.ru/tekegram_catalog/

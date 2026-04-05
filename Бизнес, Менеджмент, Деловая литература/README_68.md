@@ -1,29 +1,3 @@
-###  Публикация: 1605574   (203899) от 18.01.2023
-
-Рой В. Х. Поллок и др. | Шесть дисциплин прорывного обучения. Как превратить обучение и развитие в бизнес-результаты (2019) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203899.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга рассматривает обучение как бизнес-процесс, который начинается со строгого определения целей и продолжается через документирование результатов. Авторы показывают, почему обучение как одноразовое мероприятие неэффективно и что профессионалы этой области должны делать, чтобы перейти от просто «получателей разовых заказов» в статус стратегических бизнес-партнёров.Жанр: бизнес-процессы, зарубежная деловая литература, личная эффективностьПеревод: Анна ГорманФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02EB24E435F29E84347E809254BDBE7121BE9240
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1605954   (203787) от 20.01.2023
 
 Ванесса ван Эдвардс | Взломай код общения. Как говорить убедительно, заключать выгодные сделки и влиять на людей (2023) [FB2]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203787.jpg" />
 </div>
 
 
@@ -59,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203518.jpg" />
 </div>
 
 
@@ -87,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203181.jpg" />
 </div>
 
 
@@ -114,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200832.jpg" />
 </div>
 
 
@@ -140,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199975.jpg" />
 </div>
 
 
@@ -166,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199974.jpg" />
 </div>
 
 
@@ -192,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199867.jpg" />
 </div>
 
 
@@ -218,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198975.jpg" />
 </div>
 
 
@@ -244,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197219.jpg" />
 </div>
 
 
@@ -270,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196076.jpg" />
 </div>
 
 
@@ -296,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196042.jpg" />
 </div>
 
 
@@ -322,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195964.jpg" />
 </div>
 
 
@@ -349,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195884.jpg" />
 </div>
 
 
@@ -375,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195866.jpg" />
 </div>
 
 
@@ -401,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193167.jpg" />
 </div>
 
 
@@ -427,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193122.jpg" />
 </div>
 
 
@@ -453,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192846.jpg" />
 </div>
 
 
@@ -480,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192773.jpg" />
 </div>
 
 
@@ -506,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192539.jpg" />
 </div>
 
 
@@ -533,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192522.jpg" />
 </div>
 
 
@@ -560,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192487.jpg" />
 </div>
 
 
@@ -587,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192024.jpg" />
 </div>
 
 
@@ -613,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191970.jpg" />
 </div>
 
 
@@ -639,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191806.jpg" />
 </div>
 
 
@@ -665,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191787.jpg" />
 </div>
 
 
@@ -676,6 +650,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A184C6B1EE832EFE5E076363179B01063819FE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588215   (191698) от 03.11.2022
+
+Игорь Манн и др. | Слайдхаки. 84 рабочих приема для лучших презентаций (2021) [EPUB]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191698.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современные деловые люди получают по несколько презентаций в день и лишь бегло их пролистывают. Качество презентации зачастую служит первым критерием отбора: «Сначала пришлите презентацию, а потом поговорим о встрече». Внимание – ресурс ограниченный, и борьба за него становится все жестче.
+Выехать на харизме, набросав простенькие слайды, и обаять собеседника на встрече (   Читать дальше...   )Жанр: Маркетинг, личная эффективностьФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:870B56AD989BCA4ECC4F108F39BC19DD4E465259
 ```
 
 https://mybot314.ru/tekegram_catalog/

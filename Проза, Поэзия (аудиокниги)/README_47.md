@@ -1,55 +1,3 @@
-###  Публикация: 1543658   (627891) от 12.04.2022
-
-Майкл Джон Гаррисон | Затонувшая земля поднимается вновь (2022) [MP3, Виктор Бабков]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627891.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вся жизнь Шоу - неуклюжая попытка понять, кто он. Съемная комната, мать с деменцией и редкие встречи с женщиной по имени Виктория - это подобие жизни, или было бы ею, если бы Шоу не ввязался в теорию заговора, которая в темные ночи у реки кажется все менее и менее теоретической… Виктория ремонтирует дом умершей матери, пытаясь найти новых друзей. Но что случилось (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 08:21:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87928C5059D619C5D362403E3754E508E0DB47C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144516   (627750) от 22.06.2017
-
-Василий Алёхин | Сполохи над Сеймом (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627750.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роман "Сполохи над Сеймом" создавался в течение пятнадцати лет. Его документальная основа воссоздает события, связанные с партизанской деятельностью секретаря Крупецкого райкома комсомола Александры Зайцевой. Это имя хорошо известно на Брянщине, Украине, в Курской области. В селе Крупец установлен памятник этой легендарной женщине. Писатель разыскал многочисленные (   Читать дальше...   )Жанр: ПрозаПродолжительность: 23:43:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93E907EEE6F212D3A490766A3E4A792D6A08AF82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 10028   (627630) от 05.06.2018
 
 Виктор Пелевин | Generation "П"
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_627630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_627630.jpg" />
 </div>
 
 
@@ -87,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627485.jpg" />
 </div>
 
 
@@ -114,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626719.jpg" />
 </div>
 
 
@@ -140,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626654.jpg" />
 </div>
 
 
@@ -168,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624448.jpg" />
 </div>
 
 
@@ -194,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624255.jpg" />
 </div>
 
 
@@ -222,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623919.jpg" />
 </div>
 
 
@@ -249,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623907.jpg" />
 </div>
 
 
@@ -275,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623904.jpg" />
 </div>
 
 
@@ -301,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623810.jpg" />
 </div>
 
 
@@ -327,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622823.jpg" />
 </div>
 
 
@@ -354,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622809.jpg" />
 </div>
 
 
@@ -381,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622446.jpg" />
 </div>
 
 
@@ -407,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621166.jpg" />
 </div>
 
 
@@ -435,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621093.jpg" />
 </div>
 
 
@@ -461,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620958.jpg" />
 </div>
 
 
@@ -487,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620329.jpg" />
 </div>
 
 
@@ -513,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620320.jpg" />
 </div>
 
 
@@ -541,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619989.jpg" />
 </div>
 
 
@@ -567,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619249.jpg" />
 </div>
 
 
@@ -593,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619075.jpg" />
 </div>
 
 
@@ -620,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618481.jpg" />
 </div>
 
 
@@ -648,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618233.jpg" />
 </div>
 
 
@@ -674,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617186.jpg" />
 </div>
 
 
@@ -687,6 +635,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A07A2EAA563E329F1E17CEB5BE212070827A180
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146231   (616095) от 28.06.2017
+
+Лидия Чарская | Вакханка (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эротичеcкая повесть одной из самых популярных писательниц дореволюционной России Лидии Чарской. Этот «роман без романтики», как она сама охарактеризовала его, долгое время был под запретом цензуры. Общественность была взбудоражена столь откровенным произведением от автора детской литературы. И не случайно повесть начинается с эпиграфа из Евангелия от Иоанна: «кто (   Читать дальше...   )Жанр: Литература 20 века, Русская классика, Эротические романыПродолжительность: 03:36:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1268DA8AA1F53BB5A88882E90613B57E1FD7A50A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036223   (615740) от 23.07.2016
+
+Ромен Гари | Пляска Чингиз-Хаима (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман "Пляска Чингиз-Хаима", написанный в 1967 г., не удостоен литературных премий, однако считается лучшим в зрелом возрасте Р. Гари. Виртуозно написанный бурлеск переводит опыт осмысления Второй мировой войны в план онтологического союза Жизни и Смерти, палача и его жертвы, высокой трагедии и площадной комедии.Жанр: Художественная прозаПродолжительность: 11:57:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0BCE2E2A74191B37B7415855922E38BBE9E1A03
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1669461   (172816) от 16.10.2023
+
+И.И. Ляшко и др. | Основы классического и современного математического анализа (1988) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172816.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии изложен математический анализ с основами теории функций комплексной и действительной переменных, а также некоторые разделы функционального анализа. Дифференциальное исчисление построено на идеях Ферма — Лагранжа. В интегральном исчислении введен в рассмотрение интеграл Ньютона — Лейбница и показаны его приложения. Проведено сравнение интегралов Ньютона (   Читать дальше...   )Жанр: МатематикаИздательство: Вища школаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1111F487AB2D2A8004D66AF4E26A1723C1B856A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669521   (172796) от 16.10.2023
+
+Б.П. Демидович | Сборник задач и упражнений по математическому анализу (1990) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172796.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник включено свыше 4000 задач и упражнений по важнейшим разделам математического анализа: введение в анализ, дифференциальное исчисление функций одной переменной, неопределенный и определенный интегралы, ряды, дифференциальное исчисление функций нескольких переменных, интегралы, зависящие от параметра, кратные и криволинейные интегралы. Почти ко всем задачам (   Читать дальше...   )Жанр: МатематикаИздательство: НаукаФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C32840210403C982B11779F6DC9B01CEE83ACD3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1670234   (172244) от 19.10.2023
 
 Ю.М. Березанский, Г.Ф. Ус, З.П. Шефтель | Функциональный анализ (1990) [DJVU]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172244.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171838.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171817.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171695.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171178.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170884.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170822.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170742.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170488.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170409.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170388.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170160.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169777.jpg" />
 </div>
 
 
@@ -352,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169705.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169604.jpg" />
 </div>
 
 
@@ -405,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169567.jpg" />
 </div>
 
 
@@ -431,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169547.jpg" />
 </div>
 
 
@@ -458,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169407.jpg" />
 </div>
 
 
@@ -485,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169013.jpg" />
 </div>
 
 
@@ -512,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169005.jpg" />
 </div>
 
 
@@ -539,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168576.jpg" />
 </div>
 
 
@@ -565,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168460.jpg" />
 </div>
 
 
@@ -591,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168383.jpg" />
 </div>
 
 
@@ -618,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168326.jpg" />
 </div>
 
 
@@ -629,58 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8914A3A4E5F95B86EF05FAA88CAA788837F6AD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596890   (168127) от 12.12.2022
-
-П.В. Шведовский, Д.Н. Клебанюк | Изыскания и проектирование автомобильных дорог (2021) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изложены основные теории транспортных потоков и приведены методики расчета движения автомобилей. Особое внимание уделено вопросам проектирования плана, продольного и поперечных профилей автомобильных дорог, а также расчетам дорожных одежд. Рассмотрены вопросы проектирования сооружений дорожного водоотвода, малых водопропускных сооружений, а также основы проектирования (   Читать дальше...   )Жанр: Дорожное строительствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33613ED8C10E96F8D52E4215D9023016BDEEB871
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596875   (168095) от 12.12.2022
-
-С.Н. Жиганов | Анализ динамических систем (2018) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены общие понятия теории управления, существующие методы анализа систем, динамические модели в виде вход-выход и вход-состояние-выход и способы перехода от одной модели к другой, правила преобразования структурных схем, типовые динамические звенья, свободные и вынужденные движения системы, существующие подходы к анализу устойчивости систем. Лабораторный практикум (   Читать дальше...   )Жанр: Компьютерная литература, электроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5D7BFFE02DA6E3255AAF19922B23FFA65B59924
 ```
 
 https://mybot314.ru/tekegram_catalog/

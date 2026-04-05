@@ -1,3 +1,32 @@
+###  Публикация: 770762   (847149) от 27.03.2014
+
+Сборная Союза - Хрусталь и пепел (2014) [MP3|320 кб/с]<Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Позвони мне невзначай
+02. На Канары
+03. Хрусталь и пепел
+04. Делай что делаешь(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:14:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A13750EB2528735A5E5D0429D11E952FB4470B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378233   (846618) от 25.04.2020
 
 Мафик - Привет ворам! (2015) [FLAC|Lossless|WEB-DL|tracks] <Шансон>
@@ -6,7 +35,7 @@
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846618.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846604.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846535.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - Шоферской-best (2010) [MP3|128-192 kbps]<шансон>
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846493.jpg" />
 </div>
 
 
@@ -128,7 +157,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846152.jpg" />
 </div>
 
 
@@ -157,7 +186,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846040.jpg" />
 </div>
 
 
@@ -186,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844808.jpg" />
 </div>
 
 
@@ -215,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844798.jpg" />
 </div>
 
 
@@ -244,7 +273,7 @@ Charles Aznavour - Collected (2016) 3CD [FLAC|Lossless|image + .cue] <French Cha
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844735.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844397.jpg" />
 </div>
 
 
@@ -302,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842864.jpg" />
 </div>
 
 
@@ -331,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840743.jpg" />
 </div>
 
 
@@ -360,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840696.jpg" />
 </div>
 
 
@@ -392,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840630.jpg" />
 </div>
 
 
@@ -421,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839654.jpg" />
 </div>
 
 
@@ -450,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839189.jpg" />
 </div>
 
 
@@ -479,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838962.jpg" />
 </div>
 
 
@@ -505,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838318.jpg" />
 </div>
 
 
@@ -532,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838316.jpg" />
 </div>
 
 
@@ -561,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838206.jpg" />
 </div>
 
 
@@ -590,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838087.jpg" />
 </div>
 
 
@@ -619,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837948.jpg" />
 </div>
 
 
@@ -648,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836778.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836611.jpg" />
 </div>
 
 
@@ -703,7 +732,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836610.jpg" />
 </div>
 
 
@@ -717,35 +746,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFA04F8AD2C9EBF96E73466491F716B291C5FD5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113395   (836460) от 12.03.2017
-
-Леонид Телешев - Дуэтная история (2016) [MP3|256 Kbps] <Шансон, Поп>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дорога от души к душе (feat. Ирина Круг)
-02. Друзьям (feat. Ирина Круг)
-03. Воспоминание (feat. Ирина Круг)
-04. Мосты (feat. Ирина Круг)(   Читать дальше...   )Жанр: Шансон, ПопПродолжительность: 01:19:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08053F7DD24C16C2045D7213348449BA6E04E884
 ```
 
 https://mybot314.ru/tekegram_catalog/

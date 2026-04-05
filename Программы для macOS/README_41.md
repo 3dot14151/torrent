@@ -1,3 +1,56 @@
+###  Публикация: 1384372   (802308) от 20.05.2020
+
+V-Ray 3.70.05 [En]
+
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802308.jpg" />
+</div>
+
+
+###  Подробнее
+
+V-Ray для Cinema 4D является профессиональным решением для рендеринга пользователей Cinema 4D. Если Вы хотите сделать самое реалистичное статичное изображение или движение, то работа с этим инструментом моделирования ускорит ваш процесс.
+V-Ray для Cinema 4D является отраслевым стандартом и используется многими крупными студиями во всём мире. Он легко интегрируется (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: ChaosGroupПоддерживаемая ОС: Mac OS X 10.11.3Язык интерфейса: Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1CFC42AE01DA1FCCFD24D6C87E669B0A47D9006
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010627   (802162) от 25.04.2016
+
+Due — Reminders, Countdown Timers 1.4.2 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда появляются проблемы с мотивацией и не хочется заниматься рутиной, здорово помогает один простой прием: устанавливать дедлайны для всех задач. Приходит время - и уже волей-неволей принимаешься за работу. С этой задачей легко справится программа Due. Фактически это очень минималистичная напоминалка для OS X и iOS. Не планировщик, не GTD-клиент, а простой список (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 12 апреля 2016Разработчик: Due Pte. Ltd.Поддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F31D6165928E7E3D51C20B7EE34249868D4D4DA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120696   (801980) от 31.03.2017
 
 FocusList: daily planner & focus timer 1.0.8 [En]
@@ -6,7 +59,7 @@ FocusList: daily planner & focus timer 1.0.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801980.jpg" />
 </div>
 
 
@@ -35,7 +88,7 @@ DjVuReader EX 1.5.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801876.jpg" />
 </div>
 
 
@@ -62,7 +115,7 @@ iSMARTtrain 4.2.2 Beta 1 (build 141) [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801766.jpg" />
 </div>
 
 
@@ -88,7 +141,7 @@ PhotosRevive 2.0.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801744.jpg" />
 </div>
 
 
@@ -114,7 +167,7 @@ Runway 2 v2.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801572.jpg" />
 </div>
 
 
@@ -141,7 +194,7 @@ CrossOver 17.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801495.jpg" />
 </div>
 
 
@@ -169,7 +222,7 @@ Sketch 66.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801483.jpg" />
 </div>
 
 
@@ -196,7 +249,7 @@ Edraw Max for Mac 8.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801454.jpg" />
 </div>
 
 
@@ -224,7 +277,7 @@ PrivacyScan 1.9.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801262.jpg" />
 </div>
 
 
@@ -253,7 +306,7 @@ Sketch 78.1 fix [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801107.jpg" />
 </div>
 
 
@@ -279,7 +332,7 @@ Clone X 4.3.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800986.jpg" />
 </div>
 
 
@@ -305,7 +358,7 @@ IINA 1.0.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800592.jpg" />
 </div>
 
 
@@ -331,7 +384,7 @@ Dropzone 3.6.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800515.jpg" />
 </div>
 
 
@@ -358,7 +411,7 @@ Wi-Fi Speed Test 2.1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800475.jpg" />
 </div>
 
 
@@ -387,7 +440,7 @@ Timemator 2.5.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800401.jpg" />
 </div>
 
 
@@ -413,7 +466,7 @@ Duplicate Detective 2 v1.0.13 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800247.jpg" />
 </div>
 
 
@@ -440,7 +493,7 @@ Fresh 4 v4.0.4 fix [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800243.jpg" />
 </div>
 
 
@@ -467,7 +520,7 @@ Leap 4 v4.0.4 fix [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800240.jpg" />
 </div>
 
 
@@ -493,7 +546,7 @@ Yep 4 v4.0.4 fix [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800187.jpg" />
 </div>
 
 
@@ -521,7 +574,7 @@ Weather Guru 2.5.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800186.jpg" />
 </div>
 
 
@@ -547,7 +600,7 @@ CheckBook Pro 2.6.22 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800178.jpg" />
 </div>
 
 
@@ -573,7 +626,7 @@ NTI Dragon Burn 4.5.0.45 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800144.jpg" />
 </div>
 
 
@@ -600,7 +653,7 @@ Transmission for Mac 3.00 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799910.jpg" />
 </div>
 
 
@@ -626,7 +679,7 @@ AppGenome - create desktop app from any Website! 1.4.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799635.jpg" />
 </div>
 
 
@@ -640,61 +693,6 @@ AppGenome позволит вам установить свой собствен
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B49749ACF5ACDEC49EC24B6A9A3A080F04F68FA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121879   (799594) от 03.04.2017
-
-Mirror for Sony TV 1.4.3 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отображение экрана для телевизоров Sony
-Приложения для зеркального отображения экрана вашего Mac на любом Смарт-ТВ Sony. Никаких проводов и дополнительных аппаратных средств не требуется!
-
-Приложение работает на любой модели Смарт-ТВ Sony с 2012 и позже.(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 03 апреля 2017Разработчик: AirBeamTV BVПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE8C3928E863F173DE7B87C244592033034E9645
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506774   (799529) от 01.11.2021
-
-musicMath Touch 5.5 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799529.jpg" />
-</div>
-
-
-###  Подробнее
-
-musicMath - это музыкальный инструмент, который включает в себя калькулятор временного кода, темп нажатия, преобразователь темпа для задержки в миллисекундах и герц, преобразователь ноты в таблицу частот, преобразователь длины выборки, преобразователь изменения темпа и преобразователь частоты в ноты.Тип издания: macOS SoftwareРелиз состоялся: 30.10.2021Разработчик: © 2021 Laurent ColsonПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский и Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:695B960C1B2600D10C98FAFA6CD3A0EE7651E197
 ```
 
 https://mybot314.ru/tekegram_catalog/

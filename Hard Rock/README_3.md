@@ -1,3 +1,32 @@
+###  Публикация: 1089162   (953663) от 02.01.2017
+
+Last Autumn's Dream - In Disguise (2016) Japanese Edition [MP3|320 Kbps] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If Love Should Go (Streets) (4:33)
+02. Jet Airliner Time (Steve Miller Band) (4:10)
+03. Working For The Weekend (Lover Boy) (3:48)
+04.Жанр: Melodic Hard RockПродолжительность: 00:47:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B6622ACA41592831BD5A74A5F1DB876E1A1FF6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1361825   (952262) от 21.02.2020
 
 Black Swan - Shake the World (2020) [MP3|320 kbps] <Hard Rock>
@@ -6,7 +35,7 @@ Black Swan - Shake the World (2020) [MP3|320 kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952262.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ H.e.a.t - H.e.a.t II (2020) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952238.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Black Sun - Brandus (1997) [MP3|320 кб/с] <Rock, Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949815.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Black Star Riders - All Hell Breaks Loose (2013) Deluxe Edition [MP3|320 кб/с
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945983.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Orianthi (Orianthi Panagaris) - Heaven In This Hell (2013) [MP3|320 Kbps] <Hard 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945974.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Magnum - The Valley Of Tears - The Ballads (2017) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945817.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Black Sabbath - Paranoid (1970) 2CD Deluxe Remastered Edition, 2016, Warner Bros
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945227.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Rage Of Angels - The Devil's New Tricks (2016) [MP3|320 кб/с] <Melodic Hard R
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943686.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Confess - Burn 'em All (2020) [MP3|320 Kbps] <Hard Rock, Glam Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942490.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Escape the Fate - 8 albums (2006-2015) [MP3|230-320 кб/с] <Post-hardcore, Har
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941871.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Led Zeppelin - Plays Pure Blues [1969 & 1971] (1994) 2CD Bootleg, Live [MP3|320 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939951.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Pride Of Lions - 6 альбомов Discography 7CD (2003-2017) [MP3|320 Kbps] <
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934890.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Houston - 4 альбома Discography (2010-2014) [MP3|320 Kbps] <Melodic Hard 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933700.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Lionville - 3 альбома Discography (2011-2017) [MP3|320 Kbps] <Melodic Har
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933698.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Hollow Illusion - Hollow Illusion (2016) [MP3|320 кб/с] <Hard & Heavy>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932585.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Lemmy - Born to Lose Live To Win (2017) [MP3|320 Kbps] <Hard Rock, Rock'n'Roll>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932361.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ Black Sabbath - The End (2016) EP [MP3|320 кб/с] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931928.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ Alliance - 4 альбома Discography (1996-2008) [MP3|320 Kbps] <Melodic Rock
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930786.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ Teaze - One Night Stands (1979) Remastered, 2009, Rock Candy [MP3|320 Kbps] <Har
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930134.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ Trigger - Trigger (1978) Remastered, 2009, Rock Candy [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926142.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ Big Life - Big Life (2011) [MP3|320 Kbps] <Melodic Hard Rock, AOR>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925813.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ Newman - 14 альбомов 15CD (1997-2017) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925724.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ Virginia Wolf - 2 альбома (1986-1987) [MP3|320 Kbps] <Melodic Rock, AOR>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924109.jpg" />
 </div>
 
 
@@ -669,7 +698,7 @@ Chasing Violets - 2 альбома (2012-2013) [MP3|320 Kbps] <Melodic Rock, AOR
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923996.jpg" />
 </div>
 
 
@@ -697,7 +726,7 @@ Wolfmother - Victorious (2016) [MP3|320 кб/с] <Stoner Rock, Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922664.jpg" />
 </div>
 
 
@@ -711,35 +740,6 @@ Wolfmother - Victorious (2016) [MP3|320 кб/с] <Stoner Rock, Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41194D30FAF76C15B81870E8FE8E9A368DD5C2B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987996   (922449) от 19.02.2016
-
-Inglorious - Inglorious (2016) [MP3|320 кб/с] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Until I Die
-02. Breakaway
-03. High Flying Gypsy
-04. Holy Water(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9605B3F210B6B17B4B566DD75ABEF85873DE3734
 ```
 
 https://mybot314.ru/tekegram_catalog/

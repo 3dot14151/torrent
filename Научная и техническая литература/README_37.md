@@ -1,136 +1,3 @@
-###  Публикация: 1447712   (1031586) от 14.02.2021
-
-В.А. Дайнеко | Технология ремонта и обслуживания электрооборудования (2017) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Технология ремонта и обслуживания электрооборудования - Учебное пособие содержит сведения по устройству, правилам технической эксплуатации и ремонту оборудования трансформаторных подстанций, силового электрооборудования, контрольно-измерительных приборов, осветительных установок, пускозащитной аппаратуры, фотоэлектрических и ветроэнергетических электростанций, частотно-регулируемых (   Читать дальше...   )Жанр: ЭлектротехникаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C942128AC4C2496B625C62083AE31660A3B2F51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447586   (1031576) от 14.02.2021
-
-Александр Бушков | Копья и пулеметы (2021) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031576.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пятая книга цикла «Остров кошмаров».
-
-Когда вы вдруг задаетесь вопросом, почему одна страна богатая, а вторая не очень, всегда обращайтесь к истории.
-Англия сегодня – очень богатая страна. И можно без всякого преувеличения сказать, что капитал был воздвигнут на костях и крови. Промышленная держава номер один, словно на питательном растворе, выросла на десятках миллионов (   Читать дальше...   )Жанр: Популярно об историиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:667D13D3F3AB29978180F59724E32440185CB4E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447639   (1031562) от 14.02.2021
-
-С.М. Аполлонский | Основы электротехники. Практикум (2021) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031562.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемое читателям пособие является практическим руководством по курсу электротехники, содержащим набор задач с решениями для студентов средних специальных заведений. Автор использовал в пособии ранее опубликованные источники (отмеченные в библиографии) и собственные разработки, которые были накоплены в течение преподавания данной дисциплины в разных вузах России. (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0BC5AF49E3A24C64F2CEE9A84B84ABE13C77353
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447614   (1031546) от 14.02.2021
-
-С.В. Богданов | Умный дом 2-е изд. (2005) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для кого это все написано? Если вы способны включать телевизор с пульта, вы в состоянии понять все, что здесь написано, а при желании — и добавить «ума» своему дому. Все оборудование «Умного Дома» отличается от обычных выключателей, розеток, ламп, как старый телевизор с ручкой переключения каналов отличается от современного телевизора с пультом дистанционного управления. (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE632848080B00D7D62CA134495E5352EFF913E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447673   (1031542) от 14.02.2021
-
-В.А. Скорняков, В.Я. Фролов | Общая электротехника и электроника (2021) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031542.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебнике изложены основы теории электрических цепей, рассмотрены конструкции, принцип действия, основные характеристики электрических машин и полупроводниковых приборов и устройств.Жанр: Электротехника, электроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:152E954E3FB175D510FCFB99C202042792D1D286
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 82706   (1031504) от 14.02.2021
 
 В.М. Глинка  | Русский военный костюм XVIII-XX века (1988) [PDF]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031504.jpg" />
 </div>
 
 
@@ -165,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031109.jpg" />
 </div>
 
 
@@ -191,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031099.jpg" />
 </div>
 
 
@@ -217,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031087.jpg" />
 </div>
 
 
@@ -243,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031030.jpg" />
 </div>
 
 
@@ -269,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030915.jpg" />
 </div>
 
 
@@ -296,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030913.jpg" />
 </div>
 
 
@@ -322,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030908.jpg" />
 </div>
 
 
@@ -348,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030782.jpg" />
 </div>
 
 
@@ -375,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030709.jpg" />
 </div>
 
 
@@ -401,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030684.jpg" />
 </div>
 
 
@@ -428,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030683.jpg" />
 </div>
 
 
@@ -455,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030680.jpg" />
 </div>
 
 
@@ -482,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030675.jpg" />
 </div>
 
 
@@ -508,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030668.jpg" />
 </div>
 
 
@@ -534,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030638.jpg" />
 </div>
 
 
@@ -561,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030610.jpg" />
 </div>
 
 
@@ -587,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030599.jpg" />
 </div>
 
 
@@ -614,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030594.jpg" />
 </div>
 
 
@@ -640,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030493.jpg" />
 </div>
 
 
@@ -666,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030450.jpg" />
 </div>
 
 
@@ -677,6 +544,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25DC444782A980FE7A1AD01683BA21176B7B9D3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448862   (1030407) от 19.02.2021
+
+Джарон Ланье | Кому принадлежит будущее? Мир, где за информацию платить будут вам (2020) [FB2]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030407.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джарон Ланье относит себя к диджерати, технологическому авангарду Кремниевой долины. Его прогнозы и видение будущего шокируют, вселяют надежду, пугают и чаще всего сбываются. «Кому принадлежит будущее?» – книга, задающая важные вопросы о будущем человечества и устройстве нового общества. Как изменила эпоха интернета социум? И как она продолжает его менять? Какой (   Читать дальше...   )Жанр: Интернет, Научно-популярная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3560D4826A58221B210856B82A4988186DCED9BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449215   (1030202) от 20.02.2021
+
+А.И. Жур | Электрооборудование предприятий и гражданских зданий (2019) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030202.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пособие содержит сведения об электрооборудовании термических установок, металлорежущих станков, установок электрической сварки, общепромышленных установок, электрических талей, прессов и лифтов. Рассмотрены вопросы охраны труда, электрооборудование взрывоопасных и опасных установок, особенности монтажа и проектирования электрооборудования станков.
+Предназначено учащимся (   Читать дальше...   )Жанр: ЭлектроснабжениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:445A32B15CE8200EE9AC7035FA183F11894FDEBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449085   (1030196) от 20.02.2021
+
+К.К. Ким и др. | Средства электрических измерений и их поверка (2-е изд.) (2021) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемое учебное пособие предназначено по своему содержанию для всех, кто желает познакомиться с принципами действия средств электрических измерений и их поверкой. Авторы имели при этом в виду обучающихся в высших учебных заведениях, но и практических работников электротехники, занятых в лабораториях, на электрических подстанциях, электрическом транспорте и т. (   Читать дальше...   )Жанр: МетрологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E492290C02CE439A24716B7E587C1B9532003B5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449127   (1030193) от 20.02.2021
+
+А.В. Дробов, В.Н. Галушко | Электрические машины. Практикум (2017) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Практикум является логическим продолжением учебного пособия А. В. Дробова, В. Н. Галушки «Электрические машины» (2015). Содержит материал, необходимый обучающимся для эффективного усвоения и проверки полученных знаний по всем разделам курса, а также практические задания, сопровождающиеся необходимыми методическими указаниями для их решения. Предназначен для учащихся (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D1FF49AC3B776BABC165E9146FE5B1C2C3AB203
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449151   (1030192) от 20.02.2021
+
+И.А. Данилов | Общая электротехника Часть 2 (2019) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030192.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии изложены основы теории электрического и магнитного полей, цепей постоянного и переменного токов, электрических машин, аппаратов и приборов- Основное внимание уделено выявлению физической сущности явлений, происходящих в электрических цепях, принципов работы электротехнических устройств.
+Во второй части представлены электрические машины постоянного (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65B85C4192271A9C930EC151E623C125B76CEBCE
 ```
 
 https://mybot314.ru/tekegram_catalog/

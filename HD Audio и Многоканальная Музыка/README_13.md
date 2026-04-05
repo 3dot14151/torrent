@@ -1,32 +1,3 @@
-###  Публикация: 1002332   (848601) от 31.03.2016
-
-Группа Стаса Намина - Гимн Солнцу (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вступление и "Гимн Солнцу"
-02. После Дождя
-03. Где Живет Ветер
-04. Ты Только Слушай(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:36:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A286BC7EC7C1FC1FF6F538F985372B748D34FA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1499460   (847826) от 02.10.2021
 
 Bonnie Tyler - All In One Voice (1999) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop Rock>
@@ -35,7 +6,7 @@ Bonnie Tyler - All In One Voice (1999) Unofficial Release [FLAC 2.0|48/24|image 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847826.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846917.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845110.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Celine Dion – All the Way….A Decade of Song (1999) [DSD 5.1 1bit/2822,4kHz |
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845067.jpg" />
 </div>
 
 
@@ -148,7 +119,7 @@ Manfred Mann's Earth Band With Chris Thompson - Criminal Tango (1986) [FLAC 2.0|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844772.jpg" />
 </div>
 
 
@@ -177,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842350.jpg" />
 </div>
 
 
@@ -206,7 +177,7 @@ Cinderella - Легенды Зарубежного Рока (2000) Unofficial Re
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841290.jpg" />
 </div>
 
 
@@ -235,7 +206,7 @@ Electric Light Orchestra - Secret Messages (1983)  [FLAC 2.0|192/24|image + .cue
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841272.jpg" />
 </div>
 
 
@@ -264,7 +235,7 @@ Nini Rosso and His Orchestra/Нини Россо И Его Оркестр - Napo
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839899.jpg" />
 </div>
 
 
@@ -293,7 +264,7 @@ VA - RETROспектива, часть XIV. Мелодии и песни из к
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839546.jpg" />
 </div>
 
 
@@ -322,7 +293,7 @@ Rainbow - Легенды Зарубежного Рока (2000) Unofficial Relea
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837869.jpg" />
 </div>
 
 
@@ -351,7 +322,7 @@ Nightwish - Once (2004) 2006, Nuclear Blast [LPCM 2.0 24/48, DTS 5.1 24/48 |Audi
 >>DVD-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835489.jpg" />
 </div>
 
 
@@ -380,7 +351,7 @@ Elton John - Goodbye Yellow Brick Road (2014) [LPCM2.0 96/24, DTS96/24 5.1|Audio
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835414.jpg" />
 </div>
 
 
@@ -409,7 +380,7 @@ Nirvana - Легенды Зарубежного Рока (2001) Unofficial Relea
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835028.jpg" />
 </div>
 
 
@@ -438,7 +409,7 @@ Frank Sinatra - Close To You (1957) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Jaz
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834908.jpg" />
 </div>
 
 
@@ -467,7 +438,7 @@ Queen - News Of The World (1977) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Hard Rock, P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834257.jpg" />
 </div>
 
 
@@ -502,7 +473,7 @@ Puhdys / Пудис (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Classic Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834167.jpg" />
 </div>
 
 
@@ -531,7 +502,7 @@ Rockets - Some Other Rockets (2021) Limited Edition [FLAC 2.0|96/24|tracks|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833536.jpg" />
 </div>
 
 
@@ -560,7 +531,7 @@ Frank Sinatra - My Way (1969/1971) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Jazz
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832949.jpg" />
 </div>
 
 
@@ -589,7 +560,7 @@ The Rolling Stones - Some Girls (1978) [DSD 128|tracks (Vinyl-Rip)]<Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832820.jpg" />
 </div>
 
 
@@ -618,7 +589,7 @@ Electric Light Orchestra - On The Third Day (1973) [FLAC 2.0 24/192|image (Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832753.jpg" />
 </div>
 
 
@@ -647,7 +618,7 @@ The Alan Parsons Project - The Best Of The Parsons Project (1983) [FLAC 2.0|192/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831490.jpg" />
 </div>
 
 
@@ -676,7 +647,7 @@ Andy Williams - Showstoppers. Recorded 1965 (1974) [FLAC 2.0|192/24|image +.cue|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831443.jpg" />
 </div>
 
 
@@ -705,7 +676,7 @@ Frank Sinatra - Some Nice Things I've Missed (1974) [FLAC 2.0|192/24|image +.cue
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831231.jpg" />
 </div>
 
 
@@ -734,7 +705,7 @@ Andrea Bocelli ‎– Andrea [Special Edition] (2004) [DTS 5.1 CD-DA|44.1/16|ima
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830963.jpg" />
 </div>
 
 
@@ -747,6 +718,32 @@ Andrea Bocelli ‎– Andrea [Special Edition] (2004) [DTS 5.1 CD-DA|44.1/16|ima
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0DF119E875426465AF55DEAF176838AADC71DE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 312323   (829947) от 22.03.2011
+
+Bad Haggis - Span [DTS 5.1 CD-Audio] (2004) <Celtic, Irish, International>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829947.jpg" />
+</div>
+
+
+###  Подробнее
+
+1  Mysterious IntegrationЖанр: InternationalПродолжительность: 01:01:35
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

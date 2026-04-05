@@ -1,3 +1,61 @@
+###  Публикация: 1364289   (936309) от 03.03.2020
+
+Felix Slovacek - World Melodies (2014) [FLAC|Lossless|tracks + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oh Mio Babbino Caro
+02. Una Furtiva Lagrima
+03. Barcarolla
+04. Ave Maria(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:53:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89DE0960F1906C5E4336943345A2F619C708DC11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364323   (936259) от 03.03.2020
+
+Felix Slovacek - Classic Essential (1994) [FLAC|Lossless|tracks + .cue] <Classic, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. C. Debussy - Svit luny
+02. P. I. Cajkovskij - Andante
+03. C. Saint-Saens - Samson a Dalia
+04. S. Rachmaninov - Vokalisa(   Читать дальше...   )Жанр: Classic, InstrumentalПродолжительность: 00:58:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C54821FD953F43F04CBF6948634E04BE4829BEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364471   (936257) от 03.03.2020
 
 Celtic Woman - Celebration (2020) [MP3|320 Kbps] <Celtic, New age>
@@ -6,7 +64,7 @@ Celtic Woman - Celebration (2020) [MP3|320 Kbps] <Celtic, New age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936257.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ NuSound - Erotic Moods - The Collection: Volumes 1-3 (1998-2001) 2006 Neurodisc 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935463.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Blowing Free - Sax Moods (1995) 2004 Правительство звука [FLAC
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935455.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Richard Clayderman - The Classics (1997) [FLAC|Lossless|tracks + .cue] <Easy lis
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935449.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Richard Clayderman - When A Man Loves A Woman (1995) 2002  Universal Music Russi
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935448.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Fausto Papetti - Oggi 4: Quarantaseiesima raccolta (1988) [FLAC|Lossless|tracks 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935269.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Prem Joshua - 18 альбомов (1991 - 2014) [MP3|160-320 kbps]<World, New ag
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934182.jpg" />
 </div>
 
 
@@ -215,7 +273,7 @@ VA - Lo Mejor Del Folklore Canario (2008) [FLAC|Lossless|tracks + .cue] <Folklor
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934092.jpg" />
 </div>
 
 
@@ -244,7 +302,7 @@ Chinmaya Dunster - Gaia's Garden (2017) [MP3|320 Kbps] <World, Instrumental, New
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933897.jpg" />
 </div>
 
 
@@ -273,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933499.jpg" />
 </div>
 
 
@@ -302,7 +360,7 @@ VA - Hans Zimmer: The Classics (2017) [MP3|320 Kbps] <Soundtrack, Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933478.jpg" />
 </div>
 
 
@@ -331,7 +389,7 @@ Donna Stewart - Meditations to Heal Your Life (2013) [FLAC|Lossless|WEB-DL|track
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932433.jpg" />
 </div>
 
 
@@ -360,7 +418,7 @@ Dan Gibson - Relax The Body (2006) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932380.jpg" />
 </div>
 
 
@@ -389,7 +447,7 @@ Bernward Koch - Remembering (2015) [FLAC|Lossless|tracks + .cue] <New Age, Piano
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932368.jpg" />
 </div>
 
 
@@ -418,7 +476,7 @@ Fridrik Karlsson - Moods of Iceland (2016) [FLAC|Lossless|WEB-DL|tracks] <New Ag
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932365.jpg" />
 </div>
 
 
@@ -447,7 +505,7 @@ Arne Woutersax - Beautiful Singles (2015) [FLAC|Lossless|WEB-DL|tracks] <Instrum
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932310.jpg" />
 </div>
 
 
@@ -476,7 +534,7 @@ Kitaro - Best Of Kitaro (2009) 4CD [FLAC|Lossless|tracks + .cue] <New Age, World
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932102.jpg" />
 </div>
 
 
@@ -505,7 +563,7 @@ Fly Project - 50 Indian Spirit (2015) [MP3|320 Kbps] <Native American, New age, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931971.jpg" />
 </div>
 
 
@@ -534,7 +592,7 @@ MIDIval Punditz - Light (2015) [MP3|320 кб/с] <New Age, World>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931011.jpg" />
 </div>
 
 
@@ -563,7 +621,7 @@ Mauro Usai and friends - Ethnico (my wind instruments) (2016) [MP3|320 кб/с] 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931010.jpg" />
 </div>
 
 
@@ -592,7 +650,7 @@ John Adorney - The Essential John Adorney (2016) [MP3|320 кб/с] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931000.jpg" />
 </div>
 
 
@@ -621,7 +679,7 @@ Oliver Scheffner - Sunlight Dreams (2015) [MP3|320 кб/с] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930938.jpg" />
 </div>
 
 
@@ -650,7 +708,7 @@ a noend of mine - Green Sketches (2017) EP [FLAC|Lossless|Web-DL|tracks] <Instru
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930679.jpg" />
 </div>
 
 
@@ -679,7 +737,7 @@ VA - Encyclopedia of Ethnic Music, Vol. 1 (2010) [MP3|192 Kbps] <Native American
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930399.jpg" />
 </div>
 
 
@@ -693,64 +751,6 @@ VA - Encyclopedia of Ethnic Music, Vol. 1 (2010) [MP3|192 Kbps] <Native American
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2357563A425093B0D5C24C89C29292F2AAD55FCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094421   (929378) от 18.01.2017
-
-Kathryn Kaye - Reflected in a Flowing Stream (207) [MP3|320 Kbps] <Celtic New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 -  A Lark in the Last Light of Day [00:04:46]
-02 -  As Seasons Change [00:04:19]
-03 -  Procession of Moon and Stars [00:05:42]
-04 -  The Stillness Before Dawn [00:05:42](   Читать дальше...   )Жанр: Celtic New AgeПродолжительность: 00:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BDBD563BD8B24A2E44BDABF941FDE2C6F2A4124
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986657   (929076) от 15.02.2016
-
-Amrit Kirtan - Sacred Circle (2006) 2007 [FLAC|Lossless|image + .cue] <New Age, Meditative, World>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aas Guray Nameh (Mangalacharan Mantra)  07:55
-02. Gobindah, Gobindah, Gobindah, Haray, Haray  11:06
-03. Waah Yantee  11:04
-04. Guru Ram Das Miracle Mantra  11:06(   Читать дальше...   )Жанр: New Age, Meditative, WorldПродолжительность: 01:02:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB998291D9398C0CEF65D3A2B3B1FA73FCB90167
 ```
 
 https://mybot314.ru/tekegram_catalog/

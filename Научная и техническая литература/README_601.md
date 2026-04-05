@@ -1,133 +1,3 @@
-###  Публикация: 458621   (94594) от 26.02.2012
-
-Г. Тельберг | Стенограммы допросовъ [1923] [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стенограммы допросовъ слѣдователем Е.С.Кобылинскаго въ качествѣ свидѣтеля, а П. Медвѣдева, Ф.Проскурякова и А.Акимова въ качествѣ обвиняемыхъ по дѣлу объ убiйствѣ Императора Николая IIФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C196B83B73D1B77B0452DBE8BF80C7B22C576C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488295   (90949) от 26.04.2012
-
-А.М. Сербиновская | Английский язык для турбизнеса и сервиса [2006] [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90949.jpg" />
-</div>
-
-
-###  Подробнее
-
-Целью данного учебника является обучение специалистов в области туризма и сервиса профессионально-ориентированному общению на английском языке, развитие умений и навыков устного и письменного общения в контексте как для развития профессиональной коммуникации, так и непосредственного общения с иноязычными партнерами и клиентами.  Основными достоинствами учебника являются его коммуникативная направленность, комплексная организация учебного материала и взаимосвязанное обучение всем видам речевой деятельности. Текстовый материал аутентичен. Проверочные задания, включенные в учебник, призваны оценить уровень и глубину усвоения пройденного материала.2006Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:849C2A603EF48694A91F42D21CAE5085008BFAD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488584   (90908) от 26.04.2012
-
-Н.П.Акимов | О принципах игры [1941 - 1946] [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90908.jpg" />
-</div>
-
-
-###  Подробнее
-
-О принципах игры. Многообразие театрального поиска. Выбор жанра и позиция художника. Выбор режиссёрских приёмов.1941 - 1946Формат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488448   (90818) от 26.04.2012
-
-Сисели Берри | Голос и актер [1996] [DOC]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90818.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слово — основной выразитель действия. Слово определяет уровень культуры. Слово — хранитель профессионального достоинства актера. Поэтому Московский фонд сохранения культуры и предлагает вашему вниманию эту книгу.1996Формат: DOC
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488071   (90800) от 26.04.2012
-
-Антонен Арто | Театр и его двойник [2000] [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90800.jpg" />
-</div>
-
-
-###  Подробнее
-
-Антонен Арто принадлежит к тому ряду деятелей культуры XX века, значение которых для современности огромно и непреложно. Вместе с тем его имя постоянно вульгаризируется, связывается с явлениями, ему чуждыми. Чтобы понять значение Арто, можно применить дзэнский принцип определения предмета через отрицание тех трактовок, которые этому предмету не соответствуют. Итак, первое заблуждение в определении практического и теоретического значения деятельности Арто сводится к...2000Формат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 487806   (90715) от 25.04.2012
 
 Н.С. Жданова | Перспектива [2004] [PDF]
@@ -136,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90715.jpg" />
 </div>
 
 
@@ -163,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90661.jpg" />
 </div>
 
 
@@ -189,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90655.jpg" />
 </div>
 
 
@@ -215,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90487.jpg" />
 </div>
 
 
@@ -241,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90434.jpg" />
 </div>
 
 
@@ -268,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90353.jpg" />
 </div>
 
 
@@ -296,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90268.jpg" />
 </div>
 
 
@@ -322,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89921.jpg" />
 </div>
 
 
@@ -348,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89657.jpg" />
 </div>
 
 
@@ -374,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89628.jpg" />
 </div>
 
 
@@ -401,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89605.jpg" />
 </div>
 
 
@@ -428,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89409.jpg" />
 </div>
 
 
@@ -455,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89397.jpg" />
 </div>
 
 
@@ -482,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89299.jpg" />
 </div>
 
 
@@ -510,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89268.jpg" />
 </div>
 
 
@@ -536,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89225.jpg" />
 </div>
 
 
@@ -562,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89178.jpg" />
 </div>
 
 
@@ -588,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88861.jpg" />
 </div>
 
 
@@ -615,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88797.jpg" />
 </div>
 
 
@@ -642,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88787.jpg" />
 </div>
 
 
@@ -670,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88653.jpg" />
 </div>
 
 
@@ -683,6 +553,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC99AF0987B697C35F9E8FDA53D1A4F61F89F176
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483574   (88557) от 15.04.2012
+
+Николай Махотин | Справочная книжка для русских офицеров [1875] [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88557.jpg" />
+</div>
+
+
+###  Подробнее
+
+Развитие военной науки и практики на принципиально новой основе, утвердившейся в ходе военной реформы второй половины XIX века, требовало обновленной справочной литературы по соответствующей тематике. Следствием принятых мер явился значительный подъем и инициативы авторов, и издательской деятельности военного ведомства в конце 60-х гг. и в последующее десятилетие. Наряду с многотомными энциклопедиями массовый характер приобрел выпуск малоформатных справочных пособий. Особое признание получила "Справочная книжка для русских офицеров", составленная генерал-майором Генерального штаба Махотиным и отнесенная к числу "самых необходимых настоятельных пособий для всякого офицера". До конца века данный справочник переиздавался несколько раз, сохраняя свою актуальность и универсальный характер. С каждым новым изданием в него не только вносились обновленные сведения по всем отраслям военного дела, но и совершенствовалось полиграфическое исполнение. Так, по свидетельству библиографа П. Бранта, очередное (   Читать дальше...   )1875Жанр: Раритеты / Справочники / Военное делоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:315FC1C95F7D0943C41B145C1C5EDBEF2D873FF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482793   (88490) от 14.04.2012
+
+М.Ю.Черничкин | Большая энциклопедия электрика [2011] [Pdf]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самая полная на сегодняшний день книга, в которой вы найдете массу полезной информации, начиная с азов. В книге раскрыты все основные проблемы, с которыми можно столкнуться при работе с электричеством и электрооборудованием. Описание видов кабелей, проводов и шнуров, монтаж и ремонт электропроводки и многое другое.
+Эта книга станет полезным справочником и для электрика-специалиста, и для домашнего умельца.Жанр: Электротехника, Справочный материалФормат: Pdf
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36A7631A7FA4536F147CFE05DBE787B118F65F0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482894   (88369) от 14.04.2012
+
+Сергей Максимов | Сибирь и каторга. В трех частях [1900] [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88369.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cсылка и каторга – важные и сложные исторические явления. Они представляют собой не только систему наказания, но и, учитывая масштабы, могут восприниматься как часть жизни русского общества, как факторы исторического процесса, протекавшего в Сибири и России в целом.
+Автор имел официальное разрешение на исследование состояния ссылки и каторги в Сибири, поэтому получал доступ к документам и в любые тюрьмы. Несомненным достоинством этой работы является подробное описание быта ссыльных в Сибири, С.В. Максимов делает это буквально со скрупулезной точностью. Автор излагает историю возникновения и развития ссылки, а также историю пребывания в Сибири "государственных преступников" от опальных бояр и воевод XVII в. до декабристов и участников польских восстаний. Приводится огромный статистический материал.1900Жанр: История и этнография СибириФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67CA8A0A6BBEF534D2DB0231850B7F964B28FA6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482799   (88345) от 14.04.2012
+
+«Интернет-издание» | Применение вьетнамских бальзамов [Pdf]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88345.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшая 18-страничная брошюра, содержащая краткие сведения и схемы для наружного использования вьетнамских бальзамов (например, "Золотая звезда") при различных заболеваниях человека. Издатель и год издания на брошюре не указаны, в свое время она распространялась в Москве во время рекламной акции продуктов традиционной вьетнамской медицины.Жанр: Народная медицина, рефлексотерапияФормат: Pdf
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47E56CDD05A56DDEF75C0065D3E25B85D3318969
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482929   (88337) от 14.04.2012
+
+Илья Мощанский | 1941-й. Вторжение. 1941.| Битва за Киев. [ 2008-2010] [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88337.jpg" />
+</div>
+
+
+###  Подробнее
+
+1941-й. Вторжение.
+Предлагаемая вниманию читателей книга повествует о драматических событиях, произошедших на Западной Украине в первые недели боевых действий на советско-германском фронте. С 22 по 30 июня в полосе ответственности 5-й и 6-й армии Юго-Западного фронта разыгралось одно из самых крупных танковых сражений Второй мировой войны, в котором с обеих сторон участвовало не менее 3600 боевых машин. Советские танкисты проявили чудеса храбрости и мужества, но недостаток боевого опыта и сложившаяся военно-политическая обстановка не позволили Красной Армии одержать победу. Большая часть наших воинов погибла, некоторые соединения оказались в окружении. Однако, хоть и на незначительный период, войскам Юго-Западного фронта удалось задержать безудержное продвижение противника вглубь территории Советского Союза. Текстовый материал издания опирается на архивные документы и фотоматериалы, в книге имеются цветные иллюстрации боевой техники и карты операций на театре военных действий.2008-2010Жанр: Научная, историческая литература, военнаяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC23E69012CF85C7075EC260697251ECF1B6A629
 ```
 
 https://mybot314.ru/tekegram_catalog/

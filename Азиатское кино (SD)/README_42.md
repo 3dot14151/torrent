@@ -1,3 +1,55 @@
+###  Публикация: 1258547   (335974) от 30.10.2018
+
+Планета зверей / Dong wu shi jie (2018) WEB-DLRip [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает историю человека, который очень сильно увяз в долгах, в следствии чего, у него попросту не оставалось иного выбора, как принять участие в таинственных играх «Число судьбы», что стало для него весьма отчаянным шагом, ведь ставкой в играх является собственная жизнь.Производство: Китай / Beijing Ruyi Xinxin Film Investment, Enlight PicturesЖанр: Драма, приключения, триллер, фантастикаРежиссер: Хань ЯньАктеры: Ли Ифэн, Чжоу Дунъюй, Майкл Дуглас, Кевин Ли, Эрик Хейз, Альберто Ланселлотти ...Перевод: Многоголосый закадровый, профессиональный (HDrezka Studio)Субтитры: ОтсутствуютПродолжительность: 02:10:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:619E1D4629D1E0E2E6E37AF3E710C5D4ABCA4A3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258500   (335877) от 30.10.2018
+
+Блич / Bleach (2018) WEBRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старшеклассник Итиго Куросаки с детства был способен видеть призраков. Однажды встряв в схватку с призрачным пожирателем душ, схватившем его сестрёнку, парень получает силы ангела смерти по имени Рукия. Но, перестаравшись, она случайно передала Итиго всю свою силу и теперь вынуждена притворяться обычной школьницей и жить в шкафу у своего нового знакомого. А Итиго (   Читать дальше...   )Производство: Япония / Cine BazarЖанр: Боевик, фантастика, фэнтезиРежиссер: Синсуке СатоАктеры: Сота Фукуси, Хана Сугисаки, Мияви, Эрина Мано, Масами Нагасава, Ёсукэ Эгути, Рё Ёсидзава, Таити Саотомэ, Ю Коянаги, Сэйити ТанабэПеревод: Дублированный (Flarrow Films)Субтитры: ОтсутствуютПродолжительность: 01:48:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE0CC4A16A3DD50D4F0F02B30BF79B4730022861
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 727305   (335314) от 26.11.2013
 
 Вирус (Грипп) / Gamgi / Flu (2013) HDTVRip [DVO]
@@ -6,7 +58,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335314.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335298.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334057.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333946.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333826.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333348.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333201.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332539.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332221.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332014.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330655.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328874.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328583.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328154.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327791.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324349.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324347.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324211.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323342.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322356.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322109.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321937.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318071.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318058.jpg" />
 </div>
 
 
@@ -621,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84E678EE1E26AAB54A0DC8D6897D6A02281618DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075742   (317917) от 23.11.2016
-
-Эверест — вершина богов / Everesuto: Kamigami no itadaki (2016) HDRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация одноименного японского романа-бестселлера, посвященная истории самого первого удачного покорения смертельно опасного Эвереста, совершенного Ирвингом и Мэллори, чье первенство так и осталось недоказанным, так как оба альпиниста пропали без вести. Но вот, уже в 21 веке профессиональный фотограф-альпинист выходит на след камеры Мэллори, которая может стать (   Читать дальше...   )Производство: ЯпонияЖанр: Драма, экранизацияРежиссер: Хидеюки ХираямаАктеры: Хироси Абэ, Сюнсукэ Кадзама, Сергей Куваев, Масахиро Комото, Тилен Лондюп, Дзюнити Окада, Матико Оно, Кураносукэ Сасаки, Пьер Таки ...Перевод: Любительский многоголосый (КОЛОБОК)Субтитры: ОтсутствуютПродолжительность: 02:02:37Реклама: Присутствуют аудио и видео вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE87CC58F9E0C201D0D3BF35798860775F90D1B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421638   (317556) от 05.11.2020
-
-Френдзона / Rawang... Sinsud thang pheuxn / Friend Zone (2019) WEB-DLRip [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Палм уже 10 лет безответно влюблён в бывшую одноклассницу Гинк. В старших классах парень помогал ей следить за отцом, который, как она и подозревала, изменял матери, а теперь носится с ней по всей Юго-Восточной Азии за предположительно неверным бойфрендом. Паранойя, слёзы, истерики, а так же признания, как Гинк повезло иметь такого преданного друга, всегда готового (   Читать дальше...   )Производство: Таиланд, Jorkwang FilmsЖанр: Мелодрама, комедия, музыкаРежиссер: Чаяноп БунпракобАктеры: Напхат Сиангсомбун, Пимчанок Льювайзетпайбун, Нуттхасит Котиманусванич, Сухапат Лохвачарин, Чертсак Пратумсрисахон, Боом Сувагондха, Бенжамин Джозеф Вэрни, Ясон Ёунг, Чи ПуПеревод: Двуголосый любительский (W³: voices / Дораманутая)Субтитры: Английские - отдельным файломПродолжительность: 01:58:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BA6FE4F79012C5D5CC536DFB7D09D577D54FEB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1504280   (813347) от 22.10.2021
+
+Poppy Playtime (2021) [Multi] (7543327) License DARKSiDERS
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы должны остаться в живых в этом приключении жанра Horror/Puzzle. Попробуйте пережить мстительных игрушек, которые ждут Вас на заброшенной фабрике. Используйте GrabPack, чтобы взломать электрические цепи или захватить что-нибудь издалека. Исследуйте таинственный объект и не попадитесь. Playtime Co. когда-то была королём индустрии производства игрушек, пока однажды (   Читать дальше...   )Тип издания: LicenseРазработчик: MOB GamesЖанр: Horror, Psychological, Survival, PuzzleЯзык озвучки: АнглийскийЯзык субтитров: Английский, ИспанскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC0516F940D58A995DF21B5A85890A2CA1DDA31C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008822   (812961) от 19.04.2016
+
+Outpost 13 (2015) [Ru/Multi] (1.0) Repack MasterDarkness
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812961.jpg" />
+</div>
+
+
+###  Подробнее
+
+Outpost 13 - point-and-click экшен-приключение с элементами стратегии, действие которого будет происходить на форпосте на планете Achelous IV. Игрокам предстоит управлять собакой по кличке Фэн, которая на этой планете подверглась нападению неизвестного биологического организма, в результате чего превратилась в монстра, способного маскироваться под собаку. Вашей главной (   Читать дальше...   )Тип издания: RepackРазработчик: Cantina Games and Entertainment, Inc.Жанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F03D8EC593EDD14EFD3B4C0E47939521A5BD1A46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007358   (812945) от 19.04.2016
+
+Goetia (2016) [En/Fr] (1.1) License RELOADED
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812945.jpg" />
+</div>
+
+
+###  Подробнее
+
+Goetia - это приключенческая игра, действие которой разворачивается в заброшененом особняке во время Второй Мировой войны. Главная героиня игры, призрак умершей 50 лет назад девочки по имени Абигейл, пытается понять, почему она вернулась к жизни в этом особняке, и что стало с ее семьей.Тип издания: LicenseРазработчик: SusheeЖанр: AdventureЯзык озвучки: -/-Язык субтитров: Английский, ФранцузскийЯзык интерфейса: Английский, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA309CB07C55A4404E2B036961794A93424F225E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1118359   (812629) от 25.03.2017
 
 Nancy Drew: The Deadly Device / Нэнси Дрю: Смертоносное устройство (2012) [Ru] (1.0) Unofficial InMad
@@ -6,7 +84,7 @@ Nancy Drew: The Deadly Device / Нэнси Дрю: Смертоносное ус
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812629.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ The Witness (2016) [Ru/Multi] (964-Ansel(A)) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812558.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Samorost 3 (2016) [Ru/Multi] (1.4.465) License GOG [Cosmic Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812544.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Zero Escape: The Nonary Games (2017) [En/Ja] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810738.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ The Plane Effect (2021) [Ru/Multi] (1.01.2509) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809496.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Mutazione (2019) [Ru/Multi] (1.84) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807813.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Corpse Party (2021) (2021) [Multi] (2021-10-20) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807679.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ DYING: Reborn (2018) [Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807633.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Q.U.B.E. 2 (2018) [Ru/Multi] (1.8/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807414.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Bottle (2016) [En] (1.0.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807187.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ The Lost Souls (2016) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805240.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ Has-Been Heroes (2017) [Multi] (1.00.9762) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804893.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ TheNightfall (2018) [Multi] (1.0) Repack MAXSEM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804223.jpg" />
 </div>
 
 
@@ -347,7 +425,7 @@ TheNightfall (2018) [Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803990.jpg" />
 </div>
 
 
@@ -373,7 +451,7 @@ The Talos Principle (2014) [Ru/Multi] (326589/dlc) Repack R.G. Механики 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803975.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ The Wolf Among Us (2013-2014) [Multi] (1.0) License GOG [Episodes 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802378.jpg" />
 </div>
 
 
@@ -425,7 +503,7 @@ Life Is Strange Dilogy (2015-2017) [Ru/Multi] (1.0.0.397609/1.2.0.7.1712051016) 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802370.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ Dagon: by H. P. Lovecraft (2021) [Ru/Multi] (2021.10.23:028) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802304.jpg" />
 </div>
 
 
@@ -477,7 +555,7 @@ Observer: System Redux (2020) [Ru/Multi] (r24065) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802192.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ Return to Mysterious Island / Возвращение на таинственны
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801418.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ Gomo (2016) [Ru/Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801002.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ Live Or Die (2021) [En] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800821.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ DYING: Reborn (2018) [Multi] (1.0) Repack MAXSEM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800818.jpg" />
 </div>
 
 
@@ -592,84 +670,6 @@ DYING: Reborn - это игра-головоломка в жанре «Эске�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:939A9D8CA32988CE6E340366F7C0CA7A962D7949
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384831   (800780) от 22.05.2020
-
-Observation (2019) [Ru/Multi] (1.16) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800780.jpg" />
-</div>
-
-
-###  Подробнее
-
-Observation - это научно-фантастический триллер, в котором вам предстоит взять на себя роль системы искусственного интеллекта S.A.M. на космической станции и раскрыть тайну событий, произошедших с доктором Эммой Фишер и её командой. Играя за S.A.M., вы будете использовать системы управления станцией, камеры и инструменты, чтобы помочь Эмме понять, что происходит (   Читать дальше...   )Тип издания: LicenseРазработчик: No CodeЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A167B0B92793B6F172A5231EEC988021294630A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506257   (800772) от 30.10.2021
-
-Indicted (2021) [Multi] (1.0) License DARKSiDERS
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800772.jpg" />
-</div>
-
-
-###  Подробнее
-
-Истязаемый муками совести, в поисках искупления Артур, следователь полиции, решает взяться за свое последнее дело: дети загадочным образом исчезают, и все подсказки ведут в бывший приют RIS, где в прошлом произошла ужасная бойня, унесшая жизни многих невинных детей. Артуру предстоит исследовать это место, столкнувшись со сверхъестественными и очень могущественными (   Читать дальше...   )Тип издания: LicenseРазработчик: 616 GAMESЖанр: Приключения, Хоррор, Экшн, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Английский, Португальский (Бразилия)Язык интерфейса: Английский, Португальский (Бразилия)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1CD804FA7928AFC619A1008B33695AF46059AD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506325   (800721) от 30.10.2021
-
-Horror Story: Hallowseed (2021) [Ru/Multi] (1.0.0a) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Horror Story: Hallowseed – одиночная игра с глубоким сюжетом в жанре психологического хоррора, действие которой разворачивается в вымышленном месте под названием Хэллоусид. Вид от первого лица позволит вам насладиться детально прорисованным миром, полным всевозможных головоломок. Управляющий окружением искусственный интеллект реагирует на выбор и действия игрока, (   Читать дальше...   )Тип издания: LicenseРазработчик: Jeff WinnerЖанр: Приключение, Survival, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DB520FE51F5B14A414550380858F97701BFF3CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

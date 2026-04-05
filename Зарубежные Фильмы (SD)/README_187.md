@@ -1,3 +1,55 @@
+###  Публикация: 1199030   (802594) от 14.01.2018
+
+Фарфоровая луна / China Moon (1991) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полицейский влюбляется в замужнюю женщину, у которой очень плохие отношения с мужем. Муж изменял ей, оскорблял ее, бил, она дважды пыталась развестись с ним. Наконец-то решилась бесповоротно, и вместе с новым возлюбленным поехала домой за вещами. И тут неожиданно пришел благоверный. Между супругами вспыхнула ссора. Он швырнул ее об стену, она выхватила пистолет и (   Читать дальше...   )Производство: США / Tig ProductionsЖанр: Триллер, Мелодрама, Криминал, ДетективРежиссер: Джон БэйлиАктеры: Эд Харрис, Мэделин Стоу, Бенисио Дель Торо, Чарльз Дэнс, Патриция Хили, Тим Пауэлл, Прюитт Тэйлор Винс, Ларри Шулер, Роб Эдвард Моррис, Пол ДэрбиПеревод: Двуголосый закадровый, авторскийСубтитры: Русские, английскиеПродолжительность: 01:39:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D10F5AB59431138A8B596DD258ECD0BE4B53925
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505770   (802489) от 28.10.2021
+
+Не дыши 2 / Don't Breathe 2 (2021) BDRip [H.265]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802489.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя несколько лет после кровавого вторжения Норман обрел покой и утешение, но оказалось, что от прошлых грехов так просто не убежишь.Производство: США, Сербия / Bad Hombre, Ghost House Pictures, Sony Pictures Entertainment (SPE) Worldwide Acquisitions Group, Stage 6 FilmsЖанр: Ужасы, боевик, триллер, драмаРежиссер: Родольфо СаягесАктеры: Стивен Лэнг, Мэдлин Грэйс, Брендан Секстон III, Адам Янг, Рокки Уильямс, Кристиан Сахиа, Бобби Шофилд, Фиона О’Шонесси, Стефани Арсила, Диана БабницоваПеревод: Дублированный (Пифагор)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:38:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43B41B93208680B3306533C0713E0A63E78E18CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501539   (802390) от 28.10.2021
 
 Отель Новая Роза / New Rose Hotel (1998) BDRip [H.264]
@@ -6,7 +58,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802390.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802307.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802282.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802231.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801960.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801955.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801923.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801891.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801646.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801638.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801630.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801627.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801615.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801608.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801548.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801540.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801502.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801494.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801450.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801419.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801411.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801408.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801388.jpg" />
 </div>
 
 
@@ -598,33 +650,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505367   (801360) от 29.10.2021
-
-Огр (Лесной царь) / der Unhold / the Ogre (1996) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801360.jpg" />
-</div>
-
-
-###  Подробнее
-
-В то самое время, когда в Сталинграде капитулировали немецкие войска, француз Абель Тиффож, похожий на «черного монаха», странствовал по лесам в сопровождении огромных доберманов и отбирал детей в элитный тренировочный лагерь.
-Абель работал в замке Кальтенборн, где сотни подростков занимались спортивными соревнованиями и военной подготовкой. Только при виде русских (   Читать дальше...   )Производство: Германия, Франция, ВеликобританияЖанр: ДрамаРежиссер: Фолькер ШлендорффАктеры: Джон Малкович, Армин Мюллер-Шталь, Аньес Сораль, Марианне Загебрехт, Вернон Добчефф, Саша Ханау, Готтфрид Джон, Люк ФлорианПеревод: Авторский, Профессиональный многоголосыйСубтитры: Английские (Full)Продолжительность: 01:57:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B24FF45BCC3C1BEDCC6845D46F240D938B32D545
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506047   (801334) от 29.10.2021
 
 Армия воров / Armee der Diebe / Army of Thieves (2021) WEB-DLRip
@@ -633,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801334.jpg" />
 </div>
 
 
@@ -644,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBEAE6BD5FE7EDC321CC87EC9C1DD2A741E61D76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505934   (801332) от 29.10.2021
-
-Под гипнозом / Hypnotic (2021) WEB-DLRip [H.264] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801332.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чувствуя себя в тупике как в личном, так и в профессиональном плане, Дженн обращается за помощью к гипнотерапевту, но вскоре оказывается в эпицентре смертельной игры.Производство: США / The Long GameЖанр: Триллер, драмаРежиссер: Мэтт Энджел, Suzanne CooteАктеры: Кейт Сигел, Джейсон О’Мара, Дьюли Хилл, Люси Гест, Джейм М. Каллика, Таня Диксон-Уоррен, Люк Родерик, Девин Далтон, Stephanie Cudmore, Джесси ФрайзерПеревод: Любительский двухголосый (Pazl Voice)Язык озвучки: РусскийСубтитры: Русские (Full), Английские (SDH)Продолжительность: 01:29:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EBB447D43269A73D58C1DA9BA197659F0030DC6
 ```
 
 https://mybot314.ru/tekegram_catalog/

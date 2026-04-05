@@ -1,3 +1,55 @@
+###  Публикация: 1601428   (150806) от 31.12.2022
+
+Рождество с Такером / Christmas with Tucker (2013) DVDRip [MVO]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150806.jpg" />
+</div>
+
+
+###  Подробнее
+
+13-летний подросток, только что потерявший отца, находит себе верного и преданного друга в лице соседского пса Такера. Когда сосед-алкоголик попадает в тюрьму, мальчик заботится о собаке, а Такер о нём. Но сосед возвращается, и новым друзьям надо найти способ остаться вместе.Производство: Канада, США / Muse Entertainment EnterprisesЖанр: драма, семейныйРежиссер: Ларри А. МакЛинАктеры: Джеймс Бролин, Гейдж Манро, Барбара Гордон, Рон Лиа, Дерек МакГрат, Джон Тенч, Helen Colliander, Джози Биссет, Келси Руль, Alisha BuikemaПеревод: многоголосый профессиональный (Кинопоказ)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:26:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2595F418E6577EA3715A1927AE00989C33D01806
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677547   (150528) от 18.11.2023
+
+Корова и президент / La vache et le president / The Cow and the President (2000) DVD5 [VO]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150528.jpg" />
+</div>
+
+
+###  Подробнее
+
+Восьмилетний Лукас живет вместе со своим отцом в маленькой деревне. У Лукаса есть верный друг. Как это не странно - это корова по имени Маева. Все идет прекрасно, но вдруг на ферме заболевает одна корова страшной для всех животных болезнью. Анализы покажут, что болезнь заразная и опасная и что всем коровам грозит забой. Отец Лукаса получает сообщение, что через 12 (   Читать дальше...   )Производство: Франция / Canal+ (fr), Gaumont, TF1 Films ProductionЖанр: комедия, семейныйРежиссер: Филипп МуилАктеры: Бернард Йерле, Флоранс Пернель, Мехди Ортелсберг, Кристиан Бюжо, Бернард Блох, Шарль Шнайдер, Жан-Мари Корниль, Gérard Sergue, Мишель Трилло, Патрик РомбиПеревод: одноголосый любительский (Семён Ващенко)Язык озвучки: русский, французскийСубтитры: русские, китайские, английскиеПродолжительность: 01:28:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B21165AF18C9912AD6A83412D6D422CC164923C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1334051   (150453) от 24.12.2020
 
 Академия пана Кляксы / Akademia pana Kleksa (1983) HDRip [H.264]
@@ -6,7 +58,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150453.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150179.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150077.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147131.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147106.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146238.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145851.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145752.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145723.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145022.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142272.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142209.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140214.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139724.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139194.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138955.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138902.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138779.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137844.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137749.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136402.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136051.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133331.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132663.jpg" />
 </div>
 
 
@@ -622,58 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B4475D27B88F273AED41463543B5523DF7C0B09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461529   (131694) от 06.12.2023
-
-Жил-был один король / Byl jednou jeden kral... (1955) WEB-DLRip [H.264]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131694.jpg" />
-</div>
-
-
-###  Подробнее
-
-История про короля, который из трех дочерей предпочел двух: самую красивую и самую веселую, а самую умную, да еще умеющую прекрасно готовить, — выгнал, о чём потом горько пожалел.Производство: Чехословакия / Studio Umeleckých Filmu PrahaЖанр: Фэнтези, КомедияРежиссер: Борживой ЗеманАктеры: Ян Верих, Власта Буриан, Ирена Качиркова, Стелла Майова, Милена Дворска, Франтишек Черны, Любомир Липский, Мирослав Горничек, Милош Копецки, Терези БрзковаПеревод: Многоголосый профессиональный, Фортуна ФильмСубтитры: АнглийскиеПродолжительность: 01:37:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:370BC4EEFAF66594426CF91316D85C0C6CFC70D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596302   (131212) от 30.12.2012
-
-Лето с Катькой / Leto s Katkou (1975) TVRip [SK]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мама отправила Катю к тёте в деревню на летние каникулы. Но вот беда: женщину положили в больницу и девочка поселилась в доме у дяди Йошко. Сверстники сначала не приняли её в свою компанию, но подружились, когда Катя стала учиться готовить (пожар потушили), доить козу (спасаясь бегством) и разводить кроликов. Вместе ребята энергично помогают взрослым решить их серьёзные (   Читать дальше...   )Жанр: Семейный, ПриключенияРежиссер: Радим ЦврчекАктеры: Katka Zatovičová, Jiří Vala, Eva Krížiková, Norbert Judt, Martin Masner, Ladislav Korený, Ida Rapaičová, Emília Steigerová, Jana Drbohlavová, Peter Debnár, Lubomír Kostelka...Перевод: ОтсутствуетПродолжительность: 03:04:05 - (7 х ~ 00:26:00)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD64583373F485B30C54E0EB3199CE14A5EF2359
 ```
 
 https://mybot314.ru/tekegram_catalog/

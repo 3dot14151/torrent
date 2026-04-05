@@ -1,133 +1,3 @@
-###  Публикация: 1182031   (319080) от 09.11.2017
-
-О.Я. Баев | Следователь (основы теории и практики деятельности) (2017) [FB2, EPUB]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319080.jpg" />
-</div>
-
-
-###  Подробнее
-
-На основе понимания процессуальной функции следователя как уголовного преследования в досудебном производстве, использования уголовно-процессуального законодательства России и ряда других государств, обусловленной этим специфики правоприменительной деятельности в работе углубленно исследуются теоретические основы и проблемы теории его деятельности. В частности, рассмотрены (   Читать дальше...   )Жанр: Юриспруденция, Уголовное правоФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41D1D3ACF72A18081EC5872EA427AA89482EB7AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958904   (319010) от 23.11.2015
-
-Г. В. Поздняк (ред.) | Азербайджан. Общегеографическая карта (2005) [JPG, PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное издание кроме подробной справочной карты Азербайджана (масштаб 1:750 000) содержит ещё и брошюру с указателем географических названий. На основном листе есть карта-схема азербайджанской столицы — Баку.Жанр: Складная географическая картаФормат: JPG, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:668B861C40083F1859408ACA46DA32A37DC4C8D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259685   (318944) от 04.11.2018
-
-Сергей Куликов, Дмитрий Зыкин | Террористическая война против империи. Из архивов царского правительства (2018) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318944.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кандидат исторических наук Сергей Куликов и публицист Дмитрий Зыкин провели исследование проблемы терроризма в Российской империи. Уникальные архивные документы, воспоминания участников событий, специализированные работы отечественных и зарубежных историков – основа, на которой авторы книги показали влияние терроризма на ход русско-японской войны и на революционные (   Читать дальше...   )Жанр: Военная историяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0242791C206AE18F8EE8A505DEBADAED5DABBB77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075680   (318815) от 23.11.2016
-
-Р. Люксембург | Введение в политэкономию (1960) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее издание работы Розы Люксембург "Введение в политическую экономию" осуществлено на основе русского издания, выпущенного Соцэкгизом в 1926-1931 гг. Русский текст тщательно сверен с немецким текстом рукописи Р. Люксембург, помещенном в двухтомнике избранных произведений, опубликованном в 1955 г. Институтом марксизма-ленинизма при ЦК КПСС.Жанр: История, политология, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A2E235936B2C5FEFADF78A841E396465988999E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075618   (318811) от 23.11.2016
-
-К. Маркс, Ф. Энгельс | Из ранних произведений (1956) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318811.jpg" />
-</div>
-
-
-###  Подробнее
-
-В состав настоящего сборника входит ряд ранних произведений К. Маркса и Ф. Энгельса, не включенных во второе издание их Сочинений. Примыкая к первому тому Сочинений, сборник даёт дополнительный материал для изучения процесса перехода Маркса и Энгельса от идеализма к материализму и от революционного демократизма к коммунизму. В сборник входит также незаконченная работа (   Читать дальше...   )Жанр: История, политология, экономика, философияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B72E411B5D69B91397C8C993791295EBE1059B85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1259691   (318799) от 04.11.2018
 
 Владимир Шигин | Неизвестная трагедия С-117 (2018) [PDF]
@@ -136,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318799.jpg" />
 </div>
 
 
@@ -162,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318784.jpg" />
 </div>
 
 
@@ -188,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318762.jpg" />
 </div>
 
 
@@ -215,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318705.jpg" />
 </div>
 
 
@@ -241,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318672.jpg" />
 </div>
 
 
@@ -269,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318642.jpg" />
 </div>
 
 
@@ -297,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318639.jpg" />
 </div>
 
 
@@ -323,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318637.jpg" />
 </div>
 
 
@@ -349,7 +219,7 @@ J. Sagala/Дж. Сагала | Longman Photo Dictionary of American English/Ил
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318628.jpg" />
 </div>
 
 
@@ -377,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318543.jpg" />
 </div>
 
 
@@ -403,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318530.jpg" />
 </div>
 
 
@@ -432,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318462.jpg" />
 </div>
 
 
@@ -458,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318374.jpg" />
 </div>
 
 
@@ -484,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318298.jpg" />
 </div>
 
 
@@ -510,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318292.jpg" />
 </div>
 
 
@@ -536,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318221.jpg" />
 </div>
 
 
@@ -562,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318202.jpg" />
 </div>
 
 
@@ -591,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318128.jpg" />
 </div>
 
 
@@ -617,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317717.jpg" />
 </div>
 
 
@@ -644,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317618.jpg" />
 </div>
 
 
@@ -670,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317558.jpg" />
 </div>
 
 
@@ -681,6 +551,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A55BED9CFB79008D810346A1551CB8AA5BD1733
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 582833   (317414) от 30.11.2012
+
+Г.Л.Кубарьков | Английский язык без проблем [2011] [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317414.jpg" />
+</div>
+
+
+###  Подробнее
+
+Материал этой книги подобран так, чтобы помочь максимально быстро овладеть распространенными речевыми формулами, а значит - основами разговорной речи, расширить свою лингвистическую компетенцию. Читатель познакомится также с правилами оформления деловых бумаг. Издание рассчитано на широкую аудиторию, изучающую английский язык самостоятельно или под руководством преподавателя.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:389DE02DE4458064EE80A054366FA731641C54C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959288   (317306) от 24.11.2015
+
+Платон | Федр (1989) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317306.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящем издании текст "Федра" приводится параллельно на древнегреческом и русском языках. Перевод А. Н. Егунова заново сверен. Изданию предпослана обширная вступительная статья Ю. А. Шичалина.Жанр: История, философияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C26DF59DED146B211B104DF68BAC55ED94CCAEF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 371647   (317013) от 05.11.2020
+
+О.Н. Оваденко | Сам себе учитель английского [2010] [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317013.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание предназначено для всех, кто желает самостоятельно изучать английский язык и добиться в нем значительных успехов.Объяснение грамматики английского языка в книге изложено в очень доступной форме, строго соблюден принцип от простого к сложному в каждом уроке имеется большое количество упражнений по каждой теме. Ключи в конце книги позволяют осуществлять самоконтроль.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:149FFCF1DC6D6E428CCCFDB7B7E74906A461E0DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958504   (316954) от 24.11.2015
+
+В. Гружане и др. | Грамматика латышского языка (1995) [DJVU]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отличная наглядная книга, объясняющая правила латышской грамматики кратко, наглядно, в сопоставлении с русским языком, акцентируя внимание на особенности латышского языка.
+ Не смотря на то, что авторы данного учебного пособия назвали его "Краткий справочник"- на самом деле, это полноценный учебник по грамматике латышского языка, освещающий все части речи (   Читать дальше...   )Жанр: Краткий справочникФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:901CB163C42DB8DA8A2E0BEC4801CEAFBF463811
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259288   (316914) от 05.11.2018
+
+В. С. Кружков | Мировоззрение Н. А. Добролюбова (1952) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316914.jpg" />
+</div>
+
+
+###  Подробнее
+
+Теоретической основой революционного демократизма Добролюбова являлся философский материализм. Подкреплённый диалектическим подходом к объяснению явлений жизни природы и общества, этот материализм представлял высшую форму домарксистской философской мысли. В социологических воззрениях Добролюбова были солидные материалистические тенденции. Добролюбов вплотную подошёл (   Читать дальше...   )Жанр: История, политология, философия, социология, литературоведениеФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDF34432B67316B5022FF3942C54F75C9A14B405
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Dropzone 3.5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512804.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Mini Metro v.gamma 37 (2015) [Multi/Ru] [OS X Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512749.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Waltr 1.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511757.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ VMware Fusion Professional  8.0.0 (2985594) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511623.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Microsoft Office for Mac Standard 2019 v16.27.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511608.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Logic Pro X 10.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511576.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ PhotoMill X (aka Reformator) 1.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510778.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Winclone Pro 5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509993.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ WaterMarker 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509356.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Disk Drill Entreprise 2.4.426 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509006.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Tales from the Borderlands: Episode 1-2-3-4 v.1.0 (2015) [Ru] [OS X Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509001.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Winclone Pro 5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508857.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Pillars of Eternity. The White March Part I v. 2.00.0706 (2015) [Multi/Ru] [OS X
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507828.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Microsoft Office Standard 2016 Volume License Edition v15.11.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507810.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Parallels Desktop Business Edition 11.0.0 (31193 v2) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507730.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Elmedia Player Pro 6.0 (710) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506975.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Homeworld Remastered Collection (2015) [Multi/Ru] [OS X Native game] [AppStore]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506834.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Wondershare PDFelement 5.3.3 (978) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506007.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ DriveDx 1.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506000.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ DxO Optics Pro Elite 10.5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505952.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505948.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Alfred Powerpack 2.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505856.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ QuarkXPress 2015 v11.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505281.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ TextExpander 5.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505280.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505267.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505193.jpg" />
 </div>
 
 

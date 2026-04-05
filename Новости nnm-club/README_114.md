@@ -1,3 +1,57 @@
+###  Публикация: 899715   (670663) от 20.05.2015
+
+КОМПАС-3D V16 RePack by KpoJIuK [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670663.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Компас-3D» — система трёхмерного моделирования, ставшая стандартом для тысяч предприятий благодаря удачному сочетанию простоты освоения и легкости работы с мощными функциональными возможностями твердотельного и поверхностного моделирования. Главной особенностью (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3336316A74774A1D9B2AD2D1DF81B4694375A567
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433557   (670405) от 14.03.2022
+
+Денис Кожар, Andrew Price | Blender 2.8-2.9. Уроки на русском для начинающих (2019-2022) PCRec
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670405.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия переводных уроков для начинающих по программе blender 2.8-2.9+ от Andrew Price в переводе Дениса Кожара
+Тем, кто еще не готов оплачивать обучение, стоит ознакомиться с бесплатными уроками от Blender Guru — проекта австралийского преподавателя Эндрю Прайса. Эндрю подчеркивает, что саму компанию Blender он не представляет.
+Серию бесплатных уроков перевел и залил (   Читать дальше...   )Жанр: ВидеоурокПродолжительность: 57:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E035B750E2FA1CD5FC08B618FB0D9D583F8606FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1057081   (670404) от 24.05.2017
 
 Симпсоны / The Simpsons (2016) WEB-DLRip (сезон 28, серии 1-22 из 22) OmskBird
@@ -6,7 +60,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670404.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670399.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670397.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ Cent Browser 3.9.2.45 + Portable by Cento8 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670130.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ Microsoft показала «жёсткий диск» на основе ДНК
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_670119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_670119.jpg" />
 </div>
 
 
@@ -136,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670013.jpg" />
 </div>
 
 
@@ -162,7 +216,7 @@ MAGIX Movie Edit Pro 2016 Premium 15.0.0.102 + Content [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669757.jpg" />
 </div>
 
 
@@ -188,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_669682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_669682.jpg" />
 </div>
 
 
@@ -214,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_669374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_669374.jpg" />
 </div>
 
 
@@ -240,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668834.jpg" />
 </div>
 
 
@@ -266,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668831.jpg" />
 </div>
 
 
@@ -292,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668708.jpg" />
 </div>
 
 
@@ -320,7 +374,7 @@ Adobe Photoshop Lightroom CC 2015.10.1 (6.10.1) RePack by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668686.jpg" />
 </div>
 
 
@@ -346,7 +400,7 @@ Raxco PerfectDisk Professional / Server 13.0 Build 843 RePack by KpoJIuK [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667497.jpg" />
 </div>
 
 
@@ -372,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667431.jpg" />
 </div>
 
 
@@ -398,7 +452,7 @@ ESET Smart Security 10.1.210.2 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667385.jpg" />
 </div>
 
 
@@ -424,7 +478,7 @@ Windows 10 PE (x86/x64) by Ratiborus v.5.11 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666918.jpg" />
 </div>
 
 
@@ -451,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_666880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_666880.jpg" />
 </div>
 
 
@@ -477,7 +531,7 @@ To the Moon / На луну  [Ru] (Repack) 2011 | dicur3x
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_666871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_666871.jpg" />
 </div>
 
 
@@ -503,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_666390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_666390.jpg" />
 </div>
 
 
@@ -529,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_666301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_666301.jpg" />
 </div>
 
 
@@ -555,7 +609,7 @@ Kerbal Space Program (2015) [Ru/Multi] (1.3.0.1804) SteamRip Let'sPlay
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666217.jpg" />
 </div>
 
 
@@ -581,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666205.jpg" />
 </div>
 
 
@@ -607,7 +661,7 @@ AusLogics BoostSpeed Premium 7.9.0.0 DC 21.05.2015 RePack (& Portable) by KpoJIu
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666170.jpg" />
 </div>
 
 
@@ -618,58 +672,6 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F498C56CA559AAD958FA160B09930D7A797C1971
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 900741   (666159) от 23.05.2015
-
-Фото на документы Профи 8.0 RePack by KaktusTV [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666159.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фото на документы Профи - это удобная программа для быстрой подготовки и печати фото на документы. Включает готовые форматы документов всех необходимых форматов: внутренний и заграничный паспорт, визы различных стран, удостоверения и пропуска. Она позволяет всего за несколько минут получить фотографию на документ профессионального качества. Программа имеет простой (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3325BBCDAC1C66AC56A01DA6B42B17A6EE09F79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 511782   (665806) от 17.06.2012
-
-Футбол. Чемпионат Европы – 2012. 3-й тур. Группа А. Греция - Россия (2012.06.16) SATRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_665806.jpg" />
-</div>
-
-
-###  Подробнее
-
-16.06.2012, Суббота, 22:45 мск. Варшава, стадион Национальный стадион. Чемпионат Европы 3 тур, Группа А "Греция" - "Россия". Главный судья: Эриксон(Швеция)Жанр: СпортФормат: XviDПродолжительность: ~ 00:51:47
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

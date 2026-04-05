@@ -6,7 +6,7 @@
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85213.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ The Incredibles: Rise of the Underminer / Суперсемейка. Подзем
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85194.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84931.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84745.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84580.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Kookabonga: Crazy Monkey Party / Кукабонга: Весёлые джунгл
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82696.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детские Игры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77865.jpg" />
 </div>
 
 

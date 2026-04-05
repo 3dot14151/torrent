@@ -6,7 +6,7 @@ NG. Миссия полета к Солнцу / Mission to the Sun (2018) WEB-DL
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006852.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NG. Спасти Нотр-Дам / Saving Notre-Dame (2020) WEB-DL [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006717.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NG. В погоне за равноденствием / Chasing the Equinox (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006465.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BBC. Тайные правила современной жизни: Алгори
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006345.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Discovery: Разрушители легенд / MythBusters (2013) WEB-DL [H.26
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006342.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ NG: Нотр Дам: невероятная гонка против ада / Not
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006244.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Discovery. Жизнь с Тиграми / Living with Tigers (2003) TVRip (се�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006100.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ NG: Секреты гробницы Христа: специальный реп�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006086.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ BBC. Королева Виктория и её девять детей / Queen V
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006059.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ NG: Загадки королевской кобры / Secrets of the King Cobra
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005986.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ NG. Человек среди гепардов / Man Among Cheetahs (2017) WEB-D
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005577.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ NG. Чудесная посадка на Гудзон / Miracle Landing on the H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005567.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ BBC. Связанные: Шесть ступеней отдаления / Connec
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005405.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ NG. Огромная акула-молот / Mega Hammerhead (2016) WEB-DL [H.26
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005167.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ NG. Человек против акулы / Man vs Shark (2019) WEB-DL [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005067.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ BBC: Не могу выбросить тебя из головы / Can't Get You
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004518.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ PBS. Секреты Колизея / Colosseum. Roman Death Trap (2015) WEB-DL [
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004511.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004277.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Discovery. Последние дни динозавров / Last Day Of The Dino
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004006.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ BBC: Винсент Ван Гог. Живопись в словах / Vincent Va
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003935.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ BBC: Глобальное потепление: факты / Climate Change: The
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003931.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Discovery. Последние дни динозавров / Last Day Of The Dino
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003742.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Discovery. Битва самогонщиков / Master Distiller (2020) HDTVRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003013.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ NG. На Марс: история марсохода Персеверанс / Bu
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002502.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ BBC: Серенгети / Serengeti (2019) WEB-DL [H.264/1080p] (сезон 1, �
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002384.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ BBC: Серенгети / Serengeti (2019) BDRemux [H.264/1080i] (сезон 1, 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002139.jpg" />
 </div>
 
 

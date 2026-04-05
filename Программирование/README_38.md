@@ -1,83 +1,3 @@
-###  Публикация: 1625403   (241850) от 09.04.2023
-
-Mahmoud Parsian | Data Algorithms with Spark: Recipes and Design Patterns for Scaling Up using PySpark (2022) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241850.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скорость, простота использования, сложная аналитика и многоязыковая поддержка Apache Spark делают практическое знание этой кластерной вычислительной платформы необходимым навыком для инженеров и специалистов по анализу данных. С помощью этого практического руководства любой, кто ищет введение в Spark, сможет изучить практические алгоритмы и примеры с использованием (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0CE7A85128779B47C100A57B74336E0072CDEF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545554   (240364) от 20.04.2022
-
-Томас Хантер, Брайтон Инглиш | Многопоточный Javascript (2022) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Готовы ли вы к разработке многопоточных приложений на javascript? Прочитав данную книгу, javascript-разработчик среднего уровня узнает о сильных и слабых сторонах API веб-исполнителей в браузерах и рабочих потоков в Node.js.
-
-Авторы рассказывают о двух подходах к построению многопоточных приложений: на основе передачи сообщений и на основе разделяемой памяти. Описываются (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DFB056ECE9FA6AE748F58A52BF89F9726AB69B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626789   (240016) от 16.04.2023
-
-Victor G Brusca | Introduction to Java Through Game Development (2022) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите научиться программировать на Java? Давайте признаем, что лучший способ научиться программировать - это писать программы. Это может быть пугающим предложением, когда над головой висит призрак многочасовых примеров простых программ командной строки. Не бойтесь! Теперь вы можете научиться программировать на Java в увлекательной форме, работая над видеоиграми. (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C593E2EFE2F46B1DB9FD5CFEE5EB1B8AF19D21AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1627325   (239568) от 18.04.2023
 
 Mark J. Price | Apps and Services with .NET 7: Build practical projects with Blazor, .NET MAUI, gRPC, GraphQL, and other enterprise technologies (2022) [PDF] [EN]
@@ -86,7 +6,7 @@ Mark J. Price | Apps and Services with .NET 7: Build practical projects with Bla
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239568.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238646.jpg" />
 </div>
 
 
@@ -138,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237538.jpg" />
 </div>
 
 
@@ -164,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236292.jpg" />
 </div>
 
 
@@ -190,7 +110,7 @@ Itzik Ben-Gan | T-SQL Fundamentals, 4th Edition (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236277.jpg" />
 </div>
 
 
@@ -216,7 +136,7 @@ Daniel Irvine | Build Your Own Test Framework: A Practical Guide to Writing Bett
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_236271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_236271.jpg" />
 </div>
 
 
@@ -242,7 +162,7 @@ Jamie Rumbelow | Building With Ethereum (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235988.jpg" />
 </div>
 
 
@@ -268,7 +188,7 @@ Akshay Kulkarni и др. | Applied Recommender Systems with Python (2023) [PDF] 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235891.jpg" />
 </div>
 
 
@@ -296,7 +216,7 @@ Narendar Singh Saini | iOS Developer Solutions Guide: Learn How to Create Stable
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235620.jpg" />
 </div>
 
 
@@ -322,7 +242,7 @@ Martin Joo | Test-Driven APIs with Laravel and Pest (2022) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235175.jpg" />
 </div>
 
 
@@ -351,7 +271,7 @@ Hari Narayn | Just React!: Learn React the React Way (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234984.jpg" />
 </div>
 
 
@@ -379,7 +299,7 @@ Darren James Harkness | Apache Essentials: Install, Configure, Maintain, 2nd Edi
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234530.jpg" />
 </div>
 
 
@@ -407,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234422.jpg" />
 </div>
 
 
@@ -433,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234354.jpg" />
 </div>
 
 
@@ -459,7 +379,7 @@ Nagender Kumar Suryadevara | Beginning Machine Learning in the Browser (2021) [P
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233979.jpg" />
 </div>
 
 
@@ -485,7 +405,7 @@ Joe Harrison | Learn CSS By Use Cases v2 with All Code (2022) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232992.jpg" />
 </div>
 
 
@@ -514,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232807.jpg" />
 </div>
 
 
@@ -541,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232427.jpg" />
 </div>
 
 
@@ -568,7 +488,7 @@ Daniel Ilett | Building Quality Shaders for Unity: Using Shader Graphs and HLSL 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231773.jpg" />
 </div>
 
 
@@ -594,7 +514,7 @@ Jeanine Meye | The Essential Guide to HTML5: Using Games to Learn HTML5 and Java
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231227.jpg" />
 </div>
 
 
@@ -620,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231209.jpg" />
 </div>
 
 
@@ -647,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230863.jpg" />
 </div>
 
 
@@ -673,7 +593,7 @@ Noemí Ferrera | How to Test a Time Machine (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230616.jpg" />
 </div>
 
 
@@ -686,6 +606,86 @@ Noemí Ferrera | How to Test a Time Machine (2023) [PDF][EN]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E265AD63C2A72217E677168B8DC9EB02426270BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648750   (230542) от 26.07.2023
+
+David Matuszek | Quick Functional Programming (2023) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230542.jpg" />
+</div>
+
+
+###  Подробнее
+
+Функциональное программирование - это мощный инструмент, который вы можете использовать в дополнение ко всем своим обычным инструментам, в той мере, в какой ваш текущий основной язык поддерживает его. Большинство языков имеют хотя бы базовую поддержку.
+
+В этой книге мы используем Python, Java и, в качестве бонуса, Scala. Если вы предпочитаете другой язык, то в синтаксисе (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: CRC PressФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8881C717DF05ED96538783642D1ED67F7E74457
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637822   (230445) от 06.06.2023
+
+Д.В. Мякишев | Принципы и методы создания надежного программного обеспечения АСУТП (2017) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230445.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель настоящего пособия – дать базовые навыки, необходимые для разработки надежного программного обеспечения (ПО), построить «мост» между зачастую незаслуженно забытыми трудами «патриархов» и современной практикой программирования. Показана актуальность проблемы повышения надежности создаваемого ПО. Приведены основные определения, факторы, влияющие на надежность (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D00091E8491DC3E14B864C0A92670BEEB6ECACF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556733   (230331) от 10.06.2022
+
+Бахши Сохейл | POWER BI: моделирование на экспертном уровне (2022) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга станет вашим проводником в мир моделирования данных в целом и применительно к Power BI. Вы узнаете, как подключаться к данным в различных источниках, объединять их при помощи связей и строить полноценные модели данных; изучите вопросы определения новых метрик и выполнения пользовательских вычислений с использованием особенностей модели. По мере чтения сложность (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6845E82ACDFDED5D8DA1F9A9002DA1151B4E451
 ```
 
 https://mybot314.ru/tekegram_catalog/

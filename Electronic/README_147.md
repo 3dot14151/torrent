@@ -1,3 +1,61 @@
+###  Публикация: 1389044   (784769) от 09.06.2020
+
+VA - Vintage Reggae Covers (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy-listening, Lounge, Reggae>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jamaican Reggae Cuts feat. Pinky Dread - Say My Name (2:41)
+02. The Reggister's - Friends (4:05)
+03. Conkarah feat. Rosie Delmah - Hello (3:58)
+04. Trippynova - Come (3:16)(   Читать дальше...   )Жанр: Easy-listening, Lounge, ReggaeПродолжительность: 03:01:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0F88AF7EB8311B01B6FC9C10D8C533906EED932
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234725   (784736) от 09.06.2020
+
+The Ghost Of 3.13 | You're Terribly Late - Discography 20 Releases (2011-2020) Sociopath, Mozyk [FLAC|Lossless|tracks+.cue, tracks] <IDM, Glitch, Breakcore, Modern Classical, Experimental, Ambie ...
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anywhere But Here (04:30)
+ 02. Night Sky (04:07)
+ 03. Childhood Spaceship (04:51)
+ 04. Home Is Where The Heart Is (04:07)(   Читать дальше...   )Тип издания: CD, WEBЖанр: Experimental/Glitch/AmbientПродолжительность: 14:05:32 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1A2B6640CD93D544904E7EF8957BFB7E52EFBF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204528   (784688) от 06.02.2018
 
 VA - Lowdown Origins (2018) [MP3|320 Kbps] <House, Future House, Big Room>
@@ -6,7 +64,7 @@ VA - Lowdown Origins (2018) [MP3|320 Kbps] <House, Future House, Big Room>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784688.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Open House Records Presents Vocal Sessions (2018) [MP3|320 Kbps] <House, Vo
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784687.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ The Essence - Its All About Music (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784686.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Work That Body Vol.2 (2018) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784685.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Debauchery Lounge: Luxury Lounge Music For Bars And Clubs (2018) [MP3|320 K
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784677.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Chillout Resonance: Melodies Of Vagabond Chillout Music For Relaxation and 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784676.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Love Hits Vol.3 (2018) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784675.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Kai Engel - The Run (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Neoclass
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784669.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Kai Engel - caeli (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Neoclassic
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784667.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Kontor Festival Sounds 2018 The Beginning (2018) 3CD [MP3|320 Kbps] <House,
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784663.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Lyktum - Human (2018) [MP3|320 Kbps] <Psy-Trance>
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_784639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_784639.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Lounge Acoustic Covers (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784634.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Maks Henning - Spring Dub 2 (2020) 7th Cloud [FLAC|Lossless|WEB-DL|tracks] <Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784583.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Futuresque - The Future House Collection Vol.7 (2018) [MP3|320 Kbps] <House
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784412.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Neural Attacks Vol.1 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784409.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Bass House Nation Vol.14 (2018) [MP3|320 Kbps] <House, Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784407.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Rooftop Beats, Vol. 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784404.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Eleven (2018) [MP3|320 Kbps] <Trance,Psytrance,Progressive House>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784398.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ ARGUS - Field of Dreams (2018) [MP3|320 Kbps] <Balearic, Downtempo, Ambien>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784396.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Love Hits Vol.3 (2018) [FLAC|Lossless|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784358.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Hibernation - Organic Technology (2020) [FLAC|Lossless|WEB-DL|tracks] <Psychill,
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784254.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Scooter - 100% Scooter (25 Years Wild & Wicked) - The Belgian Edition (2018) [MP
 >>Hardstyle, Jumpstyle, Hardcore
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784221.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Psybos - Discography 5 Releases (2018-2020) Psybos Incorporated [FLAC|Lossless|W
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784206.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Rødhåd (Rodhad) - Discography 20 Releases (2012-2020) Dystopian [FLAC|Lossless
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784174.jpg" />
 </div>
 
 
@@ -687,63 +745,6 @@ Rødhåd (Rodhad) - Discography 20 Releases (2012-2020) Dystopian [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5435F5C11D670E3D40FD1A44F70345F9A26FCE88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388922   (784163) от 11.06.2020
-
-Master Boot Record - Discography (2016-2020) [FLAC|44.1/24|Lossless|WEB-DL|tracks] <Electronic / Rock>
-
->>Electronic
->>Experimental, Industrial (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784163.jpg" />
-</div>
-
-
-###  Подробнее
-
-MASTER BOOT RECORD - творческий псевдоним итальянского исполнителя, продюсера, автора песен Виктора Лава (Victor Love), известного в том числе по Dope Stars Inc., Hacking the Wave.
-Страсть к старым компьютерам и программам эпохи становления IT-технологий стала рычагом для создания нового направления музыки, основанного на синтезировании хэви-метала с добавлением (   Читать дальше...   )01. 33MHz (16:04)
-02. 64MB (7:35)Жанр: Electronic / RockПродолжительность: 00:23:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B520BBD575C2B8576BD27E2791113A9CE0217F5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205047   (784097) от 08.02.2018
-
-VA - Uplifting Only: Orchestral Trance Year Mix 2017 (Mixed by Ory Uplift) (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ram & Arctic Moon & Stine Grove - A Billion Stars Above (Intro Mix)
-02. Afternova & Andrea Becker - For You (Trance Mix)
-03. Illitheas & Manuel Rocca - Enchanted (Original Mix)
-04. Ana Criado - Still There's You (A.R.D.I. Radio Edit)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 04:36:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2C1FCB57683DB90C656EFC166649789DACE2EC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

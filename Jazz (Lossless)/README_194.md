@@ -6,7 +6,7 @@ Joey Alexander - Origin (2022) Mack Avenue [FLAC|Lossless|tracks + .cue] <Post-B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407544.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Dizzy Gillespie - Dizzy's Diamonds: The Best Of The Verve Years (1950 - 1964) 3C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407433.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ The Swingaroos - Music  Of The Night (2019) [FLAC|Lossless|WEB-DL|tracks] <Retro
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407424.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ The Vanguard Jazz Orchestra - Forever Lasting: Live in Tokyo (2010) 2011, 2CD, P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407267.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Samarabalouf - NoNo Future (2020) [FLAC|Lossless|tracks + .cue] <Swing, Gypsy.Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406830.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Louis Armstrong - Big Bands, Vol.1 (1930 - 1931) 1988, JSP Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406828.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Buster Poindexter - Buster's Happy Hour (1994) [FLAC|Lossless]<Swing, Neo-Swing,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_406712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_406712.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ VA - Verve Today (2010-2012) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_406672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_406672.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ VA - The Sound Gallery (1995-1996) 2CD[FLAC|Lossless]<Jazz, Instrumental, Jazz-F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_406349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_406349.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Carlos Garnett - Under Nubian Skies (1997) [FLAC|Lossless]<Hard Bop, Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_405968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_405968.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Julie London - Sophisticated Lady & For The Night People (1998) [FLAC|Lossless]<
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_405917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_405917.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Emilie-Claire Barlow - 2 альбома (2005, 2009) [FLAC|Lossless]<Jazz, Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_405861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_405861.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ VA - The Famous Sound of three blind mice (1987-1989) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_405835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_405835.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ VA - Bar Classics Vocal - Greatest Late Hour Blue Songs (2010) [FLAC|Lossless]<J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_405551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_405551.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Caetano Veloso - A Foreign Sound (2004) [FLAC|Lossless]<Jazz, Tropicalia, Psyche
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_405253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_405253.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ VA - Venus Jazz Cafe - 20th Anniversary Special Blend (2012) 2CD [FLAC|Lossless]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_405226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_405226.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ The Teodross Avery Quartet - In Other Words (1994) GRP [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405064.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Paul Motian - Play Monk And Powell (1999) Winter & Winter [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405063.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Antonella Catanese - Red Inside (2012) Jazzy Record Label [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405062.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Herbie Hancock - Head Hunters (1973) 2016 [FLAC|Lossless|tracks + .cue] <Jazz Fu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405059.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Nina Simone - Little Girl Blue (1957) Analogue Productions, 2015 [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404995.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ European Jazz Trio - Best of Classics (2006) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404693.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ VA - Greatest Audiophile Voices (2011-2012) 4CD[FLAC|Lossless]<Jazz Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404357.jpg" />
 </div>
 
 
@@ -738,7 +738,7 @@ Big Bad Voodoo Daddy - How Big Can You Get (2009) [FLAC|Lossless]<Swing Revival>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404344.jpg" />
 </div>
 
 
@@ -767,7 +767,7 @@ Stacey Kent - The Changing Lights (2013) [FLAC (tracks)|Lossless|WEB-DL]<Vocal J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404217.jpg" />
 </div>
 
 
@@ -796,7 +796,7 @@ Al Hirt & Pete Fountain - Super Jazz 1 (1975) 1988, CBS [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404117.jpg" />
 </div>
 
 

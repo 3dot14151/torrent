@@ -6,7 +6,7 @@ VA - Full Moon Chill, Vol. 2 (2018) [AAC|~330 Kbps] <Lounge, Chill Out, Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696086.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Santorini Solaire Chill 2 (2022) [AAC|~335 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696085.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Evening Chillin': Urban Chillhouse Music (2022) [AAC|~322 Kbps] <Chill Hous
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696083.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ The Soul Crusaders - The Future (2019) [AAC|~316 Kbps] <Lounge, Chill Out, Smoot
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696081.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Deep & Joy, Vol. 3 (2022) [AAC|~315 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696080.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Infinite Chillout (2022) [AAC|~298 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696079.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Chillout Essentials 2022 (2022) [AAC|~292 Kbps] <Lounge, Chill Out, Downtem
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696078.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ The Maldive Lovers - Sweet & Lovely (Sunday Chill Out Vibes) (2022) [AAC|~319 Kb
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696075.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ The Soul Crusaders - The Best Of… The City (2018) [AAC|~336 Kbps] <Lounge, Chi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696071.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Sub-Division Recordings - Partitions, Vol. 2 (2022) [AAC|~330 Kbps] <Drum &
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696070.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695998.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ VA - Maretimo Records - Masterpieces, Vol. 3 (2021) [AAC|~318 Kbps] <Lounge, Chi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695997.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ VA - Children of Goth (2022) [AAC|~344 Kbps] <Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695995.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ VA - Urban Orange Music 8: Downtempo Experience (2022) [AAC|~310 Kbps] <Lounge, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695994.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ The Soul Crusaders - Nightfall (2020) [AAC|~321 Kbps] <Lounge, Chill Out. Smooth
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695989.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Moonlight Lounge (Mediterranean Roots), Vol. 4 (2022) [AAC|~321 Kbps] <Loun
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695984.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Beth Hart - A Tribute To Led Zeppelin (2022) [AAC|~337 Kbps] <Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695981.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695903.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Dina Vierny - Chants Des Prisonniers Sibériens D'Aujourd'hui / Блатные �
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695886.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Demis Roussos - Greatest Hits (1971 - 1980) (1983) [AAC|~328 Kbps] <Pop, Ballad,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695869.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ VA - Суперхиты дискотеки 90-х, vol. 3 (2011) [AAC|~328 Kbps] 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695757.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695650.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ VA - Суперхиты дискотеки 90-х, vol. 4 (2012) [AAC|~323 Kbps] 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695649.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ VA - Суперхиты дискотеки 90-х, vol. 5 (2013) [AAC|~319 Kbps] 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695636.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695011.jpg" />
 </div>
 
 
@@ -719,7 +719,7 @@ Really Slow Motion - Undaunted (2017) [AAC|~256 Kbps VBR] <Soundtrack, Instrumen
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694948.jpg" />
 </div>
 
 

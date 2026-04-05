@@ -6,7 +6,7 @@ Mother's Cake - Love The Filth (2015) [MP3|320 кб/с]<Progressive / Psychedeli
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638188.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Herman Rarebell & Friends - Herman's Scorpions Songs (2014) [MP3|320 Kbps] <Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637937.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Billy Joel - The Hits (2010) Remastered [MP3|320 кб/с]<Rock, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637626.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Stoned Apes - Monkey Sounds (2022) [MP3|320 Kbps] <Stoner, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637403.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ The Basement Tribe - Path to the Temple (2022) [MP3|320 Kbps] <Stoner, Hard Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637389.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Gggolddd - This Shame Should Not Be Mine (2022) [MP3|320 Kbps] <Gothic Rock, Tri
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637386.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Caught in Action - Devil's Tango (2022) [MP3|320 Kbps] <Melodic Hard Rock, AOR>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637250.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Sweet - Hits (2022) Special Edition, Remastered [MP3|320 Kbps] <Glam Rock, Class
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637111.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Joe Satriani - The Elephants Of Mars (2022) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637105.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Upsilon Acrux - Sun Square Dialect (2015) [MP3|320 кб/с]<Avant-Prog, Math Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636258.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Rancid - All the Moon Stomper's (2015) [MP3|320 кб/с]<Punk Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636159.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Yukon Blonde - On Blonde (2015) [MP3|320 кб/с]<Indie Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636157.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ David Gilmour - Paramount Theater, Oakland CA, April 16 2006 (2006) Bootleg, Liv
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636037.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Nils Lofgren - Face The Music (9CD) (2014) [MP3|320 кб/с]<Rock, Heartland Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635852.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Slade - Rockers A Collection of Their Hardest - Hitting Tracks 1969-87 (2007) 2C
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634852.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Christie - Christie (2005) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633983.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ The Teens - Past And Present '76-'96 (1996) [MP3|320 кб/с]<Pop Rock, Glam Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633731.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Don Felder - American Rock 'n' Roll (2019) [MP3|320 Kbps] <Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633504.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Ida Maria - Accidental Happiness (2014)  EP [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633383.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Kiko Loureiro - Sounds Of Innocence [Japanese Edition] (2012) [MP3|320 кб/с]<
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633315.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Eagles - Greatest Hits [2CD] (2010) [MP3|320 кб/с]<Rock, Blues Rock, Country 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633067.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Japan - 7 Albums (1978-1991) [MP3|320 Kbps] <Electronic, Rock, Pop>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632094.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ ZZ Top - Cheap Sunglasses (Live) Bootleg (2015) [MP3|320 кб/с]<Сlassic Rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632017.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ Estus - Estus (1973) Reissue, 2016, Flawed Gems [MP3|320 Kbps] <Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631794.jpg" />
 </div>
 
 
@@ -720,7 +720,7 @@ Eric Burdon & The Animals - Winds Of Change (1967) Remastered, 2013, Polydor, CD
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631635.jpg" />
 </div>
 
 
@@ -749,7 +749,7 @@ Rainbow (Ritchie Blackmore's Rainbow) - Since You Been Gone: The Essential Rainb
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631197.jpg" />
 </div>
 
 

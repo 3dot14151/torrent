@@ -1,81 +1,3 @@
-###  Публикация: 912874   (609447) от 27.06.2015
-
-Ю. В. Романенкова | Мировоззренческие универсалии периодов stilwandlung в мировом художественном процессе (2009) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Монография посвящена проблемам изобразительного искусства рубежных эпох, обозначенных как периоды Stilwandel, вопросам смены культурной парадигмы, поиску мировоззренческих универсалий переходных периодов в искусстве, причинам и симптоматике смены художественных стилей, отдельным вопросам стилеобразования. Актуализируются мировоззренческие проблемы кризисных этапов (   Читать дальше...   )Жанр: Изобразительное искусство, фотография, КультурологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2E328820656926187ED65B9A341159C5BBE3D19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912435   (609441) от 27.06.2015
-
-Владимир Томсинов (глав. ред.) | Законодательство императрицы Анны Иоанновны (2009) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередной том серии "Русское юридическое наследие" содержит полные тексты наиболее значимых и интересных законодательных актов российской императрицы Анны Иоанновны, правившей с 28 января 1730 года до 17 октября 1740 года. В основу публикации положено первое "Полное собрание законов Российской империи", напечатанное в Санкт-Петербурге в 1830 году (   Читать дальше...   )Жанр: Право, Юриспруденция, История российского государства и праваФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E7F1E9572E0A3AAB103D84BB98EACFE77DB97F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912436   (609439) от 27.06.2015
-
-В. С. Паньков | Программирование экономических иллюзий (1978) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Теории экономического программирования и «планирования», некогда вызывавшие бурные протесты в стане буржуазных ученых, ныне заняли прочное место в идеологическом арсенале буржуазии. Составители и теоретики программ и «планов» сулят всем и каждому избавление от пороков, которые порождаются анархией и стихией капиталистического производства, обещают стабильность и (   Читать дальше...   )Жанр: история, политология, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D7440DE8619B8B43E3206DF68ED885A8523CDD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 913018   (609438) от 27.06.2015
 
 Габриэле Горцка, Райнхард Крумм (ред.) | Россия. Итоги последнего десятилетия 1998-2008 и перспективы развития (2010) [PDF]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609438.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609437.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609334.jpg" />
 </div>
 
 
@@ -163,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609331.jpg" />
 </div>
 
 
@@ -189,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609325.jpg" />
 </div>
 
 
@@ -215,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609323.jpg" />
 </div>
 
 
@@ -241,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609322.jpg" />
 </div>
 
 
@@ -268,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609316.jpg" />
 </div>
 
 
@@ -295,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609270.jpg" />
 </div>
 
 
@@ -321,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609229.jpg" />
 </div>
 
 
@@ -347,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609228.jpg" />
 </div>
 
 
@@ -373,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609227.jpg" />
 </div>
 
 
@@ -400,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609223.jpg" />
 </div>
 
 
@@ -426,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609221.jpg" />
 </div>
 
 
@@ -452,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609213.jpg" />
 </div>
 
 
@@ -478,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609212.jpg" />
 </div>
 
 
@@ -504,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609128.jpg" />
 </div>
 
 
@@ -530,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609126.jpg" />
 </div>
 
 
@@ -556,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609122.jpg" />
 </div>
 
 
@@ -582,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609120.jpg" />
 </div>
 
 
@@ -608,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609114.jpg" />
 </div>
 
 
@@ -634,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609112.jpg" />
 </div>
 
 
@@ -660,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609020.jpg" />
 </div>
 
 
@@ -671,6 +593,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C7B533776418BCCD832E6599A423772C49C72AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912219   (609017) от 27.06.2015
+
+Йосеф Кац | Таллин. Любовь и смерть в старом городе (2014) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609017.jpg" />
+</div>
+
+
+###  Подробнее
+
+Таллинская любовь сдержанна и немногословна. Она обращена не к настоящему, а к прошлому. Она вплетена в ткань улиц и площадей. Она может показаться наивной и провинциальной, но никогда - фальшивой и пошлой. Возвышенная и приземленная, романтическая и бесхитростная, платоническая и самая что ни на есть плотская, пребывающая в нескончаемом поединке со своими противниками (   Читать дальше...   )Жанр: ИсторияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E90EE74FF64D3D743F57F507446353E3EB602AEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912552   (609014) от 27.06.2015
+
+О. А. Корнилов | Жемчужины китайской фразеологии (2005) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена фразеологии китайского языка. Пословицы и поговорки народа - это прочеканенные, пройденные резцом времени и отлитые в изящные формулы вершины человеческой мудрости. Автор поставил своей задачей донести до самого широкого круга читателей неповторимую прелесть китайского мировосприятия, позволить им заглянуть в «дом бытия духа» китайского народа. Отобранные (   Читать дальше...   )Жанр: История культуры зарубежных странФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB51C00029C752C2F1CC904D0D3747559AD946A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912223   (609013) от 27.06.2015
+
+М. Ю. Молчанов | Ассирийская держава. От города-государства - к империи (2015) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609013.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемая работа - это попытка систематичного изложения многовековой истории Древнеассирийской державы.
+Возникший на месте поселения скотоводов, крохотный полис Ашшур через несколько тысячелетий превратился в громадную Новоассирийскую империю - по сути, первую империю в истории человечества. Этот многовековой путь оказался полон перипетий, взлётов и падений. Однако (   Читать дальше...   )Жанр: История, Археология, Этнография, Древний ВостокФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D34062E3A1EC1843C70FBD45AE0A428F7C73C0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

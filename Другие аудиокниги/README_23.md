@@ -1,3 +1,55 @@
+###  Публикация: 1052958   (526576) от 16.09.2016
+
+Радио Маяк | Брендятина (2014-2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526576.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рубрика «Брендятина» выходит каждый вторник на радио «Маяк» в рамках утреннего шоу «Шоу Утром». Бессменный разоблачитель брендов — Рустам Вахидов. В качестве соведущих выступают Сергей Стиллавин и dj Витус.Жанр: Подкаст, радиоэфир.Продолжительность: 30:39:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5B1B30BDA9F985A459E0F7BA4992C0C1EB453AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157220   (525475) от 11.08.2017
+
+Владимир Сорокин | Падёж (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Председатель колхоза Тимофей Петрович Тищенко работал в управлении, когда в дверь неожиданно постучали и вошли двое. Секретарь района Кедрин и начальник районного отдела ГБ товарищ Мокин нагрянули с неожиданной проверкой...Жанр: контркультура, сатира, сюрреализмПродолжительность: :01:25:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6848B01D8D1BDBA1DA4E91C3E58A9E1C369DAF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1157716   (524710) от 13.08.2017
 
 Эндрю Миллер | Подснежники (2017) [MP3]
@@ -6,7 +58,7 @@
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524710.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524268.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523638.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522148.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522139.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522135.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519280.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519204.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510901.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509015.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508452.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506945.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503652.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501298.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497566.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496289.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495963.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495735.jpg" />
 </div>
 
 
@@ -485,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495682.jpg" />
 </div>
 
 
@@ -511,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494668.jpg" />
 </div>
 
 
@@ -537,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492355.jpg" />
 </div>
 
 
@@ -563,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485923.jpg" />
 </div>
 
 
@@ -590,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485896.jpg" />
 </div>
 
 
@@ -616,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484161.jpg" />
 </div>
 
 
@@ -627,58 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CE9CDA101A1854DD9EEF3F5817003CB2DD2DDE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319868   (479337) от 14.08.2019
-
-Лонгин Федорович Пантелеев | Воспоминания (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная книга – это достаточно большой сборник статей, прочитав которые можно сложить отчетливую картину российской жизни второй половины XIX века. Большинство воспоминаний писателя автобиографичны. Автор пишет о событиях и людях, с которыми ему довелось работать и общаться. А интересных людей на его пути встречалось множество. Так, в книге есть отдельные главы воспоминаний (   Читать дальше...   )Жанр: Биографии и МемуарыПродолжительность: 25:20:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA864D87368608A0E2B9C7B009C0DD0A8934A3F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056197   (479306) от 26.09.2016
-
-Андрей Воронин | Кровавый реванш (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479306.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывшего инструктора спецназа ГРУ Иллариона Забродова приглашают работать в Аналитическую службу безопасности. АСБ готовит отчеты, влияющие на судьбы всего мира. Вскоре в воздухе взрывается самолет, на борту которого был сотрудник АСБ Виктор Фемидин. Погибло 92 человека. Забродов находит в нескольких газетах, вышедших за день до гибели Фемидина, статьи о Греции. Илларион (   Читать дальше...   )Жанр: БоевикПродолжительность: 12:28:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7DF8E8270F3A4EA6C4FDBD05DBF6BBCEC0E9299
 ```
 
 https://mybot314.ru/tekegram_catalog/

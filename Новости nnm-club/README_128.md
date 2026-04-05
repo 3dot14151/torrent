@@ -1,3 +1,56 @@
+###  Публикация: 911003   (617445) от 22.06.2015
+
+Маркина удивил ответ главы NASA о высадке американцев на Луну
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_617445.jpg" />
+</div>
+
+
+###  Подробнее
+
+Официальный представитель Следственного комитета России (СКР) Владимир Маркин заявил, что его удивила серьезная реакция директора NASA Чарльза Болдена на предложение провести совместное расследование по поводу пропавших доказательств высадки американцев на Луну.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 63492   (617339) от 22.06.2015
+
+Обыкновенный фашизм (1965) DVDRip (части 1-2 из 2)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_617339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый документальный фильм Михаила Ромма о немецком фашизме, о становлении Третьего рейха, фильм-размышление, фильм-разговор со зрителем при помощи кинодокументов, старых картин - игровых и неигровых, разговор о том, как и почему в середине XX века возникло это уродливое, чудовищнейшее и позорнейшее явление, какими способами фашизм растлевал человеческие души, (   Читать дальше...   )Производство: СССР, к/ст МосфильмЖанр: документальный, хроника, военный, историяРежиссер: Михаил Ромм, и он же о съёмках фильма "Обыкновенный фашизм"Участники: Михаил Ромм, Марлен Дитрих, Йозеф Геббельс, Адольф Гитлер, Герман Геринг, Иосиф Сталин, Дзюкити УноЯзык озвучки: Русский (комментирует Михаил Ромм)Продолжительность: 02:10:05 (2 части 01:08:01 и 01:02:05)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 313997   (617140) от 19.06.2011
 
 Чаггингтон: Веселые паровозики / Chuggington (2010-2011) PDTVRip (2 сезон: 26 серии из 26)
@@ -6,7 +59,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_617140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_617140.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616462.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616455.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616449.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616448.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ Anna [En] (P) 2012 |THETA
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616159.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ Divinity Antology (2002-2012) [Ru/En] Repack R.G. Origami
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615882.jpg" />
 </div>
 
 
@@ -194,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615537.jpg" />
 </div>
 
 
@@ -221,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615529.jpg" />
 </div>
 
 
@@ -248,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_615376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_615376.jpg" />
 </div>
 
 
@@ -274,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_615280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_615280.jpg" />
 </div>
 
 
@@ -300,7 +353,7 @@ Sonic And All-Stars Racing Transformed (2013) [En] (1.0u6fix) RePack Audioslave
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614936.jpg" />
 </div>
 
 
@@ -326,7 +379,7 @@ Deponia: The Complete Journey (2014) [Ru/Multi] (3.1.4.0127) SteamRip R.G. Иг�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614935.jpg" />
 </div>
 
 
@@ -353,7 +406,7 @@ F-Secure Freedome VPN 2.27.5861.0 RePack by elchupacabra [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614705.jpg" />
 </div>
 
 
@@ -379,7 +432,7 @@ Ad Muncher v4.93 Build 33707/4146 [Английский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_614379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_614379.jpg" />
 </div>
 
 
@@ -408,7 +461,7 @@ Malwarebytes Anti-Malware Premium 3.1.2.1733 DC 28.06.2017 RePack by KpoJIuK [Mu
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614129.jpg" />
 </div>
 
 
@@ -434,7 +487,7 @@ HITMAN (2016) [Ru/Multi] (1.11.2/dlc) License CPY [The Complete First Season]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614127.jpg" />
 </div>
 
 
@@ -460,7 +513,7 @@ Windows 7 SP1 Ultimate (x86&x64) [Updates V.9.0] by YelloSOFT [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614124.jpg" />
 </div>
 
 
@@ -489,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614121.jpg" />
 </div>
 
 
@@ -515,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_614015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_614015.jpg" />
 </div>
 
 
@@ -541,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613743.jpg" />
 </div>
 
 
@@ -568,7 +621,7 @@ Adobe Photoshop CC 2015 (20150529.r.88) RePack by alexagf [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613735.jpg" />
 </div>
 
 
@@ -594,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613729.jpg" />
 </div>
 
 
@@ -621,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613728.jpg" />
 </div>
 
 
@@ -633,58 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD9EF046C005E3A0E5F9B1EEBE86761EF239EC96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911569   (613723) от 24.06.2015
-
-Убей меня три раза / Kill Me Three Times (2014) BDRip [H.264/720p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613723.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая женщина, живущая в австралийском городке, является нитью, которая связывает три истории - убийства, шантажа и мести.Производство: США, Австралия / Cargo Entertainment, Feisty Dame Productions, Media House Capital, Parabolic Pictures Inc., Stable Way EntertainmentЖанр: Триллер, Криминал, КомедияРежиссер: Крив СтендерсАктеры: Саймон Пегг, Стив Ле Маркванд, Алиси Брага, Тереза Палмер, Салливан Степлтон, Люк Хемсворт, Каллэн Мулвей, Брайан Браун, Антонио Баримен, Дэниэл БеренджерПеревод: Многоголосый закадровый, любительский (BadCatStudio), Одноголосый закадровый, любительский (PashaUp)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский (Full), Английский (Full)Продолжительность: 01:30:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D960D599B389CD5A366CBA9F34EAFA43A4B3620D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230652   (613642) от 13.06.2018
-
-foobar2000 1.3.18 Final DarkOne + DUIFoon Portable by MC Web [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613642.jpg" />
-</div>
-
-
-###  Подробнее
-
-foobar2000 - это аудиоплеер, подкупающий своим весьма качественным звуком, имеющий широкие возможности настройки, спартанский непритязательный интерфейс и довольно низкие системные требования. Foobar проигрывает файлы многих форматов: MP3, MP1, MP2, MP4, MPC, Ogg Vorbis, AAC, FLAC / Ogg FLAC, WavPack, AIFF, AU, WAV, SND, CDDA, WMA (для lheubt форматов нужны соответствующие (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A9B03124D836C49022A1C04C2880CC0D0E1A10B
 ```
 
 https://mybot314.ru/tekegram_catalog/

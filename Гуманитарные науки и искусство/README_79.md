@@ -1,81 +1,3 @@
-###  Публикация: 945444   (433828) от 10.10.2015
-
-Роман Светлов, Иван Гончаров (сост.) | Книга Государя. Антология политической мысли (2009) [FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433828.jpg" />
-</div>
-
-
-###  Подробнее
-
-В антологию вошли замечательные памятники политической мысли, посвященные искусству государственного управления. Среди них – знаменитый трактат Н. Макиавелли «Князь» и не менее знаменитый опыт опровержения – «Анти-Макиавелли», малоизвестное в России сочинение прусского короля Фридриха Великого.Жанр: Политика, политологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:918234A74D9BB72813012E2F254BFE7798DDA3D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945481   (433826) от 10.10.2015
-
-Сергей Светлов | Книга Вина (2009) [FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Виноделие и винопитие – неотъемлемая часть европейской культуры. Их разнообразные проявления – от мистических до бытовых – составляют суть рассказа. Мифологические представления, философские и поэтические свидетельства позволяют проследить всю изменчивость давней традиции – от глубин античности до первых веков христианства.Жанр: Всеобщая история культурыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36D3FD2F38A13B69935769D9471A30895511810E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410785   (433627) от 22.09.2020
-
-Алексей Вдовин, Майя Кучерская, Наталья Калинникова (сост.) | Литературная мастерская. От интервью до лонгрида, от рецензии до подкаста (2020) [EPUB]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433627.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами руководство по нон-фикшн от школы литературного мастерства Creative Writing School. Каждая глава – практическое введение в какой-либо жанр, написанное признанным мастером. Среди авторов – известные писатели, журналисты и блогеры, преподаватели Creative Writing School и Высшей школы экономики. В книге рассмотрены классические жанры документальной литературы (   Читать дальше...   )Жанр: Литературоведение, Писательское мастерство, Творческая деятельностьФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:811AB9DCBDA100FB2A4A01DADCA551C150D43CE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 554562   (433009) от 02.10.2012
 
 Серия | Архитектурно-художественные памятники [1975-1989] [PDF]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433009.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432259.jpg" />
 </div>
 
 
@@ -137,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431746.jpg" />
 </div>
 
 
@@ -163,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430877.jpg" />
 </div>
 
 
@@ -189,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428941.jpg" />
 </div>
 
 
@@ -215,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428532.jpg" />
 </div>
 
 
@@ -241,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428370.jpg" />
 </div>
 
 
@@ -269,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428221.jpg" />
 </div>
 
 
@@ -295,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428216.jpg" />
 </div>
 
 
@@ -323,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428052.jpg" />
 </div>
 
 
@@ -349,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428051.jpg" />
 </div>
 
 
@@ -375,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427894.jpg" />
 </div>
 
 
@@ -401,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427654.jpg" />
 </div>
 
 
@@ -428,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427652.jpg" />
 </div>
 
 
@@ -454,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427371.jpg" />
 </div>
 
 
@@ -480,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427366.jpg" />
 </div>
 
 
@@ -506,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427363.jpg" />
 </div>
 
 
@@ -535,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427315.jpg" />
 </div>
 
 
@@ -561,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427276.jpg" />
 </div>
 
 
@@ -587,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427067.jpg" />
 </div>
 
 
@@ -613,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426824.jpg" />
 </div>
 
 
@@ -639,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426823.jpg" />
 </div>
 
 
@@ -665,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426820.jpg" />
 </div>
 
 
@@ -678,6 +600,88 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E73355CAA98CE2C23341603409D30A2DD94658A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945846   (426813) от 13.10.2015
+
+Сюзи Ходж | Искусство. 50 идей, о которых нужно знать (2014) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426813.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюзи Ходж – художник, искусствовед и историк искусства, автор более 50 книг об искусстве, среди которых монографии об импрессионизме, викторианском искусстве, древнеегипетском искусстве, о Пабло Пикассо и Клоде Моне. С. Ходж является членом Королевского общества искусств, читает лекции по всему миру.
+
+Искусство всегда являлось зеркалом, отражающим эпоху. Загадочное (   Читать дальше...   )Жанр: ИскусствоведениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1275616DA72FA109B94E9926CEB2329A4CC071F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1166427   (426670) от 16.09.2017
+
+Юлиус Эвола | Метафизика пола (1996) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426670.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга известного итальянского мыслителя-традиционалиста Юлиуса Эволы получила огромную известность на Западе и считается классическим трудом, исследующим проблемы пола и сексуальности. Проанализировав огромное количество материала, сосредоточенного в древних источниках, культурах, религиях, мистериях, наконец, в самой истории, автор приходит к парадоксальному выводу (   Читать дальше...   )Жанр: ФилософияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9E883D5F068C72024C40ED0437D4CEDB857BE6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411813   (425070) от 26.09.2020
+
+Александр Силаев | Философия без дураков. Как логические ошибки становятся мировоззрением и как с этим бороться? (2020) [FB2]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425070.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кому без рационального мышления жить хорошо? Тому, кто о нем даже не задумывается. А всех остальных частный инвестор и алготрейдер Александр Силаев призывает мыслить точно. Не путать чувства и мышление. Бороться с помощью конкретных методов с плохими теориями и логическими ошибками. Искать, допытываться, опровергать и сравнивать.
+
+В этой книге про рациональное мышление (   Читать дальше...   )Жанр: Философские науки, СоциологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D75BE9146105FB7E5663F29C45D8BB82B05277C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

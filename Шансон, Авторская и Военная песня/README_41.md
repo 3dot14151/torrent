@@ -1,3 +1,32 @@
+###  Публикация: 1627949   (254949) от 21.04.2023
+
+VA - Калина красная-Песни, спетые сердцем (2016) [MP3|320 Kbps] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. М. Мирный (М. Мартынов ) - Калина горькая
+02. М. Шуфутинский - Шансон
+03. Э. Изместьев - Потерялось счастье
+04. Ян Марти feat. Amamama - Уходи-приходи(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:19:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6A391F28DC8BC8BE46699BBB19E059C2C135A41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 497844   (253778) от 17.05.2012
 
 Сергей Трофимов - Аты-Баты (2012) [FLAC|Lossless]<Шансон>
@@ -6,7 +35,7 @@
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253778.jpg" />
 </div>
 
 
@@ -43,7 +72,7 @@ VA - Лучшие песни радио русский шансон 8 (2008) [MP
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250239.jpg" />
 </div>
 
 
@@ -72,7 +101,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250210.jpg" />
 </div>
 
 
@@ -101,7 +130,7 @@ VA - Лучшие песни радио русский шансон 9 (2009) [MP
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249921.jpg" />
 </div>
 
 
@@ -130,7 +159,7 @@ VA - Шансон 2022 года (Музыкальный хит-парад) [MP3|
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249482.jpg" />
 </div>
 
 
@@ -159,7 +188,7 @@ VA - 9 мая День Победы - 65 лет 1945-2010 (2010) [MP3|320 kbps]<
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248964.jpg" />
 </div>
 
 
@@ -194,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248949.jpg" />
 </div>
 
 
@@ -229,7 +258,7 @@ VA - 9 Мая: Лучшая 150-ка с праздником Победы! (2012
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248942.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248340.jpg" />
 </div>
 
 
@@ -299,7 +328,7 @@ SK-AI project - Последнее лето (2025) [MP3|320 Kbps] <Chanson>
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246725.jpg" />
 </div>
 
 
@@ -328,7 +357,7 @@ VA – Русский шансон часть 4 (1997) [MP3|320 Kbps] <Шанс�
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245992.jpg" />
 </div>
 
 
@@ -357,7 +386,7 @@ VA - Застольные от Петровича 40% - 96% (2004) 3 Альбо�
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245858.jpg" />
 </div>
 
 
@@ -386,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245571.jpg" />
 </div>
 
 
@@ -415,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245016.jpg" />
 </div>
 
 
@@ -444,7 +473,7 @@ VA - Памяти Аркадия Северного (1995) [MP3|320 Kbps] <Ша�
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244949.jpg" />
 </div>
 
 
@@ -473,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244682.jpg" />
 </div>
 
 
@@ -502,7 +531,7 @@ VA - Самые сливки шансона (2001) [FLAC|Lossless|tracks + .cue]
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244517.jpg" />
 </div>
 
 
@@ -531,7 +560,7 @@ VA - Калина красная 3-Песни, спетые сердцем (1999
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244386.jpg" />
 </div>
 
 
@@ -560,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244079.jpg" />
 </div>
 
 
@@ -589,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242873.jpg" />
 </div>
 
 
@@ -618,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242855.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Various Artists - Чёрная кошка 1-2  (1999) [FLAC|Lossless|tracks + .c
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242346.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ VA - Русский шансон часть 6 (1999) [MP3|320 Kbps] <Шансо�
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242326.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242278.jpg" />
 </div>
 
 
@@ -731,7 +760,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242058.jpg" />
 </div>
 
 
@@ -745,35 +774,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38B864B0C18F050487EC446FD8CB6959E9062F3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628557   (241993) от 23.04.2023
-
-Гриша Димант - Любимые песни (1997) [MP3|320 Kbps] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сигарета
-02. Рахиля
-03. Письмо к матери
-04. Доля воровская(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:55:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A502FDCF733E02D02F6F192599384BAD1BD510A
 ```
 
 https://mybot314.ru/tekegram_catalog/

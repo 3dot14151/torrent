@@ -1,3 +1,29 @@
+###  Публикация: 1364827   (931484) от 06.03.2020
+
+Windows Server 2019 LTSC 1809 Build 17763.1039 (Updated February 2020) Оригинальные образы от Microsoft MSDN [Ru/En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Операционные системы в канале LTSС ориентированы на традиционные рабочие нагрузки (файловые сервера, сервера приложений, инфраструктурные роли и т.п.). Текущей редакцией для канала LTSC является Windows Server 2019. Выпуски LTSC доступны всем пользователям, независимо от применяемой модели лицензирования. Установка системы возможна в режиме ядра (Server Core) и в (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F55569B15B0023BD262068C803636855DFCADD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 861420   (931169) от 22.01.2015
 
 Windows 8.1 Professional WMC with Update 3 [November 2014] [Ukr]
@@ -6,7 +32,7 @@ Windows 8.1 Professional WMC with Update 3 [November 2014] [Ukr]
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931169.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Windows 8.1 Single Language with Update 3 [November 2014] [Ru/En]
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931163.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Windows 8.1 Professional WMC with Update 3 [November 2014] [Ru/En]
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931154.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929855.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ Microsoft Windows 10 10.0.14393.447 Version 1607 (Updated Jan 2017) - Ориги
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925451.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Microsoft Windows 10 Enterprise 10.0.14393.447 Version 1607 (Updated Jan 2017) -
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925439.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Microsoft Windows 10.0.19042.1165, Version 20H2 (Updated August 2021) - Ориг
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923701.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Microsoft Windows 10.0.17763.2114, Version 1809 (Updated August 2021) - Ориг
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923641.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ Windows Server, Version 20H2 (10.0.19042.1165) (Updated August 2021) - Ориг�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923461.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ Microsoft Windows 10.0.19042.1165, Version 20H2 (Updated August 2021) - Ориг
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923441.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ Windows Server 2019 LTSC, Version 1809 Build 17763.2114 (Updated August 2021) О
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923296.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ Recovery USB-Flash for Dell Inspiron 3542 / Windows 10 Home (х64) [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920161.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ Windows 7 SP1 with Update [7601.24550] AIO 11in2 (x86-x64) by adguard (v20.03.11
 >>Сборки Windows 7
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918221.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ Windows 10 Enterprise 2016 LTSB, Version 1607 with Update [14393.3564] (x64) by 
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916706.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ Windows 8.1 6.3 (9600.20094) Enterprise + Pro (2in1) x64 by Brux [Ru/En]
 >>Сборки Windows 8
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916566.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ Microsoft Windows 10.0.19043.1165, Version 21H1 (Updated August 2021) - Ориг
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914884.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ Recovery Partition for ASUS X55VD / Windows 7 Home Basic (х64) SP1 [Ru/En]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913394.jpg" />
 </div>
 
 
@@ -459,7 +485,7 @@ Microsoft Windows 10 10.0.14393.447 Version 1607 (Updated Jan 2017) - Ориги
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913362.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ Microsoft Windows 10 Professional / Education 10.0.14393.447 Version 1607 (Updat
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913357.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ Recovery USB-Flash for Lenovo IdeaPad 100-15IBD / Windows 10 Home (х64) [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905561.jpg" />
 </div>
 
 
@@ -540,7 +566,7 @@ Microsoft Windows Server 2016 RTM Version 1607 Build 10.0.14393.447 (Updated Jan
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900636.jpg" />
 </div>
 
 
@@ -566,7 +592,7 @@ Microsoft Windows 10 Insider Preview, Version 21H2 [10.0.19044.1165] - Ориг�
 >>Разное (RC, Beta и Service Packs)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897107.jpg" />
 </div>
 
 
@@ -593,7 +619,7 @@ Microsoft Windows 10.0.17763.1098 Version 1809 (March 2020 Update) - Ориги�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896439.jpg" />
 </div>
 
 
@@ -620,7 +646,7 @@ Microsoft Windows 10.0.18362.720 Version 1903 (March 2020 Update) - Оригин
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896432.jpg" />
 </div>
 
 
@@ -647,7 +673,7 @@ Windows Server, Version 1909 (10.0.18363.720) - Оригинальные обр�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896384.jpg" />
 </div>
 
 
@@ -658,33 +684,6 @@ Windows Server SAC - канал Semi-Annual Channel идеально подхо�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79FFB94D488A7C99D1570E76B6F89E0B3919323A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370347   (896245) от 27.03.2020
-
-Microsoft Windows 10.0.18363.720 Version 1909 (March 2020 Update) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 1909 Build 18363.720.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC33097FA58614B33FD8023FE02AA2A8FEBB891A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,135 +1,3 @@
-###  Публикация: 1348137   (993002) от 16.01.2020
-
-Марк Курлански | Молоко! Самый спорный продукт (2019) [PDF, EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Историю человечества невозможно себе представить без молока. Первая пища, которую мы пробуем в своей жизни, оставила след в религии, политике, культуре, экономике, медицине… Многие мифы о сотворении мира восходят к молоку. Древние греки, например, считали, что Млечный Путь появился, когда богиня женственности Гера пролила молоко при кормлении Геракла – каждая капля (   Читать дальше...   )Жанр: История, продукты питанияФормат: PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52424B94A280FA6C6A12AECD9E555211F7F6618E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608925   (992834) от 26.01.2013
-
-Л.Г. Грабчак | Горноразведочные работы [2003] [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992834.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге приведена технология горноразведочных работ, изложены основные горнотехнические свойства и характеристики горных пород, вопросы разрушения горных пород взрывом и невзрывные методы. Рассмотрены вопросы горного давления и крепи горных выработок. Уделено внимание вопросам транспорта при горноразведочных работах и экологическим требованиям
-Учебник очень полезный для студентов всех горногеологических специальностей.Авторы- преподаватели кафедры горного дела Российского Государственного Геологоразведочного Университета им. Серго Орджоникидзе ( МГРИ-РГГРУ ) http://msgpa.ru/
-Для копирования и решения др задач могу приложить к раздаче текст в формате MS Word, распознанный Fine Reader'омФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE708DFEC52D8D75EE4B00B66D681A2237A43CDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609047   (992815) от 26.01.2013
-
-А. Ипатович-Горанский, В. Яковлев | Курс кавалерийских училищ. Конно-саперное дело (Раритетное издание) [1908] [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящий курс конно-саперного дела предназначен для кавалерийских училищ, для учебных команд кавалерийских частей, а также для офицеров, командируемых в саперные лагеря для изучения конно-саперного дела. Подрывное, телеграфное, телефонное дело. Оптическая сигнализация. Понятия об искровом телеграфе.Язык: Русский (старая орфография)Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C421FDA2AE1CB0C8073EB9DE192AB7E4745AF1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353142   (992620) от 17.01.2020
-
-А.П. Лободанов | Грамматические трудности французского языка (2003) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992620.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот словарь предназначен для изучающих французский язык и имеет целью овладение этим языком и устной и письменной форме. Содержит наиболее трудные случаи употребления французских глаголов, усвоение которых помогает правильно строить французские фразы.Жанр: Учебное пособие, СловарьФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8D82D9E7D30E34BEF98D15F6AA458A3188C8FCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353189   (992578) от 17.01.2020
-
-В.И. Нефедов, А.С. Сигов | Общая теория связи (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992578.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс «Общая теория связи» является основной дисциплиной из плана подготовки бакалавров в области исследования и разработки телекоммуникаций. Основной целью курса является обучение студентов теории, методам и основам построения устройств модуляции, кодирования, передачи, помехоустойчивого приема и обработки сигналов, развитие навыков системного подхода к разработке (   Читать дальше...   )Жанр: СвязьФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E2BEBA41999D01045FA1ED7DA6FFF67D9479B25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1353327   (992572) от 17.01.2020
 
 Филипп Доллингер | Ганзейский союз. Торговая империя Средневековья от Лондона и Брюгге до Пскова и Новгорода (2020) [EPUB]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992572.jpg" />
 </div>
 
 
@@ -164,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992510.jpg" />
 </div>
 
 
@@ -190,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991931.jpg" />
 </div>
 
 
@@ -216,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991875.jpg" />
 </div>
 
 
@@ -242,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991813.jpg" />
 </div>
 
 
@@ -268,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991788.jpg" />
 </div>
 
 
@@ -295,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991745.jpg" />
 </div>
 
 
@@ -321,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991565.jpg" />
 </div>
 
 
@@ -350,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991240.jpg" />
 </div>
 
 
@@ -377,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991142.jpg" />
 </div>
 
 
@@ -404,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991113.jpg" />
 </div>
 
 
@@ -430,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991017.jpg" />
 </div>
 
 
@@ -456,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990885.jpg" />
 </div>
 
 
@@ -482,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990813.jpg" />
 </div>
 
 
@@ -510,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990728.jpg" />
 </div>
 
 
@@ -536,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990612.jpg" />
 </div>
 
 
@@ -563,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990609.jpg" />
 </div>
 
 
@@ -591,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990550.jpg" />
 </div>
 
 
@@ -617,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990319.jpg" />
 </div>
 
 
@@ -644,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990249.jpg" />
 </div>
 
 
@@ -670,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990227.jpg" />
 </div>
 
 
@@ -681,6 +549,145 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1D9CC684CED00F29495B517158975D7AFC2E171
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 610677   (990198) от 29.01.2013
+
+Т. Козлова, В. Сивоглазов | Растения леса [2002] [PDF]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лес называют зелёным океаном земли, бесценным даром природы. Лес — настоящие легкие нашей планеты: он помогает дышать всему живому, выделяя кислород, очищая воздух от грязи, пыли и вредных для здоровья людей веществ.
+Лесные деревья и кустарники выделяют особые оздоровительные вещества — фитонциды. Легко дышится в хвойных лесах, но и горьковатый запах белых кистей цветущей черемухи, и смолистый запах лопающихся почек осины — все это фитонциды,убивающие микроорганизмы.
+Леса кормят, обогревают, дают материал для строительства. Плоды, цветы, листья, ветки и корни — источник пищи для животных. Мощные деревья с густой кроной служат хорошей защитой от транспортных шумов, сильных ветров. Леса сберегают воду и почву. Летом смягчают жару, зимой — холод.
+Лес издавна служит людям: из древесины изготовляют почти 20000 видов продуктов и изделий.
+Сочетания лесных растений образуют пейзажи неповторимой красоты.
+Необходимо знать, любить и беречь лесные богатства России.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C897F01CA45A7EF200EBD9D4A534CB41D83544F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 610481   (990139) от 29.01.2013
+
+Б. Кларк | Амфибии [2005] [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990139.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лягушки, жабы, тритоны, саламандры и многое другое.
+Потрясающий выбор цветов, форм, размеров и места обитания.
+Они живут как в воде так и на суше, двигаются и плавают.
+В книге серии фотографий этих существ.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7F1EAE4A0BD468436D79D310EF509B173D38885
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 610348   (990044) от 29.01.2013
+
+Географгиз, Мысль | Книжная серия "Рассказы о природе" [1957-1983] [fb2, djvu, pdf]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказы о природе - серия книг о животных, о путешествиях в неизведанные места, о горах, лесах, саваннах, пустынях, о реках, озерах, морях и океанах, о пещерах и морских глубинах.
+Вобщем - рассказы о природе.Формат: fb2, djvu, pdf
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F93D8E18644F2F054723FA7194510F71DDEEFD92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354000   (989689) от 20.01.2020
+
+В.С. Синельников | Сантехнические работы (2006) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989689.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге описаны современные материалы и технологии водопроводно-санитарных работ, а также приведены сведения о современном ассортименте сантехнических приборов. Задумывая приобретение сантехники, а тем более затевая ремонт квартиры с заменой водопровода и отопления, стоит разобраться в довольно многочисленном наборе приборов, труб, фурнитуры. Как устроены водопроводные (   Читать дальше...   )Жанр: Строительство, ремонтФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11D7248537A6BF0CC6931823EA55B1EEF4A0B30E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 610838   (989217) от 30.01.2013
+
+Э. Фромм | Искусство любить [2006] [DOC]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эрих Фромм - выдающийся социолог, психолог и философ ХХ столетия, пожалуй как никто полно и разносторонне отразивший в своих текстах интеллектуальную жизнь столетия, вершины и трагедию человеческого духа. Книги Фромма неизменно становились бестселлерами. Отталкиваясь от учения классического психоанализа и социальной философии Франкфуртской школы, Фромм создал так называемый гуманистический психоанализ - целостное философско-психологическое учение и мировоззренческую систему, дающую ответы на многие из тех вопросов, которые поставил перед человеком ХХ век. В эту книгу включены работы Фромма, посвященные ключевым вопросам человеческого существования - природе человека, любви, ответственности за свою жизнь.Формат: DOC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F065D5603D6593F052B0DCB01011F53DE5532D82
 ```
 
 https://mybot314.ru/tekegram_catalog/

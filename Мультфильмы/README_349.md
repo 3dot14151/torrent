@@ -1,3 +1,135 @@
+###  Публикация: 1086917   (147615) от 26.12.2016
+
+Буренка Даша (2015 - 2016) WEB-DLRip (серии 1-23 из 23)
+
+>>Мультфильмы
+>>Отечественные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Буренка Даша» - это уникальный мультипликационный караоке-проект основанный на народных песнях и сказках, а также на авторских историях о главных персонажах. Каждая песня – это увлекательное путешествие, в которое дружная семья Даши приглашает детей и их родителей. В игровой форме мы будем учиться народной мудрости, вместе с любимыми героями узнаем много нового и (   Читать дальше...   )Производство: РоссияЖанр: Рисованная анимацияРежиссер: Александр Брухнов, Виталий Захаров, Сергей ЧернышёвПродолжительность: ~ 00:02:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F269077398CC42DC04D22887229F26E419FDD805
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434822   (147333) от 26.12.2020
+
+Душа / Soul (2020) WEBRip [H.264/720p-LQ] [EN / En, Ru Sub]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147333.jpg" />
+</div>
+
+
+###  Подробнее
+
+Школьный учитель музыки Джо Гарднер случайно попадает в мир, где зарождаются человеческие увлечения, мечты и интересы, и там он знакомится с молодой душой по имени 22.Производство: США / Pixar Animation Studios, Walt Disney PicturesЖанр: Компьютерная анимацияРежиссер: Пит Доктер, Кемп ПауэрсПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские (full), русские (full)Продолжительность: 01:40:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8A1A1573BDE42906E3DE0C9EF885DA4D3457149
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519814   (147288) от 25.12.2021
+
+Алиса на родео / Alice at the Rodeo (1927) TVRip [H.264] [PR]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередные приключения Алисы и её котика Джулиуса. Теперь на родео. И постоянный их соперник - медведь Пит.
+К сожалению, по всей продолжительности ролика присутствует логотип архива.Производство: США, Walt Disney ProductionsЖанр: Рисованная анимация, детскийРежиссер: Уолт ДиснейАктеры: Марджи ГэйПеревод: НемойСубтитры: ОтстутствуютПродолжительность: 00:08:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36E5DA59569EA870EA643B57AA6558A5CD76D344
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678207   (147269) от 20.11.2023
+
+Самоедский мальчик (1928) WEBRip [H.264/720p-LQ]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147269.jpg" />
+</div>
+
+
+###  Подробнее
+
+О судьбе маленького ненца, который после многих приключений попадает в Ленинград и возвращается в родное стойбище образованным молодым человеком.
+Да, пропаганда. Да, агитация. Как собственно, все искусство.Производство: СССР, Совкино (3-я кинофабрика)Жанр: рисованная анимация, пропагандистский, немое киноРежиссер: Николай Ходатаев, Ольга Ходатаева, Валентина Брумберг, Зинаида БрумбергСубтитры: русские (интертитры)Продолжительность: 00:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D0B10928A1878201081BCDABD18A0E3DD3A0066
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589539   (147254) от 15.12.2012
+
+Феи: Тайна зимнего леса / Secret of the Wings (2012) [720p] BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147254.jpg" />
+</div>
+
+
+###  Подробнее
+
+Динь-Динь и ее подруги всегда боялись пересекать границу с Зимним лесом, ведь существует поверье, что там очень опасно. В один прекрасный день Динь-Динь, сгорая от любопытства, подходит вплотную к лесу, и ее крылья неожиданно начинают блестеть и переливаться. Завороженная Динь, желая узнать тайну волшебных крыльев, кутается в теплое пальто и отправляется в глубь (   Читать дальше...   )Производство: США / Walt Disney Pictures, DisneyToon StudiosЖанр: Фэнтези, СемейныйРежиссер: Роберт Ганнавей, Пегги ХолмсАктеры: Тимоти Далтон, Люси Хейл, Меган Хилти, Анжелика Хьюстон, Мэтт Лантер, Джесси МакКартни, Мэй Уитман, Люси Лью, Рэйвен Дебби РайанПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: Аглийский (Full, SDH)Продолжительность: 01:15:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0696E2A8E240F393B945078B1E5751951ECBAE41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 589538   (147172) от 15.12.2012
 
 Феи: Тайна зимнего леса / Secret of the Wings (2012) [1080p] BDRip
@@ -6,7 +138,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147172.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146982.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146877.jpg" />
 </div>
 
 
@@ -84,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146869.jpg" />
 </div>
 
 
@@ -110,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146754.jpg" />
 </div>
 
 
@@ -136,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146647.jpg" />
 </div>
 
 
@@ -162,7 +294,7 @@ My Little Pony: Наилучший подарок / My Little Pony: Best Gift Ev
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146392.jpg" />
 </div>
 
 
@@ -188,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146300.jpg" />
 </div>
 
 
@@ -214,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146233.jpg" />
 </div>
 
 
@@ -240,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145758.jpg" />
 </div>
 
 
@@ -266,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145570.jpg" />
 </div>
 
 
@@ -292,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145504.jpg" />
 </div>
 
 
@@ -318,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145409.jpg" />
 </div>
 
 
@@ -344,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145382.jpg" />
 </div>
 
 
@@ -370,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145375.jpg" />
 </div>
 
 
@@ -396,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145157.jpg" />
 </div>
 
 
@@ -422,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145110.jpg" />
 </div>
 
 
@@ -448,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145017.jpg" />
 </div>
 
 
@@ -474,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144843.jpg" />
 </div>
 
 
@@ -500,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144681.jpg" />
 </div>
 
 
@@ -527,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144629.jpg" />
 </div>
 
 
@@ -538,136 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B298397DFBBED273CB149A008388424EB7EBF90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678253   (144570) от 21.11.2023
-
-Северные амуры (2023) WEBRip [H.264/1080p]
-
->>Мультфильмы
->>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144570.jpg" />
-</div>
-
-
-###  Подробнее
-
-Славные приключения неунывающих храбрецов, которые понравятся и взрослым, и детям. Не перевелись богатыри в Российской империи! Когда в 1788 году шведский король объявил нам войну, люди по всей стране поднялись на защиту земель. Особенно отличились башкиры — известные храбрецы, верой и правдой служившие отчизне. Подвиг пятёрки богатырей из далёкой деревни так впечатлил (   Читать дальше...   )Производство: Россия | Студия «Муха», Студия «Башкортостан»Жанр: МультфильмРежиссер: Руслан ТавабиловАктеры: Радик Юльякшин, Назифа Кадырова, Идрис Газиев, Фидан Гафаров, Азамат Гафаров, Илья Тавлияров, Руслан Ронич, Ильнур Лукманов, Юнир Аминев, Камиль БузыкаевСубтитры: ОтсутствуютПродолжительность: 01:04:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93DCE25C56A8C9AE79C3512507851EF246F2616C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590197   (144532) от 16.12.2012
-
-Шевели ластами 2 / Sammy's avonturen 2 (2012) DVD5
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144532.jpg" />
-</div>
-
-
-###  Подробнее
-
-Верные друзья навсегда, черепахи Сэмми и Рей, наслаждаются размеренной жизнью вблизи океана, а также присматривают за только что вылупившимися Рикки и Эллой. Внезапно, браконьер хватает больших черепах, они нужны ему для захватывающего морского шоу в Дубае. Центральная фигура шоу, морской конёк Большой Ди, посвящает новичков в свои планы на грандиозный побег. Но, (   Читать дальше...   )Производство: Бельгия, nWave Pictures, Illuminata Pictures, Motion Investment GroupЖанр: Мультфильм, приключенияРежиссер: Бен СтассенПерсонажи: Билли Ангер, Пэт Кэрролл, Карлос МакКаллерс II, Синда Адамс, Дино Андраде, Крис Эндрю Кулла, Изабель Фурман, Уэсли Джонни, Силье Рейномо, Дуглас Райан РотПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:32:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0A26BB1DCD450DB0309DE49482F804C02B8EAFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589912   (144516) от 16.12.2012
-
-Шевели ластами 2 / Sammy's avonturen 2 (2012) [1080p] BDRip [Горизонтальная анаморфная стереопара 3D]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Верные друзья навсегда, черепахи Сэмми и Рей, наслаждаются размеренной жизнью вблизи океана, а также присматривают за только что вылупившимися Рикки и Эллой. Внезапно, браконьер хватает больших черепах, они нужны ему для захватывающего морского шоу в Дубае. Центральная фигура шоу, морской конёк Большой Ди, посвящает новичков в свои планы на грандиозный побег. Но, (   Читать дальше...   )Производство: Motion Investment Group / nWave PicturesЖанр: Мультфильм, приключенияРежиссер: Бен СтассенАктеры: Билли Ангер, Пэт Кэрролл, Карлос МакКаллерс II, Синда Адамс, Крис Эндрю Кулла, Дино Андраде, Изабель Фурман, Уэсли Джонни, Силье Рейномо, Дуглас Райан Рот, Джо Томас, Уилли Джеймс Уоррен мл.Перевод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:32:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2B1FCC91377FF4E68051F57F55C82EDEB8A57E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444117   (144508) от 21.11.2023
-
-Флинтстоуны / The Flintstones The Complete Series (1960-1966) BDRip [H.264] (Сезон 1-6, 166 серий из 166)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый анимационный сериал, ориентированный на взрослую аудиторию. Действие разворачивается в Каменном веке, где всё не так запущенно, как могло бы показаться. Здесь есть телефоны, автомобили, боулинг-клубы, - правда, всё из камня. А проблемы доисторической семьи Флинтстоунов отличаются от современных только антуражем. Сериал был задуман как карикатура на американское (   Читать дальше...   )Производство: США, Hanna-Barbera ProductionЖанр: Комедия, Рисованная анимацияРежиссер: Уильям Ханна и Джозеф БарбераПеревод: Дублированный, Многоголосый закадровыйСубтитры: английские, русские (в сериях, где нет русской озвучки).Продолжительность: ~00:24:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F19B643BC45F174971DF08B942A9BE2B79ABBDA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969820   (144439) от 28.12.2015
-
-Монстры на каникулах 2 / Hotel Transylvania 2 (2015) BDRemux [H.264/1080p] [3D/2D] [ISO]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Описание Граф Дракула выдает свою очаровательную дочь замуж за парня из мира людей, и у молодой «смешанной» пары рождается сын. Станет ли этот ребенок человеком или вампиром?Производство: США, Columbia Pictures, LStar Capital, Sony Pictures Animation, Sony Pictures Digital, Sony Pictures ImageworksЖанр: Мультфильм, Фэнтези, Комедия, СемейныйРежиссер: Генндий ТартаковскийПерсонажи: Адам Сэндлер, Энди Сэмберг, Селена Гомес, Кевин Джеймс, Стив Бушеми, Дэвид Спейд, Кигэн-Майкл Ки, Эшер Блинкофф, Фрэн Дрешер, Молли ШеннонПеревод: Дублированный (iTunes Russia)Язык субтитров: Русский (Forced, iTunes), украинский (iTunes), английский (SDH, Commentary)Продолжительность: 01:29:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C23D7E6E37B32A7B67732D9393D18A38055804D
 ```
 
 https://mybot314.ru/tekegram_catalog/

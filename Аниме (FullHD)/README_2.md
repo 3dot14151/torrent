@@ -6,7 +6,7 @@ Shoujo Kageki Revue Starlight | Revue Starlight | Девичья опера: С�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029534.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Free! Dive to the Future | Вольный стиль! [ТВ-3] [2018, TV, 12 + S
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029037.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Kingdom 2 | Царство 2 [2013, TV, 39 из 39] WEB-DL 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028701.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Kingdom | Царство [2012, TV, 38 из 38] WEB-DL 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028684.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Heya Camp | Room Camp | Комнатный поход [2020, TV, 12 + SP] BDRip 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028683.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Jitsu wa Watashi wa | Actually, I Am... | По правде говоря, я... 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028350.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Amaama to Inazuma | Sweetness and Lightning | Сласти и молния [2016
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027671.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Monster Musume no Oisha-san | Monster Girl Doctor | Доктор для деву
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027319.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Ayu Mayu Gekijou | Театр Аю и Маю [2006, OVA, 4 + 3 SP] BDRip 1080p r
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027242.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Akane Maniax | Фанаты Аканэ [2004, OVA, 3 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027231.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Kuutei Dragons | Drifting Dragons | Небесные драконы [2020, Web, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027205.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Adachi to Shimamura | Adachi and Shimamura | Адати и Симамура [202
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026422.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Maou Gakuin no Futekigousha | The Misfit of Demon King Academy | Непризн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026191.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Fight Ippatsu! Juuden-chan!! | С первого удара заряжай-ка!
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025762.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Ninja Senshi Tobikage | Ninja Robot Tobikage | Ниндзя-воин Тобик�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025700.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Shinrei Tantei Yakumo | Psychic Detective Yakumo | Детектив-медиум
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025465.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Majo no Tabitabi | Wandering Witch: The Journey of Elaina | Странствия
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024859.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Mahou Shoujo Lyrical Nanoha The Movie 1st | Magical Girl Lyrical Nanoha The Movi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023831.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Mahou Shoujo Lyrical Nanoha The Movie 2nd A's | Лиричная волшебн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023821.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Kanojo, Okarishimasu | Rent-A-Girlfriend | Девушка на час [ТВ-1] [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023746.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Toji no Miko + Mini Toji | Katana Maidens | Жрицы-мечницы + Мини
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023593.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Trinity Seven | Святая семёрка [2014, TV 12 эп. + 1 OVA + 2 Movie
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023567.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Kaguya-sama wa Kokurasetai? Tensai-tachi no Ren'ai Zunousen | Кагуя: В л�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023455.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Kaguya-sama wa Kokurasetai: Tensai-tachi no Ren'ai Zunousen | Kaguya-sama: Love 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023383.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Black Clover (2017) | Чёрный клевер [2017, TV, 91-170 из 170 + 8SP
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023353.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Aya to Majo | Earwig and the Witch | Ая и ведьма [2020, Special, 1 эп
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022923.jpg" />
 </div>
 
 

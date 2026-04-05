@@ -1,32 +1,3 @@
-###  Публикация: 1811758   (8350) от 11.08.2025
-
-Emperor - Emperor (1993) EP, Released, 2017, Candlelight Records [FLAC|24/96|tracks|Vinyl-Rip] <Symphonic Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Am The Black Wizards (06:26)
-02. Wrath Of The Tyrant (04:15)
-03. Night Of The Graveless Souls (03:15)
-04. Cosmic Keys To My Creations And Times (06:23)Жанр: Symphonic Black MetalПродолжительность: 00:20:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD41EDF9054CB68CD6C582C4F0D36ED3498A52A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1811891   (8248) от 12.08.2025
 
 Dragony - Studio Albums (6 releases) (2012-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic/Symphonic Power Metal>
@@ -35,7 +6,7 @@ Dragony - Studio Albums (6 releases) (2012-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8248.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ DragonForce (& Marc Hudson) - Studio Albums (11 releases) (2003-2024) hand made 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8231.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Fade Numb - Fresh Start (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8116.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - Absolute New Hits 5 (1994) Compilation, Unofficial Release [FLAC 2.0|48/24|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8106.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Rave The Reqviem - Studio Albums (5 releases) (2014-2023) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8044.jpg" />
 </div>
 
 
@@ -179,7 +150,7 @@ Hendy FN - Karma (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8026.jpg" />
 </div>
 
 
@@ -208,7 +179,7 @@ Crooked Myth - Wrong Deal (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8012.jpg" />
 </div>
 
 
@@ -237,7 +208,7 @@ Forgotten Roadz - Everything in Between, Vol. 2 (2025) [FLAC 24/44.1|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8010.jpg" />
 </div>
 
 
@@ -266,7 +237,7 @@ Fade Poet - Spirit of a Rebel (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8009.jpg" />
 </div>
 
 
@@ -295,7 +266,7 @@ Grit Slide - Hexed Ground (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8005.jpg" />
 </div>
 
 
@@ -324,7 +295,7 @@ Caden Morrowick - Total Spin (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8004.jpg" />
 </div>
 
 
@@ -353,7 +324,7 @@ Frost Drift - Let's Begin Something (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8002.jpg" />
 </div>
 
 
@@ -382,7 +353,7 @@ Forestry Road - Forestry Road (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8001.jpg" />
 </div>
 
 
@@ -411,7 +382,7 @@ A-Z (Ray Alder, Mark Zonder (Fates Warning)) - Studio Albums (2 releases) (2022-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7999.jpg" />
 </div>
 
 
@@ -438,7 +409,7 @@ Colin Hay - Man @ Work Volume 2 (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7996.jpg" />
 </div>
 
 
@@ -467,7 +438,7 @@ Bobby Messano - Still~Life (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7995.jpg" />
 </div>
 
 
@@ -496,7 +467,7 @@ Chapel Blues - Searchin' for the Sound (2025) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7990.jpg" />
 </div>
 
 
@@ -525,7 +496,7 @@ Daylight Ghostfist - Fleeing Fast (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7989.jpg" />
 </div>
 
 
@@ -554,7 +525,7 @@ Bob Forte - Nureci Blues (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7987.jpg" />
 </div>
 
 
@@ -583,7 +554,7 @@ Ember Tavistock - Grindin' Hustle (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7985.jpg" />
 </div>
 
 
@@ -612,7 +583,7 @@ Greg James Ortbach - Somewhere Slow (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7983.jpg" />
 </div>
 
 
@@ -641,7 +612,7 @@ Brice Harwin - Melancholy Meeting (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7978.jpg" />
 </div>
 
 
@@ -670,7 +641,7 @@ Eminent Steed - The Joy of June (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7977.jpg" />
 </div>
 
 
@@ -699,7 +670,7 @@ Beguiled - Rise of the Winged Demons (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7976.jpg" />
 </div>
 
 
@@ -728,7 +699,7 @@ Bad Debts - Under Kalimna Skies (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7974.jpg" />
 </div>
 
 
@@ -742,6 +713,35 @@ Bad Debts - Under Kalimna Skies (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D57D16711D1890F7764221B91DC5132FB55D88AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812369   (7864) от 14.08.2025
+
+The Vesterbros - Smooth Soul Jazz Cafe, Vol. 1 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Velvet Skyline (4:57)
+02. Midnight Indigo (4:07)
+03. Smoke Rings (3:37)
+04. Lantern Glow (5:21)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:00:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2D77B0406291FC7363CA1B3A15BD8AAA9B8D8F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

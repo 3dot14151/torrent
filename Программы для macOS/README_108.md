@@ -1,3 +1,65 @@
+###  Публикация: 581138   (339609) от 26.11.2012
+
+Nik Software Sharpener Pro 3.010 [Eng]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_339609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sharpener Pro™ — профессиональный плагин для Adobe Photoshop, с богатым набором новых возможностей, реализованных в обновленном продукте, позволяет выполнять огромный спектр задач – от предварительной коррекции резкости в файлах RAW, полученных с фотокамер, до финального увеличения резкости с учетом особенностей технологии вывода изображения. Позволяет работать с 16-битными изображениями без необходимости их перевода в 8-битные. Область предварительного просмотра позволяет вам во время работы видеть, как изменяется качество фотографии в зависимости от примененных эффектов.
+Возможности плагина:
+● Создание точного и избирательного контроля резкости
+● Обновленный механизм финальной корректировки резкости позволяет готовить изображения к выводу практически на любых устройствах и носителях – на экране мониторов, на струйных принтерах, в полноцветной полиграфии, шелкографии и т.д.
+● Увеличение резкости мелких деталей и текстур с новой структурой, фокусом, и местных отличий инструментов для привлечения (   Читать дальше...   )Название программы: Sharpener Pro 3Релиз состоялся: август 2012Тип издания: Mac OS X softwareЯзык интерфейса: Eng
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 581136   (339497) от 26.11.2012
+
+Nik Software Viveza 2.009 [Eng]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_339497.jpg" />
+</div>
+
+
+###  Подробнее
+
+Viveza 2 – плагин, расширяющий функциональность набора инструментов для редактирования цифровых изображений в Adobe Photoshop. С помощью этого приложения пользователи смогут регулировать яркость, контрастность и насыщенность цвета отдельных объектов или областей фотоснимка. Программа самостоятельно выделяет нужные объекты и создает маски в автоматическом режиме, тем самым позволяя специалистам трудиться более продуктивно. (х64 только в этой новости)
+Возможности плагина:
+● Регулировка яркости, контраста и насыщенности выделенной части изображения
+● Уникальная технология U Point, позволяющая гибко корректировать отдельные участки изображения
+● Инструмент выделения (Selective tool), позволяющий применять эффект только к выделенной области изображения
+● Интеграция Smart-объектов в Adobe Photoshop
+● Предварительный просмотр результатов на экране перед печатью.Название программы: Viveza 2Релиз состоялся: август 2012Тип издания: Mac OS X softwareЯзык интерфейса: Eng
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1419419   (339451) от 28.10.2020
 
 Commander One PRO 2.5.2 [Multi/Ru]
@@ -6,7 +68,7 @@ Commander One PRO 2.5.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339451.jpg" />
 </div>
 
 
@@ -35,7 +97,7 @@ Nik Software Silver Efex Pro 2.006 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_339385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_339385.jpg" />
 </div>
 
 
@@ -70,7 +132,7 @@ iCalamus 2 v2.18 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338673.jpg" />
 </div>
 
 
@@ -98,7 +160,7 @@ Aeon Timeline 2 v2.3.13 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338671.jpg" />
 </div>
 
 
@@ -125,7 +187,7 @@ Aiseesoft Mac Video Converter Ultimate 9.2.18 (79982) [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338519.jpg" />
 </div>
 
 
@@ -151,7 +213,7 @@ Copied 1.1.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338439.jpg" />
 </div>
 
 
@@ -180,7 +242,7 @@ Man Reader 1.8.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336132.jpg" />
 </div>
 
 
@@ -209,7 +271,7 @@ Trash Without 1.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335599.jpg" />
 </div>
 
 
@@ -235,7 +297,7 @@ Periscope Pro 3.4.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335482.jpg" />
 </div>
 
 
@@ -264,7 +326,7 @@ Block Advertising on Internet 1.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335465.jpg" />
 </div>
 
 
@@ -292,7 +354,7 @@ H265 Converter Pro 3.3.1 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335055.jpg" />
 </div>
 
 
@@ -318,7 +380,7 @@ Cyberduck 4.7.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335023.jpg" />
 </div>
 
 
@@ -346,7 +408,7 @@ Hobo 1.5.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335002.jpg" />
 </div>
 
 
@@ -373,7 +435,7 @@ Vanilla Pro 1.2.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334860.jpg" />
 </div>
 
 
@@ -401,7 +463,7 @@ MacPaw Hider 2 2.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334680.jpg" />
 </div>
 
 
@@ -430,7 +492,7 @@ MacProxy 3 v3.0.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334587.jpg" />
 </div>
 
 
@@ -456,7 +518,7 @@ Mathworks Matlab 2014b (8.4.0.150421) [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334496.jpg" />
 </div>
 
 
@@ -484,7 +546,7 @@ ControllerMate 4 v4.11.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334242.jpg" />
 </div>
 
 
@@ -510,7 +572,7 @@ iBoostUp Premium 6.4.22 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333153.jpg" />
 </div>
 
 
@@ -538,7 +600,7 @@ Focus 1.8.12 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333031.jpg" />
 </div>
 
 
@@ -566,7 +628,7 @@ ABBYY FineReader OCR Pro for Mac 12.1.13 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332984.jpg" />
 </div>
 
 
@@ -593,7 +655,7 @@ Flux 7 v7.1.11 [RU/En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332928.jpg" />
 </div>
 
 
@@ -619,7 +681,7 @@ iSkysoft PDF Editor 6 Pro - Edit & OCR 6.7.6 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332856.jpg" />
 </div>
 
 
@@ -645,7 +707,7 @@ KeeWeb 1.11.9 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332345.jpg" />
 </div>
 
 
@@ -656,58 +718,6 @@ KeeWeb - это надежный, мультиплатформенный и пр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEFEEC69D8D0F14320F15E0445AAED2A6EE8C5B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955752   (332328) от 12.11.2015
-
-MPV 0.12.0 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332328.jpg" />
-</div>
-
-
-###  Подробнее
-
-MPV — мультимедийный плеер, основанный на mplayer и mplayer2. Плеер поддерживает обширный набор видеоформатов, аудио- и видеокодеков и форматов субтитров.Тип издания: MacOS X softwareРелиз состоялся: 11 октября 2015Разработчик: mpv.ioПоддерживаемая ОС: OS X 10.6 +Язык интерфейса: только английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F599C61174C04418E9220A6DF2A907E4FA4729A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955698   (331942) от 12.11.2015
-
-PhpStorm 10.0.1 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331942.jpg" />
-</div>
-
-
-###  Подробнее
-
-JetBrains PhpStorm представляет coбoй легкий и удобный редактор PHP, который максимально повысит вашу производительность. Редактор отлично понимает код, дает удобные подсказки, быструю навигацию и отслеживает ошибки "на лету". IDE всегда готова помочь Вам собрать ваш код, запустить юнит-тесты и обеспечить визуальную отладку. PhpStorm поддерживает PHP, CSS, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 11 ноября 2015Разработчик: JetBrainsПоддерживаемая ОС: OS X 10.5 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9AAD9FA577EC7C4B5A33BD198B27C8BCB25C072
 ```
 
 https://mybot314.ru/tekegram_catalog/

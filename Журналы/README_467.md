@@ -1,3 +1,136 @@
+###  Публикация: 502136   (258813) от 27.05.2012
+
+Журнал | Digital Photo & Video Camera №5 [2012] [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258813.jpg" />
+</div>
+
+
+###  Подробнее
+
+Digital Photo&Video Camera — ультрасовременный проект "ИА Автоцентр" и Константина Донина. Издание Digital Photo&Video Camera осуществляется по лицензии крупного британского издательства Future Publishing Ltd.
+Digital Photo&Video Camera значительно упрощает читателю процесс выбора цифровой техники и предлагает уникальный мастер-класс для фотографов-любителей и тех, кто занимается фоторемеслом профессионально. Материалы каждого номера состоят из большого количества мастер-классов, артпроектов, цифровых школ, которые в доступной форме излагают как азы, так и тонкие аспекты фотодела. Наполнение журнала предусматривает ознакомление с последними новинками фототехники, а также компьютерного оборудования: обзоры ноутбуков, настольных ПК, мониторов, принтеров.2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA71ABA7248148C5A65252E8C1A6C598575E391B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502550   (258737) от 27.05.2012
+
+Журнал | Вкусные хитрости. Спецвыпуск №12. Аппетитная курочка [декабрь 2011] [DJVU]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258737.jpg" />
+</div>
+
+
+###  Подробнее
+
+В журнале опубликованы вкусные рецепты: салатов, закусок, запеканок, вторых блюд и т.д. Тема номера: Аппетитная курочка.декабрь 2011Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0D749664DA5DFAF34BE96070B26EA8E23C658FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 441723   (258689) от 26.05.2012
+
+Коллекция журналов |  Монеты и Банкноты №1-15 [2012] [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258689.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издательство ДеАгостини начинает выпуск журнала Монеты и Банкноты. С каждым выпуском журнала читатели будут получать подлинные монеты и банкноты разных стран и континентов.
+Соберите коллекцию журналов иФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B514094532071C35466E6E7FA813CD95040E919
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 501579   (258515) от 26.05.2012
+
+Журнал | Мода и модель. Вязание крючком № 5 [2012] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258515.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал по вязанию крючком для тех, кто любит создавать красивые вещи своими руками. В номере представлены предметы для украшения и уюта вашего дома: салфетки, скатерти, дорожки, покрывало.2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C204E0BF36971F0B2E612809D72E9FD52B7185A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502023   (258505) от 26.05.2012
+
+Журнал | АиФ. Спецвыпуск. Общество №7 [2012] [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многие из нас могут сохранить и даже пополнить свой бюджет, воспользовавшись положенными льготами. Но часто мы даже не знаем, какие именно госгарантии нам положены по закону. Чиновники об этом предпочитают молчать, чтобы не создавать себе лишней работы. Но мы расскажем вам обо всём!
+В этом спецвыпуске "АиФ" вы узнаете обо всех пособиях, льготах, компенсациях, скидках. О том, какой именно должна быть госпомощь и кто на неё может рассчитывать.2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40A89EBB072D190ACA8F673ECE669CCB4867D355
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 501550   (258304) от 25.05.2012
 
 Газета | Сеньор помидор №5 [май 2012] [PDF]
@@ -6,7 +139,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258304.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258267.jpg" />
 </div>
 
 
@@ -58,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_258260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_258260.jpg" />
 </div>
 
 
@@ -84,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258239.jpg" />
 </div>
 
 
@@ -110,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_258234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_258234.jpg" />
 </div>
 
 
@@ -136,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257974.jpg" />
 </div>
 
 
@@ -162,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257691.jpg" />
 </div>
 
 
@@ -188,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257689.jpg" />
 </div>
 
 
@@ -214,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257471.jpg" />
 </div>
 
 
@@ -240,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257445.jpg" />
 </div>
 
 
@@ -266,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257444.jpg" />
 </div>
 
 
@@ -292,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257441.jpg" />
 </div>
 
 
@@ -318,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257165.jpg" />
 </div>
 
 
@@ -346,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257146.jpg" />
 </div>
 
 
@@ -374,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256964.jpg" />
 </div>
 
 
@@ -401,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256448.jpg" />
 </div>
 
 
@@ -427,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256348.jpg" />
 </div>
 
 
@@ -453,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256155.jpg" />
 </div>
 
 
@@ -479,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256111.jpg" />
 </div>
 
 
@@ -505,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256066.jpg" />
 </div>
 
 
@@ -531,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256043.jpg" />
 </div>
 
 
@@ -542,137 +675,6 @@ Glamour - это популярный модный журнал для женщ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:201E4754376BB2B76F2EE2828C4A5D9E26FAA96B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499044   (256041) от 20.05.2012
-
-Журнал | Авиация и время №2 [март-апрель 2012] [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подробно и достоверно об авиации разных времен и стран. Основой каждого номера является большая статья, подробно рассказывающая о биографии какого-либо летательного аппарата, его конструкции и технических характеристиках. Статья готовится на базе сведений, полученных от фирм-разработчиков и лиц, участвовавших в эксплуатации ЛА. Она снабжается большим количеством фотографий, многие из которых публикуются впервые, точными чертежами и исторически достоверными окрасками конкретных машин.март-апрель 2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A35091F09B6BE9E5282A570A3FA6412873CBF04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498775   (255726) от 19.05.2012
-
-Журнал | Esquire [Россия] №78 (июнь 2012) [PDF]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255726.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал Esquire предназначен для умных и разборчивых мужчин – для тех, кого не прельщают дешевые сенсации, для тех, кто в состоянии оценить настоящий стиль в литературе и моде.
-Esquire – это высочайшее качество текстов, блестящая журналистика, эксклюзивные интервью со звездами и прекрасные фотографии.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE7C4C2D745F1CC0FE309E181437BC0C3C892FC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624780   (255374) от 09.04.2023
-
-Журнал | Nuts and Volts №3 (2022) [PDF][En]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255374.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Nuts and Volts" - популярный журнал по электронным компонентам и схемотехнике для любителей и специалистов любого уровняЖанр: ЭлектроникаЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B6CEC6B2C1E528515D68773C6F4245502D700CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628742   (254853) от 24.04.2023
-
-Журнал | Таинственные истории №9 (2023) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254853.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основу журнала «Таинственные истории» положены мистические и невероятные истории, потому что именно такие — необъяснимые и загадочные события интересовали человечество всегда. Такова уж природа людей: в жизни должно быть что-то таинственное. Кроме этого, на страницах журнала статьи о загадочных силах природы, толкование снов, рассказы очевидцев о встречах с внеземным (   Читать дальше...   )Жанр: история, мистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66727D93E1122020CD0B0086A8D3B292A90802BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498465   (254229) от 18.05.2012
-
-Подшивка журналов | ПРОграммист №1-18 (2010-2012) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254229.jpg" />
-</div>
-
-
-###  Подробнее
-
-В журнале вы найдете много интересной, а главное - эксклюзивной (все статьи авторские), и, надеемся, полезной информации. Среди авторов журнала как видные ученые, профессиональные инженеры-разработчики. Как говорится: "...и стар и млад..." есть даже биологи, увлекшиеся программированием. География участников охватывает почти весь СНГ. У начинающей молодежи, (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10DCFBB1AB3043ED330F63836C36CB01DD446F80
 ```
 
 https://mybot314.ru/tekegram_catalog/

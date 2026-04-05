@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601636.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601635.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601634.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ NASCAR-2019. 7-й Этап. Техас. Гонка / Monster Energy NASCAR Cup S
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601604.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601599.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601409.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601407.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601233.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Monster Energy Nascar Cup Series-2017, Этап 18 - Kentucky Speedway (2017) HD
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601222.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ MotoGP. Этап 8/18. Гран-При Нидерланд Ассен. Гонка
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601147.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601107.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601037.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600987.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600479.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600429.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600234.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600232.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600163.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600150.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600147.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600055.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600052.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ NASCAR-2019. 8-й Этап. Бристоль. Гонка / Monster Energy NASCAR
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600026.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ NG: В запретном городе / Inside The Forbidden City (2006) HDTVRi
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599622.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599445.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599230.jpg" />
 </div>
 
 

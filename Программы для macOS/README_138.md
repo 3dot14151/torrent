@@ -1,3 +1,55 @@
+###  Публикация: 1622253   (200738) от 28.03.2023
+
+Nitro PDF Pro 13.3.1 fix [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200738.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nitro PDF Pro позволяет пользователям легко редактировать PDF-файлы. Добавьте подписи, текст и изображения. Внесите изменения и исправьте опечатки. Отсканированные документы OCR. Заполняйте и создавайте формы. Экспорт в Microsoft® Word, Excel, PowerPoint.Тип издания: macOS SoftwareРелиз состоялся: 17.03.2023Разработчик: © 2021 Nitro Software, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F1C63841000F8FE52BED08543F71BCE3D848703
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621940   (200715) от 26.03.2023
+
+Planner 5D Premium 4.14 [Multi/Ru]
+
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы делаете ремонт или проектируете дом своей мечты, Planner 5D — ваш незаменимый помощник. Создавайте подробные планировки в форматах 2D и 3D, используйте каталог с более чем 3000 объектов и создавайте фотореалистичные изображения своих проектов. Более 20 миллионов пользователей скачали Planner 5D на разных платформах и создают дизайн интерьера проще, чем когда-либо!Тип издания: macOS SoftwareРелиз состоялся: 23.03.2023Разработчик: © 2020 UAB Planner 5DПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8291C4EB04CD96D7AE0095FB9370E1D5D2CFC69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1622899   (200516) от 30.03.2023
 
 NTFS Disk by Omi NTFS 1.1.4 [En]
@@ -6,7 +58,7 @@ NTFS Disk by Omi NTFS 1.1.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200516.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Adobe Substance 3D Painter 8.3.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200489.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ MathWorks MATLAB R2023a 9.14.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200404.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ iZotope RX 10 Audio Editor Advanced AU, VST3, AAX, STANDALONE 10.4.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200383.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ McAfee Endpoint Security for Mac 10.7.8 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200382.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ Vidmore Video Converter 2.3.36 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200280.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ Adobe Substance 3D Sampler 4.1.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199677.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ LAN Scan - Network Scanner 1.12 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199362.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ ABBYY FineReader PDF for Mac 15.2.11 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198946.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ Logic Pro X 10.7.8 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_198047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_198047.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ Final Cut Pro 10.6.6 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197976.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ Grids for Instagram 8.5.9 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197319.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ Nik Complete Collection by DxO 6.1.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197297.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ ON1 Portrait AI 2023.5 v.17.5.1.14028 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197286.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ ON1 Resize AI 2023.5 v.17.5.1.14028 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197152.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ PDF Expert 3.2. [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196852.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ ON1 Photo Keyword AI 2023.5 v.17.5.1.14079 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196711.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ Native Instruments Traktor Pro Plus 3 v.3.9.0.90 Rev2 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196707.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ Photo Mechanic 6 v.6.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195318.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ Maxon App for Mac 2023.3.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195238.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ Adobe Audition 23.5 U2B [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195055.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ Adobe Substance 3D Designer 12.4.0 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194926.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ AI Photo for Mac 1.13 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194921.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ ZBrush 2023.2.1 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194835.jpg" />
 </div>
 
 
@@ -620,60 +672,6 @@ Pixologic ZBrush - программа для трёхмерного модели
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76871AF6E0B3497A3A8487E602B36BB365698BBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650980   (194811) от 04.08.2023
-
-Final Cut Pro X 10.6.8 [Multi]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194811.jpg" />
-</div>
-
-
-###  Подробнее
-
-Final Cut Pro X включает основные функции аудиомонтажа и цветокоррекции из Final Cut Studio, так что теперь на всех этапах пост-продакшна можно использовать одно приложение.
-В основе Final Cut Pro X лежит гибкая временная шкала Magnetic Timeline, предлагающая новый подход к редактированию видео без дорожек с возможностью добавлять и организовывать клипы так, как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.08.2023Разработчик: © 2011-2023 Apple Inc.Поддерживаемая ОС: macOS 12.6 или вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49943DA21B8F6CF9D2A4A3B87B9F91B3D55824B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651933   (194562) от 08.08.2023
-
-Movavi HD Screen Recorder for Mac 23.1.1 [Multi/Ru]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194562.jpg" />
-</div>
-
-
-###  Подробнее
-
-Записывайте видео с экрана Mac с помощью Movavi Screen Recorder! Этот удобный видеомагнитофон для Mac поможет вам сохранять прямые трансляции, видео- и аудиоклипы с веб-страниц, записывать ваши взаимодействия в приложениях, захватывать игровой процесс и выполнять множество других задач по захвату экрана.
-Настройте программу и начните делать качественные записи всего (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.08.2023Разработчик: © 2016 Movavi, PixelNovel Ltd.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FE4F7C256BADA40F588CFF283DAD8F8FB67562C
 ```
 
 https://mybot314.ru/tekegram_catalog/

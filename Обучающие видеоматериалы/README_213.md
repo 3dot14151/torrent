@@ -1,3 +1,29 @@
+###  Публикация: 1601590   (204624) от 01.01.2023
+
+Udemy, MA Applied Linguistics & DELTA, James Castleden | IELTS Step-by-step | MASTERING ALL SKILLS 7+ (2022) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>Иностранные языки (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пошаговая инструкция - это комплексный курс, посвященный совершенствованию ваших навыков аудирования, чтения, письма и разговорной речи для получения отличных результатов на экзамене IELTS. Вы откроете для себя сотни советов и приемов, а также умные, редко используемые методы, которые помогут вам в достижении ваших целей - некоторые студенты поднялись с 6,0 до 8,5 (   Читать дальше...   )Производство: Udemy, MA Applied Linguistics & DELTAЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 73:25:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B48A2F37065EFFE2BEE4E5B9110BC54926DBA01E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601741   (204594) от 02.01.2023
 
 Udemy, Kevin Nguyen | JavaScript & LeetCode | The Interview Bootcamp (2019) WEB-DL [EN / EN Sub]
@@ -6,7 +32,7 @@ Udemy, Kevin Nguyen | JavaScript & LeetCode | The Interview Bootcamp (2019) WEB-
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204594.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ Udemy, Keino Campbell, Esq. | TOEFL iBT (26+) Complete Preparation Course! (2022
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204582.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ Udemy, Piotr Jura | Master NestJS - The JavaScript Node.js Framework (2022) WEB-
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204567.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ Frontendmasters, Steve Kinney | React Performance (2022) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204528.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ ardanlabs.com, Miki Tebeka | Practical Go Foundations (2022) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204521.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ Udemy, iwayQ Technology | Project in DevOps: Jenkins CI/CD for Kubernetes Deploy
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204513.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ Udemy, Laith Harb | Docker and Kubernetes - The Complete Developers Guide (2022)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204497.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ amigoscode, Mama Samba Braima | Docker for DevOps Engineers (2022) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204492.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ Udemy, AR Shankar | Valaxy Technologies | DevOps Project - 2022: CI/CD with Jenk
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204476.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ Ryan Laley Games, Ryan Laley | Unreal Engine Tutorials  (2019-2023) WEBRip [EN /
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204460.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ Yaakov Young | Полный курс иврита от А1 до С2 (2023) WEBRi
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204268.jpg" />
 </div>
 
 
@@ -302,7 +328,7 @@ Outgang, Laura Gallagher | Outgang - Become a Better Character Artist (2022) WEB
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204258.jpg" />
 </div>
 
 
@@ -328,7 +354,7 @@ Dmitri Nesteruk | Паттерны проектирования C# и .NET (2021
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204253.jpg" />
 </div>
 
 
@@ -357,7 +383,7 @@ Udemy, Hamidreza Afshari | Texturing a Scene with Substance 3D Painter (2023) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204127.jpg" />
 </div>
 
 
@@ -386,7 +412,7 @@ Saif Alshrideh | The Ultimate weapon course (Create Sniper in Blender 3.4 ) (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204119.jpg" />
 </div>
 
 
@@ -415,7 +441,7 @@ Artstation, Tyler Smith | Intro to UE4 lighting Exterior and Interior (2020) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204104.jpg" />
 </div>
 
 
@@ -441,7 +467,7 @@ ArtStation, Armored Colony | Sci-Fi Crate - Model & Texture a Game Asset - Full 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204062.jpg" />
 </div>
 
 
@@ -469,7 +495,7 @@ Udemy, Mrawan Hussain | BLENDER: Learn how to create utility knife from A to Z (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204047.jpg" />
 </div>
 
 
@@ -497,7 +523,7 @@ Podlodka Crew | PHP Crew #1 (2022) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204036.jpg" />
 </div>
 
 
@@ -525,7 +551,7 @@ Udemy, Victory 3D, Mieszko Lacinski | Create a Prop for VFX Pipeline with Maya, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204017.jpg" />
 </div>
 
 
@@ -551,7 +577,7 @@ Kimvoronin, Ким Воронин | PowerPoint Ниндзя (2022) WEB-DL [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204007.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ School of Motion, Nol Honig | After Effects Kickstart (2022) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204005.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204004.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204001.jpg" />
 </div>
 
 
@@ -662,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203840.jpg" />
 </div>
 
 
@@ -676,33 +702,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:115D4774E2AA675B4F1F2058D1879EAE25BAFEE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605887   (203814) от 19.01.2023
-
-AMS³, Надежда Бейнер | Электрика в Archicad (2022) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203814.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему стоит пройти мастер-класс "Электрика в Archicad"?
-Дизайнеры и архитекторы уже давно используют объект «Рамка ЭЛ», как основную библиотеку по электрике. Но много вопрос к расчетам! Нормально сформировать спецификацию не получается. Указать кол-во розеток и выключателей в таблице - целая проблема. Что делать с электровыводами - загадка. А сколько я (   Читать дальше...   )Производство: AMS³Жанр: Дизайн, архитектураЯзык озвучки: РусскийПродолжительность: 05:03:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E9FD3DFB6A03AD3D96EBFF2043354B6D6C64B7F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 909445   (628350) от 17.06.2015
-
-Банума - По венам моим - океаны (2015) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. По венам моим - океаны (04:22)
-02. With u (При уч. Кот Балу) (03:45)
-03. Стоп мысли (04:38)
-04. Не хватает фраз (03:13)(   Читать дальше...   )Жанр: PopПродолжительность: 00:20:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E024F049A05968AD3BF7B31B9D372F8DF235A7B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294606   (628245) от 08.04.2019
 
 VA - Танцы со вкусом (2017) [MP3|320 Kbps] <Pop>
@@ -35,7 +6,7 @@ VA - Танцы со вкусом (2017) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628245.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Mania - Рассвет (2014) [MP3|320 кб/с]<Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628206.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - Новые хиты: Весна 2018 (2018) [MP3|320 Kbps] <Pop, Chanson>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627874.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625715.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623837.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621890.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Lalo Project - Freak Hero (2013) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620762.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Lalo Project - Твой путь (2017) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620759.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620483.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618607.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618604.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618437.jpg" />
 </div>
 
 
@@ -389,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618338.jpg" />
 </div>
 
 
@@ -424,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616282.jpg" />
 </div>
 
 
@@ -459,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614947.jpg" />
 </div>
 
 
@@ -494,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614013.jpg" />
 </div>
 
 
@@ -523,7 +494,7 @@ XENA - Ксенофаризм (2015) [MP3|320 кб/с]<Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612576.jpg" />
 </div>
 
 
@@ -552,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612467.jpg" />
 </div>
 
 
@@ -581,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611229.jpg" />
 </div>
 
 
@@ -610,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609053.jpg" />
 </div>
 
 
@@ -645,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608918.jpg" />
 </div>
 
 
@@ -674,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607935.jpg" />
 </div>
 
 
@@ -703,7 +674,7 @@ VLNY - Откровения (2014) [MP3|320 Kbps] <Indie Pop, Dream Pop, Acousti
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599526.jpg" />
 </div>
 
 
@@ -732,7 +703,7 @@ VLNY - Помни (2015) [MP3|320 Kbps] <Indie Pop, Synth Pop, Dream Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599407.jpg" />
 </div>
 
 
@@ -761,7 +732,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599064.jpg" />
 </div>
 
 
@@ -775,6 +746,41 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:943DA3C2C86CDFCFBE379BB220B68C81243B5A64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526319   (599052) от 23.07.2012
+
+Алёна Винницкая - Полная коллекция хитов (2012) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 100 Лет Назад
+ 02. Ветер Перемен
+ 03. Видишь, Я Жива (Измученное Сердце)
+ 04. Все Будет Хорошо
+ 05. Давай Забудем Все
+ 06. Золушка
+ 07. Музыка Рок
+ 08. Рассвет
+ 09. Тайну Разгадаю
+ 10. 007(   Читать дальше...   )Жанр: PopПродолжительность: 03:09:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:492DFC009C9744191A9A313355BCDFDE63590C49
 ```
 
 https://mybot314.ru/tekegram_catalog/

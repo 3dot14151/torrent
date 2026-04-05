@@ -6,7 +6,7 @@ J.J.Johnson - The Columbia Albums Collection 1956-1961 (2017) 4CD, Enlightenment
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148839.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Christina von Bulow - On the Brink of a Lovely Song (2018) Storyville Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148824.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Hank Mobley - Newark 1953 (2012) 2CD, Uptown Records[FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148816.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Jack Wilson - Song For My Daughter (1968) Remaster, 2014, Universal[FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148768.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ The Johnny Smith - Quartet (1955) Remaster, 2016, Warner[FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148761.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ John Kirby - The Biggest Little Band In The Land (1938-1941) 1994, Jazz Portrait
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148752.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ The Michael Brecker Band - Live (1993) Jazz Door [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148746.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Cozy Cole & Savina - Big Band Jazz And All That Gentle Jazz: Dual Performance 19
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148689.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Chet Baker - 3 Essential Albums (1958 - 1988) 3CD, 2017, Universal [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148485.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Terence Blanchard & Donald Harrison - New York Second Line (1985) Concord Jazz [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147933.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Lee Morgan - Tom Cat (1964) 1990, Blue Note [FLAC|Lossless|tracks + .cue] <Hard 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147914.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Stefon Harris - African Tarantella: Dances With Duke (2006) Blue Note Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147891.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Confusion Project - Primal (2018) Soliton [FLAC|Lossless|WEB-DL|tracks] <Contemp
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147804.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ VA - Breezin' Smooth Jazz Tunes West Coast Lounge (2023) [FLAC|Lossless|WEB-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147801.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Guy Lafitte & Andre Persiany - Les Classiques du Jazz (1955, 1957) 2018, Fresh S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147789.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Gene Krupa Big Band - Drummer Man (1956) Verve [FLAC|Lossless|tracks + .cue] <Sw
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147783.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Michel De Villers - Low Reed: Complete Small Groups Sessions 1946-1956 (2018) Fr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147770.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ P.J. Perry And The Edmonton Symphony Orchestra (1999) Justin Time [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147758.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Cowboys & Frenchmen - Bluer Than You Think (2018) Outside in Music [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147734.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Claudia Doffinger - Monochrome (2018) QFTF Records [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147724.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Club d'Elf - So Below (2018) Face Pelt Records [FLAC|Lossless|WEB-DL|tracks] <Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147676.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ VA - By the Sea Lounge Relaxing Luxury Elegance Instrumentals (2023) [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147674.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Clement Simon - Man on the Moon (2018) jazz family [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147648.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Gerry Mulligan - Four Classic Albums: Third Set 1955 - 1957 (2018) 2CD, Avid Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147612.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Katica Illenyi - Tango Classic (2018) IKP Music [FLAC|Lossless|tracks + .cue] <S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147594.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Erroll Garner - 1954 (2007) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147476.jpg" />
 </div>
 
 

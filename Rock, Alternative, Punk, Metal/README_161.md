@@ -1,3 +1,148 @@
+###  Публикация: 1361239   (957076) от 18.02.2020
+
+СадЪ - Ещё раз про любовь (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957076.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Кино
+2. Ребро
+3. У Серёги
+4. Сиськи(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8436374786EC4514CB71B03B30612C9820B88A3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361104   (957069) от 18.02.2020
+
+VA - Rock Love (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Biffy Clyro - Many of Horror
+02. Bad Company - Feel like Makin' Love (2015 Remaster)
+03. Starship - Nothing's Gonna Stop Us Now
+04. Faith No More - Easy(   Читать дальше...   )Жанр: RockПродолжительность: 02:35:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E343CC578AC4134E2DF1B2617DEE5611CCB71BE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980024   (956905) от 28.01.2016
+
+Пикник - Большая игра (2015) 3CD [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Большая игра (03:55)
+02. Нет берегов (05:10)
+03. Египтянин (05:11)
+04. Немного огня (04:07)(   Читать дальше...   )Жанр: RockПродолжительность: 03:16:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:486B3F7F6A6A7FA44DAF8D1097E1B5FFEFADA7A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361113   (956845) от 18.02.2020
+
+VA - 100 Greatest Heavy Metal Hits (2020) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956845.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Metallica - Enter Sandman 5:31
+002. Slayer - Raining Blood 4:15
+003. Slipknot - Duality 4:13
+004. Rammstein - Du Hast 3:54(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 07:35:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35D945EA86BC1371C67F01C7AF9FBD0ECFEC46C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980209   (956392) от 29.01.2016
+
+Memorain - Duality of Man (2016) [MP3|320 кб/с] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956392.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Demon's Hunt
+2. Guardian Knight
+3. The Giant
+4. The Last of Light(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:42:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42741555EA74AA497626F3797C8B9BACE97EDECC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 980152   (956391) от 29.01.2016
 
 Disquiet - The Condemnation (2016) [MP3|320 кб/с] <MDM, Thrash Metal>
@@ -6,7 +151,7 @@ Disquiet - The Condemnation (2016) [MP3|320 кб/с] <MDM, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956391.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956291.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Detlev Schmidtchen (ex.Eloy) - Another World (2015) [FLAC|Lossless|image + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956281.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ The Casualties - En La Linea Del Frente (2005) [MP3|320 кб/с] <Rock, Punk, Pu
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956229.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Resurrection Kings - Resurrection Kings (2016) Japanese Edition [FLAC|Lossless|i
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956228.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Heymoonshaker - Noir (2015) [MP3|320 кб/с] <Alternative, Beatbox Blues, Acous
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956169.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Vinnie Moore - Aerial Visions (2015) Japanese Edition [OGG|463-511 кб/с] <Ins
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956165.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Exumer - The Raging Tides (2016) [MP3|320 кб/с] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956162.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Dream Theater - The Astonishing (2016) 2CD [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956158.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956109.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Forever Still - Tied Down (2016) [MP3|320 кб/с] <Alternative Metal>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956105.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ Avantasia - Ghоstlights (2016) Limited Edition 2CD [FLAC|Lossless|image +.cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956104.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ Serenity - Codex Atlanticus (2016) Japanese Edition [FLAC|Lossless|image +.cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956102.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ Shakra - High Noon (2016) [MP3|320 кб/с] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956023.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ U137 - Dreamer On The Run (2013) [FLAC|Lossless|WEB-DL|tracks] <Cinematic Post R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956017.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ Guided By Voices - Surrender Your Poppy Field (2020) [FLAC|Lossless|WEB-DL|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955923.jpg" />
 </div>
 
 
@@ -470,7 +615,7 @@ Kruel (Krüel) - Mud, Blood, Guts And Glory (2020) [FLAC|Lossless|WEB-DL|tracks]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955916.jpg" />
 </div>
 
 
@@ -499,7 +644,7 @@ Mariana Semkina (Iamthemorning) - Sleepwalking (2020) [FLAC|Lossless|WEB-DL|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955914.jpg" />
 </div>
 
 
@@ -528,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955912.jpg" />
 </div>
 
 
@@ -557,7 +702,7 @@ Blind Ego - Preaching To The Choir (2020) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955911.jpg" />
 </div>
 
 
@@ -586,7 +731,7 @@ Ost+Front - 3 альбома (2012 - 2014)  Discography [MP3|320 кб/с]<NDH, I
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955844.jpg" />
 </div>
 
 
@@ -600,163 +745,6 @@ Ost+Front - 3 альбома (2012 - 2014)  Discography [MP3|320 кб/с]<NDH, I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DBD5D4E7B379C5A7C11DEA7222F16B0FF774E8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 622932   (955801) от 26.02.2013
-
-Точка Росы - Два ветра (2002) [FLAC|Lossless] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Флоксы (02:20)
-02. Е2-Е2 (03:32)
-03. Далеко (02:24)
-04. Трамваи (02:43)
-05. Там (03:56)
-06. 300 шагов (03:55)
-07. Утоли (03:10)
-08. Ничего не изменилось (04:17)
-09. Два ветра (03:02)
-10. Небо в полруки (03:25)(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:12
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361294   (955729) от 19.02.2020
-
-Этил - Яд - Этил - Яд (2020) [MP3|320 Kbps] <Thrash, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Белая горячка
-02. Сверхприбыль
-03. Странное виденье
-04. Черная принцесса(   Читать дальше...   )Жанр: Thrash, Heavy MetalПродолжительность: 00:50:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C350BBB13595E3E01623047955F1BA713665936
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980464   (955696) от 29.01.2016
-
-Pink Floyd - The Dark Side Of The Moon (1973) 3rd Japan Issue [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955696.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Speak To Me / Breathe In The Air 3:57
-2. On The Run 3:34
-3. Time 7:05
-4. The Great Gig In The Sky 4:47(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:42:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE3E30CDCA48870F76EBA2AD86EE8D5B16E8BB29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361468   (955641) от 19.02.2020
-
-Shakra - Mad World (2020) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fireline (3:51)
-02. Too Much Is Not Enough (3:42)
-03. A Roll Of The Dice (4:26)
-04. Mad World (3:48)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3F990668ABED5114A5E7355825538716939468A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 622942   (955353) от 26.02.2013
-
-Сегодня Ночью (Сегодняночью) - 6 Альбомов (1999-2012) [MP3|256-320 kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лучшие годы нашей молодости (03:21)
-02. Именно (03:21)
-03. Нигилист (02:52)
-04. В ладонях осени (03:37)
-05. Ты вряд ли сможешь меня понять (04:03)
-06. Сентябрь (03:01)
-07. Вика (02:22)
-08. Sunshine (03:35)
-09. Цацки и шпильки (03:40)
-10. Не надо пить чай лица (04:41)(   Читать дальше...   )Жанр: Rock |Продолжительность: 00:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20292720DBE68FC7A1654753906E1F5657845767
 ```
 
 https://mybot314.ru/tekegram_catalog/

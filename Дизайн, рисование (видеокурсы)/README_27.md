@@ -1,3 +1,58 @@
+###  Публикация: 1508500   (797275) от 08.11.2021
+
+FlippedNormals, Konrad Hetko | Creating Hair for Games in Blender (2021) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Узнайте, как создавать реалистичные волосы для видеоигр с помощью Blender! В этом курсе вы познакомитесь с профессиональными техниками создания причёсок с использованием Blender и Marmoset. Вы научитесь сочетанию практических 3D-техник и основному пониманию того, как волосы работают в реальном мире. Объедините эти навыки, чтобы создать потрясающие прически для любой (   Читать дальше...   )Производство: FlippedNormalsЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 05:08:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2783296700B62AE97F6A6CAA428AAA8EA47B556
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010347   (797231) от 26.04.2016
+
+Highlights School | Основы веб-дизайна (2015) PCRec [H.264/720p]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс подойдет тем кто хочет научится создавать дизайн веб-сайтов и мобильных приложений с нуля!
+
+На каждом занятии вы не только узнаете новую и интересную информацию, но и попробуете все сами.
+(   Читать дальше...   )Жанр: Web, дизайнПродолжительность: 17:38:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:756BC00395F2563BEC853659F67FDDA83FFAFB24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385819   (795102) от 28.05.2020
 
 Даниил Волосатов | Основы коммерческого веб-дизайна 3.0 (2019) PCRec [H.264]
@@ -6,7 +61,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795102.jpg" />
 </div>
 
 
@@ -34,7 +89,7 @@ Skillshare, Neil Bettison | Blender 2.9 Creating a Medieval Castle Kitbash Modul
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794657.jpg" />
 </div>
 
 
@@ -62,7 +117,7 @@ Lynda.com | SketchUp 2017 Essential Training (2016) PCRec [H.264/720p-LQ]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794508.jpg" />
 </div>
 
 
@@ -91,7 +146,7 @@ Skillshare, Neil Bettison | Blender to Unreal Engine 5 - Medieval Windmill (2021
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793678.jpg" />
 </div>
 
 
@@ -119,7 +174,7 @@ Udemy, Neil Bettison | Blender to Unreal Engine 5 - 3D Props - Medieval Gallows 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793672.jpg" />
 </div>
 
 
@@ -146,7 +201,7 @@ Blender Foundations | Blenderella, Моделирование Персонажа
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792065.jpg" />
 </div>
 
 
@@ -174,7 +229,7 @@ CG Masters | Моделирование и Текстурирование Авт
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792059.jpg" />
 </div>
 
 
@@ -200,7 +255,7 @@ Udemy, Santiago Pereira Carrasco | Vector Displacement in Blender (2021) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791951.jpg" />
 </div>
 
 
@@ -227,7 +282,7 @@ CG Masters | Полное создание автомобиля в Blender / Com
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790199.jpg" />
 </div>
 
 
@@ -253,7 +308,7 @@ Skillshare, Neil Bettison | Blender to Unreal Engine 5 - 3D Props - Medieval Mar
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789150.jpg" />
 </div>
 
 
@@ -280,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788879.jpg" />
 </div>
 
 
@@ -308,7 +363,7 @@ Ctrl + Paint, Matt Kohr | 3D For Illustrators 02: What's Possible (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788844.jpg" />
 </div>
 
 
@@ -334,7 +389,7 @@ Ctrl + Paint, Matt Kohr | 3D For Illustrators 04: Texturing (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788836.jpg" />
 </div>
 
 
@@ -360,7 +415,7 @@ Ctrl + Paint, Matt Kohr | Edge Control (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788802.jpg" />
 </div>
 
 
@@ -387,7 +442,7 @@ Ctrl + Paint, Matt Kohr | 3D For Illustrators 06: Paintover Demo (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788800.jpg" />
 </div>
 
 
@@ -413,7 +468,7 @@ Ctrl + Paint, Matt Kohr | 3D For Illustrators 01: First Steps (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788795.jpg" />
 </div>
 
 
@@ -439,7 +494,7 @@ Ctrl + Paint, Matt Kohr | House Design (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788793.jpg" />
 </div>
 
 
@@ -466,7 +521,7 @@ Ctrl + Paint, Matt Kohr | Perspective Sketching 2 Form and Design (2012) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788786.jpg" />
 </div>
 
 
@@ -492,7 +547,7 @@ Ctrl + Paint, Matt Kohr | Perspective Sketching 1 The Basics (2012) PCRec [En, R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788776.jpg" />
 </div>
 
 
@@ -519,7 +574,7 @@ Ctrl + Paint, Matt Kohr | World Design (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788766.jpg" />
 </div>
 
 
@@ -546,7 +601,7 @@ Udemy, Motion Guru | Complete Curse of Blender version 2.93 (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788762.jpg" />
 </div>
 
 
@@ -573,7 +628,7 @@ Ctrl + Paint, Matt Kohr | Basic Photoshop Rendering Volumes 1-4 (2014) PCRec [En
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788756.jpg" />
 </div>
 
 
@@ -599,7 +654,7 @@ Ctrl + Paint, Мэтт Корр | Цифровая живопись от "Ctrl +
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788754.jpg" />
 </div>
 
 
@@ -627,7 +682,7 @@ Udemy, Motion Guru | Create and Animate Tank & Machine in Blender 2.93 (2021) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788733.jpg" />
 </div>
 
 
@@ -638,61 +693,6 @@ Udemy, Motion Guru | Create and Animate Tank & Machine in Blender 2.93 (2021) PC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C86F183FA1D7B6D932906EBAE008F4A2BA3D9510
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511580   (788351) от 22.11.2021
-
-Ctrl + Paint, Matt Kohr | Design Basics 2: Shape (2014) PCRec [En, Ru]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788351.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если ваша цель это концепт-арт или иллюстрация, форма это ваше секретное оружие. В отличие от классического рисования, вы не просто воспроизводите то, что видите. Основы дизайна 2 помогут вам перейти от традиционного рисования к иллюстрации.
-
-В этом курсе исследуются 7 разных подходов к упрощению формы. Каждый из этих принципов сопровождается демонстрацией. Вместо (   Читать дальше...   )Производство: Ctrl + PaintЖанр: Цифровая живописьЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 55:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A048F5EDC252E383878C5FCBA8D1F72A6737227
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511582   (788332) от 22.11.2021
-
-Ctrl + Paint, Matt Kohr | Boss Monster (2015) PCRec [En, Ru]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788332.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой направляющей обучение серии видео каждый из нас будет создавать главного монстра для видеоигры. Хотя я рассказываю о своих личных процессах и методах, задача состоит не в копировании моего дизайна – в центре внимания Ваш проект.
-Гигантские главные монстры («Боссы») часто являются самым запоминающимся моментом в игре. По-моему, лучшие дизайны не просто «круто (   Читать дальше...   )Производство: Ctrl + PaintЖанр: Цифровая живописьЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 57:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B23458554CBA17E08CF582BB473F096990DE0274
 ```
 
 https://mybot314.ru/tekegram_catalog/

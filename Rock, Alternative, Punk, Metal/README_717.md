@@ -1,3 +1,32 @@
+###  Публикация: 1180097   (342638) от 03.11.2017
+
+Sleeping Romance - Alba (2017) [MP3|320 Kbps] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture - Twilight
+02. Where the Light Is Bleeding
+03. Lost in My Eyes
+04. Touch the Sun(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:47:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0ACA159F47C75B2038E835FE91CBB0C4E3FC5B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1180117   (342635) от 03.11.2017
 
 F.K.U. - 1981 (an original soundtrack) (2017) [MP3|320 Kbps] <Thrash Metal>
@@ -6,7 +35,7 @@ F.K.U. - 1981 (an original soundtrack) (2017) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342635.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Suzi Quatro - In The Spotlight (Deluxe Edition) (2CD) (2012) [MP3|320 кб/с]<P
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342590.jpg" />
 </div>
 
 
@@ -68,7 +97,7 @@ Voice - Golden Signs (2001) Japan [FLAC|Lossless]<Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342420.jpg" />
 </div>
 
 
@@ -97,7 +126,7 @@ Lordi - Babez for Breakfast (2010) Japan [FLAC|Lossless]<Heavy Metal / Hard Rock
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342386.jpg" />
 </div>
 
 
@@ -126,7 +155,7 @@ Tony Carey - Live In Sweden 2006 Volume 1 (2006) [FLAC|image+.cue]<Classic Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342384.jpg" />
 </div>
 
 
@@ -155,7 +184,7 @@ Tsjuder - Antiliv (2015) [FLAC|Lossless]<Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342372.jpg" />
 </div>
 
 
@@ -184,7 +213,7 @@ Jeff LaBar (Cinderella) - One For The Road (2014) [APE|Lossless]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342330.jpg" />
 </div>
 
 
@@ -213,7 +242,7 @@ The Frost - Rock And Roll Music (1969) [MP3|320 кб/с]<Psychedelic, Blues, Har
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342296.jpg" />
 </div>
 
 
@@ -242,7 +271,7 @@ Ektomorf - Aggressor (2015) [FLAC|tracks|WEB-DL]<Groove / Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342286.jpg" />
 </div>
 
 
@@ -271,7 +300,7 @@ Ose - Adonia (1978) Reissue CD, 2017, Amphonotones [MP3|320 Kbps] <Electronic, P
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342199.jpg" />
 </div>
 
 
@@ -300,7 +329,7 @@ Lake Of Tears - Moons And Mushrooms (2007) [FLAC|Lossless|tracks + .cue] <Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342192.jpg" />
 </div>
 
 
@@ -329,7 +358,7 @@ Amorphis - Queen Of Time (2018) Japanese Edition [FLAC|Lossless|image + .cue] <M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342191.jpg" />
 </div>
 
 
@@ -358,7 +387,7 @@ Kings Of High Iron - Sting Of Steel (2020) [MP3|320 Kbps] <Heavy Metal, Hard Roc
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342188.jpg" />
 </div>
 
 
@@ -387,7 +416,7 @@ Dark Moor - Project X (2015) Deluxe Edition [MP3|320 кб/с]<Symphonic Metal, M
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342148.jpg" />
 </div>
 
 
@@ -416,7 +445,7 @@ Bryan Adams - Ultimate (2017) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342082.jpg" />
 </div>
 
 
@@ -445,7 +474,7 @@ Annihilator - For The Demented (2017) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342069.jpg" />
 </div>
 
 
@@ -474,7 +503,7 @@ Looking-Glass Lantern - A World of Great Invention (2020) [MP3|320 Kbps] <Progre
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342057.jpg" />
 </div>
 
 
@@ -503,7 +532,7 @@ The Flower Kings - Islands (2020) 2xCD [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342055.jpg" />
 </div>
 
 
@@ -532,7 +561,7 @@ Tony Carey - Just Rock (2012) [FLAC|image +.cue]<Classic Rock, Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342014.jpg" />
 </div>
 
 
@@ -561,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341947.jpg" />
 </div>
 
 
@@ -590,7 +619,7 @@ Scorpions - Acoustica (2001) [FLAC|Lossless]<Hard Rock, Acoustic Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341940.jpg" />
 </div>
 
 
@@ -619,7 +648,7 @@ Pompeya - 5 альбомов + 2 EP's (2011-2015) [FLAC|Lossless]<Indie, New Wav
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341876.jpg" />
 </div>
 
 
@@ -648,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341798.jpg" />
 </div>
 
 
@@ -677,7 +706,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341789.jpg" />
 </div>
 
 
@@ -706,7 +735,7 @@ Deep Purple - Golden Ballads (2013) 2CD [MP3|320 Kbps] <Rock, Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341748.jpg" />
 </div>
 
 
@@ -720,35 +749,6 @@ Deep Purple - Golden Ballads (2013) 2CD [MP3|320 Kbps] <Rock, Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB8E36B5CFAFCA821D4767CBCEADD37DAD4F5BA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180093   (341736) от 03.11.2017
-
-Deep Purple - A Fire in the Sky (2017) 3CD [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341736.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. Hell to Pay
-02. Vincent Price
-03. Wrong Man(   Читать дальше...   )Жанр: Hard RockПродолжительность: 03:20:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95BF73DF40E0B1B0507C1D61E712CD1CDB7AE0AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Buddy Guy - The Blues Is Alive And Well (2018) [MP3|320 Kbps] <Blues, Blues Rock
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610513.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Stonefield - Stonefield (2013) [MP3|320 Kbps] <Blues Rock, Female Vocal>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610234.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Mick Kolassa - Michissippi Mick (2014) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610219.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Siggi Schwarz (Feat. Andreas Kummert & Jessy Martens) - Heart & Soul (2016) [MP3
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610206.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Big Creek Slim - Keep My Belly Full (2016) [MP3|320 Kbps] <Modern Delta Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608713.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Pete Gage - Left Over Blues (2015) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607225.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ The Blue Gators - Amazing Blue (2015) [MP3|320 кб/с]<Funky Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607148.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ The Reels - Reelin' (2008) [MP3|320 Kbps] <Blues Rock, Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606796.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Salvo Blues Band - Salvo Blues Band (2013) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605749.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Lacey Rawlins - Hit List (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605436.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Miss Marcy & Her Texas Sugardaddy's - Deep Ellum (2015) [MP3|320 кб/с]<Texas 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605367.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Wee Willie Walker - If Nothing Ever Changes (2015) [MP3|320 кб/с]<Blues Soul>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605114.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ George Thorogood & The Destroyers - Icon (2013) Compilation [MP3|245~289 Kbps (V
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604916.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Melly Frances - The Album (2018) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603763.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Pat Boyack & The Prowlers - On The Prowl (1996) [MP3|320 Kbps] <Modern Electric 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603493.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ The Swagger Kings - Rock 'N' Twang (2017) [MP3|320 Kbps] <Retro Blues, Jump, Roc
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602483.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Ina Forsman With Helge Tallqvist Band - Ina Forsman With Helge Tallqvist Band (2
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601898.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Howlin' Wolf - Jazz & Blues collection (1996) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601361.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Fats Domino - Jazz & Blues collection (1995) [MP3|320 кб/с]<Rhythm & Blues, R
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601359.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ The Crawls - Lie (2015) [MP3|320 кб/с]<Rock, Blues, Garage>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601131.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Budda Power Blues - Budda Power Blues (2015) [MP3|320 кб/с]<Blues, Blues Rock
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600360.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Tom McGuinness - Second Glance (2018) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600057.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Mick Kolassa - Taylor Made Blues (2016) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599678.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Delta Deep - Delta Deep (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598477.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Davey And The Blu Dog - Wake up Call (2017) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596616.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Dane Phillip Smith - I'll Carry On (2015) [MP3|320 кб/с]<Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595202.jpg" />
 </div>
 
 

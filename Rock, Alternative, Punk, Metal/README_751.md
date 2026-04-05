@@ -1,3 +1,32 @@
+###  Публикация: 1422354   (310820) от 08.11.2020
+
+Iron Angel - Emerald Eyes (2020) [FLAC|Lossless|image + .cue] <Power Metal, Speed Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sacred Slaughter
+02. Descend
+03. Sands Of Time
+04. Demons(   Читать дальше...   )Жанр: Power Metal, Speed Metal, Thrash MetalПродолжительность: 00:46:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AF6F29C490D6399BC9E5B37937DE652E187E616
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1422256   (310807) от 08.11.2020
 
 Jeff Scott Soto - Wide Awake (In My Dreamland) (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
@@ -6,7 +35,7 @@ Jeff Scott Soto - Wide Awake (In My Dreamland) (2020) [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310807.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Iron Savior - Skycrest (2020) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310802.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Alter Bridge - Walk the Sky 2.0 (2020) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Har
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310721.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Juicy Lucy - Juicy Lucy (1995) Reissue, Remastered, 2010, Japanese Edition [MP3|
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310713.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ The Cure - Concert: The Cure Live (1984) Fiction 823 682-2 [FLAC|Lossless|image 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310712.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Whitesnake - Love Songs (2020 Remix) (2020) [FLAC|Lossless|image + .cue] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310708.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310614.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ VA - Greatest Rock Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310501.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ AC/DC - Power Up (2020) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310435.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Paul Carrack - Paul Carrack Collected (2012) 3CD Box Set [WavPack|Lossless]<Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_310411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_310411.jpg" />
 </div>
 
 
@@ -302,7 +331,7 @@ Ken Hensley (pre Uriah Heep) - The Gods: 2 альбома, 3CD, Toe Fat: 2 ал�
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310372.jpg" />
 </div>
 
 
@@ -331,7 +360,7 @@ Sniff 'N' The Tears - Ride Blue Divide (1982) 2009, Remastered [FLAC|image+.cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310326.jpg" />
 </div>
 
 
@@ -360,7 +389,7 @@ Isotope And Gary Boyle - Live At The BBC (1973-1977) [FLAC|tracks + .cue]<Jazz-R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310324.jpg" />
 </div>
 
 
@@ -389,7 +418,7 @@ Good God - Good God (1972) Reissue, Unofficial Release /2012, Flawed Gems/ [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310322.jpg" />
 </div>
 
 
@@ -415,7 +444,7 @@ Tony Carey - Wilder Westen Inclusive (Original-Soundtrack Zur TV-Serie) (1988) [
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310318.jpg" />
 </div>
 
 
@@ -444,7 +473,7 @@ Threshold - Legends Of The Shires (2017) Limited 2CD Digipak [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310219.jpg" />
 </div>
 
 
@@ -473,7 +502,7 @@ Skylark - The Storm & The Horizon (2015) 4CD, Deluxe Edition, Extended Version [
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310206.jpg" />
 </div>
 
 
@@ -502,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310195.jpg" />
 </div>
 
 
@@ -531,7 +560,7 @@ Shania Twain - Shania Twain (1993) [FLAC|tracks+.cue]<Country Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310192.jpg" />
 </div>
 
 
@@ -560,7 +589,7 @@ Ane Brun - A Temporary Dive (2005) [FLAC|Lossless|tracks + .cue] <Alternative Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310117.jpg" />
 </div>
 
 
@@ -589,7 +618,7 @@ Amberian Dawn - Darkness of Eternity (2017) Limited Edition [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310098.jpg" />
 </div>
 
 
@@ -619,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310097.jpg" />
 </div>
 
 
@@ -648,7 +677,7 @@ Billy Gibbons And The BFG's - Perfectamundo (2015) [FLAC|image + .cue] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310087.jpg" />
 </div>
 
 
@@ -677,7 +706,7 @@ Janis Joplin - The Television Broadcast Sessions 1968 -1970 (2017) [MP3|320 Kbps
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310077.jpg" />
 </div>
 
 
@@ -706,7 +735,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310070.jpg" />
 </div>
 
 
@@ -720,35 +749,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AECDC3ECCC6C36C7F45F64D1B43D973A51103EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260723   (309977) от 08.11.2018
-
-Suzi Quatro - Original Hits (1995) [MP3|320 Kbps] <Glam Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can The Can
-02. Daytona Demon
-03. All Shook Up
-04. Keep A Knockin'(   Читать дальше...   )Жанр: Glam Rock, Hard RockПродолжительность: 00:54:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BB8A9493286CF0900345E4DB10A0130589AA31F
 ```
 
 https://mybot314.ru/tekegram_catalog/

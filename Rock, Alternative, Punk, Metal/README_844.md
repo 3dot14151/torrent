@@ -1,3 +1,32 @@
+###  Публикация: 1637471   (239908) от 04.06.2023
+
+Czakan - Unreal (2023) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Free Line (3:15)
+02. Getting Hungry (3:47)
+03. Breaking All The Rules (4:54)
+04. Livin’ In A Nightmare (3:41)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:51:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D072CBF64D0B0C8738FA4187C98E883294D50BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1637561   (239903) от 04.06.2023
 
 Chrome Waves - Earth Will Shed Its Skin (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Black Metal>
@@ -6,7 +35,7 @@ Chrome Waves - Earth Will Shed Its Skin (2023) [FLAC|Lossless|WEB-DL|tracks] <Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239903.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Stormburst - III (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239889.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Gary Moore - Rockin’ Every Night: Live in Japan (1983) Reissue, 2023, Universa
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239888.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ World Divided - All The Angels Cry (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu Meta
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239884.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Miss Mellow - Miss Mellow (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychy, Funky, K
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239880.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Hotwire - The Story So Far 1993-2023 (2023) Compilation [FLAC|Lossless|image + .
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239879.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Days Of Wine - Days Of Wine (2022) [FLAC|Lossless|image + .cue] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239877.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Vandhali - Fever Dream (2022) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239867.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Ne Obliviscaris - Collection (2012 - 2017) 5 CD [FLAC|Lossless|tracks + .cue] <P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239865.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Imperium - Never Surrender (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239862.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Resistance - Skulls Of My Enemy (2022) [MP3|320 Kbps] <Power, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239860.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Dorothy - Gifts From The Holy Ghost (2022) [FLAC|Lossless|tracks + .cue] <Classi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239858.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Bai Bang - Sha Na Na Na (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Glam Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239857.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Gary Moore - Wild Frontier (1987) Japanese Edition, Reissue, 2023, Universal [FL
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239847.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ The Flood - Hear Us Out (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239846.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Sirenia - 1977 (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <Symphonic, Gothic Metal>
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239842.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ No Time For Redemption - Irony of Fate (2012) [FLAC|Lossless|WEB-DL|tracks] <Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239841.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239840.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Asylum Pyre - Call Me Inhuman - The Sun - The Fight - Part 5 (2023) [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239830.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Morpheus Descends - Ritual Of Infinity (1991, 1992) Reissue, 2005, XTREEM MUSIC 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239827.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ The Hirs Collective - We're Still Here (2023) [FLAC|Lossless|WEB-DL|tracks] <Cha
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239823.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Indian Handcrafts - Empress in Decline (2022) [MP3|320 Kbps] <Stoner Rock, Punk 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239820.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Fatal Vision - Once (2022) [MP3|320 Kbps] <Melodic Rock, AOR>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239814.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ ReVamp - ReVamp (2010) Limited Edition [FLAC|Lossless|image + .cue] <Symphonic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239813.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Howling Giant - 8 Albums (2015-2021) [MP3|320 Kbps] <Stoner Rock, Doom Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239812.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Howling Giant - 8 Albums (2015-2021) [MP3|320 Kbps] <Stoner Rock, Doom Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E7E79D80B28AA1BBAB5332BBF814081EECDC223
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565364   (239811) от 23.07.2022
-
-Dark Millennium - Acid River (2022) [FLAC|Lossless|image + .cue] <Progressive Death Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Verger
-02. Godforgotten
-03. Threshold
-04. Lunacy(   Читать дальше...   )Жанр: Progressive Death Metal, Doom MetalПродолжительность: 00:49:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE9EBBF198A4E7D222B9E10B47BAC12CF54F2A26
 ```
 
 https://mybot314.ru/tekegram_catalog/

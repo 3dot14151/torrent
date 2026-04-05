@@ -6,7 +6,7 @@ Nat Geo Wild: Амазонская электрическая рыба / Amazon'
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726013.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725358.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724710.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NG. Научные глупости / Science of stupid (2019) HDTVRip (сезо
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724509.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ BBC. Вся правда об акулах / Shark (2015) BDRip [H.264/1080p] (�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724462.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ NG: Пчелы-Убийцы / Killer Bees (200?) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723989.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723972.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ BBC. Horizon. Откуда берутся гении? / Horizon. What Makes a Ge
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723966.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ NG. Взгляд изнутри: Секреты зоны 51 / Area 51 Declassifi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723736.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ NG. Суперсооружения. Мегазаводы. Суперавтомо
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723623.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ NGW: Ягуары против крокодилов / Jaguar vs. Croc (2017) HDT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723122.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722648.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722637.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ NGW: Смертоносная Африка. Рифы / Africa's Deadly Kingdom (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722582.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ History Channel: Жизнь и смерть в Древнем Риме / Life an
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722273.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Discovery. Недружелюбная вселенная / Bad Universe (2010) H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721912.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Discovery. Экстремальные боевые искусства / XMA: Xtr
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721819.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ NGW: Дикая зима / Wild winter (2016) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721623.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ NGW: Неукротимая Южная Америка / South America Untamed (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721542.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ NGW: Последние дьяволы / Last Devils (2016) HDTVRip [H.264/1080p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721524.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ NGW: Птица-динозавр / Dino-Bird (2017) HDTVRip [H.264/1080p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721403.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ NGW: Десять смертельно опасных змей / Ten deadliest s
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721397.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ NGW: Апокалипсис животных / World's deadliest. Animal Apocaly
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721271.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ NGW: Дикий Нил / Wild Nile (2014) HDTV [H.264/1080i-LQ] (Серии 1-3 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721265.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720823.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720677.jpg" />
 </div>
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 1548243   (234048) от 02.05.2022
+
+Reckless - T.M.T.T.80 (2022) [FLAC|Lossless|WEB-DL|tracks] <Glam Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_234048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take Me To The 80s
+02. Countach
+03. Workout
+04. One Night Together(   Читать дальше...   )Жанр: Glam MetalПродолжительность: 00:58:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F832FA6DCA41520E48DCC9E726FF10D3287D6C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1640488   (234047) от 18.06.2023
 
 The Kinks - Soap Opera (1975) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -6,7 +35,7 @@ The Kinks - Soap Opera (1975) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234047.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_234040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_234040.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Moodoid - Primadonna Collection (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234031.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Billy Talent - Live at Festhalle Frankfurt (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234025.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Memoria - Memoria (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_234022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_234022.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Exmortus - The Sound Of Steel (2018) Japanese Edition [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_234010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_234010.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Gladenfold - Nemesis (2022) [MP3|320 Kbps] <Melodic Death Metal, Symphonic Power
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_234009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_234009.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Creedence Clearwater Revival - Travelin' Band: Creedence Clearwater Revival At T
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234007.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Crazy Hammer - Roll the Dice (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_234002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_234002.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Abiotic - Casuistry (2015) [FLAC|Lossless|image + .cue] <Progressive Deathcore, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233977.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Avsky - Mass Destruction (2007) [FLAC|Lossless|tracks + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233971.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Lightbreaker - The Annihilation of the Annealids (2023) [FLAC|Lossless|WEB-DL|tr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233968.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Abiotic - Symbiosis (2012) [FLAC|Lossless|image + .cue] <Progressive Deathcore, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233964.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Scars - Trust No One! (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233955.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Anthem - Gypsy Ways (20th Anniversary) (1988) Remaster, 2005, King Rec. [WavPack
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233948.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Hollow Rogues - Hollow Rogues (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern South
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233939.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Mold - Hope Abandon All (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233937.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Birdstone - Loss (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Stoner 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233930.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Eufory - Fifth Dimension (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233926.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Kytowrath - Past to Become (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Gr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233923.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Avaland - The Legend Of The Storyteller (2023) [FLAC|Lossless|WEB-DL|tracks] <Sy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233918.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Norium - A Journey Through the Soul (2022) [FLAC|Lossless|WEB-DL|tracks] <Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233915.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Maxus - Maxus (1981) [MP3|320 Kbps] <AOR, Melodic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233909.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Degrees of Truth - The Reins of Life (2016) [MP3|320 Kbps] <Symphonic Progressiv
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233908.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Altaria - Invitation (2003) Remaster, 2022, Reaper [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233907.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Altaria - Invitation (2003) Remaster, 2022, Reaper [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57D0AAF3DF036FFCBB104EB2FE9E60DAD9E9FD71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623237   (233895) от 01.04.2023
-
-Rancho Bizzarro - Four Dead Men (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, Stoner, 70's>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:03:23]
-02. Meteor Blast [00:03:19]
-03. Tumbleweed [00:04:19]
-04. Mexican Standoff [00:04:35](   Читать дальше...   )Жанр: Heavy Rock, Psych, Stoner, 70'sПродолжительность: 00:28:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F90CD821B644ADF00874AF5CACE15447215195A
 ```
 
 https://mybot314.ru/tekegram_catalog/

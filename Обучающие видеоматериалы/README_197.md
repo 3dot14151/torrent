@@ -1,3 +1,29 @@
+###  Публикация: 1650068   (227295) от 30.07.2023
+
+Lextorium, Михаил Церковников, Владимир Прохоренко | Споры об энергии (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227295.jpg" />
+</div>
+
+
+###  Подробнее
+
+Споры о снабжении ресурсом по присоединенной сети (электро-, тепло-, водо-, газоснабжение) являются одними из самых распространённых в арбитражной практике по договорному праву. Поскольку квалифицирующим признаком договора на снабжение энергией является наличие присоединённой сети, важно понимать, какое значение имеет принадлежность объектов сетевого хозяйства. В (   Читать дальше...   )Производство: LextoriumЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 14:59:43Реклама: Вставки и наложения на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D17F2791DBBD3D1AC8E3505945E299082099973E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1650066   (227271) от 30.07.2023
 
 lectoroom, Елена Базанова | Веточки яблони акварелью (2023) WEB-DL [AD] [RU]
@@ -6,7 +32,7 @@ lectoroom, Елена Базанова | Веточки яблони аквар�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227271.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227256.jpg" />
 </div>
 
 
@@ -63,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227123.jpg" />
 </div>
 
 
@@ -92,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227041.jpg" />
 </div>
 
 
@@ -121,7 +147,7 @@ Ctrl + Paint, Matt Kohr | Custom Brush Design (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226965.jpg" />
 </div>
 
 
@@ -147,7 +173,7 @@ Ctrl + Paint, Matt Kohr | Vehicle Design Start To Finish (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226938.jpg" />
 </div>
 
 
@@ -174,7 +200,7 @@ Ctrl + Paint, Matt Kohr | Let's Paint (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226924.jpg" />
 </div>
 
 
@@ -200,7 +226,7 @@ Ctrl + Paint, Matt Kohr | Weapon Design (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226886.jpg" />
 </div>
 
 
@@ -226,7 +252,7 @@ Udemy, Neil Bettison | Создание научно-фантастическо�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226862.jpg" />
 </div>
 
 
@@ -252,7 +278,7 @@ Ctrl + Paint, Matt Kohr | Costume Design (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226831.jpg" />
 </div>
 
 
@@ -278,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226822.jpg" />
 </div>
 
 
@@ -307,7 +333,7 @@ Ctrl + Paint, Matt Kohr | Digital Sketching 2: Refined Lines (2016) PCRec [En, R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226798.jpg" />
 </div>
 
 
@@ -333,7 +359,7 @@ Ctrl + Paint, Matt Kohr | Creating Realistic Surfaces (2013) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226760.jpg" />
 </div>
 
 
@@ -359,7 +385,7 @@ Ctrl + Paint, Matt Kohr | Digital Sketching 4: Technical Drawing (2016) PCRec [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226739.jpg" />
 </div>
 
 
@@ -385,7 +411,7 @@ Ctrl + Paint, Matt Kohr | Digital Sketching 1: Gesture (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226708.jpg" />
 </div>
 
 
@@ -411,7 +437,7 @@ Kantemir Bitokov | Курс по моделингу автомобиля кла�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226673.jpg" />
 </div>
 
 
@@ -440,7 +466,7 @@ Udemy, Tim Buchalka и др. | Android App Development Masterclass using Kotlin 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226628.jpg" />
 </div>
 
 
@@ -468,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226584.jpg" />
 </div>
 
 
@@ -495,7 +521,7 @@ Skillbox, Константин Юрченко | Основы экономиче�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226342.jpg" />
 </div>
 
 
@@ -524,7 +550,7 @@ Mark Schoen | Современная Камасутра. Увлекательн�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226290.jpg" />
 </div>
 
 
@@ -550,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226261.jpg" />
 </div>
 
 
@@ -576,7 +602,7 @@ EngExpert, Диана Семенычева | Золотые ключи к анг
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225941.jpg" />
 </div>
 
 
@@ -603,7 +629,7 @@ OK English School, Елена Вогнистая | Стать англогово
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225880.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Janathan Daley | Creating Gameplay Systems using Blueprint Features in Unreal En
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225784.jpg" />
 </div>
 
 
@@ -656,7 +682,7 @@ Udemy, Jesse E. Agbe | Learn Streamlit Python (2020) PCRec [En / En Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225523.jpg" />
 </div>
 
 
@@ -668,35 +694,6 @@ Udemy, Jesse E. Agbe | Learn Streamlit Python (2020) PCRec [En / En Sub]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34B73744CAD3ABC4273BB71CA9297581A40B905E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513217   (225385) от 28.11.2021
-
-CGEvent | Подборка мастерклассов по трехмерке Киев 2017 (2017) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225385.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка мастерклассов по трехмерке.
-Low Poly Персонажи Allods Online. НЕ набиваем шишки
-Анимация - инструмент реализации
-Анимация Завтра(   Читать дальше...   )Производство: CGEventЖанр: МастерклассПродолжительность: 04:13:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E01B3A735D34BABDFBCF680142469D88983F911
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1816273   (4415) от 04.09.2025
-
-Dj Cult Music - Blues Rock Cult Songs (2025) [FLAC 24/192|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bourbon Powered Blues (3:24)
-02.  Chrome Heart Shuffle (3:59)
-03.  Echoes in Leather Boots (3:30)
-04.  Gravel Voice Lullaby (3:43)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:18:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C7A6EE7640362E98276612A661D5153B27F4EC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1816036   (4413) от 04.09.2025
 
 Halle Choir, BBC Philharmonic and John Storgards - Shostakovich: Symphonies Nos. 1 & 3 "The First of May" & Scherzos, Opp. 1 & 7 (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] &lt ...
@@ -35,7 +6,7 @@ Halle Choir, BBC Philharmonic and John Storgards - Shostakovich: Symphonies Nos.
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4413.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Pendulum - Inertia (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Drum & Bass, El
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4402.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Rick White - Again (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4401.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Honeybear the Band - I Was Wrong (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4400.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Sebastian Rider - Gonna Know My Name (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4399.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Bluebirds - You Take My Blues Away (The original live recordings) (2025) [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4398.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ The Bonnevilles - Age Of Monsters (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4397.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Tim Erickson - Waiting On The Light (Artist's Cut) (2025) [FLAC 24/44.1|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4396.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ TesseracT (& Daniel Tompkins) - Studio Albums (7 releases) (2011-2023) hand made
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4395.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Baba Blues - Glimmer of Gold II (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4394.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Ami Taf Ra - The Prophet and The Madman (2025) [FLAC 24/96|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4393.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Yates McKendree - Need To Know (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4391.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Pearly Drops - The Voices Are Coming Back (2025) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4390.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Bushfire - Snakes Bite Tales (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4389.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ James Big Jim Johnson - Highway Howlin (2025) [FLAC 24/192|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4388.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Unen - Forever Winter (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4387.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Scarlet Requiem - Precious Gemstone Of Graceful Charm And Elegant Beauty (2025) 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4386.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Molly Tuttle - So Long Little Miss Sunshine (2025) [FLAC 24/48|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4384.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Problematic Jam - It's So Confusing (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4380.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Mitch Laddie - Faith and Other Bad Habits (2025) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4379.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Sketch Plot - Rock Lives On (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4378.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ Violator - Studio Albums (6 releases) (2004-2025) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4317.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ Primal Fear (& Ralf Scheepers) - Studio Albums (19 releases) (1998-2025) hand ma
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4300.jpg" />
 </div>
 
 
@@ -703,7 +674,7 @@ Cat Stevens (Yusuf) - On The Road To Findout: Greatest Hits (Deluxe) (2025) [FLA
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4295.jpg" />
 </div>
 
 
@@ -732,7 +703,7 @@ Primal Fear - Domination (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy, Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4292.jpg" />
 </div>
 
 
@@ -746,6 +717,35 @@ Primal Fear - Domination (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy, Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:645889080E8A2C6727F713F7998093D8D26743A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816458   (4291) от 05.09.2025
+
+FM - Brotherhood (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Do You Mean It(3:54)
+02.Living On The Run(4:19)
+03.Coming For You(4:11)
+04.Raised On The Wrong Side(4:51)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:706E8AAA685F1B5EE62191114B1CE80058598FD8
 ```
 
 https://mybot314.ru/tekegram_catalog/

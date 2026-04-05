@@ -1,3 +1,55 @@
+###  Публикация: 687359   (598764) от 08.08.2013
+
+Academia | Армянские сказки [1933] [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемые читателю сказки взяты из сборника Срвандзтяна и Навасардяна (где они записаны с некоторой печатью индивидуальной обработки сборщиков); из сборников "Маргаритнер", Эминского сборника, журнала "Базмавеп", рукописных сборников, хранящихся в Государственном музее Армении (где сказки записаны с голоса рассказывающего, почти дословно и (   Читать дальше...   )Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57FE261C82194EC8D6AFF87C8D7DC09A8D8E6015
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 687311   (598505) от 08.08.2013
+
+Ованес Туманян | Армянские Сказки [1953] [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великий армянский поэт Ованес Туманян (1869–1923) является автором 22 обработок армянских народных сказок. Среди них сказки волшебные, новеллистические, бытовые, анекдоты. Туманян, используя многочисленные варианты, как армянских сказок, так и сказок других народов, создает как бы сводный текст, в котором присутствуют мотивы, эпизоды из разных вариантов. Известно, (   Читать дальше...   )Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93E5BA42044FF31EB33C6910023E1DCF74FABCCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1232422   (598484) от 25.06.2018
 
 Евгений Лесников | Призыву по возрасту не подлежит (1981) [FB2]
@@ -6,7 +58,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598484.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598464.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598382.jpg" />
 </div>
 
 
@@ -89,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598329.jpg" />
 </div>
 
 
@@ -116,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598304.jpg" />
 </div>
 
 
@@ -142,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598238.jpg" />
 </div>
 
 
@@ -168,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598236.jpg" />
 </div>
 
 
@@ -194,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598230.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598200.jpg" />
 </div>
 
 
@@ -247,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598196.jpg" />
 </div>
 
 
@@ -273,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598188.jpg" />
 </div>
 
 
@@ -299,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598170.jpg" />
 </div>
 
 
@@ -326,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598169.jpg" />
 </div>
 
 
@@ -352,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598131.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598074.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598062.jpg" />
 </div>
 
 
@@ -433,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598061.jpg" />
 </div>
 
 
@@ -459,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598041.jpg" />
 </div>
 
 
@@ -486,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597836.jpg" />
 </div>
 
 
@@ -512,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597803.jpg" />
 </div>
 
 
@@ -540,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597793.jpg" />
 </div>
 
 
@@ -566,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597792.jpg" />
 </div>
 
 
@@ -592,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597631.jpg" />
 </div>
 
 
@@ -620,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597547.jpg" />
 </div>
 
 
@@ -631,58 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B4DD7B001934FD8D4EBDC713251FF616FFFEF41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299705   (597415) от 02.05.2019
-
-А.Ш. Алимов, Ю.М. Колягин | Алгебра и начала анализа. 10-11 класс (2007) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597415.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данном учебнике завершается развитие основных идей курса алгебры 7-9 классов авторов Ш.А. Алимова и других. Элементарные функции изучаются в 10 классе классическими элементарными методами без привлечения производной; числовая линия и линия преобразований развиваются параллельно с функциональной; начала математического анализа рассматриваются в 11 классе. Система (   Читать дальше...   )Жанр: УчебникФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E25217F756169DA4F6EE7CB1B015B01A02C63B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299520   (597403) от 02.05.2019
-
-Л.Д. Вайткене, М.Д. Филиппова | Это невероятно. Невероятная наука (2018) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597403.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это издание содержит множество невероятных фактов, которые помогут увлечь ребенка естественными науками. Здесь представлена полезная занимательная информация об истории астрономии, биологии и естественных наук и их современных достижениях. Результаты усилий ученых, работающих в этих областях, мы, порой не задумываясь, используем в повседневной жизни. Усвоить предложенные (   Читать дальше...   )Жанр: Познавательная литература для детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8CC361989D6C323E7732AD43028A40E8EA58CB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

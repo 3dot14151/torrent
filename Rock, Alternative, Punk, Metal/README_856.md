@@ -1,3 +1,32 @@
+###  Публикация: 1638154   (238137) от 07.06.2023
+
+Akilla - The Gods Have Spoken (2023) [MP3|320 Kbps] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winds Of Winter (05:27)
+02. Serpent And The Son (05:25)
+03. Queen Of Heaven (04:43)
+04. Song Of The Seafarers (05:52)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:46:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6479660E4098E27C8BFB2AE5329E781FCA1DBC08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580665   (238133) от 02.10.2022
 
 Lo Garp - True Friends (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Soft Rock, Westcoast, AOR>
@@ -6,7 +35,7 @@ Lo Garp - True Friends (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Sof
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238133.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Drama Noir - Nightfall upon the Asylum (2023) [FLAC|Lossless|WEB-DL|tracks] <Atm
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238130.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Amongst The Giants - 2 Albums (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Metalco
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238122.jpg" />
 </div>
 
 
@@ -91,7 +120,7 @@ June 1974 - Please Destroy Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238120.jpg" />
 </div>
 
 
@@ -120,7 +149,7 @@ River Of Deceit - The Dead Won't Raise Themselves (2023) [MP3|320 Kbps] <Heavy, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238117.jpg" />
 </div>
 
 
@@ -149,7 +178,7 @@ Lower 13 - Embrace the Unknown (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238116.jpg" />
 </div>
 
 
@@ -178,7 +207,7 @@ Abbath - Dread Reaver (2022) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238110.jpg" />
 </div>
 
 
@@ -207,7 +236,7 @@ Hatriot - The Vale Of Shadows (2022) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238109.jpg" />
 </div>
 
 
@@ -236,7 +265,7 @@ Loners - Отражения (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Pos
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238105.jpg" />
 </div>
 
 
@@ -265,7 +294,7 @@ Carrier Wave - Carrier Wave (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238100.jpg" />
 </div>
 
 
@@ -295,7 +324,7 @@ Drama Noir - A Necromancy Lore (2020) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238092.jpg" />
 </div>
 
 
@@ -324,7 +353,7 @@ Baardvader - 2 Albums (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Stoner Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238090.jpg" />
 </div>
 
 
@@ -353,7 +382,7 @@ Vanguard - The Power That You Hold (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238088.jpg" />
 </div>
 
 
@@ -382,7 +411,7 @@ Acausal Intrusion - Nulitas (2021) [FLAC|Lossless|WEB-DL|tracks] <Technical Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238080.jpg" />
 </div>
 
 
@@ -411,7 +440,7 @@ Ekrom - Uten N​adigst Formildelse (2023) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238078.jpg" />
 </div>
 
 
@@ -440,7 +469,7 @@ Autophagy - Bacteriophage (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238074.jpg" />
 </div>
 
 
@@ -469,7 +498,7 @@ Korriban - The Endless Path (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238058.jpg" />
 </div>
 
 
@@ -498,7 +527,7 @@ Witche’s Brew - Chronicles of Electric Sorcery (2022) [FLAC|Lossless|WEB-DL|tr
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238050.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ Runelord - A Message From The Past (2018) [FLAC|Lossless|image + .cue] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238042.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ Vaultwraith - Death Is Proof of Satan's Power (2017) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238041.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ Noel Gallagher's High Flying Birds - Council Skies (Deluxe) (2023) [FLAC 24/44.1
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238040.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ Heart Through Sacrifice - Heart Through Sacrifice (2021) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238038.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ Victor Smolski - Guitar Force (2023) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_238037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_238037.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ No Faith in Fortune - Dysthymia (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238034.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Thundergoat - A Western Galactic Space Odyssey: The Beginning (2023) [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238033.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Thundergoat - A Western Galactic Space Odyssey: The Beginning (2023) [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0AACC60EB01C52CC5F961A41223CDBC3AC312F87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638231   (238031) от 07.06.2023
-
-Dieth - To Hell and Back (2023) [MP3|320 Kbps] <Death, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To Hell and Back (03:55)
-02. Don't Get Mad ... Get Even! (04:37)
-03. Wicked Disdain (03:36)
-04. Free Us All (05:19)(   Читать дальше...   )Жанр: Death, Thrash MetalПродолжительность: 00:42:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC5F175E585047347123704E2C131AD6DD1440BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

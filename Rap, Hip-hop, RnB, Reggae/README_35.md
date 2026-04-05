@@ -1,32 +1,3 @@
-###  Публикация: 1731478   (52565) от 21.06.2024
-
-Баста - Акустика (2024) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Баста - Моя игра (Acoustic Version) (04:17)
-02. Баста - ЧК (Чистый кайф) (Acoustic Version) (03:46)
-03. Баста - Осень (Acoustic Version) (03:45)
-04. Баста & STRANIZA - Помни (Acoustic Version) (02:35)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:28:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55229CDE4FADFE9CE4005BD893975AD3BBF9C840
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 287648   (52539) от 22.06.2024
 
 Cypress Hill - 8 Albums + 3 Compilation + 14 Singles & EP's (1991-2010) [FLAC|Lossless]<Hip-Hop / Hardcore Hip-Hop / Latin Rap / Rock>
@@ -35,7 +6,7 @@ Cypress Hill - 8 Albums + 3 Compilation + 14 Singles & EP's (1991-2010) [FLAC|Lo
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52539.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Hugo Kant - 9 Albums (2011-2024) [FLAC|Lossless|WEB-DL|tracks] <Trip Hop, Downte
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52259.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Damian Marley - 4 Albums + Single + Compilation (1996-2010) [FLAC|Lossless]<Regg
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51784.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51780.jpg" />
 </div>
 
 
@@ -152,7 +123,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51779.jpg" />
 </div>
 
 
@@ -181,7 +152,7 @@ Gentleman - 6 Альбомов (1999-2010) [FLAC|Lossless]<Reggae, Roots Reggae,
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51758.jpg" />
 </div>
 
 
@@ -210,7 +181,7 @@ Das EFX - 5 Albums + 3 Singles (1992-2003) [FLAC|Lossless]<Hip-Hop / Rap / Hardc
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51756.jpg" />
 </div>
 
 
@@ -243,7 +214,7 @@ Control Machete - 5 Albums (1996-2006) [FLAC|Lossless]<Hip-Hop / Mexican Rap / L
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51752.jpg" />
 </div>
 
 
@@ -274,7 +245,7 @@ Patrice - 6 Альбомов (2000-2010) [FLAC|Lossless]<Reggae, Hip-Hop, Electr
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51747.jpg" />
 </div>
 
 
@@ -303,7 +274,7 @@ Souls of Mischief - 93 'Til Infinity (1993) [FLAC|Lossless]<Hip-Hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51739.jpg" />
 </div>
 
 
@@ -332,7 +303,7 @@ Tha Mexakinz - Tha Mexakinz (1996) [FLAC|Lossless]<Hip-Hop, Latin Hip-Hop, Hardc
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51717.jpg" />
 </div>
 
 
@@ -361,7 +332,7 @@ Eminem - The Death of Slim Shady (Coup De Grace) (2024) [FLAC|Lossless|WEB-DL|tr
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50242.jpg" />
 </div>
 
 
@@ -390,7 +361,7 @@ Eminem - The Death of Slim Shady (Coup De Grâce) (2024) [MP3|320 Kbps] <Hip-Hop
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50176.jpg" />
 </div>
 
 
@@ -419,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47625.jpg" />
 </div>
 
 
@@ -448,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44429.jpg" />
 </div>
 
 
@@ -477,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44417.jpg" />
 </div>
 
 
@@ -506,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44401.jpg" />
 </div>
 
 
@@ -535,7 +506,7 @@ Eminem - The Death of Slim Shady (Coup De Grace) (2024) Expanded Mourner’s Edi
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43693.jpg" />
 </div>
 
 
@@ -564,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43556.jpg" />
 </div>
 
 
@@ -593,7 +564,7 @@ Eminem - The Death of Slim Shady (Coup De Grace) (2024) Expanded Mourner’s Edi
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43554.jpg" />
 </div>
 
 
@@ -622,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42925.jpg" />
 </div>
 
 
@@ -651,7 +622,7 @@ VA - Chillhop Essentials Fall (2024) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chi
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42607.jpg" />
 </div>
 
 
@@ -680,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42183.jpg" />
 </div>
 
 
@@ -709,7 +680,7 @@ Naomi Sharon - Obsidian (Extended) (2024) [MP3|320 Kbps] <R&B>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37279.jpg" />
 </div>
 
 
@@ -738,7 +709,7 @@ VA - Баллады Rap, RnB, Hip-Hop (2008) [WavPack|Lossless|image + .cue] <Po
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37083.jpg" />
 </div>
 
 
@@ -752,6 +723,35 @@ VA - Баллады Rap, RnB, Hip-Hop (2008) [WavPack|Lossless|image + .cue] <Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A14E4E268972AE5CDB4D245AF5A1BF4D573216D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761708   (36559) от 21.11.2024
+
+Black Sheep - A Wolf in Sheep’s Clothing (1991) [FLAC|Lossless|tracks + .cue] <Hip Hop, Boom Bap, Jazzy Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (0:50)
+02. U Mean I’m Not (1:25)
+03. Butt in the Meantime (4:14)
+04. Have U.N.E. Pull (3:51)(   Читать дальше...   )Жанр: Hip Hop, Boom Bap, Jazzy Hip-HopПродолжительность: 01:10:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C344AE3F72C1FC515333AAE4128A26A815C103A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

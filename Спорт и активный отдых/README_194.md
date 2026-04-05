@@ -1,3 +1,240 @@
+###  Публикация: 1806728   (11504) от 14.07.2025
+
+Футбол. Клубный ЧМ 2025. Финал. Челси (Лондон, Англия) - ПСЖ (Париж, Франция) (13.07.2025) HDTVRip [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11504.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Клубный ЧМ 2025. Финал. Челси (Лондон, Англия) - ПСЖ (Париж, Франция) (13.07.2025)
+СУДЬЯ Фагани Алиреза (Кашмер, Иран)
+СТАДИОН «Метлайф» (Ист-Рутерфорд)Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 03:24:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5BFADE9AA871326960CF78887E7D5367885EE62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807660   (10824) от 21.07.2025
+
+Бокс. Александр Усик - Даниель Дюбуа 2 / Oleksandr Usyk vs. Daniel Dubois II (19.07.2025) WEBRip [H.264/1080p] [50fps] [En]
+
+>>Спорт и активный отдых
+>>Бокс
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10824.jpg" />
+</div>
+
+
+###  Подробнее
+
+19 июля на стадионе Уэмбли в Лондоне, Великобритания, прошёл большой боксёрский вечер. В главном событии бой-реванш провели супертяжеловесы 38-летний украинец Александр Усик и 27-летний представитель Великобритании Даниель Дюбуа.
+На кону стоял титул абсолютного чемпиона мира в супертяжелом весе. До боя пояс IBF принадлежит британцу, а Усик владел титулами WBC, WBA, (   Читать дальше...   )Телекомпания: Великобритания, DAZNЖанр: спорт, боксУчастники: Александр Усик и Даниель ДюбуаПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:01:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D46CFE9EEED776FCAF71103115A212A7769E82D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809069   (9995) от 29.07.2025
+
+Формула 1. Сезон 2025. Этап 13. Гран-при Бельгии. Гонка (27.07.2025) WEBRip [H.264/720p-LQ] [50fps] F1TV
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9995.jpg" />
+</div>
+
+
+###  Подробнее
+
+27 июля 2025 воскресенье 16:00 МСК этап 13. Арена: Автодром Спа-Франкоршам. Гран-при Бельгии. Гонка (44 круга)Телекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Продолжительность: 03:12:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04DBD78C44CD0354D95E00D5DB5095AFB3432F1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810407   (9305) от 04.08.2025
+
+Формула 1. Сезон 2025. Этап 14. Гран-при Венгрии. Гонка (03.08.2025) WEBRip [H.264/720p-LQ] [50fps] F1TV
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9305.jpg" />
+</div>
+
+
+###  Подробнее
+
+3 августа 2025 воскресенье 16:00 МСК этап 14. Арена: Автодром Хунгароринг. Гран-при Венгрии. Гонка (70 кругов)Телекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Продолжительность: 02:02:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D89D1C9EDEC320B6936FB4005B88685B9970E260
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812344   (7547) от 16.08.2025
+
+Кайдзен / Kaizen (2024) WEB-DL [H.264/1080p] [DVO]
+
+>>Спорт и активный отдых
+>>Экстрим
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7547.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о судьбоносном путешествии 21-летнего ютубера, не занимающегося спортом, Инокстага, который готовится совершить восхождение на Эверест в течение одного года.Производство: Франция / IDZ ProdЖанр: документальный, путешествияРежиссер: Basile MonnotПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: русский, английскийСубтитры: русские (forced + fullПродолжительность: 02:26:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48044CA416730AD9B9D8450F7AFC4965ACB72E41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812948   (7190) от 17.08.2025
+
+MotoGP. Этап 13 из 22. Гран-при Австрии. Квалификация (16.08.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7190.jpg" />
+</div>
+
+
+###  Подробнее
+
+16 августа 2025 суббота. 11:50 МСК этап 13 Шпильберг. Гран-при Австрии. КвалификацияТелекомпания: MotoGPЖанр: Спорт, мотогонкиПродолжительность: 00:57:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:159238A539615F7108EC082F53C778DD9E37A0B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812952   (7186) от 17.08.2025
+
+MotoGP. Этап 13 из 22. Гран-при Австрии. Спринт (16.08.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7186.jpg" />
+</div>
+
+
+###  Подробнее
+
+16 августа 2025 суббота. 16:00 МСК этап 13 Шпильберг. Гран-при Австрии. Спринт (14 кругов)Телекомпания: MotoGPЖанр: Спорт, мотогонкиПродолжительность: 00:53:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D337CDF2CC81F45CB58FA8BAE87F3761D27082D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813251   (7017) от 18.08.2025
+
+MotoGP. Этап 13 из 22. Гран-при Австрии. Гонка (17.08.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7017.jpg" />
+</div>
+
+
+###  Подробнее
+
+17 августа 2025 воскресенье. 15:00 МСК этап 13 Шпильберг. Арена: Ред Булл Ринг. Гран-при Австрии. Гонка (28 кругов)Телекомпания: MotoGPЖанр: Спорт, мотогонкиПродолжительность: 01:18:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EBB5601321C5F39B85BE123DE2734DC1F431AD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813832   (6457) от 22.08.2025
+
+Команда Америки: Игрок и его ковбои / America's Team: The Gambler and His Cowboys (2025) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8) 1win Studio [AD]
+
+>>Спорт и активный отдых
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот документальный сериал, включающий в себя уникальные кадры и интервью, рассказывает подлинную историю команды «Даллас Ковбойс» и влияния Джерри Джонса на НФЛ.Производство: США / NFL Films, Skydance Sports, Stardust Frames ProductionsЖанр: документальный, спортРежиссер: Чэпман Расселл Вэй, Маклейн ВэйУчастники: Дион Сандерс, Руперт Мердок, Джимми Джонсон, Трой Айкман, Эммитт Смит, Michael IrvinПеревод: Многоголосый (1win Studio)Язык озвучки: русскийСубтитры: русские (forced hardsub)Продолжительность: ~00:45:00 серияРеклама: присутствует пара вставок видеорекламы и статичный логотип
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:642A4C757615D71B73201B998DD7EF696DB3377B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1814198   (6250) от 23.08.2025
 
 MotoGP. Этап 14 из 22. Гран-при Венгрии. Квалификация (23.08.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
@@ -6,7 +243,7 @@ MotoGP. Этап 14 из 22. Гран-при Венгрии. Квалифика�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6250.jpg" />
 </div>
 
 
@@ -32,7 +269,7 @@ MotoGP. Этап 14 из 22. Гран-при Венгрии. Спринт (23.08
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6249.jpg" />
 </div>
 
 
@@ -58,7 +295,7 @@ MotoGP. Этап 14 из 22. Гран-при Венгрии. Гонка (24.08.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6074.jpg" />
 </div>
 
 
@@ -84,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4941.jpg" />
 </div>
 
 
@@ -110,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4829.jpg" />
 </div>
 
 
@@ -136,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бокс
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4100.jpg" />
 </div>
 
 
@@ -162,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3873.jpg" />
 </div>
 
 
@@ -188,7 +425,7 @@ MotoGP. Этап 15 из 22. Гран-при Каталонии. Квалифи�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3841.jpg" />
 </div>
 
 
@@ -214,7 +451,7 @@ MotoGP. Этап 15 из 22. Гран-при Каталонии. Спринт (0
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3839.jpg" />
 </div>
 
 
@@ -240,7 +477,7 @@ MotoGP. Этап 15 из 22. Гран-при Каталонии. Гонка (07.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3837.jpg" />
 </div>
 
 
@@ -266,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3718.jpg" />
 </div>
 
 
@@ -292,7 +529,7 @@ MotoGP. Этап 16 из 22. Гран-при Сан-Марино. Квалифи
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2905.jpg" />
 </div>
 
 
@@ -318,7 +555,7 @@ MotoGP. Этап 16 из 22. Гран-при Сан-Марино. Спринт (
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2902.jpg" />
 </div>
 
 
@@ -344,7 +581,7 @@ MotoGP. Этап 16 из 22. Гран-при Сан-Марино. Гонка (14
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2751.jpg" />
 </div>
 
 
@@ -370,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1614.jpg" />
 </div>
 
 
@@ -396,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1436.jpg" />
 </div>
 
 
@@ -422,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Летние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1032.jpg" />
 </div>
 
 
@@ -433,84 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5374412325345647CF1CDB19DCAC4CAE4FB23722
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820317   (476) от 27.09.2025
-
-MotoGP. Этап 17 из 22. Гран-при Японии. Квалификация (27.09.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_476.jpg" />
-</div>
-
-
-###  Подробнее
-
-27 сентября 2025 суббота 04:50 МСК этап 17 Мотэги. Гран-при Японии. КвалификацияТелекомпания: MotoGPЖанр: Спорт, мотогонкиПродолжительность: 00:55:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CD12AD354A3B9A487C9A7763A2D6894140D1D60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820424   (474) от 27.09.2025
-
-MotoGP. Этап 17 из 22. Гран-при Японии. Спринт (27.09.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_474.jpg" />
-</div>
-
-
-###  Подробнее
-
-27 сентября 2025 суббота 09:00 МСК этап 17 Мотэги. Гран-при Японии. Спринт (12 кругов)Телекомпания: MotoGPЖанр: Спорт, мотогонкиПродолжительность: 00:56:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAD1C0459A3F561C54615D1B6174A3E4085A92AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820602   (206) от 28.09.2025
-
-MotoGP. Этап 17 из 22. Гран-при Японии. Гонка (28.09.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_206.jpg" />
-</div>
-
-
-###  Подробнее
-
-28 сентября 2025 воскресенье 08:00 МСК этап 17. Гоночная трасса: Твин Ринг Мотеги. Гран-при Японии. Гонка (24 круга)Телекомпания: MotoGPЖанр: Спорт, мотогонкиПродолжительность: 01:34:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1CD83D24E53031904C07C75CCD8E8D09C3FBE4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

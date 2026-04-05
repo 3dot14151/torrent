@@ -1,3 +1,57 @@
+###  Публикация: 12704   (353464) от 04.11.2014
+
+Высота (1957) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_353464.jpg" />
+</div>
+
+
+###  Подробнее
+
+На строительство комбината приезжает бригада монтажников-верхолазов, им предстоит осуществить монтаж домны по новому методу. Кое-кто с перепугу уезжает в командировку, а в целом предложение принято и верхолазы приступают к работе.
+
+Фильм о непростых характерах простых советских людей, умеющих трудиться, мечтать, любить — строить большое человеческое счастье.Жанр: мелодрамаРежиссер: Александр ЗархиАктеры: Николай Рыбников, Инна Макарова, Геннадий Карнович-Валуа, Василий Макаров, Марина Стриженова, Борис Ситко, Сергей Ромоданов, Елена Максимова, Лев Борисов, Леонид ЧубаровПеревод: ОригинальныйПродолжительность: 01:28:08
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 407801   (352959) от 10.11.2011
+
+Ватерлоо / Waterloo (1970) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Грандиозный фильм с массовыми батальными сценами, посвящённый событиям 1814-15 годов, последовавшим за взятием Парижа русскими войсками. Начинается фильм со сцены первого отречения Наполеона и его отъезда на остров Эльба. Вскоре Наполеон с небольшим отрядом тайно покидает остров Эльба и высаживается на юге Франции. После триумфального похода на Париж он снова становится (   Читать дальше...   )Производство: Италия, СССР / Dino de Laurentiis Cinematografica, МосфильмЖанр: боевик, драма, военный, биография, историяРежиссер: Сергей БондарчукАктеры: Род Стайгер, Кристофер Пламмер, Орсон Уэллс, Джек Хоукинс, Вирджиния МакКенна, Дэн О’Херлихи, Руперт Дейвис, Филипп Форке, Джанни Гарко, Иво ГарраниПеревод: Одноголосый (С. Бондарчук, советский прокатный вариант), Многоголосый (Мосфильм, 2006), Авторский (Ю. Живов)Субтитры: отсутствуютПродолжительность: 02:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D7D0B7E0B711F4E15A28931611F08A6B23B04FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 811946   (352857) от 29.10.2017
 
 Зелёный огонёк (1964) IPTVRip
@@ -6,7 +60,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352857.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352795.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351780.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351779.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349332.jpg" />
 </div>
 
 
@@ -136,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348414.jpg" />
 </div>
 
 
@@ -162,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347431.jpg" />
 </div>
 
 
@@ -188,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346622.jpg" />
 </div>
 
 
@@ -214,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346550.jpg" />
 </div>
 
 
@@ -240,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_346531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_346531.jpg" />
 </div>
 
 
@@ -266,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_346530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_346530.jpg" />
 </div>
 
 
@@ -294,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_346523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_346523.jpg" />
 </div>
 
 
@@ -320,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_346390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_346390.jpg" />
 </div>
 
 
@@ -346,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346326.jpg" />
 </div>
 
 
@@ -372,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344221.jpg" />
 </div>
 
 
@@ -399,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_344038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_344038.jpg" />
 </div>
 
 
@@ -427,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_344037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_344037.jpg" />
 </div>
 
 
@@ -455,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343471.jpg" />
 </div>
 
 
@@ -481,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343470.jpg" />
 </div>
 
 
@@ -507,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343365.jpg" />
 </div>
 
 
@@ -533,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343015.jpg" />
 </div>
 
 
@@ -560,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343006.jpg" />
 </div>
 
 
@@ -587,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342092.jpg" />
 </div>
 
 
@@ -614,68 +668,13 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_341936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_341936.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Драма по одноименной трагедии В. Шекспира (перевод Бориса Пастернака, песни шута в переводе С. Маршака).Производство: СССР, ЛенфильмЖанр: драмаРежиссер: Григорий КозинцевАктеры: Юри Ярвет, Эльза Радзиня, Галина Волчек, Валентина Шендрикова, Олег Даль, Карлис Себрис, Леонхард Мерзин, Регимантас Адомайтис, Владимир Емельянов, Александр Вокач, Донатас Банионис, Алексей Петренко, Юозас БудрайтисПродолжительность: 02:11:46
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419162   (341765) от 27.10.2020
-
-Экипаж (1979) DVDRip [H.264] [PR]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341765.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экипаж самолета, перевозящего грузы и пассажиров, попадает в ситуацию, по сравнению, с которой конец света может показаться детской забавой… В аэропорту, в котором приземлился самолет, землетрясение. Извергается огненная лава, земля уходит из под ног, все вокруг горит и рушится, людей охватывает ужас, возникает паника.
-После прибытия самолета происходит огромной (   Читать дальше...   )Производство: СССР, МосфильмЖанр: Фильм-катастрофа, драмаРежиссер: Александр МиттаАктеры: Георгий Жженов, Анатолий Васильев, Леонид Филатов, Александра Яковлева, Юрий Горобец, Екатерина Васильева, Ирина Акулова, Комаки Курихара, Александр Павлов, Галина ГладковаЯзык озвучки: Русский, Английский, Французский, ИспанскийСубтитры: ОтсутствуютПродолжительность: 01:58:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AEB9386D13AE454B200CC1E2505486150CDE8C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 22796   (341745) от 09.11.2014
-
-Живёт такой парень (1964г.)DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_341745.jpg" />
-</div>
-
-
-###  Подробнее
-
-В общем-то он обыкновенный парень — шофер Пашка Колокольников. Живет себе, работает, мечтает, встречается и расстается с самыми разными людьми. Но есть у него особая черта: он чувствует себя счастливым, только если вокруг всем хорошо.
-
-Собственная жизнь волнует его меньше, чем судьбы других людей. Ради них он и дурачком прикинется, и подвиг совершит…Производство: СССР,  Киностудия им. М.ГорькогоЖанр: мелодрама, комедияРежиссер: Василий ШукшинАктеры: Леонид Куравлёв, Лидия Чащина, Лариса Буркова, Ренита Григорьева, Нина Сазонова, Анастасия Зуева, Белла Ахмадулина, Борис Балакин, Родион Нахапетов, Виктор Филиппов, Иван Рыжов, Николай Федорцов, Евгений Тетерин, Б. РомановСубтитры: ОтсутствуютПродолжительность: 01:35:15
 
 ## Скачать торент
 ```bash

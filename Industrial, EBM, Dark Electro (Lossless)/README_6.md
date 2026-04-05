@@ -6,7 +6,7 @@ Skold - Seven Heads (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Rock, Indus
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229093.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ These New Puritans - Hidden (2010) [FLAC|Lossless|image + .cue] <Electronic, Alt
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227626.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Croatian Amor & Varg2™ - Body Of Lila (2020) Posh Isolation [FLAC|Lossless|WEB
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224369.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Leaether Strip - Last Station (2023) [FLAC|Lossless|image + .cue] <EBM, Industri
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_217759.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Qulonium - Universal Error (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, E
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211807.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Cattac - Nightness (2021) EP [FLAC|Lossless|WEB-DL|tracks] <EBM, Dark Electro>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211691.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Ex Lover - Devotion (2023) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Goth, Post-P
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211357.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Wols - Halo (2023) [FLAC|Lossless|WEB-DL|tracks] <IDM, Breakcore, Experimental>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206183.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Magnavolt - Stellar Gun (2023) [FLAC|Lossless|WEB-DL|tracks] <Darksynth, Synthwa
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203740.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Severed Skies - Dreamscapes (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, 
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201103.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Cygnosic - Demystify (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, EBM>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192434.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Laibach - The Engine of Survival (2023) [FLAC|Lossless|WEB-DL|tracks] <Industria
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190563.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Alien Vampires - Return Me To Hell (2023) 2CD, Uncensored version [FLAC|Lossless
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190439.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Sierra - A Story Of Anger (2023) [FLAC|Lossless|WEB-DL|tracks] <Darksynth, EBM>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_186825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186825.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Blutengel - Black Symphonies (An Orchestral Journey) (2014) 2CD, Limited Edition
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182259.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Rammstein - Adieu (Remixes) (2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181545.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ L'ame Immortelle (L'Âme Immortelle) - Collection (1997-2022) [FLAC|Lossless|ima
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180711.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ BlutEngel - Un:Gott (2019) 3CD [FLAC|Lossless|image + .cue] <Gothic Rock, Darkwa
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180685.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Dav Dralleon - 2 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Darksynth, In
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179394.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Menschdefekt - Recombination (2022) [FLAC|Lossless|WEB-DL|tracks] <Dark Electro,
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175103.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Any Second - Enemies (2022) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, 
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175051.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Pan Sonic (Pan-Sonic, Panasonic, Pansonic, Rude Mechanic) - Discography 29 Relea
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170923.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Laibach - Wirtschaft Ist Tot (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial, N
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167113.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Peter Andersson (raison d'etre, Atomine Elektrine, Necrophorus, Bocksholm, etc..
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166966.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Witch of the Vale - Commemorate (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Got
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165221.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Faderhead - Asteria (2019) [FLAC|Lossless|tracks + .cue] <EBM, Dark Electro, Syn
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162934.jpg" />
 </div>
 
 

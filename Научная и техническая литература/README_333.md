@@ -1,136 +1,3 @@
-###  Публикация: 531514   (542445) от 05.08.2012
-
-ОГУ | Система создания полнотекстовых электронных библиотек [2010] [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удобный инструмент автора для создания и размещения учебно-методических пособий и полнотекстовых документов в электронной библиотеке.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B7A11E5F7DF786931D4F18EA24CD3C903A558CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154342   (542410) от 29.07.2017
-
-Кендра Левин | Одиссея писателя: Как найти вдохновение и соблюсти дедлайн (2017) [FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда перед вами стоит задача написать что-то длиннее одного предложения, самое сложное – не вдохновение. Гораздо труднее заставлять себя регулярно садиться и писать, пока желанное произведение не будет готово. Писать, несмотря на лень, сомнения, горе-советчиков, собственный перфекционизм и отговорки.
-
-Кендра Левин, лайф-коуч и литературный редактор, в книге «Одиссея (   Читать дальше...   )Жанр: Теория литературы, Писательское мастерство, Развитие творческих способностейФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EB953D8EAB6068371E218E270E7DE6D3E5982FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153863   (542392) от 29.07.2017
-
-НП «АВОК» | Р НП «АВОК» 4.4-2013 Системы водяного напольного отопления и охлаждения жилых, общественных и производственных зданий (2013) [TIF, PDF, RTF]
-
->>Научная и техническая литература
->>Нормативная документация
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542392.jpg" />
-</div>
-
-
-###  Подробнее
-
-• Рекомендации распространяются на проектирование и монтаж систем водяного напольного отопления и охлаждения вновь строящихся и реконструируемых зданий с целью повышения теплового комфорта помещений и тепловой эффективности зданий.
-• Водяное напольное отопление — особый вид инженерной системы здания, где отопительными приборами являются поверхности пола обогреваемых (   Читать дальше...   )Жанр: СтроительствоФормат: TIF, PDF, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D67DB1EEDCB43123690188C13DACC2A6DCDF0F02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154161   (542212) от 29.07.2017
-
-М.Г. Рязанов | 1001 секрет телемастера [3 книги] (2007) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Написанию данной книги предшествовал большой поток электронных писем на сайт автора книги от радиолюбителей и профессионалов со всего мира с просьбой помочь решить проблемы с ремонтом. На сайте была открыта рубрика "Секреты ремонта" с постоянным обновлением материалов, а также форум, где можно задать вопрос или обменятся мнением с коллегами. Основная особенность (   Читать дальше...   )Жанр: ТелевидениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B005FB62D9D3459162AC2A84CB782954F5544C90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 372931   (541929) от 05.08.2012
-
-Л.В.Антонова | Золотой ус. Исцеляющие рецепты [2010] [PDF]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541929.jpg" />
-</div>
-
-
-###  Подробнее
-
-Препараты каллизии душистой, или, как ее называют в народе, Золотой ус, оказывают исцеляющее действие при самых разнообразных заболеваниях. Целебные свойства Золотого уса проверили на себе тысячи и тысячи людей, уже потерявших надежду на избавление от своих болезней.Жанр: Медицина, фитотерапия, народная медицинаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87B8F6FC45C147E264287048083C17552C895128
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 531463   (541831) от 05.08.2012
 
 Т.В.Митрошкина | Английские фразовые глаголы [2011] [PDF]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541831.jpg" />
 </div>
 
 
@@ -165,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541816.jpg" />
 </div>
 
 
@@ -191,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541708.jpg" />
 </div>
 
 
@@ -220,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541658.jpg" />
 </div>
 
 
@@ -247,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541111.jpg" />
 </div>
 
 
@@ -273,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540994.jpg" />
 </div>
 
 
@@ -301,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540987.jpg" />
 </div>
 
 
@@ -328,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540930.jpg" />
 </div>
 
 
@@ -354,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540923.jpg" />
 </div>
 
 
@@ -382,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540057.jpg" />
 </div>
 
 
@@ -408,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540035.jpg" />
 </div>
 
 
@@ -436,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539955.jpg" />
 </div>
 
 
@@ -463,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539861.jpg" />
 </div>
 
 
@@ -491,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539724.jpg" />
 </div>
 
 
@@ -517,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539282.jpg" />
 </div>
 
 
@@ -545,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539215.jpg" />
 </div>
 
 
@@ -571,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539190.jpg" />
 </div>
 
 
@@ -597,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539172.jpg" />
 </div>
 
 
@@ -623,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539095.jpg" />
 </div>
 
 
@@ -649,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539093.jpg" />
 </div>
 
 
@@ -677,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539091.jpg" />
 </div>
 
 
@@ -689,6 +556,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93EC4D793A4B5971493642BC8218B9D5C4CD2346
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154825   (539088) от 31.07.2017
+
+Фаина Гримберг | Династия Романовых. Загадки. Версии. Проблемы (2006) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539088.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почему необходимо знать историю династии Романовых? Более того, почему при изучении русской истории следует выделить сведения о Романовых в отдельный раздел, не давая им раствориться в общем курсе? На эти вопросы можно дать не один ответ. Ведь именно в период правления Романовых формируется окончательно русская народность, а затем и национальность, четко оформляется (   Читать дальше...   )Жанр: История, Биографии и мемуарыФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CEDC0C2CD8CD5D5C40AF4680BF542211F8844F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557517   (539060) от 16.06.2022
+
+О.В. Мантуров и др. | Курс высшей математики [3 книги] (1986 - 1991) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трёхтомный курс для студентов-заочников инженерно-технических специальностей вузов.
+Изложение ведётся на двух уровнях - основном и повышенном. Большое внимание уделено разбору примеров и задач. Имеются задачи для самостоятельного решения.Жанр: МатематикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDC33B858FD0D783A312D3507F24B801011D476E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239515   (538986) от 05.08.2018
+
+А. Алымов и др. (ред.) | Об изменениях Советской Конституции (1935) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538986.jpg" />
+</div>
+
+
+###  Подробнее
+
+В связи с решениями февральского (1935 г.) пленума ЦК ВКП(б) и VII Всесоюзного съезда советов о внесении изменении в Конституцию СССР, ИССП провел в марте с. г. ряд заседаний, посвященных вопросам Советской Конституции. Обработанные стенограммы этих заседаний, опубликованные частично в журнале ИССП'а („Советское государство“ №№ 1—2 и 3 за 1935 г.) переиздаются в (   Читать дальше...   )Жанр: История, политология, экономика, правоведениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0CFBDABDD821EB42BEEB61BF530188E952AB024
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925504   (538872) от 07.08.2015
+
+Андрей Бурлака | Рок-энциклопедия. Популярная музыка в Ленинграде-Петербурге, 1965–2005 [3 тома] (2007) [FB2]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538872.jpg" />
+</div>
+
+
+###  Подробнее
+
+В энциклопедии, написанной известным рок-журналистом Андреем Бурлакой, представлена полная панорама рок-музыки Северной столицы от истоков до нынешнего дня.Жанр: Энциклопедии, МузыкаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC9B21004ACF5E5A18F55A9D89B55859B97D13AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154602   (538837) от 31.07.2017
+
+Книжная серия | Исторические открытия [10 книг] (2011-2017) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538837.jpg" />
+</div>
+
+
+###  Подробнее
+
+Насколько то, что вы учили в школе на уроках истории, соответствует истине? А что, если история переписывалась уже не раз - при смене царствующих династий, политических режимов, во время революций? Что, если факты, указанные в летописях и учебниках, искажены и прошлое было совсем иным?
+Авторы задались этими вопросами. И сделали сногсшибательные выводы.Жанр: История, Военная история, Тайны, Загадки, РасследованияФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3536699DC937D554E9D5B7CFD7756FEC78A08CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

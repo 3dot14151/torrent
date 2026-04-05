@@ -1,3 +1,119 @@
+###  Публикация: 1193585   (261990) от 22.12.2017
+
+VA - Deep Value, Vol. 2 (Mixed By Pornbugs) (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Aquino - Lucid (Original Mix) [08:26]
+02. El Mundo - The Message (Original Mix) [07:31]
+03. Markus Homm - Open End (Original Mix) [06:50]
+04. Philipp Gonzales - Katana's Drums (Dave Pad Remix) [07:17](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 03:02:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEFE897CBD8022123B506FD924F38CC257BC52E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193797   (261989) от 22.12.2017
+
+VA - Ferry Corsten Presents Corsten's Countdown December (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ferry Corsten  -  Wherever You Are (feat. HALIENE) (Solis & Sean Truby Extended Remix)  6:49
+02.  Cosmic Gate & Sarah Lynn  -  Folded Wings (Extended Mix)  6:43
+03.  Markus Schulz presents Dakota  -  The Spirit Of The Warrior (Transmission 2017 Theme) (Extended Mix)  6:23
+04.  DIM3NSION & Zaa  -  Cielo (Extended Mix)  6:02(   Читать дальше...   )Жанр: TranceПродолжительность: 01:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72C5661C8EAE4EA807AC0DDDF8B4DD1D2C0092D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193685   (261988) от 22.12.2017
+
+Condensed Utopia - Assioma (2017) Circular Limited [FLAC|Lossless|WEB-DL|tracks] <Techno, Drone>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Complex Alternative to Violence (05:50)
+ 02. Assioma (06:43)
+ 03. Silence Error (06:01)
+ 04. In Abcence of Light (06:27)Жанр: Techno, DroneПродолжительность: 00:25:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:252E211C281CDF0F7CC35BDB0DC5E56C65D6F8EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193762   (261986) от 22.12.2017
+
+VA - Alpine Grooves IX (Kristallhutte) (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joris Voorn & Kid A – So Long (Christian Loeffler Remix) (05:07)
+02. Liza Flume & Alexander Remus – Sheets (06:03)
+03. SAAND – Mysterious Power (Powel Remix) (06:30)
+04. Just Her – Follow You Down (07:48)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:52:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F32696ABF87DE6E06820FFBD6CFF6FD972419A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193694   (261985) от 22.12.2017
 
 VA - Entrancing Music Top 20 (2017) [MP3|320 Kbps] <Trance>
@@ -6,7 +122,7 @@ VA - Entrancing Music Top 20 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261985.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Aly & Fila - Future Sound of Egypt 527 (2017) [MP3|320 Kbps] <Trance, Uplif
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261982.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Black Hole Trance Music 12-17 (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261979.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - Twelve Inch Nineties: Feels Like Heaven (2017) [MP3|320 Kbps] <House, Euro-
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261978.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Jason Van Wyk - Opacity (2017) Home Normal [FLAC|Lossless|tracks+.cue] <Ambient,
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261977.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Markus Schulz - 3 Hour Set for Afterhours.fm End of Year Countdown (2017) [
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261975.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Nothing But... Essential Nu-Disco, Vol. 3 (2017) [FLAC|Lossless|WEB-DL|trac
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261974.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Twelve Inch Nineties: Feels Like Heaven (2017) [FLAC|Lossless|WEB-DL|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261963.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Dynamic Illusion - Interstellar Horizon (2017) [MP3|320 Kbps] <Electronic, Ambie
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261959.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - Spacechillers (Сompiled by Maiia) (2017) Mystic Sound Records [FLAC|Lossle
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261954.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - Black Hole House Music 12-17 (2017) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261830.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - Best of Lifted (Mixed bi Azima) (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261828.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ VA - Ori Uplift & Darren Porter - Uplifting Only 254 (2017) [MP3|320 Kbps] <Tran
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261819.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ The Auranaut - Divine Ordinance (2012) Power Circle Records [FLAC|Lossless|WEB-D
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261817.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ VA - House Party (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261816.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ VA - Markus Schulz - Global DJ Broadcast - World Tour - Best of (2017) [MP3|320 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261815.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Marla Singer - Center Of Subconscious (2017) Nachtstrom Schallplatten [FLAC|Loss
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261800.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ VA - Celestial Beats (Compiled by Alee Soz) (2017) Skyfather Records [FLAC|Lossl
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261775.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ VA - Cafe del Mar Chilled (2017) 2CD [MP3|320 Kbps] <Downtempo, Chillout, Lounge
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261736.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ VA - Balearic Deep-House Winter 2026 (2025) [MP3|320 Kbps] <House, Deep House, D
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261708.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ VA - Polyptych Limited: Year Four (2024) [MP3|320 Kbps] <Progressive House, Melo
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261682.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ VA - La Noche Blanca En Ibiza, Vol. 4 (2025) [FLAC|Lossless|WEB-DL|tracks] <Loun
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261657.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ VA - La Noche Blanca En Ibiza, Vol. 4 (2025) [FLAC|Lossless|WEB-DL|tracks] <Loun
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77FA90DE09534280B9C44BEAADA34034AB69EE18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838935   (261606) от 25.11.2025
-
-VA - Autum Hits 2025 (Deep Strips) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DominiNiobe - I'm Not Afraid (4:02)
-02. Kanette - Real Life (5:17)
-03. Gorbunoff - Somebody To Love (2:12)
-04. Nikita Marasey - Lost Tonight (Radio Edit) (2:28)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E43A7AD956D139A9E4B5DF8E53967F0E500DC67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838924   (261593) от 26.11.2025
-
-VA - Extrema Global Music - Best Of 2025 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261593.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Etasonic - Shakerato (Original Mix) [3:38]
-02. Anna Lee - Silver Coast (Original Mix) [4:15]
-03. Reborn Sound System - Inner Voices (Original Mix) [3:19]
-04. Lightstate & Tycoos - Unseen Force (Original Mix) [3:40](   Читать дальше...   )Жанр: TranceПродолжительность: 02:14:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:019B4568AF24301045685526F0DCCFE93F5AA5E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838777   (261552) от 24.11.2025
-
-VA - Ministry of Sound - The Annual 2026 (2025) 2 CD [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261552.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Calvin Harris & Clementine Douglas - Blessings 03:39
-02. MK feat. Chrystal - Dior 02:49
-03. Disco Lines & Tinashe - No Broke Boys 02:44(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:59:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A513CD7BC376CB38193BDE39B1C4BBF8E9D66AAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838807   (261539) от 24.11.2025
-
-VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 15 (2025) [MP3|320 Kbps] <Trance, Progressive>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Geri - The Crowds (Original Mix) [8:22]
-02. Will Dukster & Solnc - Im Reaching (Original Mix) [8:32]
-03. Appledrugs - Every Second Of Time (Front vs Lala Project Mush Up) [8:29]
-04. Audien - Eleven Eleven (Tom Fall Remix) [7:11](   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 03:09:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5399BAECF292385E84F6CA49C303210CE726ED18
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,133 @@
+###  Публикация: 1653111   (194384) от 14.08.2023
+
+Капитан Пронин: Внук майора Пронина (1992) DVDRip [H.265/720p] [Hand made upscale AI]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194384.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультипликационный фильм-пародия на современные западные и отечественные боевики.Производство: РоссияЖанр: мультфильм, короткометражныйРежиссер: Михаил ЗайцевАктеры: Игорь Верник, Всеволод Абдулов, Александр Пожаров, Рогволд Суховерко, Татьяна СергееваСубтитры: ОтсутствуютПродолжительность: 00:09:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:708E9ACD9C4991E35970D9D2F5BC5B2441C35B08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652551   (194382) от 12.08.2023
+
+Катак. Ледниковый побег / Katak: The Brave Beluga (2023) WEBRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194382.jpg" />
+</div>
+
+
+###  Подробнее
+
+Белуха Катак расстроен: в то время, как сверстники получили белую окраску, его собственная так и не поменялась. Чтобы доказать, что он повзрослел и исполнить желание бабушки, Катак отправляется в опасное приключение на Великий Север.Производство: Канада / 10e AveЖанр: мультфильм, комедия, приключенияРежиссер: Кристин Даллер-Дюпон, Николя ЛемэйАктеры: Роберт Нэйлор, Скайлер Кларк, Элинор Ноубл, Уайатт Бауэн, Марк Камачо, Анджела Галуппо, Жинетт Рено, Ричард Дюмон, Илана Закон, Терренс СкаммеллПеревод: Дублированный (Баритон)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:22:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:296DBBE1E56D8D1FC5DB2C6299E687DAEE8B179A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653590   (194265) от 16.08.2023
+
+Монстры на каникулах: Трансформания / Hotel Transylvania: Transformania (2022) BDRemux [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все смешалось в отеле «Трансильвания»: таинственное изобретение Ван Хельсинга, «монстрифицирующий луч», ломается и случайно превращает Дракулу и его приятелей в людей, а Джонни — наоборот, в монстра. Лишенные своих способностей и привычного облика Драк с друзьями и Джонни, с неожиданным удовольствием раскрывающий свою монстрическую сущность, отправляются в кругосветное (   Читать дальше...   )Производство: США / Columbia Pictures, Sony Pictures AnimationЖанр: мультфильм, ужасы, фэнтези, комедия, приключения, семейныйРежиссер: Дерек Драймон, Дженнифер КлускаПеревод: дублированный (Amazon Prime Video)Язык озвучки: русский, английскийСубтитры: русские (forced, full), английские (full, SDH)Продолжительность: 01:27:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86081434D57463578B6E66627449AB2B62D386B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653311   (194241) от 15.08.2023
+
+Человек-паук: Паутина вселенных / Spider-Man: Across the Spider-Verse (2023) WEB-DL [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Майлз Моралес отправляется в приключение по мультивселенной вместе с Гвен Стейси и новой командой Людей-пауков, которым предстоит столкнуться с могущественным злодеем.Производство: США / Sony Pictures Animation, Marvel Entertainment, Arad ProductionsЖанр: мультфильм, фантастика, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Жуакин Душ Сантуш, Кемп Пауэрс, Джастин ТомпсонПеревод: дублированный (Red Head Sound)Язык озвучки: русский, английскийСубтитры: русские (forced, full), английские (SDH)Продолжительность: 02:20:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC162AD4B2B7B2DA69F9CE89FA065FF69B5E3319
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653118   (194229) от 15.08.2023
+
+Маша и Медведь в кино (2022-2023) WEBRip [H.264/720p] (сезон 1, серии 1-2 из ??)
+
+>>Мультфильмы
+>>Отечественные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194229.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультсериал про девочку Машу, которая никому не дает покоя, и в первую очередь — своему другу Медведю.Производство: Россия, Animaccord Animation StudioЖанр: мультфильм, детский, короткометражка, комедияРежиссер: Артем Наумов, Василий БедошвилиАктеры: Юлия Зуникова, Борис Кутневич, Артём Божутин, Валерия Шевченко, Зина Куприянович, Олег Савостюк, Диомид Виноградов, Юлия ЯблонскаяПродолжительность: ~0:23:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF8E8638AF2AB674463EACAC0F31AAE98443F1EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1653347   (194225) от 15.08.2023
 
 Элементарно / Elemental (2023) WEBRip [H.265/2160p] [4K, HDR, 10-bit, Dolby Vision]
@@ -6,7 +136,7 @@
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194225.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194206.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194200.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194090.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194052.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194043.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194040.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194020.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193963.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193961.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193957.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193941.jpg" />
 </div>
 
 
@@ -320,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193926.jpg" />
 </div>
 
 
@@ -346,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193821.jpg" />
 </div>
 
 
@@ -372,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193802.jpg" />
 </div>
 
 
@@ -398,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193774.jpg" />
 </div>
 
 
@@ -424,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193743.jpg" />
 </div>
 
 
@@ -450,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193686.jpg" />
 </div>
 
 
@@ -476,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193675.jpg" />
 </div>
 
 
@@ -502,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193673.jpg" />
 </div>
 
 
@@ -528,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193634.jpg" />
 </div>
 
 
@@ -539,136 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50EB38053EF00B0C059BE15DF73353F0F8940BBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656054   (193573) от 29.08.2023
-
-Волшебник изумрудного города (1974) Blu-ray [H.264/1080p] (серии 1-10 из 10)
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193573.jpg" />
-</div>
-
-
-###  Подробнее
-
-мультфильм о приключениях девочки Элли её песика Тотошки, которые из-за злобной Гингемы оказались в Волшебной стране, где их ожидали невероятные приключения. Чтобы вернуться домой им надо найти волшебника Изумрудного города, но в этот город ведет только одна дорога, которая вымощена желтыми кирпичами и проходит она через лес, в котором обитают саблезубые тигры и (   Читать дальше...   )Производство: СССР «ТО Экран»Жанр: мультфильм, короткометражка, мюзикл, фэнтези, приключенияРежиссер: Кирилл МалянтовичАктеры: Клара Румянова, Роман Ткачук, Гарри Бардин, Антонина Кончакова, Вера Васильева, Эмилия Мильтон, Роман Филиппов, Рина Зеленая, Зинаида Нарышкина, Г. ВласоваСубтитры: нетПродолжительность: 03:11:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A16C8242C6F64535879DC56CB83851F6745276FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656623   (193567) от 31.08.2023
-
-Барби: Скиппер и большое приключение с детьми / Barbie: Skipper and the Big Babysitting Adventure (2023) WEB-DL [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193567.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда ее бизнес по присмотру за детьми терпит неудачу, Скиппер устраивается на летнюю работу в аквапарк. Здесь она может быстро применить свои навыки няни с пользой.Производство: США, ВеликобританияЖанр: комедия, приключения, фэнтезиРежиссер: Грета ГервигАктеры: Кирстен Дэй, Оги Бэнкс, Лайла Берзиньш, Алекс Казарез, Грег Чун, Джулиза Коммодоре, Инносент Экакити, Лиза Фьюсон, Мэдлин Кратцер, Натали ЛашкариПеревод: ДублированныйСубтитры: Русские (Netflix, Forced, Full) , английские (Forced, Full)Продолжительность: 01:02:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:027680431CAC7E208C6B5F51ECAD5815BE8226E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657019   (193501) от 01.09.2023
-
-Человек-паук / Spider-Man (2018 - 2023) BDRemux [H.264/1080p] [Дилогия]
-
->>Мультфильмы
->>Зарубежные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193501.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Человек-паук" - американский анимационный супергеройский фильм, основанный на персонаже Marvel Comics Майлзе Моралесе. Созданием мультфильма занимались студии Columbia Pictures и Sony Pictures Animation.Производство: США, Канада / Sony Pictures Entertainment (SPE), Columbia Pictures, Marvel Entertainment, Arad ProductionsЖанр: мультфильм, фантастика, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Боб Персичетти, Питер Рэмзи, Родни Ротман, Жуакин Душ Сантуш, Кемп Пауэрс, Джастин ТомпсонПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:56:49 / 02:20:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CEA6EC4A58B1B4C99390CFA0433CA87215A693A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656951   (193498) от 01.09.2023
-
-Руби Гильман: Приключeния кракена-подростка / Ruby Gillman, Teenage Kraken (2023) WEB-DL [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193498.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о семействе морских монстров, сбежавших из опасного подводного мира постоянно враждующих чудовищ и скрывающихся на виду среди людей на суше. Все идет как по маслу, пока их дочь-подросток Руби не нарушает семейное правило «нет океану», ныряя с головой в череду событий, которые навсегда изменят ее жизнь.Производство: США, Япония / DreamWorks Animation, Universal PicturesЖанр: мультфильм, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Кирк де Микко, Фэрин ПерлПеревод: дублированный (Red Head Sound)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:31:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52CBABF3BC4D1C9D37838DD93D4664689448A4A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656278   (193474) от 30.08.2023
-
-Человек-паук: Паутина вселенных / Spider-Man: Across the Spider-Verse (2023) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193474.jpg" />
-</div>
-
-
-###  Подробнее
-
-После воссоединения с Гвен Стейси дружелюбный сосед Человек-Паук попадает из Бруклина в Мультивселенную, где встречает команду Паучков, защищающих само её существование. Пытаясь справиться с новой угрозой, Майлз сталкивается с Пауками из других вселенных. Настаёт момент, когда ему необходимо решить, что значит быть героем, спасающим тех, кого любишь больше всего.Производство: США, Sony Pictures Animation, Marvel Entertainment, Arad ProductionsЖанр: мультфильм, фантастика, фэнтези, боевик, приключенияРежиссер: Жуакин Душ Сантуш, Кемп Пауэрс, Джастин ТомпсонАктеры: Шамеик Мур, Хейли Стайнфелд, Брайан Тайри Генри, Луна Лорен Велес, Джейк Джонсон, Оскар Айзек, Джейсон Шварцман, Исса Рэй, Дэниэл Калуя, Каран СониПеревод: Дублированный (MovieDalen, RHS), Многоголосый профессиональный (HDRezka, TVShows, LostFilm)Язык озвучки: русский, украинский, английскийСубтитры: русские (2x Forced, 2x Full), английские (SDH), иврит, украинские (Forced, Full)Продолжительность: 02:20:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ADAFC656869F4A3854CC23662EF84001CD1C356
 ```
 
 https://mybot314.ru/tekegram_catalog/

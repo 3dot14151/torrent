@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260856.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260813.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Slash: Apocalyptic Love Album Release - Live From New York City (2012) HDTVRip [
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260518.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ Robin Gibb - Live with The Neue Philharmonie Frankfurt Ochestra / Robin Gibb - L
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259360.jpg" />
 </div>
 
 
@@ -125,7 +125,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256756.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256731.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Queen feat. Adam Lambert — MTV EMA 2011. LIVE (2011) [H.264/720p-LQ] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256139.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ AC/DC: Live at Donington (1991/2007) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255843.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255055.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255052.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254645.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Alizee - En concert (2004) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254175.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Inna. Caliente (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253449.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Lionel Richie feat. Shania Twain. Endless Love (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253405.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ The Australian Pink Floyd Show Live at Hammersmith Apollo (2011/2012) BDRip [720
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253277.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252488.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252466.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Караоке
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252159.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252049.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251276.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251223.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251044.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Metallica - Live in Moscow (2019) WEB-DL [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250162.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250122.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Black Sabbath – Undead And Alive (2004) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248491.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ VA - Сборник клипов part. 3 Deutsch Rap (2002-2012) WEBRip 720p | K
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248236.jpg" />
 </div>
 
 

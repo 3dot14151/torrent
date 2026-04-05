@@ -1,3 +1,159 @@
+###  Публикация: 1594845   (177392) от 02.12.2022
+
+Наводнения, год спустя: Жить и не сдаваться / Inondations un an apres: La tete hors de l'eau (2022) DVB [FR / RU Sub]
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177392.jpg" />
+</div>
+
+
+###  Подробнее
+
+13, 14 и 15 июля 2021 года. Эти даты запомнятся бельгийцам навсегда. На страну обрушились чудовищные наводнения, причинившие гигантский ущерб. Неукротимые паводки многих рек - Мёзы, Вездра, Урта и других, всё сокрушали на своем пути. Разрушения коснулись многих областей, от Льежа до Намюра, прокатившись по всему Валлонскому Брабанту до Люксембурга. В Валлонии пострадало (   Читать дальше...   )Производство: Бельгия, TV5MONDE EuropeЖанр: документальный, катастрофыРежиссер: Вален Де ВалькПеревод: субтитрыЯзык озвучки: французскийСубтитры: русские (Е.Маньен, компания Hiventy by TransPerfect), немецкие, нидерландские, румынские, испанские - (IDX+SUB); английские, французские - (SRT) - телетекстПродолжительность: 01:16:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51134A487A55056CAA523337C31F7E7D8FD8236A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594834   (177296) от 02.12.2022
+
+Маккартни 3,2,1 / McCartney 3,2,1 (2021) WEB-DL [H.264/1080p] (серии 1-6 из 6) [VO]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный сериал о творчестве Пола Маккартни и легендарной группы The Beatles. Вместе с музыкальным продюсером Риком Рубиным Маккартни анализирует классические композиции «ливерпульской четверки». Герои обсуждают историю и феномен группы, говорят о новаторстве коллектива, рок-сцене 1970-х годов и полувековой карьере Маккартни как сольного артиста.Производство: США, Diamond Docs, Endeavor Content, Film 45Жанр: документальный, история, биография, музыкаРежиссер: Захари ХейнзерлингПеревод: одноголосый любительский (Pazl Voice)Субтитры: русские (forced (songs) + full, Pazl Voice), английскиеПродолжительность: 6x ~00:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB78394801E3D52E41DF4377DFA748D2B128CD15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594885   (177216) от 02.12.2022
+
+Луи Армстронг: Жизнь и джаз / Louis Armstrong's Black and Blues (2022) WEB-DL [H.264/1080p] [DVO]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177216.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ранее неизвестные личные записи и архивные кадры поведают историю жизни Луи Армстронга с его точки зрения. От музыкального феномена до борца за гражданские права и всемирно известного исполнителя — этот яркий фильм демонстрирует черты Армстронга, которые мало кто видел.Производство: США, Apple Original Films, Imagine DocumentariesЖанр: документальный, история, биографияРежиссер: Саша ДженкинсПеревод: двуголосый любительский (Pazl Voice)Субтитры: русские (Яна Смирнова / Apple TV+), украинские, английские (forced/full/SDH), эстонские, литовские, латвийскиеПродолжительность: 01:46:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A0476B861159E1F4841B49A1BA8105AB7902790
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594657   (177164) от 02.12.2022
+
+Эффект обзора / The Overview Effect (2016) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Космос
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Название этого видео - фраза, придуманная автором Фрэнком Уайтом. Это относится к когнитивному сдвигу, который испытывают астронавты, когда видят Землю из космоса. Находясь в постоянном циклическом движении на борту Международной космической станции, астронавты наблюдали за нашей планетой в поразительных деталях, запечатлевая ее динамичную красоту в одной из величайших (   Читать дальше...   )Производство: Великобритания, NASA Johnson Space CenterЖанр: документальный, познавательный, видовойРежиссер: Томас ЛукасПеревод: одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:20:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A36FD45F8C01977D42E9A4A9AA83618CE161697
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594855   (177144) от 02.12.2022
+
+Стац: Инструменты успеха / Stutz (2022) WEBRip [H.264/1080p] [VO]
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177144.jpg" />
+</div>
+
+
+###  Подробнее
+
+О психическом здоровье и сеансах терапии. Хилл со своим психотерапевтом откровенно обсуждает психическое здоровье и прогрессирующие приступы тревоги, связанные с продвижением фильма, которые превратили работу его мечты в кошмар.Производство: США, NetflixЖанр: документальный, история, биографияРежиссер: Джона ХиллПеревод: одноголосый любительский (Pazl Voice)Субтитры: русские (Елена Козарь, NF), украинские, английскиеПродолжительность: 01:36:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3870340AE4CF9527EB05EE4167684401054BFE64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667535   (176978) от 08.10.2023
+
+Своя игра (08.10.2023) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «2В Медиа»Жанр: Интеллектуальная играЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4D4C81159D7AE5BB502805E3B97136A076E997E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594654   (176973) от 02.12.2022
 
 Спокойной ночи, Оппи / Good Night Oppy (2022) WEB-DL [H.264/1080p]
@@ -6,7 +162,7 @@
 >>Космос
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176973.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176962.jpg" />
 </div>
 
 
@@ -60,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176933.jpg" />
 </div>
 
 
@@ -87,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176906.jpg" />
 </div>
 
 
@@ -115,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176890.jpg" />
 </div>
 
 
@@ -141,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176868.jpg" />
 </div>
 
 
@@ -170,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176822.jpg" />
 </div>
 
 
@@ -196,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176814.jpg" />
 </div>
 
 
@@ -223,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176807.jpg" />
 </div>
 
 
@@ -249,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176798.jpg" />
 </div>
 
 
@@ -275,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176790.jpg" />
 </div>
 
 
@@ -301,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176769.jpg" />
 </div>
 
 
@@ -327,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176736.jpg" />
 </div>
 
 
@@ -355,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176714.jpg" />
 </div>
 
 
@@ -381,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176687.jpg" />
 </div>
 
 
@@ -407,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176658.jpg" />
 </div>
 
 
@@ -433,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Флот
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176624.jpg" />
 </div>
 
 
@@ -459,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176562.jpg" />
 </div>
 
 
@@ -485,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176560.jpg" />
 </div>
 
 
@@ -512,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176533.jpg" />
 </div>
 
 
@@ -523,166 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:435C213EB7DF7A1F9DA618A9205E47715621CBAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429149   (176519) от 06.12.2020
-
-Бэнкси. Расцвет нелегального искусства / Banksy and the Rise of Outlaw Art (2020) DVB [H.264/1080i-LQ]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм «Бэнкси» посвящен не только и не столько личности самого таинственного андеграундного художника современности, превратившего уличное искусство в политический манифест; картина прослеживает историю становления такого неоднозначного вида искусства, как граффити. В фильме принимают участие многие знаменитые художники-стритартеры, которые делятся (   Читать дальше...   )Производство: Великобритания / Spiritlevel CinemaЖанр: Документальный, Искусство, БиографияРежиссер: Элио ЭспанаПеревод: Многоголосый профессиональный (Первый канал)Субтитры: Русские (Teletext)Продолжительность: 01:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89D498BF929A7BD3ADA9148C2FB574DCDA6FDF14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195487   (176491) от 03.12.2022
-
-А. Слободской | Благодатный Огонь (1995) DVDRip
-
->>Документалистика и Телепередачи
->>Религии и культы (Док/TV)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176491.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм, снятый по благословению Святейшего Патриарха Московского и всея Руси Алексия II, о явлении Благодатного огня у Гроба Господня при свидетельстве Блаженнейшего Патриарха Святого Града Иерусалима и всея Палестины Диодора I...
-
-1. Свидетельство Иерусалимского Патриарха Диодора I и очевидцев о Благодатном Огне.
-2. Гроб Господень - место сошествия Благодатного Огня.(   Читать дальше...   )Жанр: Православные святыниПродолжительность: 00:56:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA342D790CD1CFCBD7B3FAAEF76588511F3F1C36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 334715   (176304) от 06.12.2020
-
-Агент А/201. Наш человек в гестапо (2 серии) (2011) SATRip
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176304.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два года назад Служба внешней разведки (СВР) России рассекретила архивные материалы дела "Брайтенбах" — под таким псевдонимом работал в Германии один из ценнейших агентов советской разведки Вилли Леман.
-У героя Юлиана Семенова был реальный прототип: гауптштурмфюрер СС Вилли Леман, шеф реферата общей контрразведки гестапо. Чистокровный немец, он в годы Первой (   Читать дальше...   )Жанр: Документальный, военная историяПродолжительность: 1. 00:43:19, 2. 00:42:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BE5DF2324F1DB45CCB500C8E21757082803CFE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595198   (176292) от 04.12.2022
-
-Первая передача на НТВ. Автомобильная передача (04.12.2022) SATRip [H.264]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Абсурдные причины лишения водительских прав и правильный запуск разряженного аккумулятора. Насморк и плохое настроение — причины лишения водительских прав. Как защититься от абсурдного обвинения?Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:23:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC975DCB7876750CDB7EA9D18C8B681830AA1593
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595345   (176188) от 04.12.2022
-
-Карл III. Король ожидания (2022) IPTVRip
-
->>Документалистика и Телепередачи
->>История
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176188.jpg" />
-</div>
-
-
-###  Подробнее
-
-Британцы называют нового короля "73-летним мужчиной, наконец-то получившим работу". "Слабак", "деспот", "высокомерный транжира"… Или "тонкая личность", "умеющий любить" и "талантливый художник"? Плохих слов в адрес Карла III гораздо больше. Люди хотят видеть на троне его старшего сына.Производство: Россия, ТВЦЖанр: документальный, история, биографияЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5E41394C804CA2CF63C8A8CAB98E80E4B049BE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595195   (176185) от 04.12.2022
-
-Чудо техники с Сергеем Малозёмовым (04.12.2022) SATRip [H.264]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176185.jpg" />
-</div>
-
-
-###  Подробнее
-
-От 2012 до 2022 - 10 лет чудес. Что изменилось в быту транспорте и медицине? Какие чудо-товары нам удалось веселее всего протестировать? Чем и ради чего рисковали испытатели и почему серьёзные учёные соглашаются участвовать в наших безумствах?Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:40:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:250ECB82DAF9E00A32AC6306D2DE8B738F52D45D
 ```
 
 https://mybot314.ru/tekegram_catalog/

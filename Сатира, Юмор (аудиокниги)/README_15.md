@@ -1,31 +1,3 @@
-###  Публикация: 1667339   (176732) от 08.10.2023
-
-Пелам Гренвилл Вудхаус | Замок Бландинг (сборник) (2023) [MP3, Александр Клюквин]
-
->>Художественные аудиокниги и публицистика
->>Сатира, Юмор (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Увитые плющом стены замка Бландинг редко сияли так ярко, как в этих замечательных историях, но в холмистой парковой зоне водятся змеи, готовые укусить Кларенса, рассеянного девятого графа Эмсворта, когда он меньше всего этого ожидает.
-
-Начнем с того, что императрица Бландингская, претендующая на первое место в классе жирных свиней на сельскохозяйственной выставке (   Читать дальше...   )Жанр: классическая проза, юморИздательство: СОЮЗПродолжительность: 01:53:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58929629206DD63FD7AB2873E2006D39D1D4EC29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1430084   (174388) от 09.12.2020
 
 Влас Дорошевич | Безвременье (2019) [MP3, Иван Литвинов]
@@ -34,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174388.jpg" />
 </div>
 
 
@@ -60,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166376.jpg" />
 </div>
 
 
@@ -86,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165570.jpg" />
 </div>
 
 
@@ -112,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162871.jpg" />
 </div>
 
 
@@ -138,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160415.jpg" />
 </div>
 
 
@@ -164,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159888.jpg" />
 </div>
 
 
@@ -190,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159849.jpg" />
 </div>
 
 
@@ -216,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159631.jpg" />
 </div>
 
 
@@ -242,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158387.jpg" />
 </div>
 
 
@@ -268,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158184.jpg" />
 </div>
 
 
@@ -294,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156238.jpg" />
 </div>
 
 
@@ -320,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155556.jpg" />
 </div>
 
 
@@ -348,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153779.jpg" />
 </div>
 
 
@@ -376,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153760.jpg" />
 </div>
 
 
@@ -403,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153751.jpg" />
 </div>
 
 
@@ -431,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152488.jpg" />
 </div>
 
 
@@ -458,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150829.jpg" />
 </div>
 
 
@@ -484,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150821.jpg" />
 </div>
 
 
@@ -511,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150525.jpg" />
 </div>
 
 
@@ -537,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150514.jpg" />
 </div>
 
 
@@ -564,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150510.jpg" />
 </div>
 
 
@@ -590,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148965.jpg" />
 </div>
 
 
@@ -617,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148918.jpg" />
 </div>
 
 
@@ -644,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148776.jpg" />
 </div>
 
 
@@ -673,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148698.jpg" />
 </div>
 
 
@@ -686,6 +658,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:206DC035353094BE1DF0DEE9FBC2F71B91D60B7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 426884   (148366) от 19.11.2023
+
+Леонид Филатов | Дилижанс (2008) [MP3, Владимир Качан]
+
+>>Художественные аудиокниги и публицистика
+>>Сатира, Юмор (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148366.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: «Театр Леонида Филатова».
+Сентиментальный фарс по мотивам знаменитой новеллы Ги де Мопассана «Пышка». В одном дилижансе оказываются «приличные» господа и падшая женщина, и тогда в полном объеме проявляется все лицемерие, низость и трусость людей, по наследству получающих право быть избранными. Под мастерским пером Леонида Филатова произведение заиграло по-новому, (   Читать дальше...   )Жанр: Русская литература, пьеса, юморИздательство: АудиокнигаПродолжительность: 01:36:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FFBF9622451C0453434D053E1C4E911EA2BC48D
 ```
 
 https://mybot314.ru/tekegram_catalog/

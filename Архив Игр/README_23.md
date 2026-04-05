@@ -6,7 +6,7 @@ Astroneer (2016) [Ru/Multi] (0.3.10154.0) SteamRip Let'sРlay
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723837.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Syberia 3 / Сибирь 3 (2017) [Ru/Multi] (1.1) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723717.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_723378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_723378.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ War for the Overworld (2015) [Ru/Multi] (1.0.25) Repack R.G. Механики [U
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722918.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Vampire: The Masquerade Bloodlines (2004) [En] (1.2/9.7) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721926.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721710.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Slice, Dice & Rice (2017) [En/Ch/Po] (1.0) License SKIDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720044.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Attack Heroes (2017) [En/Ch/Ja] (1.08) License SKIDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718251.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Syberia 3 / Сибирь 3 (2017) [Ru/Multi] (1.1) Repack YelloSOFT
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718141.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ The Solus Project (2016) [Ru/Multi] (1.0) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717352.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Niffelheim (2016) [Ru/Multi] (0.9.2/upd1) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717245.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ World of Tanks Mods (2015) [Ru] (18.5) Mod Jove [Extended] [Сборка мод�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717077.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Dungeon of the Endless (2014) [Ru/Multi] (1.0.63/4dlc) Repack R.G. Механи�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716548.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Hard Reset Redux (2016) [Ru/Multi] (1.0) Repack YelloSOFT
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715157.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Undertale (2015) [En] (1.001) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715147.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ World of Tanks Mods (2015) [Ru] (18.4) Mod Jove [Сборка модов от Jo
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714928.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Gauntlet (2014) [Ru/En] (1.12/5dlc) Repack R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714588.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Space Engineers (2019) [Ru/Multi] (1.189.039) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714506.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713950.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Tower of Time (2018) [En] (1.0) Repack MAXSEM
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713128.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Dawn of Man (2019) [Ru/Multi] (1.0) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712500.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ World of Tanks Mods (2015) [Ru] (0.9.7 #6) Mod Yusha [Сборка модов о
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708937.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Factorio (2016) [Ru/Multi] (0.16.36) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707790.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705423.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Active Life: Extreme Challenge [Wii] [NTSC] [Eng] (2009)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704937.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Outlast 2 (2017) [Ru/Multi] (1.0.17512) SteamRip Let'sPlay
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704404.jpg" />
 </div>
 
 

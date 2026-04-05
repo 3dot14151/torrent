@@ -1,3 +1,32 @@
+###  Публикация: 1389376   (784590) от 10.06.2020
+
+Владимир Львовский - Мы фигуры негативные (2008) [MP3|320 Kbps]<Детские песни и минусовки>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01+/-11. Атаманша ждет реванша
+02+/-12. Карабас-барабас - музыкальный магнат
+03+/-13. Кикимора-кокеточка
+04+/-14. Лешему лапши не вешать(   Читать дальше...   )Жанр: Детские песни и минусовкиПродолжительность: 01:08:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:571D98D1A497B96D2B5D27A37AB5AA9B4638D9F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1389404   (784585) от 10.06.2020
 
 Джеймс Олдридж | Последний дюйм (1987) [MP3]
@@ -6,7 +35,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784585.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784126.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784125.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783692.jpg" />
 </div>
 
 
@@ -117,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783688.jpg" />
 </div>
 
 
@@ -143,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783677.jpg" />
 </div>
 
 
@@ -170,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783417.jpg" />
 </div>
 
 
@@ -196,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783411.jpg" />
 </div>
 
 
@@ -222,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783406.jpg" />
 </div>
 
 
@@ -250,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783104.jpg" />
 </div>
 
 
@@ -278,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782936.jpg" />
 </div>
 
 
@@ -307,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782734.jpg" />
 </div>
 
 
@@ -335,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782300.jpg" />
 </div>
 
 
@@ -363,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782272.jpg" />
 </div>
 
 
@@ -392,7 +421,7 @@ VA - Classic Disney - 60 Years Of Musical Magic (1995-1998) 5CD [FLAC|tracks]<So
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781756.jpg" />
 </div>
 
 
@@ -421,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781461.jpg" />
 </div>
 
 
@@ -450,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781460.jpg" />
 </div>
 
 
@@ -479,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781438.jpg" />
 </div>
 
 
@@ -508,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_781064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_781064.jpg" />
 </div>
 
 
@@ -537,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778164.jpg" />
 </div>
 
 
@@ -564,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777445.jpg" />
 </div>
 
 
@@ -596,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777193.jpg" />
 </div>
 
 
@@ -626,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777188.jpg" />
 </div>
 
 
@@ -655,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777140.jpg" />
 </div>
 
 
@@ -681,7 +710,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777124.jpg" />
 </div>
 
 
@@ -695,32 +724,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CC979777CBA86328EFCB0C3464BBF5DE6359483
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963996   (777121) от 08.03.2018
-
-Майлен Константиновский | КОАПП [4CD] (1981-1983 / 2008) [WavPack]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комитет Охраны Авторских Прав Природы, сокращённо "КОАПП" – организация, созданная по инициативе Кашалота в 1964 году в связи с появлением у людей новой науки – бионики (как известно, задача этой науки – использовать изобретения Природы в технике). Основная цель КОАППА кратко, но исчерпывающе сформулирована в песенке: «Славный наш дружный Комитет выдаёт (   Читать дальше...   )Жанр: Радиоспектакль, детская литератураПродолжительность: 02:57:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E45F4A73B123291B2BB0CE1CB106690D65585FBA
 ```
 
 https://mybot314.ru/tekegram_catalog/

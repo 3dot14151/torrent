@@ -1,3 +1,55 @@
+###  Публикация: 1264264   (792796) от 07.01.2019
+
+The Banner Saga 3 (2018) [Ru/Multi] (2.61.03/dlc) Repack xatab
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Banner Saga 3 - грандиозное завершение захватывающей саги о викингах, на разработку которого ушло шесть лет. Данная стратегическая ролевая игра удостоилась многих похвал за интересный сюжет и колоритных персонажей, получила более 20 наград и была номинирована на 4 награды BAFTA.cТип издания: RepackРазработчик: StoicЖанр: Strategy (Turn-based), RPGЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24116CE6F9CA6F3E91174FED3705412338E339A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238019   (792724) от 07.01.2019
+
+The Banner Saga 3 (2018) [Ru/Multi] (2.60.22/dlc) License GOG [Legendary Edition]
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792724.jpg" />
+</div>
+
+
+###  Подробнее
+
+Banner Saga 3 - грандиозное завершение захватывающей саги о викингах, на разработку которого ушло шесть лет. Данная стратегическая ролевая игра удостоилась многих похвал за интересный сюжет и колоритных персонажей, получила более 20 наград и была номинирована на 4 награды BAFTA. Мир вокруг рушится. Как вы будете выживать, когда наступит Тьма, и кому доверите судьбу (   Читать дальше...   )Тип издания: LicenseРазработчик: StoicЖанр: Strategy (Turn-based), RPGЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D598B99EFC9ED972965CFDA4FD5CB5B79DA18C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368753   (790577) от 03.06.2020
 
 Ancestors Legacy (2018) [Ru/Multi] (64685/dlc) Repack xatab
@@ -6,7 +58,7 @@ Ancestors Legacy (2018) [Ru/Multi] (64685/dlc) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790577.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ CountryBalls Heroes (2021) [Ru/Multi] (7722318) License PLAZA
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788304.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Warhammer 40,000: Space Wolf (2017) [Ru/Multi] (1.1.8/dlc) License GOG [Complete
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788266.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.02.00/dlc) Licens
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787989.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Scourge of War: Wavre (2015) [En/Fr/It] (1.0.0.0/dlc) License SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786472.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Shock Tactics (2017) [Ru/Multi] (1.0.6158) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785496.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Wargame Trilogy (2012-2014) [Ru/Multi] (17.08.17.670000744/17.09.18.2100001621/1
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785191.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ This War of Mine (2014) [Ru/Multi] (4.0.0(a)/dlc) Repack R.G. Catalyst
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784812.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784567.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783831.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Sudden Strike 4 (2017) [En] (1.06/dlc) License RELOADED
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783710.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Attack of the Earthlings (2018) [Ru/Multi] (1.0) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783703.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Codex of Victory (2017) [Ru/Multi] (1.0.2mx) Repack R.G. Catalyst
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780462.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Warhammer 40,000: Armageddon - Da Orks (2016) [Ru/Multi] (1.00) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779725.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Stars in Shadow (2017) [En] (21910/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779553.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Decisive Campaigns: Barbarossa (2015) [En] (1.00) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778168.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Codename: Panzers, Phase One - Phase Two (2004-2005) [Ru/En] (1.25/1.10) License
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778145.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Jagged Alliance: Rage! (2018) [Ru] (34445.663) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775552.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Crookz - The Big Heist (2015) [Ru/En] (1.0.0.24360) Repack R.G. Catalyst
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771310.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Battlefleet Gothic: Armada 2 (2019) [Ru/Multi] (1.0) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771199.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Valkyria Chronicles 4 (2018) [Multi] (1.0/dlc) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771196.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Warhammer 40,000: Armageddon (2014) [En] (1.05/dlc) License SKIDROW [Untold Batt
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769679.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ TASTEE: Lethal Tactics (2016) [Ru/En] (1.0) Repack R.G. Catalyst
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769441.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ Tank Warfare: Tunisia 1943 (2017) [Ru/En] (11.30.21/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765004.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ Tank Warfare: Тунис 1943 – тактический симулятор бо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7577F7CC60E3B4D0E36B80EAE48CAF4E04ED63EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279841   (764040) от 31.01.2019
-
-Warhammer Quest 2: The End Times (2019) [Ru/Multi] (1.0) License CODEX
-
->>След.
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764040.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Warhammer Quest 2: The End Times вы проведете свой отряд через объятые войной земли и отправитесь в подземелье за славой и сокровищами! Мечом, стрелами и заклинаниями пробивайтесь сквозь ряды порождений Хаоса, которые грозят миру Warhammer.Тип издания: LicenseРазработчик: PerchangЖанр: 3D, StrategyЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:526220ED833DD6A85F412E7B0958C7D6DF5D3E51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279938   (763201) от 01.02.2019
-
-Warhammer Quest 2: The End Times (2019) [Ru/Multi] (1.0) Repack xatab
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763201.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Warhammer Quest 2: The End Times вы проведете свой отряд через объятые войной земли и отправитесь в подземелье за славой и сокровищами! Мечом, стрелами и заклинаниями пробивайтесь сквозь ряды порождений Хаоса, которые грозят миру Warhammer.Тип издания: RepackРазработчик: PerchangЖанр: 3D, StrategyЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8463FF1C42CC76C4488AD645E68E82645C30E7D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

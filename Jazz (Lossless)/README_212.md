@@ -6,7 +6,7 @@ Les McCann - In New York (1961) 1989, Capitol Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338020.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Joe Williams & George Shearing - The Heart And Soul Of Joe Williams And George S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338019.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Gary Peacock Trio - Tangents (2017) ECM Records [FLAC|Lossless|tracks + .cue] <C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338016.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Marion Brown - Why Not? Porto Novo! Revisited (1966, 1967) 2020, Hat Hut Records
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337418.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Barney Kessel - It's A Blue World (1968 - 1973) 1990, Jazz Hour [APE|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336650.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Howard Rumsey's Lighthouse All-Stars - Music For Lighthousekeeping (1956) 1991, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336616.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Sonny Rollins - Our Man In Jazz (1962) 1995, Classic Compact Discs[FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336352.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Sonny Rollins - All The Things You Are (1963, 1964) 1990, Bluebird[FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336141.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Billy Cobham - Ayajala Live (2015) [FLAC|Lossless|tracks + .cue] <Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335823.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Paolo Fresu - Thinking (2006) EMI [WavPack|Lossless|image + .cue] <Post-Bop, Mod
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335690.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Joe Williams - Live (1973) 1997, Original Jazz Classics [APE|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335689.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Peter O'Mara - Stairway (1993) Enja [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335688.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Barney Wilen - Tilt (1957) /2014, Sony Music/[FLAC|tracks+.cue]<Mainstream Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335416.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Vic Dickenson - Five Classic Albums Plus (1953 - 1959) 2CD, 2012, Avid Jazz [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335116.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Soul Ballet - 2019 (2009) [FLAC|Lossless|image + .cue] <Trip Hop, Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334990.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Roxy Coss - The Future Is Female (2018) Posi-Tone [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334713.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Phineas Newborn, Jr. - The Classic Albums 1956-1962 (2015) 5CD, Enlightenment [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334702.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Redman, Mehldau, McBride, Blade - LongGone (2022) [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334690.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Duke Ellington - 3 Essential Albums (1959, 1966, 1972) 3CD, 2017, Universal [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334007.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ The Joe Newman Quintet - Jive At Five (1960) 1989, Original Jazz Classics [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333959.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ The Australian Jazz Quintet  +1 (1957) /2014, Solid Records/[FLAC|tracks+.cue]<M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333935.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ John Coltrane - "Live" At The Village Vanguard (1961) 2007, Verve [FLAC|tracks+.
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333911.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ VA - Signora Ward Records - Doom Jazz/Dark Jazz/Funeral Jazz vol. 2 (2020) Signo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333876.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Glenn Miller - Chattanooga Choo Choo: The #1 Hits (1991) [FLAC|tracks+.cue]<Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333852.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Hubert Laws - The Laws Of Jazz & Flute By-Laws (1964, 1966) 1994, Atlantic [WavP
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333505.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_333284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_333284.jpg" />
 </div>
 
 

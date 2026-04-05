@@ -1,81 +1,3 @@
-###  Публикация: 1853345   (1056720) от 14.02.2026
-
-Валерий Рубанцев | Если бы у Диофанта был компьютер. Решаем исторические задачи по математике (2026) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1056720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Валерия Рубанцева «Если бы у Диофанта был компьютер» посвящена решению классических исторических математических задач, прежде всего диофантовых уравнений, с использованием современных компьютерных алгоритмов и программирования. Она предлагает новый взгляд на задачи древности, сочетая историю математики с практическими навыками вычислений, что делает ее полезной (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: СамиздатФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77ECAD8121E1CDFE07A61B47B03B88ADAC310B6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852868   (1056564) от 12.02.2026
-
-Deepshikha Bhati, Fnu Neha, Angela Guercio и др. | A Beginner’s Guide to Generative AI. An Introductory Path to Diffusion Models, ChatGPT, and LLMs (Synthesis Lectures on Computer Science) (2025) [ ...
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056564.jpg" />
-</div>
-
-
-###  Подробнее
-
-This book is the essential guide for anyone curious about AI’s creative power. In the rapidly evolving landscape of artificial intelligence, generative AI stands out as one of the most transformative technologies of our time. Designed for beginners and requiring no prior knowledge of AI, this book breaks down the fundamentals of generative AI, from text and image (   Читать дальше...   )Жанр: Speech & Audio Processing, Database Storage & Design, Artificial IntelligenceЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F67DD246704934EA59A6B3604AE37FEB837FF8C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852864   (1056563) от 12.02.2026
-
-В.М. Фомичев | Элементы теории информации в защите информации. Учебное пособие (2021) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056563.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии систематически изложены основы математической теории информации, для ее разделов, относящихся к математическим моделям источников сообщений и к методам кодирования, подчеркивается связь с вопросами криптографической защиты информации. Для закрепления знаний в каждой главе даны задачи, упражнения и контрольные вопросы.Жанр: Компьютерная литература, КриптографияИздательство: ПрометейФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E361F3EB857BE7F43E0A16096E15D881B519761
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1852863   (1056562) от 12.02.2026
 
 В.М. Фомичев | Сборник задач по криптологии (2019) [PDF]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056562.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056561.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056560.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ Dominik Tornow | Think Distributed Systems (2025) [PDF] [EN]
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056559.jpg" />
 </div>
 
 
@@ -190,7 +112,7 @@ Elton Stoneman | Learn Docker in a Month of Lunches. Second Edition (2025) [PDF]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056558.jpg" />
 </div>
 
 
@@ -218,7 +140,7 @@ Chris Zetter | Build a Database Server. Learn how real databases work by followi
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056557.jpg" />
 </div>
 
 
@@ -246,7 +168,7 @@ Adarsh Divakaran | Deep Dive Python. Techniques and Best Practices for Developer
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056556.jpg" />
 </div>
 
 
@@ -274,7 +196,7 @@ Hillel Wayne | Logic for Programmers (2025) [PDF, EPUB] [EN]
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056555.jpg" />
 </div>
 
 
@@ -301,7 +223,7 @@ Florent Poux | 3D Data Science with Python. Building Accurate Digital Environmen
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056554.jpg" />
 </div>
 
 
@@ -327,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056552.jpg" />
 </div>
 
 
@@ -354,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056551.jpg" />
 </div>
 
 
@@ -380,7 +302,7 @@ Micha Gorelick, Ian Ozsvald | High Performance Python. Practical Performant Prog
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056550.jpg" />
 </div>
 
 
@@ -406,7 +328,7 @@ Laurence Moroney | AI and ML for Coders in PyTorch. A Coder's Guide to Generativ
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056549.jpg" />
 </div>
 
 
@@ -433,7 +355,7 @@ Alireza Parandeh | Building Generative AI Services with FastAPI. A Practical App
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056548.jpg" />
 </div>
 
 
@@ -459,7 +381,7 @@ Bartosz Konieczny | Data Engineering Design Patterns. Recipes for Solving the Mo
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056547.jpg" />
 </div>
 
 
@@ -487,7 +409,7 @@ Antonio Di Cecco, Leonida Gianfagna | Explainable AI with Python. Second Edition
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056546.jpg" />
 </div>
 
 
@@ -515,7 +437,7 @@ Matt Frisbie | Building Browser Extensions. Create Modern Extensions for Chrome,
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056545.jpg" />
 </div>
 
 
@@ -543,7 +465,7 @@ Satej Kumar Sahu | Building Secure PHP Applications. A Comprehensive Guide to Pr
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056544.jpg" />
 </div>
 
 
@@ -569,7 +491,7 @@ Shailendra Kadre, Shailesh Kadre, Subhendu Dey | Mastering Text Analytics. A Han
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056543.jpg" />
 </div>
 
 
@@ -595,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056541.jpg" />
 </div>
 
 
@@ -621,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056540.jpg" />
 </div>
 
 
@@ -647,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056539.jpg" />
 </div>
 
 
@@ -673,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056538.jpg" />
 </div>
 
 
@@ -686,6 +608,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73D91E78FFE1139E5BCA7561B2B2A0044C43F472
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852833   (1056534) от 12.02.2026
+
+С.А. Молодяков, А.В. Милицын | Алгоритмы работы с мультимедийными данными в telegram-боте (100 примеров на Python) (2024) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056534.jpg" />
+</div>
+
+
+###  Подробнее
+
+В монографии излагаются вопросы постоения программ редактирования медийных данных, которые реализованы в виде telegram-бота. В представленных алгоритмах редактирования аудио и видео файлов используются функции библиотек OpenCV, FFmpeg и другие. Приведены 100 примеров полностью рабочих программ, написанных на языке Python. Примеры разделены по главам: алгоритмы преобразования (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ПОЛИТЕХ-ПРЕССФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7175079FB6C8CF96E70982525B61996FB3969D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852832   (1056533) от 12.02.2026
+
+П.А. Головинский, А.А. Дробышев, Е.А. Михин | Основы математического моделирования и оптимизации на языке Python. Учебно-методическое пособие (2023) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056533.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии представлены основные методы применения языка Python для решения задач моделирования, оптимизации и обработки данных. Каждая рассмотренная тема включает краткие теоретические сведения, подробный разбор практической работы, индивидуальные варианты заданий и контрольные вопросы по теме.Жанр: Компьютерная литератураИздательство: Знание-МФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9540679B91907EC20A76FA57C3EF5D24E26E9C7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852791   (1056529) от 12.02.2026
+
+И.В. Судакевич | Абсолютный минимум знаний Java-разработчика уровня Junior. Пособие для подтверждения IT-компетенции (2025) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подтверждение IТ-компетенции важно по множеству причин, вплоть до предельно формальных, например, в тендере на получение заказа может стоять требование, мол, компания-претендент обязана иметь такой-то процент разработчиков либо сертифицированных, либо с подтвержденной компетенцией. Сюда же можно отнести валидацию скиллов, чуточку побольше возможностей для карьерного (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: СамиздатФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF0BDBDF8C06A77A3218F431169BD0A267FDEBC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ NeoOffice 3.3 [Eng, Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497075.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ SessionRestore for Safari 2.6.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496808.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ TextMan 1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496806.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Civilization V: Campaign Edition [Native]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496772.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ PDF Search 12.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496755.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ TunesKit Screen Recorder 2.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496753.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496750.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ ImageRanger Pro Edition 1.8.8.1829 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496749.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ MacBooster 8 Pro 8.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496742.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Espresso 1.1.2 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496724.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496705.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Davinci Resolve Studio 18.0 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496579.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ FxFactory Pro 8.0.3 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496565.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Exif Editor 1.1.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496471.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Radio Silence 2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496467.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ EditReady 1.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496461.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ VMware Fusion Pro 12 v12.2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496278.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ iNotepad Pro 4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496095.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Canary Mail 2.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496093.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496060.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Little Snitch 3.6.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495859.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Balsamiq Mockups For Desktop 3.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495811.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Live Home 3D St 3.2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495427.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ OS X El Capitan 10.11 GM (15A282b) [Multi/Ru] (Installer)
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495401.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Hot Door CADtools 10 for Adobe Illustrator 10.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495265.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Navicat Premium Essentials  16.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494989.jpg" />
 </div>
 
 

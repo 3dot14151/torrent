@@ -1,3 +1,109 @@
+###  Публикация: 1820613   (334) от 28.09.2025
+
+Рули Онлайн. Билеты ПДД 2025 v2.47 Mod by Alex.Strannik [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_334.jpg" />
+</div>
+
+
+###  Подробнее
+
+Методика Рули Онлайн была проверенa и получилa положительную рецензию от 19-и преподавателей из различных регионов РФ. Курс состоит из 51-й видеолекции (31 урок). Лучший образовательный проект России по версии ГИЛЬДИИ автошкол. Эксклюзивно в нашем приложении ты найдешь:
+• Видеокурс и разборы билетов ПДД 2025 (Россия, Беларусь и Казахстан)
+• Подготовься к экзамену (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 28.09.2025Разработчик: Рули ОнлайнПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2F142FEACF153952CB9EC7BE0CAC9C3DF36C274
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820717   (330) от 28.09.2025
+
+FacePic - AI Face App v2.9.4 Pro Mod by Mixroot [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_330.jpg" />
+</div>
+
+
+###  Подробнее
+
+FacePic — приложение AI Face, приложение для легкого редактирования лиц с помощью ИИ, которое позволит вам вывести свои селфи на новый уровень. Благодаря широкому выбору фильтров для лица, эффектов Facetune и замены лиц вы будете поражены тем, как быстро вы сможете добиться фотореалистичных результатов. Попрощайтесь с обычными фотографиями — хотите ли вы изменить (   Читать дальше...   )Тип издания: ProРелиз состоялся: 19.09.2025Разработчик: Photo Collage & Grid - Foto GridПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:112EB4E4EE3050C37243DC7EDD29CEF42CFF99D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820569   (324) от 28.09.2025
+
+Vanced Tube v5.4.80.375 Mod by TRUMods [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vanced — это модифицированная версия YT, которая включает в себя различные улучшения, такие как отсутствие рекламы, автоматический пропуск заставок и рекламы в середине видео, фоновое воспроизведение, регулировку громкости и яркости и многое другое.Тип издания: ModРелиз состоялся: 27.09.2025Разработчик: getvanced2020@gmail.comПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F64420042C0A9EE5BAC9E37C33EF9AE13FD17E46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820570   (320) от 28.09.2025
+
+Moon+ Reader Pro v10.2 (b1002000) Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Moon+reader относится к категории универсальных читалок, поддерживающих большое количество форматов и станет хорошим дополнением для вашего Android смартфона или планшета. Приложение поддерживает форматы EPUB, PDF, DJVU, AZW3, MOBI, FB2, PRC, CHM, CBZ, CBR, UMD, DOCX, ODT, RTF, TXT, HTML, MD(MarkDown), WEBP, RAR, ZIP и OPDS. Наличие голосового движка в платной версии (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 28.09.2025Разработчик: Moon+Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDE768A0E9D9AFEF8A0D4E025363C4C6381B0AD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1820565   (317) от 28.09.2025
 
 Gallery - Photo Gallery, Album (XGallery) v1.9.9 Mod by Mixroot [Ru/Multi]
@@ -6,7 +112,7 @@ Gallery - Photo Gallery, Album (XGallery) v1.9.9 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_317.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ Folder Player Pro v5.36 b353 Paid [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_315.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_314.jpg" />
 </div>
 
 

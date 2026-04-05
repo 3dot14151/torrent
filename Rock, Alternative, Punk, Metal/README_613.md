@@ -1,3 +1,32 @@
+###  Публикация: 1162812   (456816) от 02.09.2017
+
+Sweet - Level Headed Tour Rehearsals 1977 (2014) [FLAC|Lossless|image + .cue] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Action (3:49)
+02. Yesterday's Rain (5:00)
+03. California Nights (4:14)
+04. Stairway To The Stars (3:11)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:06:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2B60074199AEBFEAB8ADCC71EEE7BB3BCB797C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1321657   (456801) от 25.08.2019
 
 Elvis Presley - Elvis Movies (2006) [FLAC|Lossless|image + .cue] <Rock'N'Roll, R&B, Soul>
@@ -6,7 +35,7 @@ Elvis Presley - Elvis Movies (2006) [FLAC|Lossless|image + .cue] <Rock'N'Roll, R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456801.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Van Halen - Balance (1995) Japan Edition [FLAC|Lossless|image + .cue] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456793.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ The Heavy's - Mega Metal Marathon (2008) [FLAC|Lossless|tracks + .cue]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456629.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ Porno Wolves - Shine Like Gold (2015) [MP3|320 Kbps] <Psychedelic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456617.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ Tool - Fear Inoculum (2019) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456570.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456500.jpg" />
 </div>
 
 
@@ -174,7 +203,7 @@ Sneglefeber - Sneglefeber (2020) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal, Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456137.jpg" />
 </div>
 
 
@@ -203,7 +232,7 @@ Equisa - Strange Release (2013) [FLAC|Lossless|image + .cue] <Progressive Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456134.jpg" />
 </div>
 
 
@@ -232,7 +261,7 @@ Stoned Harpies - Another Land (2020) EP [MP3|320 Kbps] <Rock, Stoner Rock, Psych
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456133.jpg" />
 </div>
 
 
@@ -261,7 +290,7 @@ Skyborne Reveries - Utterly Away (2020) [MP3|320 Kbps] <Atmospheric Black Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456132.jpg" />
 </div>
 
 
@@ -290,7 +319,7 @@ Puce - The Trough (2020) [MP3|320 Kbps] <Hard Rock, Psychedelic Rock, Garage Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456131.jpg" />
 </div>
 
 
@@ -319,7 +348,7 @@ Dephosphorus - Sublimation (2020) [MP3|320 Kbps] <Dea﻿th Metal, Black M﻿etal
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456125.jpg" />
 </div>
 
 
@@ -348,7 +377,7 @@ Cel Damage - Runoff of Acid, Oil and Water (2020) EP [FLAC|Lossless|WEB-DL|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456121.jpg" />
 </div>
 
 
@@ -377,7 +406,7 @@ Alcantara - Solitaire (2020) [FLAC|Lossless|image + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456120.jpg" />
 </div>
 
 
@@ -406,7 +435,7 @@ Frowning - Death Requiem (2020) [MP3|320 Kbps] <Funeral Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456119.jpg" />
 </div>
 
 
@@ -435,7 +464,7 @@ Night - High Tides - Distant Skies (2020) [MP3|320 Kbps] <Heavy Metal, Hard Rock
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456019.jpg" />
 </div>
 
 
@@ -464,7 +493,7 @@ Rated X - 2 Albums (Promo '19 / United Front) (2019-2020) LP [MP3|320 Kbps] <Har
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456008.jpg" />
 </div>
 
 
@@ -493,7 +522,7 @@ Doves - The Universal Want (2020) [MP3|320 Kbps] <Indie Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456000.jpg" />
 </div>
 
 
@@ -522,7 +551,7 @@ KYPCK - Черно (2008) [FLAC|Lossless|image + .cue] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455908.jpg" />
 </div>
 
 
@@ -551,7 +580,7 @@ Askog - Varg (Demo) (2020) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455831.jpg" />
 </div>
 
 
@@ -579,7 +608,7 @@ Artamene - Ziggurat (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455829.jpg" />
 </div>
 
 
@@ -608,7 +637,7 @@ Arthemore - Czlowiek (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455827.jpg" />
 </div>
 
 
@@ -637,7 +666,7 @@ Askog - Varpnaper (2021) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455825.jpg" />
 </div>
 
 
@@ -666,7 +695,7 @@ Asgard - Chamane (1998) (EP) [FLAC|Lossless|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455823.jpg" />
 </div>
 
 
@@ -695,7 +724,7 @@ Artificial Brain - Artificial Brain (2022) [FLAC|Lossless|WEB-DL|tracks] <Techni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455821.jpg" />
 </div>
 
 
@@ -709,35 +738,6 @@ Artificial Brain - Artificial Brain (2022) [FLAC|Lossless|WEB-DL|tracks] <Techni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B1B4F2134CB32AB1EE756EB17C95A97F11CC310
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568914   (455819) от 11.08.2022
-
-(Echo) - Head First into Shadows (2016) [FLAC|Lossless|image + .cue] <Melodic Doom, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455819.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Blood and Skin
-2.	A Place We Used to Call Home
-3.	Beneath This Lake
-4.	Gone(   Читать дальше...   )Жанр: Melodic Doom, Death MetalПродолжительность: 00:50:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADF91FFDA6089D2419EE8022D269FD9C8E14D47D
 ```
 
 https://mybot314.ru/tekegram_catalog/

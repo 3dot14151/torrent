@@ -1,3 +1,29 @@
+###  Публикация: 1273498   (794777) от 05.01.2019
+
+Google отказалась от обязательного выпуска обновлений для смартфонов Android One. ОБНОВЛЕНО 03.01.2019
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_794777.jpg" />
+</div>
+
+
+###  Подробнее
+
+С официальной страницы проекта Android One исчез пункт о гарантированном получении системных обновлений от Google в течение двух лет после выпуска устройства. На изменение обратил внимание один из пользователей форума Reddit.Google объявила о запуске инициативы Android One несколько лет назад. Изначально основной концепцией Android One было распространение недорогих (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274087   (794773) от 05.01.2019
 
 Nvidia DriverPack Hotfix v.417.58 RePack by CUTA [Ru]
@@ -6,7 +32,7 @@ Nvidia DriverPack Hotfix v.417.58 RePack by CUTA [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794773.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ Opera 50.0.2762.67 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794537.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_794361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_794361.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Acronis True Image 2016 19.0 Build 6569 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794291.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Final Fantasy IX (2016) [En/Multi] (1.0.20160426) Repack R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794281.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ Delcam ArtCAM Pro 2012 SP2 build 359 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794280.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794214.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ FlatOut 4: Total Insanity (2017) [Ru/Multi] (1.0) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794144.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ LEGO City Undercover (2017) [Ru/Multi] (1.0) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794142.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794140.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794137.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793770.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ WPI x86-x64 by OVGorskiy® 12.2018 1DVD [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793763.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793762.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ Pink Floyd - Oh By The Way (16CD Box Set EMI Records 40th Anniversary Edition) (
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793529.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ BootPass 4.2.7 Full Native [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793479.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ Assetto Corsa (2014) [Ru/En] (1.16.3/dlc) Repack R.G. Origami
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793478.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793477.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_793335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_793335.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ Total Commander 8.52a VIM 14 portable by Matros [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793208.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ NG. Винни Джонс: Реально о России / Vinnie Jones: Russia
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_793199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_793199.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ Dark Souls III (2016) [Ru/Multi] (1.04/dlc) Repack R.G. Games [Deluxe Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793198.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ Adobe Photoshop Lightroom 6.5.1 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793196.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ Navitel / Навител Навигатор 9.13.46 Full для карт рел�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793114.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793111.jpg" />
 </div>
 
 
@@ -651,32 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9924F0929240EC65CF6807317C235072F99F4FB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 292154   (793008) от 06.04.2017
-
-Дух времени 3: Следующий шаг / Zeitgeist 3: Moving Forward (2011) DVDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793008.jpg" />
-</div>
-
-
-###  Подробнее
-
-В фильме рассматривается вопрос необходимости выхода из существующей социально-экономической системы. Раскрываемая в фильме тема выходит за пределы вопросов культурного релятивизма и традиционной идеологии, и для обозначения основных точек эмпирической взаимосвязи человечества и природы, экстраполирует неизменные ценности естественных законов на новую парадигму устойчивого (   Читать дальше...   )Жанр: документальныйРежиссер: Питер ДжозефАктеры: Адриан Боуйер, Колин Кэмпбелл, Эштон Клайн, Жак Фреско, Jeremy J. Gilbert, James Gilligan, Питер Джозеф, Макс Кейсер, Джон МакМартриПеревод: Профессиональный одноголосый закадровыйПродолжительность: 02:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FABDC597A988B1BE67D46A7F1B58A45E25CAF23
 ```
 
 https://mybot314.ru/tekegram_catalog/

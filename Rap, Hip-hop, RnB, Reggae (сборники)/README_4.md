@@ -6,7 +6,7 @@ VA - Honey Baby (2020) [MP3|320 Kbps] <R&B, Soul>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688464.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Самые Вкусные Треки c Сочным Вокалом (Sound C
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686883.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - All Day Breack Fast: Respect Collection April (2018) [MP3|320 Kbps] <Rap, H
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680787.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Blaze: Rap & Hip Review (2022) [MP3|320 Kbps] <Hip Hop, Rap>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670737.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - I'm Blessed: Gold Pack Rap Compilation (2018) [MP3|320 Kbps] <Rap, Hip Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667128.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - The Lion Reggae (2022) [MP3|320 Kbps] <Reggae, Riddim, Reggaeton, Dub>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665332.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Top 100 Русский Рэп от Зайцев.Нет (2015) [MP3|256 кб
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658431.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Lady And The Sun (2018) [MP3|320 Kbps] <Rap, Hip Hop, RnB>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657824.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Angel In Zion (2022) [MP3|320 Kbps] <Reggae, Dub, Riddim, Reggaeton>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654960.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Новинки русского Рэпа. Музыкальный Капри
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654346.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ VA - Только Рэп - Сборник русского рэпа.Выпуск
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648981.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ VA - Ragga Jungle (2019) [MP3|320 Kbps] <Reggae, Dub Ska, Jungle>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646800.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ VA - RnB Digest June Collection (2017) [MP3|320 Kbps] <Rhythm and Blues>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646505.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Bob Marley - Collection от ALEXnROCK (2018) [MP3|320 Kbps] <Reggae>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646482.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ VA - Rap And Trap Hip (2017) [MP3|320 Kbps] <Rap, Hip-Hop, Trap>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644266.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ VA - Лирика по венам. Первая доза (2015) [MP3|320 кб/с
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641366.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ VA - Reggae Sound System (2017) [MP3|320 Kbps] <Reggae, Soul>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634858.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ VA - Дискотека RnB (2018) [MP3|256-320 Kbps] <R&B, Hip-Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631820.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ VA - DJ Radio Show Latino RnB (2017) [MP3|192-320 Kbps] <RnB, Hip Radioshow>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631337.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ VA - Rap&Hip: Greatest Mix (2018) [MP3|192-320 Kbps] <Rap, Hip-Hop, RnB>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629843.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ VA - Key To My Heart (2019) [MP3|320 Kbps] <R&B, Soul>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628264.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ VA - Car Audio. Музыка ночного города 2 [Sound Clinic - Boom 
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625922.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ VA - Русский Рэп Избранное (1998-2015) [MP3|96-320 кб/с]<R
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613820.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ VA - Chilled Sexy R&B 2016 - The Ultimate Sexy Rnb Chillout Slow Jams (R and B) 
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609908.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ VA - Flowers Of The Sun (2018) [MP3|320 Kbps] <RnB, Hip-Hop, Rap>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605158.jpg" />
 </div>
 
 
@@ -725,7 +725,7 @@ VA - Rap & Hip Beats (2022) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592845.jpg" />
 </div>
 
 

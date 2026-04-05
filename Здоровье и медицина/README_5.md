@@ -1,30 +1,3 @@
-###  Публикация: 980839   (954486) от 30.01.2016
-
-Леонид Эмильевич Антипко | Прием у доктора Антипко (2013) [FB2]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор этого издания Леонид Эмильевич Антипко — известный воронежский нейрохирург, кандидат медицинских наук, заслуженный врач РФ и просто неравнодушный человек.
-Сегодня он ведет необычный прием. Книга, которую выдержите в руках, — это обстоятельная беседа доктора со своим пациентом. Многолетний опыт практического врача позволяет автору обобщить частные случаи и ответить (   Читать дальше...   )Жанр: Медицина, ЗдоровьеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEF8D6C439E15ABFCB2C553B1B41B2E68A2A2B17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089251   (953586) от 02.01.2017
 
 Александр Анваер | Главная книга пациента (2017) [FB2, RTF]
@@ -33,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953586.jpg" />
 </div>
 
 
@@ -59,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952777.jpg" />
 </div>
 
 
@@ -86,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949360.jpg" />
 </div>
 
 
@@ -114,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942806.jpg" />
 </div>
 
 
@@ -140,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934711.jpg" />
 </div>
 
 
@@ -166,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933627.jpg" />
 </div>
 
 
@@ -192,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933421.jpg" />
 </div>
 
 
@@ -218,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933411.jpg" />
 </div>
 
 
@@ -244,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930671.jpg" />
 </div>
 
 
@@ -273,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930547.jpg" />
 </div>
 
 
@@ -300,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930426.jpg" />
 </div>
 
 
@@ -327,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930418.jpg" />
 </div>
 
 
@@ -353,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930269.jpg" />
 </div>
 
 
@@ -379,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926896.jpg" />
 </div>
 
 
@@ -407,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925520.jpg" />
 </div>
 
 
@@ -433,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925395.jpg" />
 </div>
 
 
@@ -459,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922253.jpg" />
 </div>
 
 
@@ -486,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921573.jpg" />
 </div>
 
 
@@ -513,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920887.jpg" />
 </div>
 
 
@@ -540,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920441.jpg" />
 </div>
 
 
@@ -567,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920292.jpg" />
 </div>
 
 
@@ -593,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920208.jpg" />
 </div>
 
 
@@ -619,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919865.jpg" />
 </div>
 
 
@@ -646,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919761.jpg" />
 </div>
 
 
@@ -673,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918896.jpg" />
 </div>
 
 
@@ -684,6 +657,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D275B9DF08742B20BAAF95348C357D595E4DD6DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367170   (918761) от 14.03.2020
+
+Андрей Сазонов | Фильтруй! Как работают наши печень и почки (2020) [PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918761.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычные люди так мало знают о своем организме! Очень часто мы совершенно не задумываемся, как все устроено в нашем теле, от чего зависит здоровье и самочувствие. А ведь это нужно знать! Андрей Сазонов в своей книге детально рассказывает о работе естественных фильтров человеческого тела – печени и почках. Их важность для организма невозможно переоценить, но в то же (   Читать дальше...   )Жанр: МедицинаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EBED53D947798891575BFA633F78103A8E28EC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

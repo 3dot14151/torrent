@@ -1,3 +1,55 @@
+###  Публикация: 1720834   (25885) от 03.03.2025
+
+Jack Holmes: Master of Puppets (2024) [Ru/Multi] (1.2.0) Repack FitGirl
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Jack Holmes: Master of Puppets - хоррор на выживание от первого лица с отлично переданной атмосферой ужаса. После затяжного периода безработицы Джек Холмс вынужден присоединиться к необычному семейному бизнесу по борьбе со сверхъестественными существами. В качестве детектива отправляйтесь на предложенное дело, чтобы раскрыть его, а вместе с тем столкнитесь с ужасными (   Читать дальше...   )Тип издания: RepackРазработчик: TonyDevGameЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45D88CB6BEF7B2A965DF74C5EA1C2ECAB4CC8577
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784014   (25376) от 08.03.2025
+
+Isla de la Muerte (2025) [En] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25376.jpg" />
+</div>
+
+
+###  Подробнее
+
+Isla de la Muerte - это напряжённая игра на выживание, полная тайн и опасностей. Оказавшись на удалённом острове, вы раскрываете последствия секретного правительственного эксперимента, который ужасно пошёл не так. Стертый из официальных записей, этот остров теперь кишит полчищами беспощадных зомби.Тип издания: RepackРазработчик: Ashwake InteractiveЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:870B7B711C9B8254CD3EC895D0FD39CE1C7BD88A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1783311   (25340) от 08.03.2025
 
 Devilated (2021) [Multi] (1.01) License GOG
@@ -6,7 +58,7 @@ Devilated (2021) [Multi] (1.01) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25340.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Battlefield 1 (2016) [Ru/Multi] (1.0.47.30570) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25289.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Borderlands 3 (2019) [Ru/Multi] (Build 15245523/dlc) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25072.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Risk of Rain 2 (2020) [Ru/Multi] (1.3.7/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25041.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Sons of the Forest (2023) [Ru/Multi] (53951) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25024.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Colt Canyon (2020) [Ru/Multi] (1.3.1.3-8) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24649.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Deep Rock Galactic (2020) [Ru/Multi] (1.39.113250.0/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24267.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Chernobylite Complete Edition (2019) [Ru/Multi] (50563/dlc) Repack Let'sРlay [P
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24240.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Succubus (2021) [Ru/Multi] (18354/dlc) Repack Decepticon [The Worshipper Bundle]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24225.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Heretic: Shadow of the Serpent Riders (1994) [En] (1.3/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24215.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Hexen: Deathkings of the Dark Citadel (1996) [En] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24191.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ HeXen II (2) (1997) [En] (1.11 music fix) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24182.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ The Original Strife (1996) [En] (1.1.2b) License GOG [Veteran Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24091.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Avium (2023) [Ru/Multi] (build 17784960 Patch 29) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23976.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Avium (2023) [Ru/Multi] (Build 17756139) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23871.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Battlefield 4 (2013) [Ru/Multi] (1.8.2.48475) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23785.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Bears In Space (2024) [Ru/Multi] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23767.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Easy Red 2: All Fronts (2020) [Ru/Multi] (1.5.0/dlc) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23673.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ ROBOBEAT (2024) [Ru/Multi] (1.3.10) Repack FitGirl [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23603.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Easy Red 2 (2020) [Ru/Multi] (1.5.0/dlc) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23593.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Unreal Tournament (1999) [En] (451) Unofficial [Game of the Year Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23390.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Far Cry 3: Blood Dragon (2013) [Ru] (1.02) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23367.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Easy Red 2: All Fronts (2020) [Ru/Multi] (1.5.0/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23154.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Battlefield 4 (2013) [Ru/Multi] (4700144/dlc) Repack Other s [Premium Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22942.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Bаttlеfіеld 4 – это определяющий для жанра, пол�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BF28C4879FC717D1A79C7C07AA6AA1BED7E24AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788683   (22935) от 31.03.2025
-
-Men of Valor (2004) [Ru/Multi] (1.3) License GOG
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22935.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вьетнамская война… Самый кровавый конфликт второй половины двадцатого века. Война, расколовшая пополам американское общество. Война, споры о которой не умолкают до сих пор. Жестокая игра политических амбиций, пешками в которой стали простые солдаты - мальчишки, вырванные из мирной жизни и брошенные в самое пекло. В Man of Valor: Vietnam вам предстоит выступить в (   Читать дальше...   )Тип издания: LicenseРазработчик: 2015Жанр: ЭкшеныЯзык озвучки: Английский, Итальянский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Итальянский, Французский и другиеЯзык интерфейса: Русский, Английский, Итальянский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FFBC6D200CDD0C0FCCF0787D32E6AC61E88A4F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788676   (22910) от 31.03.2025
-
-Men of Valor (2004) [Ru] (1.3) License
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22910.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вьетнамская война… Самый кровавый конфликт второй половины двадцатого века. Война, расколовшая пополам американское общество. Война, споры о которой не умолкают до сих пор. Жестокая игра политических амбиций, пешками в которой стали простые солдаты - мальчишки, вырванные из мирной жизни и брошенные в самое пекло. В Man of Valor: Vietnam вам предстоит выступить в (   Читать дальше...   )Тип издания: LicenseРазработчик: 2015Жанр: ЭкшеныЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1CBF75C0B7843406778FB132094353CAFB6BBBD
 ```
 
 https://mybot314.ru/tekegram_catalog/

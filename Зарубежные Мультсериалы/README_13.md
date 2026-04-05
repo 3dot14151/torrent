@@ -1,3 +1,55 @@
+###  Публикация: 983230   (795822) от 28.04.2016
+
+Звери / Animals (2016) HDTVRip (Сезон 1, Серия 1 - 10 из 10) Amedia
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Истории угнетенных обитателей каменных джунглей Нью-Йорка, среди которых и страдающие от безответной любви крысы, и ставящие под сомнение свою гендерную принадлежность голуби, и переживающие кризис среднего возраста клопы.Производство: США, Duplass Brothers, HBOЖанр: Компьютерная анимация, Комедия, Для взрослыхРежиссер: Майк Лучиано, Фил Мэтариз, Уэсли АрчерПерсонажи: Фил Мэтариз, Майк Лучиано, Меган О’Нилл, Кэтрин Аселтон, Мэри Холлэнд, Амир Блюменфилд, Джейк Харвитц, Нил Кэйси, Марк Дюпласс, Лорен ЛапкусПеревод: Многоголосый закадровый, профессиональныйОзвучка / Автор перевода: AmediaПродолжительность: 00:26:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:461D0E016E97BD122EB5BD28EB839628A75C3983
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012592   (793317) от 01.05.2016
+
+Школа Эвер Афтер: Игра драконов / Ever After High. Dragon Games (2015) DVB (серии 1- 3 из ?) (обновляемая)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главные герои мультсериала - дети легендарных сказочных персонажей. Все они учатся в школе волшебства под названием "Долго и счастливо". Ребята мечтают пойти по стопам своих родителей и стать добрыми волшебниками. Впереди их ждут невероятные приключения!Производство: США, Mattel Playground ProductionsЖанр: Мультфильм, фэнтези, комедия, полнометражныйРежиссер: Гарольд Гаррис, Дэн Фрага, Оду ПаденПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 00:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D8335D08A19DE164DABDB59DE2276B7BFCF7E62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385878   (793290) от 30.05.2020
 
 Вампирина / Vampirina (2017-2019) WEB-DL [H.264/720p-LQ] (сезон 1-2, серии 50 из 50) [UKR,EN]
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793290.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793183.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792552.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792340.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792283.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791771.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791669.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791665.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791520.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791424.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791247.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791032.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790711.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790351.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788693.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788269.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787276.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786797.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786792.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786313.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785737.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784571.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784291.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783760.jpg" />
 </div>
 
 
@@ -619,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01CD3637556ECA636E618B2BEC3B4E743A98D40C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362841   (782589) от 16.06.2020
-
-Кипо и Эра Чудесных Зверей / Kipo and the Age of Wonderbeasts (2020) WEB-DL  [H.264/1080p-LQ] (сезон 1, серии 1-10 из 10) NewStation
-
->>След.
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782589.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девочка по имени Кипо прожила всю жизнь в подземном убежище, но однажды она выбирается на поверхность и вместе с группой выживших отправляется в путешествие по постапокалиптической Земле.Производство: США, DreamWorks Animation TelevisionЖанр: Фэнтези, ПриключенияРежиссер: Чейз КонлиПеревод: Многоголосый профессиональный (NewStation)Субтитры: русские (MWT),  английские, испанские, норвежские, индонезийские, греческие, румынские, немецкие, тайские, японские, итальянские, португальские, китайские, финские, шведские, ивритские, арабские, голландские, датские, польские, турецкие, корейские, французскиеПродолжительность: ~00:24:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70B74FB0A617F923D4F6A2182FF895E83AA6F4F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362839   (782195) от 17.06.2020
-
-Кипо и Эра Чудесных Зверей / Kipo and the Age of Wonderbeasts (2020) WEBRip (сезон 1, серии 1-10 из 10) NewStation
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782195.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девочка по имени Кипо прожила всю жизнь в подземном убежище, но однажды она выбирается на поверхность и вместе с группой выживших отправляется в путешествие по постапокалиптической Земле.Производство: США, DreamWorks Animation TelevisionЖанр: Фэнтези, ПриключенияРежиссер: Чейз КонлиПеревод: Многоголосый профессиональный (NewStation)Субтитры: отсутствуютПродолжительность: ~00:24:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF7DC2083AC0BFC410BE67CF9205BC6BC77DF049
 ```
 
 https://mybot314.ru/tekegram_catalog/

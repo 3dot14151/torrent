@@ -1,134 +1,3 @@
-###  Публикация: 1605862   (1044687) от 19.01.2023
-
-Михаил Афанасьевич Булгаков | Мастер и Маргарита. Книга для чтения на английском языке (2020) [PDF, FB2, EPUB, MOBI] [En]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044687.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роман, написанный в течение одного из самых мрачных десятилетий двадцатого века, отражает сложную историческую эпоху и настроения советского общества тех времен. Бог и дьявол, добро и зло, творчество и гибель – в романе множество сюжетных линий, противоречивых героев, поступки которых неоднозначны и вызывают у читателя и грусть, и смех, и желание открывать роман (   Читать дальше...   )Жанр: литература 20 века, советская литератураПеревод: Хью Аплин (с русского языка)Язык: АнглийскийФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:854BCEDF85BC1C7A7D45F1F3CF3BAC7C2AFC2094
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605939   (1044604) от 20.01.2023
-
-А.И.Бугаёв и др. | Тесты: Физика (1993) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Задания для проверки знаний, умений и навыков выпускников общеобразовательных школ, лицеев и гимназий.
-Тестовая проверка знаний выпускников школ, лицеев и гимназий по физике предусматривает решение задач и упражнений, ответы на вопросы трех уровней сложности по всем разделам физики, что составляет базовый уровень подготовки старшеклассников, предусмотренный действующими (   Читать дальше...   )Жанр: физика, задачникФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:973DC9799D276BC2E92C62E39C25B4C725722126
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606270   (1044524) от 21.01.2023
-
-А.А. Самарский | Задачи и упражнения по численным методам (2000) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044524.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие поддерживает курс по численным методам, который читается в вузах с повышенной математической подготовкой. Задачи и упражнения охватывают все основные разделы численного анализа: интерполирование функций, численное интефирование, прямые и итерационные методы линейной алгебры, спектральные задачи, системы нелинейных уравнений, задачи минимизации функций, (   Читать дальше...   )Жанр: МатематикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FC32D5335E3C90A664AC7AD74843E0828B54E72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606268   (1044523) от 21.01.2023
-
-С.Н. Калмыков и др. | Основы радиохимии и радиоэкологии (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044523.jpg" />
-</div>
-
-
-###  Подробнее
-
-Включает в себя следующие лекции: Введение в радиоактивность. Взаимодействие излучения с веществом. Детектирование излучений. Дозиметрия. Радиационная безопасность. Изотопный обмен. Изотопные эффекты. Метод радиоактивных индикаторов. Применение МРИ. Химия горячих атомов. Активационный анализ. Меченые соединения. Основные понятия. Меченые соединения. Методы получения. (   Читать дальше...   )Жанр: Физика, химияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B90BB8911DD9F47181E75EE026D8E719B75D8C8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606274   (1044522) от 21.01.2023
-
-А.А. Самарский | Численные методы математической физики (2000) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044522.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга является учебным пособием по численным методам решения задач математической физики, предназначенным для студентов вузов, специализирующихся в области физики и прикладной математики. Излагаются основы теории разностных схем и метода конечных элементов, принципы построения и исследования вычислительных алгоритмов решения задач математической физики. Рассматриваются (   Читать дальше...   )Жанр: МатематикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1908877D630DE94CCA96426A0932E44705584DF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1606391   (1044507) от 21.01.2023
 
 Андрей Почтарев | За фасадом строительства советского ВМФ (2017) [FB2]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044507.jpg" />
 </div>
 
 
@@ -163,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044430.jpg" />
 </div>
 
 
@@ -189,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044414.jpg" />
 </div>
 
 
@@ -215,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044400.jpg" />
 </div>
 
 
@@ -241,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044387.jpg" />
 </div>
 
 
@@ -267,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044376.jpg" />
 </div>
 
 
@@ -293,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044375.jpg" />
 </div>
 
 
@@ -319,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044300.jpg" />
 </div>
 
 
@@ -345,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044232.jpg" />
 </div>
 
 
@@ -371,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044211.jpg" />
 </div>
 
 
@@ -397,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044209.jpg" />
 </div>
 
 
@@ -423,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044151.jpg" />
 </div>
 
 
@@ -450,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044126.jpg" />
 </div>
 
 
@@ -479,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044114.jpg" />
 </div>
 
 
@@ -505,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044112.jpg" />
 </div>
 
 
@@ -532,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044033.jpg" />
 </div>
 
 
@@ -558,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044008.jpg" />
 </div>
 
 
@@ -584,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044003.jpg" />
 </div>
 
 
@@ -612,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043918.jpg" />
 </div>
 
 
@@ -638,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043910.jpg" />
 </div>
 
 
@@ -664,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043909.jpg" />
 </div>
 
 
@@ -676,6 +545,136 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:337496B42491A9A819E769160BDE509F9ED50F6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607558   (1043901) от 27.01.2023
+
+А.А. Гусак | Задачи и упражнения по высшей математике [2 книги] (1988) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Содержатся задачи и упражнения по следующим разделам: аналитическая геометрия на плоскости и в пространстве, основы векторной алгебры, введение в анализ, дифференциальное и интегральное исчисление, системы линейных алгебраических уравнений, приближенное решение уравнений, ряды, дифференциальные уравнения, элементы теории поля. Приводятся необходимые теоретические (   Читать дальше...   )Жанр: МатематикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC57B3F7D500E64C4BA048228D16B2CF0DF01F66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607718   (1043895) от 27.01.2023
+
+Наполеон Бонапарт | Мысли узника святой Елены (2020) [FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043895.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великий французский император и полководец родился на острове Корсика, который принадлежал Генуэзской республике. В 1768 году Генуэзцы отдали Корсику Франции за долги, однако сами корсиканцы подняли восстание против этого и смирились с новым гражданством только после поражения от французской армии. Всего за несколько лет великому корсиканцу удалось покорить почти (   Читать дальше...   )Жанр: Биографии и МемуарыПеревод: Вениамин ГолантФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE6B927BC631E69274F50560DAC7C923F868F153
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607701   (1043891) от 27.01.2023
+
+А.А. Гусак, Е.А. Бричикова | Теория вероятностей. Справочное пособие к решению задач (1999) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Справочное пособие предназначено для обучения студентов по учебному курсу "Теория вероятностей". Оно поможет при подготовке к практическим занятиям, зачётам и экзаменам, а студентам заочных отделений - самостоятельно выполнить контрольные работы. В книгу включены разделы: события и вероятности; случайные величины, их распределения и числовые характеристики; (   Читать дальше...   )Жанр: МатематикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7485E96EE1FBD37D1A6C2D7D7301714417A6AE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 166178   (1043877) от 27.01.2023
+
+Дэвид Гланц | Блокада Ленинграда 1941-1944 (2009) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дэвид Гланц, крупнейший в мире специалист по истории Красной армии, подробно и убедительно рассказывает об одном из самых трагических событий Второй мировой войны - блокаде Ленинграда. Повествование основано на материалах секретных архивов бывших противников. Книга содержит подробный анализ боевых действий и схемы, на которых детально воспроизведено передвижение (   Читать дальше...   )Жанр: Документальная литература, ИсторияПеревод: Е. В. ЛамановаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5778B53FC3C6E633793F17B7840F8A94E416FC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607991   (1043842) от 28.01.2023
+
+В.А. Исидоров | Экологическая химия (2022) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Посвящено проблемам глобальных и крупнорегиональных изменений, происходящих в результате антропогенного нарушения эволюционно сложившихся на нашей планете химических равновесий. Показана ведущая роль всей совокупности живых организмов (биоты Земли) в формировании циклов элементов и таких глобальных характеристик, как уровень достигающей земной поверхности солнечной (   Читать дальше...   )Жанр: Химия, экологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDE01AC0DBEDE9FB522401DB704EE8D4F3AD1533
 ```
 
 https://mybot314.ru/tekegram_catalog/

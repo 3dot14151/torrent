@@ -1,3 +1,81 @@
+###  Публикация: 1040381   (587118) от 04.08.2016
+
+Half Dead (2016) [Ru/Multi] (1.0) License HI2U
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587118.jpg" />
+</div>
+
+
+###  Подробнее
+
+Half dead - это мультиплеерная научно-фантастическая игра о жестоком телешоу. Целью его участников является выживание в комплексе, полном опасных для жизни ловушек.Тип издания: LicenseРазработчик: Room710GamesЖанр: Survival Adventure, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1447C3DB07BF77EA132E5CFE9BBAEDBD8B4883FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040269   (587067) от 04.08.2016
+
+Near Death (2016) [En] (1.0) Repack Other s
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Near Death – приключенческий экшен на выживание, события которого разворачиваются в Антарктиде на заброшенной научно-исследовательской станции Сутро и ее окрестностях. Вам предстоит выступить в роли пилота, чей самолет потерпел крушение недалеко от станции в разгар смертельной метели, и постараться выжить в условиях критических температур и плохой видимости. Отрезанные (   Читать дальше...   )Тип издания: RepackРазработчик: Orthogonal GamesЖанр: Action, Adventure, 1st Person, IndieЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97F409B1011623BCC534E92855257B4D000C8E70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918751   (585592) от 16.07.2015
+
+AR-K: The Great Escape (2015) [En/Sp] License
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585592.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эпизод 3 серии AR-K. Помогите Алисии Ван Волиш сбежать из Района 8 и обнаружить источник таинственной "Золотой Сферы" в научно-фантастическом приключении, полном тайн, кислотного юмора, веселых испытаний. Погрузитесь в мир игры в классическом жанре "point and click", основанной на истории, написанной юмористом Грегом Ракой.Тип издания: ЛицензияРазработчик: Gato SalvajeЖанр: AdventureЯзык озвучки: Английский, ИспанскийЯзык субтитров: Английский, ИспанскийЯзык интерфейса: Английский, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FF48C3326722500F2457AEA56D4F2B53938B6C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1533185   (585519) от 22.05.2022
 
 Sherlock Holmes Chapter One (2021) [Ru/Multi] (7839_1.4/dlc) License GOG [Deluxe Edition]
@@ -6,7 +84,7 @@ Sherlock Holmes Chapter One (2021) [Ru/Multi] (7839_1.4/dlc) License GOG [Deluxe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585519.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ The Long Dark (2017) [Ru/Multi] (1.49) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585027.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ The Walking Dead: The Final Season (2018) [Ru/Multi] (1.0.0.1) Repack R.G. Catal
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584910.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ The Long Dark Redux (2017) [Ru/Multi] (1.49) SteamRip R.G. Origins [Episode 1-2]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584895.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Lacuna - A Sci-Fi Noir Adventure (2021) [Ru/Multi] (1.3.0.1) License GOG [Save t
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584505.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ LEGO Indiana Jones 2: The Adventure Continues (2010) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583688.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Apartment 666 (2016) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583123.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ LEGO Star Wars - The Complete Saga (2009) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582748.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Campus [Ru] (RePack) 2007 | CCG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582714.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ Niko: Through The Dream (2015) [Ru/En] (1.0) RePack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582549.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ The Subject (2018) [En] (2.0.3) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580050.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ A Plague Tale: Innocence (2019) [Ru/Multi] (1.0.0/dlc) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577392.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ Doorways: Holy Mountains of Flesh (2016) [En/Es] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575853.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ Doorways: Holy Mountains of Flesh (2016) [En/Es] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575843.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ The Long Dark (2017) [Ru/Multi] (1.50) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575733.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ Coffee Talk (2020) [Ru/Multi] (1.48) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573755.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ A Stroke Of Fate 2 / Архивы НКВД: Охота на фюрера. Опе
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572692.jpg" />
 </div>
 
 
@@ -454,7 +532,7 @@ A Stroke Of Fate 2 / Архивы НКВД: Охота на фюрера. Опе
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572315.jpg" />
 </div>
 
 
@@ -484,7 +562,7 @@ Sephonie (2022) [En] (1.0.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571838.jpg" />
 </div>
 
 
@@ -510,7 +588,7 @@ Observation (2019) [Multi] (1.04) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570202.jpg" />
 </div>
 
 
@@ -536,7 +614,7 @@ Silt (2022) [Ru/Multi] (1.0.0.1014) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569919.jpg" />
 </div>
 
 
@@ -562,7 +640,7 @@ Silt (2022) [Ru/Multi] (1.0.0.1014) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569914.jpg" />
 </div>
 
 
@@ -588,7 +666,7 @@ Grim Fandango Remastered (2015) [Ru/En] (1.4.1) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568422.jpg" />
 </div>
 
 
@@ -599,84 +677,6 @@ Grim Fandango Remastered (2015) [Ru/En] (1.4.1) Repack R.G. Механики
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B734BEB234DB0CBF19C13298B77965FB9817501
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303837   (568403) от 23.05.2019
-
-American Fugitive (2019) [Ru/Multi] (1.0) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568403.jpg" />
-</div>
-
-
-###  Подробнее
-
-American Fugitive - классический экшн с открытым миром и изометрическим видом. Основатели компании Fallen Tree Games, разработавшей этот проект, славятся и другими первоклассными детищами: TimeSplitters, Crysis, Black и Goldeneye 007: Reloaded. В тихом городке Рэдрок кипит преступная жизнь. Вы - Уилл Райли. Не ангел, но и не убийца. После обвинения в хладнокровном (   Читать дальше...   )Тип издания: LicenseРазработчик: Fallen Tree Games LtdЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE359AC60D23EEDEB6EC5E6B497F95BE36A09118
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151847   (568346) от 21.07.2017
-
-Gone Home (2013) [Ru/En] (1.02) Repack Other s
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568346.jpg" />
-</div>
-
-
-###  Подробнее
-
-1995 год. Героиня Gome Home возвращается домой, а ее никто не ждет: на двери дома странная прощальная записка, внутри никого нет, да и вообще, похоже, что жизнь покинула это место. Оказавшись в безвыходном положении, девушка решает разобраться, что же произошло с ее семьей.Тип издания: RepackРазработчик: The Fullbright CompanyЖанр: Adventure, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6132D9989E2A0BDAF7D5F6A05AE68E77ABA2544
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304113   (566719) от 24.05.2019
-
-Observation (2019) [Ru/Multi] (1.04) Repack R.G. Catalyst
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566719.jpg" />
-</div>
-
-
-###  Подробнее
-
-Observation - это научно-фантастический триллер, в котором вам предстоит взять на себя роль системы искусственного интеллекта S.A.M. на космической станции и раскрыть тайну событий, произошедших с доктором Эммой Фишер и её командой. Играя за S.A.M., вы будете использовать системы управления станцией, камеры и инструменты, чтобы помочь Эмме понять, что происходит (   Читать дальше...   )Тип издания: RepackРазработчик: No CodeЖанр: Adventure, Sci-fi, Thriller, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:353EA468E50AC3556F6BBA73A57CE0769F3AE36E
 ```
 
 https://mybot314.ru/tekegram_catalog/

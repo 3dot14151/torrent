@@ -1,3 +1,29 @@
+###  Публикация: 959716   (312555) от 26.11.2015
+
+Женевьева Табуи | 20 лет дипломатической борьбы (2005) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312555.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге, на документальной основе, освещаются события, предшествовавшие началу Второй мировой войны, свидетелем которых стала французская журналистка Женевьева Табуи. После присоединения Австрии к Германии сбылись её предсказания, что следующей жертвой Гитлера станет Чехословакия. В 1942 г., уже в США, она издает книгу "Они называли ее Кассандрой". После (   Читать дальше...   )Жанр: Политика, политология, публицистика, мемуарыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03CBD3893FC7D046F9124102768C82075E4A5945
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 960040   (312541) от 26.11.2015
 
 Ивар Калныньш | Моя молодость – СССР (2015) [FB2]
@@ -6,7 +32,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312541.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312417.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312412.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312119.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311859.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311817.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311491.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310927.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310203.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310104.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309989.jpg" />
 </div>
 
 
@@ -302,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309808.jpg" />
 </div>
 
 
@@ -328,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307445.jpg" />
 </div>
 
 
@@ -355,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307378.jpg" />
 </div>
 
 
@@ -382,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307349.jpg" />
 </div>
 
 
@@ -409,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306427.jpg" />
 </div>
 
 
@@ -435,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305457.jpg" />
 </div>
 
 
@@ -461,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305209.jpg" />
 </div>
 
 
@@ -487,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304814.jpg" />
 </div>
 
 
@@ -515,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303548.jpg" />
 </div>
 
 
@@ -541,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303540.jpg" />
 </div>
 
 
@@ -569,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303236.jpg" />
 </div>
 
 
@@ -596,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302949.jpg" />
 </div>
 
 
@@ -624,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302429.jpg" />
 </div>
 
 
@@ -652,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302215.jpg" />
 </div>
 
 
@@ -663,35 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D985F52D02C06C3FD2B6590F8AB8D2C00A5998D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078246   (301919) от 30.11.2016
-
-Арнольд Шварценеггер | Вспомнить все: Моя невероятно правдивая история (2013) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301919.jpg" />
-</div>
-
-
-###  Подробнее
-
-История его жизни уникальна.
-Он родился в голодные годы в маленьком австрийском городке, в семье полицейского, не имея особых перспектив на будущее. А в возрасте двадцати одного года он уже жил в Лос-Анджелесе и носил титул «Мистер Вселенная».
-За пять лет он выучил английский язык и завоевал статус величайшего бодибилдера мира.
-За десять лет он получил университетское (   Читать дальше...   )Жанр: Биографии и МемуарыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D5EA8EC444A15D0BF22ECAFB482B8205436BF99
 ```
 
 https://mybot314.ru/tekegram_catalog/

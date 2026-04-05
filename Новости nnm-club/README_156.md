@@ -1,3 +1,58 @@
+###  Публикация: 671450   (507725) от 30.08.2015
+
+Инструкция по созданию красивых 3D обложек с помощью программы Insofta Cover Commander
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_507725.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создание красивых 3D обложек с помощью программы Insofta Cover Commander
+Все мы не раз видели красивые 3D обложки для книг или дисков. Но как сделать нечто подобное самому? Оказывается очень просто!
+В этой инструкции я пошагово покажу, как создать красивую 3D обложку книги на примере первой попавшейся сканированной картинки:
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932830   (507724) от 30.08.2015
+
+Левша / Southpaw (2015) WEBRip [H.264/720p-LQ] [Line]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507724.jpg" />
+</div>
+
+
+###  Подробнее
+
+У боксера Билли Хоупа все было прекрасно: звание чемпиона, красавица-жена и любимая дочка. Но фортуна отворачивается от него: при трагических обстоятельствах погибает любимая жена, дисквалификация на ринге, нулевые доходы, суд лишает его родительских прав… Хоуп должен отстоять звание чемпиона и вернуть дочь. Есть ли у Хоупа шансы на победу? Все решит его знаменитый (   Читать дальше...   )Производство: США / Escape Artists, Fuqua Films, Riche Productions, The Weinstein CompanyЖанр: Боевик, Криминал, Драма, ТриллерРежиссер: Антуан ФукуаАктеры: Джейк Джилленхол, Рэйчел Макадамс, Наоми Харрис, Форест Уитакер, Кёртис "50 Cent" ДжексонПеревод: Дублированный (чистый звук)Язык субтитров: : АнглийскийПродолжительность: 02:03:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5877A58CFF03812B108402D1C84A00E71E668D12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 932363   (507721) от 30.08.2015
 
 Шпион / Spy (2015) WEB-DLRip [H.264/720p-LQ] [Line]
@@ -6,7 +61,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507721.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ Kholat (2015) [Ru/Multi] (1.01) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507718.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ Nvidia DriverPack v.431.60 RePack by CUTA [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507644.jpg" />
 </div>
 
 
@@ -85,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507633.jpg" />
 </div>
 
 
@@ -111,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507140.jpg" />
 </div>
 
 
@@ -138,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507137.jpg" />
 </div>
 
 
@@ -164,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507013.jpg" />
 </div>
 
 
@@ -191,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506875.jpg" />
 </div>
 
 
@@ -217,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506872.jpg" />
 </div>
 
 
@@ -244,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_506849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_506849.jpg" />
 </div>
 
 
@@ -270,7 +325,7 @@ VIA High Definition Audio Driver 6.0.11.1000 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506781.jpg" />
 </div>
 
 
@@ -296,7 +351,7 @@ AusLogics BoostSpeed 8.0.2.0 RePack (& Portable) by KpoJIuK [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506780.jpg" />
 </div>
 
 
@@ -322,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506773.jpg" />
 </div>
 
 
@@ -348,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506772.jpg" />
 </div>
 
 
@@ -375,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506720.jpg" />
 </div>
 
 
@@ -401,7 +456,7 @@ Adobe Premiere Pro CC 2019 13.1.4.2 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506706.jpg" />
 </div>
 
 
@@ -427,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506174.jpg" />
 </div>
 
 
@@ -454,7 +509,7 @@ Ad Muncher Build 4.93.33707/4210 Final [RePack] + TrialReset v1.3 [Русски�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506058.jpg" />
 </div>
 
 
@@ -482,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506050.jpg" />
 </div>
 
 
@@ -508,7 +563,7 @@ Adobe Audition CS6 5.0 build 708 Portable by Punsh [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506049.jpg" />
 </div>
 
 
@@ -534,7 +589,7 @@ Fallout: New Vegas Ultimate Edition [Ru/En] (Repack/1.4.0.525) 2011 | R.G. Catal
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506045.jpg" />
 </div>
 
 
@@ -564,7 +619,7 @@ Mortal Kombat. Komplete Edition [PS3] [ENG] [PAL] (2012)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506039.jpg" />
 </div>
 
 
@@ -594,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506037.jpg" />
 </div>
 
 
@@ -621,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505983.jpg" />
 </div>
 
 
@@ -633,59 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563064   (505875) от 12.07.2022
-
-XYZ School | Пиксель Арт (2022) WEB-DL [AD] [RU]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пиксель-арт — это техника цифрового рисунка, при которой изображение редактируется на уровне отдельных пикселей. Почему пиксель-арт так популярен у инди-разработчиков? Научиться рисовать пиксель-арт можно быстро, и для этого не нужно быть «традиционным» художником.
-Создавать ассеты и анимации в этой технике можно быстрее и дешевле. Такая графика менее требовательна (   Читать дальше...   )Производство: XYZ SchoolЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 21:52:52Реклама: Присутствуют сторонние вставки и наложения
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DD9C0B7FA09241F5A24327A99DE2A08077338DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933207   (505830) от 01.09.2015
-
-NVIDIA GeForce Desktop 355.82 WHQL + For Notebooks [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505830.jpg" />
-</div>
-
-
-###  Подробнее
-
-NVIDIA GeForce Driver — драйвера для видеокарт производства NVIDIA. Предназначены для видеокарт семейства GeForce, работающих в операционной системе Windows. Унифицированная архитектура драйверов (UDA) гарантирует прямую и обратную совместимость драйверов с различными поколениями графических процессоров NVIDIA, что упрощает процесс замены видеоподсистемы, так как (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A072A74C83FB2801F6311D777A8CFDA2E55685FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

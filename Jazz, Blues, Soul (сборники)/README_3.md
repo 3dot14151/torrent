@@ -6,7 +6,7 @@ VA - Blues Forever vol.01 - vol.04 (2015) [MP3|320 кб/с] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959599.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Blues Forever vol.05 - vol.08 (2015) [MP3|320 кб/с] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959597.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - 50 Jump Blues Classics (2015) [MP3|320 кб/с] <Blues, Rock, Soul>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955958.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Sentimental Blues (2020) [MP3|204-320 Kbps] <Blues, Lyric>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955210.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Blues Forever vol.13 - vol.16 (2015) [MP3|320 кб/с] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954503.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - American Folk Blues (2017) [MP3|320 Kbps] <Folk Blues, Rock Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953523.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Blues Forever vol.17 - vol.20 (2015) [MP3|320 кб/с] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946708.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Smooth & Chilly Valentines (2016) [MP3|320 кб/с] <Smooth Jazz, Lounge>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945471.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Blues Forever vol.21 - vol.24 (2015) [MP3|320 кб/с] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945264.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Jam Jazz: Electro Swing (2017) [MP3|320 Kbps] <Jazz Swing, Electro Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944317.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Blues Forever vol.25 - vol.28 (2015) [MP3|320 кб/с] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943535.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Pat Travers - Travelin' Blues (2020) 2CD Compilation [MP3|320 Kbps] <Blues, Blue
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937738.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Blues Collection (2016) [MP3|320 кб/с] <Blues, Blues-rock, Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936531.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Autour De Minuit - Piano Bar (2012) [MP3|320 кб/с] <Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927727.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Smooth Jazz Lounge (2014) [MP3|320 кб/с] <Instrumental, Smooth Jazz, Lou
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927707.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Autour De Minuit - Saxophone Ballads (2012) [MP3|320 кб/с] <Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927645.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Nu Jazz Electro Swing: 100 Lovers Hot Edition (2017) [MP3|320 Kbps] <Nu Jaz
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927625.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Jazz Electro Swing (2016) [MP3|320 kbps] <Electro Swing Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925904.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - I Put A Spell On You — Mesmerising Jazz (2014) [MP3|320 кб/с] <Jazz,Ja
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925899.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Blues Collection 6 (2017) [MP3|320 Kbps] <Blues, Rock, Folk>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915544.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Songbird Voices Of Romance (2017) [MP3|320 Kbps] <Jazz, Vocal, Easy Listeni
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912393.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Smokin Latin Jazz (2017) [MP3|320 Kbps] <Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905027.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Blues Forever vol.29 - vol.32 (2015) [MP3|320 кб/с] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904090.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Kings Of The Blues (2021) [MP3|320 Kbps] <Blues, Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903772.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Jazz, Relax and Baby. Instrumental Music for Calm Down (2017) [MP3|320 Kbps
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899650.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - The Blues Mystery (2020) [MP3|320 Kbps] <Blues, Rock Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898367.jpg" />
 </div>
 
 

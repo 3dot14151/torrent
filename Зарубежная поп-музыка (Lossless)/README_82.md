@@ -6,7 +6,7 @@ VA - Het Beste Uit De Q Top 1000: Editie (2019), 6CD [FLAC|Lossless|tracks + .cu
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155359.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Run 4 Fun - Please Don't Talk To Jessica (1994) Maxi-Single [APE|Lossless|image 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154538.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Magnus - Best Of (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154351.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ VA - Het Beste Uit De MNM 1000 (2019), 5CD [FLAC|Lossless|tracks + .cue] <Pop Ro
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154103.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Rocío Jurado - Canciones de Am♡ r Love Songs (2012) [FLAC|Lossless|tracks] <L
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153584.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Miley Cyrus - Plastic Hearts (2020) Jараnеsе Еditiоn [FLAC|Lossless|track
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153391.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ VA - Absolute Dance Autumn (2013) 2CD [FLAC|Lossless]<Pop, Dance, Club>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152842.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Tony Hadley (Spandau Ballet) - Christmas Album (2016) Special Edition [FLAC|Loss
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152777.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ VA - RTL Weihnachten (2014) [FLAC|Lossless|WEB-DL|tracks] <Christmas, Pop, Rock,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152689.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Sarah McLachlan - Wonderland (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Folk, Ch
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152588.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ VA - Christmas Pop (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Christmas, Funk & 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152548.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Thomas Anders - Christmas For You (2012) Deluxe Edition [APE|Lossless|image + .c
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152543.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Laura Pausini - Laura Xmas (2016) [FLAC|Lossless|WEB-DL|tracks] <Christmas, Pop,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152526.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ VA - Last Christmas (2012) [FLAC|Lossless|tracks + .cue] <Pop, Pop Rock, Easy Li
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152469.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ John Travolta & Olivia Newton-John - This Christmas (2012) [FLAC|Lossless|WEB-DL
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151735.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Kylie Minogue - Kylie Christmas (2016) Snow Queen Edition [FLAC|Lossless|WEB-DL|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151472.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Lara Fabian - Lockdown Sessions (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150971.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Sam Ryder - Heartland (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150794.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Thomas Anders - …Sings Modern Talking: Romantic Warriors - Thomas' Version (20
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150717.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Thomas Anders - …Sings Modern Talking: Romantic Warriors (2025) [FLAC|Lossless
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150670.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Vaya Con Dios - Shades of Joy (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop-Ja
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150649.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Jerry Vale - Have Yourself a Merry Little Christmas (2003) [FLAC|Lossless|tracks
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149916.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Jewel - Spirit (1998) Deluxe Edition, 2023, Craft Recordings [FLAC|Lossless|WEB-
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149357.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Vanessa Amorosi - Memphis Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149228.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Bryan Ferry - Mamouna (1994) Deluxe, 2023, BMG Rights Management [FLAC 24/44.1|L
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149107.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Thomas Anders & Florian Silbereisen - Alles funkelt! Alles glitzert! (2023) EP [
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149071.jpg" />
 </div>
 
 

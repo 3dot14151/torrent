@@ -6,7 +6,7 @@ Legend of the Guardians: The Owls of Ga'Hoole The Videogame (2010) [Xbox360] [Re
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146477.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Nintendo Land (2012) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [Ru/Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145974.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ New Super Mario Bros. U Deluxe (2019) [Switch] [EUR] 8.1.0 [NSZ] [License] [Ru/M
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145518.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Winter Stars (2011) [PS3] [EUR] 3.72 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144227.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Never Alone / Kisima Ingitchuna (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144128.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ zBookr [PSP] [Ru/Eng] [Homebrew] (2009)
 >>PSP
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143974.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Shantae: Half-Genie Hero (2016) [WiiU] [USA] 5.3.2 [Loadiine GX2] [eShop] [En]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143769.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Octodad: Dadliest Catch (2014) [PSVita] [USA] 3.60 [NoNpDrm] [License] [Ru/En]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143206.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Knock-Knock / Тук-Тук-Тук (2016) [PSVita] [EUR] 3.60 [NoNpDrm] [License
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143156.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Far Cry 6 Game of the Year Edition (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.12
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140984.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Winter Sports 2011: Go for Gold (2010) [PS3] [EUR] 3.50 [Cobra ODE / E3 ODE PRO 
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140582.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Men in Black: Alien Crisis (2012) [Xbox360] [RegionFree] FreeBoot [License] [En]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140383.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Super Mario Maker for Nintendo 3DS (2016) [3DS] [EUR] 10.7 [CIA] [License / 1.02
 >>Другие приставки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139776.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Drakengard 3 (2014) [PS3] [EUR] 3.41 [CFW / HEN] [Repack / 1.01 / DLC] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138664.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Ninja Gaiden Sigma Plus (2012) [PSVita] [EUR] [HENkaku] [Unofficial] [Ru] | R.G.
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137705.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Ninja Gaiden Sigma 2 Plus (2013) [PSVita] [USA] [HENkaku] [Unofficial] [Ru]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137563.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ LEGO Star Wars: The Force Awakens (2016) [PSVita] [EUR] 3.60 [NoNpDRM] [License]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137341.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Saints Row: The Third Remastered (2020) [PS4] [EUR] 5.05 [HEN] [License] [Ru/Mul
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136604.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Need for Speed: Heat Deluxe Edition (2019) [PS4] [EUR] 5.05 [HEN] [License / 1.0
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136569.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Mega Man Powered Up [PSP] [ENG] (2006)
 >>PSP
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136311.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ NullDC 1.0.4 r141 + BIOS + VMU [English] (2012) [Dreamcast]
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135140.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Borderlands 3 Ultimate edition (2023) [Switch] [USA] 16.1.0 [NSP] [License / 1.0
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134679.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Record of Lodoss War [Dreamcast] [PAL] [RUS] [CDI] (2001)
 >>Другие приставки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134341.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Minecraft Dungeons (2020) [Switch] [USA] 10.2.0 [NSZ] [License / 1.17.0.0 / DLC]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133982.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Nights Into Dreams [PS3] [USA] CFW 4.84 [Repack] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132551.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Ultimate Band [Wii] [PAL] [Multi 6] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132528.jpg" />
 </div>
 
 

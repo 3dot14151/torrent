@@ -1,3 +1,32 @@
+###  Публикация: 1833982   (248555) от 03.11.2025
+
+Aranda - Four0Five Sessions (2025) [MP3|320 Kbps] <Alternative-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waiting On A Sign (2:50)
+02. Blamin' You (3:49)
+03. Superficial Girl (4:06)
+04. Another Day (4:41)(   Читать дальше...   )Жанр: Alternative-RockПродолжительность: 00:41:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AA27F88A62DFD20F7781BBC1E61158D1D761756
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1833288   (248553) от 03.11.2025
 
 Biohazard - Divided We Fall (2025) [MP3|320 Kbps] <Rapcore, Hardcore, Crossover>
@@ -6,7 +35,7 @@ Biohazard - Divided We Fall (2025) [MP3|320 Kbps] <Rapcore, Hardcore, Crossover>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248553.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Avatar - Don’t Go In The Forest (2025) [MP3|320 Kbps] <Modern-Metal, Groove-Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248551.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Fallen Lillies - Cran (2025) [MP3|320 Kbps] <Glam Metal, Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248549.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Moonspell - Opus Diabolicum - The Orchestral Live Show (Live) (2025) [MP3|320 Kb
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248548.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Jane Air - 9 (2025) [MP3|320 Kbps] <Alternative>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248547.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - The Best Metal Duets (2011) [MP3|320 кб/с]<Gothic Rock, Rock, Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248465.jpg" />
 </div>
 
 
@@ -186,7 +215,7 @@ John Lindberg Trio - Hell Of A Ride (2012) [MP3|~245 кб/с (V0)]<Rockabilly, R
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248421.jpg" />
 </div>
 
 
@@ -221,7 +250,7 @@ VA - Gothic Romance vol.1-4 (The Best Goth Love Songs) (2009-2011) [MP3|151-320 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248260.jpg" />
 </div>
 
 
@@ -247,7 +276,7 @@ Russ Diapper - Kingsnake (2012) [MP3|~225 кб/с (V1)]<Hard Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248170.jpg" />
 </div>
 
 
@@ -282,7 +311,7 @@ Alan Simon - Excalibur III - The Origins (2012) [MP3|320 кб/с]<Folk, Rock, Ce
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247916.jpg" />
 </div>
 
 
@@ -317,7 +346,7 @@ Fallen Lillies - Cran (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Glam Metal, 
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247906.jpg" />
 </div>
 
 
@@ -346,7 +375,7 @@ Windhand - Windhand (2012) [MP3|320 кб/с]<Stoner Doom>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247850.jpg" />
 </div>
 
 
@@ -376,7 +405,7 @@ De Lirium’s Order - Veniversum (2012) [MP3|320 кб/с]<Technical Death>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247840.jpg" />
 </div>
 
 
@@ -405,7 +434,7 @@ Bad Rain - Louder Than Words (2025) [FLAC|Lossless|WEB-DL|tracks] <Modern Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247823.jpg" />
 </div>
 
 
@@ -434,7 +463,7 @@ The Vazeline - Кризис Кроссоверов (2025) [MP3|320 Kbps] <Punk r
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247815.jpg" />
 </div>
 
 
@@ -463,7 +492,7 @@ Wiltwither - Pure Light (2025) [FLAC|Lossless|WEB-DL|tracks] <Chaotic Hardcore, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247790.jpg" />
 </div>
 
 
@@ -492,7 +521,7 @@ The Other - Alienated (2025) [FLAC|Lossless|WEB-DL|tracks] <Horror Punk, Heavy M
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247788.jpg" />
 </div>
 
 
@@ -521,7 +550,7 @@ Extreme - 10 Albums, 8 EP & Singles (1989 - 2023) (27 CD)[FLAC|Lossless|image + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247295.jpg" />
 </div>
 
 
@@ -550,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246994.jpg" />
 </div>
 
 
@@ -579,7 +608,7 @@ Godgory - 4 альбома (1996-2001) [FLAC|Lossless]<Doom Metal, Melodic Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_246481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_246481.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ Bud Spencer - People Are Curious But From The Outside (2012) [MP3|320 кб/с]<P
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246480.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Acheode - Anxiety (2012) [MP3|320 кб/с]<Technical Death / Mathcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246453.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Harkon - Love And Vore (2025) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246224.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Downswing - And Everything Was Dark (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246183.jpg" />
 </div>
 
 
@@ -731,7 +760,7 @@ Biohazard - Divided We Fall (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rapcore,
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246180.jpg" />
 </div>
 
 
@@ -745,35 +774,6 @@ Biohazard - Divided We Fall (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rapcore,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E8A876D420278065648893FC942576FDB978D53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833256   (246177) от 01.11.2025
-
-Mammoth - The End (2025) [FLAC 24/44.1|Lossless|WEB-DL] <Modern Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi Res)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246177.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Of A Kind (5:29)
-02. The End (3:33)
-03. Same Old Song (4:07)
-04. The Spell (3:29)(   Читать дальше...   )Жанр: Modern Hard RockПродолжительность: 00:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA8739985EA7EC21163EF17C0EF35555DBEC1EF7
 ```
 
 https://mybot314.ru/tekegram_catalog/

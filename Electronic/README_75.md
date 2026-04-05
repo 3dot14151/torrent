@@ -1,3 +1,61 @@
+###  Публикация: 1366283   (924132) от 11.03.2020
+
+VA - Sirup Miami 2020 [MP3|320 Kbps] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Funk Machine - In My Arms [03:00]
+02. Sons Of Maria - Empires [02:57]
+03. ilMuro - Lost [03:14]
+04. The Giver - Do It [03:12](   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 01:40:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:289B6EFD910A3A9BB6BD8B5E1344341A16E3DC9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366284   (924129) от 11.03.2020
+
+VA - Machine Prototype 12 (2019) [MP3|320 Kbps] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daniel Hecke - Acid (Joe De Renzo Remix) [06:34]
+02. Callibry - Bubbles (Instrumental Mix) [05:33]
+03. Mountain P - The Groove (Miguel Serrano Remix) [06:35]
+04. Simone Cerquiglini - Inside The Box (Jack Liberto Remix) [05:32](   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 03:45:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E5E6781A1CD5B87F7C6D72B4DA07819C4DDCE34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366447   (924127) от 11.03.2020
 
 Rob Clouth - Zero Point (2020) Mesh [FLAC|Lossless|WEB-DL|tracks] <Experimental, IDM, Ambient>
@@ -6,7 +64,7 @@ Rob Clouth - Zero Point (2020) Mesh [FLAC|Lossless|WEB-DL|tracks] <Experimental,
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924127.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Seiji Takahashi - снег (2020) str012 [FLAC|Lossless|tracks+.cue] <Ambient, M
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924124.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Nils Hoffmann - Once in a Blue Moon (2020) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924122.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Machine Prototype 13 (2020) [MP3|320 Kbps] <House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924121.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Eric "The" Taylor - The Guidance Of Ancestry (2019) Touched Music [FLAC 2.0|44.1
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923962.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Aviators - The Cinematic Future (2020) [MP3|~278 Kbps (V0)] <Synthpop, Alternati
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923902.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Goa - The Power of Shiva, Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923901.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Transponder - Terminae Space (2021) Exosphere [FLAC 2.0|44.1/24|tracks|WEB-DL] <
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923846.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Martin Sturtzer - The Stellar Winds (2021) Echo Elberfeld [FLAC 2.0|44.1/24|trac
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923838.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Vajra (Compiled by Josko) (2006) Indica Music [FLAC|Lossless|tracks+.cue] <
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923748.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Junkie XL - The Racing Collection (2018) [MP3|320 кб/с] <Electronic, Breakbea
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923737.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Hollan Holmes - Discography 7 Releases (2010-2020) [FLAC|Lossless|WEB-DL|tracks]
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923694.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ As One (Kirk Degiorgio) - Discography 21 Releases (1994-2020) New Electronica, C
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923675.jpg" />
 </div>
 
 
@@ -382,7 +440,7 @@ pl8 - Discography 7 Releases (2019-2021) opn g8s [FLAC|Lossless|WEB-DL|tracks] <
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923578.jpg" />
 </div>
 
 
@@ -411,7 +469,7 @@ Bionika Records | Deepfono Ground - Label-Pack 18 Releases (2017-2020) Parent: T
 >>Label-Packs
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923476.jpg" />
 </div>
 
 
@@ -439,7 +497,7 @@ VA - Redux Presents: The Uplifting Selection Vol.1 (2017) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922879.jpg" />
 </div>
 
 
@@ -468,7 +526,7 @@ VA - Recoverworld Radio 005 (Mixed by Rich Smith) (2016) [MP3|320 кб/с] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922878.jpg" />
 </div>
 
 
@@ -497,7 +555,7 @@ VA - Black Hole House Music 01-17 (2017) [MP3|320 Kbps] <House, Progressive, Voc
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922877.jpg" />
 </div>
 
 
@@ -526,7 +584,7 @@ VA - Techno 2007 - The Best (2007) 2CD, Compilation [FLAC|Lossless|tracks + .cue
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922872.jpg" />
 </div>
 
 
@@ -555,7 +613,7 @@ VA - Parquet Goodies 2016 (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Prog
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922818.jpg" />
 </div>
 
 
@@ -584,7 +642,7 @@ VA - Only Chillout Vol. 03 (Compiled & Mixed By Seven24) (2016) [MP3|320 кб/с
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922815.jpg" />
 </div>
 
 
@@ -613,7 +671,7 @@ Portico - Living Fields (2015) Ninja Tune [FLAC|Lossless|WEB-DL|tracks] <Downtem
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922773.jpg" />
 </div>
 
 
@@ -642,7 +700,7 @@ VA - Aria Selections Class Of 2016 (Mixed by David Forbes) (2017) [MP3|320 Kbps]
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922764.jpg" />
 </div>
 
 
@@ -671,7 +729,7 @@ End.user - Enter to Exit (2016) Hands Productions [FLAC|Lossless|tracks+.cue] <D
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922735.jpg" />
 </div>
 
 
@@ -685,64 +743,6 @@ End.user - Enter to Exit (2016) Hands Productions [FLAC|Lossless|tracks+.cue] <D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F69C2DA56BA4B08E6BDBB379EA2822240362AFCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987405   (922723) от 19.02.2016
-
-Trademarks & Copyrights - Marble Girls (2016) [FLAC|Lossless|WEB-DL|tracks] <Vaporwave, Chillout, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marble Girls (5:47)
-02. 正当な (1:41)
-03. Together Tonight (2:23)
-04. キス (2:01)(   Читать дальше...   )Жанр: Vaporwave, Chillout, LoungeПродолжительность: 00:34:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:338ABD6FB423DBBCF433EDA870C5BE0079239E1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988064   (922718) от 19.02.2016
-
-Markus Schulz - City Series Collection (2016) [MP3|320 кб/с] <Progressive Trance, Progressive House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz – Bayfront (Miami) (6:18)
-02. Markus Schulz & Tom Boxer – Bine Facut (Bucharest) (5:41)
-03. Markus Schulz – Golden Gate (San Francisco) (4:53)
-04. Markus Schulz – This Generation (Indio) (5:56)(   Читать дальше...   )Жанр: Progressive Trance, Progressive HouseПродолжительность: 01:16:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EDAFAFF4B3037BFC5417FD1B6FC619F0EBA2334
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1782410   (14130) от 19.06.2025
+
+At Dead Of Night (2020) [Ru/Multi] (Build 14844637) Repack EXROW
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14130.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы играете за Майю, студентку, застрявшую в провинциальном отеле, которым управляет психопат по имени Джимми Холл. Джимми связал друзей Майи и запер их в номерах с неизвестными недобрыми намерениями. Майе удалось сбежать, но Джимми охотится за ней. Чтобы освободить своих друзей, Майя должна раскрыть страшную тайну Джимми. Используя древний призрачный голосовой приемник, (   Читать дальше...   )Тип издания: RepackРазработчик: Baggy Cat LimitedЖанр: Экшены, Инди, Ролевые игры, СтратегииЯзык озвучки: РусскийЯзык субтитров: Русский, Английский, Испанский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Испанский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5507E60C851DDE6417A960BA6346034387AB974
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802820   (14108) от 19.06.2025
+
+Labyrinth of the Demon King (2025) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Labyrinth of the Demon King - это вызывающе сложный данжен-кроулер от первого лица, действие которого происходит в осажденной демонами феодальной Японии. В роли одинокого солдата вам предстоит найти и уничтожить Короля демонов, который убил вашего господина. Хватит ли у вас навыков, ресурсов и выносливости, чтобы пережить все ужасы, которые подкинет вам этот жестокий (   Читать дальше...   )Тип издания: RepackРазработчик: J. R. HudepohlЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Японский, Китайский (упрощенный) и другиеЯзык интерфейса: Русский, Английский, Японский, Китайский (упрощенный) и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEB5BD7E773E8EB78DBD0535D792015A887D7DAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802771   (14101) от 19.06.2025
+
+Gloom: System Breach (2025) [Multi] (1.0.7) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14101.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключенческий научно-фантастический 3D-экшен, в котором игрок берет на себя роль маленького робота, управляемого с видом от третьего лица. Мы просыпаемся в неработающей системе, помогаем привести ее в действие, активируя отдельные системы, и сражаемся с противниками, защищающими необходимые детали. Основная механика заключается в борьбе с противниками, сборе электронных (   Читать дальше...   )Тип издания: RepackРазработчик: MudPie StudioЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C084FE962E78D86502A7A7BAF4E374DA61AE82D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802736   (14091) от 19.06.2025
 
 Kulebra and the Souls of Limbo (2025) [Multi] (1.0.13) Repack FitGirl [Deluxe Edition]
@@ -6,7 +84,7 @@ Kulebra and the Souls of Limbo (2025) [Multi] (1.0.13) Repack FitGirl [Deluxe Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14091.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Still Wakes the Deep (2024) [Ru/Multi] (1.5/dlc) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14084.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Dreams in the Witch House (2023) [En] (1.08) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13967.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Riven (2024) [Ru/Multi] (1.7.4) License GOG [The Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13964.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Monster Prom 3: Monster Roadtrip (2022) [En] (2.17.a/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13961.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Firmament (2023) [Ru/Multi] (2.0.9) License GOG [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13958.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Cultist Simulator (2018) [Ru/Multi] (2025.4.e.6/dlc) License GOG [Anthology Edit
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13955.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Nine Sols (2024) [Ru/Multi] (202503101827.5035232c.0) Repack EXROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13907.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Voyage: Journey to the Moon (2005) [Multi] (1.04) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13874.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Pools (2024) [Ru/Multi] (17.06.2025) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13844.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Brownie's Adventure (2024) [En] (8.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13818.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Castle of Secrets (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13783.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Post Trauma (2025) [Multi] (1.04) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13704.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Five Nights at Freddy's: Secret of the Mimic (2025) [Ru/Multi] (1.0.20250616_210
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13654.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Once Upon A Puppet (2025) [Ru/Multi] (2.14.4.1/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13611.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Burnhouse Lane (2022) [Ru/Multi] (1.4.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13605.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Downfall: A Horror Adventure Game / Downfall: История в стиле хо�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13598.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Sorry We're Closed (2024) [Multi] (1.0.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13529.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Near-Mage (2025) [Ru/Multi] (1.1.4/dlc) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13512.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Breach : 83 (2025) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13486.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Afterlove EP (2025) [Multi] (1.0.21) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13478.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Dustborn (2024) [Ru/Multi] (1.14/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13392.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Little Nightmares: Enhanced Edition (2025) [Ru/Multi] (BuildID 18639334) Repack 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13338.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Little Nightmares: Enhanced Edition (2025) [Ru/Multi] (BuildID 18639334) Repack 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:165A25884F2ED24C1CE6851457CE086C7981D329
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567130   (13335) от 27.06.2025
-
-Escape from the 70's (2022) [Ru/En] (Build 8771485) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13335.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой совсем небольшой игре Escape from the 70's вам необходимо выбраться из СССР 70-х годов в наши дни, путём поисков подсказок и решения задач. Атмосферная головоломка, поиск предметов в 3D формате. Игровое окружение восстановлено с фотографий 70х годов.Тип издания: RepackРазработчик: MadIdeaX gamesЖанр: Adventure, Puzzle, 3DЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABA10AE07CEB6108D7BF65994EC195F80200AE57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413528   (13328) от 27.06.2025
-
-Silent Hill 4: The Room (2004) [Multi] (1.0) License GOG
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13328.jpg" />
-</div>
-
-
-###  Подробнее
-
-Генри Таунсенд оказался заперт в собственной квартире с единственным выходом — таинственным порталом, ведущим в чудовищную альтернативную реальность. За каждым поворотом его ждут отвратительные видения, грозящие помутнением рассудка. Он должен выбраться из этого кошмара. Вас ждет «Комната», легендарная глава самой жуткой игры всех времен.Тип издания: LicenseРазработчик: Team SilentЖанр: Приключение, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71775D3CB8A43E753627BF14AA33EC51354E182F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804067   (13312) от 27.06.2025
-
-Gex Trilogy: Gex, Enter the Gecko, Deep Cover Gecko (2025) [Multi] (1.1) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13312.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всеми любимый геккон, виляющий хвостом и переключающий каналы, возвращается в коллекции, включающей все его самые продаваемые приключения! Врываясь в современную эпоху, как профессиональный рестлер с верхней канатной дороги, - это GEX! Быстро говорящий геккон, который не хочет продавать вам страховку! Все верно, величайший игровой герой 1990-х вернулся в 2020-е годы (   Читать дальше...   )Тип издания: LicenseРазработчик: Limited Run Games, Crystal DynamicsЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABEDD68B556B779A4AEA5E2DC2B60071F20D5B9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1466328   (1018618) от 29.04.2021
+
+VA - E-Dance: Clubbing Electro House (Vol.02) (2021) [MP3|320 Kbps] <Club, Dance, House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отличная подборка клубной музыки для любителей помассировать себе мозги и уши! Нестандартный и креативный подход в написании композиций авторами, наполненность атмосферой, и клубным грувом делают лонгплей интересным для прослушивания.001. Teknova - Johnny's Song
+002. Marcosd - Follow Me On Sky
+003. Gian3ro - I Wanna Dance
+004. Eklypt - Take My Hand(   Читать дальше...   )Жанр: Club, Dance, House, ElectroПродолжительность: 09:14:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D84D69E1B59471446D6C6AA0B678E8289B46C0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466869   (1018105) от 02.05.2021
+
+VA - EDC Radio: Beat Dance Set (2021) [MP3|320 Kbps] <EDM, Dance, House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот микс изначально нацелен на клубный драйв, нежели на прослушивание в наушниках дома за чашкой кофе. Однозначно, придется по вкусу любителям заводных ритмов и тем, кто до без ума от воскресных тусовок.001. Relanium - Home Alone
+002. Munez - Tonight
+003. Stompy & Eazyvibe - I Just Wanna Party
+004. Laconic - Laconic & Deanna(   Читать дальше...   )Жанр: EDM, Dance, House, ElectroПродолжительность: 08:02:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:337E473D7DBB835689DF3170B9A47075A7892D76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1466866   (1018101) от 02.05.2021
 
 VA - Electropop Dance Party (2021) [MP3|320 Kbps] <Pop Dance, Electropop>
@@ -6,7 +64,7 @@ VA - Electropop Dance Party (2021) [MP3|320 Kbps] <Pop Dance, Electropop>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018101.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Deep House: Luxe Mood Electro Sound (2021) [MP3|320 Kbps] <Deep House, Elec
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018090.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Record Super Chart 01.05.2021 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018078.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Beatport Deep House: Sound Pack #280 (2021) [MP3|320 Kbps] <Deep House, Ele
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016781.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Record Super Chart 08.05.2021 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016768.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Top 100 Euphoric Trance (2021) [MP3|320 Kbps] <Trance, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016749.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ TOP 40 PromoDJ Май 2021 (2021) [MP3|320 Kbps] <EDM, Dance, Electro, Pop, Tran
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016576.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Beatport Techno Electronic: Sound Pack #281 (2021) [MP3|320 Kbps] <Techno, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016307.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Trance Music Collections 2021 (2021) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016303.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Deep Is The Breath: Chill House Music (2021) [MP3|320 Kbps] <Chill House, D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016291.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Beatport Electro House: Sound Pack #282 (2021) [MP3|320 Kbps] <House, Elect
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015331.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Watercolor Sound: Relax Chillout Music (2021) [MP3|320 Kbps] <Ambient, Down
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015318.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Discohustle (2CD) (2021) [MP3|320 Kbps] <Disco House, Funky House, Nu Disco
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015317.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - The Bassline Jungle Party (2021) [MP3|320 Kbps] <Drum & Bass, Bassline, Jun
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015163.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Deep In Chill House (2021) [MP3|320 Kbps] <Chillout, Deep House, Chill Hous
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015153.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Spring Break: Funky House Disco Set (2021) [MP3|320 Kbps] <Funky House, Dis
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014996.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - The Event Bar: Deep House Master Mix (2021) [MP3|320 Kbps] <Deep House, Tec
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014985.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Beatport Techno: Electro Sound Pack #286 (2021) [MP3|320 Kbps] <Techno, Tec
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014236.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Perfect Moment (Epic Trance Classics) (2021) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014233.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Balearic Dawn (2021) [MP3|320 Kbps] <Chillout, Ambient, Downtempo, Relax>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014231.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Options Remake 125 Tracks New May (2021) [MP3|320 Kbps] <Funky, Soulful, Pr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014139.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Beatport Clubbing House: Electro Sound Pack #283 (2021) [MP3|320 Kbps] <Clu
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014058.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Trance Hypnotica (2021) [MP3|320 Kbps] <Trance, Electro, Progressive>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014057.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - The Flower Of Love 12 (2021) [MP3|320 Kbps] <Electronic, House, Progressive
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014049.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - The Flower Of Love 12 (2021) [MP3|320 Kbps] <Electronic, House, Progressive
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73A1EB115E6F8ACC67DFD9DD7C527DF2B0D9A3ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472871   (1014021) от 27.05.2021
-
-VA - 90S Clubsounds The Top of German Techno (2021) [MP3|320 Kbps] <Hard Trance, Dancecore, Techno, Hardstyle>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kai Macid - The First Rebirth
-02. DJ Dream Boy - Sun Singing (Choir Edit)
-03. Autograph - Ready To Flow
-04. The Zanza - Hardpusher (Maday Remix)(   Читать дальше...   )Жанр: Hard Trance, Dancecore, Techno, HardstyleПродолжительность: 04:36:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:799553CB90AC16871364C716AEF99FE589CFBB9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472891   (1014020) от 27.05.2021
-
-VA - Deep Is The Breath (Vol.02) (2021) [MP3|320 Kbps] <Deep House, Chill House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014020.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Joe Goddard - Workin'
-002. Jt Donaldson - Ixelles
-003. Nightwave - Sadhana
-004. Rio Soldierman - Dancing And Clapping(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 12:33:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00ADCC101EEFA82838BEB66BADB247CB81AFA870
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1586496   (211293) от 27.10.2022
+
+Deer Avenger / Олень-мститель (1.0/2.0/3.0/4.0) (1998—2001) [En] License [Антология]
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211293.jpg" />
+</div>
+
+
+###  Подробнее
+
+В The Incredible Machine: Even More Contraptions игровой процесс идентичен The Return of the Incredible Machine: Contraptions. Игра содержит 250 головоломок (хотя 50 обучающих головоломок идентичны тем, что были в предыдущей игре).Тип издания: LicenseРазработчик: Hypnotix, Inc.Жанр: Action (Shooter)Язык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AF0F026FB4E370F50EE8E0964D903B3BDB06098
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567698   (211176) от 04.08.2022
+
+Kane & Lynch 2: Dog Days (2010) [Ru/Multi] (1.2/dlc) License GOG [Complete Edition]
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211176.jpg" />
+</div>
+
+
+###  Подробнее
+
+Грязные улочки Шанхая – отличное местечко, чтобы забыть о кровавом угаре. Десять баксов, девочка под боком, и ты король мира. Но когда приезжает старый друг, все это ни черта не значит. И страсть как охота посидеть, вспомнить былые деньки – но на горизонте новые проблемы. А вот решать их придется по старинке. Ведь когда подонки зажимают в угол, так и тянет достать (   Читать дальше...   )Тип издания: LicenseРазработчик: IO InteractiveЖанр: 3rd Person, Action, ShooterЯзык озвучки: Русский (отдельно), Английский, Французский, Испанский и другиеЯзык субтитров: Русский (отдельно), Английский, Французский, Испанский и другиеЯзык интерфейса: Русский (отдельно), Английский, Французский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:200670039482D6F49EF97CD314622E4CD49E8599
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1643152   (210208) от 30.06.2023
 
 Aus dem Leben eines Diebes / Из жизни вора (2012) [Ru/De] (1.1) Mod
@@ -6,7 +58,7 @@ Aus dem Leben eines Diebes / Из жизни вора (2012) [Ru/De] (1.1) Mod
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210208.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ CyClones (1994) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210041.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Dark Reign + Expansion (1997) [En] (1.4hotfix/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209951.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Transport Giant (2004) [Ru/Multi] (2.30) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209502.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Silent Hunter 5: Battle of the Atlantic (2010) [En] (1.2) License ViTALiTY
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209447.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ The Legend of Kyrandia - Book One (1992) [Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209314.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Strike Commander (1993) [En] (1.0) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208889.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Driver: Parallel Lines (2007) [Multi] (1.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208740.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ The Manhole (1994) [En] (2.0.0.5) License GOG [Masterpiece Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208506.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Arsenal of Democracy: A Hearts of Iron Game (2010) [Ru/Multi] (1.12) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208248.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Spells of Gold / Заклятие (2002) [Ru/En] (1.042) Repack/Mod Foxx164
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207954.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Hotel Giant (2002) [Multi] (1.0.0.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207895.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Star General (1996) [Multi] (1.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207750.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Twinsen's Little Big Adventure 2 Classic (1997) [Multi] (3.2.4.3/dlc) License GO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207645.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Industry Giant (1997) [En] (1.0.0.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207598.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Die Wilden Kerle 5: Hinter dem Horizont / Тайна заброшенной фа
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207448.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Bandits: Phoenix Rising / Бандиты: Безумный Маркс (2002) [Ru
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207047.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Secret Agent (1992) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206971.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Search & Rescue 4: Coastal Heroes / Служба Спасения: Берего�
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206956.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Warhammer 40 000: Chaos Gate (1998) [Ru] (1.2 Hotfix 3) Repack Other s
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206554.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Styrateg / Западная граница (2006) [Ru] (1.0) License
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206060.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Shadow Flare (2002) [En] (1.0) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206016.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Heroes Chronicles: All Chapters (2000) [En] (1.0 v2) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205681.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ BorderZone / Пограничье (2005) [Ru/En] (1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205214.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ BorderZone / Пограничье (2005) [Ru/En] (1.1) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E5345CAAFB3D97FBA5FEE09E010F6B583574017
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585623   (204741) от 26.10.2022
-
-Wolfenstein: Enemy Territory (2003) [En] (1.0RC1) License GOG
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wolfenstein: Enemy Territory - это бесплатный многопользовательский шутер от первого лица о Второй мировой войне. В игре могут участвовать до 32 игроков. Выберите Ось или союзников и сражайтесь на шести картах, основанных на реальных местах сражений. Играйте за один из пяти уникальных классов (инженер, медик, солдат, полевой оперативник и тайный оперативник), работая (   Читать дальше...   )Тип издания: LicenseРазработчик: Splash DamageЖанр: Шутеры, От первого лица, ИсторическаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C718F7CF8DC5B0109289861B047C4E12651BC27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586664   (204709) от 27.10.2022
-
-Railroad Tycoon 3 / Железнодорожный магнат (2003) [Ru] (1.06/dlc) Repack R.G. SteamGames
-
->>Win Старые Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многотрудный и извилистый железнодорожный путь пронизывает пространство и время: проходит по обеим Америкам, объединяет Европу и Азию, доходит до самой Японии и устремляется в недалёкое будущее с его глобальными катаклизмами, новыми цивилизациями и проектом по озеленению Гренландии.Тип издания: RepackРазработчик: PopTop SoftwareЖанр: trategy (Manage, Busin., Real-time), 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F09F9BD5F75396AE9DBB220C1410B6DE252696E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

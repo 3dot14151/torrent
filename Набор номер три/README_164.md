@@ -1,3 +1,160 @@
+###  Публикация: 1503037   (822567) от 17.10.2021
+
+Этика беспилотников: как нельзя кодировать мораль
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кого должен сбить беспилотный автомобиль в безвыходной аварийной ситуации — пожилого человека или беременную женщину? Ребенка с собакой или кого-то похожего на воришку? Или врезаться в бетонное ограждение, чтобы спасти пешеходов, но рискнуть пассажиром? Примерно такие вопросы возникают в публичных обсуждениях, когда речь заходит об этике беспилотных автомобилей. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007250   (822465) от 14.04.2016
+
+Российские правообладатели пожаловались Google на Telegram
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822465.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во вторник, 12 апреля, в Роскомнадзоре в рамках семинара прошла первая встреча правообладателей с представителями Google. Правообладатели выразили обеспокоенность появлением в приложениях для обмена сообщениями ботов, распространяющих пиратский контент, и попросили компанию оперативнее реагировать на жалобы.Самые большие претензии были предъявлены мессенджеру Telegram, сообщает издание «Известия». В качестве примера правообладатели привели заблокированный на территории России торрент-трекер, к которому без труда можно получить доступ через Telegram.
+ (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007416   (822459) от 14.04.2016
+
+Kaspersky Reset Trial 5.1.0.21 [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kaspersky Reset Trial - Программа для сброса триала (для многократного использования пробного периода активации) антивирусных продуктов ЛК. KRT сбрасывает триал мгновенно на всех продуктах ЛК, заявленных в программе. По поводу детекта от ЛК - вредоносного ПО в оригинальной версии KRT никогда не было, нет и не будет. Таким способом ЛК защищает свои продукты, присваивая (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A5E615BACE004BE728338F3A7EC8C030936F89F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007289   (822447) от 14.04.2016
+
+Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4366.1000 VL (x86) RePack by SPecialiST v16.4 [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822447.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office 2016 хорошо демонстрирует, как сегодня изменился сам подход к созданию документов и совместной работе с ними. Многие из нас начинают работу на одном компьютере, продолжают её на другом, а демонстрируют на третьем, попутно успевая вносить мелкие правки за ноутбуком, на планшете или даже смартфоне. Поэтому Office 2016 постарались сделать концептуально (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB67ECDC8068295B4C628CEB0302DF4CCBAA8119
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007026   (822443) от 14.04.2016
+
+Дедушка легкого поведения / Dirty Grandpa (2016) WEBRip [H.264/720p-LQ] [Line]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822443.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джейсон, покладистый правильный парень, накануне свадьбы вляпывается в увеселительную поездку к морю со своим дедом, отставным генералом с легким нравом, бурной фантазией и вполне определенными потребностями… И, похоже, дедские каникулы изменят жизнь Джейсона навсегда!Производство: США, Lionsgate, QED International, Josephson EntertainmentЖанр: КомедияРежиссер: Дэн МазерАктеры: Роберт Де Ниро, Зак Эфрон, Зои Дойч, Обри Плаза, Джейсон Манцукас, Дермот Малруни, Джулианна Хаф, Джеффри Бауэр-Чепман, Брэндон Майкал Смит, Джейк ПикингПеревод: Дублированный (Чистый звук)Продолжительность: 01:40:54Реклама: Присутствуют вставки голосовой и текстовой рекламы!
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35B135D670BBDA97AEC317F835D931ABECF4E033
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999556   (822442) от 14.04.2016
+
+Polaris Sector (2016) [Ru/Multi] (1.03с) License CODEX
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822442.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра представляет из себя полномасштабную космическую 4X-стратегия, с акцентом на космических кораблях и космических сражениях.Тип издания: LicenseРазработчик: SoftWarWareЖанр: Grand Strategy, Turn-BasedЯзык озвучки: -/-Язык субтитров: Русский, Английский, ИспанскийЯзык интерфейса: Русский, Английский, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA221EF1DDAEEEEBEA42631604EA477A4A7FDBD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1503056   (822422) от 17.10.2021
 
 Дюна / Dune (2021) HDRip [H.264/1080p] [EN / EN Sub] [PR]
@@ -6,7 +163,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822422.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822405.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ StarCraft + BroodWar FULL/Звёздное ремесло + Война выво�
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_822277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822277.jpg" />
 </div>
 
 
@@ -84,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_822231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822231.jpg" />
 </div>
 
 
@@ -111,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_822144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_822144.jpg" />
 </div>
 
 
@@ -137,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_822100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_822100.jpg" />
 </div>
 
 
@@ -163,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_822031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822031.jpg" />
 </div>
 
 
@@ -189,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_822000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_822000.jpg" />
 </div>
 
 
@@ -215,7 +372,7 @@ USB-boot Flash Release by StartSoft 70-2017 Final [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821994.jpg" />
 </div>
 
 
@@ -241,7 +398,7 @@ Bulletstorm (2017) [Ru/Multi] (1.1.12212.0/upd2/dlc) Repack =nemos= [Full Clip E
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821993.jpg" />
 </div>
 
 
@@ -267,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821991.jpg" />
 </div>
 
 
@@ -293,7 +450,7 @@ BioShock Remastered (2016) [Ru] (1.0.122872/upd3) Repack =nemos=
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821987.jpg" />
 </div>
 
 
@@ -319,7 +476,7 @@ Mass Effect 2 (2010) [Ru/En] (1.2/dlc) Repack Other s [Digital Deluxe Edition]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821986.jpg" />
 </div>
 
 
@@ -345,7 +502,7 @@ Grand Theft Auto V - Redux (2015) [Ru/En] (1.0.1180.1/1.41) Repack =nemos=
 >>17
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821985.jpg" />
 </div>
 
 
@@ -371,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>14
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821984.jpg" />
 </div>
 
 
@@ -397,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821945.jpg" />
 </div>
 
 
@@ -423,7 +580,7 @@ Kaspersky Internet Security 2017 17.0.0.611 (without Secure Connection) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821942.jpg" />
 </div>
 
 
@@ -449,7 +606,7 @@ Windows 7 SP1 RUS-ENG x86-x64 -18in1- Activated v6 (AIO)
 >>57
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821939.jpg" />
 </div>
 
 
@@ -477,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_821562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_821562.jpg" />
 </div>
 
 
@@ -503,7 +660,7 @@ Free Leech в честь 1000 релиза Документалистики от
 >>22
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821561.jpg" />
 </div>
 
 
@@ -519,163 +676,6 @@ Free Leech в честь 1000 релиза Документалистики от
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007495   (821292) от 15.04.2016
-
-Российские ученые разработали безопасную квантовую коммуникационную систему дальнего действия
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_821292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Область информационной безопасности становится все актуальней с каждым днем. Если немногим ранее этой области уделяли внимание только крупные компании, банки и государственные организации, то сейчас информационной безопасностью занимаются специалисты предприятий малого бизнеса и даже индивидуальные пользователи. Однако, используемые сейчас алгоритмы шифрования несовершенны, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 655237   (820942) от 12.05.2013
-
-Ключи для ESET NOD32, Kaspersky, Avast, Avira от 10.05.2013
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820942.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник ключей для популярных антивирусных программ: ESET NOD32, Kaspersky, Avast, Avira.
-(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503158   (820684) от 18.10.2021
-
-Первый в мире космический киноэкипаж вернулся на Землю
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_820684.jpg" />
-</div>
-
-
-###  Подробнее
-
-МОСКВА, 17 окт — РИА Новости. Первый в мире космический киноэкипаж — актриса Юлия Пересильд и режиссер Клим Шипенко, а также космонавт Олег Новицкий вернулись на Землю. Спускаемый аппарат космического корабля "Союз МС-18" приземлился в Казахстане, в 148 километрах юго-восточнее города Жезказган. Трансляция велась на сайте "Роскосмоса".Пересильд (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006284   (820635) от 15.04.2016
-
-Специалист | MySQL 5. Проектирование и создание баз данных для web (2015) DVDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820635.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтобы успешно работать, надо иметь хороший инструмент и уметь им пользоваться. В веб-технологиях одним из таких инструментов является сервер баз данных MySQL. На этом сервере базируются большинство сайтов и решений в интернете. Практический любой сайт (блоги Wordpress, CMS-системы) активно использует базы данных на сервере MySQL. Однако многие скрипты (сайты, формулы (   Читать дальше...   )Жанр: Обучающие видео-урокиПродолжительность: 16:23:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2E022456AD738B68FBA1E3C634D1A3716EDECA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006759   (820633) от 15.04.2016
-
-Autodesk AutoCAD 2017 HF1 x86-x64 RUS-ENG
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820633.jpg" />
-</div>
-
-
-###  Подробнее
-
-AutoCAD является мировым лидером среди решений для 2D- и 3D-проектирования. Будучи более наглядным, 3D моделирование позволяет ускорить проектные работы и выпуск документации, совместно использовать модели и развивать новые идеи. Для AutoCAD доступны тысячи надстроек, что позволяет удовлетворить потребности самого широкого круга клиентов. Пришло время проектировать (   Читать дальше...   )Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBCB3D8C3E6A205A538644EEC84203052CCA214F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007387   (820628) от 15.04.2016
-
-Дедушка легкого поведения / Dirty Grandpa (2016) WEB-DL [H.264/1080p-LQ] [Line]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джейсон, покладистый правильный парень, накануне свадьбы вляпывается в увеселительную поездку к морю со своим дедом, отставным генералом с легким нравом, бурной фантазией и вполне определенными потребностями… И, похоже, дедские каникулы изменят жизнь Джейсона навсегда!Производство: США, Lionsgate, QED International, Josephson EntertainmentЖанр: КомедияРежиссер: Дэн МазерАктеры: Роберт Де Ниро, Зак Эфрон, Зои Дойч, Обри Плаза, Джейсон Манцукас, Дермот Малруни, Джулианна Хаф, Джеффри Бауэр-Чепман, Брэндон Майкал Смит, Джейк ПикингПеревод: Дублированный (Чистый звук)Продолжительность: 01:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B88DA1B7552A957D263A532673BA39119C20E709
 ```
 
 https://mybot314.ru/tekegram_catalog/

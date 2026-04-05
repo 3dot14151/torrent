@@ -1,81 +1,3 @@
-###  Публикация: 911086   (615722) от 23.06.2015
-
-Эдуард Фукс | Иллюстрированная история эротического искусства (1995) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это книга немецкого ученого и писателя Э.Фукса - о вечной теме в мировом искусстве. На протяжении многих веков художники, поэты, писатели стремились отобразить в своем творчестве красоту человеческого тела, все, что связано с чувственной любовью, интимными отношениями, и в то же время обличали, высмеивали человеческие пороки, излишества, непристойности. В книге рассказывается (   Читать дальше...   )Жанр: ИскусствоведениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E4123416438FF3741F79818DEAE0E4691F82299
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912066   (614493) от 24.06.2015
-
-Мартин Бубер | Два образа веры (1995) [DJVU, FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614493.jpg" />
-</div>
-
-
-###  Подробнее
-
-В издание включены наиболее значительные работы известного еврейского философа Мартина Бубера, в творчестве которого соединились исследование основ иудаистской традиции, опыт религиозной жизни и современное философское мышление. Стержневая тема его произведений – то особое состояние личности, при котором возможен "диалог" между человеком и Богом, между (   Читать дальше...   )Жанр: ФилософияФормат: DJVU, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E65EBF4B545E2EB8FFB2BF22C16CFE853853A7B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912077   (614487) от 24.06.2015
-
-Т.П. Лифинцева | Философия диалога Мартина Бубера (1999) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614487.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работа посвящена творчеству выдающегося философа и теолога Мартина Бубера (1878—1965). Ключевая тема творчества Бубера — онтология диалога — есть у него как бы точка пересечения всех линий перспективы, иначе говоря, всех классических тем философии и культуры XX века, получающих в этой точке свое, оригинальное буберовское решение или преломление. Знаменитая книга (   Читать дальше...   )Жанр: ФилософияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A97FD43074905F8BF53DB60D9E6227BEAB56119
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 911179   (614159) от 24.06.2015
 
 Ог Мандино | Выбор (2013) [FB2, EPUB]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614159.jpg" />
 </div>
 
 
@@ -112,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614020.jpg" />
 </div>
 
 
@@ -138,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613975.jpg" />
 </div>
 
 
@@ -164,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613883.jpg" />
 </div>
 
 
@@ -190,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613376.jpg" />
 </div>
 
 
@@ -218,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613244.jpg" />
 </div>
 
 
@@ -244,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612917.jpg" />
 </div>
 
 
@@ -270,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612830.jpg" />
 </div>
 
 
@@ -296,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612694.jpg" />
 </div>
 
 
@@ -322,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612687.jpg" />
 </div>
 
 
@@ -348,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612618.jpg" />
 </div>
 
 
@@ -374,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612523.jpg" />
 </div>
 
 
@@ -400,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612508.jpg" />
 </div>
 
 
@@ -427,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612437.jpg" />
 </div>
 
 
@@ -453,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612434.jpg" />
 </div>
 
 
@@ -481,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612430.jpg" />
 </div>
 
 
@@ -508,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612397.jpg" />
 </div>
 
 
@@ -534,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612363.jpg" />
 </div>
 
 
@@ -561,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610873.jpg" />
 </div>
 
 
@@ -587,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610213.jpg" />
 </div>
 
 
@@ -614,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609911.jpg" />
 </div>
 
 
@@ -640,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609734.jpg" />
 </div>
 
 
@@ -666,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609451.jpg" />
 </div>
 
 
@@ -677,6 +599,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2FC345ABD97B4533330C9E56D2E7628F5A68ADE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912874   (609447) от 27.06.2015
+
+Ю. В. Романенкова | Мировоззренческие универсалии периодов stilwandlung в мировом художественном процессе (2009) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609447.jpg" />
+</div>
+
+
+###  Подробнее
+
+Монография посвящена проблемам изобразительного искусства рубежных эпох, обозначенных как периоды Stilwandel, вопросам смены культурной парадигмы, поиску мировоззренческих универсалий переходных периодов в искусстве, причинам и симптоматике смены художественных стилей, отдельным вопросам стилеобразования. Актуализируются мировоззренческие проблемы кризисных этапов (   Читать дальше...   )Жанр: Изобразительное искусство, фотография, КультурологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2E328820656926187ED65B9A341159C5BBE3D19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912435   (609441) от 27.06.2015
+
+Владимир Томсинов (глав. ред.) | Законодательство императрицы Анны Иоанновны (2009) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередной том серии "Русское юридическое наследие" содержит полные тексты наиболее значимых и интересных законодательных актов российской императрицы Анны Иоанновны, правившей с 28 января 1730 года до 17 октября 1740 года. В основу публикации положено первое "Полное собрание законов Российской империи", напечатанное в Санкт-Петербурге в 1830 году (   Читать дальше...   )Жанр: Право, Юриспруденция, История российского государства и праваФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E7F1E9572E0A3AAB103D84BB98EACFE77DB97F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912436   (609439) от 27.06.2015
+
+В. С. Паньков | Программирование экономических иллюзий (1978) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Теории экономического программирования и «планирования», некогда вызывавшие бурные протесты в стане буржуазных ученых, ныне заняли прочное место в идеологическом арсенале буржуазии. Составители и теоретики программ и «планов» сулят всем и каждому избавление от пороков, которые порождаются анархией и стихией капиталистического производства, обещают стабильность и (   Читать дальше...   )Жанр: история, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D7440DE8619B8B43E3206DF68ED885A8523CDD4
 ```
 
 https://mybot314.ru/tekegram_catalog/

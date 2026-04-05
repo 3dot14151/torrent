@@ -1,3 +1,61 @@
+###  Публикация: 1369135   (905646) от 22.03.2020
+
+VA - Kontor Festival Sounds 2020.01: The Beginning (2020) [MP3|320 Kbps] <House, Club House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jerome - Take My Hand (Extended Mix) 3:33
+02. Dimitri Vegas & Like Mike vs. Timmy Trumpet - The Anthem (Der Alte) (Extended Mix) 3:50
+03. W&W x Timmy Trumpet & Will Sparks feat. Sequenza - Tricky Tricky (Extended Mix) 3:37
+04. Armin van Buuren feat. Ne-Yo - Unlove You (Nicky Romero Extended Remix) 4:22(   Читать дальше...   )Жанр: House, Club House, Progressive, Hardstyle, ElectronicПродолжительность: 07:35:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C38F271A98F0789AED0B8B953FC80C097EA36EB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369200   (905634) от 22.03.2020
+
+VA - Битва Dj - Chief MC Vs. Бинокль Vs. Anna Lee (2003) [MP3|320 Kbps] <Progressive House, House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phil Collins - In The Air Tonight (Kluster Dark Mix) (8:50)
+02. J Groove's - Beginning To Believe (Original Mix) (6:08)
+03. Rephlex One - Pulse (Coming Soon Remix) (6:38)
+04. UDG - Workshop Of Devil (5:24)(   Читать дальше...   )Жанр: Progressive House, HouseПродолжительность: 01:15:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3B25C891A7D3CACCD2CBE1F8ABA0C48AA24ECE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369719   (902114) от 24.03.2020
 
 VA - Bangin' Future House, Vol. 1 (2018) [MP3|320 Kbps] <House, Progressive House>
@@ -6,7 +64,7 @@ VA - Bangin' Future House, Vol. 1 (2018) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902114.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Bangin' Future House, Vol. 2 (2018) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902112.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - EDM World Vol 10 (2020) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902039.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Ego In Miami (2020) [MP3|320 Kbps] <House, Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902034.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Nothing But... Soulful House Vibes, Vol. 07 (2020) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902010.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Hypnotic Room (Best of 2016) (2017) [MP3|320 Kbps] <House, Tech House, Deep
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901717.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Carnaval House (2017) [MP3|320 Kbps] <Tech House,Deep House,House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899935.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Kontor Sports: Nonstop Powermix 2020.03 (2020) [MP3|320 Kbps] <House, Elect
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898524.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Bangin' Future House, Vol. 3 (2020) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896924.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Record Super Chart № 177 (2011) [MP3|320 kbps]<House, Electro House, Tran
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_896546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_896546.jpg" />
 </div>
 
 
@@ -302,7 +360,7 @@ Various Artists - Underground Sound Of Miami Series 2 (2013) [MP3|320 кб/с]<T
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895235.jpg" />
 </div>
 
 
@@ -337,7 +395,7 @@ Dj Arthur Project - Лето Уйдёт (2006) [MP3|192 Kbps] <House, Disco>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895190.jpg" />
 </div>
 
 
@@ -366,7 +424,7 @@ VA - Last Night On Ibiza (20 Deep-House Experiencias) (2017) [MP3|320 Kbps] <Dee
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894816.jpg" />
 </div>
 
 
@@ -395,7 +453,7 @@ VA - Deephouse From Tomorrow (2017) [MP3|320 Kbps] <Deep House, Funky House, Sou
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894804.jpg" />
 </div>
 
 
@@ -424,7 +482,7 @@ VA - Look Back To See The Future (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894792.jpg" />
 </div>
 
 
@@ -453,7 +511,7 @@ VA - Apres Ski Vocal House (2017) [MP3|320 Kbps] <House, Tech House, Deep House,
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894785.jpg" />
 </div>
 
 
@@ -482,7 +540,7 @@ VA - Dash Deep Harsh Crazy 2015.02 (2017) [MP3|320 Kbps] <House, Tech House, Dee
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893133.jpg" />
 </div>
 
 
@@ -511,7 +569,7 @@ VA - The Best of 2016 (2017) [MP3|320 Kbps] <House, Tech House, Deep House, Elec
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892839.jpg" />
 </div>
 
 
@@ -540,7 +598,7 @@ VA - Tech-House Of Art 1 (18.03.2013) [MP3|320 кб/с]<House | Tech House | Min
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891389.jpg" />
 </div>
 
 
@@ -575,7 +633,7 @@ VA - Pacha Ibiza (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891139.jpg" />
 </div>
 
 
@@ -604,7 +662,7 @@ VA - Dash Deep Harsh Crazy 2015.04 (2017) [MP3|320 Kbps] <House, Tech House, Dee
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889572.jpg" />
 </div>
 
 
@@ -633,7 +691,7 @@ VA - Enormous Deep (Sexy Deep House Tunes) Vol.1 (2016) [MP3|320 Kbps] <Deep Hou
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889562.jpg" />
 </div>
 
 
@@ -662,7 +720,7 @@ VA - Enormous Deep (Sexy Deep House Tunes), Vol. 2 (2017) [MP3|320 Kbps] <Deep H
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889472.jpg" />
 </div>
 
 
@@ -691,7 +749,7 @@ VA - Indie & Nu Disco 2017  [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889455.jpg" />
 </div>
 
 
@@ -705,64 +763,6 @@ VA - Indie & Nu Disco 2017  [MP3|320 Kbps] <Funky, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5ED23634BD67320097471D17CE8CA4891819D009
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371488   (888587) от 01.04.2020
-
-VA - Spring Break 2020 (Best of Dance, House & Electro) (2020) [MP3|320 Kbps] <House, Deep House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Combo - Happy Every Day (Original Mix) [03:27]
-02. Alpha Squad - All About The Music (Radio Edit) [03:12]
-03. YA-YA - Stay With Me (Radio Edit) [02:59]
-04. Allenx feat. Itto and Norah B. - No Time (Spikaa Remix) [03:59](   Читать дальше...   )Жанр: House, Deep House, Progressive House, Future House, DanceПродолжительность: 01:41:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DB307BDB20C0983E1EF8FF4F645ADF94AC71A50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371712   (888573) от 01.04.2020
-
-VA - Armada Music - Decade (2010-2020) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loud Luxury feat. Brando - Body 2:43
-02. Armin van Buuren feat. Trevor Guthrie - This Is What It Feels Like 3:24
-03. Lost Frequencies & Zonderling - Crazy 2:33
-04. Thomas Gold feat. Jillian Edwardss - Magic 2:51(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 03:15:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08FBA697CA3D1F19012BB783991C1B40E883E29F
 ```
 
 https://mybot314.ru/tekegram_catalog/

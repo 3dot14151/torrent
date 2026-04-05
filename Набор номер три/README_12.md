@@ -1,3 +1,161 @@
+###  Публикация: 1439786   (1039184) от 15.01.2021
+
+Грань времени / Synchronic (2019) WEB-DL [H.264/1080p] [Line]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два закадычных друга Стив и Деннис работают врачами скорой помощи в Новом Орлеане. Последнее время они сталкиваются со странными несчастными случаями и не менее загадочными смертями, как-то связанными с новым синтетическим наркотиком под названием Synchronic. Приехав на очередной вызов, друзья выясняют, что дочь-подросток Денниса тоже попробовала модный наркотик, (   Читать дальше...   )Производство: США, Patriot Pictures LLC, Pfaff & Pfaff Productions, Love & Death Productions (LDP), Rustic FilmsЖанр: Фантастика, ДрамаРежиссер: Джастин Бенсон, Аарон МурхедАктеры: Энтони Маки, Джейми Дорнан, Элли Иоаннидес, Кэтрин Аселтон, Рамиз Монсеф, Билл Оберст мл., Бетси Холт, Брэйди, Эдейр, Мэттью АндервудПеревод: Дублированный (Чистый звук)Субтитры: Английские (SDH)Продолжительность: 01:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B043DCC8AA8FF398366A2009332AB2DB2B89D04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613073   (1038968) от 20.02.2023
+
+Заметаем цифровые следы: руководство к действию
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Размещая в интернете (раз)личную информацию, многие даже не задумываются о рисках, которые могут таить в себе выложенные в отрытый доступ сведения. Рассказываем, как поменять настройки самых популярных сервисов, чтобы защитить персональные данные при работе в глобальной сетиПрирода интернета такова, что единожды размещённая в нём информация может храниться в публичном (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439435   (1038933) от 16.01.2021
+
+Intel готовит целую россыпь процессоров в стиле ARM
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038933.jpg" />
+</div>
+
+
+###  Подробнее
+
+Intel раскрыла свои планы на 2021 г. по выпуску новых процессоров – она намерена запустить сразу пять новых семейств, главным из которых станет Alder Lake. Это полноценное 12 поколение чипов компании, оно получит улучшенный 10-нанометровый техпроцесс SuperFin и, главное, обзаведется разделением ядер на классы, как это реализовано в большинстве современных ARM-процессоров.Россыпь (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439915   (1038919) от 16.01.2021
+
+Google и Apple спасли москвичей от тотальной слежки властей
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038919.jpg" />
+</div>
+
+
+###  Подробнее
+
+Власти Москвы хотели развернуть слежку за передвижениями каждого пешехода по MAC-адресам их мобильных устройств. Подрядчик проекта уже смонтировал всю необходимую аппаратуру, но планам столичных властей помешали Google и Apple – они выпустили апдейт для Android и iOS, блокирующий отслеживание MAC-адресов. Теперь весь проект может быть свернут, хотя на него уже потрачено (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 175204   (1038907) от 16.01.2021
+
+Служебный роман (1977) DVDRip [Полная реставрация]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анатолий Ефремович Новосельцев, рядовой служащий одного статистического управления, — человек робкий и застенчивый. Для него неплохо бы получить вакантное место зав. отделом, но он не знает как подступиться к этому делу. Старый приятель Самохвалов советует ему приударить за Людмилой Прокопьевной Калугиной, — сухарем в юбке и директором заведения…
+
+Полная реставрация (   Читать дальше...   )Жанр: Комедия, МелодрамаРежиссер: Эльдар РязановАктеры: Андрей Мягков, Алиса Фрейндлих, Светлана Немоляева, Олег Басилашвили, Лия Ахеджакова, Георгий Бурков, Зоя Исаева, Людмила Иванова, Петр Щербаков, Мария ВиноградоваФормат: AVIПродолжительность: 02:30:21 (2 серии)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E58322118648A3917F5A607A9A0F0D0A5B289576
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439958   (1038903) от 16.01.2021
+
+Смертельная зона / Outside the Wire (2021) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038903.jpg" />
+</div>
+
+
+###  Подробнее
+
+В будущем война ведётся с помощью пилотируемых дронов. Однажды пилот дрона вынужден отправиться в зону военных действий, где вместе с андроидом должен предотвратить ядерный взрыв.Производство: США, Венгрия, 42, Automatik Entertainment, Inspire Entertainment, Leeding Media, NetFlix, Pioneer Stilking FilmsЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Микаэль ХофстрёмАктеры: Энтони Маки, Демсон Идрис, Эмили Бичем, Пилу Асбек, Майкл Келли, Кристина Тонтери-Янг, Бобби Локвуд, Энцо Чиленти, Генри Гаррет, Велибор ТопичПеревод: Дублированный (VSI Moscow)Субтитры: русские (Forced, Full), английские (Forced, Full, SDH), немецкие, испанские, финские, французские, итальянские, польские, португальские, шведскиеПродолжительность: 01:55:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48317DFD3BAF7BDE2A8F052F85231AE5E0506AEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 754736   (1038902) от 16.01.2021
 
 Listen Audiobook Player v4.6.9 [Ru/Multi] - Плеер для аудиокниг с продвинутым функционалом
@@ -6,7 +164,7 @@ Listen Audiobook Player v4.6.9 [Ru/Multi] - Плеер для аудиокниг
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038902.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ Forza Horizon 4 (2018) [Ru/Multi] (1.460.859.2/dlc) Repack xatab [Ultimate Editi
 >>34
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038901.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038710.jpg" />
 </div>
 
 
@@ -85,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038696.jpg" />
 </div>
 
 
@@ -112,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038655.jpg" />
 </div>
 
 
@@ -138,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038653.jpg" />
 </div>
 
 
@@ -164,7 +322,7 @@ Adobe After Effects 2020 (17.6.0.46) Portable by XpucT [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038626.jpg" />
 </div>
 
 
@@ -190,7 +348,7 @@ Adobe Premiere Pro 2020 14.8.0.39 RePack by KpoJIuK [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038625.jpg" />
 </div>
 
 
@@ -216,7 +374,7 @@ Windows 7 SP1 6.1 (Build 7601.24564) (13in2) x86/x64 by Sergei Strelec [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038614.jpg" />
 </div>
 
 
@@ -243,7 +401,7 @@ Adobe Photoshop 2021 22.1.1.138 RePack by KpoJIuK [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038612.jpg" />
 </div>
 
 
@@ -269,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038611.jpg" />
 </div>
 
 
@@ -295,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038482.jpg" />
 </div>
 
 
@@ -321,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038479.jpg" />
 </div>
 
 
@@ -347,7 +505,7 @@ Atomic Heart возглавила мировой топ продаж в Steam
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038475.jpg" />
 </div>
 
 
@@ -373,7 +531,7 @@ Bright Memory: Infinite (2021) [Ru/Multi] (1.42/dlc) License GOG [Ultimate Editi
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038468.jpg" />
 </div>
 
 
@@ -399,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038406.jpg" />
 </div>
 
 
@@ -425,7 +583,7 @@ Google отключит сторонние браузеры на движке Ch
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038398.jpg" />
 </div>
 
 
@@ -451,7 +609,7 @@ Satisfactory (2019) [Ru/Multi] (0.3.7.7) Repack xatab [Early Access]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038389.jpg" />
 </div>
 
 
@@ -477,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038384.jpg" />
 </div>
 
 
@@ -504,7 +662,7 @@ AquaNox Deep Descent (2020) [Ru/Multi] (1.5/dlc) License GOG [Collector’s Edit
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038383.jpg" />
 </div>
 
 
@@ -515,163 +673,6 @@ Aquanox Deep Descent — это шутер от первого лица с по�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A34AF81260C2367AE84336350F9FD2EAD8A10B47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614259   (1038228) от 23.02.2023
-
-Компьютерный гений превратил YouTube в бесплатное и безлимитное хранилище файлов.
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038228.jpg" />
-</div>
-
-
-###  Подробнее
-
-YouTube оказалось возможным использовать в качестве хранилища файлов. Разработана утилита, превращающая ZIP-архив с любым содержимым в видеоролик, который затем можно загрузить на YouTube, скачать из любой точки мира и разархивировать его содержимое. На этом видеохостинге нет ограничений по объему загружаемых роликов, что превращает его в безлимитное и, что немаловажно, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607223   (1038215) от 23.02.2023
-
-Чебурашка (2022) WEBRip [H.264/1080p]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иногда, чтобы вернуть солнце и улыбки в мир взрослых, нужен один маленький ушастый герой. Мохнатого непоседливого зверька из далекой апельсиновой страны ждут удивительные приключения в тихом приморском городке, где ему предстоит найти себе имя, друзей и дом.
-Помогать — и мешать! — ему в этом будут нелюдимый старик-садовник, странная тетя-модница и ее капризная внучка, (   Читать дальше...   )Производство: Россия / «РОССИЯ 1», Союзмультфильм, СТС, Yellow, Black & WhiteЖанр: семейный, комедияРежиссер: Дмитрий ДьяченкоАктеры: Сергей Гармаш, Ольга Кузьмина, Полина Максимова, Фёдор Добронравов, Сергей Лавыгин, Елена Яковлева, Дмитрий Лысенков, Софья Зайка,  Илья Кондратенко, Ева СмирноваПеревод: Не требуется (Русский)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:52:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EFF9171A69C36140C6F388BF051C499899C41F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440410   (1038160) от 19.01.2021
-
-Систему распознавания лиц научили определять политическую ориентацию по фотографии
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038160.jpg" />
-</div>
-
-
-###  Подробнее
-
-По словам разработчиков, она может угадывать, либерал или консерватор на снимке, с точностью до 72%Специалист из Стэнфордского университета разработал алгоритм распознавания лиц, который якобы может определить, либеральных или консервативных взглядов придерживается человек, всего лишь по фотографии. Статью с описанием алгоритма опубликовал научный журнал Nature .Чтобы (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440761   (1038153) от 19.01.2021
-
-WhatsApp капитулировал и перенёс новые правила передачи данных на май
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038153.jpg" />
-</div>
-
-
-###  Подробнее
-
-WhatsApp решил пока не рисковать и отложить вступление в силу новой политики, которая будет диктовать правила обмена пользовательскими данными между проектами Facebook.Скорее всего, руководство сервиса обмена сообщениями обратило внимание на реакцию людей и их отток после анонса новых правил.Изначально обновлённая политика должна была вступить в силу 8 февраля. Однако (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440409   (1038139) от 19.01.2021
-
-Почему муху трудно убить
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038139.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтобы прихлопнуть муху, нужно недюжинное мастерство, большой опыт, острый глаз и меткая рука. Неопытный охотник на мух обычно обнаруживает под мухобойкой лишь пустое место; попытки поймать муху в полёте тоже заканчиваются ничем. Как мухам удаётся так хорошо уходить от карающей длани?Очевидно, они вовремя замечают, что к ним приближается опасность. Замечают в прямом (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286148   (1038133) от 19.01.2021
-
-Battlefleet Gothic: Armada 2 (2019) [Ru/Multi] (1.0.14/dlc) Repack =nemos=
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Battlefleet Gothic: Armada 2 — это новая стратегия в реальном времени, основанная на знаменитой настольной игре компании Games Workshop и повествующая о грандиозных космических битвах во вселенной Warhammer 40,000.Тип издания: RepackРазработчик: Tindalos InteractiveЖанр: Strategy (RTS), Sci-FiЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2FC96DD6E0257438DDA77962AC89DCD1F0BE808
 ```
 
 https://mybot314.ru/tekegram_catalog/

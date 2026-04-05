@@ -1,4 +1,136 @@
 https://t.me/izofen
+###  Публикация: 1863282   (1063848) от 
+
+WinNc 11.5.0.0 (x64) Portable by FC Portables [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Файловые менеджеры и архиваторы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063848.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinNc - файловый менеджер, обладающий широкими возможностями, который может стать отличной заменой стандартному проводнику Windows. WinNc использует ту же функциональность клавиатуры и мыши, что и DOS-овский вариант файлового менеджера, Norton Commander. Программа предоставляет вам удобный доступ к различным FTP- и локальным серверам, локальным дискам и т.д., благодаря (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:218651193CA6BC51F7B7DBB5D24001A76A3BB589
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863198   (1063781) от 
+
+InnoExtractor Ultra 11.5.1.172 RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Файловые менеджеры и архиваторы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063781.jpg" />
+</div>
+
+
+###  Подробнее
+
+InnoExtractor - это мощное приложение, которое поможет вам распаковать инсталляторы Inno Setup, используя технологию InnoUnp.
+С помощью InnoExtractor вы можете изучить внутреннюю структуру и содержимое программы установки, а также извлечь их в локальную папку или на портативные устройства без необходимости запуска программы установки.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE69EBC03B680FB1326F532533118E61314DD73E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862860   (1063533) от 
+
+PeaZip 10.9.0 + Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Файловые менеджеры и архиваторы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063533.jpg" />
+</div>
+
+
+###  Подробнее
+
+PeaZip — бесплатный архиватор и графическая оболочка для других архиваторов. С помощью PeaZip можно осуществлять шифрование данных, создание многотомных архивов, работу с несколькими архивами одновременно, экспорт задания в виде командной строки, установку фильтров на содержимое архива. PeaZip поддерживает собственный формат архивов Pea (с поддержкой сжатия, многотомных (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:474CBFA5FBB740AEC80DE6737B0A05379D844333
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862915   (1063489) от 
+
+7-Zip 26.00 Portable by FC Portables [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Файловые менеджеры и архиваторы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063489.jpg" />
+</div>
+
+
+###  Подробнее
+
+7-Zip - очень хороший и качественный архиватор, который превосходит многих конкурентов и поэтому все больше пользователей останавливают выбор именно на нем. Забота разработчика программы проявляется в распространении 7-Zip по всему миру, переводу программы на 79 языков мира, среди которых есть и русский.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9AB94591CDB79DB51AF70080298285E46D767F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862275   (1063250) от 
+
+Advanced Renamer 4.20 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Файловые менеджеры и архиваторы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063250.jpg" />
+</div>
+
+
+###  Подробнее
+
+Advanced Renamer - довольно популярная программа для массового переименования, а также систематизации файлов в операционной системе Windows. В новых версиях данной утилиты была реализована поддержка новых тегов при работе с разными форматами файлов, например мультимедиа, были переработаны методы отвечающие за образование имен файлов.
+Advanced Renamer хоть и бесплатная (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EECAF2F292621DBB93BDDD5E369ECFD28324997
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1862036   (1063079) от 
 
 XYplorer 28.30.0100 + Portable [Multi/Ru]
@@ -7,7 +139,7 @@ XYplorer 28.30.0100 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1063079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063079.jpg" />
 </div>
 
 
@@ -33,7 +165,7 @@ Q-Dir 12.55 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1063020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063020.jpg" />
 </div>
 
 
@@ -61,7 +193,7 @@ XYplorer 28.30.0100 RePack (& Portable) by elchupacabra [Ru/En]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062937.jpg" />
 </div>
 
 
@@ -87,7 +219,7 @@ Far Manager 3.0.6666 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062639.jpg" />
 </div>
 
 
@@ -113,7 +245,7 @@ Total Commander 11.57 RC1 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062518.jpg" />
 </div>
 
 
@@ -139,7 +271,7 @@ WinRAR 7.20 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062393.jpg" />
 </div>
 
 
@@ -165,7 +297,7 @@ Multi Commander Full Edition 15.8 Build 3135 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062205.jpg" />
 </div>
 
 
@@ -192,7 +324,7 @@ WinRAR 7.21 Beta 1 [Ru/En]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062203.jpg" />
 </div>
 
 
@@ -218,7 +350,7 @@ Total Commander 11.57 beta 4 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061596.jpg" />
 </div>
 
 
@@ -244,7 +376,7 @@ XYplorer 28.20.0600 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061545.jpg" />
 </div>
 
 
@@ -270,7 +402,7 @@ ReNamer Pro 7.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061281.jpg" />
 </div>
 
 
@@ -296,7 +428,7 @@ XYplorer 28.20.0500 RePack (& Portable) by elchupacabra [Ru/En]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061210.jpg" />
 </div>
 
 
@@ -322,7 +454,7 @@ InnoExtractor Ultra 11.5.1.172 Portable by 7997 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061170.jpg" />
 </div>
 
 
@@ -349,7 +481,7 @@ ReNamer Pro 7.9 + Standalone (Portable) [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061103.jpg" />
 </div>
 
 
@@ -375,7 +507,7 @@ XYplorer 28.20.0500 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060658.jpg" />
 </div>
 
 
@@ -393,32 +525,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858711   (1060574) от 12.03.2026
-
-Total Commander 11.57 beta 3 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Файловые менеджеры и архиваторы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060574.jpg" />
-</div>
-
-
-###  Подробнее
-
-Total Commander является самым мощным и стабильным файловым менеджером для Windows с удобным пользовательским интерфейсом. Total Commander продолжает добрую традицию двух-панельных файловых менеджеров, но отличается повышенным удобством и функциональностью, поддерживает плагины, имеет множество встроенных полезных инструментов. В программе предусмотрены функциональные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90F40AF4F8D1779D16145C873B3F0779EE3244E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1857802   (1059831) от 07.03.2026
 
 OneCommander Pro 3.108.0.0 + Portable [Multi/Ru]
@@ -427,7 +533,7 @@ OneCommander Pro 3.108.0.0 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059831.jpg" />
 </div>
 
 
@@ -454,7 +560,7 @@ Q-Dir 12.51 + Portable [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059630.jpg" />
 </div>
 
 
@@ -482,7 +588,7 @@ XYplorer 28.20.0400 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059522.jpg" />
 </div>
 
 
@@ -508,7 +614,7 @@ File Viewer Plus 6.2.0.80 [Multi]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059516.jpg" />
 </div>
 
 
@@ -536,7 +642,7 @@ InnoExtractor Ultra 11.5.1.172 [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059202.jpg" />
 </div>
 
 
@@ -563,7 +669,7 @@ WinRAR 7.20 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Файловые менеджеры и архиваторы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058195.jpg" />
 </div>
 
 
@@ -574,112 +680,6 @@ WinRAR - один из самых известных архиваторов. Т�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52F76FE2D22649CCB9889668239D7059F4CC7660
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855000   (1057885) от 20.02.2026
-
-Total Commander 11.56 PowerPack + Portable 2026.02 by SamLab [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Файловые менеджеры и архиваторы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057885.jpg" />
-</div>
-
-
-###  Подробнее
-
-Total Commander является самым мощным и стабильным файловым менеджером для Windows с удобным пользовательским интерфейсом. Total Commander продолжает добрую традицию двух-панельных файловых менеджеров, но отличается повышенным удобством и функциональностью, поддерживает плагины, имеет множество встроенных полезных инструментов. В программе предусмотрены функциональные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2903AA6C281E73B76A451BEE73E40955655F579
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854910   (1057676) от 20.02.2026
-
-Q-Dir 12.49 + Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Файловые менеджеры и архиваторы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057676.jpg" />
-</div>
-
-
-###  Подробнее
-
-Q-Dir - это отличный альтернативный файловый менеджер для Windows с потрясающей техникой Quadro-View.
-Вам не придется отказываться от привычной работы, перетаскивания, видов просмотра и других стандартных функций вашего текущего файлового менеджера.
-Нет! Q-Dir предоставляет вам дополнительные полезные функции, которые сделают вас счастливыми. Экономьте время, сокращая (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DACDA126B33B4CA9EA2FCA31DD69F6BF7B5322B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854628   (1057530) от 19.02.2026
-
-SecureZIP Enterprise Desktop 14.50.0030 [En]
-
->>Утилиты, Офис, Интернет
->>Файловые менеджеры и архиваторы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057530.jpg" />
-</div>
-
-
-###  Подробнее
-
-SecureZip обеспечивает шифрование файлов корпоративного уровня с использованием передовых технологий сжатия, позволяя организациям защищать конфиденциальные данные на любой платформе и одновременно снижать затраты на хранение до 95%.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5736DB2BDFDB92312F8B1BAEEEF6E66215C7F71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854191   (1057105) от 16.02.2026
-
-Total Commander 11.56 MAX-Pack 2025.11.27 by Mellomann [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Файловые менеджеры и архиваторы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057105.jpg" />
-</div>
-
-
-###  Подробнее
-
-Total Commander – самый популярный файловый менеджер со всеми необходимыми для подобных программ функциями. Кроме всех инструментов, характерных для файловых менеджеров, Total Commander содержит очень удобные просмотрщики мультимедиа и графических файлов, распаковщики ZIP, ARJ, LZH, RAR, UC2, TAR, GZ, CAB, ACE и дополнительные dll для других архивных файлов; чрезвычайно (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8E5B4832D56BF985966C57969704651F08D4000
 ```
 
 https://mybot314.ru/tekegram_catalog/

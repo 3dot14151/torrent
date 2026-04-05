@@ -1,3 +1,61 @@
+###  Публикация: 1532936   (710943) от 21.02.2022
+
+Vintage Culture B2B Meca - Live D-Edge Sao Paulo, Brazil (2022-02-17) [MP3|320 Kbps] <Deep House, Tech House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whitesquare - Folded Reality
+02. James Burton - Breakfast Club (Dennis Ferrer Morning Mix)
+03. Felipe Puertes - Niyama
+04. Øostil & U S H N U - Safe (Hunter/Game Remix)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 03:50:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74BB1EADBF23E31BB896AA6A1EE60D675FD2CC4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131755   (707096) от 06.05.2017
+
+VA - Ori Uplift - Uplifting Only 221 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FAN FAVORITE 219: Ikerya Project & O.B.M. Notion Feat Danny Claire - Goodbye
+02. Susana - Only Summer Knows
+03. Manuel Rocca & Illitheas - Enchanted
+04. Syntouch & Angel Falls - Alone (Plutian Remix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:01:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F9BFAC008EFE0A593747A8C3B821CB218BBBCCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220869   (700668) от 21.04.2018
 
 VA - Markus Schulz - Global DJ Broadcast - In Bloom (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
@@ -6,7 +64,7 @@ VA - Markus Schulz - Global DJ Broadcast - In Bloom (2018) [MP3|320 Kbps] <Tranc
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700668.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Ori Uplift & Ellez Ria - Uplifting Only 271 (2018) [MP3|320 Kbps] <Trance,U
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700660.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Aly & Fila - Future Sound of Egypt 544 (2018) [MP3|320 Kbps] <Trance,Progre
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700652.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Aly & Fila - Future Sound Of Egypt 495 (2017) [MP3|320 Kbps] <Trance,Uplifting T
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698968.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Markus Schulz & Arkham Knights - Global DJ Broadcast (2019) [MP3|320 Kbps] 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697863.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - ASOT 900 Pre Party @ Poema RAW, Utrecht (2019-02-23) [MP3|256-320 Kbps] <Tr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697769.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - ASOT 900 After-Party @ Poema RAW, Utrecht (2019-02-24) [MP3|320 Kbps] <Tran
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697762.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ ALPHA 9 - Anjunabeats Worldwide 689 2020-08-17 [MP3|320 Kbps] <Trance, Progressi
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694404.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Armin van Buuren - A State Of Trance Festival 900 - (Madrid) (2019) [MP3|32
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691964.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Fatum - All In Radio 001-017 (2020) [MP3|192 Kbps] <Trance>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691933.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Alexander Som - Axtone House Party (2022-03-04) [MP3|~245 Kbps (V0)] <House>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686834.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Afrojack - Tomorrowland Friendship Mix (2022-03-03) [MP3|320 Kbps] <Electro Hous
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686711.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Tinlicker - Tomorrowland Friendship Mix (2022-02-24) [MP3|320 Kbps] <Progressive
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686707.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Aly & Fila - Future Sound Of Egypt 496 (2017) [MP3|320 Kbps] <Trance,Uplifting T
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685072.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Ori Uplift - - Uplifting Only, Episode 223 (2017) [MP3|320 Kbps] <Trance, U
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677282.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Ori Uplift - Uplifting Only, Episode 222 (2017) [MP3|320 Kbps] <Trance, Upl
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677274.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Johnny de City - Live @ Epic Club Prague, Czech Republic (2022-03-04) [MP3|320 K
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672785.jpg" />
 </div>
 
 
@@ -498,7 +556,7 @@ VA - Live @ Trancemission Heartbeat, A2 Arena Saint Petersburg, Russia 2019-02-1
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672233.jpg" />
 </div>
 
 
@@ -527,7 +585,7 @@ Aly & Fila - Future Sound Of Egypt 497 (2017) [MP3|320 Kbps] <Trance,Uplifting T
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671142.jpg" />
 </div>
 
 
@@ -556,7 +614,7 @@ James Dymond - Live @ Elation, Las Vegas [Extended Set] (09-03-2019)[MP3|320 Kbp
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670836.jpg" />
 </div>
 
 
@@ -585,7 +643,7 @@ VA - Ori Uplift & Phil Langham - Uplifting Only 272 (2018) [MP3|320 Kbps] <Uplif
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669889.jpg" />
 </div>
 
 
@@ -614,7 +672,7 @@ VA - Markus Schulz  - Global DJ Broadcast (World Tour London) (2018) [MP3|320 Kb
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669871.jpg" />
 </div>
 
 
@@ -643,7 +701,7 @@ VA - Ori Uplift & Phoenix - Uplifting Only 273 (2018) [MP3|320 Kbps] <Trance,Upl
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669780.jpg" />
 </div>
 
 
@@ -672,7 +730,7 @@ Aly & Fila - Future Sound Of Egypt 498 (2017) [MP3|320 Kbps] <Uplifting Trance>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662412.jpg" />
 </div>
 
 
@@ -686,64 +744,6 @@ Aly & Fila - Future Sound Of Egypt 498 (2017) [MP3|320 Kbps] <Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A27EF419C7A6BD2FDBCB0126F6486D32E76DE58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225473   (660816) от 15.05.2018
-
-VA - Markus Schulz & Andy Moor - Global DJ Broadcast (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660816.jpg" />
-</div>
-
-
-###  Подробнее
-
-Markus Schulz:
-01. Ben Gold - New Republic
-02. Markus Schulz & JES - Calling for Love
-03. Cristoph & Quivver - In Name Only(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:01:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39220FCBB083B365D15CB894ADD04F8772141BC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225467   (659759) от 16.05.2018
-
-VA - Aly & Fila - Future Sound of Egypt 546 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sasha feat. Polica - Out Of Time (Original Mix)
-02. Dezza - Law of Attraction (Original Mix)
-03. Stan Kolev - Oblivion (Extended Mix)
-04. Matan Caspi & Ziger - Templar (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:57:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2D1C07F2F865BD7EFCC9AC5806ED66A6D4183C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

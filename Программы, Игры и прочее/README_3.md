@@ -1,3 +1,107 @@
+###  Публикация: 1856531   (1059084) от 28.02.2026
+
+FBReader Premium v3.8.23 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059084.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это "премиальная" версия читалки FBReader. Основные форматы книг: fb2 (и fb2.zip), ePub (включая основные возможности ePub3), Kindle (он же azw3, он же mobipocket), pdf, комиксы (cbr/cbz). Другие форматы: rtf, doc (MS Word), html, обычный текст. Читая в FBReader на иностранном языке, вы можете смотреть переводы незнакомых слов в словаре (словарь можно выбрать (   Читать дальше...   )Тип издания: Premium / Mod ExtraРелиз состоялся: 26.02.2026Разработчик: FBReader.ORG LimitedПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E936C06CA4BBD6CB9D82A90A49F858CC90F2B73E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856529   (1059083) от 28.02.2026
+
+Remini / Улучшение Фото v3.7.1288.202519828 Mod by Mixroot [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059083.jpg" />
+</div>
+
+
+###  Подробнее
+
+Превратите ваши старые, смазанные, размытые или поврежденные фото в фотографии высокой четкости одним касанием! Remini использует современный искусственный интеллект для восстановления четкости и улучшения любого фото. Подарите новую жизнь старым воспоминания в потрясающем, кристально чистом HD качестве. На сегодня мы обновили более 100 миллионов фотографий. Фоторедактор (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 26.02.2026Разработчик: Splice Video EditorПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64BC2FC8F6903DFA308252B6993A6E267A7C947B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856537   (1059082) от 28.02.2026
+
+LazyMedia Deluxe v3.434 Mod by Alex.Strannik [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059082.jpg" />
+</div>
+
+
+###  Подробнее
+
+LazyMedia Deluxe это Android TV приложение, которое можно запустить не только на профильных Android TV приставках, но и на обычных TV-Box с версией андроид выше 4.2. Приложение предназначено для онлайн просмотра фильмов и сериалов с популярных ресурсов. Гибкие параметры настройки, позволяют подстроить интерфейс под свои нужды. Это приложение само ничего не воспроизводит (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 28.02.2026Разработчик: LazyCat SoftwareПоддерживаемая ОС: Android 4.2+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63576866F7C5F39FB928FEBCE49DD845F1E56B02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856652   (1059033) от 01.03.2026
+
+Battery Guru: Monitor & Health v2.4.6.1 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Battery Guru предоставляет продвинутые инструменты для мониторинга состояния батареи, отслеживания статистики зарядки и анализа производительности батареи. С реальными статистическими данными, звуковыми уведомлениями и сигналами, Battery Guru помогает вам быть в курсе и поддерживать эффективность батареи.Тип издания: ModРелиз состоялся: 01.03.2026Разработчик: Paget96Поддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A8830FEA988866DC6C87C55147016D21C5F8932
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856648   (1059032) от 01.03.2026
 
 MobiOffice: Word, Sheets, PDF Premium v16.2.59179 Extra Mod by Balatan [Ru/Multi]
@@ -6,7 +110,7 @@ MobiOffice: Word, Sheets, PDF Premium v16.2.59179 Extra Mod by Balatan [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059032.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Smart Tools v2.1.17 mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059027.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Smart Tools 2 v1.2.4 Mod by TryRoon [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059026.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059025.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Logic Circuit Simulator Pro / Симулятор Логической Схемы
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058817.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ HiPER Calc Pro v11.3.3 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058816.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Eatr・Здоровые рецепты v2.52.0 Mod by vadj [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058814.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Ventusky: Прогноз погоды v51.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058799.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Mary’s recipes: рецепты, меню v7.3.0 Mod by Alex.Strannik [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058789.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058779.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Signal for Android 7.74.5 Stable и 8.0.4 Pre-release [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058468.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ Solid Explorer File Manager v3.4.1 + Plugins Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058153.jpg" />
 </div>
 
 
@@ -323,7 +427,7 @@ Grok - ИИ ассистент v1.1.30-release.12 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058152.jpg" />
 </div>
 
 
@@ -349,7 +453,7 @@ Exo Player - Видеоплеер и IPTV v3.0.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058042.jpg" />
 </div>
 
 
@@ -375,7 +479,7 @@ HiPER Calc Pro v11.3.2 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058040.jpg" />
 </div>
 
 
@@ -401,7 +505,7 @@ AdGuard Ad Blocker Premium [No-Root] v4.12.81 Final Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057993.jpg" />
 </div>
 
 
@@ -428,7 +532,7 @@ AdGuard Ad Blocker TV Premium Final [No-Root] v4.12.81 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057992.jpg" />
 </div>
 
 
@@ -455,7 +559,7 @@ Magic Eraser / Магический ластик v3.1.7 Mod by Maximoff⁠ [Ru/E
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057991.jpg" />
 </div>
 
 
@@ -481,7 +585,7 @@ Words of Wonders: Игра в слова v5.5.4 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057990.jpg" />
 </div>
 
 
@@ -507,7 +611,7 @@ HDRezka TV v1.4.0 Mod by NibRut2244 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057989.jpg" />
 </div>
 
 
@@ -533,7 +637,7 @@ Signal for Android 7.73.2 Stable и 8.0.2 Pre-release [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057873.jpg" />
 </div>
 
 
@@ -561,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057846.jpg" />
 </div>
 
 
@@ -572,110 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1E7430770C05FD95D8350BBAB6A8AB354ACB8D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854769   (1057831) от 21.02.2026
-
-Remini / Улучшение Фото v3.7.1277.202519515 Mod by Mixroot [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превратите ваши старые, смазанные, размытые или поврежденные фото в фотографии высокой четкости одним касанием! Remini использует современный искусственный интеллект для восстановления четкости и улучшения любого фото. Подарите новую жизнь старым воспоминания в потрясающем, кристально чистом HD качестве. На сегодня мы обновили более 100 миллионов фотографий. Фоторедактор (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 18.02.2026Разработчик: Splice Video EditorПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FDBF71E8CDAC6BF797B694F6E21E6138BA389F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855119   (1057830) от 21.02.2026
-
-Атомные часы - время ntp v2.1.17 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сверхточные часы для вашего устройства. Берёт данные с интернет-сервиса. В наличии виджет и немалое количество настроек. Вы когда-нибудь хотели узнать точное время, чтобы отпраздновать чей-то день рождения или Новый год? Или просто синхронизировать часы? AtomicClock обеспечивает точное время с серверов NTP, которые получают время непосредственно с атомных часов!Тип издания: PremiumРелиз состоялся: 20.02.2026Разработчик: Timo PartlПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCABB80A6BBE73237597D18224E4CB90BFF5865E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855150   (1057827) от 21.02.2026
-
-Win 11 Launcher v9.45 Mod by vadj [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057827.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вам наскучил пользовательский интерфейс Android и вы хотите насладиться лаунчером в стиле Windows на своем Android? Нет, подожди сейчас. Win 11 и Win 10 Launcher здесь для вас (вдохновленный ОС Win 11 и Win 10). Настройте свой телефон с уникальным внешним видом с помощью быстрой, чистой и энергоэффективной программы запуска. Удивите своих друзей новым внешним видом (   Читать дальше...   )Тип издания: ModРелиз состоялся: 21.02.2026Разработчик: Spark PlanetПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D285F3FEF20522092FB7CE335BFE79A4B8A395E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854777   (1057780) от 19.02.2026
-
-Smart AudioBook Player Pro v11.6.6 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057780.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа разработана специально для проигрывания аудиокниг. Предполагается, что у Вас есть аудиокниги и Вы их уже скопировали на телефон. Воспроизведение форматов: opus, mp3, m4a, m4b, awb, ogg, wma (можно слушать книги, конвертированные для Nokia).Тип издания: FullРелиз состоялся: 16.02.2026Разработчик: Александр КравченкоПоддерживаемая ОС: Android 11+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CD95AF663DF00E53EFA6A77E8FE9632622ABBDE
 ```
 
 https://mybot314.ru/tekegram_catalog/

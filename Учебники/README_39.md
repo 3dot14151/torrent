@@ -1,3 +1,56 @@
+###  Публикация: 1536478   (674325) от 12.03.2022
+
+А.В. Красавин, Я.В. Жумагулов | Компьютерный практикум в среде matlab (2022) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674325.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассмотрены основные приемы программирования в среде MatLab применительно к решению задач физики конденсированного состояния. Пособие может быть использовано как вводный практический курс численного моделирования квантовых физических систем. Книга снабжена большим количеством примеров, иллюстраций и упражнений.
+Предназначено для студентов, специализирующихся (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CA847A4388412D080956A31D1D1AF281EE93EE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029785   (674156) от 30.06.2016
+
+Михаэль Хибель | Основы векторного анализа цепей (2009) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга является идеальной для специалистов, начинающих работать в области анализа цепей. Книга может также служить полезным справочником для специалистов. Для объяснения основных понятий, в книгу включено приблизительно 400 больших рисунков. Более того, книга структурирована таким образом, чтобы требовать, насколько это возможно, минимума специальных знаний из (   Читать дальше...   )Жанр: Анализ цепей, измеренияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:946D4E1D58056C9A88A8301467C67A87577FC949
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1136369   (673135) от 23.05.2017
 
 А.А. Демичев, О.С. Грачева | Экологическое право (2017) [RTF, FB2]
@@ -6,7 +59,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673135.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672878.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672873.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672866.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671038.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670913.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670829.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670782.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670730.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670639.jpg" />
 </div>
 
 
@@ -268,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670609.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670586.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669796.jpg" />
 </div>
 
 
@@ -347,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669486.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669133.jpg" />
 </div>
 
 
@@ -401,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668534.jpg" />
 </div>
 
 
@@ -427,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668517.jpg" />
 </div>
 
 
@@ -454,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667760.jpg" />
 </div>
 
 
@@ -480,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667755.jpg" />
 </div>
 
 
@@ -507,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666667.jpg" />
 </div>
 
 
@@ -533,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665804.jpg" />
 </div>
 
 
@@ -559,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665430.jpg" />
 </div>
 
 
@@ -585,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665371.jpg" />
 </div>
 
 
@@ -611,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665364.jpg" />
 </div>
 
 
@@ -622,59 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1325080AF45B6D60F60C5C0E832F862119B8C84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138228   (665312) от 28.05.2017
-
-А.П. Ганенко, М.И. Лапсарь | Оформление текстовых и графических материалов (требования ЕСКД) (2015) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665312.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выполнение дипломных проектов, курсовых и письменных экзаменационных работ - это первые самостоятельные конструкторские работы будущего специалиста, предполагающие оформление графических и текстовых документов.
-    Эти работы не только служат комплексной проверкой подготовки студента, но и являются важнейшей формой приобретения навыков самостоятельной работы со справочной (   Читать дальше...   )Жанр: Нормативная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:072924FA5691AC1D9CBF75C2C8BE2FD59C96E912
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137890   (665311) от 28.05.2017
-
-А.Н. Шестеркин | Введение в электротехнику. Элементы и устройства вычислительной техники (2015) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665311.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены основные понятия и методы расчета цепей постоянного и переменного тока, элементы и устройств комбинационного и последовательного типа, запоминающие устройства, АЦП и ЦАП. Приведены задания для практической работы по указанным вопросам, даны методика их выполнения и контрольные вопросы для самопроверки. Кратко рассмотрены приборы системы моделирования (   Читать дальше...   )Жанр: Электротехника, электроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0695CE2A7C3621C8EF27E0F6B09699F1E29A71CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

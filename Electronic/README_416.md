@@ -1,3 +1,119 @@
+###  Публикация: 1269153   (223409) от 13.12.2018
+
+Jens Buchert - Gravity (2017) Dimension Music Production [FLAC|Lossless|WEB-DL|tracks] <Ambient Dub, Downbeat, Chillout>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gravity (6:04)
+ 02. Hollows (4:22)
+ 03. For Berlin (5:33)
+ 04. Motiongate (5:12)(   Читать дальше...   )Жанр: Ambient Dub, Downbeat, ChilloutПродолжительность: 00:54:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C8D3C42475AEB2A2908679B1F05B552D6500F57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111185   (223138) от 19.11.2020
+
+47 - Label-Pack 26 Releases (2015-2020) [FLAC|Lossless|WEB-DL|tracks] <Techno, Industrial>
+
+>>Electronic
+>>Label-Packs
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Champagne Prerogative (06:48)
+ 02. Threads (06:10)
+ 03. Sand Mountain (05:57)
+ 04. Deception (05:27)(   Читать дальше...   )Тип издания: WEBЖанр: Techno/IndustrialПродолжительность: 12:01:35 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B91758B5F9EB889E873FA51389D6D0A3DB727235
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651267   (223078) от 05.08.2023
+
+VA - Sensual Chilling Moves (2023) [MP3|320 Kbps] <Downtempo, Lounge, Easy Listening,  Chill-Out>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Atmosphera - Light from Beyond
+02. Alexander Bollinger - Verano al Fin
+03. The Hardestone - Empire (Lesovsky Remix)
+04. Cosmogong - Magic Bubble(   Читать дальше...   )Жанр: Downtempo, Lounge, Easy Listening,  Chill-OutПродолжительность: 02:58:09 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DC7C06B460CAD09447D4C0CF28C6E1250B911F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585212   (222824) от 21.10.2022
+
+VA - Gert Records 10 Years Anniversary - (Mixed by DJ OptimuS) (2022) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ OptimuS - Gert Records 10 Years Anniversary (Continuous DJ Mix)
+02. Cod3@dj - Frozen World (Intro Mix)
+03. Fredix - Childhood (Extended Mix)
+04. Eavent8 - Premonition (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:09:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:094C3BD79C1C8A9BB45154C7F5DF9854B0B0016B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1425214   (222813) от 20.11.2020
 
 Metamatics - Vogue Casio 96 (2020) Fantasy Enhancing [FLAC|Lossless|WEB-DL|tracks] <IDM, Breaks>
@@ -6,7 +122,7 @@ Metamatics - Vogue Casio 96 (2020) Fantasy Enhancing [FLAC|Lossless|WEB-DL|track
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222813.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Magic December (Lounge Relax Music) (2019) [MP3|320 Kbps] <Balearic, Downte
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222766.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Anjunabeats The Yearbook (2019) [MP3|320 Kbps] <Trance, Progressive House>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222744.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - Gert Records 10 Years Anniversary - (Mixed by DJ Mena) (2022) [MP3|320 Kbps
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222721.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Alexei Maslov - Best (2022) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222703.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Fitbeats 2019 (Music For Aerobics, Fitness And Workouts) [MP3|320 Kbps] <Up
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222670.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ ARTBAT - Tomorrowland Friendship Mix (2020-11-19) [MP3|320 Kbps] <Techno, Progre
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222662.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - ADE Highlights (2022) CD, Compilation [MP3|320 Kbps] <Melodic House & Techn
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222601.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Kalax - III (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Retrowa
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222597.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222529.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - Crossfit 2019 - Best Cross Fit Workout Music - Motivation Gym Music Mix (20
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222524.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - DOS Or Die Volume 1 (1994) [FLAC|Lossless|tracks] <Trance, Techno, Hard Tra
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222012.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Alic - Sliders (2014) EP [FLAC|tracks|WEB-DL]<Progressive, Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221979.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ VA - Last Christmas 2018 Compilation (2018) [MP3|320 Kbps] <House, ElectroHouse,
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221898.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Home Normal - Label-Pack 134 releases (2009-2020) [FLAC|Lossless|WEB-DL|tracks] 
 >>Label-Packs
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221749.jpg" />
 </div>
 
 
@@ -438,7 +554,7 @@ VA - Summer Compilation Vol. 1 (2023) [MP3|320 Kbps] <Minimal, Deep Tech, Electr
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_221732.jpg" />
 </div>
 
 
@@ -467,7 +583,7 @@ VA - Salaam for Yemen (2018) Dronarivm [FLAC|Lossless|WEB-DL|tracks] <Ambient, E
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221710.jpg" />
 </div>
 
 
@@ -496,7 +612,7 @@ VA - Utopia II (2018) Rebellion der Traumer [FLAC|Lossless|WEB-DL|tracks] <Melod
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221575.jpg" />
 </div>
 
 
@@ -525,7 +641,7 @@ Experimental Products - Prototype (1982) LP [MP3|320 Kbps] <Electronic, Minimal,
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221553.jpg" />
 </div>
 
 
@@ -554,7 +670,7 @@ VA - Utopia (2017) Rebellion der Traumer [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221530.jpg" />
 </div>
 
 
@@ -583,7 +699,7 @@ VA - Underground Trance Essentials Vol. 13 (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221480.jpg" />
 </div>
 
 
@@ -612,7 +728,7 @@ Jyl - Jyl (1984) LP [MP3|320 Kbps] <Electronic, New Wave, Synth-pop, Electro>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221445.jpg" />
 </div>
 
 
@@ -626,122 +742,6 @@ Jyl - Jyl (1984) LP [MP3|320 Kbps] <Electronic, New Wave, Synth-pop, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3420C47D5BB5759F586D303CC9416D95F7946084
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343011   (221422) от 04.12.2019
-
-VA - A Lovely Connection Chilling Music (2019) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221422.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gesolreut - Faux Pas 05:37
-02. Komplextum - Behind the Curve 05:37
-03. Dustin Lefholz - Fresh Lemon Haze 03:34
-04. Sonnenburg - Degage 05:33(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:21:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F25F1CB5D1F3F379A30B3F73CC8CD40129B4A42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269290   (221417) от 14.12.2018
-
-VA - Remembering the 90s: Best Hits Remixed (2018) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Damon Paul feat. Simone Mangiapane and Tony T. - Rhythm Is a Dancer (Rap Festival Mix)
-02. Felicia Uwaje - A Deeper Love (Akira Yamamoto Radio Edit)
-03. Markus D'Ambrosi feat. Marga Gonzales - Lick It (Miami Mix)
-04. Tosch feat. Christina - Somewhere over the Rainbow (Steve Cypress Remix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 04:30:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B266935E78CD950DBBFDFE87597B2DEBA9565778
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513816   (221318) от 01.12.2021
-
-VA - Vocal House Essentials (2021) [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lopi Native - Let Me Love You (Indy Lopez Remix) (06:41)
-02. KaiMack - Magic (06:02)
-03. Claire Wakeman - Addicted To You (Indy Lopez Remix) (05:29)
-04. Naked Flame - Follow You (Vocal Mix) (04:07)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:27:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45B33870327DA3B6642723766F622331F1B2B0CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207292   (221311) от 04.12.2019
-
-Wolves And Horses - Discography 9 Releases (2015-2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Dark Ambient, Tribal>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nuvvuagittuq (07:28)
- 02. Mount Kamet (06:10)
- 03. Fanjingshan (07:32)
- 04. Gleann Comhann (05:36)(   Читать дальше...   )Тип издания: WEBЖанр: AmbientПродолжительность: 05:44:19 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF78DA68FD23D6EB0D3886323E21A60518D81C9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

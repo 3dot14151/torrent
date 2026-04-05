@@ -1,175 +1,3 @@
-###  Публикация: 1549189   (593289) от 07.05.2022
-
-VA - Summer Dance Party 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ACRAZE - Do It To It (2:37)
-02. Elton John - Cold Heart (PNAU Remix) (3:22)
-03. Jax Jones - Where Did You Go (2:57)
-04. Becky Hill - Remember (2:41)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:33:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDE7DDDB1976F8886C80A24D99A65B2EF92FEC85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300541   (593210) от 06.05.2019
-
-Cyclades - Fire To Desire (1979) 12'' [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593210.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продюсер и аранжировщик - Max Berlin.01. Fire To Desire (6:46)
-02. Ah! Ah!...Encore (6:19)Жанр: Electronic, DiscoПродолжительность: 00:13:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D62250849C82DE90B4D15E51F04BCE0531D48B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300509   (593117) от 06.05.2019
-
-Денис Майданов - Командиры (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593117.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ВДВ
-2. Тишина
-3. Танкист-летёха
-4. Командиры(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:865D7CFAB67C97A3497D2270C384A7D31F803927
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233212   (593025) от 30.06.2018
-
-Aldo Bergamachine - AstroMoog (2010) [MP3|320 Kbps] <Electro, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Was A Robot (04:06)
-02. AstroMoog (03:56)
-03. Gamma X Ray (03:39)
-04. Ashes To Wattoo (Pt.2) (03:30)(   Читать дальше...   )Жанр: Electro, DiscoПродолжительность: 00:26:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51E2A1CDCDA6CD25C29C97ABF96750A1D3043BBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233218   (593018) от 30.06.2018
-
-Infinity Night - The Lost Tracks (2012) [MP3|320 Kbps] <Electro, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nightfall (04:25)
-02. Summer81 (04:15)
-03. Another Lead (04:47)
-04. Spectral (Vocoder FB) (04:56)(   Читать дальше...   )Жанр: Electro, DiscoПродолжительность: 00:39:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BFCE7473C1DEF1E8B7813CC7D9FCF92269C3A05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233510   (593005) от 30.06.2018
-
-Love Childs Afro Cuban Blues Band - 3 Albums (1975-1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нью-Йоркский студийный диско проект от Michael Zager.Список альбомов:
-1975 - Out Among 'Em
-1977 - Spandisco
-1978 - Rhythm Of Life(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:49:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:363B65FBB04C723191980ED86465080BABB9F524
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1233080   (592997) от 30.06.2018
 
 VA - Bravo Hits Lato 2018 (2CD) (2018) [MP3|320 Kbps] <Pop, Dance>
@@ -178,7 +6,7 @@ VA - Bravo Hits Lato 2018 (2CD) (2018) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592997.jpg" />
 </div>
 
 
@@ -207,7 +35,7 @@ VA - Die 90er Live (2018) 2CD [MP3|320 Kbps] <Dance>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592956.jpg" />
 </div>
 
 
@@ -236,7 +64,7 @@ VA - SuperDisco 90's Platinum Collection (2010) [FLAC|Lossless|WEB-DL|tracks] <D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592857.jpg" />
 </div>
 
 
@@ -265,7 +93,7 @@ Sarah Brightman - Hymn  (World Tour Limited Edition) (2019) [FLAC|Lossless|track
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592765.jpg" />
 </div>
 
 
@@ -294,7 +122,7 @@ VA - Energy Hits 2019 (2019) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592757.jpg" />
 </div>
 
 
@@ -323,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592751.jpg" />
 </div>
 
 
@@ -352,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592742.jpg" />
 </div>
 
 
@@ -381,7 +209,7 @@ VA - ZYX Italo Disco Collection 1 (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Di
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592640.jpg" />
 </div>
 
 
@@ -410,7 +238,7 @@ VA - DMC - Million Sellers - The Divas (Classic Mixes) (Vol.1) (2022) [MP3|320 K
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592519.jpg" />
 </div>
 
 
@@ -439,7 +267,7 @@ Amaya - Sensation (2020) CDr [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Dis
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592514.jpg" />
 </div>
 
 
@@ -468,7 +296,7 @@ Bonnie Pointer - Like a Picasso (2022) [FLAC|Lossless|WEB-DL|tracks] <Disco, R&B
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592512.jpg" />
 </div>
 
 
@@ -497,7 +325,7 @@ Timecop1983 - Synthetic Romance (2014) EP [MP3|320 кб/с]<80's Retrowave, Synt
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592356.jpg" />
 </div>
 
 
@@ -526,7 +354,7 @@ Timecop1983 - Waves (2014) EP [MP3|320 кб/с]<80's Retrowave, Synthpop, Dreamw
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592306.jpg" />
 </div>
 
 
@@ -555,7 +383,7 @@ Timecop1983 - Reflections (2015) Limited Edition [MP3|320 кб/с]<80's Retrowav
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592272.jpg" />
 </div>
 
 
@@ -584,7 +412,7 @@ VA - Dance Classics (2CD Compilation) (1997) [MP3|320 кб/с]<Eurodance, House,
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592253.jpg" />
 </div>
 
 
@@ -613,7 +441,7 @@ Bad Boys Blue - Bad Boys Best 2001 (2001) Compilation [FLAC|image + .cue]<Europo
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592252.jpg" />
 </div>
 
 
@@ -642,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592246.jpg" />
 </div>
 
 
@@ -671,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592222.jpg" />
 </div>
 
 
@@ -700,7 +528,7 @@ VA - 100 Hits - 80s Love (2007) 5CD Box Set [FLAC|tracks + .cue]<Pop, Dance, Sou
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592221.jpg" />
 </div>
 
 
@@ -729,7 +557,7 @@ Amaya - Sensation (2020) [MP3|~245 Kbps (V0)] <Italo-Disco, Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592163.jpg" />
 </div>
 
 
@@ -743,6 +571,180 @@ Amaya - Sensation (2020) [MP3|~245 Kbps (V0)] <Italo-Disco, Euro-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9061385437AE47403A2C393DECB487BCA53A8F8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550434   (592161) от 11.05.2022
+
+Gianni Safred - Futuribile (The Life to Come) (1978) Reissue LP, 2019, Four Flies Records [MP3|320 Kbps] <Electronic, Jazz-Funk, Fusion, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Life To Come (3:07)
+02. Disco Satellite (3:19)
+03. Autumn 2001 (3:43)
+04. Disco Propulsion (3:04)(   Читать дальше...   )Жанр: Electronic, Jazz-Funk, Fusion, DiscoПродолжительность: 00:39:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7720AE0CAAC72D5ED27D3CB59BC2134B9298389
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550549   (592154) от 11.05.2022
+
+Fancy - Get Your Kicks (2019) Deluxe Edition [MP3|320 Kbps] <Disco, Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Colder Than Ice (5:07)
+02. Get Your Kicks (5:33)
+03. L.A.D.Y. O. (4:22)
+04. Slice Me Nice / Chinese Eyes (Special Mix) (4:22)(   Читать дальше...   )Жанр: Disco, Italo-Disco, Euro-DiscoПродолжительность: 01:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6AF922463330A10DA89E129916AEC51985C253A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550449   (592112) от 11.05.2022
+
+VA - 80s Disco Forever (2020) [MP3|~245 Kbps (V0)] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fancy - Flames Of Love (Extended Version) (5:20)
+02. Grant Miller - Colder Than Ice (Tess Remix) (6:49)
+03. The Hurricanes - Only One Night (12'' Version) (5:52)
+04. Psychic Interface - Dancin' In The Night (12'' Version) (5:07)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 02:06:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A868146532C213492F1545BB4140188E3B13A68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550594   (592105) от 11.05.2022
+
+Fancy - Get Your Kicks (2019) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Disco, Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Colder Than Ice (5:07)
+02. Get Your Kicks (5:33)
+03. L.A.D.Y. O. (4:22)
+04. Slice Me Nice / Chinese Eyes (Special Mix) (4:22)(   Читать дальше...   )Жанр: Disco, Italo-Disco, Euro-DiscoПродолжительность: 01:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31C3B23C40911DCE8A2FCD95BE010F568E722D9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550443   (592075) от 11.05.2022
+
+VA - Back to Euro Hits (2013) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Euro-House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Free 2 Night - Under the Sun (Eurodance Edit) (4:33)
+02. J & V - Crazy for You (Summer Ragga Mix) (3:15)
+03. Mr. Friso, Big J. Beezy & Kate Lesing - Got the Love (4:12)
+04. Unlimited Friends - 90's Never End (Real Thing Remix) (3:46)(   Читать дальше...   )Жанр: Eurodance, Euro-HouseПродолжительность: 01:21:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8D285F4410A6151ACF5FF3647FE4D29BB6C82F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550444   (592074) от 11.05.2022
+
+VA - Big Mix 1 (2014) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Euro-House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maya - Shout Remix (2:07)
+02. Techno Traxx - Hello Daddy (3:38)
+03. Jasmine - I Know There Is Something On (2:26)
+04. The project '93 - Mammagamma Another Brick in the Wall (3:53)(   Читать дальше...   )Жанр: Eurodance, Euro-HouseПродолжительность: 00:43:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60787C8ED7BB1E652F1AB5239185AC1002F288D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

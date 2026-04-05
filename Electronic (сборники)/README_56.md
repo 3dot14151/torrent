@@ -1,3 +1,61 @@
+###  Публикация: 1012419   (793744) от 01.05.2016
+
+VA - Sexy Summer Relaxation: Cool Spring and Buddha Cafe Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Darwins Dream - Lonely by the Beach - Cafe and Sand Edit
+02. Lounge Inc. - Shine Like the Summer - Behind the Light Edit
+03. Bentley Crasher - Lovers in the Sun - Erotic Lounge Cut
+04. Lounge Killer - Kid with a Dream - Barack Obama Theme Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:12:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B89A0E1AC33E8FA1C0C996CBDDC99977DD30273
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012492   (793652) от 01.05.2016
+
+VA - Top 100 Dance Hits (2016) [MP3|320 кб/с] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793652.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Oldschool Boys -  Miracle Love (Alex Van Dayl Remix)  3:46
+002. Dj Ostkurve Feat. Big Daddi & Kane & Enzo -  Ti Amo (Mone & Navaro Remix)  5:27
+003. Miami Rockers Feat. Rino(Io)Dj -  Jeans On (Tiger & Dragon Mix)  5:48
+004. Avoid & Chris Wittig -  Conclusion (Dualxess & Dj Mst Remix)  5:17(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 08:10:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA691D03828B5480F2CACB1A824603C3FA8597DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1012636   (793561) от 01.05.2016
 
 VA - Record Super Chart № 434 (30.04.2016) (2016) [MP3|320 кб/с] <House, Electro House, Club>
@@ -6,7 +64,7 @@ VA - Record Super Chart № 434 (30.04.2016) (2016) [MP3|320 кб/с] <House, El
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793561.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Space - Greatest Hits (Presents: Elgujakviso) (2016) [MP3|256 кб/с] <Electron
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793385.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Options Remake 150 Tracks (2018 December) (2019) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792996.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Goa House Party (2018) [MP3|320 Kbps] <House, Big Room, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792881.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Deep House Collection Vol.195 (2019) [MP3|320 Kbps] <House, Deep House, Pro
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792734.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Deep House Collection Vol.154 (2018) [MP3|320 Kbps] <Deep House, Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792656.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Record Super Chart 638 (2020) [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792581.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Beatport Trance  Pack (07.04.) (2017) [MP3|320 Kbps] <Trance, Melodic, Upli
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792531.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Shine Of Space (2019) [MP3|320 Kbps] <Synth, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792272.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Trance In Life 01 (2018) [MP3|320 Kbps] <Uplifting,Melodic,Vocal,Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792263.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Great Weekend House Party (2019) [MP3|192-320 Kbps] <Electro House, Dance, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792245.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Trance Collection Vol.74 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance, V
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792244.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Daft Punk - This Is Daft Punk (2019) [MP3|320 Kbps] <Electronic, Pop, Disco, Fun
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792073.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Boris Brejcha - Best of (2017) [Compiled by Firstlast] [MP3|320 Kbps] <Minimal, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791982.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Epic Future House (2019) [MP3|320 Kbps] <Electro House, EDM>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791690.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Lady Night (2018) [MP3|225-320 Kbps] <Chillout, Lounge, Balearic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791634.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Beatport Ambient: Sound Pack #368 (2021) [MP3|320 Kbps] <Ambient, Downtempo
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791379.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Skyline Deep Sound (2020) [MP3|320 Kbps] <Deep House, Edm>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791294.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Let's Hard Dance (2020) [MP3|320 Kbps] <Hardstyle, Hard Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791260.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Progressive Winter Sounds (2019) [MP3|320 Kbps] <Trance, Progressive Trance
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791118.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Hits of My Soul Vol. 56 (2020) [MP3|256-320 Kbps] <Trance, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791093.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - DMC Seasons Winter: Trance Uplifting Party (2018) [MP3|320 Kbps] <Uplifting
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791053.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - The Official UK Top 40 Singles Chart 26.01.2018 [MP3|320 Kbps] <Pop, Dance,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791028.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Дискотека 2018: Зимнее Настроение (Compiled by ZeB
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791012.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Дискотека 2018: Зимнее Настроение (Compiled by ZeB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7ACF3A552BFB4CF180B3CF9347339CB23505BB84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275078   (790961) от 10.01.2019
-
-VA - Empire Records - Red Star (2019) [MP3|320 Kbps] <Spacesynth>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Protector 101 - Lost Scene 3
-02. Apoxyz - Centurion Report (Reprise)
-03. Danger Mode - Final lap pt. 2 - Race of no return
-04. Hypnosis - Argonauts (Album Version)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 01:42:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DA3B1746C64CA0CACAA01BC3A2C1F5D99641B2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275095   (790917) от 10.01.2019
-
-VA - Empire Records - Red Star 2 (2019) [MP3|320 Kbps] <Spacesynth>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Outrider - Ragnarok
-02. Danger Mode - Meridian Cruisin'
-03. Neuton Mouse - The Final Parsec
-04. Future City Records - Darkstronaut - Ignition of The Damned Soul(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 01:24:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5012FE0C1496764357C2DB8202584191573AFA17
 ```
 
 https://mybot314.ru/tekegram_catalog/

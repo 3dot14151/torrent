@@ -1,3 +1,61 @@
+###  Публикация: 1086096   (154684) от 23.12.2016
+
+VA - Underworld - Best275z (1988 - 2016) [MP3|320 Kbps] <Electronic, Progressive House, Techno, Downtempo, Alternative Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Cowgirl 08:30
+02 Dinosaur Adventure 3D 07:57
+03 Pearls Girl 09:37
+04 I Exhale 08:13(   Читать дальше...   )Жанр: Electronic, Progressive House, Techno, Downtempo, Alternative DanceПродолжительность: 07:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F24BB29A2247B34856C6FAA22B42689C63FCCCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433787   (154564) от 22.12.2020
+
+VA - Sunset Event: Chillout Sound Mix (2020) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настрой музыкальной подборки "Sunset Event" как нельзя лучше передает обложка, которая исполнена в привычной стилистике этого музыкального жанра. Музыка музыкальной подборки как бы призывает остановить свой скоростной ритм современной жизни и погрузиться в состояние релакса.001. Weber & Weber - Fly On Wings
+002. Hamam Mounier - Oriental Wellness
+003. C.Cil - Calm & Quiet
+004. Chico Torres - Casual(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 07:56:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79B3248BA86785295E227594A2EB1388B377C60C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194296   (154514) от 25.12.2017
 
 VA - Корпоратив 2018 (mixed by Dj V) (2017) [MP3|320 Kbps] <Club House, Disco House, Dance, Deep House>
@@ -6,7 +64,7 @@ VA - Корпоратив 2018 (mixed by Dj V) (2017) [MP3|320 Kbps] <Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154514.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Ремиксы от MGDC FM Vol 8 (2020) [MP3|320 Kbps] <Funky, Club House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154495.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Relax Winter Sound (2018) [MP3|320 Kbps] <Chillout, Ambient, Downtempo>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154375.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Record Super Chart 618 (2019) [MP3|320 Kbps] <Pop, House, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154029.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Корпоратив 2017 (mixed by Dj V) (2016) [MP3|320 Kbps] <Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153624.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - HGM: Move With The Beat (2020) [MP3|320 Kbps] <Vocal House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153586.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Truly Passionate Chillout (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lo
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153535.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ DigitalPuffy - Technology (2016) EP [MP3|320 Kbps] <Breaks>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153528.jpg" />
 </div>
 
 
@@ -237,7 +295,7 @@ VA - My Chillout Music (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153504.jpg" />
 </div>
 
 
@@ -266,7 +324,7 @@ VA - Graceful Vocal Trance (2016) [MP3|320 Kbps] <Vocal Trance, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153443.jpg" />
 </div>
 
 
@@ -295,7 +353,7 @@ VA - Empire Records - Chill Out 3 (2016) [MP3|320 Kbps] <Chillout, Lounge, Downt
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153361.jpg" />
 </div>
 
 
@@ -324,7 +382,7 @@ VA - Empire Records - Chill Out 5 (2016) [MP3|320 Kbps] <Chillout, Lounge, Downt
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153284.jpg" />
 </div>
 
 
@@ -353,7 +411,7 @@ VA - Creative Electro Box 1 (2012) [MP3|320 кб/с]<House/Electro House/Electro
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153172.jpg" />
 </div>
 
 
@@ -388,7 +446,7 @@ VA - Pure Trance Emotions (2012) [MP3|320 кб/с]<Trance, Progressive Trance, V
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153138.jpg" />
 </div>
 
 
@@ -422,7 +480,7 @@ Dj Parafich - Dub Step Romantica (vol. 2) [more harder] (2012) [MP3|192 кб/с]
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152763.jpg" />
 </div>
 
 
@@ -450,7 +508,7 @@ VA - Empire Records - Chill Out 4 (2016) [MP3|320 Kbps] <Chillout, Lounge, Downt
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152729.jpg" />
 </div>
 
 
@@ -479,7 +537,7 @@ VA - Лучшие клубные новинки Vol.7 (2017) [MP3|320 Kbps] <Upl
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152655.jpg" />
 </div>
 
 
@@ -508,7 +566,7 @@ VA - Chingona: Psychedelic Trance (2018) [MP3|320 Kbps] <Psy Trance, Goa Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152600.jpg" />
 </div>
 
 
@@ -537,7 +595,7 @@ VA - Beautiful Light: New Trance Music (2018) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152452.jpg" />
 </div>
 
 
@@ -566,7 +624,7 @@ VA - Корпоратив 2019 (mixed by Dj V) (2018) [MP3|320 Kbps] <Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152178.jpg" />
 </div>
 
 
@@ -595,7 +653,7 @@ VA - 60 minutes. Old School Dance Music vol.28 (mixed by Dj V) (2024) [MP3|320 K
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151687.jpg" />
 </div>
 
 
@@ -624,7 +682,7 @@ VA - D.Trance 104 (2023) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151106.jpg" />
 </div>
 
 
@@ -653,7 +711,7 @@ VA - Club Hits 2021 (2020) [MP3|320 Kbps] <Funky, Club House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151062.jpg" />
 </div>
 
 
@@ -682,7 +740,7 @@ VA - Авто. Музыка. Дорога (Sound Clinic - Special Edition) (2015
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150835.jpg" />
 </div>
 
 
@@ -696,64 +754,6 @@ VA - Авто. Музыка. Дорога (Sound Clinic - Special Edition) (2015
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72597B9B26360F7C6F232499FF030C6D1DCD5373
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824156   (150676) от 18.10.2025
-
-VA - Trance In Motion Vol.391 (2025) [MP3|320 Kbps|image + .cue] <Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John O'Callaghan Official - Fragmentos (Original Mix)
-02. Solarstone. - Over The Mountains (Club Mix)
-03. RAM Official, Christina Novelli & Asteroid - All Gone 2025 (Extended Mix)
-04. Andrea Ribeca - Summer Bliss (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:26:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:413A169CD41C4CFB9E70AFBAE43F7158CEB89B01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271247   (150185) от 23.12.2018
-
-VA - Record Super Chart 567 (2018) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Don Diablo feat. Emeli Sande & Gucci Mane  -  Survive
-02.  Fisher  -  Losing It
-03.  Gaulin  -  Moonlight
-04.  Rompasso  -  Ignis(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:52:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DD040E2689A534DD7A5449769E7E3065EF05BC8
 ```
 
 https://mybot314.ru/tekegram_catalog/

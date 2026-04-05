@@ -1,3 +1,160 @@
+###  Публикация: 1661637   (188510) от 15.09.2023
+
+Трамвай идет на фронт (2020) IPTVRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188510.jpg" />
+</div>
+
+
+###  Подробнее
+
+5 апреля 1942 года в Ленинграде вновь пустили трамваи. Пять маршрутов связали город. Это стало спасением для измученных войной людей. Новые подробности и неизвестные факты о ленинградском трамвае в рассказах жительниц блокадного Ленинграда Аглаи Черновой (100 лет) и Анны Елисеевой (97 лет), а также директора "Горэлектротранса" Санкт-Петербурга Дениса Минкина, (   Читать дальше...   )Производство: Россия / АНО «Киностудия «КиноМельница»Жанр: документальный, историяРежиссер: Андрей ЕгоровЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:43:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F595337FCAC51413F0D9720FD92649BD1E57878
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232480   (188390) от 15.09.2023
+
+NHK. Мир живой природы III / Nature Wonder Land III (2008) SATRip (серии 1-3, 5-9, 11, 13 из 13)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_188390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Много чудес и необычного таит в себе мир живой природы. Сериал раскроет зрителям ее великое разнообразие. Загадочные факты, скрытые в природе лежат в основе многих удивительных сказок, и некоторые из них хочется назвать мифами. Документальный сериал "Nature wonder land" выявил множество таких истин. В этой третьей коллекции, новые герои выходят на сцену: (   Читать дальше...   )Телекомпания: Япония, NHK EnterprisesЖанр: Природа, Документальный, Флора, ФаунаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 10 x ~00:25:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFC9E7A4B1C18C70E182CC7D7F59D509B02480E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449584   (188376) от 15.09.2023
+
+Беслан (2020) WEB-DL [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_188376.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этой трагедии полтора десятка лет.
+Как смогли попасть в школу вооруженные до зубов головорезы и почему ее охранял единственный милиционер – безоружная женщина? Как и кто планировал теракт? Что говорит об этом единственный захваченный живым террорист Нурпаши Кулаев? Кто распространяет мифы о том, что в смерти детей террористы не виноваты, и кто действительно стрелял (   Читать дальше...   )Телекомпания: Россия 1Жанр: ДокументальныйПродолжительность: 01:48:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:591C16DB2FDA1852D2729AE5239B3FD6C8C984F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1661831   (188280) от 16.09.2023
+
+Пятеро на одного (16.09.2023) WEBRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188280.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: Россия 1Жанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:38:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28D2257B73C36E66DEA30BF18576E1AE97BEE34E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1661906   (188275) от 16.09.2023
+
+Игры разумов (2023) WEBRip [H.264/1080p] (выпуск 19)
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интеллектуальный поединок двух известных людей в телешоу «Игры разумов». В гости к знатокам, известным экспертам и интеллектуалам будут приходить звезды, чтобы на равных сразиться в «разумной» битве. В каждой игре будут вопросы, связанные с профессией или увлечением гостя. Именно он выбирает тему, в которой, как ему кажется, он может превзойти таких профессиональных (   Читать дальше...   )Производство: Россия | "2В Медиа"Жанр: Телепередача, интеллектуальное шоуУчастники: Лариса Рубальская, Юрий ХашимовСубтитры: РусскиеПродолжительность: 00:30:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA07FEEAA92370F19AF04D9023452FA51DC33AAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1661919   (188273) от 16.09.2023
+
+Своя игра (16.09.2023) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188273.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «2В Медиа»Жанр: Интеллектуальная играЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD0668C29D682B2DACE3E4C2A600D4B20B5CD5FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1661865   (188260) от 16.09.2023
 
 Минтранс (16.09.2023) WEBRip [H.264/720p]
@@ -6,7 +163,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188260.jpg" />
 </div>
 
 
@@ -35,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188259.jpg" />
 </div>
 
 
@@ -61,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188252.jpg" />
 </div>
 
 
@@ -90,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188248.jpg" />
 </div>
 
 
@@ -118,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188241.jpg" />
 </div>
 
 
@@ -144,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_188177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_188177.jpg" />
 </div>
 
 
@@ -170,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188174.jpg" />
 </div>
 
 
@@ -196,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_188170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_188170.jpg" />
 </div>
 
 
@@ -222,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188106.jpg" />
 </div>
 
 
@@ -248,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188082.jpg" />
 </div>
 
 
@@ -274,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188077.jpg" />
 </div>
 
 
@@ -302,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188059.jpg" />
 </div>
 
 
@@ -328,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188015.jpg" />
 </div>
 
 
@@ -354,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187995.jpg" />
 </div>
 
 
@@ -380,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187964.jpg" />
 </div>
 
 
@@ -407,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187776.jpg" />
 </div>
 
 
@@ -433,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187725.jpg" />
 </div>
 
 
@@ -459,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187710.jpg" />
 </div>
 
 
@@ -485,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187683.jpg" />
 </div>
 
 
@@ -511,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187360.jpg" />
 </div>
 
 
@@ -524,165 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95AA0CAA8FB16B5F901C29E6AFA735C21DD2C74E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 103436   (187223) от 19.09.2023
-
-Долгий путь на юг / Long Way Down (2007) TVRip (серии 1-10 из 10)
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_187223.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три месяца продолжался мотопробег героя "Звездных войн" и посла доброй воли ЮНИСЕФ актера Юэна Макгрегора.
-"Почетный джедай" Великобритании пытался привлечь внимание к проблемам детей, живущих на африканском континенте. Благотворительная акция со звучным названием Long Way Down ("Долгая дорога на юг") стартовала в Шотландии в мае 2007 (   Читать дальше...   )Производство: Великобритания, Big Earth, Elixir FilmsЖанр: документальный, реальное ТВ, приключенияРежиссер: Дэвид Алексаниан, Расс МалкинУчастники: Юэн Макгрегор, Чарли Бурмен, Дэвид Алексаниан, Расс Малкин, Джеймс Саймак, Ив Мавракис, Клаудио фон Планта, Даи Джонс, Джим Фостер, Нури ЛаминПеревод: ОдноголосыйЯзык озвучки: РусскийПродолжительность: ~00:47:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AE736DDFBE656A0BBA567A8A79F9AC5BC23F6B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591443   (187111) от 18.11.2022
-
-Азия взгляд с высоты / Aerial Asia (2017) WEB-DL [H.264/1080p] (сезон 1, серии 1-4 из 4)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187111.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот захватывающий сериал, снятый с воздуха, отправляет зрителя в невероятное путешествие по загадочной Азии. Вы увидите огромное разнообразие ландшафтов, древние города, огромные мегаполисы и будете поражены современными технологиями, изменившими жизнь этих стран. От красивой, пропитанной благоуханием цветов Индии, до коралловых садов и устрашающих вулканов Индонезии, (   Читать дальше...   )Производство: Сингапур, TVF International, Beach House Pictures, Media Development AuthorityЖанр: документальный, познавательный, природа, путешествияРежиссер: Донован ЧанПеревод: дублированный (Видео Продакшн XXI век)Субтитры: отсутствуютПродолжительность: серии x ~00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4130EE3737B1C1B8F4347E063C89CAFAB31B423C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663133   (187080) от 20.09.2023
-
-Тутанхамон: последняя выставка / Tutankhamun: The Last Exhibition (2022) HDTVRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>История
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187080.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм об истории открытия гробницы Тутанхамона в 1922 году и подготовке выставки Тутанхамона, открытой в Лос-Анджелесе в 2019 году.Производство: Италия / Laboratoriorosso, Nexo DigitalЖанр: документальный, историяРежиссер: Ernesto PaganoПеревод: Одноголосый профессиональный (Iyuno)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:17:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB9B3665703FFD3354585A045625C7860C46134E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591630   (186918) от 19.11.2022
-
-Пятеро на одного (19.11.2022) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186918.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:38:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:620DE065C91BDB7356674FC6CE51167B045828EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591723   (186912) от 19.11.2022
-
-Живая еда с Сергеем Малозёмовым (19.11.2022) SATRip [H.264]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186912.jpg" />
-</div>
-
-
-###  Подробнее
-
-Идеальный завтрак – как приготовить его по науке? И что необычное едят по утрам в разных странах? Как регулярный отказ от завтрака влияет на вес и самочувствие? Что полезнее по утрам – яйца или каши? Стоит ли есть перед тренировкой? И как, не жертвуя сном, быстро приготовить что-то вкусное?
-
-Соевый соус – неприглядная правда о его производстве. На что в составе надо (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:40:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8A1F8F6CEE9A79222D6DFF5D63B74FD92DA721B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591620   (186903) от 19.11.2022
-
-Прямиком из Лос-Анджелеса / LA Originals (2020) WEBRip [H.264/1080p] [DVO]
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186903.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм поведает историю творческого тандема фотографа Эстевана Ориола и художника-татуировщика Мистера Картуна, которые внесли огромный вклад в культуру стрит-арта, чикано и хип-хопа.Производство: США, Аргентина, Underground Contenidos, NetflixЖанр: документальныйРежиссер: Эстеван ОриолПеревод: двуголосый любительский (Синема УС), двуголосый любительский (LakeFilms)Субтитры: русские (Исмаил Дибиров, Netflix), английские (forced + full)Продолжительность: 01:32:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DFB07341632F9D4084B7E2C854AD3B88879051D
 ```
 
 https://mybot314.ru/tekegram_catalog/

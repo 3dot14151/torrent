@@ -1,135 +1,3 @@
-###  Публикация: 1850102   (1054280) от 26.01.2026
-
-John S. Duncan, Davide Giampiccolo | MRI Neuroanatomy. Cortex, Nuclei and Connections (2026) [PDF] [EN]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054280.jpg" />
-</div>
-
-
-###  Подробнее
-
-The dogma that brain function relied on the cortex has dominated clinical neurology, neurosurgery and psychiatry for the last 100 years. Since the start of the 2000s, it has become evident that brain function is orchestrated as a network through white matter connections. This framework provides an understanding of brain function and dysfunction, and has radically (   Читать дальше...   )Жанр: Нейрохирургия, НеврологияЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C18C1E3D029111CECB17B34E46FD4F85A19F36A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850214   (1054242) от 26.01.2026
-
-Руслан Назаров | Как выучить много иностранных языков? Диалектический подход (2025) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054242.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге схема изучения для пяти языков: английский, немецкий, итальянский, французский, испанский. Отдельно — русский, если его изучает иностранец. Основа метода: научиться понимать предложение, как оно формируется, из чего состоит. Суть метода: мы усваиваем то, из чего развивается, «произрастает» язык. Элементарная «единица» предложения — это не слово, буква, а (   Читать дальше...   )Жанр: Языкознание, обучениеИздательство: Издательские решенияФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A28410379CB1A2B78C4AC9B02ADD705211C482A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850247   (1054162) от 27.01.2026
-
-Джон Ронсон | Самовлюбленные, бессовестные и неутомимые. Захватывающие путешествия в мир психопатов (2022) [PDF, EPUB]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уэльский журналист Джон Ронсон берется за расследование мистификации, связавшей ведущих ученых по всему миру, и это решение становится отправной точкой для путешествия в мир безумия.
-
-Пытаясь понять, на чьей стороне истина, журналист реконструирует историю изучения психопатов. Он встречается с саентологами, убежденными в безнравственности психиатров и занимающимися (   Читать дальше...   )Жанр: ПсихиатрияИздательство: ЭксмоФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D2C7B45DA795264C7C2286434DA52ED6B6DF247
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850264   (1054145) от 27.01.2026
-
-Musarrat Husain Warsi , Rishabha Malviya | Biopolymers. Green and Sustainable Approaches for Drug Delivery, Food Products and Packaging (Materials Horizons. From Nature to Nanomaterials) (2026) [PD ...
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054145.jpg" />
-</div>
-
-
-###  Подробнее
-
-This book presents an in-depth exploration of biopolymers in biomedical engineering, spanning 15 chapters. Each chapter delves into different aspects of biopolymers, including their origins, development, potential, and sustainable sources, as well as advanced eco-friendly production methods. The text covers a wide range of applications, from advanced drug delivery (   Читать дальше...   )Жанр: БиополимерыЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76E4639AE809A8AA36D6A2CD3F1F31BC261564A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850265   (1054144) от 27.01.2026
-
-Alberto Debernardi Pinos, Elijah Liflyand, Sergey Tikhonov и др. | Single and Multiple Number Series (2026) [PDF] [EN]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Addressing a significant gap in the study of number series, this book presents an in-depth theory of multiple number series and an exhaustive examination of one-dimensional series. It incorporates overlooked yet essential results alongside recent research advancements. Much of the text is based on the authors' original contributions, particularly in the development (   Читать дальше...   )Жанр: МатематикаЯзык: АнглийскийИздательство: Cambridge University PressФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B485114794B9F1A9C9FFCFACF6FF876F5D3062FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1850268   (1054143) от 27.01.2026
 
 Andreas Meister | Numerical Methods for Linear Systems of Equations. An Introduction to Modern Methods With MATLAB® Implementations by C. Vomel (2026) [PDF] [EN]
@@ -138,7 +6,7 @@ Andreas Meister | Numerical Methods for Linear Systems of Equations. An Introduc
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054143.jpg" />
 </div>
 
 
@@ -166,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054080.jpg" />
 </div>
 
 
@@ -195,7 +63,7 @@ Dietrich Orlow | A History of Modern Germany. 1871 to Present. 9th Edition (2025
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054044.jpg" />
 </div>
 
 
@@ -223,7 +91,7 @@ Aleksandr Ovsianikov, James Yoo, Vladimir Mironov | 3D Printing and Biofabricati
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054041.jpg" />
 </div>
 
 
@@ -249,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053999.jpg" />
 </div>
 
 
@@ -275,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053936.jpg" />
 </div>
 
 
@@ -301,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053833.jpg" />
 </div>
 
 
@@ -330,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053832.jpg" />
 </div>
 
 
@@ -358,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053831.jpg" />
 </div>
 
 
@@ -384,7 +252,7 @@ Marek Golebiowski | An Encyclopedia of American Culture (2016) [PDF] [EN]
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053799.jpg" />
 </div>
 
 
@@ -410,7 +278,7 @@ Anthony C. Thiselton | A Concise Encyclopedia of the Philosophy of Religion (200
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053798.jpg" />
 </div>
 
 
@@ -436,7 +304,7 @@ Manju Jaidka, Tej N. Dhar | The Routledge Encyclopedia of Indian Writing in Engl
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053797.jpg" />
 </div>
 
 
@@ -462,7 +330,7 @@ Philip M. Peek, Kwesi Yankah | African Folklore. An Encyclopedia (2004) [PDF] [E
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053796.jpg" />
 </div>
 
 
@@ -488,7 +356,7 @@ Lilia Fernández | 50 Events That Shaped Latino History. An Encyclopedia of the 
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053793.jpg" />
 </div>
 
 
@@ -516,7 +384,7 @@ BradyGames | Capcom 30th Anniversary Character Encyclopedia (2013) [PDF] [EN]
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053792.jpg" />
 </div>
 
 
@@ -543,7 +411,7 @@ Jay H. Lehr, Jack Keeley | Alternative Energy and Shale Gas Encyclopedia (2016) 
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053791.jpg" />
 </div>
 
 
@@ -572,7 +440,7 @@ Mathew Klickstein | The Little Encyclopedia of Jewish Culture/ 101 People, Place
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053777.jpg" />
 </div>
 
 
@@ -600,7 +468,7 @@ I. McNeil | An Encyclopedia of the History of Technology (2002) [PDF] [EN]
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053776.jpg" />
 </div>
 
 
@@ -626,7 +494,7 @@ William Schweiker, Maria Antonaccio, Elizabeth Bucar | Encyclopedia of Religious
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053775.jpg" />
 </div>
 
 
@@ -652,7 +520,7 @@ Lucy Morrison, Staci L. Stone | A Mary Shelley Encyclopedia (2003) [PDF] [EN]
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053773.jpg" />
 </div>
 
 
@@ -680,7 +548,7 @@ Pam J. Crabtree, Peter I. Bogucki | Ancient Europe. 8000 B.C. to A.D. 1000. An E
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053772.jpg" />
 </div>
 
 
@@ -691,6 +559,138 @@ This detailed encyclopedia is the first to explore the many peoples of early Eur
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90597DB78F22D7275C9494673CB5FF1F3B9109B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849405   (1053771) от 23.01.2026
+
+В.Ф. Чудесенко | Сборник заданий по специальным курсам высшей математики (1983) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пособие написано в соответствии с действующей программой по курсу высшей математики. Оно содержит типовые расчеты по теории функций комплексного переменного, операционному исчислению, уравнениям математической физики, теории вероятностей и математической статистике. Задачи представлены 31 вариантом. Типовые расчеты содержат также теоретические вопросы, упражнения (   Читать дальше...   )Жанр: МатематикаИздательство: Высшая школаФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A7C44ED310EB4D806EA89D6AD14692AF3BB84E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849398   (1053770) от 23.01.2026
+
+Mac Fulfer | Amazing Face Reading. An Illustrated Encyclopedia for Reading Faces (1996) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053770.jpg" />
+</div>
+
+
+###  Подробнее
+
+Face Reading is a means to a deeper communication with every person you meet. Fulfer takes this art/science out of the realm of the mysterious and into a hands-on method of learning. The most comprehensive, easy-to-use book of Face Reading available today. Amazing Face Reading is organized in an encyclopedic format and superbly illustrated. It takes you through faces, (   Читать дальше...   )Жанр: Энциклопедии, Психология, Межличностные отношенияЯзык: АнглийскийИздательство: Herveys BooklinkФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C98535D84D48A32047DEE225F9174672F8E3C3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849631   (1053621) от 24.01.2026
+
+В.И. Пустовойт | Хронический стресс и его последствия. Том 1 (2025) [PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053621.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый том трехтомного издания «Хронический стресс и его последствия» посвящён фундаментальным аспектам нейробиологии и патофизиологии стресс-индуцированных расстройств. В книге представлен междисциплинарный анализ, объединяющий достижения нейробиологии, психофизиологии, эндокринологии, иммунологии и клинической медицины. Особое внимание уделено эпидемиологической (   Читать дальше...   )Жанр: Здоровье, Популярно о медицинеИздательство: М.: ФМБЦФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:224A2892EDBB48AE9BFBD3CDA8936736760BAAEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848484   (1053589) от 24.01.2026
+
+Коллектив авторов | Материалы по русской трёхлинейной винтовке [76] (1922-1990) [DJVU, PDF, DOC, FB2, JPG]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053589.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаю уважаемому сообществу свою коллекцию книг - Памяток, Инструкций, НСД и прочих материалов, посвященных русской трехлинейной винтовке, разработанной нашим великим соотечественником, капитаном Сергеем Ивановичем Мосиным.
+
+В раздачу включены многие печатные материалы, посвященные русской трехлинейке образца 1891 г., 1891/30 г., карабинам образца 1938 г. и 1944 (   Читать дальше...   )Жанр: Исторический, научно-популярныйИздательство: РазличныеФормат: DJVU, PDF, DOC, FB2, JPGКачество: Различное
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B87AEB9E044DBB2F1BAA04261E8521EB7A65C95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849303   (1053551) от 22.01.2026
+
+Дж. Ортега | Введение в параллельные и векторные методы решения линейных систем (1991) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга известного американского математика, знакомого советским читателям по его совместной с В. Рейнболдтом книге "Итерационные методы решения нелинейных систем уравнений со многими неизвестными" (М.: Мир, 1975) и по совместной с У. Пулом книге "Введение в численные методы решения дифференциальных уравнений" (М.: Наука, 1986). Его новая книга (   Читать дальше...   )Жанр: МатематикаИздательство: МирФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65F168EA3EABF5CB72D4BB65FD0CE033AC48F179
 ```
 
 https://mybot314.ru/tekegram_catalog/

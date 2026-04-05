@@ -1,3 +1,55 @@
+###  Публикация: 1523607   (728804) от 11.02.2022
+
+Ангелы с грязными лицами / Angels with Dirty Faces (1938) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728804.jpg" />
+</div>
+
+
+###  Подробнее
+
+По рассказу Роланда Брауна. Два друга детства вместе совершили кражу. Рокки попался, взял всю вину на себя, сел в тюрьму и стал профессиональным преступником, а Джерри подался в священники. Выйдя из тюрьмы в очередной раз, Рокки отправился к Джиму Фрезеру, своему адвокату-партнёру, распоряжавшемуся всё это время их общими деньгами, а тот вместо доли натравливает (   Читать дальше...   )Производство: США, Warner Bros. PicturesЖанр: нуар, драма, криминал, триллерРежиссер: Майкл КёртисАктеры: Джеймс Кэгни, Пэт О`Брайен, Хамфри Богарт, Энн Шеридан, Джордж Бэнкрофт, Билли Хэлоп, Бобби Джордан, Лео Горси, Гэбриел Делл, Ханц ХоллПеревод: профессиональные многоголосые (Film Prestige; т/к Россия)Субтитры: русские, английскиеПродолжительность: 01:37:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0641E1E667A2DB59A7D6C8E6C9412636571BCFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018937   (728581) от 02.06.2016
+
+Вечеринка / The Party (1968) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мистера Хрунди Ви Бакши пригласили сниматься в кино. Он был слегка рассеян и случайно наступил на рычаг, что привело к взрыву дорогостоящей декорации крепости. Приглашение на ужин, которое так же случайно пришло на его адрес, приводит Бакши в дом директора пострадавшей киностудии. В этом шикарном особняке с бассейном и садом начинается «замечательная» вечеринка, (   Читать дальше...   )Производство: СШАЖанр: КомедияРежиссер: Блейк ЭдвардсАктеры: Питер Селлерс, Клодин Лонже, Мардж Чэмпион, Фэй МакКензи, Стив Фрэнкен, Бадди Лестер, Денни Миллер, Гэвин МакЛауд, Кэрол Уэйн, Дик Крокетт, Фрэнсис Дэвис, Даниэль Де МецПеревод: Профессиональный многоголосый (Первый Канал)Субтитры: ОтсутствуютПродолжительность: 01:39:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E920B3619DCD2D6221396A460C81D77886D4E68E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018950   (728165) от 02.06.2016
 
 Серафино / Serafino (1968) DVDRip
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728165.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728080.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727350.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727265.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727035.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726489.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726317.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726273.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726171.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726028.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725483.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725003.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724102.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723565.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722735.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722010.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721911.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721125.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720395.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720011.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719599.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719201.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_719035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_719035.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718881.jpg" />
 </div>
 
 
@@ -625,58 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:817692DC4E13235FC6BFB39A8B6E03FC75F205EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531924   (718660) от 17.02.2022
-
-Ребекка / Rebecca (1940) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация одноимённого романа Дафны Дюморье. Де Уинтер, богатый мужчина, примерно год назад потерял жену Ребекку. Он приезжает в Монте-Карло, где встречает миссис Ван Хоппер и её юную компаньонку. Постепенно Максимиллиан так увлекается молодой особой, что, в конце концов, женится на ней, и вскоре супруги возвращаются в Мэндэрли, владение семьи Де Уинтеров в Корнуэлле. (   Читать дальше...   )Производство: США, Selznick International PicturesЖанр: драма, мелодрама, детектив, триллерРежиссер: Альфред ХичкокАктеры: Лоуренс Оливье, Джоан Фонтейн, Джордж Сандерс, Джудит Андерсон, Найджел Брюс, Реджинальд Денни, С. Обри Смит, Глэдис Купер, Флоренс Бейтс, Мелвилл Купер, Альфред ХичкокПеревод: профессиональные многоголосые (SomeWax; New Dream Media), авторские (Юрий Живов, Юрий Товбин)Субтитры: русские (SomeWax), английские (Criterion)Продолжительность: 02:10:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EDE926F7596AFB3364C218545F51795FC11D1B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 790437   (717964) от 29.05.2014
-
-Будучи там / Being There (1979) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717964.jpg" />
-</div>
-
-
-###  Подробнее
-
-Садовник Шанс из уединенного поместья в Вашингтоне судил о жизни по телепередачам. Случайно опав в закрытое общество влиятельных политиков (среди которых Мелвин Дуглас в роли, принесшей ему второго "Оскара"), он стремится "набраться мудрости". Как сказал бы сам Шанс, вам это понравится.Жанр: Драма, КомедияРежиссер: Хэл Эшби /Hal AshbyАктеры: Питер Селлерс, Ширли МакЛэйн, Мелвин Даглас, Джек Уорден, Ричард Дайсарт, Ричард Бэйсхарт, Рут Эттэуэй, Дэвид Кленнон, Фрэн Брилл, Дениз Дю БарриПеревод: Профессиональный (полное дублирование)Продолжительность: 02:09:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB7EF58FE8B8D61A80924F53B35CEE5CD4DD6224
 ```
 
 https://mybot314.ru/tekegram_catalog/

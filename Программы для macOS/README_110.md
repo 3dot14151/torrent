@@ -1,3 +1,55 @@
+###  Публикация: 1332261   (316507) от 19.10.2019
+
+JixiPix Photo Formation Pro 1.0.10 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316507.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Formation - это фотоэффект, который автоматически преобразует изображения в супер-креативные бумажные образования, а затем использует 3D-движок света для создания очень крутых теней. Используйте его, чтобы фрагментировать, объединять, переплетать, разрезать и складывать фотографии в увлекательные привлекательные кусочки, со всеми тонкими складками, завитками (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.10.2019Разработчик: JixiPix Software, LLCПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6429189E5A937544D8C97A39197B72AAAE9C3CCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332311   (316298) от 19.10.2019
+
+BitPerfect 3.2.0 [Multi/Ru]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316298.jpg" />
+</div>
+
+
+###  Подробнее
+
+BitPerfect - простой, легкий в использовании, музыкальный плеер аудиофильского класса, который работает с iTunes, чтобы получить максимально возможное качество звука.Тип издания: OS X SoftwareРелиз состоялся: 10.10.2019Разработчик: BitPerfect Sound Inc.Поддерживаемая ОС: OS X 10.8 +Язык интерфейса: Русский, Английский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11112668763FB3587BA1AF28AE63BCE0C553E68E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1076212   (315771) от 24.11.2016
 
 Sketches Pro 2.0 [Multi/Ru]
@@ -6,7 +58,7 @@ Sketches Pro 2.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315771.jpg" />
 </div>
 
 
@@ -35,7 +87,7 @@ Adobe After Effects CC 2019 v16.1.3 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315610.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ Invisible 2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315101.jpg" />
 </div>
 
 
@@ -89,7 +141,7 @@ Coda 2 v2.7.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315068.jpg" />
 </div>
 
 
@@ -116,7 +168,7 @@ Web2App 2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314995.jpg" />
 </div>
 
 
@@ -145,7 +197,7 @@ Coda 2.0.6 [Eng]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_314986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_314986.jpg" />
 </div>
 
 
@@ -175,7 +227,7 @@ EyeTV 3.6.9 (7521) [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314624.jpg" />
 </div>
 
 
@@ -203,7 +255,7 @@ PrimoMusic Pro 1.7.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314455.jpg" />
 </div>
 
 
@@ -229,7 +281,7 @@ Sync Checker 3.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314446.jpg" />
 </div>
 
 
@@ -255,7 +307,7 @@ Trash X 1.9.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314346.jpg" />
 </div>
 
 
@@ -281,7 +333,7 @@ Fenetre 0.7.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314329.jpg" />
 </div>
 
 
@@ -310,7 +362,7 @@ Fantastical 2.5.6 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314298.jpg" />
 </div>
 
 
@@ -338,7 +390,7 @@ Mirror for Smart TV apps by AirBeamTV v2.1.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314242.jpg" />
 </div>
 
 
@@ -366,7 +418,7 @@ Movavi Video Converter 8.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314078.jpg" />
 </div>
 
 
@@ -392,7 +444,7 @@ Cisdem PDF to Word Converter 7.0.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313982.jpg" />
 </div>
 
 
@@ -418,7 +470,7 @@ Habitify: Habit Tracker 6.0 (3001) [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313886.jpg" />
 </div>
 
 
@@ -445,7 +497,7 @@ iSkysoft iMedia Converter 2.0.7 [Eng]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312916.jpg" />
 </div>
 
 
@@ -471,7 +523,7 @@ Adobe Acrobat X Pro [En, Fr, De]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312800.jpg" />
 </div>
 
 
@@ -497,7 +549,7 @@ Delicious Library 3.7.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312477.jpg" />
 </div>
 
 
@@ -523,7 +575,7 @@ Submerge 3.4.6 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312338.jpg" />
 </div>
 
 
@@ -549,7 +601,7 @@ PhoneRescue 3.5 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312205.jpg" />
 </div>
 
 
@@ -575,7 +627,7 @@ Lights Out 3.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311816.jpg" />
 </div>
 
 
@@ -601,7 +653,7 @@ DiskTools Pro 3.8.3 [Eng]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_311768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_311768.jpg" />
 </div>
 
 
@@ -636,7 +688,7 @@ GarageBand 10.2 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311473.jpg" />
 </div>
 
 
@@ -647,60 +699,6 @@ GarageBand 10.2 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAAF3D31F3E9F60B340AC5B6FF61FD3A40156A46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183044   (311291) от 12.11.2017
-
-Apple iWork Pages 6.3.1, Numbers 4.3.1, Keynote 7.3.1 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311291.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый простой, удобный и элегантный способ для создания текстовых документов, электронных таблиц и великолепных презентаций с пакетом iWork. Кроме того, пакет iWork работает с Microsoft Office, поэтому совместное использование файлов становится ещё проще.Тип издания: macOS SoftwareРелиз состоялся: 09.11.2017Разработчик: Apple Inc.Поддерживаемая ОС: macOS 10.12 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:031C09D2AF5C6DEE111B1A3F9A65CD42AF6B7C7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076801   (310830) от 26.11.2016
-
-CursorSense 1.3.2 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310830.jpg" />
-</div>
-
-
-###  Подробнее
-
-CursorSense - приложение, позволяющее регулировать ускорение и чувствительность курсора. Отрегулировав эти значения, вы сможет управлять курсором так же легко, как своей рукой.
-
-Кроме того, утилита CursorSense поставляется со встроенной поддержкой всех трекпадов и мышей, и предназначен, чтобы позволить вам перемещать курсор с большей точностью.Тип издания: macOS SoftwareРелиз состоялся: 23 ноября 2016Разработчик: Plentycom SystemsПоддерживаемая ОС: macOS 10.6  +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D99C34021714A0E08AACB36F4A674D968BA9EB38
 ```
 
 https://mybot314.ru/tekegram_catalog/

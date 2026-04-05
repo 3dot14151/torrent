@@ -1,3 +1,159 @@
+###  Публикация: 1281242   (751214) от 08.02.2019
+
+Google через Chrome предупредит о скомпрометированном пароле
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_751214.jpg" />
+</div>
+
+
+###  Подробнее
+
+Google выпустил расширение Password Checkup для Chrome, которое сообщает пользователю — безопасен ли пароль.Для этого расширение проверяет его по базам данных 4 миллиардов комбинаций, о которых уже знают злоумышленники. Если компании станет известно о новой утечке, и пароль окажется скомпрометирован, пользователь получит уведомление при входе в аккаунт с любого устройства.Для (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019303   (751175) от 22.05.2016
+
+Teenage Mutant Ninja Turtles: Mutants in Manhattan (2016) [PS3] [USA] 3.55 [PSN / DLC] [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751175.jpg" />
+</div>
+
+
+###  Подробнее
+
+Teenage Mutant Ninja Turtles: Mutants in Manhattan - это классический кооперативный экшен про черепашек ниндзя по сюжету автора комиксов Тома Вальца. Игрокам доступны кооператив для 2-4 человек и онлайновый мультиплеер с несколькими режимами. Боритесь вместе со своими братьями-черепашками в канализации, подземке и на улицах Нью-Йорка, для того чтобы победить Шредера (   Читать дальше...   )Тип издания: PSNРазработчик: Platinum GamesЖанр: Action, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2264B81CD69FFA9971CEECA7481E0CD92799DE45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019248   (751174) от 22.05.2016
+
+Act of Aggression - Reboot Edition (2015) [En/Multi] (260000390) Repack Other s
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие Act of Aggression начинается в 2020 году в мрачном реалистичном будущем, где 3 крупные фракции сражаются за свои интересы. Первая - подпольный Картель, обладающий высокими технологиями, украденными прототипами, устраивающий секретные операции. Вторая - финансируемая ООН военная организация Химера (Chimere), пытающаяся быстрыми ударами добиться мира и порядка. (   Читать дальше...   )Тип издания: RepackРазработчик: Eugen SystemsЖанр: Strategy, 3DЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F2AC17024B516FB1059B68261AF5FDFBA6A24AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002471   (751173) от 22.05.2016
+
+Ashes of the Singularity (2016) [En/Ge] (1.11) License CODEX
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751173.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ashes of the Singularity - это футуристическая реалтайм стратегия, где игрокам предложены несколько планет для сражений в виде локаций. Действие разворачивается в далёком будущем: человечество давно утратило материальную форму и превратилось в существа чистой энергии и сознания.Тип издания: LicenseРазработчик: Stardock EntertainmentЖанр: Strategy (Real-time), 3DЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFBAC664166179CDEEB04062F48BCFDE040ACE65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933785   (751165) от 22.05.2016
+
+Act of Aggression - Reboot Edition (2015) [En/Multi] (770000792) License CODEX
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Act of Aggression – стратегия в реальном времени, действие которой разворачивается в недалеком будущем в 2020-х годах. Игра сталкивает между собой три крупные фракции, сражающиеся за свои интересы. В результате того, что многие государства обанкротились, в мире случился массовый экономический кризис.Тип издания: LicenseРазработчик: Eugen SystemsЖанр: Strategy (Real-time), 3DЯзык озвучки: АнглийскийЯзык субтитров: Английский и другиеЯзык интерфейса: Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:577C7403A78A1D455D533A2EE6D3A522452199BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019290   (751163) от 22.05.2016
+
+Cowon jetAudio 8.1.5.10314 Plus Retail [Ru/En]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751163.jpg" />
+</div>
+
+
+###  Подробнее
+
+JetAudio - это универсальный проигрыватель музыкальных и видео файлов, риппер, конвертер и т.д., в общем, все в одном комплекте. Программа поддерживает практически все музыкальные форматы, умеет проигрывать MP3, MP2, WAV, MID, REAL AUDIO/VIDEO, S3M, MOD, MPG, AVI, MOV, Video/Audio CD, RealPlayer G2 и некоторые другие форматы мультимедийных файлов. Позволяет записывать (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BBF986D7FE8F045F1A2042FEA5EE41F97B34C65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281286   (751038) от 08.02.2019
 
 Россия: $10  за высокоскоростной широкополосный интернет,  США $70 за медленный – обзор 195 стран
@@ -6,7 +162,7 @@
 >>9
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_751038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_751038.jpg" />
 </div>
 
 
@@ -34,7 +190,7 @@ Adobe Photoshop CC 2019 20.0.3 RePack by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751036.jpg" />
 </div>
 
 
@@ -60,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751025.jpg" />
 </div>
 
 
@@ -86,7 +242,7 @@ Dragon's Dogma: Dark Arisen (2016) [Ru] (1.0/u7) Repack xatab
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751021.jpg" />
 </div>
 
 
@@ -112,7 +268,7 @@ PotPlayer 220106 (1.7.21590) (x64) Stable RePack (& portable) by 7sh3 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750973.jpg" />
 </div>
 
 
@@ -138,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750964.jpg" />
 </div>
 
 
@@ -164,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750963.jpg" />
 </div>
 
 
@@ -190,7 +346,7 @@ Google запретила несертифицированным Android-уст�
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_750628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_750628.jpg" />
 </div>
 
 
@@ -216,7 +372,7 @@ Malwarebytes Premium 3.4.5.2467 RePack by KpoJIuK [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750620.jpg" />
 </div>
 
 
@@ -242,7 +398,7 @@ BioShock 2 Remastered (2016) [Ru] (1.0.122864/upd3) Repack =nemos=
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750613.jpg" />
 </div>
 
 
@@ -268,7 +424,7 @@ CSI: Место Преступления / CSI: Crime Scene Investigation (2012-
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_750475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_750475.jpg" />
 </div>
 
 
@@ -294,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>11
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_750474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_750474.jpg" />
 </div>
 
 
@@ -321,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750093.jpg" />
 </div>
 
 
@@ -348,7 +504,7 @@ PROMT Professional v.9.0.443 Giant (Словари встроены) - Тиха�
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_750036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_750036.jpg" />
 </div>
 
 
@@ -374,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_750034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_750034.jpg" />
 </div>
 
 
@@ -403,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_750027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_750027.jpg" />
 </div>
 
 
@@ -429,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_749851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749851.jpg" />
 </div>
 
 
@@ -455,7 +611,7 @@ Flash Falcon - проект футуристического сверхзвук�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_749850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749850.jpg" />
 </div>
 
 
@@ -481,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_749745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749745.jpg" />
 </div>
 
 
@@ -507,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749725.jpg" />
 </div>
 
 
@@ -518,164 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43D82BECE09618CAC15667F9B70D977216EBAC8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217165   (749724) от 13.07.2020
-
-Простоквашино (2018-2020) WEB-DLRip (сезон 1-2, серии 1-33) + бонус
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749724.jpg" />
-</div>
-
-
-###  Подробнее
-
-Казалось, никакие бури внешнего мира не смогут поколебать привычный и размеренный ход деревенской жизни Простоквашино. Время как будто застыло. Все так же каждое утро Матроскин дегустирует свежее молоко, полученное от своей любимицы — коровы Мурки. Все так же Шарик проводит время в окрестных лесах, «фотоохотясь» на редкую дичь. Правда, теперь он научился выкладывать (   Читать дальше...   )Производство: Россия / СоюзмультфильмЖанр: Мультсериал для детейРежиссер: Михаил СолошенкоАктеры: Антон Табаков, Гарик Сукачев, Иван Охлобыстин, Юлия Меньшова, Андрей Тенетко, Ольга Голованова, Алексей ОнеженПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: ~00:06:30 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0E0C6F4A3E5E134E75240DBA0C7E7CEB7EC1EB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281646   (749589) от 09.02.2019
-
-Александр Никонов | Эволюция на пальцах. Для детей и родителей, которые хотят объяснять детям (2019) [PDF]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_749589.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотели бы вы снова от звонка до звонка 10 лет отсидеть за школьной партой? Вряд ли… Школа запихивает в голову огромную кучу знаний, только вот раскиданы они беспорядочно и поэтому остаются невостребованными. Что вот вы помните из школьной программы про теорию эволюции? Обезьяны, Дарвин, гены… Эх, невелик набор, да и системы в нем нет.
-
-Эта книга знакомит детей и (   Читать дальше...   )Жанр: Человек. Земля. ВселеннаяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B92172B1302C4D86FF524F81C1661201938F0E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019274   (749481) от 23.05.2016
-
-Установлены особенности людей, которые верят в теории заговора
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_749481.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы думаете, что американцев не было на Луне, производители антивирусного ПО сами выпускают вирусы, нефтяные корпорации блокируют развитие альтернативной энергетики, а ГМО вызывает бесплодие, то вполне возможно, что у вас (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019554   (749469) от 23.05.2016
-
-Дуэль братьев. История Adidas и Puma / Duell der Bruder - Die Geschichte von Adidas und Puma (2016) HDTVRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749469.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый носит их обувь. А это их история. В начале 20-х годов XX века братья Адольф и Рудольф Дасслеры основали небольшую обувную фабрику в баварском городе Херцогенаурах. Благодаря слаженной работе талантливого Ади и коммерческим способностям Руди предприятие быстро расширялось. Лучшие спортсмены мира предпочитали тренироваться и выступать в их шиповках. Однако за (   Читать дальше...   )Производство: ГерманияЖанр: Драма, ВоенныйРежиссер: Оливер ДомменгетАктеры: Джесси Альберт, Флориан Бартоломай, Надя Бекер, Хенк Бухольц, Давид К. Буннерс, Мерл Колле, Александр Кудрясов, Кен Дукен, Кристоф ГарайзенПеревод: Многоголосый закадровый, любительский (ViruseProject)Продолжительность: 01:51:13Реклама: присутствуют текстовые вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D0193B5D13B3F0FE3B90323036F2A7A23329B20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934380   (749466) от 23.05.2016
-
-Banished (2014) [Ru/En] (1.0.6) License GOG
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749466.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Banished" является экономической градостроительной инди-стратегией. Здесь вам предстоит взять под свой контроль группу людей, изгнанных из своего родного города, которые вынуждены бороться за выживание на новой земле. Одежда и несколько телег с провиантом – единственное их имущество, оставшимся с родного дома.Тип издания: LicenseРазработчик: Shining Rock Software LLCЖанр: Strategy (Manage, Busin., Real-time), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88DC7CBDC754803105A734FB164AAEA9857B5524
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909512   (749464) от 23.05.2016
-
-Battlefield 4 (2013) [Ru] (1.2.0.1.117022/upd12) RePack =nemos= [Digital Deluxe Edition]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749464.jpg" />
-</div>
-
-
-###  Подробнее
-
-Battlefield 4 – динамичный, жесткий, максимально реалистичный военный шутер от первого лица. Используя мощь и гибкость движка нового поколения Frostbite 3, Battlefield 4 предоставляет еще большую, чем прежде, свободу в действиях и поступках, позволяет вам почувствовать себя настоящим участником подлинно драматичных сражений.Тип издания: RePackРазработчик: EA Digital Illusions CEЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2307F3FAC6738533A3252FFDBBA5A04F87B03135
 ```
 
 https://mybot314.ru/tekegram_catalog/

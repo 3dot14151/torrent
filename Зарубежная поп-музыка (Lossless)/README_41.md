@@ -6,7 +6,7 @@ Modestia Aparte - Historias sin Importancia (1991) [FLAC|Lossless|tracks + .cue]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637478.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ ABBA - Golden Disco Hits (2001) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636859.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Woman In Love (1983) Unofficial Release [APE|Lossless|image + .cue] <Pop, P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636129.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Giorgio Moroder – Deja Vu (2015) [FLAC|Lossless|WEB-DL]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635959.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Tori Kelly - Hiding Place (2018) [FLAC|Lossless|tracks + .cue] <Pop, Gospel>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635667.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Arabesque - Greatest Hits Volume 2 (1993) Unofficial Release [FLAC|Lossless|imag
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635365.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Flo Rida - Wild Ones (2012) [FLAC|Lossless]<Pop, Dance, R&B>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635060.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Marie Fredriksson - I En Tid Som Var (1996) [FLAC|image + .cue]<Pop, Pop-Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633990.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Jon Secada – Heart, Soul & A Voice (1994) [APE|Lossless|image + .cue] <RPop Ro
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632590.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Weyes Blood - Titanic Rising (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631858.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Kim Wilde - The Singles Collection 1981-1993 (1993) Japan Edition [FLAC|image + 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629746.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Summer Wedding 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629526.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Kany Garcia - Limonada (2016) [FLAC|Lossless|WEB-DL|tracks] <Latin Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628668.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ VA - Come and Get It: The Best of Apple Records (2010) Remaster [FLAC|Lossless|t
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628527.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Britney Spears feat. G-Eazy - Make Me (2016) Single [FLAC|Lossless|WEB-DL|track]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628525.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Lena - Only Love, L (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Indie Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628361.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Bonnie Tyler - Between The Earth And The Stars (2019) [FLAC|Lossless|tracks + .c
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628251.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Lana Del Rey - Lust for Life (2017) [FLAC|Lossless|image + .cue] <Pop, Indie Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627943.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Neil Sedaka - The Real... Neil Sedaka (The Ultimate Collection) (2014) 3CD [FLAC
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627491.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ All Time Low - Last Young Renegade (2017) [FLAC|Lossless|tracks + .cue] <Pop Roc
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627489.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Katy Perry - Witness (Japanese Deluxe Edition) (2017) [FLAC|Lossless|tracks + .c
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627234.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Dicte - Perfume (2016) [FLAC|Lossless|tracks + .cue] <Pop, Soul>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626710.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Arabesque - Greatest Hits Volume 1 (1993) Unofficial Release [APE|Lossless|image
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626505.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Christopher Cross - Doctor Faith (2011) [FLAC|Lossless|image + .cue] <Pop Rock, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626115.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ Lenka - The Bright Side (2015) [FLAC|Lossless|WEB-DL]<Indie Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626003.jpg" />
 </div>
 
 
@@ -734,7 +734,7 @@ Giorgio Moroder - Deja-Vu (2015) [FLAC|Lossless]<Pop, Electronic>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626002.jpg" />
 </div>
 
 

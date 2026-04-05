@@ -1,3 +1,30 @@
+###  Публикация: 1362946   (946566) от 25.02.2020
+
+MacPilot 11 v11.0.9 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лёгкое включение и отключение скрытых функций Mac OS X, оптимизация и ремонт вашей системы, выполнение множества рутинных процедур по обслуживанию системы путём простого нажатия на кнопку!
+Независимо от того, профессионал вы или начинающий пользователь, теперь вы сможете повысить производительность компьютера несколькими кликами мыши. В приложении предусмотрено выполнение (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.02.2020Разработчик: Koingo Software, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1F8066FB0F5684D51237D45DB03A185430A1224
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090827   (945855) от 07.01.2017
 
 deepClock 1.11.2 [Multi/Ru]
@@ -6,7 +33,7 @@ deepClock 1.11.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945855.jpg" />
 </div>
 
 
@@ -34,7 +61,7 @@ Get Backup Pro 3 v3.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945379.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ Eagle 1.9.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943557.jpg" />
 </div>
 
 
@@ -86,7 +113,7 @@ SD Clone Pro 3.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942538.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ Veertu Desktop 1.2 (97) [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940222.jpg" />
 </div>
 
 
@@ -141,7 +168,7 @@ WiFi Radar Pro 2.3.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940042.jpg" />
 </div>
 
 
@@ -168,7 +195,7 @@ WhatSize 6.5.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938640.jpg" />
 </div>
 
 
@@ -194,7 +221,7 @@ HoudahGeo 5.4.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938024.jpg" />
 </div>
 
 
@@ -221,7 +248,7 @@ HoudahSpot 5 v5.0.11 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938013.jpg" />
 </div>
 
 
@@ -250,7 +277,7 @@ Tembo 2.4.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937959.jpg" />
 </div>
 
 
@@ -277,7 +304,7 @@ Serial Box 03.2020 + SerialSeeker 2.0 (44) + iSerial Reader 2.0.23 (build 018e) 
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937947.jpg" />
 </div>
 
 
@@ -306,7 +333,7 @@ Weather Guru - Accurate Weather Forecasts 1.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937135.jpg" />
 </div>
 
 
@@ -335,7 +362,7 @@ Typeeto 1.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935520.jpg" />
 </div>
 
 
@@ -361,7 +388,7 @@ Paste 1.1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935517.jpg" />
 </div>
 
 
@@ -389,7 +416,7 @@ Little Snitch 4.4.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932955.jpg" />
 </div>
 
 
@@ -416,7 +443,7 @@ M3 Drive Mounter 2.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930732.jpg" />
 </div>
 
 
@@ -445,7 +472,7 @@ Mac FoneLab Android Data Recovery 3.1.6 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930568.jpg" />
 </div>
 
 
@@ -473,7 +500,7 @@ CleanMyDrive 2 v2.1.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928885.jpg" />
 </div>
 
 
@@ -499,7 +526,7 @@ Yummy FTP Watcher 2.2.13 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927790.jpg" />
 </div>
 
 
@@ -527,7 +554,7 @@ Yummy FTP Pro 1.11.14 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927654.jpg" />
 </div>
 
 
@@ -556,7 +583,7 @@ CCleaner Pro 1.12.339 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927593.jpg" />
 </div>
 
 
@@ -583,7 +610,7 @@ WhatSize 6.4.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925910.jpg" />
 </div>
 
 
@@ -609,7 +636,7 @@ Espionage 3.6.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924395.jpg" />
 </div>
 
 
@@ -638,7 +665,7 @@ A Better Finder Rename 10 v10.46 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924131.jpg" />
 </div>
 
 
@@ -665,7 +692,7 @@ Dato 3.0.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924068.jpg" />
 </div>
 
 
@@ -677,33 +704,6 @@ Dato поддерживает все языковые стандарты и яз
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D25A46BA6D511E099F321BBF53371EA0B885B81C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489780   (924016) от 17.08.2021
-
-Cleanup My System 1.13 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Восстановите скорость системы, повысьте производительность, освободите место для хранения и получите максимальную производительность на вашем Mac.
-Боретесь с медленной и вялой производительностью Mac? Очистить свою систему - лучший способ ускорить работу Mac. Используя этот профессиональный инструмент настройки, вы можете легко найти и удалить ненужные файлы, нежелательные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.07.2021Разработчик: Systweak SoftwareПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:504CD4A8F0542F5D061CE7F22F09EBC4F0F1D382
 ```
 
 https://mybot314.ru/tekegram_catalog/

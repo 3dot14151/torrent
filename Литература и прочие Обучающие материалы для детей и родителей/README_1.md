@@ -1,3 +1,60 @@
+###  Публикация: 1851880   (1055352) от 04.02.2026
+
+Д.М. Ушаков | ЕГЭ 2025. Информатика. 20 тренировочных вариантов экзаменационных работ (2024) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055352.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вниманию школьников и абитуриентов предлагается пособие для подготовки к ЕГЭ, которое содержит 20 тренировочных вариантов экзаменационных работ.
+
+Каждый экзаменационный вариант в сборнике составлен в соответствии с требованиями единого государственного экзамена, включает задания разных типов и сложности по основным разделам курса информатики. ЕГЭ по информатике проводится (   Читать дальше...   )Жанр: Учебное пособиеИздательство: АСТФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBB0971EC29FC627E2302BA97455DF2A538200E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851878   (1055351) от 04.02.2026
+
+С.С. Крылов, Т.Е. Чуркина | ЕГЭ-2025. Информатика. Типовые экзаменационные варианты. 20 вариантов (2025) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия подготовлена разработчиками контрольных измерительных материалов (КИМ) единого государственного экзамена.
+
+В сборнике представлены:
+• 20 типовых экзаменационных вариантов, составленных в соответствии с демоверсией КИМ ЕГЭ по информатике 2025 года;(   Читать дальше...   )Жанр: Учебное пособиеИздательство: Национальное образованиеФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D6779B4AE929DC1FC8AC5925A3FDCEB38111302
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1851346   (1055156) от 02.02.2026
 
 О.И. Громцева | ЕГЭ-2025. Физика. Самостоятельная подготовка к ЕГЭ (2025) [PDF]
@@ -6,7 +63,7 @@
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055156.jpg" />
 </div>
 
 
@@ -34,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055155.jpg" />
 </div>
 
 
@@ -60,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055153.jpg" />
 </div>
 
 
@@ -88,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055033.jpg" />
 </div>
 
 
@@ -114,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055032.jpg" />
 </div>
 
 
@@ -140,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055023.jpg" />
 </div>
 
 
@@ -166,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054669.jpg" />
 </div>
 
 
@@ -192,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054668.jpg" />
 </div>
 
 
@@ -218,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054667.jpg" />
 </div>
 
 
@@ -244,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054535.jpg" />
 </div>
 
 
@@ -270,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054534.jpg" />
 </div>
 
 
@@ -296,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054533.jpg" />
 </div>
 
 
@@ -325,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054532.jpg" />
 </div>
 
 
@@ -351,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054353.jpg" />
 </div>
 
 
@@ -377,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054308.jpg" />
 </div>
 
 
@@ -403,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054226.jpg" />
 </div>
 
 
@@ -429,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054225.jpg" />
 </div>
 
 
@@ -455,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054224.jpg" />
 </div>
 
 
@@ -483,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054223.jpg" />
 </div>
 
 
@@ -509,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054061.jpg" />
 </div>
 
 
@@ -535,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053976.jpg" />
 </div>
 
 
@@ -561,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053975.jpg" />
 </div>
 
 
@@ -588,7 +645,7 @@ Jenny Mosley, Helen Sonnet | 101 Games for Self-Esteem. Building Confidence and 
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053409.jpg" />
 </div>
 
 
@@ -608,35 +665,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849139   (1053271) от 21.01.2026
-
-Агнесса Рошка | Белочка Рица (1979) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053271.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Вьюга кодры заметает,
-Травы долу прибивает,
-И под ветром до земли
-Ветви голые легли.(   Читать дальше...   )Жанр: Сказка, стихиПеревод: Александр БродскийИздательство: Литература артистикэФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D2855497EC100E08A11B95095B328810BDE377E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849152   (1053219) от 21.01.2026
 
 Подшивка журнала | Квантик №8-12 [5 выпусков] (август-декабрь 2025) [PDF]
@@ -645,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053219.jpg" />
 </div>
 
 
@@ -657,32 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:653761508D23501159DD7916EA66EF22F6F3B74C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848581   (1053136) от 18.01.2026
-
-В.Н. Наумчик | Физика. Карманный справочник для подготовки к ЕГЭ, ОГЭ и ВПР. 7-11 классы (2025) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Карманный справочник по физике содержит все темы, проверяемые ЕГЭ-2025 и ОГЭ-2025. Информация с 7 по 11 классы школьной программы структурирована и представлена понятным языком. Вы быстро найдете ответы на все интересующие вас вопросы по разделам: «Механика» • «Молекулярная физика. Термодинамика» • «Электродинамика» • «Специальная теория относительности» • «Квантовая (   Читать дальше...   )Жанр: Физика, обучение, справочникИздательство: ЭксмоФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E9839BC6038FFD176BD2F37904F07AA45D710C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

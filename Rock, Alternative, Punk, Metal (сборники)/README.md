@@ -1,4 +1,232 @@
 https://t.me/izofen
+###  Публикация: 1863377   (1063933) от 
+
+VA - REDISCOVER The '70s: Rock (2026) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063933.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aerosmith - Sweet Emotion (4:34)
+002. Tom Petty - American Girl (3:30)
+003. Pink Floyd - MoneyЖанр: RockПродолжительность: 11:26:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:846858505D3EABBFE3A05B698F6A35C6BE7FD8C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863385   (1063928) от 
+
+VA - REDISCOVER THE '80s: Rock (2026) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063928.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bon Jovi - You Give Love A Bad Name (3:42)
+002. Bruce Springsteen - Glory Days (4:18)
+003. Def Leppard - Pour Some Sugar On Me (Remastered 2017) (4:27)
+004. Van Halen - Panama (2015 Remaster) (3:30)(   Читать дальше...   )Жанр: RockПродолжительность: 11:04:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3D1FD4D4B0695C58136CCBD69181EA485CCE37B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863292   (1063843) от 
+
+VA - REDISCOVER The ’60s Rock (2026) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063843.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Big Brother The Holding Company - Piece Of My Heart (4:15)
+002. The Rolling Stones - (I Can't Get No) Satisfaction (Mono) (3:42)
+003. Jimi Hendrix - All Along the Watchtower (4:01)
+004. Bob Dylan - Like a Rolling Stone (6:11)(   Читать дальше...   )Жанр: RockПродолжительность: 05:30:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDA135A0C93B9F8E2A5A2BEC6DFF2CCB1431A8AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862873   (1063703) от 
+
+Daniele Gazzarin - Favorites Collection (2026) [MP3|320 Kbps] <Country, RootsRock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hallelujah
+02 - Don’t Leave This Voice Alone
+03 - Still More Road Ahead
+04 - Stay Here(   Читать дальше...   )Жанр: Country, RootsRockПродолжительность: 02:04:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE30270E8FD3161F8B4E2B85CED95986EBB25B98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862709   (1063635) от 
+
+VA - Hard Rock Workout (2026) [MP3|320 Kbps] <Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Limp Bizkit - Rollin' (Air Raid Vehicle)Жанр: Hard RockПродолжительность: 04:56:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A1690CDE32BAD6B73C83C9127E064B3F71D36E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862826   (1063463) от 
+
+Axel Rudi Pell - Compilation (1989-2026) [MP3|320 Kbps] <Hard rock, Melodic heavy metal, Power metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Moon Pyramid ❂ Black Moon Pyramid 1996
+02. All The Rest Of My Life ❂ Shadow Zone 2002
+03. Beautiful Day (& U2) ❂ Diamonds Unlocked 2007
+04. Before I Die ❂ Circle Of The Oath 2012(   Читать дальше...   )Жанр: Hard rock, Melodic heavy metal, Power metalПродолжительность: 10:02:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D798CE5E2D223D41666B51ABD1C1CE2F3EEA868
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862469   (1063298) от 
+
+Gotthard - Compilation (1992-2026) [MP3|320 Kbps] <Hard rock, Ballads>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Better Than Love ❂ #13 2020
+02. Bang ! ❂ Bang ! 2014
+03. Liverpool ❂ Stereo Crush 2025
+04. S.O.S. ❂ Firebirth 2012(   Читать дальше...   )Жанр: Hard rock, BalladsПродолжительность: 08:36:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42600FD4BCB9B14B9EC10BBF4C3B6DB78691A1FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862315   (1063180) от 
+
+VA - Rock Arena (2026) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063180.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. PRESIDENT - Mercy (3:49)
+002. Nickelback - Bones For The Crows (4:04)
+003. Pierce The Veil - So Far So Fake (3:56)
+004. Bilmuri - ALWAYS LET YOU DOWN (feat. A Day To Remember) (3:04)(   Читать дальше...   )Жанр: RockПродолжительность: 06:11:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DB9CBF265DD2B08D83023171D4CEC64BAA405AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1861683   (1062777) от 
 
 Сплин best (1994-2025) [MP3|320 Kbps] <rock>
@@ -7,7 +235,7 @@ https://t.me/izofen
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062777.jpg" />
 </div>
 
 
@@ -36,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062599.jpg" />
 </div>
 
 
@@ -65,7 +293,7 @@ VA - Classic Rock Hits (2026) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062435.jpg" />
 </div>
 
 
@@ -94,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062329.jpg" />
 </div>
 
 
@@ -123,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062027.jpg" />
 </div>
 
 
@@ -152,7 +380,7 @@ VA - Russian Rock 2017-2018 (2017-2018) [MP3|320 Kbps] <rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061264.jpg" />
 </div>
 
 
@@ -181,7 +409,7 @@ Dave Stewart - Compilation (1990-2025) [MP3|320 Kbps] <Pop rock, Soft rock, New 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060485.jpg" />
 </div>
 
 
@@ -210,7 +438,7 @@ VA - Russian Rock 2019-2020  [MP3|320 Kbps] <rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058796.jpg" />
 </div>
 
 
@@ -239,7 +467,7 @@ Bryan Adams - Compilation (1980-2026) [MP3|320 Kbps] <Soft rock, Pop rock, Arena
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057663.jpg" />
 </div>
 
 
@@ -268,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056283.jpg" />
 </div>
 
 
@@ -297,7 +525,7 @@ Muse - Compilation (1999-2025) [MP3|320 Kbps] <Alternative, Space rock, Electron
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055857.jpg" />
 </div>
 
 
@@ -326,7 +554,7 @@ VA - Road Trip Rock Rhythms (2024) [MP3|320 Kbps] <Rock, Punk, Alternative, Prog
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055853.jpg" />
 </div>
 
 
@@ -355,7 +583,7 @@ VA - Russian Rock (2021-2022) [MP3|320 Kbps] <rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054605.jpg" />
 </div>
 
 
@@ -384,7 +612,7 @@ VA - Russian Rock 2025 (2025) [MP3|320 Kbps] <rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054347.jpg" />
 </div>
 
 
@@ -413,7 +641,7 @@ VA - Russian Rock 2023-2024 (2023-2024) [MP3|320 Kbps] <rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053202.jpg" />
 </div>
 
 
@@ -442,7 +670,7 @@ VA - No name compilation part 43 Soft Rock Ballad (2025) [MP3|320 Kbps] <Soft Ro
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052783.jpg" />
 </div>
 
 
@@ -471,7 +699,7 @@ VA - No name compilation part 42 Soft Rock Ballad (2025) [MP3|320 Kbps] <Soft Ro
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052261.jpg" />
 </div>
 
 
@@ -500,7 +728,7 @@ VA - Лучшие песни Наше радио за 2025 год (2026) [MP3|32
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050927.jpg" />
 </div>
 
 
@@ -514,238 +742,6 @@ VA - Лучшие песни Наше радио за 2025 год (2026) [MP3|32
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78ABCA902B1740F0736926121E1FD004281EB72B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844923   (1050368) от 29.12.2025
-
-Erik Gronwall - Voice Of Rock - Compilation (2009-2025) [MP3|320 Kbps] <Hard rock, Glam rock, Pop rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into The Great Unknown (& H.e.a.t) ❂ Into The Great Unknown 2017
-02. Higher (Winner Of Idol) ❂ The Idol Years 2009
-03. Livin' On A Prayer (& Bon Jovi) ❂ Eriksplanations Vol. 2 2025
-04. Fearless (& New Horizon) ❂ Gate Of The Gods 2022(   Читать дальше...   )Жанр: Hard rock, Glam rock, Pop rockПродолжительность: 05:36:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:557528C8813E3A6238C025E4518E6D0F639AAD91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843780   (1049778) от 23.12.2025
-
-The Black Keys - Compilation (2002-2025) [MP3|320 Kbps] <Garage rock, Blues rock, Indie rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Man Will Do Wrong (& The Arcs) ❂ Electrophonic Chronic 2023
-02. Ain't Nothing Like You (Hoochie Coo) (& Jim Jones & Mos Def) ❂ Blakroc 2009
-03. Behind The Eyes (& The Arcs) ❂ Electrophonic Chronic 2023
-04. Can't Find My Mind (& The Cramps) ❂ OST He Put The Bomp ! In The Bomp 2007(   Читать дальше...   )Жанр: Garage rock, Blues rock, Indie rockПродолжительность: 08:02:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C260EEFC530264BABFB276673CF0E5D9FD25E1D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840449   (1047231) от 05.12.2025
-
-VA - Solo Projects From Ария (1985-2025) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Маврин - Крылья. instrumental
-02. Дубинин & Маврин - Ужас и Страх. live
-03. Беркут - Берёзы
-04. Маврин - Иллюзия(   Читать дальше...   )Жанр: RockПродолжительность: 07:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFCC5983B274B177B574F182265FFA7F8276734B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839740   (1046814) от 30.11.2025
-
-Мария Варгас - Favorites Collection Part 2 (2025) [MP3|192 Kbps] <Blues, Blues Rock, AI>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ты Боль Моя
- 02 - Плачь, Плачь, Мэри
- 03 - Я Тебе Не Верю Ритмичный Блюз
- 04 - Тебя Придумала Сама(   Читать дальше...   )Жанр: Blues, Blues Rock, AIПродолжительность: 00:26:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:874DED9B1122CD3A1635C16FEBF583F82BE3A542
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839418   (1046666) от 30.11.2025
-
-Валерий Кипелов - Voice Of Rock - Compilation (1985-2024) [MP3|320 Kbps] <Heavy metal, Hard rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Жить Вопреки ❂ Жить Вопреки 2011
-02. Вавилон ❂ Вавилон EP 2004
-03. Тореро ❂ Путь Наверх Live 2003
-04. Огненная Дуга ❂ Часы Судного Дня EP 2021(   Читать дальше...   )Жанр: Heavy metal, Hard rockПродолжительность: 10:05:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:451024278C6593B5FFA516A5D9DB67650EA874D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601290   (1046323) от 02.01.2023
-
-Gov't Mule - Compilation (2022) [MP3|320 Kbps] <Rock, Blues Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hole in My Soul
-02. I'll Be the One
-03. My Oh My
-04. Pressure Under Fire(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:30:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:144118943C4C4F825BD296639DADE54C234DE032
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601973   (1045995) от 06.01.2023
-
-VA - Blues & Rock part  15 Compilation (2023) [MP3|320 Kbps] <Blues & Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bb Chung King & the Buddaheads - Still the Rain
-02. Bb Chung King & the Buddaheads - Hear it From You
-03. Bleu Jackson - Some Never Learn
-04. The Buddaheads - Big Time Baby(   Читать дальше...   )Жанр: Blues & RockПродолжительность: 02:16:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C77403EBBEEC2B079A90E3A6A9B3AD8BDD9B7D9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605364   (1044953) от 17.01.2023
-
-VA - Music For You vol. 27 (2023) [MP3|320 Kbps] <Metal, Rock, Other>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044953.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gnarbot - Thrapticious (10:02)
- 02. Soft Machine - Hazard Profile Part 5 (05:29)
- 03. The Groundhogs - Garden (05:24)
- 04. All Them Witches - Real Hippies Are Cowboys (08:08)(   Читать дальше...   )Жанр: Metal, Rock, OtherПродолжительность: 02:58:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76327E2918956351ECFDED71DF6D00E3C499EA31
 ```
 
 https://mybot314.ru/tekegram_catalog/

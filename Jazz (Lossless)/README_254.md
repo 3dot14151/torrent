@@ -6,7 +6,7 @@ Hot Lips Page - After Hours In Harlem (1940 - 1941) 1998, HighNote [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236043.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Eddie Higgins Trio - Portraits Of Love (2009) Venus Records [FLAC|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236039.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Greg Cohen - Way Low (1996) DIW [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236010.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Scott Bradlee's Postmodern Jukebox - The Fourth Tuning (2023) [FLAC|Lossless|WEB
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235964.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Dena DeRose - Live at Jazz Standard, Vol. 2 (2008) MaxJazz [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235955.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Dexter Gordon - Our Man In Paris (1963) 1986, Toshiba-EMI [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235932.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Chico Hamilton - Three Classic Albums Plus (1953 - 1956) 2CD, 2008, Avid Jazz [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235892.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Hal Singer & Jef Gilson - Soul Of Africa (1974) 2008, Kindred Spirits [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235890.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Charles Mingus - A Modern Jazz Symposium Of Music & Poetry (1957) 1994, Bethlehe
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235862.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Enrico Rava & Fred Hersch - The Song Is You (2022) ECM Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235839.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Lennie Tristano - The Duo Sessions (1967 - 1976) 2020, Dot Time Records [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235807.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Freddie Hubbard - Here To Stay (1962) 1988, Blue Note [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235792.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Billy Bang - Big Bang Theory (2000) Justin Time Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235788.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Stian Carstensen - Musical Sanatorium (2021) [FLAC|Lossless|tracks + .cue] <Mode
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235778.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Kansas City Band - Barrelhouse ☆ Hey! Hey! (2001) Audio Park [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235777.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ John Beasley - MONK'estra Plays John Beasley (2020) Mack Avenue [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235759.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ People Like Us - In Heaven (1997) Koch Jazz [FLAC|Lossless|tracks + .cue] <Mains
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235643.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Oliver Nelson & Nobuo Hara - In Tokyo (1970) 2013, Columbia [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235604.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ John Fedchock NY Sextet - Into The Shadows (2020) Summit Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235589.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Terence Blanchard - Absence (2021) [FLAC|Lossless|tracks + .cue] <Post-Bop, Cont
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235578.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Mike LeDonne & The Groover Quartet - AwwlRIGHT! (2015) Savant [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235577.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Barbara Carroll - This Heart Of Mine (1994) DRG Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235550.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Gary Burton - Alone At Last (1971) 2012, Atlantic [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235544.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Denny Zeitlin - Early Wayne (2016) Sunnyside [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235506.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Roland Hanna - Plays Harold Rome's Destry Rides Again (1959) 2007, Wounded Bird 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235485.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Von Freeman - The Great Divide (2004) Premonition Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235460.jpg" />
 </div>
 
 

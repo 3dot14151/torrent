@@ -1,29 +1,3 @@
-###  Публикация: 1452450   (1027652) от 06.03.2021
-
-Udemy, Antonio Papa | React и NestJS: Практическое Руководство С Docker / React and NestJS: A Practical Guide with Docker (2021) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027652.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я разработчик FullStack с более чем 10-летним опытом. Я одержим чистым кодом и изо всех сил стараюсь, чтобы в моих курсах был максимально чистый код. Мой стиль преподавания очень прост, я не буду тратить слишком много времени на объяснение всех способов, которыми вы можете создать что-то или другую ненужную информацию, чтобы увеличить продолжительность моих лекций. (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 06:54:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F28097BC9FE1CE8E6C89D5C65404C246FBCFC32D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452496   (1027641) от 06.03.2021
 
 Udemy, Maximilian Schwarzmüller | NextJS и React - Полное Руководство / NextJS & React - The Complete Guide (2021) PCRec [En / En Sub]
@@ -32,7 +6,7 @@ Udemy, Maximilian Schwarzmüller | NextJS и React - Полное Руковод
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027641.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Tilda school | Научитесь создавать сайты, лендинг�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027616.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Diodov.net, Дмитрий Забарило | Учимся программир�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027607.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ Udemy, YouAccel Training | Web Development Masterclass - Complete Certificate Co
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027516.jpg" />
 </div>
 
 
@@ -139,7 +113,7 @@ Nomad Coders | CSS Layout Мастер-класс / CSS Layout Masterclass (2021
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027497.jpg" />
 </div>
 
 
@@ -168,7 +142,7 @@ Udemy, Dmitri Nesteruk | Шаблоны проектирования в Go / Des
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027478.jpg" />
 </div>
 
 
@@ -195,7 +169,7 @@ Udemy, David Bombal | Wireshark: Packet Analysis and Ethical Hacking: Core Skill
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027468.jpg" />
 </div>
 
 
@@ -224,7 +198,7 @@ Academind Pro, Maximilian Schwarzmüller  | Python Django - Практическ
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027464.jpg" />
 </div>
 
 
@@ -251,7 +225,7 @@ Lectoria, Артем Зернов | MODX: создание лендинга. Б�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027457.jpg" />
 </div>
 
 
@@ -278,7 +252,7 @@ Udemy, John Thompson | Spring Framework 5: начинающий гуру / Sprin
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027443.jpg" />
 </div>
 
 
@@ -305,7 +279,7 @@ Udemy, Nikita Sergeev |  Power BI: от новичка до уверенного
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027437.jpg" />
 </div>
 
 
@@ -331,7 +305,7 @@ Udemy, YouAccel Training | Learn HTML - For Beginners  (2019) PCRec [En / En Sub
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027374.jpg" />
 </div>
 
 
@@ -360,7 +334,7 @@ Udemy, Creative Online School | Practical Web Development: 22 Courses in 1  (202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027367.jpg" />
 </div>
 
 
@@ -387,7 +361,7 @@ Udemy, YouAccel Training | HTML & CSS - Certification Course for Beginners  (201
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027353.jpg" />
 </div>
 
 
@@ -414,7 +388,7 @@ Udemy, Maher Haddad | Daily Bandwidth Quota on LTE using MikroTik  (2021) PCRec 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027342.jpg" />
 </div>
 
 
@@ -441,7 +415,7 @@ Udemy, Maher Haddad | BGP on MikroTik with LABS - From Entry to Intermediate lev
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027340.jpg" />
 </div>
 
 
@@ -468,7 +442,7 @@ Udemy, William McGuffey Academy |  [2021] Tableau 2020: A-Z Hands-on Tableau For
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027332.jpg" />
 </div>
 
 
@@ -494,7 +468,7 @@ Udemy, David Bombal | Python Network Programming for Network Engineers (Python 3
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027331.jpg" />
 </div>
 
 
@@ -523,7 +497,7 @@ Udemy, Paul Chin | Reverse Engineering: Create Your Own GUI CrackMe using C++  (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027330.jpg" />
 </div>
 
 
@@ -549,7 +523,7 @@ Udemy, SS Code Academy |  Python 2021: Complete Python Bootcamp: Zero-Hero Progr
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027325.jpg" />
 </div>
 
 
@@ -578,7 +552,7 @@ Udemy, Lernen Hub Academy | C++ Programming Step By Step From Beginner To Ultima
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027318.jpg" />
 </div>
 
 
@@ -605,7 +579,7 @@ Udemy, William McGuffey Academy |  Microsoft Power BI Certification: A-Z Level (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027313.jpg" />
 </div>
 
 
@@ -632,7 +606,7 @@ Udemy, Chris Sikes |  Red Team Ethical Hacking - Beginner (2021) PCRec [En / En 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027303.jpg" />
 </div>
 
 
@@ -660,7 +634,7 @@ Udemy, SS Code Academy |  Java 2021: Complete Java Masterclass: Zero to Hero Pro
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027302.jpg" />
 </div>
 
 
@@ -689,7 +663,7 @@ Udemy, Cyber Quince | Practical Cisco Networking Labs in Cisco Packet Tracer  (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027282.jpg" />
 </div>
 
 
@@ -700,6 +674,33 @@ Udemy, Cyber Quince | Practical Cisco Networking Labs in Cisco Packet Tracer  (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C147D23B07FCA8C97D5A07FAFE3D58479BF41FA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453022   (1027171) от 09.03.2021
+
+Udemy, Maher Haddad | MikroTik CAPsMAN with LABS (2019) PCRec [En]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027171.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многих из вас, как сетевых инженеров, попросили установить полную беспроводную сеть в отеле, торговом центре или на выставках, чтобы Wi-Fi покрыл всю территорию, чтобы пользователи могли пользоваться беспроводным доступом в Интернет. В такой сложной сети вам требуются десятки, а иногда и сотни точек беспроводного доступа (AP) для обеспечения полного покрытия.
+Эти (   Читать дальше...   )Производство: UdemyЖанр: АдминистрированиеЯзык озвучки: АнглийскийПродолжительность: 02:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:845A72784ADD417AE661FEC830CE255685F7BB15
 ```
 
 https://mybot314.ru/tekegram_catalog/

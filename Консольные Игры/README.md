@@ -7,7 +7,7 @@ Spectaculator 9 (2025) [ZX Spectrum] [License] [En]
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049283.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Terminator 2D: NO FATE (2025) [Switch] [USA] 20.5.0, Atmosphere 1.9.5 [License] 
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048259.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Hyper Light Drifter (2016) [PS4] [EUR] 5.05 [HEN] [License/1.03] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042704.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ God of War II (2007) [PS4] [EUR] 5.05 [HEN] [License] [Ru/En]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042144.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Mercenaries: Playground of Destruction (2005) [PS3] [USA] 4.85 [HEN / CFW] [Repa
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041580.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Road Redemption (2018) [PS4] [EUR] 5.05 [HEN] [License / 1.04] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041577.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Ancestors: The Humankind Odyssey (2019) [PS4] [EUR] 5.05 [HEN] [License / 1.01] 
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041283.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ The Legend of Zelda Collection (1986-2015) [Unofficial] [Ru/Multi]
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040216.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ The Elder Scrolls V: Skyrim - Legendary Edition (2013) [PS3] [USA] 3.30 [Cobra O
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039418.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Street Fighter V: Champion Edition (2020) [PS4] [EUR] 6.72 [HEN] [License / DLC]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038939.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ FINAL FANTASY XV ROYAL EDITION (2018) [PS4] [EUR] 6.72 [HEN] [License / 1.29 / D
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038148.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Deliver Us The Moon (2019) [PS4] [EUR] 5.05 [HEN] [License] [Ru]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036780.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Grand Theft Auto: San Andreas (2004) [PS4] [EUR] 5.05 / 6.72 / HEN [License] [Ru
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036771.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Hitman: Absolution [PS4] [EUR] 5.05 [HEN] [License / 1.02] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035629.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Star Wars Jedi: Fallen Order Deluxe Edition / Звёздные войны Дже
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035033.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ EmuELEC и игры (2023) [ALL] [Repack] [Ru/Multi]
 >>Ромы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034982.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Immortals Fenyx Rising (2020) [Switch] [USA] 10.2.0 [NSZ] [License / 1.1.0 / DLC
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034760.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Metro Exodus / Метро: Исход (2019) [PS4] [EUR] 5.05 [HEN] [License / 1
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034759.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Resident Evil 3 (2020) [PS4] [USA] 5.05 [HEN] [Repack / 1.03 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034061.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Prototype 2 (2012) [PS3] [USA] 3.70 [HEN / CFW] [Repack / 3 DLC] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032610.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Super Mario 3D World + Bowser's Fury (2021) [Switch] [USA] 10.2.0 [NSZ] [License
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029835.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Sid Meier's Civilization VI (2018) [Switch] [USA] 10.2.0 [NSZ] [License / 1.2.11
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028574.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Need for Speed: Hot Pursuit Remastered (2020) [Switch] [USA] 10.2.0 [NSZ] [Licen
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028573.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Resident Evil: Revelations 2 (2015) [PS3] [USA] 3.30 [Cobra ODE / E3 ODE PRO ISO
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028408.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Resident Evil: Revelations 2 (2015) [PS3] [EUR] 3.30 [Cobra ODE / E3 ODE PRO ISO
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028406.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Rayman Origins (2011) [PS3] [EUR] 3.72 [Cobra ODE / E3 ODE PRO] [License] [Ru/Mu
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028265.jpg" />
 </div>
 
 

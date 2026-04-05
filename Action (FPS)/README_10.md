@@ -1,3 +1,55 @@
+###  Публикация: 1386836   (793160) от 30.05.2020
+
+Skin Witch (2020) [Ru/Multi] (1.0.2) Repack Other s
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Skin Witch — это настоящая игра на выживание, в которой вы должны остаться в живых имея ограниченный запас ресурсов, разгадывая головоломки и используя преимущества нелинейного геймплея. Итак, вы угодили в ловушку в подземной шахте, куда отправились по заданию подрядчика.Тип издания: RepackРазработчик: Blackwood SpecterЖанр: Action (Horror, Puzzle), 1st Person, 3DЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BF38430040D860A609A5B0205DF098E74736A32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386606   (793124) от 30.05.2020
+
+PREY (2017) [Ru/Multi] (10966486/dlc) Repack Other s [Digital Deluxe Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие Prey происходит в 2032 году. Вы обнаруживаете себя на лунной орбите, на борту космической станции «Талос-1». Эксперимент, в котором вы участвовали, должен был навсегда изменить человеческую расу, но привел к катастрофическим последствиям. Станцию захватили враждебные пришельцы, которые теперь ведут на вас охоту. Раскрывая мрачные тайны «Талоса» и собственного (   Читать дальше...   )Тип издания: RepackРазработчик: Arkane StudiosЖанр: Adventure, Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4E1DACC75827173EB8468DD465FAF8102DB652A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201343   (792649) от 24.01.2018
 
 Borderlands 2 (2013) [Ru] (1.8.4/dlc) License PLAZA [Game of the Year Edition]
@@ -6,7 +58,7 @@ Borderlands 2 (2013) [Ru] (1.8.4/dlc) License PLAZA [Game of the Year Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792649.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Beyond Enemy Lines (2021) [En] (2.1.0) License SKIDROW [Remastered Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792557.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ E.Y.E: Divine Cybermancy (2021) [En] (1.01) License GOG [Single-Player Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792555.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Thief (2014) [Ru/Multi] (1.7.4158.21/dlc) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791897.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ The Land of Pain (2017) [Multi] (1.03) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791892.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ Borderlands 2 (2012) [Ru/En] (1.8.4/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791481.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ Turok / Турок (2008) [Ru] (1.0) Rip xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791480.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791474.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ Betrayer (2014) [Ru/Multi] (1.9.68.44) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790289.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ Unforgiving - A Northern Hymn (2017) [Ru/Multi] (1.1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790190.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ Call of Duty: Modern Warfare 3 (2011) [Ru/Multi] (1.9.446/dlc) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789692.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ Borderlands 2 (2012) [Ru] (1.8.4/dlc) Repack =nemos= [Game of the Year Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789688.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ Call of Duty: Ghosts (2013) [Ru/En] (1.0.749678/u21) Rip xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789274.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ Gunfire Reborn (2021) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789139.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ UAYEB (2018) [En] (3.8.13) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788889.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ Dishonored: Death of the Outsider (2017) [Ru/Multi] (1.145) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788810.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ Nerf Legends (2021) [Multi] (0.1) License FAIRLIGHT
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788717.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ The Apartment (2018) [En] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788446.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ Blue Estate The Game / Viktor Kalvachev's - Blue Estate: The Game (2015) [Ru/Mul
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787484.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ Protocol (2018) [Ru/Multi] (1.0) License DARKSiDERS
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786624.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ Roots of Insanity (2017) [Ru/Multi] (1.1.5) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786435.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ Blackwood Crossing (2017) [Multi] (1.0) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786254.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ Star Wars: Battlefront 2 / Star Wars: Battlefront II (2005) [Multi] (1.1) Licens
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785997.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ Blackwood Crossing (2017) [Multi] (1.0) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785710.jpg" />
 </div>
 
 
@@ -616,59 +668,6 @@ Blackwood Crossing - это сюжетная приключенческая иг
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83C4DEC45141E304C213206C1ED2E52EACB4BD8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124397   (785688) от 11.04.2017
-
-Chernobyl Terrorist Attack (2017) [En] (1.15) License PLAZA
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самое ужасное орудие на земле – ядерное. Оно более ни разу не может быть принято на вооружение. Категория террористов завладела чернобыльский атомный реактор и грозит взорвать его. Стоимость мирного решения вопросца очень высока – 10 млрд евро, или... Или же сыщется смельчак в рядах спецназа, талантливый исключать опасность. Вы готовы сразиться в радиоактивной зоне (   Читать дальше...   )Тип издания: LicenseРазработчик: Play PublishingЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C88D9745803D6D0FC026FAE0401E5AF1F11C96C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056863   (785499) от 12.04.2017
-
-Arma 2: Combined Operations (2010) [Multi] (1.62.95248.1/dlc) License GOG
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спустя три года после конфликта в Черноруси, изображенного в оригинальной Arma 2, новый конфликт назрел в области Зеленого моря, и силы коалиции во главе с армией США посылают в Такистан, чтобы быстро восстановить мир и предотвратить дальнейшие жертвы среди гражданского населения.
-Вы сможете опробовать себя в ролях различных бойцов армии США: от простого пехотинца (   Читать дальше...   )Тип издания: LicenseРазработчик: Bohemia InteractiveЖанр: Action (Shooter), Strategy, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский и другиеЯзык интерфейса: Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13AC03D5C2D0106686CFDC7189FC4112D4714B44
 ```
 
 https://mybot314.ru/tekegram_catalog/

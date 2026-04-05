@@ -1,3 +1,32 @@
+###  Публикация: 1646931   (231750) от 16.07.2023
+
+VA - Superunknown (Redux) (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom metal, Stoner metal, Stoner rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ufomammut - Let Me Drown 07:42
+02. High Priest - My Wave 06:18
+03. Marissa Nadler - Fell on Black Days 04:47
+04. Somnuri - Mailman 04:38(   Читать дальше...   )Жанр: Doom metal, Stoner metal, Stoner rockПродолжительность: 01:23:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC9FB4E76BB4CE4C5B545364A7D4D7CB214CF075
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1646974   (231747) от 17.07.2023
 
 Way To Stars - Путь К Звёздам (2023) [MP3|320 Kbps] <Metalcore>
@@ -6,7 +35,7 @@ Way To Stars - Путь К Звёздам (2023) [MP3|320 Kbps] <Metalcore>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231747.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Thread - Thread (1995) 2023, 2xCD [FLAC|Lossless|image + .cue] <Prog Rock, Arena
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231742.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Project Renegade - Ultra Terra (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231738.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Delorca / Tonnes - The Sacred Hunger of the Void (2023) [FLAC|Lossless|WEB-DL|tr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231736.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Unsoulicited - Reflections (2023) [MP3|320 Kbps] <Symphonic Metal, Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231730.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Legion Of The Damned - The Poison Chalice (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231724.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Big Shot - Big Shot (1992) 2022 [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231722.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Sam Austins - Boy Toy (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Alt Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231717.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Thrashit - Kaiser Of Evil (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231715.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Voice Of Baceprot - Retas (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231710.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Yard Art - Yard Art (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Fema
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231709.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Eria d'Or - Trinity (2017) 3CD, compilation [MP3|320 Kbps] <Atmospheric Doom, De
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231707.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ VA - Best of Soundgarden (Redux) (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231704.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231703.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Veonity - Gladiator's Tale (2015) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231699.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Fifth Angel - When Angels Kill (2023) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231697.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Protector - Excessive Outburst Of Depravity (2022) [APE|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231696.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ David Forbes - Tales Of The Past (2023) [FLAC|Lossless|image + .cue] <Melodic Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231693.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Thomas Carlsen's Transmission - A Brave Horizon (2023) [Mp3|320 kbps] <Heavy Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231692.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ SynopsiS - Pontifex Maximus (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231689.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Avi Rosenfeld - Lions II (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231688.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Forces United - Golden Ballads (2023) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231686.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Kickrox - THE NOTE(s) (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, N
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231682.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Saint Deamon - League of the Serpent (2023) [FLAC|Lossless|image + .cue] <Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231675.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Sacrilegious Impalement - IV - Infinite Victor (2023) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231667.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Sacrilegious Impalement - IV - Infinite Victor (2023) [FLAC|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E66C8DCB2121186D9BF1BEDAB324A8DFA1B40B6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646633   (231658) от 16.07.2023
-
-Khalil Turk & Friends - Turkish Delight - Volume 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No One Knows Your Name [00:04:19]
-02. Come On [00:04:06]
-03. Destiny [00:04:43]
-04. I Am Ready [00:05:03](   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:52:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8300BB19C38941759E1DC66A93F50D01565E76E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

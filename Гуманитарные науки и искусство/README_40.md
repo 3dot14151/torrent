@@ -1,82 +1,3 @@
-###  Публикация: 1526349   (738423) от 24.01.2022
-
-В.М. Жабцев | Пейзаж в русской живописи (2012) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738423.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее издание знакомит читателя с характерными сторонами творчества русских пейзажистов конца XVIII – начала XX века и с самыми известными их работами. А представленные в книге репродукции дадут возможность оценить вклад этих мастеров в процесс формирования мирового художественного искусства.
-В данном альбоме представлены наиболее известные произведения русской (   Читать дальше...   )Жанр: изобразительное искусство, история искусстваФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95D1ADAE504426FD18B36FEA7057B7C2E1664A40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 240312   (737249) от 27.01.2022
-
-Джон Коллис | Ключи от Авалона: Кельты: истоки, история, миф (2007) [DJVU, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737249.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кем были на самом деле кельты - этот овеянный легендами народ, подаривший миру загадочное учение друидов? Где искать истоки полузабытой цивилизации, разгромленной Римом два тысячелетия назад, однако доныне живущий не только в трудах ученых и молениях друидов-неоязычников, но и в безбрежном море популярной литературы жанра "фэнтези"? Эта книга, написанная (   Читать дальше...   )Жанр: История, МифологияПеревод: Эрлихман В.В.Формат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3611C11A1EDD8C5E9EB957624A12C1580EA7BA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527398   (736864) от 28.01.2022
-
-Виктория Финли | Цвет. Захватывающее путешествие по оттенкам палитры (2022) [FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как благородный синий цвет прошел путь от отдаленных лабиринтов в Афганистане до кисти Микеланджело? Какая связь между коричневой краской и древнеегипетскими мумиями? Почему Робин Гуд носил Линкольн-зеленый? Виктория Финли отправляет нас в путешествие по всему миру и сквозь века, исследуя физические материалы, которые окрашивают наш мир (драгоценные минералы или (   Читать дальше...   )Жанр: История искусства, Популярно об истории, Научная литератураПеревод: Анна Н. СтепановаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:229B287C641A0624C8D1E00DAF33975ACE8A2407
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1397864   (736612) от 24.07.2020
 
 Ф. В. Константинов и др. (ред.) | Марксистско-ленинская теория исторического процесса [в 3-х книгах] (1981-1987) [DJVU]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736612.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735809.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734881.jpg" />
 </div>
 
 
@@ -163,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734721.jpg" />
 </div>
 
 
@@ -189,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734387.jpg" />
 </div>
 
 
@@ -215,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732228.jpg" />
 </div>
 
 
@@ -241,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732060.jpg" />
 </div>
 
 
@@ -269,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731974.jpg" />
 </div>
 
 
@@ -295,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731958.jpg" />
 </div>
 
 
@@ -323,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731107.jpg" />
 </div>
 
 
@@ -349,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730995.jpg" />
 </div>
 
 
@@ -375,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730994.jpg" />
 </div>
 
 
@@ -403,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730610.jpg" />
 </div>
 
 
@@ -429,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729987.jpg" />
 </div>
 
 
@@ -455,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729878.jpg" />
 </div>
 
 
@@ -481,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729763.jpg" />
 </div>
 
 
@@ -507,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729753.jpg" />
 </div>
 
 
@@ -533,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728556.jpg" />
 </div>
 
 
@@ -561,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728555.jpg" />
 </div>
 
 
@@ -587,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728432.jpg" />
 </div>
 
 
@@ -613,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728428.jpg" />
 </div>
 
 
@@ -639,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726547.jpg" />
 </div>
 
 
@@ -665,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726333.jpg" />
 </div>
 
 
@@ -676,6 +597,88 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A3D6E7793D29A46B6C20D6EF349CDDACFDAD287
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284868   (724920) от 24.02.2019
+
+Х. Н. Момджян | Поль Лафарг и философия марксизма (1978) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724920.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге освещается с возможной полнотой роль Поля Лафарга как теоретика, его место в защите, обогащении и пропаганде марксистских идей. В центре внимания философские, социологические, этические и атеистические воззрения выдающегося французского марксиста. Анализ наследия П. Лафарга является составной частью решения такой кардинальной проблемы, как глубокое и всестороннее (   Читать дальше...   )Жанр: История, политология, философия, этика, эстетика, социологияФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:024D9C3881FF4474215F2E52F9A05A15DD61BD4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284871   (724908) от 24.02.2019
+
+М. Б. Митин | О работе И. В. Сталина «Анархизм или социализм?» (1948) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724908.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работа товарища Сталина «Анархизм или социализм?» занимает одно из выдающихся мест среди творений марксистско-ленинской мысли.
+
+Произведение товарища Сталина «Анархизм или социализм?» является одним из лучших изложений мировоззрения диалектического материализма, теории классовой борьбы пролетариата, марксистского учения о диктатуре пролетариата, основ научного коммунизма (   Читать дальше...   )Жанр: История, политология, экономика, публицистика, социология, правоведениеФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3CAA6F12CAD1BF85414A556A04FF1D71B9B2F01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128520   (724506) от 27.04.2017
+
+Н. А. Рубакин | Как и когда разные народы научились говорить каждый на своем языке? (1909) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724506.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящее время на всей земле существует более восьмисот разных языков. В одной только Aзии насчитано 153 языка, в Африке — 114, в Австралии и Океании —117, в Америке — 423, в Европе — 53. Это не считая наречий. А если считать и наречия, то всех их на земле больше трехсот с половиною тысяч.
+
+Значит, вот сколько на свете разных языков. На одном говорят сотни миллионов (   Читать дальше...   )Жанр: История, филология, языкознание, лингвистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:465D6BAE35BD4E9534A4B35F57F37131D22F5BBC
 ```
 
 https://mybot314.ru/tekegram_catalog/

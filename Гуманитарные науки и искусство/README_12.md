@@ -1,88 +1,3 @@
-###  Публикация: 618045   (971004) от 13.02.2013
-
-К.Э. Гилберт, Г. Кун | История эстетики [2000] [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга К. Гилберт и Г. Куна "История эстетики" является одной из наиболее интересных в зарубежной литературе монографий по предмету эстетики.
-Здесь собран и систематизирован обширный теоретический и фактический материал из истории эстетики, которую авторы толкуют зачастую расширительно.
-Авторы с буржуазно-объективистских позиций исследуют основные эстетические учения. Хронологически их книга охватывает развитие эстетических представлений,
-начиная от зарождения древнегреческой мысли до основных направлений в зарубежной эстетики ХХ века.Перевод: В.В. Кузнецов, И.С. ТихомироваФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5E0A991C01C140D6C7453FAC42B243F619B8662
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 618051   (970896) от 13.02.2013
-
-Л.А. Изместьева | Мезенская роспись [1992] [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970896.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Мезенская роспись как вид зародилась в селе Палощелье Мезенского района Архангельской области в конце XIX века. Она носила бытовую направленность, северные мастера расписывали прялки, короба, туеса, орудия труда, украшали избу.
-Характерные особенности мезенской росписи: графичность, фризовость, многоярусность. Мезенская роспись поражает скупостью изобразительных средств, художественным немногословием, цветовой сдержанностью. Используются два цвета: красно-коричневый (получали из красной береговой глины, смешанной с древесной смолой, по-местному "сера") и черный (из сажи, смешанной с "серой").
-Мезенская роспись похожа на рисунки первобытных людей. Интересен и "мужской" характер росписи - прялки расписывали в старину мужчины - те, для кого самым важным в хозяйстве являлись кони и олени."Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01CAB71B34B83BA359786901BD226C619D97D4BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 618031   (970891) от 13.02.2013
-
-Б.А. Колчин и др. | Древний Новгород. Прикладное искусство и археология [1985] [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970891.jpg" />
-</div>
-
-
-###  Подробнее
-
-В альбоме воспроизводится более трехсот художественных предметов найденных Новгородской археологической экспедицией за пятьдесят лет ее полевых работ.
-Эти предметы, сопровождавшие и украшавшие жизнь горожан на протяжении пяти столетий, с X по XV век, показывают, что созидание прекрасного было органическим компонентом быта средневекового Новгорода.
-Творцами красоты выступают ювелиры и плотники, кузнецы и сапожники, косторезы и литейщики, токари и стеклодувы. В альбоме представлены резьба по дереву и деревянная скульптура, резьба по кости и камню, изделия из цветных и благородных металлов, выполненные в технике литья, гравировки, скани, перегородчатой эмали, изделия из стекла, кожи, железа, керамики и других материалов.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7A31DBFCC0780E7DDDA9BC00521A2DACE9DD777
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975941   (970809) от 16.01.2016
 
 Антон Горский | Русское Средневековье (2010) [FB2]
@@ -91,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970809.jpg" />
 </div>
 
 
@@ -119,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970777.jpg" />
 </div>
 
 
@@ -151,7 +66,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970561.jpg" />
 </div>
 
 
@@ -177,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_970118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_970118.jpg" />
 </div>
 
 
@@ -203,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969786.jpg" />
 </div>
 
 
@@ -229,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969660.jpg" />
 </div>
 
 
@@ -255,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968821.jpg" />
 </div>
 
 
@@ -281,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968811.jpg" />
 </div>
 
 
@@ -307,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968805.jpg" />
 </div>
 
 
@@ -333,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968773.jpg" />
 </div>
 
 
@@ -359,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968772.jpg" />
 </div>
 
 
@@ -387,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968766.jpg" />
 </div>
 
 
@@ -413,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968652.jpg" />
 </div>
 
 
@@ -441,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968651.jpg" />
 </div>
 
 
@@ -467,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968644.jpg" />
 </div>
 
 
@@ -493,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968531.jpg" />
 </div>
 
 
@@ -519,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968361.jpg" />
 </div>
 
 
@@ -545,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968275.jpg" />
 </div>
 
 
@@ -571,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967787.jpg" />
 </div>
 
 
@@ -597,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967749.jpg" />
 </div>
 
 
@@ -623,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967719.jpg" />
 </div>
 
 
@@ -650,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967001.jpg" />
 </div>
 
 
@@ -677,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966841.jpg" />
 </div>
 
 
@@ -688,6 +603,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FCAE775180DC64271DC4A6A3AE569AA3B2C231C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977048   (966837) от 20.01.2016
+
+Гердер | Избранные сочинения (1959) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966837.jpg" />
+</div>
+
+
+###  Подробнее
+
+По сравнению с философией буржуазного Просвещения существенно новым в историческом мировоззрении Гердера было понимание исторического и национального своеобразия «времен и народов». Национальной культурой данного народа, в свою очередь, обусловлены его язык, искусство и поэзия как выражение его сознания и национального характера». Поэтому для искусства и поэзии не (   Читать дальше...   )Жанр: История, философия, поэзия, искусство, литературоведение, эстетикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08FF43D528483137E3ABA20EC9C449B2BC8CF9E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976996   (966836) от 20.01.2016
+
+В. С. Афанасьев | Давид Рикардо (1988) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966836.jpg" />
+</div>
+
+
+###  Подробнее
+
+В брошюре излагаются экономические взгляды автора теоретического сочинения "Начала политической экономии и налогового обложения", видного представителя классической буржуазной политической экономии Д. Рикардо (1772-1823), приводятся биографические сведения. Особо рассматривается неорикардианство, дана критика современных буржуазных интерпретаций учения (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E0F2FCF18841146916DC3356BBD97F7BE2F8D1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977055   (966778) от 20.01.2016
+
+И. Г. Гердер | Идеи к философии истории человечества (1977) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гердер Иоганн Готфрид - немецкий философ и теоретик искусства. Творчество и взгляды Гердера представляли собой переходное звено от Просвещения к романтизму. В своем основном труде "Идеи к философии истории человечества" он предпринял попытку осмыслить весь процесс развития человечества и его историю как продолжение истории природы. В его понимании человечество (   Читать дальше...   )Жанр: История, философия, эстетика, культурология, поэзия, политология, религиоведениеФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF1DD186626B95A484D8846A7DECA0008418B8D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

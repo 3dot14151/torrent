@@ -1,3 +1,107 @@
+###  Публикация: 749177   (954678) от 25.01.2014
+
+Журнал | Marie Claire [Россия] №2 (147) (февраль 2014) [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954678.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Marie Claire" - международный женский глянцевый журнал, неизменно занимает первое место в рейтингах. В России "Marie Claire" выходит с 1997 года. Формула "Marie Claire" уникальна: сильный блок моды сочетается с яркими, порой провокационными репортажами. Журнал говорит о самых актуальных темах жизни женщины: моде, красоте, здоровье, (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4444FA3812D73194DCF5D9B2588F02BB46FFDFD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 749599   (954671) от 25.01.2014
+
+Подшивка газет | Любимые рецепты читателей для праздников и будней №2, 11, 12 (2013) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954671.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Любимые рецепты читателей для праздников и будней" - отличная кулинарная газета. Читатели делятся своими рецептами. Содержание: Салаты и закуски, Первые блюда, Горячее, Выпечка. Подробные инструкции и фотографии помогут в приготовлении вкусных и оригинальных блюд.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B5E11F98A7D33308C4C6D8F98734FBC90F99111
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980818   (954661) от 30.01.2016
+
+Журнал | Добрые советы. Люблю готовить! №1 (Январь 2016) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954661.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Добрые советы. Люблю готовить!» — издание о вкусной еде, не похожее на другие. Все опубликованные в нем рецепты присланы в редакцию самими читателями. Каждый рецепт прошел конкурсный отбор, а его автор получил денежный приз. Ежемесячно на страницах издания — более 100 коронных блюд, которые многократно проверены опытными хозяйками и которые можно смело брать в свою (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A89A0614D15B2FADFF9E504BB12F294F2692C2B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980645   (954645) от 30.01.2016
+
+Журнал | Дачные сезоны №2 (февраль 2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954645.jpg" />
+</div>
+
+
+###  Подробнее
+
+Февраль - последний зимний месяц. И уже совсем не важно, что за окном метели и огромные сугробы, ведь всего каких-то 29 дней отделяют нас от наступления календарной весны. А это значит, что жизнь уже сейчас принимает новый оборот, ведь мы приступаем к первым посевам. Начинаем новый марафон по садовым магазинам, с особым чувством в душе разглядываем яркие каталоги (   Читать дальше...   )Жанр: Домоводство, садоводство, огородничествоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2A7F50AFF444B029819FFC54024C5A4E1C3913E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 981005   (954632) от 30.01.2016
 
 Журнал | Толстый кошелёк. Вкуснятина №1 (3) (январь 2016) [PDF]
@@ -6,7 +110,7 @@
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954632.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954623.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954608.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954605.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954603.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954537.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954488.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954464.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954424.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954357.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954341.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954264.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954221.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954217.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954004.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953872.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953767.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953737.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953615.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953591.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953260.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_953250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_953250.jpg" />
 </div>
 
 
@@ -565,110 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED1949E716D766953F0F05C72EE031B651F5979A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 623149   (953235) от 27.02.2013
-
-Журнал | Penthouse №2 (Португалия) [февраль 2013][PDF]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Penthouse — информационно-развлекательный журнал для мужчин деятельных и энергичных. В каждом выпуске последнии новости с мира кино и музыки, последнии тенденции в моде и автопроизводстве. И, конечно, фото самых красивых девушек.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B789D84700907742E41CFC80D4C90E707ACE0BEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 749771   (953037) от 26.01.2014
-
-Журнал | Cosmopolitan [Украина] №2 (февраль 2014) [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_953037.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Cosmopolitan" – женский глянцевый журнал №1 в мире. Сегодня невозможно встретить девушку, которая бы ни разу не читала или хотя бы не держала в руках номер Cosmo, поэтому в рекламе издание не нуждается. Сегодня Cosmo - больше чем просто журнал, он стал стилем жизни. "Девушка в стиле Cosmo" молода, независима и энергична, сама выбирает свой путь (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4826976D14CC7DD46732CBF06FCA19632E3D4D4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981302   (952784) от 31.01.2016
-
-Журнал | Интернет-гид №1 (январь 2016) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952784.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Интернет-гид» — это универсальный проводник, спусковая кнопка в необъятный мир веб-страниц. Это полезная прогулка по ту сторону браузера, по самым живописным местам на карте глобальной сети.Жанр: Компьютерный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26B8650303006D3E8FA0CF770FA9E208160453CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 749872   (952759) от 26.01.2014
-
-Подшивка журналов | Нива [71 выпуск] (1912-1917) [PDF, DJVU]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952759.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Нива», русский еженедельный иллюстрированный журнал для семейного чтения, выходивший в Петербурге в 1870-1918 в издательстве А.Ф.Маркса. В «Н.» печатались писатели разных направлений, в том числе П.Д.Боборыкин, И.А.Гончаров, Н.С.Лесков, Д.Н.Мамин-Сибиряк, Д.С.Мережковский, Л.Н.Толстой, А.П.Чехов, И.А.Бунин, А.А.Блок и др. Общественно-политическая жизнь освещалась (   Читать дальше...   )Жанр: Раритеты, периодика, общественно-политическая газетаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA6BFEE8CE141A4334C052D336B401257C284E99
 ```
 
 https://mybot314.ru/tekegram_catalog/

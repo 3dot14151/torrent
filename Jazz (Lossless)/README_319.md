@@ -6,7 +6,7 @@ Keely Smith - The Intimate Keely Smith (1964) 2016, Real Gone Music [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111379.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Steve Davis - Crossfire (1997) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111378.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Stacey Kent - The Summer We Crossed Europe In The Rain (The Kazuo Ishiguro / Jim
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111367.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Randy Brecker & Mats Holmquist - Together (2018) Mama Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111361.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Erroll Garner - Closeup in Swing & A New Kind of Love (1961, 1963) 1997, Telarc 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111336.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Jazz Dinner Party (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111334.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Jazzy Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111333.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Urban Grooves 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Funk, Down
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111332.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Ultimate Relaxing Jazz Music for Weekends (2024) [FLAC|Lossless|WEB-DL|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111330.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Ultimate Relaxing Lounge Jazzy Weekend Playlist (2024) [FLAC|Lossless|WEB-D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111321.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Pat Martino & Gil Goldstein - We Are Together Again (2012) Warner [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111316.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Erroll Garner & Billy Taylor - Separate Keyboards (1945, 1949) 1993, Savoy Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111315.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Erroll Garner - Piano Magic (1940-e - 1950-e) 1999, Hallmark [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111313.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Klavier - Jazz (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111312.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Dave McKenna & Gray Sargent - Recorded Live At Maybeck Recital Hall (1993) Conco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111308.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Dave McKenna - Giant Strides (1979) 1994, Concord Jazz [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111307.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ The Dave McKenna Quartet featuring Gray Sargent - No More Ouzo For Puzo (1989) C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111306.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Louis Prima & Keely Smith - Live from Las Vegas (1958) 2005, Capitol Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111289.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Anita O'Day - Live In Person (1976) 1993, Star Line Productions [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111276.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Walter Wanderley - Rain Forest (1966) 1990, Polydor [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111271.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Elvin Jones - Earth Jones (1982) 2003, Quicksilver [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111229.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Pat Martino - Starbright (1976) 2008, Warner Music [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111228.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Paul Motian And The Electric Bebop Band - Flight Of The Blue Jay (1997) Winter &
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111226.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Matt Ottewill - 12 From 5 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111156.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Joe Mooney - The Happiness Of & The Greatness Of... (1964, 1965) 2000, Koch Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111147.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Erroll Garner Trio - The Most Happy Piano: The 1956 Studio Sessions (2010) 2CD, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111140.jpg" />
 </div>
 
 

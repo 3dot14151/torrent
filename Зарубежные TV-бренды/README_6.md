@@ -6,7 +6,7 @@
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981922.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981620.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ NG: Снежный барс Афганистана / NG: Snow Leopard of Afghani
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981301.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ NG. Мухи и пиявки (мерзкие существа) / Flies and leech
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980894.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979602.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Discovery: Дикая кухня / Kings of the Wild (2015) HDTVRip (сезон 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978745.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ National Geographic: Сканеры древнего мира. Египетск�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976701.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ NG. Семейное оружие: Ковбойская перестрелка /
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976622.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ BBC. Человеческая Вселенная / Human Universe (2014) BDRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976618.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976509.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ NG. Самурайский меч / Samurai Sword: The Making of a Legend (2007)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976507.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ PBS: Сканеры древнего мира / Time scanners (2013) HDTVRip [H.
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976502.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ History Channel: Вселенная. Звуки из космоса / The Univer
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976075.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ History Channel: Вселенная. Микровселенна / The Universe. 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976014.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975629.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ BBC: Планеты, похожие на Землю / The Planets: Inner Worlds 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975180.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ NG: Запреты. Лечение живностью / Taboo. Creature Cures (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974344.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ NG: Запреты. Деликатесы / Taboo. Delicatessen (2003) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974283.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ NG: Запреты. Кровавые Обычаи / Taboo. Blood Rites (2004) TV
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974271.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ NG: Запреты. Экстремальная кухня / Taboo. Extreme Cuisi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973021.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ NG. Осушить океан: корабли-призраки Атлантик�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972947.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ NG: Запреты. Проституция / Taboo: Prostitution (2010) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972888.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ History Channel: Древние пришельцы (3 сезон: 16 серий 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972671.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ History Channel: Вселенная. Как космос изменял ход �
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971957.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ History Channel: Вселенная. Немезида: злобный двойн
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971836.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ NG: Запреты. Инициации / Taboo. Initiation (2004) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971762.jpg" />
 </div>
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1676809   (154052) от 15.11.2023
+
+Елена Реунова, Марина Тушевская | Будилка-Переходилка. Переход в ТАК (2020) HDRip [RU]
+
+>>Обучающие видеоматериалы
+>>Психология и саморазвитие (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все то, что вы видите, создано вами, а именно вашими мыслями, которые бесконтрольно воспроизводятся вашим умом. Вы можете соглашаться с этим или не соглашаться, можете позволить вашему уму играть в свою игру, а можете взять управление процессом на себя.
+Предлагаем вам сделать первый переход - «Переход в ТАК». В ТАК, как лучше для вас, в ТАК, как вы определили для (   Читать дальше...   )Жанр: психология, саморазвитиеЯзык озвучки: РусскийПродолжительность: 55:11:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E689B22549A28E9013EB786253D6DB495C670E42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433873   (154032) от 22.12.2020
 
 Udemy, Reuben Ward | Создание игры в жанре "Королевская битва" с использованием Unreal Engine 4 Blueprints / Create a Battle Royale game using Unreal Engine 4 Blueprints (2019) PCRec [EN  ...
@@ -6,7 +33,7 @@ Udemy, Reuben Ward | Создание игры в жанре "Королевск
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154032.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ Compositing Academy, Alex Hanneman | Methods of 3D VFX Compositing Nuke Mastercl
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153970.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ Compositing Academy, Alex Hanneman | Fundamentals of CG VFX Compositing in Nuke 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153936.jpg" />
 </div>
 
 
@@ -89,7 +116,7 @@ Lynda.com | Изучение ECMAScript 6 / Learning ECMAScript 6 (2017) PCRec [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153915.jpg" />
 </div>
 
 
@@ -115,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153900.jpg" />
 </div>
 
 
@@ -144,7 +171,7 @@ Gumroad, Alex Hanneman | NUKE: Advanced CG Compositing and Look Development NK60
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153855.jpg" />
 </div>
 
 
@@ -173,7 +200,7 @@ Stepik, Александр Бондарев | Revit 2024: Основы созд�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153810.jpg" />
 </div>
 
 
@@ -202,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153809.jpg" />
 </div>
 
 
@@ -230,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153788.jpg" />
 </div>
 
 
@@ -259,7 +286,7 @@ Stepik, Александр Бондарев | Revit 2024: Создание се�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153736.jpg" />
 </div>
 
 
@@ -288,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153734.jpg" />
 </div>
 
 
@@ -315,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153709.jpg" />
 </div>
 
 
@@ -343,7 +370,7 @@ Learn Squared, John Sweeney | Cinematic Concept Design (2017) WEB-DLRip [RU, EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153698.jpg" />
 </div>
 
 
@@ -369,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153693.jpg" />
 </div>
 
 
@@ -398,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153665.jpg" />
 </div>
 
 
@@ -425,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153637.jpg" />
 </div>
 
 
@@ -451,7 +478,7 @@ Udemy, Максим Новак | Универсальные коллекции �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153442.jpg" />
 </div>
 
 
@@ -479,7 +506,7 @@ Chung Kan | Quick UV Mapping For Production (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153357.jpg" />
 </div>
 
 
@@ -505,7 +532,7 @@ Justin Marshall | Topology Tools in TopoGun 2.0 (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153286.jpg" />
 </div>
 
 
@@ -531,7 +558,7 @@ kobezzza.channel, Андрей Кобец | Мастер класс по реш�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153267.jpg" />
 </div>
 
 
@@ -557,7 +584,7 @@ Chung Kan | Real-Time Creation For Games Production (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153218.jpg" />
 </div>
 
 
@@ -585,7 +612,7 @@ Skillbox, Михаил Колодочка | Программирование д�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153030.jpg" />
 </div>
 
 
@@ -612,7 +639,7 @@ Chung Kan | Hard Surface 3D Modeling for Production (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152789.jpg" />
 </div>
 
 
@@ -638,7 +665,7 @@ CGMA, Kurt Kupser | Texturing and Shading for Games (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152737.jpg" />
 </div>
 
 
@@ -664,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152695.jpg" />
 </div>
 
 
@@ -677,34 +704,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E3F2DF8F11A49B4ED0961387A118E3628E83645
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194603   (152597) от 26.12.2017
-
-Специалист | Linux (CentOS/Debian)/FreeBSD. Уровень 3. Взаимодействие с сетевым оборудованием Cisco Systems (2015) PCRec [H.264]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152597.jpg" />
-</div>
-
-
-###  Подробнее
-
-В отличии от сертифицированных курсов компании Cisco, предназначенных для качественной подготовки к сертификации, наш курс ориентирован на решение практических жизненных задач, и демонстрирует уникальные возможности интеграции систем Linux/FreeBSD и Cisco.
-
-Данный курс предназначен для системных администраторов,  работающих с системами Linux или FreeBSD, и, использующих, (   Читать дальше...   )Производство: Лохтуров Вячеслав АлександровичЖанр: Linux, Системное администрированиеПродолжительность: 14:19:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB7F48F50CDE0276A3FF0CFEADF381B016425DF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

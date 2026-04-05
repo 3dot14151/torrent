@@ -1,3 +1,57 @@
+###  Публикация: 476384   (86554) от 05.04.2012
+
+Рождённая свободной / Born Free (1966) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм был снят в Африканской саванне по одноименному бестселлеру известной писательницы и натуралиста Джой Адамсон.
+Картина рассказывает о судьбе львицы Эльсы, еще детенышем попавшей к супругам Адамсон. Они не только спасают малышку от неминуемой гибели, но и, вырастив ее, возвращают назад в дикую природу потому, что она была рождена свободной.
+Авторам удалось превосходно (   Читать дальше...   )Жанр: Драма, семейный, приключенияРежиссер: Джеймс ХиллАктеры: Вирджиния МакКенна, Билл Трэверс, Джеффри Кин, Роберт С. Янг, Джеффри Бест, Сурья ПательПеревод: Профессиональный двухголосый (закадровый)Субтитры: НетПродолжительность: 01:35:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC5905DA61D095869147360409F2AB3797E973B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478434   (86548) от 05.04.2012
+
+Евангелие от Матфея / Il Vangelo secondo Matteo (1964) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86548.jpg" />
+</div>
+
+
+###  Подробнее
+
+В полудокументальной манере с использованием непрофессиональных актеров в черно-белом изображении рассказывается о жизни Иисуса Христа - мать режиссера снялась в роли Богоматери. Сценарий написан по Евангелию от Матфея. Очень необычная и очень сильная картина, отмеченная Специальным призом жюри на МКФ в Венеции в 1964 году, получившая Большой приз экуменистического общества, действующего от имени Ватикана. Иисус в изображении Пазолини кажется гневным, он как бы торопится, быстро и отчетливо выговаривая канонический текст, словно осознавая, что времени у него мало. Те, кто посмотрит картину, будут удивлены, узнав, что сам режиссер был не только атеистом, но и марксистом впридачу. Как будто для того, чтобы подчеркнуть неортодоксальность фильма, Пазолини включил в саундтрек американский "спиричуал" "Sometimes I Feel Like a Motherless Child" в исполнении певицы Одетты...Жанр: Драма, биография, историяРежиссер: Пьер Паоло ПазолиниАктеры: Энрике Иразоки, Маргерита Карузо, Сюзанна Пазолини, Марчелло Моранте, Марио Сократе, Сеттимо Ди Порто, Отелло Сестили, Ферруччо Нуччо, Джакомо Моранте, Альфонсо ГаттоПеревод: Профессиональный двухголосый (закадровый)Продолжительность: 02:11:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF73C31C96516E99E5310F88DE1CB67D2A127E16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 476383   (86376) от 04.04.2012
 
 Живущие свободными / Living Free (1972) DVDRip
@@ -6,7 +60,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86376.jpg" />
 </div>
 
 
@@ -34,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86157.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85262.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84984.jpg" />
 </div>
 
 
@@ -113,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84880.jpg" />
 </div>
 
 
@@ -141,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84773.jpg" />
 </div>
 
 
@@ -169,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84637.jpg" />
 </div>
 
 
@@ -197,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84553.jpg" />
 </div>
 
 
@@ -224,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84513.jpg" />
 </div>
 
 
@@ -250,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84288.jpg" />
 </div>
 
 
@@ -276,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84231.jpg" />
 </div>
 
 
@@ -303,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83490.jpg" />
 </div>
 
 
@@ -329,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83082.jpg" />
 </div>
 
 
@@ -355,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82718.jpg" />
 </div>
 
 
@@ -381,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82712.jpg" />
 </div>
 
 
@@ -407,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82296.jpg" />
 </div>
 
 
@@ -433,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81853.jpg" />
 </div>
 
 
@@ -459,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81743.jpg" />
 </div>
 
 
@@ -489,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81538.jpg" />
 </div>
 
 
@@ -515,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81249.jpg" />
 </div>
 
 
@@ -542,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80981.jpg" />
 </div>
 
 
@@ -568,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80436.jpg" />
 </div>
 
 
@@ -595,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79982.jpg" />
 </div>
 
 
@@ -621,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79966.jpg" />
 </div>
 
 
@@ -633,63 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7639B94814A243973660E9E8D3F8AEE329AE81B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 460309   (79892) от 03.03.2012
-
-Три мушкетера / Les Trois Mousquetaires (1961) [H.264] DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из лучших и одна из самых точных экранизаций знаменитого романа Александра Дюма "Три мушкетера".
-
-Состоит из двух фильмов:
-1. Подвески королевы (1961)(   Читать дальше...   )Вот уж правда, счастье и несчастье идут рука об рука. Вспомните, как повезло Д`Артаньяну: его полюбила прелестная госпожа Бонасье, сама королева вознаградила его за отвагу, а главные забияки мушкетерского полка назвали гасконца своим другом.
-У Д`Артаньяна появился могущественный враг - сам кардинал Ришелье. Он не может простить мушкетеру истории с подвесками. Но (   Читать дальше...   )Жанр: мелодрама, приключения, историяРежиссер: Бернар БордериАктеры: Жерар Баррэ, Милен Демонжо, Перретт Прадье, Жорж Декриер, Бернар Воринже, Жак Тожа, Франсуаза Кристоф, Ги Трежан, Даниэль Сорано, Ги Делорм, Жан Карме, Робер Берри, Анн Тоньетти, Анри Нассье, Жак Сейлер, Саша Питоефф, Малка Рибовска, Андре Вебер, Анри Коган, Жерар Дарьё, Эспанита Кортес, Клод Салез, Мадлен Колон-Ламбер…Перевод: дублированный, двухголосый закадровыйПродолжительность: 01:34:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DCD60CF3FD3B1CF2C11FA8F5F9C95646040596E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459825   (79464) от 01.03.2012
-
-Жил-был мошенник / There Was a Crooked Man (1960) VHSRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79464.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Англии неудалой мошенник, бывший подрывник, отдувающий за чужие грехи и собственные невзгоды срок — досрочно освобожден, и попадает на производство, где понимает — здесь всё прогнило, особенно хозяева. Обещает — будет всё иначе…
-И таки украл у промышленных заправил этот Богом забытый город, каких десятки в Англии…Жанр: комедияРежиссер: Стюарт БёрджАктеры: Норман Уисдом (Norman Wisdom), Альфред Маркс, Эндрю Крикшэнк, Реджинальд Бекуив, Сюзанна Йорк, Джин Кларк, Тимоти Бейтсон, Пол Уитсан-Джонс, Фред Гриффитс, Энн Хефферман, Розалинд Найт, Рид Де Руэн, Брайан Аултон, Глин Хьюстон, Перси Херберт, Эдна Петри, Джек Мэй, Рональд Фрайзер, Эд Деверо, Сэм Кидд, Редмонд Филлипс, Джон Баррард, Эдди Бойс, Фред Хэггерти, Уильям (   Читать дальше...   )Перевод: ДублированныйПродолжительность: 01:37:01
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

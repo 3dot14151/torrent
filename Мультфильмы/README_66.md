@@ -1,3 +1,135 @@
+###  Публикация: 636567   (901744) от 30.03.2013
+
+Ледниковый период / Ice Age (2002) BDRip [Ukr]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901744.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веселые и опасные приключения героев. 20 тыс. лет назад. Чтобы избежать приближающегося из-за наступления ледникового периода холода, животные мигрируют на юг. Однако некоторые из них все-таки решают остаться — одинокий, угрюмый мамонт Манфред, а также бесшабашный ленивец Сид.
+
+Случайно эта парочка наталкивается на человеческого детеныша. Они решаются вернуть его (   Читать дальше...   )Жанр: Детский, Приключения, КомедияРежиссер: Крис Уэдж, Карлос СалданаПерсонажи: Алан Тьюдик, Горан Вишнич, Седрик-развлекатель, Рэй Романо, Джон Легуизамо, Денис Лири, Джек Блэк, Дидрих Бадер, Стивен Рут, Лорри БэглиПеревод: ДублированныйПродолжительность: 01:21:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50AF5442CE049DEB2A3566528389D168F33A5346
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 182420   (901702) от 12.03.2010
+
+Лего:  Приключения Клатча Пауэрса / Lego: The Adventures of Clutch Powers (2010) DVDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встречайте Клатча Пауэрса, лучшего строителя и исследователя во всей вселенной Лего. Он отправляется на свое самое опасное задание. Присоединяйтесь к Клатчу и его команде Лего-экспертов в приключении, которое поведет их от Лего-Сити на планету-тюрьму Космической Полиции, а затем в средневековый мир Ашлара, где они должны помочь настоящему наследнику королевского (   Читать дальше...   )Производство: СШАЖанр: Детский, ПриключенияРежиссер: Ховард Э. БэйкерПерсонажи: Райан МакПартлин, Ивонн Страховски, Пол Майкл Глейзер, Роджер Роуз, Джефф Беннетт, Грегг Бергер, Стефан Кокс, Алекс Десерт, Крис ХардвикПеревод: ДублированныйПродолжительность: 01:18:18
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 760629   (901656) от 25.02.2014
+
+Обиженные игрушки (1949) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901656.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультипликационный фильм о медвежатах, которые не умели бережно играть со своими игрушками и постоянно ломали их. Однажды бабушка-медведица пошла в магазин игрушек и купила любимым внучатам очередные подарки. Но медвежата разломали новые игрушки в первый же день. Пришлось бабушке нести сломанные игрушки в мастерскую. Когда медвежата уснули, им приснился сон, будто (   Читать дальше...   )Жанр: ДетскийРежиссер: Владимир МуджириПродолжительность: 00:10:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0CB0865A1B337A6318234F64916F00007E8E8F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 637229   (901623) от 30.03.2013
+
+Побег с планеты Земля / Escape from Planet Earth (2013) Blu-ray 3D [2D/3D] [1080p]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901623.jpg" />
+</div>
+
+
+###  Подробнее
+
+На планете Бааб, в самом центре Вселенной, два брата делают всё возможное, чтобы защитить свою галактику. Они — полные противоположности. Если девиз Гарри — «сначала подумай, потом сделай», то отважный Скорч живет по закону «сила есть — ума не надо», что не мешает им слаженно работать. Но однажды они получают сигнал S.O.S. с опасной планеты…под названием Земля. Скорч, (   Читать дальше...   )Производство: США, КанадаЖанр: Анимация, Фантастика, Комедия, ПриключенияРежиссер: Кэллан БрукнерАктеры: Брендан Фрейзер, Роб Кордри, Рики Джервэйс, Джонатан Морган Хейт, Джессика Альба, София Вергара, Пол Шеер, Джейсон Симпсон, Сара Джессика Паркер, Даг АбрахамсПеревод: ДублированныйЯзык субтитров: НетПродолжительность: 01:29:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AA563531F5BEC8627CA891FF11A2E9B75632A5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 637252   (901547) от 30.03.2013
+
+Побег с планеты Земля / Escape from Planet Earth (2013) BDRemux  [1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901547.jpg" />
+</div>
+
+
+###  Подробнее
+
+На планете Бааб, в самом центре Вселенной, два брата делают всё возможное, чтобы защитить свою галактику. Они — полные противоположности. Если девиз Гарри — «сначала подумай, потом сделай», то отважный Скорч живет по закону «сила есть — ума не надо», что не мешает им слаженно работать. Но однажды они получают сигнал S.O.S. с опасной планеты…под названием Земля. Скорч, (   Читать дальше...   )Производство: США, КанадаЖанр: Анимация, Фантастика, Комедия, ПриключенияРежиссер: Кэллан БрукнерАктеры: Брендан Фрейзер, Роб Кордри, Рики Джервэйс, Джонатан Морган Хейт, Джессика Альба, София Вергара, Пол Шеер, Джейсон Симпсон, Сара Джессика Паркер, Даг АбрахамсПеревод: ДублированныйЯзык субтитров: НетПродолжительность: 01:29:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E638B14152818C79D4A9A6BD18AA8C7A8FA4A79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 636381   (901449) от 30.03.2013
 
 Гадкий я / Despicable Me (2010) BDRip [1080p] [Вертикальная анаморфная стереопара 3D]
@@ -6,7 +138,7 @@
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901449.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901355.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901310.jpg" />
 </div>
 
 
@@ -84,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900933.jpg" />
 </div>
 
 
@@ -110,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900873.jpg" />
 </div>
 
 
@@ -136,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900757.jpg" />
 </div>
 
 
@@ -162,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900738.jpg" />
 </div>
 
 
@@ -188,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900578.jpg" />
 </div>
 
 
@@ -214,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900167.jpg" />
 </div>
 
 
@@ -240,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899949.jpg" />
 </div>
 
 
@@ -266,7 +398,7 @@ Hello Kitty! Пластилиновая деревушка (выпуск №2, �
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899940.jpg" />
 </div>
 
 
@@ -294,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899872.jpg" />
 </div>
 
 
@@ -320,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899859.jpg" />
 </div>
 
 
@@ -347,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899749.jpg" />
 </div>
 
 
@@ -373,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899606.jpg" />
 </div>
 
 
@@ -399,7 +531,7 @@ Hello Kitty! Пластилиновая деревушка (выпуск №1, �
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899592.jpg" />
 </div>
 
 
@@ -427,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899577.jpg" />
 </div>
 
 
@@ -456,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899568.jpg" />
 </div>
 
 
@@ -482,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899561.jpg" />
 </div>
 
 
@@ -508,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899463.jpg" />
 </div>
 
 
@@ -534,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899436.jpg" />
 </div>
 
 
@@ -545,138 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DCC9BD21FCD0EAE4CB02A24040EACE01A409478
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 637383   (899433) от 31.03.2013
-
-Мишка Гумми - Я мишка Гумми / Gummy Bear - Eu Sou O Gummy Bear (2012) DVD5 [EN, POR]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899433.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник клипов про Медведя Гумми, португальская версия.
-
-  Мишка Гумми (мармеладный мишка) - зеленый голубоглазый символ жевательных конфет Gummy Bear, в оранжевых панталонах и тапочках поет и танцует. Небольшая часть левого уха, в верху, отсутствует, так как, ее, скорее всего кто-то откусил. Два нижних зуба, расположены далеко друг от друга (так как вредно есть столько (   Читать дальше...   )Жанр: Детский, Компьютерная анимацияРежиссер: Реnе RennefeldПерсонажи: Gummy BearПеревод: ОтсутствуетСубтитры: Только вторая песняЯзык субтитров: Португальский (Бразилия)Продолжительность: 00:18:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7153AC74E83281DBD41798563589D775E2F0B3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 760405   (899402) от 26.02.2014
-
-Балто: Дилогия / Balto: Dilogy (1995, 2002) DVDRip [UKR, EN]
-
->>Мультфильмы
->>Зарубежные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899402.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение приключений легендарного пса Балто. Случилось так, что Балто стал отцом. Он сделал все возможное, чтобы пристроить всех своих отпрысков в хорошие семьи. Но одна девочка, по имени Алу, вдруг почувствовала, что никогда не сможет быть похожей на своих братьев и сестер. После того, как она встретила в лесу охотника, Алу ощутила пробуждение загадочной природы (   Читать дальше...   )Производство: США / Amblin Entertainment, Universal Pictures, AmblimationЖанр: мультфильм, фантастика, фэнтези, комедия, семейныйРежиссер: Фил ВайнштейнПерсонажи: Морис ЛаМарш, Джоди Бенсон, Лэйси Чэберт, Дэвид Кэрредин, Марк Хэмилл, Чарльз Флайшер, Питер МакНикол, Роб Полсен, Николетт Литтл и др.Перевод: многоголосый закадровыйПродолжительность: 01:15:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D432772B96D4916EFE43DB232B0145A9F4D6340B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 761030   (899387) от 26.02.2014
-
-Турбо / Turbo (2013) BDRip [1080p] [hand made 60fps] [Горизонтальная анаморфная стереопара 3D]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ничто так не раздражает темпераментную, мечтающую о скорости улитку с говорящим именем Турбо, как неспешная жизнь, медленные разговоры, заторможенные соседи. Пусть наш герой выглядит большим чудаком в этом вялом, неторопливом мире, пусть он идёт вопреки закону природы о «рождённом ползать», но если в сердце горит «пламенный мотор», а душа верит в чудо, оно просто (   Читать дальше...   )Производство: СШАЖанр: Компьютерная анимация, ПриключенияРежиссер: Дэвид СоренПерсонажи: Райан Рейнольдс, Пол Джаматти, Майкл Пенья, Снуп Догг, Майя Рудольф, Мишель Родригес, Сэмюэл Л. Джексон, Луис Гусман, Билл Хейдер, Бен ШварцПеревод: ДублированныйПродолжительность: 01:35:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F71DC6F3970F46341EABBE477850CD8D72FA1B09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 294305   (899190) от 11.02.2011
-
-Гадкий Я / Despicable Me (2010) [1080p] Blu-ray 3D
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гадкий снаружи, но добрый внутри Грю намерен, тем не менее, закрепить за собой статус главного архизлодея в мире, для чего он решает выкрасть Луну при помощи созданной им армии миньонов. Дело осложняют конкуренты, вставляющие высокотехнические палки в колеса, и семейные обстоятельства в виде трех сироток, о которых Грю вынужден заботиться...Жанр: Комедия, семейный, мультфильмРежиссер: Пьер Соффин, Крис РеноАктеры: Стив Карелл, Джейсон Сигел, Расселл Брэнд, Джули Эндрюс, Уилл Арнетт, Кристен Уиг, Миранда Косгров, Дэна Гайер, Элси Фишер, Пьер КоффенПеревод: ДубляжСубтитры: English, Chinese, Danish, Finnish, Norwegian, Portuguese,Продолжительность: 01:34:41
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100365   (898856) от 04.02.2017
-
-Рио / Rio (2011) BDRip [H.264/1080p] [handmade 16:9]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898856.jpg" />
-</div>
-
-
-###  Подробнее
-
-Попугай-зануда оставляет свою уютную сытую жизнь в клетке и из Миннесоты отправляется в Рио-де-Жанейро, город грез всех и каждого. Неминуемые встречи, препятствия, опасности и любовь к последней представительнице его рода заставляют нашего героя по-другому посмотреть на мир и из скучного домоседа превратиться в милого симпатягу, узнавшего цену дружбе и смелости.Производство: Канада, elefilm Canada - Equity Investment ProgramЖанр: Приключения, Комедия, СемейныйРежиссер: Карлос СалданаПерсонажи: Карен Дишер, Джейсон Фриччион, София Скарпа Салдана, Лесли Манн, Келли Китон, Джесси Айзенберг, Ванда Сайкес, Джейн Линч, Родриго Санторо, Грасинья ЛепорансПеревод: ДублированныйЯзык субтитров: русские (форсированные, полные), английские (полные)Продолжительность: 01:29:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AFA55A8EB2986EBF89A2FA858538234A0CBDEAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

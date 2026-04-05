@@ -1,3 +1,30 @@
+###  Публикация: 1572858   (383155) от 06.09.2022
+
+CGTarian, Вадим Беседин | Риггинг Мастер (MAYA) (2020) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383155.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс дистанционного обучения Риггинг Мастер подготовлен таким образом, чтобы провести вас по всем важнейшим аспектам риггинга, детально рассматривая и отрабатывая на практике весь представленный материал.
+Риггинг - это не просто создание скелета персонажа, это также создание различных систем управления персонажами, техникой, объектами, создание вспомогательных инструментов (   Читать дальше...   )Производство: CGTarianЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 146:14:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E149585DF1F4C8207632D33E7D44702DE01DBA84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 363344   (383143) от 06.09.2022
 
 Алёна Россошинская | Фитнес для лица (2011) SATRip
@@ -6,7 +33,7 @@
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383143.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382883.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382689.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ OTUS | C# для начинающих программистов (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382677.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382180.jpg" />
 </div>
 
 
@@ -136,7 +163,7 @@ Chris Thomas | Particle Flow Fundamentals 4: Tests, Forces & Collisions (2004) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381422.jpg" />
 </div>
 
 
@@ -162,7 +189,7 @@ Chris Thomas | Particle Flow Fundamentals 3: Operators 2 (2004) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381418.jpg" />
 </div>
 
 
@@ -188,7 +215,7 @@ Chris Thomas | Particle Flow Fundamentals 5: Practical Examples (2004) PCRec [En
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381325.jpg" />
 </div>
 
 
@@ -214,7 +241,7 @@ Chris Thomas | Particle Flow Fundamentals 2: Operators 1 (2004) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381267.jpg" />
 </div>
 
 
@@ -240,7 +267,7 @@ Chris Thomas | Particle Flow Fundamentals 1: Principles and Workflow (2004) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381023.jpg" />
 </div>
 
 
@@ -267,7 +294,7 @@ Wayne Hollingsworth | Введение в Maya Fluid Effects. Часть 2 /  In
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380896.jpg" />
 </div>
 
 
@@ -293,7 +320,7 @@ Wesbos | Изучите Gatsbyn / Master Gatsby (Master Package) (2020) PCRec [E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380887.jpg" />
 </div>
 
 
@@ -321,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380801.jpg" />
 </div>
 
 
@@ -348,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380788.jpg" />
 </div>
 
 
@@ -376,7 +403,7 @@ conf.python.ru | Конференция Russian Python Week (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380748.jpg" />
 </div>
 
 
@@ -405,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380623.jpg" />
 </div>
 
 
@@ -432,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380603.jpg" />
 </div>
 
 
@@ -458,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380521.jpg" />
 </div>
 
 
@@ -486,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380468.jpg" />
 </div>
 
 
@@ -512,7 +539,7 @@ Irena Baron | Онлайн курс по съемке и монтажу виде
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380461.jpg" />
 </div>
 
 
@@ -541,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380296.jpg" />
 </div>
 
 
@@ -569,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379859.jpg" />
 </div>
 
 
@@ -596,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379822.jpg" />
 </div>
 
 
@@ -624,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379720.jpg" />
 </div>
 
 
@@ -653,7 +680,7 @@ daytradingschool.ru | Учим Создавать торговых робото�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379717.jpg" />
 </div>
 
 
@@ -667,32 +694,6 @@ daytradingschool.ru | Учим Создавать торговых робото�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DF8DE2F7E1C49B3925C2E07B06300A7BCFDBC44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066964   (379715) от 01.11.2016
-
-Радислав Гандапас | Самоменеджмент и самомотивация (2014) DVDRip [H.264]
-
->>Обучающие видеоматериалы
->>Психология и саморазвитие (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379715.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Как заставить себя начать новое дело?», «Как приобрести уверенность в себе и своих силах?», «Где найти силы продолжать начатое?». Эти и другие подобные вопросы задаются постоянно. И их авторы вовсе не подростки или неудачники. Большинство - довольно успешные менеджеры, собственники бизнеса и иногда даже политики. Темы самодисциплины, управления своим поведением, (   Читать дальше...   )Жанр: Практическая психология, Личностный ростПродолжительность: 00:56:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E932B8DB1F92F78E221D77765DFFD1DD81394778
 ```
 
 https://mybot314.ru/tekegram_catalog/

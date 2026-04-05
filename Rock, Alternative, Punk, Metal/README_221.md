@@ -1,3 +1,147 @@
+###  Публикация: 1374242   (875098) от 09.04.2020
+
+Litterbox Massacre - 2 Album/2 Singles (2019-2020) [MP3|320 Kbps] <Slamming Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875098.jpg" />
+</div>
+
+
+###  Подробнее
+
+(2019) Welcome to the Scratching Post (EP)
+(2020) The Rise of Lucifur (UK)
+(2019) SinglesЖанр: Slamming DeathcoreПродолжительность: 00:47:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A77C388BCA8B6C7E5E2A507385F08B1999CC62CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374255   (875093) от 09.04.2020
+
+Samaji - Гранж каньон (2020) ЕР [MP3|320 Kbps] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Подари себя [00:03:28]
+02 Кислота  [00:02:51]
+03 Течь [00:02:40]
+04 Ушла из дома  [00:02:14](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:14:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E1BECA11182E78F6F9DBF43E2F43B1F8ED7825A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105868   (875072) от 18.02.2017
+
+Inglorious - Inglorious (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Until I Die (5:55)
+02. Breakaway (3:01)
+03. High Flying Gypsy (3:56)
+04. Holy Water (4:49)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFD33035B31FEC1CB2010CB15CA4A17699FB10AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105864   (875070) от 18.02.2017
+
+Doro - Love Me In Black (1998) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do You Like It? (3:04)
+02. Brutal And Effective (3:13)
+03. Love Me In Black (4:49)
+04. Pain (4:20)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:00:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA8E56335ED0C86386C0A266D552EA4B3BD32191
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105882   (875067) от 18.02.2017
+
+Eric Clapton - Backless (1978) Reissue, 2008, Polydor [FLAC|Lossless|tracks + .cue] <Blues Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walk Out In The Rain (4:16)
+02. Watch Out For Lucy (3:26)
+03. I'll Make Love To You Anytime (3:24)
+04. Roll It (3:43)(   Читать дальше...   )Жанр: Blues Rock, Classic RockПродолжительность: 00:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8F423F2E0A03D5EC37F5465DB3B46E9741E865A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1105506   (875061) от 18.02.2017
 
 Edenbridge - The Great Momentum (2017) 2CD, Album, Digipack [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
@@ -6,7 +150,7 @@ Edenbridge - The Great Momentum (2017) 2CD, Album, Digipack [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875061.jpg" />
 </div>
 
 
@@ -34,7 +178,7 @@ Jade Warrior - 14 альбомов / 15 CD (1971-2008) Дискография [W
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875051.jpg" />
 </div>
 
 
@@ -63,7 +207,7 @@ Electric Guest - Plural (2017) [FLAC|Lossless|tracks + .cue] <Indie, Rock, Synth
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874997.jpg" />
 </div>
 
 
@@ -92,7 +236,7 @@ Merciless Death - Realm Of Terror (2008) [FLAC|Lossless|image + .cue] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874792.jpg" />
 </div>
 
 
@@ -121,7 +265,7 @@ Big Big Train - Common Ground (2021) [FLAC|Lossless|image + .cue] <Progressive R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874788.jpg" />
 </div>
 
 
@@ -150,7 +294,7 @@ Barren Earth - Curse Of The Red River (2010) [FLAC|Lossless|image + .cue] <Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874727.jpg" />
 </div>
 
 
@@ -179,7 +323,7 @@ Kruger - Nurnberg (2020) Single [MP3|320 Kbps] <Thrash Heavy Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874726.jpg" />
 </div>
 
 
@@ -205,7 +349,7 @@ I Miss My Death - Mysto (2020) [MP3|320 Kbps] <Gothic Sympho Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874711.jpg" />
 </div>
 
 
@@ -234,7 +378,7 @@ Oi!Beer!Alles! - Парни с городских окраин (2017) [MP3|320 K
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874709.jpg" />
 </div>
 
 
@@ -263,7 +407,7 @@ Imperia - Queen Of Light (2007) [FLAC|Lossless|image + .cue] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874644.jpg" />
 </div>
 
 
@@ -292,7 +436,7 @@ Lindsey Buckingham (ex-Fleetwood Mac) - Lindsey Buckingham (2021) [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874638.jpg" />
 </div>
 
 
@@ -324,7 +468,7 @@ VA - Women In Rock (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874632.jpg" />
 </div>
 
 
@@ -353,7 +497,7 @@ Axxis - Virus of a Modern Time (2020) (EP) [MP3|320 Kbps] <Melodic Heavy, Power 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874577.jpg" />
 </div>
 
 
@@ -382,7 +526,7 @@ Metal Church - From the Vault (2020) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874568.jpg" />
 </div>
 
 
@@ -411,7 +555,7 @@ Blackguard - Profugus Mortis (2009) [FLAC|Lossless]<Folk Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874429.jpg" />
 </div>
 
 
@@ -440,7 +584,7 @@ Mr. Bungle - The Night They Came Home (2021) Live [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874326.jpg" />
 </div>
 
 
@@ -470,7 +614,7 @@ The Strokes - The New Abnormal (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874305.jpg" />
 </div>
 
 
@@ -499,7 +643,7 @@ Black Label Society - Hangover Music vol. VI (2004) [FLAC|Lossless]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874201.jpg" />
 </div>
 
 
@@ -528,7 +672,7 @@ Kruger - XXX (2019) 3CD [MP3|320 Kbps] <Heavy Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874195.jpg" />
 </div>
 
 
@@ -557,7 +701,7 @@ Joe Satriani - Shapeshifting (2020) [FLAC|Lossless|WEB-DL|tracks] <Instrumental 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874185.jpg" />
 </div>
 
 
@@ -586,7 +730,7 @@ Joe Satriani - Shapeshifting (2020) [MP3|320 Kbps] <Instrumental Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_874089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874089.jpg" />
 </div>
 
 
@@ -600,151 +744,6 @@ Joe Satriani - Shapeshifting (2020) [MP3|320 Kbps] <Instrumental Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5491C8C062F6B8329FAFF167303F8AB0FF396A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997454   (873910) от 17.03.2016
-
-Augrimmer - Moth and the Moon (2016) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873910.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Yonder
-2. Moth and the Moon
-3. Sultana
-4. The Lament of Gods 2(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:48:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5197F5F78DB9BE9B234F3FB7CEAD14A145636535
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997649   (873908) от 17.03.2016
-
-Crisix - From Blue To Black (2016) [MP3|320 кб/с] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873908.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Conspiranoia
-2. Journey Through the Fire
-3. G.G.M. (The Gret Metal Motherfucker)
-4. T-Terror Era(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9C326F2C7ECBB852E6887F6AC7AD0071318DC19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997449   (873907) от 17.03.2016
-
-Urgehal - Aeons in Sodom (2016) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dødsrite
-02. The Iron Children
-03. Blood of the Legion
-04. The Sulphur Black Haze(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:48:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D643E6C9FDB07BABAABA5AC8809050EB72459D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997580   (873904) от 17.03.2016
-
-GAiNA - С Кем Ты Играешь И Поёшь?! (2008) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Время (3:24)
-02. Это Твой День (4:03)
-03. С Кем Ты Играешь И Поёшь?! (3:58)
-04. Кануло В Лету (4:40)(   Читать дальше...   )Жанр: Alternative Rock, Heavy MetalПродолжительность: 00:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4FD6AFD4AF61327C97D0E3F6FA4ED11D5DD1AC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997669   (873903) от 17.03.2016
-
-Inner Wish - Inner Wish (2016) [MP3|320 кб/с] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873903.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Roll the Dice
-2. Broken
-3. Modern Babylon
-4. Machines of Fear(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:07:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEE85C7D3215F0167EE2E9A88E88EB30AAD141A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

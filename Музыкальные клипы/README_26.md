@@ -6,7 +6,7 @@ Evave feat. Aelyn - Hand To Hand (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388016.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Boy Rekless - Like Damn (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388003.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Yakuro - Hymn Of Love (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387865.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387741.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Enigmatic Chill-Out Lounge (2012) [H.264] DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385280.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385082.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382676.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382668.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382639.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380505.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Rihanna - Bitch Better Have My Money (2015) WEBRip[H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379153.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379093.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378112.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Akcent / Коллекция видео (2002-2010) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377111.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ VA - Осенний марафон № 199 / Видеоклипы (Свежие 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377040.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Billy Hlapeto And Kristo Feat. Lexus - Are Dai Pak (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376421.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ M. O. B feat. Alex T - Make You Scream (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376072.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375342.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374410.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374111.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374069.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ VA - Viva Music (1996) VHSRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373927.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369192.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Assorti Creative 50 (2016) WEBRip [H.264]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368450.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ DVJ Bazuka - Make Some Sex (Uncensored) (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367907.jpg" />
 </div>
 
 
@@ -710,7 +710,7 @@ Lady Gaga - Bloody Mary  (2011) HDTVRip [1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367808.jpg" />
 </div>
 
 

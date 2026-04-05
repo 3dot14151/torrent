@@ -1,3 +1,56 @@
+###  Публикация: 1138228   (665312) от 28.05.2017
+
+А.П. Ганенко, М.И. Лапсарь | Оформление текстовых и графических материалов (требования ЕСКД) (2015) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665312.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выполнение дипломных проектов, курсовых и письменных экзаменационных работ - это первые самостоятельные конструкторские работы будущего специалиста, предполагающие оформление графических и текстовых документов.
+    Эти работы не только служат комплексной проверкой подготовки студента, но и являются важнейшей формой приобретения навыков самостоятельной работы со справочной (   Читать дальше...   )Жанр: Нормативная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:072924FA5691AC1D9CBF75C2C8BE2FD59C96E912
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137890   (665311) от 28.05.2017
+
+А.Н. Шестеркин | Введение в электротехнику. Элементы и устройства вычислительной техники (2015) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665311.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены основные понятия и методы расчета цепей постоянного и переменного тока, элементы и устройств комбинационного и последовательного типа, запоминающие устройства, АЦП и ЦАП. Приведены задания для практической работы по указанным вопросам, даны методика их выполнения и контрольные вопросы для самопроверки. Кратко рассмотрены приборы системы моделирования (   Читать дальше...   )Жанр: Электротехника, электроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0695CE2A7C3621C8EF27E0F6B09699F1E29A71CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138122   (665309) от 28.05.2017
 
 А.Н. Давыдов | Линейное программирование: графический и аналитический методы (2017) [PDF]
@@ -6,7 +59,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665309.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665307.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665302.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665240.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664195.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663088.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663080.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662087.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662012.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661921.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661322.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659005.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658115.jpg" />
 </div>
 
 
@@ -351,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657935.jpg" />
 </div>
 
 
@@ -377,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657914.jpg" />
 </div>
 
 
@@ -403,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657908.jpg" />
 </div>
 
 
@@ -430,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657830.jpg" />
 </div>
 
 
@@ -458,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657652.jpg" />
 </div>
 
 
@@ -486,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657061.jpg" />
 </div>
 
 
@@ -512,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657059.jpg" />
 </div>
 
 
@@ -539,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656213.jpg" />
 </div>
 
 
@@ -568,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655733.jpg" />
 </div>
 
 
@@ -594,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655723.jpg" />
 </div>
 
 
@@ -620,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654121.jpg" />
 </div>
 
 
@@ -633,60 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2937A09D6D46BB222533199ACF40C4557B522EE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140731   (653857) от 08.06.2017
-
-Ю.Г. Бабаскин | Строительство земляного полотна автомобильных дорог (2016) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653857.jpg" />
-</div>
-
-
-###  Подробнее
-
-Содержит основные разделы технологии строительства земляного полотна. Изложены общие сведения о земляном полотне, описаны работы, выполняемые в подготовительный период, при устройстве дренажных сооружений и водопропускных труб.
-Особое внимание уделено перераспределению земляных масс и выполнению основных работ по возведению насыпи и устройству выемки. Раскрыты вопросы (   Читать дальше...   )Жанр: СтроительствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D136C8BC23122C6A28454F1C342249CFE0876B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141017   (653752) от 08.06.2017
-
-С.Н. Фурсенко и др. | Автоматизация технологических процессов (2015) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раскрыта теория построения систем автоматизированного управления и регулирования. Подробно изложена методика синтеза систем автоматического управления поточными технологическими линиями, показаны принципы их реализации на программируемых логических контроллерах.
- Приведены требования к документации проекта автоматизации. Описаны автоматизированные системы управления (   Читать дальше...   )Жанр: Автоматизация техпроцессовФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DA54E939BBF3E443654DD3E02C64B6A68CB3450
 ```
 
 https://mybot314.ru/tekegram_catalog/

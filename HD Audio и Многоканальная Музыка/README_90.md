@@ -1,32 +1,3 @@
-###  Публикация: 1694442   (120932) от 25.01.2024
-
-Ethan Iverson - Technically Acceptable (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz Fusion, Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Conundrum (1:31)
-02. Victory is Assured (Alla Breve) (2:39)
-03. Technically Acceptable (4:19)
-04. Who Are You, Really? (3:25)(   Читать дальше...   )Жанр: Jazz Fusion, Contemporary JazzПродолжительность: 00:49:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE8EF0EF447AF0DE7F02EEE7996442DF17C18533
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1558932   (120862) от 26.01.2024
 
 White Skull - Studio Albums (12 releases) (1995-2022) hand made [restored, declipped] [FLAC|16/44.1|tracks +.cue] <Heavy/Power Metal>
@@ -35,7 +6,7 @@ White Skull - Studio Albums (12 releases) (1995-2022) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120862.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Bon Jovi - Bon Jovi (1984) Deluxe Edition, 2024, UMG Recordings, Inc. [FLAC 24/9
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120814.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Static-X - Project Regeneration, Vol. 2 (2024) [FLAC 24/48, 16/44.1|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120799.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Robert Hart (Manfred Mann's Earth Band) - Circus Life (2024) [FLAC 24/44.1|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120797.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ LP (Laura Pergolizzi) - Love Lines (2023) Deluxe Version, 2024, BMG Rights Manag
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120788.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ The Gems - Phoenix (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120770.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Faith Circus - Bum In The Sun (2024) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120769.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Dolly Parton - Rockstar (2024) Deluxe Edition [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120655.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Danielle Nicole - The Love You Bleed (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120632.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Erasure - The Neon (Live) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Synth-pop,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120623.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Louis Mezzasoma - Good or bad time (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120617.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Dust & Bones - Mission Back to the Forbidden Planet (2024) [FLAC 24/48|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120614.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Sleater-Kinney - Little Rope (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120611.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Emerald Table - Book of illusion's fragments (2023) [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120610.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Thunder - Live at Islington Academy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120608.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Bjorn (Bjørn)  Berge - Introducing SteelFinger Slim (2024) [FLAC 24/44.1|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120607.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Nevermore (& Sanctuary; Warrel Dane) - Studio Albums (12 releases) (1995-2018) h
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120604.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Cognizance - Phantazein (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Technical 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120599.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Mitch Ryder - The Roof Is On Fire (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120449.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Bobby Darin - Born Walden Robert Cassotto (1968) [FLAC 24/192|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120430.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Hyloxalus - Make Me The Heart Of The Black Hole (2024) [FLAC 24/48|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120427.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ Bobby Darin - Commitment (1969) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Folk-Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120425.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ Mago De Oz - Alicia En El Metalverso (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120423.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ Rage Of Light - Studio Albums (4 releases) (2016-2023) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120417.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ Vipassi - Lightless (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Extreme Progress
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120408.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ Vipassi - Lightless (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Extreme Progress
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:320DF0D9E9A8AC6DB00477154B30EA1F85E44C8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695414   (120281) от 29.01.2024
+
+Friends and Neighbors - Circle (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cecil (5:42)
+02. Circles (6:45)
+03. Ghost March (5:52)
+04. Son (8:18)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:42:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E237F9EA8A67DE7AEA93EC8B82A6D6EFCC5D00C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

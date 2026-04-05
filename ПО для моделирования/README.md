@@ -1,4 +1,83 @@
 https://t.me/izofen
+###  Публикация: 1863124   (1063663) от 
+
+AMS Дизайн Интерьера 3D 15.0 [Ru]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063663.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Дизайн Интерьера 3D» - это удобная программа для перепланировки и создания дизайн-проекта квартиры своими руками. Позволяет сэкономить до 30% времени и денег при ремонте: вы будете точно представлять облик всех комнат после ремонта, сможете удачно расставить мебель и технику. Продукт включает более 450 встроенных материалов отделки (различные виды обоев, ламинат, (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC61BCB896DAFDDF88ADF97C892DF7855E29B85F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862771   (1063595) от 
+
+Agisoft Metashape Pro 2.3.1 Build 22235 Repack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063595.jpg" />
+</div>
+
+
+###  Подробнее
+
+Agisoft Metashape Professional - это передовое программное обеспечение на базе искусственного интеллекта, позволяющий создавать 3D-модели на основе цифровых фотографий соответствующего качества и формата. Программа максимально раскрывает возможности фотограмметрии, а также включающее в себя технологии машинного обучения для анализа и пост-обработки, что позволяет (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6D0C78E172D7E8C38CE212CD3BBE3BBC143014B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862244   (1063265) от 
+
+LuBan 3D 20.03.2026 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063265.jpg" />
+</div>
+
+
+###  Подробнее
+
+LuBan 3D - это программное обеспечение для автоматического генеративного дизайна, которое помогает дизайнерам и производителям быстро создавать свои творения.
+LuBan автоматически создает 3D-модели в различных формах, таких как литофан, стопка, решетка, пластина, рельеф, модуль и каркас. Созданная модель может быть позже изготовлена с помощью 3D-печати, лазерной резки (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C145F17F6FCD731DCCA8A1DC4199EDD23C3DCA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1861323   (1062569) от 
 
 Corona Renderer 14 Update 1 (Hotfix 1) for 3ds Max 2018-2026 [En]
@@ -7,7 +86,7 @@ Corona Renderer 14 Update 1 (Hotfix 1) for 3ds Max 2018-2026 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062569.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ Autodesk 3ds Max 2027 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062433.jpg" />
 </div>
 
 
@@ -59,7 +138,7 @@ AMS Ландшафтный Дизайн 3D 14.0 [Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062200.jpg" />
 </div>
 
 
@@ -86,7 +165,7 @@ Blender 5.1.0 + Portable [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061438.jpg" />
 </div>
 
 
@@ -114,7 +193,7 @@ Agisoft Metashape Pro 2.3.1 Build 22201 Repack (& Portable) by elchupacabra [Mul
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061391.jpg" />
 </div>
 
 
@@ -140,7 +219,7 @@ Pepakura Designer 6.1.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059222.jpg" />
 </div>
 
 
@@ -166,7 +245,7 @@ Room Arranger 10.3.6.748 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057174.jpg" />
 </div>
 
 
@@ -192,7 +271,7 @@ Room Arranger 10.3.6.748 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056793.jpg" />
 </div>
 
 
@@ -218,7 +297,7 @@ AMS Ландшафтный Дизайн 3D 12.0 [Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055658.jpg" />
 </div>
 
 
@@ -245,7 +324,7 @@ Room Arranger 10.3.4.743 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055535.jpg" />
 </div>
 
 
@@ -271,7 +350,7 @@ Room Arranger 10.3.3.741 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053426.jpg" />
 </div>
 
 
@@ -297,7 +376,7 @@ Room Arranger 10.3.2.739 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051123.jpg" />
 </div>
 
 
@@ -323,7 +402,7 @@ SketchUp Pro 2026 26.1.189 RePack by KpoJIuK [Ru/En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050540.jpg" />
 </div>
 
 
@@ -349,7 +428,7 @@ AMS Дизайн Интерьера 3D 14.0 [Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050243.jpg" />
 </div>
 
 
@@ -375,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050177.jpg" />
 </div>
 
 
@@ -401,7 +480,7 @@ Luxion KeyShot Enteprise 2025.3 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049590.jpg" />
 </div>
 
 
@@ -427,7 +506,7 @@ SketchUp Pro 2026 26.1.185 RePack by KpoJIuK [Ru/En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048144.jpg" />
 </div>
 
 
@@ -453,7 +532,7 @@ Room Arranger 10.3.1.736 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047556.jpg" />
 </div>
 
 
@@ -479,7 +558,7 @@ Autodesk FBX Review 1.5.3.0 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045146.jpg" />
 </div>
 
 
@@ -507,7 +586,7 @@ MeshBoolean v1.8 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041405.jpg" />
 </div>
 
 
@@ -533,7 +612,7 @@ Nitro4D NitroSolo v1.07 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040069.jpg" />
 </div>
 
 
@@ -559,7 +638,7 @@ Nitro4D NitroVertex v1.04 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040065.jpg" />
 </div>
 
 
@@ -585,7 +664,7 @@ Nitro4D NitroRelax v1.05 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040062.jpg" />
 </div>
 
 
@@ -596,85 +675,6 @@ Nitro4D NitroRelax v1.05 For Cinema 4D [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71D9D3EE0E619B32DBBDE3D8984E7A982CD054B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439329   (1040061) от 12.01.2021
-
-Nitro4D NitroMoFracture v1.06 for Cinema 4D [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это абсолютно новый плагин для разрушения.
-С помощью NitroMoFracture можно легко разрушать любые объекты,просто добавьте удивительный новый инструмент для AutoFracture к вашему объекту (-ам) в вашей сцене, измените некоторые настройки, нажмите play и посмотрите результаты в режиме реального времени. Очень легко внести изменения, чтобы увидеть разные идеи.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1C61CEC7BBD75500E21633DE949725DC5AC7A91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439328   (1040059) от 12.01.2021
-
-Nitro4D NitroDraw v1.25 For Cinema 4D [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040059.jpg" />
-</div>
-
-
-###  Подробнее
-
-NitroDraw - это плагин с которым можно осуществлять размещения объектов на любой поверхности в cinema4d. Вы можете разместить модель по своему желанию путем рисования кистью, что более удобно и произвольно.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:202651D97C6EAA28F90BA6B26B69DB40DC1F41E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439327   (1040058) от 12.01.2021
-
-Nitro4D NitroBoxTool v1.07 for Cinema 4D [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040058.jpg" />
-</div>
-
-
-###  Подробнее
-
-Плагин NitroBoxTool - это новый метод моделирования твердых поверхностей, вы можете рисовать и выбирать моделирование по желанию, и его можно применять к клону, зеркалу, сплайну, многоугольному объекту, фаске и т. ДЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F815859D040C5F6DCBC9B01F85439F19F2621B6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

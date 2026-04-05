@@ -1,29 +1,3 @@
-###  Публикация: 1779612   (27659) от 14.02.2025
-
-Deworker Pro, Дмитрий Елисеев | Способы ускорения PHP-приложений (2024) WEB-DLRip [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучим методы повышения быстродействия веб-приложения. От простого активации OpCache, кеширования настроек и ленивой инициализации сервисов до применения Preload с JIT и RoadRunner, асинхронности, использования Fibers и других особенностей в различных фреймворках. Выполним практику на проектах с бенчмарками. Обсудим потенциальные проблемы, удобство разработки stateless-сервисов (   Читать дальше...   )Производство: Deworker ProЖанр: СтримЯзык озвучки: РусскийПродолжительность: 11:50:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:900C6B76584B28DBC7EFD82D6EAD606986D246F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1779757   (27651) от 14.02.2025
 
 PurpleSchool, Антон Ларичев, Игорь Матюшкин | Основы Swift и iOS (2024) WEB-DL [RU]
@@ -32,7 +6,7 @@ PurpleSchool, Антон Ларичев, Игорь Матюшкин | Осно�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27651.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Rebrain, Денис Сальников | RabbitMQ (2024) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27647.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ Jeffrey Way | Laracasts Full Dump (2025) WEB-DL [EN / EN Sub] [Дамп сайт
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27598.jpg" />
 </div>
 
 
@@ -113,7 +87,7 @@ Udemy, Андрей Суховицкий | Основы Domain Driven Design (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27581.jpg" />
 </div>
 
 
@@ -139,7 +113,7 @@ JUG Ru Group | DevOops 2024. Конференция по инженерным р
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27549.jpg" />
 </div>
 
 
@@ -165,7 +139,7 @@ David East | Getting Started With React.js (2014) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27382.jpg" />
 </div>
 
 
@@ -191,7 +165,7 @@ Pluralsight | AngularJS for .NET Developers (2013) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27377.jpg" />
 </div>
 
 
@@ -217,7 +191,7 @@ Skillfactory, Иван Кудрявин | Специалист по киберб
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27372.jpg" />
 </div>
 
 
@@ -243,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27359.jpg" />
 </div>
 
 
@@ -271,7 +245,7 @@ Udemy | Шахматы на JavaScript (2018) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27270.jpg" />
 </div>
 
 
@@ -297,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27264.jpg" />
 </div>
 
 
@@ -326,7 +300,7 @@ PurpleSchool, Антон Ларичев | Neovim - практика и наст�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27261.jpg" />
 </div>
 
 
@@ -354,7 +328,7 @@ JUG Ru Group | GoFunc 2024 Autumn. Конференция по разработ�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27224.jpg" />
 </div>
 
 
@@ -380,7 +354,7 @@ K-syndicate (Knowledge Syndicate), Анатолий Колесник | Advanced 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27209.jpg" />
 </div>
 
 
@@ -406,7 +380,7 @@ JUG Ru Group | Java-конференция для опытных разрабо�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27189.jpg" />
 </div>
 
 
@@ -432,7 +406,7 @@ GetAnalyst | Проектирование БД - подходы к решени�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27179.jpg" />
 </div>
 
 
@@ -461,7 +435,7 @@ Udemy, Михаил Непомнящий | Тестирование JavaScript �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27158.jpg" />
 </div>
 
 
@@ -489,7 +463,7 @@ GetAnalyst | Интеграции: подходы к решению практи
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27139.jpg" />
 </div>
 
 
@@ -518,7 +492,7 @@ PurpleSchool, Антон Ларичев | React state менеджер Zustand (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27137.jpg" />
 </div>
 
 
@@ -544,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27128.jpg" />
 </div>
 
 
@@ -570,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27126.jpg" />
 </div>
 
 
@@ -598,7 +572,7 @@ Systems.Education, Babok School, Анна Вичугова | Паттерны п
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27122.jpg" />
 </div>
 
 
@@ -624,7 +598,7 @@ JUG Ru Group | SmartData 2024. Конференция по инженерии д
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27117.jpg" />
 </div>
 
 
@@ -650,7 +624,7 @@ Deworker Pro, Дмитрий Елисеев | Идеи разделения на
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27103.jpg" />
 </div>
 
 
@@ -678,7 +652,7 @@ JUG Ru Group | Flow 2024 Autumn. Конференция по системном�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27077.jpg" />
 </div>
 
 
@@ -691,6 +665,34 @@ Flow - конференция по системному и бизнес-анал
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B90B6C28786331C5F71371F15444CC0D15088225
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780795   (27072) от 20.02.2025
+
+PurpleSchool, Антон Ларичев | Основы тестирования ПО (2024) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс предназначен для тех, кто стремится освоить основные знания в области тестирования и хочет углубиться в практическое использование разнообразных тестовых методов и артефактов.
+
+На курсе мы рассмотрим ключевые концепции тестирования, а также через практические примеры научим вас работать с различными инструментами тестирования и овладевать базовыми техниками (   Читать дальше...   )Производство: PurpleSchoolЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 06:32:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5013E3E3FE81CA10FBA1EDD1C78707CB25F71C12
 ```
 
 https://mybot314.ru/tekegram_catalog/

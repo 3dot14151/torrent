@@ -7,7 +7,7 @@ VA - Wake Up Music (2026) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059372.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ VA - Relaxing 2021 [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042242.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ VA - Metal Opera (1991) [FLAC|Lossless|image + .cue] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040609.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ VA - Pavarotti: Puccini, Verdi & Donizetti (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037504.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ VA - Winter Mood - Sweet Melancholic Piano Music for a Winter Snowy Day (2021) [
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032263.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ VA - Piano Classics - Relaxing Classical Music (2021) [FLAC|Lossless|WEB-DL|trac
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026707.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ VA - Piano Seasons: Spring (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022972.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ VA - Best Of Green Hill Music: The Celtic Collection (2021) [FLAC|Lossless|WEB-D
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021754.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Relaxing Classical Piano Music - The Unforgettable Piano Mix (2021) [FLAC|Lossle
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014805.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ VA - Classical Chillout: 14 Calm and Relaxing Modern Classical Pieces (2020) [FL
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000719.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ VA - Calm Classical Guitar (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986939.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ VA - Essential Organ (2011) [FLAC|Lossless]<Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986669.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ VA - Adagio - Serene Classical Music For A Peaceful Mind (2003) 2CD[FLAC|Lossles
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982446.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ VA - Лунный Свет (2002) [FLAC|Lossless]<Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981032.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ VA - 100 Best Piano Classics (6CD Box-set) (серия "Best 100") (2008) [FLAC|
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978576.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ VA - 100 Best Adagio Voices (6CD Box-set) (серия "Best 100") (2008) [FLAC|L
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972444.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ VA - Calm Modern Classical Music: 14 Relaxing and Chilled Classical Pieces (2020
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970553.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ VA - 101 Classics: The Best Loved Classical Melodies (1998) 8CD [APE|image + .cu
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961903.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ VA - 100 Best Baroque  (2006) 6CD Box-set,  серия "Best 100" [FLAC|Lossless
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960618.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Klassiska Favoriter Opera (1996) 3CD [FLAC|Lossless]<Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957505.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Daniil Trifonov - Transcendental - Daniil Trifonov Plays Franz Liszt (2016) [FLA
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941199.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Joe Hisaishi - Symphonic Best Selection (1992) [FLAC|Lossless|tracks] <Score, Cl
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927592.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Russian National Orchestra, Mikhail Pletnev - Russian Overtures (1994) [FLAC|Los
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924331.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ Montserrat Caballe - Caballe and Friends (1997) [FLAC|Lossless|image + .cue] <Cl
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902424.jpg" />
 </div>
 
 
@@ -719,7 +719,7 @@ VA - Classical 2008 (2007) compilation, CDx2 [FLAC|Lossless|image + .cue] <Class
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902418.jpg" />
 </div>
 
 
@@ -748,7 +748,7 @@ VA - Палитра Классики (2003) S&V #12/2003 [FLAC|Lossless|tracks +
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902391.jpg" />
 </div>
 
 

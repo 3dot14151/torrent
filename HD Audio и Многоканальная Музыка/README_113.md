@@ -1,32 +1,3 @@
-###  Публикация: 1711504   (112485) от 30.03.2024
-
-Frankie Goes To Hollywood - Liverpool (1986) 1989 [FLAC 24/192|Lossless|tracks] <Electronic, Rock, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112485.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Воины бесплодной земли
-Warriors Of The Wasteland
-2. Упорный гнев(   Читать дальше...   )Жанр: Electronic, Rock, Synth-popПродолжительность: 00:43:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3E2905F0472D5C36274771D489234F968772EF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1711415   (112467) от 30.03.2024
 
 Texas & Spooner Oldham - The Muscle Shoals Sessions (Parce que - La Collection) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop Rock, Alternative Rock, Indie Rock>
@@ -35,7 +6,7 @@ Texas & Spooner Oldham - The Muscle Shoals Sessions (Parce que - La Collection) 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112467.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112453.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112408.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Aaron Lehnen - Black Sabbath: A Tribute To Ozzy (2025) [FLAC 24/48|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112403.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Alex Kozub - Evenings & Weekends (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112401.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Silver Convention - Save Me (1975) Remaster, 2024, Omnivore Recordings [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112397.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Amerikan Bear - Seconds (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112394.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Cleopatrics - Love Revenge (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112392.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Esplanada - Closer to the Edge (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112388.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Eternal - Infernus (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112384.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Golden Ruffian - Never Again (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112382.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Rust n' Rage - Songs Of Yesterday (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112380.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Arch Enemy - Blood Dynasty (Expanded Deluxe Edition) (2025) [FLAC 24/48|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112350.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Anyma - Genesys II (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive-Hou
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112303.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Bob Sinclar - Paradise (Remixed) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112288.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Candi Carpenter - Demonology (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112278.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Stoned Turtle - Blackout (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternati
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112276.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Lockeheart - All Of Us Divine (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Goth
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112275.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Unleash The Tapir - Unleash The Tapir (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112273.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Emilie Simon - Polaris (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Trip-hop, E
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112271.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Shadow Limb - Reclaim (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive, S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112254.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ Adelitas Way - Studio Albums (9 releases) (2009-2023) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112223.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ Fort Romeau - Romantic Gestures Vol. 1 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112171.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ HJirok - HJirok (2024) [FLAC 24/44|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112166.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ The Disco Biscuits - Revolution in Motion (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112164.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ The Disco Biscuits - Revolution in Motion (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64D0889C65E4DEEA1FA6A46E2601DCD5D8DE5350
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1712213   (112151) от 02.04.2024
+
+Rapture - Silent Stage (2005) Limited Edition, Reissue, 2018, Alone Records [FLAC|24/192|tracks|Vinyl-Rip] <Melodic Doom, Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Misery 24/7
+02. The Past Nightmares
+03. I Am Complete
+04. For The Ghosts Of Our Time(   Читать дальше...   )Жанр: Melodic Doom, Death MetalПродолжительность: 00:41:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:477A03AB06B5008A1DD9F54608805A778F67D4C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

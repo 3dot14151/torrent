@@ -1,3 +1,29 @@
+###  Публикация: 989659   (913253) от 24.02.2016
+
+Индия приступила к сооружению собственного датчика гравитационных волн, который в 2025 году станет частью глобальной LIGO-сети
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Недавнее громкое открытие, связанное с обнаружением и регистрацией гравитационных волн, имеет гораздо большее значение, нежели очередное подтверждение достоверности Теории относительности Альберта Эйнштейна. Это открытие является первым прямым наблюдением, доказывающим существование черных дыр, кроме этого, гравитационные обсерватории наподобие LIGO становятся еще (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990017   (913247) от 24.02.2016
 
 Снимок телескопа Hubble - галактика NGC 4889, содержащая одну из самых больших черных дыр в известной нам части Вселенной
@@ -6,7 +32,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913247.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912811.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Homeworld: Deserts of Kharak (2016) [Ru/Multi] (1.0.3/dlc) SteamRip Let'sРlay
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912806.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912804.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ God of War III (2010) [PS3] [EUR] 3.41/3.55/4.21+ [Repack / 1.03 / ALL DLC] [Ru/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912803.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912799.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ A Better Camera v3.37 Unlocked [Ru/Multi] - Многофункциональна
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912790.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912204.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911740.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911661.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911505.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ Tuxera NTFS 2016.1 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911493.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911490.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ Bandicam 3.0.3.1025 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_910953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_910953.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_910952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_910952.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910941.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ Apple призналась, что сканировала почту польз�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910069.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ KRT CLUB ATB 3.1.0.29 v4 RePack [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909948.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909824.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ Microsoft Office 2016-2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909821.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909649.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ Fable: Anthology / Fable: Антология (2005-2014) [Ru/En] (1.0/1.1.3.0/1.
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909641.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909631.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909462.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909387.jpg" />
 </div>
 
 
@@ -649,32 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30CC1F5C59FD0B032ABA71673FF11E2E1B2FE1DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990670   (909350) от 26.02.2016
-
-Новый летающий автомобиль Terrafugia TF-X станет реальностью в 2018 году
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все люди, которые следят за новостями и событиями в области летающих автомобилей, задаются вопросом, когда же, наконец, все это перейдет из разряда научной фантастики в разряд реальных обыденных вещей? Одним из лидеров этого направления является известная компания Terrafugia, специалисты которой сейчас занимаются разработкой и изготовлением первого опытного образца (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

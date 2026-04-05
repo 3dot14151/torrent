@@ -6,7 +6,7 @@ Jeremy Monteiro - Organ Quartet Live Upon Nassim Hill (2024) [FLAC|Lossless|WEB-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113135.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Michael Friedinger - Between Chairs (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113129.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Charlie Watts - Anthology (2023) 2CD, BMG [FLAC|Lossless|tracks + .cue] <Bop, Bi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113127.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ The Art Farmer-Benny Golson Jazztet - At Newport (1960) 2012, Head on Fire [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113121.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Bar Lounge Costes 8: Chillout Uplifting Experience (2024) [FLAC|Lossless|WE
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113092.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Blueberry Cafe 2024 Soulful House Mood (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113090.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Travel & Living Lounge, Vol. 1: Traveling Chillout Moods (2024) [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113081.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Selmi - Last Dream (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113065.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Happy Easter Jazz (Spring Positive Music) (2024) [FLAC|Lossless|WEB-DL|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113062.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ The Art Farmer-Benny Golson Jazztet - Real Time (1988) Contemporary Records [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113051.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ The Art Farmer-Benny Golson Jazztet - Back To The City (1986) 1995, Original Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113050.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Art Farmer-Benny Golson Jazztet - Blues On Down (1960, 1961) 1994, Chess [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113048.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Benny Golson - California Message (1980) 1995, Timeless [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113009.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Benny Golson - Quartet "Live" (1989) 1991, Dreyfus Jazz [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113008.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Zoot Sims - In Copenhagen (1978) 2007, Storyville Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113007.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Jazz Music Lovers Club - Music for Sexy Striptease (2024) [FLAC|Lossless|WEB-DL|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112899.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Boris Tolstobokov - Quantum Satis (1988) 2023, Apollon & Evterpa [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112884.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Sidney Bechet - Hold Tight (1938 - 1946) 1989, Jazz & Jazz [FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112861.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ VA - Just Jazz! & The Complete Triple Play Stereo Sessions (1962) 2009, Jazz Bea
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112857.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Sonny Clark - The Complete Blue Note Sessions (1957 - 1962) 6СD, 2023, Mosaic R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112856.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Django Reinhardt - And His American Friends Complete Sessions (1934 - 1947) 4CD,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112809.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Syd Lawrence And His Orchestra - The Big Sound Of Syd Lawrence And His Orchestra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112808.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Buddy Rich - Giant Steps (1977) 2000, Point Entertainment [FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112807.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ VA - Supreme Pure Pleasure Relaxing Jazz Playlist (2024) [FLAC|Lossless|WEB-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112799.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ VA - Ultimate Chill Lounge Pleasure Relaxing Playlist (2024) [FLAC|Lossless|WEB-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112797.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Wynton Marsalis Septet - Citi Movement (1993) 2CD, Columbia [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112780.jpg" />
 </div>
 
 

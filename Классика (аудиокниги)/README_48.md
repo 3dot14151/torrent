@@ -1,3 +1,29 @@
+###  Публикация: 445452   (160732) от 06.11.2023
+
+Александр Дюма (отец) | Графиня де Монсоро (2011) [MP3, Михаил Поздняков]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160732.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Графиня де Монсоро» (1846) – одно из самых значительных произведений Александра Дюма. В этом увлекательном авантюрно-историческом романе писатель с замечательным мастерством воскрешает события второй половины XVI века – эпохи религиозных войн и правления Генриха III, последнего короля династии Валуа. История трагической любви благородного графа де Бюсси и прекрасной (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: МедиаКнигаПродолжительность: 41:34:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:214BC94F4DFFB47390E88549CEFA2C86305D28C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 422082   (160725) от 06.11.2023
 
 Александр Дюма (отец) | Три мушкетера (2009) [MP3, Сергей Кирсанов]
@@ -6,7 +32,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160725.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160649.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160525.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160459.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160362.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160361.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160359.jpg" />
 </div>
 
 
@@ -195,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160355.jpg" />
 </div>
 
 
@@ -223,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160354.jpg" />
 </div>
 
 
@@ -250,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160353.jpg" />
 </div>
 
 
@@ -277,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160352.jpg" />
 </div>
 
 
@@ -303,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160351.jpg" />
 </div>
 
 
@@ -329,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160340.jpg" />
 </div>
 
 
@@ -356,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160337.jpg" />
 </div>
 
 
@@ -382,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160332.jpg" />
 </div>
 
 
@@ -408,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160256.jpg" />
 </div>
 
 
@@ -434,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160247.jpg" />
 </div>
 
 
@@ -461,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160174.jpg" />
 </div>
 
 
@@ -487,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160080.jpg" />
 </div>
 
 
@@ -514,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159937.jpg" />
 </div>
 
 
@@ -542,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159934.jpg" />
 </div>
 
 
@@ -570,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159916.jpg" />
 </div>
 
 
@@ -598,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159649.jpg" />
 </div>
 
 
@@ -624,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159579.jpg" />
 </div>
 
 
@@ -650,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159489.jpg" />
 </div>
 
 
@@ -661,33 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7755063EF776B5C4C0B6FF44DE88276AAA24731A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 380314   (159424) от 10.11.2023
-
-Александр Пушкин | Руслан и Людмила (Радиоспектакль) (2009) [MP3, Михаил Козаков]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Театр у микрофона.
-Свою первую поэму «Руслан и Людмила» А.С. Пушкин начал писать, еще учась в Лицее. Трудно отнести это произведение к какому-то определенному жанру. Это и волшебная сказка, и историческое повествование, и романтическая поэма, и героический былинный эпос, и гротескная фантастика, поэма о самоотверженной любви, о торжестве добра над силами зла, (   Читать дальше...   )Жанр: Русская литература, классика, поэмаИздательство: Студия «АРДИС»Продолжительность: 03:20:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4CF1C01CE7E616BFBFB05BFD613BC377B85ED0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

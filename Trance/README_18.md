@@ -1,3 +1,61 @@
+###  Публикация: 1289750   (684231) от 17.03.2019
+
+VA - I Love Hard Trance (2019) [MP3|320 Kbps] <Trance, PSY-Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Microbots — Cosmic Evolution (Scot Project Remix) 08:33
+02. Hanney Mackoll — Sexy Dance 05:17
+03. Heartworx — Circle of 5th 04:36
+04. Killer Emo — Dream About You 09:00(   Читать дальше...   )Жанр: Trance, PSY-TranceПродолжительность: 02:01:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2DF1D3F44B5E803A6E68C8EA5D54E8A869AF321
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135461   (681305) от 19.05.2017
+
+VA - Redux Presents The Uplifting Selection Vol.2 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Riialto & F.G. Noise - Zika (original mix) (07:39)
+02. Six Senses - Return (original mix) (07:08)
+03. Eddie Lung - Sirius (The Enlightment remix) (07:25)
+04. Frank Dueffel - Entropy (original mix) (07:49)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:12:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D68E2FA44ADD1170CF3E59E715747DBCD41D9F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290367   (680318) от 19.03.2019
 
 VA - Black Hole Trance Music 03-19 (2019) [MP3|320 Kbps] <Trance>
@@ -6,7 +64,7 @@ VA - Black Hole Trance Music 03-19 (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680318.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Suanda Summer Vol.3 (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal 
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678606.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Outburst presents Prism Volume 1 (Mixed by Mark Sherry & Alex Di Stefano) (
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678469.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Anjunabeats In Miami (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678368.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Vocal Anthems Miami (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678351.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - A State Of Trance Top: 20 March 2019 (Selected By Armin Van Buuren) - (Miam
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678196.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Ultra Undeground Festival (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677415.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Techno Club Vol. 52 (Mixed by Talla 2XLC & ReOrder)(2017) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677157.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Female Vocal Trance (2022) [MP3|320 Kbps] <Trance, VocalTrance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675006.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Markus Schulz - Global DJ Broadcast Top 20 March (2019) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674344.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Trance Nation (2019) [MP3|320 Kbps] <Trance, Electronic, Progressive>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674335.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Miami Dance & Trance: WMC (2019) [MP3|320 Kbps] <Trance, Uplifting Trance, 
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670702.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Ben Gold & Sivan - Stay (Sneijder Remix) (2019) [MP3|320 Kbps] <Trance, Upliftin
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670569.jpg" />
 </div>
 
 
@@ -381,7 +439,7 @@ VA - Summer Emotions (Mixed By Aurosonic) (2016) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670335.jpg" />
 </div>
 
 
@@ -410,7 +468,7 @@ VA - True Uplifting Vol. 3 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669899.jpg" />
 </div>
 
 
@@ -439,7 +497,7 @@ VA - Recoverworld Radio 020 (Mixed By Para X) (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669896.jpg" />
 </div>
 
 
@@ -468,7 +526,7 @@ VA - Manuel Le Saux Pres.Extrema Maxima (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669893.jpg" />
 </div>
 
 
@@ -497,7 +555,7 @@ VA - Suanda Music Radio Top 15 (May) (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669890.jpg" />
 </div>
 
 
@@ -526,7 +584,7 @@ VA - Dark Trance Vol. 4 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669879.jpg" />
 </div>
 
 
@@ -555,7 +613,7 @@ VA - EDM Flash Trance Vol.1 (2016) [MP3|320 Kbps] <Trance, Progressive Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668895.jpg" />
 </div>
 
 
@@ -584,7 +642,7 @@ VA - Summer Hits (2017) [MP3|320 Kbps] <Trance, Progressive Trance, Vocal Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665564.jpg" />
 </div>
 
 
@@ -613,7 +671,7 @@ VA - Black Hole Trance Music 03-22 (2022) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665442.jpg" />
 </div>
 
 
@@ -642,7 +700,7 @@ Robert Miles - Remember Robert Miles (2017) [MP3|320 Kbps] <Trance, Dream House>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665314.jpg" />
 </div>
 
 
@@ -671,7 +729,7 @@ VA - Total Trance Selections Vol. 11 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662921.jpg" />
 </div>
 
 
@@ -685,64 +743,6 @@ VA - Total Trance Selections Vol. 11 (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5990E302E12BA5D01EE6137CBCAD5474A611FFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225301   (661891) от 14.05.2018
-
-VA - Dark Uplifting Vol.4 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cyril Ryaz - Dark Side (Sunset and Steve Dekay Extended Remix)
-02. Make One - Lost Kingdom (Extended Mix)
-03. Mike Sanders - Kajo (Extended Mix)
-04. Tycoos - 717 (Extended Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFE2B54A64AA09329CEAC019A6F9BA2F7F1FEE81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225303   (661887) от 14.05.2018
-
-VA - Vocal Trance: London (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661887.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Timmy D & DJ Bullskull - Digital Presence (Original Mix)
-02. DJ Schillings - I Remember the 90s (Original Mix)
-03. Karl Schaap feat. Veela - Perfect (2017 Remix)
-04. Rheligie feat. Spectre Cross - Ardent Fever (Adip Kiyoi Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:29:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1B5A62210C4274A574AB25F09D0EA0CCFF3E251
 ```
 
 https://mybot314.ru/tekegram_catalog/

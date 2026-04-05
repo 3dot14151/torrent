@@ -1,3 +1,29 @@
+###  Публикация: 1062966   (1026280) от 14.03.2021
+
+MDK (1997) [En] (1.0) License GOG
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026280.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очень необычный экшн от третьего лица, в котором вам в роли Курта предстоит спасти Галактику от злобных пришельцев. Курт (Kurt) был первым, кто попался под руку доктору Флюку Хокинсу (Dr. Fluke Hawkins), мечтавшему испытать свой ультрасовременный костюм для борьбы с инопланетным вторжением. В таком костюме даже заурядный уборщик космической станции вроде Курта становится (   Читать дальше...   )Тип издания: LicenseРазработчик: Shiny EntertainmentЖанр: Action (Shooter), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFDB265810F366A59274F8FF5284EEA220F5BAB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1453713   (1026279) от 14.03.2021
 
 По наклонной / Cherry (2021) WEB-DL [H.264/1080p]
@@ -6,7 +32,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026279.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Movavi Video Suite 21.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026273.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026213.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Universal TV Remote Pro v1.0.23 [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026167.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026030.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ The Outer Worlds (2019) [Ru/Multi] (1.5.1.712/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025683.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ The KMPlayer 4.2.2.50 repack by cuta (build 1) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025516.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ Kaspersky Total Security 2021 21.3.10.391 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025503.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Adobe Photoshop 2021 v22.3+ Neural Filters [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025329.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ Adobe Lightroom Classic v10.2 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025325.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025324.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025170.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025149.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ Surviving Mars (2018) [Ru/Multi] (1001551/dlc) Repack Other s [Digital Deluxe Ed
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025146.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ Apple оштрафована в Бразилии на 2 млн долларов 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025016.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ Windows 10 20H2 (19042.870) x64 Home + Pro + Enterprise (3in1) by Brux v.03.2021
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024973.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024966.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ BELOFF 2021.03 (Авторская раздача)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024965.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ Higurashi no Naku Koro ni: Gou | Higurashi: When They Cry - Gou | Когда п�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024800.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ Mushoku Tensei: Перерождение безработного | Реинка
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024789.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ Little Nightmares II (2021) [Ru/Multi] (5.68/dlc) License GOG [Deluxe Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024654.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024653.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024650.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ Microsoft готова купить геймерский чат за 10 млрд
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024501.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ Re:Zero kara Hajimeru Isekai Seikatsu 2nd Season | Re: Жизнь в альте�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024465.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ Re:Zero kara Hajimeru Isekai Seikatsu 2nd Season | Re: Жизнь в альте�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54B0DC47E8469DCBAEE662389170F129BAD00BBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457149   (1024276) от 26.03.2021
-
-Windows 7/10 Pro х86-x64 by g0dl1ke 21.03.20 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стабильная сборка на базе оригинальных русских Windows 7/10 Pro x86-x64 с обновлениями и отключением телеметрии по рекомендациям simplix, в соавторстве с systempЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07D8B9ABD16EC455CD1F4CA9FCA339A199C4CD88
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 536061   (513360) от 19.08.2012
-
-Курск / Kursk (2000) TVRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513360.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 августа 2000 года мир, затаив дыхание, наблюдал за судьбой российской атомной подводной лодки "Курск", затонувшей около Мурманска в результате мощного взрыва на борту. После погружения на дно некоторым членам команды удалось выжить. Оставалась надежда, что людей можно было спасти, так как лодка находилась всего в 108-ми метрах под поверхностью воды. Но все попытки спасти их не увенчались успехом. Тела моряков удалось достать только после поднятия «Курска» в 2001 году.Жанр: ДокументальныйПродолжительность: 00:52:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8857DF98B818A6C1DCB86C12223797DB2E58AD9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 931166   (512861) от 25.08.2015
 
 В теме. Нефть: Новый антирекорд (2015) SATRip
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512861.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511945.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511935.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511030.jpg" />
 </div>
 
 
@@ -138,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511014.jpg" />
 </div>
 
 
@@ -165,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510340.jpg" />
 </div>
 
 
@@ -191,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510042.jpg" />
 </div>
 
 
@@ -217,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509541.jpg" />
 </div>
 
 
@@ -243,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509539.jpg" />
 </div>
 
 
@@ -269,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509474.jpg" />
 </div>
 
 
@@ -296,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509473.jpg" />
 </div>
 
 
@@ -322,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508598.jpg" />
 </div>
 
 
@@ -348,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508400.jpg" />
 </div>
 
 
@@ -375,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508323.jpg" />
 </div>
 
 
@@ -401,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508314.jpg" />
 </div>
 
 
@@ -427,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508247.jpg" />
 </div>
 
 
@@ -453,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508246.jpg" />
 </div>
 
 
@@ -479,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508238.jpg" />
 </div>
 
 
@@ -505,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508149.jpg" />
 </div>
 
 
@@ -531,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507366.jpg" />
 </div>
 
 
@@ -560,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507243.jpg" />
 </div>
 
 
@@ -586,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507168.jpg" />
 </div>
 
 
@@ -612,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506804.jpg" />
 </div>
 
 
@@ -640,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506344.jpg" />
 </div>
 
 
@@ -668,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506263.jpg" />
 </div>
 
 
@@ -679,6 +653,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CA53FE9C0BBD7FF12823584E4E8B0751629AF4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933275   (506258) от 01.09.2015
+
+Вести в 20-00. Большие Вести. Россия HD (31.08.2015) HDTVRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506258.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Вести» — информационная телевизионная программа Всероссийской государственной телерадиокомпании. Выходит в эфир на каналах «Россия-24», «Россия-1», «РТР-Планета» и «РТР-Беларусь». Производятся Дирекцией информационных программ Государственной телекомпании «Россия». Самые последние новости в России и в мире - смотрите в последних выпусках новостей телеканала «Россия».В этом выпуске: Конституционная реформа по-украински: 120 раненых, есть убитые. Тяжелейшее наводнение в Уссурийске: более 20 обитателей зоопарка утонули в запертых клетках. Боевики исламского государства уничтожили древнейший храм Пальмиры. Первую часть временного моста до Крыма откроют уже этой осенью. Полиция Подмосковья ищет внука главы Дмитровского района.Телекомпания: Россия HDЖанр: ТелепередачаПродолжительность: 00:54:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0B63E2156314E8905AE30AD51F3ACAAAF7B46C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

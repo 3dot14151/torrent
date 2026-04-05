@@ -1,3 +1,67 @@
+###  Публикация: 934369   (501160) от 06.09.2015
+
+Бранимир - Семь чудес (2015) [MP3|320 кб/с]<Acoustic Rock, Chanson>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Довольно жёсткая энергичная работа, знакомящая слушателя с жизнью российской глубинки. Или, если точнее – с жизнью людей, живущих вдали от столиц, на периферии. Тексты многих вошедших в «Семь Чудес» песен построены на противопоставлении чёрного и белого. Простой человек со своими проблемами, со своими положительными и отрицательными чертами – вот главный герой «Семи (   Читать дальше...   )01. Intro
+02. Мрачные посёлки средней полосы
+03. Леший
+04. Пацан (Гришка Тишин - 2)(   Читать дальше...   )Жанр: Acoustic Rock, ChansonПродолжительность: 00:41:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E5E09F61506DDA269DFF696C2ADE4424F4A481D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540723   (501141) от 31.08.2012
+
+Ensiferum - Unsung Heroes (2012) [FLAC|Lossless]<Viking Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Symbols (1:51)
+02. In My Sword I Trust (5:20)
+03. Unsung Heroes (5:55)
+04. Burning Leaves (6:04)
+05. Celestial Bond (4:15)
+06. Retribution Shall Be Mine (4:27)
+07. Star Queen (Celestial Bond Part II) (5:55)
+08. Pohjola (6:05)
+09. Last Breath (4:30)
+10. Passion Proof Power (17:01)(   Читать дальше...   )Жанр: Viking Folk MetalПродолжительность: 01:05:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 541584   (501139) от 31.08.2012
 
 Gentle Giant - I Lost My Head: The Chrysalis Years 1975-1980 (4CD Box Set) (2012) [FLAC|Lossless]<Rock, Progressive Rock>
@@ -6,7 +70,7 @@ Gentle Giant - I Lost My Head: The Chrysalis Years 1975-1980 (4CD Box Set) (2012
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501139.jpg" />
 </div>
 
 
@@ -32,7 +96,7 @@ King Crimson - 7 Albums (1969-1974) Remastering 40th Anniversary Series /2009-20
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501065.jpg" />
 </div>
 
 
@@ -63,7 +127,7 @@ Two Door Cinema Club - Beacon (2012) [FLAC|Lossless]<Indie Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501045.jpg" />
 </div>
 
 
@@ -98,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500920.jpg" />
 </div>
 
 
@@ -127,7 +191,7 @@ VA - The Many Faces Of AC/DC (The Ultimate Tribute to AC/DC) (2012) [WavPack|Los
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500902.jpg" />
 </div>
 
 
@@ -155,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500876.jpg" />
 </div>
 
 
@@ -190,7 +254,7 @@ Besatt - Demonicon (2010) [APE|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500676.jpg" />
 </div>
 
 
@@ -219,7 +283,7 @@ Khariot - Esoteric (2015) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500674.jpg" />
 </div>
 
 
@@ -248,7 +312,7 @@ Ablaze in Hatred - 2 albums (2006-2009) [FLAC|Lossless|image + .cue] <Melodic De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500672.jpg" />
 </div>
 
 
@@ -277,7 +341,7 @@ Eternal Sun Temple - Vol I. (2022) [MP3|320 Kbps] <Doom, Stoner Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500671.jpg" />
 </div>
 
 
@@ -306,7 +370,7 @@ Khariot - Disymposium (2011) [FLAC|Lossless|image + .cue] <Progressive Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500670.jpg" />
 </div>
 
 
@@ -335,7 +399,7 @@ Ian Neal - Barkston Ash (2022) [MP3|320 Kbps] <Progressive Symphonic Prog>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500663.jpg" />
 </div>
 
 
@@ -364,7 +428,7 @@ Infernal Legion - Sculptured Humans (2001) [FLAC|Lossless|image + .cue] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500659.jpg" />
 </div>
 
 
@@ -393,7 +457,7 @@ The Black Noodle Project - When The Stars Align, It Will Be Time (2022) [MP3|320
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500655.jpg" />
 </div>
 
 
@@ -422,7 +486,7 @@ black midi - Hellfire (2022) [FLAC|Lossless|tracks + .cue] <Avant-Garde, Progres
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500653.jpg" />
 </div>
 
 
@@ -451,7 +515,7 @@ Nalien - Моя маленькая вселенная (2022) [MP3|320 Kbps] <Pun
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500651.jpg" />
 </div>
 
 
@@ -480,7 +544,7 @@ Chris Antblad - Sweet Surrender (2022) [MP3|320 Kbps] <Melodic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500649.jpg" />
 </div>
 
 
@@ -509,7 +573,7 @@ God Is an Astronaut - The Beginning of the End (2022) Live 20 Year Anniversary R
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500647.jpg" />
 </div>
 
 
@@ -538,7 +602,7 @@ Bloodstained Ground - Horrors of a Withered Dimension (2022) [MP3|320 Kbps] <MDM
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500597.jpg" />
 </div>
 
 
@@ -567,7 +631,7 @@ VA - Napalm Records Prog Sampler 2022 (2022) [MP3|320 Kbps] <Prog-Rock, Prog-Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500596.jpg" />
 </div>
 
 
@@ -596,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500586.jpg" />
 </div>
 
 
@@ -625,7 +689,7 @@ Try-X - Rivers Turned Red (2022) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500585.jpg" />
 </div>
 
 
@@ -654,7 +718,7 @@ Jeff Beck & Johnny Depp - 18 (2022) [FLAC|Lossless|image + .cue] <	Rock, Folk, C
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500580.jpg" />
 </div>
 
 
@@ -683,7 +747,7 @@ Dalriada - Aldas (2015) [MP3|320 кб/с]<Folk Metal, Epic Folk Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500556.jpg" />
 </div>
 
 
@@ -697,63 +761,6 @@ Dalriada - Aldas (2015) [MP3|320 кб/с]<Folk Metal, Epic Folk Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC48996E074B0A7EA048B22E1BC16F9ACCD5C783
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435338   (500513) от 18.07.2022
-
-Seraphim Project - 2 Albums (2020-2021) [MP3|320 Kbps] <Heavy Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Эйзенхорн(Eisenhorn) [00:05:14]
-02. Легион проклятых(Legion of the damned) [00:05:32]
-03. Кадия стоит!(Cadia stands!) [00:06:45]Жанр: Heavy Power MetalПродолжительность: 2 CD, 01:11:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BD2A6FA32AA3468E92EC94FF87E0D4F4AD6FD68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317586   (500417) от 01.08.2019
-
-Crystal Ball - 2020 (2019) 2CD [MP3|320 Kbps] <Melodic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500417.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-1. HELLvetia
-2. Moondance
-3. Soul Mate(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 01:21:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05A684A3E692BB627557754A925A1BFC6A223C5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

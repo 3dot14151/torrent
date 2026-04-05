@@ -6,7 +6,7 @@ VA - Another Side Of Fancy Part Three (2020) 2CD, Compilation, Remastered [MP3|3
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_781025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_781025.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Nu Disco Love (2018) [MP3|320 Kbps] <Disco, Nu-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780273.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - ZYX Italo Disco New Generation Vol. 11 (2017) 2CD [MP3|320 Kbps] <Italo-Dis
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779123.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - New Italo Disco Top 25 Compilation Vol. 8 (2018) [MP3|320 Kbps] <Italo Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778848.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - ZYX Italo Disco New Generation Vol.12 (2018) [MP3|320 Kbps] <Italo-Disco, E
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778111.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Disco 80's: Special Edition (2018) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777785.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Donna McGhee - Make It Last Forever (1978) Reissue CD, Big Break Records, 2012 [
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777242.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Venus Rising - Live On Venus (1977) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Di
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777235.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Disco: Classic Singles (2018) [MP3|320 Kbps] <Disco, RnB, Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777207.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Steve Bender - We've Gotta Get Out Of This Place (1978) [MP3|320 кб/с] <Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776490.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Nadia Cassini - 3 Studio Albums (1978-1985) LP Discography [MP3|320 Kbps] <Elect
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776472.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Trax - 2 Albums (1977, 1978) [MP3|320 кб/с] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_776439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_776439.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ New Paradise - 6 Albums (1977-1983) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Di
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775747.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Montana Orchestra - Heavy Vibes (1983) [MP3|320 кб/с] <Disco, Funk, Instrumen
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775729.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Roni Griffith - Roni Griffith (1982) [MP3|320 кб/с] <Electronic, Hi NRG, Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775723.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Boris Zhivago - Collection (2013, 2014, 2018) [MP3|320 Kbps] <Italo-Disco, Synth
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775187.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Space Oddities (2016) Studio Ganaro (1972-1982) [MP3|320 Kbps] <Electronic,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774310.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ AKB - Rhythmic Feet (1979) LP [MP3|320 Kbps] <Electronic, Funk, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774308.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Gürcan Erdem - Discography (2006-2008) [MP3|256-320 кб/с]<Disco, EuroDisco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773195.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Jumbo - 3 Albums (1976-1980) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773179.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Flyers - You're My Lady (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771938.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Linda Jo Rizzo - Magic Moments-My 35th Anniversary (2020) Singles Collection [MP
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769847.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Dance People - Fly Away (1979) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769097.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Venise - The Best Disco In The City (1978) LP [MP3|320 Kbps] <Electronic, Funk S
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767781.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Crypton - 3 Singles (1981-1984) 7" [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767742.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ A La Carte - Sun Sun Summertime (1989) Vinil-Rip [MP3|320 Kbps] <Synth-pop, Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767090.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ MX-23.4 (MX Linux 23.4) [x86_64, i686] 6xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42363.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Devuan 5 (Daedalus) [x86_64, i586] 4DVD+14xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42264.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Zorin OS 17.2 Pro / Pro Lite / Core / Lite / Edu [x86_64] 5xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40838.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Ubuntu 24.10 Oracular Oriole [x86_64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38250.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Deepin 23 [x86_64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38226.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Elementary OS 8 Circe [x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35676.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Red Hat Enterprise Linux 9.5 [x86_64, aarch64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34756.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ AlmaLinux 9.5 (Gnome, Xfce, KDE, Mate) [x86_64] 8xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34457.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Linux Mint Debian Edition 6 Faye (LMDE 6) [32-bit, 64-bit] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34050.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Linux Mint 22.1 Xia (Cinnamon Edition, MATE Edition, Xfce Edition) [64-bit] 3xDV
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30712.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Wubuntu 11.24.04.2 LTS 24.10 [amd64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28955.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ GreenLinux 22.1.0 Novosibirsk [x86_64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27809.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ ALT Linux 8 СП C10F2 [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24634.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Astra Linux Special Edition 1.6.15 [amd64] 5xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24602.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Astra Linux Special Edition 1.8.1.UU2 [amd64] 5xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24100.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ CentOS 10 Stream [x86_64 / aarch64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21803.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Astra Linux Special Edition 1.7.7 UU1 [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20312.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Astra Linux Special Edition 1.7.7 [amd64] 5xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20311.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Astra Linux Special Edition 1.8.2 [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20120.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Astra Linux Special Edition 1.7.7 UU2 [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18248.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Red Hat Enterprise Linux 10.0 [x86_64, aarch64] 4xDVD 1xZIP
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17722.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Astra Linux Special Edition 1.8.2.UU1 [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16901.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15527.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ MeeGo OS 1.2 cedartrail  [i386] 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12569.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ MeeGo OS 1.2 [i386] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12284.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Zorin OS 17.3 R3 Pro & Pro Lite [X86_64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11364.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411456.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400364.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396699.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ DVD приложение к журналу "Хакер" №11 (166), 2012 [unpac
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395721.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ CHIP | CHIP - DVD приложение к журналу CHIP №11 (ноябр�
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394535.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391672.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376828.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369688.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ CHIP | CHIP - DVD приложение к журналу CHIP №11 (ноябр�
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360018.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ CHIP | DVD приложение к журналу CHIP №12 (Ноябрь 2017)
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360006.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347387.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ DVD-приложение к журналу CHIP декабрь 2012 года [un
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347376.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322133.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ CHIP | CHIP - DVD приложение к журналу CHIP №12 (декаб�
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308756.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ CHIP | CHIP - DVD приложение к журналу CHIP №12 (декаб�
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304609.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ CHIP | CHIP -  DVD приложение к журналу CHIP №11 (ноябр
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295464.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ CHIP | DVD приложение к журналу CHIP №13 (Декабрь 201
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285346.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283233.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ DVD приложение к журналу Хакер №01 (156) [2012][unpacke
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271389.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ DVD приложение к журналу "Хакер" №06 (161), 2012 [unpac
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258393.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ DVD приложение к журналу "Хакер" №12 (167), 2012 [unpac
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222861.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ CHIP | DVD приложение к журналу CHIP №1 (Январь 2018) 
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154788.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ CHIP - DVD приложение к журналу CHIP №1 (Январь 2016) 
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152189.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ CHIP | CHIP - DVD приложение к журналу CHIP №1 (январь
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145670.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135176.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ DVD приложение к журналу "Хакер" №01 (168), 2013 [unpac
 >>Приложения к журналам
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132476.jpg" />
 </div>
 
 

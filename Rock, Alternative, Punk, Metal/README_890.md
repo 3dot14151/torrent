@@ -1,3 +1,32 @@
+###  Публикация: 1626740   (233572) от 15.04.2023
+
+Ricochet - Kazakhstan (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Custodians 06:42
+02. King of Tales 04:38
+03. Farewell 09:38
+04. Interception 06:05(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:58:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CA5838EF922F5307898CDABFD80BDB640A666E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1643764   (233567) от 03.07.2023
 
 VA - 90s Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -6,7 +35,7 @@ VA - 90s Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233567.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Rage And Fire - The Last Wolf (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233563.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Seasons of Insanity - UNSUNG (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233562.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Within Temptation - Wireless (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Got
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233559.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Marco Bartoccioni - Play the Joker (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233558.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Outlanders (Tarja Turunen feat. Torsten Stenzel) - Outlanders (2023) [MP3|320 Kb
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233539.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Hatesphere - Reduced to Flesh (2018) [FLAC|Lossless|WEB-DL|tracks] <Death Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233525.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ The Arcane Order - Distortions from Cosmogony (2023) [MP3|320 Kbps] <Melodic Dea
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233521.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Denial - No Comment (2016) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233518.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Blackbeard Wizard - Blackbeard Wizard (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233514.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Abscession - Rot Of Ages (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233508.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Despite The Reverence - Stress Of Evolution (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233505.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Cinderella - Cinderella's Rocked, Wired & Bluesed: The Greatest Hits (2005) [FLA
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233504.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ ScreaMachine - Borderline (2022) EP [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233501.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Nerve End - The Cycle (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233499.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Stray Gods - Olympus (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233497.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Death & Legacy - D4rk Prophecies (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233494.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ ScreaMachine - ScreaMachine (2021) Japanese Edition [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233493.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Engine of Chaos - Bleed Black (2023) [FLAC|Lossless|WEB-DL|tracks] <Engine of Ch
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233488.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Okwaho - The Usurper Regime (2023) [MP3|320 Kbps] <Doom, Sludge Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233485.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Revolution Saints - Eagle Flight (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233484.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Screamer - Phoenix (2013) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233478.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Blazing Eternity - 2 Albums (2000-2003) [FLAC|Lossless|WEB-DL|tracks] <Gothic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233477.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Fear Button Band - Immigrant (2023) [FLAC|Lossless|WEB-DL|tracks] <Reggae Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233473.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233468.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09AF9C47AA9BAA8C29DC12065EDE51CB9E94379C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644071   (233463) от 05.07.2023
-
-Sakrum - Escombros de Muerte (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Sakrum (Mov I- Sangre de Heroes) (01:07)
-02 - Sakrum (Mov II- Escombros de Muerte) (01:50)
-03 - Dos Siglos (04:35)
-04 - Mas Alla del Tiempo (04:06)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:35:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE01391E7A2CE02E72C262AB11A098F1300BDC07
 ```
 
 https://mybot314.ru/tekegram_catalog/

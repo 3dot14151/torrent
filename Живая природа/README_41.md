@@ -1,3 +1,29 @@
+###  Публикация: 1518358   (155755) от 19.12.2021
+
+Пластиковый океан / A Plastic Ocean (2016) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155755.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм «Пластиковый океан» режиссёра Крейга Лиссона расскажет шокирующую правду о пластике. На первый взгляд, безобидная упаковка продуктов питания и других покупок становится мусором, который постепенно поглощает планету. Сегодня пластик, а точнее его микрочастицы, обнаружены практически везде, даже в арктических морских льдах. Пластик обнаруживают (   Читать дальше...   )Производство: Великобритания, ГонконгЖанр: Документальный, Природа, Фауна, ФлораРежиссер: Крэйг ЛисонПеревод: Двуголосый любительскийСубтитры: ОтсутствуютПродолжительность: 01:40:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:978CCE7F30908B131E4412D544AF0E8D3EF7E152
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1607736   (153622) от 15.11.2023
 
 Паразиты (2019-2020) WEB-DLRip (серии 1-15)
@@ -6,7 +32,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153622.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152228.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150644.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150521.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149038.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148722.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148529.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147284.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146162.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146075.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145456.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145367.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144364.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144187.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143651.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143368.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143303.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142695.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141695.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140016.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140009.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139125.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138667.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137838.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137716.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61359EA004E439AB475026DFDBDBBF414E432C7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679649   (135198) от 26.11.2023
-
-Слоны: большие перемены / Elephants. Changing Lives (2021) WEB-DL [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слоны относятся к животным с наиболее сложным "общественным устройством" и активно взаимодействуют с другими особями своего вида. Слоны растут и взрослеют медленно, их выживание во многом зависит от поддержки, которую они получают от старших, более опытных членов сообщества.Производство: Германия, NDR Naturfilm, DoclightsЖанр: документальный, природа, флора, фаунаПеревод: дублированныйЯзык озвучки: русскийСубтитры: английскиеПродолжительность: 00:50:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DED85D0C096F510DFDA516CB7373042D75AC9E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

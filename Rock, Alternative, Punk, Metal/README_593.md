@@ -1,3 +1,32 @@
+###  Публикация: 938412   (481825) от 18.09.2015
+
+Crossfaith – XENO (2015) Deluxe Edition [FLAC|Lossless]<Alt. Metal | Metalcore | Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Xeno
+03. Raise Your Voice
+04. Devil's Party(   Читать дальше...   )Тип издания: АльбомЖанр: Alt. Metal | Metalcore | ElectronicПродолжительность: 00:54:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C2EC4EE4230F1A32D66B328392299388996B42E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1405771   (481631) от 31.08.2020
 
 Three Colours Dark - The Science Of Goodbye (2020) [MP3|320 Kbps] <Progressive Rock>
@@ -6,7 +35,7 @@ Three Colours Dark - The Science Of Goodbye (2020) [MP3|320 Kbps] <Progressive R
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481631.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Annihilator - Suicide Society (2015) Deluxe Edition [MP3|320 кб/с]<Thrash Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481603.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Triumvir - Triumvir (2020) [MP3|320 Kbps] <Heavy Metal,  Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481497.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Stranded by Choice - Lost by Design (2020) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481483.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ David Gilmour - Rattle That Lock (2015) Deluxe Edition [MP3|320 кб/с]<Progres
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481415.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ David Gilmour - Rattle That Lock (Deluxe Edition) (2015) [FLAC|Lossless|WEB-DL]<
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481411.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Grumpynators - Still Alive (2020) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481351.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Louise Connell - Squall Echo Rale (2019) [FLAC|Lossless|tracks + .cue] <Indie Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481225.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Mermaidens - Look Me In The Eye (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481223.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Ihlo - Union (2019) [FLAC|Lossless|tracks + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481221.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Chumbawamba - Tubthumper (1997) [FLAC|Lossless|tracks + .cue] <Folk Rock, Pop Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481215.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Legend - From the Fjords (1979) 40th Anniversary Edition (2019) Reissue, Remaste
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481211.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Deep Purple - Live In Copenhagen (1972) Reissue, Remastered, 2013, 2xCD [MP3|320
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481097.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Steve Thorne - Crimes and Reasons (2012) [APE|Lossless]<Progressive Rock/Crossov
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480755.jpg" />
 </div>
 
 
@@ -418,7 +447,7 @@ Dave Matthews Band - Away from the World (2012) Deluxe Edition [MP3|~245 кб/с
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480743.jpg" />
 </div>
 
 
@@ -453,7 +482,7 @@ David Byrne & St. Vincent - Love This Giant (2012) [MP3|320 кб/с]<Alternative
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480620.jpg" />
 </div>
 
 
@@ -488,7 +517,7 @@ Adversor - Rise to Survive (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480567.jpg" />
 </div>
 
 
@@ -514,7 +543,7 @@ Whipstriker - Troopers of Mayhem (2013) Reissue, 2015, PRC Music [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480566.jpg" />
 </div>
 
 
@@ -543,7 +572,7 @@ Acid Age - Drone Shark Ethics (2014) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480565.jpg" />
 </div>
 
 
@@ -569,7 +598,7 @@ Warlord U.K - We Die As One (2013) [FLAC|Lossless|image + .cue] <Thrash, Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480564.jpg" />
 </div>
 
 
@@ -598,7 +627,7 @@ Warlord U.K - Maximum Carnage (1996) Reissue, 2016,Transcending Obscurity Record
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480563.jpg" />
 </div>
 
 
@@ -627,7 +656,7 @@ Voz de Estruendo - Muros del Silencio (2022) [FLAC|Lossless|WEB-DL|tracks] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480562.jpg" />
 </div>
 
 
@@ -656,7 +685,7 @@ Trooper - Electric (2006) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480561.jpg" />
 </div>
 
 
@@ -685,7 +714,7 @@ Dimmu Borgir - Death Cult Armageddon (2003) [WavPack|Lossless|image + .cue] <Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480560.jpg" />
 </div>
 
 
@@ -714,7 +743,7 @@ Dimmu Borgir - In Sorte Diaboli (2007) Japan [FLAC|Lossless|image + .cue] <Symph
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480554.jpg" />
 </div>
 
 
@@ -728,35 +757,6 @@ Dimmu Borgir - In Sorte Diaboli (2007) Japan [FLAC|Lossless|image + .cue] <Symph
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD67AFF4CC76E3853D06006C15071E5E801EB52A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566722   (480548) от 30.07.2022
-
-Whipstriker - Merciless Artillery (2018) [FLAC|Lossless|image + .cue] <Heavy, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Merciless Artillery (04:19)
-02. Rape of Freedom (03:17)
-03. Calm After Destruction (03:34)
-04. Mantas' Black Mass (04:06)(   Читать дальше...   )Жанр: Heavy, Speed MetalПродолжительность: 00:30:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2590E5EBF6001134F7F1443CE3B850A6E7CC0A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

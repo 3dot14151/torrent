@@ -6,7 +6,7 @@ Desolator - Spirit of Speed (2025) [MP3|320 Kbps] <Speed, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67047.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Conan - Violence Dimension (2025) [MP3|320 Kbps] <Sludge, Stoner, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67046.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Changeling - Changeling (2025) [MP3|320 Kbps] <Progressive, Technical Death Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67037.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Dredge the Lethe - Blood Metal (2025) [MP3|320 Kbps] <Symphonic Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67028.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Dessiderium - Keys to the Palace (2025) [MP3|320 Kbps] <Melodic, Progressive Dea
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67026.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Epic Death - The Seer (2025) [MP3|320 Kbps] <Symphonic Black, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67013.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Gaia Metal - Pentandra (2025) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67002.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Ephors - A Mad Shade of Yellow (2025) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66999.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Ghost - Skeletá (2025) [MP3|320 Kbps] <Heavy Metal, Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66992.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Gedanken toten Lebens - Essenz der Urwunde (2025) [MP3|320 Kbps] <Atmospheric Bl
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66977.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Tokyo Blade - Time Is the Fire (2025) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66966.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Hersir - Hateful Draugar from the Underground (2025) [MP3|320 Kbps] <Black Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66957.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Gravecloud - A Tear in the Veil (2025) [MP3|320 Kbps] <Symphonic, Melodic Death 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66954.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Inferni - Raízes do Imanifesto (2025) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66857.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Symmetry Was Never An Option - Scientist (2025) [MP3|320 Kbps] <Progressive-Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66856.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Deep Sun - Storyteller (2025) [MP3|320 Kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66840.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Legacy of Payne - Spawn of Creation (2025) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66832.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Echosoul - The Time of the Dragon (2025) [MP3|320 Kbps] <Progressive Heavy, Powe
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66829.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Concrete Age - Awaken the Gods (2025) [MP3|320 Kbps] <Melodic Death, Thrash Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66827.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Opia - I Welcome Thee, Eternal Sleep (2025) [MP3|320 Kbps] <Gothic / Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66774.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Machine - Take Control (2025) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66761.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Marrowomb - Phisenomie (2025) [MP3|320 Kbps] <Black, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66714.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Mark Morton - Without The Pain (2025) [MP3|320 Kbps] <Groove Metal, Heavy Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66705.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Martoriator - Bloodpainted Visions of Perpetual Conflict (2025) [MP3|320 Kbps] <
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66660.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Confessions of a Traitor - This Pain Will Serve You (2025) [MP3|320 Kbps] <Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66652.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Monhell - A Last Sigh of Pain (2025) [MP3|320 Kbps] <Melodic Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66650.jpg" />
 </div>
 
 

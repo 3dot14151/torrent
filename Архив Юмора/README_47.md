@@ -6,7 +6,7 @@
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502858.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502826.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502822.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502821.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502820.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502810.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502780.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502770.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502404.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501975.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501163.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501153.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501075.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500119.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499057.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499002.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498434.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496464.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496246.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Stand Up (2016.09.18) SATRip (сезон 5, выпуск 1)
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496150.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Comedy Баттл. Последний сезон. Этап 2. Выпуск №24
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496065.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495768.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495586.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495508.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494482.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494454.jpg" />
 </div>
 
 

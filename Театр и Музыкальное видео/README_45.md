@@ -6,7 +6,7 @@ The Doors : Live At The Isle Of Wight Festival '1970 (2018) DVD5 [hand made]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776421.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776353.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Rammstein - Видеоколлекция от ALEXnROCK (2018) DVDRip, BDRip [H.
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776301.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ VA - Весенний марафон № 229: (Новые Лучшие Зару�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776273.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776101.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776084.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Everest of Rock - 2 (1980) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775680.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Accept - Symphonic Terror: Live at Wacken 2017 (2018) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775648.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ The Bee Gees - One For All Tour Live in Australia 1989 (2018) DVD5 [hand made]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775033.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Accept - Restless And Live (2017) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775007.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Accept - Restless And Live (2017) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774944.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Whitesnake - The Purple Tour '2015 (2018) DVD5 [Custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774293.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Bon Jovi - Music Video (51 клип) (1985-2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774197.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774037.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ Eric Clapton «Live In San Diego with special guest JJ Cale» (2017) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773314.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Led Zeppelin - Celebration Day 2007 (2012) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773064.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Rammstein - Live Aus Berlin (1999) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773047.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Paul Rodgers - Free Spirit  (2018) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773011.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Texas International Pop Festival - Got No Shoes, Got No Blues (1969) VHSRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772201.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Il Volo Takes Flight - Live from The Detroit Opera House { Deluxe edition } (201
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771961.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771894.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Paul Rodgers - Free Spirit (2018) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771825.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Radiohead - Le Reservoir, Paris (2003) DVDRip [PR]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771713.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771571.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Mylene Farmer - Timeless 2013 Le Film (2014) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771550.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Everest of Rock - 3 (1980) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771350.jpg" />
 </div>
 
 

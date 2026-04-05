@@ -6,7 +6,7 @@ VPlayer 3.2.6 [RU]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362285.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_361102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_361102.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361087.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Power Clean 2.9.0.12 [Ru/Multi] - Чистильщик
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360677.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Tank Fury (Online) v1.00 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_360422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_360422.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Hugo Retro Mania v1.0.3 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_360194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_360194.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_360076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_360076.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Dead Effect 2 v2151027.1540 + Mod Money [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360025.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Ultimate Rotation Control 4.6.2 (2012) <Ru/En>
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_359787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_359787.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_359599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_359599.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ vpnify - Безлимитный VPN 2.0.0-rc18 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359117.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Paranormal Escape / Паранормальный побег V1.0 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358096.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Lifeline V1.5.3 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357945.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ WhatsFish HD 1.2.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_357884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_357884.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357709.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357706.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357128.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ OfficeSuite Premium (PDF & HD) Mod v8.8.6139 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356712.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Stick Stunt Biker 1.2 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_356187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_356187.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Doodle Bowling 1.4 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_356175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_356175.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Subway Zombies 1.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_355869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_355869.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ LibriVox Аудиокниги Pro v9.0.4 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355818.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Ice Age Village / Ледниковый период: Деревушка v3.4.2c 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355331.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ MIUI 6 - Launcher Theme v86.0[En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355113.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355109.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Ice Age Village / Ледниковый Период: Приключения v1.8
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355098.jpg" />
 </div>
 
 

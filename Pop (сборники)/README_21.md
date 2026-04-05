@@ -1,3 +1,148 @@
+###  Публикация: 998487   (868101) от 20.03.2016
+
+VA - Клубный мега хит в машину (2016) [MP3|256-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868101.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Estradarada - Мне Нравится (08:03)
+2. Alex Kafer & Lera - Ничего Не Говори (06:23)
+3. Twoloud, Showtek - Move (05:21)
+4. Yelawolf feat Eminem - Best Friend (05:14)(   Читать дальше...   )Жанр: PopПродолжительность: 08:25:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAAE022CA353C01F829FE61D8A5CAFF16E115FE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375103   (867102) от 13.04.2020
+
+VA - Popular Hits Of The 60s (2020) [MP3|320 Kbps] <Pop, Retro>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shirley Bassey - Big Spender
+02. The Pacemakers - How Do You Do
+03. Freddie - The Young Ones
+04. Alma Cogan - Tennessee Waltz(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 02:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21000C9052251E8C189F5773963D198FC9831907
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998968   (866378) от 21.03.2016
+
+VA - New Music N2 (2016) [MP3|320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866378.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kids United - Imagine.mp3
+002. Vianney - On est bien comme зa (Album Version).mp3
+003. Madilyn Bailey - Rude.mp3
+004. Shy'M - Il Faut Vivre.mp3(   Читать дальше...   )Жанр: PopПродолжительность: 05:36:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97A34302E19D5D3A03F5E14B4C20E9FA0A9A1478
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107673   (866367) от 23.02.2017
+
+VA - Танцевальная зима. Выпуск № 10 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866367.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Klingande Feat. M-22 - Somewhere New 3:28
+002. The Weeknd - Love To Lay 3:44
+003. Wisin - Vacaciones 3:59
+004. The Chainsmokers Feat. Xylo - Setting Fires 4:08(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4155DD51E7095037542E41F392BE6DAFB0BC68A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107545   (866106) от 23.02.2017
+
+VA - Полный отрыв. Сборник зажигательных хитов. Часть № 9 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866106.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kaiser Chiefs - Hole In My Soul 4:28
+002. Robbie Williams - Mixed Signals 3:59
+003. Mako & Morgan Page - Real Life 2:56
+004. Emeli Sande - Every Single Little Piece 4:03(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C367CD6F822A73B0920426B158E9BA2075B22ADE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 302537   (865674) от 02.03.2011
 
 VA - Встречаем весну с лучшими хитами (2011) [MP3|320 kbps]<Pop>
@@ -6,7 +151,7 @@ VA - Встречаем весну с лучшими хитами (2011) [MP3|32
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_865674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_865674.jpg" />
 </div>
 
 
@@ -32,7 +177,7 @@ VA - Spring Pop: Eurodance Ultra Mix (2020) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865491.jpg" />
 </div>
 
 
@@ -58,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864213.jpg" />
 </div>
 
 
@@ -87,7 +232,7 @@ VA - Музыкальное ассорти хитов. (Зарубежный с�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863835.jpg" />
 </div>
 
 
@@ -116,7 +261,7 @@ VA - Снежный популярный отрыв выпуск № 6 (2017) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863206.jpg" />
 </div>
 
 
@@ -145,7 +290,7 @@ VA - German Top 50 Official Dance Charts 24.02.2017 (2017) [MP3|320 Kbps] <Pop ,
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863199.jpg" />
 </div>
 
 
@@ -174,7 +319,7 @@ VA - Молодежный бум хитовый. Сборник № 4 (2017) [MP
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863193.jpg" />
 </div>
 
 
@@ -203,7 +348,7 @@ VA - На волне позитива. Часть № 3 (2017) [MP3|256 Kbps] <P
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863191.jpg" />
 </div>
 
 
@@ -232,7 +377,7 @@ VA - Только хиты. Русский попсовый сборник от 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863012.jpg" />
 </div>
 
 
@@ -261,7 +406,7 @@ VA - Музыка хорошего настроения 5 (2016) [MP3|256-320 к
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862672.jpg" />
 </div>
 
 
@@ -290,7 +435,7 @@ VA - The Presents Of Autumn (2021) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859641.jpg" />
 </div>
 
 
@@ -319,7 +464,7 @@ VA - Twisted Disco Stick (2021) [MP3|320 Kbps] <Dance, Disco, Nu Disco, Funky Ho
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859639.jpg" />
 </div>
 
 
@@ -348,7 +493,7 @@ VA - Зимняя русская радиоволна. Версия № 3 (2017)
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859209.jpg" />
 </div>
 
 
@@ -377,7 +522,7 @@ VA - Лучшая дискотека от Европы Плюс (2017) [MP3|256 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859095.jpg" />
 </div>
 
 
@@ -406,7 +551,7 @@ VA - German Top 100 Single Charts 17.04.2020 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858921.jpg" />
 </div>
 
 
@@ -435,7 +580,7 @@ VA - Popular Euro Song: Spring Edition (2020) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858805.jpg" />
 </div>
 
 
@@ -464,7 +609,7 @@ VA - Лучшие праздничные хиты: 8 марта (2011) [MP3|128 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_858509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_858509.jpg" />
 </div>
 
 
@@ -490,7 +635,7 @@ VA - Музыкальное зимнее настроение выпуск № 3
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857457.jpg" />
 </div>
 
 
@@ -519,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857374.jpg" />
 </div>
 
 
@@ -548,7 +693,7 @@ VA - Дискотека 80-90 годов по - новому от Виталия
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857311.jpg" />
 </div>
 
 
@@ -577,7 +722,7 @@ VA - Стопудовые зимние хиты от Европы Плюс вы�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857290.jpg" />
 </div>
 
 
@@ -591,151 +736,6 @@ VA - Стопудовые зимние хиты от Европы Плюс вы�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40F60876D6747996860C0527EDC27E1E9C560CF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109911   (855677) от 01.03.2017
-
-VA - Полный отрыв. Зимние хиты выпуск № 10 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855677.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dua Lipa - Room For 2 3:29
-002. Роза Мажонц - Выше Облаков 3:57
-003. Владимир Кузнецов - Самообман 4:30
-004. Григорий Лепс - На Заре 4:16(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4688EF0AF8812D2573DBAB9A21829BE664D0DCC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109915   (855625) от 01.03.2017
-
-VA - Положительный заряд Hit FM (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855625.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Дидо Каримов - Я И Ты 3:24
-002. Davlad - Прости 3:17
-003. Маша Ru - Ноль-Ноль 3:18
-004. Нафиса Старкова - В Твоих Глазах 3:22(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:229CE1596617DEBD23FCB09369A55B6CF0CD6F1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109904   (855616) от 01.03.2017
-
-VA - Автозвук. Отборный зимний хит. Часть 7 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855616.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Анна Ярчинская - Станем Ближе 3:41
-002. Feli - Timpul 3:23
-003. Peg Parnevik - Sthlm Nights 3:21
-004. Olstan Van Guard - Капли Дождя 4:52(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4602014C21EA040FDD78A4CF65A8B413517669F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110085   (855458) от 01.03.2017
-
-VA - Хиты в тачку. Сборник 5 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855458.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Светлана Губаревич - Наваждение 3:25
-002. Ян Степанов & Роман Ларин - Бывшая 2:46
-003. Фрай - Таешь Во Мне 3:13
-004. Доминика Feat. Suncreepers - Океаны 3:04(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA6C47F8B09B88DF7E603826AAC0E30BC8699124
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498593   (854399) от 28.09.2021
-
-VA - Fall Trends (2021) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Machine Gun Kelly - papercuts
-02. Taylor Swift - Lover
-03. The Lorax Singers - Let It Grow
-04. Florence + The Machine - Dog Days Are Over(   Читать дальше...   )Жанр: PopПродолжительность: 02:13:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CADF05A63C74A47E3AF7D8C080BA91B8FDE41D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1017957   (759274) от 18.05.2016
+
+VA - Созвездие весеннее - 7 (2016) [MP3|256 кб/с] <Pop, Dance, Club>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759274.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ladyhawke - A Love Song
+002. The Jigits - В Эту Ночь
+003. Shakira - Try Everything
+004. Артем Пивоваров - Стихия(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 06:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D433EBD7BED32F59B92E57F4B94DFD71CE4FB1BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018002   (759017) от 18.05.2016
+
+VA - Авто хит. Топ Europa Plus (2016) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fred V & Grafix - Constellations
+ 02. Mona (Ex. Монокини) - Слушай Сердце
+03. Илья Гуров - Знаешь Я Скучаю
+04. Walking On Cars - Hand In Hand(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D57E6E62EA4B941056E33A5D36D957F52B736E86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280708   (758635) от 04.02.2019
+
+VA - Winter Sensation (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758635.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Paul Janeway - Brighter Days
+002. Ar-Beat - Your Games
+003. Biank - Tease Me (Extended Mix)
+004. Ezechiel - Take Me Higher(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 10:15:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E11CB872604BFBC0FD0974803C299B75DAA4D5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522581   (758535) от 07.01.2022
+
+Eighth Wonder - Compilation (2019) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Not Scared
+02. J'ai Pas Peur (French Version)
+03. Open Your Mind
+04. The Dress(   Читать дальше...   )Жанр: PopПродолжительность: 00:32:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C875376E6A0BF94BD2EA37CB4B17BB9DDD968F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280712   (758073) от 04.02.2019
+
+VA - Club Dance Ambience vol.171 (2019) [MP3|320 Kbps] <Dance, Club, House>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758073.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. #2Маши  - Мама, я танцую  (Assel Remix)
+002. Alex Mota - Samba (Original Mix)
+003. A-Mase - Снегом Стать  (Cover Radio Mix)
+004. A-Mase & Sharliz - Nobody's Home  (G-House Cover Mix)(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 07:08:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A8E370255D76C3F7BEF2257DA7413A3701AE0F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522733   (756777) от 08.01.2022
 
 Gin Wigmore - Compilation (2019) [MP3|320 Kbps] <Pop>
@@ -6,7 +151,7 @@ Gin Wigmore - Compilation (2019) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756777.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Patricia Kaas - Compilation (2019) [MP3|320 Kbps] <Pop, Chanson Francaise>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756642.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ VA - Наше Радио. Лучшее '2021 (2022) MP3 от DON Music [MP3|320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_756329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_756329.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ VA - Русский Популярный Хит Формат (2016) [MP3|256-320
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755685.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ VA - Beatport Hardstyle: Electro Sound Pack #392 (2021) [MP3|320 Kbps] <Hard Dan
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755313.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ VA - Romantic Soul: Popular Lyric Collection (2020) [MP3|320 Kbps] <Romantic, Po
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755284.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ VA - The Winter Pop Kaleidoscope (2021) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755184.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ VA - Beatport Hard Dance: Electro Sound Pack #394 (2022) [MP3|320 Kbps] <Hard El
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_755179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_755179.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Karen Cheryl - Compilation (2022) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755167.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ VA - German Top 100 Single Charts 07.01.2022 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755154.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ VA - Дискотечный хит-парад №12 (2016) [MP3|256 кб/с] <Po
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753810.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ VA - Girls Romances vol.3 (2018) [MP3|192-320 Kbps] <Pop, Ballad, Blues-Rock, Ch
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752943.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ VA - German Top 100 Single Charts 02.04.2018 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752938.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752343.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ VA - German Top 100 Single Charts 10.07.2020 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752197.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ VA - 100 пудовый хит. Выпуск 9 (2016) [MP3|256 кб/с] <Pop, Da
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752184.jpg" />
 </div>
 
 
@@ -470,7 +615,7 @@ VA - Летний дождь. Суперсборник от Русского р�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752093.jpg" />
 </div>
 
 
@@ -499,7 +644,7 @@ VA - Music 80s - Collection от ALEXnROCK часть 1 (2021) [MP3|320 Kbps] <P
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750985.jpg" />
 </div>
 
 
@@ -528,7 +673,7 @@ VA - : Созвездие весеннее - 8 (2016) [MP3|256 кб/с] <Pop, Da
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750179.jpg" />
 </div>
 
 
@@ -557,7 +702,7 @@ VA - Direct Ministry Tracks Dance 2019 (2019) [MP3|320 Kbps] <Dance, Hands Up>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750007.jpg" />
 </div>
 
 
@@ -586,7 +731,7 @@ VA - Килобитный взрыв хитов - 5 (2016) [MP3|256 кб/с] <Po
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748558.jpg" />
 </div>
 
 
@@ -600,151 +745,6 @@ VA - Килобитный взрыв хитов - 5 (2016) [MP3|256 кб/с] <Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25875A5EA1089E078BBC1AA7DFC31D9A17AE40FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019581   (748458) от 24.05.2016
-
-VA - Зарубежная Дискотека ХХ Века - 5 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ricchi E Poveri - Mamma Maria ( 1982 )
-02. Latin Lover - Laser Light ( 1986 )
-03. Samantha Fox - Touch Me ( 1986 )
-04. Secret Service - Oh Susie ( 1979 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC845507DDEC6CC59BF12CCF398D4D2CD1ECCCC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019576   (748454) от 24.05.2016
-
-VA - Зарубежная Дискотека ХХ Века - 4 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baltimora - Tarzan Boy ( Extended Version 1984 )
-02. Gazebo - Lunatic ( 1984 )
-03. Dschinghis Khan - Samurai ( 1979 )
-04. Bad Boys Blue - I Live ( 1985 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:833BA4759159BE53DA7832D8E2E4B04BB32BF016
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019608   (748452) от 24.05.2016
-
-VA - Зарубежная Дискотека ХХ Века - 9 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eddy Huntington - U.S.S.R. ( 12'' Version 1986 )
-02. Fun Fun - Give Me Your Love ( 1984 )
-03. Monte Kristo - The Girl Of Lucifer ( 1985 )
-04. Beloved - Your Love Takes Me Higher ( 1990 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:20:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5456F54AD141F0521E8235BA6E9F1F5B75C310B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019605   (748451) от 24.05.2016
-
-VA - Зарубежная Дискотека ХХ Века - 8 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giorgio Moroder - From Here To Eternity ( 1977 )
-02. Francesco Napoli - Balla.. Balla! ( Italian Hit Connection 1987 )
-03. London Boys - Kimbaley ( 1988 )
-04. Mauro - Buona Sera-Ciao,Ciao ( 1987 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4F26D95DDC2ABAE55FA6737795C0FA4D72F7624
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019568   (748355) от 24.05.2016
-
-VA - Зарубежная Дискотека ХХ Века - 2 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Digital Emotion - Don`t Stop ( 1984 )
-02. Mo-Do - Eins, Zwel, Polizel ( 1994 )
-03. C.C.Catch - Cause You Are Young ( 1986 )
-04. Michael Jackson - Bad ( 1987 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:18:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DED354EFAE6A7FB6FC0643DB0882AED007B30654
 ```
 
 https://mybot314.ru/tekegram_catalog/

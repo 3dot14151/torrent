@@ -1,3 +1,29 @@
+###  Публикация: 1833169   (246261) от 01.11.2025
+
+Rafa Souza Academy, Rafa Souza | Introdução ao ZBrush (2023) PCRec [RU, PT]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246261.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это востребованный курс по скульптингу в ZBrush. Вы создадите законченного гипердетализированного динозавра. Поскольку произведение невозможно отделить от автора, на занятиях вы разберёте процесс работы, научитесь видеть мир и искусство по-новому, а также справляться с тяготами творчества — беспокойством, фрустрацией и другими вызовами.Производство: Rafa Souza AcademyЖанр: 3D моделирование, СкульптингЯзык озвучки: Русский, ПортугальскийПродолжительность: 23:49:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEEA17574E054CB20DB2B9A45B9B15F78ADA35A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1833058   (246189) от 31.10.2025
 
 Алексей Черемных | Администрирование ViPNet сетей (2025) PCRec [RU]
@@ -6,7 +32,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246189.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ Gcircuit, Adam Priester | Stylized Skin Growth in Houdini (2020) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246062.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ Udemy, Jingtian Li | Introduction to Unreal Engine 4 Ability System Part 2 (2019
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246035.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ Epic Games, Harrison Moore | Paragon Character Texturing Pipeline (2017) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245977.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ Uartsy, Ryan Kingslien | Artistic Anatomy in ZBrush (2014) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245940.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ Enterclass, Сергей Курбатов | Весна в городе (2023) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245888.jpg" />
 </div>
 
 
@@ -169,7 +195,7 @@ FXPHD, Jeronimo Maggi | HOU221 – USD and LOPs for Houdini Artists (2022) WEB-D
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245823.jpg" />
 </div>
 
 
@@ -195,7 +221,7 @@ FXPHD, Jeronimo Maggi | HOU222 - USD in Houdini 19.5 (2022) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245808.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ Entagma, Moritz Schwind | New in Houdini 18.5 (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245544.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245413.jpg" />
 </div>
 
 
@@ -276,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245371.jpg" />
 </div>
 
 
@@ -304,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245012.jpg" />
 </div>
 
 
@@ -332,7 +358,7 @@ Udemy, David Long | Conway's Game of Life with SDL2 and C++ (2022) WEB-DL [EN / 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244496.jpg" />
 </div>
 
 
@@ -361,7 +387,7 @@ Pixel Front, Mario Reitbauer | A Full Introduction To Grooming For VFX in Houdin
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244398.jpg" />
 </div>
 
 
@@ -387,7 +413,7 @@ Uartsy, Tomas Wittelsbach | Jewelry Design In ZBrush (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244369.jpg" />
 </div>
 
 
@@ -413,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244341.jpg" />
 </div>
 
 
@@ -442,7 +468,7 @@ Rebelway, Saber Jlassi | Advanced Houdini FX - RISE (2020) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244332.jpg" />
 </div>
 
 
@@ -468,7 +494,7 @@ CG Sphere | Frostmourne Sword Full Process + Files (2021) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244305.jpg" />
 </div>
 
 
@@ -494,7 +520,7 @@ Udemy, Tom Looman, Epic Games | Unreal Engine 4 Mastery Create Multiplayer Games
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244295.jpg" />
 </div>
 
 
@@ -521,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244206.jpg" />
 </div>
 
 
@@ -549,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244112.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ INE | Penetration Testing Student v2 [Learning Path] (2022) WEB-DL [EN / EN Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244078.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Enterclass, Марина Ласаева | Дачное настроение (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243723.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243699.jpg" />
 </div>
 
 
@@ -662,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243685.jpg" />
 </div>
 
 
@@ -673,35 +699,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF07AA29B5B6144E2BE61AF799E82401A1961E30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567821   (243660) от 04.08.2022
-
-Никита Строков | Адекватный директ (2021) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243660.jpg" />
-</div>
-
-
-###  Подробнее
-
-На курсе я расскажу, как:
-
-Запускать рабочие рекламные кампании за 5-6 дней
-Вести кампании и сокращать цену заявки в 2-5 раз(   Читать дальше...   )Жанр: Яндекс ДиректЯзык озвучки: РусскийПродолжительность: 19:25:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88A988B2DAD2C08DF8D8AD92FEB3B126B77698A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

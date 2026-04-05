@@ -1,32 +1,3 @@
-###  Публикация: 1702946   (115300) от 27.02.2024
-
-Relaxing Instrumental Jazz Ensemble - Beautiful Jazz Instrumental Collection (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115300.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smooth Moves (3:18)
-02. Background Jazz (3:18)
-03. Only Jazz (3:18)
-04. Sensual Ambience (3:30)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9732DA8A11639082EB90B891DE5A0A6190D173C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702947   (115298) от 27.02.2024
 
 Restaurant Music, Calming Jazz Relax Academy - Jazz for Dinner and Wine (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
@@ -35,7 +6,7 @@ Restaurant Music, Calming Jazz Relax Academy - Jazz for Dinner and Wine (2024) [
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115298.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Viktoria Mullova, Tchaikovsky / Sibelius, Boston Symphony Orchestra, Seiji Ozawa
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115217.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Puddle of Mudd - Studio Albums (8 releases) (1994-2023) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115170.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Benny Andersson - Piano (2017) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115160.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Ace Frehley - 10,000 Volts (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115151.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115066.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ VA - Улетай, туча (1980) [FLAC 24/192|Lossless|tracks] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115057.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115049.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115048.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Los Angeles - Лос Анхелес (1974 (1967)) [FLAC 24/192|Lossless|tracks] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115029.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Army of Lovers - Massive Luxury Overdose (1993 (1991)) [FLAC 24/192|Lossless|tra
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115026.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115020.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Above & Beyond - Group Therapy 500 Live from Los Angeles (2024) (Live) [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115012.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ AC/DC - Dirty Deeds Done Dirt Cheap (1976) Reissue, 1987, Albert Productions [FL
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114998.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ AC/DC - T.N.T (1975) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114996.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Doro - Conqueress - Extended (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114994.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114991.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Brymir - Studio Albums (4 releases) (2011-2022) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114989.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Bokassa - Crimson Rider (2019) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Stoner Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114988.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ VA - Рок-панорама - 87 (1) (1987) [FLAC 24/192|Lossless|tracks] <Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114835.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114834.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ Lesbian Bed Death - Midnight Lust (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Go
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114826.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ Firehouse - Firehouse (1990) Remaster, 2024, Epic; Sony Music Entertainment [FLA
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114824.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ AC/DC - High Voltage (1976) Released, 1981, Albert Productions [FLAC|24/192|imag
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114821.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ AC/DC - Let There Be Rock (1977) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114816.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ AC/DC - Let There Be Rock (1977) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE34ABBA70E1C841DD8D119D9370AE48E0560634
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703685   (114809) от 01.03.2024
+
+Александр Барыкин - Эй, смотри! (1990) [FLAC 24/192|Lossless|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114809.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. В стиле Рок (М. Пушкина) — 4.46
+02. С нами любовь (М. Пушкина) — 4.05
+03. Гала (А. Барыкин) — 4.36(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7D30C1D61B7442CE880E26751D6EBC5BEBE8AFA
 ```
 
 https://mybot314.ru/tekegram_catalog/

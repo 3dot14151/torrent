@@ -1,3 +1,30 @@
+###  Публикация: 1805394   (1708) от 21.09.2025
+
+Песнь ночных сов [ТВ-2] | Yofukashi no Uta Season 2 | Call of the Night Season 2 [2025, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Онгоинги с озвучкой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вампиром стать проще простого! Достаточно одного небольшого укуса… и капельки любви в придачу. И всё бы ничего, но ни Нанакуса Надзуна, ни Ямори Ко не представляют, что же такое любовь.
+В попытках понять это чувство, они проводят ночи за играми и прогулками, пока на их пути не попадается таинственный частныйПроизводство: Япония / Студия Liden FilmsЖанр: комедия, романтикаРежиссер: Итамура ТомоюкиЯзык озвучки: Русский (AniLiberty); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 23 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A61AA11FADE6C7E59E059606CC884151D521B2B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1806012   (1544) от 22.09.2025
 
 Я перевоплотился в седьмого принца, так что буду совершенствовать свою магию как захочу [ТВ-2] | Tensei Shitara Dai Nana Ouji Datta no de, Kimamani Majutsu o Kiwamemasu Dai 2 Ki [2025, TV, 11 из 12 ...
@@ -6,7 +33,7 @@
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1544.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1531.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1382.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ Kizetsu Yuusha to Ansatsu Hime | Обморочный герой и принце
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1377.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1229.jpg" />
 </div>
 
 
@@ -137,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1098.jpg" />
 </div>
 
 
@@ -164,7 +191,7 @@ Busamen Gachi Fighter | Вотурод Мегавоин | Uglymug, Epicfighter |
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1084.jpg" />
 </div>
 
 
@@ -190,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1071.jpg" />
 </div>
 
 
@@ -217,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1061.jpg" />
 </div>
 
 
@@ -243,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_888.jpg" />
 </div>
 
 
@@ -269,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_184.jpg" />
 </div>
 
 
@@ -296,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158.jpg" />
 </div>
 
 
@@ -322,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126.jpg" />
 </div>
 
 

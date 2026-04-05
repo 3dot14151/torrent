@@ -1,3 +1,32 @@
+###  Публикация: 1395360   (755577) от 10.07.2020
+
+Fish - Something In The Air (1992) 45 RPM, Single [FLAC|Lossless|tracks] <Prog Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755577.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Something In The Air (Teddy Bear Mix)
+(John Keene)
+B1 Something In The Air (Album Mix)
+(John Keene)(   Читать дальше...   )Жанр: Prog Rock, Pop RockПродолжительность: 00:16:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F438428D44C3DCE881E4A56F966E3AA90ABFDB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1523022   (754827) от 09.01.2022
 
 Deep Purple - Turning To Crime (2021) [DSD128 2.0|tracks|Vinyl-Rip] <Rock, Blues>
@@ -6,7 +35,7 @@ Deep Purple - Turning To Crime (2021) [DSD128 2.0|tracks|Vinyl-Rip] <Rock, Blues
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754827.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Pink Floyd - Delicate Sound Of Thunder (2 LP) (1988) [FLAC 2.0 24/192|traks(Vini
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754029.jpg" />
 </div>
 
 
@@ -70,7 +99,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750797.jpg" />
 </div>
 
 
@@ -105,7 +134,7 @@ Ozzy Osbourne - Diary Of A Madman (1981) AnTrop Unofficial Release, 1993 [FLAC 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749948.jpg" />
 </div>
 
 
@@ -134,7 +163,7 @@ Toto - Stranger In Town (Dance Mix) (1984) 12", 45 RPM, Single [FLAC 2.0|192/24|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748532.jpg" />
 </div>
 
 
@@ -163,7 +192,7 @@ Toto - Fahrenheit (1987) [FLAC|FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748525.jpg" />
 </div>
 
 
@@ -192,7 +221,7 @@ Diana Krall - 10 альбомов (1996-2009) [FLAC/APE 2.0 24/96 | tracks (Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_748033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_748033.jpg" />
 </div>
 
 
@@ -218,7 +247,7 @@ Billie Holiday - Billie Holiday (1975) Mono [FLAC 1.0|96/24|image +.cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746922.jpg" />
 </div>
 
 
@@ -247,7 +276,7 @@ Lift - Lift (1977) Russian text on labels [FLAC 2.0|96/24|image +.cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746920.jpg" />
 </div>
 
 
@@ -276,7 +305,7 @@ The Beatles - 1962-1966 (1973) Red Album [FLAC 2.0|192/24|image +.cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746507.jpg" />
 </div>
 
 
@@ -305,7 +334,7 @@ The Beatles - 1967-1970 (1973) Blue Album [FLAC 2.0|192/24|image +.cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746374.jpg" />
 </div>
 
 
@@ -334,7 +363,7 @@ Muse - 4 Альбома (2001-2012) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Alternat
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745721.jpg" />
 </div>
 
 
@@ -360,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743906.jpg" />
 </div>
 
 
@@ -395,7 +424,7 @@ Paul Mauriat And His Orchestra – Gone Is Love (1970) [DSD128 2.0|tracks|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743627.jpg" />
 </div>
 
 
@@ -424,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743124.jpg" />
 </div>
 
 
@@ -453,7 +482,7 @@ Imagine Dragons - Evolve (2017) [DSD 2.0|5.6448/1|tracks|Vinyl-Rip] <Rock, Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742980.jpg" />
 </div>
 
 
@@ -482,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741879.jpg" />
 </div>
 
 
@@ -511,7 +540,7 @@ Slayer - 13 альбомов (1983-2009) 14LP [FLAC 2.0 24/192 | image (Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741424.jpg" />
 </div>
 
 
@@ -540,7 +569,7 @@ VA - Пулсиращи Ноти 3 (1985) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740451.jpg" />
 </div>
 
 
@@ -569,7 +598,7 @@ Sky - Masterpieces - The Very Best Of Sky (1984) [FLAC 2.0|96/24|image +.cue|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740426.jpg" />
 </div>
 
 
@@ -598,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740002.jpg" />
 </div>
 
 
@@ -624,7 +653,7 @@ B.B. King - Live At San Quentin (1990) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Blues
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739660.jpg" />
 </div>
 
 
@@ -653,7 +682,7 @@ Raffaella Carra - Collections (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Europop
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739595.jpg" />
 </div>
 
 
@@ -682,7 +711,7 @@ James Last - Trumpet A Go Go (1966) [FLAC 2.0 24/192|image+.cue (Vinyl-Rip)]<Eas
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738705.jpg" />
 </div>
 
 
@@ -711,7 +740,7 @@ The Chemical Brothers - Dig Your Own Hole (1997) 2016 [FLAC 2.0|96/24|tracks +.c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738126.jpg" />
 </div>
 
 
@@ -725,35 +754,6 @@ B2 Piku(   Читать дальше...   )Жанр: Big BeatПродолжит�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:798232F5F6E616E33A9AB2792F6BEC003A32D96C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 843813   (738047) от 25.01.2022
-
-VA - 20 Power Hits (1973) As advertised on T.V. [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Pop-Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738047.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side One:
-01. Crocodile Rock - Elton John (1972)
-02. Alright Alright Alright - Mungo Jerry (1973)
-03. Bad Bad Boy - Nazareth (1973)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 01:04:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98A3EE8B4691FE5D4D1A056F82A0D78D7C47151B
 ```
 
 https://mybot314.ru/tekegram_catalog/

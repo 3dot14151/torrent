@@ -1,3 +1,119 @@
+###  Публикация: 1429062   (177450) от 05.12.2020
+
+Timmy Trumpet - Mad World (2020) [MP3|320 Kbps] <Big Room, Electro House, Hardstyle>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Timmy Trumpet - Intro
+02. Timmy Trumpet, Swedish Red Elephant & 22Bullets - The City
+03. Timmy Trumpet, Jebroer & Dr Phunk - Child Of The Devil
+04. New World Sound & Timmy Trumpet ft. Kheela - Not Like You(   Читать дальше...   )Жанр: Big Room, Electro House, HardstyleПродолжительность: 00:48:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94501A64CB67B2F2CF6422C3ACE45E0EE4D08F80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666218   (177438) от 07.10.2023
+
+Telex - Telex I-III (2022-2023) [MP3|320 Kbps] <Disco, Synth-pop, House, Techno>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2022 - TELEX EP1
+2022 - TELEX EP2
+2023 - TELEX EP3Жанр: Disco, Synth-pop, House, TechnoПродолжительность: 3 CD, 01:07:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B66296CC0947E27760868E89205615DC62D3C2B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667113   (177352) от 07.10.2023
+
+VA - The Orient Collective - Collection (2023) 8 Relise [MP3|320 Kbps] <Electronic, Lounge, World, Ethnic>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ali Termos - La Serenissima (MI.LA Remix) [05:55]
+02. Wadd - Back [06:20]
+03. Marga Sol - Mirage [06:14]
+04. Yassine H - Pyramid Vibes [05:39](   Читать дальше...   )Жанр: Electronic, Lounge, World, EthnicПродолжительность: 09:58:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F619A6313234779EABFD2EAF97D67A10F98998D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594754   (177350) от 02.12.2022
+
+Acryl Madness - Afterlife (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Darksynth>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kali Yuga (Prelude) [00:01:18]
+02. Agnes Theme [00:03:19]
+03. Oath [00:03:05]
+04. Chosen for Nothing [00:03:41](   Читать дальше...   )Жанр: Synthwave, DarksynthПродолжительность: 00:22:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0E2641C53F33893B10117E9B3EA545162AACB0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594857   (177311) от 02.12.2022
 
 ZHU - Musical Chairs Mixtape (Vol. 1) (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Bassline, Dance-pop>
@@ -6,7 +122,7 @@ ZHU - Musical Chairs Mixtape (Vol. 1) (2022) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177311.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Depeche Mode - Delta Machine | The 12" Singles (2023) [FLAC|Lossless|WEB-DL|trac
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177218.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Claptone - Live @ Mainstage, Mysteryland, Netherlands (2023-08-26) [MP3|320 Kbps
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177014.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - The Best Of Suanda Voice 2022 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176776.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Winter Chillout Lounge 2020 [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downte
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176726.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Hammock - Discography 40 Releases (2005-2020) Hammock Music, Darla Records [FLAC
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176172.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Mirrors Of Mind - Тишина Становится Тобой (2022) [FLAC|Loss
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176162.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Rian Treanor - File Under UK Metaplasm (2020) Planet Mu [FLAC|Lossless|tracks + 
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176025.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Domenique Dumont - People On Sunday (2020) Leaf [FLAC|Lossless|tracks + .cue] <A
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175991.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175515.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Vintage Culture - Live @ Thunder Machine Stage, VNTG Is A Festival Brasilia, Bra
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175376.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ MEDUZA - Live @ Our House, Hi Ibiza, Spain (2023-09-29) [MP3|320 Kbps] <Tech Hou
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175323.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Reflection - Alpha et Omega (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175307.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Menschdefekt - Recombination (2022) [FLAC|Lossless|WEB-DL|tracks] <Dark Electro,
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175103.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Globular - Untangled Everything (2019) [FLAC|Lossless|WEB-DL|tracks] <Downtempo,
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175081.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Any Second - Enemies (2022) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, 
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175051.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ VA - Remix Rockets (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174498.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ VA - Anjunadeep The Remixes 2020 (2020) Compilation [FLAC|Lossless|WEB-DL|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174435.jpg" />
 </div>
 
 
@@ -525,7 +641,7 @@ VA - DJ Kubikov & Sapunov - 3fATMeN (2006) [MP3|320 Kbps|image+.cue, tracks+.cue
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174324.jpg" />
 </div>
 
 
@@ -554,7 +670,7 @@ port-royal - Discography 15 Releases (2005-2020) Resonant, n5MD [FLAC|Lossless|t
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174283.jpg" />
 </div>
 
 
@@ -583,7 +699,7 @@ VA - Top 8 September 2023 Emotional and Uplifting Trance (2023) [MP3|320 Kbps] <
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174050.jpg" />
 </div>
 
 
@@ -612,7 +728,7 @@ Cicero - Future Boy (1992) Expanded Edition, 2023, SFE [FLAC|Lossless|WEB-DL|tra
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174044.jpg" />
 </div>
 
 
@@ -626,122 +742,6 @@ CD-03 - Future Boy (Expanded Edition)Жанр: Synth-pop, Dance-popПродол�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1453756271935DBFB5C46F47A10FAE956F16D2BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667746   (173992) от 12.10.2023
-
-['ramp] - no sleep 'til wilmersdorf (2018) [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient, Doombient, Berlin School>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. compact phasing a
-02. no sleep 'til wilmersdorf
-03. clouds should say
-04. haunted hills(   Читать дальше...   )Жанр: Dark Ambient, Doombient, Berlin SchoolПродолжительность: 01:15:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A64CE799EEB257EA2F53760C4902B4917F224C51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596145   (173982) от 08.12.2022
-
-VA - Meditative State: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_173982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slow World - Undiscovered World (Original Mix) (3:43)
-02. Dellasollounge - Fantasy (Original Mix) (5:23)
-03. Matt Sour - Who Is Lore (5:01)
-04. La Estación Del Mar - Cantos Rodados (4:38)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:24:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CFA82E5C598991A66218E77D33F8C654BB18627
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430445   (173900) от 10.12.2020
-
-VA - Markus Schulz - Global DJ Broadcast: Top 20 November (2020) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. HALIENE - Walk Through Walls (Markus Schulz Extended Remix)
-02. Markus Schulz & Adina Butar - In Search Of Sunrise (Dream Sequence Extended Remix)
-03. JES - Two Souls (Andy Moor Extended Remix)
-04. The Blizzard & C-Systems - Dark Days (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:22:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93B648E90E656863D7CA45034465D27F2DF44D4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668069   (173883) от 12.10.2023
-
-VA - Spacedance, Vol. 5 (2023) [FLAC|Lossless|WEB-DL|tracks] <Spacedance, Spacesynth>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Futurespace - Reach The Stars (Instrumental Version) (5:32)
-02. Daylight - Cosmic Avenger (Extended Version) (6:02)
-03. Daylight - Machine Intelligence (Italo Mix) (5:49)
-04. Daylight - Dancin' Through The Night (Vocoder Mix) (6:02)(   Читать дальше...   )Жанр: Spacedance, SpacesynthПродолжительность: 01:16:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ECCCED2F8B46CB5B1173B7BCB4A10EB0B558182
 ```
 
 https://mybot314.ru/tekegram_catalog/

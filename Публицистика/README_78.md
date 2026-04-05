@@ -1,3 +1,30 @@
+###  Публикация: 1272218   (145156) от 26.12.2018
+
+Дмитрий (Goblin) Пучков, Сергей Ильченко | Как нас обманывают СМИ. Манипуляция информацией (2019) [FB2]
+
+>>След.
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ни для кого не секрет, что современные СМИ оказывают значительное влияние на политическую, экономическую, социальную и культурную жизнь общества. Но можем ли мы безоговорочно им доверять в эпоху постправды и фейковых новостей?
+Сергей Ильченко – доцент кафедры телерадиожурналистики СПбГУ, автор и ведущий многочисленных теле– и радиопрограмм – настойчиво и последовательно (   Читать дальше...   )Жанр: Культурология, ПублицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A11B6A70A2B5EC54B0F8AFA6A4EB33C3082C8D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 969938   (145140) от 28.12.2015
 
 Шейн Харрис | Кибервойн@. Пятый театр военных действий (2015) [FB2, RTF]
@@ -6,7 +33,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145140.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145035.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144788.jpg" />
 </div>
 
 
@@ -86,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144731.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144469.jpg" />
 </div>
 
 
@@ -138,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144154.jpg" />
 </div>
 
 
@@ -165,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143822.jpg" />
 </div>
 
 
@@ -192,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143354.jpg" />
 </div>
 
 
@@ -220,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143181.jpg" />
 </div>
 
 
@@ -249,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143132.jpg" />
 </div>
 
 
@@ -276,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143038.jpg" />
 </div>
 
 
@@ -302,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142933.jpg" />
 </div>
 
 
@@ -328,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142919.jpg" />
 </div>
 
 
@@ -354,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142871.jpg" />
 </div>
 
 
@@ -380,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142758.jpg" />
 </div>
 
 
@@ -406,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142655.jpg" />
 </div>
 
 
@@ -432,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142390.jpg" />
 </div>
 
 
@@ -458,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142365.jpg" />
 </div>
 
 
@@ -486,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141877.jpg" />
 </div>
 
 
@@ -513,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141738.jpg" />
 </div>
 
 
@@ -540,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141727.jpg" />
 </div>
 
 
@@ -566,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141523.jpg" />
 </div>
 
 
@@ -594,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141369.jpg" />
 </div>
 
 
@@ -620,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140706.jpg" />
 </div>
 
 
@@ -646,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140635.jpg" />
 </div>
 
 
@@ -659,32 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E23AE11FFA915853E1EBBF54B358FE02B896026B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088373   (140482) от 30.12.2016
-
-Рустем Вахитов | Революция, которая спасла Россию (2016) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140482.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рустем Вахитов, ученый и публицист, постоянный автор «Советской России», в своей новой книге пишет об Октябрьской революции 1917 года. Почему имперская Россия была обречена? Почему провалилась либеральная Февральская революция? Как получилось, что революционер-интернационалист Ленин стал русским патриотом и собирателем Отечества? Чем Октябрьская революция ценна для (   Читать дальше...   )Жанр: Документальная литература, ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D0FBACA16C317D5ED1F32966B4B29884F47473A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1260915   (306935) от 09.11.2018
+
+11-11 Memories Retold (2018) [Ru/Multi] (1.0/dlc) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306935.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 ноября 1916 года молодой фотограф покинул Канаду и отправился воевать на западный фронт в Европе. В тот же день немецкий механик узнал, что его сын пропал без вести в бою. Оба они хотят остаться людьми и живыми вернуться к своим близким.Тип издания: LicenseРазработчик: Aardman Animations, DigixartЖанр: Adventure, CasualЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6ABE139975C42CA10122E6D67C94A02C4A9D214
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084775   (306774) от 14.11.2017
+
+The Whispered World / Ускользающий мир (2010) [Ru/Multi] (3.2.0419) License GOG [Special Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306774.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда судьба всего мира повиснет на волоске, появится необычный герой! Визуально впечатляющая приключенческая игра «Ускользающий мир» впервые доступна в специальном издании. «Ускользающий мир» очарует вас множеством анимированных деталей и фантастических персонажей. Приключение Седвика начинается, когда он решает найти объяснение своим частым кошмарам.Тип издания: LicenseРазработчик: Daedalic EntertainmentЖанр: AdventureЯзык озвучки: Русский, Английский, НемецкийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD9EFF28E4F1AFE19C14CE70573BF07CA7095C79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261023   (306718) от 09.11.2018
+
+11-11 Memories Retold (2018) [Ru/Multi] (1.0/dlc) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306718.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 ноября 1916 года молодой фотограф покинул Канаду и отправился воевать на западный фронт в Европе. В тот же день немецкий механик узнал, что его сын пропал без вести в бою. Оба они хотят остаться людьми и живыми вернуться к своим близким.Тип издания: RepackРазработчик: Aardman Animations, DigixartЖанр: Adventure, CasualЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EB0D4350B7C69A23533BF3FB6CC868A122DFABF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1040069   (306542) от 23.10.2019
 
 Layers of Fear (2016) [Ru/Multi] (1.1.1/dlc) Repack Other s [Masterpiece Edition]
@@ -6,7 +84,7 @@ Layers of Fear (2016) [Ru/Multi] (1.1.1/dlc) Repack Other s [Masterpiece Edition
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306542.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Dread of Laughter (2018) [En] (1.0/upd4) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306537.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Nancy Drew: Shadow at the Water's Edge / Нэнси Дрю: Тень у воды
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305804.jpg" />
 </div>
 
 
@@ -86,7 +164,7 @@ Still Life 1, 2 (2005-2009) [Ru] (1.00) Repack R.G. ReCoding [Dilogy / Дило�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305799.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ The Park (2015) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304946.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ The Moment Of Silence / Момент истины [Ru] (L) 2005
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304708.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ Quern: Undying Thoughts (2016) [Multi] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303936.jpg" />
 </div>
 
 
@@ -191,7 +269,7 @@ Quern - Undying Thoughts (2016) [Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303815.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ Layers of Fear (2016) [Ru/Multi] (1.1.1) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303800.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ Obscure II (Obscure: The Aftermath) (2008) [Ru] (1.215294/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303729.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ Marvel's Guardians of the Galaxy: The Telltale Series (2017) [Ru/Multi] (1.0.0.1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302753.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ Observer: System Redux (2020) [Ru/Multi] (1.1.2) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301657.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0.0.1/2017.6.29.321) Rep
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300828.jpg" />
 </div>
 
 
@@ -347,7 +425,7 @@ Norman's Night In (2019) [En] (1.0) License TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300611.jpg" />
 </div>
 
 
@@ -373,7 +451,7 @@ TSIOQUE (2018) [En/De/Pl] (1.0.5.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300375.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ Cloudpunk (2020) [Ru/Multi] (1.0) License SKiDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295132.jpg" />
 </div>
 
 
@@ -425,7 +503,7 @@ Among the Sleep (2014) [Ru/Multi] (3.0.1) License GOG [Enhanced Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294696.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ Perception (2017) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294690.jpg" />
 </div>
 
 
@@ -477,7 +555,7 @@ The Room Three (2018) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294470.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ Centralia: Homecoming (2019) [Ru/Multi] (1.8/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294344.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ Subnautica (2018) [Ru/Multi] (61056) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294340.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ Pathologic 2 (2019) [Ru/En] (1.5.29823/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294334.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ Blair Witch (2019) [Ru/Multi] (1.0/upd6) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294321.jpg" />
 </div>
 
 
@@ -592,84 +670,6 @@ Blair Witch (2019) [Ru/Multi] (1.0/upd6) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1A945BA58DEB90201DD7B288421B5A419480AD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 268938   (293378) от 11.12.2010
-
-Tales of Monkey Island: Collector's Edition / Tales of Monkey Island: Коллекционное издание [Ru/En] (Repack) 2010 | R.G. Catalyst
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293378.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тип издания: РепакЖанр: QuestЯзык озвучки: АнглийскийЯзык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60C312FD0DE8D459A83A0D8C1D1721B5744C6685
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334723   (292559) от 30.10.2019
-
-Pathologic 2 (2019) [Ru/En] (1.5.29823/dlc) Repack xatab
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мор - авторский сюжетный арт-триллер, рассказывающий о борьбе с эпидемией смертельной болезни в далеком степном городке. Город гибнет на глазах. Приходится принимать тяжёлые решения — иногда заведомо проигрышные. Песочная язва — это не просто болезнь. Всех не спасти.Чума пожирает город. Главный целитель города погибает при загадочных обстоятельствах, и вы должны (   Читать дальше...   )Тип издания: RepackРазработчик: Ice-Pick LodgeЖанр: Adventure (Horror), RPG, 1st Person, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4416DDD3EB836C3B936894D18E7059EF78C2B9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962828   (292317) от 05.12.2015
-
-Slender: The Arrival (2013) [Ru/En] (2.0) Repack R.G. Механики
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Slender: The Arrival - профессиональный ремейк жуткой истории о Слендере, от создателей оригинальной игры Slender: The Eight Pages! Новая качественная графика, увлекательный сюжет. Переосмысление оригинальной игры, которое увлечет игроков в ту же жуткую атмосферу, но при этом добавит полноценное сюжетное и геймплейное окружение.Тип издания: RepackРазработчик: Blue Isle Studios и Parsec ProductionsЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9368C0B56FBEE8917FBC5C59F85286E3CC6A9C30
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,212 @@
+###  Публикация: 1077193   (157189) от 21.12.2016
+
+Call of Duty: Ghosts (2013) [Ru/En] (1.0.749678/upd21) Rip R.G. Механики
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157189.jpg" />
+</div>
+
+
+###  Подробнее
+
+Call of Duty®: Ghosts – новая часть в серии Call of Duty. Название игры ассоциирует её с главными героями - элитным подразделением призраков, в котором когда то служил Гоуст, или лейтенант Саймон Райли, культовый персонаж серии, предательски убитый Шепардом во второй части франшизы. Мир игры приближен к постапокалипсису, что является новинкой в серии.Тип издания: RipРазработчик: Raven Software, Neversoft, Infinity WardЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C0757E7C567FA0E85F2D77399039398A118D837
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056787   (157182) от 21.12.2016
+
+Бесстыжие / Бесстыдники / Shameless (US) (2016) HDTVRip [H.264/720p-LQ] (сезон 7, серии 1-12 из 12) AlexFilm
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157182.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курсы плавания от Фрэнка, излечение от алкоголизма с Липом, адаптация к ранней беременности по методу Дебби, овладение ресторанном делом с Фионой и многое другое ждёт вас в новом сезоне о похождениях самой интересной семьи на свете. Галлагеры вернулись, а значит, осень в этом году скучной не будет точно!Производство: США, Bonanza Productions, John Wells Productions, Showtime Networks Inc., Sterling Films (V), Warner Bros. TelevisionЖанр: драма, комедияРежиссер: Кристофер Чулак, Эмми РоссамАктеры: Уильям Х. Мэйси, Эмми Россам, Камерон Монахэн, Джереми Аллен Уайт, Эмма Кинни, Итэн Каткоски, Блейк Александр Джонсон, Бреннан Кэйн Джонсон, Шанола Хэмптон, Стив Хоуи и др.Перевод: Профессиональный многоголосый закадровый - AlexFilm (ненормативная лексика)Озвучка: Евгения Тихонова, Анастасия Флигина, Константин Погодаев, Александр Дасевич, Михаил СусловЯзык субтитров: русский, английскийПродолжительность: ~ 00:55:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A9E1072517FAE24D862EF7CA413C030F7284538
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516529   (156618) от 18.12.2021
+
+Продолжение следует (игра)
+
+>>3
+>>13
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_156618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение следуетПравила игры
+Цель игры - придумать забавное продолжение развития сюжета. Это может быть слово, фраза или, при необходимости, предложение.Рекомендуется отделять задание от своего ответа кавычками, курсивом или жирным шрифтом.(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510302   (156498) от 18.12.2021
+
+Sherlock Holmes Chapter One (2021) [Ru/Multi] (7719/dlc) License GOG [Deluxe Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156498.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шерлок Холмс, ещё не величайший в мире сыщик, а дерзкий и сообразительный юнец с большими амбициями. Возможность проявить себя появляется, когда старая рана вынуждает Холмса вернуться на берега Средиземного моря, где умерла его мать. Но за беспечным шумом городских улиц звучит тревожный мотив. Преступность, коррупция, извращённое чувство справедливости — лишь некоторые (   Читать дальше...   )Тип издания: LicenseРазработчик: FrogwaresЖанр: Action, Adventure, DetectiveЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AD979D8764AA480A156D11C07C13480D4585838
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345435   (156489) от 18.12.2021
+
+Гранд тур / The Grand Tour (2019-2021) WEB-DL [H.264/1080p] (сезон 4, серии 1-4 из ?) AlexFilm (обновляемая)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156489.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Гранд Тур» — новое автомобильное телешоу, созданное бывшими ведущими Top Gear — Джереми Кларксоном, Ричардом Хаммондом и Джеймсом Мэйем. Зрителей ждут автомобильные обзоры, приключения по всему миру, встречи со знаменитостями и юмор, который является непременным атрибутом каждого выпуска.Производство: США, Великобритания / Amazon StudiosЖанр: Ток-шоу, АвтопередачаРежиссер: Фил Чурчуорд, Кит Линч Робинсон, Гэвин Уайтхед, Брайан КлейнАктеры: Джереми Кларксон, Ричард Хаммонд, Джеймс МэйПеревод: Многоголосый профессиональный (AlexFilm)Субтитры: Русские (full - Amazon), английские (forced, full, SDH)Продолжительность: 01:31:00 (одна серия)Реклама: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAAFF85D837BB32E71ED04037D9A9A04786A289A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193764   (156385) от 24.12.2017
+
+Беларусь официально разрешила криптовалюты
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_156385.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оборот цифровых валют и токенов официально введен в Беларуси, соответствующее положение закреплено в подписанном президенте декрете "О развитии цифровой экономики". Сделки с криптовалютами в республике могут осуществлять резиденты Парка высоких технологий.Президент Беларуси Александр Лукашенко подписал в пятницу декрет "О развитии цифровой экономики". (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270550   (156363) от 19.12.2018
+
+Неправильное воспитание Кэмерон Пост / The Miseducation of Cameron Post (2018) BDRip [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156363.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1993 году девушку по имени Кэмерон Пост обвиняют в сексуальной связи с королевой выпускного бала, после чего её консервативные дядя с тётей отправляют её на принудительное лечение в клинику по исправлению гомосексуалистов.Производство: США, Beachside Films, Parkville PicturesЖанр: Драма, МелодрамаРежиссер: Дезире АкхаванАктеры: Хлоя Грейс Морец, Стивен Хаук, Куинн Шепард, Керри Батлер, Далтон Хэррод, МакКейб Слей, Дэйл Соулс, Саша Лэйн, Джон Галлахер мл., Эмили СкеггсПеревод: Многоголосый закадровый, профессиональный (HDRezka Studio)Субтитры: Русские (full, отдельным файлом)Продолжительность: 01:31:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F34096C18C42F2C292DD52123706FAE96DB6B8A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329341   (156283) от 20.12.2019
+
+Choujin Koukousei-tachi wa Isekai demo Yoyuu de Ikinuku you desu! / Сверходарённым школьникам даже другой мир нипочём! [2019, TV, 12] WEBRip 720p raw
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156283.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семь гениальных японских старшеклассников покорили мир, используя свои умопомрачительные способности во всём, от политики до экономики и развлечений. В один роковой день эти гении попадают в авиакатастрофу, но оказываются не в морге… Очнувшись в другом мире, где магия и зверолюди вполне реальны, эти семеро впадают в панику — вернее, они поступили бы так, будь они (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Янаги СинсукэЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:512676D54FD5602C0B4CBC93B4996D635BD524BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193905   (156273) от 24.12.2017
 
 Nvidia отказалась от поддержки 32-битных ОС. Под угрозой Windows 7, Windows 8 и Windows 10
@@ -6,7 +215,7 @@ Nvidia отказалась от поддержки 32-битных ОС. Под
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156273.jpg" />
 </div>
 
 
@@ -33,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156231.jpg" />
 </div>
 
 
@@ -59,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156206.jpg" />
 </div>
 
 
@@ -85,7 +294,7 @@ Windows 10 Enterprise LTSB (x86/x64) Elgujakviso Edition (v.22.12.17) [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156148.jpg" />
 </div>
 
 
@@ -114,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156128.jpg" />
 </div>
 
 
@@ -140,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156082.jpg" />
 </div>
 
 
@@ -166,7 +375,7 @@ Microsoft Windows 7 Ultimate Ru x86/x64 nBook IE11 by OVGorskiy® 12.2017 1 DVD
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156081.jpg" />
 </div>
 
 
@@ -192,7 +401,7 @@ RocketDock 1.3.5 repack by Djaday (fake version 1.3.6) [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156048.jpg" />
 </div>
 
 
@@ -218,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155720.jpg" />
 </div>
 
 
@@ -244,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155660.jpg" />
 </div>
 
 
@@ -270,7 +479,7 @@ King's Bounty: Воин Севера / King's Bounty: Warriors of the North [Ru/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155542.jpg" />
 </div>
 
 
@@ -299,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155541.jpg" />
 </div>
 
 
@@ -326,7 +535,7 @@ Microsoft Windows Home Server 2011 Russian Activated
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155525.jpg" />
 </div>
 
 
@@ -353,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155517.jpg" />
 </div>
 
 
@@ -379,7 +588,7 @@ Windows 8 Professional VL x64 Optim [русский]
 >>38
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155501.jpg" />
 </div>
 
 
@@ -408,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155377.jpg" />
 </div>
 
 
@@ -435,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155344.jpg" />
 </div>
 
 
@@ -461,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155340.jpg" />
 </div>
 
 
@@ -472,214 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0F042BF8C08F5531CFCEA0EAF608784ABB4E72D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145472   (155337) от 21.12.2020
-
-MultiBoot 2k10 7.30.1 Unofficial [Ru/En]
-
->>3
->>43
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультизагрузочный диск системного администратора, базируется на загрузчиках BOOTMGR (Windows 8.1), Isolinux/Syslinux v.4.06 и Grub4Dos v.0.4.6а. Диск состоит из большого количества продуктов, обьединённых оболочкой, с возмoжностью загрузки c CD/DVD, USB Flash Drive, USB-HDD и обычного HDD. Основное предназначение - подготовка HDD, установка ОС (с вoзможностью установки (   Читать дальше...   )Язык интерфейса: русский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:009996F2BE4D16A5EE617861E085F357293F10F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085528   (155275) от 22.12.2016
-
-Total Commander 9.0a Freemen 17.0 Repack by notn [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Total Commander является самым мощным и стабильным файловым менеджером для Windows с удобным пользовательским интерфейсом. Total Commander продолжает добрую традицию двух-панельных файловых менеджеров, но отличается повышенным удобством и функциональностью, поддерживает плагины, имеет множество встроенных полезных инструментов. В программе предусмотрены функциональные (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF4C5FA6D6E36974A30907F056E03025B5A9C0DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 30863   (155231) от 22.12.2016
-
-Секунда до... (2007) DVDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие многосерийного телевизионного художественного фильма начинается с того, что молодому преуспевающему бизнесмену, сообщают о смерти его бывшей девушки. Она умерла при родах, а ребенок остался жив. Олег уверен в том, что он - отец ребенка. Принимая соболезнования от друзей и знакомых, он чувствует, что все ждут, когда же он признает своего сына. Но Олег не (   Читать дальше...   )Жанр: Мистика, психологический триллерРежиссер: Алексей КолмогоровАктеры: Константин Стрельников (Олег), Кирилл Бурдихин (Игрок), Людмила Шмелева (невеста), Денис Харитонов (дед), Евгения Бурдихина (Виолетта), Екатерина Бренер (Экстази), Александр Тютин (Архаргел), Наталья Швец (Лера), Нодар Мгалоблишвили (Демон), Лев Борисов (Валентин Михайлович), Игорь Скляр (муж Леры), Олег Тактаров (тренер), Вера Воронкова (Анна)Перевод: ОригинальныйПродолжительность: 8 серий по 50 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73AD4253032DA3BC23E35CB01AEF73586202C6D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967604   (155149) от 23.12.2015
-
-iMindMap Ultimate 9.0.1 [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155149.jpg" />
-</div>
-
-
-###  Подробнее
-
-"iMindMap" Тони Бьюзена - это вершина его работ и исследований o "Mind Maps" - термине, который он придумал несколько десятков лет назад, и который изменил жизни миллионов. Это программное обеспечение, помогающее Вам думать. Мощный инструмент для любых задач - на работе, дома или в игре. Но важно не то, что "iMindMap" позволяет Вам создавать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B17BDB78135BBDC311D71DDCBB68DFAD3030315
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968419   (155125) от 23.12.2015
-
-Спасение / Extraction (2015) WEB-DLRip
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа террористов похищает бывшего оперативного агента ЦРУ, чтобы использовать его в своих корыстных целях. Не дождавшись помощи от правительства, его сын начинает собственную операцию по спасению отца и возвращению его домой.Производство: Канада, Aperture Entertainment, Emmett/Furla Films, Oasis Films, Twirly Films LimitedЖанр: ТриллерРежиссер: Стивен С. МиллерАктеры: Брюс Уиллис, Келлан Латс, Джина Карано, Д.Б. Суини, Джошуа Микель, Стив Култер, Ден Билзерян, Хезер Йохансен, Роберт Мартин Стейнберг, Саммер ЭлтисПеревод: Многоголосый закадровый, профессиональный (Paradox & Omskbird records)Продолжительность: 01:22:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F6616961F51ACB537E2F513A1242666ADDDF75E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944428   (155111) от 23.12.2015
-
-Родина / Чужой среди своих / Homeland (2015) WEB-DLRip (сезон 5, серии 1-12 из 12) LostFilm
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155111.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой сериала — сержант ВМФ США, который после восьмилетнего плена вернулся на родину. После возвращения он начинает себя вести подозрительно. Что бы во всём разобраться, за дело берётся офицер ЦРУ, которая обвиняет сержанта в предательстве и причастности к целой серии террористических актов против Америки.Производство: США / Teakwood Lane Productions, Cherry Pie Productions, Keshet BroadcastingЖанр: триллер, драма, детективРежиссер: Лесли Линка Глаттер, Майкл Куэста, Дэниэл ЭттиэсАктеры: Клэр Дэйнс, Дэмиэн Льюис, Мэнди Пэтинкин, Морена Баккарин, Дэвид Хэрвуд, Руперт Френд, Джексон Пэйс, Морган Сэйлор, Ф. Мюррэй Абрахам, Диего Клаттенхофф и др.Перевод: Многоголосый закадровый, профессиональный - LostFilmПродолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66DFA55C90102D5FF048A3F5118E54AB886E40C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968255   (155108) от 23.12.2015
-
-Омерзительная восьмерка / The Hateful Eight (2015) DVDScr
-
->>3
->>15
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155108.jpg" />
-</div>
-
-
-###  Подробнее
-
-США после Гражданской войны. Легендарный охотник за головами Джон Рут по кличке Вешатель конвоирует заключенную. По пути к ним прибивается еще один охотник. Снежная буря вынуждает всех троих искать укрытие в лавке на отшибе, где уже расположилась весьма пестрая компания: генерал, шериф, мексиканец, француз и ковбой… И один из них — не тот, за кого себя выдает.Производство: США, The Weinstein CompanyЖанр: ВестернРежиссер: Квентин ТарантиноАктеры: Курт Рассел, Сэмюэл Л. Джексон, Тим Рот, Майкл Мэдсен, Дженнифер Джейсон Ли, Ченнинг Татум, Уолтон Гоггинс, Зои БеллПеревод: Двухголосый закадровый, любительский (Паровоз Продакшн)Субтитры: ОтсутствуютПродолжительность: 02:47:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:291AC3D6F8440B3DD85745D6FA4B10B2D438B723
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085697   (155098) от 22.12.2016
-
-The Walking Dead: A New Frontier (2016) [Ru/Multi] (1.0) Repack R.G. Механики [Episodes 1-2]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155098.jpg" />
-</div>
-
-
-###  Подробнее
-
-В туннелях метро под руинами постапокалиптической Москвы остатки человечества отражают смертоносные атаки как извне, так и изнутри. Если семья - это все, что у тебя осталось… как далеко ты зайдешь, чтоб защитить ее? Четыре года спустя после того, как зомби разодрали общество на части, в хаосе возникают карманы цивилизации. Но какой ценой?Тип издания: RepackРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2B5B75134BAA8F119AD223D88534DC3B51DD813
 ```
 
 https://mybot314.ru/tekegram_catalog/

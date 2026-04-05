@@ -6,7 +6,7 @@
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786077.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785613.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Justin Johnson - If Walls Could Talk (2016) [MP3|320 Kbps] <Roots Acoustic Instr
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783767.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Justin Johnson - Turquoise Trail: Soundtrack for a Western (2017) 2CD [MP3|320 K
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782053.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Acoustic Garden - Concept Emotional (2018) [MP3|320 Kbps] <Country, Folk, Blues>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779259.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Sally Oldfield - The Enchanted Way (2018) [MP3|320 Kbps] <Folk, Pop, Singer-Song
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778685.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776430.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768349.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766545.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Willie Nelson - First Rose of Spring (2020) [MP3|320 Kbps] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763729.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763488.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762832.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Jennifer Nettles - Playing with fire (2016) [MP3|320 кб/с] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760784.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Jann Beaudry - Legere (2019) [MP3|320 Kbps] <Ethnic>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760530.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_757704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757704.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Rosanna Cash - King's Record Shop (1987) [MP3|320 кб/с] <Folk, Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752253.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Dixie Chicks - Wide Open Spaces (1998) [MP3|320 кб/с] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752174.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750935.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Meav - The Calling (2013) [MP3|320 кб/с] <Folk, Celtic, Female Vocal>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750085.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Morgan Frazier - The Best (2015) [MP3|~245 кб/с (V0)] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746814.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Playing For Change - PFC 2 - Songs Around the World (2011) [MP3|320 Kbps] <
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746006.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Tracy Lawrence - I See It Now (1994) [MP3|320 кб/с] <Country, Folk>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743867.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Sam Green - Just Stand Still (2017) [MP3|320 Kbps] <Acoustic Folk, Acoustic Rock
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742137.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735125.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Tanya Tucker - 16 Biggest Hits (2006) [MP3|320 кб/с] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730976.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Danheim - Munarvagr (2017) [MP3|320 Kbps] <Dark Folk, Dark Ambient>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721270.jpg" />
 </div>
 
 

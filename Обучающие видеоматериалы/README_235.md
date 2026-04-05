@@ -1,3 +1,31 @@
+###  Публикация: 1662782   (187250) от 19.09.2023
+
+Udemy, Learn IT University, Andrii Piatakha | Java from Zero to First Job, Practical Guide, 2000+ examples (2022) WEB-DL [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187250.jpg" />
+</div>
+
+
+###  Подробнее
+
+Java Core, TDD, Streams, Lambdas, JPA/Hibernate, SQL, Build Tools, Git, Web Servers, HTML,Servlets, JSP, Spring Boot etc
+
+Welcome to the fundamental and the most complete course 'Java from Zero to First Job'.  As it's declared in the course name, it's created for people who want to learn programming from scratch. You need to know how to turn on your computer, no other (   Читать дальше...   )Производство: Udemy, Learn IT UniversityЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 80:04:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:377E59B3390F47B9784A99817E4A2586E2E44424
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1662907   (187238) от 19.09.2023
 
 Udemy, Andrei Dumitrescu | OpenAI API with Python Bootcamp: ChatGPT API, GPT-4, DALL·E (2023) WEB-DL [AD] [RU / EN]
@@ -6,7 +34,7 @@ Udemy, Andrei Dumitrescu | OpenAI API with Python Bootcamp: ChatGPT API, GPT-4, 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187238.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ Rebrain, Fevlake | NGINX онлайн-практикум (2023) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187226.jpg" />
 </div>
 
 
@@ -61,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187170.jpg" />
 </div>
 
 
@@ -90,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_187157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_187157.jpg" />
 </div>
 
 
@@ -116,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187155.jpg" />
 </div>
 
 
@@ -142,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_187151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_187151.jpg" />
 </div>
 
 
@@ -168,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187142.jpg" />
 </div>
 
 
@@ -197,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_187139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_187139.jpg" />
 </div>
 
 
@@ -223,7 +251,7 @@ Z-art school, Татьяна Зубова | Горная река (2020) WEB-DL 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187117.jpg" />
 </div>
 
 
@@ -249,7 +277,7 @@ Gumroad, Florian Bard | Houdini All combined Lightning Setups (2023) WEB-DL [AD]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_187042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_187042.jpg" />
 </div>
 
 
@@ -277,7 +305,7 @@ Liveclasses, Антон Мартынов | Как найти свой путь �
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187010.jpg" />
 </div>
 
 
@@ -304,7 +332,7 @@ Udemy, Alpha Omondi Ogilo | MERN Invoice Web App with Docker,NGINX and ReduxTool
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187005.jpg" />
 </div>
 
 
@@ -331,7 +359,7 @@ Udemy, Tri Dimension Education | Complete Houdini FX 19.5 Course Beginner To Adv
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_186999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186999.jpg" />
 </div>
 
 
@@ -358,7 +386,7 @@ Photoville, Игорь Новиков | Как в кино (2023) WEB-DL [AD] [R
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186974.jpg" />
 </div>
 
 
@@ -386,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186848.jpg" />
 </div>
 
 
@@ -413,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_186831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186831.jpg" />
 </div>
 
 
@@ -439,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_186821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186821.jpg" />
 </div>
 
 
@@ -465,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186804.jpg" />
 </div>
 
 
@@ -494,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186779.jpg" />
 </div>
 
 
@@ -521,7 +549,7 @@ Udemy, Eincode by Filip Jerga, Filip Jerga | Svelte and Firebase: The Full Cours
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186768.jpg" />
 </div>
 
 
@@ -548,7 +576,7 @@ Liveclasses, Алексей Шадрин | Тайны модернизма: Эг
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186765.jpg" />
 </div>
 
 
@@ -576,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186750.jpg" />
 </div>
 
 
@@ -605,7 +633,7 @@ GreyscaleGorilla, Zach Corzine | Next Level Mograph Procedural Systems in C4D (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_186729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186729.jpg" />
 </div>
 
 
@@ -634,7 +662,7 @@ Traversymedia | MERN From Scratch (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186725.jpg" />
 </div>
 
 
@@ -660,7 +688,7 @@ Udemy, Larno Visser | Adobe Firefly Master Class - The Next Step in Generative A
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186711.jpg" />
 </div>
 
 
@@ -671,32 +699,6 @@ Udemy, Larno Visser | Adobe Firefly Master Class - The Next Step in Generative A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEAD6F8497A5DE9A534162206730EA62B3359476
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662971   (186708) от 21.09.2023
-
-Евгений Уваров | Как найти пригодную женщину (2023) WEB-DLRip [RU]
-
->>Обучающие видеоматериалы
->>Психология и саморазвитие (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186708.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данном вебинаре о поиске пригодной девушки вы узнаете, как распознать ту единственную среди множества. Вы сможете лучше различать психологию непригодных для отношения спутниц и тех, с кем у вас могут сложиться длительные и доверительные отношения. Автор поделится советами, стратегиями и инсайтами, чтобы помочь вам в ходе прохождения практики и поиске второй половинки. (   Читать дальше...   )Жанр: Психология отношенийЯзык озвучки: РусскийПродолжительность: 04:27:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E77990C46027834AE3EFDBDE72A973196AFF5900
 ```
 
 https://mybot314.ru/tekegram_catalog/

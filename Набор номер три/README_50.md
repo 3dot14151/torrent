@@ -1,3 +1,163 @@
+###  Публикация: 599319   (999207) от 06.01.2013
+
+Skins kaspersky internet security 2013 3.0 [Русский]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999207.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка скинов для Kaspersky Internet Security 2013. 28 штук в одном инсталляторе. Вы получите не только измененный вид окон, но и дополнительную кнопку "Активация ключом" и некоторые дополнительные настройки.Название программы: skins kaspersky internet security 2013Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599641   (998992) от 07.01.2013
+
+Recovery Partition for ASUS K56 CM / Windows 8 (х64)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998992.jpg" />
+</div>
+
+
+###  Подробнее
+
+В раздаче содержится образ разделов Recovery жесткого диска ноутбука ASUS K56CM-XX064H
+Образ Recovery Partition ASUS K56CM.tib содержит в себе оригинальный MBR и скрытые разделы восстановления
+Образ создан программой Acronis True Image Home 2012 после первого включения ноута.Язык интерфейса: русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599649   (998991) от 07.01.2013
+
+[Автомагнитола Masushita NSDN-W59] (2009) файл для SD карты
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998991.jpg" />
+</div>
+
+
+###  Подробнее
+
+Папка PRIVATE закидывается на отформатированную sd-карту, затем вставляется в слот в нижней части дисплея. И магнитола считав файл загружается в рабочий режим.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2215C942C2D97FF9F9DA4F2E7130F0738EE8FA9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599602   (998990) от 07.01.2013
+
+Ключи для ESET NOD32, Kaspersky, Avast, Dr.Web, Avira от 06.01.2013
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998990.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник ключей для популярных антивирусных программ: ESET NOD32, Kaspersky, Avast, Dr.Web, Avira.Название программы: Ключи для ESET NOD32, Kaspersky, Avast, Dr.Web, AviraЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598572   (998987) от 07.01.2013
+
+Семь психопатов / Seven Psychopaths (2012) DVDRip [Line]
+
+>>3
+>>9
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Непутевый писатель потерял вдохновение и никак не может справиться с новым сценарием. Волей случая он оказывается втянутым в похищение собаки, затеянное его эксцентричными дружками. Выясняется, что украденное животное — любимый пёс главного местного гангстера, которому ничего не стоит в два счета вычислить и уничтожить оболтусов.Жанр: Комедия, КриминалРежиссер: Мартин МакДонаПродюсер: Грэхэм Броадбент, Питер Чернин, Мартин МакДонаАктеры: Колин Фаррелл, Сэм Рокуэлл, Кристофер Уокен, Вуди Харрельсон, Том Уэйтс, Эбби Корниш, Желько Иванек, Майкл Питт, Майкл Стулбарг, Габури СидибеПеревод: ДублированныйПродолжительность: 01:45:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61AEAE1F157C94FDF5475BD5375C5B40D6396394
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595642   (998986) от 07.01.2013
+
+Новогодний конкурс от DG Win&Soft
+
+>>3
+>>66
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новогодний конкурс от DG Win&Soft 
+Поздравляем одноклубников с наступающим Новым годом и Рождеством!
+Продолжая традицию отмечать праздники проведением общественных мероприятий, объявляем о проведении конкурса информационных  материалов (текстовых статей, очерков, обзоров) по Программному Обеспечению.Тематика: любая, на выбор автора.(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 600223   (998736) от 08.01.2013
 
 Stop SMS Uni Boot v.3.1.7 [Русский и английский]
@@ -6,7 +166,7 @@ Stop SMS Uni Boot v.3.1.7 [Русский и английский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998736.jpg" />
 </div>
 
 
@@ -33,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998722.jpg" />
 </div>
 
 
@@ -59,7 +219,7 @@ AgiliaLinux 8.1.1.1 [x86, x86-64] (2xDVD)
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998710.jpg" />
 </div>
 
 
@@ -87,7 +247,7 @@ Driver: San Francisco [Ru/En] (RePack/1.0.04.1114) 2012 l R.G.Games
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998708.jpg" />
 </div>
 
 
@@ -113,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998705.jpg" />
 </div>
 
 
@@ -139,7 +299,7 @@ Microsoft Office 2010 SP1 14.0.6029.1000 VL Select Edition x86+x64 Russian [Krok
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998703.jpg" />
 </div>
 
 
@@ -167,7 +327,7 @@ Adobe Acrobat XI (v11.0.1) Professional Multilingual
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998449.jpg" />
 </div>
 
 
@@ -202,7 +362,7 @@ Pirates of the Caribbean / Корсары 2: Пираты Карибского �
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998438.jpg" />
 </div>
 
 
@@ -229,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998436.jpg" />
 </div>
 
 
@@ -260,7 +420,7 @@ Kaspersky CRYSTAL 13.0.2.558 Technical Release [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998180.jpg" />
 </div>
 
 
@@ -288,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998166.jpg" />
 </div>
 
 
@@ -317,7 +477,7 @@ Test Drive Unlimited Gold [Ru/En] (RePack/1.66а) 2007 l R.G.Games
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998160.jpg" />
 </div>
 
 
@@ -343,7 +503,7 @@ Recovery Partition for Lenovo Ideapad V580 / Windows 8 (х64)
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997903.jpg" />
 </div>
 
 
@@ -372,7 +532,7 @@ AMD Radeon RAMDisk 4.0.1 [Английский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997630.jpg" />
 </div>
 
 
@@ -400,7 +560,7 @@ RAGE: The Scorchers [Ru] (P/1.0.34.2015) 2011 | 4xDVD5
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997627.jpg" />
 </div>
 
 
@@ -426,7 +586,7 @@ Minecraft [Ru/Multi56] (RePack/1.4.7) 2013 | danila-kokorin
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997617.jpg" />
 </div>
 
 
@@ -452,7 +612,7 @@ WPI DVD 9.01.2013 By Andreyonohov & Leha342 [Русский] (Авторская
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997616.jpg" />
 </div>
 
 
@@ -478,7 +638,7 @@ VA - 2000 Best, Gold and Grest Hit. VOL. 01-20 (2011) [MP3|184-320 kbps кб/с]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997615.jpg" />
 </div>
 
 
@@ -513,7 +673,7 @@ Hiren's Boot DVD 15.2 Restored Edition 1.1 (January 2013) [Английский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997614.jpg" />
 </div>
 
 
@@ -541,171 +701,13 @@ Corel VideoStudio Pro X5 Ultimate SP1 v.15.1.0.34 (RUS/ENG) + 79 официал�
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997613.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Corel® VideoStudio® Pro X5 — это комплексный редактор видео, в котором сочетается художественное редактирование, усовершенствованные эффекты, запись с экрана, интерактивное видео для Интернета и решение для создания дисков. Обладающий исключительным быстродействием пакет интуитивно понятных средств позволяет создавать семейные фильмы и слайд-шоу, увлекательную покадровую анимацию, осуществлять запись с экрана для презентаций, учебных пособий или других целей. Безграничные возможности благодаря усовершенствованным средствам создания композиций и блестящим художественным эффектам. Воспользуйтесь всей мощью многоядерного процессора с невиданной производительностью. Обменивайтесь видеоматериалами благодаря поддержке видео HTML5 и усовершенствованным средствам создания дисков DVD и Blu-ray™.Название программы: Corel VideoStudio Pro X5 Ultimate SP1 v.15.1.0.34 (RUS/ENG) + 79 официальных дополненийЯзык интерфейса: Русский, английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602702   (997335) от 13.01.2013
-
-Судья Дредд / Dredd  (2012) BDRip [720p] [hand made 60fps]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Будущее не столь красочно и великолепно, каким его представляют современные люди. Через несколько столетий человечество окажется на грани самоуничтожения, захлёбываясь в кровавых преступлениях, смертельных грехах и беспорядочных убийствах. Старую систему правосудия будет невозможно использовать — анархия, всеобщие беспорядки вынуждают ещё сохранившуюся власть, тем не менее, потерявшую всякий авторитет и легитимность, пойти на отчаянные крайние меры и ввести институт Судей — универсальных полицейских, правоприменителей, а по совместительству — и прокуроров, которые упростили бы весь процесс задержания, следствия и судебных тяжб, совмещая в одном лице все должности блюстителей и защитников правопорядка.Жанр: Фантастика, боевикРежиссер: Пит ТрэвисПродюсер: Алекс Гарленд, Эндрю МакДональд, Аллон РичАктеры: Карл Урбан, Оливия Тирлби, Лина Хиди, Вуд Харрис, Рэйчел Вуд, Андил Мнгади, Портес Ксандо Стинкамп, Джейсон Коуп, Эмма Бреши, Рэки АйолаПеревод: Одноголосый закадровыйПродолжительность: 01:35:51
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 571853   (997334) от 13.01.2013
-
-Любовь и голуби (1984) BDRip [720p] [hand made 60fps]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997334.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Комедия, МелодрамаРежиссер: Владимир МеньшовАктеры: Александр Михайлов, Нина Дорошина, Людмила Гурченко, Сергей Юрский, Наталья Тенякова, Янина Лисовская, Игорь Лях, Лада Сизоненко, Владимир МеньшовПродолжительность: 01:44:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBB06AEAD586D05629495E001D7970DAD0E1D19F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600276   (997329) от 13.01.2013
-
-Emperor: Battle for Dune [Ru/En] (RePack/1.09) 2001 | volkogriz
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Emperor: Battle for Dune сочетает в себе трехмерную графику и увлекательный игровой процесс классической стратегии в реальном времени. Вам предстоит сражаться за трон Вселенной, возглавлять силы 3 великих Домов Галактики, заключать альянсы с 5 фракциями и покорять земли 5 планет. И в коллективной, и в индивидуальной игре. Вы сможете командовать войсками как на стратегическом, так и на локально-тактическом уровне. Westwood представляет стратегию по мотивам романов Ф. Херберта - Emperor: Battle for Dune.(   Читать дальше...   )Тип издания: RePackЖанр: Стратегия в реальном времениЯзык озвучки: Русский + АнглийскийЯзык субтитров: Русский + АнглийскийЯзык интерфейса: Русский + Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A06B930A3CAD0E314ED73E208283391F856554F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599585   (997317) от 13.01.2013
-
-Дороги России. РФ. Версия 5.29 (FID 4941) [Карты] (Garmin)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автомобильная навигационная карта — карта, используемая навигатором для показа текущего местоположения автомобиля, построения маршрута и выдачи в реальном времени информации для совершения маневров. Автомобильная навигационная карта от «Навиком» — это карта с маршрутизацией, поиском адресов и контурами зданий, включая дороги вне города, в том числе грунтовые, железные дороги с вокзалами и остановочными пунктами, различные объекты POI (points of interest), включая гостиницы, аэропорты, транспорт, торговые центры, заправочные станции, рестораны и местные ориентирыРазработчик: Навиком
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602483   (997316) от 13.01.2013
-
-TrackMania 2 Canyon [Ru] (P) 2011
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полная адреналина игра TrackMania² Canyon подарит игрокам еще более яркие впечатления, чем оригинальная TrackMania, в которую играли миллионы. TrackMania² выходит далеко за рамки привычных гоночных игр и представляет полностью изменяемый мир трасс, созданных самими игроками! Мёртвые петли, трамплины, езда по стенам и множество других каскадерских трюков - вам предстоит гонка всей вашей жизни!(   Читать дальше...   )Тип издания: ПираткаЖанр: Arcade / Racing (Cars) / Logic (Puzzle) / 3DЯзык озвучки: -/-Язык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF4EF6AF4DA2755533A1448F8D9A148CB9EC67C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602242   (997314) от 13.01.2013
-
-Windows 7 Ultimate SP1 Ru x86 7DB by OVGorskiy 01.2013 [Русский]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997314.jpg" />
-</div>
-
-
-###  Подробнее
-
-32-х битная ОС Win7 с интегрированными обновлениями, оформлением в темно-голубом стиле и полуавтоматической установкой на 1 DVD.
-Сборка основана на официальном образе MICROSOFT MSDN:
-ru_windows_7_ultimate_with_sp1_x86_dvd_u_677463.isoНазвание программы: Windows 7 Ultimate SP1 Ru x86 7DB by OVGorskiyЯзык интерфейса: русский
 
 ## Скачать торент
 ```bash

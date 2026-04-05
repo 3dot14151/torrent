@@ -1,3 +1,32 @@
+###  Публикация: 1333319   (304572) от 24.10.2019
+
+Dire Straits - New Collection (2008) Compilation, Unofficial Release [FLAC|Lossless|image + .cue] <Rock, Blues Rock, World>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Calling Elvis[6:27]
+ 02 - On Every Street[5:05]
+ 03 - You And Your Friend[5:59]
+ 04 - Setting Me Up[3:20](   Читать дальше...   )Жанр: Rock, Blues Rock, WorldПродолжительность: 01:19:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43606C8290CDDB9FD8961ED5C83852D10A9CEE87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1423137   (304409) от 11.11.2020
 
 Wuthering Heights - Within (1999) [FLAC|Lossless|image + .cue] <Progressive Metal, Power Metal, Folk Metal>
@@ -6,7 +35,7 @@ Wuthering Heights - Within (1999) [FLAC|Lossless|image + .cue] <Progressive Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304409.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Sepsism - To Prevail In Disgust (2003) [FLAC|Lossless|image + .cue] <Brutal Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304408.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Wuthering Heights - The Shadow Cabinet (2006) 2CD [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304406.jpg" />
 </div>
 
 
@@ -91,7 +120,7 @@ The Rolling Stones - Blue and Lonesome (2016) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304297.jpg" />
 </div>
 
 
@@ -120,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304294.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ Angelica - All I Am (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, Fem
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304285.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ Alice Cooper - Raise The Dead Live From Wacken (2014) [FLAC|Lossless]<Hard Rock/
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304131.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304028.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304026.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ Opera IX - The Black Opera, Simphoniae Misteriorum In Laudem Tenebrarum (2000) [
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303596.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Crystal Ball - 2020 (2CD) (2019) [FLAC|Lossless|image + .cue] <Hard 'n' Heavy>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303542.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303539.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ Arrayan Path - Dawn Of Aquarius (2017) [MP3|320 Kbps] <Epic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303536.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ Yes - Yes (1969) Reissue, 1989, Atlantic [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303531.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ Cavalera Conspiracy - Psychosis (2017) [MP3|320 Kbps] <Groove Metal, Thrash Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303525.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ K.P.M. (ex.Eloy) - Run For Cover (1997) [FLAC|image+.cue]<Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303504.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ Amatris - Imprisoned (2007) [FLAC|Lossless|image + .cue] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303498.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ Metamorphosis - Nobody Cares (2003) [FLAC|image+.cue]<Neo-Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303481.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ Here & Now (Gong Family) - 2 CD (1978, 1999) [FLAC|Lossless]<Psychedelic/Space R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_303468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_303468.jpg" />
 </div>
 
 
@@ -560,7 +589,7 @@ Mark Lanegan - Somebody's Knocking (2019) [FLAC|Lossless|WEB-DL|tracks] <Alterna
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303431.jpg" />
 </div>
 
 
@@ -589,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303430.jpg" />
 </div>
 
 
@@ -618,7 +647,7 @@ Jinjer - Macro (2019) [MP3|320 kbps] <Metalcore, Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303425.jpg" />
 </div>
 
 
@@ -647,7 +676,7 @@ Stereophonics - Kind (2019) [FLAC|Lossless|tracks] <Indie Rock, Alternative Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303421.jpg" />
 </div>
 
 
@@ -676,7 +705,7 @@ J:МОРС - 20 лет. Полёт норм! (2019) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303410.jpg" />
 </div>
 
 
@@ -705,7 +734,7 @@ Stephen Pearcy (ex-Ratt) - View To A Thrill (2018) Japanese Edition [MP3|320 Kbp
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303394.jpg" />
 </div>
 
 
@@ -719,35 +748,6 @@ Stephen Pearcy (ex-Ratt) - View To A Thrill (2018) Japanese Edition [MP3|320 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9FBEFA025E0152B1851B50EF3CC6AA52FB92834
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960938   (303377) от 30.11.2015
-
-Bangles - Greatest Hits (1990) [FLAC|tracks+.cue]<Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303377.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hero Takes a Fall (2:54)
-02. Going Down to Liverpool (3:41)
-03. Manic Monday (3:06)
-04. If She Knew What She Wants (3:50)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:45:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DAF2E03292EC5C01FD80683CFA6A44577E4FA07
 ```
 
 https://mybot314.ru/tekegram_catalog/

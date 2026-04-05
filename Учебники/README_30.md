@@ -1,3 +1,57 @@
+###  Публикация: 1125629   (767083) от 16.04.2017
+
+А.С. Генкин | Планета Web-денег в XXI веке (2008) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767083.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир стал ареной захватывающих конкурентных поединков транснациональных финансовых корпораций, карточных и сотовых операторов за рядового потребителя. Научиться жить в новом мире поможет вам эта книга.
+Для студентов, экономистов, юристов, специалистов в области электронных платежей, предпринимателей, для всех, кто уже пользуется электронными и мобильными деньгами (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE3FE00D46514018D2A0E40E282045B04B2162CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125607   (767040) от 16.04.2017
+
+А.И. Фалько | Основы радиоприема (2017) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767040.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие содержит изложение фундаментальных принципов радиоприема. Предназначено для студентов дневной и заочной формы обучения. Для подготовки специалистов всех форм обучения направлений: «Радиотехника» и «Инфокоммуникационные технологии и системы связи». План учебного пособия содержит преимущественно изложение фундаментальных принципов радиоприема.
+  Успешное (   Читать дальше...   )Жанр: РадиотехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49C5797A1D0D7BE2D7CB075A1362A6F79FFF1607
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1125595   (766955) от 16.04.2017
 
 Г.И. Журов и др. | Основы современной цифровой фотографии (2016) [PDF]
@@ -6,7 +60,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766955.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766154.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765745.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765413.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765392.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765373.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764518.jpg" />
 </div>
 
 
@@ -193,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764485.jpg" />
 </div>
 
 
@@ -220,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764328.jpg" />
 </div>
 
 
@@ -246,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763442.jpg" />
 </div>
 
 
@@ -272,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763440.jpg" />
 </div>
 
 
@@ -298,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763433.jpg" />
 </div>
 
 
@@ -325,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763346.jpg" />
 </div>
 
 
@@ -351,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763343.jpg" />
 </div>
 
 
@@ -378,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763338.jpg" />
 </div>
 
 
@@ -404,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763227.jpg" />
 </div>
 
 
@@ -430,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762644.jpg" />
 </div>
 
 
@@ -456,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762235.jpg" />
 </div>
 
 
@@ -483,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762233.jpg" />
 </div>
 
 
@@ -509,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762225.jpg" />
 </div>
 
 
@@ -535,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762140.jpg" />
 </div>
 
 
@@ -561,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762126.jpg" />
 </div>
 
 
@@ -587,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762122.jpg" />
 </div>
 
 
@@ -613,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761993.jpg" />
 </div>
 
 
@@ -624,58 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49E10BA39B0E0B2F085CD418F85963C61B5484CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522043   (761903) от 05.01.2022
-
-Е.Н. Быкова | Оценка земель с обременениями в использовании. Теория и методика (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761903.jpg" />
-</div>
-
-
-###  Подробнее
-
-В монографии проведен анализ исторического развития оценки земельных ресурсов в мире и массовой (кадастровой) оценки в России. Определены и раскрыты основные проблемы, с которыми сталкиваются оценочные организации при проведении кадастровой оценки и интерпретации ее результатов для налогообложения. Обоснована крайне актуальная необходимость учета при оценке земельных (   Читать дальше...   )Жанр: Землеустройство, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B071D3C02586883324C9C46DD682C8C7EBCCA8B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522035   (761901) от 05.01.2022
-
-М.Б. Павлова, И.В. Самсонова | Управленческий консалтинг в АПК (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761901.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие подготовлено в соответствии с требованиями федерального государственного образовательного стандарта высшего образования по направлениям подготовки «Экономика», «Менеджмент» и с программой курса «Управленческое консультирование в АПК». Представленные в виде систематизированных иллюстраций основные понятия и определения помогут при освоении курса в (   Читать дальше...   )Жанр: Менеджмент, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD26C667BF737CC0D486326ED168135C29E68EE5
 ```
 
 https://mybot314.ru/tekegram_catalog/

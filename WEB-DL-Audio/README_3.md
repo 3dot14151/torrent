@@ -6,7 +6,7 @@ Vanishing Twin - Afternoon X (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176068.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Dismember - Death Metal (1997) Remaster, 2023, Nuclear Blast Records [FLAC 24/44
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175455.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Extrema - Tension At The Seams (2007) 30th Anniversary Edition, 2023, Extrematea
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175449.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Trivium - Vengeance Falls (2013) Remaster, 2023, Road Runner Entertainment [FLAC
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175367.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175328.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Tardigrade Inferno - Burn the Circus (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175321.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Arabs In Aspic - Arabs In Aspic - 4 Albums (2020-2022) [FLAC 24/44.1/48|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175276.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Fraction - Moon Blood (1971) Reissue, 2023, RidingEasy Records [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174113.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Living Dead Girl - Exorcism (2021) Deluxe Edition, 2023, Buried Alive Records [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174097.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Ronnie Atkins - Trinity (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174070.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ John Lennon - Imagine (1971) The Raw Studio Mixes, 2023, UMC [FLAC 24/96|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173960.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ John Lennon - Imagine (1971) The Elements Mixes, 2023, UMC [FLAC 24/96|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173945.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Creeper - Sanguivore (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Britpop, Glam R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173254.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Heavy Load - Riders of the Ancient Storm (2023) [FLAC 24/96|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173252.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ The Vintage Caravan - The Monuments Tour (2023) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173251.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Holly Humberstone - Paint My Bedroom Black (2023) [FLAC 24/96|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173241.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Kings Crown - Closer To The Truth (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173231.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173222.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Nitrate - Feel The Heat (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173213.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Golden Earring - Cut (1982) Remastered & Expanded, 2023, Red Bullet [FLAC 24/192
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173209.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Black Sabbath - Reunion (1998) 25th Anniversary Expanded Edition, 2023, Epic [FL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173197.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173178.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Whitesnake - The Purple Album (2015) Special Gold Edition, Remix, 2023, Rhino [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173175.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ The Who - Who’s Next (1971) Steven Wilson remix, 2023, UMC [FLAC 24/96|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173003.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Meduza - Meduza (2023) 2CD [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Da
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173002.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Ice Nine Kills - Welcome To Horrorwood: Under Fire (2023) [FLAC 24/44.1|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172337.jpg" />
 </div>
 
 

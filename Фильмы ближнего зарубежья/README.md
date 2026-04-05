@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061404.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057965.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055409.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054399.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053946.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053471.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052488.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Aгент & Irbis (2025) WEBRip [H.265/1440p] [2K, SDR, 8-bit]
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051575.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050815.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050805.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050150.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048298.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048256.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048061.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047993.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047335.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046799.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045972.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045890.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045714.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045555.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045340.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044915.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043518.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043120.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042940.jpg" />
 </div>
 
 

@@ -1,135 +1,3 @@
-###  Публикация: 1502263   (829900) от 13.10.2021
-
-Джеффри Уильямсон, Ларри Нил (ред.) | Кембриджская история капитализма [2 тома] (2021) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829900.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый том «Кембриджской истории капитализма» содержит подробный рассказ о развитии капитализма с самых ранних его этапов. Начиная с его далеких истоков в Древнем Вавилоне, главы тома одна за другой прослеживают его путь до «земли обетованной» капитализма в Америке. Авторы из разных стран рассуждают о вкладе цивилизаций Греции, Рима и Азии, а также империй Китая, (   Читать дальше...   )Жанр: Зарубежная образовательная литература, Общая история, История экономикиПеревод: Анна Шоломицкая, Алексей ГусевФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A57E5CD8DA9B7D6264AF527E87984FCCBC70F514
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416909   (829891) от 13.10.2021
-
-Виталий Шаповалов | Методы психологической оценки достоверности сообщаемой информации (2016) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829891.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящем методическом пособии представлен обзор зарубежных психологических методик, используемых в целях психологической оценки достоверности сообщаемой информации или так называемой неинструментальной детекции лжи. Данные методики активно используются в разных странах экспертами-психологами, сотрудниками полиции, службами безопасности предприятий, полиграфологами, (   Читать дальше...   )Жанр: Психология, ПолиграфияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C26D49A43B1B69113E297D9E362ADE2C0458FF98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502101   (829882) от 13.10.2021
-
-Н. А. Бобринский | Животный мир и природа СССР (1960) [PDF]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829882.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга профессора Н.А. Бобринского "Природа и животный мир Советского Союза" представляет собой одни из немногих научно-популярных очерков, посвященных географии животных нашей страны. После выхода первого издания в 1949 году книга стала библиографической редкостью.Жанр: ПриродаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57941D22A14C4CA10333954A8703F76E10350004
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502225   (829682) от 13.10.2021
-
-Кирилл Галанкин | Практическая кинезиология. Как перевоспитать мышцы-халтурщицы (2021) [PDF]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтобы быть здоровым, двигаться нужно правильно. Правильными мышечными движениями являются движения, в процессе которых все мышцы сокращаются и расслабляются должным образом – так, как их запрограммировала природа. Наш опорно-двигательный аппарат представляет собой хорошо выверенную и отлично сбалансированную конструкцию из сотен мышц и суставов.
-
-Знаете ли вы, что (   Читать дальше...   )Жанр: Здоровье, Научно-популярная литература, Популярно о медицинеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CDB838C1B31E11F772C49AC4DC120E2F1651F4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114789   (829571) от 16.03.2017
-
-Джонс Морган | Ламповые усилители [2-е изд.] (2011) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829571.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге известного английского автора поставлена задача научить читателя теории и практике построения высококачественных ламповых усилителей звуковой частоты класса качества High-End Поскольку на сегодняшний день «ламповый звук» становится все более популярным, причем не только среди меломанов и аудиофилов, но и среди рядовых слушателей музыки, интерес к подобной (   Читать дальше...   )Жанр: РадиотехникаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADD34B03FA31030AEB1BA7202B1B94FBA5E1F2E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1502232   (829543) от 13.10.2021
 
 М. Р. Сапин | Анатомия человека. Атлас [3 тома] (2017) [PDF]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829543.jpg" />
 </div>
 
 
@@ -164,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829515.jpg" />
 </div>
 
 
@@ -190,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829514.jpg" />
 </div>
 
 
@@ -216,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829503.jpg" />
 </div>
 
 
@@ -243,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_829415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_829415.jpg" />
 </div>
 
 
@@ -269,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829402.jpg" />
 </div>
 
 
@@ -297,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829349.jpg" />
 </div>
 
 
@@ -323,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829305.jpg" />
 </div>
 
 
@@ -350,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829294.jpg" />
 </div>
 
 
@@ -377,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829181.jpg" />
 </div>
 
 
@@ -404,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829078.jpg" />
 </div>
 
 
@@ -432,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828898.jpg" />
 </div>
 
 
@@ -458,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828719.jpg" />
 </div>
 
 
@@ -484,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828491.jpg" />
 </div>
 
 
@@ -511,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828221.jpg" />
 </div>
 
 
@@ -537,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827891.jpg" />
 </div>
 
 
@@ -563,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827793.jpg" />
 </div>
 
 
@@ -589,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827686.jpg" />
 </div>
 
 
@@ -615,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827384.jpg" />
 </div>
 
 
@@ -641,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827157.jpg" />
 </div>
 
 
@@ -667,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827085.jpg" />
 </div>
 
 
@@ -681,6 +549,136 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4894AA8DD91A98428A12CA0F5109DC436E499861
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006646   (826767) от 12.04.2016
+
+Юрий Ленчевский | СМЕРШ в тылу врага [Зафронтовая работа военной контрразведки] (2016) [FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826767.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это малоизвестно, но в годы Великой Отечественной войны легендарный СМЕРШ не только защищал и «зачищал» тылы наших войск, но и активно работал за линией фронта, на вражеской территории. Ведь немецкие шпионы и диверсанты из 130 разведподразделений. действовавших против СССР, проходили подготовку в 60 разведшколах абвера и СД — и наши военные чекисты делали всё возможное, (   Читать дальше...   )Жанр: История, CпецслужбыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A150B8B8B63147761BF348AC73DD36239AC1B09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006511   (826756) от 12.04.2016
+
+Ким Буровик | Красная книга вещей (1996) [FB2, PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга — словарь забытых вещей, известных нашему современнику лишь по литературе. В самом деле, на ком можно увидеть сегодня сюртук или визитку, роброн или кринолин. Тему издания можно определить как историческое товароведение. Вместе с тем в книгу попали и те предметы, которые приняты в нашем обиходе, но о происхождении которых многие практически ничего не знают. (   Читать дальше...   )Жанр: Энциклопедии и словари, история бытаФормат: FB2, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DE8145C5BFA0872173FCA8F9F28A37253AB3F7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006420   (826638) от 12.04.2016
+
+Архимандрит Никифор | Библейская энциклопедия [Репринт по изданию 1891 года] (2005) [PDF, DJVU, FB2, HTML, DOC, TXT]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящая  Библейская энциклопедия (архимандрита Никифора) представляет собой репринтное воспроизведение издания 1891 года. Автор — Архимандрит Никифор (в миру Алексей Михайлович Бажанов 1832—1895) — духовный писатель, богослов и настоятель Высокопетровского монастыря. Благодаря полноте, простоте и понятности содержания книга стала настольной для нескольких поколений (   Читать дальше...   )Жанр: Духовное наследиеФормат: PDF, DJVU, FB2, HTML, DOC, TXT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0228B55ADB9A4E8ABF6563479D68C020E9DB5FA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115728   (826545) от 18.03.2017
+
+И. Дворкин | О произведении В.И. Ленина "Империализм, как высшая стадия капитализма" (1953) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826545.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гениальный труд В. И. Ленина «Империализм, как высшая стадия капитализма» занимает выдающееся место в сокровищнице марксизма-ленинизма. В этом труде подвергнута глубокому марксистскому анализу новейшая и последняя стадия развития капитализма — империализм. На основе анализа империализма Ленин создал новую, законченную теорию социалистической революции, всесторонне (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3058DE995EB53079BB5BC74875AF4F3F2011372
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115725   (826539) от 18.03.2017
+
+И. Л. Юрова | Работа Ф. Энгельса "Анти-Дюринг" [В помощь самостоятельно изучающим диалектический материализм] (1960) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поводом для написания «Анти-Дюринга» послужили мелкобуржуазные воззрения приват-доцента Берлинского университета Е. Дюринга, изложенные в целом ряде его работ: «Курс философии», «Курс национальной и социальной экономии», «Критическая история национальной экономии и социализма» и др. Сами по себе взгляды Дюринга не представляли какого-нибудь научного интереса. Дюринг, (   Читать дальше...   )Жанр: История, философия, политология, науковедение, экономика, естествознаниеФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0D1DD1A8CBE64196A3F6EA914F694B2FFEB4B74
 ```
 
 https://mybot314.ru/tekegram_catalog/

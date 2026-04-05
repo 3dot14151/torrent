@@ -1,3 +1,29 @@
+###  Публикация: 661946   (1039972) от 12.01.2021
+
+В. Козин  Курс молодого электрика [2012] WEB-DLRip [H.264]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный видеокурс для тех, кто готов изучать электричество, начиная от простейших схем и заканчивая разводкой всех электрических цепей у себя дома.Жанр: Обучающее видеоПродолжительность: 02:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8604CC2178C688F91412DA28AD96551F36957949
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439444   (1039853) от 13.01.2021
 
 Кир Уланов и др. | Digital Business: Start. Пакет VIP (2017) PCRec
@@ -6,7 +32,7 @@
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039853.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039819.jpg" />
 </div>
 
 
@@ -63,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039784.jpg" />
 </div>
 
 
@@ -92,7 +118,7 @@ CG Cookie, Chunck Trafagander | Давайте создадим снеговик
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039782.jpg" />
 </div>
 
 
@@ -118,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039774.jpg" />
 </div>
 
 
@@ -146,7 +172,7 @@ Udemy, Development Island (UK) | The Complete 2020 Web Development Course - Buil
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039772.jpg" />
 </div>
 
 
@@ -173,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039766.jpg" />
 </div>
 
 
@@ -199,7 +225,7 @@ CG Fast Track | Основы Blender 2.82 части 1-3 / Blender Fundamentals 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039753.jpg" />
 </div>
 
 
@@ -228,7 +254,7 @@ Udemy, Maximilian Schwarzmüller | Angular - Полное Руководство
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039749.jpg" />
 </div>
 
 
@@ -256,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039737.jpg" />
 </div>
 
 
@@ -282,7 +308,7 @@ IQ English, Марина Озерова | IQ Speak + IQ English: Полный к
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039720.jpg" />
 </div>
 
 
@@ -311,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039709.jpg" />
 </div>
 
 
@@ -339,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039705.jpg" />
 </div>
 
 
@@ -367,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039698.jpg" />
 </div>
 
 
@@ -393,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039694.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039535.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ Michael Rigley | Design for Production: Animation (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039512.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039509.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ Udemy, Thomas Wiesner | The Complete Docker Bootcamp for Web Developers (2020) P
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039507.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ Jonathan Lampel | Creating Plants in Blender (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039504.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ Jonathan Hamilton | Painting with Ambient occlusion (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039492.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ Chung Kan | 3D Creature Modeling for Production (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039491.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ Udemy, Ian Schoonover | Code with Node JS - 2021 (2020) PCRec [En / En Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039486.jpg" />
 </div>
 
 
@@ -644,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039483.jpg" />
 </div>
 
 
@@ -673,7 +699,7 @@ Kent Trammell | Short Film Character Production in Blender (2013) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039450.jpg" />
 </div>
 
 
@@ -686,33 +712,6 @@ Kent Trammell | Short Film Character Production in Blender (2013) PCRec [En, Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DB908C5DFF0B60000A1DB1CD9D3DF81E98A8404
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439845   (1039444) от 14.01.2021
-
-Creative Writing School, Павел Миронов | Сценарист видеоигр: введение в профессию (2020) CamRip
-
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039444.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книги рассказывают, фильмы - показывают, а видеоигры - вовлекают в историю. Наш курс посвящен интерактивным медиа и нарративному дизайну - способу рассказать историю игровыми средствами.
-Игровой индустрии нужны новые кадры. Студии в России и за рубежом охотятся на разработчиков компьютерных игр: концептеров, геймдизайнеров, UI-щиков, нарративщиков. В профессиональной (   Читать дальше...   )Производство: Creative Writing SchoolЖанр: ВидеоигрыПродолжительность: 07:16:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A27464E5137366BBE9D96703684033AFE422956D
 ```
 
 https://mybot314.ru/tekegram_catalog/

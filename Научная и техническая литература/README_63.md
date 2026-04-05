@@ -1,138 +1,3 @@
-###  Публикация: 971321   (985687) от 03.01.2016
-
-Катаяма С. (ред.) | Справочник по лазерной сварке (2015) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985687.jpg" />
-</div>
-
-
-###  Подробнее
-
-В справочнике рассмотрены разнообразные лазерные и гибридные процессы сварки, сварка различных видов материалов, приведено описание металлургических, химических и механических аспектов сварки.
-    Среди технологий, предназначенных для обработки материалов лазером, особо выделяется лазерная сварка, включившая в себя последние достижения в разработке лазерных устройств. (   Читать дальше...   )Жанр: ТехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DACF46DC7C4872B61B512435DD4DE993537EB1FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612586   (985632) от 02.02.2013
-
-В. Раздольская | Европейское искусство XIX века [2005] [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985632.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга В.И.Раздольской посвящена западноевропейскому искусству первой половины XIX века. Речь идет главным образом о
-художественно-эстетических феноменах классицизма и романтизма в разных национальных традициях, хотя содержание книги не исчерпывается ими.
-Перечень имен, прославивших эпоху, говорит сам за себя: Гойя, Канова, Давид, Энгр, Рюд, Делакруа, Фридрих, Торвальдсен, Констебль,
-Тернер… Богатый, разнообразный состав редко воспроизводимых иллюстраций, сведения о художниках, творчество которых недостаточно освещено в отечественном искусствоведении, делают книгу превосходным руководством для всех, кто интересуется изобразительным искусством.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C307F41FD836BB9D39CB389F41321C1535C864AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612343   (985361) от 02.02.2013
-
-"Русич" | Книжная серия "Историческая библиотека" (7 книг) [2010-2012] [FB2, PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985361.jpg" />
-</div>
-
-
-###  Подробнее
-
-Историческая библиотека издательства Русич - небольшая серия исторических документальных книг.
-Здесь нет художественных произведений, но книги написаны вполне доступным языком и предназначены для массового читателя.Формат: FB2 (5 книг), PDF (2 книги)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ED7EDE9EB5CE83D80D646BAFD6DAD1CA8A4F614
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971653   (985323) от 03.01.2016
-
-Сергей Матвеев | Серия "Быстрый английский" [16 книг] (2012-2015) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985323.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью этой серии книг любой читатель (даже самый ленивый!) легко получит базовые знания английского языка и с уверенностью сможет совершенствовать свой английский в дальнейшем.Жанр: Английский языкФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:916558843C5DDC6C2FE45BAE0AB6668A41F53ECB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355192   (984978) от 25.01.2020
-
-И. Коган | Всеобщая забастовка 1903 г. (1928) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984978.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга об одном из первых солидарных выступлений российского пролетариата против капиталистической эксплуатации и царского самодержавия - Всеобщей забастовки 1903 года.Жанр: История, политология, публицистика, социологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0AA456270CF1B1F15CFEAA73A1857358E7DED7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355119   (984916) от 25.01.2020
 
 С.С. Шибаев и др. | Акустооптические процессоры. Алгоритмы и погрешности измерений (2019) [PDF]
@@ -141,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984916.jpg" />
 </div>
 
 
@@ -167,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984865.jpg" />
 </div>
 
 
@@ -196,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984830.jpg" />
 </div>
 
 
@@ -224,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984829.jpg" />
 </div>
 
 
@@ -250,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984828.jpg" />
 </div>
 
 
@@ -276,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984814.jpg" />
 </div>
 
 
@@ -303,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984781.jpg" />
 </div>
 
 
@@ -329,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984780.jpg" />
 </div>
 
 
@@ -357,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984779.jpg" />
 </div>
 
 
@@ -383,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984776.jpg" />
 </div>
 
 
@@ -409,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984775.jpg" />
 </div>
 
 
@@ -435,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984767.jpg" />
 </div>
 
 
@@ -461,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984761.jpg" />
 </div>
 
 
@@ -490,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984701.jpg" />
 </div>
 
 
@@ -516,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984700.jpg" />
 </div>
 
 
@@ -543,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984698.jpg" />
 </div>
 
 
@@ -571,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984697.jpg" />
 </div>
 
 
@@ -597,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984696.jpg" />
 </div>
 
 
@@ -623,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984694.jpg" />
 </div>
 
 
@@ -649,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984690.jpg" />
 </div>
 
 
@@ -675,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984688.jpg" />
 </div>
 
 
@@ -687,6 +552,136 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E143ACAC57116AC9B28CA9489C2F299F0312AB4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971807   (984684) от 04.01.2016
+
+Жак Лакан | Телевидение (2000) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984684.jpg" />
+</div>
+
+
+###  Подробнее
+
+Текст классика современного психоанализа, в «популярной» форме резюмирующий основные принципы его дискурсивной практики применительно к различным областям повседневного человеческого существования.Жанр: Социальная психологияПеревод: А. К. ЧерноглазовФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF1D5D68B2331BF20A9372D341498F0700604012
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971535   (984683) от 04.01.2016
+
+Джесси Л. Байок | Исландия эпохи викингов (2012) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джесси Л. Байок — специалист по древнеисландскому языку и средневековой Скандинавии, профессор отделения скандинавистики и Котсеновского института археологии при Университете штата Калифорния в Лос-Анджелесе. Джесси Л. Байок руководит археологической экспедицией “Мшистая гора” в Исландии. Его перу принадлежат многочисленные работы по средневековой Исландии и сагам, (   Читать дальше...   )Жанр: ИсторияПеревод: И. В. СвердловФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BD7AF7C7E0DD47870597F91213B19D825A48BC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971537   (984659) от 04.01.2016
+
+А. А. Иваненко | Философия как наукоучение: Генезис научного метода в трудах И. Г. Фихте (2012) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984659.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемое монографическое исследование посвящено генезису метода науки в наукоучении И. Г. Фихте, творчество которого отмечено стремлением строго обосновать не только ее содержание, но и форму. В качестве приложения публикуются впервые осуществленные переводы статей И. Г. Фихте «Об основании нашей веры в божественное мироправление», «О различии духа и буквы в (   Читать дальше...   )Жанр: ФилософияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:300B42EF43F4FE677654F122C99E11480B09FABF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971770   (984657) от 04.01.2016
+
+В. Г. Эрман | Очерк истории ведийской литературы (1980) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый в нашей стране труд, систематически излагающий  историю раннего периода развития индийской литературы (вторая половина II тысячелетия — середина I тысячелетия до н. э.).  В книге подробно характеризуются важнейшие памятники и  группы памятников, дается их идейно-эстетическая оценка в  контексте общекультурных традиций древней Индии.Жанр: История, литературоведение, эстетика, культурология, философияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96EF19CC60A90D47C4228F4BF69A7C26A675779F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971541   (984656) от 04.01.2016
+
+Иоганн Готлиб Фихте | Система учения о нравах согласно принципам наукоучения; Наукоучение 1805 г.; Наукоучение 1813 г.; Наукоучение 1814 г. (2006) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984656.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящем издании впервые на русском языке представлены четыре сочинения выдающегося немецкого философа Иоганна Готтлиба Фихте (1762-1814): «Система учения о нравах» 1798 г. и «Наукоучения» 1805, 1813 и 1814 гг. «Система учения о нравах» является главным этическим произведением Фихте. Публикуемые «Наукоучения» представляют собой разработку устных лекций, читавшихся (   Читать дальше...   )Жанр: ФилософияПеревод: В. В. МурскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84B411BA9E2612159C6291566E28FB2DAB3EB4F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

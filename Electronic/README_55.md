@@ -1,3 +1,64 @@
+###  Публикация: 598597   (999702) от 05.01.2013
+
+PROMID - Sound Of Worship (2012) [MP3|320 кб/с]<Lounge, ChillOut>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caress
+02. Don't Forget Me
+03. Eternal Love
+04. Memory of Past Love
+05. Solitude
+06. Trailing Ancestors
+07. New Life
+08. Dependent Heart
+09. Sound of Worship
+10. Towards FreedomЖанр: Lounge, ChillOutПродолжительность: 00:54:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFBFA10D49CA66F6128059A8E07B4EF5B0DD2710
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598662   (999668) от 05.01.2013
+
+VA - Zirkus Zirkus: Elektronische Tanzmusik Vol.1 (2013) [FLAC|Lossless]<Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Tech House, Deep House, ProgressiveПродолжительность: 03:00:39
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 597321   (999165) от 07.01.2013
 
 VA - N.Y.C Fashion Night: Selected Deep House Tracks (2012) [MP3|320 кб/с]<Deep House>
@@ -6,7 +67,7 @@ VA - N.Y.C Fashion Night: Selected Deep House Tracks (2012) [MP3|320 кб/с]<De
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999165.jpg" />
 </div>
 
 
@@ -41,7 +102,7 @@ VA - Music For Cocktails: Collection (2003-2009) 12CD [MP3|320 кб/с]<Lo-Fi, L
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999077.jpg" />
 </div>
 
 
@@ -76,7 +137,7 @@ VA - Dances Dream Lights (2013) (07.01.2013) [MP3|320 кб/с]<Club, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998133.jpg" />
 </div>
 
 
@@ -111,7 +172,7 @@ VA - Ultra Dubstep (2012) [MP3|320 кб/с]<Dubstep>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998073.jpg" />
 </div>
 
 
@@ -146,7 +207,7 @@ VA - Electro House Winter (2012) [MP3|320 кб/с]<House, Trance>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997885.jpg" />
 </div>
 
 
@@ -181,7 +242,7 @@ VA - Deep In My Soul (2013) [MP3|320 кб/с]<Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997863.jpg" />
 </div>
 
 
@@ -216,7 +277,7 @@ VA - The Art Of Fighting! Vol.1 (2013) [MP3|320 кб/с]<Deep House, Nu Disco, I
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997588.jpg" />
 </div>
 
 
@@ -251,7 +312,7 @@ VA - Best Of Electronique 2012 (2013) [MP3|320 кб/с]<Deep House, Nu Disco>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997555.jpg" />
 </div>
 
 
@@ -286,7 +347,7 @@ Savant - Alchemist (2012) [FLAC|Lossless]<Dubstep, Electro House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997503.jpg" />
 </div>
 
 
@@ -321,7 +382,7 @@ Will.I.Am & Britney Spears - Scream & Shout (CD Single) (2013) [FLAC|Lossless]<H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997154.jpg" />
 </div>
 
 
@@ -348,7 +409,7 @@ VA - Electro House 2012 Best Of (2012) [MP3|320 kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996472.jpg" />
 </div>
 
 
@@ -383,7 +444,7 @@ Lemongrass - Discography (1998-2012) [MP3|320 кб/с]<Electronic, Downtempo, Ch
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996045.jpg" />
 </div>
 
 
@@ -418,7 +479,7 @@ VA - Clubbers Night Vol.2 - 50 Essential House Tunes (2012) [MP3|320 kbps] <Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995951.jpg" />
 </div>
 
 
@@ -453,7 +514,7 @@ Dusky - Stick By This (2011) [FLAC|Lossless]<Progressive House, House, Downtempo
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995891.jpg" />
 </div>
 
 
@@ -488,7 +549,7 @@ VA - Ministry Of Sound Pump It Up 2013 (2013) [MP3|320 kbps] <Club, House, Progr
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995874.jpg" />
 </div>
 
 
@@ -523,7 +584,7 @@ David West Feat. Andreas Hermansson - Larry Mountains 54 (2005) [FLAC|Lossless]<
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995662.jpg" />
 </div>
 
 
@@ -550,7 +611,7 @@ Cathy Battistessa - Une Nouvelle Humanite (2012) [FLAC|Lossless]<Deep House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995263.jpg" />
 </div>
 
 
@@ -578,7 +639,7 @@ VA - Cafe Bossa Brazil Vol. 1 - Bossa Nova Lounge Compilation (2012) [MP3|320 к
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995174.jpg" />
 </div>
 
 
@@ -613,7 +674,7 @@ VA - Bigroom Dance & House (2012) [MP3|320 кб/с]<Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994935.jpg" />
 </div>
 
 
@@ -648,7 +709,7 @@ Answer42 - Shoreline / Tucano (2010) [FLAC|Lossless]<Progressive House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994931.jpg" />
 </div>
 
 
@@ -675,7 +736,7 @@ KMFDM - Greatest Shit (2CD) (2010) [MP3|320 kbps]<Industrial Rock/Metal>
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994198.jpg" />
 </div>
 
 
@@ -710,7 +771,7 @@ Morcheeba Productions - Cool Your Soul (2019) [FLAC|Lossless|WEB-DL|tracks] <Tri
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993283.jpg" />
 </div>
 
 
@@ -739,7 +800,7 @@ The Midnight - The Midnight Remixed 02 (2019) [FLAC|Lossless|WEB-DL|tracks] <Dee
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992681.jpg" />
 </div>
 
 
@@ -768,7 +829,7 @@ VA - Warm Yourself Lounge (Chillout Your Mind) (2020) [FLAC|Lossless|WEB-DL|trac
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992637.jpg" />
 </div>
 
 
@@ -782,64 +843,6 @@ VA - Warm Yourself Lounge (Chillout Your Mind) (2020) [FLAC|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A34C7F6C4EE6E906F5225585E1F721E1AA386F0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353372   (991871) от 18.01.2020
-
-Chromatics - Closer to Grey (2019) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Indie Pop, Dreampop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sound Of Silence (03:16)
-02. You're No Good (04:52)
-03. Closer To Grey (02:45)
-04. Twist The Knife (03:28)(   Читать дальше...   )Жанр: Synthpop, Indie Pop, DreampopПродолжительность: 02:54:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8E6EFD74C2F4928B2F495D9DBA4B6FC3E682CA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353411   (991814) от 18.01.2020
-
-Gioli & Assia - Night Experience (2018) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cherry Blood (The Intro) (3:35)
- 02. Love Me (3:23)
- 03. Sweet All (3:38)
- 04. Underwater (4:12)(   Читать дальше...   )Жанр: EDM, Progressive House, Tech HouseПродолжительность: 00:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:263FDA140CAB2E561C24793D738D6D5A29DEC0A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

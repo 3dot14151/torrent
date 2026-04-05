@@ -1,3 +1,269 @@
+###  Публикация: 1849404   (1053510) от 22.01.2026
+
+Проекты - VideoHive - Prism Halation Transitions - 61548439 [AEP]
+
+>>Проекты
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот шаблон After Effects содержит 20 атмосферных переходов с эффектом призматического гало. 20 горизонтальных и 20 вертикальных версий. Вы можете редактировать и настраивать цвета и места для размещения медиафайлов.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3DD8DE02838BA5DA30E8BB01605FA23C4537EC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849485   (1053475) от 23.01.2026
+
+Проекты - VideoHive - Vertical Hearts Transitions - 61547206 [AEP]
+
+>>Проекты
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vertical Hearts Transitions — это очаровательный, нежный и невероятно актуальный набор переходов для After Effects, созданный специально для вертикального контента. Использование динамичных форм сердец позволяет переключаться между сценами мягко и эмоционально, мгновенно добавляя видеоряду нотки любви и позитива.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44D604D2AB962E737DFFFCBF93DAB58C268BA4BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848306   (1052810) от 16.01.2026
+
+Проекты - VideoHive - Fashion Opener - 61426763 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052810.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fashion Opener — это ультрасовременный, яркий и провокационный шаблон для After Effects, который задает новые стандарты стиля в видеомонтаже. Сочетание смелой типографики, резких переходов и безупречного чувства ритма превращает любой видеоряд в динамичный модный показ, достойный мировых подиумов.
+
+Этот проект создан для тех, кто хочет выделяться. Он идеально балансирует (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D56541678128D46C75BBE722507B206261EF65AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848331   (1052777) от 16.01.2026
+
+Проекты - VideoHive - Logo Animation - 61436671 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052777.jpg" />
+</div>
+
+
+###  Подробнее
+
+Logo Animation AE — это лаконичный, стильный и универсальный шаблон для After Effects, созданный для тех, кто ценит чистоту дизайна и профессионализм. Плавная анимация появления, выверенная динамика и отсутствие лишнего визуального шума позволяют сфокусировать все внимание зрителя на самом главном — вашем бренде.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5962C18659D6F93482859D49B029B5BC4206F57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848076   (1052620) от 15.01.2026
+
+Проекты - VideoHive - Fashion Opener - 61450838 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052620.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fashion Opener — это стильный, дерзкий и невероятно притягательный шаблон для After Effects, созданный, чтобы превратить любой видеоряд в обложку глянцевого журнала. Смелая типографика, ритмичная смена кадров и элегантные переходы создают атмосферу высокой моды и современного лайфстайла.
+
+Этот проект — идеальный инструмент для брендов и авторов, которые хотят быть (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF1AE5F83E42C3F79A28BBBC04D4B40C7AB12DC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848083   (1052611) от 15.01.2026
+
+Проекты - VideoHive - News Opener - 61437397 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052611.jpg" />
+</div>
+
+
+###  Подробнее
+
+News Opener — это профессиональный, динамичный и авторитетный шаблон для After Effects, разработанный для создания новостных заставок высшего вещательного качества. Сочетание стильной 3D-графики, элементов глобальной карты и строгой, четкой типографики мгновенно придает вашему контенту вес и серьезность федерального телеканала.
+
+Этот проект — идеальное решение для (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:514C78AB74473A99F6A07D397FBC39F84822007D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848194   (1052528) от 16.01.2026
+
+Проекты - VideoHive - Neon Pack - 61435399 [AEP]
+
+>>Проекты
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052528.jpg" />
+</div>
+
+
+###  Подробнее
+
+Яркий набор светящихся заголовков, значков и фонов — все выполнено в чистом неоновом стиле, который отлично подходит для музыкальных клипов, промо-роликов и всего, что нуждается в свечении. Все элементы полностью анимированы и готовы к использованию в вашем проекте. Вы можете настраивать цвета, изменять скорость и смешивать элементы, чтобы получить именно тот вид, (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01C0E57FF236E901432F2D5D097477128528D367
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848205   (1052520) от 16.01.2026
+
+Проекты - VideoHive - Yoga Sports Running Gym Fitness Titles - 60941464 [AEP]
+
+>>Проекты
+>>Спортивные (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Yoga Sports Running Gym Fitness Titles — это энергичный, мотивирующий и универсальный набор анимированных титров для After Effects, созданный специально для индустрии спорта и здорового образа жизни. От спокойной эстетики йоги до агрессивного драйва кроссфита — этот пак адаптируется под любой ритм тренировки.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9112362888B33469AF444C3B08EE0AD9237CC344
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847915   (1052439) от 15.01.2026
+
+Проекты - VideoHive - Bounce Text Animation: 29 Kinetic Bounce Typography Presets for After Effects - 61469055 [AEP]
+
+>>Проекты
+>>Разное (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессиональная коллекция из 29 кинетических пресетов для анимации текста в After Effects , созданная как целенаправленный набор инструментов для создания чистой, выразительной типографической анимации. Каждый пресет разработан таким образом, чтобы выглядеть динамично, современно и контролируемо , и имеет гибкую структуру, позволяющую за считанные секунды изменять (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:087942A117D1CAD02B6C96BA3F473DDEF995450F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847958   (1052413) от 15.01.2026
+
+Проекты - VideoHive - Wind & Smoke Titles - 61452770 [AEP]
+
+>>Проекты
+>>Титры (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wind Smoke Titles — это завораживающий, таинственный и глубоко кинематографичный шаблон для After Effects, который превращает ваши заголовки в эфирную материю. Элегантная анимация густого дыма и тумана, раздуваемого потоками ветра, создает атмосферу драмы, тайны и эпического спокойствия.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFF70974E43637CDA8820665BFD330E3863E40A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1847690   (1052382) от 13.01.2026
 
 Проекты - VideoHive - Paper Unfold Animation Pack - 61368355 [AEP]
@@ -6,7 +272,7 @@
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052382.jpg" />
 </div>
 
 
@@ -34,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052289.jpg" />
 </div>
 
 
@@ -60,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052274.jpg" />
 </div>
 
 
@@ -86,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052242.jpg" />
 </div>
 
 
@@ -112,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052232.jpg" />
 </div>
 
 
@@ -138,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052224.jpg" />
 </div>
 
 
@@ -164,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052193.jpg" />
 </div>
 
 
@@ -190,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052121.jpg" />
 </div>
 
 
@@ -216,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052099.jpg" />
 </div>
 
 
@@ -242,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052093.jpg" />
 </div>
 
 
@@ -268,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052073.jpg" />
 </div>
 
 
@@ -294,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052032.jpg" />
 </div>
 
 
@@ -320,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051844.jpg" />
 </div>
 
 
@@ -346,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051706.jpg" />
 </div>
 
 
@@ -372,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051676.jpg" />
 </div>
 
 
@@ -398,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051601.jpg" />
 </div>
 
 
@@ -409,273 +675,6 @@ Transitions Toolbox —  это превосходный инструмент д
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1FF581271D732029157D8DD9F0034214A0ECCFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846867   (1051577) от 09.01.2026
-
-Проекты - VideoHive - Slideshow Photo Slideshow - 61249415 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051577.jpg" />
-</div>
-
-
-###  Подробнее
-
-Slideshow - Photo Slideshow — это элегантный, универсальный и вдохновляющий шаблон для After Effects, созданный, чтобы превратить ваши фотографии в живую и трогательную историю. Плавные переходы, чистое оформление и мягкая динамика позволяют зрителю полностью погрузиться в просмотр, не отвлекаясь на лишние визуальные шумы.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FF8B984E8D7A3AAB85CA349C95B8D1C4676B8A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846607   (1051439) от 08.01.2026
-
-Проекты - VideoHive - News Intro V 0.4 - 61366354 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051439.jpg" />
-</div>
-
-
-###  Подробнее
-
-News Intro V.04 — это профессиональная и авторитетная заставка для After Effects, созданная в лучших традициях мирового телевещания. Вращающийся цифровой глобус, стильная инфографика и динамичные плашки превращают любой видеоряд в серьезный новостной выпуск, вызывающий доверие у аудитории.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:373B288CFEB04EFF9C905655D07BB7BD711A8475
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846622   (1051431) от 08.01.2026
-
-Проекты - VideoHive - Camera Shake, Motion Blur, Flicker & RGB Toolkit for After Effects - 61364261 [AEP]
-
->>Проекты
->>Разное (проекты)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051431.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессиональная коллекция из 36 основных визуальных эффектов для After Effects. Разработана как базовый набор инструментов для создания спецэффектов, охватывающий наиболее часто используемые базовые эффекты: дрожание камеры, размытие, мерцание, эффект «рыбий глаз», свечение и RGB-эффекты.
-
-Этот пакет представляет собой практичную, готовую к использованию основу (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D2E6933CB4BD95E9AFF491D52BD9E80B398C179
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846634   (1051419) от 08.01.2026
-
-Проекты - VideoHive - Split Transition - 61273228 [AEP]
-
->>Проекты
->>Элементы (проекты)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051419.jpg" />
-</div>
-
-
-###  Подробнее
-
-Transitions Toolbox —  это превосходный инструмент для Adobe After Effects, который привносит инновации и поднимает искусство переходов в ваших проектах на новый уровень. С Transitions Toolbox вы оцените удобство и универсальность сотен креативных эффектов переходов. Благодаря нашей разнообразной и обширной коллекции вы можете создавать плавные и профессиональные (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:289AB036C7198364FF93128E0B02993013AFF07A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846664   (1051382) от 08.01.2026
-
-Проекты - VideoHive - Kinetic Typography Maker 3D | Procedural Text Animation Engine for Custom Layouts No-Keyframes - 61385043 [AEP]
-
->>Проекты
->>Разное (проекты)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051382.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легко создавайте полностью автоматизированные анимации, которые мгновенно адаптируются к вашим текстовым слоям. Разрабатывайте собственные типографические макеты и наблюдайте, как они оживают благодаря выразительной анимации. Да, это действительно так просто!
-
-Просто добавьте текстовые слои, и пусть кинетический типографический движок сделает все остальное.
-Оживите (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FACC074B0C4E9E994672ED27B4C64FAA9459C0DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845923   (1051106) от 04.01.2026
-
-Проекты - VideoHive - Glitch Logo Reveal - 61095149 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051106.jpg" />
-</div>
-
-
-###  Подробнее
-
-Glitch Logo Reveal — это мощный, дерзкий и высокотехнологичный шаблон для After Effects, который добавляет вашему бренду цифровую остроту. Эффекты искажения, хроматические аберрации и «битые» пиксели.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E879EB1C7CFB6EBC4DFC585BEAAFA45BB68E7DD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845970   (1051067) от 04.01.2026
-
-Проекты - VideoHive - Dynamic Split Opener - 61076428 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dynamic Split Opener — это лаконичный и энергичный шаблон для моушн-дизайна, отличающийся четкими переходами, смелыми макетами с разделенным экраном и плавной оптической анимацией.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:295367FDFF7A2B733BEAB087B83475BA6F3D3939
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845995   (1051046) от 04.01.2026
-
-Проекты - VideoHive - Laptop Mockup Presentation - 61046351 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот шаблон After Effects идеально подходит для продвижения вашего бизнеса, стартапа или личного мобильного приложения.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D990465262C5EA66C4D3C5D792DDC007D45EF05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845830   (1050999) от 03.01.2026
-
-Проекты - VideoHive - Film Dust Light Leak Transitions Pack AE - 61327167 [AEP]
-
->>Проекты
->>Элементы (проекты)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор переходов Film Dust Light Leak Transitions Pack — это кинематографическая коллекция из 11 высококачественных переходов, призванных придать вашим видео аутентичный кинематографический вид. Каждый переход сочетает в себе реалистичные частицы киноплёнки с органичными эффектами утечки света, вдохновлёнными аналоговыми камерами и винтажными киноплёнками.
-
-Эти переходы (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFCD67FFE8CAC4FEBCA3E02D26C885DD164F108C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845831   (1050998) от 03.01.2026
-
-Проекты - VideoHive - Fast Sport Intro - 61312058 [AEP]
-
->>Проекты
->>Спортивные (проекты)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050998.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fast Sport Intro — это мощный, дерзкий и высокоскоростной шаблон для After Effects, созданный для тех, кто живет движением. Резкая смена кадров, агрессивная типографика, гранжевые текстуры и эффектные глитч-переходы создают атмосферу чистого адреналина.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C67101C8859DA9403428EF2D2A456B6A7291056
 ```
 
 https://mybot314.ru/tekegram_catalog/

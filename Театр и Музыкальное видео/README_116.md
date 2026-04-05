@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213735.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ JinSoul - Ring of Chaos [4K 60fps 24bit BagsUpZ] 2025 (2025) WEBRip [H.265/2160p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213444.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Miyeon - Sky Walking (Special) (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213443.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ SooRin - Sure Thing (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213442.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Song HaYea - Why did you love me (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213441.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Winter (aespa) - Spark (2024) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213440.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ aespa - Live Tour Synk Parallel Line in Tokyo Dome [Special Edition] (2025) [H.2
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213439.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213351.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213182.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213176.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Eminem & Snoop Dogg - From The D 2 The LBC (2022) WEB-DL [H.264/1080p] <Alternat
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212869.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Gary Moore. Live at Monsters of Rock (2003) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212838.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ THE JEFF HEALEY BAND «SEE THE LIGHT» (1989) DVD-5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212788.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Bonnie Tyler - Live In Germany (1993/2011) DVD5 <Pop Rock>
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212763.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Blue Cheer: Rocks Europe (2009) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212760.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Depeche Mode - Live at VOLT Festival, Sopron, Hungary (2018) WEB-DL [H.264/1080p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211328.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210519.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210477.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210453.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210363.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Bollywood: новогодний киноконцерт / Bollywood Mix Video (20
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210238.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ eRa - The Live Experience 2019 (2022) CamRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210129.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209961.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209944.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209822.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209793.jpg" />
 </div>
 
 

@@ -1,3 +1,135 @@
+###  Публикация: 1674653   (160736) от 06.11.2023
+
+Shingeki no Kyojin: The Final Season (2023) | Attack on Titan The Final Season (2023) | Атака титанов: Финал [2023, Web, 2 эп.] WebRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160736.jpg" />
+</div>
+
+
+###  Подробнее
+
+Судьба мира висит на волоске, когда Эрен высвобождает высшую силу Титанов - "дрожь земли". С решимостью уничтожить всех, кто угрожает Элдии, он ведет за собой армию Колоссальных Титанов, которая направляется к Марли. Теперь разношерстная команда его бывших товарищей и врагов пытается помешать его смертоносной миссии, вопрос лишь в том, смогут ли они остановить (   Читать дальше...   )Производство: Япония, Студия: MAPPAЖанр: приключения, фэнтези, драмаРежиссер: Хаяси ЮйтироПеревод: DEEP (Эльвира Данилова)Язык озвучки: Японский и русский (DEEP (Студийная Банда, АниЛибрия))Субтитры: РусскиеПродолжительность: 1я часть: 61 мин., 2я часть: 85 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5B1AC8B4248CD2E3D1810C10A2848074898EA33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675039   (160576) от 07.11.2023
+
+Meitantei Holmes | Sherlock Hound | Великий детектив Холмс [1984, TV, 26 из 26] BDRip 1080p HEVC 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160576.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие в сериале происходит в викторианской Англии, населённой исключительно собаками, каковыми являются и Шерлок Холмс, и доктор Ватсон, и их злейший враг профессор Мориарти. Холмс тут значительно моложе и подвижнее, чем у Конан Дойля, а миссис Хадсон - вообще молоденькая барышня, играющая немалую роль в происходящих событиях. Большие или маленькие, все дела важны (   Читать дальше...   )Производство: TMS Entertainment / トムス・エンタテインメントЖанр: приключения, комедия, детективРежиссер: Микурия КёсукэПеревод: targonЯзык озвучки: японский, русскийСубтитры: русские, английскиеПродолжительность: 26 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6289F8C7494E37B203D875FD54F59A19CCC5EDFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675047   (160568) от 07.11.2023
+
+Meitantei Holmes: Aoi Ruby no Maki / Kaitei no Zaihou no Maki | Sherlock Hound: Blue Carbuncle/Sunken Treasure | Великий детектив Холмс: Дело о голубом рубине/Дело о сокровищах со дна моря [1984, M ...
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160568.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый голубой рубин был украден очень сложным путём, что под силу только одному злодею в мире — профессору Мориарти. В дело вступает Шерлок Холмс, чтобы вернуть украденную драгоценность, а также наставить молодого карманника на правильный путь.
+Во второй части Мориарти нацелился на ещё более крупную аферу — кражe сверхсекретной подводной лодки из состава ВМФ. (   Читать дальше...   )Производство: TMS Entertainment / トムス・エンタテインメントЖанр: приключения, комедия, детективРежиссер: Миядзаки ХаяоПеревод: TolstiyMobЯзык озвучки: японский, русскийСубтитры: русские, английскиеПродолжительность: 50 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F19627DAD64389BFB1D64D26350B3600B982EA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675607   (160112) от 09.11.2023
+
+Midnight Eye Gokuu II | Goku II: Midnight Eye | Гоку II: Полуночный глаз [1989, OVA, 1 из 1] BDRip 1080p HEVC 10-bit raw+rus+eng
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160112.jpg" />
+</div>
+
+
+###  Подробнее
+
+У частного детектива Гоку Фуриндзи новое дело. Он берётся помочь таинственной женщине Рёко Кадома найти и спасти её брата Рю, ставшего объектом военного эксперимента по созданию нового оружия. Последствием экспериментального вмешательства стала практически полная потеря человеческой сущности Рю: он превратился в неконтролируемую машину для убийств.
+Сможет ли Гоку (   Читать дальше...   )Производство: Madhouse / マッドハウスЖанр: приключения, фантастика, детективРежиссер: Кавадзири ЁсиакиПеревод: КапитанЯзык озвучки: японский, русский, английскийСубтитры: русские, английскиеПродолжительность: 50 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60FBBE2DF5DE25545A5817BA83E3C77DB6513982
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675606   (160098) от 09.11.2023
+
+Midnight Eye Gokuu | Goku: Midnight Eye | Гоку: Полуночный глаз [1989, OVA, 1 из 1] BDRip 1080p HEVC 10-bit raw+rus+eng
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160098.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полицейский Гоку Фуриндзи покинул службу, чтобы стать частным детективом, находя эту работу более подходящей для себя. Он мастерски флиртует, глупо шутит, лихо машет кулаками и живо работает мозгами, но главное, доводит даже самые паршивые дела до конца, в общем, тот самый сыщик, которого себе обычно представляет клиент, и которому заказчик готов довериться на все (   Читать дальше...   )Производство: Madhouse / マッドハウス, Toei Animation / 東映アニメーションЖанр: приключения, фантастика, детективРежиссер: Кавадзири ЁсиакиПеревод: uncutЯзык озвучки: японский, русский, английскийСубтитры: русские, английскиеПродолжительность: 50 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D5617169C3ACC5C613E53FDA891108C311953D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1581547   (159678) от 23.12.2022
 
 Время ниндзя | Shinobi no Ittoki [2022, TV, 12 из 12] WEBRip 1080p Raw+Rus
@@ -6,7 +138,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159678.jpg" />
 </div>
 
 
@@ -33,7 +165,7 @@ Gekijouban Fate/Stay Night: Heaven's Feel | Судьба: Ночь схватк�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159513.jpg" />
 </div>
 
 
@@ -59,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159119.jpg" />
 </div>
 
 
@@ -85,7 +217,7 @@ Shingeki no Kyojin Season 2 | Attack on Titan Season 2 | Атака титано
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159046.jpg" />
 </div>
 
 
@@ -113,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158783.jpg" />
 </div>
 
 
@@ -140,7 +272,7 @@ Donten ni Warau / Laughing Under the Clouds / Смех под облаками [
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158138.jpg" />
 </div>
 
 
@@ -166,7 +298,7 @@ Netojuu no Susume / Recovery of an MMO Junkie / Жизнь онлайн [2017, T
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157986.jpg" />
 </div>
 
 
@@ -192,7 +324,7 @@ Mushishi Zoku Shou / Мастер Муси (ТВ-2) [2014, TV, 11 ep] BDRip Hi10
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157427.jpg" />
 </div>
 
 
@@ -218,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156386.jpg" />
 </div>
 
 
@@ -245,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156319.jpg" />
 </div>
 
 
@@ -271,7 +403,7 @@ Ousama Game The Animation / King's Game The Animation / Королевская �
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156185.jpg" />
 </div>
 
 
@@ -297,7 +429,7 @@ Juuni Taisen / Война Двеннадцати [2017, TV, 12 ep] WEB-DL 720p R
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156172.jpg" />
 </div>
 
 
@@ -323,7 +455,7 @@ Inuyashiki / Инуяшики [2017, TV, 11 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156161.jpg" />
 </div>
 
 
@@ -349,7 +481,7 @@ Seikoku no Dragonar / Dragonar Academy / Академия Драконьих Н�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155680.jpg" />
 </div>
 
 
@@ -375,7 +507,7 @@ Gekijouban Fairy Tail -Dragon Cry- | Fairy Tail: Dragon Cry | Хвост Феи:
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154940.jpg" />
 </div>
 
 
@@ -401,7 +533,7 @@ Kono Subarashii Sekai ni Bakuen wo! | Konosuba: An Explosion on this Wonderful W
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154836.jpg" />
 </div>
 
 
@@ -427,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154540.jpg" />
 </div>
 
 
@@ -454,7 +586,7 @@ Shoukoku no Altair / Altair: A Record of Battles / Альтаир: На Поро
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154501.jpg" />
 </div>
 
 
@@ -482,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154466.jpg" />
 </div>
 
 
@@ -508,7 +640,7 @@ Utawarerumono: Tusukuru-koujo no Karei Naru Hibi | Прославленный: �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153872.jpg" />
 </div>
 
 
@@ -534,7 +666,7 @@ Utawarerumono | Прославленный [2009, OVA, 3 + 3] BDRip 1080p HEVC 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153381.jpg" />
 </div>
 
 
@@ -545,137 +677,6 @@ Utawarerumono | Прославленный [2009, OVA, 3 + 3] BDRip 1080p HEVC 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9971EA19A0514A7D8591518316C970D00458091E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601040   (153351) от 29.12.2022
-
-Utawarerumono: Itsuwari no Kamen | Utawarerumono: The False Faces | Прославленный: Маска лжеца [2015, TV, 25 + 8] BDRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153351.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Белый бог» Хакуоро ушел, но обещал вернуться, а тем временем мир далекого будущего не стоит на месте – зверолюди, сменившие человечество, активно развиваются, осваивая новые земли, строя государства и сражаясь с чудовищами, наследием былых катаклизмов. Юная путешественница Куон находит в горах беспамятного паренька человеческой расы и дает ему имя Хаку (догадались, (   Читать дальше...   )Производство: White FoxЖанр: приключения, фэнтезиРежиссер: Мотонага КэйтароПеревод: Nachtwandler (эпизоды 01-25), Zabr (спешиалы 01-08)Язык озвучки: японский, русскийСубтитры: русскиеПродолжительность: 25 эп. по 25 мин. + 8 спешиалов (склеены в 2 файла по 12 мин.)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67CFE6E6313024C07364C08517EF346C22035576
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601032   (153344) от 29.12.2022
-
-Utawarerumono | Shadow Warrior Chronicles | The One Being Sung | Прославленный [2006, TV, 26 + 4] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153344.jpg" />
-</div>
-
-
-###  Подробнее
-
-Человек в железной полумаске очнулся в глухой деревне. Маска не снимается, про полученные раны памяти нет, даже имя где-то потерялось, а вокруг незнакомый мир, и неизвестно чего ждать. Впрочем, вскоре выяснилось, что не все так плохо – кругом симпатичные и дружелюбные зверолюди с ушками и хвостиками, знахарка Тускуру, в чьем доме лечится пришелец, оказалась мудрой (   Читать дальше...   )Производство: OLM / オー・エル・エムЖанр: приключения, фантастика, фэнтези, романтикаРежиссер: Кобаяси ТомокиПеревод: Tail & Hollow (эпизоды 01-26 + спешиал 01), Blaise (спешиалы 02-03), RS (спешиал 04)Язык озвучки: японский, русскийСубтитры: русскиеПродолжительность: 26 эп. по 25 мин. + 4 спешиала по 7-10 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF87185E2382DDE533C285ABB97A316AADE34500
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968685   (152818) от 24.12.2015
-
-Bishoujo Senshi Sailor Moon Crystal / Pretty Guardian Sailor Moon Crystal / Прекрасная воительница Сейлор Мун: Кристалл [2014, TV, 26 ep] BDRip Hi10p 720p Raw+Rus(ext)
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152818.jpg" />
-</div>
-
-
-###  Подробнее
-
-Давным-давно Солнечной системой правила мудрая и прекрасная Лунная королева Сирэнити, а ее покой охраняли воительницы, владеющие силами планет. Увы, этого не хватило, чтобы остановить врага, явившегося из глубин космоса. Хрустальный Город пал, и в последнем бою королева пожертвовала собой, чтобы погрузить сильнейших противников в сон, а собственную дочь и воинов (   Читать дальше...   )Жанр: приключения, махо-сёдзёРежиссер: Сакай МунэхисаПеревод: Русские субтитры от Timecraft
-Переводчик: Seiya Loveless, Редакторы: Adelheid, Bel-chan, Оформление: Surokune, Перевод песен: ZoolСубтитры: ASS, Полные | Надписи (внешними файлами)Формат: MKVПродолжительность: 26 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:648C8E62D8F6AFEEBCD12B2AC344653D7314EE55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347100   (152654) от 22.12.2019
-
-Tejina Senpai | Фокусница-старшеклассница | Magical Sempai [2019, TV, 12 из 12] BDRip HEVC 10-bit 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152654.jpg" />
-</div>
-
-
-###  Подробнее
-
-Безымянный главный герой уныло бродит по новой школе в попытках найти клуб, куда ему захотелось бы вступить. Правда, вступать ему особо никуда не хочется, но школьные правила того требуют. В своих скитаниях он забредает в комнатку, где в одиночестве репетирует фокусы Тэдзина — странная, но милая доморощенная иллюзионистка, которая к тому же страдает от парализующего (   Читать дальше...   )Производство: Япония, студия Liden FilmЖанр: комедия, эттиРежиссер: Усуй ФумиакиПеревод: Crunchyroll.Язык озвучки: Русский закадровый многоголосый (Crunchyroll), (AniDub), (AniLibria)Язык субтитров: Русский, English, Français, Español, Italiano, German, PortuguêsПродолжительность: 12 эпизодов по 12 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:008D20FAA55FFEE117427CE03E200B33B8C7EDC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194572   (152651) от 26.12.2017
-
-Boruto: Naruto the Movie / Боруто: Фильм Наруто [2015, MV] BDRip 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152651.jpg" />
-</div>
-
-
-###  Подробнее
-
-Боруто Узумаки — сын Наруто Узумаки, героя Скрытого листа и Седьмого Хокаге. Главный герой сея истории весьма одарен, но ненавидит работу Наруто и поэтому считает его неважным отцом. Боруто считает своего отца героем, и в его сердце возникает желание превзойти героический путь отца, и лучшей идеей для этого становится намерение стать учеником человека, который знал (   Читать дальше...   )Жанр: приключения, комедия, боевые искусства, сёнэнРежиссер: Ямасита ХироюкиЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 95 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B5F7A16BB48E7B6E0CFEFE4C591BEEA4AD6968B
 ```
 
 https://mybot314.ru/tekegram_catalog/

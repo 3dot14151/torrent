@@ -1,161 +1,3 @@
-###  Публикация: 1349831   (1004023) от 03.01.2020
-
-Роланд Гесс | Книги по Blender [4 книги] (2009-2012) [PDF] [En]
-
->>Компьютерная литература
->>3D графика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004023.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книги автора Roland Hess по 3D моделированию, анимации, физической симуляции и видео монтажу в Blender.Жанр: 3D моделирование, АнимацияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB33FBB37B7C1F161AD20252533BF146E1946F81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349848   (1003938) от 03.01.2020
-
-Книжная серия | Компьютерный покет [4 книги] (2015-2017) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия компактных самоучителей карманного формата, посвященных наиболее актуальным и популярным вопросам, связанным с компьютером, офисными приложениями и интернетом. Все книги серии отличает доступное и наглядное изложение, понятное читателям любых возрастов.Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D97B86690943434E07E4AB8C76B914853FE06791
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350038   (1003672) от 04.01.2020
-
-Л.К. Бабенко и др. | Параллельные алгоритмы для решения задач защиты информации (2014) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кратко представлены основные составляющие современных криптографических систем: симметричные алгоритмы шифрования, асимметричные алгоритмы шифрования, функции хэширования. Основной упор сделан на рассмотрение практической возможности применения существующих способов анализа современных криптосистем с целью оценки их криптографической стойкости.
-В работе рассмотрен (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05F3B7E6F3D2C20FB05FE6366C9B3E1A7C5E3003
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 106380   (1003641) от 04.01.2020
-
-Зинаида Лукьянова | 26 полезных статей для начинающих Фотошоп-мастеров [2008] [PDF]
-
->>Компьютерная литература
->>2D графика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003641.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это книга в PDF формате, которая содержит 26 статей посвященных фотошопу.
-Как Вы скорее всего уже знаете, фотошоп - это очень мощная и местами достаточно сложная программа. Именно эта мощь и вызывает сложности у многих новичков и приводит к неразберихе в голове.Возможно, и с Вами произошла подобная история, и Вы, время от времени, задаете себе подобные вопросы. Поэтому (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF1FF7A9F3F25589D96C219D3D3FE558AD0D121F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839237   (1003323) от 27.11.2025
-
-В.А. Падарян | Архитектура ЭВМ и язык ассемблера [конспект лекций] (2020) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный курс имеет своей целью изучение базовых принципов устройства современных ЭВМ, анализ качественных и количественных характеристик различных компонент ЭВМ, анализ влияния этих характеристик на работу прикладных программ. Помимо того, в рамках курса предполагается практическое освоение языка ассемблера архитектуры IA-32, изучение особенностей этой процессорной (   Читать дальше...   )Жанр: Учебное пособиеИздательство: Teach-In. Лекции ученых МГУФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3809A3D656DD961E7E13BE20497B5790D1497298
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487570   (1003205) от 06.08.2021
-
-Вильям Спрингер | Гид по Computer Science, расширенное издание (2021) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многие из моих знакомых разработчиков пришли в профессию из самых разных областей. У одних — высшее образование в области Computer Science, другие изучали фотографию, математику или даже не окончили университет. Эта книга для всех вас. Многие найдут здесь темы, интересные сами по себе. Я попытался показать, в каких реальных (неакадемических) ситуациях эти знания (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:926249EC13E242C297C87EEE1D153109A86CF1F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1487785   (1002983) от 07.08.2021
 
 Ralf Hacker | Active Directory глазами хакера (2021) [PDF]
@@ -164,7 +6,7 @@ Ralf Hacker | Active Directory глазами хакера (2021) [PDF]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002983.jpg" />
 </div>
 
 
@@ -190,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002246.jpg" />
 </div>
 
 
@@ -216,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001894.jpg" />
 </div>
 
 
@@ -242,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001851.jpg" />
 </div>
 
 
@@ -269,7 +111,7 @@ Packt Publishing | Книги по Blender [31 книга] (2008-2018) [PDF, EPU
 >>3D графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001535.jpg" />
 </div>
 
 
@@ -296,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001501.jpg" />
 </div>
 
 
@@ -322,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001247.jpg" />
 </div>
 
 
@@ -348,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001244.jpg" />
 </div>
 
 
@@ -374,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001235.jpg" />
 </div>
 
 
@@ -400,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001212.jpg" />
 </div>
 
 
@@ -426,7 +268,7 @@ Apress | Книги по Blender [4 книги] (2009-2020) [PDF, EPUB] [En]
 >>3D графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000977.jpg" />
 </div>
 
 
@@ -453,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000946.jpg" />
 </div>
 
 
@@ -480,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000774.jpg" />
 </div>
 
 
@@ -506,7 +348,7 @@ Dariush Derakhshani | Introducing Autodesk Maya 2013 / Знакомство с A
 >>3D графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000109.jpg" />
 </div>
 
 
@@ -534,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999821.jpg" />
 </div>
 
 
@@ -564,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997448.jpg" />
 </div>
 
 
@@ -591,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997347.jpg" />
 </div>
 
 
@@ -619,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997340.jpg" />
 </div>
 
 
@@ -647,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997338.jpg" />
 </div>
 
 
@@ -676,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997196.jpg" />
 </div>
 
 
@@ -688,6 +530,172 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:001295C47D79BDC2349739EE522650F2C770B958
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603871   (996592) от 16.01.2013
+
+В.Байдаков, В.Дранищев | 1С: Предприятие 8.2. Руководство разработчика прикладных решений [2009] [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996592.jpg" />
+</div>
+
+
+###  Подробнее
+
+Руководство содержит описание общей концепции системы 1С:Предприятие 8, принципов администрирования системы 1С:Предприятие 8 и служебных режимов работы, а также рассказывает о приемах работы с объектами системы, о создании индивидуальных пользовательских интерфейсов и наборов прав пользователей.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CF11ABD419EEA0F2F4884CB26F65769FE05F5D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604827   (996013) от 18.01.2013
+
+Робин Никсон | Ubuntu для всех [2011] [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996013.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга - полное руководство по работе в операционной системе Ubuntu. Описаны все варианты ее установки, конфигурирование рабочего стола, в том числе настройка клавиатуры, мыши, монитора, управление принтерами. Обсуждаются файловая система Linux, работа с командной строкой, установка и удаление программ, администрирование, многопользовательская среда, безопасность системы. Рассматриваются сетевые возможности - общий доступ к файлам и папкам, работа в Интернете, новый сервис Ubuntu One. Кратко описаны пакет OpenOffice.org, мультимедийные и игровые возможности, совместимость с другими популярными ОС, запуск Windows-приложений с помощью Wine.
+Книгу отличает простой и понятный стиль изложения с минимальным употреблением профессионального жаргона.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBF872137E9755C4CF5EEFBC8317E24B409DF69A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605188   (995754) от 19.01.2013
+
+Jeremy Keith | The Mobile Book by Smashing Magazine [2012] [PDF] [En]
+
+>>Компьютерная литература
+>>Веб-дизайн
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга будет полезна веб-дизайнерам и дизайнерам для мобильных устройств. Наглядно описаны современные тенденции в сфере отзывчивых мобильных веб-сайтов и мобильных интерфейсов. Даны оперделения базовым паттернам для отзывчивых вебсайтов, особенности проектирования и создания интерфейсов для планшетов и смартфонов. Советы при верстке и создании отзывчивых вебсайтов. Описаны примеры удачного взаимодействия развития мобильных устройств в повседневной жизни.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02E33F3816C44B1AF3FA173BA08C6712F15A77B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605180   (995705) от 19.01.2013
+
+Т. Крамарская | Microsoft SQL Server 2008 R2 для поддержки системы «1С:Предприятие 8» [2011] [JPEG]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995705.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс рассчитан:
+
+на администраторов и системных инженеров, занимающихся установкой, конфигурированием и поддержкой систем 1С, использующих Microsoft SQL Server.
+Цель обучения:
+
+овладеть знаниями и навыками администрирования и сопровождения SQL Server 2008 R2 для поддержки системы " 1С:Предприятие 8":
+Изучить особенности установки SQL Server 2008 R2 для системы "1С:Предприятие 8".
+Освоить практику управления файлами базы данных системы "1С:Предприятие 8".
+Научиться настраивать безопасность и политику аудита базы данных системы "1С:Предприятие 8".
+Научиться разрабатывать стратегию восстановления данных.(   Читать дальше...   )Формат: JPEG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69996174C32E4C37E3782A715096A71818BEE3CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607432   (994625) от 22.01.2013
+
+Orin Thomas | Windows Server 2008 R2 Secrets / Секреты Windows Server 2008 R2 [2011] [PDF] [En]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994625.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга для системных администраторов, работающих в сети на Windows Server 2008. Изложены малоизвестные приемы по развертыванию и обслуживанию сервера: общий доступ и безопасность, удаленное управление, AD, резервное копирование, управление IIS и др.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE6AE036AACA7B251A846DCDD4B33E35DD972989
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607080   (994401) от 23.01.2013
+
+«ProTechnologies» | Введение в Creo Parametric [2011] [DJVU]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга содержит 28 модулей, позволяющих освоить основной функционал программы. В дополнение к книге к каждому модулю есть файлы моделей Creo, на которых предлагается выполнять упражнения.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:494116C4FD96C68469334811713E11B11B533F6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

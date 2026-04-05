@@ -1,3 +1,29 @@
+###  Публикация: 1180046   (342348) от 03.11.2017
+
+Елена Семёнова | Добровольцы. Век XXI. Битва за Новороссию в портретах её героев (2015) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Военная слава часто бывает несправедлива. В народной памяти обычно остаются лишь имена вождей и командиров (даже тех, что бывали оной не очень-то и достойны), редко - отдельных рядовых бойцов, волею судьбы вырванных из многотысячного строя имяреков. А ведь среди тех воинов-имяреков куда как немало ещё героев, чьи подвиги нисколько не уступали известным. Но их имена (   Читать дальше...   )Жанр: История, ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80B0BEDA40BEE20D3A757A3FEBA05446C0CB642A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1180112   (342245) от 03.11.2017
 
 Елена Семёнова | Украина: русофобия, репрессии, геноцид. Материалы для будущего трибунала (2016) [PDF, DJVU]
@@ -6,7 +32,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342245.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342184.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342018.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342002.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341856.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341648.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340904.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340891.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340517.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340231.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339091.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338421.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338008.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337774.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337685.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337646.jpg" />
 </div>
 
 
@@ -433,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337560.jpg" />
 </div>
 
 
@@ -460,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337356.jpg" />
 </div>
 
 
@@ -488,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336916.jpg" />
 </div>
 
 
@@ -516,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335622.jpg" />
 </div>
 
 
@@ -542,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335402.jpg" />
 </div>
 
 
@@ -568,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334677.jpg" />
 </div>
 
 
@@ -596,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334436.jpg" />
 </div>
 
 
@@ -622,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334347.jpg" />
 </div>
 
 
@@ -648,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333945.jpg" />
 </div>
 
 
@@ -659,33 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35C841F1DDB0B3470E6578DB0FC6AA85B76B217C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420253   (333885) от 31.10.2020
-
-Алексей Иванов | Быть Ивановым. Пятнадцать лет диалога с читателями (2020) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333885.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот сборник – результат 15-летнего диалога писателя Алексея Иванова со своими читателями. Вначале это была переписка в вопросах и ответах, затем она переросла сетевой формат и превратилась в многосторонний анализ нашей жизни и процессов, происходящих в политике, экономике, публицистике, культуре и писательском ремесле.
-Один из самых известных и ярких прозаиков нашего (   Читать дальше...   )Жанр: ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B2178F691E86C16EF1BA5623B42972831A9AF14
 ```
 
 https://mybot314.ru/tekegram_catalog/

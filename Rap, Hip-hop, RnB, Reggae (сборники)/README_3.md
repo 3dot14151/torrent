@@ -6,7 +6,7 @@ VA - 150 Best Songs RnB Nation (2019) [MP3|320 Kbps] <RnB, Soul>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_753360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_753360.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Rapper's Delight (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748299.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Dark Thunder Riddim (2019) [MP3|320 Kbps] <Reggae, Dub, Ska>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748281.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Dread Zeppelin - The Song Remains  (2020) Compilation [MP3|320 Kbps] <Reggae, Ro
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745438.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - New Music Friday (2018) [MP3|320 Kbps] <Rap, Hip Hop, RnB>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743239.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Songs Of Freedom (2019) [MP3|320 Kbps] <Reggae, Dub, Ska>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742458.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Situations: Rap New Generation (2019) [MP3|320 Kbps] <Rap, Hip Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742455.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - German Top 40 DBC Deutsche Black Charts 15.02.2019 (2019) [MP3|320 Kbps] <R
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739673.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Rap NNM 2022 [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736373.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Eminem & Britney Spears - We Together (2011) [MP3|256 кб/с]<Rap>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736049.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Stick Figure - Compilation (2022) [MP3|320 Kbps] <Reggae>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735362.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ VA - Summer Reggae Song (2020) [MP3|320 Kbps] <Reggae, Ska, Dancehall, Reggaeton
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_735217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_735217.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ VA - Rap NNM 2020 (Русский Выпуск 2) [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734222.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ VA - New Release Dancehall (2CD) (2022) [MP3|320 Kbps] <Dancehall, Riddim, Dub, 
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733555.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ VA - Reggae And Love: Soul Music (2019) [MP3|320 Kbps] <Reggae, Dub, Ska>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732050.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ VA - City Salamander (2019) [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730020.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ VA - Reggae Sound System (2019) [MP3|320 Kbps] <Reggae, Ska, Dancehall>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726529.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ VA - Worldwide Rap Singles - Июль 2020 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724991.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ VA - Jum Summer Reggae (2016) [MP3|256-320 кб/с] <Reggae, Blues>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723955.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ VA - Midday Riddim (2020) [MP3|320 Kbps] <Reggae, Dancehall, Riddim>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721182.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ VA - Beach Party Reggae (2022) [MP3|320 Kbps] <Reggae, Ska, Soul, Riddim, Reggae
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714628.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ VA - Rnb Soul Musical Collection (2020) [MP3|320 Kbps] <R&B, Soul>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713052.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ VA - Vintage Reggae Cafe: Hits Collection (2022) Presents Elgujakviso [MP3|320 K
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712478.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Nana - Collection от ALEXnROCK (2018) [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700304.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ VA - Sing A New Song (2019) [MP3|320 Kbps] <Reggae, Dub Ska, Soul>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699634.jpg" />
 </div>
 
 
@@ -735,7 +735,7 @@ VA - German Top 40 DBC Deutsche Black Charts 08.03.2019 (2019) [MP3|320 Kbps] <R
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697640.jpg" />
 </div>
 
 

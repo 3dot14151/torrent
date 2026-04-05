@@ -6,7 +6,7 @@ Bandai Namco | Артбук по играм Tekken / The Art of Tekken: A Comple
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605926.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605683.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Tanya Lapointe | Артбук по фильму Бегущий по лезвию
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605605.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604025.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Alex Ross и др. | Артбук по комиксам DC Comics / Mythology: T
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603882.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Corrado Mastantuono | Артбук художника Corrado Mastantuono / The 
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603869.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603021.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593443.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591556.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Justin Springer | Артбук по фильму Трон: Наследие / Th
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590636.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585122.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585118.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584201.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576742.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575030.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574978.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574896.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Aron Coleite | Ultimate X-Men-Fantastic Four Annual [2008] [CBR]
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574892.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574632.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574604.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574464.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573037.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570715.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568543.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566981.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566601.jpg" />
 </div>
 
 

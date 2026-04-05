@@ -1,3 +1,61 @@
+###  Публикация: 1018613   (754147) от 21.05.2016
+
+VA - Black Hole House Music 05-16 (2016) [MP3|320 кб/с] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manufactured Superstars - Carry You Home (Disco Fries Remix) (feat. Iossa) 4:32
+02. Betsie Larkin - We Are the Sound (Futuristic Polar Bears Remix) 4:26
+03. Gunslinger - Roadhouse 4:09
+04. Max Graham - Amnesia (Original Mix) 6:16(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:23:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27A06A06C6FD5BB389D4BE9F2F5A654EC627A191
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018941   (754100) от 21.05.2016
+
+VA - Tribal House Sensations Vol. 3 (2016) [MP3|320 кб/с] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ricky Vario - Extreme Beats (Original Mix)
+02. Mark De Lord - Wireless Drum (Original Mix)
+03. Fernando Venga - Tribal Tuning (Original Mix)
+04. Juan Salva - Percussion Tribe (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:23:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F520B6CA199B93A4A7EF34773AB98FD68B0F0548
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018925   (754090) от 21.05.2016
 
 VA - Spring Tube Sampler 07 (2016) [MP3|320 кб/с] <Deep House, House>
@@ -6,7 +64,7 @@ VA - Spring Tube Sampler 07 (2016) [MP3|320 кб/с] <Deep House, House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754090.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Michael Rade - Dadala (2016) [MP3|320 кб/с] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752422.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Sirup Deep Anthems Ibiza 2016 (2016) [MP3|320 кб/с] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752341.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Garten Lounge Musik (2016) [MP3|320 кб/с] <House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750270.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Big Party: EDM Anthems (2019) [MP3|320 Kbps] <Big Room, Progressve House, F
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748514.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - We Love House (2019) [MP3|320 Kbps] <House, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748512.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Dancefloor Hits (2019) [MP3|320 Kbps] <House,  Progressive House, Electro H
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748506.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Poolside Miami 2018 (Mixed by Kraak & Smaak) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747855.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Fitness Beats 2018 - 24 Workout & Fitness Gym Music Hits [MP3|320 Kbps] <Ho
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747840.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Good Old Days Vol 3: Disco House Sounds (2019) [MP3|320 Kbps] <Disco, Nu-Di
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746705.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Einfach Nur Mugge 2018 [MP3|320 Kbps] <House, Deep House, Big Room>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746237.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Love Nightlife, Vol. 2 The Lounge Room Grooves (2018) [MP3|320 Kbps] <House
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746131.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Love Nightlife, Vol. 1 The Lounge Room Grooves By Kolibri Musique (2017) [M
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746127.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Welcome To Miami (2019) [MP3|320 Kbps] <House, FutureHouse, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745400.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Gregory Esayan - Pilgrim's Diary (2016) [MP3|320 кб/с] <Progressive House , B
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745390.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ The Soundlovers - People (1997) [MP3|320 Kbps] <Euro House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744872.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Hi_Tack - Say Say Say (Waiting 4 U) (2006) Enhanced [MP3|~245 Kbps (V0)] <House,
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743843.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Tokyo Kick Boxing Hits 2020 Session [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741362.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ BK - Klub Kollaborations (2003) [MP3|320 Kbps] <House, Hard House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741232.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Beach Party Sunset (2017) [MP3|320 Kbps] <Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741182.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Deep Ibiza Opening Party (2017) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741114.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Intricate Rec 4 Year Anniversary (2016) [MP3|320 кб/с] <House, Progressi
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741068.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Workout 2019 Aerobic Hits. Music For Fitness & Workout 128 BPM/32 Count [MP
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741064.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - IBIZA 2016 - Locked, Loaded and Ready to Roll (2016) [MP3|320 кб/с] <Dee
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740992.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - IBIZA 2016 - Locked, Loaded and Ready to Roll (2016) [MP3|320 кб/с] <Dee
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9289C8D9B621CE5C63F3BB6B04BE916574FC0833
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127186   (740908) от 20.04.2017
-
-VA - Training Hits 2017 Workout Music (2017) [MP3|320 Kbps] <House, Electro>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turbotronic - Bambadang (Radio Edit) [03:13]
-02. Flip Capella - Hava Nagila (Radio Mix) [03:14]
-03. Teknova - E (Radio Edit) [03:24]
-04. Noelia - A Volar (Radio Edit) [03:43](   Читать дальше...   )Жанр: House, ElectroПродолжительность: 01:48:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE53F4D0275069B312295E1073FC85958A2B9922
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283372   (740388) от 16.02.2019
-
-VA - Deep Sundays, Vol.1 (2019) [MP3|320 Kbps] <House, DeepHouse>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gray Zone - People On The Move (Philter Mix) 3:16
-02. Mike Morrow - You Are (Eau De Musique Mix) 3:19
-03. Kenny Daniels - High On Emotion (Original Mix) 3:16
-04. Express Five - In The Past (Original Mix) 3:16(   Читать дальше...   )Жанр: House, DeepHouseПродолжительность: 01:17:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C89A9F29156C72CF7E3355387ABEA96C1F26838
 ```
 
 https://mybot314.ru/tekegram_catalog/

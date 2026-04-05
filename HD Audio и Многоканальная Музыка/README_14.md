@@ -1,29 +1,3 @@
-###  Публикация: 312323   (829947) от 22.03.2011
-
-Bad Haggis - Span [DTS 5.1 CD-Audio] (2004) <Celtic, Irish, International>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829947.jpg" />
-</div>
-
-
-###  Подробнее
-
-1  Mysterious IntegrationЖанр: InternationalПродолжительность: 01:01:35
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1115091   (829699) от 16.03.2017
 
 The Doors - Strange Days (1967) Reissue, 1991 [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Psychedelic Rock>
@@ -32,7 +6,7 @@ The Doors - Strange Days (1967) Reissue, 1991 [FLAC 2.0|192/24|image + .cue|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829699.jpg" />
 </div>
 
 
@@ -61,7 +35,7 @@ Electric Light Orchestra - Eldorado (1974) [FLAC 2.0 24/192|image (Vinyl-Rip)]<P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829271.jpg" />
 </div>
 
 
@@ -90,7 +64,7 @@ Moya Brennan – Two Horizons (2003) [DTS 5.1 44.1/16 | .wav+.cue (SACD)] <celti
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828796.jpg" />
 </div>
 
 
@@ -119,7 +93,7 @@ Emmylou Harris - Producers Cut (2002) [DTS 5.1 CD-Audio|44.1/16|image+.cue|DVD-A
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828144.jpg" />
 </div>
 
 
@@ -148,7 +122,7 @@ Patricia Barber – Clique! (2021) [DTS 5.1 CD-Audio|44.1/16|image+.cue|DXD-DL] 
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826501.jpg" />
 </div>
 
 
@@ -177,7 +151,7 @@ Nazareth - Легенды Зарубежного Рока (1999) Unofficial Rele
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826499.jpg" />
 </div>
 
 
@@ -206,7 +180,7 @@ Smokie - Легенды Зарубежного Рока (1999) Unofficial Releas
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826412.jpg" />
 </div>
 
 
@@ -235,7 +209,7 @@ Andy Williams - The Andy Williams Sound of Music (1968) 2xLP [FLAC 2.0|96/24|ima
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826134.jpg" />
 </div>
 
 
@@ -264,7 +238,7 @@ VA - Песни Виктора Дорохина и Любови Воропаев
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825797.jpg" />
 </div>
 
 
@@ -293,7 +267,7 @@ Ambra – Child Of The Universe (2003) [DSD 5.1, 2.0 1bit/2822,4kHz | SACD-R] <N
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824907.jpg" />
 </div>
 
 
@@ -322,7 +296,7 @@ Fiona Joy Hawkins - 600 Years in a Moment (2013) [DTS 5.1 CD-DA|44.1/16|image+cu
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824796.jpg" />
 </div>
 
 
@@ -351,7 +325,7 @@ Bonnie Tyler - Natural Force (1978) [WavPack 2.0|192/32|image+.cue|Vinyl-Rip] <P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824358.jpg" />
 </div>
 
 
@@ -380,7 +354,7 @@ Depeche Mode - Spirit (2017) [FLAC 2.0|24/192|image+.cue|Vinyl-Rip] <Synth-Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_822065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822065.jpg" />
 </div>
 
 
@@ -409,7 +383,7 @@ AIX Records - A Demonstration and Test Disc (2003) [DTS 5.1 CD-DA|44.1/16|image+
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820896.jpg" />
 </div>
 
 
@@ -438,7 +412,7 @@ Rainbow - Bent Out Of Shape (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Har
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816626.jpg" />
 </div>
 
 
@@ -467,7 +441,7 @@ Halestorm - The Strange Case Of... (2012) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Ha
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815733.jpg" />
 </div>
 
 
@@ -493,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815567.jpg" />
 </div>
 
 
@@ -522,7 +496,7 @@ Inside the Music: Women on Top (2001) [DTS 5.1 CD-DA|44.1/16|image+cue|DVD-Audio
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815263.jpg" />
 </div>
 
 
@@ -551,7 +525,7 @@ Checkfield - Surrounded (2002) [DTS 5.1 CD-DA|44.1/16|image+cue|DVD-Audio] <smoo
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815255.jpg" />
 </div>
 
 
@@ -580,7 +554,7 @@ Cinderella - Long Cold Winter (1988) [WavPack 2.0|192/32|image+.cue|Vinyl-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814903.jpg" />
 </div>
 
 
@@ -609,7 +583,7 @@ Smokie - The Montreux Album, The Other Side Of The Road (1978, 1979) [PCM 2.0|96
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813553.jpg" />
 </div>
 
 
@@ -638,7 +612,7 @@ Alice Cooper - Welcome To My Nightmare (1975) [FLAC 2.0 24/96 |tracks (Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813537.jpg" />
 </div>
 
 
@@ -673,7 +647,7 @@ Denon Sonic Boom - DVD Audio Demonstration Disc (2002) [DTS 5.1 CD-DA|44.1/16|im
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813097.jpg" />
 </div>
 
 
@@ -702,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812853.jpg" />
 </div>
 
 
@@ -732,7 +706,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811616.jpg" />
 </div>
 
 
@@ -746,6 +720,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A41964A9AC5540E1E1BDB807569FE45378B9B3C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009102   (811472) от 20.04.2016
+
+Sound In Color / MU.SIC - Pixelated Pulse (2003) [DTS 5.1 CD-DA|44.1/16|image+cue|DVD-Audio] <downtempo, trip-hop>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811472.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. GB - 208 Strings
+2. Platonic - Alternate Thursday
+3. Mainframe & Platonic - Future's Oldest Story
+4. GB - Nocturnal Tribe(   Читать дальше...   )Жанр: downtempo, trip-hopПродолжительность: 00:42:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B17C9EACAA889C650C2322E8E1ECD3BE63BE360A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,134 +1,3 @@
-###  Публикация: 373950   (1038659) от 17.01.2021
-
-Интенсивная терапия неотложных состояний в рисунках и схемах. Атлас [2003] [DJVU]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038659.jpg" />
-</div>
-
-
-###  Подробнее
-
-В руководстве освещены этиология, патогенез, клиника и лечение неотложных состояний у терапевтических и хирургических больных. Острые расстройства жизненно важных функций организма представлены в атласе в виде ярких, наглядных, легко запоминающихся схем и рисунков.
-Большой объем фактического и справочного материала сконцентрирован в простых и понятных таблицах и (   Читать дальше...   )Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B6F881E44E85A44BA2B07B6FD7829D1CC18F432
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614458   (1038574) от 22.02.2023
-
-П.Я. Уфимцев | Три лекции по физической теории дифракции (1972) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038574.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три лекции по физической теории дифракцииЖанр: ФизикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B73846518D48C2437BB7E005F8BA8B2AD4C0E000
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614463   (1038572) от 22.02.2023
-
-П.Я. Уфимцев | Метод краевых волн в физической теории дифракции (1962) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследование советского ученого по дифракции плоских электромагнитных волн на идеально проводящих телах, поверхность которых имеет изломы. Идеи, заложенные Уфимцевым в данной работе, дали толчок в развитии технологий малозаметности ЛА в радиолокационном спектре. В частности эти инженерные решения нашли свое широкое применение при проектировании самолетов F-117 Night (   Читать дальше...   )Жанр: ФизикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1992359A866901A821CCC931D3AFD2E1CE081040
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614539   (1038546) от 22.02.2023
-
-Виолетта Потякина | Россия бунташного века: cкандалы, интриги, расследования (2023) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038546.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Россия бунташного века: скандалы, интриги, расследования» — это погружение в удивительные события истории России XVII века. Прервавшаяся династия Рюриковичей, самозванцы на троне, церковные реформы, бунты и смуты — вот знаковые события, определившие название этой эпохи. Однако бунташный век стал не только временем трагических событий в российской истории, он подарил (   Читать дальше...   )Жанр: Популярно об историиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1DB87E6B255E86381258CEB313D3BB50C31E764
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614545   (1038540) от 22.02.2023
-
-С.В. Умняшкин | Основы теории цифровой обработки сигналов 6-е изд. исправл. (2021) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие предназначено для студентов вузов, обучающихся по направлениям подготовки бакалавров и магистров «Прикладная математика», «Информатика и вычислительная техника», и направлено на изучение теоретических основ цифровой обработки сигналов (ЦОС). Помимо базовых разделов ЦОС, связанных с цифровым представлением сигналов, анализом и синтезом цифровых фильтров, (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F842E397F477D2316CA265607330C0D257FAC028
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439618   (1038411) от 18.01.2021
 
 Комияма Хирохито | Теоремы математики вокруг нас (2020) [PDF]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038411.jpg" />
 </div>
 
 
@@ -164,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038333.jpg" />
 </div>
 
 
@@ -190,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038330.jpg" />
 </div>
 
 
@@ -218,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038306.jpg" />
 </div>
 
 
@@ -245,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038304.jpg" />
 </div>
 
 
@@ -271,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038241.jpg" />
 </div>
 
 
@@ -298,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038238.jpg" />
 </div>
 
 
@@ -324,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038171.jpg" />
 </div>
 
 
@@ -351,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037998.jpg" />
 </div>
 
 
@@ -377,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037996.jpg" />
 </div>
 
 
@@ -404,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037940.jpg" />
 </div>
 
 
@@ -430,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037938.jpg" />
 </div>
 
 
@@ -456,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037923.jpg" />
 </div>
 
 
@@ -482,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037921.jpg" />
 </div>
 
 
@@ -509,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037907.jpg" />
 </div>
 
 
@@ -536,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037840.jpg" />
 </div>
 
 
@@ -562,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037833.jpg" />
 </div>
 
 
@@ -588,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037807.jpg" />
 </div>
 
 
@@ -615,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037774.jpg" />
 </div>
 
 
@@ -642,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037758.jpg" />
 </div>
 
 
@@ -668,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037748.jpg" />
 </div>
 
 
@@ -679,6 +548,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87C865CF1624182A1AC1ED76A791D813EEF27F8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441405   (1037730) от 21.01.2021
+
+Лионел Гинсберг | Неврология для врачей общей практики (2020) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037730.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном издании, написанном известным английским неврологом и выдержавшем в Великобритании девять изданий (с учетом ранних изданий другого автора И. Драпера), в сжатой форме представлена основная информация по клинической неврологии. Отражены самые последние достижения в области диагностики и лечения заболеваний нервной системы. Описаны клинические случаи из врачебной (   Читать дальше...   )Жанр: Клиническая медицина, Учебники и пособия для вузовПеревод: А.П. КамчатновФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:006934300F53090C39FAA32BC4BFFED2D52486C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441269   (1037719) от 21.01.2021
+
+Сергей Холодов | История ОБХСС и экономическая преступность в России в ХХ веке (2021) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037719.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге известный историк милиции Сергей Холодов впервые представил летопись истории экономической преступности ХХ века. Сотни резонансных дел, многие из которых еще недавно пребывали под грифом «секретно». Кроме того, это исторические очерки спецслужб, которые успешно боролись с экономической преступностью, и прежде всего — легендарного ОБХСС. В конце книги (   Читать дальше...   )Жанр: Правоведение, История праваФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC4E26810849AAA882286213B0B0DB01DB4F8DAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441525   (1037673) от 21.01.2021
+
+Татьяна Гартман | Слово не воробей. Разбираем ошибки устной речи (2020) [FB2]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга «Слово не воробей» – вторая книга Татьяны Гартман, известного блогера, педагога, журналиста и радиоведущей, продолжение очень успешной первой книги «Речь как меч».
+
+«Слово не воробей» создана по мотивам блога «Училка vs ТВ» (50 тысяч подписчиков) и радиопроекта «Училка против Маяка», в которых автор анализирует речевые ошибки ведущих и медийных героев.
+(   Читать дальше...   )Жанр: Русский язык, ЯзыкознаниеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F558D1E23163C60030C7DA08FF63D36C6ED3F80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441268   (1037666) от 21.01.2021
+
+Ричард Фейнман | Дюжина лекций: шесть попроще и шесть посложнее (2020) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037666.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приводятся избранные лекции выдающегося американского физика, лауреата Нобелевской премии Р. Фейнмана. В них рассматриваются этапы становления современной физики и ее концепций, связь физики с другими науками, теория тяготения, квантовая механика, симметрия законов физики, специальная теория относительности, искривленное пространство-время и другие важные вопросы, (   Читать дальше...   )Жанр: Естественные наукиПеревод: В.А. Носенко, Е.В. ФалёвФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42EA6F04886779ADD7D5561F6BC0CD58BD592399
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615499   (1037511) от 26.02.2023
+
+С.А. Пивоваренок, Д.В. Ситанов | Процессы микро- и нанотехнологий (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие содержит описание базовых процессов планарной технологии изготовления интегральных микросхем в микро и наноэлектронике. Рассматриваются процессы очистки материалов, получение эпитаксиальных пленок на поверхности подложек, формирование защитных и пассивирующих покрытий, а также фотолитография, диффузия и изготовление печатных плат. Каждый раздел пособия (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A87AF9FF562F9235BED213B3F0D965564F93434E
 ```
 
 https://mybot314.ru/tekegram_catalog/

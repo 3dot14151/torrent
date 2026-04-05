@@ -1,3 +1,58 @@
+###  Публикация: 1546985   (603978) от 26.04.2022
+
+RPN Calculator 4.6.8 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603978.jpg" />
+</div>
+
+
+###  Подробнее
+
+При помощи этого приложения вы сможете воспользоваться всеми функциями научного калькулятора и функцией RPN. Благодаря режиму RPN вы сможете вычислять суммы с большой скоростью, что значительно сокращает набор текста.Тип издания: macOS SoftwareРелиз состоялся: 17.04.2022Разработчик: © 2021 Benjamin PisanoПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский и Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D935F8AE9B72B1464D5AFB5969572EE39A2E2D42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547115   (603976) от 26.04.2022
+
+Trim Any Video 2.0 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обрезать любое видео - без кодирования. Без потери качества.
+Супер прост в использовании. Всего 3 шага
+1. Перетащите любое видео.
+2. Укажите время начала и время окончания с помощью перетаскиваемого ползунка диапазона.(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.06.2020Разработчик: © www.nacentApps.comПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38FD81B3FF4D753C49847535BD918FE495654D97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1547109   (603972) от 26.04.2022
 
 Rotate & Flip Any Video 2.2 [En]
@@ -6,7 +61,7 @@ Rotate & Flip Any Video 2.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603972.jpg" />
 </div>
 
 
@@ -35,7 +90,7 @@ Compress Any Video PRO 2.2.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603971.jpg" />
 </div>
 
 
@@ -64,7 +119,7 @@ Pelican - Clipboard Manager 1.2.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603969.jpg" />
 </div>
 
 
@@ -90,7 +145,7 @@ inPixel 2.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603470.jpg" />
 </div>
 
 
@@ -117,7 +172,7 @@ Photo & Video HDR 1.6 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603459.jpg" />
 </div>
 
 
@@ -143,7 +198,7 @@ Color Filters For Photos 1.8 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603433.jpg" />
 </div>
 
 
@@ -169,7 +224,7 @@ SparkFX 1.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603004.jpg" />
 </div>
 
 
@@ -195,7 +250,7 @@ qbittorrent 4.2.0 alpha [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602610.jpg" />
 </div>
 
 
@@ -224,7 +279,7 @@ ConnectMeNow 3 v3.0.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602426.jpg" />
 </div>
 
 
@@ -250,7 +305,7 @@ goPanel2 2.0.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602326.jpg" />
 </div>
 
 
@@ -278,7 +333,7 @@ SmartMemoryCleaner 2.0.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601595.jpg" />
 </div>
 
 
@@ -304,7 +359,7 @@ Mountain Duck 1.9.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601094.jpg" />
 </div>
 
 
@@ -332,7 +387,7 @@ Agisoft PhotoScan Pro 1.3.2 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600895.jpg" />
 </div>
 
 
@@ -360,7 +415,7 @@ Photo Sketch 1.8.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600889.jpg" />
 </div>
 
 
@@ -386,7 +441,7 @@ Panorama Photo Stitcher 1.5.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600265.jpg" />
 </div>
 
 
@@ -412,7 +467,7 @@ CopyPaste Pro 3.5.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600072.jpg" />
 </div>
 
 
@@ -441,7 +496,7 @@ Yummy 3.5 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600016.jpg" />
 </div>
 
 
@@ -467,7 +522,7 @@ CameraBag Cinema 1.0.600 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599410.jpg" />
 </div>
 
 
@@ -493,7 +548,7 @@ Hopper Disassembler 3.9.15 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597869.jpg" />
 </div>
 
 
@@ -520,7 +575,7 @@ Apple iMovie 10.0.9 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597443.jpg" />
 </div>
 
 
@@ -548,7 +603,7 @@ SmartDeblur Pro 2.3 [Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596426.jpg" />
 </div>
 
 
@@ -576,7 +631,7 @@ Trim Enabler Pro 3.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592201.jpg" />
 </div>
 
 
@@ -603,7 +658,7 @@ SpeedTools Utilities 3.9 Pro [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591808.jpg" />
 </div>
 
 
@@ -632,7 +687,7 @@ HazeOver 1.4.4 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591326.jpg" />
 </div>
 
 
@@ -646,62 +701,6 @@ HazeOver: затеняйте фоновые программы и меньше �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87E3463B9341987FA24E038C87A37E74AD2332A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917791   (588597) от 13.07.2015
-
-Degrees Pro 4.2.1 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588597.jpg" />
-</div>
-
-
-###  Подробнее
-
-Degrees — текущая погода в строке меню
-Degrees — простое приложение, которое показывает текущие погодные условия в строке меню, где вы всегда их можете увидеть.
-
-Особенности:(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 13 февраля 2015Разработчик: Best Essential AppsПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F30E370FD3B5F78B4E503E7648E00852320540B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 829443   (587727) от 14.07.2015
-
-Blogo 2.3 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587727.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blogo - пишите, публикуйте и управляйте несколькими блогами с поддержкой WordPress и Evernote.
-Blogo объединил возможности для плодотворной работы и помогает пользователям публиковать и создавать контент легко. Он позволяет управлять несколькими блогами и в то же время редактировать фотографии с встроенным редактором изображений, просматривать свои сообщения в реальном (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 03 июля 2015Разработчик: Blogo Inc.Поддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A65FB728336D882DEB6B21532670EEBDCC61895
 ```
 
 https://mybot314.ru/tekegram_catalog/

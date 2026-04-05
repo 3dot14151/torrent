@@ -1,3 +1,55 @@
+###  Публикация: 1365455   (889818) от 31.03.2020
+
+Прекрасная американка / La belle americaine (1961) DVDRip [H.264] [Колоризованная версия]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889818.jpg" />
+</div>
+
+
+###  Подробнее
+
+Марсель еще вчера был просто рабочим. И вот за 100 долларов он покупает кадиллак «Прекрасная американка». Кто же мог предположить, что машина круто изменит его жизнь и приблизит к исполнению его мечты? Во-первых, Марсель сразу теряет работу. Во-вторых, участвует в конкурсе красоты и становится другом министра. До мечты — рукой подать…Производство: Франция / Compagnie Commerciale Française Cinématographique (CCFC), Corflor, Le Film d'Art, Panorama FilmsЖанр: КомедияРежиссер: Робер Дери, Пьер ЧернияАктеры: Альфред Адам, Колетт Броссе, Робер Бюрнье, Пьер Дак, Элиана д’Альмейда, Бернар Деран, Робер Дери, Анни Дюко, Жак Фаббри, Луи де Фюнес, Жан Лефевр, Бернар Лавалетт, Жак Легра, Кристиан Марен, Робер Роллис, Жан Ришар, Мишель Серро, Катрин Сола, Пьер Черния,  Жан КармеПеревод: Дублированный, многоголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:35:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D9CAD3D58D63B2E39758D4E971918A04EBD0662
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994189   (889718) от 08.03.2016
+
+Новые приключения Флиппера / Flipper's New Adventure (1964) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889718.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение приключений Сэнди и дельфина по имени Флиппер. На этот раз друзья оказываются на Багамских островах, где спасают английское семейство.Производство: США, Ivan Tors ProductionsЖанр: Драма, приключения, семейныйРежиссер: Леон Бенсон/Leon BensonАктеры: Люк Хэлпин, Памела Франклин, Хелен Черри, Том Хелмор, Франческа Аннис, Брайан Келли, Джо Хиггинс, Ллойд Баттиста, Гордон Дилворт, Кортни Браун и др.Перевод: Дублированный (Пятый канал Петербург)Субтитры: ОтсутствуютПродолжительность: 01:33:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D19F5E4483CDE9924FB486FE79B455600823A46C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994063   (889635) от 08.03.2016
 
 Новые приключения Флиппера / Flipper's New Adventure (1964) DVDRip [H.264]
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889635.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889255.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888911.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888675.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888460.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888420.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886902.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886894.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_886470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_886470.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886355.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886213.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885436.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885423.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884961.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884894.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_884676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_884676.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884569.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884417.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884273.jpg" />
 </div>
 
 
@@ -509,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884229.jpg" />
 </div>
 
 
@@ -535,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884227.jpg" />
 </div>
 
 
@@ -561,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884179.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884172.jpg" />
 </div>
 
 
@@ -613,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884127.jpg" />
 </div>
 
 
@@ -624,59 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09A6C02CB9D0AAE0A4129B4115C41664B95D39D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991136   (884108) от 11.03.2016
-
-Римские каникулы / Roman Holiday (1953) HDTVRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884108.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Рим с официальным визитом прибывает юная принцесса Анна. Дни её расписаны по минутам — приемы, посещения фабрик, интервью… в общем, тоска! Она совсем девчонка, ей хочется свободы и она убегает из дворца на улицу, где гуляют, поют и целуются жители Вечного города.
-Увы, незадолго до побега доктор сделал ей укол снотворного и принцесса засыпает на скамейке. А мимо (   Читать дальше...   )Производство: США / Paramount PicturesЖанр: Комедия, Мелодрама, ДрамаРежиссер: Уильям УайлерАктеры: Грегори Пек, Одри Хепберн, Эдди Альберт, Хартли Пауэр, Харкорт Уильямс, Маргарет Роулингс, Туллио Карминати, Паоло Карлини, Клаудио Эрмели, Паула БорбониПеревод: Дублированный, профессиональный многоголосый, профессиональный двухголосый, авторскийЯзык субтитров: Русский, английскийПродолжительность: 01:58:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B007688727610EC7E63BC92F94FA5D580D2C08E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 362689   (884062) от 10.09.2021
-
-Провинциалка / Small Town Girl (1936) TVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884062.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь Кэй протекает в провинциальном городке скучно и размеренно. Возможно, хуже всего, ее совсем неромантичный, с далеко идущими планами, то ли друг, то ли ухажер — Элмер. Единственное развлечение, когда стекаются толпы любителей игры в футбол и тогда в городке не протолкнуться. Однажды в такой же суматошный день, Кэй вечером выходит из дома, чтобы хотя бы подышать (   Читать дальше...   )Производство: США, Metro-Goldwyn-MayerЖанр: Мелодрама, комедияРежиссер: Уильям А. Уэллмен, Роберт З. ЛеонардАктеры: Джанет Гейнор, Роберт Тейлор (I), Бинни Барнс, Энди Дивайн, Льюис Стоун, Элизабет Паттерсон, Фрэнк Крэвен, Джеймс Стюарт, Изабель Джуэлл, Чарли ГрейпвинПеревод: Одноголосый любительскийСубтитры: ОтсутствуютПродолжительность: 01:45:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E38C31F077DBD9B62D7C34DA439DADEA07E08BBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

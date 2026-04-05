@@ -1,3 +1,32 @@
+###  Публикация: 1578787   (336612) от 27.09.2022
+
+Spellbook -  Magick & Mischief (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wands to the Sky [00:03:47]
+02. Black Shadow [00:03:51]
+03. Ominous Skies [00:04:44]
+04. Not Long for This World [00:08:37](   Читать дальше...   )Жанр: Heavy Rock, Doom MetalПродолжительность: 00:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24C09E6CF558C021F9A9C3EF3A8A5F03E9D83899
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1579461   (336611) от 27.09.2022
 
 VoidOath - 2 Albums (2020-2022) [MP3|320 Kbps] <Doom, Death, Sludge Metal>
@@ -6,7 +35,7 @@ VoidOath - 2 Albums (2020-2022) [MP3|320 Kbps] <Doom, Death, Sludge Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336611.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Breed Machine - Asura (2022) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, Metalc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336609.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Eye of Void - Eye of Void (2022) [Mp3|320 kbps] <Stoner Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336608.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Strom - Strom (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336607.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Rascal Flatts - Greatest Hits Volume 1 (2008) [FLAC|Lossless|tracks + .cue] <Cou
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336541.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - Hair - The Original Broadway Cast Recording (1968) 1988, RCA Victor, BMG Cl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336527.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Rain - A new tomorrow (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336500.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Seventh Storm - Maledictus (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Prog
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336499.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Frozen Factory - 3 Albums (2020-2022) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336497.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Black Debbath - 11 Albums (1999-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Stone
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336492.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Decapitated - Collection 9CD (2000 - 2022) [FLAC|Lossless|image + .cue] <Technic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336489.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Fleesh - 13 Albums (2017-2022) [MP3|320 Kbps] <Progressive Rock, Female Vocal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336488.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Billy Talent - Crisis of Faith (2022) [FLAC|Lossless|image + .cue] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336487.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Missio - VILLAIN (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Electronic>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336486.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336482.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Butthole Surfers - Independent Worm Saloon / Electriclarryland (1993/1996)  [FLA
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336478.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336463.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ The Beatles / The Beatles with Tony Sheridan / Tony Sheridan And The Beat Brothe
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336428.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336427.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ U2 - U218 Singles (2006) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336422.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Another Now - 5 Albums (2020-2022) [MP3|320 Kbps] <Progressive Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336420.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Kid Kapichi - Here's What You Could Have Won (2022) [FLAC|Lossless|WEB-DL|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336417.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ ACEtone - Я всё равно останусь здесь (2022) [FLAC|Lossless
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336414.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Talas - 1985 (2022) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336411.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336406.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6A913AD69A45D953286D7F23271E4BDB0960D18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579232   (336305) от 27.09.2022
-
-Darko US - Oni (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Begin [00:01:07]
-02. Looking Glass [00:02:41]
-03. Hyper Kill (feat. Ryo Kinoshita) [00:03:23]
-04. Dragon Chaser [00:03:59](   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:44:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4233C7C5D7D8B0AFDF743C4AA53A52DD4923207
 ```
 
 https://mybot314.ru/tekegram_catalog/

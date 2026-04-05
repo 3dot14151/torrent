@@ -1,3 +1,56 @@
+###  Публикация: 1186594   (283724) от 26.11.2017
+
+Кудрин рассказал, когда появятся бессмертные люди
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_283724.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кудрин спрогнозировал появление "практически бессмертного человека" в течение 10-15 лет
+Глава Центра стратегических разработок (ЦСР), экс-министр финансов Алексей Кудрин считает возможным появление в ближайшие 10-15 лет технологий, которые позволят существенно продлевать жизнь человека. Об этом он сообщил, выступая на Общероссийском гражданском форуме.Бывший (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081410   (283631) от 09.12.2016
+
+Malwarebytes Anti-Malware Premium 3.0.4.1269 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283631.jpg" />
+</div>
+
+
+###  Подробнее
+
+Malwarebytes Anti-Malware - новая версия программы от создателей RogueRemover Pro, AboutBuster и других популярных утилит, способная находить и удалять разнообразные вредоносные программы. Программа использует эвристический метод сканирования, способный в реальном времени контролировать безопасность системы в целом. Также имеется возможность полного сканирования (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4822015BE6338091CB019254060608D423B55D06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1081162   (283611) от 09.12.2016
 
 Adobe Photoshop Lightroom CC 2015.8 (6.8) [Multi/Ru]
@@ -6,7 +59,7 @@ Adobe Photoshop Lightroom CC 2015.8 (6.8) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283611.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Adobe InDesign CC 2017.0 12.0.0.81 RePack by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283605.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ Adobe Illustrator CC 2017 21.0.0 RePack by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283596.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_283586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_283586.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283448.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_283385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_283385.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283355.jpg" />
 </div>
 
 
@@ -188,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283267.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ Hard West (2015) [Ru/Multi] (1.3) SteamRip Let'sРlay [Collector's Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283266.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ Minecraft (2015) [Ru/Multi] (1.7.10) Repack/Mod LowSkillGamer
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283263.jpg" />
 </div>
 
 
@@ -268,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282297.jpg" />
 </div>
 
 
@@ -294,7 +347,7 @@ SUDA - инструмент, который будет "нюхать" пыль, 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_282099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_282099.jpg" />
 </div>
 
 
@@ -320,7 +373,7 @@ Windows 10 Pro VL 1909 18363.449 x64 Rus by OneSmiLe (04.11.2019)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281778.jpg" />
 </div>
 
 
@@ -349,7 +402,7 @@ Microsoft Windows 10 Insider Preview Build 10.0.14986 (esd) [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281713.jpg" />
 </div>
 
 
@@ -375,7 +428,7 @@ MixMeister Fusion 7.4.4  [Английский + русификатор]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281710.jpg" />
 </div>
 
 
@@ -401,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281670.jpg" />
 </div>
 
 
@@ -427,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281668.jpg" />
 </div>
 
 
@@ -453,7 +506,7 @@ Adobe Photoshop Lightroom CC 2015.8 (6.8) RePack by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281666.jpg" />
 </div>
 
 
@@ -480,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_281658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_281658.jpg" />
 </div>
 
 
@@ -506,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281609.jpg" />
 </div>
 
 
@@ -532,7 +585,7 @@ Singularity (2010) [Ru] (1.1) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281606.jpg" />
 </div>
 
 
@@ -558,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281514.jpg" />
 </div>
 
 
@@ -584,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281505.jpg" />
 </div>
 
 
@@ -610,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281500.jpg" />
 </div>
 
 
@@ -621,59 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66BC04A69673A55D7F6794BC8125ED77441F2E56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 214556   (280492) от 23.11.2018
-
-Ангел-А / Angel-A (2005) [1080p] BDRemux
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280492.jpg" />
-</div>
-
-
-###  Подробнее
-
-28-летний Андре должен десятки тысяч евро различным бандитам по всему Парижу. Когда подходит срок расплаты, он понимает, что шансов расплатиться — нет. И в полиции, и в американском посольстве ему отказывают в помощи.
-Но вот, решив покончить с собой, он видит на мосту сногсшибательную красотку в очень маленьком черном платье, которая прыгает в Сену. Андре бросается (   Читать дальше...   )Жанр: Фэнтези, Комедия, МелодрамаРежиссер: Люк БессонАктеры: Жамель Деббуз, Ри Расмуссен, Жильбер Мелки, Серж Риабукин, Аким Шир, Эрик Балье, Луи Пора, Веню Бун, Жером Жесдон, Мишель БеллоПеревод: ДублированныйЯзык субтитров: Русский, АнглийскийПродолжительность: 01:30:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C48A7005AD1409CCB2289C97909E317699FE3D6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239636   (280482) от 23.11.2018
-
-Wallpaper Engine 1.0.1369 Portable [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280482.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wallpaper Engine позволяет вам использовать живые обои на рабочем столе Windows. Поддерживаются различные типы обоев, включая 3D и 2D-анимацию, веб-сайты, видеоролики и даже определенные приложения. Выберите существующие обои (более 400 в раздаче) или создайте свои собственные.Язык интерфейса: Русский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEF9F502F10EE2E4DCCFBAA3EC98F554E7E68C85
 ```
 
 https://mybot314.ru/tekegram_catalog/

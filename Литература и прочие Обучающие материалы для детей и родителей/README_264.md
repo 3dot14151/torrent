@@ -1,3 +1,59 @@
+###  Публикация: 1243387   (488280) от 29.08.2018
+
+Марта Гумилевская | Как открывали мир (1977) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488280.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассказывается о путешествиях древних мореплавателей и о некоторых великих географических открытиях, благодаря которым на карте мира появились новые, неизвестные раньше материки и океаны и была найдена наконец неуловимая, таинственная, Неизвестная Южная Земля - Антарктида, - открытая русскими моряками сто пятьдесят лет назад!
+
+Также смотрите Марта Гумилевская (   Читать дальше...   )Жанр: Познавательная литература для детейФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAC3012259ECB00721C15976BF7952D771057980
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1055304   (488275) от 22.09.2016
+
+Лев Успенский, Всеволод Успенский | Двенадцать подвигов Геракла (1993) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488275.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге собраны легенды глубокой древности.
+Сложены они древними греками ещё в те далёкие времена, когда люди только начинали изучать окружающий их мир, только приступали к его исследованию и объяснению.
+Соединяя правду и вымысел, придумывали они и рассказывали удивительные истории. Так сложилось множество преданий о богах, героях и фантастических существах- (   Читать дальше...   )Жанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:222F50617DCE28FA49216897E58DC95D31507CFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1055302   (488262) от 22.09.2016
 
 Виталий Ларичев | Колыбель предков (1987) [DJVU]
@@ -6,7 +62,7 @@
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488262.jpg" />
 </div>
 
 
@@ -32,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488191.jpg" />
 </div>
 
 
@@ -58,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488165.jpg" />
 </div>
 
 
@@ -85,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488162.jpg" />
 </div>
 
 
@@ -111,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488113.jpg" />
 </div>
 
 
@@ -139,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487787.jpg" />
 </div>
 
 
@@ -166,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487391.jpg" />
 </div>
 
 
@@ -193,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487281.jpg" />
 </div>
 
 
@@ -221,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487260.jpg" />
 </div>
 
 
@@ -248,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487258.jpg" />
 </div>
 
 
@@ -276,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486903.jpg" />
 </div>
 
 
@@ -303,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486812.jpg" />
 </div>
 
 
@@ -330,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486693.jpg" />
 </div>
 
 
@@ -356,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486054.jpg" />
 </div>
 
 
@@ -382,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485991.jpg" />
 </div>
 
 
@@ -409,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485940.jpg" />
 </div>
 
 
@@ -436,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485664.jpg" />
 </div>
 
 
@@ -463,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485627.jpg" />
 </div>
 
 
@@ -489,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485601.jpg" />
 </div>
 
 
@@ -515,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485450.jpg" />
 </div>
 
 
@@ -541,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485319.jpg" />
 </div>
 
 
@@ -567,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485177.jpg" />
 </div>
 
 
@@ -593,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485176.jpg" />
 </div>
 
 
@@ -619,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484897.jpg" />
 </div>
 
 
@@ -633,59 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D34DB0A02A3FF5D17B10399A07D6DEA0A977B72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 377238   (484825) от 29.08.2020
-
-О.Святкова, Г.Златогоров, А.Артюх | Готовимся к школе. Раскраска (13 книг) [2000,2006] [PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Рабочие тетради, прописи и разукрашки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Развивающие книжки-раскраски для детей 5—7 лет из серии «Готовимся к школе» от издательства «Розовый слон». Основная цель данной серии — помочь родителям самостоятельно поднять степень подготовленности ребенка к обучению в школе. Отработать навыки чтения и письма, счета и решения задач, развития речи и мышления, внимания и памяти, всего того что необходимо будущему (   Читать дальше...   )Жанр: Развивающая раскраскаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2912ACD8AC54C2D32CF19761B89F261C2B80B06C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319360   (484721) от 11.08.2019
-
-студия Диафильм | Палле один на свете (1973) [JPG]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Прочие материалы для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повести и рассказы зарубежных писателей. Дания.
-Для детей младшего возраста.Жанр: Детская прозаФормат: JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DF035337B7BEAE84C7297DFB88B116FCD212D44
 ```
 
 https://mybot314.ru/tekegram_catalog/

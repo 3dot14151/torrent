@@ -6,7 +6,7 @@ Ocean Of Sin - Lie Goes To Hell (2014) EP [MP3|320 кб/с]<Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886308.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Killswitch Engage - Incarnate (2016) Deluxe Edition [MP3|320 кб/с] <Melodic M
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886176.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Aliens Ate My Setlist - 3 ЕР, 2 Singles (2012-2020) [MP3|320 Kbps] <Electronic
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885626.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Hating Evil - Rotten Inside (2016) [MP3|320 кб/с] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884816.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Ereb Altor - Blot - Ilt - Taut (2016) [MP3|320 кб/с] <Viking Metal, Epic Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884708.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Jinjer - Wallflowers (2021) [MP3|320 kbps] <Alternative Metal, Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884460.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - The Metallica Blacklist (2021) 4CD [MP3|320 Kbps] <Metal, Rock & etc>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884047.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Rise On Everest - 2 Albums, 1 ЕР (2013-2020) [MP3|~245 Kbps/(V0)/320] <Post-Ha
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883997.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Bathsheba - Servus (2017) [MP3|320 Kbps] <Occult Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883646.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Hard and heavy (сборник) - ХИТЫ XX - XXI ВЕКА (2008) [MP3|256 kbp
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_883510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_883510.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882206.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Metallica - 5 Альбомов (1983-1991) Reissue, 2013, Blackened Recordings [
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882097.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Eternal Delyria - Letting Go Of Humanity / Paradox of the Mechanical Angel (2016
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881899.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Blacksmith - Gipsy Queen - The Early Years '83 - '86 (2018) Compilation, Japanes
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880820.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Battle Beast - Bringer of Pain (2017) Limited Edition [MP3|320 Kbps] <Heavy Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879771.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Mobile Deathcamp - Summon the Destroyer (2016) [MP3|320 кб/с] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879516.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Feed Her To The Sharks - Fortitude (2015) [MP3|320 кб/с]<Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879472.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Eisbrecher - Schock (2015) Media Markt Edition [MP3|320 кб/с]<NDH / Gothic Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878982.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Astra - Oathkeeper, Pt. I (2020) [MP3|320 Kbps] <Melodic Death Metal, Modern Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878519.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Conception - State of Deception (2020) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878262.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Lords Of Black - II (2016) Japanese Edition [MP3|320 кб/с] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877568.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Ancient Empire - Priest Of Stygia (2021) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877451.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Dirkschneider & The Old Gang - Arising (2021) EP [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877431.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Once Human - Evolution (2017) [MP3|320 Kbps] <Melodic Death Metal, Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_876460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_876460.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ Killitorous - 1 Album/2 Singles (2014-2020) [MP3|320 Kbps] <Technical Death Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875101.jpg" />
 </div>
 
 
@@ -723,7 +723,7 @@ Litterbox Massacre - 2 Album/2 Singles (2019-2020) [MP3|320 Kbps] <Slamming Deat
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875098.jpg" />
 </div>
 
 

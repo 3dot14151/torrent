@@ -1,3 +1,57 @@
+###  Публикация: 1423109   (304288) от 11.11.2020
+
+Александр Тихонов | Всё для детского сада. Домашние животные (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Домашние животные - следующая замечательная книга из серии "Всё для детского сада". Увлекательный текст, запоминающиеся стихи, яркие рисунки непременно вызовут живой отклик, а ведь это так важно - заинтересовать детей, привить тягу к знаниям, к природе и животному миру в самом маленьком возрасте!
+
+В книге известного биолога Александра Тихонова представлены (   Читать дальше...   )Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D24F5988C1DD50F09DB86B2031C601A30AD71800
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423107   (304279) от 11.11.2020
+
+Людмила Доманская, Инна Максимова | Пряталки и находилки. Азбука в картинках (2017) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304279.jpg" />
+</div>
+
+
+###  Подробнее
+
+С первых дней жизни малыши начинают познавать окружающий мир, и наша роль как родителей здесь крайне важна. Как легко, но в то же время увлекательно и не банально познакомить своего ребёнка с азбукой? Вы держите в руках уникальную книгу-игру "Азбука в картинках", которая в ненавязчивой форме поможет вашему малышу не только выучить алфавит, но и не путать (   Читать дальше...   )Жанр: Обучающая литература/АзбукаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40CBAD1EFB992FD50260C98390DF48F040858DDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1423120   (304017) от 11.11.2020
 
 С.В. Житомирский, К.А. Порцевский, В.Г. Шимановский, Е.В. Широнина | 365 рассказов. 365 рассказов о космосе (2009) [PDF]
@@ -6,7 +60,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304017.jpg" />
 </div>
 
 
@@ -34,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304011.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303903.jpg" />
 </div>
 
 
@@ -88,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303547.jpg" />
 </div>
 
 
@@ -116,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303546.jpg" />
 </div>
 
 
@@ -142,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303517.jpg" />
 </div>
 
 
@@ -170,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303516.jpg" />
 </div>
 
 
@@ -197,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303514.jpg" />
 </div>
 
 
@@ -223,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303499.jpg" />
 </div>
 
 
@@ -249,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303491.jpg" />
 </div>
 
 
@@ -275,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303484.jpg" />
 </div>
 
 
@@ -301,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303453.jpg" />
 </div>
 
 
@@ -328,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303438.jpg" />
 </div>
 
 
@@ -354,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303437.jpg" />
 </div>
 
 
@@ -380,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303408.jpg" />
 </div>
 
 
@@ -406,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303315.jpg" />
 </div>
 
 
@@ -432,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303311.jpg" />
 </div>
 
 
@@ -458,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303310.jpg" />
 </div>
 
 
@@ -486,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303308.jpg" />
 </div>
 
 
@@ -512,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303307.jpg" />
 </div>
 
 
@@ -538,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303305.jpg" />
 </div>
 
 
@@ -564,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303304.jpg" />
 </div>
 
 
@@ -590,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303303.jpg" />
 </div>
 
 
@@ -617,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303299.jpg" />
 </div>
 
 
@@ -628,59 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:664380CBAC530A69122A278A0D263F17A055573C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 730879   (303298) от 05.12.2013
-
-Фиона Келли | А ларчик просто открывался (2002) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303298.jpg" />
-</div>
-
-
-###  Подробнее
-
-Казалось, все правильно рассчитали многоопытные сыщики Холли, Пит и Миранда, а в результате — ясно, что ничего не ясно! По всем законам столь любимого ребятами детективного жанра именно в потайном отделении старинной шкатулки должно быть спрятано завещание, по которому молодые талантливые актеры становились владельцами театра, но вместо него там нашлась записка с очень странными стихами. Вообще-то похоже, что именно в них-то и скрыт ключ к тайне завещания, но как расшифровать эту нелепую на вид шараду? «Снаружи ты меня не обнаружишь, да и внутри — как ни гляди…» А где же тогда, если не внутри и не снаружи?! Долго ломают головы Юные детективы и вдруг совершенно случайно находят подсказку в театральном зале…Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90E8D0027D89227E56AA33AE1DF69C971D8DE744
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261634   (303272) от 11.11.2018
-
-П.Я. Великина | Сборник задач по геометрии (1971) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303272.jpg" />
-</div>
-
-
-###  Подробнее
-
-В целях повышения эффективности учебного процесса необходимо четко представлять закономерную логическую последовательность всех этапов обучения, чтобы на каждом этапе использовать строго целенаправленные приемы активной познавательной деятельности учащихся.
-Приобретение знаний, умений и навыков осуществляется учащимися в процессе выполнения разнообразных упражнений, (   Читать дальше...   )Жанр: Учебное пособие, задачникФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C906235042A194FA9E4E8B9891792FDE9DF7D85B
 ```
 
 https://mybot314.ru/tekegram_catalog/

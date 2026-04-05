@@ -1,3 +1,32 @@
+###  Публикация: 1549805   (240451) от 09.05.2022
+
+Cell 9 - Second Coming (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Louder Than War
+02. Now (My Faith Will Carry on)
+03. I Am
+04. Kings of Our Time(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAF00EDA95D5DC4E897B39EA4487E3044F762F18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1549704   (240446) от 09.05.2022
 
 Alex Carpani - Microcosm (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
@@ -6,7 +35,7 @@ Alex Carpani - Microcosm (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240446.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Vagrants - Be Consumed (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Post-H
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240439.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Tyler Kamen - Artichoke Pythagorum (2022) [FLAC|Lossless|WEB-DL|tracks] <Psyched
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240431.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Illvilja - Where No Sorrow Dwells (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240430.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Project Pain - Faster Disaster (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240425.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Bismut - Retrocausality (2020) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic desert
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240423.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Inventtor - Em Meio a Escuridao (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240420.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Gary Moore - Run for Cover (1985) Reissue, 2023, Universal, Japanese Edition [FL
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240419.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Dead Earthlings - Dead Earthlings (2020) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240415.jpg" />
 </div>
 
 
@@ -270,7 +299,7 @@ Nasty - Realigion (2017) [FLAC|Lossless|WEB-DL|tracks] <Belgium  Beatdown Hardco
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240407.jpg" />
 </div>
 
 
@@ -299,7 +328,7 @@ Killing Tyranny - The Awakening (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240405.jpg" />
 </div>
 
 
@@ -328,7 +357,7 @@ Invicta - Triumph and Torment (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240402.jpg" />
 </div>
 
 
@@ -357,7 +386,7 @@ UADA - Djinn (2020) [MP3|320 Kbps] <Melodic Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240397.jpg" />
 </div>
 
 
@@ -386,7 +415,7 @@ Pisuika - Semilla negra (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240394.jpg" />
 </div>
 
 
@@ -415,7 +444,7 @@ Leiden - L'Aube Spirituelle (2021) [FLAC|Lossless|image + .cue] <Gothic, Industr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240389.jpg" />
 </div>
 
 
@@ -444,7 +473,7 @@ The Flower Kings - Paradox Hotel (2006) 2023, InsideOutMusic [FLAC|Lossless|WEB-
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_240387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_240387.jpg" />
 </div>
 
 
@@ -473,7 +502,7 @@ Headon - Éxodo (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240384.jpg" />
 </div>
 
 
@@ -502,7 +531,7 @@ RUMOURS - Neither Innocent nor Wavering (2020) EP [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240380.jpg" />
 </div>
 
 
@@ -531,7 +560,7 @@ Gary Moore - Corridors of Power (1982) Reissue, Remastered, 2023, Universal, Jap
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240373.jpg" />
 </div>
 
 
@@ -560,7 +589,7 @@ Goatsmoke - What's the scene, Bob? (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240359.jpg" />
 </div>
 
 
@@ -589,7 +618,7 @@ Enforcer - Nostalgia (2023) [FLAC|Lossless|image + .cue] <Heavy, Speed Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240356.jpg" />
 </div>
 
 
@@ -618,7 +647,7 @@ Huxley Would Approve - Grave New World: Part Two (2021) [FLAC|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240355.jpg" />
 </div>
 
 
@@ -647,7 +676,7 @@ Vinnum Sabbathi - Live at Channel 666 (2022) [FLAC|Lossless|WEB-DL|tracks] <Ston
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240351.jpg" />
 </div>
 
 
@@ -676,7 +705,7 @@ Torrax - Pribehy (2021) [MP3|320 Kbps] <Power Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240347.jpg" />
 </div>
 
 
@@ -705,7 +734,7 @@ Rustorm - Razed to the Ground (2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial G
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240343.jpg" />
 </div>
 
 
@@ -719,35 +748,6 @@ Rustorm - Razed to the Ground (2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial G
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEE208C9BD310045D0B41BAC8409BEC4C68E931E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465122   (240341) от 25.04.2021
-
-Bomber Goggles - Gyreland (2018) [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Land of Plastic 05:18
-02. The Gyre 05:41
-03. Building 05:23
-04. Telepathy 04:31(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:00:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5878C050BB1109DE7ADAF85EF332BA587EF65A41
 ```
 
 https://mybot314.ru/tekegram_catalog/

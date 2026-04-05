@@ -6,7 +6,7 @@ ACE COMBAT 7: SKIES UNKNOWN (2019) [PS4] [EUR] 5.05 [HEN] [License / 2.20 / DLC]
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205090.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Splatoon 3 (2022) [Switch] [EUR] 14.1.2 [eShop] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204721.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ TUNIC (2022) [Switch] [EUR] 14.1.2 [eShop] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204712.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ New Tales from the Borderlands (2022) [Switch] [EUR] 14.1.2 [eShop] [En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204707.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ The Legend of Zelda: Tears of the Kingdom (2023) [Switch] [USA] 16.0.3 [NSP] [Li
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202204.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ PixelJunk Monsters 2 (2018) [PS4] [USA] [PSN] [Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201618.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Max Payne 3 (2012) [PS3] [EUR] 4.11 [License] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201576.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Injustice 2 Legendary Edition (2018) [PS4] [EUR] [License] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201547.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Get Up And Dance (2011) [PS3] [USA] 3.55 [License] [En] [Move]
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_200975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_200975.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Metal Gear Solid HD Edition (2011) [PS3] [JAP] 3.72 [Cobra ODE / E3 ODE PRO ISO]
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200202.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ FATAL FRAME: Mask of the Lunar Eclipse (2023) [PS4] [ASIA] 5.05 [HEN] [License] 
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199232.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ My Little Pony A Maretime Bay Adventure (2022) [PS4] [EUR] [5.05] [License / 1.0
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199139.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ PAC-MAN and the Ghostly Adventures 2 (2014) [PS3] [EUR] 4.55 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198915.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198896.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Big Rumble Boxing: Creed Champions (2021) [PS4] [EUR] [5.05] [HEN] [License / 1.
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198798.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Angry Birds Star Wars (2013) [PS3] [EUR] 4.46 [Cobra ODE / E3 ODE PRO ISO] [Lice
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198708.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Assassin's Creed II: Game of the Year Edition (2010) [PS3] [EUR] 3.15 [Cobra ODE
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198684.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Rango: The video game (2011) [PS3] [EUR] 3.55 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197818.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196969.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ The Callisto Protocol Digital Deluxe Edition (2022) [PS4] [EUR] 5.05 [HEN] [Lice
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196223.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Earthworm Jim HD (2010) [PS3] [EUR] HEN 4.88 [PSN] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194787.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ LEGO Brawls (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.01] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193111.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Resident Evil Village (2021) [PS4] [USA] 5.05 [HEN] [License / 1.11 / DLC] [Ru/M
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193050.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Bayonetta 2 (2014) [WiiU] [EUR] 5.3.2 / WUP Installer [Repack] [Ru/Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192497.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Bayonetta 3 (2022) [Switch] [EUR] 14.1.2 [eShop / 1.1.0] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192442.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Factorio (2022) [Switch] [US] 14.1.2 [eShop / 1.1.0] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192202.jpg" />
 </div>
 
 

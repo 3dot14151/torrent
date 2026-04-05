@@ -1,29 +1,3 @@
-###  Публикация: 1523365   (751552) от 11.01.2022
-
-Михаэль Штайдль, Фабиан Мархер | На помощь! Как команда неотложки справляется с экстренными случаями (2022) [EPUB]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751552.jpg" />
-</div>
-
-
-###  Подробнее
-
-От ушибов пальцев и пьяных дебошей до многочисленных травм при автокатастрофе – в отделении неотложной помощи нужно быть готовым к любым неожиданностям. Каждый пациент здесь оказывается источником небольшого хаоса: нужно определить срочность и сложность его случая, изучить историю болезни и выявить причины, провести обследование или операцию, а главное, верить, что (   Читать дальше...   )Жанр: Медицина, Документальная литература, Истории из жизниПеревод: Л. М. КаджелашвилиФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4704DE1F15BD6764177D0050A799033E6F43C832
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1523371   (751426) от 11.01.2022
 
 Макс Скиттл | Детектив в белом халате. У каждой болезни есть причина, но не каждому под силу ее найти (2021) [EPUB]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751426.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747906.jpg" />
 </div>
 
 
@@ -86,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747882.jpg" />
 </div>
 
 
@@ -114,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744800.jpg" />
 </div>
 
 
@@ -140,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741920.jpg" />
 </div>
 
 
@@ -168,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741790.jpg" />
 </div>
 
 
@@ -194,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740593.jpg" />
 </div>
 
 
@@ -220,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740058.jpg" />
 </div>
 
 
@@ -246,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739551.jpg" />
 </div>
 
 
@@ -272,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738997.jpg" />
 </div>
 
 
@@ -298,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738339.jpg" />
 </div>
 
 
@@ -324,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737725.jpg" />
 </div>
 
 
@@ -353,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736795.jpg" />
 </div>
 
 
@@ -381,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735111.jpg" />
 </div>
 
 
@@ -407,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734886.jpg" />
 </div>
 
 
@@ -434,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_733920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733920.jpg" />
 </div>
 
 
@@ -460,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732450.jpg" />
 </div>
 
 
@@ -488,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731731.jpg" />
 </div>
 
 
@@ -515,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731722.jpg" />
 </div>
 
 
@@ -541,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730594.jpg" />
 </div>
 
 
@@ -569,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729634.jpg" />
 </div>
 
 
@@ -595,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729471.jpg" />
 </div>
 
 
@@ -623,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721536.jpg" />
 </div>
 
 
@@ -651,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721168.jpg" />
 </div>
 
 
@@ -677,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721034.jpg" />
 </div>
 
 
@@ -688,6 +662,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEC0C04F39CC293A453ACDB2CBB086E286C4EE01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400295   (720932) от 04.08.2020
+
+Ксения Клименко | Почему не дышит нос. Насморк, искривление носовой перегородки, гайморит – как правильно лечить (2020) [EPUB]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720932.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Почему не дышит нос. Насморк, искривление носовой перегородки, гайморит – как правильно лечить» – книга, написанная для пациентов, имеющих проблемы с ЛОР-органами. Ее автор – Ксения Клименко, опытный врач-отоларинголог, стажер лучших клиник США, Европы и Австралии.
+Под одной обложкой собрана самая актуальная информация, основанная на исследованиях высокого уровня (   Читать дальше...   )Жанр: Оториноларингология, Популярно о медицинеФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C51F7C000965F3363AEAE471176506B33374F0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

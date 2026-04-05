@@ -1,161 +1,3 @@
-###  Публикация: 1406629   (470018) от 05.09.2020
-
-Джоэл Грас | Data Science. Наука о данных с нуля, 2-е издание+ коды (2021) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор книги "Наука о данных с нуля" легко, доступ­но и иногда с юмором повествует о сложных вещах, составляющих фундамент нау­ки о данных и машинного обучения. Второе издание кни­ги дополнено главами о глубоком обучении и этике данных. Кроме того, книга со­держит несколько новых разделов, в частности о рекуррентных нейронных сетях, векторных вложениях слов (   Читать дальше...   )Жанр: Базы данныхФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:567D1D7B915A60C21C7643C2E59A0DC74A761905
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160252   (469322) от 27.08.2017
-
-Крис Окасаки | Чисто функциональные структуры данных (2016) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469322.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большинство книг по структурам данных предполагают использование императивного языка программирования, например, C/C++ или Java. Однако реализации структур данных на таких языках далеко не всегда хорошо переносятся на функциональные языки программирования, такие как Стандартный ML, Haskell или Scheme.
-В этой книге структуры данных описываются с точки зрения функциональных (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0D2548FFDAC283D9A0D5889D5609A67B29D136E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160425   (469303) от 27.08.2017
-
-А.Н. Васильев | Числовые расчеты в Excel (2014) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена методам решения вычислительных задач с помощью приложения Excel. Тематика книги охватывает алгебраические уравнения и системы, интерполирование и аппроксимацию функциональных зависимостей, дифференцирование и интегрирование, решение дифференциальных и интегральных уравнений, а также некоторые другие темы из области вычислительных методов.
-Помимо этого, (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0AE5D3345EF684670A066358A6667D557D3270D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 387044   (469008) от 12.09.2011
-
-Руководство по продукту Microsoft Office 2010 [2010] [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469008.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Office 2010 (кодовое имя Office 14) — рабочее название следующей версии пакета Microsoft Office для Microsoft Windows. Microsoft начала работу над Office 2010 в 2006 году, когда заканчивалась работа над пакетом Office 12 (который вышел под названием Microsoft Office 2007). Примечательно, что версия 13 была пропущена из-за того, что число 13 считается неудачным.2010Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE8E00F5C7F8D2FDDA4BB1C12FBA1A412A002B7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320678   (468752) от 19.08.2019
-
-М. Осуолт и др. | Автоматизация программируемых сетей (2019) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Постоянное появление новых протоколов, технологий, моделей доставки и ужесточение требований к интеллектуальности и гибкости бизнес-процессов сделали сетевую автоматизацию чрезвычайно важной. Это практическое руководство наглядно демонстрирует сетевым инженерам, как использовать широкий спектр технологий и инструментальных средств, в том числе Linux, Python, JSON (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDBBF1BC2DEFBB3C92781252A5C1FE41EC9C891B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407062   (468376) от 06.09.2020
-
-Benoît Blanchon | The Ultimate Guide to Master ArduinoJson / Руководство по изучению ArduinoJson (2020) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468376.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге описывается работа с библиотекой ArduinoJSON. Библиотекой позволяющей на встроенных системах эффективно работать с форматом JSON, поясняются все способы сериализации объектов в текст и десериализации. Дополнительно объяснены тонкие моменты по С++, на которых обычно спотыкаются разработчики приходящие с языков на подобие C# или Java.Жанр: программирование, C++, JSONФормат: PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B31333D1F281F9520CB9B814924CBDCC1559456
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 940251   (468186) от 24.09.2015
 
 Марк Сафронов, Джефри Уайнсет | Разработка веб-приложений в Yii 2 (2015) [PDF]
@@ -164,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468186.jpg" />
 </div>
 
 
@@ -190,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468177.jpg" />
 </div>
 
 
@@ -216,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468158.jpg" />
 </div>
 
 
@@ -242,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467707.jpg" />
 </div>
 
 
@@ -268,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466650.jpg" />
 </div>
 
 
@@ -295,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466417.jpg" />
 </div>
 
 
@@ -321,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466190.jpg" />
 </div>
 
 
@@ -349,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465807.jpg" />
 </div>
 
 
@@ -376,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465744.jpg" />
 </div>
 
 
@@ -402,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465735.jpg" />
 </div>
 
 
@@ -428,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465689.jpg" />
 </div>
 
 
@@ -454,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465099.jpg" />
 </div>
 
 
@@ -481,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465049.jpg" />
 </div>
 
 
@@ -507,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465035.jpg" />
 </div>
 
 
@@ -533,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464316.jpg" />
 </div>
 
 
@@ -560,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463712.jpg" />
 </div>
 
 
@@ -588,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462051.jpg" />
 </div>
 
 
@@ -614,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461673.jpg" />
 </div>
 
 
@@ -640,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>2D графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461623.jpg" />
 </div>
 
 
@@ -666,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461591.jpg" />
 </div>
 
 
@@ -677,6 +519,164 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D364EBB036A46FA89E86617A30223D6D23CFAA74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941088   (461578) от 27.09.2015
+
+Джин Ким и др. | Проект «Феникс». Роман о том, как DevOps меняет бизнес к лучшему (2015) [EPUB, FB2, MOBI, PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Билл – IT-менеджер в компании Parts Unlimited. Утро вторника, по дороге в офис его застает врасплох звонок от генерального директора.
+
+Новая IT-инициатива компании под кодовым называнием «Проект Феникс» имеет критическое значение для Parts Unlimited, но проект явно выходит за рамки возможностей бюджета и очень сильно не укладывается в сроки. Генеральный директор (   Читать дальше...   )Жанр: IT-технологии, подготовка IT-специалистовФормат: EPUB, FB2, MOBI, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DAA9392DC675D49372AC8DD4AE69B944C8A922E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246572   (461046) от 11.09.2018
+
+Оксана Силантьева | 92 мультимедийных формата (2018) [PDF, RTF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Справочник-навигатор по многообразию мультимедийных форматов и сервисов для их создания. Полезное пособие для ежедневной практики авторов, журналистов, блогеров, сторителлеров, редакторов. Студентам и преподавателям факультетов журналистики, PR, школ коммуникации книга поможет выстроить практическое обучение мультимедийному сторителлингуЖанр: Компьютерная литератураФормат: PDF, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56743B0FF855B1AC5FCBCDA092F33E80B7FE90EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246528   (460889) от 11.09.2018
+
+Вон Вернон | Реализация методов предметно-ориентированного проектирования (2016) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга имеет замечательную особенность: она посвящена сложной и содержательной теме и раскрывает ее четко, с нюансами, весело и изящно. Книга написана в увлекательном и дружелюбном стиле. Автор выступает в роли доверительного советника, дающего полезные советы по реализации самых важных аспектов. К тому времени, когда вы закончите читать книгу, вы будете в состоянии (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FE8659C067D05869A266259181AF75FCEBEC91A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1321087   (460788) от 23.08.2019
+
+Уильям Воган | Рабочая книга по топологии Pushing Points: Книга 01 (2018) [PDF] [RUS]
+
+>>Компьютерная литература
+>>3D графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460788.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга представляет собой 130-страничное руководство обучения основам работы с топологией SubD (subdivision surface). Здесь представлено более шестидесяти упражнений, наполненных множеством советов, приемов и техник, разработанных для обучения управлением топологией сеток полигонов. На протяжении всей книги вы также найдете множество изображений топологий сеток (   Читать дальше...   )Жанр: 3D моделирование, ТопологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBBC11EBEEA5EEB5221B19BB07E3C2982E9583FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407914   (459770) от 10.09.2020
+
+М.И. Абдрахманов | Библиотека Matplotlib (2019) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459770.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данной книге в форме уроков дана информация, которая поможет вам решить при программировании на языке Python большую часть задач, которые возникают при работе с графиками. Рассмотрены такие темы как визуализация данных: построение линейных, точечных, ступенчатых, stem-графиков, столбчатых и круговых диаграмм, а также 3D графиков. Настройка внешнего вида графиков: (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA320F672482FBB6335F53A9DBFFEA6E88FC6419
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941614   (459456) от 28.09.2015
+
+Майкл Нейгард | Release it! Проектирование и дизайн ПО для тех, кому не все равно (2016) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Майкл Нейгард утверждает, что большинство проблем в программных продуктах были заложены в них еще на стадии дизайна и проектирования. Вы можете двигаться к идеалу сами — методом проб и ошибок, а можете использовать опыт автора. В этой книге вы найдете множество шаблонов проектирования, помогающих избежать критических ситуаций и не меньшее количество антишаблонов, (   Читать дальше...   )Жанр: Проектирование ПОФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:672AD41B07D720AB5563EBB957C97B63ADF30E4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

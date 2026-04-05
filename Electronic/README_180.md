@@ -1,3 +1,61 @@
+###  Публикация: 1528196   (735391) от 31.01.2022
+
+Marc Benjamin - Nicky Romero & Friends Presents NYE (2021-12-31) [MP3|320 Kbps] <Electro Pop, Big Room, Future House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Billie Eilish - Your Power (Marc Benjamin Remix)
+02. Tiësto, KAROL G - Don’t Be Shy
+03. Dua Lipa vs. SAINt JHN & Imanbek vs. Marc Benjamin & Malarkey - Hallucinate vs. Roses vs. I Got 5 On It (Marc Benjamin Mashup)
+04. Marc Benjamin feat. NEVRMIND - Waiting For You (Future Disco Remix)(   Читать дальше...   )Жанр: Electro Pop, Big Room, Future HouseПродолжительность: 00:59:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F85EC1EC6B28F9823B92152135526609A040434F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528062   (735368) от 31.01.2022
+
+InnerSync - Free Spirit (2022) [FLAC|Lossless|WEB|tracks] <Uplifting Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rising Of The Elven Forest (Cinematic Mix) (2:52)
+02. Rising Of The Elven Forest (Original Mix) (8:29)
+03. Treasure Inside (Original Mix) (8:00)
+04. Unbound (Original Mix) (9:09)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 00:46:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7F2CFCC1EEB93C6CC525DCC363FA3B4AAAF9F56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1528043   (735363) от 31.01.2022
 
 Seba - Ingaro (2022) [FLAC|Lossless|WEB|tracks] <Drum & Bass>
@@ -6,7 +64,7 @@ Seba - Ingaro (2022) [FLAC|Lossless|WEB|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735363.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Summerhits 2020 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735252.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Robert Elster - Endless Observations (2020) Liquid Sound Design Records [FLAC|Lo
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735201.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ TodoTodo - Tecnodelia-Tendencias 1980-1981 (2012) LP [MP3|320 Kbps] <Electronic,
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734972.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Lo-Fi Dose to Chill: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734964.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Sufjan Stevens, Bryce Dessner, Nico Muhly, James McAlister: Planetarium (20
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734921.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Super Eurobeat Vol. 227 (2014) [FLAC|Lossless]<Electronic, Disco, Hi NRG, S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734907.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Various Artists - Super Eurobeat Vol. 223 (15 May 2013) [FLAC|Lossless]<Electron
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_734888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_734888.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Shyguys - Venture (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Ou
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734463.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Hungarian Synthwave Allstars Vol. 2 (2016) [FLAC|Lossless|WEB-DL|tracks] <S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734439.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Hungarian Synthwave Allstars Vol. 3 (2017) Summer Edition [FLAC|Lossless|WE
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734437.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Hungarian Synthwave Allstars Vol. 1 (2015) [FLAC|Lossless|WEB-DL|tracks] <S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734434.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Nikita Cano - Exhale (2020) [MP3|~245 Kbps (V0)] <Deep House, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734307.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Goa Gil - Mahashivaratri (2002) Mixed Live In Goa [MP3|~245 Kbps (V0)] <Psy-Tran
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734003.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - For The Users Vol. 1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retro
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733582.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Markus Schulz - Global DJ Broadcast Top 20 July (Extended Version) (2020) [
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733445.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Armin van Buuren - Lost Tapes (2020) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733434.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Relax Culture, Vol. 2 (2020) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733431.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Vocal Trance Top 50 (2020) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733416.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Kaskade - Fire & Ice v3 (2022) [FLAC|Lossless|WEB|tracks] <Progressive House, Me
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_733132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733132.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Vocal Trance Hits (2022) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733120.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Pure Body Workout Hits 2020 [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732943.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Above & Beyond - Anjunabeats Volume 15 (2020) 2CD, DJ Mix [FLAC|Lossless|WE
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732902.jpg" />
 </div>
 
 
@@ -672,7 +730,7 @@ E-Mantra - 15 Years Of Music Special Release Vol 1 (2020) [FLAC 2.0|44.1/24|trac
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732899.jpg" />
 </div>
 
 
@@ -686,64 +744,6 @@ E-Mantra - 15 Years Of Music Special Release Vol 1 (2020) [FLAC 2.0|44.1/24|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:574BFFCCB4AB2DE08B677DC6EBD7891CAA24BAA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399652   (732875) от 01.08.2020
-
-Goasia - Landed On Wrong Planet LP (2020) [FLAC|Lossless|WEB-DL|tracks] <Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732875.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Outer Space Formant (06:09)
-02. Alien's Ultimatum (08:09)
-03. Back To Space (07:00)
-04. Hybrids (07:09)(   Читать дальше...   )Жанр: Goa TranceПродолжительность: 01:10:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECC8B9E84D3DC761D30ADF4FC0685813101BF468
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372817   (732837) от 01.08.2020
-
-VA - The Sound Of Psy-Trance, Vol.1-4 (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732837.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Jarvith Bhaut Perz - Baby (6:29)
-2. Magnetic Resonance - Fraction Of A Point (Radio Edit) (5:03)
-3. Atype - Sleeping Illusion (6:35)
-4. Stepper - Open To Mistikan (7:37)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 03:01:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47920A6C185B44CC8F4DE92334C9E2AFE792492E
 ```
 
 https://mybot314.ru/tekegram_catalog/

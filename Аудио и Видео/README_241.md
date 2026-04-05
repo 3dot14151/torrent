@@ -6,7 +6,7 @@ VA - Across the Ocean (Lounge Collection), Vol. 2 (2020) [AAC|~320 Kbps] <Lounge
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232610.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Alice Francis - Electric Shock (2017) [AAC|~282 Kbps] <Neo Charleston>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232607.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Vanlife Moods, Vol. 1 (2021) [AAC|~310 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232599.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - After Work Chillout, Vol. 2 (2018) [AAC|~324 Kbps] <Lounge, Chill Out, Down
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232592.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Sweet Morning (Chill out and Lounge Collection), Vol. 4 (2021) [AAC|~317 Kb
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232584.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Deep-House Carnival, Vol. 2 (2022) [AAC|~316 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232565.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - After Work Chillout, Vol. 1 (2018) [AAC|~311 Kbps] <Lounge, Chill Out, Down
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232559.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка Lossless (ALAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230990.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Ritmo Sinfonico (2020) [AAC|~285 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_229822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229822.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Inner Balance: Chillout Your Soul, Vol. 4 (2017) [AAC|~326 Kbps] <Chillout,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229796.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Inner Balance: Chillout Your Soul, Vol. 3 (2017) [AAC|~333 Kbps] <Chillout,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229722.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229710.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ VA - Inner Balance: Chillout Your Soul, Vol. 2 (2017) [AAC|~318 Kbps] <Chillout,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229704.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229620.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ VA - Inner Balance: Chillout Your Soul, Vol. 1 (2017) [AAC|~332 Kbps] <Chillout,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229607.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ VA - Chillout Adventures, Pt. 6 (2021) [AAC|~336 Kbps] <Ambient, Chill Out, Down
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229523.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ VA - Chillout Adventures, Pt. 5 (2021) [AAC|~334 Kbps] <Ambient, Chill Out, Down
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229513.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ VA - Chillout Adventures, Pt. 3 (Compiled by Lydia) (2021) [AAC|~327 Kbps] <Ambi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229498.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ VA - Chillout Adventures, Pt. 4 (2021) [AAC|~330 Kbps] <Ambient, Chill Out, Down
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229471.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ VA - Chillout Adventures, Pt. 2 (2021) [AAC|~317 Kbps] <Ambient, Chill Out, Down
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229467.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229329.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229175.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229148.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229083.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228874.jpg" />
 </div>
 
 
@@ -712,7 +712,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228800.jpg" />
 </div>
 
 

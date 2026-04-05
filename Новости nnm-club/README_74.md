@@ -1,3 +1,35 @@
+###  Публикация: 40115   (799417) от 03.04.2017
+
+Gregorian [Полная дискография] [1991-2007] [MP3|192-320 CBR] <New Age>
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_799417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вот попытался собрать здесь как можно более полную дискографию Gregorian.
+Многое уже выкладывалось на трекере, однако "окучить" полностью никто не пробовал. Рискну это сделать...CD 1
+01. Brothers in arms
+02. Scarborough fair
+03. Tears in heaven(   Читать дальше...   )Жанр: New Age
+Официальный сайт группы
+Неофициальный русский сайтПродолжительность: 1:25:24
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1498567   (799291) от 01.11.2021
 
 ИГРА (2021) WEBRip [H.264/1080p-LQ] (сезон 1, выпуски 1-6 из ??) (обновляемая)
@@ -6,7 +38,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799291.jpg" />
 </div>
 
 
@@ -32,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799289.jpg" />
 </div>
 
 
@@ -58,7 +90,7 @@ MyLifeOrganized Pro 5.0.1.3026 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799279.jpg" />
 </div>
 
 
@@ -84,7 +116,7 @@ Alice VR (2016) [Ru/Multi] (1.0/u7) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799265.jpg" />
 </div>
 
 
@@ -110,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798972.jpg" />
 </div>
 
 
@@ -136,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798964.jpg" />
 </div>
 
 
@@ -162,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798961.jpg" />
 </div>
 
 
@@ -188,7 +220,7 @@ Ubuntu*Pack 18.04 (декабрь 2018) [amd64] 1xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798570.jpg" />
 </div>
 
 
@@ -215,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798569.jpg" />
 </div>
 
 
@@ -241,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798507.jpg" />
 </div>
 
 
@@ -267,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798326.jpg" />
 </div>
 
 
@@ -293,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798181.jpg" />
 </div>
 
 
@@ -319,7 +351,7 @@ W10 Digital Activation 1.4.3 by Ratiborus [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798177.jpg" />
 </div>
 
 
@@ -345,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798028.jpg" />
 </div>
 
 
@@ -371,7 +403,7 @@ BELOFF 2021.11 (Авторская раздача)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798027.jpg" />
 </div>
 
 
@@ -397,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798026.jpg" />
 </div>
 
 
@@ -423,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798025.jpg" />
 </div>
 
 
@@ -449,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_797904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_797904.jpg" />
 </div>
 
 
@@ -475,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797843.jpg" />
 </div>
 
 
@@ -502,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797671.jpg" />
 </div>
 
 
@@ -528,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797237.jpg" />
 </div>
 
 
@@ -554,7 +586,7 @@ Dead Space 2 (2011) [Ru/En] (1.1/upd1/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797236.jpg" />
 </div>
 
 
@@ -580,7 +612,7 @@ MInstAll v.07.11.2021 By Andreyonohov (Unpacked) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797168.jpg" />
 </div>
 
 
@@ -606,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797078.jpg" />
 </div>
 
 
@@ -632,39 +664,13 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_796782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_796782.jpg" />
 </div>
 
 
 ###  Подробнее
 
 15 января, во всем мире, включая Россию, стала доступна глобальная исследовательская платформа Dimensions, содержащая 86 миллионов статей и книг и 124 миллионов документов: патентов, информации о грантах и отраслевых стандартах.Проект Dimensions запущен компанией Digital Science в сотрудничестве с экспертами из более чем сотни университетов и исследовательских центров (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011240   (796762) от 27.04.2016
-
-Исследователи обнаружили абсолютно новое состояние молекул воды
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_796762.jpg" />
-</div>
-
-
-###  Подробнее
-
-Технология рассеивания нейтронов и компьютерное моделирование продемонстрировали ученым неожиданное и уникальное поведение молекул воды при некоторых чрезвычайных условиях, которое не соответствует ни одному из известных состояний этого вещества, твердому, жидкому или газообразному.  Ученые из Национальной лаборатории Ок-Ридж (Oak Ridge National Laboratory, ORNL) (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

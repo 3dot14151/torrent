@@ -6,7 +6,7 @@ VA - Glam Rock Party Supermix (1998) [FLAC|Lossless|image + .cue] <Glam, Cover>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815681.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Adriano Celentano - Golden Hits (2013) 3CD [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815108.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ MinaCelentano (Mina & Adriano Celentano) - Le migliori (2016) Deluxe [FLAC|Lossl
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815021.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Arsenal - Furu (2014) [FLAC|Lossless|tracks] <Alternative Pop, Indie Pop, Indie 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813920.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Duran Duran - Future Past (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Pop Ro
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813853.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Dino Dvornik - Pandorina kutija (Special Edition) (2010) [FLAC|Lossless|image + 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813498.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ James Blunt - The Afterlove (2017) Deluxe Edition [FLAC|Lossless|image + .cue] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813026.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Lana Del Rey - Blue Banisters (2021) [FLAC|Lossless|tracks + .cue] <Indie Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811983.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ T.P.H. Productions  - The Party's Here! With Elvis (2002) [FLAC|Lossless|image +
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811728.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ T.P.H. Productions - The Party's Here! With The Beatles (2002) [FLAC|Lossless|im
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811581.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ ZAZ - Isa (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810208.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Julio Iglesias - En El Olympia (1976, 1997) 2CD [FLAC|Lossless|tracks + .cue] <P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810121.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Hazel English - Wake UP! (2020) [FLAC|Lossless|tracks + .cue] <Indie Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810120.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Lana Del Rey - Blue Banisters (2021) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Indie-Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810074.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Moon River: 20 All-Time Favourite Love Songs (1998) [FLAC|Lossless|image + 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809151.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Charli XCX - Number 1 Angel (2017) [FLAC|Lossless|tracks] <Dance-Pop, Electro, S
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808943.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808142.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Duran Duran - Future Past (2021) [FLAC|Lossless|image + .cue] <Pop, Rock, Electr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806319.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Camila Cabello - Camila (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806191.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Lara Fabian - Papillon(S) (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806159.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Michael Jackson - Bad (1987) 2012, 25th Anniversary Deluxe Edition, 3CD [FLAC|Lo
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805683.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ VA - Radio 538 Hitzone 77 (2016) 2CD [FLAC|Lossless|image + .cue] <Top 40, Pop, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805564.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Duran Duran - Greatest (1998) [FLAC|Lossless]<Pop, New Wave>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805153.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ VA - Eurovision Song Contest 2020 - A Tribute to the Artists and Songs (2020) [F
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804172.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ Dami Im - Classic Carpenters (2016) [FLAC|Lossless|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803954.jpg" />
 </div>
 
 
@@ -733,7 +733,7 @@ Nelly Furtado - The Ride (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, R'n'B>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803446.jpg" />
 </div>
 
 

@@ -1,3 +1,107 @@
+###  Публикация: 1366922   (920134) от 13.03.2020
+
+WiFi Analyzer Premium v1.3 build 8 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920134.jpg" />
+</div>
+
+
+###  Подробнее
+
+WiFi Analyzer Premium - премиум версия многофункционального приложения которое позволит вам превратить ваше Андроид устройство в анализатор Wi-Fi сетей, при этом вы сможете использовать полученные данные для выбора наиболее оптимальных сетей, кроме этого информация доступна не только для общего использования, но и для эксплуатации определенных программ и приложений. (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 5.11.2018Разработчик: Abdelrahman M. SidПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C07BF16DF529FFE85F69497B9A4EF0EF713C1BEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366903   (920133) от 13.03.2020
+
+Pro QR & Barcode Scanner PDF417 Scanner, Reader v2.1.0.7 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920133.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сканер Pro QR code & Barcode PDF417 обладает высоким уровнем мощности и мгновенно способен считывать информацию со штрих-кодов и QR-кодов. Он поддерживает все возможные форматы (EAN-13, EAN-8, UPC-A, UPC-E, Code-39 и др.) и подходит абсолютно для любой ОС Андроид. Просмотр кода осуществляется при помощи камеры устройства после включения этого приложения. Сканер (   Читать дальше...   )Тип издания: Mod (Отвязан от сервисов Google Play)Релиз состоялся: 13.03.2020Разработчик: Grato Apps lnc.Поддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90F9E73A7ECD27EEB06C2F8BD06DAD13E8966CAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351128   (920082) от 13.03.2020
+
+XRecorder Pro 1.2.2.3 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920082.jpg" />
+</div>
+
+
+###  Подробнее
+
+Захват фото и видео изображения с экрана смартфона.Тип издания: ПираткаРелиз состоялся: 13.03.20Разработчик: InShot Inc.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF56D8C03076E5C3FC1D79FBD26822F07C7D7061
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367133   (919126) от 14.03.2020
+
+GameKeyboard + v6.1.1 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919126.jpg" />
+</div>
+
+
+###  Подробнее
+
+GameKeyboard – это простое и надежное приложение если вы собрались поиграть в игры что требуют наличия джойстика а у вас при этом его нету. Его будет очень легко настроить да и к тому же все клавиши можно перемещать в нужные вам места. Однако будьте внимательны ведь некоторые функции доступны только при наличии root прав, хотя для большинства из них они не требуется, (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 22.08.2017Разработчик: LocnetПоддерживаемая ОС: Android 2.2+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72E2762724DF09106A4C6FD18DDE0255D5E879B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367104   (918977) от 14.03.2020
 
 Groovepad - Music & Beat Maker v1.1.0 [En]
@@ -6,7 +110,7 @@ Groovepad - Music & Beat Maker v1.1.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918977.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ Oreny - Icon Pack v1.6.2.4.1 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918970.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918966.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ Analog Electronic Toolbox v3.77 [En] - набор инструментов дл�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918862.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ GT Recovery - Undelete,Restore 2.6.2 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918853.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ Gym Pro - Домашние тренировки v112.5 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918756.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ Mod Master For Minecraft v3.9.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918492.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ ProCam X (HD Camera Pro) 1.16 (Paid) [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917096.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ PhotoPills v1.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915776.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ SimpleRockets 2 v0.9.205 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915672.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ DraStic DS Emulator vr2.5.2.0a build 101 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915668.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ AIDE Premium Key v3.0.2 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915543.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ App Cloner v2.1.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915526.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915404.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ Apex Launcher Pro v4.7.2 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915380.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ Screen Stream Mirroring v2.5.4e [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915374.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ LOCKED - Секретный Альбом v1.3.3 [Ru/Multi] - Спрятать Ф
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915283.jpg" />
 </div>
 
 
@@ -451,7 +555,7 @@ Diaro - личный дневник v3.20.0 Pro [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915270.jpg" />
 </div>
 
 
@@ -478,7 +582,7 @@ Sci-Fi Launcher Pro v2.8.8 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915229.jpg" />
 </div>
 
 
@@ -504,7 +608,7 @@ SHAREit - Connect & Transfer v5.3.52_ww [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915226.jpg" />
 </div>
 
 
@@ -531,7 +635,7 @@ ipTView v1.9.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915018.jpg" />
 </div>
 
 
@@ -557,7 +661,7 @@ Hola Premium VPN Proxy v1.165.475 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914975.jpg" />
 </div>
 
 
@@ -568,110 +672,6 @@ Hola Free VPN Proxy - Хотите посетить кучу зарубежны�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5736C9A230496D4837A7757C92DC82FB77DE466
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367608   (914962) от 16.03.2020
-
-Car Scanner ELM OBD2 v1.50.5 [Ru/En]
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914962.jpg" />
-</div>
-
-
-###  Подробнее
-
-Car Scanner - это отличный помощник для любого водителя. С помощью этого приложения вы всегда сможете сделать диагностику своего свой автомобиля.Тип издания: Mod (Отвязан от сервисов Google Play)Релиз состоялся: 16.03.2020Разработчик: 0vZПоддерживаемая ОС: Android 4.3+Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF3A059414E8052A21650AE3E20753BC835D660C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367858   (913827) от 17.03.2020
-
-Piano Companion PRO: аккорды v1.8.3.2 + v6.29.315 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913827.jpg" />
-</div>
-
-
-###  Подробнее
-
-Piano Companion PRO: аккорды / Piano Chords, Scales, Progression Companion PRO - Играете на пианино но никак не можете управиться с изучением аккордов или разбором какой то мелодии? Тогда это приложение было создано специально для вас! С его помощью вы сможете не только научится находить аккорды, гаммы и ноты но и создавать из них настоящую музыку. Объединив всё (   Читать дальше...   )Тип издания: Premium+Релиз состоялся: 16.03.2019Разработчик: SongtiveПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C68D4171A6E2FDD8E8C843CF1EA15F947E87795C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932789   (913330) от 17.03.2020
-
-Ремонт велосипеда v1.0 Ad-Free [Ru] - инструкции по ремонту велосипеда
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913330.jpg" />
-</div>
-
-
-###  Подробнее
-
-В приложении содержатся инструкции по ремонту велосипеда:Тип издания: Ad-Free с Маркета (без рекламы)Релиз состоялся: 14.09.2019Разработчик: milviknikПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E34C3A8094C50A7386059E6CAD12AA65F53FE9C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367599   (911809) от 18.03.2020
-
-Запись Звонков v6.04 [Ru/En]
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911809.jpg" />
-</div>
-
-
-###  Подробнее
-
-Записывайте любые вызовы и сохраняйте важные. Вы можете выбрать, какие вызовы записывать, а какие нет. Прослушивайте записи, добавляйте примечания и делитесь ими с друзьями. Интеграция с Google Drive™ и Dropbox позволяет сохранять вызовы и синхронизировать их в облаке.Тип издания: PremiumРелиз состоялся: 22.01.2020Разработчик: AppliqatoПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D792D32497328C842A1375D23C5605D483019F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

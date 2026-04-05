@@ -1,3 +1,29 @@
+###  Публикация: 1400247   (721413) от 04.08.2020
+
+Todoey 2: menu bar checklists v2.0.6d [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый простой способ запомнить что-то необходимое. Приложение находится в строке меню, поэтому оно всегда на расстоянии одного клика. Оно отлично вписывается в ваш рабочий стол macOS в темной и светлой темах. Todoey 2 также синхронизируется с помощью iCloud, поэтому вы всегда будете получать резервные копии и обновляться на всех ваших Mac.Тип издания: macOS SoftwareРелиз состоялся: 28.06.2020Разработчик: NICE APPS.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:209D16ED6BC34BACF135DE6B0177F5E6E860E7FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1400387   (721295) от 04.08.2020
 
 Alfred 4 Powerpack 4.1.1 (build1170) [En]
@@ -6,7 +32,7 @@ Alfred 4 Powerpack 4.1.1 (build1170) [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721295.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ AppCleaner 3.6.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720647.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ Path Finder 9 v9.4 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718863.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ Weather Guru - Accurate Weather Forecasts 1.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718055.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ Simbooster Premium 2.9.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716791.jpg" />
 </div>
 
 
@@ -144,7 +170,7 @@ Spillo 2.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716648.jpg" />
 </div>
 
 
@@ -172,7 +198,7 @@ Membrane Pro - Cover image maker 1.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716531.jpg" />
 </div>
 
 
@@ -200,7 +226,7 @@ TripMode 2.2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716263.jpg" />
 </div>
 
 
@@ -228,7 +254,7 @@ QR Factory 2.9.10 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716251.jpg" />
 </div>
 
 
@@ -255,7 +281,7 @@ VMware Fusion Pro 11 v11.5.6 (build 16696540) [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714667.jpg" />
 </div>
 
 
@@ -282,7 +308,7 @@ Roxio Toast Titanium 17 v17.4.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714362.jpg" />
 </div>
 
 
@@ -308,7 +334,7 @@ Gridsutra 1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714231.jpg" />
 </div>
 
 
@@ -334,7 +360,7 @@ Timing - The Best Automatic Time Tracking 1.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713986.jpg" />
 </div>
 
 
@@ -361,7 +387,7 @@ Contacts Cleaner 1.7.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713807.jpg" />
 </div>
 
 
@@ -389,7 +415,7 @@ Inklet 2.0.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713673.jpg" />
 </div>
 
 
@@ -418,7 +444,7 @@ Smart Scroll 4.3.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712607.jpg" />
 </div>
 
 
@@ -446,7 +472,7 @@ BookmarkApp 1.6 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712362.jpg" />
 </div>
 
 
@@ -472,7 +498,7 @@ UltData (iPhone Data Recovery) 7.4.0.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712174.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ Copied 4.0.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711497.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ Lux 1.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711491.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ Git For Command Line on Mac OS X (Git v. 2.7.1) [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710388.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ AppDelete 4.3.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710148.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ FoldersSynchronizer 5.1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707708.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ Tenorshare UltData - Mac 3.0.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707527.jpg" />
 </div>
 
 
@@ -672,7 +698,7 @@ MacPaw Hider 2 2.4.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706680.jpg" />
 </div>
 
 
@@ -685,34 +711,6 @@ MacPaw Hider 2 2.4.9 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D156A68C458FA736098BB7934E39DF9510790C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131728   (706585) от 06.05.2017
-
-Stellar Drive Defrag 3.0.0.3 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706585.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа Дефрагментация диска от Stellar – это эффективное программное обеспечение, предназначенное для дефрагментации диска и помощи пользователям Mac по улучшению производительности их систем. Утилита безопасно дефрагментирует сильно фрагментированные файлы, а также данные на жестком диске, сохраняя их должным образом в соседних ячейках памяти
-
-- Позволяет проводить (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: апрель 2017Разработчик: Stellar Information Technology Private LimitedПоддерживаемая ОС: OS X 10.6 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79A68F8A7EF9A0623E8B515EAA87AC87C71C8558
 ```
 
 https://mybot314.ru/tekegram_catalog/

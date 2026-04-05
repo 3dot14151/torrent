@@ -1,84 +1,3 @@
-###  Публикация: 1402079   (702990) от 13.08.2020
-
-Михалис Цукалос | Golang для профи. Работа с сетью, многопоточность, структуры данных и машинное обучение с Go [2-е издание] (2020) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702990.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вам уже знакомы основы языка Go? В таком случае эта книга для вас. Михалис Цукалос продемонстрирует возможности языка, даст понятные и простые объяснения, приведет примеры и предложит эффективные паттерны программирования.
-Изучая нюансы Go, вы освоите типы и структуры данных языка, а также работу с пакетами, конкурентность, сетевое программирование, устройство компиляторов, (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F812F6C750D6FC71516EA6A5B4593A8D7E9BA956
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025792   (701440) от 16.06.2016
-
-Майк МакГрат | Программирование на Java для начинающих (2016) [PDF]
-
->>След.
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701440.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга "Программирование на Java для начинающих" является исчерпывающим руководством для того, чтобы научиться программировать на языке Java.
-Познакомившись с основами языка, вы научитесь использовать основные возможности Java, необходимые для изучения операторов, операций обработки данных, импорта, создания интерфейсов и изготовления апплетов с использованием (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:831E5FC0248CB406E296740F295895D9B677AAD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025793   (701426) от 16.06.2016
-
-Майк МакГрат | Программирование на Python для начинающих (2015) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701426.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга "Программирование на Python для начинающих" является исчерпывающим руководством для того, чтобы научиться программировать на языке Python.
-В этой книге с помощью примеров программ и иллюстраций, показывающих результаты работы кода, разбираются все ключевые аспекты языка. Установив свободно распространяемый интерпретатор Python, вы с первого же дня (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:677B5B098E2849599EB29EC4FC651586BC464475
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287668   (700792) от 08.03.2019
 
 Гарри Персиваль | Python. Разработка на основе тестирования (2018) [PDF]
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700792.jpg" />
 </div>
 
 
@@ -113,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700698.jpg" />
 </div>
 
 
@@ -139,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699129.jpg" />
 </div>
 
 
@@ -165,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698490.jpg" />
 </div>
 
 
@@ -191,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697794.jpg" />
 </div>
 
 
@@ -217,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697387.jpg" />
 </div>
 
 
@@ -243,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693301.jpg" />
 </div>
 
 
@@ -269,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692630.jpg" />
 </div>
 
 
@@ -295,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691726.jpg" />
 </div>
 
 
@@ -321,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691436.jpg" />
 </div>
 
 
@@ -347,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691435.jpg" />
 </div>
 
 
@@ -373,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690137.jpg" />
 </div>
 
 
@@ -399,7 +318,7 @@ ITCHIEF.RU | Справочник Bootstrap (2016) [CHM]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688777.jpg" />
 </div>
 
 
@@ -426,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687162.jpg" />
 </div>
 
 
@@ -453,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685882.jpg" />
 </div>
 
 
@@ -479,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685861.jpg" />
 </div>
 
 
@@ -505,7 +424,7 @@ Web Code Geeks | AngularJS Programming Cookbook (2015) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684703.jpg" />
 </div>
 
 
@@ -531,7 +450,7 @@ Piyas De | Building web apps with Node.js (2015) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684590.jpg" />
 </div>
 
 
@@ -558,7 +477,7 @@ Fabio Cimo | CSS Programming Cookbook (2015) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684581.jpg" />
 </div>
 
 
@@ -584,7 +503,7 @@ Fabio Cimo | How to become a Web Developer (2016) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684580.jpg" />
 </div>
 
 
@@ -610,7 +529,7 @@ Fabio Cimo | Bootstrap Programming Cookbook (2015) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684577.jpg" />
 </div>
 
 
@@ -636,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684557.jpg" />
 </div>
 
 
@@ -662,7 +581,7 @@ Java code geeks | Docker Containerization Cookbook (2016) [PDF] [En]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684497.jpg" />
 </div>
 
 
@@ -673,6 +592,86 @@ Docker является ведущей в мире платформой для �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADED70D6929929011ABA0AB4294DA924722F3E58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289930   (683606) от 17.03.2019
+
+Прасти Нараян | Блокчейн. Разработка приложений [+files] (2018) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683606.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказано о том, что такое децентрализованные приложения и как они работают. Рассмотрены принципы работы платформы Ethereum. Показано, как писать смарт-контракты и использовать интерактивную консоль Geth для размещения и передачи транзакций. Описана библиотека web3.js, ее импорт, подключение к Geth и использование в среде Node.js или на стороне клиента.
+
+Продемонстрировано, (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73AC3CB2B5BE660B7CF7836681814B94E0E4B270
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134577   (682801) от 18.05.2017
+
+Fabio Cimo | The Best Web Programming Languages to Learn (2016) [PDF] [En]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682801.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой статье мы рассмотрим самый важный аспект современной сети, языков программирования, которые составляют ядро каждой веб-страницы, которую мы видим в Интернете каждый день. В частности, мы рассмотрим некоторые из лучших языков программирования, о которых разработчик должен знать, чтобы повлиять на их жизнь (как личную, так и профессиональную).Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13341AD4F8958E08C28BA04D79AE3067B37E6C68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134694   (682798) от 18.05.2017
+
+Raman Jhajj | Apache Hadoop Cookbook (2016) [PDF] [En]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682798.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге мы предоставляем компиляцию примеров на основе Hadoop, которые помогут вам начать ваши собственные веб-проекты. Мы охватываем широкий спектр тем: от установки и настройки до распределенного кэширования и потоковой передачи. С помощью наших простых обучающих программ вы сможете запустить и запустить свои собственные проекты за минимальное время.Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08E4E943A20B14C614B4988479BF49FB2DF4C64C
 ```
 
 https://mybot314.ru/tekegram_catalog/

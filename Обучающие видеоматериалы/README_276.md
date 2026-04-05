@@ -1,3 +1,31 @@
+###  Публикация: 1525855   (128981) от 22.01.2022
+
+Дмитрий Шумаков | Технология монтажа водяного теплого пола (2015) WEB-DL [Пакет VIP]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четвертое издание единственного в рунете наглядного и практического видеокурса по монтажу систем водяного теплого пола.
+Отснятый полностью с нуля видеокурс шаг за шагом расскажет Вам, как своими руками смонтировать и запустить одну из самых экономичных и самую комфортную систему отопления.
+Когда Вы всерьез начнете применять информацию из курса «Технология монтажа (   Читать дальше...   )Жанр: СтроительствоПродолжительность: 13:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:666801024AF154D91290AF1F8879D96B3D6CC3F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525814   (128980) от 22.01.2022
 
 Александра Кибзий | Пилатес на каждый день (2021) WEB-DL
@@ -6,7 +34,7 @@
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128980.jpg" />
 </div>
 
 
@@ -35,7 +63,7 @@ Class101, Inhyuk Lee | The Ultimate Guide to Illustration - From Beginner to Int
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128976.jpg" />
 </div>
 
 
@@ -64,7 +92,7 @@ PhotoCASA, Сергей Парышков | Креативные приемы в 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128974.jpg" />
 </div>
 
 
@@ -92,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128921.jpg" />
 </div>
 
 
@@ -120,7 +148,7 @@ Kuptsov GameDev Academy, Данил Купцов | Industry Entry for 3D Artist 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128878.jpg" />
 </div>
 
 
@@ -149,7 +177,7 @@ Domestika, David Drazil | Architectural Drawing: From Paper to Photoshop (2023) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128785.jpg" />
 </div>
 
 
@@ -176,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128783.jpg" />
 </div>
 
 
@@ -205,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128741.jpg" />
 </div>
 
 
@@ -231,7 +259,7 @@ Enterclass, Сергей Курбатов | Осенний Павловск (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128720.jpg" />
 </div>
 
 
@@ -260,7 +288,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128639.jpg" />
 </div>
 
 
@@ -289,7 +317,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128635.jpg" />
 </div>
 
 
@@ -317,7 +345,7 @@ CyberYozh, Евгений Ивченков, LastByte | Анонимность и
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128628.jpg" />
 </div>
 
 
@@ -343,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128476.jpg" />
 </div>
 
 
@@ -372,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128462.jpg" />
 </div>
 
 
@@ -401,7 +429,7 @@ Domestika, Luke Adam Hawker | Artistic Architectural Drawing with Ink (2022) WEB
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128457.jpg" />
 </div>
 
 
@@ -430,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128450.jpg" />
 </div>
 
 
@@ -459,7 +487,7 @@ Gastrosmile, Венера Хабирова | Желудок – ты как? (20
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128426.jpg" />
 </div>
 
 
@@ -488,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128342.jpg" />
 </div>
 
 
@@ -517,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128334.jpg" />
 </div>
 
 
@@ -546,7 +574,7 @@ Ben Marriott | Motion Foundation (2023) WEB-DL [AD] [EN / EN Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128311.jpg" />
 </div>
 
 
@@ -575,7 +603,7 @@ CG Education, Максим Шаров,  Алиса Арифи | Геймифик
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128289.jpg" />
 </div>
 
 
@@ -604,7 +632,7 @@ Motion Science, Cameron Pierron | AE Volume I: The Fundamentals (2019) WEB-DL [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128274.jpg" />
 </div>
 
 
@@ -632,7 +660,7 @@ Artefactoschool, Константин Стерхов | Пора цветения
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128263.jpg" />
 </div>
 
 
@@ -661,7 +689,7 @@ Motion Science, Cameron Pierron | AE Volume II: Intermediate Techniques (2019) W
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128252.jpg" />
 </div>
 
 
@@ -690,7 +718,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128248.jpg" />
 </div>
 
 
@@ -704,35 +732,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:755E62C3CD4703287108AB6200222FD732019541
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683879   (128180) от 13.12.2023
-
-Fit-Standard, Владимир Лапин | Техника выполнения упражнений в тренажерном зале (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Здоровье и Спорт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс по технике выполнения упражнений
-Вы научитесь подбирать вид тренировки для своего клиента, с точки зрения эффективности и безопасности. Разберетесь в составлении плана тренировок и комплексов тренировочных программ.
-На курсе вы изучите
-Базовые правила выполнения упражнений и полный разбор каталога базовых упражнений в тренажерах и со свободными весами.(   Читать дальше...   )Производство: Fit-StandardЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 16:39:45Реклама: Наложения на видео и вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70A473D806DB4CEBE6B11AEF632E17871B476329
 ```
 
 https://mybot314.ru/tekegram_catalog/

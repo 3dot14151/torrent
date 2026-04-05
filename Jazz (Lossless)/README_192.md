@@ -6,7 +6,7 @@ Ray Bryant - Trio (1956) /2014, Sony Music/[FLAC|tracks+.cue]<Mainstream Jazz, P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411788.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Johnny "Hammond" Smith Trio plus Seldon Powell - Black Coffee (1962) /2012, Univ
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411612.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Scott Hamilton - plays with The Dany Doriz Caveau De La Huchette Orchestra (2014
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411605.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Johnny Hammond - Gambler's Life (1974) /2013, King Records/[FLAC|tracks+.cue]<Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411604.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Donny McCaslin - Fast Future (2015) Greenleaf Music [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411313.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ European Jazz Trio - An Afternoon In Amsterdam (2009) M&I [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411311.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Jimmy Forrest - Most Much! (1961) 1989, Original Jazz Classics [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410686.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Booker Ervin - Groovin' High (1964) 1996, Original Jazz Classics [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410685.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Andrew Hill - Eternal Spirit (1989) Blue Note [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410684.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Eddy Louiss - Recit Proche (2001) Dreyfus Jazz [WavPack|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410683.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Bob Rockwell Quartet - Shades of Blue (1996) SteepleChase [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410682.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Sonny Stitt - Mr. Bojangles (1973) 2013, Universal [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410613.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Rita Reys - Hollands Glorie: The Lady Strikes Again (2005) CNR Music [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410612.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Hank Jones - Upon Reflection: The Music Of Thad Jones (1993) Verve [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410550.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ V.A. - Chilled Jazz (2022) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410399.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Lina Nyberg - Open (1998) Prophone [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410333.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Cal Tjader - Plays the Contemporary Music of Mexico and Brazil (1962) 2008, Verv
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410332.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Ahmad Jamal - Freeflight (1971) 1993, GRP[FLAC|Lossless|tracks + .cue] <Post-Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410269.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Joe Lovano Quartet - Classic! Live At Newport (2005) 2016, Blue Note[FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410268.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Great Jazz Trio - Standard Collection Volume 2 (1988) Remaster, 2015, Solid Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410182.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Scott Hamilton - Organic Duke (1994) 2000,  Concord Jazz [APE|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410101.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Elvin Jones - The Ultimate (1968) /2014, Universal/[FLAC|tracks+.cue]<Post-Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409811.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ The Billy Taylor Trio - A Touch Of Taylor (1955) /2013, Universal/[FLAC|tracks+.
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409800.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Pharoah Sanders - Africa (1987) /2015, Timeless Records/[FLAC|tracks+.cue]<Avant
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409654.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Gerry Mulligan - Mosaic Select 3CD (1957-1958) /2006, Mosaic Records/[FLAC|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409644.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Jeff Lorber & Chuck Loeb - Bop (2015) /Agate/[FLAC|tracks+.cue]<Bop, Mainstream 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409540.jpg" />
 </div>
 
 

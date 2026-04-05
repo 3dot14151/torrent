@@ -6,7 +6,7 @@ Joe Pass & John Pisano - Duets (1991) 1996, Pablo [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29380.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Arlee Leonard, Cleave Guyton & Igor Dmitriev Trio - Status Quo (2008) 2024, Apol
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29379.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Pop International Hits Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25619.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Travelin' Light - Makin' Whoopee (1993) Telarc Jazz [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25000.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Freddie Hubbard - Gleam (1975) 2CD, 2012, Wounded Bird Records[FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23736.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Papik & Laura Lanzillo - La Gatta (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23543.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Vintage Jazz Ballads: Timeless Romantic Standards (2025) [FLAC|Lossless|WEB
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22156.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Chris Connor - Chris Connor (1956) 1991, Atlantic [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21217.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Clark Terry And His Orchestra - Featuring Paul Gonsalves (1959) 2001, Storyville
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20699.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Jeff Libman - Feet Off the Ground (2025) [FLAC|Lossless|WEB-DL|tracks] <Contempo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20696.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Steve Blayer - Vermont Wanderer (1996) Ermatell Records[FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20364.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Eileen Sharkey - Lessons Of Love (2000) Self-Released [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19775.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Brian Simpson - Midnight Groove (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19774.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Charles Rouse - Two Is One (1974) 1992, Strata-East [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19756.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Joe Newman - Quintet At Count Basie's (1961) 2005, Verve Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18828.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Beegie Adair - The Great American Songbook (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18822.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Dizzy Gillespie - Jambo Caribe (1964) 1998, Verve Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17564.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Boney James - Morning Sax (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17562.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Dee Alexander - Songs My Mother Loves (2014) Blujazz [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17295.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Dianne Reeves - That Day... (1997) Blue Note [FLAC|Lossless|tracks + .cue] <Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17089.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Joe Pass - For Django (1964) 1998, BGO Records [FLAC|Lossless|tracks + .cue] <Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16870.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Jazz Funk Soul - Simpatico (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz , J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16806.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Shelly Manne & His Men - Swinging Sounds, Vol.4 (1956) 1996, Original Jazz Class
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16779.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Carl Cox - Philly Strut (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16687.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Konstantin Klashtorni - Summer Favorites (2025) [FLAC|Lossless|WEB-DL|tracks] <S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16653.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Lemek - Boundless (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16652.jpg" />
 </div>
 
 

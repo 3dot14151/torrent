@@ -1,3 +1,55 @@
+###  Публикация: 979555   (956070) от 29.01.2016
+
+И.А. Петров | Строчные трансформаторы в телевизорах и мониторах (2004) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956070.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описаны принципы работы строчных трансформаторов в телевизорах и мониторах, приведены формулы расчета и значения напряжений на обмотках трансформаторов при различных способах их включения, даны характерные неисправности аппаратов, связанные с отказами строчных трансформаторов, и методики их диагностики и устранения.Жанр: ТелевидениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6723031E3C3830FDC37E34F93F872CF715D6666F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980784   (954500) от 30.01.2016
+
+А.И. Белоус, В.А. Емельянов | Основы технологии микромонтажа интегральных схем (2013) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954500.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эволюция изделий интегральной микроэлектроники неотделима от прогресса в области технологии корпусирования интегральных микросхем, которую еще 10-15 лет тому назад относили к разряду второстепенных, не требующих проведения широкомасштабных научных исследований и базирующихся на использовании возможностей имеющегося парка сборочного оборудования. За этот период решены (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB5E446A8308F1971B36DEC2564A218E59284EF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089046   (953660) от 02.01.2017
 
 А.И. Канащенков, В.И. Меркулов (ред.) | Оценивание дальности и скорости в радиолокационных системах (Часть 1) (2004) [PDF]
@@ -6,7 +58,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953660.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953601.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952022.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_951555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_951555.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950976.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ Baxi | Газовые котлы BAXI, инструкции. [2010] [PDF]
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950055.jpg" />
 </div>
 
 
@@ -171,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948830.jpg" />
 </div>
 
 
@@ -197,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948736.jpg" />
 </div>
 
 
@@ -223,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941696.jpg" />
 </div>
 
 
@@ -249,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936586.jpg" />
 </div>
 
 
@@ -275,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933615.jpg" />
 </div>
 
 
@@ -301,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932601.jpg" />
 </div>
 
 
@@ -329,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928884.jpg" />
 </div>
 
 
@@ -355,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922641.jpg" />
 </div>
 
 
@@ -381,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922137.jpg" />
 </div>
 
 
@@ -407,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921515.jpg" />
 </div>
 
 
@@ -434,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921481.jpg" />
 </div>
 
 
@@ -461,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921356.jpg" />
 </div>
 
 
@@ -489,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919627.jpg" />
 </div>
 
 
@@ -515,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911935.jpg" />
 </div>
 
 
@@ -541,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911917.jpg" />
 </div>
 
 
@@ -567,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911364.jpg" />
 </div>
 
 
@@ -593,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910111.jpg" />
 </div>
 
 
@@ -619,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910080.jpg" />
 </div>
 
 
@@ -630,58 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFB53CECB2048F04ECAAB67FF3169BB87798FCA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368886   (906970) от 21.03.2020
-
-Андерс Андерссон | Измерительные технологии для процесса автоматизации (2017) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906970.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная книга ориентирована на практическую работу с измерительными приборами. Вы можете начать с поиска примера, близкого к вашей проблеме измерения. Таким образом, это не важно, в какой отрасли вы работаете. Например, вопросы измерения и контроля в процессе смешивания в большинстве аспектов одинаковы, независимо от того, работаете ли вы с нефтью, пищевыми продуктами (   Читать дальше...   )Жанр: Автоматика и телемеханикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A834A5CD345439CCFC5D9E38D9634CA471057076
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099347   (903148) от 02.02.2017
-
-А.М. Рембовский и др. | Радиомониторинг. Зaдачи, методы, средства (2010) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903148.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены типовые задачи, решаемые с помощью средств радиомониторинга в самых различных областях - от управления использованием радиочастотного спектра до контроля радиообстановки при проведении контртеррористических операций. Изложены теоретические и практические вопросы построения и функционирования радиотехнических систем радиомониторинга и технической защиты (   Читать дальше...   )Жанр: РадиотехникаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2256E06BA41E53CD43C3FE2E8A46BF52F70A5616
 ```
 
 https://mybot314.ru/tekegram_catalog/

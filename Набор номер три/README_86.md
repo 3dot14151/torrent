@@ -1,3 +1,166 @@
+###  Публикация: 222614   (940582) от 02.02.2014
+
+Книжная серия | "Фантастический боевик" [866 книг] (1992-2014) [FB2]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940582.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия основана в 1992 году. Выпуск книг серии продолжается.
+
+* самая популярная и обширная по количеству томов серия современной остросюжетной фантастики.
+* лучшие романы и повести отечественных и зарубежных писателей.(   Читать дальше...   )Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28470A6DBBA9B8FAC6C0ECF1CE0666F054F19DA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363457   (940472) от 29.02.2020
+
+РАН пожалуется в ООН на Илона Маска из-за спутниковой системы Starlink
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российская академия наук намерена направить в ООН письмо с жалобой на спутниковую систему Илона Маска Starlink, поскольку развертываемая система из тысяч спутников будет мешать работе астрономов, рассказал астрофизик, научный сотрудник Института астрономии РАН Николай Самусь."Мы сейчас занимаемся подготовкой письма от РАН, и завтра с вице-президентом РАН (Юрием) (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363274   (940470) от 29.02.2020
+
+Музыканты сгенерировали 1,2 Тбайт всевозможных мелодий для защиты от копирайтов
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проблема авторских прав в музыкальной индустрии давно уже назрела. Компании подают многомиллионные иски, судебные разбирательства тянутся годами, но ситуация не улучшается. И потому появилось  весьма оригинальное решение.Юрист, программист и музыкант Дэмиен Рил (Damien Riehl) совместно с другим музыкантом Ноа Рубином (Noah Rubin) предложили свою идею, которая должна (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363750   (940466) от 29.02.2020
+
+Nvidia DriverPack v.442.50 RePack by CUTA [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940466.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nvidia DriverPack - это единый пакет со стандартными драйверами GeForce Game Ready, для видеокарт от Nvidia, как для ОС Windows 7 и 8, так и для Windows 10 включительно.
+Предназначены для видеокарт семейства GeForce, работающих в операционной системе Windows. Унифицированная архитектура драйверов (CUDA) гарантирует прямую и обратную совместимость драйверов с различными (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E4FA1CDCF4FE3E9E8E0EEE45E703422FA111122
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363717   (940431) от 29.02.2020
+
+PROMT 20 Expert Portable by conservator [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940431.jpg" />
+</div>
+
+
+###  Подробнее
+
+PROMT 20 Expert - это корпоративное решение, предназначенное для организации процесса перевода и локализации в переводческих компаниях и отделах перевода.
+Преимущества программы:
+• Поддержка проектов по переводу технической документации и других типовых документов
+• Интеграция корпоративных ресурсов – память перевода (Translation Memory), словарей и глоссариев(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD3DD7A64DB877BC7E617A4EBC4315B26667F1B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363576   (940429) от 29.02.2020
+
+«Эльбрусы» приблизились по производительности к Intel 2014 года
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940429.jpg" />
+</div>
+
+
+###  Подробнее
+
+В распоряжении энтузиаста оказались серверные процессоры «Эльбрус», которые он использовал для теста, сравнивая производительность этих чипов с распространенными моделями Intel и AMD.Проверка для «Эльбрусов»В Сети появились результаты частного сравнительного исследования производительности отечественных процессоров «Эльбрус-8C». Выводы эксперта под ником Seti уже (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 126093   (940424) от 29.02.2020
 
 Deep Forest - Essence Of The Forest by Deep Forest (2004) [DTS]<New Age>
@@ -6,7 +169,7 @@ Deep Forest - Essence Of The Forest by Deep Forest (2004) [DTS]<New Age>
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940424.jpg" />
 </div>
 
 
@@ -35,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940419.jpg" />
 </div>
 
 
@@ -61,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940418.jpg" />
 </div>
 
 
@@ -87,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940417.jpg" />
 </div>
 
 
@@ -113,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>11
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940416.jpg" />
 </div>
 
 
@@ -139,7 +302,7 @@ Windows 7 Enterprise SP1 RTM x86/x64 by The Hacker [русский]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939907.jpg" />
 </div>
 
 
@@ -165,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_939899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_939899.jpg" />
 </div>
 
 
@@ -191,7 +354,7 @@ Windows XP SP3 типа LEX - Быстрая установка с помощь�
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939892.jpg" />
 </div>
 
 
@@ -219,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939815.jpg" />
 </div>
 
 
@@ -245,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939797.jpg" />
 </div>
 
 
@@ -271,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939578.jpg" />
 </div>
 
 
@@ -298,7 +461,7 @@ Daum PotPlayer 1.6.63891 DC 09.01.2017 Stable RePack + Portable by 7sh3 [Multi/R
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939560.jpg" />
 </div>
 
 
@@ -324,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939542.jpg" />
 </div>
 
 
@@ -350,7 +513,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.0.0s/dlc) Repack R.G. Механи
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939537.jpg" />
 </div>
 
 
@@ -376,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>14
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939503.jpg" />
 </div>
 
 
@@ -403,7 +566,7 @@ Far Cry Primal (2016) [Ru/Multi] (1.3.3/dlc) Repack R.G. Revenants [Apex Edition
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939469.jpg" />
 </div>
 
 
@@ -429,7 +592,7 @@ Test Drive Unlimited Gold(2008) [Ru] (1.66а/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939463.jpg" />
 </div>
 
 
@@ -455,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939457.jpg" />
 </div>
 
 
@@ -482,7 +645,7 @@ Test Drive Unlimited 2 (2011) [Ru/En] (034 Build 16/dlc) Repack Other s [Complet
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939455.jpg" />
 </div>
 
 
@@ -508,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939451.jpg" />
 </div>
 
 
@@ -519,164 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDF6C25BB169DB98191F6F74BF68C138437078F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983618   (939435) от 08.02.2016
-
-Сергей Сараханов | Основы фотографии (2015) CamRip [H.264/720p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фундаментальный курс по фотографии, от Сергея Сараханова
-пройдя который вы сможете смело шагнуть в профессиональную сферу!Жанр: ФотографияПродолжительность: 09:15:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D1C6A18FA8DAFC24AF4320F6EBAF7498FE409E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984028   (939434) от 08.02.2016
-
-(Linux) XCOM 2 (2016) [Ru/En] (1.0.0.30310) SteamRip [Digital Deluxe Edition]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939434.jpg" />
-</div>
-
-
-###  Подробнее
-
-XCOM 2 – это продолжение полюбившейся игрокам и критикам стратегии XCOM: Enemy Unknown, получившей в 2012 году титул «Игра года».
-Земля изменилась. Двадцать лет прошло, с тех пор как мировые лидеры подписали акт о безоговорочной капитуляции перед пришельцами. Организация XCOM, последний рубеж обороны Земли, уничтожена, а её остатки рассеяны по миру. В XCOM 2 планетой (   Читать дальше...   )Тип издания: SteamRipРазработчик: Firaxis Games и Feral InteractiveЖанр: Strategy (Real-time, Turn-based, Tactical), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7A1E3D0B207B10E673D26AE8BC354C38408B0C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982807   (939432) от 08.02.2016
-
-FlatOut 2: Reborn (2015) [Ru/En] (0.8.16) Mod Dominator
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разработчики FlatOut 2 Reborn взяли лучшее от FlatOut 2 и FlatOut Ultimate Carnage, добавив множество нововведений, и переработав игру практически полностью. Здесь нет места для спокойной езды, крошите своих оппонентов вдребезги! Пронеситесь по заброшенным водным каналам, живописным полям, гоночным трекам, пустыне и множеству других интересных трасс, оставляя соперников (   Читать дальше...   )Тип издания: ModРазработчик: Bugbear EntertainmentЖанр: Arcade, Racing (Cars), 3DЯзык озвучки: -/-Язык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:049B2FB262B58BB7CA0FC30795A263F4D6C9D11C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972109   (939431) от 08.02.2016
-
-Война и Мир / War and Peace (2016) HDTVRip [H.264/720p-LQ] (сезон 1, серии 1-6 из 6) ColdFilm
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939431.jpg" />
-</div>
-
-
-###  Подробнее
-
-Год 1805-ый...Французская армия под командованием Наполеона вторглась в Австрию...Наполеон продолжил свой путь на восток, и Россия решила объединиться с Австрией, чтобы дать ему отпор...Русские вступили в войну, которая навсегда изменит их жизнь. Новая экранизация романа Льва Толстого.Производство: США, Великобритания / BBC Cymru Wales, BBC Worldwide, The Weinstein Company LLCЖанр: драма, история, мелодрамаРежиссер: Том ХарперАктеры: Анейрин Барнард, Пол Дано, Лили Джеймс, Джеймс Нортон, Оливия Росс, Рори Кинэн, Гийом Форе, Дэвид Куилтер, Кит Коннор, Отто Фаррант и др.Перевод: двухголосый закадровый, любительский - ColdFilmПродолжительность: ~ 01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D7EF32D0CFBA666EF7CD86EDB6B00875D4E8A5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984145   (939428) от 08.02.2016
-
-Хватай и беги / Freaks of Nature (2015) HDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет расскажет о группе учеников старших классов, атакованных зомби. Пока ничего необычного. Однако в то время как школьники спасаются бегством, зомби подвергаются нападению вампиров. Все становится еще веселее, когда на Землю высаживаются инопланетяне. Теперь школьникам придется объединиться с зомби и вампирами, чтобы остановить вторжение на нашу планету.Производство: США | Columbia Pictures, Sony Pictures Entertainment (SPE)Жанр: Ужасы, КомедияРежиссер: Робби ПикерингАктеры: Николас Браун, Маккензи Дэвис, Джош Фэйдем, Дэнис Лири, Эд Вествик, Ванесса Энн Хадженс, Кигэн-Майкл Ки, Боб Оденкёрк, Джоан Кьюсак, Крис ЗилкаПеревод: Многоголосый закадровый, профессиональный (iTunes)Продолжительность: 01:32:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D4F678C8DE65CD0CCA5012402260E89CC061D51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983835   (939427) от 08.02.2016
-
-Cowboy WPI Plus MInstAll StartSoft Winter 6-2016 [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939427.jpg" />
-</div>
-
-
-###  Подробнее
-
-Универсальный сборник программ, распределённых по категориям, с автоматической установкой на операционные системы Windows. Сборник программ создан на базе WPI - (Windows Post Install) и MInstAll - утилиты, предназначенной для удобной инсталляции на ПК всевозможного программного обеспечения. Кроме установки приложений сборка поддерживает установку драйверов на установленную (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FEA382E70B837C0F5D1904179875F07860A9D32
 ```
 
 https://mybot314.ru/tekegram_catalog/

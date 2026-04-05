@@ -1,32 +1,3 @@
-###  Публикация: 1366026   (925052) от 10.03.2020
-
-Dire Straits - Brothers in Arms (2005) 1985 [DTS 5.1 CD-DA|44.1/16|image+.cue|SACD] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So Far Away                              [05:13]
-  02. Money For Nothing                        [08:26]
-   03. Walk Of Life                             [04:12]
-   04. Your Latest Trick                        [06:33](   Читать дальше...   )Жанр: rockПродолжительность: 00:54:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52415CCA8C7849D1914A96FAB9CA11A87CED8CD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095519   (924184) от 21.01.2017
 
 The Alan Parsons Project - Ammonia Avenue (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
@@ -35,7 +6,7 @@ The Alan Parsons Project - Ammonia Avenue (1984) [FLAC 2.0|192/24|image + .cue|V
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924184.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Barbara Mandrell - Greatest Hits (1985) Unofficial Release [FLAC 2.0|48/24|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_923890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_923890.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Amon Amarth - Jomsviking (2016) 2xLP [FLAC|192/24|image + .cue|Vinyl-Rip] <Melod
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922581.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Various Artists – Total Music Immersion – Philips Super Audio CD Sampler (20
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921559.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Pendulum - Hold Your Colour (Reissue 2018) (2005) Breakbeat Kaos [FLAC 2.0 16/44
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920531.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Black Sabbath - The End (2016) EP [FLAC 2.0|44.1/24|tracks|DC-CD] <Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918670.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918389.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Czeslaw Niemen - 8 Albums (1971-1988) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip, MC-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915262.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ The Alan Parsons Project - Eye In The Sky (1982) [FLAC 2.0|192/24|image + .cue|V
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913780.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ AC/DC - Rarities (2009) [FLAC 2.0|96/24|tracks+.cue|Vinyl-Rip] (compilation, uno
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913661.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913441.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Elvis Presley - Rock-And-Roll (1989) [FLAC 2.0 192/24|tracks|Vinyl-Rip]<Rock & R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911720.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Miles Davis - 12 LP альбомов (1957 - 1969) [24 bit/96 kHz|VinylRip]<Jazz
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911218.jpg" />
 </div>
 
 
@@ -409,7 +380,7 @@ Supertramp - Brother Where You Bound (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910490.jpg" />
 </div>
 
 
@@ -438,7 +409,7 @@ Jean-Michel Jarre - Oxygene Trilogy - The 40th Anniversary Edition (2016) [WavPa
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910003.jpg" />
 </div>
 
 
@@ -467,7 +438,7 @@ Jean-Michel Jarre - Oxygene Trilogy - The 40th Anniversary Edition (2016) [FLAC 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909929.jpg" />
 </div>
 
 
@@ -496,7 +467,7 @@ Tiёsto - Parade Of The Athletes (Limited Vinyl Edition) (2004) [FLAC 2.0|24/96|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908581.jpg" />
 </div>
 
 
@@ -525,7 +496,7 @@ DJ Tiёsto - In My Memory (Limited Vinyl Edition) (2001) [FLAC 2.0|24/96|tracks|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908523.jpg" />
 </div>
 
 
@@ -554,7 +525,7 @@ VA - Tiёsto - Nyana (Limited Edition Sampler) (2003) [FLAC 2.0|24/96|tracks|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908510.jpg" />
 </div>
 
 
@@ -583,7 +554,7 @@ Tiёsto - Elements Of Life (Limited Vinyl Edition) (2007) [FLAC 2.0|24/96|tracks
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908447.jpg" />
 </div>
 
 
@@ -612,7 +583,7 @@ Paul van Dyk - Out There And Back (2000) [FLAC 2.0|24/96|tracks|Vinyl-Rip] <Tran
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908384.jpg" />
 </div>
 
 
@@ -641,7 +612,7 @@ Enigma - The Fall Of A Rebel Angel (2016) [WavPack 2.0|32/192|image+.cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907982.jpg" />
 </div>
 
 
@@ -670,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905852.jpg" />
 </div>
 
 
@@ -699,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905838.jpg" />
 </div>
 
 
@@ -728,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905768.jpg" />
 </div>
 
 
@@ -742,6 +713,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7ADBE19D66A9FC120E884B5789554675713E9B21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1492379   (903857) от 29.08.2021
+
+George Harrison – All Things Must Pass (50th Anniversary) (2021) [DTS-ES Discrete 6.1 CD-DA|44.1/16|image+.cue|BD-Audio] <Pop/Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 I’d Have You Anytime
+02 My Sweet Lord
+03 Wah-Wah
+04 Isn’t It A Pity (Version One)(   Читать дальше...   )Жанр: Pop/RockПродолжительность: 01:15:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:140202108F00581B0D1C17E151680A56454483AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

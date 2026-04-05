@@ -1,3 +1,135 @@
+###  Публикация: 1008134   (814973) от 18.04.2016
+
+Майлз с другой планеты / Miles from Tomorrowland (2015) DVBRip (Сезон 1, серии 1-29 из??)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знакомьтесь с юным любителем приключений Майлзом Каллисто и его необычной семьей! Мама парнишки — пилот космического корабля, папа — инженер-механик, а старшая сестра — настоящая всезнайка в области различных технологий. Вместе с ними и домашним питомцем, роботом-страусом Мёрком, Майлз путешествует по просторам вселенной и исследует неизведанные миры. В эпизодах (   Читать дальше...   )Производство: США/ Disney JuniorЖанр: Мультсериал, Детский, ПриключенияРежиссер: Джон Энг, Мишель КенниПеревод: Дублированный — студия "Невафильм"Продолжительность: ~00:23:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83C22D38C5B29B9C6F0D927DF2F4318CF3E2C76D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197402   (814875) от 07.01.2018
+
+ЛЕГО Ниндзяго Фильм / The LEGO Ninjago Movie (2017) BDRip [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ниндзяго-сити призывает на свою защиту юного Ллойда, он же Зеленый ниндзя, и его друзей, тайных воинов и Великих мастеров ЛЕГО. Под предводительством кунг-фу мастера Ву, столь же умного, сколь и остроумного, они должны одолеть злобного диктатора Гармадона, Самого Злодейского Злодея, который оказывается отцом Ллойда. Роботы против роботов, сын против отца; эпическое (   Читать дальше...   )Производство: США, Дания / Warner Bros. PicturesЖанр: мультфильм, боевик, комедия, приключения, семейныйРежиссер: Чарли Бин, Пол Фишер, Боб ЛоганАктеры: Джеки Чан, Дэйв Франко, Фред Армисен, Кумэйл Нанджиани, Майкл Пенья, Эбби Джейкобсон, Зак Вудс, Дэвид Берроуз, Джастин ТеруПеревод: Дублированный (iTunes)Субтитры: Русские (Полные), Английские (Full)Продолжительность: 01:41:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EE0FDEA4B218C34F34866ADDEBB2D332B65E018
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 280074   (814799) от 13.05.2020
+
+Союз зверей / Die Konferenz der Tiere (2010) BDRip [H.264/720p] [PR]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814799.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда веселых зверей нашла зеленый оазис посреди засушливой африканской пустыни, чтобы там поселиться. Но их жизнь оказалась под угрозой — река Окаванго стала быстро пересыхать. Друзья выясняют, что в этом виноваты люди, которые построили дамбу. Звери, — такие разные, — от льва до трусливого суслика, — объединяются в союз, чтобы бросить вызов людям и спасти долину! (   Читать дальше...   )Производство: Германия | Constantin Film Produktion / Ambient Entertainment GmbH / White Horse PicturesЖанр: мультфильм, комедия, приключения, семейныйРежиссер: Райнхард Клоосс, Хольгер ТаппеПеревод: ДублированныйПродолжительность: 01:33:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C948756F02A4A7F920C05B3E8D0F27A937E2F0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008489   (814705) от 18.04.2016
+
+Астерикс: Земля Богов / Asterix: Le domaine des dieux (2014) BDRip [H.265/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814705.jpg" />
+</div>
+
+
+###  Подробнее
+
+Астерикс и его лучший друг Обеликс продолжают свою многолетнюю борьбу с Цезарем, который хочет наконец-то расправиться с неукротимыми галлами. Вокруг деревни Астерикса Цезарь приказывает построить новый Рим — Землю Богов. В галльской деревне хаос и смятение. Но Астерикс и Обеликс не сдаются!Производство: Франция / M6 Studio, Belvision, Grid AnimationЖанр: Приключения, КомедияРежиссер: Александр Астье, Луис КлишиПерсонажи: Роже Карель, Гийом Бриа, Ален Шаба, Лоран Лафитт, Александр Астье, Джеральдин Накаш, Флоренс Форести, Франсуа Морел, Лоран Дойч, Эли Семон, Артус Де Пенгуер, Бернар АланПеревод: ДублированныйЯзык субтитров: Французский, английскийПродолжительность: 01:25:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EE542C40F2572F67B0F480460EC8FDBFAE06E13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008466   (814703) от 18.04.2016
+
+Король Лев / The Lion King (1994) BDRip [H.265/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814703.jpg" />
+</div>
+
+
+###  Подробнее
+
+У величественного Короля-Льва Муфасы рождается наследник по имени Симба. Уже в детстве любознательный малыш становится жертвой интриг своего завистливого дяди Шрама, мечтающего о власти.
+
+Симба познаёт горе утраты, предательство и изгнание, но в конце концов обретает верных друзей и находит любимую. Закалённый испытаниями, он в нелёгкой борьбе отвоёвывает своё законное (   Читать дальше...   )Производство: США / Walt Disney Feature Animation / Walt Disney PicturesЖанр: Приключения, Музыкальный, КомедияРежиссер: Роджер Аллерс, Роб МинкоффПерсонажи: Джереми Айронс, Мэттью Бродерик, Натан Лейн, Эрни Сабелла, Джеймс Эрл Джонс, Мойра Келли, Роуэн Эткинсон, Вупи Голдберг, Чич Марин, Джонатан Тейлор ТомасПеревод: Дублированный, профессиональныйЯзык субтитров: Итальянский, английскийПродолжительность: 01:28:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5E7E92E8AD5F050E7985E7798C29C1EC22D3FF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008450   (814699) от 18.04.2016
 
 Рататуй / Ratatouille (2007) BDRip [H.265/1080p]
@@ -6,7 +138,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814699.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814572.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814571.jpg" />
 </div>
 
 
@@ -84,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814507.jpg" />
 </div>
 
 
@@ -110,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814502.jpg" />
 </div>
 
 
@@ -136,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814497.jpg" />
 </div>
 
 
@@ -162,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814477.jpg" />
 </div>
 
 
@@ -188,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814421.jpg" />
 </div>
 
 
@@ -214,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814414.jpg" />
 </div>
 
 
@@ -242,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814027.jpg" />
 </div>
 
 
@@ -270,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813958.jpg" />
 </div>
 
 
@@ -296,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813829.jpg" />
 </div>
 
 
@@ -322,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813648.jpg" />
 </div>
 
 
@@ -349,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813516.jpg" />
 </div>
 
 
@@ -375,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813463.jpg" />
 </div>
 
 
@@ -401,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813401.jpg" />
 </div>
 
 
@@ -427,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813098.jpg" />
 </div>
 
 
@@ -453,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812894.jpg" />
 </div>
 
 
@@ -479,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_812867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_812867.jpg" />
 </div>
 
 
@@ -505,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812837.jpg" />
 </div>
 
 
@@ -531,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812702.jpg" />
 </div>
 
 
@@ -542,136 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:834EB34567DF464AECD3E0B459238F79FE6301C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504279   (812217) от 23.10.2021
-
-Сапожки аиста (1984) TCRip [H.264/1080p] [Remastered AI]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812217.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам сказки Аурелиу Бусуйок. Собрался аист к лисе на день рождения, и вдруг обнаружил, что сапог у него нет...Производство: СССР / Молдова-фильмЖанр: мультфильм, короткометражкаРежиссер: Наталия СидоренкоПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 00:09:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05DB859E4A8BBE6670ADFEFB8A38B642D83F1767
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504434   (812215) от 23.10.2021
-
-Капитан Саблезуб и Волшебный бриллиант / Kaptein Sabeltann og den magiske diamant (2019) WEB-DLRip [H.264/720p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Увлекательные приключения отважного и грозного капитана Саблезуба, бороздящего моря и океаны в поисках несметных сокровищ. Его главная цель — получить волшебный бриллиант, исполняющий любые желания. Однако, обычный мальчишка ухитряется похитить могущественный камень прямо из-под носа бывалого пирата.Производство: Норвегия / Qvisten AnimationЖанр: мультфильм, семейныйРежиссер: Марит Мум Оне, Расмус А. СивертсенПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:21:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F9142F6F6AC7971AB5526F4AF95354C9843FC95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504406   (812209) от 23.10.2021
-
-Ежик Бобби: Колючие приключения / Bobby the Hedgehog (2016) WEB-DLRip [H.264/720p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812209.jpg" />
-</div>
-
-
-###  Подробнее
-
-События картины разворачиваются вокруг очаровательного и харизматичного ежика по имени Бобби. Правда, он забыл абсолютно всё. Невероятно, но факт: проснулся в лесу, не смог ничего припомнить. Отчего могло это приключиться? Теперь его очень беспокоит данный вопрос, на который никто из животных не может найти ответа. Дело в том, что местные его не знают, да и ему они (   Читать дальше...   )Производство: Китай, США / Daysview Animation, Lions Gate Films Inc.Жанр: Мультфильм, приключенияРежиссер: Хуан ЦзяньминПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:34:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:246DA144684C54C393DD25D750A1A9B5142FCAEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504447   (812208) от 23.10.2021
-
-Такая любовь (1982) TCRip [H.264/1080p] [Remastered AI]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812208.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шуточный сюжет про инопланетянина, влюбившегося в земную девушку и решившего остаться на Земле.Производство: СССР / Грузия-фильмЖанр: рисованная анимация, мультфильм, короткометражкаРежиссер: Константин МацаберидзеПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 00:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26ECEC1482290CCE22E756DE288BCA421BF2CBE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504428   (812106) от 23.10.2021
-
-Капитан семи морей / Capt'n Sharky (2018) WEB-DLRip [H.264]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812106.jpg" />
-</div>
-
-
-###  Подробнее
-
-Капитан Шарки может и маленького роста, но он твердо верит, что он самый грозный пират семи морей. Он и его корабль готовы отправиться в свое первое плавание и всё, что нужно Шарки — компас и настоящая команда. На борту судна случайно оказываются сразу два пассажира: примерный и воспитанный мальчик Мики и бойкая девочка Бонни — дочь Адмирала. Вместе эту разношерстную (   Читать дальше...   )Производство: Германия / Caligari Film GmbH, Caligari Film- und Fernsehproduktions, Universum FilmЖанр: Мультфильм, мюзикл, боевик, комедия, приключения, семейныйРежиссер: Ян Штольц, Хьюберт ВейландАктеры: Норман Эндрес, Жюль Херман, Антон Петцольд, Аксель Праль, Ребекка УолшПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:16:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:858D0F72CCA77688A7142A0EB6C6F50BF5A2FA90
 ```
 
 https://mybot314.ru/tekegram_catalog/

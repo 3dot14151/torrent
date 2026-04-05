@@ -1,3 +1,29 @@
+###  Публикация: 915421   (592292) от 05.07.2015
+
+Первая передача на НТВ. Автомобильная передача. Выпуск №215 (05.07.2015) SATRip
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592292.jpg" />
+</div>
+
+
+###  Подробнее
+
+« Первая передача» — новый проект для автомобилистов и про автомобилистов. Ведущий «Первой передачи» — Виктор Травин, президент Коллегии правовой защиты автовладельцев. Уже много лет этот известный журналист защищает права автолюбителей. В автомире для него нет секретов и закрытых дверей. Всех, кто не представляет своей жизни без автомобиля, и тех, кто только задумывается (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаРежиссер: Роман ИовицаПродолжительность: ~ 00:32:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8403342D44E8FD648AE79CEA42524609D58D09C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 915717   (591838) от 06.07.2015
 
 Главная дорога (04.07.2015) SATRip
@@ -6,7 +32,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591838.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590703.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587218.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586744.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585791.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585527.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584222.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580027.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578069.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577999.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576325.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567836.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567477.jpg" />
 </div>
 
 
@@ -354,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564087.jpg" />
 </div>
 
 
@@ -382,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559087.jpg" />
 </div>
 
 
@@ -409,7 +435,7 @@ Discovery: Гений авто-дизайна / Kindig Customs (2015) SATRip [H.
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558074.jpg" />
 </div>
 
 
@@ -435,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557182.jpg" />
 </div>
 
 
@@ -463,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556515.jpg" />
 </div>
 
 
@@ -491,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556126.jpg" />
 </div>
 
 
@@ -519,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555927.jpg" />
 </div>
 
 
@@ -546,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555202.jpg" />
 </div>
 
 
@@ -572,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553715.jpg" />
 </div>
 
 
@@ -598,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552012.jpg" />
 </div>
 
 
@@ -624,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551732.jpg" />
 </div>
 
 
@@ -650,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550925.jpg" />
 </div>
 
 
@@ -661,34 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D244561FB983E2F77CFB53E061BAC6D06B82F287
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310010   (548727) от 22.06.2019
-
-Главная дорога (22.06.2019) SATRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548727.jpg" />
-</div>
-
-
-###  Подробнее
-
-В автомобиле комфортно не только нашему организму, но и МИКРОорганизмам! Даже в чистом с виду салоне вашей машины больше микробов, чем на ободке унитаза!
-Чем живут эти незаметные пассажиры и как можно с ними бороться?
-Ведущие программы Андрей Федорцов и Денис Юченков отмыли салоны на обычной мойке, в дорогом детейлинг-центре и даже отправили машину на озонирование (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:29:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:873D196B109AE8C89D71F894146B98CD4A3D9244
 ```
 
 https://mybot314.ru/tekegram_catalog/

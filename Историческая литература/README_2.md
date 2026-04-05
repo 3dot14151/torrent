@@ -6,7 +6,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058131.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057562.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057545.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057544.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057541.jpg" />
 </div>
 
 
@@ -130,32 +130,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852815   (1056526) от 12.02.2026
-
-А.И. Колпакиди, С.В. Чертопруд | СМЕРШ. От Александра I до Сталина (2025) [PDF, FB2, DOCX, EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Александра Колпакиди и Сергея Чертопруд «СМЕРШ. От Александра I до Сталина» представляет собой историческое исследование, прослеживающее развитие российской военной контрразведки с 1812 года до 1946 года. Авторы детально описывают историю спецслужб, включая создание «Высшей» или «Воинской полиции» при Александре I и структуру «СМЕРШ» (ГУ КР «СМЕРШ», УК «СМЕРШ» (   Читать дальше...   )Жанр: Публицистика, архивные материалы, военное дело / спецслужбыИздательство: ООО "Издательство Родина"Формат: PDF, FB2, DOCX, EPUBКачество: Обработанный скан, Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0BFC847279DA2E2E3B78F0CB72E453697153037
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1852706   (1056135) от 09.02.2026
 
 Сергей Демидов | Самые громкие преступления последних веков. XVI-XXI вв. (2016) [FB2]
@@ -164,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056135.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055914.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054891.jpg" />
 </div>
 
 
@@ -243,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054890.jpg" />
 </div>
 
 
@@ -270,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054889.jpg" />
 </div>
 
 
@@ -298,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054888.jpg" />
 </div>
 
 
@@ -324,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054887.jpg" />
 </div>
 
 
@@ -350,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054886.jpg" />
 </div>
 
 
@@ -376,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054885.jpg" />
 </div>
 
 
@@ -402,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054884.jpg" />
 </div>
 
 
@@ -428,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054883.jpg" />
 </div>
 
 
@@ -454,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054871.jpg" />
 </div>
 
 
@@ -480,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054870.jpg" />
 </div>
 
 
@@ -506,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054788.jpg" />
 </div>
 
 
@@ -534,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054787.jpg" />
 </div>
 
 
@@ -560,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054786.jpg" />
 </div>
 
 
@@ -586,7 +560,7 @@ P. Гароди, И. Валлерстайн | Мифы израильской п
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054785.jpg" />
 </div>
 
 
@@ -613,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054783.jpg" />
 </div>
 
 
@@ -639,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054782.jpg" />
 </div>
 
 
@@ -665,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054781.jpg" />
 </div>
 
 
@@ -677,6 +651,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C886875CC9FADC57DC9CBD7D3B038C15BD4EF40C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850957   (1054780) от 31.01.2026
+
+Сунь-Цзы | Искусство войны. С комментариями и пояснениями (2016) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054780.jpg" />
+</div>
+
+
+###  Подробнее
+
+Древний китайский трактат "Искусство войны", написанный более двух тысяч лет назад великим военачальником и стратегом Сунь-Цзы, до сих пор являет собой богатую пищу для ума мыслителей. Это классическое руководство по стратегии поведения в конфликтах любого уровня - от военных действий до политических дебатов и психологического соперничества. Будучи первым (   Читать дальше...   )Жанр: Восточная философия, ИсторияИздательство: АСТФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:916DBC62CCC5580988737867302103DD530EEB54
 ```
 
 https://mybot314.ru/tekegram_catalog/

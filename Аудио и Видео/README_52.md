@@ -6,7 +6,7 @@
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818535.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818460.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818403.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818001.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ VA - Inner Awen Vol. II (2020) [AAC|~330 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817984.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ VA - Inner Awen (2019) [AAC|~327 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817983.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Inner Awen Vol. V (2021) [AAC|~320 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817982.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ VA - Inner Awen Vol. IV (2021) [AAC|~324 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817981.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ VA - Inner Awen Vol. III (2020) [AAC|~320 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817980.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ VA - Chill House Vibes Vol 1: Ultimate Chill House Collection (2021) [AAC|~323 K
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817978.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817977.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817879.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Cerrone - The Classics (Best of Instrumentals) (2021) [AAC|~352 Kbps] <Disco>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817793.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817788.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817648.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817644.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817637.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817435.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817397.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817298.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817247.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817238.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка Lossless (ALAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816936.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка Lossless (ALAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816844.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка Lossless (ALAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816842.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка Lossless (ALAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816841.jpg" />
 </div>
 
 

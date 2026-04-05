@@ -1,3 +1,58 @@
+###  Публикация: 959259   (31750) от 07.01.2025
+
+Три мушкетера / Les trois mousquetaires (1961) HDTVRip [H.264/720p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31750.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первая серия: Подвески королевы
+Молодой провинциал Д`Артаньян приезжает в Париж. Ни денег, ни имущества, одни амбиции и желание поступить на службу в мушкетеры.  Однако мужество, отменная ловкость и беспримерное искусство в обращении со шпагой дали возможность д’Артаньяну, ни больше ни меньше как спасти королеву Франции от бесчестия…
+
+Вторая серия: Месть миледи(   Читать дальше...   )Производство: Франция, Италия (Borderie, Fono Roma, Le Film d'Art, Les Films Modernes)Жанр: Приключения, исторический, экранизацияРежиссер: Бернар БордериАктеры: Жерар Баррэ, Жорж Декриер, Бернар Воринже, Жак Тожа, Милен Демонжо, Жан Карме, Ги Делорм, Робер Берри, Анн Тоньетти, Ги Трежан и др.Перевод: Дублированный (дубляж СССР), профессиональный (многоголосый закадровый) – ТВЦ; профессиональный (многоголосый закадровый) - Студия "Инис" по заказу "Союз-Видео"Субтитры: ОтсутствуютПродолжительность: 01:39:25 + 01:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B92499BFA6CBC918E2DBA6FCA54C7AC6A85D19FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770493   (31539) от 09.01.2025
+
+Министерство Всего Хорошего (2024) WEBRip [H.264/1080p] (сезон 1, серия 1-8 из 8)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправь запрос во Вселенную и мечта обязательно станет реальностью. Задумывались ли вы когда-нибудь, что за каждым сбывшимся желанием стоит огромная работа сразу двух министерств? Человечество уже давно на балансе у Вселенной, и за всеми нашими помыслами внимательно следят две могущественные организации: «Министерство Всего Хорошего» и «Министерство Всего Плохого». (   Читать дальше...   )Производство: Россия / ИРИ, ID Production, Студия 12, OkkoЖанр: комедия, фантастикаРежиссер: Александр ФоминАктеры: Влад Прохоров, Маруся Фомина, Николай Фоменко, Елизавета Ищенко, Гоша Куценко, Ян Цапник, Ольга Сутулова, Игорь Верник, Артур Бесчастный, Александра КузнецоваПродолжительность: ~00:35:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0B3922D4CB685D69F2AEB741076DF02D6289A20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1771966   (31425) от 10.01.2025
 
 Марк Цукерберг  обещает восстановить свободу слова
@@ -6,7 +61,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31425.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31332.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31329.jpg" />
 </div>
 
 
@@ -84,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31120.jpg" />
 </div>
 
 
@@ -110,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31093.jpg" />
 </div>
 
 
@@ -137,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31017.jpg" />
 </div>
 
 
@@ -163,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31016.jpg" />
 </div>
 
 
@@ -189,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30923.jpg" />
 </div>
 
 
@@ -215,7 +270,7 @@ Windows 10 Pro/Ent LTSC by OneSmiLe 22H2 build 19045.5371 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30915.jpg" />
 </div>
 
 
@@ -244,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30909.jpg" />
 </div>
 
 
@@ -270,7 +325,7 @@ Windows 11 Pro/Ent LTSC by OneSmiLe 24H2 build 26100.2894 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30807.jpg" />
 </div>
 
 
@@ -299,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30706.jpg" />
 </div>
 
 
@@ -326,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30704.jpg" />
 </div>
 
 
@@ -352,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30691.jpg" />
 </div>
 
 
@@ -378,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30613.jpg" />
 </div>
 
 
@@ -405,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30582.jpg" />
 </div>
 
 
@@ -431,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30403.jpg" />
 </div>
 
 
@@ -457,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30281.jpg" />
 </div>
 
 
@@ -483,7 +538,7 @@ Kaspersky Free 21.20.8.505 Repack by LcHNextGen (23.01.2025) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30081.jpg" />
 </div>
 
 
@@ -509,7 +564,7 @@ The Invincible (2023) [Ru/Multi] (1.6.1) License GOG [Deluxe Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29968.jpg" />
 </div>
 
 
@@ -535,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29866.jpg" />
 </div>
 
 
@@ -561,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29858.jpg" />
 </div>
 
 
@@ -587,7 +642,7 @@ Wondershare Filmora 14.3.2.11147 (x64) Portable by 7997 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29771.jpg" />
 </div>
 
 
@@ -613,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29760.jpg" />
 </div>
 
 
@@ -625,60 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E291EDAE8B85AFEC661FE22E1287833135483C93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210777   (29759) от 26.01.2025
-
-Книжная серия | Азбука-бестселлер [255 книг] (2012-2025) [FB2, EPUB] [Обновляемая]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29759.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все самые модные и популярные произведения художественной литературы собрала под своими супер-обложками книжная серия "Азбука - бестселлер". Это качественные издания, с ярким оформлением и в удобном формате.
-***
-Что такое свобода? И кто свободнее – человек, ни разу в жизни не покидавший четырех стен, в которых родился, и черпающий знания об окружающем мире (   Читать дальше...   )Жанр: Современная прозаИздательство: Азбука, Азбука-АттикусФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:635F296720C0783D26AD3B047A6241FA941DF8A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774880   (29750) от 26.01.2025
-
-Корпорации выступают против итальянских антипиратских мер
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29750.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ранее в Италии запустили Piracy Shield — автоматизированную систему борьбы с интернет-пиратством. Именно из-за неё в стране уже однажды заблокировали Google Drive, Cloudflare, и другие легитимные сайты и сервисы.Теперь же против этой системы выступает CCIA — это ассоциация компьютерной и коммуникационной индустрии, представляющая интересы таких компаний, как Amazon, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

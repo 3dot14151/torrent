@@ -1,3 +1,55 @@
+###  Публикация: 1177070   (365031) от 24.10.2017
+
+В.Ю. Шишмарев | Автоматика (2017) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365031.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник посвящен основным методам построения систем автоматического управления (САУ). В нем представлена классификация и общие характеристики элементов автоматики и измерительных преобразователей, рассмотрены типовые звенья САУ, их соединение, синтез, а также анализ устойчивости и качества работы. Книга дополнена приложениями, которые помогут студентам освоить материалы (   Читать дальше...   )Жанр: АвтоматикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC929B0122CF895EE69CD4EEB6AD1130447E5F21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255610   (363273) от 18.10.2018
+
+Л.Н. Гулидова и др. | Начертательная геометрия и инженерная графика [2 части] (2013) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363273.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обобщен и систематизирован с учетом профессиональной направленности подготавливаемых специалистов известный материал по начертательной геометрии и инженерной графике, основанный на действующих руководящих документах, стандартах н нормативах. В соответствии с программой даны основные теоретические положения курса инженерной графики, разработаны задания для самостоятельного (   Читать дальше...   )Жанр: МатематикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD5AF7F781A08B675990C272E232C3601C1D80D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1255488   (363266) от 18.10.2018
 
 Р.Ю. Царев | Алгоритмы и структуры данных (2013) [PDF]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363266.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363172.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363156.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363144.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362995.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362993.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361488.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361375.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360949.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360906.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360902.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360389.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360274.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360143.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360088.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359379.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359377.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358899.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358895.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358772.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358737.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357992.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357832.jpg" />
 </div>
 
 
@@ -615,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357532.jpg" />
 </div>
 
 
@@ -626,58 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48774863864C92F260F9447B7F91A7A63E3D6C7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256301   (356442) от 21.10.2018
-
-В.В. Воронина | Технологии автоматизации бизнес-процессов предприятий (2013) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356442.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассматриваются технологии, совместимые с платформой .Net, позволяющие строить эффективные многофункциональные приложения на языке С#, решая задачи автоматизации бизнес-процессов предприятий. Пособие предназначено для студентов направления "Прикладная информатика", а также для студентов других направлений, изучающих дисциплины, связанные с автоматизацией (   Читать дальше...   )Жанр: Компьютерная литература, бизнесФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D08031ABF3F0B3C750CF9D8A00641DF4CB788E01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329043   (356297) от 03.10.2019
-
-Д.В. Чистов (ред.) | Проектирование информационных систем. Учебник и практикум (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356297.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебнике рассматриваются теоретические и практические аспекты проектирования информационных систем: жизненный цикл ИС; стандарты, технологии и процессы проектирования; процессная технология RUP; моделирование бизнес-процессов в среде WebSphere Business Modeler; технология проектирования в среде IBM Rational Rose; технология применения MS Project для оценки стоимости (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C1054B9FD1BB8CC06F24CCDB7CBFD93CEAE6E96
 ```
 
 https://mybot314.ru/tekegram_catalog/

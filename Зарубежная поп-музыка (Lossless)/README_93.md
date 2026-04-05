@@ -6,7 +6,7 @@ Roxette - It Must Have Been Love (CDM) (1990) 1st German Press [APE|Lossless|ima
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64608.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ A-HA - Crying In The Rain (CDM) (1990) 1st German Press [APE|Lossless|image + .c
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64588.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Chris Isaak - Wicked Game (CDM) (1991) 1st German Press [APE|Lossless|image + .c
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64567.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Shakespears Sister - Stay (CDM) (1991) 1st German Press [APE|Lossless|image + .c
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64565.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Sinead O'Connor - Nothing Compares 2 U (CDM) (1990) 1st German Press [APE|Lossle
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64561.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ Bananarama - Glorious - The Ultimate Collection (2024) [FLAC|Lossless|WEB-DL|tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63490.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Various Artists - 2010s Best of by uDiscover (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63381.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Cutting Crew - All For You - The Virgin Years 1986-1992 (2024) 3xCD, Compilation
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63161.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ VA - Bravo Hits 13 (1996) 2CD, Compilation  [FLAC|Lossless|WEB-DL|tracks] <Elect
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62218.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Army Of Lovers - Sexodus (2023) [FLAC|Lossless|image + .cue] <Pop,	Europop, Synt
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61941.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ VA - Workout Gym Motivation 2024 (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61915.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Sandy Marton - Maxi And Singles Collection (2023) Compilation [FLAC|Lossless|ima
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61808.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ V.A. - 80's Essentials (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61186.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Anastacia - 10 альбомов (2000-2023) 11CD [FLAC|Lossless|image + .cue | t
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61054.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ V.A. - 70's Essentials (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60763.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Inna - El Pasado (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60131.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Taylor Swift - The Tortured Poets Department: The Anthology (2024) [FLAC|Lossles
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59196.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Mylene Farmer - Remix XL (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58809.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Rod Stewart - The Best Of The Great American Songbook (2011) Japanese Edition, C
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58136.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Dua Lipa - Radical Optimism (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57743.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Sia - Reasonable Woman (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57742.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ ABBA - Wembley Arena 1979 (Live) (2014) Reissue, 2024, The Media Champ [FLAC|Los
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56134.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Taylor Swift - The Tortured Poets Department (2024) [FLAC|Lossless|tracks + .cue
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53714.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Francoise Hardy - The Real... Francoise Hardy (2016) 3CD [FLAC|Lossless|tracks +
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53163.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ Leah Kate - Super Over (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52786.jpg" />
 </div>
 
 
@@ -727,7 +727,7 @@ Duran Duran - My Own Way (1981) Remaster, 2024, Rhino [FLAC|Lossless|WEB-DL|trac
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52016.jpg" />
 </div>
 
 

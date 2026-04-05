@@ -1,32 +1,3 @@
-###  Публикация: 1799851   (66355) от 30.05.2025
-
-Any Given Day - Studio Albums (4 releases) (2014-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66355.jpg" />
-</div>
-
-
-###  Подробнее
-
-Any Given Day - немецкая металкор-группа, образованная в 2012 году в городе Гельзенкирхен.2014 - My Longest Way Home
-2016 - Everlasting
-2019 - Overpower
-2024 - LimitlessЖанр: MetalcoreПродолжительность: 03:14:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7996BF4F792D65AC5CC3526C76233FB10A6E76C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1800028   (66342) от 31.05.2025
 
 VA - IX. Album Supraphonu (1970) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Europop>
@@ -35,7 +6,7 @@ VA - IX. Album Supraphonu (1970) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Europo
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66342.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66321.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Heidi Montag - Heidiwood (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66320.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ The Duskfall - Studio Albums (5 releases) (2002-2014) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66280.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66271.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Ice Nine Kills - I Heard They Kill Live 2 (2025) Live in Lowell 2022 [FLAC 24/48
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66257.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Jimmy Barnes - DEFIANT (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66246.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Two Wolf - Two Wolf (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, South
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66243.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Belier Bleu - Top Yourself (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66227.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Beaten by Hippies - Sidetracked in El Paso (2025) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66224.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Beebe Gallini - Begged, Borrowed and Stealed! (2025) [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66220.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Boot Juice - Covered in Juice, Volume I (2025) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66219.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Blues Rock Generations - Blues Rock Generations No.7 (2025) [FLAC 24/48|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66215.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Birth Control - Bäng! (1982) Remastered [FLAC 24/48|Lossless|WEB-DL|tracks] <Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66203.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Monkey House - Crashbox (2025) [FLAC 24/192|Lossless|WEB-DL|tracks] <Jazz, Soft 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66199.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ The Cure - Mixes Of A Lost World (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <A
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66192.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Tokimonsta - Eternal Reverie (2025) 4 CD [FLAC 24/44.1,48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66139.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Malvada - Malvada (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66138.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ King Gizzard & The Lizard Wizard - Phantom Island (2025) [FLAC 24/48|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66136.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Fairyland - The Story Remains (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Sympho
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66133.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Crosson - Guilty Of Rock (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66118.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ Evadne - The Fragile Light of Fireflies (2025) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66110.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ Eva (Csepregi Eva, ex Neoton Familia) - Midnight (1986) [FLAC 2.0|192/24|image +
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66105.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ Metallica - Load (1996) Remastered Deluxe Box Set, 2025, UMC (Universal Music Ca
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66101.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ Dustin Douglas & the Electric Gentlemen - IV (2025) [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66092.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ Dustin Douglas & the Electric Gentlemen - IV (2025) [FLAC 24/48|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8276A0EB3D50132B5182F43E4CA38FA8B007CB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802232   (66090) от 15.06.2025
+
+Gasoline Lollipops - Kill The Architect (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Roots Rock , Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tennessee Nights (3:52)
+02.  Holy Rebel (3:20)
+03.  Mercy (4:10)
+04.  Honeysuckle and Poison Oak (3:32)(   Читать дальше...   )Жанр: Roots Rock , BluesПродолжительность: 00:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A217624A1A032EA1BC93399C9EB7DD6B455BEED
 ```
 
 https://mybot314.ru/tekegram_catalog/

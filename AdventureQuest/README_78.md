@@ -1,3 +1,81 @@
+###  Публикация: 1726054   (55210) от 27.05.2024
+
+Imaginary Friend Asylum (2024) [En] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55210.jpg" />
+</div>
+
+
+###  Подробнее
+
+Imaginary Friend Asylum – это самый настоящий психологический ужас, события которого вращаются вокруг детства, проведенного в сумасшедшем доме. Где жестокий мир будет окружать вас, однако ваши воображаемые друзья всегда будут рядом. Поэтому попытайтесь разобраться в темном заговоре, который может стать причиной незавидной судьбы.Тип издания: RepackРазработчик: Grant MarrsЖанр: Экшены, Приключенческие игры, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD692BCF2DA23882E080CD71459FDF4C3A73063A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726294   (55135) от 28.05.2024
+
+Pre Dusk (2024) [En] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55135.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pre Dusk - мрачный двухмерный экшен-платформер с оригинальной визуальной стилистикой. Несмотря на свой юный возраст, Рэй решает отправиться в самое сердце тьмы. Сбежав из дома своего дедушки, главный герой оказывается в волшебном лесу, где ему предстоит прорваться через десятки испытаний на пути к заветной цели, а удастся ему провернуть это нехитрое дело или нет (   Читать дальше...   )Тип издания: RepackРазработчик: Okba AmrateЖанр: Экшены, Приключенческие игрыЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F577BEBB9B1EE47B8C73D9BCD1FADE6F61082E53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726909   (54798) от 31.05.2024
+
+Starstruck Vagabond (2024) [En] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54798.jpg" />
+</div>
+
+
+###  Подробнее
+
+Starstruck Vagabond начинается с рассказа о том, как капитан звездолета пробуждается после криосна, длившегося 2000 лет. Он проснулся в тот момент, когда транспорт пролетал в незнакомой галактике. Но даже здесь нашлись те, кому пригодится груз, содержащийся на судне. Игроку предстоит совершать разную работу в космическом пространстве, поддерживать работоспособность (   Читать дальше...   )Тип издания: SceneРазработчик: Ben 'Yahtzee' CroshawЖанр: Приключенческие игры, ИндиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DED1F5C293D6E91C376F0CD0991E1429BB6EE339
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727685   (54509) от 03.06.2024
 
 Assassin's Creed IV: Black Flag (2013) [Ru/Multi] (1.07/dlc) Repack FitGirl [Jackdraw Edition]
@@ -6,7 +84,7 @@ Assassin's Creed IV: Black Flag (2013) [Ru/Multi] (1.07/dlc) Repack FitGirl [Jac
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54509.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Harvest Hunt (2024) [Multi] (1.0.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54506.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54504.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Echoes (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54463.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Lesson Learned (2024) [Ru/Multi] (1.023) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54462.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Venatrix (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54448.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Violet (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54412.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Duck Detective: The Secret Salami (2024) [En] (1.0.11) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54366.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Sisters: Last Day of Summer (2024) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54208.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Isles of Sea and Sky (2024) [Ru/Multi] (1.0.14493222) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54076.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Tamarindos Freaking Dinner (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54067.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ DETECTIVE - Minerva case (2024) [Multi] (1.0) Scene Tinyiso
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53994.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ The Invincible (2023) [Ru/Multi] (12808193) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53870.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ INDIKA (2024) [Ru/Multi] (14207837) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53863.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ The Medium (2021) [Ru/Multi] (1.0.184) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53859.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Lumnis (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53849.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ The Legend of Crystal Valley / Легенда хрустальной долин�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53821.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Alone in the Dark (2024) [Ru/Multi] (1.0.5b/dlc) License GOG [Digital Deluxe Edi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53800.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ NUKITASHI Дилогия (2023-2024) [Multi] (1.0.1/1.0.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53676.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Three Goblin Wobblin' (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53651.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ The Wild at Heart (2021) [Multi] (1.1.9.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53599.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Scholar's Mate (2024) [Ru/Multi] (14623931) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53576.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ An English Haunting (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53559.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ An English Haunting - атмосферная приключенческая иг
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E87C43C2DFE822BF915CF40F7788FD5B1457D79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729656   (53534) от 12.06.2024
-
-Scholar's Mate (2024) [Ru/Multi] (14623931) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53534.jpg" />
-</div>
-
-
-###  Подробнее
-
-Scholar's Mate бросает вас в огонь. Стратегия и сообразительность? Абсолютно необходимы. Один неверный ход - и вам поставят шах и мат. Здесь каждое решение имеет вес, а конец вырисовывается с каждым ходом. Забудьте о долгих, затяжных играх. Тут вам предстоит пройти через испытания, каждое из которых призвано поставить вас в тупик, если вы не будете начеку. Но погодите, (   Читать дальше...   )Тип издания: RepackРазработчик: JanduSoftЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Испанский, Французский и другиеЯзык интерфейса: Русский, Английский, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:319D4640B4FC5D4ED96EDA0D9675D90466FACCD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729855   (53479) от 13.06.2024
-
-Baisu (2024) [En] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53479.jpg" />
-</div>
-
-
-###  Подробнее
-
-Взяв на себя роль детектива Клэя Кристина, игрок отправляется в уединённую резиденцию семьи Смит, откликнувшись на жуткий призыв о помощи. С первых же шагов становится ясно, что это место хранит в себе мрачные тайны и зловещие секреты. Когда-то этот дом был убежищем для семьи известной художницы Джоли Смит, но теперь безмятежность природы сменилась сгущающейся тьмой, (   Читать дальше...   )Тип издания: RepackРазработчик: Tripleducks studioЖанр: Adventure, First-person, 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DCF6FFD9D79F10351188DE2170F763A30D979A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729844   (53477) от 13.06.2024
-
-Enigma Quest (2024) [En] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Enigma Quest – отправьтесь навстречу таинственному музею, где вам ожидают запутанные головоломки. К тому же, постарайтесь раскрыть утраченные секреты в нашей насыщенной приключенческой головоломке. Если, конечно, справитесь! Откройте двери загадочного мира и посетите обширные залы таинственного музея. Попросту говоря, здесь вам предлагается примерить роль Искателя, (   Читать дальше...   )Тип издания: RepackРазработчик: SGDstudiosЖанр: Приключенческие игрыЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77E98E04BB76E478A19F57BE4ABFE377D62B5F4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

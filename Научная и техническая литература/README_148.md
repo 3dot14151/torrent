@@ -1,143 +1,3 @@
-###  Публикация: 1197338   (815913) от 07.01.2018
-
-Д. П. Бухарцев | Как идет развитие мировой революции (1926) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815913.jpg" />
-</div>
-
-
-###  Подробнее
-
-XIV партсъезд решал и разрешил вопрос о возможности строить социализм в одной стране при замедленном развитии мировой пролетарской революции.
-
-Из того, что мировой капитализм несколько укрепился, как говорят, «стабилизировался», не следует еще, что пролетарии должны замкнуться в задачи строительства социализма только в одной стране.
-(   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C86695CB356B93C4FB911BD62BC168E7EED8F5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197367   (815911) от 07.01.2018
-
-Ф. М. Сенюшкин и др. (ред.) | Высшая школа в РСФСР и новое студенчество (1923) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вместо предисловия:
-
-Шестой год советского строительства! Шестой год строительства новой высшей школы.
-(   Читать дальше...   )Жанр: История, политология, искусство, культурологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1F5426550F0EE8B56DB3B133CB77F30E928B59E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197344   (815909) от 07.01.2018
-
-О. А. Пятницкий | Организационная работа в компартиях капиталистических стран (1927) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815909.jpg" />
-</div>
-
-
-###  Подробнее
-
-Брошюра «Оргработа в компартиях капиталистических стран» была написана, главным образом, для активных работников компартий этих стран.
-
-До сих пор о внутренней жизни компартий капиталистических стран и о работе их местных организаций (если не считать отдельных статей в журналах «Коммунистический Интернационал», «Спутник Коммуниста» и в «Правде») в печати появилось (   Читать дальше...   )Жанр: История, политология, искусствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:858EB5CA5364C3B2B6630A7C7E78D9D3921A4479
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503981   (815856) от 21.10.2021
-
-Сергей Карпачев | Масоны. Популярная история. Организация, облик, деятельность (2021) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815856.jpg" />
-</div>
-
-
-###  Подробнее
-
-Масонство окружено ореолом тайн. По одним легендам, масоны ведут свое происхождение от времени библейских патриархов или языческих мистерий, по другим, – от времени Соломонова храма или Крестовых походов. Большинство исследователей считают, что корнями знаменитого движения были средневековые строительные гильдии каменщиков и искания европейских интеллектуалов.
-
-Что (   Читать дальше...   )Жанр: Научно-популярная литература, Популярно об истории, История религийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A83A9C8FA07E5BB60375BCDC785C48058EDD22B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197356   (815819) от 07.01.2018
-
-Г. Лелевич | На литературном посту. Статьи и заметки (1924) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая книга не является академическим исследованием о современной русской литературе. Разумеется, при подходе к каждому литературному явлению, автор пытался анализировать его, пользуясь методом марксизма, т.-е. единственно-научным в наше время методом. Но, несмотря на это, а вернее благодаря этому, книга преследует прежде всего задачи борьбы на идеологическом (   Читать дальше...   )Жанр: История, политология, искусство, литературоведениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:312DAEC2EE2329CC0DBAD449FC05FB1FEECE345F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197495   (815815) от 07.01.2018
 
 Р. Люксембург | Реформа или революция? (1923) [PDF]
@@ -146,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815815.jpg" />
 </div>
 
 
@@ -174,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815705.jpg" />
 </div>
 
 
@@ -203,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815690.jpg" />
 </div>
 
 
@@ -229,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815590.jpg" />
 </div>
 
 
@@ -255,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815556.jpg" />
 </div>
 
 
@@ -284,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815532.jpg" />
 </div>
 
 
@@ -310,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815526.jpg" />
 </div>
 
 
@@ -338,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815436.jpg" />
 </div>
 
 
@@ -364,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815365.jpg" />
 </div>
 
 
@@ -393,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815353.jpg" />
 </div>
 
 
@@ -421,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815337.jpg" />
 </div>
 
 
@@ -447,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815202.jpg" />
 </div>
 
 
@@ -473,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815123.jpg" />
 </div>
 
 
@@ -501,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815064.jpg" />
 </div>
 
 
@@ -527,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814905.jpg" />
 </div>
 
 
@@ -553,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814569.jpg" />
 </div>
 
 
@@ -579,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814541.jpg" />
 </div>
 
 
@@ -606,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813846.jpg" />
 </div>
 
 
@@ -632,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813797.jpg" />
 </div>
 
 
@@ -659,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813776.jpg" />
 </div>
 
 
@@ -685,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813688.jpg" />
 </div>
 
 
@@ -696,6 +556,141 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9051BFE7CCC872FC36EE7BB9D9208959A43EADC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008800   (813673) от 19.04.2016
+
+Т. А. Романова (ред.) | Кампучия. Справочная карта (1980) [JPG, PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813673.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данное издание входят:
+1) Подробная справочная карта Кампучии (масштаб 1:1 000 000).
+2) Указатель географических названий в алфавитном порядке.
+3) Обложка с выходными данными (утеряна).(   Читать дальше...   )Жанр: Складная географическая картаФормат: JPG, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C5A80AE6DA04A733CD4F5C37B156032312C12C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197537   (813652) от 08.01.2018
+
+Питер Франкопан | Шелковый путь (2015) [PDF, EPUB, FB2]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813652.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Шелковый путь. Дорога тканей, рабов, идей и религий» – больше чем книга, это настоящее исследование британского историка и преподавателя Оксфордского университета Питера Франкопана. В книге рассматривается вся история человечества за последние 2000 лет. Вы узнаете, как возник шелковый путь из Азии в Европу, какие войны велись за контроль над ним, а также поймете (   Читать дальше...   )Жанр: Всемирная историяПеревод: В. Шаршукова (перевод на русский язык, 2017)Формат: PDF, EPUB, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75CAE7FE3F4C28792D4794A5B02E39ABAE9BFEAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383149   (813603) от 14.05.2020
+
+Д.В. Рублёва (сост.) | Величайшие русские пророки, предсказатели и провидцы (2020) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813603.jpg" />
+</div>
+
+
+###  Подробнее
+
+На Руси и в царской России было много провидцев, предсказателей и прорицателей. У каждого из провидцев-святителей своя непростая судьба, свой трудный и благородный жизненный путь. В этой книге собраны истории и рассказы о русских святых, провидцах, праведниках и святителях; о монахе Авеле Вещем, проведшем более двадцати лет за свои пророчества в тюрьмах и крепостях, (   Читать дальше...   )Жанр: Биографии и мемуары, Популярно об историиФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF025063875B7A2ECEBD7D8B650E55F73F27EF5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383326   (813600) от 14.05.2020
+
+Сет Грэм-Смит | Хоррор и ужастики. Как дожить до конца фильма (2020) [EPUB]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813600.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приготовьтесь к плохим новостям. Если вы держите в руках эту книгу, то велика вероятность, что вы застряли в фильме ужасов.
+Благодаря этому гиду по аду вы узнаете, что нужно делать, если вас преследуют призраки, демоны, инопланетяне, психопаты или умственно отсталые фермеры, вампиры, зомби, охотящиеся за вашими мозгами, куклы-убийцы или сам дьявол.
+«Хоррор и ужастики» (   Читать дальше...   )Жанр: Культура и искусство, Кинематограф, ТеатрПеревод: Виктория ТенФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:809DCEBEF6BFBCCBBEBCEE8AA922B567A9D7C1ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955147   (813579) от 19.04.2016
+
+Л. Сараскина | Достоевский (2013) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813579.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Достоевский таков, какова Россия, со всей её тьмой и светом. И он — самый большой вклад России в духовную жизнь всего мира». Это слова Н. Бердяева, но с ними согласны и другие исследователи творчества великого писателя, открывшего в душе человека такие бездны добра и зла, каких не могла представить себе вся предшествующая мировая литература. В великих произведениях (   Читать дальше...   )Жанр: БиографияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91918573E5C74C9209524EB0A0CB49824E4EBEFE
 ```
 
 https://mybot314.ru/tekegram_catalog/

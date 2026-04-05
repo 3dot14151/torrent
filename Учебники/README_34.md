@@ -1,3 +1,55 @@
+###  Публикация: 1129703   (720448) от 29.04.2017
+
+С.Я. Казанцев, Н.М. Дубинина (ред.) | Информатика и математика для юристов (2010) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720448.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассматривается аппаратное и программное обеспечение современной информационной технологии применительно к юридической деятельности. Освещены современные компьютерные и информационные технологии, используемые в правоприменительной деятельности. Показаны роль и место математики в ней. Представлены необходимые для юриста понятия и методы математической логики, теории (   Читать дальше...   )Жанр: Математика, информатикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABD61BC7CF2B3B7F59038211AFC4A257A33A6328
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129558   (720445) от 29.04.2017
+
+А.Н. Попов и др. | Датчики технологических машин (2012) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720445.jpg" />
+</div>
+
+
+###  Подробнее
+
+Задачей представленного лабораторного практикума является исследование технических характеристик датчиков с целью их правильного и обоснованного применения. Помимо этого практикум знакомит  с принципами действия и конструкции датчиков, правилами встраивания их в измерительные цепи технических устройств; включает работы, направленные на получение практических навыков (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D514A7AC698AA102D1760571B607FA8903E559DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129499   (720441) от 29.04.2017
 
 О.А. Козадеров, А.В. Введенский | Современные химические источники тока (2017) [PDF]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720441.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720407.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719593.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718608.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718378.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714444.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714406.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714127.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713797.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713694.jpg" />
 </div>
 
 
@@ -273,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713552.jpg" />
 </div>
 
 
@@ -300,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713544.jpg" />
 </div>
 
 
@@ -327,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713458.jpg" />
 </div>
 
 
@@ -354,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713392.jpg" />
 </div>
 
 
@@ -381,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713366.jpg" />
 </div>
 
 
@@ -407,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712476.jpg" />
 </div>
 
 
@@ -433,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712475.jpg" />
 </div>
 
 
@@ -459,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712471.jpg" />
 </div>
 
 
@@ -485,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712065.jpg" />
 </div>
 
 
@@ -511,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712061.jpg" />
 </div>
 
 
@@ -539,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711955.jpg" />
 </div>
 
 
@@ -566,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711882.jpg" />
 </div>
 
 
@@ -592,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711881.jpg" />
 </div>
 
 
@@ -619,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711870.jpg" />
 </div>
 
 
@@ -631,58 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:557D83C38D9596A7B07D3A961A27986390998071
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286611   (710812) от 03.03.2019
-
-С.А. Кудряков и др. | Основы компьютерного моделирования радиоэлектронных систем и сигналов (2018) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710812.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее учебное пособие представляет собой сборник Примеров моделирования радиоэлектронных систем и сигналов. Описание каждого примера моделирования помимо задания для практического выполнения содержит краткую теоретическую справку по соответствующей теме и задачи моделирования в виртуальной среде на основе программ MULTISIM, MATLAB, SIMULINK и MMANA GAL. Рекомендуется (   Читать дальше...   )Жанр: Компьютерная литература, радиотехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:878FDCCB07175AFC2D4CE32A4488FCFA153969B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532858   (710708) от 21.02.2022
-
-Я.С. Бугров, С.М. Никольский | Высшая математика. Задачник. Учебное пособие для вузов (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие представляет собой репринт задачника известных математиков, к сожалению, уже ушедших из жизни. Однако их труды сохраняют актуальность и остаются востребованными и в настоящее время. Задачник дополняет учебники этих же авторов по различным разделам высшей математики, также переизданные в последнее время, и способствует успешному усвоению теоретического (   Читать дальше...   )Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C51BCFDF0D90DF11AB1B995A0DC785F24B5DBF32
 ```
 
 https://mybot314.ru/tekegram_catalog/

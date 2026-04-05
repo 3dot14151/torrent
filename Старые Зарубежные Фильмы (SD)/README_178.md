@@ -1,3 +1,139 @@
+###  Публикация: 1588252   (191859) от 03.11.2022
+
+Чарли Чейз. Женитьба по заказу / Married To Order (1920) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герой Чарли влюблен в Розу, но ее отец, считающий Чарли хлюпиком, категорически против их брака. Намереваясь сбежать с женихом, Роза надевает одежду своего брата-близнеца. Отец желает перехитрить влюбленных...Производство: США, Reelcraft Pictures / Royal ComediesЖанр: комедия, короткометражный, немое киноРежиссер: Чарли ЧейзАктеры: Чарли Чейз, Оливер Харди, Розмарин Теби, Лео Уайт, Бад РоссПеревод: Немой с интертитрамиСубтитры: Русские интертитрыПродолжительность: 00:16:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61DC2F0AA1EECC2E7B3A46346CBF86D554543688
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588247   (191857) от 03.11.2022
+
+Мак Суэйн. Крест на крест / Double Crossed (1914) WEBRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два господина не очень благонравного поведения соперничают друг с другом за благосклонность местной красотки (та еще королева!). Ну, а в любовной войне, как известно, правил нет. Вот они и подставляют друг друга и прессуют как только можно. А ведь они вроде как приятели, а тут врагами стали. Поэтому и название такое. Дело в том, что в их американском языке выражение (   Читать дальше...   )Производство: США, Keystone Film CompanyЖанр: комедия, короткометражный, немое киноРежиссер: Форд СтерлингАктеры: Форд Стерлинг, Emma Clifton, Мак Суэйн, Честер Конклин, Гарри МакКой, Фрэнк Кули, Хэнк Манн, Руб Миллер, Аль Ст. ДжонПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские встроенные отключаемыеПродолжительность: 00:14:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC04350C3A0128CAD5B6D3D2B37939A8F011FB49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658061   (191739) от 06.09.2023
+
+Приключения частного детектива / Adventures of a Private Eye (1977) DVDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191739.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой человек, выдавая себя за частного детектива, ищет сексуальных приключений.
+Второй фильм из своеобразной трилогии:
+Первый фильм Приключения водителя такси / Adventures of a Taxi Driver (1976)Производство: Великобритания / Salon ProductionsЖанр: комедия, криминалРежиссер: Стэнли А. ЛонгАктеры: Кристофер Нил, Сьюзи Кендалл, Гарри Х. Корбет, Диана Дорс, Фред Эмни, Лиз Фрайзер, Айрин Хэндл, Йен Лавендер, Джулиан Орхард, Джон ПертуиПеревод: Авторский, А.ДольскийЯзык озвучки: Русский, английскийСубтитры: ОтсутствуютПродолжительность: 01:32:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2795B9AFF96454F552D04A65FF82C6F57936F6CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658055   (191720) от 06.09.2023
+
+Приключения водителя такси / Adventures of a Taxi Driver (1976) DVDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой человек, выдавая себя за таксиста, ищет сексуальных приключений и проворачивает рискованные дела с похитителями драгоценностей.
+Первый фильм из своеобразной трилогии
+Второй фильм Приключения частного детектива /Adventures of a Private Eye (1977)Производство: Великобритания / Salon ProductionsЖанр: комедия, криминалРежиссер: Стэнли А. ЛонгАктеры: Бэрри Эванс, Джуди Гисон, Эдриэнн Поста, Диана Дорс, Лиз Фрайзер, Джейн Хейден, Йен Лавендер, Стивен Льюис, Роберт Линдсей, Генри МакГиПеревод: Авторский (А.Гаврилов, А.Дольский)Язык озвучки: Русский, английскийСубтитры: ОтсутствуютПродолжительность: 01:26:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52D5AAAE256D0C71A33D0C21E858EFD3791104E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658071   (191679) от 06.09.2023
+
+Приключения приятеля сантехника / Adventures of a Plumber's Mate (1978) DVDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191679.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой человек, выдавая себя за сантехника, ищет сексуальных приключений и проворачивает рискованные дела с похитителями драгоценностей.
+Третий фильм из своеобразной трилогии
+Первый фильм Приключения водителя такси / Adventures of a Taxi Driver (1976)Производство: Великобритания / Salon ProductionsЖанр: комедия, криминалРежиссер: Стэнли А. ЛонгАктеры: Кристофер Нил, Артур Муллар, Анна Куэйл, Стивен Льюис, Кристофер Биггинс, Элейн Пейдж, Нина Уэст, Уильям Раштон, Пруденс Драдж, Питер КлиолПеревод: Авторский (А.Гаврилов, А.Дольский)Язык озвучки: Русский, английскийСубтитры: ОтсутствуютПродолжительность: 01:24:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3E2B6B65FCABDFC2E01AB3B3E45D5C6C4E30AF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1588476   (191654) от 04.11.2022
 
 Ради Ирландии / For Ireland's Sake (1914) WEBRip
@@ -6,7 +142,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191654.jpg" />
 </div>
 
 
@@ -32,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191646.jpg" />
 </div>
 
 
@@ -58,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191618.jpg" />
 </div>
 
 
@@ -84,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191609.jpg" />
 </div>
 
 
@@ -110,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191442.jpg" />
 </div>
 
 
@@ -136,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191434.jpg" />
 </div>
 
 
@@ -162,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191379.jpg" />
 </div>
 
 
@@ -188,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191342.jpg" />
 </div>
 
 
@@ -214,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191319.jpg" />
 </div>
 
 
@@ -240,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191296.jpg" />
 </div>
 
 
@@ -266,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191146.jpg" />
 </div>
 
 
@@ -292,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191007.jpg" />
 </div>
 
 
@@ -318,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_190989.jpg" />
 </div>
 
 
@@ -344,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_190915.jpg" />
 </div>
 
 
@@ -370,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_190913.jpg" />
 </div>
 
 
@@ -396,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190844.jpg" />
 </div>
 
 
@@ -423,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190825.jpg" />
 </div>
 
 
@@ -449,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190788.jpg" />
 </div>
 
 
@@ -475,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190679.jpg" />
 </div>
 
 
@@ -501,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190651.jpg" />
 </div>
 
 
@@ -528,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190575.jpg" />
 </div>
 
 
@@ -539,138 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B85CAC4004CCDD6A17CDEEDCA003E1655D73E8A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658945   (190534) от 10.09.2023
-
-Жилец / Район «Пасифик-Хайтс» / Pacific Heights (1990) BDRip [H.264] [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190534.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая пара покупает дом в престижном районе Сан-Франциско. Они ремонтируют его и, чтобы расплатиться с банком, решают сдать первый этаж. Картер Хэйс кажется им хорошим, ответственным квартирантом. Но когда Хэйс въезжает, он начинает превращать жизнь своих арендодателей в настоящий кошмар, чтобы отобрать у них дом...Производство: США, Morgan Creek ProductionsЖанр: триллерРежиссер: Джон ШлезингерАктеры: Мелани Гриффит, Мэттью Модайн, Майкл Китон, Мако, Нобу МакКарти, Лори Меткаф, Карл Ламбли, Дориан Хэрвуд, Лука Берковичи, Типпи Хедрен, Шила МакКарти, Гай Бойд, Джерри Хардин, Дэн Хедайя, Джеймс СтейлиПеревод: профессиональный многоголосый, авторскийЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:42:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4145FFBB76AAB6F37B1B1B6AF9477067A499FF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659047   (190504) от 10.09.2023
-
-Шайка доберманов / The Doberman Gang (1972) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190504.jpg" />
-</div>
-
-
-###  Подробнее
-
-После неудачного ограбления мелкий мошенник и бывшая официантка решили, что украсть деньги самим им вряд ли удастся. Тогда вместе с парочкой друзей, они начинают тренировать нескольких доберманов и теперь в лапах собак успех будущего ограбления.
-Второй фильм: Отважные доберманы / The Daring Dobermans (1973) DVDRipПроизводство: США / Rosamund Productions Inc.Жанр: боевик, комедия, криминалРежиссер: Байрон ЧудновАктеры: Байрон Мейб, Хэл Рид, Джули Пэрриш, Симми Боу, Джо Д’Амор, Джон Тулл, Джей Пэкстон, Джон Стронг, Дайан Прайор, Клайд АпперсонПеревод: Многоголосый профессиональный, авторскийЯзык озвучки: Русский, английскийСубтитры: ОтсутствуютПродолжительность: 01:26:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:421681B12F8C6BFF95039DB4DEE7049CE2684366
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659050   (190466) от 10.09.2023
-
-Отважные доберманы / The Daring Dobermans (1973) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190466.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пятерка собак-доберманов грабит банк и уносит 350 тысяч долларов в сумках, привязанных к их спинам. Полиция и рейнджеры безуспешно разыскивают животных в близлежащих к месту преступления лесах. Трое друзей — Грег, Уоррен и Стив узнают о случившемся и решают поймать собак…
-Первый фильм: Шайка доберманов / The Doberman Gang (1972) DVDRipПроизводство: США / Rosamund Productions Inc.Жанр: комедия, криминалРежиссер: Байрон ЧудновАктеры: Чарльз Робинсон, Тим Консидайн, Джоан Колфилд, Дэвид Моусес, Клаудио Мартинез, Том Девер, Джордж «Бак» Флауэр, Энсел Кук, Хорас Ирвин, Лэнс ХиллиардПеревод: Двуголосый профессиональный, НТВ+Язык озвучки: Русский, английскиеСубтитры: ОтсутствуютПродолжительность: 01:29:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:164BB88CDF07BF4028F3EBB973F31170CA0B1E85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589448   (190432) от 09.11.2022
-
-Чарли Чейз. На ринге / At the Ringside (1921) WEBRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Снаб служит в полиции. Хорошее дело. Вот только райончик ему попался не очень благополучный. Ну, ничего, и здесь есть хорошие люди. И Снаб нашел здесь себе симпатию - милейшую продавщицу сосисек. Вот только бизнес у неё что-то не заладился и её вот-вот лишат аренды ларька. И со стороны Снаба очень благородно решиться помочь девушке. Да, это так.Производство: США, Rolin FilmsЖанр: комедия, короткометражный, немое киноРежиссер: Чарли ЧейзАктеры: Снаб Поллард, Эрнест Моррисон, Мери Москини, Ной Янг, Сэмми БруксПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские встроенные отключаемыеПродолжительность: 00:10:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62DD97C2F1D448776F7B1F15FDD299A6B770562A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589410   (190334) от 09.11.2022
-
-Правдивые истории / True Stories (1986) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190334.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм из серии эпизодов, в центре которых Бирн, безымянный незнакомец в ковбойской шляпе, который посещает вымышленный техасский город Вирджил, где наблюдает за горожанами, готовящимися к "Празднованию особости" по случаю 150-летия независимости Техаса...Производство: США, Gary Kurfirst Pictures, Pressman Film, True Stories VentureЖанр: мюзикл, комедияРежиссер: Дэвид БирнАктеры: Джон Гудмен, Энни МакЭнро, Джо Харви Аллен, Сполдинг Грей, Аликс Илайас, Робак «Попс» Стэйплс, Тито Ларрива, Джон Ингл, Мэттью Пози, Дэвид БирнПеревод: любительский одноголосый (Олег Воротилин)Субтитры: русские, английские SDHПродолжительность: 01:29:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10FE89725BDFC94356E379C7D60DD596C1E34953
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1587558   (192288) от 01.11.2022
+
+Ю.Г. Решетняк | Курс математического анализа [2 части в 4 книгах] (1999 - 2001) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник «Курс математического анализа» в двух частях написан на основе лекционного курса, читавшегося автором в Новосибирском государственном университете, и отражает опыт работы кафедры математического анализа по совершенствованию преподавания этого предмета. Дается оригинальное изложение ряда тем, составляющих традиционное содержание курса. Читателю также представлены (   Читать дальше...   )Жанр: МатематикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:955E43C7F9AC3F314E1139FFB508078528FA5A01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587945   (192098) от 02.11.2022
+
+Э. Илиел | Основы стереохимии 2-е изд. (2009) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192098.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное издание написано одним из крупнейших ученых в области стереохимии органических соединений, являющейся краеугольным камнем современной органической химии. Основы стереохимии изложены в форме, доступной для читателей, которые только начинают изучение органической химии.Жанр: ХимияПеревод: В.Д. ДемьяновичФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BE03453160E12A841A78FDFB3D7E3E789B5249B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587931   (192030) от 02.11.2022
 
 О.И. Яковлев и др. | Распространение радиоволн (2009) [PDF]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192030.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191984.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191582.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191553.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191551.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191536.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ Donald Knuth и др. | Concrete Mathematics: A Foundation for Computer Science 
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191230.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191022.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190919.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190398.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190327.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190322.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190310.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190289.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190221.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189946.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189656.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189349.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189321.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189303.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189277.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189087.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189032.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188825.jpg" />
 </div>
 
 
@@ -625,59 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD09D130401BDF553BAF8522D267C673699FC1D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590582   (188632) от 14.11.2022
-
-Н.В. Келдыш | Системная защита информации компьютерных сетей (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188632.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии подробно рассматриваются проблемы обеспечения информационной безопасности сетей, понятным языком излагаются базовые понятия криптографической защиты информации, детально обсуждаются понятия идентификации, аутентификации и авторизации пользователей при работе в информационных сетях, приводятся принципы комплексной защиты информации в сетях.
-Для дисциплины (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63A090A0F1E6FFC5C233C6EBA15B78FC6BD6CC01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661878   (188196) от 16.09.2023
-
-В.И. Коржик, В.А. Яковлев | Основы криптографии (2016) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее издание предназначено в помощь студентам, изучающим "Основы криптографии" и "Основы криптографии с открытым ключом" по своим специальностям. Пособие также будет полезно для самостоятельного изучения криптографии и всем тем, кто интересуется ее практическими приложениями. При написании данного пособия использовались последние опубликованные (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ИЦ ИнтермедиаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A584ED05E8708B38F96580B27A8DF138852E9C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

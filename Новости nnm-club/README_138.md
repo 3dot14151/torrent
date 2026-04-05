@@ -1,3 +1,57 @@
+###  Публикация: 358724   (583575) от 04.07.2011
+
+System Shock 2 [Ru] (RePack) 1999 | MOP030B
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583575.jpg" />
+</div>
+
+
+###  Подробнее
+
+В лучших традициях голливудских блокбастеров - все начинается за несколько лет до описываемых в System Shock2 событий. Вы спецназовец, солдат на службе UNN - государства будущего, объединившего все страны планеты Земля. Ваша карьера профессионального военного начинается на тренировочной базе этого самого UNN, где вы оказываетесь на развилке трех дорог. Кем быть Navy(Моряк), Marine(Пехотинец) или вступить в O.S.A. - пси-корпус по-нашему.
+
+От вашего выбора зависит, в каких областях человеческого знания будет силен ваш подопечный. То есть вы получаете базовый набор характеристик: Navy - силен в хакерском искусстве, при сносных навыках владения оружием, Marine - просто танк, а не человек - больше подойдет любителям Quake-а - таскает тонны стреляющих железок, безжалостно забивает дроидов гаечным ключом, едва входит в дверной проем и прочее.Тип издания: Перепакованная лицензияЖанр: Action (Shooter), RPG, 3D, 1st PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23DB2A49B1A9C7439740971A7773114D91E468E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 358660   (583570) от 04.07.2011
+
+Далеко по соседству / Quartier lointain (2010) DVDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Томас - художник, автор многих, еще в недалёком прошлом, популярных комиксов. Ему за 50, дома его ждут любящие его жена и две дочки. Однажды, возвращаясь из поездки, Томас ошибся поездом и оказался в маленьком городке, затерянном в Альпах, где-то рядом со Швейцарской границей, в городке, где он родился и вырос. Так как до следующего поезда оставалось еще достаточно времени, Томас решил посетить могилу матери. На кладбище Томас теряет сознание, а когда приходит в себя, то оказывается в в далёком 1969ом году. Вот так, в теле четырнадцатилетнего подростка и с опытом взрослого мужчины, судьба предоставила ему еще одну возможность встретить старых друзей, любимую сестру и еще раз пережить первую школьную любовь. Томас понимает, что это его шанс остановить отца который сорок лет назад бросил семью...Жанр: Фэнтези, ДрамаРежиссер: Сэм ГарбарскиАктеры: Паскаль Греггори, Джонатан Цассаи, Александра Мария Лара, Лео Легран, Лаура Мартин, Лаура Мойссон, Пьер-Луи Беллет, Таня Гарбарски, Лауренс Липски, Луис БьянчиПеревод: Двуголосый закадровый, профессиональныйОзвучка / Автор перевода: Продолжительность: 1:34:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFAD5D3179CBEBD6EA3E08EBB345E876F9195301
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1552703   (583549) от 24.05.2022
 
 Любовь, смерть и роботы / Love, Death & Robots (2022) WEB-DLRip [H.265/2160p] (сезон 3, серии 1-9 из 9) [Handmade upscale AI] Coldfilm, Animount, HDrezka, RuDub
@@ -6,7 +60,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583549.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583547.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583521.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ Adobe After Effects CC 2015.3 13.8.1.38 RePack by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583106.jpg" />
 </div>
 
 
@@ -111,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_582760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_582760.jpg" />
 </div>
 
 
@@ -137,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_582618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_582618.jpg" />
 </div>
 
 
@@ -163,7 +217,7 @@ Adobe Flash Professional CC 2015 15.0.1.179 RePack by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582546.jpg" />
 </div>
 
 
@@ -189,7 +243,7 @@ Microsoft Windows 7 Ultimate Ru x86 SP1 7DB by OVGorskiy® 07.2015 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582545.jpg" />
 </div>
 
 
@@ -218,7 +272,7 @@ Adobe Photoshop CC 2015.5.0 (20160603.r.88) RePack by alexagf [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582136.jpg" />
 </div>
 
 
@@ -244,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582129.jpg" />
 </div>
 
 
@@ -270,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582127.jpg" />
 </div>
 
 
@@ -296,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_582051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_582051.jpg" />
 </div>
 
 
@@ -322,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_582014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_582014.jpg" />
 </div>
 
 
@@ -349,7 +403,7 @@ Assassin’s Creed Rogue / Assassin's Creed Изгой (2015) [Ru/En] (1.1.0./dl
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581634.jpg" />
 </div>
 
 
@@ -375,7 +429,7 @@ Legends of Eisenwald / Легенды Эйзенвальда (2015) [Ru/Multi] (
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581633.jpg" />
 </div>
 
 
@@ -401,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581632.jpg" />
 </div>
 
 
@@ -427,7 +481,7 @@ Sony Vegas Pro 10.0e Build 737 Portable [RUS]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581514.jpg" />
 </div>
 
 
@@ -455,7 +509,7 @@ Monogatari Series: Second Season | Истории, сезон второй (2013
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581274.jpg" />
 </div>
 
 
@@ -481,7 +535,7 @@ DriverPack Solution 16.8 Full + Драйвер-Паки 16.08.1 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581173.jpg" />
 </div>
 
 
@@ -507,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_580872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_580872.jpg" />
 </div>
 
 
@@ -536,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_580845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_580845.jpg" />
 </div>
 
 
@@ -565,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_580782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_580782.jpg" />
 </div>
 
 
@@ -591,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_580698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_580698.jpg" />
 </div>
 
 
@@ -617,7 +671,7 @@ Revo Uninstaller Pro 3.1.4 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580691.jpg" />
 </div>
 
 
@@ -628,59 +682,6 @@ Revo Uninstaller Pro 3.1.4 RePack (& portable) by KpoJIuK [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA3156EB49C8F6DB88CCAE252F67AB45E6822AE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920078   (580690) от 21.07.2015
-
-Revo Uninstaller Pro 3.1.4 RePack (& Portable) by D!akov [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580690.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для удаления нежелательных приложений, установленных на вашем компьютере. Revo Uninstaller имеет продвинутый алгоритм сканирования системы до и после инсталляции и позволяет удалять оставшиеся после деинсталляции программы файлы, папки и ключи реестра. Уникальный "режим охотника" предлагает простые, но эффективные инструменты для управления (деинсталляция, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C341B3ECB47E9351925871C38D5641E7EFF8856F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 360359   (580482) от 07.07.2011
-
-Need for Speed: Most Wanted / Новая реальность [Ru] (RePack/Mod) 2011 | ~ISPANEC~
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580482.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все пути, все направления открыты для вас. В "Need for Speed Most Wanted 2011 (Новая реальность)" гонщик свободно перемещается по городу.
-Город живет своей жизнью. Плотное уличное движение и даже пробки - обычное явление, но когда на хвосте полиция, и узкие переулки - ваши главные союзники.Тип издания: Перепакованная лицензияЖанр: Arcade / Racing (Cars) / 3DЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89DC52267C4A9C1223E6D949E9EAD653334C4754
 ```
 
 https://mybot314.ru/tekegram_catalog/

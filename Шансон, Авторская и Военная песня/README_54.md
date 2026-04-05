@@ -1,3 +1,32 @@
+###  Публикация: 1760972   (103104) от 17.11.2024
+
+Игорь Латышко - Адреналин (2024) [FLAC|Lossless|WEB-DL|tracks] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Мир без тебя [00:03:50]
+02 - Адреналин [00:03:34]
+03 - А может это любовь [00:03:39]
+04 - Девочка диджей [00:03:31](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:34:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B55D1CBD0F40E29D82A7A6640864F3A8CA2C7CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1760970   (103099) от 17.11.2024
 
 Игорь Латышко - Адреналин (2024) [MP3|320 Kbps] <Chanson>
@@ -6,7 +35,7 @@
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103099.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103091.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102743.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_102499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_102499.jpg" />
 </div>
 
 
@@ -128,7 +157,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102469.jpg" />
 </div>
 
 
@@ -163,7 +192,7 @@ Charles Aznavour - 40 Chansons d'Or (1996) 2CD [FLAC|Lossless]<Chanson>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_102468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_102468.jpg" />
 </div>
 
 
@@ -198,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102407.jpg" />
 </div>
 
 
@@ -233,7 +262,7 @@ VA - Песни нашей победы (2010) [MP3|320 kbps]<Военная п�
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101835.jpg" />
 </div>
 
 
@@ -268,7 +297,7 @@ VA - Единственной и любимой (2007) [MP3|320 kbps]<Военн
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101778.jpg" />
 </div>
 
 
@@ -303,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101488.jpg" />
 </div>
 
 
@@ -332,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101430.jpg" />
 </div>
 
 
@@ -361,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101343.jpg" />
 </div>
 
 
@@ -390,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101231.jpg" />
 </div>
 
 
@@ -419,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101173.jpg" />
 </div>
 
 
@@ -448,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101170.jpg" />
 </div>
 
 
@@ -477,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101160.jpg" />
 </div>
 
 
@@ -506,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101104.jpg" />
 </div>
 
 
@@ -535,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100959.jpg" />
 </div>
 
 
@@ -564,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100697.jpg" />
 </div>
 
 
@@ -593,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100653.jpg" />
 </div>
 
 
@@ -622,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98543.jpg" />
 </div>
 
 
@@ -651,7 +680,7 @@ VA - Мы военной разведки спецназ (2005) [MP3|256 кб/с
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90469.jpg" />
 </div>
 
 
@@ -686,7 +715,7 @@ VA - Война закончилась давно (2005) [MP3|320 kbps]<Воен
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90016.jpg" />
 </div>
 
 
@@ -721,7 +750,7 @@ VA - Поклонимся Великим Тем Годам (2010) [MP3|320 kbps]
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90010.jpg" />
 </div>
 
 
@@ -756,7 +785,7 @@ VA - Песни Великой Отечественной войны (2000) [MP3
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89889.jpg" />
 </div>
 
 
@@ -770,41 +799,6 @@ VA - Песни Великой Отечественной войны (2000) [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28F3F729BC64DD2C1A7DDB9D339013A88BE3D89E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486086   (89820) от 21.04.2012
-
-VA - Мы Вас помним и чтим (2010) [MP3|320 kbps]<Ретро, военная песня>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Александр Розенбаум - Мы живы
-02. Жанна Бичевская - Двуглавый орел
-03. Леонидов Максим - Корреспондентская застольная
-04. Леонидов Максим - Темная ночь
-05. Леонидов Максим - Землянка
-06. Малинин Александр - Поручик Голицын
-07. ВИА Гуляй поле - Еду с армии
-08. Розенбаум Александр - Марш музыкантского спецназа
-09. Михаил Ножкин - Последний Бой
-10. ВИА Самоцветы - Мой адрес - Советский Союз(   Читать дальше...   )2010Жанр: Ретро, военная песняПродолжительность: 01:47:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB17CD5B4FE75242F83823D742EFB9D19CA4D266
 ```
 
 https://mybot314.ru/tekegram_catalog/

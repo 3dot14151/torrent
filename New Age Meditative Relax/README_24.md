@@ -1,3 +1,36 @@
+###  Публикация: 379695   (289510) от 08.12.2014
+
+Kenio Fuke - 6 альбомов (2002-2013) [MP3|320 кб/с]<New age, Relax, Nature>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы:
+
+2002 - Musica, Natureza & Cia
+2010 - Melodias da Natureza, Vol. 2
+2011 - Relaxing Melodies of Nature
+2012 - Piano Impressions, Vol. 1
+2012 - Spirit Of Nature
+2013 - Piano Impressions, Vol. 2Жанр: New age, Relax, NatureПродолжительность: 05:26:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A901E234E9D555F8E4FC0C386DC3D0DC3FF46C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1080567   (288471) от 07.12.2016
 
 Nikonn - Effrosyni (2016) [MP3|320 Kbps] <Ambient, Downtempo, Dream Pop>
@@ -6,7 +39,7 @@ Nikonn - Effrosyni (2016) [MP3|320 Kbps] <Ambient, Downtempo, Dream Pop>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288471.jpg" />
 </div>
 
 
@@ -35,7 +68,7 @@ Akela Sun - Ambient & Meditation (2016) [MP3|320 Kbps] <Ambient, Electronic, Sou
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288277.jpg" />
 </div>
 
 
@@ -64,7 +97,7 @@ Hilary Stagg - 7 альбомов (1988-2001) [MP3|320 кб/с]<New Age, Neoclas
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288190.jpg" />
 </div>
 
 
@@ -98,7 +131,7 @@ Achillea - The Nine Worlds (2005) [MP3|320 Kbps] <Enigmatic, New Age, Downtempo>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286265.jpg" />
 </div>
 
 
@@ -127,7 +160,7 @@ Karunesh - Revelation (2009) [MP3|320 kbps]<New Age/Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286238.jpg" />
 </div>
 
 
@@ -161,7 +194,7 @@ Michael Heemskerk - Angels (2016) [MP3|320 Kbps] <New Age, Meditation>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283033.jpg" />
 </div>
 
 
@@ -190,7 +223,7 @@ Jill Garcia - Shine (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283029.jpg" />
 </div>
 
 
@@ -219,7 +252,7 @@ Nanda Re - Shaman Earth Dance (2015) [MP3|320 Kbps] <New Age, Enigmatic, World>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282910.jpg" />
 </div>
 
 
@@ -248,7 +281,7 @@ Niall & Juliana - Angelic Reiki (2012) [MP3|320 кб/с]<New Age, Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282427.jpg" />
 </div>
 
 
@@ -277,7 +310,7 @@ David Thomas - Samsara, Vol. 13 (Ethnic Opera) (2015) [MP3|320 кб/с]<New age,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282104.jpg" />
 </div>
 
 
@@ -306,7 +339,7 @@ Dr. Mary Anderson - Meditations for the Journey Within (2016) [MP3|320 Kbps] <Ne
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280909.jpg" />
 </div>
 
 
@@ -335,7 +368,7 @@ Maryada Ram - Eternal Tibet (2017) [MP3|320 Kbps] <New age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280601.jpg" />
 </div>
 
 
@@ -364,7 +397,7 @@ Gregorian - Holy Chants (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280435.jpg" />
 </div>
 
 
@@ -393,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278955.jpg" />
 </div>
 
 
@@ -422,7 +455,7 @@ Sean Evenett - My Peaceful Heart (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278721.jpg" />
 </div>
 
 
@@ -451,7 +484,7 @@ Marco Allevi - Spa Music (Music For Relaxation Meditation Massage) (2017) [MP3|3
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275957.jpg" />
 </div>
 
 
@@ -480,7 +513,7 @@ Guido Negraszus - The Very Best of Guido Negraszus (2016) [MP3|320 Kbps] <New Ag
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274735.jpg" />
 </div>
 
 
@@ -509,7 +542,7 @@ Molly Valentine - Fantasyland (2016) [MP3|320 Kbps] <New Age, Neo-Classical>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273638.jpg" />
 </div>
 
 
@@ -538,7 +571,7 @@ Deuter, Parijat and Kamal - Spa Lounge (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273520.jpg" />
 </div>
 
 
@@ -567,7 +600,7 @@ Alwan - Sidewalk (2016) [MP3|320 Kbps] <New Age, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271459.jpg" />
 </div>
 
 
@@ -596,7 +629,7 @@ Daniel Roeder & Jacob Yates - Music for Meditation (2016) [MP3|320 Kbps] <New Ag
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271371.jpg" />
 </div>
 
 
@@ -625,7 +658,7 @@ Jeff Pearce - From the Darker Seasons (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269510.jpg" />
 </div>
 
 
@@ -654,7 +687,7 @@ Michael Logozar - Starlight (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269508.jpg" />
 </div>
 
 
@@ -683,7 +716,7 @@ VA - Kamasutra Tantra Massage - Just Relax (2013) [MP3|320 Kbps] <Relax, Chillou
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269430.jpg" />
 </div>
 
 
@@ -712,7 +745,7 @@ Ashaneen - Dancing on the Edge of Infinity (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268868.jpg" />
 </div>
 
 
@@ -726,35 +759,6 @@ Ashaneen - Dancing on the Edge of Infinity (2017) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4AA030B0AE6B5CAAAFC6D6411C228B54C59B35D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 219410   (267474) от 05.12.2018
-
-Leonhardt North - The Spirit Of Pandora (2010) [MP3|256 kbps] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pandora
-02. Dreaming Under Branches
-03. Na Vi
-04. Forest Dance(   Читать дальше...   )Жанр: New age, AmbientПродолжительность: 01:04:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CCB555B0F19330C789E7BCBD58DBAA78281636A
 ```
 
 https://mybot314.ru/tekegram_catalog/

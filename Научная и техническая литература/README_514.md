@@ -1,139 +1,3 @@
-###  Публикация: 1425867   (218184) от 22.11.2020
-
-Стюарт Рассел | Совместимость. Как контролировать искусственный интеллект (2021) [EPUB]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218184.jpg" />
-</div>
-
-
-###  Подробнее
-
-В массовом сознании сверхчеловеческий искусственный интеллект – технологическое цунами, угрожающее не только экономике и человеческим отношениям, но и самой цивилизации. Конфликт между людьми и машинами видится неотвратимым, а его исход предопределенным. Выдающийся исследователь ИИ Стюарт Рассел утверждает, что этого сценария можно избежать.
-В своей новаторской книге (   Читать дальше...   )Жанр: Научно-популярная литератураПеревод: Наталья КолпаковаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE47856663A31B5CB05E5CE004C6057F23C179D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269934   (218183) от 16.12.2018
-
-А.Ю. Айхенвальд | Советская экономика (1927) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218183.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая работа представляет собою попытку дать популярное изложение самых основных вопросов советского хозяйственного строительства. Правда, не все главы удалось изложить так, чтобы их проработка не представляла затруднений для малоподготовленного читателя. Особенно это касается некоторых мест последней, VI, главы, где затронут ряд основных теоретических проблем (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C09FA6F1347C478528B0BD55FE90F8F5889EBCC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966518   (218103) от 18.12.2015
-
-Л. Н. Колосова (ред.) | Афганистан. Общегеографическая карта (1994) [JPG, PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218103.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данное издание входят:
-1) Подробная справочная карта Афганистана с административным делением (масштаб 1:2 000 000).
-2) Указатель географических названий в алфавитном порядке.
-3) Обложка с выходными данными.(   Читать дальше...   )Жанр: Складная географическая картаФормат: JPG, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC8A933EC202BD3E5348EB4273C2D45E6F2E02A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966418   (218059) от 18.12.2015
-
-А.Л. Хейфец и др. | Компьютерная графика для строителей (2015) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218059.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приведены теоретические и практические основы построения строительных чертежей. Наряду с традиционными 2d методами проектирования и построения чертежа большое внимание уделено современными 3d технологиям и методам.Рассмотрены содержание и примеры выполнения трех контрольно-графических заданий, включаемых в курс инженерной и компьютерной графики студентам строительных (   Читать дальше...   )Жанр: Черчение, строительствоФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C762FC7899C5B39F7A3D736CDA8787F9195E7DEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269473   (217947) от 16.12.2018
-
-В.У. Громов | Вещественные улики и научно-уголовная техника [пособие для органов расследования] (1932) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая книга представляет собою повторное издание моей книги «Материальная истина и научно-уголовная техника».
-
-Наша криминалистическая литература еще весьма бедна книгами, дающими описание основных методов научно-уголовной техники, имеющих широкое применение в работе расследовательских органов. Между тем работниками расследования ощущается настоятельная потребность (   Читать дальше...   )Жанр: История, политология, науковедение, правоведение, криминалистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:845BB16420774BF007040DBB36BC587E988F0EFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1586077   (217897) от 25.10.2022
 
 Ольга Жоголева | Пищевая аллергия. Как с ней справиться? (2022) [FB2]
@@ -142,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217897.jpg" />
 </div>
 
 
@@ -168,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217873.jpg" />
 </div>
 
 
@@ -194,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217867.jpg" />
 </div>
 
 
@@ -220,7 +84,7 @@ Ruth Gairns, Stuard Redman / Рут Гарнс, Стюард Рэдман | Oxfo
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217859.jpg" />
 </div>
 
 
@@ -247,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217847.jpg" />
 </div>
 
 
@@ -273,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217817.jpg" />
 </div>
 
 
@@ -299,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217812.jpg" />
 </div>
 
 
@@ -325,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217805.jpg" />
 </div>
 
 
@@ -351,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217794.jpg" />
 </div>
 
 
@@ -378,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217774.jpg" />
 </div>
 
 
@@ -404,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217712.jpg" />
 </div>
 
 
@@ -432,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217593.jpg" />
 </div>
 
 
@@ -458,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217468.jpg" />
 </div>
 
 
@@ -484,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217462.jpg" />
 </div>
 
 
@@ -511,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217401.jpg" />
 </div>
 
 
@@ -537,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217386.jpg" />
 </div>
 
 
@@ -563,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217297.jpg" />
 </div>
 
 
@@ -589,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217273.jpg" />
 </div>
 
 
@@ -615,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217060.jpg" />
 </div>
 
 
@@ -641,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217013.jpg" />
 </div>
 
 
@@ -669,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216895.jpg" />
 </div>
 
 
@@ -680,6 +544,142 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:967DC7260235C7F1E7C831A869208D763F368B2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343638   (216880) от 07.12.2019
+
+А. Н. Трайнин | Учение о составе преступления (1946) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учение о составе преступления играет весьма значительную роль в теории уголовного права. Оно также имеет огромное значение для судебной практики.
+
+Все вопросы общего учения о преступлении, вопросы о преступном действии и его результате, вопросы о круге наказуемых действий и их образующих элементах неразрывно связаны с разрешением проблемы состава преступления. Далее (   Читать дальше...   )Жанр: История, политология, правоведение, криминология, публицистикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3680E986BE7F295C47E53C56E4ED5A0B1AC8664F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269810   (216836) от 16.12.2018
+
+Андрей Колясников | Чиним смартфон своими руками. Пацаны знают (2018) [PDF, RTF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216836.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга поможет отделить мусор из интернета от реальных операций, связанных с починкой вашего смартфона (планшета). Все основные проблемы, касающиеся вашего гаджета, описаны в этой книге.
+Мы научимся менять динамики, микрофоны и камеры. После, перейдем к замене OGS-дисплея, тачскрина, основного экрана. Будим устанавливать и менять защитное стекло. Далее перейдем (   Читать дальше...   )Жанр: Электроника, связьФормат: PDF, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCCB234433702863CE637E6A5B2751902C5329B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966956   (216775) от 19.12.2015
+
+Галина Козловская | Шахерезада. Тысяча и одно воспоминание (2015) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Галина Козловская (1906–1997) – писательница, мемуаристка. Красавица, чьим литературным талантом восхищался Г. Уэллс, в юности блистала за границей. Но судьба поджидала на родине, в Москве: встреча с молодым композитором Алексеем Козловским, ссылка в Ташкент в 1935-м. Во время войны гостеприимный дом Козловских был открыт для всех эвакуированных.
+С радушного приема (   Читать дальше...   )Жанр: Биографии и МемуарыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B528630A47CDF5CB98B8CCD2D3AD3D1F9A7C18B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966790   (216762) от 19.12.2015
+
+Жан-Жак Руссо | Об общественном договоре или принципы политического права (1938) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216762.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Об общественном договоре" — главное произведение Жана-Жака Руссо и наиболее яркий документ политической мысли французского просвещения. В этом произведении Руссо противопоставляет произволу абсолютной монархии идею народного суверенитета и принципы буржуазно-демократической республики.
+
+Идеи, изложенные Руссо в "Общественном договоре", играли (   Читать дальше...   )Жанр: История, политологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27E3180A3A3836D70F80FB2777DC69E03744874A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652640   (216750) от 12.08.2023
+
+Д.С. Кузнецов | Специальные функции (1962) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_216750.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящей книге дается краткое, но достаточно строгое изложение теории основных специальных функций. Чтение книги требует знания курса высшей математики и элементов теории функций комплексного переменного в объеме втузовских программ. Материал в книге расположен и изложен таким образом, что, в случае необходимости, некоторые параграфы могут быть опущены без ущерба (   Читать дальше...   )Жанр: МатематикаИздательство: Высшая школаФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57B1A0C7CEE18458D6B30CD4D51E8E295782761A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1765289   (34389) от 12.12.2024
+
+Trisha Yearwood - The Song Remembers When (1993) CD, Album, Club Edition [FLAC|Lossless|tracks + .cue] <Rock, Folk, World, & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Song Remembers When (3:55)
+02. Better Your Heart Than Mine (3:54)
+03. I Don't Fall In Love So Easy (4:14)
+04. Hard Promises To Keep (3:58)(   Читать дальше...   )Жанр: Rock, Folk, World, & CountryПродолжительность: 00:37:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE8EF961DD337ED9F29F3462BF25C3D46FB09D79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764793   (34384) от 12.12.2024
+
+Dan Seals - The Best (1987) CD, Compilation [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Three Time Loser (3:05)
+02. God Must Be a Cowboy (3:05)
+03. My Baby's Got Good Timing (3:27)
+04. You Still Move Me (5:09)(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:45:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0851BB520E8D4364AA075F245CA87ECBC822167A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1766079   (33958) от 16.12.2024
 
 Enya - And Winter Came... (2008) [FLAC|Lossless|WEB-DL|tracks] <Celtic New Age>
@@ -6,7 +64,7 @@ Enya - And Winter Came... (2008) [FLAC|Lossless|WEB-DL|tracks] <Celtic New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33958.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33472.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Autogenic Training Channel - Ayurveda Music (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32932.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ John Sokoloff - Дискография (1993-2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32240.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Arcane League of Legends: Season 2 (Soundtrack from the Animated Series) (2
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32031.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Jean Michel-Jarre - Oxygene 3 (2016) [MP3|320 Kbps] <Ambient, New-Age, Synth-pop
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31975.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Tangerine Dream - The Island of the Fay (2011) [MP3|320 kbps]<New age, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31954.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Tangerine Dream - Machu Picchu (Maxi EP) (2012) [MP3|320 кб/с]<Electronic mus
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31951.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Tomas Lanquist - On Faery Wings (2015) [MP3|320 кб/с]<New Age, Electronic, Am
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31934.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Eleni Violaris - Rainstriker (2015) [MP3|320 кб/с]<New Age, World>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31903.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Vangelis - Rosetta (2016) [MP3|320 Kbps] <Electronic, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31845.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Only the Best Music (2024) [MP3|320 Kbps] <New-Age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31567.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Only the Best Music (2024) [FLAC|Lossless|WEB-DL|tracks] <New-Age, Relax>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31566.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - The Orient Collective: Spirits of the East (2025) [FLAC|Lossless|WEB-DL|tra
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31364.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Volker Bertelmann - The Day of the Jackal (Original Series Soundtrack) (2024) [F
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30868.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Armik - Gitano Amor (2025) [FLAC|Lossless|WEB-DL|tracks] <Flamenco, Instrumental
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29923.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Angelo Badalamenti – Music From Twin Peaks (1990) [FLAC|Lossless|tracks + .cue
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29793.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Damon Albarn & Michael Nyman - Ravenous (1999) [MP3|320 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28900.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Deep Forest - Live Machine (2025) [MP3|320 Kbps] <Ambient, Electronic, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28780.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Jean-Michel Jarre - Musik Aus Zeit Und Raum (1983) Reissue, 1984, Polydor [FLAC|
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28261.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Hans Zimmer - The World of Hans Zimmer - Part II: A New Dimension (2025) [FLAC|L
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28238.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Emmanuelle - Instrumental Collection (2004) [FLAC|Lossless|image + .cue] <E
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28023.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Stive Morgan - Serenity (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient, 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27316.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Stive Morgan - Philosophy of Life (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27292.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Stive Morgan - Philosophy of Life (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D62B68094D7F6B4888E701D551E55F410429FC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780265   (27290) от 17.02.2025
-
-Yakuro - Forward to the Past (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Portal
-02. Following the Voice
-03. Echo of Time
-04. Till the Last Breath (Ragnarök)(   Читать дальше...   )Жанр: New Age, Ambient, ElectronicПродолжительность: 01:36:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97FEB8D60DC3F02E5DD7946C3E158640CF88B549
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 289031   (24764) от 14.03.2025
-
-Henryk Kuzniak - Vabank & Seksmisja / Ва-банк & Сексмиссия (1998) [APE|Lossless]<Score, Jazz, Dixieland>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jeszcze Raz Vabank
-02. Jeszcze Raz Vabank (wersja instrumentalna)
-03. Ragtime Vabank
-04. Samotnosc Kwinty(   Читать дальше...   )Жанр: Score, Jazz, DixielandПродолжительность: 01:12:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86A0D7C547F762F334A8264CF5B4192AB87ABE50
 ```
 
 https://mybot314.ru/tekegram_catalog/

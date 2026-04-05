@@ -1,3 +1,55 @@
+###  Публикация: 1488774   (575366) от 31.05.2022
+
+Совиный дом / Дом совы / The Owl House (2021) WEBRip  (сезон 2, серии 1-21 из 21) NewStation
+
+>>След.
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575366.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главной героиней является девочка по имени Луз. Она нечаянно натыкается на портал в королевство Демонов. В новой реальности Луз становится подругой мятежной ведьмы Иды и очаровательного маленького воина по имени Кинг. Несмотря на отсутствие магических способностей, Луз преследует свою мечту стать ведьмой, становясь ученицей Иды в Совином Доме и в конечном итоге находит (   Читать дальше...   )Производство: США, Walt Disney Television AnimationЖанр: Фантастика, фэнтези, комедия, приключенияРежиссер: Дана ТеррасПеревод: Многоголосый профессиональный (NewStation)Субтитры: отсутствуютПродолжительность: ~00:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AEA6645F20380096D6EC97AB2BD6EF6BEE2ADD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042823   (574099) от 15.08.2016
+
+Футурама / Futurama (2002) BDRip (сезон 5, серии 1-4 из 4) LostFilm
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал начинается с того, что разносчик пиццы из Нью-Йорка Филипп Джей Фрай случайно, как это кажется на первый взгляд (но подробнее об этом будет поведано лишь в десятой серии четвертого сезона «Загадка Фрая»), был заморожен в криогенной камере ровно в 00 часов 00 минут 00 секунд 1 января 2000 года. Он был разморожен тысячу лет спустя, 31 декабря 2999 года, и обнаружил (   Читать дальше...   )Производство: СШАЖанр: мультфильм, фантастика, комедияРежиссер: Питер Аванзино, Брэт Хааланд, Грегг ВанцоПерсонажи: Футурама и его друзья.Перевод: Многоголосый закадровый, профессиональный - Ren-TVПродолжительность: ~01:29:00 серияРеклама: присутствует заставка LostFilm.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7313BF9BE2FB4CE1966789CFB16886D6F5A72D4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1151272   (573845) от 18.07.2017
 
 Кастлвания / Castlevania (2017) WEB-DL [H.264/720p-LQ] (Сезон 1, 4 серии из 4) Kansai
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573845.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573758.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572090.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571963.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569525.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568647.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568452.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563222.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562830.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562731.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561001.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560882.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560139.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556076.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555330.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554937.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554935.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553771.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552583.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551229.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549792.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549284.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549010.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547448.jpg" />
 </div>
 
 
@@ -623,58 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDB6D326959C648D132CDAE95CB8AADA0990CB93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 806469   (547382) от 28.08.2014
-
-Аватар: Легенда о Корре. Книга 3 / The Legend of Korra. Book 3 (2014) HDTVRip (1-13 серии из 13)
-
->>След.
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547382.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юный Аватар Корра в свои 18 уже не только хорошо овладела всеми 4-мя стихиями: огнем, водой, землей и воздухом, а также справилась с революционной армией и главой революционеров – Амоном, сыном Якона, магом крови, и научилась контролировать себя в мире духов, не только общаясь с мирными, а бороться со злыми. Теперь Корре предстоит найти новых магов воздуха! После (   Читать дальше...   )Жанр: Приключения, Рисованная анимацияРежиссер: Майкл Данте ДиМартино, Брайан КониецкоПеревод: Многоголосый закадровый (Flux-Team)Продолжительность: серия по ~00:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4D0D4C583628A2104BA7F4C91E9C8C14F6B1792
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 694474   (546292) от 29.08.2013
-
-Мой Маленький Пони: Дружба это Магия / My Little Pony: Friendship is Magic (2012) WEB-DLRip [720p] (Сезон 3, Серии: 13 из 13) [EN / RU Sub] [hand made 60fps]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Единорогу Твайлайт Спаркл ученице Селестии, предстоит отправиться вместе с друзьями в Кристальную империю, чтобы помочь найти артефакт "кристальное сердце". Но помимо этого неожиданного этапа обучений ей предстоит пройти и тот, что поможет наконец раскрыть свою судьбу.Жанр: Приключения, Фэнтези, СемейныйРежиссер: Джэйсон Тиссен, Джеймс ВуттонПерсонажи: Эшлин Бол, Клэр Корлетт, Мишель Кребер, Андреа Либман и другиеПеревод: СубтитрыЯзык субтитров: Русские субтитры + английскиеФормат: MP4Продолжительность: 13 х ~00:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C68F3136AEFB611C50138AC80A83E5C946C80F43
 ```
 
 https://mybot314.ru/tekegram_catalog/

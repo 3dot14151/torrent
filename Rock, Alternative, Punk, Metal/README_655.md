@@ -1,3 +1,32 @@
+###  Публикация: 1573724   (410478) от 01.09.2022
+
+Aeternam - Heir of the Rising Sun (2022) [MP3|320 Kbps] <Symphonic Melodic Death Metal, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Osman's Dream
+02. Beneath The Nightfall
+03. Irene
+04. Nova Roma(   Читать дальше...   )Жанр: Symphonic Melodic Death Metal, FolkПродолжительность: 00:46:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4253BAEBA14ABC1F3FDC5683165A1DE64CE99010
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1573524   (410477) от 01.09.2022
 
 Machine Head - ØF KINGDØM AND CRØWN & Bonus Tracks (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Groove, Thrash Metal, Nu-Metal>
@@ -6,7 +35,7 @@ Machine Head - ØF KINGDØM AND CRØWN & Bonus Tracks (2022) [FLAC 2.0|48/24|WEB
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410477.jpg" />
 </div>
 
 
@@ -33,7 +62,7 @@ Teen Suicide - honeybee table at the butterfly feast (2022) [FLAC 2.0|48/24|WEB-
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410475.jpg" />
 </div>
 
 
@@ -62,7 +91,7 @@ Nightwish - Oceanborn (1998) Remaster, 2015, Spinefarm Records [OGG Vorbis|485 K
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410413.jpg" />
 </div>
 
 
@@ -91,7 +120,7 @@ Ghost Wish - Dimension (2022) [MP3|320 Kbps] <Progressive Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410411.jpg" />
 </div>
 
 
@@ -120,7 +149,7 @@ Mad Max - Wings Of Time (2022) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410408.jpg" />
 </div>
 
 
@@ -149,7 +178,7 @@ Suzi Quatro - Legend: The Best Of (2017) [FLAC|Lossless|WEB-DL|tracks] <Rock, Ha
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410346.jpg" />
 </div>
 
 
@@ -178,7 +207,7 @@ Def Leppard - Best Of (2004) Limited Edition, 2CD [FLAC|Lossless|tracks + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410344.jpg" />
 </div>
 
 
@@ -207,7 +236,7 @@ Deep Purple - Fireball (1971) Anniversary Edition, Remastered, 1996, EMI [FLAC|L
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410334.jpg" />
 </div>
 
 
@@ -236,7 +265,7 @@ Cold - The Things We Can't Stop (2019) [FLAC|Lossless|tracks + .cue] <Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410330.jpg" />
 </div>
 
 
@@ -265,7 +294,7 @@ Gun - Favourite Pleasures (2017) Deluxe Edition [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410256.jpg" />
 </div>
 
 
@@ -294,7 +323,7 @@ Suzi Quatro - Legend: The Best Of (2017) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410255.jpg" />
 </div>
 
 
@@ -323,7 +352,7 @@ Deep Purple - In Rock (1970) Anniversary Edition, Remastered, 1995, EMI [FLAC|Lo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410254.jpg" />
 </div>
 
 
@@ -352,7 +381,7 @@ Kaleo - A/B (2016) special russian edition, 2017 [FLAC|Lossless|tracks + .cue] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410246.jpg" />
 </div>
 
 
@@ -381,7 +410,7 @@ Sascha Paeth's Masters Of Ceremony - Signs Of Wings (2019) [MP3|320 Kbps] <Heavy
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410237.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410232.jpg" />
 </div>
 
 
@@ -439,7 +468,7 @@ Hammerschmitt - Dr. Evil (2019) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410225.jpg" />
 </div>
 
 
@@ -468,7 +497,7 @@ Oomph! - Ritual (2019) Limited Edition, Digipak [FLAC|Lossless|image + .cue] <In
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410218.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ Megadeth - The Sick, the Dying... and the Dead! (2022) [FLAC 2.0|48/24|WEB-DL|tr
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410205.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ Takezo - Reality Left Behind (2020) [FLAC|Lossless|WEB-DL|tracks] <Sludge Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410113.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ Theo - Figureheads (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410111.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ Tonka - ...This Present Darkness... (2000) (Reissued-2002) [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410109.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ Kraan - Sandglass (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410108.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ The Archipelago - Mind And Failure (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410106.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ Horncrowned - Rex Exterminii (The Hand of the Opposer) (2020) [MP3|320 Kbps] <Ex
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410104.jpg" />
 </div>
 
 
@@ -700,7 +729,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410100.jpg" />
 </div>
 
 
@@ -714,33 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F3E46D6F365D30481FD07569515220E0D161427
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325698   (410094) от 16.09.2019
-
-Mungo Jerry - Gold (2019) 3CD [MP3|320 Kbps] <Rock, Folk-rock, Psychedelic>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summer’s Gone [3:40]
-02. 46 & OnЖанр: Rock, Folk-rock, PsychedelicПродолжительность: 02:30:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:710E231632AB628196DDE473076EA39514E14F10
 ```
 
 https://mybot314.ru/tekegram_catalog/

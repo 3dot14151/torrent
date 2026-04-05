@@ -1,3 +1,109 @@
+###  Публикация: 790630   (720467) от 28.05.2014
+
+Журнал | H.O.M.E. & Style [Россия] №1 (май-июнь 2014) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720467.jpg" />
+</div>
+
+
+###  Подробнее
+
+«H.O.M.E. & Style» (Дом и стиль) – журнал о современном взгляде на дизайн интерьера, который связал воедино дизайн, архитектуру, моду и современные технологии. Издание состоит из четырех разделов: интерьер, архитектура, техника, драйв, которые послужат поддержкой и хорошим ориентиром в современной жизни.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD24FE875FEE7D633725F7425BBFED51DF44C877
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129584   (720446) от 29.04.2017
+
+Журнал | Похудей №5 (май 2017) [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720446.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ежемесячное издание для женщин, стремящихся быть в отличной физической форме, нравиться себе и окружающим, заботящихся о своей внешности, здоровье и душевной гармонии.
+
+ В сферу интересов журнала «Похудей» входит спортивное и вспомогательное оборудование, аксессуары, одежда, обувь, косметика для занятий различными видами фитнеса.Жанр: Здоровье, фитнесФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19BF62D0114A15D8E85B37E3F2CF79E478621B3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024126   (720424) от 07.06.2016
+
+Журнал | Огородник №6 (июнь 2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720424.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Огородник» - красочный современный журнал для любителей дач и огородов. В каждом номере интересные статьи и полезные советы по уходу за различными культурами, а также по дизайну участка.Жанр: Сад, огород, дачаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79A713BC73B16BE0D04F3A0866DB272754DE9B01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 790638   (720358) от 28.05.2014
+
+Подшивка журналов | Приусадебное хозяйство №1-5 (январь-май 2014) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720358.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Приусадебное хозяйство» знакомит садоводов, огородников, цветоводов с современными технологиями и народным опытом возделывания овощных, плодовых, ягодных и лекарственных культур, с огромным разнообразием садовых и комнатных цветов, с новыми и незаслуженно забытыми сортами. Не обойдены вниманием и владельцы домашних ферм — здесь они находят ответы на многие (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE8A49F47DEF52405D3C0A77131F7F1BF8D080A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 790620   (720350) от 28.05.2014
 
 Журнал | Esquire [Россия] №99 (май 2014) [PDF]
@@ -6,7 +112,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720350.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720342.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720249.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720246.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720239.jpg" />
 </div>
 
 
@@ -136,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720192.jpg" />
 </div>
 
 
@@ -162,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720033.jpg" />
 </div>
 
 
@@ -188,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719928.jpg" />
 </div>
 
 
@@ -214,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719847.jpg" />
 </div>
 
 
@@ -240,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719729.jpg" />
 </div>
 
 
@@ -266,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719607.jpg" />
 </div>
 
 
@@ -293,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_719565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_719565.jpg" />
 </div>
 
 
@@ -322,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719046.jpg" />
 </div>
 
 
@@ -348,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718826.jpg" />
 </div>
 
 
@@ -375,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718711.jpg" />
 </div>
 
 
@@ -404,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718599.jpg" />
 </div>
 
 
@@ -430,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718511.jpg" />
 </div>
 
 
@@ -456,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718445.jpg" />
 </div>
 
 
@@ -482,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718414.jpg" />
 </div>
 
 
@@ -508,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718315.jpg" />
 </div>
 
 
@@ -534,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718212.jpg" />
 </div>
 
 
@@ -560,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718104.jpg" />
 </div>
 
 
@@ -571,113 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB759C362FBAA5EE1890EBAA5934E3FDDC30274E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024455   (718051) от 08.06.2016
-
-Газета | Обереги и талисманы. Спецвыпуск №7 (143) (2016) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718051.jpg" />
-</div>
-
-
-###  Подробнее
-
-К чему на самом деле снятся деньги?
-К труду они снятся, к пахоте и долгам. В самом безобидном случае - к разговором о работе и деньгах. Как в жизни деньги
-придуманы человечеством как эквивалент наших усилий, нашего труда, так и во сне образ денег означает то же самое.
-Снится, что вам предложили деньги, не сомневайтесь, скоро вам предложат работу или на вашей работе (   Читать дальше...   )Жанр: Магия, приворот, заговор, эзотерикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22B5349139DA322EEE6241891AB2D67377F182FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 791164   (717976) от 29.05.2014
-
-Журнал | Playboy [Россия] №6 (июнь 2014) [PDF]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717976.jpg" />
-</div>
-
-
-###  Подробнее
-
-Playboy (Плейбой) — имя, ставшее легендой. Популярнейший во всем мире глянцевый мужской журнал появился в России в 1995 году и очень быстро стал самым востребованным изданием в своей категории. Playboy охватывает очень широкий тематический спектр: самые красивые женщины мира, эффектные пикториалы и эксклюзивные съемки знаменитостей, яркие фоторепортажи со светских (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AB19A8C6E91F585EA348F9F168E64399DB90337
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024452   (717771) от 08.06.2016
-
-Газета | Лечебные письма. Пенсионер №10/С (2016) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выход на пенсию часто называют заслуженным отдыхом, и если в первой части этой фразы сомнений не возникает, то со второй мало кто согласится, выход на пенсию - это не всегда отдых. Порой приходится бегать по различным учреждениям, чтобы правильно оформить пенсионное пособие или получить законную добавку к пенсии. Часто мы даже не знаем, на какие льготы мы имеем право, (   Читать дальше...   )Жанр: Популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F33DC06E98BE7FA8C9861D3DF3BEA9A14A607C4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024353   (717757) от 08.06.2016
-
-Журнал | Железный мир №4 (апрель 2016) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717757.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Железный мир» - ведущее профессиональное издание, посвященное силовым видам спорта. Он отражает события, происходящие в мире бодибилдинга, пауэрлифтинга, армрестлинга, серии «Стронгмен». Много материалов посвящено методикам построения тренировочного процесса и спортивного питания, советам профессиональных спортсменов. Представлены информация о соревнованиях (   Читать дальше...   )Жанр: Мужской журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4022F69880A44B10D4C9045660D4C2083E53239
 ```
 
 https://mybot314.ru/tekegram_catalog/

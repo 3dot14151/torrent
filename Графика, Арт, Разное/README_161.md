@@ -1,3 +1,30 @@
+###  Публикация: 1820090   (808) от 26.09.2025
+
+Картинки (AI) - UI8 -  Realistic Faces - Diverse Pack of 92 [PNG, PSD]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Демонстрируйте реалистичное разнообразие в своих дизайнах и экономьте время, затрачиваемое на поиски, с помощью этого тщательно подобранного пакета из 92 портретов, созданных с помощью искусственного интеллекта.
+Эти высококачественные портреты, ориентированные на камеру, идеально подходят для контента в социальных сетях, макетов продуктов и презентаций для клиентов. (   Читать дальше...   )Формат: PNG, PSDРазрешение файлов: 2048x2048
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABD5013D08B58BFEA5D9885C1CE996DC17858E2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1820089   (798) от 26.09.2025
 
 Промты - SevenUnited LLC - 554 Midjourney Prompts for Jewelry: Vol 2 - 6094680 [TXT, JPG]
@@ -6,7 +33,7 @@
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_798.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_356.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_322.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_300.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_72.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_72.jpg" />
 </div>
 
 

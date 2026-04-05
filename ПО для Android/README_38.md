@@ -1,3 +1,110 @@
+###  Публикация: 1497196   (866349) от 21.09.2021
+
+MultiNotes v2.10 [Ru/Multi] - удобные Заметки с напоминанием (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это не просто обычные «Заметки», это универсальное хранилище информации! В MultiNotes Вы можете сохранять не только короткие заметки, но и многое другое.Тип издания: Пиратка (AdFree - без рекламы)Релиз состоялся: 13.09.2021Разработчик: m.kadykovПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03E221BC79C7CAB14F9B99538EB355A5B4C9BE47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497198   (866346) от 21.09.2021
+
+неЗаметки v179 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866346.jpg" />
+</div>
+
+
+###  Подробнее
+
+• Супер-быстрое создание текстовых и фото заметок
+• Мгновенный список покупок или дел - просто введите текст списка, и программа сделает отдельную заметку из каждой строчки
+• Возможность хранить заметки и задачи по группам. Например: Дом, Покупки, Школа, Временные заметки и так далее
+• Виджет просмотра заметок(   Читать дальше...   )Тип издания: Пиратка (AdFree - без рекламы)Релиз состоялся: 19.09.2021Разработчик: SD.samodelkinПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BE8417177EA3381B9A4EFC066116AE76C4F4E21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480517   (864292) от 22.09.2021
+
+Глаза + Зрение: тренировка, упражнения, гимнастика v1.6.1 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Глаза + Зрение (англоязычное название: Eyes + Vision) помогает при таких проблемах как амблиопия, спазм аккомодации, близорукость, дальнозоркость, косоглазие, сухость глаз, синдром "ленивый глаз", усталость и напряжение, и т.д. Также помогает улучшить: самочувствие, точность, концентрацию, жизненные силы, работоспособность и снятие стресса. Это бесплатное, (   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 22 августа 2021 г.Разработчик: FunlikaПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62E34B70B3D1C602E6346C00F23302EECFCA22A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 779546   (864276) от 22.09.2021
+
+FolderSync Pro v3.1.1 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864276.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для облачной синхронизации с поддержкой различных сервисов и протоколов. Музыку, фотографии другие важные файлы вы можете копировать с телефона в облако или наоборот. При этом FolderSync позволяет максимально гибко настроить Вашу синхронизацию. Также есть полноценный встроенный файловый менеджер, который позволяет управлять файлами как локально, так и в (   Читать дальше...   )Тип издания: Pro Paid / Pro c МаркетаРелиз состоялся: 22.09.2021Разработчик: Tacit DynamicsПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4A15977DE4BC7162C4F8E705CF874C51801306A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088731   (863282) от 15.04.2020
 
 Голосовой калькулятор Pro 1.4.21 [Ru]
@@ -6,7 +113,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863282.jpg" />
 </div>
 
 
@@ -33,7 +140,7 @@ Relax Mountain ~ Nature Sounds PRO v4.3.1 [Ru/Multi] - Расслабьтесь 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862817.jpg" />
 </div>
 
 
@@ -60,7 +167,7 @@ Relax Night ~ Nature Sounds PRO v4.4.0 [Ru/Multi] - Отдых с лучшими
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862802.jpg" />
 </div>
 
 
@@ -87,7 +194,7 @@ Relax Sea ~ Ocean Sounds PRO v5.3.1 [Ru/Multi] - Расслабьтесь с л�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862719.jpg" />
 </div>
 
 
@@ -114,7 +221,7 @@ RAR v6.10 Premium [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862625.jpg" />
 </div>
 
 
@@ -140,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862505.jpg" />
 </div>
 
 
@@ -169,7 +276,7 @@ Bass Guitar Tutor Pro ver.Feels (134) [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861087.jpg" />
 </div>
 
 
@@ -195,7 +302,7 @@ Root Essentials Premium 2.4.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860183.jpg" />
 </div>
 
 
@@ -221,7 +328,7 @@ Manual FX Camera 1.0.3 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860154.jpg" />
 </div>
 
 
@@ -247,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859302.jpg" />
 </div>
 
 
@@ -273,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859292.jpg" />
 </div>
 
 
@@ -300,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859233.jpg" />
 </div>
 
 
@@ -326,7 +433,7 @@ Photo Editor by Aviary Premium 4.5.5 [Rus] - Фоторедактор
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858624.jpg" />
 </div>
 
 
@@ -352,7 +459,7 @@ VOCHI v2.28.1 [Ru/Multi] - видеоредактор, эффекты и фил�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857794.jpg" />
 </div>
 
 
@@ -378,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857402.jpg" />
 </div>
 
 
@@ -404,7 +511,7 @@ PicsArt - Photo Studio v18.1.1 Mod by Alexey070315 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857401.jpg" />
 </div>
 
 
@@ -430,7 +537,7 @@ GPS to SMS v3.4.15 [Ru/Multi] - отправка GPS-координат по С�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857070.jpg" />
 </div>
 
 
@@ -456,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855407.jpg" />
 </div>
 
 
@@ -482,7 +589,7 @@ HTC Camera 8.50.876780 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855312.jpg" />
 </div>
 
 
@@ -508,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853055.jpg" />
 </div>
 
 
@@ -534,7 +641,7 @@ SanDisk Memory Zone 4.1.16 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851496.jpg" />
 </div>
 
 
@@ -560,7 +667,7 @@ iReal Pro - Нотная Тетрадь & Минусовки v2021.8 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851027.jpg" />
 </div>
 
 
@@ -572,115 +679,6 @@ iReal Pro - Нотная Тетрадь & Минусовки v2021.8 [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8642C1CE9E263CBA23E17005E44ECFD0CC823D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499216   (851021) от 30.09.2021
-
-Speakometer - Английское Произношение и Акцент v2.1.7 [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851021.jpg" />
-</div>
-
-
-###  Подробнее
-
-- Speakometer – это бесплатное приложение для английского произношения, которое оценит вашу речь с помощью продвинутого алгоритма искусственного интеллекта и поможет вам улучшить ваши навыки.
-- Как улучшить свое английское произношение? Изучайте и тренируйте английское произношение с приложением Speakometer.
-- Начните практиковаться прямо сейчас, и вы увидите прогресс. (   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 17 сентября 2021 г.Разработчик: DatawideПоддерживаемая ОС: Android 6.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89743B25884540B836A97462F22848847E51B17A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 855689   (851012) от 22.04.2020
-
-Glextor AppManager 5.32.0.507 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Упорядочите свои приложения в одно лишь касание с помощью Glextor AppManager! Это наиболее удобный инструмент для организации Android приложений.Тип издания: ПираткаРелиз состоялся: 22.04.2020Разработчик: Glextor IncПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9526D1CBECD1D6D2EFA799B7A9F583B12468BBCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 432303   (850987) от 22.04.2020
-
-Android Assistant Pro 23.70 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850987.jpg" />
-</div>
-
-
-###  Подробнее
-
-Android Помощник является одним из самых мощных и комплексных инструментов управления и улучшения работы Android телефона. Он ускоряет скорость работы вашего телефона, а также экономит батарею через 18 основных функций.Тип издания: ПираткаРелиз состоялся: 22.04.2020Разработчик: AA MobileПоддерживаемая ОС: 8.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:022C4F7B4EF26B0F001DAD122E8633ED973771C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455556   (850900) от 30.09.2021
-
-ПарКинг Премиум v6.5.2p [Ru/Multi] - Найти свою машину
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850900.jpg" />
-</div>
-
-
-###  Подробнее
-
-Забыли место парковки? Потерялись на огромной стоянке?
-Где моя машина? Где я припарковался? Найти мою машину?
-С приложением ParKing - королём парковки - с вами больше этого никогда не произойдёт!
-Это отличное и в то же время простое приложение является отличным решением, чтобы напомнить вам ваше место парковки.Тип издания: Пиратка (Paid)Релиз состоялся: 29 сентября 2021 г.Разработчик: Talent AppsПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC6F442A29849D794BA5DE335FD2AE11C8FCC2E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

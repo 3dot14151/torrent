@@ -1,3 +1,154 @@
+###  Публикация: 1295852   (613382) от 16.04.2019
+
+Rhapsody of Fire - The Eighth Mountain (2019) [FLAC|Lossless|tracks + .cue] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abyss of Pain (0:49)
+02. Seven Heroic Deeds (4:47)
+03. Master of Peace (5:32)
+04. Rain of Fury (4:09)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:04:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EABB509FF403FC4C4D45374F6F988B7C40CFE84B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296267   (613378) от 16.04.2019
+
+Hands Off Gretel - I Want The World (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Grunge, Pop Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kiss Me Girl
+02. S.A.S.S
+03. Big Boy
+04. It's My Fault(   Читать дальше...   )Жанр: Alternative Rock, Grunge, Pop PunkПродолжительность: 00:41:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBA5E86C93A773196E76C812CA7232D5F5449166
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 524519   (613335) от 18.07.2012
+
+Bluesville Station - Step On The Gas (2012) [MP3|320 кб/с]<Blues-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Right At Home (5:04)
+ 02. Key to My Heart (4:45)
+ 03. Live It Up (4:56)
+ 04. Big Bottom Baby (3:56)
+ 05. No Time Blues (5:17)
+ 06. Memories of Las Flores (5:00)
+ 07. Shoe Shine Blues (3:59)
+ 08. So Sue Me (4:23)
+ 09. Rough Rider Woman (5:43)
+ 10. Lost in Middle Earth (8:05)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 01:09:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:009BDEA52D4FF210D2CA2D991631F95FFB3C5879
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296305   (613308) от 16.04.2019
+
+Pink Floyd - The Division Bell (1994) Unofficial Release [FLAC|Lossless|image + .cue] <Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cluster One (5:57)
+02. What Do You Want From Me (4:24)
+03. Poles Apart (7:02)
+04. Marooned (5:31)(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 01:06:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05225DF79EE422DB793F460A5396F85D2F99BC77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296197   (613305) от 16.04.2019
+
+Nirvana - Live At The Paramount 1991 (2019) [MP3|320 Kbps] <Rock, Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jesus Doesn’t Want Me For A Sunbeam 03:29
+02. Aneurysm 04:49
+03. Drain You 03:46
+04. School 02:51(   Читать дальше...   )Жанр: Rock, GrungeПродолжительность: 01:06:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F67A9E3C8857AE8446FCC9672669976D3D36B134
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1545460   (613279) от 20.04.2022
 
 ORRA (ΩЯRΑ) - Unbounded (2022) [MP3|320 Kbps] <Progressive Rock>
@@ -6,7 +157,7 @@ ORRA (ΩЯRΑ) - Unbounded (2022) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613279.jpg" />
 </div>
 
 
@@ -35,7 +186,7 @@ Felt - Felt (1971) Reissue, 2000, Akarma [FLAC|Lossless|image + .cue] <Psychedel
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613277.jpg" />
 </div>
 
 
@@ -64,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613264.jpg" />
 </div>
 
 
@@ -93,7 +244,7 @@ Scorpions - The Best Of (1994) Unofficial Release [FLAC|Lossless|image + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613190.jpg" />
 </div>
 
 
@@ -122,7 +273,7 @@ Nocturnal Alliance - Death Among Us (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613177.jpg" />
 </div>
 
 
@@ -151,7 +302,7 @@ Bastard Folk - Трактир на перекрестке (2022) [MP3|320 Kbps] 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613162.jpg" />
 </div>
 
 
@@ -180,7 +331,7 @@ Ronnie Romero - Raised On Radio (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613158.jpg" />
 </div>
 
 
@@ -209,7 +360,7 @@ The Acacia Strain - Gravebloom (2017) [MP3|320 Kbps] <Metalcore, Deathcore, Hard
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613067.jpg" />
 </div>
 
 
@@ -238,7 +389,7 @@ Aasgard - Obscurantist Purification (2015) [MP3|320 кб/с]<Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612999.jpg" />
 </div>
 
 
@@ -267,7 +418,7 @@ Helrunar - Niederkunfft (2015) [MP3|320 кб/с]<Pagan-Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612997.jpg" />
 </div>
 
 
@@ -296,7 +447,7 @@ Taylor's Code - Mirrors (2015) [MP3|320 кб/с]<Crossover Prog>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612996.jpg" />
 </div>
 
 
@@ -325,7 +476,7 @@ Titans Eve - 3 альбома (2010-2015) [MP3|320 кб/с]<Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612994.jpg" />
 </div>
 
 
@@ -354,7 +505,7 @@ Brutallian - Blow On The Eye (2015) [MP3|320 кб/с]<Thrash / Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612993.jpg" />
 </div>
 
 
@@ -383,7 +534,7 @@ Supresion - Emerging Extermination (2015) [MP3|320 кб/с]<Thrash / Death Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612992.jpg" />
 </div>
 
 
@@ -412,7 +563,7 @@ Mourning's Hope - The Storm Within (2015) [MP3|320 кб/с]<Progressive Metal, I
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612991.jpg" />
 </div>
 
 
@@ -441,7 +592,7 @@ Reno Bo - Lessons from a Shooting Star (2015) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612990.jpg" />
 </div>
 
 
@@ -470,7 +621,7 @@ Innerspace - The Village (2012) [FLAC|Lossless|image + .cue]<Progressive rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612962.jpg" />
 </div>
 
 
@@ -499,7 +650,7 @@ Aeveron - 4 альбома, 1 EP (2004-2015) [MP3|320 кб/с]<Melodic Black / D
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612924.jpg" />
 </div>
 
 
@@ -528,7 +679,7 @@ Tulsadoom - Storms Of The Netherworld (2015) [MP3|320 кб/с]<Black Metal, Heav
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612922.jpg" />
 </div>
 
 
@@ -557,7 +708,7 @@ Marco Minnemann - Celebration (2015) [MP3|320 кб/с]<Progressive Rock, Fusion>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612921.jpg" />
 </div>
 
 
@@ -586,7 +737,7 @@ Telergy - 3 альбома (2011-2015) [MP3|192-320 кб/с]<Epic / Symphonic / 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612919.jpg" />
 </div>
 
 
@@ -600,151 +751,6 @@ Telergy - 3 альбома (2011-2015) [MP3|192-320 кб/с]<Epic / Symphonic / 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE91CCE6E5D8C14585985D977E49BC8A4F52D357
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912096   (612909) от 25.06.2015
-
-William D. Drake - Revere Reach (2015) [MP3|320 кб/с]<Progressive Rock, Alternative Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612909.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Distant Buzzing (3:26)
-02. In Converse (4:18)
-03. Lifeblood (2:58)
-04. Be Here Steryear (4:48)(   Читать дальше...   )Жанр: Progressive Rock, Alternative Psychedelic RockПродолжительность: 00:45:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E312EEFAC30FEE2053F1FB8A7739B696BA5BCEB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911228   (612907) от 25.06.2015
-
-Solstice Coil - Commute (2015) [MP3|320 кб/с]<Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Eyes
-02. Forget You Ever Saw Us
-03. Shuffle the Cards
-04. Her Silent Silhouette(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:52:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FBCC381CBAA761FD060387E37D0E0DE9FBACCE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911384   (612898) от 25.06.2015
-
-Lloyd Project - Shelter (2015) [MP3|320 кб/с]<Progressive / Art Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612898.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Moonrise (4:02)
-2. Black Dove (3:30)
-3. Shelter (3:57)
-4. Vertigo (3:44)(   Читать дальше...   )Жанр: Progressive / Art RockПродолжительность: 00:25:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3582B7EC2B2E71691F2289D969CBD813E48270B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545372   (612887) от 20.04.2022
-
-Ribbons of Euphoria - You Don't Care (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612887.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 3/4" Bullet (Running Through My Mind)
-02. You Don't Care
-03. Foundation of Control
-04. Hold on to My Gun(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:243A2A55C621D0E9AF54A41FC07DCAA4C904D007
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146634   (612862) от 30.06.2017
-
-The Corrs - White Light (2015) [FLAC|Lossless|image + .cue] <Pop-Rock, Folk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Do What I Like 03:37
-02. Bring On The Night (Andrea Corr, Caroline Corr, Sharon Corr, Jim Corr) 04:16
-03. White Light 03:15
-04. Kiss Of Life 03:59(   Читать дальше...   )Жанр: Pop-Rock, Folk-RockПродолжительность: 00:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1284EADC7CD2AC2E438762244E6CC74F09B7F213
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 1373152   (837317) от 30.04.2020
+
+Босоногая графиня / The Barefoot Contessa (1954) HDTVRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Испанская танцовщица Мария Варгас грациозна и талантлива, она родилась для того, чтобы стать звездой. В ночном кабаке в Мадриде, где она танцевала босоногой, ее заприметил режиссер Гарри и вскоре Мария добивается головокружительного успеха на голливудской фабрике грез. Непременный атрибут звездной жизни — череда любовников: известный гитарист, латиноамериканский (   Читать дальше...   )Производство: Италия, США / Figaro, Transoceanic FilmЖанр: драма, мелодрама, криминал, детективРежиссер: Джозеф Лео МанкевичАктеры: Хамфри Богарт, Ава Гарднер, Эдмонд О`Брайен, Мариус Горинг, Валентина Кортезе, Россано Браззи, Уоррен Стивенс, Франко Интерленьи, Мари АлдонПеревод: Двуголосый профессиональный (НТВ+)Субтитры: ОтсутствуютПродолжительность: 02:04:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B103EB0AD76098E2F34E04F76AD99029E2532A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 83217   (837242) от 30.04.2020
+
+Эта прекрасная жизнь / It's a Wonderful Life (1946) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джордж Бейли, владелец кредитной компании в выдуманном американском городке Бедфорд Фоллс, честный, отзывчивый, любящий муж и отец, подавлен свалившимися на него невзгодами и подумывает о самоубийстве.
+Очевидно, что человек, отказывающийся от самого большого дара Бога — жизни — нуждается в помощи ангела-хранителя. И Небеса отправляют ему на выручку Кларенса, единственного (   Читать дальше...   )Производство: США / Liberty Films (II)Жанр: Фэнтези, драма, семейныйРежиссер: Фрэнк КапраАктеры: Джеймс Стюарт, Донна Рид, Лайонел Бэрримор, Томас Митчелл, Генри Треверс, Бьюла Бонди, Фрэнк Фэйлен, Уорд Бонд, Глория Грэм, Х.Б. УорнерПеревод: Профессиональный (многоголосый, закадровый)Продолжительность: 02:10:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:519746E6BF12BC7071FF16AE5E683033CEF4E34D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 332838   (836993) от 18.03.2015
 
 Майерлинг / Mayerling (1968) DVDRip
@@ -6,7 +59,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836993.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836665.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836624.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836621.jpg" />
 </div>
 
 
@@ -115,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836539.jpg" />
 </div>
 
 
@@ -142,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836415.jpg" />
 </div>
 
 
@@ -169,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836332.jpg" />
 </div>
 
 
@@ -195,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_835796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_835796.jpg" />
 </div>
 
 
@@ -221,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835655.jpg" />
 </div>
 
 
@@ -248,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835182.jpg" />
 </div>
 
 
@@ -274,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833413.jpg" />
 </div>
 
 
@@ -300,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832588.jpg" />
 </div>
 
 
@@ -328,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832459.jpg" />
 </div>
 
 
@@ -354,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832392.jpg" />
 </div>
 
 
@@ -380,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832047.jpg" />
 </div>
 
 
@@ -406,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831962.jpg" />
 </div>
 
 
@@ -432,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831758.jpg" />
 </div>
 
 
@@ -459,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831306.jpg" />
 </div>
 
 
@@ -486,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830706.jpg" />
 </div>
 
 
@@ -512,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829801.jpg" />
 </div>
 
 
@@ -538,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828917.jpg" />
 </div>
 
 
@@ -564,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828611.jpg" />
 </div>
 
 
@@ -590,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828434.jpg" />
 </div>
 
 
@@ -616,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828136.jpg" />
 </div>
 
 
@@ -627,60 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75CE6B136FC6F844D88C9FD9C990088B82D624BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115284   (828055) от 17.03.2017
-
-Грабители поездов / The Train Robbers (1973) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три ветерана Гражданской войны объединяются в одну команду с вдовой грабителя поездов, чтобы отыскать спрятанную добычу размером в полмиллиона долларов. Обаятельная вдова, у которой «все на месте», хочет вернуть доброе имя своему покойному мужу.
-Трое друзей хотят помочь ей и получить награду в $ 50 000. Но сообщники покойного хотят получить все золото, если потребуется (   Читать дальше...   )Производство: США / Batjac ProductionsЖанр: ВестернРежиссер: Берт КеннедиАктеры: Джон Уэйн, Энн-Маргрет, Род Тейлор, Бен Джонсон, Кристофер Джордж, Бобби Уинтон, Джерри Гэтлин, Рикардо Монтальбан, Ральф ВолькиПеревод: Дублированный (Варус Видео)Субтитры: Английские (полные, SDH, SDH Colored)Продолжительность: 01:31:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A47378F1B8A712EBBFCF6225E849E45F64479CB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039921   (827872) от 14.10.2021
-
-Жан де Флоретт / Jean de Florette (1986) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая часть экранизации романа Марселя Паньоля "Вода с холмов".
-Вернувшись с военной службы, молодой Юголен решил выращивать цветы, но гвоздикам нужна вода. Богатый дядюшка готов помочь племяннику в надежде, что тот продолжит его род. Он решил прикупить поле с родником у соседа-врага. Цепь событий, преступлений и затаенных надежд приводит к тому, что на (   Читать дальше...   )Производство: Франция, Швейцария, Италия, АвстрияЖанр: Драма, экранизацияРежиссер: Клод БерриАктеры: Ив Монтан, Жерар Депардьё, Даниель Отой, Элизабет Депардьё, Маргарита Лосано, Арман Меффр, Пьер Нугаро, Жан Морель, Роже Суза, Дидье ПэнПеревод: Профессиональный многоголосыйСубтитры: Русские, английскиеПродолжительность: 02:01:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9BB01A1138B6AC79005E39019D180AC753E93AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

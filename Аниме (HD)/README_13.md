@@ -6,7 +6,7 @@ Kami no Tou | Tower of God | Башня Бога [2020, TV, 13 эп.] WEBRip 720
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769126.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Arte | Арте [2020, TV, 12 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768870.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Listeners | Слушатели [2020, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768858.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Plunderer | Грабитель [2020, TV, 24 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768826.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Nanbaka / The numbers / Номера [2016, TV, 25] HDTVRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768396.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Shachou, Battle no Jikan Desu! | Shachibato! President, It's Time for Battle! | 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768284.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Kitsutsuki Tanteidokoro | Woodpecker Detective's Office | Детективное
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767466.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Sousei no Onmyouji / Twin Star Exorcists / Две звезды Оммёдзи [2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766713.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Endride / Эндрайд [2016, TV, 24] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766700.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Urara Meirochou / Предсказательница из Мейрочо [2017, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766076.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Hamefura 2 | Bakarina 2 | Otome Game no Hametsu Flag shika Nai Akuyaku Reijou ni
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765838.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Tamayomi | Tamayomi: The Baseball Girls | Тамаёми [2020, TV, 12 эп.] WE
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765352.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Luck and Logic + Watashitachi, Luck Logic Bu! | Удача и логика [2016
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764240.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Deep Insanity: The Lost Child | Глубинное безумие: Потеря�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763119.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Saihate no Paladin | The Faraway Paladin | Паладин издалека [ТВ
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763095.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Kokkoku | Миг за мигом [2018, TV, 12 эп.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757701.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Sora no Aosa o Shiru Hito yo | Her Blue Sky | Она видела небо [2019
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757018.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Nihon Chinbotsu 2020 | Japan Sinks 2020 | Гибель Японии 2020 [2020, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757017.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Ryuuou no Oshigoto! | The Ryuo's Work is Never Done! | Работа для др�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756001.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Mitsuboshi Colors | Звёздочки [2018, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754381.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Sora Yori mo Tooi Basho | A Place Further Than the Universe | Место, что
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754280.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Yuru Camp | Laid-Back Camp | Лагерь на свежем воздухе [2018
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754278.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Karakai Jouzu no Takagi-san | Поддразнивание Такаги [2018, T
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754272.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Citrus / Цитрус [2018, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754264.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Zoku Touken Ranbu: Hanamaru | Танец мечей: Цветочный круг
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752725.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Nekomonogatari (Kuro) | История кошки (чёрная глава) [201
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_752601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_752601.jpg" />
 </div>
 
 

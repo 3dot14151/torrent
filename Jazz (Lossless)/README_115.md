@@ -6,7 +6,7 @@ Kristin Berardi - Where Or When (2015) ABC Jazz [FLAC|Lossless|tracks + .cue] <V
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668914.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ The Modern Jazz Quartet - A La Plaza de Toros (1971) 1992, Oscar Records [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668912.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Stan Getz - Live In Paris 1959 (2018) Fremeaux & Associes [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668911.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Duke Ellington - The Best Of (1987) [APE|Lossless|image + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668777.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Jack Teagarden - 1940 - 1941 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668246.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Johnny Lytle - The Loop & New And Groovy (1965, 1966) 1990, BGP [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668191.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Lucia Minetti - Jazz Nature (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668187.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Humphrey Lyttelton - The Best Of Humphrey Lyttelton (1951 - 1957) 3CD, 2003, EMI
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667999.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ The Walter Norris Quartet - Sunburst (1991) Concord Jazz [FLAC|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667996.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ The Zawinul Syndicate - The Immigrants (1988) [FLAC|Lossless|image + .cue] <Fusi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667990.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Erin Boheme - What Love Is (2006) Сoncord Jazz [FLAC|Lossless|image + .cue] <Vo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667942.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Quincy Jones - Q's Jook Joint (1995) [FLAC|Lossless|image + .cue] <RnB, Swing, D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667884.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Quincy Jones ‎– The Dude - The Dude (1981) Remaster, 1984, A&M Records [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667828.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_667289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_667289.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Miles Davis & Sonny Rollins - The Classic Prestige Sessions, 1951-1956 (2009) 2C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667186.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Elton Dean's Ninesense - Live At The BBC (2003) Hux Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666838.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Eero Koivistoinen Quartet - Labyrinth (1977) 2002, Love Records [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666837.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Harold Mabern Trio - Fantasy (2005) Venus Records [FLAC|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666788.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Emmet Cohen Featuring Ron Carter - Masters Legacy Series Volume 2 (2018) Cellar 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666066.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Alice Babs - Swingflickan: Originalinspelningar fran aren 1939-1944 (2004) Naxos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665724.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Alice Babs - Illusion (1966) 2007, Vax Records [FLAC|Lossless|tracks + .cue] <Vo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665723.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Erik Friedlander - Block Ice & Propane (2007) [FLAC|Lossless|image + .cue] <Avan
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665718.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Alice Babs - Alice and Wonderband (1959) 1993, RCA/BMG Ariola AB Sweden [FLAC |L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665717.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Francesco Cafiso New York Quartet - New York Lullaby (2006) Venus Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665711.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ Aaron Parks, Ben Street, Billy Hart - Find The Way (2017) ECM [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665709.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ Dee Alexander - Songs My Mother Loves (2014) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665604.jpg" />
 </div>
 
 

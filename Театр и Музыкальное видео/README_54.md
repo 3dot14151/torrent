@@ -6,7 +6,7 @@ The Alan Parsons Symphonic Project - Live In Colombia (2016) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709325.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ The Alan Parsons Symphonic Project - Live In Colombia (2016) Blu-ray [H.264/1080
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709322.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ VH1 All Classics Hits (2005) 10xDVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709212.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708974.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708721.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708359.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707774.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706846.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706317.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705643.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ VA - Millenium Melody 6 (2016) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705582.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705325.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705259.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705168.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_704558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_704558.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Bryan Ferry - Live At Glastonbury Festival (2014) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703824.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ The Alan Parsons Symphonic Project - Live In Colombia '2013 (2016) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703689.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Moby - My Only Love; Power Is Taken; Power Is Taken (Moby's Old School Remix) (2
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703392.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703243.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703123.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Cher - Woman's World (Live On The Voice) (2013) HDTV [H.264/1080i] <Pop>
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702674.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702569.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702539.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702079.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ A-HA прощальный концерт / A-Ha - Ending on a High Note - The Fi
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_701063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_701063.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700702.jpg" />
 </div>
 
 

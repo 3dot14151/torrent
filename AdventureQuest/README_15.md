@@ -1,3 +1,81 @@
+###  Публикация: 995907   (882051) от 12.03.2016
+
+Red Comrades Save the Galaxy: Reloaded / Петька и Василий Иванович спасают галактику: Перезагрузка (2016) [Ru/En] (1.0) License TiNYiSO
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882051.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя почти 17 лет мы возвращаем вам истинную классику Российской игровой индустрии, переработанную под современные платформы. Игра сохранила оригинальную графику и озвучение, но игровой код полностью переработан под Unity. Игра адаптирована под широкоформатные экраны, исправлена анимация и устранены старые недочеты, добавлены достижения и коллекционные карточки (   Читать дальше...   )Тип издания: LicenseРазработчик: Buka DevelopmentЖанр: Adventure, Quest, Point-and-clickЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:103D93351D650A6BBA27F43B40BD1C2AB549151A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988562   (882039) от 12.03.2016
+
+The Old City: Leviathan (2014) [Ru/En] (28.02.2016) Repack R.G. Механики
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882039.jpg" />
+</div>
+
+
+###  Подробнее
+
+Угасающий город цивилизации далекого прошлого. Обитающий в канализациях отшельник и его жажда к знаниям. Забытое детство и несколько оставшихся воспоминаний. Перенося игрока в окраины давно заброшенного мегаполиса, The Old City: Leviathan предлагает повествование на основе поэтических размышлений протагониста и атмосферного саундтрека.Тип издания: RepackРазработчик: PostMod SoftworksЖанр: Adventure, IndieЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A08513002410458919B6425968F06A877DE1558F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104393   (880965) от 14.02.2017
+
+Dreamfall Chapters (2014) [Ru/Multi] (5.4.1.1) SteamRip Let'sPlay [Special Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dreamfall Chapters — это сюжетно-ориентированная эпизодическая адвенчура о выборе и последствиях, сновидениях и реальности, магии и науке, хаосе и порядке, а также сломленных героях, действия которых могут изменить ход истории во всех мирах. Действие игры разворачивается в двух параллельных мирах.Тип издания: SteamRipРазработчик: Red Thread Games, Blink StudiosЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:731099B06D2091F78A476A3614512AC839DDFB0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1348066   (879637) от 06.04.2020
 
 Mosaic (2019) [Ru/Multi] (1.1.9.122/dlc) License GOG [1% Edition]
@@ -6,7 +84,7 @@ Mosaic (2019) [Ru/Multi] (1.1.9.122/dlc) License GOG [1% Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879637.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Dear Esther: Landmark Edition (2017) [Ru/Multi] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879390.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ Dear Esther: Landmark Edition (2017) [Ru/Multi] (1.0.0.9712) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879262.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ The Book of Unwritten Tales 2 (2015) [Multi] (4.6.1.182341/dlc) License GOG [Alm
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877549.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ Drizzlepath: Glass (2017) [Ru/Multi] (1.0.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877535.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ The Dagger of Amon Ra (1992) [En] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876271.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ The Colonel's Bequest (1989) [En] (1.000.046) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876213.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ The Wardrobe (2017) [En/It] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875880.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ Little Nightmares II (2021) [Ru/Multi] (1160/dlc) License GOG [Echanced Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874211.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ GRIS (2018) [Ru/Multi] (1.0/upd3) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_874018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874018.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ White Night (2015) [Ru/Multi] (1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873100.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ Shelter 2: Mountains (2015) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872961.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ In Other Waters (2020) [En] (1.0.2) License GOG (обновляемая)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872167.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ Wanderlust: Transsiberian (2020) [En] (1.1.13.2003271410) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870250.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ Mask of Mists (2020) [Ru/Multi] (1.0.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870227.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ Call of Cthulhu (2018) [Ru/Multi] (4.15.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867724.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ Those Who Remain (2020) [Ru/Multi] (1.0191) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866214.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ Don't Forget Me (2021) [Ru/Multi] (1.1.3) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866069.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ Don't Starve (2013) [Ru/En] (1.168028/dlc) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865720.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ Barrow Hill: Curse of the Ancient Circle (2006) [Multi] (bh1-gog2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865303.jpg" />
 </div>
 
 
@@ -527,7 +605,7 @@ Barrow Hill: The Dark Path (2016) [Multi] (bh2-gog1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865168.jpg" />
 </div>
 
 
@@ -553,7 +631,7 @@ Herald: An Interactive Period Drama - Book I & II (2017) [En] (1.0.2) License HI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863797.jpg" />
 </div>
 
 
@@ -579,7 +657,7 @@ Republique Remastered (2015) [Ru/Multi] (1.0) License CODEX [Episodes 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863724.jpg" />
 </div>
 
 
@@ -590,84 +668,6 @@ Republique Remastered – игра в жанре стелс от студии Ca
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:797CDEBA3133F7C4A45E147BBFCAF1370C31F45E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108121   (863665) от 24.02.2017
-
-The Mooseman / Человеколось (2017) [Ru/En] (1.0) Repack R.G. Механики
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Давным-давно мир был создан из скорлупы утиного яйца богом по имени Ен. В сумрачных глубинах бескрайнего океана зародился нижний мир, средний мир был создан для людей, а в верхнем мире поселились древние боги. Сонмы духов живут средь слоев творения, во мраке охраняя свои тайны. Отправляйтесь в путешествие по всем мирам древних мифов, найдите чудские артефакты и разгадайте (   Читать дальше...   )Тип издания: RepackРазработчик: Vladimir Beletsky, Mikhail ShvachkoЖанр: Приключенческие игры, ИндиЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60CBD3EBE799928ED865A63447A16D4E1C8A2833
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999766   (862182) от 23.03.2016
-
-Republique Remastered (2015) [Ru/Multi] (1.0) Repack bosenok [Episodes 1-5]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Republique Remastered – игра в жанре стелс от студии Camouflaj. Проект рассказывает о девушке которую зовут Хоуп, которая попала в очень сложную ситуацию, она совершенно не знает, что ей делать. Однако она не одна, ей помогает некий персонаж из телефона. Ее главной целью является побег от тоталитарного режима, который установило действующее правительство. Отметим, (   Читать дальше...   )Тип издания: Repack by bosenokРазработчик: CamouflajЖанр: Adventure, 3D, 3rd Person, StealthЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFDEE5D052663617D6BF8A2A766CF0E2F58A1A50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999676   (862180) от 23.03.2016
-
-Nelly Cootalot: The Fowl Fleet (2016) [En/Multi] (1.0) License RELOADED
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nelly Cootalot: The Fowl Fleet - это приключенческий квест в "пиратском" сеттинге, в котором главная героиня спасает птиц от злобного барона, подчиняющего их для своего коварного плана.Тип издания: LicenseРазработчик: Alasdair Beckett-King, Application Systems HeidelbergЖанр: AdventureЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский и другиеЯзык интерфейса: Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8102C5BA574D3880611F9E62B891FF18A9F3F62
 ```
 
 https://mybot314.ru/tekegram_catalog/

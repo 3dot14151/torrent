@@ -1,3 +1,133 @@
+###  Публикация: 1355965   (979620) от 29.01.2020
+
+Стражи Арктики / Arctic Justice (2019) BDRip [H.264/1080p] [PR]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979620.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать на ЗвероПолюс, где власть находится в лапах больших, сильных и зубастых. Ради собственного превосходства они готовы переделать под себя весь мир. Лишь маленькие, но очень храбрые встанут на защиту не только родного Северного полюса, но и целой планеты. Именно они — настоящие Стражи Арктики.Производство: Индия, Великобритания, Китай, Канада, Япония, Корея Южная, США, AMBI Group, Arctic Justice Movie, Assemblage EntertainmentЖанр: Комедия, Приключения, ФэнтезиРежиссер: Аарон ВудлиПеревод: Дублированный (iTunes)Субтитры: Английские (SDH)Продолжительность: 01:32:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:430CE3AEA3D92BDC2AABEFDE92219E8BFA1CD021
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 742204   (979456) от 05.01.2014
+
+Черепашки Мутанты Ниндзя / Teenage Mutant Ninja Turtles (2012 - 2013) WEB-DL [720p] (Сезон: 1, Серии: 1-26 из 26)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из скрытого логова в коллекторах Черепашки Мутанты Ниндзя в самый первый раз отправлятся на поверхность, чтобы противостоять поразительному и враждебному миру Нью-Йорка! Они сталкиваются с группой головорезов, пытающихся похитить Эйприл О'Нил и её отеца Кирби. Будучи не в состоянии спасти Кирби, ребята обещает помочь Эйприл найти её отца, и вместе, они познают важность (   Читать дальше...   )Жанр: Экшн, Приключения, Фэнтези, КомедияРежиссер: Майкл ЧангПерсонажи: Леонардо, Рафаэль, Донателло, Микеланджело, Сплинтер, Эйприл О’Нил, Шреддер, КараиПеревод: Многоголосый закадровыйСубтитры: ОтсутствуютФормат: MKVПродолжительность: ~00:23:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6400E5BBEFD594F49F6BC4FE49CABC0257E04EEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 614849   (979397) от 06.02.2013
+
+Школа монстров. Классные девчонки / Monster High: Ghouls Rule (2012) HDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979397.jpg" />
+</div>
+
+
+###  Подробнее
+
+Школа монстров проливает свет на давний конфликт между людьми и монстрами — и события начинают принимать пугающий оборот! Годами студенты Школы монстров верили, что в ночь Хеллоуина следует не высовываться на улицу и избегать конфликтов любой ценой. Но Фрэнки и ее друзья узнают, что, оказывается, когда-то вампиры и люди с удовольствием отмечали этот праздник вместе! (   Читать дальше...   )Производство: СШАЖанр: Приключения, СемейныйРежиссер: Майк Феттерли, Стив СаксАктеры: Лора Бэйли , Хэнк Банки, Эндрю Дункан, Эрин Фицджералд, Кейт Хиггинс, Джули МаддаленаПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:11:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973582   (979051) от 09.01.2016
+
+Котики, вперёд! (2012-2015) WEB-DL [H.264/720p] (32 серий + бонусы)
+
+>>Мультфильмы
+>>Отечественные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979051.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главные персонажи мультфильма — малыши Катя и Котя и их родители. Катя — непоседа, которая старается всё делать не по правилам, а Котя, как старший брат, более ответственный и серьёзный, но при этом любит поспорить. Все споры малышам помогают разрешать их добрые родители, а в волшебной коробке с игрушками, где даже самые смелые фантазии становятся реальностью, маленькие (   Читать дальше...   )Производство: Россия / студия "Toonbox"Жанр: Мультсериал, Детский, Обучающий, ПознавательныйРежиссер: Владимир ПономарёвАктеры: Слава Кагарманов, Алиса Ландер, Олег Щербинин, Юлия Яблонская, Джейкоб Клеман, Люси Джексон, Grace Gonglewski, Buck Schrirner, Chloe BernardeteПродолжительность: Серия по ~ 00:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C14E177927D16BEAEAD1A2E3BE11BF1CB0D261C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356462   (979020) от 30.01.2020
+
+Младший брат (1976) WEBRip [H.264/1080p-LQ] [PR]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультфильм «Младший брат» рассказывает о мальчике Вове, который предпочитает больше времени проводить со своим котенком, чем с маленьким братиком, у которого тем временем просыпается талант фотографа.Производство: СССР / СоюзмультфильмЖанр: Короткометражный, рисованная анимацияРежиссер: Леонид КаюковСубтитры: ОтсутствуютПродолжительность: 00:05:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4B34421E3A84846692E58119401532F92DB18CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356414   (979015) от 30.01.2020
 
 Разрешите погулять с вашей собакой (1984) WEBRip [H.264/1080p-LQ] [PR]
@@ -6,7 +136,7 @@
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979015.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978904.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978876.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978748.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978667.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978620.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978617.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978478.jpg" />
 </div>
 
 
@@ -217,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978317.jpg" />
 </div>
 
 
@@ -243,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978315.jpg" />
 </div>
 
 
@@ -269,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978297.jpg" />
 </div>
 
 
@@ -295,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977917.jpg" />
 </div>
 
 
@@ -321,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977851.jpg" />
 </div>
 
 
@@ -347,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977838.jpg" />
 </div>
 
 
@@ -373,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977788.jpg" />
 </div>
 
 
@@ -399,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977786.jpg" />
 </div>
 
 
@@ -425,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977714.jpg" />
 </div>
 
 
@@ -451,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977445.jpg" />
 </div>
 
 
@@ -477,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_977244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_977244.jpg" />
 </div>
 
 
@@ -503,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977233.jpg" />
 </div>
 
 
@@ -529,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977173.jpg" />
 </div>
 
 
@@ -540,136 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C57C7D513948BE5B186CB65E544D64E522A4B27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 615159   (977123) от 08.02.2013
-
-Последняя фантазия: Духи внутри / Final Fantasy: The Spirits Within (2001) [720p] BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977123.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма происходит в 2065 году. По Земле бродят миллионы инопланетных монстров, которые грозят уничтожением жизни на планете. В живых остались немногие. Доктор Аки Росс и ее наставник доктор Сид хотят спасти планету. Они должны собрать восемь редких органических форм жизни, чтобы составить из них "волну", способную истребить пришельцев. Собрав только (   Читать дальше...   )Жанр: Компьютерная анимация, Приключения, Фантастика, Боевик, ТриллерРежиссер: Хиронобу Сакагути, Мото СакакибараПеревод: Профессиональный (Полное Дублирование) + Профессиональный (Гоблин) + Английский (Оригинал)Субтитры: Русские, АнглийскиеФормат: MKVПродолжительность: 01:45:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7861D43E8F40D1FA293A47ADAFE46B9D57BCD877
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356897   (976773) от 01.02.2020
-
-Волшебное озеро (1979) WEBRip [H.264/1080p-LQ] [PR]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Русская сказка о любящих друг друга Данилушке и Марюшке, о Бабе-Яге, о Лешем и другой нечистой силе, стремящейся всячески препятствовать счастью героев сказки.Производство: СССР / СоюзмультфильмЖанр: Короткометражный, кукольныйРежиссер: Иосиф Боярский, Иван Иванов-ВаноСубтитры: ОтсутствуютПродолжительность: 00:16:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BBDD8A85FABEB5D987CA93819836879924E49D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356898   (976772) от 01.02.2020
-
-Волшебное озеро (1979) WEBRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976772.jpg" />
-</div>
-
-
-###  Подробнее
-
-Русская сказка о любящих друг друга Данилушке и Марюшке, о Бабе-Яге, о Лешем и другой нечистой силе, стремящейся всячески препятствовать счастью героев сказки.Производство: СССР / СоюзмультфильмЖанр: Короткометражный, кукольныйРежиссер: Иосиф Боярский, Иван Иванов-ВаноСубтитры: ОтсутствуютПродолжительность: 00:16:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BF75B02900413505896B329CF4550D3D2B3565B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 742770   (976746) от 07.01.2014
-
-Марко Макако / Marco Macaco (2012) BDRip [UKR, DNK]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976746.jpg" />
-</div>
-
-
-###  Подробнее
-
-Марко Макако работает пляжным охранником на тропическом острове. Он верой и правдой служит своему боссу, мечтая лишь об одном — раскрыть серьезное преступление. Марко проводит собственные расследования по любому поводу и поднимает шумиху по пустякам. Однако вскоре ему по-настоящему повезет: завоевывая расположение красавицы Лулу, Марко раскроет коварный заговор богача (   Читать дальше...   )Производство: Дания, Nice Ninja ProductionsЖанр: Мультфильм, Комедия, СемейныйРежиссер: Жан РабекПерсонажи: Токе Бьярке, Милле Лефельдт, Джесс Ингерслев, Руне Толсгаард, Томас Борч Нилсен, Том Дженсен, Зинк Зинк,  Rasmus Rolfshj, Gualtiero TabacchiПеревод: многоголосый закадровыйПродолжительность: 01:15:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5ADD043C1CFC55142BD57C3A8D8ED078734F6C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532129   (976471) от 01.02.2020
-
-В яранге горит огонь (1956) DVDRip [H.264] [Реставрация "Крупный план"]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976471.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм по мотивам северных народных сказок. Он рассказывает о непослушных детях, в момент беды, не задумываясь, бросившихся на поиски и спасение мамы.Жанр: Детский, Сказка, Рисованная анимацияРежиссер: Ольга ХодатаеваПродолжительность: 00:20:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F95111E5DB191D733779C37673CF88523DFCAD3
 ```
 
 https://mybot314.ru/tekegram_catalog/

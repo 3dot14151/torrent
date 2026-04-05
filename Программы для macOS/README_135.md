@@ -1,3 +1,56 @@
+###  Публикация: 1566124   (211856) от 27.07.2022
+
+Movist Pro 2.8.4 [Multi/Ru]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211856.jpg" />
+</div>
+
+
+###  Подробнее
+
+Movist является простым в использовании и мощным проигрывателем видео, который поддерживает множество полезных функций для просмотра фильмов включая: H.264 декодирование видео, цифровой аудиовыход (S / PDIF), высокое качество субтитров, полноэкранный режим, удобный и красивый пользовательский интерфейс.
+Из полезных функций можно также отметить удобный полноэкранный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.07.2022Разработчик: © 2019 MovistПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FEC45F320A72582716256FD127C25A252F2A521
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566050   (211845) от 27.07.2022
+
+Native Instruments Traktor Pro 3 v3.5.3.302 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211845.jpg" />
+</div>
+
+
+###  Подробнее
+
+Traktor Pro 3 — программное обеспечение для профессионального диджеинга от известного немецкого разработчика Native Instruments. Позволяет воспроизводить несколько файлов одновременно (формата MP3, WAV, AIFF, Аудио CD), создавая миксы. Есть два дисплея с двухцветным показом формы волны (высокие/низкие частоты), функция определения темпа (с автоматической синхронизацией), (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.12.2021Разработчик: © 2021 Native InstrumentsПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B799C6D7B72AB1F36BC9E5B71E9419FE203747C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1639468   (211636) от 13.06.2023
 
 HitPaw Photo Enhancer for Mac 2.3.0 [Multi/Ru]
@@ -6,7 +59,7 @@ HitPaw Photo Enhancer for Mac 2.3.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211636.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ HitPaw Photo Object Remover for Mac 1.0.2 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211585.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ ON1 Photo RAW 2023.5 v.17.5.1.14051 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211407.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ Native Instruments Maschine 2 v.2.17.4[Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210810.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ X Lossless Decoder XLD 20230627 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210372.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ Luxion KeyShot 2023.2 Pro 12 v.12.1.0 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210277.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ Adobe Bridge 2022 12.0.3 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210144.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ Steinberg Cubase Pro for Mac 12 v.12.0.70 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209918.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ Movavi Video Editor Plus 2022 v.22.4.1 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209855.jpg" />
 </div>
 
 
@@ -241,7 +294,7 @@ Steinberg SpectraLayers Pro for Mac 10.0 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209524.jpg" />
 </div>
 
 
@@ -267,7 +320,7 @@ Adobe Audition 2022 22.6.0 U2B [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209442.jpg" />
 </div>
 
 
@@ -293,7 +346,7 @@ Adobe Media Encoder 2022 22.6 U2B [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209432.jpg" />
 </div>
 
 
@@ -319,7 +372,7 @@ Movavi Video Suite for Mac 2022 v.22.4.1 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209420.jpg" />
 </div>
 
 
@@ -345,7 +398,7 @@ Remote Desktop Manager Enterprise Edition 2022.2.11.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209388.jpg" />
 </div>
 
 
@@ -371,7 +424,7 @@ Movavi Picverse Photo Editor 1.11.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209353.jpg" />
 </div>
 
 
@@ -397,7 +450,7 @@ Movavi Screen Recorder 22 v.22.5.1 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209179.jpg" />
 </div>
 
 
@@ -423,7 +476,7 @@ Motion 5.6.5 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208442.jpg" />
 </div>
 
 
@@ -449,7 +502,7 @@ Compressor 4.6.5 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208389.jpg" />
 </div>
 
 
@@ -475,7 +528,7 @@ IINA 1.3.3 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207830.jpg" />
 </div>
 
 
@@ -502,7 +555,7 @@ NetSpot PRO – Wi-Fi Reporte‪r‬ for Mac 2.16.1067  [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207449.jpg" />
 </div>
 
 
@@ -530,7 +583,7 @@ Essential Presets Bundle for Luminar Neo Mac 1.0.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207440.jpg" />
 </div>
 
 
@@ -556,7 +609,7 @@ Chrono Plus - Time Tracker 1.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207431.jpg" />
 </div>
 
 
@@ -582,7 +635,7 @@ iVI Video Converter 4 v.4.754 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207414.jpg" />
 </div>
 
 
@@ -609,7 +662,7 @@ Bitwig Studio 5 for Mac v.5.4.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207341.jpg" />
 </div>
 
 
@@ -621,58 +674,6 @@ Bitwig Studio – это мощная цифровая рабочая станц
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0519DFAF069D04D6504F8AAB0FD60E6806FD67E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652104   (206750) от 09.08.2023
-
-Splunk Enterprise for Mac 9.1.0.2 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206750.jpg" />
-</div>
-
-
-###  Подробнее
-
-Splunk Enterprise — это программный продукт, который позволяет вам искать, анализировать и визуализировать машинные данные, собранные с веб-сайтов, приложений, датчиков, устройств и т. д., составляющих вашу ИТ-инфраструктуру или бизнес. После того как вы определите источник данных, Splunk Enterprise индексирует поток данных и разбирает его на ряд отдельных событий, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.08.2023Разработчик: © 2023 Splunk IncПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77BB7FF9AB9754D1DEA3B5D71EB6FD4A26F0FE52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651984   (206710) от 09.08.2023
-
-Serato DJ Pro Suite for Mac 3.0.10 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Serato DJ – продукт, ориентированный как на профессионалов, так и на начинающих диджеев. Программа поддерживает такие звуковые эффекты, как Delay, Reverb, Flanger, Echo, PingPong Delay, Phaser, Distortion, High и Low Pass Filter, а также их комбинации. Полноценная поддержка MIDI, осуществлённая в программе, предоставляет возможность адаптации контроллера и программы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.07.2023Разработчик: © 1999-2023 SeratoПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BFC5CE2D566D194C1A81E41C02114F87DDE1A6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

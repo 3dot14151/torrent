@@ -6,7 +6,7 @@ Lego Jurassic World (2015) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [En]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775943.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SEGA Superstars Tennis (2008) [PS3] [EUR] 2.10 [Cobra ODE / E3 ODE PRO ISO] [Lic
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775941.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Final Fantasy X HD Remaster (2014) [PSVita] [USA] 3.60 [NoNpDrm] [Repack / UnDub
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775917.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Kirby and the Rainbow Paintbrush (2015) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [Licen
 >>Wii U
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775907.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Smash Cars (2009) [PS3] [EUR] 3.41 [PSN] [Ru/En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775592.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ X-Men Origins: Wolverine (2009) [Xbox360] [RegionFree] FreeBoot [Repack] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775554.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Metal Gear Solid V: The Phantom Pain (2015) [PS3] [EUR] 4.75 [Cobra ODE / E3 ODE
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775550.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Smash Cars (2009) [PS3] [EUR] 2.70 [Cobra ODE / E3 ODE PRO ISO] [PSN] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774702.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ multiMAN 4.50.01 BASE (for BD-R and ODE) [PS3] [Ru/Multi] [Cobra ODE / E3 ODE PR
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774699.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Red Dead Redemption (2011) [Xbox360] [RegionFree] FreeBoot [Unofficial] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773952.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Dead or Alive (1996) [PS1] [USA] [Unofficial] [Ru]
 >>PS1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773918.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Alien Resurrection (2000) [PS1] [USA] [Unofficial] [Ru]
 >>PS1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773877.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ South Park (1999) [PS1] [USA] [License] [En]
 >>PS1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773871.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Bayonetta 2 (2014) [WiiU] [USA] 4.1.0 [Loadiine GX2] [License] [Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773839.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Max Payne 3 + 13 DLC [PS3] [PAL] [Ru/En] [Repack/1.09] 2012 | R.G. Inferno
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773129.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Grand Theft Auto 4: Complete Edition (2008) [PS3] [EUR] 3.41 [Unofficial] [Ru/En
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772612.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Star Fox Guard (2016) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772411.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Game & Wario (2013) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772402.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Star Fox Zero (2016) [WiiU] [USA] 5.3.2 [Loadiine GX2] [Repack] [En]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772302.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Mario Tennis: Ultra Smash (2015) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [Ru
 >>Wii U
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771001.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Smash Cars (2009) [PS3] [USA] 3.55 [PSN] [Ru/En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770999.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Super Smash Bros. for Wii U (2014) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [Repack / 1
 >>Wii U
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770948.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Super Mario Maker (2015) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [Ru/Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770886.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ IRD файлы для ODE ISOCheck (2015) [PS3] [Ru]
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770107.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Mario Party 10 (2015) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [Ru/Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770054.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Red Dead Redemption (2011) [PS3] [EUR] 3.30 [Cobra ODE / E3 ODE PRO ISO] [Repack
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769605.jpg" />
 </div>
 
 

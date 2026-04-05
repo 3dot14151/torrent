@@ -1,3 +1,29 @@
+###  Публикация: 91068   (1030546) от 18.02.2021
+
+ЦИГУН. Серия Динамические техники Y23 / Ян Цигун стиля Йинг (2007) DVDRip
+
+>>Обучающие видеоматериалы
+>>Здоровье и Спорт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030546.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ян Цигун. Психотронные упражнения накопительного свойства. Серия из шести простых упражнений, которые способствуют накоплению и сбалансированному распределению энергии, необходимой для работы всех систем человеческого организма. Ян Цигун лучше практиковать утром. Необходимое колличество повторений серии определяется персонально. Действие Ян Цигун: информационно-энергетическое (   Читать дальше...   )Жанр: ДокументальныйРежиссер: А.СидерскийАктеры: А.СидерскийПеревод: ОригинальныйПродолжительность: 1:15:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C38EBCA6101E036DF33175E857F021BA7F79D2B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1448491   (1030541) от 18.02.2021
 
 Специалист, Соколов Михаил | Linux. Уровень 2. Администрирование сервисов и сетей (2021) PCRec
@@ -6,7 +32,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030541.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030411.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Thinknetica Pro, Святослав Крюков | Оптимизация зап
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030387.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Udemy, Мефодий Келевра | Maximum Paranoid v.2 (2021) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030373.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ CG Fast Track | Быстрый путь в Blender 2.80: Создание сце
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030369.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030358.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ Gumroad, Jose Moreno (Parabox) | Скульптинг персонажа в Blen
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030356.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030349.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ Joakim Karlsson | Все видео, которые я когда-либо де�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030345.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ OTUS, Дмитрий Бугайченко | Промышленный Machine Lea
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030325.jpg" />
 </div>
 
 
@@ -276,7 +302,7 @@ Udemy, Nate Ross | API and Web Service Introduction (2020) PCRec [En / En Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030197.jpg" />
 </div>
 
 
@@ -302,7 +328,7 @@ Skillshare, Joe Baily | Процедурное текстурирование в
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030181.jpg" />
 </div>
 
 
@@ -328,7 +354,7 @@ Udemy, Patrick God | .NET Core 3.1 Web API & Entity Framework Core Jumpstart (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030179.jpg" />
 </div>
 
 
@@ -356,7 +382,7 @@ Udemy, Joseph Phillips | PMP Exam Prep Seminar - Pass the PMP on Your First Atte
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030177.jpg" />
 </div>
 
 
@@ -383,7 +409,7 @@ Udemy, Ariel Weinberger | NestJS Zero to Hero - Modern TypeScript Back-end Devel
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030148.jpg" />
 </div>
 
 
@@ -411,7 +437,7 @@ Skillshare, Joe Baily | Скульптинг в Blender 2.91 часть 1.2 - С
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030143.jpg" />
 </div>
 
 
@@ -437,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030075.jpg" />
 </div>
 
 
@@ -463,7 +489,7 @@ John Moncrief | Introduction to Collisions in Houdini (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030018.jpg" />
 </div>
 
 
@@ -490,7 +516,7 @@ Andreas Vrhovsek | Creating Cloudscape in Houdini (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030007.jpg" />
 </div>
 
 
@@ -517,7 +543,7 @@ Kurt Jones | Indie Game Development Pipeline Volume 2 (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029999.jpg" />
 </div>
 
 
@@ -545,7 +571,7 @@ John Moncrief | Introduction to Materials in Houdini (2015) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029997.jpg" />
 </div>
 
 
@@ -573,7 +599,7 @@ SideFX | Houdini 15 Masterclass Crowds (2016) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029995.jpg" />
 </div>
 
 
@@ -599,7 +625,7 @@ SideFX | Houdini 15 Masterclass Distributed Simulations (2016) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029987.jpg" />
 </div>
 
 
@@ -625,7 +651,7 @@ Rohan Dalvi | Houdini Rocket Ship (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029985.jpg" />
 </div>
 
 
@@ -652,7 +678,7 @@ Alan Thorn | Advanced Game Mechanics In Unity 5 Volume 3 (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029982.jpg" />
 </div>
 
 
@@ -663,32 +689,6 @@ Alan Thorn | Advanced Game Mechanics In Unity 5 Volume 3 (2015) PCRec [En, Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2398C72A4F997E3BE2208C1A6A83F33DD1BA502C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449543   (1029979) от 21.02.2021
-
-SideFX | Houdini 15 Masterclass FLIP Workflow Enhancements (2016) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029979.jpg" />
-</div>
-
-
-###  Подробнее
-
-В недавних релизах, улучшения в HoudiniFlipсолвере и использование распределенных вычислений, открыли возможность создавать очень масштабные симуляции жидкостей. Тем не менее, набор данных, получаемый с помощью таких симуляций, может быть настолько большим, что перестанет помещаться на диск, и потеряется возможность создавать из него геометрию и вторичные элементы. (   Читать дальше...   )Производство: SideFXЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 01:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45C94ADF73645255606E5384D7230CD63339C3E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

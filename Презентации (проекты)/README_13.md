@@ -1,3 +1,107 @@
+###  Публикация: 1113249   (834519) от 13.03.2017
+
+Проекты - VideoHive - Real Estate Magazine / Broadcast ID - 19478116 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834519.jpg" />
+</div>
+
+
+###  Подробнее
+
+Real Estate Magazine / Broadcast ID - новый шаблон для рекламы магазина недвижимости. Продвигайте свою недвижимость: квартиры или виллы, рестораны и спа-салоны. Рекламируйте преимущества аренды или инвестиций. Используйте новейшую систему просмотра объемных изображений и систему управления цветом. Одним прикосновением можно изменять все цвета проекта настолько быстро, (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC1927CD2A44A96F94BBC58C451ECC008A9021D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004956   (834153) от 08.04.2016
+
+Проекты - VideoHive - Glitch Opener - 10595483 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834153.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект "Глюк Открывалка" предназначен для редактирования в программе Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C0ADFCF6863BD5E0316C889BF621B2445B63CBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114367   (833034) от 14.03.2017
+
+Проекты - CreativeMarket - Promo - 1265462 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833034.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект After Effects для создания промо-видео, вступительного видео, или просто фото-видео слайд-шоу.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC49FD83D054BB014712222AC2CA367B3BDAE727
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 879794   (832959) от 20.03.2015
+
+Проекты - VideoHive - Intro Grid - 10205585 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Intro grid - шаблон с энергичным, динамичным и мощным движением. Он сделает удивительные видео заставки, рекламные ролики и корпоративные видео. Это чистый взгляд на видео решения, которые дадут вам уникальные результаты. Плагины не требуются.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BAECFB131BDA0ECC6209681F9B63D68DDA68A30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1005398   (832466) от 09.04.2016
 
 Проекты - RocketStock - Agenda [AEP]
@@ -6,7 +110,7 @@
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832466.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832307.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832204.jpg" />
 </div>
 
 
@@ -88,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831143.jpg" />
 </div>
 
 
@@ -114,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830960.jpg" />
 </div>
 
 
@@ -140,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830959.jpg" />
 </div>
 
 
@@ -166,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830733.jpg" />
 </div>
 
 
@@ -192,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830615.jpg" />
 </div>
 
 
@@ -220,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830546.jpg" />
 </div>
 
 
@@ -248,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830481.jpg" />
 </div>
 
 
@@ -274,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830278.jpg" />
 </div>
 
 
@@ -300,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830272.jpg" />
 </div>
 
 
@@ -326,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830090.jpg" />
 </div>
 
 
@@ -352,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829569.jpg" />
 </div>
 
 
@@ -379,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829176.jpg" />
 </div>
 
 
@@ -407,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828890.jpg" />
 </div>
 
 
@@ -436,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828809.jpg" />
 </div>
 
 
@@ -462,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828616.jpg" />
 </div>
 
 
@@ -488,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828613.jpg" />
 </div>
 
 
@@ -515,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828299.jpg" />
 </div>
 
 
@@ -541,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827562.jpg" />
 </div>
 
 
@@ -567,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826903.jpg" />
 </div>
 
 
@@ -578,110 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E71EC08499549B3C253D7C7243A3E285F58BF00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006604   (826635) от 12.04.2016
-
-Проекты - VideoHive - Fast Opener - 11018108 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826635.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания вступительного ролика. Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8086CBA2ECFD3E601AD676CDF494074E1AEB846B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006613   (826439) от 12.04.2016
-
-Проекты - VideoHive - Magical book Intro HD - 61338 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это идеальный вариант для вашего фильма интро, фотоальбомa и т.д. Просто замените изображения и текст. Вы также можете настроить анимацию по своему вкусу.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2A07F81619E06223ED70C42AF5222F5B72411D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115715   (825869) от 18.03.2017
-
-Проекты - VideoHive - Awards Show - 19514640 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825869.jpg" />
-</div>
-
-
-###  Подробнее
-
-Awards Show - Новый, мощный, современный и роскошный премиум-класса пакет в стиле Голливуда. Лучше всего подходит для наградных церемоний, но для него подходят и другие мероприятия: награды Академий, Юбилеи, премии, церемонии награждения победителей или кинематографические события: Emmy, Emmys, показ Моды, Золотой глобус, награды Grammy, Оскар, и даже свадьбы.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFB94100B8C74D94F84C8A323FE6C2CBC66CE6CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381532   (825842) от 07.05.2020
-
-Проекты - Motion Array - Coffee, Soda, Milkshake, Any Food Adv - 570821 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825842.jpg" />
-</div>
-
-
-###  Подробнее
-
-Coffee, Soda, Milkshake, Any Food Adv - это удивительный шаблон After Effects, который вы можете использовать для продвижения и рекламы безалкогольных напитков, молочных коктейлей, чая, кофе, мороженого, пива, сыра и многого другого. Шаблон поставляется с 2-мя предустановленными дизайнами: - с кофейными зернами и клубникой, но вы можете легко настроить свой собственный. (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65CE3B9B80C94FAC8A954649D41482A902C54489
 ```
 
 https://mybot314.ru/tekegram_catalog/

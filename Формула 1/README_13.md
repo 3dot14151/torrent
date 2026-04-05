@@ -1,3 +1,114 @@
+###  Публикация: 1415349   (378704) от 11.10.2020
+
+Формула 1. Сезон 2020. Этап 11. Гран-при Айфеля. Гонка (11.10.2020) HDTV [H.264/1080i-LQ]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378704.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гран-при Айфеля. Гонка
+Арена: Автодром Нюрбургринг (Нюрбург, Германия)
+11 октября 2020, воскресенье. 15:10 МСКТелекомпания: Матч ТВЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова), ИнтершумСубтитры: отсутствуютПродолжительность: 01:46:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5968471D9BDF966A3A299E216BDD4FCE2163F873
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415348   (378672) от 11.10.2020
+
+Формула 1. Сезон 2020. Этап 11. Гран-при Айфеля. Гонка (11.10.2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гран-при Айфеля. Гонка
+Арена: Автодром Нюрбургринг (Нюрбург, Германия)
+11 октября 2020, воскресенье. 15:10 МСКТелекомпания: Матч ТВЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова), ИнтершумСубтитры: отсутствуютПродолжительность: 01:46:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A776C6B1BB93593B4914D4F4C2801205F6DEA73D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575891   (373251) от 11.09.2022
+
+Формула 1. Сезон 2022. Этап 16. Гран-при Италии. Квалификация (10.09.2022) WEB-DL [H.264/720p] [50fps]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373251.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 сентября 2022, суббота. 17:00 МСК. Этап 16, Монца, Италия. КвалификацияТелекомпания: F1TV HDЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: ОтсутствуютПродолжительность: 01:18:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4849AB1FB5D41C48AAB224DE2314A631AB2F30A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575928   (370701) от 12.09.2022
+
+Формула 1. Сезон 2022. Этап 16. Гран-при Италии. Квалификация, гонка. (10-11.09.2022) WEB-DL [H.264/1080p] [50fps] F1TV
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370701.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этап 16, Арена: Автодром Монца (Монца, Италия).
+Квалификация. 10 сентября 2022, суббота.
+Гонка. 11 сентября 2022, воскресенье.
+(   Читать дальше...   )Телекомпания: F1 TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова), Украинский (Максим Подзигун), Английский, Немецкий, Французский, Испанский, Голландский, Португальский (Бразильский).Субтитры: отсутствуютПродолжительность: Квалификация 01:18:35, гонка 01:50:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0224B9AEB29C03D4FBA46F85C61C5CDD14BF73D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1576247   (368604) от 13.09.2022
 
 Формула 1. Сезон 2022. Этап 16. Гран-при Италии. Гонка (11.09.2022) WEB-DL [H.264/720p] [50fps]
@@ -6,7 +117,7 @@
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368604.jpg" />
 </div>
 
 
@@ -32,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368368.jpg" />
 </div>
 
 
@@ -61,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368000.jpg" />
 </div>
 
 
@@ -89,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367319.jpg" />
 </div>
 
 
@@ -115,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365707.jpg" />
 </div>
 
 
@@ -143,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365541.jpg" />
 </div>
 
 
@@ -171,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360075.jpg" />
 </div>
 
 
@@ -197,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356171.jpg" />
 </div>
 
 
@@ -226,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356168.jpg" />
 </div>
 
 
@@ -255,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354408.jpg" />
 </div>
 
 
@@ -281,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354278.jpg" />
 </div>
 
 
@@ -307,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354277.jpg" />
 </div>
 
 
@@ -336,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354274.jpg" />
 </div>
 
 
@@ -364,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354265.jpg" />
 </div>
 
 
@@ -393,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351476.jpg" />
 </div>
 
 
@@ -419,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351370.jpg" />
 </div>
 
 
@@ -445,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351280.jpg" />
 </div>
 
 
@@ -471,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351276.jpg" />
 </div>
 
 
@@ -497,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349409.jpg" />
 </div>
 
 
@@ -526,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349295.jpg" />
 </div>
 
 
@@ -554,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349292.jpg" />
 </div>
 
 
@@ -582,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349118.jpg" />
 </div>
 
 
@@ -595,119 +706,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A761C221F1A59C4EBB714BE3DFE84201EC08A41E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418518   (349112) от 24.10.2020
-
-Формула 1. Сезон 2020. Этап 12. Гран-при Португалии. Квалификация (24.10.2020) HDTV [H.264/1080i-LQ]
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349112.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гран-при Португалии. Квалификация
-Арена: Международный автодром Алгарве (Портиман, Португалия)
-24 октября 2020, суббота. 16:00 МСКТелекомпания: Матч ТВЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: отсутствуютПродолжительность: 01:08:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DA8DAB54C773DB82A52A7872BFE83E01303DCDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418806   (346790) от 25.10.2020
-
-Формула 1. Сезон 2020. Этап 12. Гран-при Португалии. Гонка (25.10.2020) HDTV [H.264/1080i-LQ]
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гран-при Португалии. Квалификация
-Арена: Международный автодром Алгарве (Портиман, Португалия)
-25 октября 2020, воскресенье. 16:10 МСКТелекомпания: Матч ТВЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова), ИнтершумСубтитры: отсутствуютПродолжительность: 01:43:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4E38482F39B7FA64EFECC5494E24830CFA8B063
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418804   (346689) от 25.10.2020
-
-Формула 1. Сезон 2020. Этап 12. Гран-при Португалии. Гонка (25.10.2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346689.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гран-при Португалии. Квалификация
-Арена: Международный автодром Алгарве (Портиман, Португалия)
-25 октября 2020, воскресенье. 16:10 МСКТелекомпания: Матч ТВЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова), ИнтершумСубтитры: отсутствуютПродолжительность: 01:43:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4BBB18B40F7148C69E1E0D00324A003563C30F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257945   (341201) от 28.10.2018
-
-Формула 1. Сезон 2018. 19-й Этап. Гран-при Мексики. Квалификация (27.10.2018) HDTV [H.264/1080i-LQ]
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341201.jpg" />
-</div>
-
-
-###  Подробнее
-
-27 октября 2018 года, суббота. 21:00 МСК
-Формула 1. 19-й Этап сезона 2018 года. Гран-при Мексики. Мехико (Мексика).
-Квалификация
-Арена: Автодром имени братьев Родригес (Мехико, Мексика)Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:00:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7F3A40329FB8C3E55B5C7C4F2FEDB9DBCA12551
 ```
 
 https://mybot314.ru/tekegram_catalog/

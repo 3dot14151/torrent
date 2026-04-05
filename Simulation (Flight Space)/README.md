@@ -7,7 +7,7 @@ Kamikaze Strike: FPV Drone (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053036.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ X4: Foundations (2018) [Ru/Multi] (4.00/hf1/dlc) Repack Other s [Collector's Edi
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024815.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Star Wars™: Episode I Racer (1999) [En] (1.0hf3) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017790.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ X3: Terran Conflict (2008) [Ru/Multi] (3.4/3.3/1.0/dlc) Repack Other s
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017326.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Coastline Flight Simulator (2021) [Ru/Multi] (1.0) Unofficial PLAZA
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005863.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Strike Suit Zero: Collectors Edition [En/Multi5] (Steam-Rip/1.0) 2013 | R.G. Gam
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993829.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Lunar Flight [En] (RePack/1.671) 2012 | R.G. Механики
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993340.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Ace Combat: Assault Horizon - Enhanced Edition [Ru/En] (RePack/1.0.117.128) 2013
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993191.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Ace Combat: Assault Horizon Enhanced Edition [Ru/En] (L) 2013 | *FLT*
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993189.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Ace Combat: Assault Horizon. Enhanced Edition [Ru/En/Multi9] (Steam-Rip/1.0.117.
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993174.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Ace Combat: Assault Horizon Enhanced Edition [Ru] (Repack/1.0.117.128) 2013 | Fe
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991438.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ X Rebirth (2013) [Ru/En] (2.51.187332)  Repack alexalsp
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991257.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Ace Combat: Assault Horizon - Enhanced Edition [Ru/En/Multi9] (RePack/1.0.117.12
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975711.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Tom Clancy's H.A.W.X. 2 [En] (L/1.01) 2010 | BlackEcho
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967060.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Tom Clancy's H.A.W.X. 2 [En] (L) 2010 | TiNYiSO
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962367.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ HyperSonic 4 [En] (L) 2013 | SKIDROW
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953132.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Tom Clancy's H.A.W.X. 2 [Ru] (RePack/1.01/dlc) 2010 =nemos=
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952374.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Ace Combat: Assault Horizon (2013) [Ru/Multi] (1.0.143.72) RePack =nemos= [Enhan
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949256.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Wings of Prey / Крылатые хищники (2009) [Ru/Multi] (1.0.5.1/dlc) 
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948407.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Void Destroyer 2 (2020) [En] (1.0/upd3) Repack Other s
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937545.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Tachyon: The Fringe / Жестокие звезды (2000) [Ru/En] (1.00.00.36r)
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934691.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ X Rebirth (2013) [Ru/Multi] (4.0 build 208311/dlc) License CODEX [Collector's Ed
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909308.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ X Rebirth (2013) [Ru/Multi] (4.0 build 208311/dlc) Repack xatab [Collector's Edi
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909272.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Comanche (2021) [Ru/Multi] (1.0.0.49195) Repack Other s
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895094.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Wing Commander™ 4: The Price of Freedom (1995) [En] (3.0.1.0) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888566.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Knights of the Sky (1990) [En] (1.0) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882680.jpg" />
 </div>
 
 

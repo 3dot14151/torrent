@@ -1,29 +1,3 @@
-###  Публикация: 1046464   (552584) от 26.08.2016
-
-SmartMe Алексей Коваленко | Функциональное программирование на JavaScript (2015) PCRec
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552584.jpg" />
-</div>
-
-
-###  Подробнее
-
-Функциональное программирование сегодня, как, впрочем, и всегда, является неотъемлемой частью разработки приложений разного характера. В JavaScript функциональный стиль программирования был заложен еще при его рождении. Как ребенок получает цвет глаз от одного из своих родителей, так и JavaScript получил данную парадигму в наследство от языка с гордым названием Scheme.Производство: SmartMeЖанр: javascript , front-endПродолжительность: 2:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB85F86F962C7FF1A7E613320C1D34B102BAEA27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046136   (552569) от 26.08.2016
 
 Нетология | SEO-специалист: как поднять продажи с помощью поискового маркетинга (2016) PCRec
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552569.jpg" />
 </div>
 
 
@@ -60,7 +34,7 @@ Hollywood Camera Work | Visual Effects for Directors [2009] DVDRip [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551948.jpg" />
 </div>
 
 
@@ -88,7 +62,7 @@ Front-end Science | БЭМ-платформа (2016) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550713.jpg" />
 </div>
 
 
@@ -116,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549813.jpg" />
 </div>
 
 
@@ -145,7 +119,7 @@ ProfIT | ReactPHP (2018) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549564.jpg" />
 </div>
 
 
@@ -171,7 +145,7 @@ Alex24369 | Боевая машина Linux (2013) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548918.jpg" />
 </div>
 
 
@@ -199,7 +173,7 @@ ProfIT | PHP (1-3 уровни): Введение в профессию/Проф
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548891.jpg" />
 </div>
 
 
@@ -225,7 +199,7 @@ Skill.im | PowerPoint 2013/2016 [Базовый + Продвинутый кур�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546659.jpg" />
 </div>
 
 
@@ -253,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545908.jpg" />
 </div>
 
 
@@ -279,7 +253,7 @@ Geekbrains | METEOR. Возможности meteor js на примере нап
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544414.jpg" />
 </div>
 
 
@@ -307,7 +281,7 @@ Codecamp | Профессия Python разработчик (2018) PCRec [H.264/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543182.jpg" />
 </div>
 
 
@@ -336,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541671.jpg" />
 </div>
 
 
@@ -364,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539692.jpg" />
 </div>
 
 
@@ -392,7 +366,7 @@ Search Engine Education | SEO-ПРАКТИКУМ 3.0 (2015) PCRec [H.264/720p]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538512.jpg" />
 </div>
 
 
@@ -420,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537049.jpg" />
 </div>
 
 
@@ -449,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537048.jpg" />
 </div>
 
 
@@ -478,7 +452,7 @@ Steinberg Internal Mixing Tutorial Vol. I, Vol. II [2012] [RUS]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535765.jpg" />
 </div>
 
 
@@ -504,7 +478,7 @@ Geekbrains | Работа программиста. Чему не учат в у
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532861.jpg" />
 </div>
 
 
@@ -530,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532859.jpg" />
 </div>
 
 
@@ -558,7 +532,7 @@ Oleg Lav | AX64 Time Machine - восстановит операционную �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531029.jpg" />
 </div>
 
 
@@ -584,7 +558,7 @@ LoftSchool | Быстрый старт в AngularJs (2015) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530917.jpg" />
 </div>
 
 
@@ -610,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530913.jpg" />
 </div>
 
 
@@ -639,7 +613,7 @@ GeekBrains | HTML/CSS. Основы создания сайтов (2015) PCRec [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529311.jpg" />
 </div>
 
 
@@ -667,7 +641,7 @@ WebDesign Master | Все курсы от WebDesign Master (Комплект) (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527618.jpg" />
 </div>
 
 
@@ -696,7 +670,7 @@ PC-Expert | Видеокурс по ремонту ноутбуков (2016) Cam
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524153.jpg" />
 </div>
 
 
@@ -707,6 +681,32 @@ PC-Expert | Видеокурс по ремонту ноутбуков (2016) Cam
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8655CF2C9B0CA47F1EC29EB47C4F2C12AA9D48CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927172   (523897) от 14.08.2015
+
+SynforgeTutorials | Basic Java, Java Swing (2013) PCRec [H.264/720p] [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Туториал по Java от простого парня который решил немного покодить. Показано как можно создавать графические интерфейсы на основе Swing. Больше добавить к описанию нечего. Смотрите, комментируйте.Производство: SynforgeTutorialsЖанр: JavaПродолжительность: 06:06:29.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48CC3CEC47BD54005CCC4E837B149DC5C9533FCD
 ```
 
 https://mybot314.ru/tekegram_catalog/

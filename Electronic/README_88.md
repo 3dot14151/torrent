@@ -1,3 +1,61 @@
+###  Публикация: 1494064   (890701) от 06.09.2021
+
+Kraftwerk - Tone Float Beat-Club 1971 (2021) [MP3|320 Kbps] <Electronic, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Rückstoß Gondoliere (Ruckzuck) [00:11:17]
+02 - Tone Float [00:20:37]
+03 - Milk Rock [00:05:17]
+04 - Silver Forest [00:03:15](   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:52:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E244935AE42798BAD7033795EDA1206DCAF2DED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467653   (890676) от 06.09.2021
+
+Serge Geyzel - Discography 13 Releases (2019-2021) Mindcolormusic, Zodiak Commune [FLAC|Lossless|WEB-DL|tracks] <Breaks, IDM, Electro, Acid, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Might Not Like Me (04:55)
+ 02. Where I Started (05:37)
+ 03. Shades Of Former Powers (06:05)
+ 04. Ways Of Communication (04:42)Тип издания: WebЖанр: Breaks, IDM, Electro, Acid, Ambient •Продолжительность: 06:33:13 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34067798401DECE2CFD25A686A1D7F0E174FED9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371452   (890179) от 31.03.2020
 
 Orisma - Travel Beyond (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
@@ -6,7 +64,7 @@ Orisma - Travel Beyond (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890179.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Jjos - One More Night (2020) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, E
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890175.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Still in My Arms (Compiled by Bayu & Moopie) (2020) A Colourful Storm [FLAC
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890173.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Hecq | Ben Lukas Boysen - Discography 39 Releases (2003-2021) [FLAC|Lossless|tra
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890165.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Synkro (Joe McBride, S.Y.N.K.R.O) - Discography 58 Releases (2007-2021) [FLAC|Lo
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890144.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Erotic Sensual Night (Chillout Erotic Selection Music Dream) (2020) [MP3|32
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_890088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_890088.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Blue Tunes Mega Pack, Vol. 1-3 (2017-2019) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890086.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Boytronic - The Robot Treatment Remix Pack Piece Of Entertainment and Dancing Wi
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890014.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Lounge Sexiest Ladies (2020) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890012.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - 5 Years of Kill Tomorrow, Pt. II (2020) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890006.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Mystic (2020) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890003.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Alien Signals (2020) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890001.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Culprate - Others Remixed (2020) Inspected [FLAC|Lossless|WEB-DL|tracks] <Dubste
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890000.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Astral Existence, Vol. 01 LP (2020) [MP3|320 Kbps] <Drum & Bass, Jungle>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889996.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Astral Existence, Vol. 02 LP (2020) [MP3|320 Kbps] <Drum & Bass, Jungle>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889995.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Drum & Bass Selections, Vol. 10 (2020) [MP3|320 Kbps] <Drum & Bass, Jungle>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889972.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Jjos - Fantasy (Ambient Balearic Chill) (2013) [MP3|320 кб/с] <Downtempo, Chi
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889797.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Condura Selection Part 1 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889697.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - A Peaceful Day: The Lounge Act (2017) [MP3|320 Kbps] <Downtempo, Chillout, 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889687.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Timeless Sunsets: The Ultimate Chillout Experience (2017) [MP3|320 Kbps] <D
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889678.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Uplifting Only Top15: February (2017) [MP3|320 Kbps] <Trance, Uplifting Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889673.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Frozen Moments Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889661.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Die Hit-Giganten: Pop and Wave Hits Der 80er (2005) 2CD, Compilation [FLAC|
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889623.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Mystic Traveller Lounge (Chillout Your Mind) (2017) [MP3|320 Kbps] <Downtem
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889592.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Mystic Traveller Lounge (Chillout Your Mind) (2017) [MP3|320 Kbps] <Downtem
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CACFD3DF9B9F3411AF40A4093289E91B3C904CE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102794   (889572) от 10.02.2017
-
-VA - Dash Deep Harsh Crazy 2015.04 (2017) [MP3|320 Kbps] <House, Tech House, Deep House, Electronic, Progressive, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cesar Estrella - Montana 06:37
-02. Flavio Knada - Directed (Ayoze Diaz Remix) 07:40
-03. Grant Genera - Control 06:12
-04. Afterboy a.k.a. Joseph Pecsvari - Crackling Speaker 06:08(   Читать дальше...   )Жанр: House, Tech House, Deep House, Electronic, Progressive, DanceПродолжительность: 01:52:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17FB22A4E7D4892EEE47E772639B3852AF577C29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102702   (889562) от 10.02.2017
-
-VA - Enormous Deep (Sexy Deep House Tunes) Vol.1 (2016) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mario Chris - Take Me Away
-02. M. Orlando - Dance with Me - Antony Miles Remix
-03. Komplexx - Special - Terrace Dub
-04. Dimix - Coming Alive - Fallow Dub Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:04:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFAF1C86A2732977104B3A4D3B58646650498F7F
 ```
 
 https://mybot314.ru/tekegram_catalog/

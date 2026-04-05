@@ -1,3 +1,29 @@
+###  Публикация: 1777890   (28343) от 07.02.2025
+
+Instruments of Destruction (2024) [Ru/Multi] (1.11а) Repack Let'sРlay
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28343.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Instruments of Destruction используется передовая система разрушения, основанная на физических законах. Благодаря полностью интерактивной физике любое сооружение в игре можно разрушить на кусочки, и все объекты будут так или иначе взаимодействовать с разрушениями. Все элементы игровой реальности гармонично включены в систему разрушения и взаимодействуют друг с (   Читать дальше...   )Тип издания: RepackРазработчик: RadiangamesЖанр: Экшены, Казуальные игры, Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:634F7D14189B426B7A55C35CE503643C1CDC6944
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1777789   (28339) от 07.02.2025
 
 Ambulance Life: A Paramedic Simulator (2025) [Ru/Multi] (build 17163084) Repack seleZen
@@ -6,7 +32,7 @@ Ambulance Life: A Paramedic Simulator (2025) [Ru/Multi] (build 17163084) Repack 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28339.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ My Time at Sandrock (2023) [Ru/Multi] (1.4.2.1/dlc) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28321.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Garden In! (2023) [Multi] (1.4.5.4) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28113.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Instruments of Destruction (2024) [Ru/Multi] (1.11c) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27990.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Blood Bar Tycoon (2025) [Ru/Multi] (1.0.10122/dlc) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27781.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Garden Life: A Cozy Simulator (2024) [Ru/Multi] (1272@67558/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27683.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Beyond Blue (2020) [Ru/Multi] (1.7.17798) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27515.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Panelka (2025) [Ru/En] (1.0.0) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27467.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Panelka (2025) [Ru/En] (1.0.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27457.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Beyond Blue (2020) [Ru/Multi] (1.7.17798) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27333.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Mini Airways (2024) [Ru/Multi] (0.11.3f1) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27258.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Silent Hunter 5: Battle of the Atlantic (2010) [Ru] (1.2.0) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27174.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Galactic Simulator (2025) [Ru/Multi] (0.2.1) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27159.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Ranch Simulator - Build, Farm, Hunt (2023) [Ru/Multi] (1.152s/dlc) Repack FitGir
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27090.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ MiSide (2024) [Ru/Multi] (0.93) Repack EXROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26844.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Instruments of Destruction (2024) [Ru/Multi] (1.11c) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26828.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Fight School Simulator (2024) [Ru/Multi] (build 17408091) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26821.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ The Last Farmer (2024) [Ru/Multi] (1.0.11) Scene SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26734.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ The Last Farmer (2024) [Ru/Multi] (1.0.11) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26707.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Stellar Settlers: Space Base Builder (2025) [Ru/Multi] (1.0.1) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26515.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Zoochosis (2024) [Ru/Multi] (1.6.3) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26484.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Taxi Life: A City Driving Simulator (2024) [Ru/Multi] (1.14.29.106/dlc) Repack W
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26344.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ My Time at Sandrock (2023) [Ru/Multi] (1.4.2.1/dlc) Repack Let'sРlay [Deluxe Ed
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25958.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Pacific Drive (2024) [Ru/Multi] (1.8.3-CL28407/dlc) Repack Wanterlude [Deluxe Ed
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25675.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ PowerWash Simulator (2022) [Ru/Multi] (1.10.0/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25613.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ PowerWash Simulator (2022) [Ru/Multi] (1.10.0/dlc) Repack seleZen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA67A6A699B1A1C1416109070D3D7229448B8FFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783359   (25610) от 05.03.2025
-
-Laundromat Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Jсновное внимание уделяется управлению различными магазинами, каждый из которых имеет свой собственный набор проблем. Геймеры занимаются сбором монет из стиральных машин - рутинная задача, которая становится основной в геймплее. Ежедневный заработок требует отслеживания, побуждая игроков разрабатывать стратегию, когда и как реинвестировать средства. Финансовый аспект (   Читать дальше...   )Тип издания: RepackРазработчик: Mammalian MachineЖанр: Казуальные игры, Инди, СимуляторыЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A749A788CA6D1D0EB2B7E350B62A61DED7A5B04
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1413934   (406618) от 06.10.2020
-
-Никита Хохлов | PyQt5 Python - Разработка графических интерфейсов (2020) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Блок 1. Введение в основные инструменты
-1. Настройка среды и разбор инструментов Qt Designer
-2. Структура Qt программы, преобразование интерфейса и разбор виджетов. Пишем первую программу с кнопками и списками
-3. Использование галочек в программах, принцип построения конфигов(   Читать дальше...   )Жанр: ПрограммированиеПродолжительность: 03:44:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6C07F06BACDC02E02F154086782AD1F1E1AD266
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 561774   (405376) от 19.10.2012
 
 Алексей Захаренко | Дизайн-оформление сайта с нуля [2012] PCRec
@@ -35,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405376.jpg" />
 </div>
 
 
@@ -61,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403747.jpg" />
 </div>
 
 
@@ -89,7 +60,7 @@ lynda.com | Основной курс Logic Pro 9 Essential Training [2011] [RUS
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402658.jpg" />
 </div>
 
 
@@ -115,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402174.jpg" />
 </div>
 
 
@@ -145,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401075.jpg" />
 </div>
 
 
@@ -173,7 +144,7 @@ CodeDojo | Основы Node.js (2017) PCRec [H.264/1080p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401072.jpg" />
 </div>
 
 
@@ -202,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397394.jpg" />
 </div>
 
 
@@ -228,7 +199,7 @@ Pragmatic Studio | Ruby and Rails [Master Package] (2012-2014) PCRec [H.264] [EN
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396481.jpg" />
 </div>
 
 
@@ -255,7 +226,7 @@ Lynda.com | Muse Essential Training - Основной курс [2012] [EN] PCRe
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394673.jpg" />
 </div>
 
 
@@ -281,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394627.jpg" />
 </div>
 
 
@@ -313,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394501.jpg" />
 </div>
 
 
@@ -341,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394457.jpg" />
 </div>
 
 
@@ -372,7 +343,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393595.jpg" />
 </div>
 
 
@@ -400,7 +371,7 @@ Rock the JVM | Cats (2020) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387127.jpg" />
 </div>
 
 
@@ -427,7 +398,7 @@ HarvardX (Harvard University) | CS50 Разработка мобильных п�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385013.jpg" />
 </div>
 
 
@@ -456,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384888.jpg" />
 </div>
 
 
@@ -483,7 +454,7 @@ OTUS | C# для начинающих программистов (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382677.jpg" />
 </div>
 
 
@@ -509,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381313.jpg" />
 </div>
 
 
@@ -535,7 +506,7 @@ Wesbos | Изучите Gatsbyn / Master Gatsby (Master Package) (2020) PCRec [E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380887.jpg" />
 </div>
 
 
@@ -563,7 +534,7 @@ conf.python.ru | Конференция Russian Python Week (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380748.jpg" />
 </div>
 
 
@@ -592,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380623.jpg" />
 </div>
 
 
@@ -619,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380468.jpg" />
 </div>
 
 
@@ -645,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380296.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380284.jpg" />
 </div>
 
 
@@ -700,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379822.jpg" />
 </div>
 
 
@@ -713,6 +684,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CF1087F36BC569B63081FA6896209E264B13030
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175637   (378174) от 18.10.2017
+
+Андрей Аксёнов | UNIGINE C++ School 1.1 - Пишем собственный STL (2017) PCRec [H.264/720p-LQ]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Записи лекций летней C++ школы от Unigine в исполнении Андрея Аксёнова.
+
+Бесплатный онлайн-курс программирования на С++ для продвинутых.
+01 Курс - Пишем собственный STL:(   Читать дальше...   )Производство: UNIGINEЖанр: Программирование, С++Продолжительность: 14:39:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D8F08657123B7BDAB86760BE5681913AE186D99
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,173 +1,3 @@
-###  Публикация: 1411900   (422430) от 27.09.2020
-
-Mike McGrath | HTML, CSS & JavaScript In Easy Steps / HTML, CSS и JavaScript в простых шагах (2020) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>Веб-дизайн
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422430.jpg" />
-</div>
-
-
-###  Подробнее
-
-HTML, CSS и JavaScript в простых шагах инструктируют читателя по каждому из трех языков кодирования, которые используются для создания современных веб-страниц: теги языка гипертекстовой разметки (HTML) используются для управления структурой содержимого веб-страницы; Правила каскадных таблиц стилей (CSS) используются для определения того, как отображается содержимое (   Читать дальше...   )Жанр: Web-дизайн, ПрограммированиеФормат: PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3F4CAFC5DE72FF7285FE52B161539510EFCE667
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250979   (422000) от 29.09.2018
-
-Майкл Сикорски, Эндрю Хониг | Вскрытие покажет! Практический анализ вредоносного ПО (2018) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анализ вредоносного ПО напоминает игру в кошки-мышки: никаких правил, ситуация постоянно меняется. Поэтому в данном случае имеет смысл изучать лишь неустаревающие вещи и алгоритмы. Как только перед вами встает задача защитить сеть (или тысячу сетей), вы приступаете к такому анализу, и без этой книги вам попросту не обойтись.
-Как авторы вредоносного ПО всегда готовы (   Читать дальше...   )Жанр: Компьютерная безопастностьФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E3639E74ADD5E4E2AA33D60BBFA511FCB2ADFCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 557593   (421081) от 07.10.2012
-
-Jess Chadwick, Todd Snyder | Programming ASP.NET MVC 4: Developing Real-World Web Applications with ASP.NET MVC [2012] [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421081.jpg" />
-</div>
-
-
-###  Подробнее
-
-Научитесь разрабатывать реальные веб-приложения с использованием Microsoft ASP.NET MVC  фреймворка, применяя эффективные шаблоны проектирования, а так же самые современные веб-технологии, такие как HTML 5 и jQuery.
-
-С этим практическим руководством вы приобретете полное понимание ASP.NET MVC 4 фреймворка. Вы также получите ценные примеры реального кода, которые вы сможете сразу использовать в своих проектах.
-
-Это руководство также включает подсказки, секреты, а также best-practice советы как по разработке веб-приложений в целом, так и по ASP.NET MVC 4 в частности, включая ряд подвохов, которых вы должны остерегаться и избегать.
-
-Включены следующие ключевые моменты:
-
-Архитектура веб-приложений
-ASP.NET MVC 4 framework(   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:222FD2D122CE736D33BE8EF812264D9DA7008A7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324811   (420326) от 11.09.2019
-
-Меле Антонио | Django 2 в примерах (2019) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420326.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создавайте мощные и надежные веб-приложения на Python с нуля!
-Создание Django-приложения, пригодных для много-кратного использования.
-Изучение продвинутых функций, оптимизации кода, использованию кеширования.
-Интернационализации и реализации переводов в Django-проектах.(   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DAC97A0DE370143042E255B5B8E1B841439DED5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412197   (420131) от 28.09.2020
-
-Девин Корвин | Основы творчества / Creative Fundamentals [2 книги] (2020) [PDF] [En]
-
->>Компьютерная литература
->>2D графика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это кульминация моих многолетних накопленных знаний, упрощенных до действительно доступного введения в основы искусства. Это полезно не только для изобразительного искусства, но и для концепт-арта и иллюстрации. Если вы чувствовали, что есть некоторые основы искусства, которые вы не понимаете, то эта книга для вас!Жанр: Искусство, ЖивописьФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03413FA6CC85869E8C1F3AFCD5268BAEF7F56CA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412035   (420071) от 28.09.2020
-
-Джон М. Блэйн | Полное руководство по Blender: Моделирование и Анимация / The Complete Guide to Blender Graphics: Computer Modeling & Animation [6-ое издание по Blender 2.82] (2020) [PDF, EPUB] ...
-
->>Компьютерная литература
->>3D графика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420071.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blender - это бесплатная графическая программа с открытым исходным кодом для компьютерного моделирования и анимации, включающая фотореалистичный рендеринг, реалистичные материалы, риггинг персонажей, скульптинг, UV-развертку, композитинг, симуляцию, отслеживание камеры и объекта, создание игр и редактирование видео.
-Это учебное пособие для начинающих и справочник (   Читать дальше...   )Жанр: 3D моделирование, АнимацияФормат: PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F11A0902ED3F3BEB1905F58D7A4489D7FF08C4A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1412162   (420070) от 28.09.2020
 
 Иан Милл, Эйдан Хобсон Сейерс | Docker на практике (2020) [PDF]
@@ -176,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420070.jpg" />
 </div>
 
 
@@ -202,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419787.jpg" />
 </div>
 
 
@@ -228,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419779.jpg" />
 </div>
 
 
@@ -256,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419775.jpg" />
 </div>
 
 
@@ -284,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419772.jpg" />
 </div>
 
 
@@ -311,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419290.jpg" />
 </div>
 
 
@@ -337,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416090.jpg" />
 </div>
 
 
@@ -363,7 +193,7 @@ Matthijs Hollemans / Мэттис Холлеманс| The iOS Apprentice (5th ed
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415773.jpg" />
 </div>
 
 
@@ -389,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415761.jpg" />
 </div>
 
 
@@ -415,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414201.jpg" />
 </div>
 
 
@@ -444,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414039.jpg" />
 </div>
 
 
@@ -470,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413907.jpg" />
 </div>
 
 
@@ -496,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413324.jpg" />
 </div>
 
 
@@ -522,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412914.jpg" />
 </div>
 
 
@@ -548,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411184.jpg" />
 </div>
 
 
@@ -574,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411122.jpg" />
 </div>
 
 
@@ -601,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411014.jpg" />
 </div>
 
 
@@ -627,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410964.jpg" />
 </div>
 
 
@@ -655,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410952.jpg" />
 </div>
 
 
@@ -682,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410948.jpg" />
 </div>
 
 
@@ -694,6 +524,162 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E13A8377828498D331FFE0D59DF628EF1113B3DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559043   (410947) от 11.10.2012
+
+Бретт Маклафлин | PHP и MySQL. Исчерпывающее руководство (2012) [PDF]
+
+>>Компьютерная литература
+>>Веб-дизайн
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если у вас есть опыт разработки сайтов с помощью CSS и JavaScript, то эта книга переведет вас на новый уровень веб-разработки — создание динамических веб-сайтов на основе PHP и MySQL. С помощью практических примеров в книге вы узнаете все возможности серверного программирования. Вы прочитаете, как выстраивать базу данных, управлять контентом и обмениваться информацией (   Читать дальше...   )Жанр: WEB ДизайнФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5326C6A80BB581BEA0FFF3F570BF162F4093470B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948678   (410927) от 20.10.2015
+
+Андрей Солдатов, Ирина Бороган | Анонимность в Сети. Как защитить себя от Большого Брата (2014) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410927.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сегодня во многих странах мира граждане каждый день сталкиваются с необходимостью защищать свою информацию. Перехваты электронной переписки и телефонных переговоров политиков, общественных деятелей, знаменитостей регулярно выкладываются в Сеть. Журналистам, которым всегда было необходимо сохранять анонимность источников, с развитием технологий стало еще сложнее обеспечивать (   Читать дальше...   )Жанр: Интернет и обществоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBE13292A9A0514F76E4B3134EB6EFE022226961
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1166598   (410431) от 23.09.2017
+
+Агус Курняван | OpenMV Development Workshop (2017) [EPUB, PDF] [En]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410431.jpg" />
+</div>
+
+
+###  Подробнее
+
+OpenMV - недорогая и расширяемая плата, предназначенная для самостоятельного изготовления системы технического зрения. Она стала как Arduino для компьютерного зрения. Эта книга поможет вам приступить к разработке проектов с OpenMV, используя Python. Ниже приведен список тем в книге: подготовка среды разработки, настройка OpenMV, программирование GPIO, универсальный (   Читать дальше...   )Жанр: Компьютерная литератураФормат: EPUB, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E16DA12DFA457AB9E6ED2113532103D857F74AF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168297   (410416) от 23.09.2017
+
+Джо Микаллеф | Основы проектирования для 3D-печати (2015) [PDF] [En]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основы проектирования для 3D-печати - это полноцветный путеводитель для создания практически любого 3D-принтера. Эта книга будет демистифицировать процесс проектирования для трехмерной печати, обеспечив надлежащие рабочие процессы для тех, кто занимается новой 3D-печатью, нетерпеливыми художниками, опытными инженерами, предпринимателями, занимающимися 3D-печатью, (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C5E8182ECCE73F4267564756D37E9EAEDC1CC8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168269   (410245) от 23.09.2017
+
+Евгений Макаров | Mathcad: Учебный курс (+CD) (2009) [DJVU, PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена работе в 14-й версии популярного математического пакета Mathcad. Издание имеет формат учебного курса и состоит из четырех частей. В первой части содержатся сведения, необходимые для начала работы в Mathcad и решения большинства практических задач. Вторая часть посвящена возможностям программы, здесь на конкретных примерах рассматриваются особенности (   Читать дальше...   )Жанр: Компьютерная литератураФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:220551741BD1113E16D6AD0D4A65C112374D937F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1166586   (410243) от 23.09.2017
+
+Майкл Редкар | Raspberry Pi3: Будущее уже сейчас (2017) [EPUB, PDF, DJVU] [En]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410243.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящее время Raspberry Pi - это нечто большее, чем просто учебный инструмент для поощрения детей к обучению и наслаждению стандартными аппаратными навыками и программированием. Скачайте сегодня эту книгу и узнайте: что такое Raspberry Pi3, как настроить новый RP3, что такое Raspbian и как его можно использовать, программирование с помощью Raspberry Pi, программирование (   Читать дальше...   )Жанр: Компьютерная литератураФормат: EPUB, PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1DB586088D8187446B5266BA2EC88DAA95A2EFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

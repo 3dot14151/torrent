@@ -1,3 +1,61 @@
+###  Публикация: 1197053   (819195) от 05.01.2018
+
+VA - Abora Recordings: Best Of 2017 (Mixed by Ori Uplift) (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Illitheas - Levity (Intro mix)
+02. Afternova & Andrea Becker - For You (Trance mix)
+03. Manuel Rocca & Illitheas - Enchanted (Original Mix)
+04. Syntouch & Angel Falls - Alone (Plutian remix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:52:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14C5E9A97E991DA0011B26115250E5A7DB9F8665
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196852   (819193) от 05.01.2018
+
+VA - Aly & Fila - Future Sound of Egypt 529 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ben Bohmer & Wood — Velvet Rebellion (Original Mix)
+02. The Journey — The Toad (Original Mix)
+03. Paul Thomas & K3V — Aquamarina (Extended Mix)
+04. Concierj — Reality Pending (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:57:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:064ABDA5AD3F90A34DCEDE21711EB9AE945149AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1382548   (819142) от 11.05.2020
 
 VA - Beautiful Morning Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -6,7 +64,7 @@ VA - Beautiful Morning Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|t
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819142.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Mega Dance Party 2017 (2016) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819109.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Markus Schulz - Global DJ Broadcast - New Year’s Rehab (2018) [MP3|320 Kb
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819069.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ E-Mantra - Night Guardian (2020) Melusine Records [FLAC 2.0|44.1/24|tracks|WEB-D
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818977.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - DJ Zen - Serial Chillers (2017) Altar Records [FLAC|Lossless|WEB-DL|tracks]
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818794.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - New Year Party 2017 (2018) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818509.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Blow It Up (2016) [MP3|320 кб/с] <House, Progressive House, Electro Hous
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818098.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Summer Deep (2016) [MP3|320 кб/с] <Minimal House, Deep House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818094.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Erotic Yoga Vol.1 (2016) Deluxe Chill Out For Special Moments  [MP3|320 к�
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817856.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Mayday: Twenty Five (2016) [MP3|256 кб/с] <House, Progressive House, Ele
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817847.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Vocal Trance 2k18 Vol. 1 (2018) [MP3|320 Kbps] <Trance,Vocal Trance,Uplifti
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817714.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Ori Uplift - Uplifting Only 256 (Ori's Top 30 Vocal Uplifters of 2017) (201
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817698.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - 35 Best Body Building Hits 2021 (Fitness Version) [MP3|320 Kbps] <House, Da
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817636.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Karma Fields - New Age | Dark Age (2016) [FLAC|Lossless|tracks] <Drum n Bass, Du
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817601.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817536.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Solitude Of The Forest Compilation (2020) Insectorama [FLAC|Lossless|WEB-DL
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817515.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Data Rebel - Angular (2016) [FLAC|Lossless|WEB-DL|24Bit|tracks] <IDM, Ambient>
 >>Experimental, Industrial (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817464.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Joyful Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Bal
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817381.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Just Chill Out Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817345.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Chill Out and Lounge Moments (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817344.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Beach Deep House (2017) [MP3|320 Kbps] <Deep House, Chill House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817343.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Dream Dance Vol.84 (2018) [MP3|320 Kbps] <Trance, House, Dance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817291.jpg" />
 </div>
 
 
@@ -641,7 +699,7 @@ Leftfield - Open Up (1995) Maxi-Single [FLAC|Lossless|tracks + .cue] <Electronic
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816112.jpg" />
 </div>
 
 
@@ -670,7 +728,7 @@ VA - Cub Session Rush Hour Vol.10 (2016) [MP3|320 кб/с] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816111.jpg" />
 </div>
 
 
@@ -684,64 +742,6 @@ VA - Cub Session Rush Hour Vol.10 (2016) [MP3|320 кб/с] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1683B9FAED413CAAB8228BC9A07E2366CB738012
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008402   (816041) от 18.04.2016
-
-VA - Venera Music Vol.3 (2016) [MP3|320 кб/с] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816041.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DeDrecordz - Silent City (Original Mix) 04:00
-02. DJ Webby - Breeze (Original Mix) 06:41
-03. Ra-Ga - Sun Rise (Original Mix) 04:28
-04. Anna Kraynidolski - Coins (Manchus Remix) 06:24(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:30:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED8625CDE791BA6C669EB6E169C8E1C55C3A8164
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008518   (816028) от 18.04.2016
-
-VA - House Rhythms (Special Edition) (2016) [MP3|320 кб/с] <House, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eddie Heaven feat. Lola London - To Be Cool (Jeffrey Marshal's House Mix) (03:27)
-02. Frankie Borrel - Analogue Deep (Fashion Modell Project Mix) (03:30)
-03. Brooklyn Boyz - Remain in Onor (Tribeca Mote's House Mix) (03:26)
-04. Tony Roiale feat. V6 - Get a Deep Slap (Jeorge Dee's House Mix) (03:27)(   Читать дальше...   )Производство: Kocca RecordsЖанр: House, Club HouseПродолжительность: 01:10:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65BEE561425B46FC444FC52778807E910887299E
 ```
 
 https://mybot314.ru/tekegram_catalog/

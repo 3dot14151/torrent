@@ -6,7 +6,7 @@ Conjure One [Fake Enigma] - Sleep (2003) [APE|Lossless|image + .cue] <New Age, D
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720326.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Christophe Goze - A Day In Ibiza (2009) [APE|Lossless|image + .cue] <Easy Listen
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718742.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Kitaro - Tenku (1986) Remastered, 1997, DOMO [FLAC|Lossless|image + .cue] <New A
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716811.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Midori - Mellow - Relaxation Piano (2014) [FLAC|Lossless|tracks] <New Age, Instr
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716126.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Dr. Jeffrey Thompson & Mick Rossi - Dancing Clouds (2007) [FLAC|Lossless|tracks]
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715730.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Jim Brickman - Relax to the Hits of Jim Brickman (2019) [FLAC|Lossless|WEB-DL|tr
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714911.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Meditation Music Zone & Ensemble de Musique Zen Relaxante - Bouddha 2019: Bar, l
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714910.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Two Steps From Hell - Dragon (2019) [FLAC|Lossless|WEB-DL|tracks] <Modern Classi
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714718.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Liquid Mind - Relaxing Rain & Ocean Mixes (2014) [FLAC|Lossless|tracks] <New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714083.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Kitaro - Sacred Journey of Ku-Kai, Volume 5 (2017) [FLAC|Lossless|WEB-DL|tracks 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712277.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Jim Brickman - Soothe, Vol. 4: Subzero - Sounds That Spark the Senses (2018) [FL
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709083.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Jim Beckwith and Hans Christian - Be Love (2017) [FLAC|Lossless|WEB-DL|tracks] <
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708917.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Robin Spielberg - Another Time, Another Place (2015) [FLAC|Lossless|tracks] <New
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708123.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Liquid Mind - XI: Deep Sleep (2016) [FLAC|Lossless|tracks] <New-age, Ambient, Re
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708113.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Eloy Fritsch (ex.Apocalypse) - 8 альбомов (1997 - 2012)[FLAC|Lossless|im
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707940.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Midori - Island Paradise (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706136.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ VA - Music For Quick Morning Yoga (2020) [FLAC|Lossless|WEB-DL|tracks] <New age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705614.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Kamal - Reiki Whale Song (2001) [FLAC|Lossless|tracks + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705331.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Juliana - Earth Goddess (2012) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax, Vo
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704154.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ VA - Mindful Meditative Exercise (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703678.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ VA - Relaxing Coconut Massage (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701706.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Divine Works - Soundtrack to the new millenium (1997) [FLAC|Lossless|tracks + .c
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701115.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ D-Emotion Project - Hybrid (1994) [FLAC|Lossless|image + .cue] <New Age, Downtem
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700848.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Timothy Wenzel - What We Hold Dear (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700846.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Levantis - I Love Yoga (Music To Relax Your Body And Mind), 3CD Box Set (2009) [
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700530.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ David Darling - Gratitude (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700405.jpg" />
 </div>
 
 

@@ -1,3 +1,56 @@
+###  Публикация: 487350   (90449) от 24.04.2012
+
+Шарль Перро |  Волшебные сказки (1985) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90449.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шарль Перро (фр. Charles Perrault; 12 января 1628, Париж — 16 мая 1703, Париж) — французский поэт и критик эпохи классицизма, член Французской академии с 1671, ныне известный в основном как автор «Сказок матушки Гусыни».Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED04E3D27C7C6C71E0FABE46CB8C6ED16859467E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 486125   (89992) от 22.04.2012
+
+Дик Кинг-Смит | Серия "Всё о..." [2007-2010] [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89992.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книги английского писателя Дика Кинга-Смита невозможно читать без улыбки и с плохим настроением.
+Самый известный герой писателя - поросенок Бейб. В 1984 году писатель получил премию "Гардиен" за книгу "Бейб", по которой в 1995 году был снят одноименный фильм. В 1992 году Кинг-Смит признан Детским писателем года, в 1995 году получил премию за лучшую (   Читать дальше...   )Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8742912121502EDF7AE3DEF73628794256127D6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 485906   (89943) от 21.04.2012
 
 М.Ю.Волошко | Учимся читать по-английски (2010) [PDF]
@@ -6,7 +59,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89943.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89855.jpg" />
 </div>
 
 
@@ -62,7 +115,7 @@ Julia Donaldson, Axel Scheffler | Gruffalo [1999] [PDF] [En]
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89399.jpg" />
 </div>
 
 
@@ -88,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные материалы для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89343.jpg" />
 </div>
 
 
@@ -114,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89250.jpg" />
 </div>
 
 
@@ -149,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89153.jpg" />
 </div>
 
 
@@ -175,7 +228,7 @@ DK Preschool | Лисёнок : Смотри, как они растут! [2008]
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89149.jpg" />
 </div>
 
 
@@ -201,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89029.jpg" />
 </div>
 
 
@@ -227,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88836.jpg" />
 </div>
 
 
@@ -253,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88709.jpg" />
 </div>
 
 
@@ -279,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88669.jpg" />
 </div>
 
 
@@ -305,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные материалы для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88657.jpg" />
 </div>
 
 
@@ -333,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88585.jpg" />
 </div>
 
 
@@ -361,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88531.jpg" />
 </div>
 
 
@@ -389,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные материалы для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88217.jpg" />
 </div>
 
 
@@ -415,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87764.jpg" />
 </div>
 
 
@@ -442,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87400.jpg" />
 </div>
 
 
@@ -468,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86961.jpg" />
 </div>
 
 
@@ -494,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86951.jpg" />
 </div>
 
 
@@ -526,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86928.jpg" />
 </div>
 
 
@@ -552,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86550.jpg" />
 </div>
 
 
@@ -579,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86470.jpg" />
 </div>
 
 
@@ -605,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86310.jpg" />
 </div>
 
 
@@ -632,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86309.jpg" />
 </div>
 
 
@@ -644,59 +697,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FE854BA0550CA36F9F1C23630A1D68DCBE7F0DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478073   (86282) от 04.04.2012
-
-Журнал | Книжки, нотки и игрушки для Катюшки и Андрюшки №2 [2011] [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Журналы для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как вы думаете, что является самым важным при подготовке к любому празднику, в котором будут участвовать дети? Бесспорно, это — интересно написанный, захватывающий, грамотный и динамичный сценарий. Но вам ли, уважаемые читатели, не знать, как непросто бывает отыскать что-то новое, интересное и полезное? Вот тут вам и придёт на помощь журнал «Книжки, нотки и игрушки для Катюшки и Андрюшки». Он является настоящим кладом как для педагогов, работающих с детьми 3–10 лет, так и для родителей.
-Журнал для работников библиотек, дошкольных учреждений и начальных школ. Сценарии, программы и конспекты занятий, ноты, песни и описания танцев...2011Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E91CEEBC684B80C830F70C27D8E8AC52E2694E6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477255   (86098) от 03.04.2012
-
-Е.Ф. Вологдина и др. | Детская энциклопедия РОСМЭН. Живая природа [2009] [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга предназначена юным читателям.Она знакомит детей с животным,растительным миром нашей планеты.От тропических лесов до полярных тундр и пустынь,домашних животных и культурных растений.Великолепные иллюстрации делают книгу более увлекательной и познавательной.Жанр: Детская литература, естествознаниеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91C6330DBBCF7F51860D475AB5445F581A9AFCC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

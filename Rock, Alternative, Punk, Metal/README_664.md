@@ -1,3 +1,32 @@
+###  Публикация: 1171589   (395578) от 05.10.2017
+
+Marilyn Manson - Heaven Upside Down (2017) [FLAC|Lossless|tracks] <Alternative Rock, Heavy Metal, Industrial>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Revelation #12  4:42
+02.  Tattooed In Reverse  4:24
+03.  We Know Where You F'cking Live  4:32
+04.  Say10  4:19(   Читать дальше...   )Жанр: Alternative Rock, Heavy Metal, IndustrialПродолжительность: 00:47:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A84F00906135D6685F8394BBE5E137CE0312B4CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 400572   (395174) от 18.10.2011
 
 Smokey Fingers - Columbus Way (2011) [MP3|320 kbps]<Hard Rock>
@@ -6,7 +35,7 @@ Smokey Fingers - Columbus Way (2011) [MP3|320 kbps]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395174.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Ruinside - The Hunt (2012) [MP3|320 кб/с]<Thrash metal, Speed metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395083.jpg" />
 </div>
 
 
@@ -70,7 +99,7 @@ Brendon Small - Brendon Small’s Galaktikon (2012) [web] [FLAC|Lossless]<Space 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_394918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_394918.jpg" />
 </div>
 
 
@@ -96,7 +125,7 @@ Dirkschneider - Live - Back To The Roots - Accepted! (2017) 2CD, Japanese Editio
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394789.jpg" />
 </div>
 
 
@@ -125,7 +154,7 @@ Jimi Jamison (Target, Cobra and Solo Albums) - 9 Albums (1976 - 2012) [FLAC|APE|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394725.jpg" />
 </div>
 
 
@@ -154,7 +183,7 @@ Liam Gallagher - As You Were (Deluxe Edition) (2017) [FLAC|Lossless|WEB-DL|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394720.jpg" />
 </div>
 
 
@@ -183,7 +212,7 @@ The Rasmus - Dark Matters (2017) [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394656.jpg" />
 </div>
 
 
@@ -212,7 +241,7 @@ Guano Apes - Proud Like a God XX (2017) 20th Anniversary Edition [MP3|320 Kbps] 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394608.jpg" />
 </div>
 
 
@@ -241,7 +270,7 @@ Dolphin - Существо (Часть 1) (2011) [MP3|320 kbps]<Alternative, Rap
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394228.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ Thunderhead - Thunderhead (1975) Reissue, 2009, Crossroad Productions [MP3|320 K
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394159.jpg" />
 </div>
 
 
@@ -302,7 +331,7 @@ Pride Of Lions - Immortal (2012) [FLAC|Lossless]<Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_394050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_394050.jpg" />
 </div>
 
 
@@ -328,7 +357,7 @@ Raventale - Planetarium (2017) [MP3|320 Kbps] <Atmospheric Black Metal, Black Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394035.jpg" />
 </div>
 
 
@@ -357,7 +386,7 @@ Prime Time - Love and Hate (2012) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393985.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Anberlin - Vital (2012) [MP3|320 кб/с]<Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393936.jpg" />
 </div>
 
 
@@ -418,7 +447,7 @@ Beseech - 5 альбомов (1998-2005) [MP3|320]<Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_393747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_393747.jpg" />
 </div>
 
 
@@ -453,7 +482,7 @@ Tiamat - The Scarred People (2012) [MP3|320 кб/с]<Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393688.jpg" />
 </div>
 
 
@@ -488,7 +517,7 @@ Nefarium - Ad Discipulum (2010) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393273.jpg" />
 </div>
 
 
@@ -517,7 +546,7 @@ Orcrist - Black Blood Raised (2006) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393272.jpg" />
 </div>
 
 
@@ -546,7 +575,7 @@ Carrion Wraith - Carrion Wraith (2008) [FLAC|Lossless|image + .cue] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393251.jpg" />
 </div>
 
 
@@ -575,7 +604,7 @@ Orcrist - Fallen (2010) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393250.jpg" />
 </div>
 
 
@@ -604,7 +633,7 @@ Helker - Legado Secreto (2002) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393248.jpg" />
 </div>
 
 
@@ -633,7 +662,7 @@ Orcrist - From the Forgotten Forest (2005) [FLAC|Lossless|image + .cue] <Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393246.jpg" />
 </div>
 
 
@@ -662,7 +691,7 @@ Helker - Resistir (2008) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393240.jpg" />
 </div>
 
 
@@ -691,7 +720,7 @@ Helker - A.D.N. (2010) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393233.jpg" />
 </div>
 
 
@@ -720,7 +749,7 @@ Hydra - Land Of Money (1975) Reissue, 1999, Capricorn Records [MP3|320 Kbps] <Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393230.jpg" />
 </div>
 
 
@@ -734,35 +763,6 @@ Hydra - Land Of Money (1975) Reissue, 1999, Capricorn Records [MP3|320 Kbps] <Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19411C65C9823EC663B5AC5064872D9487F12A86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172346   (393227) от 08.10.2017
-
-Loudness - Super Best (2013) japan [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Let It Go
-02 Black Star Oblivion
-03 S.D.I.
-04 Rock'n Roll Gypsy(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5F25118B07FCA0D1157B490F531F4DA440DE581
 ```
 
 https://mybot314.ru/tekegram_catalog/

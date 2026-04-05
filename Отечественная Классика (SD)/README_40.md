@@ -1,3 +1,56 @@
+###  Публикация: 53527   (333309) от 13.11.2014
+
+Белые росы (1983) DVDRip
+
+>>След.
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_333309.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ветеран труда и трех войн, уважаемый человек в деревне Белые росы — Федор Ходас уже давно овдовел и имеет трех взрослых сыновей. Старший чрезмерно расчетлив, младший чересчур весел.
+Средний уехал на Курилы и каков он теперь отцу неведомо. Но за всех у старика душа болит, особенно за младшего балагура…Производство: СССР, БеларусьфильмЖанр: КомедияРежиссер: Игорь ДобролюбовАктеры: Всеволод Санаев, Николай Караченцов, Михаил Кокшенов, Геннадий Гарбук, Борис Новиков, Галина Польских, Наталья Харахорина, Станислав Садальский, Стефания Станюта, Ирина Егорова, Александр Беспалый, Юрий Кухаренок, Юля Космачева, Галина МакароваПродолжительность: 01:23:35
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 62168   (333304) от 13.11.2014
+
+Трактир на Пятницкой (1978) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_333304.jpg" />
+</div>
+
+
+###  Подробнее
+
+Москва времен НЭПа. В Замоскворечье орудует жестокая банда, наводящая ужас на жителей района. Дерзкие налеты следуют один за другим. В них ясно прослеживается почерк известного рецидивиста по кличке «Серый», выпущенного из заключения. Излюбленное место отдыха бандитов — трактир на Пятницкой. Но поймать их с поличным никак не удается. Единственная возможность выявить (   Читать дальше...   )Производство: СССР, киностудия "Мосфильм"Жанр: Криминал, детективРежиссер: Александр ФайнциммерАктеры: Геннадий Корольков, Тамара Семина, Константин Григорьев, Лев Прыгунов, Николай Еременко-мл., Виктор Перевалов, Лариса Еремина, Глеб Стриженов, Юрий Назаров, Александр Галибин, Марина Дюжева, Юрий Волков, Игорь Васильев, Владимир Дружников, Юрий КосыхПродолжительность: 01:25:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 411773   (332731) от 19.11.2011
 
 Солдаты (1956) DVDRip
@@ -6,7 +59,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332731.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332667.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332369.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_331930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_331930.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_331923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_331923.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331477.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_331007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_331007.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331004.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330022.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_329860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_329860.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_329805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_329805.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_329800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_329800.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_328832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_328832.jpg" />
 </div>
 
 
@@ -347,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_328829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_328829.jpg" />
 </div>
 
 
@@ -375,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_328818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_328818.jpg" />
 </div>
 
 
@@ -401,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327342.jpg" />
 </div>
 
 
@@ -427,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_327306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_327306.jpg" />
 </div>
 
 
@@ -453,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_327232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_327232.jpg" />
 </div>
 
 
@@ -479,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_327229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_327229.jpg" />
 </div>
 
 
@@ -505,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_327142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_327142.jpg" />
 </div>
 
 
@@ -531,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_326366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_326366.jpg" />
 </div>
 
 
@@ -557,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_326364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_326364.jpg" />
 </div>
 
 
@@ -583,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_326295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_326295.jpg" />
 </div>
 
 
@@ -611,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_326293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_326293.jpg" />
 </div>
 
 
@@ -619,60 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 
 Молодая актриса перед тем, как сыграть в кино легендарную партизанку, разыскивает всех, кто знал ее героиню. И вдруг узнает, что бесстрашная партизанка жива и работает директором курортной гостиницы, где остановилась съемочная группа. Далее следуют волнующие встречи восходящей кинозвезды с героиней славного прошлого и с правдой жизни…Производство: СССР, Киностудия им. ГорькогоЖанр: Мюзикл, комедияРежиссер: Владимир ГориккерАктеры: Валентина Смелкова, Вера Васильева, Михаил Пуговкин, Николай Мерзликин, Виктор Ильичев,
 Александр Лазарев, Юрий Пузырев, Гликерия Богданова-Чеснокова, Савелий Крамаров, Алексей СмирновПродолжительность: 01:25:35
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 93154   (326285) от 20.11.2014
-
-Дело ''Пестрых'' (1958) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_326285.jpg" />
-</div>
-
-
-###  Подробнее
-
-По рекомендации райкома партии молодой офицер Сергей Коршунов становится работником уголовного розыска. На войне действовать приходилось молниеносно, и Сергей решает свои боевые навыки задействовать на гражданке, но это оказалось не так просто.
-
-При расследовании серии преступлений, начавшихся с убийства женщины, ему приходится понять, что в мирной жизни гораздо (   Читать дальше...   )Производство: СССР, МосфильмЖанр: Боевик, криминалРежиссер: Николай ДостальАктеры: Андрей Абрикосов, Владимир Кенигсон, Всеволод Сафонов, Алексей Грибов, Евгений Матвеев, Наталья Фатеева, Лев Поляков, Тамара Логинова, Олег Табаков, Зоя Фёдорова, Эдуард Бредун, Иван ПереверзевПродолжительность: 01:35:50
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 95864   (326230) от 20.11.2014
-
-Чистое небо (1961) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_326230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Летчик-испытатель Астахов, герой Советского Союза, во время войны попадает в плен. После войны вернувшегося Астахова исключают из партии, увольняют с работы и лишают правительственной награды. Долгие годы герой не имеет возможности вернуться к своей профессии. Астахов спивается, но любовь Саши и вера в себя спасают его и возвращают надежду на справедливость…Производство: СССР, киностудия "Мосфильм"Жанр: Драма, мелодрама, военныйРежиссер: Григорий ЧухрайАктеры: Нина Дробышева, Евгений Урбанский, Наталья Кузьмина, Виталий Коняев, Георгий Куликов, Леонид Князев, Георгий Георгиу, Олег Табаков, Алик Крылов, Виталик Бондарев, Владимир Анисько, Тамара Носова, Петр Кирюткин, Константин Барташевич, Николай ХрящиковПродолжительность: 01:43:50
 
 ## Скачать торент
 ```bash

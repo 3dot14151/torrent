@@ -1,3 +1,164 @@
+###  Публикация: 1400222   (716613) от 06.08.2020
+
+Маск: мозговые чипы позволят услышать неуловимые звуки
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_716613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основатель компании SpaceX и генеральный директор Tesla Илон Маск рассказал, что мозговые чипы его нового стартапа Neuralink позволят людям слышать звуки, которые ранее были вне диапазона «обычных частот»,  пишет The Independent.Также они помогут восстановить движение человеку с повреждённым спинным мозгом. Конечная цель технологии, однако, состоит в том, чтобы обеспечить (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 892715   (716550) от 27.04.2015
+
+Twonky Media Server 8.0.3 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Twonky Media Server - это приложение, которое позволит создать собственный мультимедиа-сервер. Представьте себе ситуацию: у вас есть телевизор c Wi-Fi модулем, планшет или смартфон, на котором вы хотите посмотреть фильм, хранящийся на компьютере. Обычно, в такой ситуации приходится изначально записывать нужное видео на переносной носитель или конвертировать его в поддерживаемый вашим гаджетом формат. Но гораздо проще будет воспользоваться программой Twonky Media Server, настроить свой сервер, установить доступ (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A77F505662457BBF60BD66048E4A8C8B4930247C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 892523   (716547) от 27.04.2015
+
+Windows 8.1 Assistant 6.3.9600.17557 [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716547.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа является инструментом для загрузки оригинальной Windows 8.1 с автоматической конвертацией образа из формата ESD в ISO.
+Загрузчик даёт возможность выбора версии, разрядности и локализации Windows 8.1.
+В результате Вы получаете выбранную версию Windows 8.1 с обновлениями.
+На момент этой раздачи обновления от октября 2014 года.
+Присутствуют два варианта загрузки. ISO-файл для записи на DVD-диск и прямая запись на USB-устройство.(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AE1FE2B21E43C9C1190E4826292CE38E72C608F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 892555   (716539) от 27.04.2015
+
+Снайпер / American Sniper(2014) BDRemux [H.264/1080p]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация мемуаров морского пехотинца из Техаса Криса Кайла, который служил снайпером в Ираке и стал рекордсменом по числу убитых солдат противника, за что иракцы прозвали его дьяволом. Помимо описания военных действий, книга состоит из отрывков воспоминаний жены Криса, ставшей свидетельницей того, как росла привязанность мужа к его соратникам и войне.Производство: США / Warner Bros., Village Roadshow Pictures, Mad Chance ProductionsЖанр: боевик, драма, военный, биографияРежиссер: Клинт ИствудАктеры: Брэдли Купер, Сиенна Миллер, Кайл Галлнер, Коул Конис, Бен Рид, Элиз Робертсон, Люк Саншайн, Трой Винсент, Брэндон Сальгадо, Кейр О’ДоннеллПеревод: ДублированныйОзвучка / Автор перевода: (Чистый звук)+TScr. Присутствует около 6 минут вставок звука с TS. (Спасибо, WetY)Язык субтитров: АнглийскийПродолжительность: 02:12:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F61EEADF87F01D152054F87917B888E7FE08845
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 892212   (716520) от 27.04.2015
+
+Битва за Севастополь / Незламна (2015) DVD9
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любовь под нескончаемым огнем противника, дружба с Элеонорой Рузвельт, выступление на конференции, повлиявшее на исход Второй мировой войны, желание жить и страх потерять любимого человека — справится ли со всем этим хрупкая женщина?
+Это реальная история Людмилы Павличенко — легендарной женщины-снайпера. Солдаты шли в бой с ее именем на устах, а враги устроили на (   Читать дальше...   )Производство: Россия, УкраинаЖанр: Военный, Боевик, Мелодрама, ДрамаРежиссер: Сергей МокрицкийАктеры: Юлия Пересильд, Евгений Цыганов, Олег Васильков, Никита Тарасов, Джоан Блэкэм, Полина Пахомова, Владимир Лилицкий, Анатолий Кот, Нателла Абелева-Таганова, Валерий Гришко...Перевод: ОтсутствуетСубтитры: ОтсутствуютПродолжительность: 02:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDA71E007E80F65A8234ECEF4A1A5CE731A61E95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 892733   (716518) от 27.04.2015
+
+STDU Viewer 1.6.375 + Portable [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716518.jpg" />
+</div>
+
+
+###  Подробнее
+
+STDU Viewer – программа для просмотра DjVu, PDF и TIFF файлов. В последнее время большой популярностью пользуются электронные книги в формате DjVu. Файлы в этом формате, как правило, меньше по размеру, чем документы в формате PDF. Однако программы для просмотра PDF не поддерживают DjVu, из-за чего приходится работать сразу с двумя вьюверами. STDU Viewer делает просмотр (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF743BF02E117FD389AA93C4A59D46D0428B36B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1400323   (716462) от 06.08.2020
 
 Пользователи Windows 10 теперь не смогут блокировать телеметрию с помощью файлов HOSTS
@@ -6,7 +167,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_716462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_716462.jpg" />
 </div>
 
 
@@ -32,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>9
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_716452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_716452.jpg" />
 </div>
 
 
@@ -58,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716444.jpg" />
 </div>
 
 
@@ -84,7 +245,7 @@ Lucky Patcher 8.8.9 [Rus/Multi] - Патчер к большинству про�
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716443.jpg" />
 </div>
 
 
@@ -111,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_716438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_716438.jpg" />
 </div>
 
 
@@ -138,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_716437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_716437.jpg" />
 </div>
 
 
@@ -164,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_716308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_716308.jpg" />
 </div>
 
 
@@ -192,7 +353,7 @@ Volvo и Google выпустили конкурента Tesla Model 3
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_716282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_716282.jpg" />
 </div>
 
 
@@ -218,7 +379,7 @@ Pathfinder: Kingmaker (2018) [Ru/Multi] (1.2.5/dlc) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716265.jpg" />
 </div>
 
 
@@ -244,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716260.jpg" />
 </div>
 
 
@@ -270,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716258.jpg" />
 </div>
 
 
@@ -297,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_716233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_716233.jpg" />
 </div>
 
 
@@ -323,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_716071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_716071.jpg" />
 </div>
 
 
@@ -349,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716055.jpg" />
 </div>
 
 
@@ -375,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_715966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_715966.jpg" />
 </div>
 
 
@@ -401,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_715754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_715754.jpg" />
 </div>
 
 
@@ -429,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715748.jpg" />
 </div>
 
 
@@ -455,7 +616,7 @@ Windows 10 Enterprise (x86/x64) Elgujakviso Edition (v.01.05.17) [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715747.jpg" />
 </div>
 
 
@@ -484,7 +645,7 @@ CorelDRAW Graphics Suite 2017 19.0.0.328 HF1 RePack by KpoJIuK [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715744.jpg" />
 </div>
 
 
@@ -510,7 +671,7 @@ Imagenomic Portraiture 3.0.2 build 3027 CE RePack by Team V.R [En]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715741.jpg" />
 </div>
 
 
@@ -521,165 +682,6 @@ Imagenomic Portraiture превосходно устраняет дефекты 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38A5626B522DE5ECE41479DD84A2D6FFFAFB1F26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218987   (715235) от 13.04.2018
-
-Сегодня День космонавтики
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_715235.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 апреля, в день, когда Юрий Гагарин совершил первый в истории человечества космический полет, в России отмечается День космонавтики. В мире этот день по инициативе Генеральной ассамблеи ООН провозглашен Международным днем полета человека в космос.12 апреля 1961 года на земную орбиту был выведен первый в мире космический корабль-спутник «Восток» с человеком на борту. (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218995   (715225) от 13.04.2018
-
-OneWeb выбрал российские «Протоны» для запуска своих спутников
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_715225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спутниковый оператор OneWeb заказал у Роскосмоса запуски своих спутников на ракетах «Протон», сообщил гендиректор госкорпорации Роскосмос Игорь Комаров. Ранее OneWeb заказал у России 21 запуск ракет «Союз» с 672 своими спутниками.«Сейчас тот же заказчик, выбирая уже тяжелый носитель для запусков своих телекоммуникационных аппаратов, остановился на «Протоне», — сказал (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024747   (715155) от 09.06.2016
-
-Kerish Doctor 2016 4.60 DC 30.05.2016 Final Repack by Alker [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kerish Doctor 2016 — комплексное решение для автоматического ухода за компьютером под управлением ОС Windows. Программа предлагает два режима работы. В режиме работы в реальном времени Kerish Doctor 2016 в фоновом режиме защищает систему и автоматически исправляет ошибки автоматически, показывает уведомления о проделанной работе. Программа запускается вместе со стартом (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78ACF4217788D5C28BE3D3A1B9624170F8765857
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024539   (715123) от 09.06.2016
-
-The Witcher 3: Wild Hunt / Ведьмак 3: Дикая Охота (2015) [Ru/Multi] (1.21/dlc) License PROPHET
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715123.jpg" />
-</div>
-
-
-###  Подробнее
-
-У Меча Предназначения два острия. Одно из них – ты. Мир охвачен войной. Армия империи Нильфгаард стирает все на своем пути, стремясь добраться до самого сердца Северных королевств. Движимый глубоко личными мотивами знаменитый ведьмак, Геральт из Ривии, не остановится ни перед чем, чтобы найти и защитить некую особу, о которой говорится в древнем пророчестве.Тип издания: LicenseРазработчик: CD Projekt REDЖанр: RPG, AdventureЯзык озвучки: Русский, Английский, Польский и другиеЯзык субтитров: Русский, Английский, Польский и другиеЯзык интерфейса: Русский, Английский, Польский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECE2F35472E8929749F35497DC36E9C50FBE1165
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024609   (715115) от 09.06.2016
-
-Специальный полуночный выпуск / Midnight Special (2016) BDRip [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715115.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отец узнает, что природа одарила его сына сверхъестественными способностями. Понимая, что ими скоро заинтересуются спецслужбы, семья вынуждена скрываться...Производство: США, Tri-State Pictures, Warner Bros. PicturesЖанр: Фантастика, Триллер, Драма, ПриключенияРежиссер: Джефф НиколсАктеры: Майкл Шеннон, Джоэл Эдгертон, Кирстен Данст, Джейден Либерер, Адам Драйвер, Билл Кэмп, Скотт Хэйз, Сэм Шепард, Пол Спаркс, Дэвид ДженсенПеревод: Многоголосый закадровый, профессиональный (Paradox & Omskbird records)Язык субтитров: АнглийскийПродолжительность: 01:51:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEBD1D447C53408AEB71B0162D147510CB895430
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 328636   (715114) от 26.04.2011
-
-Adobe Illustrator CS5 15.1.0 [Multi/Rus]
-
->>3
->>11
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_715114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специалисты в области дизайна по всему миру выбирают Adobe® Illustrator® CS5 за исключительную точность и функциональность усовершенствованных инструментов для рисования, выразительные и яркие кисти, большой набор средств, позволяющий экономить время, а также интеграцию с онлайн-услугами Adobe CS Live**.В течение ограниченного периода времени услуги CS Live предоставляются бесплатно
-
- Это оригинальный, подлинный т.е как есть Electronic Software Delivery (ESD) дистрибутив, распространяемый с серверов компании Adobe как среди покупателей так и среди желающих ознакомится с продуктами компании.Язык интерфейса: • CZ - чешский • HU - венгерский • PL - польский язык • RO - румынский • RU - русский • TR - турецкий  • UA - украинский
-(EAST EUROPE MULTILANGUAGE USER INTERFACE)
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

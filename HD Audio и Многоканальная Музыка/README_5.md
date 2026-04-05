@@ -1,29 +1,3 @@
-###  Публикация: 203549   (1025347) от 20.03.2021
-
-Manowar - 11 альбомов (1982-2012) (FLAC 2.0|96,192/24|FLAC|VinylRip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025347.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Heavy MetalПродолжительность: 00:55:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44CB4D5FCEF9FABD55633CC36D5E82B6B86BD0A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 418304   (1024497) от 25.03.2021
 
 Slade - Nobody's Fools (1976) [DTS 5.1|Tracks (Upmix)]<Glam rock, hard rock>
@@ -32,7 +6,7 @@ Slade - Nobody's Fools (1976) [DTS 5.1|Tracks (Upmix)]<Glam rock, hard rock>
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024497.jpg" />
 </div>
 
 
@@ -61,7 +35,7 @@ Gary Moore - Greatest Hits 2CD (2010) [DTS 6.1, 44.1/16|tracks (upmix)]<Blues Ro
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024479.jpg" />
 </div>
 
 
@@ -90,7 +64,7 @@ Metallica - Black album (1991)[LPCM 2.0, DTS-HD MA 5.1, Dolby TrueHD 5.1, 96/24]
 >>Blu-ray Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024470.jpg" />
 </div>
 
 
@@ -122,7 +96,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021778.jpg" />
 </div>
 
 
@@ -151,7 +125,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021712.jpg" />
 </div>
 
 
@@ -180,7 +154,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021607.jpg" />
 </div>
 
 
@@ -209,7 +183,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021538.jpg" />
 </div>
 
 
@@ -238,7 +212,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020248.jpg" />
 </div>
 
 
@@ -267,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020216.jpg" />
 </div>
 
 
@@ -296,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019903.jpg" />
 </div>
 
 
@@ -325,7 +299,7 @@ Andy White - Himself (1990) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Folk Rock, I
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019454.jpg" />
 </div>
 
 
@@ -354,7 +328,7 @@ Late - Saw, Sine, Square / Voices From The Night (2009) Disfigured Dubz [FLAC 2.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010961.jpg" />
 </div>
 
 
@@ -381,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010281.jpg" />
 </div>
 
 
@@ -410,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009893.jpg" />
 </div>
 
 
@@ -439,7 +413,7 @@ Jean-Michel Jarre - Oxygene 3 (2016), Europe [FLAC 2.0|96/24|tracks +.cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009773.jpg" />
 </div>
 
 
@@ -468,7 +442,7 @@ Rudolf Dasek - Dialogues (1979) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Free Jaz
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007305.jpg" />
 </div>
 
 
@@ -497,7 +471,7 @@ London Symphony Orchestra, Valery Gergiev - Рахманинов, Стравин
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006084.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ Fleetwood Mac – Rumours (1977) 2011 [DTS 5.1 CD-DA|44.1/16|image+.cue|SACD] <P
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005065.jpg" />
 </div>
 
 
@@ -555,7 +529,7 @@ Ray Conniff - The Happy Sound Of Ray Conniff & Love Story (2019) 1974, 1971 [DTS
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003685.jpg" />
 </div>
 
 
@@ -584,7 +558,7 @@ Ray Conniff - Laughter in the Rain & Love Will Keep Us Together (2017) 1975 [DTS
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002912.jpg" />
 </div>
 
 
@@ -613,7 +587,7 @@ Ray Conniff - Theme From S.W.A.T. & Send In The Clowns (2017) 1976 [DTS 4.0 CD-D
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002667.jpg" />
 </div>
 
 
@@ -642,7 +616,7 @@ Ray Conniff - Alone Again & Love Theme From The Godfather (2017) 1972 [DTS 4.0 C
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002642.jpg" />
 </div>
 
 
@@ -671,7 +645,7 @@ Jon & Vangelis - The Best Of (1993) Unofficial Release [FLAC 2.0|48/24|image +.c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001742.jpg" />
 </div>
 
 
@@ -700,7 +674,7 @@ Fleetwood Mac – Rumours (1976) /2011 Remaster/ [DST 2.0, 5.1 1bit/2822,4kHz |S
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000318.jpg" />
 </div>
 
 
@@ -735,7 +709,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998808.jpg" />
 </div>
 
 
@@ -746,6 +720,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B425FAEE41CF5FDE429FC176AA2755AD8CE431AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600384   (998771) от 08.01.2013
+
+The Cranberries - 5 альбомов (1993-1999, 2012) [FLAC 2.0 24/192 |image + .cue, tracks (Vinyl-Rip)]<Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Alternative RockПродолжительность: 00:44:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E2A1F65E223090CB68905398BACEA62AF0D4CB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

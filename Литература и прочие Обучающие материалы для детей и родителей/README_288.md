@@ -1,3 +1,58 @@
+###  Публикация: 947690   (417683) от 17.10.2015
+
+С. А. Матвеев, Д. Л. Абрагин (сост.) | Красавица и чудовище. Золушка. Спящая красавица. Рапунцель. Волшебная лампа Аладдина / The Beauty and the Beast. Cinderella. The Sleeping Beauty. Rapunzel. Th ...
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417683.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящий сборник вошли самые известные и любимые волшебные сказки: «Красавица и чудовище», «Золушка», «Спящая красавица», «Рапунцель» и «Волшебная лампа Аладдина». Тексты произведений сокращены, адаптированы для начинающих изучать английский язык (уровень 1 – Elementary) и снабжены комментариями, объясняющими значение различных словосочетаний. Также каждая сказка (   Читать дальше...   )Жанр: Сказки, английский языкФормат: FB2, RTF, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D254EBDC93F709EA289079DAA7D9C4A258C39F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959721   (417651) от 29.09.2020
+
+Анастасия Петрова, Ирина Орлова | Самый лучший самоучитель английского языка (2015) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417651.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами переработанное издание одного из лучших самоучителей по английскому языку известного педагога и методиста А.В.Петровой.
+Книга поделена на 3 части:
+"Экспресс-курс английского языка" - кратко и систематизировано дается основной грамматический и словообразовательный материал;
+"Сборник упражнений" - содержит упражнения к урокам экспресс-курса, (   Читать дальше...   )Жанр: Иностранный языкФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E89F9CF691108B9EA62B7CB30BDA0F75162E0164
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1412504   (417643) от 29.09.2020
 
 Алексей Толпыго | Нестандартные задачи из запасников математических олимпиад (2018) [PDF]
@@ -6,7 +61,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417643.jpg" />
 </div>
 
 
@@ -33,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417200.jpg" />
 </div>
 
 
@@ -60,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417189.jpg" />
 </div>
 
 
@@ -87,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417108.jpg" />
 </div>
 
 
@@ -115,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417103.jpg" />
 </div>
 
 
@@ -142,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417048.jpg" />
 </div>
 
 
@@ -168,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417017.jpg" />
 </div>
 
 
@@ -196,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416479.jpg" />
 </div>
 
 
@@ -222,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416188.jpg" />
 </div>
 
 
@@ -248,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416162.jpg" />
 </div>
 
 
@@ -275,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416139.jpg" />
 </div>
 
 
@@ -301,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416037.jpg" />
 </div>
 
 
@@ -327,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416001.jpg" />
 </div>
 
 
@@ -355,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415960.jpg" />
 </div>
 
 
@@ -382,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415891.jpg" />
 </div>
 
 
@@ -410,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415889.jpg" />
 </div>
 
 
@@ -437,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415741.jpg" />
 </div>
 
 
@@ -466,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415726.jpg" />
 </div>
 
 
@@ -495,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415711.jpg" />
 </div>
 
 
@@ -521,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415696.jpg" />
 </div>
 
 
@@ -549,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415506.jpg" />
 </div>
 
 
@@ -576,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415505.jpg" />
 </div>
 
 
@@ -602,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415431.jpg" />
 </div>
 
 
@@ -628,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415294.jpg" />
 </div>
 
 
@@ -639,61 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC1A2B5C94F434D4E0CDD0CF18B7D52CAA4D0A5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947921   (415227) от 18.10.2015
-
-Г.Т. Егораева | ОГЭ 2016. Русский язык. 9 класс. Основной государственный экзамен. Типовые тестовые задания (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415227.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие содержит 10 вариантов типовых тестовых заданий Основного государственного экзамена.
-Назначение пособия — отработка практических навыков учащихся при подготовке к экзамену (в новой форме) в 9 классе по русскому языку.
-В сборнике даны ответы на все варианты тестов.Жанр: Образовательная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4031A602938C33C29B887BE4D61456DD0A21DD64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946729   (415218) от 18.10.2015
-
-Ю. Б.Голицынский | Английский язык. Грамматика. Сборник упражнений (2011) [DOCX]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный документ не является точной копией печатного варианта - это его электронный версия.
-Сборник упражнений по всем разделам английской грамматики. Упражнения основаны на несложной лексике. Они содержат достаточно материала для запоминания основных грамматических форм и выработки навыков их применения. Дополнен теоретическим материалом и словарем.Жанр: Сборник упражненийФормат: DOCX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:179064EFE9F9427BB21C50FA91A9F5287B577D17
 ```
 
 https://mybot314.ru/tekegram_catalog/

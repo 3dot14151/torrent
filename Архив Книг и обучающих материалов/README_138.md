@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443440.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443420.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443236.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_443219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_443219.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443131.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443108.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442956.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442954.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442950.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442768.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442761.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442699.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442610.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442255.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442152.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Slurm (Слёрм), Марсель Ибраев и др. | Docker: from zero to 
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442101.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442062.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442059.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442052.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441979.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ BodyRock | The Daily HIIT 2 (2016) WEBRip [H.264/1080p-LQ] [EN]
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441779.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441776.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ BodyRock | The Daily HIIT 1 (2016) WEBRip [H.264/1080p-LQ] [EN]
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441774.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441538.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441533.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441084.jpg" />
 </div>
 
 

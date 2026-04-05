@@ -1,3 +1,55 @@
+###  Публикация: 1819431   (1512) от 22.09.2025
+
+FATE: Reawakened (2025) [Multi] (1.0.3) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fate: Reawakened - это сборник из четырёх экшен-РПГ, куда входят оригинальная Fate (2005) и её продолжения: Undiscovered Realms, The Traitor Soul и The Cursed King. Все части серии объединяет схожий геймплей: мы спускаемся в подземелья, битком набитые разномастными монстрами, и крошим их в капусту. То есть всё сводится к беготне по процедурно генерируемым подземельям (   Читать дальше...   )Тип издания: LicenseРазработчик: gamigo US, Tableflip EntertainmentЖанр: Ролевые игрыЯзык озвучки: Английский, Французский, Немецкий, Японский и другиеЯзык субтитров: Английский, Французский, Немецкий, Японский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD0E8CDBD8DB8165345DF9706CACA014A1718FCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777216   (1395) от 23.09.2025
+
+Kingdom Come: Deliverance II (2025) [Ru/Multi] (1.4.1/dlc) Repack Let'sРlay [Gold Edition]
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kingdom Come: Deliverance II - захватывающий сюжетный ролевой экшен с богатым открытым миром, действие которого разворачивается в Европе XV века. Взгляните на средневековую жизнь глазами молодого Индржиха из Скалицы - обычного человека с необычной судьбой, который начал свой путь «из кузнецов в королевский двор» в поисках отмщения за предательство, исследуя прекрасное, (   Читать дальше...   )Тип издания: RepackРазработчик: Warhorse StudiosЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2608A5FCC436A71458E5F8F3D6C45E0209BF4DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1814969   (1384) от 23.09.2025
 
 Hell Clock (2025) [Ru/Multi] (1.0.3 HF4/dlc) Repack Let'sРlay [Supporter Edition]
@@ -6,7 +58,7 @@ Hell Clock (2025) [Ru/Multi] (1.0.3 HF4/dlc) Repack Let'sРlay [Supporter Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1384.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Star Valor (2022) [Ru/Multi] (2.2.2e/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1380.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Reality Break (2025) [Multi] (1.1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1373.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ You Will Die Here Tonight (2023) [Multi] (1.1.3.1_b) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1349.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (179243/dlc) Repack Wanterlude [Delux
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1262.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ The Legend of Heroes: Trails through Daybreak II (2025) [Multi] (1.2.15/dlc) Lic
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1258.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (179243/dlc) Repack Let'sРlay [Delux
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1250.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Warhammer 40,000: Space Marine (2025) [Ru/Multi] (1.0.1041.4326/dlc) Repack Want
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1216.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Elden Ring Nightreign (2025) [Ru/Multi] (1.02.3/dlc) Repack SE7EN [Deluxe Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1112.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Lies of P (2023) [Ru/Multi] (1.12.0.0/dlc) Repack Let'sРlay [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1082.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Crashlands 2 (2025) [Ru/Multi] (1.3.0-rc.2) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1080.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Kingdom Come: Deliverance II (2) (2025) [Ru/Multi] (1.4.37/dlc) License GOG [Gol
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_930.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Core Keeper (2022) [Ru/Multi] (1.1.2.4-fb3f) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_730.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.1.0b/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_725.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Hellcard (2024) [Ru/Multi] (1.1.250807/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_680.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Achilles: Legends Untold (2023) [Ru/Multi] (1.8.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_672.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Knock on the Coffin Lid (2020) [Ru/Multi] (1.3.5.3/dlc) License GOG [Complete Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_668.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Wartales (2021) [Ru/Multi] (1.0.43355/dlc) Repack seleZen [The Mercenaries Editi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_657.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Wartales (2021) [Ru/Multi] (1.0.43382 HF2/dlc) Repack Let'sРlay [The Mercenarie
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_449.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Atelier Yumia: The Alchemist of Memories & The Envisioned Land (2025) [Ru/Multi]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_444.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Achilles: Legends Untold (2023) [Ru/Multi] (1.8.0/dlc) Repack Let'sРlay [Soundt
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_421.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Seal of Evil (2006) [En] (1.06) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_323.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Alaloth: Champions of The Four Kingdoms (2022) [Ru/Multi] (2025.07.14.17f5b0a/dl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_190.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Wandering Sword (2023) [Multi] (1.24.30/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Wandering Sword - это уникальная РПГ с элементами к�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E1F6932897615EEC669D1B1372670FC5E44E9D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727675   (162) от 29.09.2025
-
-Coromon (2022) [Ru/Multi] (1.4.1) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Coromon – ролевое инди-приключение про приручение животных для их дальнейших поединков между собой, по типу Покемонов. Этот проект использует раритетное пиксельное визуальное оформление как дань уважения игровой индустрии прошлого века. Камера находится под углом для создания изометрического взгляда на окружающий мир, который гораздо более осматривается при таком (   Читать дальше...   )Тип издания: LicenseРазработчик: TRAGsoftЖанр: Приключенческие игры, Инди, Ролевые игры, СтратегииЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F8FEE0BFDD99B37929494B5FDD931FFA37F49C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717615   (159) от 29.09.2025
-
-Wartales (2021) [Ru/Multi] (1.0.43355/dlc) Scene Rune
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wartales - ролевое приключение в открытом мире, предлагающее возглавить свою команду наемников, чтобы отправиться на поиски сокровищ. События развиваются в средневековом фэнтезийном мире. Требуется путешествовать континентами, нанимать сопартийцев, исследовать древние гробницы и собирать награды. Сюжет начинается с падения великой Империи Эдоран. Королевство охватила (   Читать дальше...   )Тип издания: SceneРазработчик: Shiro GamesЖанр: Ролевая игра, ПошаговаяЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47550133360A506BBCCE21F64E55D292CC9FAA27
 ```
 
 https://mybot314.ru/tekegram_catalog/

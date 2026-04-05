@@ -1,3 +1,32 @@
+###  Публикация: 1634129   (233738) от 18.05.2023
+
+Watermedia, Татьяна Ширбидова | Акварельные практики (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233738.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новые уроки из курса СВЕТ 2023г
+
+Преподаватель: художник-иллюстратор, член Союза художников России Татьяна Ширбидова.
+В курсе СВЕТ мы идём на новый уровень! Изучаем световые эффекты и учимся передавать их в работах с помощью знаний из цветоведения и колористики. Для того, чтобы лучше понимать, почему мы видим свет именно так, а не иначе, в курсе есть лекции по физике (   Читать дальше...   )Производство: WatermediaЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 06:56:56Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ED0009D9062DF3F32D607FB44FCF556F6445E22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1634097   (233724) от 18.05.2023
 
 Skillshare, Tortor Smith | Stop Motion Cooking: How To Cut Anything (Even Batteries) (2023) WEB-DL [EN / EN Sub]
@@ -6,7 +35,7 @@ Skillshare, Tortor Smith | Stop Motion Cooking: How To Cut Anything (Even Batter
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233724.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Enterclass, Ольга Гусева | Весна (2023) WEB-DL [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233699.jpg" />
 </div>
 
 
@@ -63,7 +92,7 @@ EC-Council, Greg Hirsch | Certified Ethical Hacker CEH v11 (2021) PCRec [AD] [EN
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233698.jpg" />
 </div>
 
 
@@ -89,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233617.jpg" />
 </div>
 
 
@@ -118,7 +147,7 @@ Freelance Mastery, Brad Traversy, Kyle Prinsloo | Freelance Mastery For Develope
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233579.jpg" />
 </div>
 
 
@@ -145,7 +174,7 @@ Pixel Front, Wesley Versteeg | An introduction to vellum grains, RBD & colliders
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233543.jpg" />
 </div>
 
 
@@ -171,7 +200,7 @@ Allegorithmic, Daniel Thiger | Creating Photorealistic Procedural Materials in S
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233527.jpg" />
 </div>
 
 
@@ -197,7 +226,7 @@ The Gnomon Workshop, Jason Shum | Combat Animation for Games (2017) PCRec [EN, R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233519.jpg" />
 </div>
 
 
@@ -223,7 +252,7 @@ CGMA, Nicolas Weis | Environment Design for Animation Workshops (2016) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233509.jpg" />
 </div>
 
 
@@ -249,7 +278,7 @@ The Gnomon Workshop, Vitaly Bulgarov | Robotic 3D Design for Entertainment (2018
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233480.jpg" />
 </div>
 
 
@@ -275,7 +304,7 @@ Udemy, Maximilian Schwarzmüller | JavaScript Unit Testing - The Practical Guide
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233465.jpg" />
 </div>
 
 
@@ -304,7 +333,7 @@ Udemy, Anthony Alicea | Understanding HTML and CSS (2022) WEB-DL [EN / EN Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233438.jpg" />
 </div>
 
 
@@ -330,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233371.jpg" />
 </div>
 
 
@@ -356,7 +385,7 @@ Udemy, Lindsay Marsh | Graphic Design Masterclass - Learn GREAT Design (2022) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233297.jpg" />
 </div>
 
 
@@ -385,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233170.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Cut&Sew | Курс Нижнее бельё 2.0 (2022) WEB-DL
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233120.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ Pluralsight, Sophie Jameson | CINEMA 4D UV Mapping Fundamentals (2018) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233094.jpg" />
 </div>
 
 
@@ -465,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233076.jpg" />
 </div>
 
 
@@ -494,7 +523,7 @@ O’Reilly, LiveLessons, Omar Santos | The Complete Cybersecurity Bootcamp (2019
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232969.jpg" />
 </div>
 
 
@@ -520,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232914.jpg" />
 </div>
 
 
@@ -549,7 +578,7 @@ Sketchpark, Мария Мусиенко | Запредельная иллюст�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232735.jpg" />
 </div>
 
 
@@ -576,7 +605,7 @@ CG Cookie, Kent Trammell | Short Film Character Production in Blender (Creating 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232710.jpg" />
 </div>
 
 
@@ -603,7 +632,7 @@ Thinknetica Pro, Евгений Фатеев | Подготовка к собе�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232705.jpg" />
 </div>
 
 
@@ -630,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232677.jpg" />
 </div>
 
 
@@ -658,7 +687,7 @@ Engheadstart, Анастасия Черниговская, Яна Бутырск
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232653.jpg" />
 </div>
 
 
@@ -672,32 +701,6 @@ Engheadstart, Анастасия Черниговская, Яна Бутырск
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC199F773E86EE1645EC4719BE211D177A27AD2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579562   (232648) от 27.09.2022
-
-Udemy, Roman Dushkin | Перцептроны (2022) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232648.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы, наверно, знаете, что перцептрон Розенблатта, изобретённый в середине XX века, стал прообразом современных искусственных нейронных сетей. Однако многое из того, что известно нам о нём и его создателе, не соответствует действительности. Перцептрон сегодня — математическая или компьютерная модель восприятия информации мозгом. Важным свойством перцептронов является (   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 06:19:26Реклама: Присутствуют наложения на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFAE97FD25876E6B7E2165F698EB77A52680A6C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

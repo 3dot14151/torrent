@@ -6,7 +6,7 @@ Fausto Ferraiuolo Trio - Il Dono (2019) Abeat Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590246.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Luigi Martinale French Trio - Mercj (2019) Abeat Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590245.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Kammerflimmer Kollektief - Teufelskamin (2011) [FLAC|Lossless|tracks + .cue] <Nu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590239.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Kammerflimmer Kollektief - Désarroi (Desarroi) (2015) [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590227.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Nils Gessinger - Pass-ion (2011) [FLAC|tracks+.cue]<Jazz, Funk, Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590001.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Woody Herman - Four Classic Albums (1958 - 1962) 2CD, 2015, Avid Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589781.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Melanie Durrant - Anticipation (2015) [FLAC|tracks+.cue]<Funk, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589609.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Charenee Wade - Offering: The Music of Gil Scott-Heron & Brian Jackson (2015) [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589568.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Charnett Moffett - Internet (2006) Piadrum Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589433.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Charnett Moffett - For The Love Of Peace (2004) Piadrum Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589431.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Charnett Moffett - Beauty Within (1989) Blue Note Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589398.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Buddy De Franco (DeFranco) - The Complete Verve Recordings Of The Buddy De Franc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589001.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Oscar Peterson - The Classic Verve Albums Collection (1957 - 1962) 4CD, 2018, En
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588524.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Allan Holdsworth - Дискография 21 альбом (1976-2009) 23 CD [Wav
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588296.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Eric Seva - Nomade Sonore (2015) Gaya Music Production [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588198.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Arild Andersen, Clive Bell, Mark Wastell - Tales Of Hackney (2019) [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588195.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Cotonete - Super-vilains (2019) [FLAC|Lossless|tracks + .cue] <Funk, Soul, Jazz-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588193.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Harold Land - Take Aim (1960) /2012, Blue Note/[FLAC|tracks+.cue]<Jazz, Hard Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588077.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Bobby Hutcherson - The View From The Inside (1976) /2013, Blue Note/[FLAC|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588076.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Maysa - Back 2 Love (2015) [FLAC|tracks|WEB-DL]<Smooth Jazz, R&B, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587996.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Scott Henderson · Gary Willis & Tribal Tech - Primal Tracks (1994) 2008 Compila
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587524.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Chris Standring - Soul Express (2006) [FLAC|Lossless|image + .cue] <Crossover Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587467.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Andrew Hill - Andrew!!! (1964) /2015, Universal/[FLAC|tracks+.cue]<Jazz, Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587030.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Charles Earland - Leaving This Planet (1973) /2014, Universal/[FLAC|tracks+.cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587029.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ Zoot Sims - Tenorly (1950/1953) /1993, Disques Vogue/[FLAC|tracks+.cue]<Jazz, Ma
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586983.jpg" />
 </div>
 
 
@@ -734,7 +734,7 @@ Rebecca Kilgore - Make Someone Happy (2005) Audiophile Records [FLAC|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586813.jpg" />
 </div>
 
 

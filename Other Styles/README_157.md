@@ -1,3 +1,61 @@
+###  Публикация: 1515091   (170318) от 06.12.2021
+
+VA - Гармонь России 2 (2006) [FLAC|Lossless|tracks + .cue] <Фольклор, Русские народные песни>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Митрофановна - Сыпал снег буланому под  ноги (3:41)
+02. Митрофановна - Облепиха (3:50)
+03. Митрофановна - Вдовушки (3:16)
+04. Златые горы - Кобели (4:46)(   Читать дальше...   )Жанр: Фольклор, Русские народные песниПродолжительность: 00:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C900E717E4614C9826321DB7DCB882A09FB14E32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595844   (169859) от 10.12.2022
+
+Rome - Hegemonikon - A Journey to the End of Light (2022) [FLAC|Lossless|WEB-DL|tracks] <Martial Industrial, Neofolk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Slaughter of Crows [00:04:49]
+02. No Second Troy [00:03:21]
+03. Icarus Rex [00:04:30]
+04. Surely Ash [00:03:45](   Читать дальше...   )Жанр: Martial Industrial, NeofolkПродолжительность: 00:37:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C5BD8E37C69A688C6CD360E2744D7D909875CC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595409   (169849) от 10.12.2022
 
 Dari Veter (Дари Ветер) - Времена Года Сего (2022) [FLAC|Lossless|WEB-DL|tracks] <Neofolk, Etherial, Pagan, Ambient>
@@ -6,7 +64,7 @@ Dari Veter (Дари Ветер) - Времена Года Сего (2022) [FLAC
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169849.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Derniere Volonte - Cristal (2022) [FLAC|Lossless|WEB-DL|tracks] <Neofolk, Synthp
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169837.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ African Imperial Wizard - 4 Albums (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <In
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169782.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Rodrigo Y Gabriela - 11:11 (2010) [MP3|320 Kbps] <Latin, Folk>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169734.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Tarantinomania (1999) 2CD Digipack Edition [FLAC|Lossless|image + .cue] <So
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169343.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Faith Hill - Faith (1998) Warner 9 46790-2 [FLAC|Lossless|image + .cue]<Contempo
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168819.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Ottmar Liebert - Nouveau Flamenco  (1990) [MP3|320 kbps] <Flamenco>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168752.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Wuauquikuna - Collection (2021) 2альбома [MP3|320 Kbps] <Native American,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168515.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Лучшие гармонисты России (2012) [MP3|224 Kbps] <Ру�
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168482.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Mitchell Gaynor M.D. - Crystal Sonic Sound Sleep (2013) [FLAC|Lossless|tracks + 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168244.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ John Debney - Один дома / Home Sweet Home Alone (2021) [MP3|320 Kbps] <S
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168200.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167975.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Shinnobu - The Enigma VI (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167252.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Shinnobu - The Enigma VII (Star Seeds) (2019) [FLAC|Lossless|WEB-DL|tracks] <New
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167218.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Shinnobu - The Enigma IV (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Spiritua
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167117.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Estas Tonne - 27 Синглов (2006-2020) [FLAC|Lossless|WEB-DL|tracks] <Instr
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166672.jpg" />
 </div>
 
 
@@ -469,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166597.jpg" />
 </div>
 
 
@@ -498,7 +556,7 @@ Estas Tonne - 16 Альбомов (2002-2020) [FLAC|Lossless|tracks] <Instrument
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166545.jpg" />
 </div>
 
 
@@ -527,7 +585,7 @@ Sean Kolton - MechWarrior 5: Mercenaries Digital Deluxe Edition (2019)  [MP3|320
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166481.jpg" />
 </div>
 
 
@@ -556,7 +614,7 @@ Sexy Saxophone Christmas Band - A Sexy Sax Christmas - Sensual Instrumental Favo
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165955.jpg" />
 </div>
 
 
@@ -585,7 +643,7 @@ Daniel Deluxe - Ghostrunner (2020) Original Soundtrack [FLAC|Lossless|WEB-DL|tra
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165133.jpg" />
 </div>
 
 
@@ -614,7 +672,7 @@ Jean Michel Jarre - Images: The Best Of Jean Michel Jarre (1991) Compilation, Re
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165012.jpg" />
 </div>
 
 
@@ -643,7 +701,7 @@ Ulvesang - Ulvesang (2015) [FLAC|Lossless|Web-DL|tracks] <Folk, Ambient, Dark Fo
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164964.jpg" />
 </div>
 
 
@@ -672,7 +730,7 @@ Ulvesang - The Hunt (2018) [FLAC|Lossless|Web-DL|tracks] <Folk, Black Metal, Dar
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164928.jpg" />
 </div>
 
 
@@ -686,64 +744,6 @@ Ulvesang - The Hunt (2018) [FLAC|Lossless|Web-DL|tracks] <Folk, Black Metal, Dar
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A77C1A98773FC40462F10A33F7E47FBEA2EDA746
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597612   (164875) от 16.12.2022
-
-VA - Country Rock Hits (2021) [FLAC|Lossless|WEB-DL|tracks] <Country Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164875.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eric Church -- Record Year (2:59)
-02. Maddie & Tae -- Die From A Broken Heart (3:08)
-03. Shane Nicholson -- Little Mascara (3:40)
-04. Florida Georgia Line -- H.O.L.Y. (3:17)(   Читать дальше...   )Жанр: Country RockПродолжительность: 37:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:762807CFB0F83C5A43C8E3ADF77C509D97154F40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 262009   (164710) от 17.12.2019
-
-Oliver Shanti and Friends - Discography (1987-2006) [FLAC|Lossless]<New Age / Ethnic / Meditative>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morning Joy
-02. To Her
-03. Naf Dhun
-04. Hazarat Inayat Love(   Читать дальше...   )Жанр: New Age / Ethnic / MeditativeПродолжительность: 01:01:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83EB9BA4626D1E2AAEBBD75163C7B83D7E16ADB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

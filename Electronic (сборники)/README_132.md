@@ -1,3 +1,67 @@
+###  Публикация: 935424   (499555) от 08.09.2015
+
+VA - Hybrid ElectriX Extremely (2015) [MP3|211-320 кб/с]<Breaks, Electro, House, Club, Bigroom, Dub>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bottai - L'enfant (Original Mix) 05:30
+02. Arma - Reckless (Original Mix) 05:02
+03. Catalin Bodnar - Infinity (Original Mix) 04:40
+04. Beat Maniacs - Hypnotized (Original Mix) 05:23(   Читать дальше...   )Жанр: Breaks, Electro, House, Club, Bigroom, DubПродолжительность: 10:26:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:257F9967DD7B09D059B77902C28FE2DB47B9B808
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 542339   (499498) от 02.09.2012
+
+VA - Kiss FM - Top-40 (02.09.2012) [MP3|320 кб/с]<Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Parachute Youth - Can't Get Better Than This (Original Mix)
+ 02. Gotye - Somebody That I Used To Know (Dberrie Rmx)
+ 03. Armin van Buuren - Orbion
+ 04. Dada Life - Happy Violence (Vocal Extended Mix)
+ 05. Florence & The Machine - Spectrum (Calvin Harris rmx)
+ 06. Adam F - When The Rain Is Gone
+ 07. Orjan Nilsen - Amsterdam (Original Mix)
+ 08. Armin Van Buuren - We Are Here To Make Some Noise
+ 09. Skrillex & Members of The Doors - Breakn' A Sweat (Zedd Rmx)
+ 10. W&W & Bree - Nowhere To Go (Shogun Rmx)(   Читать дальше...   )Жанр: DanceПродолжительность: 03:34:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BBAAA871920418A6E77B22C5D6667BA1E11CC09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 935234   (499468) от 08.09.2015
 
 VA - Chilled Ballads (The Most Beautiful Sentimental Songs Ever) (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -6,7 +70,7 @@ VA - Chilled Ballads (The Most Beautiful Sentimental Songs Ever) (2015) [MP3|320
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499468.jpg" />
 </div>
 
 
@@ -35,7 +99,7 @@ VA - Lounge Music Cafe Chill (2015) [MP3|320 кб/с]<Downtempo, Chillout, Loung
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499463.jpg" />
 </div>
 
 
@@ -64,7 +128,7 @@ DJ Nil - My Buddha Mix (2012) [MP3|320 кб/с]<Deep House, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499412.jpg" />
 </div>
 
 
@@ -99,7 +163,7 @@ VA - Psy Ambiente (2019) [MP3|320 Kbps] <Ambient, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498621.jpg" />
 </div>
 
 
@@ -128,7 +192,7 @@ VA - Summer Tempted Dance House (2019) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498619.jpg" />
 </div>
 
 
@@ -157,7 +221,7 @@ VA - 2047 Spacehawk (2022) Compiled by mCITY [MP3|320 Kbps] <Spacesynth>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498526.jpg" />
 </div>
 
 
@@ -186,7 +250,7 @@ Various Artists - Guitars & Machines (1995) [MP3|192 кб/с]<EBM, Industrial>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498512.jpg" />
 </div>
 
 
@@ -215,7 +279,7 @@ VA - Best tracks of Way Out There by Jody Wisternoff, 2010-2011, Volume 3 (2022)
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498370.jpg" />
 </div>
 
 
@@ -244,7 +308,7 @@ VA - Clubbing Dance House (2019) [MP3|320 Kbps] <House, Electro, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498327.jpg" />
 </div>
 
 
@@ -273,7 +337,7 @@ VA - Record Super Chart 598 (2019) [MP3|320 Kbps] <Pop, House, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497758.jpg" />
 </div>
 
 
@@ -302,7 +366,7 @@ VA - Progressive Fresh House (2015) [MP3|320 кб/с]<Progressive, Club House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497658.jpg" />
 </div>
 
 
@@ -331,7 +395,7 @@ VA - The Chillout Players - Music For Chillout (2015) [MP3|320 кб/с]<Downtemp
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497581.jpg" />
 </div>
 
 
@@ -360,7 +424,7 @@ VA - Looking For The Summer (2015) [MP3|320 кб/с]<Funky, Club House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497576.jpg" />
 </div>
 
 
@@ -389,7 +453,7 @@ VA - Megalodon Bass (2015) [MP3|320 кб/с]<Drum and Bass, Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497522.jpg" />
 </div>
 
 
@@ -418,7 +482,7 @@ VA - Лучшая Музыка прямиком из Клубов (2015) [MP3|32
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497267.jpg" />
 </div>
 
 
@@ -447,7 +511,7 @@ VA - HarDD NRG OverDoZZe 8 (2022) Mixed by aQuaLuna [MP3|320 Kbps] <Trance, Hard
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496715.jpg" />
 </div>
 
 
@@ -476,7 +540,7 @@ VA - Summer Chill [DigiCom] (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496494.jpg" />
 </div>
 
 
@@ -505,7 +569,7 @@ VA - Unexpected Journey (2015) [MP3|128 кб/с]<Dance, Aсoustic, Folk, Indie, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496489.jpg" />
 </div>
 
 
@@ -534,7 +598,7 @@ VA - Disco Beach: Nu Disco House Original Mix (2017) [MP3|320 Kbps] <Nu Disco, H
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495687.jpg" />
 </div>
 
 
@@ -563,7 +627,7 @@ VA - Beatport Uplifting Trance: Electro Sound Pack #158 (2020) [MP3|192-320 Kbps
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495287.jpg" />
 </div>
 
 
@@ -592,7 +656,7 @@ VA - Chillout Top 100: The Best Relaxing Music Vol. 2 (2020) [MP3|320 Kbps] <Dow
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495056.jpg" />
 </div>
 
 
@@ -621,7 +685,7 @@ VA - Beatport Progressive Trance: Electro Sound Pack #157 (2020) [MP3|320 Kbps] 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494933.jpg" />
 </div>
 
 
@@ -650,7 +714,7 @@ VA - Beatport Tech House: Electro Sound Pack #153 (2020) [MP3|320 Kbps] <Tech Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494847.jpg" />
 </div>
 
 
@@ -679,7 +743,7 @@ VA - Beatport Trance: Electro Sound Pack #156 (2020) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494843.jpg" />
 </div>
 
 
@@ -693,64 +757,6 @@ VA - Beatport Trance: Electro Sound Pack #156 (2020) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74C7231EB8CE21026B09AFCFBAE9D8351BB9EC20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318463   (494696) от 06.08.2019
-
-VA - Лучшие Trance треки Ver.6 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cold Blue - Another Life (Original Mix) 7:31
-02. Maria Healy - Bay Breeze (Extended Mix) 6:41
-03. Fast Distance - Divine (Extended Mix) 5:13
-04. Ferry Tayle feat. Betsie Larkin - Live For Tomorrow (Extended Mix) 8:42(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal Trance, Progressive TranceПродолжительность: 05:34:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C925D345F22D31A09F94E703D9C0CAACE42F156
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318482   (494693) от 06.08.2019
-
-VA - Лучшие Trance треки Ver.8 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mike Saint-Jules - Parachuting (Vast Vision Remix) 7:23
-02. Jericho Frequency feat. Jennifer Rene - Holy Ground (Extended Mix) 8:20
-03. Talla 2XLC - Sensei (Original Mix) 6:00
-04. Chris SX - Fallin Under (Extended Mix) 8:21(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal Trance, Progressive TranceПродолжительность: 05:33:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45F3D78A25296BB45B5FE80E70B5B02055F6DF65
 ```
 
 https://mybot314.ru/tekegram_catalog/

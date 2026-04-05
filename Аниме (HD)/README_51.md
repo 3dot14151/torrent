@@ -6,7 +6,7 @@ Wind Breaker | Ветролом [2024, TV, 13 эп.] WEBRip 720 raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51770.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mahouka Koukou no Rettousei (2024) | Непутевый ученик в школ
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51769.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ The New Gate | Новые врата [2024, TV, 12 эп.] WEBRip 720 raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51551.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Tonari no Youkai-san | Ёкаи по соседству [2024, TV, 13 эп.] Web
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51539.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Hibike! Euphonium 3 | Sound! Euphonium 3 | Играй, эуфониум! [ТВ-3
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51511.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Boukyaku Battery | Oblivion Battery | Забвение баттери [2024, TV,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51214.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Maou Gakuin no Futekigousha II | The Misfit of Demon King Academy II | Непр�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48950.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Isekai Suicide Squad | Отряд самоубийц в другом мире [2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46524.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Maou Gun Saikyou no Majutsushi wa Ningen datta / Сильнейший маг а�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43960.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Bye Bye, Earth / Пока, Земля [2024, TV, 10] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43716.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Boku no Tsuma wa Kanjou ga Nai | My Wife Has No Emotion | У моей жены �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43614.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Mob kara Hajimaru Tansaku Eiyuutan / A Nobody's Way Up to an Exploration Hero / 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43612.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Isekai Yururi Kikou: Kosodate Shinagara Boukensha Shimasu / Приключени
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43506.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Megami no Cafe Terrace 2 / The Cafe Terrace and Its Goddesses 2 / Терраса
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43093.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Gimai Seikatsu / Days with My Stepsister / Жизнь со сводной сес
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43088.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Dead Dead Demon's Dededede Destruction | Мёртвые-мёртвые демо�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43007.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Giji Harem | Pseudo Harem | Псевдогарем [2024, TV, 12 из 12] WEBRip
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42989.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Ore wa Subete o Parry Suru: Gyaku Kanchigai no Sekai Saikyou wa Boukensha ni Nar
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42981.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Madougushi Dahlia wa Utsumukanai / Dahlia in Bloom: Crafting a Fresh Start With 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42877.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Karasu wa Aruji o Erabanai | Yatagarasu: The Raven Does Not Choose Its Master | 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42875.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Nanare Hananare / Narenare: Cheer for You! / Слушайте Хананарэ [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42783.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ VTuber Nanda ga Haishin Kiriwasuretara Densetsu ni Natteta / Легенда о �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42775.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Shinmai Ossan Boukensha, Saikyou Party ni Shinu Hodo Kitaerarete Muteki ni Naru.
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42700.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Mayonaka Punch | Полуночный удар [2024, TV, 12 эп.] WEBRip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42679.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Katsute Mahou Shoujo to Aku wa Tekitai Shite Ita. | The Magical Girl and the Evi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42599.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Isekai Shikkaku / No Longer Allowed in Another World / Потеря челове
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42586.jpg" />
 </div>
 
 

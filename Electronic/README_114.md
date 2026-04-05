@@ -1,3 +1,61 @@
+###  Публикация: 1116185   (824977) от 19.03.2017
+
+VA - Abstract Deep Space Pt.2 (2017) [MP3|320 Kbps] <Progressive House,House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SeamLess Beat - Coded - Ilya Gerus's Nagual Remix
+02. Subarctica - This Is Nothingness - Following Light Remix
+03. Kevin Saw - Recognition - Alejandro Manso Remix
+04. Adrian Roman - Inorganic(   Читать дальше...   )Жанр: Progressive House,HouseПродолжительность: 04:00:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CBD8412560FA69385AB99E06A503E5DAE1D228A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502714   (824851) от 16.10.2021
+
+VA - Black Hole Trance Music 10-21 (2021) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Gate & Diana Miro - Nothing To Hide (Extended Mix) [6:32]
+02. Steve Brian - Half Moon Bay (Extended Mix) [6:43]
+03. Cold Blue - Shine (Alex Di Stefano Extended Remix) [8:33]
+04. Richard Durand & Sarah De Warren - Made Of Stone (Extended Mix) [5:43](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:48:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:733CFAC62FA0FA9C85E98CFC7595FEE2B9525D77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1502862   (824843) от 16.10.2021
 
 Miss Monique - FGIX (2020) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Melodic Techno>
@@ -6,7 +64,7 @@ Miss Monique - FGIX (2020) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824843.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Sweet & Tender Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|trac
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824698.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Sirup Deep Anthems Miami (2017) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824564.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Mykonos Chillout Cafe - Feelings Del Mar, Vol. 1-5 (2007-2010) [FLAC|Lossle
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824473.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Nu Disco, Volume 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Nu Disco, Deep Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824439.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Calm Morning Vol.1 (2017) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824241.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Yoshitoshi: Best Of 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824235.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Bodybuilding Music Top 100 For 2018! [MP3|320 Kbps] <Tech House, Funky, Clu
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824142.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Liquid Bloom - ReGen: Lucid Remixes (2017) [FLAC|Lossless|WEB-DL|tracks] <Downte
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824132.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Running Music 2018 [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824123.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Zero Cult - Discography (12 Releases) (2006-2015) [MP3|320 кб/с]<Downtempo, P
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824072.jpg" />
 </div>
 
 
@@ -324,7 +382,7 @@ Real Life - Send Me An Angel • '80s Synth Essentials (2009) Compilation [FLAC|
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824013.jpg" />
 </div>
 
 
@@ -353,7 +411,7 @@ Bob Moses - Days Gone By (Never Enough Edition) (2016) [FLAC|Lossless|WEB-DL|tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823888.jpg" />
 </div>
 
 
@@ -382,7 +440,7 @@ VA - Progressive Line (2016) [MP3|320 кб/с] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823646.jpg" />
 </div>
 
 
@@ -411,7 +469,7 @@ VA - Progressive Line Vol.3 (2016) [MP3|320 кб/с] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823645.jpg" />
 </div>
 
 
@@ -440,7 +498,7 @@ VA - Dangerous Dance Vol.1 (2016) [MP3|320 кб/с] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823641.jpg" />
 </div>
 
 
@@ -469,7 +527,7 @@ VA - Electronic Positivity Dance Plus Vol.2 (2016) [MP3|320 кб/с] <House, Clu
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823633.jpg" />
 </div>
 
 
@@ -498,7 +556,7 @@ VA - Psychedelic Goa Trance 2016 Vol 1 (40 Best Of Top Hits) (2016) [MP3|320 к�
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823389.jpg" />
 </div>
 
 
@@ -527,7 +585,7 @@ Gabriel and Dresden - Toolroom Knights Mix2 (2007 original) [MP3|256 kbps]<House
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_823256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_823256.jpg" />
 </div>
 
 
@@ -562,7 +620,7 @@ VA - Total Trance Selections Vol.03 (2017) [MP3|320 Kbps] <Trance, Uplifting Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823101.jpg" />
 </div>
 
 
@@ -591,7 +649,7 @@ Klartraum - E (2016) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Minimal>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823020.jpg" />
 </div>
 
 
@@ -620,7 +678,7 @@ VA - Inner Balance Chillout Your Soul 1 (2017) [MP3|320 Kbps] <Downtempo, Chillo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823005.jpg" />
 </div>
 
 
@@ -649,7 +707,7 @@ VA - Pool House 2017 (Cool Deep House For The Poolside) (2017) [MP3|320 Kbps] <H
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823002.jpg" />
 </div>
 
 
@@ -678,7 +736,7 @@ Koan - Ohm (Side A.B) (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient,
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822913.jpg" />
 </div>
 
 
@@ -692,64 +750,6 @@ Koan - Ohm (Side A.B) (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABE59696ED53CF2E418E7518EE72386AE9985A88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381932   (822770) от 09.05.2020
-
-VA - 2020 Disco Party (2020) [FLAC|Lossless|WEB-DL|tracks] <Jackin' House, House, Nu-Disco, Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Audio Jacker - Party Time Again (Original Mix) (5:39)
-02. Disko Junkie - This Disko Feelin' (Original Mix) (5:20)
-03. Discotron - Only Foolin' Yourself (Original Mix) (5:26)
-04. Boogie Freaks - Everybody Jumpin' (Original Mix) (6:25)(   Читать дальше...   )Жанр: Jackin' House, House, Nu-Disco, DiscoПродолжительность: 01:11:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93BC13B0005811D28D1C31A8617001D8F313F6E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382076   (822663) от 09.05.2020
-
-VA - F....U Corona (2020) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Afro House, Progressive House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exei - Ornament (Original Mix) (6:27)
-02. Alessa Khin - Solo Moon (Extended Mix) (5:49)
-03. Sunchain - Santiago (Kay Aka Khalil Touihri, Karben Remix) (7:00)
-04. Lunaar - Sinda (Original Mix) (7:04)(   Читать дальше...   )Жанр: Deep House, Afro House, Progressive House, TechnoПродолжительность: 01:55:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C541F81D804AFCDF22E1813CD039D49E7FD2A714
 ```
 
 https://mybot314.ru/tekegram_catalog/

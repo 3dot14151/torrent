@@ -1,3 +1,61 @@
+###  Публикация: 1563611   (503821) от 15.07.2022
+
+Senses Fail - Hell Is In Your Head (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 The Burial of the Dead [00:03:18]
+02 End of the World_ A Game of Chess  [00:03:56]
+03 The Fire Sermon [00:03:25]
+04 I Am Error [00:03:52](   Читать дальше...   )Жанр: Post-HardcoreПродолжительность: 00:41:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:891A0D39F0790C2B9A289CDD221465A4D76FA23B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563813   (503816) от 15.07.2022
+
+Black Capricorn - Cult Of Blood (2022) [MP3|320 Kbps] <Psych, Stoner, Doom>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Secret Society of Seven
+02 Worshipping the Bizarre Reverend
+03 Giants of Prama
+04 Godsnake Djamballah(   Читать дальше...   )Жанр: Psych, Stoner, DoomПродолжительность: 00:43:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:623B454AAEB531083A21D7CE09F9F045EAE9F10E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1563810   (503812) от 15.07.2022
 
 Birth - Birth (2022) [MP3|320 Kbps] <Heavy Rock, Psych, Doom>
@@ -6,7 +64,7 @@ Birth - Birth (2022) [MP3|320 Kbps] <Heavy Rock, Psych, Doom>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503812.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Jack Starr's Burning Starr - Souls Of The Innocent (2022) [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503810.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Primal Fear - Primal Fear (1997) Deluxe Edition, Remastered, 2022 [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503727.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Jack Starr's Burning Starr - Souls Of The Innocent (2022) [MP3|320 Kbps] <Heavy 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503717.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Beth Hart - Livе Аt Тhе Rоуаl Аlbеrt Наll (2018) 2xCD [MP3|320 Kbps] 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503714.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Sinner - Brotherhood (2022) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503712.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Jeff Beck & Johnny Depp - 18 (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503619.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Freddie Mercury - In My Defence (1992) [FLAC|Lossless]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503598.jpg" />
 </div>
 
 
@@ -244,7 +302,7 @@ Chicago - Born for This Moment (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503526.jpg" />
 </div>
 
 
@@ -273,7 +331,7 @@ Behold! The Monolith - From The Fathomless Deep (2022) [MP3|320 Kbps] <Stoner, S
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503520.jpg" />
 </div>
 
 
@@ -302,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503516.jpg" />
 </div>
 
 
@@ -331,7 +389,7 @@ Orianthi - Live from Hollywood (2022) [FLAC 2.0|44/24|tracks|WEB-DL] <Hard Rock>
 >>Hard Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503422.jpg" />
 </div>
 
 
@@ -360,7 +418,7 @@ Katatonia - Dead End Kings (Limited Edition) (2012) [FLAC|Lossless]<Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503378.jpg" />
 </div>
 
 
@@ -395,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503349.jpg" />
 </div>
 
 
@@ -424,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503344.jpg" />
 </div>
 
 
@@ -453,7 +511,7 @@ DIO - Tournado (2010) 3CD, Box Set, Limited Edition) [WavPack|Lossless]<Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503331.jpg" />
 </div>
 
 
@@ -482,7 +540,7 @@ The Cars - Promo Box 6CD [Japan SHM-CD] (2012) [FLAC|Lossless]<Rock, New Wave, P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503244.jpg" />
 </div>
 
 
@@ -517,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503183.jpg" />
 </div>
 
 
@@ -546,7 +604,7 @@ Pink Floyd - The Wall (1979 (2 × CD, Reissue 1989, Remastered, 24Kt Gold CD, Bo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502985.jpg" />
 </div>
 
 
@@ -581,7 +639,7 @@ Lucid Grave - Cosmic Mountain (2022) [MP3|320 Kbps] <Heavy Psych, Stoner, Doom, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502765.jpg" />
 </div>
 
 
@@ -610,7 +668,7 @@ Josiah - We Lay On Cold Stone (2022) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502764.jpg" />
 </div>
 
 
@@ -639,7 +697,7 @@ Mirage - The Sequel (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502762.jpg" />
 </div>
 
 
@@ -668,7 +726,7 @@ True North - Out Loud (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502760.jpg" />
 </div>
 
 
@@ -697,7 +755,7 @@ Acacia - Tills döden skiljer oss åt (2013) Digipak, Limited edition [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502759.jpg" />
 </div>
 
 
@@ -711,64 +769,6 @@ Acacia - Tills döden skiljer oss åt (2013) Digipak, Limited edition [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F077031DC1EA51A462F5EB7CE1E6BC29FF897820
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563738   (502758) от 16.07.2022
-
-Graveshadow - The Uncertain Hour (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soldier Of 34
-02. Gwynnbleidd
-03. Sea Of Apparitions
-04. The Swordsman(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:51:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F55F8A7300EEED642D61F02648A6973FFE88ADD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563834   (502757) от 16.07.2022
-
-Celestial Wizard - Winds Of The Cosmos (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andromeda
-02. Revenant
-03. Ice Realm
-04. Powerthrone(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:43:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05BC355B716620B18A423336142B6A06A8708437
 ```
 
 https://mybot314.ru/tekegram_catalog/

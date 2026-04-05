@@ -6,7 +6,7 @@ Annie Barbazza - Vive (2020) [FLAC|Lossless|tracks + .cue] <Rock, Experimental, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801754.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Kele Okereke - Fatherland (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock, Elec
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801097.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ James Vincent McMorrow - True Care (2017) [FLAC|Lossless|tracks + .cue] <Indie R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801095.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Tori Amos - Ocean To Ocean (2021) [FLAC|Lossless|tracks + .cue] <Alternative, Po
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801052.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Ten Fe - Hit the Light (2017) [APE|Lossless|tracks + .cue] <Indie, Electronic>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800496.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Everything Everything - A Fever Dream (2017) [FLAC|Lossless|tracks + .cue] <Indi
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800406.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Fall Out Boy - M A N I A (2018) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800061.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Coldplay - Live in Buenos Aires (2018) Live album [FLAC|Lossless|tracks + .cue] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799398.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Limp Bizkit - Still Sucks (2021) [FLAC|Lossless|WEB-DL|tracks] <Nu Metal, Rapcor
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799383.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Nana Grizol - Ursa Minor (2017) [FLAC|Lossless|tracks + .cue] <Indie, Indie.Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798879.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ It Hugs Back - Inside Your Guitar (2009) [FLAC|Lossless|tracks + .cue] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798778.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ They Might Be Giants - The Escape Team (2018) [FLAC|Lossless|tracks + .cue] <Ind
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798775.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ The Cranberries - Greatest  Hits Platinum Collection (2000) Unofficial edition [
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798696.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Placebo - Meds (2006) Limited Edition CD+DVD [FLAC|Lossless|image + .cue] <Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796753.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Step Rockets - Future Nature (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796399.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Blue October - Home (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796298.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Emma Ruth Rundle - Engine of Hell (2021) [FLAC|Lossless|tracks + .cue] <Post Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796278.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Radiohead - Kid A Mnesia (2021) 3CD Compilation [FLAC|Lossless|tracks + .cue] <A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795480.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ The Gathering - Nighttime Birds (1997) 2CD remastered, 2008, limited edition [FL
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795456.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Interpol - Our Love To Admire (2007) Deluxe Edition [FLAC|Lossless|image + .cue]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795444.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Dylan Mondegreen - A Place in the Sun (2018) [FLAC|Lossless|tracks + .cue] <Indi
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794172.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Dave Gahan & Soulsavers - Imposter (2021) [FLAC|Lossless|WEB-DL|tracks] <Alterna
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793969.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Gordon Gano - Hitting The Ground (2002) (Violent Femmes frontman) [FLAC|Lossless
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793063.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ The Courteeners - St. Jude Re:Wired (2018) [FLAC|Lossless|tracks + .cue] <Indie 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793050.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Missy Higgins - The Special Ones (2018) Anthology [FLAC|Lossless|tracks + .cue] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793010.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Gorillaz - Humanz (2017) Pre-Release Tracks [FLAC|Lossless|WEB-DL|tracks] <Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792372.jpg" />
 </div>
 
 

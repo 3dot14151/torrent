@@ -1,3 +1,61 @@
+###  Публикация: 1279695   (765461) от 30.01.2019
+
+VA - Sounds Of Instruments_01 (Mixed by Hiroshi Watanabe) (2005) Mixed, Compilation [FLAC|Lossless|image + .cue] <Minimal, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seiichiro Tanaka - Evening Glow (4:58)
+02. Sora a.k.a. DJ SODEYAMA & GONNO - I'm Not (4:13)
+03. Soda Inc. - Morning Prayer (4:12)
+04. Takayuki Higo - Fractal (4:36)(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 01:10:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4641357732D54D9F653D3F039D7C8E2D9765B76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394161   (765433) от 03.07.2020
+
+VA - Sunny Day Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol - Bossalova (Original Mix)
+02. Schwarz, Funk - Fallen (Bossa Mix)
+03. Chillson, Marc Hartman - On This Day
+04. St Project - Bossaporita(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:10:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:284BB253120095C2F566F169D8973CD470B881AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279743   (765409) от 30.01.2019
 
 Spacehawk - Laser Squad (2018) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Spacedisco>
@@ -6,7 +64,7 @@ Spacehawk - Laser Squad (2018) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Spaced
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765409.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Laraaji & log(m) - The Onrush of Eternity (2019)[FLAC 2.0|48/24|tracks|WEB-DL] <
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765391.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Jorge G. Alarcón (Blutspan, And Exile, AEX, ΛEX) - Discography 11 Releases (20
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765265.jpg" />
 </div>
 
 
@@ -90,7 +148,7 @@ D. Batistatos - Discography 11 Releases (2006-2020) Cosmicleaf Records [FLAC|Los
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765263.jpg" />
 </div>
 
 
@@ -119,7 +177,7 @@ Occult - Axum (2018) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764975.jpg" />
 </div>
 
 
@@ -148,7 +206,7 @@ VA - Progressive Miami (2018) [MP3|320 Kbps] <Progressive Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764967.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ VA - Anjunadeep In Miami 2018 (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep Progres
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764926.jpg" />
 </div>
 
 
@@ -206,7 +264,7 @@ GusGus - Lies Are More Flexible (2018) Soyuz Music [FLAC|Lossless|tracks + .cue]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764901.jpg" />
 </div>
 
 
@@ -235,7 +293,7 @@ VA - Anjunabeats in Miami (2018) [FLAC|Lossless|image + .cue] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764898.jpg" />
 </div>
 
 
@@ -264,7 +322,7 @@ Onuka - Mozaika (2018) [MP3|320 Kbps] <Electronic, Folk>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764822.jpg" />
 </div>
 
 
@@ -293,7 +351,7 @@ VA - Festival Anthems Vol.4 (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764597.jpg" />
 </div>
 
 
@@ -322,7 +380,7 @@ VA - Nothing But...Tech House Essentials, Vol.07 (2019) [MP3|320 Kbps] <Tech Hou
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764596.jpg" />
 </div>
 
 
@@ -351,7 +409,7 @@ VA - JOOF 20 Years (Mixed by Gary Delaney & Facade & Daniel Lesden) (2018) [MP3|
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764595.jpg" />
 </div>
 
 
@@ -380,7 +438,7 @@ VA - Nicholson - Glorious (The Album) (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764592.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ Manet - Devour (2017) [FLAC|Lossless|tracks + .cue] <Dark Ambient, Dark Jazz, Po
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764591.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ VA - Beautiful Lounge Collection Vol 3 (2017) [MP3|320 Kbps] <Downtempo, Chillou
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764563.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ Erik Wøllo (Erik Wollo) - Infinite Moments (2018) Projekt [FLAC|Lossless|WEB-DL
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764542.jpg" />
 </div>
 
 
@@ -496,7 +554,7 @@ VA - Paul Oakenfold: Sunset At Stonehenge (2019) [MP3|320 Kbps] <House, Deep Hou
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764532.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ VA - Dream Dance Vol.89 (2020) 3CD  Box Set [MP3|320 Kbps] <Trance, Progressive,
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764513.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ Physical Dreams - Dreams Trance (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764473.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ VA - Night Flight Lounge (2019) [MP3|320 Kbps] <Downtempo, ChillOut, Lounge, Ele
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764460.jpg" />
 </div>
 
 
@@ -612,7 +670,7 @@ Tzolk'in - Discography 4 Releases (2004-2013) Divine Comedy Records, Ant-Zen [FL
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764454.jpg" />
 </div>
 
 
@@ -641,7 +699,7 @@ ScAnDroid Experiment's - Tempestas (2021) авторская раздача [MP3
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764347.jpg" />
 </div>
 
 
@@ -670,7 +728,7 @@ VA - Goa 2019, Vol.1 (2019) [MP3|320 Kbps] <Psy-Trance>
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764312.jpg" />
 </div>
 
 
@@ -684,64 +742,6 @@ VA - Goa 2019, Vol.1 (2019) [MP3|320 Kbps] <Psy-Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:424D8B7AF6E941C9732A7878047BFC9657526F7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057474   (764307) от 31.01.2019
-
-OAKE - Discography 9 Releases (2013-2019) [FLAC|Lossless|WEB-DL|tracks] <Industrial, Techno, Ambient, Darkwave>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zafrire (07:45)
- 02. Tiharire (06:32)
- 03. Telane (05:39)
- 04. Lilin (08:23)Тип издания: WEBЖанр: Industrial, Techno, Ambient, Darkwave, Downtempo, Experimental •Продолжительность: 00:28:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5845904367DD89F8F8B3D15B3288D79F20798030
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085475   (764295) от 31.01.2019
-
-P·A·L (P.A.L, PAL, P•A•L) - Discography 16 Releases (1993-2011) Ant-Zen [FLAC|Lossless|tracks+.cue, tracks] <Rhythmic Noise, Industrial, Ambient, IDM, Experimental>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agentenfister (Fist Faster Remix) (03:03)
- 02. Distress-Insomnia (06:04)
- 03. Jobs (EA-Dub) (03:31)
- 04. Heiden Heiland (04:25)(   Читать дальше...   )Тип издания: CD, Cassette, WEBЖанр: Rhythmic Noise, Industrial, Ambient, Noise, IDM, Experimental •Продолжительность: 00:41:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37FE90425427A60D4917C95B85B326A68B47943C
 ```
 
 https://mybot314.ru/tekegram_catalog/

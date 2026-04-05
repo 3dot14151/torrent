@@ -6,7 +6,7 @@ NG: Прорыв / Breakthrough (2015) SATRip (Серии 1-6 из 6)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700195.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Discovery: Поездка налегке / Free Ride (2016) HDTV [H.264/1080p-LQ
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700080.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NG: Проект: Динозавр / T.Rex: Autopsy (2015) HDTV [H.264/1080i]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700072.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700069.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699243.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ BBC: Horizon. Что было до Большого взрыва / What Happened
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699067.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ BBC. Зелёная планета / The Green Planet (2022) WEBRip [H.265/2160p
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699051.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ BBC. Тайны взросления / The Secret Life of Growing Up (2016) SATR
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698581.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ BBC: Таинственный Мир Материалов / The Mysterious World
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698576.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Discovery: Смертельный улов / Deadliest Catch (2017) HDTVRip [H.2
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698405.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Discovery: Смертельное собеседование / Deadliest Job Int
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698117.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ BBC: Тайная жизнь птиц / Secret Life of Birds (2010) BDRemux [H.2
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697376.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Animal Planet: Рожденные свободными / From Cubs to Kings (201
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697363.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ NG: Забытые персонажи Библии / Lost Face of the Bible (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696862.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ History Channel: Охота за трансильванским золотом /
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696721.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Discovery. Техногеника. Центр подготовки космон�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696530.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Discovery. Техногеника. Реактор ВВЭР - 1200. Самый м
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696278.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ BBC. Вся правда о характере / The Truth About Personality (20
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696099.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696095.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695915.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ NGW: Смертоносная Африка. Саванна / Africa's Deadly Kin
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695550.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ NG: Дайан Фосси. Секреты в тумане / Dian Fossey. Secrets
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695549.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ NGW: Планета хищников. Идеальные убийцы / Planet C
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695547.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ National Geographic. Королева леопардов / Leopard Queen (2010) 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695036.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ BBC: Мир природы. Роковой цветок / The Natural World. The
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695034.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Discovery. Техногеника. Самосвал БЕЛАЗ 75710 Больш�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694299.jpg" />
 </div>
 
 

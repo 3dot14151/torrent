@@ -1,3 +1,55 @@
+###  Публикация: 1422177   (239843) от 07.11.2020
+
+Алекс Рюле | Маленькое привидение из дверного замка (2020) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239843.jpg" />
+</div>
+
+
+###  Подробнее
+
+Циппель – маленькое привидение из старого замка. Да-да, замка, а не замка, как вы, наверно, подумали. Замок этот стоит во входной двери в квартире Пауля и его родителей. И в этом замке Циппелю было очень уютно, но тут… родители собрались замок поменять! И где же тогда будет жить маленькое привидение? К счастью, Пауль возьмется за дело и уж постарается найти для своего (   Читать дальше...   )Жанр: Детская литература/СказкаПеревод: Дарья ВилькеФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5910978DE3C35E21F475C0266B8339E830A1363C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467338   (239837) от 03.05.2021
+
+Наталия Журавликова | Великое путешествие через шкаф и обратно (2015) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239837.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если с детства тебе внушают, что чудес не бывает, Дед Мороз – переодетый работник отдела кадров с папиной работы, а сказки – чистой воды вымысел, не спеши так сразу этому верить. Вполне возможно, от тебя что-то скрывают. Например, что твоя мама – настоящая, стопроцентная великая волшебница, просто не хочет в этом признаваться. Именно так и произошло с Костиком. Возможно, (   Читать дальше...   )Жанр: Детская литература/ФантастикаФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33D4E0D3F84E5516543085BDAE91E5390D8EE3E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1422186   (239819) от 07.11.2020
 
 Анастасия Попандопуло | Один год из жизни козы Фроси Помидоркиной (2019) [FB2, EPUB, MOBI]
@@ -6,7 +58,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239819.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239806.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239799.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239777.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239761.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239730.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239721.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239697.jpg" />
 </div>
 
 
@@ -221,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239680.jpg" />
 </div>
 
 
@@ -250,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239647.jpg" />
 </div>
 
 
@@ -279,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239641.jpg" />
 </div>
 
 
@@ -308,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239639.jpg" />
 </div>
 
 
@@ -334,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239635.jpg" />
 </div>
 
 
@@ -363,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239581.jpg" />
 </div>
 
 
@@ -390,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239518.jpg" />
 </div>
 
 
@@ -416,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239491.jpg" />
 </div>
 
 
@@ -444,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239394.jpg" />
 </div>
 
 
@@ -470,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239350.jpg" />
 </div>
 
 
@@ -496,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239312.jpg" />
 </div>
 
 
@@ -523,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239308.jpg" />
 </div>
 
 
@@ -549,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239111.jpg" />
 </div>
 
 
@@ -575,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239110.jpg" />
 </div>
 
 
@@ -601,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239099.jpg" />
 </div>
 
 
@@ -630,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239052.jpg" />
 </div>
 
 
@@ -641,58 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37C13277A40D156259E125114D0D9158E9849536
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628761   (238762) от 24.04.2023
-
-К.В. Парфенов | Олимпиадная физика. 11 класс (2022) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238762.jpg" />
-</div>
-
-
-###  Подробнее
-
-Олимпиадная физика для 11-го класса - Парфенов Константин Владимирович. Интегрирование в задачах физики. Дифференциальные уравнения в физике. Динамика вращательного движения твердых тел. Динамика твердого тела. Кинетическая энергия твердого тела. Соударения твердых тел. Магнитостатика. Равновесие контура в магнитном поле. Индуктивность. Движение частиц в магнитном (   Читать дальше...   )Жанр: ФизикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4FC605FF204518979C7BDC248C4F9D439075EAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434228   (238711) от 28.04.2022
-
-Елена Качур | Детские энциклопедии с Чевостиком [18 книг] (2013-2021) [PDF, EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Увлекательные детские энциклопедии с Чевостиком знакомят ребенка с окружающим миром и его явлениями. Это авторский проект российской писательницы Елены Качур  «Аудиоэнциклопедии с Чевостиком» в книжном формате. Издания, объединены общим персонажем. Ребятам куда лучше запоминать информацию, если ее рассказывает какой-либо сказочный герой. Именно поэтому девчонки и (   Читать дальше...   )Жанр: Энциклопедия/Познавательная литератураИздательство: Манн, Иванов и Фербер (МИФ)Формат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFE1C6B5B2CD89FA49AEBD0D67BDDA0C4E35A87A
 ```
 
 https://mybot314.ru/tekegram_catalog/

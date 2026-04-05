@@ -1,3 +1,32 @@
+###  Публикация: 1434779   (148554) от 26.12.2020
+
+Swng my prty - Лето 2020 (2020) [MP3|320 Kbps] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - ГО Щербинка [00:00:34]
+02 - Привидение [00:02:33]
+03 - Главный [00:03:33]
+04 - Терапия [00:02:48](   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:17:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A43702ABA79F517422AB7076F083C8600C9538B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1519441   (148543) от 24.12.2021
 
 Lacrimosa - Leidenschaft (2021) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Darkwave>
@@ -6,7 +35,7 @@ Lacrimosa - Leidenschaft (2021) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Dar
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148543.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Allison Crowe - Tidings (2004) [FLAC|Lossless|tracks + .cue] <Folk-Rock, Christm
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148538.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Charetta - Fate Strikes Twice (2016) [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148523.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148522.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Giraffe Tongue Orchestra - Broken Lines (2016) [MP3|320 Kbps] <Progressive Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148511.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148459.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Gary Batchelor - I Am The Eye (2020) [MP3|320 Kbps] <Progressive Rock, Progressi
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148442.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Tiger Moth Tales - The Whispering Of The World - Live From The Quiet Room (2020)
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148403.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Apofeozъ - 2 Albums (2019-2020) [MP3|320 Kbps] <Thrash Metal, Heavy Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148389.jpg" />
 </div>
 
 
@@ -266,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148381.jpg" />
 </div>
 
 
@@ -295,7 +324,7 @@ Heavy Pettin - Best Of (2020) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Met
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148359.jpg" />
 </div>
 
 
@@ -324,7 +353,7 @@ Jethro Tull - All The Best (2012) [MP3|320 кб/с]<Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148342.jpg" />
 </div>
 
 
@@ -361,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148295.jpg" />
 </div>
 
 
@@ -390,7 +419,7 @@ The Grinch - Земля остановилась (2020) [MP3|320 Kbps] <Punk Roc
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148278.jpg" />
 </div>
 
 
@@ -419,7 +448,7 @@ Lumuroze - What`s the Point of Falling Down If We Are Already in Hell (2020) [MP
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148271.jpg" />
 </div>
 
 
@@ -448,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148259.jpg" />
 </div>
 
 
@@ -477,7 +506,7 @@ Herjan - Nightfall of Humanity (2017) [FLAC|Lossless|WEB-DL|tracks] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148050.jpg" />
 </div>
 
 
@@ -506,7 +535,7 @@ Papa Roach - 20/20 (2020) [MP3|320 Kbps] <Alternative Rock, Nu Metal, Rapcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148046.jpg" />
 </div>
 
 
@@ -535,7 +564,7 @@ Corroded - Plague (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Hard-Rock, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148030.jpg" />
 </div>
 
 
@@ -564,7 +593,7 @@ Hyperdontia - Nexus of Teeth (2018) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148026.jpg" />
 </div>
 
 
@@ -593,7 +622,7 @@ Hasard - Malivore (2023) [FLAC|Lossless|WEB-DL|tracks] <Avant-garde Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147981.jpg" />
 </div>
 
 
@@ -622,7 +651,7 @@ Heavenqueen - Heavenqueen (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147839.jpg" />
 </div>
 
 
@@ -651,7 +680,7 @@ Garden of Grief - Novembernebel (2010) [FLAC|Lossless|image + .cue] <Ambient Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147818.jpg" />
 </div>
 
 
@@ -680,7 +709,7 @@ VA - Transfiguration Songs (2005) Compilation [FLAC|Lossless|tracks + .cue] <Har
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147810.jpg" />
 </div>
 
 
@@ -709,7 +738,7 @@ Goes Cube - Another Day Has Passed (2009) [FLAC|Lossless|tracks + .cue] <Post Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147800.jpg" />
 </div>
 
 
@@ -723,35 +752,6 @@ Goes Cube - Another Day Has Passed (2009) [FLAC|Lossless|tracks + .cue] <Post Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93C0584ADF5EDAC64A04616AB6009D1DC0D8D1CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271731   (147761) от 25.12.2018
-
-Abnormal Thought Patterns - Altered States Of Consciousness (2015) [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147761.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Distortions of Perception (4:33)
-02. Nocturnal Haven (9:52)
-03. Blindsight (4:06)
-04. Synesthesia (6:03)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:43:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DACB9CC2CD97EE94742B9E0034EC66CDBF6AA34C
 ```
 
 https://mybot314.ru/tekegram_catalog/

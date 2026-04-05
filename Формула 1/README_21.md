@@ -1,3 +1,119 @@
+###  Публикация: 1427517   (182820) от 28.11.2020
+
+Формула 1. Сезон 2020. 15-й Этап. Гран-при Бахрейна. Свободная практика 2 (27.11.2020) IPTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182820.jpg" />
+</div>
+
+
+###  Подробнее
+
+71-й сезон Формулы-1 2020 года
+27 ноября 2020, пятница. 18:00 МСК
+15-й Этап. Гран-при Бахрейна. Сахир (Бахрейн)
+Свободная практика 2(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:37:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CBAD142B6AD04C7424A6CB1306255F825FD78F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427506   (182816) от 28.11.2020
+
+Формула 1. Сезон 2020. 15-й Этап. Гран-при Бахрейна. Свободная практика 1 (27.11.2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182816.jpg" />
+</div>
+
+
+###  Подробнее
+
+71-й сезон Формулы-1 2020 года
+27 ноября 2020, пятница. 14:00 МСК
+15-й Этап. Гран-при Бахрейна. Сахир (Бахрейн)
+Свободная практика 1(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:36:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF62F37DF85D6DE97CD8B6DBE837714A34B80FBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427622   (182307) от 29.11.2020
+
+Формула 1. Сезон 2020. 15-й Этап. Гран-при Бахрейна. Квалификация (28.11.2020) HDTV [H.264/1080i-LQ]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182307.jpg" />
+</div>
+
+
+###  Подробнее
+
+71-й сезон Формулы-1 2020 года
+28 ноября 2020, суббота. 17:00 МСК
+15-й Этап. Гран-при Бахрейна. Сахир (Бахрейн)
+Квалификация(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:15:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BEEA69A7BA3B00E2B63E6ED6994A8F121C0E98B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427627   (182233) от 29.11.2020
+
+Формула 1. Сезон 2020. 15-й Этап. Гран-при Бахрейна. Квалификация (28.11.2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182233.jpg" />
+</div>
+
+
+###  Подробнее
+
+71-й сезон Формулы-1 2020 года
+28 ноября 2020, суббота. 17:00 МСК
+15-й Этап. Гран-при Бахрейна. Сахир (Бахрейн)
+Квалификация(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:15:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C187987C8A62E3161CFE28D8510166199EBA7DE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427883   (181308) от 30.11.2020
 
 Формула 1. Сезон 2020. 15-й Этап. Гран-при Бахрейна. Гонка (29.11.2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
@@ -6,7 +122,7 @@
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181308.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181198.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178039.jpg" />
 </div>
 
 
@@ -92,7 +208,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178029.jpg" />
 </div>
 
 
@@ -120,7 +236,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177635.jpg" />
 </div>
 
 
@@ -148,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177612.jpg" />
 </div>
 
 
@@ -174,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177609.jpg" />
 </div>
 
 
@@ -202,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177407.jpg" />
 </div>
 
 
@@ -228,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177282.jpg" />
 </div>
 
 
@@ -254,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_177230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_177230.jpg" />
 </div>
 
 
@@ -280,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176716.jpg" />
 </div>
 
 
@@ -306,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176667.jpg" />
 </div>
 
 
@@ -332,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176652.jpg" />
 </div>
 
 
@@ -360,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176640.jpg" />
 </div>
 
 
@@ -388,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175848.jpg" />
 </div>
 
 
@@ -414,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173719.jpg" />
 </div>
 
 
@@ -442,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173395.jpg" />
 </div>
 
 
@@ -468,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171893.jpg" />
 </div>
 
 
@@ -494,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171715.jpg" />
 </div>
 
 
@@ -520,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171709.jpg" />
 </div>
 
 
@@ -546,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171521.jpg" />
 </div>
 
 
@@ -578,7 +694,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171511.jpg" />
 </div>
 
 
@@ -589,122 +705,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E04E7C57D6C458B2071F8C0EAAA5A5B47EB675B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671263   (171377) от 24.10.2023
-
-Формула 1. Сезон 2023. Этап 19. Гран-при США. Квалификация к спринту. Спринт. Гонка (21-22.10.2023) UHDTV [H.265/2160p] [50fps] [10-bit] Sky Sports F1 UHD
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171377.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этап 19. Автодром Трасса Америк (Остин, США).
-Квалификация к спринту. 21 октября 2023, суббота.
-Спринт. 21 октября 2023, суббота.
-Гонка. 22 октября 2023, воскресенье.(   Читать дальше...   )Телекомпания: Sky Sports F1 UHDЖанр: АвтоспортЯзык озвучки: Русский, Английский.Продолжительность: Квалификация к спринту (SprintShootout) - 0:53:29
-Спринт - 0:51:02
-Гонка - 02:08:37Реклама: Присутствуют аудио и видео вставки рекламы транслятора.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:086DEA7040C8A1B6DA243ADAE13B6E3D3014C47E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515154   (169971) от 06.12.2021
-
-Формула 1. Сезон 2021. Этап 21. Гран-при Саудовской Аравии. Гонка (05.12.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169971.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гран-при Саудовской Аравии. Гонка
-Арена: Городская трасса Джидда (Джидда, Саудовская Аравия),
-05 декабря 2021, воскресенье. 20:30 МСКТелекомпания: Матч!Жанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: отсутствуютПродолжительность: 02:21:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0873BDDF8C1ABCD22C5A44A3BF0E0B7F30FF1DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515158   (169966) от 06.12.2021
-
-Формула 1. Сезон 2021. Этап 21. Гран-при Саудовской Аравии. Гонка (05.12.2021) HDTVRip [H.264/1080p-LQ] [50fps] F1TV
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169966.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этап 21. Арена: городская трасса Джидда (Джидда, Саудовская Аравия).
-Гонка. 5 декабря 2021, воскресенье.
-
-Картинка с F1 TV, без рекламы.Телекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Матч ТВ: Алексей Попов, Наталья Фабричнова), Украинский (Максим Подзигун), Английский (SkySports F1HD).Субтитры: отсутствуютПродолжительность: 02:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0287F44A191E7F549DBD351C3E167E146ED88749
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430935   (169397) от 11.12.2020
-
-Формула 1. Сезон 2020. Этап 17. Гран-при Абу Даби. Свободная практика 1 (11.12.2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169397.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гран-при Абу-Даби . Свободная практика 1
-Арена: Автодром Яс Марина (Абу-Даби, ОАЭ)
-11 декабря 2020, пятница. 12:00 МСКТелекомпания: Матч АренаЖанр: АвтоспортЯзык озвучки: Русский (Владимир Башмаков)Субтитры: отсутствуютПродолжительность: 01:40:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB38898A23DAEE6669A857098FAE7BD3ED36BCEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

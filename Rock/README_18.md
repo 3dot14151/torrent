@@ -6,7 +6,7 @@ Nicolette Larson - Live At The Roxy (1979) Remastered, 2006, Rhino Handmade [MP3
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826043.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Lindi Ortega (Линди Ортега) - Untitles (2008) EP [MP3|320 Kbps] <Coun
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826042.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Nicolette Larson - In The Nick Of Time (1979) Warner Bros. Records, HS 3370, US 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825993.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Nicolette Larson - The Very Best Of Nicolette Larson (1999) Compilation [MP3|320
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825989.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ The Beatles - Let It Be (1970) 5СD, Super Deluxe, 2021, Universal Music Catalog
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824728.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Chuck Berry - Gold (2005) 2CD, Compilation [MP3|320 кб/с]<Rock and Roll, Rhyt
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824211.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ It's A Beautiful Day - 5 Альбомов (1969-1973) [MP3|320 kbps]<Progressive
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823582.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ The Blues Magoos - Discography (1966..1992) [MP3|320 kbps]<Psychedelic Rock, Gar
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823512.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Santana - Santana IV (2016) [MP3|320 кб/с] <Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823018.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Crow - Crow Music (1969) Remastered, 2010, Flawed Gems [MP3|320 Kbps] <Funk, Har
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822991.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Michael Parrett - Influence This (2020) [MP3|320 Kbps] <Garage Rock, Mod, Psyche
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822774.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Halestorm - Apocalyptic (2015) Single, Atlantic Recording Corporation, 548818-2 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822551.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Renia - First Offenders (1973) Reissue, 2011, Flawed Gems [MP3|320 Kbps] <Classi
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822545.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Halestorm - On the Heels of a Myth (2013) Live from Myth Nightclub [MP3|320 Kbps
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822412.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Halestorm - Into The Wild Life (2015) Atlantic, WPCR-16417, Japan [MP3|320 Kbps]
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_822300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822300.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Rosetta Stone - Retrospective Roller 1977-1979 (2004) 2 Albums + 1 Single [MP3|3
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821334.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ John Budnik Band - Transformations (2017) [MP3|320 Kbps] <Northern Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821176.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Santana - The Magic Of Santana (2015) [MP3|320 кб/с]<Rock, Blues, Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820854.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Halestorm - Live In Philly (2010) [MP3|320 Kbps] <Alternative Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820742.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Slade - Discography+ (1969-2003)[MP3|320 kbps]<Glam>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820731.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ VA - It’s A Rockabilly Riot! Vol. 1 (2016) [MP3|320 кб/с] <Neo Rockabilly, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819650.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ VA - 100 Hits Guitar Heroes (5CD) (2013) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819529.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ The Fire Escape - Psychotic Reaction (1967) Reissue, 2007, Fallout [MP3|320 Kbps
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819264.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Doc Holliday - Doc Holliday Rides Again... (1981) Remastered, 2005, Rock Candy [
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819067.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ Little Richard - The Specialty Sessions (1989)  [MP3|320 kbps]<Rock & Roll>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818806.jpg" />
 </div>
 
 
@@ -720,7 +720,7 @@ Graham Nash - This Path Tonight (2016) [MP3|320 кб/с] <Classic Rock, Folk Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818006.jpg" />
 </div>
 
 

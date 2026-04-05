@@ -1,3 +1,32 @@
+###  Публикация: 1638231   (238031) от 07.06.2023
+
+Dieth - To Hell and Back (2023) [MP3|320 Kbps] <Death, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To Hell and Back (03:55)
+02. Don't Get Mad ... Get Even! (04:37)
+03. Wicked Disdain (03:36)
+04. Free Us All (05:19)(   Читать дальше...   )Жанр: Death, Thrash MetalПродолжительность: 00:42:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC5F175E585047347123704E2C131AD6DD1440BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580829   (238025) от 03.10.2022
 
 Ceaseless Torment - Victory or Death (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
@@ -6,7 +35,7 @@ Ceaseless Torment - Victory or Death (2022) [FLAC|Lossless|WEB-DL|tracks] <Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238025.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Noxus - Ashes Underneath (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238019.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ The Irresponsibles - The Lizard (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238013.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Adam Sherman - Triangle Sky (2021) [MP3|320 Kbps] <Classic Rock, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238011.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ KrazarK - Fireflake (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238008.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Tribulation - Where The Gloom Becomes Sound (2021) Japanese Edition [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238005.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Vex - Words (2022) [FLAC|Lossless|WEB-DL|tracks] <Groove, Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238004.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ All Faces Down - Awol (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Alt.R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237996.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Elle Tea - Fate Is At My Side (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237993.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Hazeshuttle - Hazeshuttle (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Sto
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237989.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Dronegoat - Dronegoat (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom, Stoner Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237988.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Violent Force - Malevolent Assault of Tomorrow (1987) Reissue 2018 [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237986.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Coffin Torture - 2 Albums (2018-2022) [MP3|320 Kbps] <Sludge, Doom, Death>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237981.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Arched Fire - Trust Betrayal (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Speed 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237978.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Four By Fate - Relentless (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237974.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Tyranis - Failure to Yield (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237973.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Black & Damned - Servants Of The Devil (2023) [MP3|320 Kbps] <Heavy, Power Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237969.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Megaride - Mo (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Grunge>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237968.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Tyrano Banderas - Hacia el Abismo (2022) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237966.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Giants Dwarfs And Black Holes - In a Sandbox Full of Suns (2023) [FLAC|Lossless|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237963.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Soilent Green - Pussysoul (1994) [FLAC|Lossless|image + .cue] <Sludge, Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237960.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Dying Alone - One Man Tragedy (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237959.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Spasm - Mystery Of Obsession (2021) [APE|Lossless|image + .cue] <Goregrind>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237953.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Twiztid - Songs of Samhain, Vol. III: Cult of Night (2022) [FLAC|Lossless|WEB-DL
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237952.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Order in Chaos - S(K)In (2022) [FLAC|Lossless|WEB-DL|tracks] <alternative rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237943.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Order in Chaos - S(K)In (2022) [FLAC|Lossless|WEB-DL|tracks] <alternative rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDE8843BE47396DFBFA775316CD9C8C75DA2FDF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625449   (237938) от 09.04.2023
-
-Stan Bush & Barrage - Stan Bush & Barrage (1987) [FLAC|Lossless|image + .cue] <AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Temptation
-02. Love Don't Lie
-03. Primitive Lover
-04. Heart Vs. Head(   Читать дальше...   )Жанр: AORПродолжительность: 00:43:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AA65A8066CBE7F21519DDB43F5BB41030117952
 ```
 
 https://mybot314.ru/tekegram_catalog/

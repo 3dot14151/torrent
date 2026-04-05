@@ -6,7 +6,7 @@ Donald Byrd - Fancy Free (1969) 2017, Universal [FLAC|Lossless|tracks + .cue] <S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785478.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Nat King Cole - Legends (1994) [FLAC|Lossless|image + .cue] <Jazz, Swing, Easy L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785474.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Piero Odorici Quartet - First Play (1989) 1992, RED Distribution [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785471.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Charles Tolliver - Mosaic Select 20 (1970) 3CD, 2005, Mosaic Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785465.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Frank Sinatra, Dean Martin, Sammy Davis Jr. - Eee-O 11: The Best Of The Rat Pack
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785413.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Josh Berman & His Gang - There Now (2012) Delmark Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785170.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Nat Adderley Quintet - Mercy, Mercy, Mercy (1997) Evidence [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785169.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Alan Pasqua - My New Old Friend (2005) Cryptogramophone [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785168.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Cannonball Adderley - Swingin' in Seattle: Live at The Penthouse 1966 - 1967 (20
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785159.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Eddie Gomez - Power Play (1988) Sony [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785071.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Ornette Coleman Trio - Live Manchester Free Trade Hall 1966 (2018) 2CD, Hi Hat [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785070.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Ari Brown - Groove Awakening (2013) Delmark [FLAC|Lossless|tracks + .cue] <Post-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785061.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ The Modern Jazz Quartet - Concert In Japan, Vol.1 (1966) 2014, Warner [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_784987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_784987.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Kim Richmond Ensemble - Live At Cafe Metropol (2007) Origin Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784785.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Gene Krupa - Five Classic Albums Plus 1952 - 1957 (2012) 2CD, Avid Jazz [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784782.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ George Wallington - Four Classic Albums 1955 - 1957 (2016) 2CD, Avid Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784594.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Martin Taylor - Sarabanda (1989) Gaia Records [FLAC|Lossless|tracks + .cue] <Cro
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784589.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Gene Krupa And His Orchestra - 1939 - 1940 (1995) Classics [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784405.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ The Modern Jazz Quartet - Concert In Japan, Vol.2 (1966) 2014, Warner [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784399.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Dexter Gordon - Gotham City (1981) Columbia [FLAC|Lossless|image + .cue] <Hard B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784343.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Jack Parnell - Two Classic Albums Plus 1946 - 1954 (2010) 2CD, Avid Jazz [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784285.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Richard Smith - First Kiss (1997) Heads Up [FLAC|Lossless|tracks + .cue] <Smooth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784280.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Norah Jones - Pick Me Up Off The Floor (2020) [FLAC|Lossless|WEB-DL|tracks] <Con
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784212.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Joe Morello - Joe Morello (1961, 1962) 1989, Bluebird [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784109.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ The George Shearing Trio with Ray Brown and Marvin "Smitty" Smith - Breakin' Out
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784098.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Benny Golson - Four Classic Albums 1957 - 1958 (2018) 2CD, Avid Jazz [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783948.jpg" />
 </div>
 
 

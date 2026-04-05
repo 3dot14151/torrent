@@ -6,7 +6,7 @@ Camelot 2: The Holy Grail / Камелот 2: Святой Грааль [Ru/En] 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234790.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Detectives United 6: Beyond Time (2023) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233978.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Connected Hearts 3: The Musketeers Saga / Связанные любовью 3: �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233770.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ City Legends 3: Ghost of Misty Hill (2023) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233731.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Criminal Archives 2: Alphabetic Murders (2023) [En] (1.0) Unofficial [Collector'
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233708.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ It Happened Here: Streaming Lives / Это случилось здесь: Пря
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233529.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Grim Tales 22: Horizon of Wishes / Страшные сказки 22: Преде�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233122.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Grim Tales 23: Dual Disposition / Страшные сказки 23: Двойст
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231728.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Bridge to Another World 11: A Trail of Breadcrumbs (2023) [En] (1.0) Unofficial 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231076.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Gloomy Tales: Horrific Show (2022) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229734.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Fran Bow (2015) [Ru/Multi] (1.0/upd3) Repack R.G. Механики
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228999.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Time Mysteries: Inheritance / Тайны времени: Наследие (2010)
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228934.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Paranormal Files 6: The Trap of Truth (2020) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228718.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Enchanted Kingdom 6: Arcadian Backwoods / Зачарованное Короле�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228609.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Another World: 20th Anniversary Edition (2013) [Multi] (1.0.19596) License GOG
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228407.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Haunted Hotel 18: Room 18 / Проклятый отель 18: Комната 18 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226727.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Witches' Legacy 8: Dark Days to Come / Наследие ведьм 8: Гряду
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225251.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Christmas Stories 3: Hans Christian Andersen's Tin Soldier / Рождестве�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224807.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Spirits of Mystery 12: Whisper of the Past / Тайны духов 12: Шёпо�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224487.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ The Christmas Spirit 2: Mother Goose's Untold Tales (2018) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223175.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Hidden Expedition 20: Reign of Flames (2020) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221807.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ True Fear: Forsaken Souls (2018) [Ru/Multi] (2.0.3) License GOG [Part 2]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221428.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Christmas Stories 7. Alice's Adventures / Рождественские исто�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220940.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Princess Of Tavern / Принцесса таверн (2016) [Ru] (1.0.3) Unoffic
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220161.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Haunted Legends 9: Faulty Creatures / Легенды о призраках 9: Н
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220068.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Contract with the Devil / Контракт с Дьяволом (2015) [Ru] (1.0)
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220044.jpg" />
 </div>
 
 

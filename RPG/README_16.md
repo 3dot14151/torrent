@@ -1,3 +1,55 @@
+###  Публикация: 1208499   (779843) от 22.02.2018
+
+Usurper (2018) [En] (1.000/hf3) Repack Other s
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779843.jpg" />
+</div>
+
+
+###  Подробнее
+
+Usurper - RPG в стиле метроидвания. Древние ужасы были выпущены Цитаделью в мирный город, ваша задача - избавить Лондон от своих кошмаров. Используйте новую систему «Охранник», которая которая поможет выстоять в бою и победить тьму скрывающуюся внутри города.Тип издания: RepackРазработчик: Steve GalЖанр: Adventure, Action, RPG, PlatformЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27B8B76F9A70BA748C58B1E3FFE5A84A4B5A4288
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189410   (779552) от 24.02.2018
+
+Seven: The Days Long Gone (2017) [Ru/Multi] (1.0.8.1/dlc) Repack R.G. Catalyst
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779552.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если и есть в мире место, которого мастер-вор Териэль любой ценой старался избегать, так это остров Пе. Но однажды одно рискованное предприятие внезапно принимает неожиданный оборот, и Териэль приходит в себя в кандалах на дирижабле, направляющемся на печально известный остров.Тип издания: RepackРазработчик: IMGN.PRO, Fool's TheoryЖанр: Action, RPG, Stealth, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:247CC91A582C6B85331EA4D951B3BD2E380D244F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197801   (779166) от 27.02.2018
 
 The Elder Scrolls Anthology (1994-2016) [Ru/Multi] Repack R.G. Механики
@@ -6,7 +58,7 @@ The Elder Scrolls Anthology (1994-2016) [Ru/Multi] Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779166.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ The Technomancer (2016) [Ru/Multi] (1.0.3638) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778026.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Aurion: Legacy of the Kori-Odan (2016) [En/Fr] (1.02 update 1) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777415.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Pyre (2017) [Ru/Multi] (1.50257) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776663.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ The Witcher 2: Assassins of Kings / Ведьмак 2: Убийцы короле�
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776615.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Skyshine's BEDLAM Redux! (2015) [En] (3.10) License GOG [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776603.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Avernum 3: Ruined World (2018) [En] (1.0.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776298.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Transistor (2014) [Ru/Multi] (1.49815) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775930.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Middle-earth Shadow of Mordor / Средиземье Тени Мордора (20
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775919.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Diluvion: Resubmerged (2017) [Ru/Multi] (1.2.33/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775564.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Bombshell (2016) [En] (1.2) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775402.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Ember (2016) [En] (1.046) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774969.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Beast Quest (2018) [Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774889.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Ghost of a Tale (2018) [Ru/Multi] (7.91) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774789.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Planescape Torment (2017) [Multi] (3.0.3.0) License CODEX [Enhanced Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772738.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Dragon Age II / Эпоха Дракона 2 (2011) [Ru/En] (1.0.4.0/dlc) Repack 
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772512.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Terrible Beast from the East (2019) [En/Ch] (1.0) License DARKSiDERS
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771317.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Bloom: Labyrinth (2019) [En] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771209.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Final Fantasy X/X-2 HD Remaster (2016) [En/Multi] (1.0) Repack R.G. Механи
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769422.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Final Fantasy X/X-2 HD Remaster (2016) [En/Multi] (1.0) Repack =nemos=
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769415.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ Cosmic Star Heroine (2017) [En] (1.0) License TiNYiSO
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768443.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ Bastion (2011) [Ru/En] (0.12367) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768386.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ Bound by Flame (2014) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767162.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ ELEX (2017) [Ru/Multi] (1.0.2981.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766607.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ ELEX — тщательно проработанная динамическая 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFE54D39FDF8135772EC4F4819156FC0EA0F5A70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190380   (766478) от 19.03.2018
-
-Shadowhand (2017) [En] (1.06) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shadowhand - приключенческая карточная ролевая стратегия с пошаговыми боями. Вам предстоит выбрать понравившегося персонажа и отправиться на дуэли с противниками. Соберите свою собственную мини-деку, экипируйте своего персонажа и отправьтесь раздавать люлей своим врагам.Тип издания: LicenseРазработчик: Grey Alien GamesЖанр: Ролевая игра, Стратегия, ФэнтезиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F7BA3ACA3846E1B00270EBEF4336B1879C774DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126194   (765929) от 17.04.2017
-
-Moonfall (2017) [Ru/Multi] (1.00) License PLAZA
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765929.jpg" />
-</div>
-
-
-###  Подробнее
-
-Moonfall это side-scrolling 2D action RPG в жанре Beat ’em up, оформленная вручную. Действие игры разворачивается в индустриально-готической вселенной Терра Нихил. В которой рассказывается история некогда маленькой Империи на пике ее славы, достигнутой с помощью таинственного элемента под названием Лунарий. И который спровоцировал волну нападений так называемых дикарей, (   Читать дальше...   )Тип издания: LicenseРазработчик: Fishcow StudioЖанр: Action, RPG, Beat’em upЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DE2903997458F979AED9DDA5ADE7E3B4CAD647B
 ```
 
 https://mybot314.ru/tekegram_catalog/

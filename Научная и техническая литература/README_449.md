@@ -1,133 +1,3 @@
-###  Публикация: 955530   (333905) от 11.11.2015
-
-Б. М. Кедров | В. И. Ленин и гегелевская диалектика [о ленинских принципах и способах материалистической переработки диалектики Гегеля] (1975) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333905.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассматривается отношение В. И. Ленина к диалектике Гегеля. Автор вводит читателя в творческую лабораторию Ленина и показывает ленинские принципы и способы материалистической переработки гегелевской диалектики, дает анализ некоторых конкретных проблем диалектики как метода познания и революционного действия: постановка гегелевской диалектики «с головы на ноги», критика (   Читать дальше...   )Жанр: История, философияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CF3F1F1AF79B4E1B0B2CF66D5C68DBA26D62F26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955376   (333897) от 11.11.2015
-
-П. В. Свечников (ред.) | Как самостоятельно изучать политическую книгу (1984) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333897.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во книге даны рекомендации о том, как ориентироваться в общественно-политической литературе, рассказывается о формах и методах индивидуальной работы с нею, культуре чтения, организации личной библиотеки и о других вопросах политического самообразования.Жанр: История, политология, литературоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FACDE4BD1D0A7BBCDC3FBE265B8E6F03FEC45A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955527   (333894) от 11.11.2015
-
-А. Стрецкий и др. (ред.) | СССР и страны капитализма (1937) [DJVU, PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сравнительный анализ развития СССР и ведущих стран капиталистического мира за истекшие 20 лет.Жанр: История, политология, экономикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5380FC767621EB6CB83EA90B987B80FEC380A778
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955534   (333891) от 11.11.2015
-
-Б. М. Кедров | Книга В. И. Ленина "Материализм и эмпириокритицизм" и современное естествознание (1959) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333891.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге В. И. Ленина «Материализм и эмпириокритицизм» представлен в наиболее ярком виде ленинский этап развития марксистской философии. В этой замечательной книге дана творческая разработка коренных вопросов диалектического материализма, беспощадная критика реакционной идеалистической философии и философского ревизионизма на основе глубокого анализа и обобщения новейших (   Читать дальше...   )Жанр: История, философия, естествознаниеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A3B1C7DCA0C7DA5BBE668DEE4F0443E5406C76B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955571   (333839) от 11.11.2015
-
-Игорь Князький | Император Траян (2016) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая монография доктора исторических наук, профессора Игоря Олеговича Князького посвящена жизни и деятельности одного из самых прославленных римских императоров – Марка Ульпия Траяна. Первый провинциал во главе Империи как никто другой из владык Рима заслужил прозвание «Optimus Princeps» (Наилучший Принцепс). Траяну в годы его правления удалось, казалось бы, невозможное, (   Читать дальше...   )Жанр: ИсторияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EEF4E68F6FE82D55C5BF3878CCF2389354A586F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1420246   (333822) от 31.10.2020
 
 Александр Чудинов, Дмитрий Бовыкин | Французская революция (2020) [FB2]
@@ -136,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333822.jpg" />
 </div>
 
 
@@ -162,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333819.jpg" />
 </div>
 
 
@@ -189,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333793.jpg" />
 </div>
 
 
@@ -215,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333792.jpg" />
 </div>
 
 
@@ -241,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333762.jpg" />
 </div>
 
 
@@ -267,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333733.jpg" />
 </div>
 
 
@@ -293,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333716.jpg" />
 </div>
 
 
@@ -319,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333570.jpg" />
 </div>
 
 
@@ -346,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333542.jpg" />
 </div>
 
 
@@ -372,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333530.jpg" />
 </div>
 
 
@@ -400,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333528.jpg" />
 </div>
 
 
@@ -426,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333526.jpg" />
 </div>
 
 
@@ -452,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333393.jpg" />
 </div>
 
 
@@ -478,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333390.jpg" />
 </div>
 
 
@@ -504,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333388.jpg" />
 </div>
 
 
@@ -530,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333386.jpg" />
 </div>
 
 
@@ -557,7 +427,7 @@ Gordon L. Rottman | US Marine Corps 1941–45 (2012) [EPUB] [Elite #59] [EN]
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333356.jpg" />
 </div>
 
 
@@ -583,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333347.jpg" />
 </div>
 
 
@@ -609,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333233.jpg" />
 </div>
 
 
@@ -635,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333146.jpg" />
 </div>
 
 
@@ -661,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333111.jpg" />
 </div>
 
 
@@ -673,6 +543,136 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65BCAC2501DA3D16FCB5B4FA559DB3960AA38CC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331235   (333090) от 14.10.2019
+
+Райан Норт | Как изобрести все (2019) [FB2]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333090.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настало время стать самым влиятельным человеком на Земле. Представьте, что вы решили прокатиться в прошлое на машине времени, но застряли где-то в юрском периоде. Как будете выживать? Райан Норт, программист и автор комиксов-бестселлеров, рассказывает, как с помощью научных знаний и технологий, культуры и философии восстановить цивилизацию с нуля. Лучшее иллюстрированное (   Читать дальше...   )Жанр: Научная литература, РуководстваПеревод: Дмитрий КазаковФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E071A65FBF22170E7D5014FE1C0BDF5A5C404F8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258923   (333024) от 01.11.2018
+
+Лев Бердников | Дерзкая империя. Нравы, одежда и быт Петровской эпохи (2018) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333024.jpg" />
+</div>
+
+
+###  Подробнее
+
+XVIII век – самый загадочный и увлекательный период в истории России. Он раскрывает перед нами любопытнейшие и часто неожиданные страницы той славной эпохи, когда стираются грани между спектаклем и самой жизнью, когда все превращается в большой костюмированный бал с его интригами и дворцовыми тайнами. Прослеживаются судьбы целой плеяды героев былых времен, с именами (   Читать дальше...   )Жанр: История России, Культурология, Популярно об историиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00A482363B239F765B38233976FEF7AB55D6FDCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579995   (332967) от 29.09.2022
+
+Р. Юнгблут | Автомобильная династия. История семьи, создавшей империю BMW (2021) [EPUB]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Квандты – уникальная семья. Уже четыре поколения они остаются одной из самых богатых и влиятельных семей Германии. Их состояние оценивается в 31 миллиард евро, большую часть из которого составляют суммарные активы BMW. Эта книга о любви к автомобилям, гениальных управленческих решениях, удачах и трагедиях. Вы узнаете, как зарождалась финансовая империя Квандтов, (   Читать дальше...   )Жанр: Истории успехаПеревод: Е. ЗаботкинЯзык: РусскийФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F5E24EB252BAB340E1BEF1E19AB4714177A38F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955712   (332638) от 12.11.2015
+
+В. В. Перерва | Этические взгляды Гегеля (1988) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дается краткая характеристика социальных и теоретических предпосылок процесса становления и эволюции этических воззрений крупнейшего представителя немецкой классической философии. В центре внимания автора — специфика проявления в этических взглядах Гегеля основного противоречия его философии — противоречия между диалектическим методом и идеалистической системой.Жанр: История, философия, этикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CC6E3FB42CA297745D17AC33875C4382619427D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955706   (332635) от 12.11.2015
+
+Т. И. Ойзерман | Историко-философское учение Гегеля (1982) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332635.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анализируется историко-философское учение Гегеля о поступательном развитии философии, ее диалектическом единстве. Автор показывает, что материалистическая переработка этого учения, всестороннее развитие диалектики классиками марксизма позволили создать научную теорию диалектического материализма.Жанр: История, философияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:517B3344A8460073C2BBB6EED4C9C0C0AC023810
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1312549   (530535) от 05.07.2019
+
+С. Р. Дикштейн | Кто чем живет (1902) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530535.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Каждый человек живет своим трудом". На первый взгляд это кажется действительно так. Посмотрите лишь, сколько об этом писалось и говорилось в газетах, в журналах, книгах и даже церковных проповедях. При этом разве не кажется многим, что действительно сапожник живет своим сапожническим трудом, портной - портняжным, учитель - учительским, что каждый фабрикант (   Читать дальше...   )Жанр: История, политология, публицистика, социология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D3FBF8F38D266000BA9F92BFFC52CA85051CD0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1558618   (529981) от 21.06.2022
 
 Никлас Брендборг | Загадка нестареющей медузы. Секреты природы и достижения науки, которые помогут приблизиться к вечной жизни (2022) [PDF, EPUB]
@@ -6,7 +32,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529981.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529891.jpg" />
 </div>
 
 
@@ -63,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529886.jpg" />
 </div>
 
 
@@ -91,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529454.jpg" />
 </div>
 
 
@@ -120,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528743.jpg" />
 </div>
 
 
@@ -146,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528678.jpg" />
 </div>
 
 
@@ -175,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528677.jpg" />
 </div>
 
 
@@ -203,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528656.jpg" />
 </div>
 
 
@@ -231,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528645.jpg" />
 </div>
 
 
@@ -259,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528545.jpg" />
 </div>
 
 
@@ -286,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528490.jpg" />
 </div>
 
 
@@ -314,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528407.jpg" />
 </div>
 
 
@@ -340,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528284.jpg" />
 </div>
 
 
@@ -366,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528233.jpg" />
 </div>
 
 
@@ -392,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528179.jpg" />
 </div>
 
 
@@ -418,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526405.jpg" />
 </div>
 
 
@@ -444,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526381.jpg" />
 </div>
 
 
@@ -471,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525834.jpg" />
 </div>
 
 
@@ -497,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525465.jpg" />
 </div>
 
 
@@ -523,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525217.jpg" />
 </div>
 
 
@@ -551,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525183.jpg" />
 </div>
 
 
@@ -577,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525178.jpg" />
 </div>
 
 
@@ -603,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524576.jpg" />
 </div>
 
 
@@ -629,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524571.jpg" />
 </div>
 
 
@@ -658,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524181.jpg" />
 </div>
 
 
@@ -669,34 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24235B233CAC841D5CE7AA9A85ED0DD3AE81BDEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927819   (524065) от 14.08.2015
-
-Алексей Колобродов | Захар (2015) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524065.jpg" />
-</div>
-
-
-###  Подробнее
-
-Имя писателя Захара Прилепина впервые прозвучало в 2005 году, когда вышел его первый роман «Патологии» о чеченской войне.
-
-За эти десять лет он написал ещё несколько романов, каждый из которых становился символом времени и поколения, успел получить главные литературные премии, вёл авторские программы на ТВ и радио и публиковал статьи в газетах с миллионными тиражами, (   Читать дальше...   )Жанр: Биографии и Мемуары, Публицистика: прочее, КритикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E608337A7FD27D668077F13AA2F2EF2FAD25CE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

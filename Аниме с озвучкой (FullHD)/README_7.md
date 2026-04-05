@@ -1,3 +1,107 @@
+###  Публикация: 1492348   (903467) от 29.08.2021
+
+Musaigen no Phantom World | Myriad Colors Phantom World | Бескрайний мир фантомов [2016, TV, 13 из 13 + 1 SP] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903467.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эпидемии всегда угрожали человечеству – то чума, то СПИД, то какой-нибудь свиной грипп, но в этом мире в начале XXI века случилось странное – очередной вирус вызвал не болезнь, а… массовое расширение сознания! Да, жители Земли стали видеть незримое, тот самый «тонкий мир», ранее доступный лишь избранным. И ничего, пока ученые ломали голову, простые люди быстро привыкли (   Читать дальше...   )Производство: Kyoto Animation / 京都アニメーションЖанр: приключения, комедия, мистикаРежиссер: Исихара ТацуяЯзык озвучки: Японский и русскийСубтитры: ASS, Встроенные, Полные+надписи |Продолжительность: 14 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A937F176408587D53EE8B979FB377379B52C3FC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1492421   (903461) от 29.08.2021
+
+Aldnoah.Zero | Алдноа.Зеро [ТВ-1] [2014, TV, 12 из 12] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903461.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1972 году на Луне астронавты нашли Гиперврата – древний портал на Марс. Люди стали заселять Красную планету, а вскоре колонисты обнаружили технологию Предтеч под названием Альдноа. Раскрыв ее тайну и получив в руки страшное оружие, доктор Верс Рэйверс объявил себя императором Марса (переименованного в Верс) и лидером новой расы, что заменит прогнившее человечество. (   Читать дальше...   )Производство: Япония, A-1 Pictures Inc., TroycaЖанр: Приключения, фантастика, меха, драмаРежиссер: Эй АокиЯзык озвучки: Русский, японскийПродолжительность: 12 эп. по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:015D09D5B8EF1CB2CE22BCE1BADB739ADB87B863
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369417   (902878) от 23.03.2020
+
+Toaru Kagaku no Accelerator | A Certain Scientific Accelerator | Некий научный Акселератор [2019, TV, 12] WEBRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акселератор, самый сильный эспер Академграда, отдыхает в больнице после того, как спас Ласт Ордер и в процессе получил пулю в голову. Но его лечение прерывается, когда загадочная девушка приносит фото маленькой подруги Акселератора и просит о помощи. Теперь они противостоят Дисциплинарной мере, организации фанатиков, которые хотят любой ценой нести «справедливость». (   Читать дальше...   )Производство: Япония, J.C. StaffЖанр: приключенияРежиссер: Каманака НобухаруСубтитры: Полные, отключаемые (Вшитые) | RusПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4141B342D622A2A42399B65CBBA12060545DF302
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369425   (902877) от 23.03.2020
+
+Maoyuu Maou Yuusha | Герой при Заклятом Враге [2013, TV, 12 ep] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Долгое время между людьми и демонами бушует война. Улучив момент, люди посылают своего лучшего Героя, чтобы убить Королеву демонов. Юноша проникает в замок Королевы и бросает ей вызов. Но перед боем Владычица демонов просит Героя выслушать её. Королева долго исследовала ситуацию и пришла к странному выводу, что эта война пошла на пользу, как людям, так и демонам. (   Читать дальше...   )Производство: Arms, ЯпонияЖанр: Фэнтези, Романтика, КомедияРежиссер: Такахаси ТакэоОзвучка: Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 12 Эпизодов по 23 Мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:993AE6B929F3094A0674EA580B29C794F335FBC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369545   (901134) от 24.03.2020
 
 Dakara Boku wa, H ga Dekinai | Говорю же, я не Извращенец! [2012, TV, 12 ep + OVA] BDRip 1080p 10-bit raw+rus
@@ -6,7 +110,7 @@ Dakara Boku wa, H ga Dekinai | Говорю же, я не Извращенец! 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901134.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ Guilty Crown | Корона Греха [2011, TV, 22 ep + OVA] BDRip 1080p 10-bi
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897972.jpg" />
 </div>
 
 
@@ -60,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895406.jpg" />
 </div>
 
 
@@ -86,7 +190,7 @@ Jibaku Shounen Hanako-kun | Toilet-Bound Hanako-kun | Туалетный мал�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894542.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ Final Fantasy VII: Advent Children | Последняя фантазия VII: Д
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893333.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ Kono Subarashii Sekai ni Shukufuku wo! | Этот замечательный м�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893191.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ Kono Subarashii Sekai ni Shukufuku wo! 2 | Этот замечательный �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893153.jpg" />
 </div>
 
 
@@ -192,7 +296,7 @@ Nekopara (2020) | Кошачий рай (ТВ) [2020, TV, 12 из 12] WEB-DL 108
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886265.jpg" />
 </div>
 
 
@@ -220,7 +324,7 @@ Magia Record: Mahou Shoujo Madoka Magica Gaiden | Истории о магии: 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886263.jpg" />
 </div>
 
 
@@ -247,7 +351,7 @@ Runway de Waratte | Улыбайся на подиуме [2020, TV, 12 из 12] 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886257.jpg" />
 </div>
 
 
@@ -274,7 +378,7 @@ Koukaku Kidoutai Arise: PYROPHORIC CULT / Ghost in the Shell ARISE: PYROPHORIC C
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882024.jpg" />
 </div>
 
 
@@ -300,7 +404,7 @@ Tensei Shitara Slime Datta Ken | О моём Перерождении в Сли�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881302.jpg" />
 </div>
 
 
@@ -327,7 +431,7 @@ Made in Abyss | Созданный в Бездне [ТВ-1] [2017, TV, 13 ep] BD
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879597.jpg" />
 </div>
 
 
@@ -353,7 +457,7 @@ Koukaku Kidoutai: Shin Gekijouban / Ghost in the Shell: New Movie / Призра
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878424.jpg" />
 </div>
 
 
@@ -379,7 +483,7 @@ Boku no Hero Academia (2019) / My Hero Academia Season 4 / Моя геройск
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_874017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874017.jpg" />
 </div>
 
 
@@ -405,7 +509,7 @@ Asura / Асура (2012) BDRip 1080p rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871292.jpg" />
 </div>
 
 
@@ -431,7 +535,7 @@ Tsuujou Kougeki ga Zentai Kougeki de Nikai Kougeki no Okaasan wa Suki Desuka? | 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870225.jpg" />
 </div>
 
 
@@ -457,7 +561,7 @@ Mahou Shoujo Madoka Magica / Девочка-волшебница Мадока [2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869261.jpg" />
 </div>
 
 
@@ -483,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869215.jpg" />
 </div>
 
 
@@ -509,7 +613,7 @@ Ochikobore Fruit Tart | Dropout Idol Fruit Tart | Отикоборэ: Фрукт
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867755.jpg" />
 </div>
 
 
@@ -535,7 +639,7 @@ Rakuen Tsuihou | Expelled from Paradise | Изгнанные из рая [2014, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867730.jpg" />
 </div>
 
 
@@ -561,7 +665,7 @@ Cop Craft | Cop Craft | Мастерство копа [2019, TV] BDRip 1080p raw
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865072.jpg" />
 </div>
 
 
@@ -572,111 +676,6 @@ Cop Craft | Cop Craft | Мастерство копа [2019, TV] BDRip 1080p raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60C6D2536FA665840117C128A7DFE724EB67A697
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375664   (863274) от 15.04.2020
-
-Sousei no Onmyouji | Две звезды оммёдзи [2016, TV, 50 из 50] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863274.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой по имени Рокуро происходит из семьи магов-оммёдзи, которые уже много поколений сражаются со злыми духами Кегаре. Однако сам он мечтает быть певцом, футболистом — да кем угодно, лишь бы не оммёдзи. Впрочем, когда на горизонте возникает девушка-оммёдзи Бенио, Рокуро вдруг впервые в жизни ощущает конкуренцию и наконец решает проявить свои врождённые таланты. (   Читать дальше...   )Производство: Япония, Studio PierrotЖанр: Приключение, сверхъестественное, сёнен, романтикаРежиссер: Томохиса ТагутиЯзык озвучки: Японский и русскийСубтитры: ASS, Внешние, Полные + надписи | RUПродолжительность: 50 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:639EACF400DC8C4992883C923A7CE7D1434C2C17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 767719   (863221) от 18.03.2014
-
-Akira | Акира [1988, MV] BDRip 1080p raw + rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863221.jpg" />
-</div>
-
-
-###  Подробнее
-
-Год 1988. Огромный взрыв наподобие тех, что без малого полвека назад сотрясли Хиросиму и Нагасаки, стирает Токио с лица земли. Нью-Токио 2019 года, восставшее из пепла, словно тёмный Феникс. Организация страны теперь напоминает тоталитарное государство, железной рукой подавляющее подпольное Сопротивление. В исследовательских центрах проводятся парапсихологические (   Читать дальше...   )Жанр: приключения, фантастика, мистика, киберпанкРежиссер: Отомо КацухироСубтитры: •Продолжительность: 124 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05ADD620672152AF079C0DBD20AD22F368916EA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365543   (859730) от 17.04.2020
-
-Youjo Senki | Saga of Tanya the Evil | Военная Хроника Маленькой Девочки [2017, TV, 12 ep + 13 sp] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859730.jpg" />
-</div>
-
-
-###  Подробнее
-
-Где-то в параллельном мире идёт война. В первых рядах, среди суровых мужчин, командующая ни много ни мало — целым отрядом, затесалась юная белокурая девушка по имени Таня Дегуршаф.
-Ну, или, по крайней мере, так кажется со стороны. Мало кто знает, что на самом деле она — это он. Ещё будучи в Японии очередным представителем офисного планктона, пускай и очень успешным, (   Читать дальше...   )Производство: NUT, ЯпонияЖанр: Приключения, ФэнтезиРежиссер: Уэмура ЮтакаОзвучка: Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 12 Эпизодов по 23 Мин; 13 Эпизодов по 2 Мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:593A57F4AA45851380B6E18D5B5A14215E4E8152
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365544   (859726) от 17.04.2020
-
-Gekijouban Youjo Senki | Saga of Tanya the Evil | Военная Хроника Маленькой Девочки. Фильм [2019, Movie] BDRip 1080p raw+rus
-
->>След.
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859726.jpg" />
-</div>
-
-
-###  Подробнее
-
-1926 год. 203-й магический батальон Имперской армии во главе с майором Таней Дегуршаф, возвращаются на родину после окончания успешной кампании по разгрому остатков армии Республики на Южном континенте. Однако ожидаемого празднования успешного завершения миссии не случилось. В штаб поступает сообщение о массовой мобилизации вблизи границы с Российской Федерацией (   Читать дальше...   )Производство: NUT, ЯпонияЖанр: Приключения, ФэнтезиРежиссер: Уэмура ЮтакаОзвучка: Многоголосая закадровая, ДублированнаяСубтитры: Надписи, ПолныеПродолжительность: 01:38:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B3031AC8C4FC3AAEE40390006D419D539B75A47
 ```
 
 https://mybot314.ru/tekegram_catalog/

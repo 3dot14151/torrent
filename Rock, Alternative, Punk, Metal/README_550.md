@@ -1,3 +1,90 @@
+###  Публикация: 927512   (524917) от 13.08.2015
+
+Soulfly - Archangel (2015) [MP3|320 кб/с]<Groove Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Sold Our Souls To Metal
+02. Archangel
+03. Sodomites (Feat. Todd Jones Of Nails)
+04. Ishtar Rising(   Читать дальше...   )Жанр: Groove Metal, Thrash MetalПродолжительность: 00:45:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AE4EFD5291A71489A388FD186517D612C099898
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927604   (524845) от 13.08.2015
+
+Би-2 - #16 Плюс (2014) [FLAC|image+.cue]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дайте огня (feat. Альянс)
+02. Нэпман
+03. Робот (feat. Yuri Usachev)
+04. Хипстер (nu disco mix by Fun2mass Records)(   Читать дальше...   )Жанр: RockПродолжительность: 01:06:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A24A2C2697A8DCB6D28E0127E6E21D660F054BE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157836   (524769) от 13.08.2017
+
+Masterplan - MK II (2007) Japanese Edition [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Phoenix Rising (1:18)
+ 02 - Warrior's Cry (5:21)
+ 03 - Lost And Gone (2:59)
+ 04 - Keeps Me Burning (4:01)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:57:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:396A7D77048632A72EB3DE73F1E634F89E9BDA29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1240557   (524531) от 12.08.2018
 
 Резиновый Дедушка - ДоЙгрался (2007) [MP3|320 Kbps] <Rock>
@@ -6,7 +93,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524531.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524521.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ David Bowie - The "Mercury" Demos (with John 'Hutch' Hutchinson) (2019) Mono [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524518.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Marianas Rest - Marianas Rest (Demo) (2014) [FLAC|Lossless|WEB-DL|tracks] <Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524498.jpg" />
 </div>
 
 
@@ -121,7 +208,7 @@ Aposento - Welcome To Darkness (1997) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524441.jpg" />
 </div>
 
 
@@ -150,7 +237,7 @@ Thunderstick - Something Wicked This Way Comes (2017) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524418.jpg" />
 </div>
 
 
@@ -179,7 +266,7 @@ KAUAN - Pirut Live (2022) [FLAC|Lossless|Web-DL|tracks] <Dark Folk, Atmospheric 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524416.jpg" />
 </div>
 
 
@@ -208,7 +295,7 @@ Greg Puciato - Mirrorcell (2022) [MP3|320 Kbps] <Mathcore, Grunge, Sludge, Indus
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524414.jpg" />
 </div>
 
 
@@ -237,7 +324,7 @@ Storm Resistant - Storm Resistant (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524409.jpg" />
 </div>
 
 
@@ -266,7 +353,7 @@ Aina - Living In A Boy's World (1988) 2005 Reissue [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524348.jpg" />
 </div>
 
 
@@ -295,7 +382,7 @@ Thunder - Dopamine (2022) 2xCD, Japanese Edition [FLAC|Lossless|image + .cue] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524316.jpg" />
 </div>
 
 
@@ -324,7 +411,7 @@ Fair Warning - Pimp Your Past (2016) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524276.jpg" />
 </div>
 
 
@@ -353,7 +440,7 @@ VA - Classic Road Trip (2018) [MP3|320 Kbps] <Blues, Psychedelic Rock, Folk, Blu
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524255.jpg" />
 </div>
 
 
@@ -382,7 +469,7 @@ Eric Clapton - Nothing But the Blues (Live at the Fillmore, San Francisco, 1994)
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524213.jpg" />
 </div>
 
 
@@ -411,7 +498,7 @@ VA - Guitar Battle (1997) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524180.jpg" />
 </div>
 
 
@@ -440,7 +527,7 @@ Ozzy Osbourne - Patient Number 9 (2022) Single [FLAC 2.0|44/24|WEB-DL|tracks] <H
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524146.jpg" />
 </div>
 
 
@@ -466,7 +553,7 @@ Eisregen - 2 EP, 1 альбом (2014 - 2015) [MP3|320 кб/с]<Dark Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524126.jpg" />
 </div>
 
 
@@ -495,7 +582,7 @@ The Damned - Les Genies du Rock - Gun Fury (1995) [MP3|320 кб/с]<Goth Rock, P
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524124.jpg" />
 </div>
 
 
@@ -524,7 +611,7 @@ Stiv Bators - Les Genies du Rock - Sonic Reducer (1994) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524123.jpg" />
 </div>
 
 
@@ -553,7 +640,7 @@ The Doobie Brothers - Les Genies du Rock - First Album (1993) [MP3|320 кб/с]<
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524121.jpg" />
 </div>
 
 
@@ -582,7 +669,7 @@ The Bollock Brothers - Les Genies du Rock - God Save The Queen (1995) [MP3|320 �
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524115.jpg" />
 </div>
 
 
@@ -611,7 +698,7 @@ The 13th Floor Elevators - Les Genies du Rock - You'Re Gonna Miss Me (1993) [MP3
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524113.jpg" />
 </div>
 
 
@@ -640,7 +727,7 @@ Nuclear Sun - Rising (2015) EP [FLAC|Lossless|WEB-DL]<Industrial Rock | Futurepo
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524112.jpg" />
 </div>
 
 
@@ -654,93 +741,6 @@ Nuclear Sun - Rising (2015) EP [FLAC|Lossless|WEB-DL]<Industrial Rock | Futurepo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:871841BD86AF85D2E33E5DF02299F354171DE087
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927566   (524111) от 14.08.2015
-
-Stray Cats - Les Genies du Rock - Rockabilly Live (1994) [MP3|320 кб/с]<Rockabilly, Psychobilly>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Blast Off (2:58)
-02.  Runaway Boys (3:34)
-03.  Stray Cat Strut (4:36)
-04.  Rockabilly Rules O.K. (3:19)(   Читать дальше...   )Жанр: Rockabilly, PsychobillyПродолжительность: 01:14:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1C33548774D36D846D5DBD9B0100DA5E0230C14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927808   (524066) от 14.08.2015
-
-The Kinks - Les Genies du Rock - Waterloo Sunset (1995) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  David Watts (2:37)
-02.  Death of a Clown (3:14)
-03.  Two Sisters (2:04)
-04.  No Return (2:03)(   Читать дальше...   )Жанр: RockПродолжительность: 01:01:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5686FFF6EA3DA0082990E06EB4FF83168ED183B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927598   (524053) от 14.08.2015
-
-Hair Of The Dog - The Siren's Song (2015) [MP3|320 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into the Storm (02:18)
-02. You Soft Spoken Thing (03:53)
-03. Don't Know My Name (05:35)
-04. The Spell (03:03)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BEDF0853BB5CC2E37E21BA0D4C270ECF6D5C351
 ```
 
 https://mybot314.ru/tekegram_catalog/

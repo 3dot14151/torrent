@@ -1,3 +1,60 @@
+###  Публикация: 1575844   (372315) от 11.09.2022
+
+Blender Market, Josh Gambrell, Ponte Ryuurui | The Blender Bros Hard Surface Game Asset Course 2.0 (2022) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наша проверенная и зарекомендовавшая себя система создания ассетов гарантированно подходит для любой твердотельной модели, независимо от ее сложности.
+Нам не терпится поделиться с вами этой формулой и навсегда изменить ваш рабочий процесс к лучшему!
+
+Наш рабочий процесс для создания игровых ассетов MAD-T: Моделирование, Автоматизация, Децимация, Триангуляция.Производство: Blender MarketЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 11:21:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56D0FCF794BB04D5DE83200EA23B775723988C7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575918   (372313) от 11.09.2022
+
+Udemy, Dmitrii Fokeev | Теория дизайна - для веб дизайнеров, фотографов и художников (2022) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372313.jpg" />
+</div>
+
+
+###  Подробнее
+
+Закройте все пробелы в знаниях теории цвета, типографики и композиции! Этот курс состоит из трёх больших, теоретических тем, которые обязаны иметь в своей копилке знаний, каждый профессиональный дизайнер, фотограф или художник. Здесь, вы найдёте подробную структурированную информацию о трёх темах: теории цвета, типографике и композиции!
+
+Цвет - управляет вниманием! (   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 05:23:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E75918E7E9ABC7846EFB861B1EBA6AFA71CB939
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1416075   (371159) от 14.10.2020
 
 Skillbox | Motion-дизайн с нуля до PRO (2020) PCRec
@@ -6,7 +63,7 @@ Skillbox | Motion-дизайн с нуля до PRO (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371159.jpg" />
 </div>
 
 
@@ -32,7 +89,7 @@ Udemy, Mrawan Hussain | Создание реалистичного автомо
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369125.jpg" />
 </div>
 
 
@@ -59,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364528.jpg" />
 </div>
 
 
@@ -85,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364524.jpg" />
 </div>
 
 
@@ -114,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359968.jpg" />
 </div>
 
 
@@ -141,7 +198,7 @@ Skillshare | Сделай своего первого милого 3D персо
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358761.jpg" />
 </div>
 
 
@@ -170,7 +227,7 @@ CG Cookie | Моделирование, Текстурирование и Шей
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356301.jpg" />
 </div>
 
 
@@ -198,7 +255,7 @@ CG Cookie | Риггинг и Анимация Сундука с сокрови�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356299.jpg" />
 </div>
 
 
@@ -226,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355261.jpg" />
 </div>
 
 
@@ -254,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355206.jpg" />
 </div>
 
 
@@ -283,7 +340,7 @@ Udemy, Imran Nuruhussen | Rendering For Jewelers With Blender (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354286.jpg" />
 </div>
 
 
@@ -310,7 +367,7 @@ Cubebrush, Pierrick Picaut | Рыцарь Дракон - Полный курс �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353817.jpg" />
 </div>
 
 
@@ -337,7 +394,7 @@ CG Fast Track | Процедурные шейдеры в Blender 2.90 / Procedur
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352987.jpg" />
 </div>
 
 
@@ -364,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352821.jpg" />
 </div>
 
 
@@ -393,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352673.jpg" />
 </div>
 
 
@@ -422,7 +479,7 @@ Udemy, Darrin Lile | Blender 2.8 Создание персонажа / Blender 2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351867.jpg" />
 </div>
 
 
@@ -449,7 +506,7 @@ Lynda.com | Photoshop CC 2019 New Features (2018)  PCRec [H.264/720p-LQ] [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351684.jpg" />
 </div>
 
 
@@ -475,7 +532,7 @@ Igor Staritsin | Создание эпического мэтт-пейнт шо�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350799.jpg" />
 </div>
 
 
@@ -501,7 +558,7 @@ Skillshare, Neil Bettison | Создание стилизованной 3D мо�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350796.jpg" />
 </div>
 
 
@@ -528,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349623.jpg" />
 </div>
 
 
@@ -554,7 +611,7 @@ Udemy, Darrin Lile | Blender 2.8 Создание игрового персон�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349619.jpg" />
 </div>
 
 
@@ -581,7 +638,7 @@ Videosmile, Максим Кузнецов | Супер Figma  (2022) WEB-DL [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349513.jpg" />
 </div>
 
 
@@ -609,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347703.jpg" />
 </div>
 
 
@@ -635,7 +692,7 @@ Lynda.com | Photoshop CC 2019 Essential Training Photography (2018) PCRec [H.264
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347189.jpg" />
 </div>
 
 
@@ -646,59 +703,6 @@ Photoshop CC 2019 имеет инструменты и функции, кото�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A80741286F0925923E4B173E3488239755E5E635
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257214   (347048) от 25.10.2018
-
-Lynda.com | Photoshop CC 2019 Essential Training: The Basics (2018) PCRec [H.264/720p-LQ] [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучите основные функции Photoshop CC 2019. Этот курс охватывает ключевые понятия, которые должны знать все пользователи Photoshop независимо от того, как они используют программу.Производство: Lynda.comЖанр: Photoshop, Обучающее видеоПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 04:54:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4552A8193EE4FF6411138C96F7C9EE710E22392
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418630   (346434) от 25.10.2020
-
-Udemy | Создание Sci-Fi ассета для игр в Blender 2.81 / Blender Sci fi Game Asset Creation with Emiel Sleegers (2020) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс по созданию ассета для игры AAA качества от художника из Ubisoft.
-Этот курс не для полных новичков, которые никогда раньше не использовали Blender, Substance painter, Marmoset toolbag. Вместо этого это дружественный курс для начинающих, что означает, что если вы знаете, как передвигаться в этих программах, возможно, уже использовали их раньше, но вы все еще (   Читать дальше...   )Производство: UdemyЖанр: 3D моделированиеПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 13:23:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3BEAC15C5EACFD3FF59F16BA399F61E7947C6FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

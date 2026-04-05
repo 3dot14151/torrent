@@ -1,3 +1,29 @@
+###  Публикация: 1003172   (844361) от 02.04.2016
+
+Андрей Журавлев. | Ask a Pro. На что способен Photoshop? (2014) WEBRip [H.264/1080p]
+
+>>Обучающие видеоматериалы
+>>Фотография и Видео (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запись онлайн занятия, на котором Андрей Журавлев ответил на более, чем 70 реальных вопросов, которые волнуют графическое сообщество! На многие вопросы эксперт раскрыл проблему под новым ракурсом и дал детальный и понятный способ ее решения. Андрей Журавлев обладает богатым практическим опытом обработки изображений, теоретическими знаними и интересными идеями, а (   Читать дальше...   )Жанр: Обучающее видеоПродолжительность: 05:56:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD617F2B3C2D6BAB6C3789612FCFF17BF1A6F1C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1003130   (844353) от 02.04.2016
 
 Нетология | SMM-менеджер: продвижение бизнеса в социальных сетях (2013) PCRec
@@ -6,7 +32,7 @@
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844353.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ Zillionarts | Реалистичная цифровая живопись (2018) 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844265.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844131.jpg" />
 </div>
 
 
@@ -89,7 +115,7 @@ Udemy | Angular 9. Практический курс по созданию Ин�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844115.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ Udemy | Практический курс для новичков по SQL и Po
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844004.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842688.jpg" />
 </div>
 
 
@@ -171,7 +197,7 @@ ProfIT | "Вуду" регулярных выражений (2015) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842507.jpg" />
 </div>
 
 
@@ -200,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842499.jpg" />
 </div>
 
 
@@ -228,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842496.jpg" />
 </div>
 
 
@@ -256,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842492.jpg" />
 </div>
 
 
@@ -285,7 +311,7 @@ TargetHunter | Академия TargetHunter 3.0 Полный курс по пр
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842362.jpg" />
 </div>
 
 
@@ -311,7 +337,7 @@ OTUS | iOS-разработчик. Базовый курс (2020) PCRec [H.264/1
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842361.jpg" />
 </div>
 
 
@@ -337,7 +363,7 @@ OTUS | iOS Разработчик. Продвинутый курс v 2.0 (2020) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842286.jpg" />
 </div>
 
 
@@ -365,7 +391,7 @@ OTUS | Разработчик C# (2020) PCRec [H.264/1080-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842268.jpg" />
 </div>
 
 
@@ -391,7 +417,7 @@ loftschool | Платные видеокурсы [коллекция, 8 курс
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842260.jpg" />
 </div>
 
 
@@ -417,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842195.jpg" />
 </div>
 
 
@@ -443,7 +469,7 @@ kalachevaschool, Евдокия | Настроение города (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841201.jpg" />
 </div>
 
 
@@ -469,7 +495,7 @@ kalachevaschool, Евдокия | Колоритные жители (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841200.jpg" />
 </div>
 
 
@@ -496,7 +522,7 @@ kalachevaschool, Анастасия Лавру | Добрый волшебник
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841197.jpg" />
 </div>
 
 
@@ -522,7 +548,7 @@ kalachevaschool, Анастасия Лавру | Мудрая сова (2018) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841196.jpg" />
 </div>
 
 
@@ -548,7 +574,7 @@ kalachevaschool, Евдокия | Ритм улиц (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841187.jpg" />
 </div>
 
 
@@ -574,7 +600,7 @@ kalachevaschool, Анастасия Лавру | Сказочный замок (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841183.jpg" />
 </div>
 
 
@@ -600,7 +626,7 @@ Mindvalley, Джим Квик | Скорочтение (2021) WEBRip
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840944.jpg" />
 </div>
 
 
@@ -626,7 +652,7 @@ Udemy, Emiel Sleegers | Full Environment Creation in UE5 & Blender 2.92 - In-Dep
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840824.jpg" />
 </div>
 
 
@@ -652,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840708.jpg" />
 </div>
 
 
@@ -666,32 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAF69E8CB76FBF971862CB337160C91A766523B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 309549   (840705) от 16.03.2011
-
-video2brain | Calvinize. The Wrong Place for Pure Photography -   Не место плохим фотографиям [2010] [EN] PCRec
-
->>Обучающие видеоматериалы
->>Фотография и Видео (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840705.jpg" />
-</div>
-
-
-###  Подробнее
-
-Calvin Hollywood, победитель в художественной фотографии из Германии, делится секретами своего успеха в этом углубленном курсе. Начиная с основ редактирования изображения в  Photoshop – включая работу со слоями, масками, коррекцией цвета и  RAW преобразованием – он переходит к более продвинутым темам, как ретуширование и создание композиций изображений из нескольких источников. Каждый свой шаг он сопровождает демонстрацией собственных техник так, что вы можете перенести взгляд Hollywood в свои собственные работы. Calvin любит исследовать способы, которые вы не найдете ни в какой документации или книге. Поэтому если вы действительно хотите сделать свои фотографии выдающимися, вдохновляйтесь лучшим от Calvin Hollywood!Жанр: PhotoshopПродолжительность: 04:18:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12F1EEDCE8350147A4E0AF1967A84843E0BCD490
 ```
 
 https://mybot314.ru/tekegram_catalog/

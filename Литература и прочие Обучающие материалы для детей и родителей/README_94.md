@@ -1,3 +1,30 @@
+###  Публикация: 1099562   (901317) от 03.02.2017
+
+В.В. Барабанов и др. | ЕГЭ 2017. География. Типовые тестовые задания. (2017) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Типовые тестовые задания по географии содержат 10 вариантов комплектов заданий, составленных с учетом всех новейших изменений и требований Единого государственного экзамена в 2017 году. Назначение пособия — предоставить читателям информацию о структуре и содержании КИМ 2017 г. по географии, степени трудности заданий.
+  Авторы заданий — ведущие ученые, являющиеся разработчиками (   Читать дальше...   )Жанр: ЕГЭФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A275313ED34CCD3CF62AE01AC4ED8651362A137
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 760391   (901296) от 25.02.2014
 
 Д.Н. Мамин-Сибиряк | Емеля-охотник. Рассказы и сказки (1981) [FB2]
@@ -6,7 +33,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901296.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901125.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901110.jpg" />
 </div>
 
 
@@ -86,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900891.jpg" />
 </div>
 
 
@@ -114,7 +141,7 @@ Foxford | МАТЕМАТИКА. Подготовка к ЕГЭ. Часть C, 11
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900674.jpg" />
 </div>
 
 
@@ -140,7 +167,7 @@ Foxford | ФИЗИКА. Подготовка к ЕГЭ. Часть B, 11 кла�
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900656.jpg" />
 </div>
 
 
@@ -166,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900496.jpg" />
 </div>
 
 
@@ -192,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900432.jpg" />
 </div>
 
 
@@ -219,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900431.jpg" />
 </div>
 
 
@@ -245,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900322.jpg" />
 </div>
 
 
@@ -271,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900313.jpg" />
 </div>
 
 
@@ -297,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900299.jpg" />
 </div>
 
 
@@ -323,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900188.jpg" />
 </div>
 
 
@@ -349,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899955.jpg" />
 </div>
 
 
@@ -375,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899946.jpg" />
 </div>
 
 
@@ -401,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899933.jpg" />
 </div>
 
 
@@ -427,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899621.jpg" />
 </div>
 
 
@@ -453,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899411.jpg" />
 </div>
 
 
@@ -479,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899304.jpg" />
 </div>
 
 
@@ -505,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899284.jpg" />
 </div>
 
 
@@ -533,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899249.jpg" />
 </div>
 
 
@@ -559,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899207.jpg" />
 </div>
 
 
@@ -586,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899162.jpg" />
 </div>
 
 
@@ -614,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899045.jpg" />
 </div>
 
 
@@ -640,7 +667,7 @@ Foxford | ХИМИЯ. Подготовка к ЕГЭ, 11 класс. (2014-2015)
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898898.jpg" />
 </div>
 
 
@@ -651,32 +678,6 @@ Foxford | ХИМИЯ. Подготовка к ЕГЭ, 11 класс. (2014-2015)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D4675D93F39AB79EAD657D668918B3BFB14CEF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 867313   (898791) от 10.02.2015
-
-Foxford | МАТЕМАТИКА. Подготовка к ЕГЭ. Часть B, 11 класс. (2014-2015) [unpacked]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898791.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный курс предназначен в первую очередь тем, у кого есть значительные пробелы в базовых математических знаниях. На занятиях мы уделим особое внимание темам, вызывающим наибольшие сложности у школьников, - теории вероятностей, производной и интегралам, стереометрии и тригонометрии. У вас есть все возможности для успешной подготовки к экзамену: в части В, по сути, (   Читать дальше...   )Жанр: Математика, ЕГЭ, видеокурсыФормат: MP4
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBEDD007BDD586A351713A915021C830228C86A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

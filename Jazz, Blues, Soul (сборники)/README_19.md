@@ -6,7 +6,7 @@ AI - No name compilation part 12 Soulful Blues Ballad (2025) [MP3|320 Kbps] <Sou
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260618.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - No name compilation part 8 Soulful Blues Ballad (2025) [MP3|320 Kbps] <Soul
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256851.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - No name compilation part 7 Soulful Blues Ballad (2025) [MP3|320 Kbps] <Soul
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256850.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - No name compilation part 6 Blues, Soul (2025) [MP3|320 Kbps] <Blues, Soul, 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256848.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ John Lee Hooker and John Lee Hooker, Jr. - Best of (1959-2006) Compilation Album
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255942.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Swing Jazz Wonder Of Romance (2023) [MP3|320 Kbps] <Swing Jazz, Nu Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254918.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Blues by Can Soulful Blues Ballad Favorites Collection (2025) [MP3|320 Kbps
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254244.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - #003 ВЕРШИНА БЛЮЗА (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252554.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - #004 ВЕРШИНА БЛЮЗА (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252553.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - #005 ВЕРШИНА БЛЮЗА (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252550.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - #006 ВЕРШИНА БЛЮЗА (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252548.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - No name Sultry & Soulful Jazz  compilation (2025) [MP3|320 Kbps] <Sultry & 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252428.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Chicago Blues Radio - Favorites Collection Part 6 (2025) [MP3|320 Kbps] <Blues, 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252426.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ The Millennium Collection - The Best Pop Music Of The 20th Century (1950-1998 20
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251321.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Morgan Luna - Compilation (2025) [MP3|320 Kbps] <Blues, Soul>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250959.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ VA - #002 ВЕРШИНА БЛЮЗА (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250585.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ VA - #001 ВЕРШИНА БЛЮЗА (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250581.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Chilled Blues - Dark Blues Ballads Winter Nights with Blues (2025) [MP3|320 Kbps
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250528.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Etta Mae Hartwell - Favorites Collection (2025) [MP3|320 Kbps] <Blues, Soul>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250456.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Enlly Blue - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Blues, Blues Roc
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250422.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Sons of Ashes - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Blues, Blues 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250421.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Ilaria Argento - Favorites Collection (2025) [MP3|320 Kbps] <Blues, Blues Rock, 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248573.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Enlly Blue - Favorites Collection (2025) [MP3|320 Kbps] <Blues, Blues Rock, AI>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248571.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Sons of Ashes - Favorites Collection (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248569.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246161.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ Chicago Blues Radio - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Blues, 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246124.jpg" />
 </div>
 
 

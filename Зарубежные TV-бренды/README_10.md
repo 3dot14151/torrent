@@ -6,7 +6,7 @@ Discovery: Техногеника. Кругобайкальская железн
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922432.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922316.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Discovery:Разрушители легенд. В погоне за ураган
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922293.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922205.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ DV: Занимательно обо всем. [выпуски 54-61] / C'est pas
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922181.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ NG. Cуперпрайд (Львиные страсти) / Superpride (2007) HDTV
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920928.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Animal Planet: Рууд и его жуки. Жуки-трюкачи / Buggin wit
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920229.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Discovery: Загадки всемирной истории: Внутри бун
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920192.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Discovery: Недружелюбная Вселенная. Нападение п�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920178.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Discovery: Американский Чоппер / American Chopper [Season 6] (
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919879.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919022.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ NG: Суперсооружения. Пальмовые острова в Дуб�
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918813.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Discovery: Как выжить среди акул / Surviving Sharks (2007) SAT
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918745.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Animal Planet (BBC): Приключение осьминога / The Octopus Cha
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918440.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918403.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ DV: Форма жизни. История царства животных [се�
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918062.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ BBC. Виртуальная революция / The Virtual Revolution (2010) H
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917859.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917465.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ NG: Тайные жизни Иисуса / Secret Lives of Jesus (2006) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917052.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ BBC: Апокалипсис древних цивилизаций - 2 - Зага
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916872.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ BBC: Апокалипсис древних цивилизаций - 1 - Смер
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916865.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916847.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916801.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Discovery. Техногеника. Родина-мать и Останкинск
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916771.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916742.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ BBC: Апокалипсис древних цивилизаций - 3 - Гибе
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916735.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Cesair - Omphalos (2017) [FLAC|Lossless|tracks] <Folk, Celtic>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271274.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - All American Country Christmas (2019) [FLAC|Lossless|WEB-DL|tracks] <Countr
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266153.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - A Very Joyful Bluegrass Christmas (2019) [FLAC|Lossless|WEB-DL|tracks] <Cou
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264283.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Lisa Stanley - Heart and Soul (2017) [FLAC|Lossless|WEB-DL|tracks] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263457.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Eva Cassidy - Acoustic (2017) [FLAC|Lossless|WEB-DL|tracks] <Folk, Pop, Jazz>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263392.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Willie Nelson - Workin' Man (Willie Sings Merle) (2025) [FLAC|Lossless|tracks + 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260727.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Danheim - Domadagr (2021) [FLAC|Lossless|Web-DL|tracks] <Dark Folk, Nordic Folk,
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257940.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Danheim - Heimferd (2025) [FLAC|Lossless|Web-DL|tracks] <Dark Folk, Nordic Folk,
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257939.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Украинские народные песни (2000) [FLAC|Lossless]<Fol
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252736.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Uncle Noking - Время историй (2023) [FLAC|Lossless|WEB-DL|tracks] <D
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245702.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Teufelstanz - Camera Obscura (2017) [FLAC|Lossless|image + .cue] <Medieval Folk,
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245601.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243866.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Restless Heart - Greatest Hits (1998) [FLAC|Lossless|WEB-DL|tracks] <Folk, World
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242996.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Hush Money - Industry Standard (2022) [FLAC|Lossless|WEB-DL|tracks] <Southern Ro
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242694.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242233.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Reba McEntire - Read My Mind (1994) [FLAC|Lossless|tracks + .cue] <Country Rock>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240274.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Tenhi - Valkama (2023) [FLAC|Lossless|WEB-DL|tracks] <Nordic Folk, Progressive R
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_238475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_238475.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_232236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232236.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Jason Allen - Something I Dreamed (2001) [FLAC|Lossless|image + .cue] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231510.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Gene Autry's - Christmas Cracker (2009) [FLAC|Lossless|WEB-DL|tracks] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227411.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Blackmore’s Night - Here We Come A-Caroling (2020) EP [FLAC|Lossless|tracks + 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_227324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_227324.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Willie Nelson - For the Good Times: A Tribute to Ray Price (2016) [FLAC|Lossless
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226423.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Spiritual Front - The Queen Is Not Dead (2023) [FLAC|Lossless|WEB-DL|tracks] <Ne
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223211.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Faith Hill - It Matters To Me (1995) Warner W2 45872 [FLAC|Lossless|image + .cue
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220574.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Dornenreich - In Luft geritzt (2008) 3CD [FLAC|Lossless|image + .cue] <Dark Acou
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219500.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Die Schnitter - Saat und Ernte (2000) [FLAC|Lossless|image + .cue] <Folk Punk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_218761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218761.jpg" />
 </div>
 
 

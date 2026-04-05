@@ -1,3 +1,38 @@
+###  Публикация: 583343   (307523) от 04.12.2012
+
+Фураги - Антология Куйбышевской дворовой песни (2012) [WMA|Lossless]<Фураги>
+
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Clinica 63 Снег ложится на твои ресницы 2:49
+02 Хана Это было весело 2:23
+03 Завод Восьмиклинка 3:51
+04 Богги Партизан Голубые глазки 3:24
+05 Дрова Дре-Па-Пеш 3:23
+06 White Crow Тополя 5:10
+07 Светлана Салманова Жиганка 3:17
+08 Стугерон Янссен Студенточка 2:47
+09 Гуня Берман Парень в кепи и зуб золотой 5:03
+10 D Black Ты помниш мы сидели у огня 3:44(   Читать дальше...   )Жанр: ФурагиПродолжительность: 01:05:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B10CA9288D7E7B6CC474AFBD0217B4D79B7FE9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 418209   (306459) от 05.12.2011
 
 Владимир Высоцкий - Владимир Высоцкий в записях Михаила Шемякина (полное собрание из 7 CD) (1996) [MP3|320 kbps]<Авторская песня>
@@ -6,7 +41,7 @@
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306459.jpg" />
 </div>
 
 
@@ -41,7 +76,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306135.jpg" />
 </div>
 
 
@@ -70,7 +105,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306047.jpg" />
 </div>
 
 
@@ -105,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304308.jpg" />
 </div>
 
 
@@ -134,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303427.jpg" />
 </div>
 
 
@@ -163,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303407.jpg" />
 </div>
 
 
@@ -192,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303406.jpg" />
 </div>
 
 
@@ -221,7 +256,7 @@ VA - Хит по блату 2 (2000) [FLAC|Lossless|image + .cue]<Шансон>
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303370.jpg" />
 </div>
 
 
@@ -250,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303367.jpg" />
 </div>
 
 
@@ -279,7 +314,7 @@ Helene (Hélène) Rolles - Ce train qui s'en va (1989) [FLAC|Lossless|WEB-DL|tra
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303152.jpg" />
 </div>
 
 
@@ -308,7 +343,7 @@ Helene (Hélène) Rolles - Pour l’amour d’un garçon (1992) [FLAC|Lossless|W
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303135.jpg" />
 </div>
 
 
@@ -337,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302738.jpg" />
 </div>
 
 
@@ -366,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302150.jpg" />
 </div>
 
 
@@ -401,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301848.jpg" />
 </div>
 
 
@@ -430,7 +465,7 @@ VA - Коллекция из серии: Настроение шансон 33 CD
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301574.jpg" />
 </div>
 
 
@@ -456,7 +491,7 @@ Helene (Hélène) Rolles - Toi... émois (1995) [FLAC|Lossless|WEB-DL|tracks] <C
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301252.jpg" />
 </div>
 
 
@@ -485,7 +520,7 @@ Helene (Hélène) Rolles - Je m’appelle Hélène (1993) [FLAC|Lossless|WEB-DL|
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301242.jpg" />
 </div>
 
 
@@ -514,7 +549,7 @@ Helene (Hélène) Rolles - Le miracle de l'amour (1994) [FLAC|Lossless|WEB-DL|tr
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301160.jpg" />
 </div>
 
 
@@ -543,7 +578,7 @@ VA - Afisha Hold Music (2004) [FLAC|tracks+.cue]<Chanson, Ballad, Schlager>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300801.jpg" />
 </div>
 
 
@@ -572,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298834.jpg" />
 </div>
 
 
@@ -601,7 +636,7 @@ Helene (Hélène) Rolles - A force de solitude (1997) [FLAC|Lossless|WEB-DL|trac
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298581.jpg" />
 </div>
 
 
@@ -630,7 +665,7 @@ Helene (Hélène) Rolles - Hélène (2016) [FLAC|Lossless|WEB-DL|tracks] <Chanso
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298477.jpg" />
 </div>
 
 
@@ -659,7 +694,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292908.jpg" />
 </div>
 
 
@@ -688,7 +723,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289586.jpg" />
 </div>
 
 
@@ -717,7 +752,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289421.jpg" />
 </div>
 
 
@@ -731,35 +766,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24330FA0974BA8766261433FF9E481E152FF9B92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225370   (289410) от 18.11.2018
-
-Виктор Петлюра - 13 Альбомов (1999 - 2011) [FLAC|Lossless|image + .cue]<Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дембельская
-02. Самоволка
-03. Фотоснимок
-04. Желтая роза(   Читать дальше...   )Жанр: ШансонПродолжительность: 12:21:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06A06BA9282496D7E6D38E0B5C385E4BD4272446
 ```
 
 https://mybot314.ru/tekegram_catalog/

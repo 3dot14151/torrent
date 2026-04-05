@@ -6,7 +6,7 @@ Mathworks Matlab R2016b 9.1.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939496.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ IBM SPSS Statistics 21.0.0.0 [En/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931574.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Boxshot Ultimate 4.9 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927546.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Artlantis 2020 v9.0.2.21736 RedSDK 5.0.1 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921874.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Substance Alchemist 2.1.0 Tiramisu [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915640.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Boxshot Ultimate 4.12 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913685.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Wolfram Mathematica 12.1.0 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911892.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ GRAPHISOFT ArchiCAD 25 v25.0.0 [Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906423.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Maxon Cinema 4D 21.115 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898081.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ HDRLightStudio 5 v5.3 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891180.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Autodesk Maya 2017.1 Security Fix for Mac [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880959.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ SketchUp Pro 2021.1.2 v21.1.331 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866077.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Autodesk AutoCad 2021 MacOS [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859741.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ ZBrush 2021.7.1 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857522.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ MathWorks MATLAB R2021b v9.11.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853997.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ TouchDesigner Pro 2021.15240  [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827953.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ OmniGraffle Pro 7 v7.18.6 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826808.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Live Interior 3D Pro 2.9.8 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820776.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ JetBrains IntelliJ IDEA Ultimate 2017.3.2 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811438.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ OmniGraffle Pro 7 v7.19 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806394.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ V-Ray 3.70.05 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802308.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ SketchUp Pro 2021.1.2 v21.1.331 fix [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798339.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Reallusion Cartoon Animator 4 v4.51 Pipeline macOS [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787831.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Arturia Pigments 1.1.1.503 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787616.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Visible Body Muscle Premium 7.1.56 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787361.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Visible Body Anatomy & Physiology 6.2.07 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787347.jpg" />
 </div>
 
 

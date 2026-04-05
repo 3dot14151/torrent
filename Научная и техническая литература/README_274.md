@@ -1,134 +1,3 @@
-###  Публикация: 909357   (623712) от 19.06.2015
-
-Н. И. Гродеков | Хивинский поход 1873 года. Действия кавказских отрядов (1883) [FB2, EPUB]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623712.jpg" />
-</div>
-
-
-###  Подробнее
-
-Упорство хивинского хана в исполнении справедливых и умеренных требований нашего правительства немедленно освободить находящихся в Хиве русских пленных и дать туркестанскому генерал-губернатору объяснение своих прежних поступков, когда на дружественные сношения, с которыми обращался к нему ген.-ад. Фон-Кауфман, Сеид-Магомет Рахим-хан давал уклончивые ответы — было (   Читать дальше...   )Жанр: Военная историяФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58967BAAD48FED2E84E4A91D7080FA40898F6C7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910083   (623708) от 19.06.2015
-
-Д. Дардари и др. (ред.) | Методы спутникового и наземного позиционирования (2012) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга содержит обзор последних результатов научных исследований в области обработки сигналов для определения местоположения и навигации, в ней впервые объединены спутниковое и наземное позиционирование.В обзоре рассматриваются как «классические» технологии позиционирования с помощью спутниковых систем, так и новые темы: нахождение конечных пределов точности систем (   Читать дальше...   )Жанр: Электроника, навигацияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E339B529D7089671DFC4EEE4C7811234D998A17E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909715   (623546) от 19.06.2015
-
-Tektronix | Пробники от А до Я (2013) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это пособие ответит на вопросы: Что такое пробник? Какие пробники бывают? Как правильно выбрать пробник? Как правильно проводить измерения с помощью пробников? и на многие другие.Жанр: Электроника, измеренияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B158F512EA53AC85DE9A388419E6E121A7965562
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909593   (623535) от 19.06.2015
-
-Л. Н. Заблотский, А. И. Сальников | МБР-2 - первый гидросамолет Г.М. Бериева (2003) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623535.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга знакомит читателя с первым самолетом, созданным Г.М. Бериевым - МБР-2, ставшим самым массовым отечественным гидросамолетом.
-Изложена история разработки и испытания самолета, освоения серийного производства и совершенствования конструкции. Приводятся малоизвестные подробности службы и боевого применения МБР-2. Издание содержит большое количество фотографий, (   Читать дальше...   )Жанр: Военная техника, АвиацияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8644CD36E232E2622525D85E0009A62D18B3684
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909706   (623531) от 19.06.2015
-
-Tektronix | Осциллографы. Основные принципы измерений (2010) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623531.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осциллографы – незаменимый инструмент для тех, кто проектирует, производит или ремонтирует электронное оборудование. В современном быстро изменяющемся мире специалистам необходимо иметь самое лучшее оборудование для быстрого и точного решения своих насущных, связанных с измерениями задач. Будучи “глазами” инженеров в мир электроники, осциллографы являются ключевым (   Читать дальше...   )Жанр: Электроника, измеренияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8F34A7332CF1EA73B0FD0F4AE23960815626A45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 909634   (623530) от 19.06.2015
 
 Л.Г. Акулов, В.Ю. Наумов | Хранение и защита компьютерной информации (2015) [PDF]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623530.jpg" />
 </div>
 
 
@@ -164,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623518.jpg" />
 </div>
 
 
@@ -190,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623399.jpg" />
 </div>
 
 
@@ -216,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622617.jpg" />
 </div>
 
 
@@ -242,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622615.jpg" />
 </div>
 
 
@@ -269,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622523.jpg" />
 </div>
 
 
@@ -296,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622383.jpg" />
 </div>
 
 
@@ -323,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622362.jpg" />
 </div>
 
 
@@ -349,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622234.jpg" />
 </div>
 
 
@@ -377,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622227.jpg" />
 </div>
 
 
@@ -403,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622223.jpg" />
 </div>
 
 
@@ -429,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622220.jpg" />
 </div>
 
 
@@ -455,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622219.jpg" />
 </div>
 
 
@@ -481,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622205.jpg" />
 </div>
 
 
@@ -507,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622199.jpg" />
 </div>
 
 
@@ -534,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622196.jpg" />
 </div>
 
 
@@ -560,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622187.jpg" />
 </div>
 
 
@@ -586,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622164.jpg" />
 </div>
 
 
@@ -612,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622131.jpg" />
 </div>
 
 
@@ -638,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622130.jpg" />
 </div>
 
 
@@ -664,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622128.jpg" />
 </div>
 
 
@@ -675,6 +544,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BDC93DC498144D19BCD7865777DA4E52AD36DB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909794   (622126) от 20.06.2015
+
+Максим Григорьев | Fake-структуры. Призраки российской политики (2007) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622126.jpg" />
+</div>
+
+
+###  Подробнее
+
+Общество с ограниченной ответственностью "Рога и копыта" - вещь в действительности крайне живучая и устойчивая. И для того чтобы по крайней мере понимать природу его деятельности, секрет долговременной жизнеспособности этой коммерческой модели, нужна серьезная исследовательская работа. Книга Максима Григорьева - прекрасный путеводитель по загадочному и (   Читать дальше...   )Жанр: Политика, политология, ПублицистикаФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2C2133179099F127AACF3B9C8C90B42F3C1BAD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909650   (622119) от 20.06.2015
+
+Е. В. Максимов, Е. А. Петровская | Древности скифского времени Киевского Поднепровья (2008) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622119.jpg" />
+</div>
+
+
+###  Подробнее
+
+Монография представляет собой свод археологических материалов трех культурных групп скифского времени, сосуществовавших в Киевском Поднепровье, местных предшественников зарубинецкой культуры — хотовской локальной группы лесостепных скифских древностей, подгорцевской и милоградской культур.
+Предлагается анализ материальной культуры различных племен скифского круга, (   Читать дальше...   )Жанр: История, АрхеологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEC97FAC307090327C169A6F15D2C79C775FB73C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909834   (622115) от 20.06.2015
+
+Г. А. Гуковский | Изучение литературного произведения в школе (1966) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622115.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге главное внимание уделяется теоретической постановке кардинальных проблем методики. Автор прежде всего выясняет особенности художественной литературы как предмета. Значение книги состоит в том, что в ней намечена система анализа литературного произведения в старших классах средней школы.
+Адресована учителям, методистам и студентам педагогических вузов.Жанр: ЛитературоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CEDFDB37D9E358B14C994BAC81FA32D9B9AEB3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910447   (622109) от 20.06.2015
+
+Tektronix | Основные сведения о логических анализаторах (2005) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622109.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как и многие другие приборы для проверки электроники и выполнения измерений, логический анализатор представляет собой устройство, предназначенoe для решения особого класса проблем. Это универсальный инструмент, который может оказаться полезным при отладке цифрового оборудования, проверке исследуемого прибора и отладке встроенного программного обеспечения.
+Логический (   Читать дальше...   )Жанр: Электроника, измеренияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:052878DFBCC3E5F9BEC7BD1AB9C3A4E961013D11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910048   (622017) от 20.06.2015
+
+А. М. Ильин | Уравнения математической физики (2005) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622017.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии излагается содержание курса лекций по уравнениям математической физики. Предназначается для студентов математических и физических факультетов университетов. Некоторые разделы пособия мало освещаются в других учебниках и могут быть полезны для изучения магистрантами и аспирантами.Жанр: Учебное пособие, Математика, ФизикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:010B92673A7794076FE269819BE176DF777A71E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1599117   (159915) от 22.12.2022
+
+Serious Sam: Siberian Mayhem (2022) [Ru/Multi] (1.06) Repack dixen18
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159915.jpg" />
+</div>
+
+
+###  Подробнее
+
+С возвращением в мир «Serious Sam 4»! Siberian Mayhem - это новая отдельная глава приключений «Крутого» Сэма Стоуна. Исследуйте просторы России в попытке настичь предателя генерала Брэнда, который всегда на шаг впереди Сэма. Путь будет долгим и ой каким занимательным! Дополнение Serious Sam: Siberian Mayhem разработано Timelock Studio совместно с Croteam и представляет (   Читать дальше...   )Тип издания: RepackРазработчик: Croteam, Timelock StudioЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский (опционально), АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15BE1085080FABF5603C5EEF995D4DFA16ED5F6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675807   (159428) от 10.11.2023
+
+GUNHEAD (2023) [Multi] (1.2) License GOG
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159428.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рогалик в жанре шутера от первого лица, в котором игрокам предстоит абордаж и нейтрализация процедурно созданных космических кораблей пришельцев, чтобы заработать доход для своего каперского предприятия. Разлагающиеся инопланетные ковчеги будут защищаться от злоумышленников с помощью широкого арсенала чудовищ-киборгов, робототехники и систем безопасности - всех препятствий, (   Читать дальше...   )Тип издания: LicenseРазработчик: AlientrapЖанр: Экшены, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Английский, Испанский, Японский, Китайский (упрощенный)Язык интерфейса: Английский, Испанский, Японский, Китайский (упрощенный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:112B5F0D6E7EC68C886A9542D5CCEF02E389D288
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1675747   (159146) от 11.11.2023
 
 GUNHEAD (2023) [Multi] (1.2) Scene Tenoke
@@ -6,7 +58,7 @@ GUNHEAD (2023) [Multi] (1.2) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159146.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Mothergunship (2018) [Ru/Multi] (1.0.980.203/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158754.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Generation Zero (2019) [Ru/Multi] (12431825/dlc) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158732.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Dusk (2018) [Ru/Multi] (1.8.25/dlc) License GOG [Intruder Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158721.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Tom Clancy's Rainbow Six: Vegas 2 (2008) [Ru] (1.03.101.336/dlc/tr) Repack =nemo
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158292.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Shadow Warrior 2 (2016) [Ru/Multi] (1.1.13/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158004.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Alien: Isolation (2014) [Ru/En] (1.0/upd9/dlc) Repack R.G. Механики [Dig
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157239.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Dying Light: The Following (2016) [Ru/En] (1.15.0/dlc) Repack R.G. Механи�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156245.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Remain (2016) [Ru/En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155103.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Gold Rush: The Game (2017) [Ru/Multi] (1.5.5.13528/dlc) Repack xatab [Collector'
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154569.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Alien: Isolation (2014) [Ru/Multi] (1.0/upd9/dlc) Repack Other s [Collection Edi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153371.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Infliction (2018) [En] (2.0.1) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153029.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Duke Nukem 3D (1996) [En] (1.5) License GOG [Atomic Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152746.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Alien: Isolation (2014) [Ru] (1.0/upd9/dlc) Repack =nemos= [Digital Deluxe Editi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151962.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Crysis Remastered Trilogy (2021-2022) [Ru/En] (rc2) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150809.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Crysis Remastered Trilogy (2021-2022) [Ru/Multi] (rc2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150805.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Halo Infinite (2021) [Ru/Multi] (6.10020.17952.0/dlc) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150756.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Serious Sam 2 / Крутой Сэм 2 (2005) [Ru] (2.100) Repack Necros [20th An
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150707.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Straya (2023) [En] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149840.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ We Happy Few (2018) [Ru/Multi] (1.9.88966/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147769.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Boiling Point: Road to Hell (2023) [Multi] (130759) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146379.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Boiling point: Road To Hell / Xenus: Точка кипения (2005) [Ru] (2.2/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146325.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ BioShock Remastered (2016) [Multi] (1.0.122872) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146116.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Deadfall Adventures (2013) [Ru/En] (1.0.0.16352/dlc/tr) Repack =nemos= [Digital 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146102.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Deadfall Adventures – приключенческий FPS, действия к�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4EBD8BDD8F49FDB077882601E1FBFF235DE4042
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087377   (145616) от 27.12.2016
-
-Call of Duty: Black Ops (2010) [Ru/Multi] (0.305-05.125430.1/dlc) License PLAZA [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145616.jpg" />
-</div>
-
-
-###  Подробнее
-
-Call of Duty: Black Ops - долгожданная седьмая часть Call of Duty. Каждая игра этой серии способствовала развитию жанра шутеров, и Black Ops не стала исключением. Игроков ждут динамичная однопользовательская кампания, повествующая о событиях времен холодной войны, и разнообразные многопользовательские режимы, среди которых появилось несколько совершенно новых.Тип издания: LicenseРазработчик: TreyarchЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, Английский, Французский и другиеЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53639E842B58FD02773E3A544E893CF493238404
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087518   (145605) от 27.12.2016
-
-Transformers: War for Cybertron / Трансформеры: Битва за Кибертрон (2010) [Ru/En] (1.0) Rip =nemos=
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Станьте совершенным оружием. Сражайтесь до конца в войне, с которой всё началось. Владея арсеналом смертельного высокотехнологичного оружия и трансформируясь из робота в транспорт, сражайтесь насмерть в живом металлическом мире Кибертрона. В отдельных кампаниях для автоботов и десептиконов, вы пройдете путь от городов, заселенных роботами, к ядру Кибертрона - энергону, (   Читать дальше...   )Тип издания: RipРазработчик: High Moon StudiosЖанр: Action (Shooter), 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CE4FA6A23CE9F049789347D6EE6C63FE472B7B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

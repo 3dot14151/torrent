@@ -6,7 +6,7 @@ Boom 3D 1.2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523643.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ EdgeView 3 v3.5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523608.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ WonderPen 2.1.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523607.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ SiteSucker Pro 5.0 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523596.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Boxy SVG 3  v3.86.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523553.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Fix My iPhone 2.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523536.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ iMazing 2.9.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523502.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Waltr 2 v2.6.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523495.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ AirMail 3 v3.6.71 (551) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523449.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ BBEdit 11.1.2 (3746) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523326.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Shimo 4.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523243.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ CodeKit 2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523236.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ PhotoSweeper X 2.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523204.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Screenium 3.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523203.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Blocs 1.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523202.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ OS X Server 4.1.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523200.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ iMazing 1.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523167.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Audirvana Plus 2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523082.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ CRAX Commander 1.10.3  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522999.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Valentina Studio Pro 12.4.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522786.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Mitti 2.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522785.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ ApolloOne - Photo Video Viewer 3.0.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522783.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ TG Pro (Temperature Gauge Pro) 2.70 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522687.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Aiseesoft Mac FoneTrans 9.1.50 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522659.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Fantastical 2.0.7 AppStore [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522519.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ MindNode 2.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522441.jpg" />
 </div>
 
 

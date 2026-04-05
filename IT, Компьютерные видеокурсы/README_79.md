@@ -1,31 +1,3 @@
-###  Публикация: 1425705   (219576) от 21.11.2020
-
-Udemy, Dr. Angela Yu | 100 Days of Code - The Complete Python Pro Bootcamp for 2020 (2020) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219576.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на курс 100 Days of Code - The Complete Python Pro Bootcamp, единственный курс, который вам нужно научиться программировать с помощью Python. С более чем 100 000 отзывов и средней оценкой 4,8 мои курсы являются одними из САМЫХ ВЫСОКИХ РЕЙТИНГОВ в истории Udemy!
-
-100 дней, 1 час в день, научитесь строить 1 проект в день - вот как вы осваиваете Python.Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 56:28:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55D39614A52FD23A3E5538F5082D4CD480D9A1F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1425716   (219443) от 21.11.2020
 
 Udemy, Кирилл Жданов | Тестировщик ПО, стань Junior QA Engineer в любом возрасте (2020) PCRec
@@ -34,7 +6,7 @@ Udemy, Кирилл Жданов | Тестировщик ПО, стань Junio
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219443.jpg" />
 </div>
 
 
@@ -60,7 +32,7 @@ Udemy, Роман Сакутин и др. | Unity 2019 - Полный курс �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219424.jpg" />
 </div>
 
 
@@ -89,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219416.jpg" />
 </div>
 
 
@@ -115,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219370.jpg" />
 </div>
 
 
@@ -141,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219296.jpg" />
 </div>
 
 
@@ -167,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219270.jpg" />
 </div>
 
 
@@ -193,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219250.jpg" />
 </div>
 
 
@@ -219,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219222.jpg" />
 </div>
 
 
@@ -247,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219180.jpg" />
 </div>
 
 
@@ -275,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219070.jpg" />
 </div>
 
 
@@ -301,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218893.jpg" />
 </div>
 
 
@@ -328,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218799.jpg" />
 </div>
 
 
@@ -354,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218732.jpg" />
 </div>
 
 
@@ -380,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218724.jpg" />
 </div>
 
 
@@ -406,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218142.jpg" />
 </div>
 
 
@@ -433,7 +405,7 @@ Udemy, Elchin Jamalov | VMware vSphere 6 - полный видеокурс (2021
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218113.jpg" />
 </div>
 
 
@@ -462,7 +434,7 @@ TeachMeSkills | Python разработчик (2021) WEB-DL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218078.jpg" />
 </div>
 
 
@@ -489,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218037.jpg" />
 </div>
 
 
@@ -515,7 +487,7 @@ OTUS, Вадим Заигрин | Apache Kafka (2023) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_217537.jpg" />
 </div>
 
 
@@ -542,7 +514,7 @@ Udemy, ZTM Academy, Andrei Neagoie | The Complete Web Developer in 2023: Zero to
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217526.jpg" />
 </div>
 
 
@@ -569,7 +541,7 @@ Udemy, Михаил Чирков | Python: Быстрый старт (2020) PCRe
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217230.jpg" />
 </div>
 
 
@@ -595,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217048.jpg" />
 </div>
 
 
@@ -622,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217005.jpg" />
 </div>
 
 
@@ -648,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216960.jpg" />
 </div>
 
 
@@ -676,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216755.jpg" />
 </div>
 
 
@@ -687,6 +659,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C526116B3275CBC53E39B464D64905F56049B745
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514331   (216265) от 03.12.2021
+
+С. Росс | Mindjet MindManager. Интеграция v2019 с линейкой Microsoft Office Word, Excel, Outlook и Project (2019) WEBRip
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216265.jpg" />
+</div>
+
+
+###  Подробнее
+
+MINDMANAGER ИНТЕГРАЦИЯ MINDMANAGER 2019 С ЛИНЕЙКОЙ MICROSOFT OFFICE: WORD, EXCEL, OUTLOOK И PROJECT
+Опубликовано чт, 20/06/2019 - 12:32 пользователем Corel_info
+Набор приложений MS Office стал неотъемлемой частью современного рабочего места.
+Большинство из нас просто не могли бы выполнять свою работу или вести свой бизнес без него. MindManager 2019 for Windows обладает (   Читать дальше...   )Жанр: Обучающий вэбинарПродолжительность: 01:07:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C52F63C3FF2579BA912C478A4F68821599D66728
 ```
 
 https://mybot314.ru/tekegram_catalog/

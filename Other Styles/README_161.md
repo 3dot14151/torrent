@@ -1,3 +1,61 @@
+###  Публикация: 1271542   (147113) от 25.12.2018
+
+VA - Romantic Christmas Love Songs and Romantic Music Vol.1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Jazz, Easy Listening>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 L'amore perduto (From La finestra di fronte) - Andrea Guerra 03:25
+02 Once and Again (From La volpe dalla coda di velluto) (Vocal) - Piero Piccioni, Shawn Robinson 04:35
+03 Last Tango in Paris (From Last tango in Paris - Ultimo tango a Parigi) (Titles) - Gato Barbieri 03:24
+04 Why Did She Choose You (From Last Tango in Paris - Ultimo tango a Parigi) - Gato Barbieri (   Читать дальше...   )Жанр: Soundtrack, Jazz, Easy ListeningПродолжительность: 01:00:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66B221FC1ACC55CF611814FE691EAA484EB5C18D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519716   (147092) от 25.12.2021
+
+Blackmore's Night - Winter Carols (2006) Deluxe Edition, Remastered, 2021, Ear Music [FLAC|Lossless|tracks + .cue] <Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coventry Carol
+02. Deck The Halls
+03. God Rest Ye Merry Gentlemen
+04. Oh Christmas Tree(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:37:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36381591E3BE4018B21762B2DD28279CBBBF3759
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271690   (147074) от 25.12.2018
 
 Johnny Cash - More Cash (2018) [MP3|320 Kbps] <Country>
@@ -6,7 +64,7 @@ Johnny Cash - More Cash (2018) [MP3|320 Kbps] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147074.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Свадебный хит (Весільний хіт) (2006-2010) 6CD [MP3|
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146870.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Austin Wintory - The Sound Of Assassin's Creed Syndicate (2015) Limited Edition,
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146830.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Max Richter - Black Mirror / Чёрное зеркало: Nosedive (Music from t
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146256.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Michael Land - Monkey Island 2 Special Edition: LeChuck's Revenge (2010) [MP3|32
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146090.jpg" />
 </div>
 
 
@@ -157,7 +215,7 @@ Really Slow Motion & Instrumental Core - Paradox (2020) [FLAC|Lossless|WEB-DL|tr
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145976.jpg" />
 </div>
 
 
@@ -186,7 +244,7 @@ Yamamoto - Wellness For Your Body (2003) [FLAC|Lossless|tracks + .cue] <Meditati
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145762.jpg" />
 </div>
 
 
@@ -215,7 +273,7 @@ Really Slow Motion - Fiery the Angels Rose (2014) [FLAC|Lossless|tracks + .cue] 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145722.jpg" />
 </div>
 
 
@@ -244,7 +302,7 @@ Paul Hardcastle - Jazzmasters VI (2010) [FLAC|Lossless|tracks + .cue] <Smooth Ja
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145498.jpg" />
 </div>
 
 
@@ -273,7 +331,7 @@ Ennio Morricone - Svegliati E Uccidi & Sacco E Vanzetti (2003) [MP3|320 Kbps] <E
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145471.jpg" />
 </div>
 
 
@@ -299,7 +357,7 @@ VA - Асса (1987) [MP3|320 кб/с] <Rock, Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145322.jpg" />
 </div>
 
 
@@ -328,7 +386,7 @@ Wardruna - Skald (2018) [FLAC|Lossless|tracks + .cue] <Folk Ambient, Dark Ambien
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145285.jpg" />
 </div>
 
 
@@ -357,7 +415,7 @@ Richard Clayderman - Love Letters Friends & Family (2021) [FLAC|Lossless|WEB-DL|
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145163.jpg" />
 </div>
 
 
@@ -386,7 +444,7 @@ Mark Isham - The Accountant / Расплата (Original Motion Picture Soundtra
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144648.jpg" />
 </div>
 
 
@@ -415,7 +473,7 @@ Mark Isham - The Accountant / Расплата (Original Motion Picture Soundtra
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144549.jpg" />
 </div>
 
 
@@ -444,7 +502,7 @@ VA - Black Mirror / Чёрное зеркало (Collection Original Soundtrack)
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144430.jpg" />
 </div>
 
 
@@ -473,7 +531,7 @@ VA - Black Mirror / Чёрное зеркало (Collection Original Soundtrack)
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144406.jpg" />
 </div>
 
 
@@ -502,7 +560,7 @@ David Arkenstone - Celtic Chillout (2010) [FLAC|Lossless]<New Age, Lounge, Celti
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144328.jpg" />
 </div>
 
 
@@ -531,7 +589,7 @@ Jed Kurzel - Assassin's Creed / Кредо убийцы (Original Motion Picture
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144324.jpg" />
 </div>
 
 
@@ -560,7 +618,7 @@ Jed Kurzel - Assassin's Creed / Кредо убийцы (Original Motion Picture
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144274.jpg" />
 </div>
 
 
@@ -589,7 +647,7 @@ Atlas - Breeze (1987) [FLAC|Lossless|tracks + .cue] <Fusion, New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144248.jpg" />
 </div>
 
 
@@ -618,7 +676,7 @@ Paul Hardcastle - Jazzmasters V (2006) [FLAC|Lossless|tracks + .cue] <Smooth Jaz
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143309.jpg" />
 </div>
 
 
@@ -647,7 +705,7 @@ Peter Davison - What Happened Next... (2016) [MP3|320 Kbps] <New Age, Meditation
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143105.jpg" />
 </div>
 
 
@@ -677,7 +735,7 @@ Bader Nana - Acoustics A Tribute To Michael Jackson (2009) [MP3|192 кб/с]<Ins
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142928.jpg" />
 </div>
 
 
@@ -691,64 +749,6 @@ Bader Nana - Acoustics A Tribute To Michael Jackson (2009) [MP3|192 кб/с]<Ins
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EF6165C46B29934BE679BDD89C4C8132FC6C046
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194996   (142476) от 29.12.2017
-
-Heather Lynne Horton - Don't Mess with Mrs. Murphy (2017) [FLAC|Lossless|tracks] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Murphy's Law (5:13)
-02 - Wheelchair Man (6:01)
-03 - Did You Feel That? (3:29)
-04 - Save the Rain (3:00)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:57:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDA72E5C4ADBE5C14BA8CA226E163C266C1D728A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195370   (142320) от 29.12.2017
-
-Messiah Project - Rise Above the Bustle (2017) [MP3|320 Kbps] <New age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142320.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sadness (Reprise) (02:53)
-02. Honour Thy Father and Thy Mother (04:25)
-03. Time Will Pass (04:00)
-04. Rise Above the Bustle (04:16)(   Читать дальше...   )Жанр: New age, EnigmaticПродолжительность: 00:48:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F953C6B7D425CBCE6B3FCCE137D5D47ADD5ACDBD
 ```
 
 https://mybot314.ru/tekegram_catalog/

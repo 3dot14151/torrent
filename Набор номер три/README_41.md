@@ -1,3 +1,162 @@
+###  Публикация: 1476281   (1011017) от 14.06.2021
+
+Total Commander 10.00 final [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011017.jpg" />
+</div>
+
+
+###  Подробнее
+
+Total Commander является самым мощным и стабильным файловым менеджером для Windows с удобным пользовательским интерфейсом. Total Commander продолжает добрую традицию двух-панельных файловых менеджеров, но отличается повышенным удобством и функциональностью, поддерживает плагины, имеет множество встроенных полезных инструментов. В программе предусмотрены функциональные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A62E5C4C607476170BD6AB87A1C5074E914A98A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 115457   (1011016) от 14.06.2021
+
+Генри Лайон Олди | Древняя Греция. Ахейский цикл (Книга 1). Герой должен быть один (Том 1). Жертвы (2009) [MP3, digig]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011016.jpg" />
+</div>
+
+
+###  Подробнее
+
+С любезного разрешения авторов проект "Аудиокниги своими руками" представляет эксклюзивную раздачу для NNM-Club
+
+У лавагета Фив Амфитриона рождаются два сына-близнеца, которые проживут одну жизнь на двоих и останутся в легендах под именем, которым отец не называл ни одного из них - Геракл. Потому что боги решили: ГЕРОЙ ДОЛЖЕН БЫТЬ ОДИН... В этом совершенно (   Читать дальше...   )Жанр: ФэнтeзиИздательство: Студия "Песни нашего двора", проект "Аудиокниги своими руками"Продолжительность: 13:42:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD6A353B766DBCD9FB1AEE018F8DD07B8B81B5C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476487   (1011015) от 14.06.2021
+
+Mass Effect 3 (2021) [Ru/En] (2.0.0.48602/dlc) Repack Other s [Legendary Edition]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011015.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один человек — это все, что стоит между человечеством и величайшей угрозой всему живому. Вспомните легенду: капитан Шепард возвращается в новом издании знаменитой трилогии Mass Effect — Mass Effect™ издание Legendary. Содержит основной одиночный контент и более 40 дополнений из Mass Effect, Mass Effect 2 и Mass Effect 3, а также бонусное оружие, броню и наборы. Весь (   Читать дальше...   )Тип издания: RepackРазработчик: BioWare™Жанр: Adventure (Space), RPG (Action), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34122719EDB897E914B2BB97985F35BD1D6FFF6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922863   (1011014) от 14.06.2021
+
+Peers TV 7.3.1 [Ru] - для просмотра ТВ онлайн и в записи (обновляемая)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Peers.TV устанавливают даже те, кто говорит, что не смотрит телевизор. Почему? Да потому что Peers.TV одновременно больше (функционал) и меньше (размер) привычной коробки с телеканалами. Это ТВ онлайн и в записи, IPTV-плеер, удобная телепрограмма и возможность добавлять собственные плейлисты, а также полная поддержка Chromecast. При этом приложение не занимает много (   Читать дальше...   )Тип издания: Пиратка (AdFree)Релиз состоялся: 13.06.2021Разработчик: InetraПоддерживаемая ОС: Android 4.2+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CDF8DB5F5F8179D92C14E87FA2CB795D440802E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433526   (1010879) от 15.06.2021
+
+Вакцины от коронавируса. Все, что нужно знать (2020) WEB-DL [H.264/720p]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010879.jpg" />
+</div>
+
+
+###  Подробнее
+
+В России начинается массовая вакцинация от коронавируса COVID-19. В ближайшее время в стране будет произведено более двух миллионов доз вакцины «Спутник V». Как заявляют разработчики, ее эффективность превышает 95%. Отечественная школа вирусологии — одна из сильнейших в мире. Вакцины, разработанные нашими учеными, спасли жизнь миллионам людей, и не только у нас в (   Читать дальше...   )Производство: Россия, Первый канал, ООО "Контраст"Жанр: Документальный, познавательный, медицинаРежиссер: Роман НоволокинЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:45:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9883B67ED9DD3F2A3A8F8C6B52082B5998559D2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477160   (1010878) от 15.06.2021
+
+В Петербурге начали штрафовать выпускников за списывание на ЕГЭ
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мировой суд Санкт-Петербурга рассмотрел первое административное правонарушение в отношении выпускницы
+Мировые суды Петербурга начали рассматривать дела об административных правонарушениях выпускников школ, попавшихся на экзаменах с мобильными телефонами и шпаргалками.Как следует из картотеки на сайте мировых судов города, в этом году на рассмотрение поступили уже (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1477360   (1010860) от 15.06.2021
 
 F-Secure Freedome VPN 2.42.736 RePack by KpoJIuK [Multi/Ru]
@@ -6,7 +165,7 @@ F-Secure Freedome VPN 2.42.736 RePack by KpoJIuK [Multi/Ru]
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010860.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010557.jpg" />
 </div>
 
 
@@ -59,7 +218,7 @@ Microsoft возненавидела самый популярный торре�
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010542.jpg" />
 </div>
 
 
@@ -86,7 +245,7 @@ Windows 11: Первый взгляд
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010535.jpg" />
 </div>
 
 
@@ -112,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010534.jpg" />
 </div>
 
 
@@ -138,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010417.jpg" />
 </div>
 
 
@@ -164,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010386.jpg" />
 </div>
 
 
@@ -190,7 +349,7 @@ ToonMe - ваши мультяшные портреты v0.6.0 [Ru/Multi]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010380.jpg" />
 </div>
 
 
@@ -216,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010378.jpg" />
 </div>
 
 
@@ -245,7 +404,7 @@ Opera 77.0.4054.90 Portable by JolyAnderson [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010254.jpg" />
 </div>
 
 
@@ -272,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010246.jpg" />
 </div>
 
 
@@ -298,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010231.jpg" />
 </div>
 
 
@@ -324,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010062.jpg" />
 </div>
 
 
@@ -350,7 +509,7 @@ Windows 10 21H1 [19043.1055] Compact & FULL x64  by Flibustier (15.06.2021) [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010043.jpg" />
 </div>
 
 
@@ -379,7 +538,7 @@ Windows 11 Dev OS x64 Build 21996.1.210529-1541 [En]
 >>17
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010042.jpg" />
 </div>
 
 
@@ -406,7 +565,7 @@ ATOM RPG: Post-apocalyptic indie game (2018) [Ru/Multi] (1.179/dlc) Repack Other
 >>17
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010041.jpg" />
 </div>
 
 
@@ -432,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009877.jpg" />
 </div>
 
 
@@ -458,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009759.jpg" />
 </div>
 
 
@@ -484,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009737.jpg" />
 </div>
 
 
@@ -510,7 +669,7 @@ Microsoft® Windows® 10 Enterprise LTSC 2019 x86-x64 1809 RU by OVGorskiy 06.20
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009729.jpg" />
 </div>
 
 
@@ -521,163 +680,6 @@ Microsoft® Windows® 10 Enterprise LTSC 2019 x86-x64 1809 RU by OVGorskiy 06.20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8498B67D9C3A1D4728E0DD7782A4B544EC97CFA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478631   (1009616) от 23.06.2021
-
-МС-21 подготовили к серийному производству
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009616.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Иркутске запущен новый цех сборки МС-21. Он рассчитан на станционную стапельную сборку 36 самолётов в год. Опытные сборочные работы на старых мощностях прекращены.МС-21, разработка полностью российская, прямой и более удачный технологически конкурент Боинга-737 MAX.Российский самолёт - это среднемагистральный борт, который имеет самый широкий фюзеляж в своем классе (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438026   (1009615) от 23.06.2021
-
-Обыкновенный фашизм (1965) DVDRip [H.264] [10-bit] (части 1-2 из 2)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм-монолог, фильм-исследование. Но исследование не фашизма в целом и тем более не детальный анализ всех его чудовищных массовых преступлений. Нет, это исследование природы фашизма, той питательной среды, на которой вызрели его споры. Исследование не одного только «фюрера», хотя и его тоже, ибо, словами Генриха Манна, «Свет никогда не узнал бы, до какой грязной (   Читать дальше...   )Производство: СССР, к/ст МосфильмЖанр: документальный, хроника, военный, историяРежиссер: Михаил Ромм, и он же о съёмках фильма "Обыкновенный фашизм"Участники: Михаил Ромм, Марлен Дитрих, Йозеф Геббельс, Адольф Гитлер, Герман Геринг, Иосиф Сталин, Дзюкити УноСубтитры: НетПродолжительность: 02:10:07 (01:08:02+01:02:05)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D15B2DE902AB2A72F162BC14D3E75E8643B4F25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478553   (1009503) от 24.06.2021
-
-Нижегородцам запретили вступать в брак без прививки от коронавируса
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009503.jpg" />
-</div>
-
-
-###  Подробнее
-
-Глава Нижегородской области запретил жениться без прививки от COVID-19
-В Нижегородской области пары теперь не могут жениться без справки о прививке от коронавируса, сообщает сайт Главного управления записи актов гражданского состояния (ЗАГС) региона. Такие ограничения соответствуют указу губернатора региона Глеба Никитина.Так, при регистрации брака гражданам нужно (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479544   (1009499) от 24.06.2021
-
-Opera 77.0.4054.146 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABB15446C935697F3B0D6CD0AB8D8633335EC547
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479608   (1009357) от 25.06.2021
-
-Названы сроки выхода Windows 11
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009357.jpg" />
-</div>
-
-
-###  Подробнее
-
-Корпорация Microsoft провела презентацию Windows 11 и назвала сроки выхода новой операционной системы. Трансляция доступна на сайте компании.Главное визуальное отличие новой операционной системы — центрирование кнопки «Пуск» на панели задач. Во всех предыдущих версиях ОС стартовая кнопка располагалась строго слева. По словам представителей компании, подобное расположение (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 381413   (1009353) от 25.06.2021
-
-Звездный путь: Дальний космос 9 / Star Trek: Deep Space Nine (1993-1999) DVDRip (сезон 1-7, серии 1-173 из 173) FUNTik, Yrich&Natasha
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009353.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие сериала разворачивается в 2369—2375 годах на космической станции «Дальний Космос 9» , находящейся на орбите только что освобожденной от оккупации Кардассианской Империи планеты Бэйджор. Волею случая в непосредственной близости от станции обнаруживается пространственная аномалия — коридор, связывающий Бэйджор с Гамма-квадрантом галактики. Это открытие превращает (   Читать дальше...   )Производство: США / Paramount TelevisionЖанр: фантастика, боевик, драма, приключенияРежиссер: Дэвид Ливингстон, Лес Ландау, Уинрих КольбеАктеры: Эйвери Брукс, Рене Обержонуа, Сиррок Лофтон, Александр Сиддиг, Колм Мини, Нана Визитор, Армин Шимерман, Терри Фаррелл, Майкл Дорн, Рэнди ДжеймсПеревод: Одноголосый любительский (с 20 серии 6 сезона двуголосый) - FUNTik, Yrich&NatashaЯзык озвучки: Русский, английскийПродолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E452EF61D0C2E1AB407FA217757806A1493B138
 ```
 
 https://mybot314.ru/tekegram_catalog/

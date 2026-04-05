@@ -1,55 +1,3 @@
-###  Публикация: 886874   (762170) от 10.04.2015
-
-Голоса / The Voices (2014) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джерри — оптимистичный, приятный парень, но он душевно болен и в последнее время не принимал назначенные ему препараты. В своих галлюцинациях он видит, как его кот предлагает ему стать серийным убийцей, в то время как его пес пытается убедить его, что он хороший человек. Начав вновь принимать препараты, он переживает короткие периоды ясности, в которые понимает, что в его жизни гораздо больше насилия, чем он себе представлял...Производство: USA, Germany / 1984 Private Defense Contractors, Mandalay Vision, Studio BabelsbergЖанр: триллер, комедия, криминалРежиссер: Маржан СатрапиАктеры: Райан Рейнольдс, Джемма Артертон, Анна Кендрик, Джеки Уивер, Элла Смит, Пол Чахиди, Стэнли Таунсенд, Ади Шанкар, Сэм Спруэлл, Валери Кох, Гулливер МакГрат, Пол Брайтвелл, Михаэль Пинк, Алекс Тондовски, Харви Фридман, Стефани Вогт, Кай Фанг Рик, Антье РауПеревод: профессиональный (многоголосый закадровый) (Gears Media)Язык субтитров: русский, английскийПродолжительность: 01:43:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB6358822ACF0E4EA0E284F78A71871569ED73D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394649   (762113) от 06.07.2020
-
-Сестра твоей сестры / Your Sister's Sister (2011) BDRip [H.264] [VO] [PR]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запутавшийся и потерявший всякую надежду Джек, скорбящий по недавно скончавшемуся брату, находит смысл дальнейшей жизни? благодаря своей близкой подруге Айрис. Она предлагает ему отправиться на остров Пьюджет-Саунд, где он сможет привести свой разум в порядок. Однако на месте он обнаруживает одинокую женщину Ханну, которая оказывается родной сестрой Айрис. И вот, (   Читать дальше...   )Производство: США / Ada FilmsЖанр: Драма, КомедияРежиссер: Линн ШелтонАктеры: Эмили Блант, Розмари ДеУитт, Марк Дюпласс, Майк Бирбилья, Майкл Хэрринг, Джейсон Додсон, Пит Эриксон, Кэтрин Лебо, Ивэн Мошер, Дженнифер МаасПеревод: Одноголосый любительскийСубтитры: Русские, английскиеПродолжительность: 01:30:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A4522ABD5915192DEEE94E348036512D80D55EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1394705   (761984) от 06.07.2020
 
 Ирма Веп / Irma Vep (1996) BDRip [AVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761984.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761859.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761622.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761580.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761578.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761528.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761519.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761490.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761424.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761410.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761405.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761351.jpg" />
 </div>
 
 
@@ -371,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761147.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760999.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760932.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760883.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760866.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760799.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760793.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760735.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760733.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760686.jpg" />
 </div>
 
 
@@ -635,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760679.jpg" />
 </div>
 
 
@@ -663,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760604.jpg" />
 </div>
 
 
@@ -675,6 +623,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5A73D153D8E3D4B376AEB8B62A4D43AB304288C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017527   (760588) от 17.05.2016
+
+Бешеные / Enrages (2015) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760588.jpg" />
+</div>
+
+
+###  Подробнее
+
+После ограбления банка трое отчаянных преступников берут в заложники молодую женщину и отца с ребёнком. Это станет началом жестокой поездки, которую не все из них переживут.Производство: Франция, КанадаЖанр: Боевик, триллер, драмаРежиссер: Эрик ХаннецоАктеры: Ламбер Вильсон, Гийом Гуи, Виржини Ледуайен, Франк Гастамбид, Франсуа Арно, Лоран Люка, Александр Гойетт, Пьер Лебо, Дэйв ЛапоммерейПеревод: Профессиональный многоголосый (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:29:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:492609DB0A929434E02E83ADF6E3B3C678F2BB05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017603   (760502) от 17.05.2016
+
+Боги Египта / Gods of Egypt (2016) WEB-DLRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Некогда мирное и процветающее египетское царство погружается в хаос: беспощадный бог тьмы Сет убивает своего брата Осириса и узурпирует трон. Вызов ему неожиданно бросает простой смертный, находчивый молодой вор. Чтобы вернуть к жизни свою прекрасную возлюбленную, ему приходится заручиться поддержкой могущественного и мстительного бога Гора. Лишь выдержав испытание (   Читать дальше...   )Производство: США | Mystery Clock Cinema, Summit EntertainmentЖанр: Фэнтези, Боевик, ПриключенияРежиссер: Алекс ПройасАктеры: Брентон Туэйтс, Джон Самаха, Кортни Итон, Николай Костер-Вальдау, Паула Арунделл, Алиа Серор-О’Нилл, Эмили Уитон, Элоди Юнг, Рэйчел Блейк, Брайан БраунПеревод: Дублированный (iTunes)Продолжительность: 02:06:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DFB02F0F56C112D9CDCC0F3735355418CAA2255
 ```
 
 https://mybot314.ru/tekegram_catalog/

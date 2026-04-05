@@ -1,3 +1,57 @@
+###  Публикация: 1504765   (236899) от 24.10.2021
+
+Джен Калонита | Сказочная исправительная школа. Заколдованная библиотека. Книга 4 (2019) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236899.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четвёртая книга в серии «Сказочная исправительная школа».
+Джен Калонита – автор бестселлеров New York Times. И она знает о сказках, старых и новых, всё!
+После того как Румпельштильцхен покинул Сказочную исправительную школу, многие выдохнули с облегчением. Но только не Джилли! Ведь к главному преступнику Чароландии примкнула её любимая сестра Анна. Чтобы вернуть (   Читать дальше...   )Жанр: Детская литература/Фантастика/ПриключенияПеревод: А.Б. ВасильеваФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66B303956B8A5E69D84BE98880CEB206D1B06F22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504762   (236889) от 24.10.2021
+
+Уш Лун | Школа на Драконьей улице. Книга 2 (2021) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зёрену живётся несладко: в школе его постоянно задирает хулиган Антон, а родители заставляют заниматься спортом, хотя ему больше всего на свете нравится ухаживать за собаками в местном приюте. Вот бы ему разрешили взять одну из них себе… Но Зёрен и мечтать об этом не смел, пока не обнаружил, что в старой закрытой школе поселилась самая необыкновенная девочка на свете! (   Читать дальше...   )Жанр: Детская литература/ПриключенияПеревод: Сергей РюминФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:825AD5CF8BAF1BE139A0652FA156BCBC81740185
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1504739   (236852) от 24.10.2021
 
 Флёр Хичкок | Преступление в поместье. Книга 4 (2020) [FB2, EPUB, MOBI]
@@ -6,7 +60,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236852.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236833.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236814.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236685.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236677.jpg" />
 </div>
 
 
@@ -139,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236293.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236173.jpg" />
 </div>
 
 
@@ -192,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236042.jpg" />
 </div>
 
 
@@ -218,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236030.jpg" />
 </div>
 
 
@@ -244,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236009.jpg" />
 </div>
 
 
@@ -270,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236007.jpg" />
 </div>
 
 
@@ -296,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236000.jpg" />
 </div>
 
 
@@ -323,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235930.jpg" />
 </div>
 
 
@@ -349,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235797.jpg" />
 </div>
 
 
@@ -378,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235773.jpg" />
 </div>
 
 
@@ -404,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235729.jpg" />
 </div>
 
 
@@ -430,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235711.jpg" />
 </div>
 
 
@@ -457,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235499.jpg" />
 </div>
 
 
@@ -483,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235389.jpg" />
 </div>
 
 
@@ -509,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235382.jpg" />
 </div>
 
 
@@ -536,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235371.jpg" />
 </div>
 
 
@@ -563,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235352.jpg" />
 </div>
 
 
@@ -591,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235314.jpg" />
 </div>
 
 
@@ -617,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234978.jpg" />
 </div>
 
 
@@ -628,58 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2AC31BCAB7EFAC24AC9B9BFD20C83634635668FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539895   (234970) от 27.03.2022
-
-Константин Ушинский | Книги – мои друзья. Четыре желания. Рассказы (2019) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234970.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли рассказы выдающегося русского педагога и писателя Константина Дмитриевича Ушинского «Четыре желания», «Проказы старухи зимы», «Гадюка», «Дети в роще» и другие.Жанр: Детская литература, РассказыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E657A3A154B40C337FC7EB074A65812F8BE7731
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539871   (234965) от 27.03.2022
-
-Софья Прокофьева | Добрые сказки. Сказки про Машу и Ойку (2019) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234965.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге небольшие сказки про двух подружек Машу и Ойку. Автор этих добрых, мудрых прелестных сказок Софья Прокофьева, замечательная детская писательница, которая обладает уникальным даром — писать для самых маленьких, детей до трёх лет. Сказки про Машу и Ойку родители читают своим малышам уже много-много лет. Именно такие сказки — большое подспорье родителям в воспитании (   Читать дальше...   )Жанр: Детская литература, СказкиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0C5955EC9BDFEA5162EA43FD9AE3D773FEAD17B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1129618   (719992) от 29.04.2017
+
+Serious Sam: The Second Encounter / Serious Sam. Второе пришествие (2002) [En] (1.07) License GOG
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719992.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сэм возвращается, чтобы снова сразиться с заклятым врагом Менталом. Отыскав космический корабль сирианцев в Древнем Египте, Сэм Стоун угнал его и начал преследовать Ментала. Но, к сожалению, звездолет потерпел крушение в горах Южной Америки. Теперь, окруженный еще более могущественной армией Ментала, Сэм пытается проложить себе дорогу к его крепости, чтобы раз и (   Читать дальше...   )Тип издания: LicenseРазработчик: CroteamЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF5E6916CF119FAD13C2777B21A67880CB80A7CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130504   (714037) от 02.05.2017
+
+HeadHunter / Охотник за головами (2001) [Ru/Multi] (0.5.8.2) Repack West4it
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714037.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джек Вэйд, один из главных "Охотников за Головами" организации ACN, попал в серьезный переплет. После побега из таинственной лаборатории он очнулся в больнице... с амнезией. Старая приятельница Джека, Анжела Стерн, дочь недавно убитого основателя ACN Кристофера Стерна, обращается к нему за помощью. Она хочет выследить убийц своего отца.Тип издания: RepackРазработчик: AmuzeЖанр: Action (Shooter), Racing, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC6AF9182E2767ECB9F1D7258F20BEEFAD2A3AF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1130821   (712270) от 03.05.2017
 
 The Journeyman Project 1: Pegasus Prime (1997) [En] (1.0) License GOG
@@ -6,7 +58,7 @@ The Journeyman Project 1: Pegasus Prime (1997) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712270.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Pharaoh + Cleopatra (1999) [En] (2.1.0.15/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710319.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ FireStarter (2004) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710214.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Birthright: The Gorgon's Alliance / Право на жизнь: Союз Гор�
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710211.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ The Journeyman Project 2: Buried in Time (1995) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708435.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_699499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_699499.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Combat Chess (1997) [En] (3.0) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694809.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Sniper Elite: Berlin 1945 (2005) [Multi] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693410.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Bunny Bricks [En] (RePack) 1993 | Pilotus (RG Games)
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690122.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ Aethra's Chronicles (RePack) [En] 1994 | Pilotus (RG Games)
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690114.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ Theme Hospital / Частная клиника [En] 1997 | GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689236.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ Another War / Другая Война (2002) [Ru] (2.48) Unofficial
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687821.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ Loom (1990) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686745.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ Armed and Dangerous (RePack) [Ru/En] 2003 | R.G. Origami
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684993.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ Helicopter's Flight Simulators Collection Vol.1 / Коллекция симул�
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684989.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683602.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ Animal paradise tycoon (Rip) [En] 2002 | RG Games (Pilotus)
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_681108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_681108.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ Gunship! / Gunship! Война в небе Война в небе (RePack) [Ru/E
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678496.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ Railroad Tycoon 2 + OST (Rip) [Ru] 1999 | RG Games (Pilotus)
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_678422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_678422.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678416.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ Psi-Ops: The Mindgate Conspiracy / Psi-Ops: Врата разума (2005) [Ru/E
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677877.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ Medicopter 117 / Альпийский патруль [Ru] (L) 2004
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676511.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ Tomb Raider: The Angel of Darkness / Tomb Raider: Ангел Тьмы [Ru/En] (R
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676210.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ Action Legion (2016) [En] (1.2.1) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675700.jpg" />
 </div>
 
 
@@ -620,58 +672,6 @@ Action Legion - это аркадный шутер с видом сверху, �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06240BDD925961374923449F2D6683FBA61DA63D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 509413   (674133) от 12.06.2012
-
-Railroad Tycoon 2 (Rip) [En] 1999 | RG Games (Pilotus)
-
->>Win Старые Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_674133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вам предстоит стать железнодорожным магнатом, построить собственную сеть железных дорог и наблюдать за ходом дел не только с помощью унылых графиков и диаграмм, а в живую, то есть вы можете увидеть собственноручно купленные паровозики, волокущие вагоны от одной вашей станции до другой.(   Читать дальше...   )Тип издания: RipЖанр: Экономическая стратегияЯзык озвучки: n/aЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 509426   (674011) от 12.06.2012
-
-Dangerous Dave Антология [En] (RePack) 1988-1993 | RG games (Pilotus)
-
->>Win Старые Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_674011.jpg" />
-</div>
-
-
-###  Подробнее
-
-Классика аркадного жанра. Простенький платформер, где в роли паренька в красной кепке придется на протяжении десяти уровней сначала собирать призовые кубки, а затем прорываться к двери на следующий уровень. В качестве оружия для борьбы с различными монстрами выступает пистолет, который каждый уровень придется находить заново. Со времени второй части и до последней - это бодрая аркада на выживание с фантастически приятным черным юморомТип издания: RePackЖанр: АркадаЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

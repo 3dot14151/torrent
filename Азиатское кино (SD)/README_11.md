@@ -1,3 +1,81 @@
+###  Публикация: 1492746   (900608) от 31.08.2021
+
+Парень на миллион / Okuotoko / Million Dollar Man (2018) HDRip [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кадзуо никогда не отличался везением. Ему пришлось работать на двух работах, чтобы оплачивать долги младшего брата, жена ушла, забрав дочь. Всё меняется буквально в одночасье, когда Кадзуо выигрывает в лотерею и становится миллионером. Проведя исследование и выяснив, что победители лотерей в основном становятся несчастными, парень решает посоветоваться со богатым (   Читать дальше...   )Производство: Япония, Dreamaker Productions, Tea Time Film, Toho CompanyЖанр: Драма, детективРежиссер: Кэиси ОтомоАктеры: Такэру Сато, Иссэй Такахаси, Эрика Савадзири, Тацуя Фудзивара, Эридза Икэда, Асая Кимидзима, Кадзуки Китамура, Хару КурокиПеревод: Двуголосый любительский (АрхиAsia)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:55:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:805E37D0CF0AC88B87609CDDCD5C8984DFF77989
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490317   (900199) от 31.08.2021
+
+Вызов ограничен (Черный звонок) / Balsinjehan (Hard Hit, Black Call, Restricted Call, Punishment) (2021) WEB-DLRip [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одним обычным утром обычный менеджер отделения банка Сон-гю садится в машину, чтобы отвезти детей в школу, а затем отправиться на работу. Внезапно ему звонит неизвестный и заявляет, что машина заминирована — как только Сон-гю встанет с сидения, произойдёт взрыв. Съемки проходили с 6 февраля по 4 мая 2020 года.Производство: Южная Корея, CJ EntertainmentЖанр: ТриллерРежиссер: Ким Чхан-джуАктеры: Чо У Джин, Ли Чжэ Ин, Чжин Гён, Чжи Чан Ук, Ким Джи ХоПеревод: Двуголосый любительский (АрхиAsia)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:34:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4A2B144D697C538A04969E67365F3A7AAAC42B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 182703   (898778) от 14.03.2010
+
+Город жизни и смерти / Nanjing! Nanjing! / City of Life and Death! (2009) DVDRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898778.jpg" />
+</div>
+
+
+###  Подробнее
+
+В декабре 1937 года в город Нанкин вступили японские захватчики. Много солдат «Гоминьдана» покинули город, но многие, которые не желали сдаваться, остались в городе и развернули сильное сопротивление. После неудачного сопротивления сотни тысяч людей погибли, превратив Нанкин в город смерти. Осталась возможность жить только в одном месте — «безопасная зона» в женской (   Читать дальше...   )Производство: Китай, Гонконг / China Film Group, Chuan Production Film Studio, Jiangsu Broadcasting SystemЖанр: Драма, Военный, ИсторияРежиссер: Чуань ЛуАктеры: Лю Е, Гао Юаньюань, Хидео Накаизуми, Фань Вэй, Цзян Иянь, Рю Кохата, Бин Лью, Юко Миямото, Джон Пэйсли, Беверли ПекусПеревод: Двухголосый закадровый, профессиональныйПродолжительность: 02:14:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370203   (898385) от 26.03.2020
 
 Сердцу хочется кричать / Kokoro ga sakebitagatterunda / The Anthem of the Heart (2017) HDRip [DVO]
@@ -6,7 +84,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898385.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897319.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896912.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895393.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895265.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895129.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893831.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892807.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892632.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891309.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_889303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_889303.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889083.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888895.jpg" />
 </div>
 
 
@@ -347,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888804.jpg" />
 </div>
 
 
@@ -373,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888745.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888680.jpg" />
 </div>
 
 
@@ -425,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886946.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885774.jpg" />
 </div>
 
 
@@ -478,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885690.jpg" />
 </div>
 
 
@@ -504,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885378.jpg" />
 </div>
 
 
@@ -530,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885274.jpg" />
 </div>
 
 
@@ -556,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884671.jpg" />
 </div>
 
 
@@ -582,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884669.jpg" />
 </div>
 
 
@@ -593,84 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30918F5E1F76B6E271B6A1D0B1D66870E6698CB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 298614   (882635) от 20.02.2011
-
-Закусочная на колесах / Kuai can che / Wheels on Meals (1984) DVDRip [H.264]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882635.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два энергичных китайца организовали в Барселоне передвижную харчевню. Их желтый фургончик дарит людям вкусную еду и очаровательный китайско-испанский сервис. Но однажды всю их выручку похищает хитрая синьорита Сильвия. Масса самых забавных ситуаций, сумасшедшие гонки на автокухне, виртуозные сцены рукопашных поединков и, как всегда, полный задора и отточенности в (   Читать дальше...   )Производство: Гонконг / Golden Harvest Company, LaurenfilmЖанр: Боевик, Мелодрама, Комедия, КриминалРежиссер: Саммо ХунАктеры: Джеки Чан, Юэнь Бяо, Саммо Хунг Кам-Бо, Бенни Уркидез, Кит Витали, Херб Эдельман, Лола Форнер, Ампаро Морено, Хосе Санчо, Монтсеррат Хулио, Сюзана Сентис, Луис ПаленсуэлаПеревод: Многоголосый закадровый профессиональный, Авторский х2Язык субтитров: РусскиеПродолжительность: 01:44:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB57BA956FE0B5288CC7EA57BF81DFD6DF42D726
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495192   (882303) от 11.09.2021
-
-Любовь как букет цветов / Hanataba mitaina koi o shita / I Fell in Love Like a Flower Bouquet / We Made a Beautiful Bouquet (2021) HDRip [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882303.jpg" />
-</div>
-
-
-###  Подробнее
-
-22-летние студенты Муги Яманэ (Суда Масаки) и Хатия Кину (Аримура Касуми) встретились случайно, когда опоздали на последний поезд на одной из станций. Они влюбились друг в друга с первого взгляда, окончили колледж и начали жить вместе, работая по совместительству. Однако, когда Муги устроился на работу, и ритм жизни изменился, их чувства подверглись испытаниям.Производство: Япония, Tokyo Theatres, Little MoreЖанр: МелодрамаРежиссер: Нобухиро ДоиАктеры: Кэйко Тода, Каору Кобаяси, Каната Хосода, Джо Одагири, Рё Ивамацу, Кая Киёхара, Мамору ОсииПеревод: Двуголосый любительский (АрхиAsia)Субтитры: Русские, английские - отдельными файламиПродолжительность: 02:03:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E34D193232E23D22A70F729C92B8877BBD0A51D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373382   (879921) от 06.04.2020
-
-Ужасающая одержимость / Mayaku baishun G-men: Kyofu no niku jigoku / The Horrible Obsessions (1972) WEB-DLRip [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879921.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая девушка выбрасывается из окна пятого этажа. В ее крови обнаружены наркотики. Агент по борьбе с наркотиками Кикути (Сонни Тиба) отправляется на Окинаву провести расследование. Прибыв на место, Кикути выясняет, что местных наркоторговцев подмяли под себя бандиты из Токио, но и они всего лишь марионетки и за ними стоит более крупная рыба.Производство: Япония / Toei CompanyЖанр: КриминалРежиссер: Син ТакакуваАктеры: Сонни Тиба, Цунэхико Ватасэ, Мицуко Аои, Митсуи Хорикоши, Риэ Ёкояма, Акико Мори, Мититаро Мидзусима, Эйдзи Го, Хайме Кубо, Рокко ТораПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:28:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C3B370D9850062E881A30A9FA7BE1F53BEC0344
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,159 @@
+###  Публикация: 1807722   (10885) от 20.07.2025
+
+Брюс Ли: Выход клонов / Enter the Clones of Bruce (2023) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Брюс Ли появился, казалось бы, из ниоткуда, и штурмом стал захватывать сначала китайскую, а затем и мировую киноиндустрию. Фильм за фильмом он становился все большей звездой, продюсеры бились за него, а деньги текли рекой. Но актер умер неожиданно для всех, всего лишь в тридцать два года. Индустрия была совсем не готова так просто отпустить восходящую звезду, и перед (   Читать дальше...   )Производство: США / Severin FilmsЖанр: документальный, боевик, историяРежиссер: Дэвид ГрегориУчастники: Брюс Ле, Брюс Лай, Драгон Ли, Брюс Люн, Christophe Champclaux, Рене Шато, Дэвид Цзян, Чи Ли, Дон Вон, Стефани ДердерьянПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, английскийСубтитры: Русские (forced, full)Продолжительность: 01:31:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D73BCF99D2FE8D99208CDE6358CCF75C54D6B775
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807802   (10788) от 21.07.2025
+
+Неведомая Япония / Hidden Japan (2020) HDTVRip [H.264/720p-LQ] [VO]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10788.jpg" />
+</div>
+
+
+###  Подробнее
+
+Культура Японии поражает воображение: от праздника цветения сакуры до ультрасовременных городов. Но дикая природа Японии не менее удивительна. На 6 852 островах, входящих в состав Японии и располагающихся в разных климатических зонах, обитает более 130 видов млекопитающих и 600 видов птиц.Производство: Германия | NDR Naturfilm, DoclightsЖанр: документальный, природаРежиссер: Фил КоулзПеревод: Одноголосый профессиональныйЯзык озвучки: РусскийПродолжительность: 00:45:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECAFF300371B4E08955128465B59D75C41BE5176
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807993   (10665) от 22.07.2025
+
+Avicii. Я - Тим / Avicii - I'm Tim (2024) WEB-DL [H.264/1080p] [MVO]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о взлёте и трагическом падении шведского диджея и продюсера Тима Берглинга, известного как Avicii. В картине показаны его стремительный успех, напряжённые гастроли, проблемы со здоровьем и борьба с депрессией, вызванные переутомлением и давлением индустрии. Фильм заканчивается его уходом из музыки в 2016 году, но, к сожалению, не затрагивает его (   Читать дальше...   )Производство: Швеция / Candamo FilmЖанр: документальный, биография, музыкаРежиссер: Хенрик БурманУчастники: Авичи, Алоэ Блэк, Крис Мартин, Найл Роджерс, Филип Акессон Салем Аль Факир, Кэти Бейн, Клас Берглинг, Джон Бон Джови, Сандро КаваццаПеревод: Многоголосый любительский (Гослинг на Гусе)Язык озвучки: русский, английскийСубтитры: русские, английские (forced, SDH), немецкие, испанские, португальские, французские, украинскиеПродолжительность: 01:36:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A7E57AD9425EE267D5FAF589B8FE6CD24D32C2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598619   (10633) от 23.07.2025
+
+Где ты, Адам? / Where Are You, Adam? (2019) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>История
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10633.jpg" />
+</div>
+
+
+###  Подробнее
+
+Древний монастырь Дохиар на западном побережье горы Афон в Эгейском море отдан в исключительное пользование монахам восточного христианства. Образы природы вплетаются в практически непрерывную череду труда и молитвы, выстраиваясь в ритмическую взаимосвязь человека и природы. Приглашая создателей фильма в свою среду, монахи надеются пробудить в каждом зрителе память (   Читать дальше...   )Производство: Украина, Греция / EnoramaЖанр: документальныйРежиссер: Александр ЗапорощенкоПеревод: ОтсутствуетЯзык озвучки: ГреческийСубтитры: русские (hardsub)Продолжительность: 01:20:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F9FA26BB20FCCDB7B7F3A1A382F98FF2DFDF684
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808175   (10392) от 25.07.2025
+
+Детки не в клетке / Wild Babies (2022) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10392.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Детки не в клетке» — это увлекательный документальный сериал, который позволяет зрителям погрузиться в мир дикой природы и увидеть его глазами детёнышей животных. В каждой серии мы наблюдаем за тем, как животные делают свои первые шаги, учатся выживать, исследовать окружающую среду и взаимодействовать с сородичами. Сериал раскрывает удивительные моменты взросления (   Читать дальше...   )Производство: Великобритания | «Humble Bee Films»Жанр: Документальный, природаРежиссер: Хелена Бонем Картер, Nalini Crack, Gemma BrandtУчастники: Хелена Бонем КартерПеревод: ОдноголосыйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:30:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07CE9567C1DC619E71C052CDED3DB57558F5695D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424606   (10226) от 27.07.2025
+
+Бронекатер (2020) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10226.jpg" />
+</div>
+
+
+###  Подробнее
+
+В ноябре 2017 года в Волгограде со дна реки был поднят бронекатер «БК-31». Согласно историческим данным с июля 1942 года вплоть до октября месяца судно принимало самое активное участие в Сталинградской битве. Построенный по спецзаказу НКВД «БК-31» на тот момент был уникальным для речного флота кораблем. После подъема на борту были обнаружены артефакты, останки команды, (   Читать дальше...   )Производство: Россия / Кинокомпания "РБ Продакшн"Жанр: Документальный, историяРежиссер: Кирилл Седухин, Антон ЧеренковУчастники: Анна Василевская, Дмитрий Кабельков, Виктор Коваль, Лев Ларин, Светлана Аргасцева, Андрей Карпов, Руслан БеликовСубтитры: ОтсутствуютПродолжительность: 01:05:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B40EF62EFA07C389D91EDABB28421A9CA8D3C37D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808861   (10163) от 27.07.2025
 
 Главный рубеж. Ни шагу назад! (2024) WEBRip [H.264/1080p]
@@ -6,7 +162,7 @@
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10163.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9993.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9652.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9625.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9319.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9155.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ WWE: За кулисами / WWE: Unreal (2025) WEB-DLRip [H.264/1080p-LQ] (се
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9120.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9100.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9000.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8780.jpg" />
 </div>
 
 
@@ -269,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8292.jpg" />
 </div>
 
 
@@ -295,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8283.jpg" />
 </div>
 
 
@@ -321,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8128.jpg" />
 </div>
 
 
@@ -347,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8108.jpg" />
 </div>
 
 
@@ -373,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8092.jpg" />
 </div>
 
 
@@ -399,7 +555,7 @@ Hammer: Герои, легенды и монстры / Hammer: Heroes, Legends a
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8082.jpg" />
 </div>
 
 
@@ -425,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8081.jpg" />
 </div>
 
 
@@ -451,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8063.jpg" />
 </div>
 
 
@@ -477,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7887.jpg" />
 </div>
 
 
@@ -503,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7879.jpg" />
 </div>
 
 
@@ -514,162 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1EDA78F45D56F7CCAC060DE36DB37BB97DEC37AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812521   (7786) от 15.08.2025
-
-Чужие: Расширенная версия / Aliens Expanded (2024) WEB-DL [H.264/1080p] [DVO]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7786.jpg" />
-</div>
-
-
-###  Подробнее
-
-Глубокий и инновационный документальный фильм, который исследует историю создания любимого научно-фантастического эпика Джеймса Кэмерона «Чужие» (1986) и его невероятное влияние.Производство: США / CreatorVCЖанр: документальныйРежиссер: Йен НэйтанУчастники: Джеймс Кэмерон, Сигурни Уивер, Гейл Энн Хёрд, Майкл Бин, Лэнс Хенриксен, Пол Райзер, Дженетт Голдстин, Уильям Хоуп, Марк Ролстон, Кэрри ХеннПеревод: Двухголосый любительский (Pazl Voice)Язык озвучки: русский, английскийСубтитры: русские,  английскиеПродолжительность: 04:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E78EED918813819F505B7530CB48D225ABB7B5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812543   (7745) от 15.08.2025
-
-Супермен: История Кристофера Рива / Super/Man: The Christopher Reeve Story (2024) WEB-DL [H.264/1080p] [DVO]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7745.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет рассказывает историю жизни американского киноактера Кристофера Рива, который прославился благодаря четырем фильмам о Супермене, где сыграл главную роль. В 1995 году он неудачно упал с лошади, в результате чего оказался парализованным ниже шеи и даже утратил возможность самостоятельно дышать. Несмотря на это мужчина начинает заниматься активизмом, борясь за (   Читать дальше...   )Производство: США, Великобритания / DC Studios, HBO Documentary Films, CNN FilmsЖанр: документальный, биографияРежиссер: Иэн Бонхот, Питер ЭттедгиУчастники: Кристофер Рив, Уилл Рив, Александра Рив Гивенс, Мэттью Рив, Сьюзен Сарандон, Кевин Джонсон, Гленн Клоуз, Майкл Манганьелло, Джефф Дэниелс, Пьер СпенглерПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: русский, английскийСубтитры: русские (forced + fullПродолжительность: 01:44:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C67565CA75023B75CDADED2807784E4A42A53601
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812534   (7739) от 15.08.2025
-
-Величайшие ужасы / Horror's Greatest (2024) WEB-DL [H.264/1080p] (сезон 1, серии 1-5 из 5) [DVO]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7739.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправляйтесь в захватывающее путешествие по лучшим фильмам жанра, узнав о мастерах, создавших ваши любимые страшилки.Производство: США / Marwar Junction ProductionsЖанр: документальный, ужасыПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: русский, английскийСубтитры: русские (forced + full), английские (SDH)Продолжительность: ~00:56:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D8F76ADF48C305AD1D090E39BB0EEF8769A8105
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812535   (7735) от 15.08.2025
-
-Величайшие ужасы / Horror's Greatest (2025) WEB-DL [H.264/1080p] (сезон 2, серии 1-5 из 5) [DVO]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправляйтесь в захватывающее путешествие по лучшим фильмам жанра, узнав о мастерах, создавших ваши любимые страшилки.Производство: США / Marwar Junction ProductionsЖанр: документальный, ужасыПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: русский, английскийСубтитры: русские (forced + full), английские (full + SDH)Продолжительность: ~00:54:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75E05E9A2C0BC78D08A94201B99030B5043AF568
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812529   (7723) от 15.08.2025
-
-Как Дисней построил Америку / How Disney Built America (2024) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6) [MVO]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7723.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный сериал, рассказывающий о визионере и новаторе Уолте Диснее, прошедшем путь от начинающего аниматора в Канзас-Сити до создателя огромной индустрии развлечений и культуры.Производство: США / A+E Factual ProductionsЖанр: документальныйРежиссер: Стивен СкоттПеревод: Многоголосый любительский (OMSKBIRD)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: ~00:43:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB2FFC11C0740EA20D67FF6BF64D1932C08E5CB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812586   (7696) от 15.08.2025
-
-Портрет Антона Адриана Мюссерта / Portret van Anton Adriaan Mussert (1970) DVDRip [NL / RU Sub]
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7696.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм о лидере фашистской партии в Нидерландах, существовавшей с 1931 по 1945 год. Этот архитектор по имени Антон Муссерт был расстрелян в 1946 году после того, как был признан виновным в государственной измене и помощи врагу.Производство: Нидерланды / VPROЖанр: документальный, биография, историяРежиссер: Пол ВерховенУчастники: Ir. H.A.M. Dibbits, Т. Клеийн, J.G. Krabbendam, J.V.D. Laan, Антон Мюссерт, E.J. Roskam, Florrie Rost van Tonningen, Prof. Dr. Ir. Schermerhorn, J. ZaaijerПеревод: субтитрыЯзык озвучки: нидерландскийСубтитры: русскийПродолжительность: 00:55:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E9EA05F804BB0F8338FDCA33E824B3A1316B059
 ```
 
 https://mybot314.ru/tekegram_catalog/

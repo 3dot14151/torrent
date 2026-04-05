@@ -1,3 +1,55 @@
+###  Публикация: 1522608   (754666) от 09.01.2022
+
+Кобра Кай / Cobra Kai (2021) WEBRip [H.264/1080p-LQ] (сезон 4, серии 1-10 из 10) LakeFilms [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754666.jpg" />
+</div>
+
+
+###  Подробнее
+
+В прошлом хулиган, а ныне разорившийся неудачник, Джонни Лоуренс считает, что единственный его шанс вернуться к нормальной жизни — заново открыть печально известную школу карате «Кобра Кай». Попытка наладить свои дела сводит Джонни с Дэниелом ЛаРуссо — успешным мужчиной, и он изо всех сил старается сохранять жизненную гармонию, которой когда-то учил его мистер Мияги. (   Читать дальше...   )Производство: США, Hurwitz & Schlossberg Productions, Overbrook Entertainment, Sony Pictures TelevisionЖанр: Комедия, спорт, боевик, драмаРежиссер: Джон Харвитц, Хейден Шлоссберг, Дженнифер ЧелоттаАктеры: Мэри Мэтилин Маусер, Уильям Забка, Джейкоб Бертран, Тэннер Бьюкэнэн, Ральф Маччио, Холо Маридуэньо, Кортни Хенгелер, Джанни Десенцо, Nichole Brown, Оуэн МорганПеревод: Двуголосый любительский (LakeFilms)Язык озвучки: РусскийПродолжительность: ~00:38:00 серияРеклама: присутствуют видео, аудио, текстовые вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13D88A88436323BBE4E4A37D1535F971C45959CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522610   (754665) от 09.01.2022
+
+Кобра Кай / Cobra Kai (2021) WEBRip [H.264/720p-LQ] (сезон 4, серии 1-10 из 10) LakeFilms [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754665.jpg" />
+</div>
+
+
+###  Подробнее
+
+В прошлом хулиган, а ныне разорившийся неудачник, Джонни Лоуренс считает, что единственный его шанс вернуться к нормальной жизни — заново открыть печально известную школу карате «Кобра Кай». Попытка наладить свои дела сводит Джонни с Дэниелом ЛаРуссо — успешным мужчиной, и он изо всех сил старается сохранять жизненную гармонию, которой когда-то учил его мистер Мияги. (   Читать дальше...   )Производство: США, Hurwitz & Schlossberg Productions, Overbrook Entertainment, Sony Pictures TelevisionЖанр: Комедия, спорт, боевик, драмаРежиссер: Джон Харвитц, Хейден Шлоссберг, Дженнифер ЧелоттаАктеры: Мэри Мэтилин Маусер, Уильям Забка, Джейкоб Бертран, Тэннер Бьюкэнэн, Ральф Маччио, Холо Маридуэньо, Кортни Хенгелер, Джанни Десенцо, Nichole Brown, Оуэн МорганПеревод: Двуголосый любительский (LakeFilms)Язык озвучки: РусскийПродолжительность: ~00:38:00 серияРеклама: присутствуют видео, аудио, текстовые вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F59BD37591F39E370707B24C5F0945C5950C9E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1510040   (754526) от 09.01.2022
 
 Мэр Кингстауна / Mayor of Kingstown (2021) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-10 из 10) LakeFilms [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754526.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754265.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754171.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754159.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753324.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753282.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753240.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753153.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753115.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752960.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752816.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751275.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751265.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749829.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749820.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749728.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749726.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749698.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_749695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749695.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_749601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749601.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_749596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749596.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748022.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747819.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746140.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A1C255D50C3928E47B5DC756618F72E6AAD8E16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516262   (746027) от 14.01.2022
-
-Пространство / Экспансия / The Expanse (2021) WEBRip [H.264/1080p-LQ] (сезон 6, серии 1-6 из 6) LakeFilms [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746027.jpg" />
-</div>
-
-
-###  Подробнее
-
-Через двести лет от дня сегодняшнего некий сыщик, привыкший всё доводить до конца при любых обстоятельствах, в рамках расследования дела об исчезновении молодой женщины оказывается на борту звездолета, капитан которого решает помочь детективу в его непростом деле. Величайший заговор в истории человечества гарантируется, как и его непременное раскрытие.Производство: Канада, США / Alcon Entertainment, Sean Daniel CompanyЖанр: фантастика, драма, детективРежиссер: Брек Эйснер, Джефф Вулнаф, Терри МакДонафАктеры: Стивен Стрейт, Доминик Типпер, Уэс Чэтэм, Шоре Агдашлу, Кэс Анвар, Фрэнки Адамс, Кара Ги, Шон Дойл, Томас Джейн, Флоренс Ванида ФэйврПеревод: Многоголосый любительский (LakeFilms)Язык озвучки: РусскийПродолжительность: ~00:47:00 серияРеклама: присутствуют видео, аудио, текстовые вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D05733F4C04688EC8B591EF318EFBEF115B8A806
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927602   (745902) от 25.05.2016
-
-Слепая зона / Слепое пятно / Blindspot (2015) WEB-DLRip (сезон 1, серии 1-23 из 23) NewStudio [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745902.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре сюжета находится потерявшая память девушка, которая оказывается в центре расследования после того, как смогла выбраться из брезентового мешка в самом центе Нью-Йорк Сити на Таймс Сквер. Не имея ни малейшего представления о том, кто она такая, девушка не знает, что обозначают многочисленные загадочные татуировки, которыми покрыто все ее тело. Когда выясняется, (   Читать дальше...   )Производство: США / Quinn's House, Berlanti Productions, Universal TelevisionЖанр: драма, детективРежиссер: Марк ПеллингтонАктеры: Джейми Александер, Салливан Степлтон, Одри Эспарза, Роб Браун, Марианн Жан-Батист, Аквели Роач и др.Перевод: Многоголосый закадровый, профессиональный - NewStudioПродолжительность: ~00:43:00 серияРеклама: присутствуют видео, аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:684DB3BF837F4344E1A62677A45EC30005DB455B
 ```
 
 https://mybot314.ru/tekegram_catalog/

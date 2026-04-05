@@ -1,55 +1,3 @@
-###  Публикация: 1205898   (783082) от 11.02.2018
-
-Здравствуй, папа, Новый год! 2 / Daddy's Home 2 (2017) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783082.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отец и отчим, Дасти и Брэд, объединяются, чтобы организовать для своих детей идеальный рождественский праздник. Но их с горем пополам достигнутый нейтралитет оказывается под угрозой, когда к внукам приезжают олдскульный мачо-папаша Дасти и чувствительный и эмоциональный папочка Брэда. Они как нельзя кстати, чтобы превратить Рождество в кошмарный хаос.Производство: США / Paramount Pictures, Gary Sanchez Productions, Huahua MediaЖанр: КомедияРежиссер: Шон АндерсАктеры: Уилл Феррелл, Марк Уолберг, Мэл Гибсон, Джон Литгоу, Линда Карделлини, Алессандра Амброзио, Оуэн Ваккаро, Скарлет Эстевез, Диди Костин, Коннор УайзПеревод: Дублированный (iTunes)Субтитры: Русские, АнглийскиеПродолжительность: 01:39:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFEA06E98121F41726AB10DA37B415A155068CDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205476   (783077) от 11.02.2018
-
-Женись на мне, чувак / Epouse-moi mon pote (2017) WEB-DLRip
-
->>След.
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783077.jpg" />
-</div>
-
-
-###  Подробнее
-
-Единственный шанс для провалившего экзамен студента остаться в Париже — это фиктивный брак. Однако, найти невесту так быстро практически невозможно. И тогда на помощь приходит лучший друг.Производство: Франция / Axel Films, Canal+Жанр: Комедия, приключенияРежиссер: Тарек БудалиАктеры: Тарек Будали, Филипп Лашо, Шарлотта Габрис, Анди, Давид Марсе, Жюльен Аррути, Байа Белаль, Филипп Дюкен, Зинедин Суалем, Дуду МастаПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:27:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6B5396315F23E5B2AC55B790CB145E6FA6D62BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205731   (783075) от 11.02.2018
 
 Восставший из ада: Приговор / Hellraiser: Judgment (2018) DVDRip
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783075.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782910.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782885.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782878.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782856.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782850.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782842.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782814.jpg" />
 </div>
 
 
@@ -267,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782742.jpg" />
 </div>
 
 
@@ -293,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782619.jpg" />
 </div>
 
 
@@ -319,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782479.jpg" />
 </div>
 
 
@@ -345,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782449.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782438.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782431.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782402.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782394.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782358.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782329.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782318.jpg" />
 </div>
 
 
@@ -556,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782175.jpg" />
 </div>
 
 
@@ -582,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781979.jpg" />
 </div>
 
 
@@ -608,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781972.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781962.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781753.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF389278CBB0E3E30DE05674D3A813B519CFC102
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206636   (781709) от 15.02.2018
+
+Рассказ женщины / A Woman's Tale (1991) TVRip [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнеутверждающий и глубокий взгляд на последние дни пожилой женщины, больной раком. Этот фильм особенно значим тем, что сценарий был специально написан для актрисы, исполнившей главную роль, Шилы Флоранс. Она действительно умирала от рака, и эта роль стала для нее своеобразным автопортретом....Производство: Австралия / Australian Film Finance Corporation (AFFC), Beyond Films, Illumination FilmsЖанр: ДрамаРежиссер: Пол КоксАктеры: Шила Флоранс, Гося Добровольска, Норман Кэй, Крис Хейвуд, Эрни Грэй, Мертл Вудс, Брюс Майлз, Алекс Менглет, Франсуа БернардПеревод: Одноголосый закадровый, авторский (Леонид Володарский)Субтитры: отсутствуютПродолжительность: 01:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88FAC97C40D52B5CEC00DE05051D717FB5804E52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206813   (781668) от 15.02.2018
+
+Снеговик / The Snowman (2017) BDRip [H.264] [PR]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781668.jpg" />
+</div>
+
+
+###  Подробнее
+
+В течение многих лет в день, когда выпадает первый снег, бесследно исчезают замужние женщины. Сложить все части загадочного пазла под силу только знаменитому детективу. Он потерял покой и сон, ведь время следующего снегопада неумолимо приближается.Производство: Великобритания, США, Швеция, Universal Pictures, Perfect World Pictures, Another Park FilmЖанр: Ужасы, триллер, драма, криминал, детективРежиссер: Томас АльфредсонАктеры: Майкл Фассбендер, Ребекка Фергюсон (II), Шарлотта Генсбур, Йонас Карлссон, Ронан Вайберт, Дж.К. Симмонс, Вэл Килмер, Давид Денсик, Тоби ДжонсПеревод: Дублированный (Blu-ray EUR)Субтитры: русские (форсированные, полные)Продолжительность: 01:59:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CD5BE702AB0239DCFD1A12F4B9761677192A995
 ```
 
 https://mybot314.ru/tekegram_catalog/

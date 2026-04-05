@@ -1,29 +1,3 @@
-###  Публикация: 800846   (638061) от 30.06.2014
-
-Lynda.com | CSS (2009-2013) [PCRec] [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это сборник видеуроков от Lynda.com по CSS за 2009 - 2013 года. Сюда вошли 15 курсов от Lynda.com. Отличие от подобных раздач - нумерация и имена файлов полностью совпадают с оригинальными, файлы примеров вынесены в отдельный архив. По мере появления новых курсов раздача будет оперативно обновлятьсяЖанр: WebПродолжительность: 55:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB78659193B728857725CED1F437EC3185EA2EB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 800863   (637963) от 30.06.2014
 
 Lynda.com | JavaScript (2011-2014) [PCRec] [EN]
@@ -32,7 +6,7 @@ Lynda.com | JavaScript (2011-2014) [PCRec] [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637963.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636933.jpg" />
 </div>
 
 
@@ -87,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636821.jpg" />
 </div>
 
 
@@ -115,7 +89,7 @@ Lynda.com | PHP (2012-2014) [PCRec] [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636190.jpg" />
 </div>
 
 
@@ -141,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634720.jpg" />
 </div>
 
 
@@ -167,7 +141,7 @@ DVD-TEACH | Парсер контента собственными руками 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634506.jpg" />
 </div>
 
 
@@ -202,7 +176,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632941.jpg" />
 </div>
 
 
@@ -228,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632674.jpg" />
 </div>
 
 
@@ -254,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632569.jpg" />
 </div>
 
 
@@ -280,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630543.jpg" />
 </div>
 
 
@@ -306,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_630350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_630350.jpg" />
 </div>
 
 
@@ -338,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629464.jpg" />
 </div>
 
 
@@ -366,7 +340,7 @@ LendWings | Все секреты SQL. SQL Injection Master Course (2014) PCRec 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627029.jpg" />
 </div>
 
 
@@ -394,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627009.jpg" />
 </div>
 
 
@@ -422,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627004.jpg" />
 </div>
 
 
@@ -451,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626921.jpg" />
 </div>
 
 
@@ -480,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626918.jpg" />
 </div>
 
 
@@ -508,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626914.jpg" />
 </div>
 
 
@@ -537,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626903.jpg" />
 </div>
 
 
@@ -565,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625175.jpg" />
 </div>
 
 
@@ -591,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_624162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_624162.jpg" />
 </div>
 
 
@@ -621,7 +595,7 @@ ProfIT | Современные PHP-фреймворки (2017) PCRec [H.264/720
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620511.jpg" />
 </div>
 
 
@@ -649,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615883.jpg" />
 </div>
 
 
@@ -683,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614474.jpg" />
 </div>
 
 
@@ -710,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613664.jpg" />
 </div>
 
 
@@ -724,6 +698,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39C036A4BE83ADA99D5D8449988F976BCF048A35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036756   (613569) от 24.07.2016
+
+Ларри Гастингс | Убирая ГБИ из Питона: Гилектомия (2016) HDTV
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613569.jpg" />
+</div>
+
+
+###  Подробнее
+
+На сколько реально избавиться от ГБИ (GIL) в Питоне, чего это будет стоить и как это можно сделать. Обо всём этом, а также о проекте «Гилектомия» в подробностях рассказывает один из разработчиков интерпретатора CPython.Жанр: ПрограммированиеПродолжительность: 00:32:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A3D6D55562233A8C2CE574F1845812F0B183A63
 ```
 
 https://mybot314.ru/tekegram_catalog/

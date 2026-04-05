@@ -1,161 +1,3 @@
-###  Публикация: 1505603   (803852) от 27.10.2021
-
-Д.В. Кольцов | Python. Создаем программы и игры, 2-е издание (2019) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная книга позволяет уже с первых шагов создавать свои программы на языке Python. Акцент сделан на написании компьютерных игр и небольших приложений. Есть краткий вводный курс в основы языка, который поможет лучше ориентироваться на практике. По ходу изложения даются все необходимые пояснения, приводятся примеры, а все листинги (коды программ) сопровождаются подробными (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D7BD434D38F1ED912E2D1C3AF490AE3E2C04A1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010213   (803516) от 24.04.2016
-
-Google Inc. | Android 5.0 Lollipop: Краткое руководство (2014) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803516.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом руководстве рассказывается о системе Android 5.0 (Lollipop) для устройств Nexus и Google Play Edition. Работа вашего устройства или операционной системы может несколько отличаться от приведенного здесь описания. Содержание руководства может быть изменено без предварительного уведомления.Жанр: AndroidФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28A2A4ACCAB337AB59A6177C892B369F9A87DF64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120269   (802862) от 30.03.2017
-
-Эрик А. Мейер | CSS. Карманный справочник (2016) [PDF]
-
->>Компьютерная литература
->>Веб-дизайн
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802862.jpg" />
-</div>
-
-
-###  Подробнее
-
-От издателя: Работая с каскадными таблицами стилей (CSS), читатель может быстро найти нужный ответ в этом удобном кратком справочнике, в котором предоставляются все основные сведения, необходимые для оперативной реализации CSS. Этот карманный справочник идеально подходит для веб-разработчиков от промежуточного до продвинутого уровня квалификации, а его четвертое (   Читать дальше...   )Жанр: языки для разработки Web-сайтовФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:193437D300C970F06E3534019917419F683A74ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505868   (802391) от 28.10.2021
-
-Вэнь Тонг, Пейин Чжу | Сети 6G. Путь от 5G к 6G глазами разработчиков (2022) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая книга о беспроводной связи 6G дает развернутое представление о будущем 6G – эпохе всеобщего интеллекта, которая будет определять облик нового мира. В книге рассматриваются новые радиоинтерфейсы и сетевые технологии, интеграция услуг сканирования и связи, а также наземных и неназемных сетей. Также обсуждаются новые сетевые архитектуры, обеспечивающие функционирование (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:024BA6BAC793FBFB11F0DE1AA38D69CC05FBE9F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199081   (802383) от 14.01.2018
-
-Эндрю Бик / Andrew Beak | Учебное пособие по PHP 7 Zend Certification / PHP 7 Zend Certification Study Guide: Ace the ZCE 2017-PHP Exam (2017) [PDF] [En]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Улучшите свои знания в области программирования и получите сертификат Zend. Эта книга внимательно следит за учебным планом ZCE2017-PHP и добавляет важные детали, которые помогают кандидатам подготовиться к тесту.
-Сертификация Zend является признанным в отрасли стандартом для инженеров PHP. Очень сложно сдавать экзамен без тщательной подготовки. В отличие от других (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD15DE4C3A524BBA4B8DDB34FF49351E56EA72C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384431   (802229) от 20.05.2020
-
-David Flanagan | JavaScript: The Definitive Guide, 7th Edition / JavaScript: Полное руководство [7-е издание] (2020) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Javascript является языком Web-программирования и сегодня используется большим количеством разработчиков программного обеспечения, чем любой другой язык программирования.
-Вот уже почти 25 лет этот бестселлер является путеводителем для программистов javascript. Седьмое издание полностью обновлено для охвата версии javascript 2020 года, а новые главы посвященые классам, (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8C38F4AB440A742D9BDD9AFBC70760298DE7E17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506406   (800674) от 30.10.2021
 
 Кайл Симпсон | Вы пока еще не знаете JS. Познакомьтесь, JavaScript, 2-е международное издание (2022) [PDF]
@@ -164,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800674.jpg" />
 </div>
 
 
@@ -190,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800053.jpg" />
 </div>
 
 
@@ -216,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799343.jpg" />
 </div>
 
 
@@ -242,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799341.jpg" />
 </div>
 
 
@@ -268,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799336.jpg" />
 </div>
 
 
@@ -294,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799315.jpg" />
 </div>
 
 
@@ -320,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798904.jpg" />
 </div>
 
 
@@ -346,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798642.jpg" />
 </div>
 
 
@@ -372,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798386.jpg" />
 </div>
 
 
@@ -398,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798342.jpg" />
 </div>
 
 
@@ -424,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798186.jpg" />
 </div>
 
 
@@ -450,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798059.jpg" />
 </div>
 
 
@@ -476,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798055.jpg" />
 </div>
 
 
@@ -502,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798031.jpg" />
 </div>
 
 
@@ -528,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797906.jpg" />
 </div>
 
 
@@ -554,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797830.jpg" />
 </div>
 
 
@@ -580,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796559.jpg" />
 </div>
 
 
@@ -608,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796512.jpg" />
 </div>
 
 
@@ -634,7 +476,7 @@ Tam Sel | Android And Java For Beginners: 2 Books In 1  (2020) [PDF] [EN]
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795830.jpg" />
 </div>
 
 
@@ -663,7 +505,7 @@ Paul Deitel, Harvey Deitel | C++20 for Programmers / C ++ 20 для програ
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795770.jpg" />
 </div>
 
 
@@ -674,6 +516,164 @@ C ++ 20 для программистов - это учебное пособие
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF0E30D2063BA1C4A124487D232E8634967611F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385989   (795763) от 27.05.2020
+
+Ярослав Омельяненко | Эволюционные нейросети на языке Python (2020) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга дает всестороннее представление о нейроэволюции – подходе к обучению искусственных нейронных сетей, который использует эволюционные алгоритмы, чтобы упростить процесс решения сложных задач в таких областях, как игры, робототехника и моделирование естественных процессов.
+Читатель начнет знакомство с ключевыми концепциями и методами нейроэволюции, написав (   Читать дальше...   )Жанр: Нейронная сетьФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F177A99DFA342494E0128C4A95586DF2FC36584
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509081   (795303) от 11.11.2021
+
+Дэвид Копец | Классические задачи Computer Science на языке Java (2022) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cтолкнулись с «неразрешимой» проблемой при разработке программного обеспечения? Скорее всего, кто-то уже справился с этой задачей, и вы можете не ломать голову. Дэвид Копец собрал наиболее полезные готовые решения, принципы и алгоритмы. «Классические задачи Computer Science на языке Java» — это мастер-класс по программированию, содержащий 55 практических примеров, (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:443A42D30512F25DE9CB07F41C2C5C7A5259686C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200574   (794646) от 22.01.2018
+
+Алексей Крючков | Создание приложений для браузера Google Chrome (2018) [PDF, RTF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794646.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге на примерах описывается как создавать приложения для популярного браузера Google Chrome. Читатель сам по ходу чтения сможет создать четыре простых приложения и запустить их в браузереЖанр: Компьютерная литератураФормат: PDF, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BB731321D89178ED6F747470B6991D7042F6D4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200546   (794612) от 22.01.2018
+
+М. Пацианский | React.js для начинающих (2016) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794612.jpg" />
+</div>
+
+
+###  Подробнее
+
+В процессе изучения, нам потребуется локальный сервер. Для этого мы воспользуемся node.js и express. Знание этих технологий не обязательно, достаточно будет просто "скопировать/вставить", либо воспользоваться своим локальным сервером, например на Apache.
+React.js — это открытая javascript-библиотека для создания пользовательских интерфейсов. В данном курсе (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AABC5789C064C13B246262C78B20A29EFB6C9EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200592   (794540) от 22.01.2018
+
+Алексей Крючков | Java Code. Сборник исходников (2018) [PDF, RTF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник самых разных java-исходников для начинающих разработчиков, пишущих под android или создающих десктопные java-приложения. Сборник ориентирован именно на начинающих программистов, которые уже кое-что знают и умеют разбираться в чужом кодеЖанр: Компьютерная литератураФормат: PDF, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB3795F040D443C0BA3BFAC5B6AD44BF97D11C50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200565   (794521) от 22.01.2018
+
+Андрей Ветров | Word,Excel 2013-2016 [2 книги] (2017) [PDF, RTF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794521.jpg" />
+</div>
+
+
+###  Подробнее
+
+В представленных книгах просто и доходчиво описан порядок работы с Microsoft Word и Excel 2013-2016. Они будут полезны как начинающим пользователям, так и опытным, которым,  тем  не  менее,  приходится постоянно  обращаться  к  этим книгам, чтобы вспомнить то одно, то другое, то третье…, то пятое, то десятое: нужно просто найти в оглавлении то, что вас интересует, открыть (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A050BDD07DD153EF51E20B7745C26E437BEF4D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 1390073   (783618) от 13.06.2020
+
+Jose Salvatierra | The Complete Python Course - Learn Python by Doing (2020) [H.264/720p-LQ] [En]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полный Курс Програмированния на Пайтон - Обучение Пайтону примерами. С онлайн академии Udemy.
+В этом курсе мы не только рассмотрим основы, но и проведем вас через создание нескольких реальных проектов, чтобы предоставить вам все необходимые инструменты и код, как профессионал. Это и есть фокус этого курса. Мы будем использовать Python для работы с файлами, электронными (   Читать дальше...   )Жанр: Программирование, PythonЯзык озвучки: АнглийскийПродолжительность: 35:18:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:675E64841D6031C0EFFBDF8D899C5BDA97954A7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1390219   (783291) от 14.06.2020
 
 Udemy | Базовый Python (2020) PCRec [H.264/720p-LQ]
@@ -6,7 +33,7 @@ Udemy | Базовый Python (2020) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783291.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ Udemy | Продвинутые навыки Python: станьте лучшим 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783290.jpg" />
 </div>
 
 
@@ -62,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783289.jpg" />
 </div>
 
 
@@ -89,7 +116,7 @@ Udemy | Азбука JavaScript (курс для начинающих) (2020) PC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783285.jpg" />
 </div>
 
 
@@ -115,7 +142,7 @@ Udemy | Telegram. Пишем ботов на Node JS и Telegraf (2020) PCRec [H
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783280.jpg" />
 </div>
 
 
@@ -142,7 +169,7 @@ Foxminded | Инструментарий Java для новичка (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783272.jpg" />
 </div>
 
 
@@ -170,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783134.jpg" />
 </div>
 
 
@@ -198,7 +225,7 @@ PhLearn | Photography 101 (2017) PCRec [H.264/720p-LQ] [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783118.jpg" />
 </div>
 
 
@@ -227,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783090.jpg" />
 </div>
 
 
@@ -256,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782816.jpg" />
 </div>
 
 
@@ -285,7 +312,7 @@ Nztcoder | ZennoPoster-Master #1: Становление - с нуля до ко
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782187.jpg" />
 </div>
 
 
@@ -314,7 +341,7 @@ Udemy | HTML + CSS с Нуля до Результата (2020) PCRec [H.264/720
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780931.jpg" />
 </div>
 
 
@@ -343,7 +370,7 @@ Udemy | Изучаем Социальную Инженерию с Нуля (2017
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779324.jpg" />
 </div>
 
 
@@ -369,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778889.jpg" />
 </div>
 
 
@@ -395,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778886.jpg" />
 </div>
 
 
@@ -422,7 +449,7 @@ Lynda.com | Up and Running with Plant Factory (2015) PCRec [H.264/720p-LQ] [RU/E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778651.jpg" />
 </div>
 
 
@@ -451,7 +478,7 @@ Lynda.com | Up and Running in VUE (2015) PCRec [H.264/720p-LQ] [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778638.jpg" />
 </div>
 
 
@@ -480,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778606.jpg" />
 </div>
 
 
@@ -506,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778060.jpg" />
 </div>
 
 
@@ -534,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778056.jpg" />
 </div>
 
 
@@ -560,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777806.jpg" />
 </div>
 
 
@@ -586,7 +613,7 @@ ITVDN | Видео курс Unity3D Essential (2015) PCRec [H.264/720p]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777801.jpg" />
 </div>
 
 
@@ -612,7 +639,7 @@ ITVDN | Выполнение домашнего задания по курсу S
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777798.jpg" />
 </div>
 
 
@@ -638,7 +665,7 @@ Search Engine Education | SEO-Коучинг 9.0 (2016) PCRec [H.264/720p]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777768.jpg" />
 </div>
 
 
@@ -664,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777763.jpg" />
 </div>
 
 
@@ -678,32 +705,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B43D07220B64C84A7CEC8C8338A6BCAC5A071FB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011701   (777761) от 03.05.2016
-
-ITVDN | HTML5 Web Components (2016) PCRec [H.264/1080p]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777761.jpg" />
-</div>
-
-
-###  Подробнее
-
-HTML5 Web Components - это видео курс, который будет полезен любому разработчику. Мир разработки настольных приложений потерпел много изменений. Технологии, разработанные для создания пользовательских интерфейсов для desktop приложений хорошо развиты и многие годы, используются разработчиками. Но в веб ориентированных интерфейсах на сегодняшний день еще не сформировался (   Читать дальше...   )Производство: ITVDNЖанр: ПрограммированиеПродолжительность: 02:11:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1FCC4A4A6131C12C41796EC81A78CC03DE6791C
 ```
 
 https://mybot314.ru/tekegram_catalog/

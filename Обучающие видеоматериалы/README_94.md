@@ -1,3 +1,32 @@
+###  Публикация: 1507073   (798528) от 03.11.2021
+
+Udemy, Алексей Кириченко (Alexey Kirichenko) | Персонажная иллюстрация в программе Adobe Photoshop (2017) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798528.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный курс покажет Вам изнанку работы цифрового художника-иллюстратора и поможет сделать первые шаги в захватывающий мир рисования на компьютере!
+
+На примере коммерческого персонажа автор просто и ясно покажет каждый этап создания иллюстрации от идеи до «финальных штрихов».
+(   Читать дальше...   )Производство: UdemyЖанр: Создание видеоПродолжительность: 08:11:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8437642969AAE82E726F0CB96EF36A8462A578FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1507347   (798455) от 04.11.2021
 
 Бизнес-Мастер, Константин Бордунос и др. | MLM (2008) DVDRip
@@ -6,7 +35,7 @@
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798455.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798441.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Numerolog club, Анастасия Данилова | Цвета и цифры: 
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798425.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798285.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798284.jpg" />
 </div>
 
 
@@ -149,7 +178,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798283.jpg" />
 </div>
 
 
@@ -176,7 +205,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798271.jpg" />
 </div>
 
 
@@ -202,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798267.jpg" />
 </div>
 
 
@@ -228,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798259.jpg" />
 </div>
 
 
@@ -255,7 +284,7 @@ Skillshare, Gesa Pickbrenner | Learn Blender 2.90: Creative and 3D Printable Jew
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798077.jpg" />
 </div>
 
 
@@ -282,7 +311,7 @@ Skillshare, Gesa Pickbrenner | Foundations of Blender 2.90: Jewelry Design in 3D
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798067.jpg" />
 </div>
 
 
@@ -309,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797750.jpg" />
 </div>
 
 
@@ -338,7 +367,7 @@ Udemy | Основы SQL: SELECT, JOIN, DML, DDL, TCL, DCL (2020) PCRec [H.264/7
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797692.jpg" />
 </div>
 
 
@@ -364,7 +393,7 @@ CG Cookie, Kent Trammell | Styling and Rendering Long Hair with Blender and Cycl
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797333.jpg" />
 </div>
 
 
@@ -390,7 +419,7 @@ FlippedNormals, Konrad Hetko | Creating Hair for Games in Blender (2021) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797275.jpg" />
 </div>
 
 
@@ -416,7 +445,7 @@ Highlights School | Основы веб-дизайна (2015) PCRec [H.264/720p]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797231.jpg" />
 </div>
 
 
@@ -445,7 +474,7 @@ ProfIT | Node.js Express: Создаём веб-приложение быстр�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797229.jpg" />
 </div>
 
 
@@ -473,7 +502,7 @@ PhLearn Pro | Dragon's heart (2017) PCRec [H.264/720p-LQ] [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796817.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ PhLearn Pro | Project fitness (2017) PCRec [H.264/720p-LQ] [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796789.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ amlab - Подготовка к семейной съемке (2016) PCRec [H.26
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796719.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796710.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796688.jpg" />
 </div>
 
 
@@ -609,7 +638,7 @@ JUG Ru Group | Joker 2021. Международная Java-конференци�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796666.jpg" />
 </div>
 
 
@@ -637,7 +666,7 @@ ITVDN, Юрий Боцман | .NET Developer (2021) WEB-DL [AD]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796620.jpg" />
 </div>
 
 
@@ -665,7 +694,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796485.jpg" />
 </div>
 
 
@@ -676,32 +705,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:023F7E1B913976FC93A094BB3FE0B9C78D9AD236
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385747   (796482) от 26.05.2020
-
-Udemy | Машинное обучение: нейросети и глубокое обучение на Python (2020) PCRec [H.264/720p-LQ]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796482.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы разберем сегментацию и классификацию изображений облаков с помощью сверточных, пирамидальных, остаточных и полносвязных нейронных сетей в соревновании на Kaggle вплоть до формирования конечного результата.Производство: Центр digital-профессий ITtensiveЖанр: Машинное обучение, нейросети, PythonЯзык озвучки: РусскийПродолжительность: 3:12:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A9B72E938BA90CB409246AF544662DAAFA21CF1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1796942   (18348) от 14.05.2025
+
+Курсант Военно-космической академии задержан за взлом защищенной информации
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курсант Военно-космической академии имени А.Ф. Можайского  разработал программу, способную взламывать защитную инфраструктуру Secret Net Studio*, используемую Минобороны и другими правоохранительными органами.Молодой программист создал алгоритм, позволяющий обходить систему и получать доступ к секретной информации. В попытке заработать, он выставил свою программу (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797146   (18281) от 15.05.2025
+
+«Данную видеокарту нельзя использовать в вашей стране». США собираются отслеживать видеокарты и чипы для ИИ, чтобы не допустить их в неугодные страны
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18281.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Конгрессе США обсуждают законопроект, который обяжет производителей высокопроизводительных чипов и видеокарт, таких как Nvidia, AMD и Intel, внедрять технологии геотрекинга.Закон, предложенный сенатором Томом Коттоном, направлен на контроль местоположения оборудования, чтобы предотвратить его использование в странах под санкциями. Он направлен на то, чтобы «не (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1552395   (18264) от 15.05.2025
 
 Любовь, смерть и роботы / Love, Death & Robots (2022) WEB-DL [H.264/1080p-LQ] (сезон 3, серии 1-9 из 9) LostFilm, HDRezka Studio
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18264.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18059.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18056.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18043.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17958.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17957.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17956.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17955.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17946.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ Samsung и Xiaomi тоже начали цензурировать VPN-прил�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17935.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ FloorGenerator 2.10 for 3ds Max 2013-2026 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17738.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17729.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ Nvidia запретила сравнивать GeForce RTX 5060 с RTX 4060
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17641.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17636.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ N/A | WIFI антенна за 15 минут своими руками PCRec
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17635.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17605.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17497.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17459.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17411.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17354.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ Microsoft® Windows® 11 Pro-Home Optim Lite x64 24H2 RU by OVGorskiy 05.2025
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17347.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ Tempest (2016) [Ru/Multi] (1.7.5/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17346.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17065.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17039.jpg" />
 </div>
 
 
@@ -623,58 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798774   (17038) от 25.05.2025
-
-Качество домашнего Wi-Fi может упасть в ближайшие пять лет — ресурс диапазона 6 ГГц почти исчерпан
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17038.jpg" />
-</div>
-
-
-###  Подробнее
-
-С быстрым ростом числа сетей Wi-Fi пропускная способность диапазона 6 ГГц вскоре может исчерпаться, подсчитали эксперты некоммерческой организации CableLabs под эгидой операторов кабельного телевидения. Это грозит потерями до 2 % пакетов и задержками в 10 мс.Такой результат в CableLabs получили, проведя моделирование распределения сигнала Wi-Fi в двенадцатиэтажном (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120059   (16923) от 26.05.2025
-
-Rain World (2017) [Ru/Multi] (1.10.4/dlc) License GOG
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16923.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы слизнекот. Вокруг вас мир, полный опасностей, и вам предстоит справляться с ними в одиночку. Вы потеряли семью во время разрушительного наводнения и теперь вынуждены охотиться, чтобы не умереть с голоду, и искать убежища в перерывах между бушующими ливнями, которые грозят утопить все живое. Пробирайтесь по руинам древней цивилизации, не попадайтесь в пасть злобным (   Читать дальше...   )Тип издания: LicenseРазработчик: VideocultЖанр: Экшны, Приключeние, ПлатформерЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55F91FE33132486F011BA18B0714EAA857365D62
 ```
 
 https://mybot314.ru/tekegram_catalog/

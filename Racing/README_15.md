@@ -6,7 +6,7 @@ RC Revolution (2024) [Ru/Multi] (1.0) Scene SKIDROW
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116769.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ RC Revolution (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116135.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ World Rally Fever: Born on the Road (1996) [En] (1.01) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104420.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ MUD: FIM Motocross World Championship (L) [Multi5/-] 2012
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102328.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Colin McRae Rally + DiRT Antology (1998-2015) [Ru/En] (1.5/1.09/1.1/1.01/1.01/1.
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101602.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ SCAR: Squadra Corse Alfa Romeo / SCAR: Спортивная команда Ал�
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90305.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Death Track: Resurrection / Death Track: Возрождение [Ru] (RePack/1.2
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89142.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Carmageddon TDR2000 / Кармагеддон. Колеса смерти [Ru] (Re
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88902.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Police Force (RePack) [Ru] 2012 | Fenixx
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88529.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Gran Turismo 4 Prologue [Multi5] (RePack/Emul) 2004 | MarkusEVO
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87498.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Gran Turismo 3 A-spec (RePack/Emul) [Ru/En] 2001 | MarkusEVO
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87285.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ F1 Challenge 99-02  F1 SMT 2012[Ru] (P/Mod) 2003/2012
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86649.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ F1 2010 Fans Edition [Ru/Mod] (RePack/1.01) 2010 l Naitro
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86440.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Ridge Racer Unbounded [Multi6/+] (L) 2012 l SKIDROW
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85452.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Vangers: One for the Road / Вангеры [Ru] (Rip) 1998 | Pilotus
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84177.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Earache Extreme Metal Racing / Адские гонки [Ru/En] (L) 2007
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83979.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Road Rash [En] (RePack) 1996 | Pilotus
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82375.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Pure [Ru] (RePack) 2008 | Naitro
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82120.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Need for Speed: Most Wanted [Ru] (P/1.3) 2005
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79698.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Assetto Corsa Competizione (2019) [Ru/Multi] (1.10/dlc) Scene Rune
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60721.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Assetto Corsa Competizione (2019) [Ru/Multi] (1.10/dlc) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60715.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Hot Wheels Unleashed (2021) [Ru/Multi] (1.0upd14/dlc) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59123.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ HOT WHEELS UNLEASHED 2: Turbocharged (2023) [Multi] (1.0/dlc) Repack FitGirl
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59024.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Carmageddon 2: Carpocalypse Now! (1998) [En] (1.1) Repack/Mod aL
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58836.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Truck Driver (2021) [Ru/Multi] (1.35.2.32/dlc) Scene DOGE
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58280.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Turbo Sloths (2022) [Ru/Multi] (13189048/dlc) Repack seleZen
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55656.jpg" />
 </div>
 
 

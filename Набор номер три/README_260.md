@@ -1,3 +1,161 @@
+###  Публикация: 1268154   (699105) от 15.08.2020
+
+Wink v1.23.2 / Wink TV v1.21.1  [Ru] (обновляемая)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699105.jpg" />
+</div>
+
+
+###  Подробнее
+
+WINK – это фильмы, сериалы, мультфильмы, телеканалы в приложении для смартфона, планшета и Smart TV. Установите Wink и смотрите кино и телепередачи онлайн или загружайте их и смотрите оффлайн, без интернета.Тип издания: Пиратка (Mod: открыты только ТВ каналы)Релиз состоялся: 13.08.2020Разработчик: PJSC "Rostelecom"Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEB45A145056814FA04805DC97EAFD44C4899C87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533758   (699033) от 27.02.2022
+
+Китайский луноход Юйту-2 обнаружил на темной стороне Луны прозрачные сферы
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_699033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Китайская миссия "Юйту-2" сделала еще одно интересное открытие на дальней стороне Луны. Среди сухой серой космической пыли панорамная камера ровера обнаружила две небольшие неповрежденные сферы из полупрозрачного вещества.Китайский луноход "Юйту-2", выполняющий миссию по изучению дальней стороны Луны, сделал новое удивительное открытие. Он обнаружил (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534014   (699026) от 27.02.2022
+
+Tom Clancy's Ghost Recon: Wildlands (2017) [Ru/Multi] (4792145/dlc) Repack Decepticon [Ultimate Edition]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699026.jpg" />
+</div>
+
+
+###  Подробнее
+
+В недалеком будущем живописный уголок Южной Америки, прекрасная Боливия, становится крупнейшим в мире производителем кокаина. Наркокартель Санта-Бланка подчинил себе правительство страны, в которой отныне процветает беззаконие, а жителей преследует постоянный страх. Влияние картеля в преступном сообществе огромно, и, возможно, очень скоро Санта-Бланка станет угрозой (   Читать дальше...   )Тип издания: RepackРазработчик: Ubisoft Paris, Ubisoft Annecy, Ubisoft Bucharest, Ubisoft Montpellier, Ubisoft Milan, Reflections, Ubisoft BelgradeЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0E09F89884BC2A9CF96086A8FBC9B9BB1470A99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288061   (698914) от 09.03.2019
+
+COMSS Boot USB 2019-03 Full [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698914.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузочная флэшка COMSS Boot USB содержит 11 антивирусных сканеров для проверки и лечения компьютеров и ноутбуков, а также утилиты для проверки оперативной памяти и для работы с HDD и SSD накопителями.
+
+Диск содержит только свободно распространяемое программное обеспечение.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21D8B315EF8B7F9591C3E66BD927B6B2C1DEA9D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287343   (698906) от 09.03.2019
+
+Почему HDD стали реже выходить из строя
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_698906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поломки жёстких дисков — одна из главных причин простоя серверов в дата-центрах. Но в последнее время число отказов HDD сокращается. Расскажем, почему так происходит.Немного ретроспективыДвадцать лет назад жесткий диск был одним из «слабых мест» компьютера или сервера. Известна история с накопителями IBM Deskstar, которые выходили из строя даже после непродолжительного (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287047   (698900) от 09.03.2019
+
+Мылодрама (2019) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-9 из 9) [Без цензуры]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтобы обрушить акции телеканала, совет директоров принимает решение посадить в кресло генерального директора автозаправщика-недотепу и доверить ему съемки сериала. В короткие сроки горе-начальнику удается создать хаос в эфире и установить свои порядки в медиабизнесе. Но неожиданно сериал, который по плану должен был стать величайшим провалом, начинает иметь грандиозный (   Читать дальше...   )Производство: РоссияЖанр: комедияРежиссер: Илья КуликовАктеры: Сергей Бурунов, Ростислав Бершауэр, Григорий Калинин, Юрий Грубник, Маруся Климова, Анна Котова-Дерябина, Кирилл Мелехов, Ольга Дибцева, Сергей Штатнов, Евгений Сармонт и др.Продолжительность: ~00:27:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ABA33C6B6F85ACAA66BCBD5F7900427CB7925F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287775   (698898) от 09.03.2019
 
 Devil May Cry 5 (2019) [Ru/En] (1.0/dlc) Repack xatab [Deluxe Edition]
@@ -6,7 +164,7 @@ Devil May Cry 5 (2019) [Ru/En] (1.0/dlc) Repack xatab [Deluxe Edition]
 >>11
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698898.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ WinBoot-загрузчики Windows 7 и 8.1 (в одном ISO) v15.05.06 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698667.jpg" />
 </div>
 
 
@@ -59,7 +217,7 @@ Nero 2015 Platinum 16.0.05000 + Content Pack [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698663.jpg" />
 </div>
 
 
@@ -85,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698659.jpg" />
 </div>
 
 
@@ -111,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698658.jpg" />
 </div>
 
 
@@ -137,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698655.jpg" />
 </div>
 
 
@@ -163,7 +321,7 @@ Grand Theft Auto V (2015) [Ru/Multi] (1.0.350.2) Repack R.G. Механики
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698654.jpg" />
 </div>
 
 
@@ -189,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698274.jpg" />
 </div>
 
 
@@ -218,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_698261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_698261.jpg" />
 </div>
 
 
@@ -244,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698258.jpg" />
 </div>
 
 
@@ -270,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>9
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_698251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_698251.jpg" />
 </div>
 
 
@@ -299,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698248.jpg" />
 </div>
 
 
@@ -325,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698245.jpg" />
 </div>
 
 
@@ -351,7 +509,7 @@ Windows 8.1 Preview 6.3.9431 x86-x64 [Ru] MSDN
 >>21
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_698179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_698179.jpg" />
 </div>
 
 
@@ -378,7 +536,7 @@ Microsoft® Windows® 7 Ultimate Ru x64 SP1 7DB by OVGorskiy® 04.2018 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698135.jpg" />
 </div>
 
 
@@ -404,7 +562,7 @@ FBReader v2.8.10 Premium + v2.8.10 Free + Plugins [Ru/Multi] - программ�
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698134.jpg" />
 </div>
 
 
@@ -430,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_697910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_697910.jpg" />
 </div>
 
 
@@ -456,7 +614,7 @@ Ikkitousen: Xtreme Xecutor / Школьные войны (Сила тысячи)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_697887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_697887.jpg" />
 </div>
 
 
@@ -486,7 +644,7 @@ NeuroNation Premium 2.6.0 - 2.6.1 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697557.jpg" />
 </div>
 
 
@@ -513,7 +671,7 @@ Space Run Galaxy (2016) [Ru/Multi] (1.0.0.4541.5927) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697556.jpg" />
 </div>
 
 
@@ -524,162 +682,6 @@ Space Run Galaxy от студии Passtech Games — сиквел игры Spac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A486A0B9751D863DF2360D3851CA99D4F9FC2060
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027086   (697552) от 18.06.2016
-
-Сумрак / Dusk (2016) WEB-DLRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697552.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джон Уитмор просыпается, чтобы найти свою жену Энн, которая исчезла из своей постели ночью. Но похитители оставили сообщение с выкупом...Производство: США / Dog Day FilmsЖанр: триллер, драмаРежиссер: Майкл МанейАктеры: Джон МакГлотлин, Форд Д'Априкс, Джулиана Харкви, Тодд Литцингер, Рон Кидд, Роберт Павлович, Кен Раннее, Джон ШеллерПеревод: Любительский многоголосый (Parovoz Production)Субтитры: ОтсутствуютПродолжительность: 01:30:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD3123761D4A819272091B41A3314CA1628C722F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 800914   (697549) от 18.06.2016
-
-Call of Duty: Modern Warfare 2 (2009) [Ru/En] (5.09/MP Only/dlc) Rip X-NET [SE5 BattleFrame]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультиплеер со всеми картами Sherkan от Battleframe. Новый клиент, новые карты! Новое оружие. В игру введены cod points для покупки оружия в самой игре. Игра на данный момент имеет бета статус, интернет подключение обязательно.Тип издания: RipРазработчик: Infinity WardЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C27A1AE285A5C4BD0AA0E055C44A446684D682EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027184   (697548) от 18.06.2016
-
-Video Copilot Element - Element 3D 2.2.2.2147 [En]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Element 3D 2.2.2.2147 - плагин для After Effects, предназначенный для визуализации 3D-объектов в After Effects в реальном времени, имеет быстрый, переработанный движок Open GL визуализации. Разработка от компании VideoCopilot, специализирующейся на дополнительных инструментах для создания видео эффектов и обучающих материалов по по программе After Effects. Element (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7A3ED04C15D5C7BDCB2CAE1DE046D7F16A30AFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533985   (697286) от 28.02.2022
-
-Ученые считают, что наша Вселенная может быть закольцована: ни конца, ни края
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_697286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проанализировав данные о древнейшем излучении во всей Вселенной, физики остались в недоумении и предположили, что мироздание может быть замкнуто в петлю.Представьте себе, что вы отправляетесь в космическое путешествие. Вы проплываете мимо Марса, Нептуна, Плутона, пронзаете пространство Млечного пути, вылетаете за пределы галактики, затем галактического кластера... (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016149   (697279) от 28.02.2022
-
-Как поднять миллион. Исповедь Z@drota (2014) WEB-DL [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Женя живет в маленьком провинциальном городке. Он просиживает за компьютерами сутками, не отвлекаясь на еду и сон. Однажды Женя выясняет: на виртуальной реальности можно неплохо заработать. Начав с порносайтов, юноша вскоре получает свои первые деньги. Это в корне меняет его жизнь: больше он — не школьный изгой. Вчерашние недруги здороваются первыми, а самые красивые (   Читать дальше...   )Производство: Россия, Марс Медиа Энтертейнмент, Магнум ФильмЖанр: ДрамаРежиссер: Клим ШипенкоАктеры: Виктор Грудев, Дмитрий Калязин, Соня Карпунина, Анастасия Акатова, Николай Амосов, Александр Самойленко, Лидия Байрашевская, Михаил Бабичев, Любовь Толкалина, Михаил ДовженкоПеревод: Не требуется (русский)Продолжительность: 01:29:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB66C039492D4F4403B8D9E70EC0E8531E8C18BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 84001   (697277) от 28.02.2022
-
-Worms 3D (2003) [Ru] (1.0) License
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарные "червяки" возвращаются! Бравые вояки получили новую степень свободы! Трехмерные сражения до зубов вооруженных червяков-коммандос, веселых, злобных и готовых на все ради победы стали еще более насыщенными и красочными. Трехмерный игровой мир позволяет использовать массу тактических приемов, открывает простор для новых видов вооружений и всевозможных (   Читать дальше...   )Тип издания: LicenseРазработчик: Team17Жанр: Логические, СтратегияЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B4B4F2F5766BAD8484E36611936DD1F1D999116
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1623237   (233895) от 01.04.2023
+
+Rancho Bizzarro - Four Dead Men (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, Stoner, 70's>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:03:23]
+02. Meteor Blast [00:03:19]
+03. Tumbleweed [00:04:19]
+04. Mexican Standoff [00:04:35](   Читать дальше...   )Жанр: Heavy Rock, Psych, Stoner, 70'sПродолжительность: 00:28:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F90CD821B644ADF00874AF5CACE15447215195A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1549497   (233893) от 07.05.2022
 
 August Burns Red - Leveler Live (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Post-Hardcore, Metalcore>
@@ -6,7 +35,7 @@ August Burns Red - Leveler Live (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233893.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Shatter - 2 Albums (2021) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233889.jpg" />
 </div>
 
 
@@ -62,7 +91,7 @@ Necronomicon - Constant to Death (2023) [FLAC|Lossless|image + .cue] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233887.jpg" />
 </div>
 
 
@@ -91,7 +120,7 @@ Strange Horizon - Beyond the Strange Horizon (2022) [MP3|320 Kbps] <Doom Metal, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233884.jpg" />
 </div>
 
 
@@ -120,7 +149,7 @@ Gorky Park - Moscow Calling (1992) Reissue, Remastered, 2023, Moroz Records [FLA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233882.jpg" />
 </div>
 
 
@@ -149,7 +178,7 @@ Void Chapter - Humanity (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic Rock, I
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233881.jpg" />
 </div>
 
 
@@ -178,7 +207,7 @@ Kadavermarch - Into Oblivion (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psyched
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233876.jpg" />
 </div>
 
 
@@ -207,7 +236,7 @@ Hex A.D. - Astro Tongue in the Electric Garden (2020) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233871.jpg" />
 </div>
 
 
@@ -236,7 +265,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233863.jpg" />
 </div>
 
 
@@ -265,7 +294,7 @@ Mats Karlsson - Mood Elevator (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, C
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233862.jpg" />
 </div>
 
 
@@ -294,7 +323,7 @@ Degrees of Truth - Time Travel Artifact (2019) [MP3|320 Kbps] <Symphonic Progres
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233853.jpg" />
 </div>
 
 
@@ -323,7 +352,7 @@ Pink Mountaintops - Peacock Pools (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233851.jpg" />
 </div>
 
 
@@ -352,7 +381,7 @@ Orphan - Salute (1985) [MP3|320 Kbps] <AOR, Melodic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233850.jpg" />
 </div>
 
 
@@ -381,7 +410,7 @@ Eibon - Entering Darkness (2010) [FLAC|Lossless|image + .cue] <Sludge Metal, Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233844.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ Frozen Land - Out of the Dark (2023) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233837.jpg" />
 </div>
 
 
@@ -439,7 +468,7 @@ Ghost - Phantomime (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233836.jpg" />
 </div>
 
 
@@ -468,7 +497,7 @@ Simple Plan - Harder Than It Looks (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Pun
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233834.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ Frank Zappa - Funky Nothingness (2023) 3CD [FLAC|Lossless|WEB-DL|tracks] <Proges
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233827.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ Tripulante - Lickan Antay (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233826.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ Altaria - The Fallen Empire (2006) Remaster, 2022, Reaper [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233825.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ CEN-ProjekT (Chris Engels) - Pride (2023) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233821.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ The Guess Who - Plein D'Amour (2023) [FLAC 2.0|24/44.1|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Hi Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233818.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ Sacred Outcry - Damned for All Time (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233814.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ Glacier - The Passing of Time (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233809.jpg" />
 </div>
 
 
@@ -700,7 +729,7 @@ Category VI - Firecry (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233804.jpg" />
 </div>
 
 
@@ -714,35 +743,6 @@ Category VI - Firecry (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53FC28AAC9EE9278CC1B0EB4B1B1DF01DC085936
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633914   (233803) от 18.05.2023
-
-VA - Rock Fun & Happy Songs (2023) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beach Boys - Fun, Fun, Fun (Remastered 2001) (2:05)
-02. The Rolling Stones - Let's Spend The Night Together (3:26)
-03. The Knack - My Sharona (4:52)
-04. The Preatures - Is This How You Feel (3:34)(   Читать дальше...   )Жанр: RockПродолжительность: 03:16:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D284BB94BFBEA0740FFD677AD5C24B82D5482DF7
 ```
 
 https://mybot314.ru/tekegram_catalog/

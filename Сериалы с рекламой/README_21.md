@@ -1,3 +1,55 @@
+###  Публикация: 1162571   (458747) от 01.09.2017
+
+Сломленный / Broken (2017) HDTVRip (сезон 1, серии 1-6 из 6) Jaskier [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458747.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отец Майкл, современный, независимый и совершающий обычные человеческие ошибки католический священник, служащий в Северном городском приходе, должен стать куратором, доверенным и духовным лицом общины, члены которой пытаются привести свою веру в соответствие с вызовами обыденной жизни.Производство: ВеликобританияЖанр: ДрамаРежиссер: Норин Кершоу, Эшли ПирсАктеры: Анна Фрил, Шон Бин, Паула Малкомсон, Эшлин Лофтус, Дэнни Сапани, Марк Стэнли, Эдриан Данбар, Муна Отару, Лорен ЛайлПеревод: Многоголосый закадровый, профессиональный (Jaskier)Субтитры: ОтсутствуютПродолжительность: ~ 00:56:00 серияРеклама: Присутствуют аудио вставки рекламы!
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:639CF92E215D21CEB90CD2FE2F3696C1D28382C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408068   (457848) от 11.09.2020
+
+Прежде чем умрём / Innan vi dor / Before We Die (2019) WEBRip (сезон 2, серии 1-8 из 8) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457848.jpg" />
+</div>
+
+
+###  Подробнее
+
+Деятельность группировки байкеров расследует женщина-детектив, возлюбленный которой пропал после того, как попытался внедриться в эту банду. Попутно главная героиня обнаруживает, что и ее собственный сын, которому она уделяла слишком мало времени, тоже примкнул к преступникам на мотоциклах.Производство: Швеция, Германия, НорвегияЖанр: триллер, драма, детективРежиссер: Кристиан Петри, Симон Кайзер, Kristina HumleАктеры: Мария Рихардсон, Адам Пэлссон, Магнус Креппер, Малгожата Печиньска, Sandra Redlaff, Каллед Мустонен, Ричард Форсгрен, Алексей Манвелов, Седомир Джорджевич, Якоб Эрикссон и д.р.Перевод: Двуголосый закадровый (ViruseProject)Субтитры: Русские (отдельно)Продолжительность: ~00:60:00 серииРеклама: Присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CA9DE315F942273321A2C3D5A0530B758A1E369
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1162784   (456515) от 02.09.2017
 
 Школа рока / School of Rock (2017) IPTVRip (сезон 2, серии 1-13 из 13) [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456515.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456385.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455593.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451448.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451302.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451140.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451136.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447936.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447134.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446159.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440288.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440158.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440146.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440130.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439182.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437571.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435468.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433302.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431997.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429925.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428231.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423228.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423210.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422579.jpg" />
 </div>
 
 
@@ -624,58 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAEB44792560A77E4A803EE2B59F199D1A949C1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412189   (420215) от 28.09.2020
-
-Иуда / Judas (2019) WEBRip (сезон 1, серии 1-6 из 6) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420215.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Иуда» - это триллер из жизни. Сериал основан на книге, написанной совсем недавно голландкой Астрид Холледер. Это история ее семьи, выходцев из бедного района Амстердама. У Астрид и ее братьев-сестер было непростое детство, жестокий отец-психопат. Тем не менее ей удалось выбиться в люди и стать адвокатом. Но ее брат, Виллем Холледер, пошел по кривой дорожке. Он стал (   Читать дальше...   )Производство: НидерландыЖанр: триллер, драма, криминал, биографияРежиссер: Йорам ЛюрсенАктеры: Рифка Лодейзен, Гийс Нейбр, Марит ван Бохемен, Роза Рютен, Carry Tefsen, Рональд Топ, Бьянка Кригсман, Сандра Мэтти, Roos Wiltink, Кес Бот и д.р.Перевод: Двуголосый закадровый (ViruseProject)Субтитры: Русские (отдельно)Продолжительность: ~00:50:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71CFCACA1A772EE4E6EB0F33F0B283719DBFE53B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412186   (420025) от 28.09.2020
-
-Иуда / Judas (2019) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-6 из 6) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420025.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Иуда» - это триллер из жизни. Сериал основан на книге, написанной совсем недавно голландкой Астрид Холледер. Это история ее семьи, выходцев из бедного района Амстердама. У Астрид и ее братьев-сестер было непростое детство, жестокий отец-психопат. Тем не менее ей удалось выбиться в люди и стать адвокатом. Но ее брат, Виллем Холледер, пошел по кривой дорожке. Он стал (   Читать дальше...   )Производство: НидерландыЖанр: триллер, драма, криминал, биографияРежиссер: Йорам ЛюрсенАктеры: Рифка Лодейзен, Гийс Нейбр, Марит ван Бохемен, Роза Рютен, Carry Tefsen, Рональд Топ, Бьянка Кригсман, Сандра Мэтти, Roos Wiltink, Кес Бот и д.р.Перевод: Двуголосый закадровый (ViruseProject)Субтитры: РусскиеПродолжительность: ~00:50:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7DFB7BFE6F24FFC53372006BADA2CD4EF0ED009
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832939.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NG. Загадки Библии. Воины-тамплиеры / The Secret Bibl
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832293.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NG. Грядет шторм / Gathering Storm (2020) WEB-DL [H.264/1080p] (се�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831732.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NG. Линии Наска: Погребенные секреты. Древние
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831120.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NG. Игры разума / Brain Games (2013) HDTVRip [H.264/720p] [Сезон 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830197.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Nat Geo Wild: В опасных водах Австралии. Обед для �
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829879.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ NG: Следующее мегацунами / The Next Mega Tsunami (2014) HDTV 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829795.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Nat Geo Wild: Маленькие убийцы / Little Killers (2015) HDTVRip [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829779.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ NG: Секретное оружие Гитлера / Hitler's Secrets Weapon (19
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829565.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ NG. Инстинкт выживания / Primal Survivor (2017) WEB-DL [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829185.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ NG: Секунды до катастрофы (45 эпизодов) / Seconds fro
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829101.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ NG: Панорама 360° Объект всемирного наследия / 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827896.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ NG: Пропавшая колония Колумба / Columbus's cursed colony 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824018.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ NG: Расследования Авиакатастроф / Mayday / Air Crash I
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_822187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822187.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ NGW: Супер-змея Америки / America's Super-Snake (2019) WEBRip [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819260.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ NG. Тайны Креста / Secrets Of The Cross (2009) SATRip [1-4 серия
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819162.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ NG: Дикий Секс / WILD Sex (2005) SATRip (Серии 1-6 из 6)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818561.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ NG. Жизнь до рождения. Близнецы. Двойни, тройн
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817592.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ NG: Гибель морского монстра / Death of a Sea Monster (2010)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817132.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ NGW: Самая большая в мире белая акула / World's Bigge
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817090.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ NGW: Пумы на краю света / Pumas At The End of The World (2020) WE
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815852.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ NG: Секреты гробницы Христа: специальный реп�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815280.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ NGW: Дикие животные Японии / Japan's Wild Year (2014) HDTV [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813451.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ NG: Солнечное затмение / Eclipse (2010) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813311.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ NG. Наука рукопашного боя / Fight Science (2006) HDTV [H.264/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813102.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811534.jpg" />
 </div>
 
 

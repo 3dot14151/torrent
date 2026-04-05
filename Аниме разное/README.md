@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1862500   (1063418) от 
+
+Победители конкурса New Creator Awards 2026 от AnimeJapan [2026, Special, 7 эп.] WebRip 1080p raw
+
+>>Аниме разное
+>>Аниме прочее
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник короткометражек победителей конкурса New Creator Awards 2026 от AnimeJapan, транслировавшийся стримингом CrunchyRoll.Жанр: приключенияПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 7 эп. ~ от 1 до 10 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E41D4F896BD2CC746AFFC24F8E06462F7B7433E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1857099   (1059377) от 04.03.2026
 
 Fangkai Nage Nuwu | Release that Witch | Освободите эту ведьму [2026, ONA, 1 из 8] WEBRip 720р chi
@@ -7,7 +33,7 @@ Fangkai Nage Nuwu | Release that Witch | Освободите эту ведьм�
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059377.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ Evangelion 30th Anniversary Short Film | Короткометражный фил
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058182.jpg" />
 </div>
 
 
@@ -63,7 +89,7 @@ Evangelion Shin Gekijouban: Jo | Evangelion: 1.0 You Are (Not) Alone | Evangelio
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055858.jpg" />
 </div>
 
 
@@ -89,7 +115,7 @@ Umibe no Etranger | The Stranger by the Shore | Незнакомец на бер
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053534.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ Sasaki to Miyano | Sasaki and Miyano | Сасаки и Мияно [2022, TV, 12 
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052905.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ Eiga Sasaki to Miyano: Sotsugyou Hen | Sasaki and Miyano: Graduation | Саса�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052902.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ Eiga Given (2024) | Given Movie 2: Hiiragi Mix | Дарованный: Микс 
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052621.jpg" />
 </div>
 
 
@@ -195,7 +221,7 @@ Given Movie 3: Umi e | Given Movie 3: To the Sea | Дарованный: К ок
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052612.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ Eiga Given | Дарованный. Фильм | Given the Movie [2020, Movie] BD
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052505.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ Given: Uragawa no Sonzai | Given: On the Other Hand | Дарованный OVA [
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052287.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051853.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ Isekai wa Smartphone to Tomo ni. 2 | In Another World with My Smartphone 2 | В 
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1050696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050696.jpg" />
 </div>
 
 
@@ -327,7 +353,7 @@ Haite Kudasai, Takamine-san | Please Put Them On, Takamine-san | Пожалуй�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050131.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ Apocalypse Hotel | Апокалипсис: Отель [2025, TV, 12 из 12 эп
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049528.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ Tenkuu no Shiro Laputa | Laputa: Castle in the Sky | Небесный замок
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049238.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ Yichang Shengwu Jianwenlu | Journal of the Mysterious Creatures | Дневник
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047279.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ Yao Jing Zhong Zhi Shou Ce | Planting Manual | Руководство по се�
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046927.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ Isekai Meikyuu de Harem o | Harem in the Labyrinth of Another World | Гарем
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044905.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ Futoku no Guild / Immoral Guild / Развращённая гильдия [2022,
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036650.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ Arknights: Reimei Zensou / Arknights: Prelude to Dawn / Рыцари ковче�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035257.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ Wan Jie Xian Zong | Страна десяти тысяч чудес [2020, TV, 4
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029447.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ Wu Shang Shen Di | Supreme God Emperor | Непревзойдённый царь
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020534.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ Chang Jian Feng Yun | Zhang Jian Feng Yun | Chang Jian Fengyun | Длинный 
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019031.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ Ajin OVA | Полулюди OVA [2016, OVA, 3 из 3] BDRemux 1080p raw
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016985.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ Shan He Jian Xin | Thousand Autumns | Душа меча Гор и Рек | Ме�
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016028.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ Shan He Jian Xin | Thousand Autumns | Душа меча Гор и Рек | Ме�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:392F490A1DCC6CBC21E5B21DF004DA66C82B9ECC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476848   (1011384) от 12.06.2021
-
-Da Shen Xian | Wo Shi Da Shenxian | I Am A Great God | I'm immortal! | Я великий бог | Я - Бессмертный! [2020-2021, TV, 32 из 32] WEBRip 1080p HS+rus
-
->>Аниме разное
->>Аниме хардсаб
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011384.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ши Цзяню на самом деле семь лет, но нормальное детство для него недоступно, так как по необъяснимым причинам его тело взрослеет с невиданной скоростью, из-за чего его заставили бросить начальную школу и он увлёкся компьютерными играми. Когда знаменитый врач вынес ему "приговор" в виде диагноза "неизлечимое преждевременное старение" и дал единственную (   Читать дальше...   )Производство: Китай, CG YearЖанр: Фэнтези, приключения, комедияЯзык озвучки: Русский (Zendos & Veda/Alice)Субтитры: Китайские (неотключаемые)Продолжительность: 32 х ~ 00:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D6057A9E71CE7BDC589A80616CE32648BA76645
 ```
 
 https://mybot314.ru/tekegram_catalog/

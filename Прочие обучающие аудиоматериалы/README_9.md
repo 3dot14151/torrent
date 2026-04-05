@@ -1,3 +1,84 @@
+###  Публикация: 1207941   (780219) от 20.02.2018
+
+Диоген Лаэртский | О жизни, учениях и изречениях знаменитых философов (2018) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780219.jpg" />
+</div>
+
+
+###  Подробнее
+
+Диоген из Лаэрты в Киликии (первая половина III в. н.э.), грамматик афинский, оставил нам единственную написанную в античности "историю философии" – 10 книг, в которых излагаются учения древнегреческих мыслителей, начиная с семи мудрецов и кончая стоической и эпикурейской школами. Его трактат представляет собой любопытнейшую и интереснейшую античную смесь (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураПродолжительность: 22:40:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C48C458641B957F8225A9A395CE8818D30CB326E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052001   (778050) от 05.03.2018
+
+Юрий Окуловский | Научное мышление (2016) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778050.jpg" />
+</div>
+
+
+###  Подробнее
+
+ЦЕЛЕВАЯ АУДИТОРИЯ: Школьники старших классов и студенты бакалавриата
+
+Этот курс — о научном, рациональном мышлении в самом широком смысле. Вы научитесь строить логические умозаключения, вести дискуссии, разоблачать лженауку и псевдологические манипуляции. Мы поговорим о том, как проводить исследования — не только в "большой" науке, но и в повседневных вопросах (   Читать дальше...   )Жанр: лекцииПродолжительность: 20:56:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D90394DDC7EDE678315E5C0DEB58574DBE5D44C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014007   (776410) от 07.05.2016
+
+Аристотель | Политика (2008) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аристотель (384-322 до н.э.) – знаменитейший древнегреческий философ, оказавший исключительное влияние на развитие западноевропейской философии. Главное место среди его произведений, посвященных государству и обществу, занимает «Политика».
+В своем труде Аристотель рассматривает основы государственного устройства, конституцию и законодательство, формы государственного (   Читать дальше...   )Жанр: ФилософияПродолжительность: 14:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65D2D6E982D3A276602B0AE07AE79D5713588008
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212083   (776396) от 10.03.2018
 
 Герберт Уэллс | Краткая история человечества (2018) [MP3]
@@ -6,7 +87,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776396.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776367.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775804.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774945.jpg" />
 </div>
 
 
@@ -110,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774216.jpg" />
 </div>
 
 
@@ -136,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773094.jpg" />
 </div>
 
 
@@ -162,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771845.jpg" />
 </div>
 
 
@@ -188,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767925.jpg" />
 </div>
 
 
@@ -214,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767324.jpg" />
 </div>
 
 
@@ -240,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765762.jpg" />
 </div>
 
 
@@ -266,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765428.jpg" />
 </div>
 
 
@@ -293,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761100.jpg" />
 </div>
 
 
@@ -319,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756468.jpg" />
 </div>
 
 
@@ -346,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754476.jpg" />
 </div>
 
 
@@ -374,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752257.jpg" />
 </div>
 
 
@@ -400,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751871.jpg" />
 </div>
 
 
@@ -426,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746608.jpg" />
 </div>
 
 
@@ -452,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746501.jpg" />
 </div>
 
 
@@ -478,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743805.jpg" />
 </div>
 
 
@@ -504,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742456.jpg" />
 </div>
 
 
@@ -530,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742309.jpg" />
 </div>
 
 
@@ -558,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742185.jpg" />
 </div>
 
 
@@ -585,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740175.jpg" />
 </div>
 
 
@@ -597,86 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DE0391FFFFED1BF54FC2850869031A6A5A716F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218001   (739952) от 07.04.2018
-
-Ника Набокова | Как перестать быть овцой. Избавление от страдашек. Шаг за шагом (2018) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта аудиокнига – глоток свежего воздуха и новой жизни, ЖИЗНИ ПО ТВОИМ ПРАВИЛАМ!
-Ника Набокова – автор двух нашумевших бестселлеров «В постели с твоим мужем» и «Исповедь бывшей любовницы», создательница одного из самых откровенных и провокационных пабликов @nika_nabokova, девушка, открыто заявляющая: «Я знаю все про измены и сложные отношения».
-«Большинство из вас (   Читать дальше...   )Жанр: Саморазвитие / личностный рост, Семейная психологияПродолжительность: 04:35:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D2E7BB0B25177D6C03EA4755B934A59A54EC819
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399391   (733435) от 31.07.2020
-
-Карл Ясперс | Истоки истории и её цель [Книга 1] (2008) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733435.jpg" />
-</div>
-
-
-###  Подробнее
-
-"СМЫСЛ И НАЗНАЧЕНИЕ ИСТОРИИ" ("Vom Ursprung und Ziel der Geschichte", 1949) - произведение Ясперса. Ясперс выдвигает концепцию всемирно-исторического процесса, ориентированную на обнаружение его единства. Данное единство трактуется не как результат саморазвертывания некоей тотальности по жесткой схеме, но как общий итог смысловых проблем человека. (   Читать дальше...   )Жанр: Философия, историяПродолжительность: 15:32:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60299F38058E1847EDCD3CDF4750170A4ED9B60D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399601   (732949) от 01.08.2020
-
-Карл Ясперс | Философская вера (2008) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732949.jpg" />
-</div>
-
-
-###  Подробнее
-
-"СМЫСЛ И НАЗНАЧЕНИЕ ИСТОРИИ" ("Vom Ursprung und Ziel der Geschichte", 1949) - произведение Ясперса. Ясперс выдвигает концепцию всемирно-исторического процесса, ориентированную на обнаружение его единства. Данное единство трактуется не как результат саморазвертывания некоей тотальности по жесткой схеме, но как общий итог смысловых проблем человека. (   Читать дальше...   )Жанр: Философия, ИсторияПродолжительность: 05:58:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:240EBDFC2E2C4821388B7691B7755C3D056C5AB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

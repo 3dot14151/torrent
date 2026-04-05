@@ -1,3 +1,84 @@
+###  Публикация: 1680400   (134053) от 29.11.2023
+
+Slender: The Arrival (2013) [Ru/Multi] (3.0.46.992) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Slender: The Arrival возвращается с долгожданным обновлением 10th Anniversary Update — еще страшнее, чем когда-либо. Slender: The Arrival — это официальное расширенное переосмысление оригинальной игры с измененным сюжетом, новыми героями и улучшенной графикой. Все это вместе с атмосферой отчаяния и ужаса заставляет возвращаться к игре снова и снова.Тип издания: RepackРазработчик: Blue Isle StudiosЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A6C65CC5A8E523E444E4E3DD790C2C3BDAF8AA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594894   (132978) от 27.12.2012
+
+The Dark Eye: Chains of Satinav [Ru/En] (RePack/1.1) 2012 | Audioslave
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132978.jpg" />
+</div>
+
+
+###  Подробнее
+
+История The Dark Eye: Chains of Satinav развивается вдалеке от Авентурии. Главный герой, молодой зверолов Герон, живет в небольшом королевстве на северо-западе, именуемом Андергаст. Жители этого отдаленного региона очень суеверны – приметы есть практически на любое событие.
+ Когда король ждет посла с соседнего королевства, чтобы положить конец многовековой вражде, жителей мучают нападения агрессивной стаи странных воронов. Жертвы нападений также утверждают, что птицы приносят ночные кошмары.
+ Правителю не хочется, чтобы эта «незначительная» проблема помешала переговорам, так что нанимает опытного охотника, чтобы тот разобрался с проблемой. Герон, всю жизнь преследуемый неудачами, видит в этом шанс изменить свою судьбу, так что отправляется к королю, дабы предложить свою кандидатуру на столь важное задание. Только вот миссия оказалась намного тяжелее, чем казалось с самого начала, а ее выполнение даже заставляет парня покинуть земли Андергаста.
+ Геймплей The Dark Eye: Chains of Satinav выполнен в лучших традициях point-and-click квестов – детально прорисованные локации, масса головоломок, обширный инвентарь и множество колоритных персонажей.(   Читать дальше...   )Тип издания: RePackЖанр: AdventureЯзык озвучки: АнглийскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E25D1F1B3DCF79EDAAA1372863605DF5407B4B22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681326   (132863) от 02.12.2023
+
+Tourist Trap (2023) [Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132863.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tourist Trap в царстве виртуальных приключений выделяется как мрачный комедийный point-and-click шедевр, действие которого происходит в вымышленном южноамериканском анклаве Санта-Баллена. Во главе этой сатирической эскапады стоит Лукас, молодой гид по туризму, невольно запутавшийся в паутине интриг, связанных с похищениями местных жителей и загадочной иностранной (   Читать дальше...   )Тип издания: SceneРазработчик: Tragico MediaЖанр: Приключенческие игрыЯзык субтитров: Английский, Испанский (Латинская Америка)Язык интерфейса: Английский, Испанский (Латинская Америка)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30CE6ED92F1208A632DD5AB4398785AE3ADEB3C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680000   (132824) от 02.12.2023
 
 Another Day (2023) [Ru/En] (1.0.3) Repack Other s
@@ -6,7 +87,7 @@ Another Day (2023) [Ru/En] (1.0.3) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132824.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ The Walking Dead: Destinies (2023) [Multi] (1.2.0.6) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132161.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ Three Minutes To Eight (2023) [Ru/Multi] (0.6.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130648.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ Kimagure Temptation (2021) [Multi] (1.0.5.0/dlc) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128997.jpg" />
 </div>
 
 
@@ -110,7 +191,7 @@ Anna's Quest (2015) [Ru/Multi] (1.3.4792) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128891.jpg" />
 </div>
 
 
@@ -136,7 +217,7 @@ Croc: Legend of the Gobbos (2025) [Multi] (1.04) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128811.jpg" />
 </div>
 
 
@@ -162,7 +243,7 @@ Journey to the Center of the Earth / Путешествие к центру Зе
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127013.jpg" />
 </div>
 
 
@@ -188,7 +269,7 @@ This Bed We Made (2023) [Multi] (1.0.2) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126995.jpg" />
 </div>
 
 
@@ -214,7 +295,7 @@ PARANOID (2023) [Ru/Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126842.jpg" />
 </div>
 
 
@@ -240,7 +321,7 @@ Stay Still 2 (2023) [En] (1.0) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126572.jpg" />
 </div>
 
 
@@ -266,7 +347,7 @@ Bendy Lone Wolf (2025) [Ru/Multi] (2.0.0) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126066.jpg" />
 </div>
 
 
@@ -292,7 +373,7 @@ Kathy Rain: Director's Cut (2021) [Ru/Multi] (1.0.3.5273) License GOG [Deluxe Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125949.jpg" />
 </div>
 
 
@@ -318,7 +399,7 @@ Sally Face (2016-2019) [Ru/Multi] (1.5.46) License GOG [Episodes 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125815.jpg" />
 </div>
 
 
@@ -344,7 +425,7 @@ Peaks of Yore (2023) [En] (1.3.8) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125512.jpg" />
 </div>
 
 
@@ -370,7 +451,7 @@ Ghost Trick: Phantom Detective (2023) [Ru/Multi] (11038113/dlc) Repack Deceptico
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125488.jpg" />
 </div>
 
 
@@ -396,7 +477,7 @@ The Imperial Capital Burns - Muv-Luv Alternative Total Eclipse (2016) [Multi] (1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125221.jpg" />
 </div>
 
 
@@ -422,7 +503,7 @@ Bluey: The Videogame (2023) [Multi] (0.20.4) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124934.jpg" />
 </div>
 
 
@@ -448,7 +529,7 @@ Submachine: Legacy (2023) [En] (20231015) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124813.jpg" />
 </div>
 
 
@@ -474,7 +555,7 @@ Lakeview Cabin 2 (2023) [En] (1.01) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124796.jpg" />
 </div>
 
 
@@ -500,7 +581,7 @@ Colossal Cave (2023) [Ru/Multi] (2.0.224024) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124724.jpg" />
 </div>
 
 
@@ -526,7 +607,7 @@ Fort Solis (2023) [Ru/Multi] (20231228) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124640.jpg" />
 </div>
 
 
@@ -552,7 +633,7 @@ Perfect Tides (2022) [En] (2.0.11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124578.jpg" />
 </div>
 
 
@@ -578,7 +659,7 @@ Repurpose (2023) [En] (2.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124097.jpg" />
 </div>
 
 
@@ -589,84 +670,6 @@ Repurpose (2023) [En] (2.0) Scene Tenoke
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35BD9FA7A5CEB7D4157E1A39F3AEC5B933A818BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690324   (124053) от 06.01.2024
-
-London Detective Mysteria / Eikoku Tantei Mysteria (2019) [Multi] (1.6) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124053.jpg" />
-</div>
-
-
-###  Подробнее
-
-London Detective Mysteria - визуальная новелла в аниме-стилистике, переносящая в Лондон на закате XIX века. История рассказывает про истинную любовь на фоне Биг-Бена и газовых фонарей. Игра стартует в тот момент, когда Ее Величество празднует День рождения. Она - наследница дома Уайтли. Это ее первый общественный прием. Внимание девушки привлекает множество необычных (   Читать дальше...   )Тип издания: LicenseРазработчик: Karin EntertainmentЖанр: Приключение, Визуальные новеллыЯзык озвучки: ЯпонскийЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DB44E315363A49B6D227BAFF5CC3EEEC28658E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690456   (124023) от 07.01.2024
-
-The Night is Grey (2024) [En] (1.0) Scene SKIDROW
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124023.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Night is Grey наполнена мрачной атмосферой темной ночи, которая застала мужчину по имени Грэхем в лесу с бродящими волками. Главный герой спасается бегством, обнаружив небольшой заброшенный домик. Заглянув внутрь, протагонист находит девочку, испуганную и ищущую выход из ловушки. Совместными усилиями предстоит выбираться из загадочного леса, в котором мистическим (   Читать дальше...   )Тип издания: SceneРазработчик: Whalestork InteractiveЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C0076B214E7BCF98507465782CFB5169DE9B287
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690502   (123978) от 07.01.2024
-
-Amatsutsumi (2022) [En] (1.02/dlc) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123978.jpg" />
-</div>
-
-
-###  Подробнее
-
-Amatsutsumi - визуальная новелла в аниме-стилистике, героем которой выступает парень по имени Макото. Он обладает сверхсилой под названием котодама. Ее суть заключается в том, что протагонист при помощи силы голоса способна управлять людьми. Герой проявляет интерес к внешнему миру и покидает деревню, в которой жила очень долгий период. Однако он не ожидал, что мир (   Читать дальше...   )Тип издания: LicenseРазработчик: Purple SoftwareЖанр: Adventure, Visual Novel, NarrativeЯзык озвучки: ЯпонскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A8E8AEBE4DC2EFB864913F8714CF35B34EC7C92
 ```
 
 https://mybot314.ru/tekegram_catalog/

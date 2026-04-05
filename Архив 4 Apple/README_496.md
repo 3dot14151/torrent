@@ -6,7 +6,7 @@ Multitouch 1.27.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243968.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PDF Search 11.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243962.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Movavi Video Suite for Mac 2022 v22.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243954.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Artstudio Pro 4.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243946.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Omni Recover 3 v3.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243932.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ iCollections 6 v6.8.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243913.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Better Trash 1.6.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243900.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ MarkMyWords 2.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243892.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ EditReady 2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243879.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Text Scanner - PDF & Document 1.3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243871.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ SyncBird Pro 3.6.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243864.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Data Extractor 1.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243863.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Things 3 v3.17.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243853.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Bartender 4 v4.0.44 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243844.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Integrity Plus 12.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243832.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ BetterDisplay Pro for Mac 1.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243831.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243828.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Oka Unarchiver - Unzip ZIP RAR 2.1.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243823.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Soulver 3 v3.4.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243818.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Integrity Pro 12.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243815.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Screenium 3 v3.2.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243809.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Mitti 1.5.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243802.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Cisdem PDFCompressor 3.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243720.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Cisdem PDFPasswordRemover 3.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243698.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Feeder 3 v3.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243687.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Cisdem Duplicate Finder 4 v4.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243676.jpg" />
 </div>
 
 

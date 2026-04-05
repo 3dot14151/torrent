@@ -1,29 +1,3 @@
-###  Публикация: 1037268   (615484) от 23.07.2016
-
-Аркадий Хайт | Ребята, давайте жить дружно! (1989) [PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание подготовлено по серии мультипликационных фильмов, созданных творческим объединением «Экран» ЦТ, режиссер Резников А.И. Полностраничные цветные иллюстрации.Жанр: Мультфильм, СказкаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:920C950F7658426C781EE0392D2CEBC893458176
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037270   (615483) от 23.07.2016
 
 Лия Гераскина | В стране невыученных уроков (1988) [PDF, DJVU]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615483.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615453.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615242.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615146.jpg" />
 </div>
 
 
@@ -140,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615064.jpg" />
 </div>
 
 
@@ -167,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615004.jpg" />
 </div>
 
 
@@ -194,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615003.jpg" />
 </div>
 
 
@@ -220,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614588.jpg" />
 </div>
 
 
@@ -246,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614477.jpg" />
 </div>
 
 
@@ -273,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614406.jpg" />
 </div>
 
 
@@ -300,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614393.jpg" />
 </div>
 
 
@@ -326,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613999.jpg" />
 </div>
 
 
@@ -352,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613998.jpg" />
 </div>
 
 
@@ -378,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613978.jpg" />
 </div>
 
 
@@ -404,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613963.jpg" />
 </div>
 
 
@@ -430,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613959.jpg" />
 </div>
 
 
@@ -456,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613897.jpg" />
 </div>
 
 
@@ -482,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613895.jpg" />
 </div>
 
 
@@ -508,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613875.jpg" />
 </div>
 
 
@@ -536,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613774.jpg" />
 </div>
 
 
@@ -562,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613662.jpg" />
 </div>
 
 
@@ -588,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613577.jpg" />
 </div>
 
 
@@ -614,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613573.jpg" />
 </div>
 
 
@@ -640,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613561.jpg" />
 </div>
 
 
@@ -666,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613372.jpg" />
 </div>
 
 
@@ -679,6 +653,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15A39D618D81C807C3AD0D105F9C7C7B9D47B6F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295255   (613369) от 16.04.2019
+
+Константин Волков | Звезда утренняя (1957) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613369.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научно-фантастическая повесть К. Волкова «Звезда утренняя» рассказывает о подготовке и проведении научной экспедиции советских ученых на планету Венеру, о пережитых ими исключительных приключениях, об их мужестве и находчивости, позволивших найти выход из самых безнадежных и трагических обстоятельств.Жанр: фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BF8EA6C79B67DDC35775C1719BE555B047D017D
 ```
 
 https://mybot314.ru/tekegram_catalog/

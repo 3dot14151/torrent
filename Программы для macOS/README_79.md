@@ -1,3 +1,59 @@
+###  Публикация: 917791   (588597) от 13.07.2015
+
+Degrees Pro 4.2.1 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588597.jpg" />
+</div>
+
+
+###  Подробнее
+
+Degrees — текущая погода в строке меню
+Degrees — простое приложение, которое показывает текущие погодные условия в строке меню, где вы всегда их можете увидеть.
+
+Особенности:(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 13 февраля 2015Разработчик: Best Essential AppsПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F30E370FD3B5F78B4E503E7648E00852320540B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 829443   (587727) от 14.07.2015
+
+Blogo 2.3 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blogo - пишите, публикуйте и управляйте несколькими блогами с поддержкой WordPress и Evernote.
+Blogo объединил возможности для плодотворной работы и помогает пользователям публиковать и создавать контент легко. Он позволяет управлять несколькими блогами и в то же время редактировать фотографии с встроенным редактором изображений, просматривать свои сообщения в реальном (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 03 июля 2015Разработчик: Blogo Inc.Поддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A65FB728336D882DEB6B21532670EEBDCC61895
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 918378   (586832) от 15.07.2015
 
 Things 2.5.5 [Multi/Ru]
@@ -6,7 +62,7 @@ Things 2.5.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586832.jpg" />
 </div>
 
 
@@ -34,7 +90,7 @@ Bookends 13.2.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583339.jpg" />
 </div>
 
 
@@ -62,7 +118,7 @@ Winclone Pro 7 v7.3.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582975.jpg" />
 </div>
 
 
@@ -89,7 +145,7 @@ Super Refocus 1.5.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582353.jpg" />
 </div>
 
 
@@ -117,7 +173,7 @@ Acronis True Image 2015 v1.0.6725 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581695.jpg" />
 </div>
 
 
@@ -146,7 +202,7 @@ Chatty for Facebook 2.0.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580584.jpg" />
 </div>
 
 
@@ -175,7 +231,7 @@ Disk Sensei 1.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580340.jpg" />
 </div>
 
 
@@ -203,7 +259,7 @@ Printworks 2 v2.0.7 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580313.jpg" />
 </div>
 
 
@@ -231,7 +287,7 @@ Movavi Video Converter 6.2.1 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580203.jpg" />
 </div>
 
 
@@ -260,7 +316,7 @@ Cocktail 9.3.4 (El Capitan Edition) [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579409.jpg" />
 </div>
 
 
@@ -286,7 +342,7 @@ FXhome PhotoKey 6 Pro 6.0.0027 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578687.jpg" />
 </div>
 
 
@@ -312,7 +368,7 @@ Everimaging HDR Darkroom 3 v1.1.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578326.jpg" />
 </div>
 
 
@@ -339,7 +395,7 @@ Webcam Settings 2.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577991.jpg" />
 </div>
 
 
@@ -368,7 +424,7 @@ FILTERiT 4.6.5 for Adobe Illustrator CS6-CC2015 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577836.jpg" />
 </div>
 
 
@@ -396,7 +452,7 @@ Parallels Desktop for Mac Business Edition 12.2.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577275.jpg" />
 </div>
 
 
@@ -422,7 +478,7 @@ Paste 1.0.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576997.jpg" />
 </div>
 
 
@@ -450,7 +506,7 @@ Hazel 4.2.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575780.jpg" />
 </div>
 
 
@@ -476,7 +532,7 @@ FontAgent 7.2.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574347.jpg" />
 </div>
 
 
@@ -505,7 +561,7 @@ PaintCode 3.3.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574342.jpg" />
 </div>
 
 
@@ -531,7 +587,7 @@ MacDroid Pro 1.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573916.jpg" />
 </div>
 
 
@@ -557,7 +613,7 @@ Exposure X7 v7.1.5.197  [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573766.jpg" />
 </div>
 
 
@@ -583,7 +639,7 @@ WindowMizer 5 v5.0.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573078.jpg" />
 </div>
 
 
@@ -612,7 +668,7 @@ Live Home 3D: Standard Edition 3.6 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572551.jpg" />
 </div>
 
 
@@ -640,7 +696,7 @@ Color Finale 1.5.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572209.jpg" />
 </div>
 
 
@@ -651,60 +707,6 @@ Color Finale - плагин цветокоррекции от Color Grading Cent
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54E2FF79AADD54C1026254359F82D7D7B39665D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151625   (571830) от 19.07.2017
-
-Logic Pro X 10.3.2 [Multi]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Logic Pro X — самая совершенная версия Logic. Новые мощные инструменты для профессионального создания музыки, обработки и микширования звука встроены в современный интерфейс для быстрого получения качественных результатов и удобной работы, где бы вы ни находились. Logic Pro X включает огромную коллекцию музыкальных инструментов, эффектов и циклов — всё, что нужно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18 июля 2017Разработчик: iTunes S.a.r.l. Apple Inc.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Испанский, Китайский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DAAAC9503F322B0F5E0F1D4170B5FEC5779816C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909730   (571679) от 27.07.2015
-
-TextExpander 5.1 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571679.jpg" />
-</div>
-
-
-###  Подробнее
-
-TextExpander – боец невидимого фронта …. Функция TextExpander – автоматически заменять вводимый с клавиатуры текст другим. Но, в отличие от стандартной автозамены OSX, эта программа для Mac имеет массу интересных возможностей.
-
-С помощью этой утилиты удобно вставлять стандартные заготовки текста, HTML-код, части markdown-разметки, чтобы каждый раз не набирать их (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 21 июля 2015Разработчик: SmileOnMyMac, LLCПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский, Испанский, Итальянский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2BF0326437C873DC650DACCFBE7344DF627FC7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

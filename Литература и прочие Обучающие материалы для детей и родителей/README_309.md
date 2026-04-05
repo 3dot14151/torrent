@@ -1,3 +1,57 @@
+###  Публикация: 1179563   (346951) от 01.11.2017
+
+Наталья Ларкин | Новые приключения кошки Нюси. Сокровища короля Андраша (2017) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга – продолжение невероятных приключений озорной кошки Нюси и ее веселых друзей.
+На этот раз Нюсе, а также Маше, бабушке, дедушке и их соседу по даче дяде Вите предстоит отправиться в Венгрию – навстречу новым захватывающим приключениям!
+Стоит сказать, что и домовому Палычу, Подвальной Крысе и Певчему Дрозду, которые остались охранять дом в селе Великие Кошарища, (   Читать дальше...   )Жанр: СказкаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E59023D77EE977CBFB9038255E975E20DDD349C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418837   (346929) от 25.10.2020
+
+Геннадий Черненко | Самая первая энциклопедия. Самые быстрые (2015) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346929.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга из серии "Самая первая энциклопедия" от издательства Росмэн расскажет о самых быстрых транспортных средствах. В издании собрана и доступным языком изложена информация о рекордных скоростях, установленных гоночными автомобилями, поездами на магнитной подушке, сверхзвуковыми самолетами и другими движущимися объектами. Материал обязательно заинтересует (   Читать дальше...   )Жанр: Энциклопедия/Познавательная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:600F58B8E83B522E790490A9447DAE2822E79425
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1179560   (346819) от 01.11.2017
 
 Наталья Ларкин | Необыкновенные приключения кошки Нюси. Домовой и тайна волшебной книги (2016) [FB2]
@@ -6,7 +60,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346819.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346806.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346721.jpg" />
 </div>
 
 
@@ -88,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346713.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346678.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346610.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346450.jpg" />
 </div>
 
 
@@ -192,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346340.jpg" />
 </div>
 
 
@@ -218,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346307.jpg" />
 </div>
 
 
@@ -244,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346277.jpg" />
 </div>
 
 
@@ -270,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346234.jpg" />
 </div>
 
 
@@ -296,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345808.jpg" />
 </div>
 
 
@@ -322,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345804.jpg" />
 </div>
 
 
@@ -349,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345799.jpg" />
 </div>
 
 
@@ -376,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345795.jpg" />
 </div>
 
 
@@ -402,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345649.jpg" />
 </div>
 
 
@@ -428,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345547.jpg" />
 </div>
 
 
@@ -457,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345239.jpg" />
 </div>
 
 
@@ -484,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345186.jpg" />
 </div>
 
 
@@ -510,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344889.jpg" />
 </div>
 
 
@@ -536,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344881.jpg" />
 </div>
 
 
@@ -562,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344769.jpg" />
 </div>
 
 
@@ -590,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344715.jpg" />
 </div>
 
 
@@ -616,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344714.jpg" />
 </div>
 
 
@@ -629,59 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96ECB290BECB6A879CFC0D869DF2D6B928B4792D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419055   (344712) от 26.10.2020
-
-Андрес Мьедозо | Охотники за призраками. Лови волну, страшилка! Книга 3 (2020) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344712.jpg" />
-</div>
-
-
-###  Подробнее
-
-Андрес терпеть не может море и пляж. Хотя пикник у моря вместе с лучшим другом – совсем другое дело! Только в действительности денёк на пляже в компании Дезмонда Коула означает, что о спокойном отдыхе можно забыть.
-С призраками Андрес уже почти свыкся. Но в волнах появляются ещё более странные существа. Они явно замышляют что-то недоброе, и долг Призрачного патруля (   Читать дальше...   )Жанр: Детская литература/Фантастика/ПриключенияПеревод: Анастасия ИвановаФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD8713BCD377C43E7897DBF96362142926D2EB07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419047   (344711) от 26.10.2020
-
-Вашти Харди | Ярошторм. Экспедиция над облаками (2020) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Захватывающая приключенческая история с элементами расследования: Артур и Моди Ярошторм отправляются к неизведанным землям Третьего континента, чтобы узнать правду о гибели своего отца. Близнецы Артур и Моди Ярошторм получают известие, что их отец, первый в своем роду воздухоплаватель Эрнест Ярошторм, трагически погиб в экспедиции к Южному полюсу. А еще его нагло (   Читать дальше...   )Жанр: Детская литература/Фантастика/ПриключенияПеревод: Мария СухотинаФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:662F320E3909071DB3EDAA640075D2A97458FB56
 ```
 
 https://mybot314.ru/tekegram_catalog/

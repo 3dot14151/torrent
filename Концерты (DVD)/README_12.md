@@ -6,7 +6,7 @@ Robin Gibb - Live with The Neue Philharmonie Frankfurt Ochestra / Robin Gibb - L
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259360.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249061.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Black Sabbath – Undead And Alive (2004) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248491.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Joe Bonamassa - Live From The Royal Albert Hall (2009) DVD5 + DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231872.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ ZZ TOP - Double Down Live 1980 * 2008 (2009) DVD9+DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231853.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ Joe Bonamassa "Live at rock palast" DVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231235.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ Joe Bonamassa - An Acoustic Evening At The Vienna Opera House (2013) DVD9 + DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231161.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ ROCKPOP IN DORTMUND: Scorpions, Def Leppard, QuietRiot, Judas Priest, Ozzy Osbou
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230950.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Deep Purple: Around The World Live (2008) (4 DVD Box Set) 3*DVD9 + DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230250.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Echoes - Barefoot To The Moon (An Acoustic Tribute To Pink Floyd) (2015) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_229852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229852.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227792.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Sheryl Crow - Live At The Capitol Theater 2017 (2018) DVD5 [custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222735.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Gary Moore. Live at Monsters of Rock (2003) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212838.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ THE JEFF HEALEY BAND «SEE THE LIGHT» (1989) DVD-5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212788.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Bonnie Tyler - Live In Germany (1993/2011) DVD5 <Pop Rock>
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212763.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Blue Cheer: Rocks Europe (2009) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212760.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Umbra Et Imago – 20 (2011) 2xDVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199297.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Asia – Resonance / The Omega Tour (2010) DVD5 (Live In Basel, Switzerland)
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192663.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Asia – Axis XXX Live San Francisco (2015)  DVD5 (Recorded Live at the Regency 
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192586.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159684.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_156501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_156501.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Franck Carducci Band - Tearing The Tour Apart (2016) DVD5 [custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155442.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Erik Truffaz Quartet / El tiempo de la Revolucion (2012) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148897.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Porcupine Tree - Octane Twisted (2012) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148001.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Metallica-Garage Inc. Live  Roseland NYC 1998 (1998) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147663.jpg" />
 </div>
 
 
@@ -734,7 +734,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_134544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_134544.jpg" />
 </div>
 
 

@@ -1,3 +1,55 @@
+###  Публикация: 927587   (523773) от 14.08.2015
+
+Battlefield Hardline (2015) [Ru/Multi] (1.07.15.00) License CPY
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Battlefield Hardline – это знаменитые сетевые режимы Battlefield и "захватывающая" сюжетная кампания в жанре криминального боевика. Мир, где копы противостоят бандитам. Можно грабить инкассаторские грузовики или спасать заложников. По какую сторону закона хотите вершить свои дела вы?Тип издания: ЛицензияРазработчик: Visceral GamesЖанр: Action / 3D / 1st PersonЯзык озвучки: Русский, Английский, Французский, Итальянский, Немецкий, Испанский, Бразильский, Корейский, Китайский, Чешский, Японский, ПольскийЯзык субтитров: Русский, Английский, Французский, Итальянский, Немецкий, Испанский, Бразильский, Корейский, Китайский, Чешский, Японский, ПольскийЯзык интерфейса: Русский, Английский, Французский, Итальянский, Немецкий, Испанский, Бразильский, Корейский, Китайский, Чешский, Японский, Польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:384EF53BB015812E75CE9BD3715C51EFD61356F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 534174   (520860) от 12.08.2012
+
+Hexen и Hexen: Deathkings of the Dark Citadel [En] (RePack/1.01) 1995 | RG games/Pilotus
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520860.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тип издания: RePackРазработчик: Raven SoftwareЖанр: Шутер от первого лицаЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927255   (520193) от 18.08.2015
 
 Clive Barker's Undying / Клайв Баркер: Проклятые (2001/2014) [Ru/En] Repack Cheshire28 [Eternal Audamn / Специальное издание]
@@ -6,7 +58,7 @@ Clive Barker's Undying / Клайв Баркер: Проклятые (2001/2014)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520193.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Thief (2014) [Ru/Multi] (1.7.4158.21/upd8/dlc) License PROPHET [Complete Edition
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519142.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ The Original Strife: Veteran Edition (1996) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518955.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Forsaken Remastered (2018) [Multi] (1.4.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518915.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Deus Ex™ GOTY Edition (2000) [En] (1.112fm/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518842.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Red Orchestra 2: Heroes of Stalingrad Game of the Year Edition [Ru/En] (Steam-Ri
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518587.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ Serious Sam HD: The Second Encounter - Complete Edition [Ru/En] (L/Steam-Rip/1.1
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518586.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ ZOMBI (2015) [Ru/Multi] (1.0) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517995.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ The Forest (2018) [Ru/Multi] (1.09) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517814.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ The Darkness II (2012) [Ru] (1.1/dlc) Repack Other s [Special Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517766.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ Monstrum (2015) [En] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517015.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ BioShock (2007) [En] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516758.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ Homefront (2011) [Ru/En] (1.5.500001.0/dlc) RePack =nemos= [Ultimate Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515792.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ Ghostrunner (2020) [Ru/Multi] (42507_446/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515417.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ Sir, You Are Being Hunted (2013) [Ru/En] (1.3) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514748.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ Ziggurat (2014) [Ru/Multi] (1.0 upd12) SteamRip Let'sPlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514638.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ Quake III Arena (1999) [En] (1.32c) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513547.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ Alien Rage: Unlimited (2013) [Ru/En] (1.0.9084.0/upd6) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512490.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ Battlefield Hardline (2015) [Ru/En] (1.07.15.00/dlc) Repack YelloSOFT [Digital D
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512486.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ Prey [Ru/En] (Repack/1.4) 2006 | R.G. Origami
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511155.jpg" />
 </div>
 
 
@@ -535,7 +587,7 @@ eXtinction / Тотальное истребление [Ru] (L) 2003
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509064.jpg" />
 </div>
 
 
@@ -561,7 +613,7 @@ Painkiller / Painkiller: Крещёный кровью (2004) [Ru] (1.64) Licens
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508618.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ Turok [RUS/ENG] 2008 | R.G. Catalyst (VelArt) [Rip]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503453.jpg" />
 </div>
 
 
@@ -613,7 +665,7 @@ Shadow Warrior 3 (2022) [Ru/Multi] (1.05/dlc) Repack Other s [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501168.jpg" />
 </div>
 
 
@@ -624,59 +676,6 @@ Shadow Warrior 3 (2022) [Ru/Multi] (1.05/dlc) Repack Other s [Deluxe Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CFCED9538EE5F1F18B68BC8A0E28B879B16E852
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542817   (496900) от 04.09.2012
-
-The Ball / The Ball: Оружие мертвых [Ru] (RePack/1.0.6698.0) 2010 | R.G. Element Arts
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496900.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы – молодой археолог, который попадает в подземный лабиринт, спрятанный в недрах спящего вулкана. Ваш путь на поверхность лежит через руины древней цивилизации, полные смертоносных ловушек и толп кровожадных врагов. Ваша единственная надежда на спасение – могущественный артефакт из прошлого: огромная Сфера из золота и стали, которой вы научитесь повелевать. Именно от неё теперь всецело зависит ваша жизнь: мудрому и способному хозяину грозный круглый артефакт станет надёжной защитой от ловушек, незаменимым помощником в решении головоломок и в преодолении препятствий. На исчадий подземного царства мёртвых Сфера обрушит всю мощь и тяжесть своей сверхъестественной силы.
-Выберетесь живым из подземелья, разгадайте тайну давным-давно погибшего народа – станьте властелином Сферы!Тип издания: RePackЖанр: Arcade / Logic / 3D / 1st PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D63689071ADA529C611BA3299332DBEF7604EC35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242967   (495351) от 25.08.2018
-
-Uventa (2018) [Ru/En] (1.0) Repack Other s
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495351.jpg" />
-</div>
-
-
-###  Подробнее
-
-Атмосферный хоррор от первого лица, который поведает историю по мотивам реальных событий о том, как рядовой обход может обернуться чередой событий, не поддающихся человеческому пониманию. В роли простого сторожа, чья роковая судьба привела его в стены заброшенной школы, вам предстоит окунуться в пучину странных и даже жутких событий, встретиться лицом к лицу с неизведанным (   Читать дальше...   )Тип издания: RepackРазработчик: BlackRatЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B0F9174CD7C6937A99B904593221AF3550536B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

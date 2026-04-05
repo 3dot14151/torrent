@@ -1,83 +1,3 @@
-###  Публикация: 923973   (561038) от 02.08.2015
-
-В. П. Трофимов | «Технологический детерминизм» и общественный прогресс (1972) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561038.jpg" />
-</div>
-
-
-###  Подробнее
-
-В современной идеологической борьбе значительное место в стане убежденных противников марксизма-ленинизма и его философии занимает французский представитель западной философии и социологии Раймон Арон. В целом концепцию «технологического детерминизма» Р. Арона можно охарактеризовать как одно из проявлений пессимистических, антипрогрессивистских тенденций в современной (   Читать дальше...   )Жанр: История, политология, социология, философияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00631606A5D4C876A13C9F24D029A2C9E250EC44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045378   (559957) от 23.08.2016
-
-В. И. Гараджа | В. И. Ленин и критика современного фидеизма (1970) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559957.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Упразднение религии, как иллюзорного счастья народа, есть требование его действительного счастья. Требование отказа от иллюзий о своем положении есть требование отказа от такого положения, которое нуждается в иллюзиях. Критика религии есть, следовательно, в зародыше критика той юдоли плача, священным ореолом которой является религия. ...Критика неба превращается, (   Читать дальше...   )Жанр: История, философия, науковедениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92CE77F2404E8171E43DD8206D04F2B5911B90D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045377   (559680) от 23.08.2016
-
-А. Н. Чанышев | Эгейская предфилософия (1970) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кандидат философских наук Чанышев Арсений Николаевич в предлагаемой вниманию читателя работе показывает идеологические, научные, мировоззренческие и социальные предпосылки возникновения античной философии. По существу эта работа является введением в курс античной философии.
-
-Книгу с пользой для себя прочтут все, кто интересуется историей философии.Жанр: История, философия, мифология, науковедениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7372808A37059948128B697ACDAF4F395DB1913E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045483   (559438) от 23.08.2016
 
 В. А. Невский | Что и как читать молодым коммунистам? (1919) [PDF]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559438.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559324.jpg" />
 </div>
 
 
@@ -138,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559174.jpg" />
 </div>
 
 
@@ -164,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559066.jpg" />
 </div>
 
 
@@ -192,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558967.jpg" />
 </div>
 
 
@@ -218,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558077.jpg" />
 </div>
 
 
@@ -246,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557672.jpg" />
 </div>
 
 
@@ -273,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557109.jpg" />
 </div>
 
 
@@ -299,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556965.jpg" />
 </div>
 
 
@@ -326,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556674.jpg" />
 </div>
 
 
@@ -354,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556218.jpg" />
 </div>
 
 
@@ -380,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556217.jpg" />
 </div>
 
 
@@ -406,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556190.jpg" />
 </div>
 
 
@@ -432,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556141.jpg" />
 </div>
 
 
@@ -461,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556140.jpg" />
 </div>
 
 
@@ -487,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556125.jpg" />
 </div>
 
 
@@ -515,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555357.jpg" />
 </div>
 
 
@@ -541,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554847.jpg" />
 </div>
 
 
@@ -568,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554813.jpg" />
 </div>
 
 
@@ -594,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554800.jpg" />
 </div>
 
 
@@ -621,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554331.jpg" />
 </div>
 
 
@@ -647,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554064.jpg" />
 </div>
 
 
@@ -673,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554060.jpg" />
 </div>
 
 
@@ -684,6 +604,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:770F32B805028A20F120E22DD66E014FF4D22F99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236685   (554034) от 19.07.2018
+
+Н. К. Крупская (сост.) | Заветы Ленина в области народного просвещения (1924) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554034.jpg" />
+</div>
+
+
+###  Подробнее
+
+С тех пор, как пролетариат стал у власти, Ленин много писал и говорил о деле народного просвещения, и теперь надо внимательно вникнуть в то, что он говорил, и проверить, все ли, на чем он настаивал, проведено в жизнь, и если проведено, то так ли, как он хотел, посмотреть, что не доделано и что, может быть, надо переделать.
+
+Остановимся прежде всего на том, что менее (   Читать дальше...   )Жанр: История, политология, искусство, психологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08DD46BF17DD7BD7186DDDEA49EAEE43690E3869
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236811   (553814) от 20.07.2018
+
+В. М. Крепс, К. А. Эрберг (ред.) | Практика ораторской речи (1931) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящий сборник составлен научными сотрудниками Лаборатории публичной речи Научно-исследовательского Института Речевой Культуры, преподавателями Института Агитации имени Володарского. Цель его — по возможности в популярной и доступной рабочему агитатору форме, дать ряд методических советов и указаний из области устной агитации и ораторской речи.Жанр: История, политология, искусствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5CCDB1A2DB6C834CD8CE94060CC94EFBDB5D15A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046122   (553059) от 26.08.2016
+
+И. Я. Вайнштейн | Организационная теория и диалектический материализм (1927) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга т. Вайнштейна является первой попыткой систематического рассмотрения воззрений Богданова и их критики с точки зрения диалектического материализма.Жанр: История, философия, политология, религиоведение, социология, экономика, искусство, науковедениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B50A2EDED643E383FC20C05DB5229A60FC01DCFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

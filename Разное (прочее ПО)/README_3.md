@@ -1,3 +1,29 @@
+###  Публикация: 1805578   (12269) от 07.07.2025
+
+Hydra Launcher 3.6.2 + Portable [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разное (прочее ПО)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12269.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hydra - это игровой лаунчер с собственным встроенным BitTorrent-клиентом и самоуправляемым поиском репаков. Лаунчер был написан на TypeScript (Electron) и Python, а для работы с системой торрентов используется libtorrent.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E637718FF8DC8A71A81A4AABFFF37EBD64E18F51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808633   (10385) от 25.07.2025
 
 PrintMyFonts 24.8.31 Portable [Multi/Ru]
@@ -6,7 +32,7 @@ PrintMyFonts 24.8.31 Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10385.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ PageEdit 2.5.0 (x64) [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10270.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Sigil 2.6.0 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10267.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Zettlr 3.6.0 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8710.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ FontViewOK 8.99 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4957.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ Lively Wallpaper 2.2.0.0 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4354.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ MSActBackUp 1.2.9 Portable by Ratiborus [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3052.jpg" />
 </div>
 
 

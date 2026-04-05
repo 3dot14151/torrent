@@ -1,3 +1,133 @@
+###  Публикация: 264932   (422888) от 26.08.2022
+
+Тараканище (1963) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422888.jpg" />
+</div>
+
+
+###  Подробнее
+
+По сказке К. Чуковского о страшном-престрашном Тараканище, который до смерти напугал всех зверей, но был проглочен обыкновенным маленьким воробышком.Производство: СССР, СоюзмультфильмЖанр: детский, рисованная анимацияРежиссер: Владимир ПолковниковАктеры: Сергей Цейц, Юрий Филимонов, Нина Никитина, Алексей ГрибовСубтитры: ОтсутствуютПродолжительность: 00:16:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A9E55EC7D1424C053F28D02CE87089B3F670F18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 380204   (422881) от 26.08.2022
+
+Крошка Енот (1974) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422881.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сегодня у Крошки Енота день рождения, и чтобы доказать, что он уже взрослый, он отправляется к пруду за сладкой осокой.Производство: СССР, ТО "Экран"Жанр: детский, рисованная анимация, музыкальныйРежиссер: Олег ЧуркинАктеры: Клара Румянова, Мария ВиноградоваСубтитры: ОтсутствуютПродолжительность: 00:08:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCE2DD3544807157E7918E6E5065B1DE4D61BBE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946925   (422485) от 15.10.2015
+
+Кунг-фу Кролик: Повелитель огня / Tu Xia Chuan Qi:Qing Li Chuan Shuo (2015) WEB-DL [H.264/720p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Победу в поединке сильнейших бойцов неожиданно одерживает неуклюжий с виду пушистый кролик, лучше других владеющий секретами древнего кунг-фу, после чего становится главным защитником деревни. Однако, не долго ему удается купаться в лучах славы и наслаждаться вниманием поклонников. Злодеи вознамерились выкрасть у кролика магический камень и тем самым лишить его силы. (   Читать дальше...   )Производство: Китай / Shanghai Toonmax Media Co.Жанр: мультфильм, комедия, приключения, семейныйРежиссер: Дейк ДонгПерсонажи: Юньвэй Хэ, Ли ХуангПеревод: Профессиональный (полное дублирование) (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:35:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D4D7ADD22C6EBC256AF1E5CE9407C0C65825F3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946927   (422406) от 15.10.2015
+
+Кунг-фу Кролик: Повелитель огня / Tu Xia Chuan Qi:Qing Li Chuan Shuo (2015) WEB-DLRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Победу в поединке сильнейших бойцов неожиданно одерживает неуклюжий с виду пушистый кролик, лучше других владеющий секретами древнего кунг-фу, после чего становится главным защитником деревни. Однако, не долго ему удается купаться в лучах славы и наслаждаться вниманием поклонников. Злодеи вознамерились выкрасть у кролика магический камень и тем самым лишить его силы. (   Читать дальше...   )Производство: Китай / Shanghai Toonmax Media Co.Жанр: мультфильм, комедия, приключения, семейныйРежиссер: Дейк ДонгПерсонажи: Юньвэй Хэ, Ли ХуангПеревод: Профессиональный (полное дублирование) (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:35:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA200D9137331B22C35440ED4039A98238B8BE04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946926   (422251) от 15.10.2015
+
+Кунг-фу Кролик: Повелитель огня / Tu Xia Chuan Qi:Qing Li Chuan Shuo (2015) WEB-DLRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422251.jpg" />
+</div>
+
+
+###  Подробнее
+
+Победу в поединке сильнейших бойцов неожиданно одерживает неуклюжий с виду пушистый кролик, лучше других владеющий секретами древнего кунг-фу, после чего становится главным защитником деревни. Однако, не долго ему удается купаться в лучах славы и наслаждаться вниманием поклонников. Злодеи вознамерились выкрасть у кролика магический камень и тем самым лишить его силы. (   Читать дальше...   )Производство: Китай / Shanghai Toonmax Media Co.Жанр: мультфильм, комедия, приключения, семейныйРежиссер: Дейк ДонгПерсонажи: Юньвэй Хэ, Ли ХуангПеревод: Профессиональный (полное дублирование) (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:35:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2C6ADCE5321D63F6026CF57C9FF44F6B2157F95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 946912   (422236) от 15.10.2015
 
 Кунг-фу Кролик: Повелитель огня / Tu Xia Chuan Qi:Qing Li Chuan Shuo (2015) WEB-DL [H.264/1080p-LQ]
@@ -6,7 +136,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422236.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421801.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_421235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_421235.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421073.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421004.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420652.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_420503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_420503.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ Lego: Рыцари Нексо /  Lego: Nexo Knights (2016) WEBRip (сезон 2,
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420468.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420318.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419620.jpg" />
 </div>
 
 
@@ -268,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419282.jpg" />
 </div>
 
 
@@ -294,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419277.jpg" />
 </div>
 
 
@@ -320,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419273.jpg" />
 </div>
 
 
@@ -346,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419219.jpg" />
 </div>
 
 
@@ -372,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419133.jpg" />
 </div>
 
 
@@ -398,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419005.jpg" />
 </div>
 
 
@@ -424,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418972.jpg" />
 </div>
 
 
@@ -450,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418952.jpg" />
 </div>
 
 
@@ -476,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418948.jpg" />
 </div>
 
 
@@ -502,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418946.jpg" />
 </div>
 
 
@@ -528,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418945.jpg" />
 </div>
 
 
@@ -539,137 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC7E874D243A0ABF2E5DBB40AEAD00E7580FAD7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 403555   (418943) от 28.08.2022
-
-Лосенок (1984) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как ребята спасли и вырастили сироту-лосенка.Производство: СССР, Куйбышев телефильмЖанр: детский, кукольныйРежиссер: Александр ПолушкинАктеры: Ефим Кациров, Евгений Леонов, Зинаида Нарышкина, Мария ВиноградоваСубтитры: ОтсутствуютПродолжительность: 00:09:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72B53344AEA272742EAB9D50B60FFF2A02AA2D5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 398772   (418941) от 28.08.2022
-
-Травяная западенка (1982) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418941.jpg" />
-</div>
-
-
-###  Подробнее
-
-Было это при крепостном порядке. Жила сиротка Устя, покойный отец с малахитом работал и поговаривали, что имел он потайную ямку, западенку травяную. Умная была девушка провела и приказчика глупого, который и до сих пор ищет западенку и барыню жадную.Производство: СССР, Свердловская киностудияЖанр: детский, музыкальныйРежиссер: Валерий ФоминАктеры: Т. Полипчук, В. Ларин, Анатолий Папанов, И. ТименковаСубтитры: ОтсутствуютПродолжительность: 00:15:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F966A5E4CD7C9F7707970A434416694576BF2206
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 387845   (418940) от 28.08.2022
-
-Росомаха и лисица (1982) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418940.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам эвенкийской народной сказки.Производство: СССР, Свердловская киностудияЖанр: детский, кукольныйРежиссер: Галина ТургеневаСубтитры: ОтсутствуютПродолжительность: 00:09:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C12EA0988A9B67B993A00BD88A275445FEE0EFE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 404659   (418939) от 28.08.2022
-
-Что на что похоже (1974) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фантазер Щенок считает, что все на свете на что-нибудь похоже: листочек — на бабочку, шмель — на тигра... Друзья поначалу смеются над ним, но постепенно сами увлекаются этой игрой.Производство: СССР, Киевская Киностудия научно-популярных фильмовЖанр: детский, рисованная анимацияРежиссер: Владимир ДахноАктеры: Людмила Игнатенко, Людмила Козуб, Лина БудникСубтитры: ОтсутствуютПродолжительность: 00:07:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3AB932B491AD8016376DD58BEB265C78682CA09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065394   (418937) от 23.10.2016
-
-Лава / Lava (2014) BDRip [H.264/720p] (Локализованный видеоряд)
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418937.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыкальная история Большой любви двух вулканов Уку и Леле.
-Мультфильм, по традиции Pixar демонстрировался на киносеансах перед полнометражной работой студии «Головоломка»Производство: США | Walt Disney | Pixar Animation StudiosЖанр: Короткометражный анимационный фильмРежиссер: Джеймс Форд МерфиПеревод: ДублированныйСубтитры: Английские, Русские (вшитые, отключаемые)Продолжительность: 00:07:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9854EC97B3702A6EDEF39295BD119FF5060F5D33
 ```
 
 https://mybot314.ru/tekegram_catalog/

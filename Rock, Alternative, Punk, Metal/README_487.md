@@ -1,3 +1,148 @@
+###  Публикация: 1150548   (593924) от 15.07.2017
+
+Coldplay - Kaleidoscope (2017) EP [MP3|320 Kbps] <Alternative Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593924.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. All I Can Think About Is You
+2. Miracles (Someone Special)
+3. A L I E N S
+4. Something Just Like This (Tokyo Remix)(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:24:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EDC8C304B419F9744B403417E8B91BBB680344F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549133   (593901) от 06.05.2022
+
+Гран-КуражЪ - IX жизней (2022) 2xCD, Live [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593901.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Интро
+02. Достучаться до небес (П. Елфимов)
+03. Только вперёд (П. Елфимов)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 02:18:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79DE09A754A0FFB06F1EFE10CAE4F184C6BCE85C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549217   (593897) от 06.05.2022
+
+Arcade Fire - WE (2022) [FLAC 2.0|96/24|WEB-DL|tracks] <Art.Rock, Indie Rock, Synthpop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Age of Anxiety I (5:27)
+02. Age of Anxiety II (Rabbit Hole) (6:41)
+03. Prelude (0:30)
+04. End of The Empire I-III (5:23)(   Читать дальше...   )Жанр: Art.Rock, Indie Rock, SynthpopПродолжительность: 00:40:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49C72776D9A8652E3C3000F115E1C8A99DC6E019
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549114   (593894) от 06.05.2022
+
+Sabaton - The Symphony To End All Wars (2022) Symphonic Version [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sarajevo (4:45)
+02. Stormtroopers (3:53)
+03. Dreadnought (3:25)
+04. The Unkillable Soldier (3:36)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:43:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41555484270A5CCAA2FD0A0144B716B7E5EC7315
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300219   (593883) от 05.05.2019
+
+Mark Morton - Anesthetic (2019) [FLAC|Lossless|tracks + .cue] <Groove Metal, Heavy Metal, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cross Off (feat. Chester Bennington) (4:13)
+02. Sworn Apart (feat. Jacoby Shaddix) (3:57)
+03. Axis (feat. Mark Lanegan & Myles Kennedy) (4:13)
+04. The Never (feat. Chuck Billy & Jake Oni) (4:06)(   Читать дальше...   )Жанр: Groove Metal, Heavy Metal, Alternative MetalПродолжительность: 00:42:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECA40DCC5C2BED98B2541B86173634D9801289CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1233195   (593835) от 28.06.2018
 
 Mono Inc. - Symphonies Of Pain: Hits And Rarities (2017) [MP3|320 Kbps] <Gothic Rock, Darkwave>
@@ -6,7 +151,7 @@ Mono Inc. - Symphonies Of Pain: Hits And Rarities (2017) [MP3|320 Kbps] <Gothic 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593835.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Whitesnake - Greatest Hits (2022) Revisited-Remixed-Remastered MMXXII [FLAC 2.0|
 >>Hard Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593821.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ John Diva And The Rockets Of Love - Mama Said Rock Is Dead (2019) [FLAC|lossless
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593770.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Bullet for My Valentine - Gravity (2018) [MP3|320 Kbps] <Melodic Metalcore, Alte
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593769.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Gorillaz - The Now Now (2018) [MP3|320 Kbps] <Alternative Rock, Hip-Hop, Electro
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593760.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Mashu - Elephants In Your Head? (1996) [WavPack|Lossless|image + .cue] <Сanterb
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593656.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Holy Blood - Волны Танцуют (2004) [FLAC|Lossless|image + .cue] <Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593653.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Mass Deception - Revelations (2016) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593647.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Scott Weiland and the Wildabouts - Blaster (2015) [FLAC|Lossless|tracks + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593645.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Santiano - Haithabu - Im Auge des Sturms (2018) [MP3|320 Kbps] <Folk Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593627.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Joe Stump - Revenge of the Shredlord (2012) [FLAC|Lossless|image + .cue] <Neocla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593584.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593539.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593518.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ Alabama Shakes - Sound And Color (2015) [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593482.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ Craft - White Noise And Black Metal (2018) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593403.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ Ibaraki (Trivium) - Rashomon (2022) [FLAC 2.0|44,1/24|WEB-DL|tracks] <Metalcore>
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593394.jpg" />
 </div>
 
 
@@ -470,7 +615,7 @@ StuckFish - 3 Albums (2018-2022) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593390.jpg" />
 </div>
 
 
@@ -499,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593378.jpg" />
 </div>
 
 
@@ -528,7 +673,7 @@ Queens Of The Stone Age - Villains (2017) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593342.jpg" />
 </div>
 
 
@@ -557,7 +702,7 @@ Gorillaz - The Now Now (2018) Parlophone UK [FLAC|Lossless|WEB-DL|tracks] <Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593340.jpg" />
 </div>
 
 
@@ -586,7 +731,7 @@ Three Days Grace - Explosions (2022) [FLAC 2.0|44,1/24|WEB-DL|tracks] <Post-Grun
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593319.jpg" />
 </div>
 
 
@@ -600,151 +745,6 @@ Three Days Grace - Explosions (2022) [FLAC 2.0|44,1/24|WEB-DL|tracks] <Post-Grun
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D48182984BF25A39B3469DBFBC7E7275E7288713
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549025   (593312) от 07.05.2022
-
-Silverstein - Misery Made Me (2022) [MP3|320 Kbps] <Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593312.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Our Song
-2. Die Alone (feat. Andrew Neufeld of Comeback Kid)
-3. Ultraviolet
-4. Cold Blood (feat. Trevor Daniel)(   Читать дальше...   )Жанр: Post-HardcoreПродолжительность: 00:37:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEEF93A6E6E17E187A8DC2866184EB9CC8142D95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549395   (593311) от 07.05.2022
-
-Mental Care Foundation - III (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Stoner, Thrash, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zombie (4:16)
-02. Watch The Water Rise (3:44)
-03. Burn It Down (4:05)
-04. Escape (3:35)(   Читать дальше...   )Жанр: Stoner, Thrash, Heavy MetalПродолжительность: 00:37:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54E6ABD6C268730ADDA3E00E901819A3A1F2BB05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549374   (593308) от 07.05.2022
-
-Lord Of The Lost - The Heartbeat Of The Devil (2022) EP [MP3|320 Kbps] <Gothic Metal, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Heartbeat of the Devil (Single Version) (3:29)
-02. Judas (Lady Gaga Cover) (4:11)
-03. Children of the Damned (4:41)
-04. Wig in a Box (5:11)(   Читать дальше...   )Жанр: Gothic Metal, ElectronicПродолжительность: 00:22:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28056CE506B872F1F155F63C82D9F554DE1B4C8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481062   (593233) от 07.05.2022
-
-Lord of the Lost - Judas (2021) 4CD, Deluxe Version [MP3|320 Kbps] <Gothic, Industrial, Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alles wird gut, aber... (feat. Lacrimosa) [00:03:48]
-02. Dein Blick (feat. Letzte Instanz) [00:03:42]
-03. Pale Rider (feat. Lolita Komplex) [00:03:42]
-04. Revenge (feat. Majorvoice) [00:03:42](   Читать дальше...   )Жанр: Gothic, Industrial, Symphonic MetalПродолжительность: 4 CD, 03:42:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D28FEE5CD6BB70F9ABC9D2E1916F6209A9288757
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300243   (593216) от 06.05.2019
-
-Prefab Sprout - Crimson/Red (2013) BSCD2 release [FLAC|Lossless|tracks + .cue] <Alternative, Indie Rock, Sophisti-Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Best Jewel Thief in the World 03:51
-02. List of Impossible Things 03:43
-03. Adolescence 04:27
-04. Grief That Built the Taj Mahal 03:28(   Читать дальше...   )Жанр: Alternative, Indie Rock, Sophisti-PopПродолжительность: 00:40:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB955A50172BFE4DC4F2EEFBCA73740164E85EF7
 ```
 
 https://mybot314.ru/tekegram_catalog/

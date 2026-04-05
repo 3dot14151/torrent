@@ -1,3 +1,32 @@
+###  Публикация: 1644071   (233463) от 05.07.2023
+
+Sakrum - Escombros de Muerte (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sakrum (Mov I- Sangre de Heroes) (01:07)
+02 - Sakrum (Mov II- Escombros de Muerte) (01:50)
+03 - Dos Siglos (04:35)
+04 - Mas Alla del Tiempo (04:06)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:35:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE01391E7A2CE02E72C262AB11A098F1300BDC07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1641922   (233461) от 25.06.2023
 
 The Samurai Of Prog - The Man In The Iron Mask (2023) [MP3|320 Kbps] <Progressive Rock>
@@ -6,7 +35,7 @@ The Samurai Of Prog - The Man In The Iron Mask (2023) [MP3|320 Kbps] <Progressiv
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233461.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ The Black Apples - Highball Roller (2023) [MP3|320 Kbps] <Heavy Psych, Stoner, D
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233459.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ ten56. - Downer (2023) [FLAC|Lossless|WEB-DL|tracks] <nu-metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233450.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Host - IX (2023) [FLAC|Lossless|image + .cue] <Goth Rock, Electro>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233448.jpg" />
 </div>
 
 
@@ -124,7 +153,7 @@ Valgrind - Speech of the Flame (2016) [FLAC|Lossless|tracks + .cue] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233441.jpg" />
 </div>
 
 
@@ -153,7 +182,7 @@ Jaded Heart - Heart Attack (2022) [FLAC|Lossless|image + .cue] <Hard 'n' Heavy>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233434.jpg" />
 </div>
 
 
@@ -182,7 +211,7 @@ Mezzrow - Summon Thy Demons (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233433.jpg" />
 </div>
 
 
@@ -211,7 +240,7 @@ Lucious Bloodfire - The Ninth Circle Absolute (2023) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233428.jpg" />
 </div>
 
 
@@ -240,7 +269,7 @@ The Great Gray Funk - The Great Gray Funk (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233426.jpg" />
 </div>
 
 
@@ -269,7 +298,7 @@ Faerie Ring - Weary Traveler (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, S
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233420.jpg" />
 </div>
 
 
@@ -298,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233418.jpg" />
 </div>
 
 
@@ -327,7 +356,7 @@ High Priest - Invocation (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stone
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233416.jpg" />
 </div>
 
 
@@ -356,7 +385,7 @@ Borealis - Illusions (2022) [FLAC|Lossless|image + .cue] <Melodic Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233411.jpg" />
 </div>
 
 
@@ -385,7 +414,7 @@ Lethal Injektion - Leaderz Of The Nu School (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233410.jpg" />
 </div>
 
 
@@ -414,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233405.jpg" />
 </div>
 
 
@@ -443,7 +472,7 @@ Against Myself - Tides Of Insanity (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphon
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233403.jpg" />
 </div>
 
 
@@ -472,7 +501,7 @@ Under All - New (R)Age (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233392.jpg" />
 </div>
 
 
@@ -501,7 +530,7 @@ Irist - 2 Albums (2020-2022) [MP3|320 Kbps] <Sludge, Groove, Post Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233388.jpg" />
 </div>
 
 
@@ -530,7 +559,7 @@ Coastwise - 2 Albums (2022-2023) [MP3|320 Kbps] <Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233383.jpg" />
 </div>
 
 
@@ -559,7 +588,7 @@ Stallion - Rise And Ride (2014) [FLAC|Lossless|image + .cue] <Heavy, Speed Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233382.jpg" />
 </div>
 
 
@@ -588,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233378.jpg" />
 </div>
 
 
@@ -617,7 +646,7 @@ The Necromancers - 3 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233376.jpg" />
 </div>
 
 
@@ -646,7 +675,7 @@ Harm - a song you can't feel anymore (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233375.jpg" />
 </div>
 
 
@@ -675,7 +704,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233370.jpg" />
 </div>
 
 
@@ -704,7 +733,7 @@ Yes - Mirror To The Sky (2023) 2xCD [FLAC|Lossless|WEB-DL|tracks] <Progressive R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233368.jpg" />
 </div>
 
 
@@ -718,35 +747,6 @@ Disc 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EA596474AD2E4AF7A7FAF5A77D7619E135A8522
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634493   (233363) от 20.05.2023
-
-Yes - Mirror To The Sky (2023) 2xCD [FLAC|Lossless|image + .cue] <Progressive Rock, Art Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_233363.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Cut From The Stars
-02. All Connected
-03. Luminosity(   Читать дальше...   )Жанр: Progressive Rock, Art RockПродолжительность: 01:03:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B663E6298C343C2AA92193FFB0D1C51AB6700AA1
 ```
 
 https://mybot314.ru/tekegram_catalog/

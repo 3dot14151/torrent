@@ -1,3 +1,55 @@
+###  Публикация: 1137789   (747704) от 10.02.2019
+
+Rise & Shine (2017) [Ru/Multi] (1.0) Repack R.G. Catalyst
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747704.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rise & Shine совмещает в себе аркадный шутер с использованием различных пуль для решения всяческий ситуаций, возникших на пути Райса. Райс – паренек, живущий в мире Gamearth, где обитают персонажи классических видеоигр.Тип издания: RepackРазработчик: Super Mega TeamЖанр: Arcade (Platform)Язык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BA1DD3DBDAE545370819BB513D6EF3F0657B2C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216786   (747388) от 01.04.2018
+
+Evil Cogs (2018) [Ru/Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747388.jpg" />
+</div>
+
+
+###  Подробнее
+
+Темная сказка про лучик света. Исследуйте странный и мистический мир. В игре вы берете на себя роль маленького существа, состоящего целиком из света - вы последний луч надежды в окутанном тьмой, умирающем мире. Это приключение в мрачной черно-белой стилистике. Задача игрока добраться до конца уровня живым. Одной из главных особенностей проекта является огромный упор (   Читать дальше...   )Тип издания: RepackРазработчик: Wet FishЖанр: Adventure, Arcade, Action, Puzzle, Casual, 2DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6865B9B2B6B6F4E43FDDE3F383EC19FFA78C2350
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1524259   (744975) от 15.01.2022
 
 Cave Story+ (2011) [Multi] (1.0.1.0) License GOG
@@ -6,7 +58,7 @@ Cave Story+ (2011) [Multi] (1.0.1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_744975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_744975.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ The Disney Afternoon Collection (2017) [Ru] (1.0) Repack MaggotFreddy
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740497.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Necrobarista (2020) [Ru/Multi] (1.0.2) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735502.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Unruly Heroes (2019) [Ru/Multi] (1.0/upd3) Repack R.G. Catalyst
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730442.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Voodoo Vince Remastered (2017) [Multi] (1.0.0.1) License RELOADED
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730375.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ The Disney Afternoon Collection (2017) [Ru/Multi] (1.0) License SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728191.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Pinstripe (2017) [Ru/Multi] (1.0.4) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726995.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Crawl (2017) [En] (1.0.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725893.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Sky Force Anniversary (2015) [Ru/Multi] (03.06.2016) Repack R.G. Механик�
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721499.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Pinstripe (2017) [Ru/Multi] (1.0.3) License PLAZA
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720211.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Disney's Chicken Little (2005) [Multi] (1.0.0.1) License PROPHET
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720073.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Necrobarista (2020) [Ru/Multi] (1.00) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716594.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Hot Guns (2017) [En] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715759.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Riverhill Trials (2018) [Ru/Multi] (1.0) License PLAZA
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714972.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Sky Force Anniversary (2015) [Ru/En] (1.0) Repack xGhost
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708542.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Carrion (2020) [Ru/Multi] (1.0.5/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706579.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Letters (2022) [En] (1.0) License GOG [Collector's Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704744.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698673.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Sonic Mania (2017) [Multi] (1.06/dlc) License CPY
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693400.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Blackhole (2015) [Ru/Multi] (1.6/dlc) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691896.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Light Fall (2018) [Ru/Multi] (1.0.0) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691043.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Steel Rats (2018) [Ru/Multi] (1.0/upd2/dlc) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685564.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Shio (2017) [Ru/Multi] (1.0.1) License HI2U
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684365.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ On Rusty Trails (2016) [En] (1.0) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681857.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ On Rusty Trails - стильный иллюстративный платформ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:168E59AA91E46DC800CCB0B7DD2B32FE578D30C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169579   (678691) от 02.05.2018
-
-Hob (2017) [Ru/Multi] (1.17.3.0) License GOG
-
->>След.
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678691.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разработчики Torchlight и Torchlight II представляют Hob - захватывающее приключение в прекрасном, но жестоком мире. Проникните в тайны планеты, узнайте правду и исцелите этот мир прежде, чем он погрузится в хаос. Hob - это приключенческая игра от Runic Games, создателей Torchlight и Torchligt 2, в которой игрок оказывается в роли персонажа, очутившегося в неизвестном (   Читать дальше...   )Тип издания: LicenseРазработчик: Runic Games Inc.Жанр: Экшн, Приключение, ПлатформерЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21594014A685091416B2BD7FD97EA713ED88CEAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226264   (656465) от 19.05.2018
-
-Koloro (2018) [Ru/Multi] (1.0) License PLAZA
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Колоро - это одновременно головоломка и платформа с уникальным игровым процессом предусматривающий управление всего одной кнопкой, динамичным геймплеем, привлекательными персонажами в сказочном мире поразительной графики и сопровождаемая захватывающим саундтреком. Станьте Корой, маленькой девочкой с розовыми волосами, и превзойдите её страхи и тревоги, найдя её младшую (   Читать дальше...   )Тип издания: LicenseРазработчик: Sköll StudioЖанр: Adventure (Platform), Puzzle, Logic, 2DЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B9CC7CF300D8E3928B3B1AC0FA82B2441F02B49
 ```
 
 https://mybot314.ru/tekegram_catalog/

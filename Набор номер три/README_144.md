@@ -1,3 +1,166 @@
+###  Публикация: 306031   (854116) от 08.03.2011
+
+[Repack] Dragon Age 2 / Dragon Age II. v High Res Texture Pack [Ru/En] 2011 | Fenixx
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854116.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новом путешествии по полному тайн и опасностей фэнтезийному миру Dragon Age игроку предстоит выступить в роли простого беженца по имени Хоук, всеми силами старающегося уберечь свое семейство от неумолимого Мора. Волею судеб именно он станет главным защитником города Киркволла.
+
+Сюжет охватывает целое десятилетие истории сурового мира, обитатели которого отчаянно противостоят нашествию порождений тьмы. Игроку предстоит принимать непростые решения, заключать взаимовыгодные союзы с довольно опасными личностями, наживать богатство и славу и, конечно, мечом и магией без устали сражаться с многочисленными врагами.
+
+Как будет развиваться история, которая навсегда изменит вселенную Dragon Age, — зависит только от игрока.Тип издания: RepackЖанр: RPG / 3D / 3rd PersonЯзык интерфейса: Русский, английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498017   (854080) от 28.09.2021
+
+Первое безэкипажное судно в России спустили на воду в Петербурге
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_854080.jpg" />
+</div>
+
+
+###  Подробнее
+
+"На Средне-Невском судостроительном заводе (входит в ОСК) состоялась церемония спуска на воду инновационного научно-исследовательского судна "Пионер-М", на котором будет применяться технология безэкипажного судовождения", - говорится в сообщении.Отмечается, что "Пионер-М" строится для Севастопольского государственного университета и (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498312   (853981) от 28.09.2021
+
+Windows 10 Enterprise LTSB (x64) Elgujakviso Edition (v.26.09.21) [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана на основе оригинального образа от MSDN:
+ru_windows_10_enterprise_2016_ltsb_x64_dvd_9057886.iso
+
+   Интегрированы важные и рекомендуемые обновления по 24.09.2021 года.(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BF1D500DA87B7A0BFC589A80F44D0924660F5CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498502   (853980) от 28.09.2021
+
+S.T.A.L.K.E.R.: Call of Pripyat - Anomaly (2021) [Ru/En] (1.5.1) Repack/Mod kotovasia
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853980.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автономный мод STALKER Anomaly 1.5.1 призван сделать игру максимально стабильной и настраиваемой для поклонников игр STALKER. Он работает на 64-битном движке Monolith, кастомной вилке движка X-Ray. Игроки могут выбирать из множества способов играть в мод.Тип издания: Repack/ModЖанр: FPS, Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D57F9D4C7E58FB095F4F94B49FA8BF6D0173A4A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498769   (853979) от 28.09.2021
+
+CorelDRAW Graphics Suite 2021 23.5.0.506 Full / Lite RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853979.jpg" />
+</div>
+
+
+###  Подробнее
+
+Непревзойденные возможности CorelDRAW Graphics Suite 2019 в сочетании с вашими творческими способностями — прекрасная основа для проектов по созданию макетов, разработке веб-сайтов и редактированию фотографий. Пакет оснащен расширенной поддержкой Windows 10, мультидисплейным режимом просмотра и поддержкой мониторов 4K. Продукт позволяет дизайнерам самых разных уровней (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6C334B31C58399E111A20A79A89807A27D5A824
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 202505   (853828) от 08.03.2015
+
+Крестный отец: Трилогия / The Godfather Collection: The Coppola Restoration (1972/1974/1990) [1080p] 4*Blu-Ray
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заключительная часть знаменитой гангстерской эпопеи, в которой продолжается рассказ о делах «семьи» дона Корлеоне. Через двадцать лет после событий, описанных в предыдущей картине, Майкл Корлеоне решает заняться легальным бизнесом. Однако противодействие внутри клана заставляет его вспомнить об испытанных кровавых методах общения с противником, что приводит к трагическому (   Читать дальше...   )Производство: СШАЖанр: Криминальная драмаРежиссер: Френсис Форд КопполаАктеры: Аль Пачино, Дайан Китон, Талия Шайр, Энди Гарсиа, Эли Уоллах, Джо Мантенья, Джордж Хэмилтон, Бриджет Фонда, София Коппола, Раф ВаллонеПеревод: Многоголосый закадровыйСубтитры: датские, Норвежские, Шведские, Финские, Немецкие, Греческие,  Английские, Французские, Испанские, Венгерские, Итальянские, Голанские, Польские, Португальские, ТурецкиеЯзык: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 867658   (853826) от 08.03.2015
 
 Артем Каменистый | Самый Странный Нуб (2015) [MP3]
@@ -6,7 +169,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853826.jpg" />
 </div>
 
 
@@ -32,7 +195,7 @@ XCOM: Enemy Unknown (2012) [En/Ru] (1.0.0.4963/1.0.0.9040/9dlc) Repack R.G. Ме
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853819.jpg" />
 </div>
 
 
@@ -59,7 +222,7 @@ Dism++ 10.1.4.7 Portable [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853373.jpg" />
 </div>
 
 
@@ -85,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853368.jpg" />
 </div>
 
 
@@ -112,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853365.jpg" />
 </div>
 
 
@@ -138,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853364.jpg" />
 </div>
 
 
@@ -164,7 +327,7 @@ Slimjet 13.0.6.0 + Portable [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853360.jpg" />
 </div>
 
 
@@ -190,7 +353,7 @@ Malwarebytes Anti-Malware Premium 3.0.6.1469 DC 01.03.2017 RePack by KpoJIuK [Mu
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853222.jpg" />
 </div>
 
 
@@ -216,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853219.jpg" />
 </div>
 
 
@@ -242,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853217.jpg" />
 </div>
 
 
@@ -268,7 +431,7 @@ Windows 8.1 SevenMod RUS-ENG x86-x64 -20in1- Activated v2 (AIO)
 >>9
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853216.jpg" />
 </div>
 
 
@@ -294,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_852752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_852752.jpg" />
 </div>
 
 
@@ -321,7 +484,7 @@ Satisfactory (2019) [Ru/Multi] (0.3.4.2) Repack xatab [Early Access]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852748.jpg" />
 </div>
 
 
@@ -347,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852747.jpg" />
 </div>
 
 
@@ -376,7 +539,7 @@ BELOFF 2020.04 [Ru] (Авторская раздача)
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852745.jpg" />
 </div>
 
 
@@ -402,7 +565,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2020.04.20 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852741.jpg" />
 </div>
 
 
@@ -428,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_852451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_852451.jpg" />
 </div>
 
 
@@ -454,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852367.jpg" />
 </div>
 
 
@@ -484,7 +647,7 @@ AKVIS All Plugins 2011 (32/64 bit) [Multi/Rus]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852354.jpg" />
 </div>
 
 
@@ -510,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_852326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_852326.jpg" />
 </div>
 
 
@@ -521,165 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498682   (852308) от 29.09.2021
-
-Microsoft превратит в «кирпич» неподдерживаемые устройства, обновленные до Windows 11?
-
->>3
->>11
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_852308.jpg" />
-</div>
-
-
-###  Подробнее
-
-До официального релиза Windows 11 остается чуть больше недели, но пользователи по всему миру по-прежнему не знают, смогут ли они полноценно пользоваться Windows 11 на неподдерживаемых устройствах.Когда Microsoft анонсировала свою операционную систему Windows 11, компания четко дала понять, что новая система подойдет только для устройств, которые отвечают системным (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 648280   (852221) от 25.04.2013
-
-Microsoft Windows 8 RTM x86-x64 AIO Russian - CtrlSoft [Русский]
-
->>3
->>25
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852221.jpg" />
-</div>
-
-
-###  Подробнее
-
-С Windows 8 у вас появятся новые замечательные способы использования компьютера. Эта быстрая, динамичная и понятная операционная система создана, чтобы вы могли делать то, что вам нравится, и так, как вам нравится.
-
-Особое внимание в Windows 8 уделяется вашей жизни — друзьям и родным, а также работе с приложениями и файлами. Используя новые возможности, такие как (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8757B34A94CE60CE81CC37C6456E9DA17E853745
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 443478   (852116) от 24.03.2014
-
-VideoReg Pro 6.81 [Ru] - Видеорегистратор
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852116.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеорегистратор.Разработчик: RubberBigPepperЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:150830372BBBE638A25F148A354D994F80773C81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001279   (851613) от 29.03.2016
-
-Пираты перебираются в Telegram — появились боты для торрент-трекеров
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_851613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Торрент-трекер NNMClub в сети Telegram
-Похоже, что пиратские ресурсы, заблокированные на территории России, начали массово перебираться в мессенджер Telegram. Бета-версию бота запустил торрент-треккер NNMClub, а также свою версию готовит Ru Tracker.После набора определённой команды пользователь получает так называемую magnet-ссылку, с помощью которой можно скачать (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001428   (851604) от 29.03.2016
-
-Mortal Kombat: Komplete Edition (2011) [PS3] [EUR] 4.30 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спустя годы легендарная серия Mortal Kombat возвращается такой, какой ее помнят и ждут тысячи игроков, в игре Mortal Kombat. Komplete Edition. Это жестокая, кровавая и беспощадная битва не на жизнь, а на смерть, битва, в которой может победить только сильнейший. Столетия понадобились Шао Кану, чтобы одержать верх над Рейденом и его союзниками. Однако перед лицом (   Читать дальше...   )Тип издания: UnofficialРазработчик: NetherRealm StudiosЖанр: Arcade (Fighting), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8A7AF9D2022E0D1CF9A75B6CF9C2C5862D25C91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110527   (851400) от 03.03.2017
-
-Total Commander 9.0a (x86) Freemen 17.3 Slim RePack (& Portable) by notn [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851400.jpg" />
-</div>
-
-
-###  Подробнее
-
-Total Commander является самым мощным и стабильным файловым менеджером для Windows с удобным пользовательским интерфейсом. Total Commander продолжает добрую традицию двух-панельных файловых менеджеров, но отличается повышенным удобством и функциональностью, поддерживает плагины, имеет множество встроенных полезных инструментов. В программе предусмотрены функциональные (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5699338A62AC2A650DC3F087D934F669A9E4FEC7
 ```
 
 https://mybot314.ru/tekegram_catalog/

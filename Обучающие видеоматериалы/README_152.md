@@ -1,3 +1,29 @@
+###  Публикация: 1572141   (425509) от 25.08.2022
+
+SideFX, Moeen Sayed | Magic Market - L-Systems (2020) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для того чтобы создать листву, нужно понять L-системы. L-системы используют простые наборы инструкций для генерации систем ветвления и роста. Их можно использовать в сочетании с геометрией для создания растений и деревьев. В этом уроке Вы познакомитесь с основами L-систем и узнаете, как они использовались в создания асcетов листвы для «Магического рынка».Производство: SideFXЖанр: Houdini 18.5Язык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 00:29:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D47BAD9F5E0BE5CC5B30C7FA32A63DB10C37636
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1572142   (425501) от 25.08.2022
 
 SideFX, Alejandro Perez | Intoduction to Creature Fur (2020) PCRec [EN, RU]
@@ -6,7 +32,7 @@ SideFX, Alejandro Perez | Intoduction to Creature Fur (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425501.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ SideFX, Chetal Gazdar | Procedural chess pawn (2021) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425410.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ SideFX, Tyler Bay | Artist Quick Tips (2019) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425400.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ MonsterLessons | Разработка интернет-магазина на Rea
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424994.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424962.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424806.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ OTUS | Компьютерное зрение [Части 1-4] (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424636.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424566.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ JavaBegin | Онлайн библиотека на Spring (2014-2015) PCRec [H.2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424416.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424331.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423757.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ Jillian Michaels | Yoga Inferno (2015) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423605.jpg" />
 </div>
 
 
@@ -327,7 +353,7 @@ Jillian Michaels | Yoga Meltdown (2010) DVDRip
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423597.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ ITVDN | ECMAScript 6 (2017) PCRec [H.264/1080p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423255.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423235.jpg" />
 </div>
 
 
@@ -406,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422875.jpg" />
 </div>
 
 
@@ -432,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422787.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422427.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422413.jpg" />
 </div>
 
 
@@ -513,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422403.jpg" />
 </div>
 
 
@@ -539,7 +565,7 @@ ITVDN | Создание сайта на Vue.js (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422298.jpg" />
 </div>
 
 
@@ -566,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422247.jpg" />
 </div>
 
 
@@ -594,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422111.jpg" />
 </div>
 
 
@@ -622,7 +648,7 @@ Gray Cook | Home Study Course (2011) DVDRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421101.jpg" />
 </div>
 
 
@@ -648,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420569.jpg" />
 </div>
 
 
@@ -662,35 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9CCA4E8E2F15D028D79E3F06D9AC07668EF4465
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494544   (420568) от 27.08.2022
-
-Вердикт Максим | Тотальный игнор. Концентрат (2021) WEB-DL [AD]
-
->>Обучающие видеоматериалы
->>Психология и саморазвитие (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420568.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полный список тем:
-
-- 10 эффектов тотального ИГНОРА
-- Что именно чувствует девушка в тотальном игноре? Новые НЮАНСЫ.(   Читать дальше...   )Жанр: Психология отношенийПродолжительность: 01:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3AC667B1601E279C4575BF33C411969E17D17BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

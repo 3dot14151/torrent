@@ -1,161 +1,3 @@
-###  Публикация: 1210726   (778021) от 05.03.2018
-
-Валерий Яценков | Java за неделю. Вводный курс (2018) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вводный курс для начинающих изучать язык Java. Быстрый и ощутимый результат — лучший стимул в обучении. Занимаясь 1—2 часа по вечерам, уже через неделю вы будете писать полноценные оконные приложения с графическим интерфейсом.
-Книга содержит примеры с пошаговыми пояснениями. Приведен список литературы для желающих продолжить обучение. Работа с учебными проектами (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EB64849C6976AD4EE9A6CBDD00637019C47BFE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013124   (777877) от 03.05.2016
-
-Подборка книг | Настройки BIOS [8 книг] (2004-2009) [DJVU, PDF, CHM]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777877.jpg" />
-</div>
-
-
-###  Подробнее
-
-BIOS (Basic Input/Output System) - базовая система ввода-вывода. Так расшифровывается эта загадочная и манящая надпись. Что же на самом деле представляет собой эта система ввода-вывода и для чего она нужна? Это и многое другое вы узнаете из книг о BIOS.На самом деле, BIOS это ничто иное, как низкоуровневое программное обеспечение, которое хранится в отдельном чипе (   Читать дальше...   )Жанр: Компьютерная литератураФормат: DJVU, PDF, CHM
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D61151873047B8F1ABA86C224659B743FCAA4F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013554   (777097) от 05.05.2016
-
-No Starch Press | Humble Bundle - Hacking by No Starch Press [13 книг] (2003-2016) [PDF, EPUB] [En]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777097.jpg" />
-</div>
-
-
-###  Подробнее
-
-Взломайте планету! Один из лучших путей для укрепления навыков владения компьютером - это понимать что происходит в самом низу.
-С помощью этого комплекта книг Вы можете изучить все аспекты компьютерных технологий: от Phython и Arduino до Bitcoin!Жанр: Computer Science, Компьютерная литература, ВзломФормат: PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AD4CC49616D0A2C193F0BD66912A027F14F3DC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211836   (776664) от 09.03.2018
-
-Кишори Шаран | Java 9. Полный обзор нововведений. Для быстрого ознакомления и миграции (2018) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776664.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассмотрены все нововведения в Java 9. Приведена разработка приложений с использованием системы модулей. Описаны измененная модульная структура образа среды выполнения JDK/JRE, новые фабричные методы для создания коллекций, уведомления процессора об активном ожидании с целью оптимизации потребления ресурсов, новый API платформенно-зависимого рабочего стола, (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D636A69B8CBC726ABDA297DB71A39E137D3D6D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014332   (776323) от 07.05.2016
-
-Д.Л. Шиндер | Основы компьютерных сетей (2002) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга призвана помочь читателю понять основы, концепции и принципы реализации вычислительных сетей. В книгу включено также краткое введение в выполняющиеся на сетевых компьютерах клиентские и серверные операционные системы. В книгу включены история развития вычислительных сетей, принятая терминология, теория сетей, установившиеся стандарты и способы реализации (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47918B0ADFD56600B58F41FE8686F3665C0B64CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277566   (775639) от 21.01.2019
-
-Андрей Букреев | Миллион идей для компьютерных игр (2019) [PDF, RTF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обязательно тем, кому от 18 до 22. Важно для 30+. Для 40+ точно не помешает, плюс еще и дети растут. Это уже «медицинский» факт – рынок труда (профессий соответственно) в ближайшие 5 лет изменится до неузнаваемости. Тут нет злой воли – просто мы все выросли. Книга будет полезна не только разработчикам компьютерных игр, но и маркетологам и специалистам по рекламе. (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D27FAB53A0DEA2C4F00F658B10D235D85F693FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277703   (775566) от 21.01.2019
 
 Вадим Алджанов | ИТ-архитектура от А до Я. Комплексное решение (2018) [PDF]
@@ -164,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775566.jpg" />
 </div>
 
 
@@ -191,7 +33,7 @@ Rene Molenaar | How to master. CCNP route [3 книги] (2013) [PDF] [En]
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775520.jpg" />
 </div>
 
 
@@ -217,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775510.jpg" />
 </div>
 
 
@@ -243,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774853.jpg" />
 </div>
 
 
@@ -269,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774068.jpg" />
 </div>
 
 
@@ -296,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773830.jpg" />
 </div>
 
 
@@ -322,7 +164,7 @@ Anthony Minessale/Энтони Минессал | FreeSWITCH Cookbook (2012) [PD
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773692.jpg" />
 </div>
 
 
@@ -348,7 +190,7 @@ Anthony Minessale / Энтони Минессал и др.| FreeSWITCH 1.2 (2013
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773683.jpg" />
 </div>
 
 
@@ -374,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772733.jpg" />
 </div>
 
 
@@ -402,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771548.jpg" />
 </div>
 
 
@@ -428,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771459.jpg" />
 </div>
 
 
@@ -454,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771455.jpg" />
 </div>
 
 
@@ -480,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771213.jpg" />
 </div>
 
 
@@ -506,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770610.jpg" />
 </div>
 
 
@@ -532,7 +374,7 @@ Ninja Squad | Become A Ninja With Angular / Стать ниндзя с Angular (
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768885.jpg" />
 </div>
 
 
@@ -558,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768723.jpg" />
 </div>
 
 
@@ -584,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768305.jpg" />
 </div>
 
 
@@ -610,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767434.jpg" />
 </div>
 
 
@@ -636,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767429.jpg" />
 </div>
 
 
@@ -662,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767225.jpg" />
 </div>
 
 
@@ -675,6 +517,163 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F4688FCE9E9604DBD74EBF73E96C6A74B57D073
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213250   (767223) от 18.03.2018
+
+Иван Абрамовский | Программист-предприниматель. Пошаговый алгоритм создания бизнеса в интернете для программиста (2018) [PDF, RTF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга для программистов, которые хотят осчастливить человечество своими гениальными разработками и при этом организовать прибыльный бизнес! Абрамовский Иван — основатель успешной ИТ-компании «Органайзер ЛидерТаск», автор видео курсов по «Тайм-менеджменту», выстроил онлайн-бизнес с нуля и готов поделиться всеми секретами в этой книге. Сейчас планировщик «ЛидерТаск» (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F85A8D404092090CF2CE42A7E21D5CAC97795530
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 839241   (767163) от 18.03.2018
+
+Николай Шмырёв и др. | GIMP (2013) [CHM] [Multi/Ru]
+
+>>Компьютерная литература
+>>2D графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767163.jpg" />
+</div>
+
+
+###  Подробнее
+
+GIMP — многоплатформенное программное обеспечение для работы над изображениями. GIMP является акронимом, означающим GNU Image Manipulation Program. Редактор GIMP пригоден для решения множества задач по изменению изображений, включая ретушь фотографий, объединение и создание изображений.
+ Данное справочное пособие является off-line версией Справки программы.Жанр: Справочное пособиеФормат: CHM
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCF9A648AEFDCD216442C683129018029EDFA4D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213777   (767158) от 18.03.2018
+
+Роман Григорьев | Задачник по PHP (с решениями) (2018) [PDF, RTF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767158.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга написана для начинающих программистов. Ко всем задачам есть решения. Присутствуют задачи повышенной сложности.Жанр: ПрограммированиеФормат: PDF, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB19BBA6B68BA8224B21D497B0192ED259E6BB7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125614   (766880) от 16.04.2017
+
+Е.Д. Баран | LabVIEW FPGA. Реконфигурируемые измерительные и управляющие системы (2009) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766880.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге представлено описание нового модуля графической среды проектирования LabVIEW. С помощью этого модуля, расширяющего концепцию виртуальных инструментов в область разработки аппаратных средств, можно создавать собственные каналы ввода-вывода и устройства обработки данных, функциональность и характеристики которых определяются не на заводе изготовителе, а инженером-разработчиком (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9270814436F86EA013D35894737695678FE314C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279097   (766627) от 28.01.2019
+
+И.Б. Аббасов | Промышленный дизайн в AutoCAD 2018, 4-е издание (2018) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766627.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие предназначено для освоения графической системы AutoCAD в рамках изучения курса "Инженерная и компьютерная графика" студентами машиностроительных направлений и дизайнеров. При написании книги использован многолетний опыт преподавания автора в области инженерно-графических дисциплин. Издание содержит методические материалы по созданию, редактированию (   Читать дальше...   )Жанр: Графика. Дизайн. ПроектированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C64EF713E7084405E227CBF31D9DC617FCAF21D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213921   (766523) от 19.03.2018
+
+Кенни Ламмерс | Шейдеры и эффекты в Unity. Книга рецептов (2014) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766523.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге раскрываются секреты разработки тендеров в Unity - самом популярном в мире мультиплатформенном инструменте для разработки двух- и трёхмерных игр и приложений. Описываются базовые модели освещения, создание эффектов с помощью текстур, анимация моделей в реальном времени, настройка тендеров для мобильных устройств, а также использование ностэффектов в гейм-плее. (   Читать дальше...   )Жанр: Графика, дизайн, мультимедиаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3BECC4B4E5720BA256858B82723F5CA30E7AB30
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,108 @@
+###  Публикация: 1705375   (113932) от 08.03.2024
+
+Календарь рабочих смен v2.0.6.8 Mod by Timozhai [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113932.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это приложение предназначено для рабочих смен и людей, которым необходимо организовывать свою повседневную работу, чтобы не пропустить ни одной встречи.
+Вы можете быстро и легко контролировать ваш рабочий день и ваши доходы благодаря нашей статистической системе.Тип издания: ProРелиз состоялся: 23.12.2023Разработчик: LRHSoftПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:454CF4CB10C763E458A4E972FAD1C21FF90EEE89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705361   (113926) от 08.03.2024
+
+ToonMe v0.7.1 Mod by Mixroot [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотите превратить ваше селфи в классный мультяшный портрет всего за секунду? Искусственный интеллект к вашим услугам! Немного магии и ToonMe превратит ваше фото в мультяшный рисунок или векторный портрет. То, для чего раньше требовалось несколько дней кропотливой работы профессионального художника, теперь доступно каждому! С ToonMe художником станете выТип издания: ProРелиз состоялся: 07.03.2024Разработчик: Linerock Investments LTDПоддерживаемая ОС: Android 5.1+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1626454378356D6523520ACF12B89B36BF11CBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705393   (113912) от 08.03.2024
+
+Moon+ Reader Pro v9.2 b902001 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Moon+reader относится к категории универсальных читалок, поддерживающих большое количество форматов и станет хорошим дополнением для вашего Android смартфона или планшета. Приложение поддерживает форматы EPUB, PDF, DJVU, AZW3, MOBI, FB2, PRC, CHM, CBZ, CBR, UMD, DOCX, ODT, RTF, TXT, HTML, MD(MarkDown), WEBP, RAR, ZIP и OPDS. Наличие голосового движка в платной версии (   Читать дальше...   )Тип издания: Pro / Mod + PaidРелиз состоялся: 03.02.2024Разработчик: Moon+Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33D78C2D299C661E87693B4685B919F5898CBC34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705349   (113903) от 08.03.2024
+
+ToonApp: AI Cartoon Photo Editor, Cartoon Yourself v2.6.52 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113903.jpg" />
+</div>
+
+
+###  Подробнее
+
+ToonApp карикатура фоторедактор лучшее приложение для превращения вашей картинки в мультфильм. Создатель мультфильмов предлагает удивительные фильтры AI для изображений, чтобы превратить фотографию в мультфильм. Вы даже можете сделать из фотографий карикатуры, чтобы превратить их в персонажей аниме. Чтобы завершить редактирование фотографий, добавьте впечатляющий (   Читать дальше...   )Тип издания: ProРелиз состоялся: 07.03.2024Разработчик: Lyrebird StudiosПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAB7565F372E7EAE2821E8B30255592BD24F70E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705368   (113891) от 08.03.2024
 
 Strava: бег, велоезда, хайкинг v350.7 Mod by ReVanced Team [Ru/Multi]
@@ -6,7 +111,7 @@ Strava: бег, велоезда, хайкинг v350.7 Mod by ReVanced Team [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113891.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ Simply Piano: Learn Piano Fast v7.24 Mod by youarefinished [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113210.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ Strava: бег, велоезда, хайкинг v351.15 Mod by ReVanced Team [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113189.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ KineMaster - Video Editor & Maker v7.4.4.32358.GP Mod by AppKaMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112875.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112619.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ Auto blur: Авторазмытие v2.6.7 Mod by Dymonyxx [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112426.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112422.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ Background Video Recorder Pro v10.0.31 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112387.jpg" />
 </div>
 
 
@@ -214,7 +319,7 @@ AirBrush: ИИ Фоторедактор v6.3.3 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112376.jpg" />
 </div>
 
 
@@ -240,7 +345,7 @@ DailyRoads Voyager v8.1.1 (54) Mod by Eco19 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112279.jpg" />
 </div>
 
 
@@ -266,7 +371,7 @@ VivaVideo Video Editor v9.15.0 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112193.jpg" />
 </div>
 
 
@@ -292,7 +397,7 @@ OfficeSuite Pro + PDF v14.4.51651 Extra Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111852.jpg" />
 </div>
 
 
@@ -318,7 +423,7 @@ CalyxVPN 1.3.0RC1 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111843.jpg" />
 </div>
 
 
@@ -345,7 +450,7 @@ Photo Studio PRO 2.7.3.2445 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111740.jpg" />
 </div>
 
 
@@ -371,7 +476,7 @@ Adobe Lightroom - Фоторедактор 9.2.2 (ARM64) Mod by Balatan [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111699.jpg" />
 </div>
 
 
@@ -397,7 +502,7 @@ Adobe Lightroom - Фоторедактор 9.2.2 (ARM64) Mod by frost_ua [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111686.jpg" />
 </div>
 
 
@@ -423,7 +528,7 @@ Adobe Lightroom - Фоторедактор 8.2.3 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111685.jpg" />
 </div>
 
 
@@ -449,7 +554,7 @@ DailyArt - Daily Dose of Art v3.2.3 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111633.jpg" />
 </div>
 
 
@@ -475,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111480.jpg" />
 </div>
 
 
@@ -501,7 +606,7 @@ Stickman: рисовать мультики v5.2s Mod by HexonMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111479.jpg" />
 </div>
 
 
@@ -527,7 +632,7 @@ PdfX 1.0.8 Mod by vadj [En/Es]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111473.jpg" />
 </div>
 
 
@@ -553,7 +658,7 @@ PdfX 1.0.8 Mod by Garant68 [En/Es]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111446.jpg" />
 </div>
 
 
@@ -564,114 +669,6 @@ PdfX - это новое приложение, которое позволяет
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B09C69897F7B7744843CA6288D15ECEDC4ECDB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717182   (111280) от 18.04.2024
-
-PicWish: AI Photo Editor v1.6.10 Mod by derrin [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Попробуйте самое простое приложение для редактирования фотографий с искусственным интеллектом! Удалите фон и размытие фотографии, чтобы ваши продукты выделялись! Вот ваши полностью автоматические функции ластик фона, улучшитель фотографий и ластик фотографий и ретушь. Никаких навыков не требуется. Супер простой в использовании.
-PicWish — фоторедактор с искусственным (   Читать дальше...   )Тип издания: ModРелиз состоялся: 18.04.2024Разработчик: WangxuTechПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2E9BFBF965CECDA80F3E8D00867932BC9578441
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717459   (111218) от 20.04.2024
-
-Фортепиано Сольфеджио / Piano Ear Training Pro ver.Improved Help and Support (140) [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Piano Ear Training Pro - тренажер для слуха.
-• Подходит для начинающих и продвинутых музыкантов со всеми необходимыми упражнениями для тренировки слуха на разных уровнях.
-• Быстро развивайте слуховые навыки, персонализируя свое обучение, сосредотачиваясь на определенных аккордах, интервалах, прогрессиях, гаммах и т. Д.
-• Отслеживайте прогресс по мере вашего повышения (   Читать дальше...   )Тип издания: Pro / PaidРелиз состоялся: 05.02.2024Разработчик: Learn To MasterПоддерживаемая ОС: Android 6.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D837D44839402EC391ED6B3A04665152A6B43AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717510   (111210) от 20.04.2024
-
-PREQUEL: Редактор фото и видео v1.76.0 Mod by youarefinished [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111210.jpg" />
-</div>
-
-
-###  Подробнее
-
-PREQUEL — это фоторедактор с огромным количеством инструментов для профессионального редактирования фотографий. Большой функционал приложения поможет вам создавать потрясающие фотографии. Материал для редактирования можно брать как из внутренней памяти, так и непосредственно с камеры телефона в режиме реального времени. В приложении PREQUEL в вашем распоряжении будет (   Читать дальше...   )Тип издания: Pro / GoldРелиз состоялся: 19.04.2024Разработчик: Prequel Inc.Поддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13E76E3FA1A54D75600C4C1D7ED5986661B92491
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717462   (111203) от 20.04.2024
-
-Самоучитель на бас-гитаре / Bass Guitar Tutor Pro ver.Improved Help and Support (163) [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111203.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bass Guitar Tutor Pro - приложение, с помощью которого вы будете учится играть на бас-гитаре! В приложении содержится более 150 песен, а также гибкие настройки бас-гитары под вас. Для начала используйте тренажер для новичков, отрегулируйте высоту грифа и ширину. Освойте шаблоны - регги, хард-рок и пр. Изучайте гаммы и пробуйте импровизировать в любой тональности.Тип издания: Pro / PaidРелиз состоялся: 07.02.2024Разработчик: Learn To MasterПоддерживаемая ОС: Android 7.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8A2238738CF6F6462ADA25E0B6ED12386255A98
 ```
 
 https://mybot314.ru/tekegram_catalog/

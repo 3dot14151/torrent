@@ -1,3 +1,32 @@
+###  Публикация: 1652602   (206152) от 16.08.2023
+
+VA - Piano Black & White (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alain Lefèvre - 2 Arabesques, L. 66 No. 1 in E Major (4:33)
+02. Matteo Myderwyk - Tristes (2:44)
+03. Dalal - Nuvole bianche (6:26)
+04. Bertrand Chamayou - Le Tombeau de Couperin, M. 68 V. Menuet (4:50)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:40:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A05767C349530BDA2263C0FAD7B9DF709B6F2FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1649317   (195092) от 27.07.2023
 
 Kirill Kondrashin, Moscow Philharmonic Orchestra - Shostakovich: Symphony No. 5 (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -6,7 +35,7 @@ Kirill Kondrashin, Moscow Philharmonic Orchestra - Shostakovich: Symphony No. 5 
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195092.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Kozeluch, Marius Bartoccini & Ilario Gregoletto - Complete Music For Piano 4-Han
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193917.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Borodin / А.Бородин - Prince Igor / Князь Игорь (2001) 3 CD, D
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193881.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ André Rieu - Voila! The Music of André Rieu (2023) [FLAC|Lossless|WEB-DL|track
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193811.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Greatest Hits of Piano Music (2022) [FLAC|Lossless|WEB-DL|tracks] <Classica
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191020.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Andrea Bocelli - My Christmas (2022) Fireside Edition [FLAC|96/24|Lossless|WEB-D
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190264.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Andrea Balzani, Francesco Digilio - Wings of Wind (2022) [FLAC|Lossless|WEB-DL|t
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188801.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Max Richter, Vivaldi - The New Four Seasons Vivaldi Recomposed (2022) [FLAC|Loss
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188723.jpg" />
 </div>
 
 
@@ -239,7 +268,7 @@ Raphael Feuillatre - Visages Baroques (2023) [FLAC|Lossless|image + .cue] <Class
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185935.jpg" />
 </div>
 
 
@@ -268,7 +297,7 @@ J. S. Bach, Frank Peter Zimmermann - Sonatas & Partitas Vol.1 (2021) [FLAC|Lossl
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180961.jpg" />
 </div>
 
 
@@ -297,7 +326,7 @@ David Garrett - Alive - My Soundtrack (2020) 2CD Deluxe Edition [FLAC|Lossless|i
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180631.jpg" />
 </div>
 
 
@@ -326,7 +355,7 @@ The Piano Guys - 10 (2020) 2CD [FLAC|Lossless|tracks + .cue] <Classical Crossove
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179537.jpg" />
 </div>
 
 
@@ -355,7 +384,7 @@ Yevgeny Kissin, Berg, Chopin, Gershwin, Khrennikov - The Salzburg Recital (2022)
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177921.jpg" />
 </div>
 
 
@@ -384,7 +413,7 @@ VA - The Best 50 of Piano Classical Music (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176580.jpg" />
 </div>
 
 
@@ -413,7 +442,7 @@ Consuelo - Золотое сердце России (2023) [FLAC|Lossless|WEB-DL
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175804.jpg" />
 </div>
 
 
@@ -442,7 +471,7 @@ Igor Ruhadze, Alexandra Nepomnyashchaya - Geminiani: Violin Sonatas, op.1 (2022)
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174467.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ Sofiane Pamart - Noche (2023) [FLAC|Lossless|image + .cue] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171008.jpg" />
 </div>
 
 
@@ -500,7 +529,7 @@ Ensemble Labyrinthus - Carmina de morte (2014) [MP3|320 Kbps] <classical, chambe
 >>Камерная
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169826.jpg" />
 </div>
 
 
@@ -529,7 +558,7 @@ Maria Callas - DIVINA : Maria Callas (Live) (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169011.jpg" />
 </div>
 
 
@@ -558,7 +587,7 @@ PALLADIUM Electric Band - Love Planet (2014) [MP3|320 Kbps] <Instrumental, Class
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167357.jpg" />
 </div>
 
 
@@ -587,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166061.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ Andrea Bocelli - A Family Christmas (2022) [FLAC|96/24|Lossless|WEB-DL|tracks] <
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165838.jpg" />
 </div>
 
 
@@ -645,7 +674,7 @@ Orchestre National De France - Georges Bizet: Carmen (1984) 3CD [FLAC|Lossless|i
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160587.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ Bela Bartok - Bartok Complete Edition (2000) 29CD [APE|Lossless|image + .cue]<Cl
 >>Полные собрания сочинений (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160493.jpg" />
 </div>
 
 
@@ -703,7 +732,7 @@ Johannes Brahms Complete Edition (1996) 46CD Box Set [APE|Lossless|image + .cue]
 >>Полные собрания сочинений (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160490.jpg" />
 </div>
 
 
@@ -717,35 +746,6 @@ Performer:  Andreas Schmidt (Baritone), Barbara Bonney (Soprano)(   Читать
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F84618034D694EFA1C43CF917F1762B3DD5840F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 38724   (160489) от 07.11.2023
-
-Handel - The Masterworks (2004) 40CD Box [FLAC|Lossless|image + .cue] <Classic>
-
->>Классика
->>Полные собрания сочинений (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160489.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1
-	 Handel - Masterworks Disc 1.cue (3.5 kilobyte)
-	 Handel - Masterworks Disc 1.flac (287.27 megabyte)
-	 Masterworks Disc 1.log (2.21 kilobyte)(   Читать дальше...   )Жанр: ClassicПродолжительность: 38:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE8A0DEC3C65141DA66BF3571D30D980E492B67D
 ```
 
 https://mybot314.ru/tekegram_catalog/

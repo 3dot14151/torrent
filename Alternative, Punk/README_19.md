@@ -6,7 +6,7 @@
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534781.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Rev Theory - The Revelation (2016) [MP3|320 Kbps] <Alternative Metal>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534662.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Asian Dub Foundation - More Signal More Noise (2015) [OGG| 456-528 кб/с]<Alte
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533318.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Erra - Neon (2018) [MP3|320 Kbps] <Progressive Metalcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533229.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Kurt Vile - b'lieve i'm goin down... (2015) [MP3|320 кб/с]<Alternative, Indie
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531713.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ The Stranges - Madhouse (2016) [MP3|320 Kbps] <Alternative Rock, Alternative Met
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530887.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ ON AN ON - Give In (2013) [OGG| 437-595 кб/с]<Alternative, Indie, Dream Pop, 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529946.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ ON AN ON - And The Wave Has Two Sides (2015) [OGG| 459-517 кб/с]<Alternative,
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529941.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Nick Cave & The Bad Seeds - Skeleton Tree (2016) [MP3|320 Kbps] <Alternative Roc
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529000.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Greg Puciato - Mirrorcell (2022) [MP3|320 Kbps] <Mathcore, Grunge, Sludge, Indus
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524414.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ The Bollock Brothers - Les Genies du Rock - God Save The Queen (1995) [MP3|320 �
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524115.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Hanna Turi - Tracks in the Water (2015) [MP3|320 кб/с]<Piano Rock, Alternativ
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523328.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Dead Letter Circus - Aesthesis (2015) [OGG| 490-512 кб/с]<Alternative Rock, P
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523292.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Linkin Park - Chiba City Japan Live (2009) [MP3|320 kb/s]<Alt.Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_523131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_523131.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Our Dying World - 2 Albums (2019-2022) [MP3|320 Kbps] <Symphonic, Thrash, Death 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522717.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ New Politics - Vikings (2015) [OGG| 411-540 кб/с]<Alternative, Indie Pop Rock
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521780.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Young Guns - Ones and Zeros (2015) Deluxe Edition [MP3|320 кб/с]<Alternative 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521711.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Ben Folds Five - Ben Folds Five (1995) [OGG| 469-511 кб/с]<Alternative, Class
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519600.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Ben Folds Five - Whatever And Ever Amen (1997) Special Expanded Edition /2005, E
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519592.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Tokyo Shoegazer - Crystallize (2011) [MP3|320 кб/с]<Alternative Post-Rock / S
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519310.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Failure - Fantastic Planet (1996) [OGG| 477-552 кб/с]<Alternative Rock, Space
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518503.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Failure - The Heart Is a Monster (2015) [OGG| 391-551 кб/с]<Alternative Rock,
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518502.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ King Gizzard and the Lizard Wizard - I'm In Your Mind Fuzz (2014) [OGG| 487-614 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518488.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ P.O.D. - The Awakening (2015) [MP3|320 кб/с]<Rap Metal, Nu Metal>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518398.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ King Gizzard and the Lizard Wizard - Quarters! (2015) [OGG| 493-548 кб/с]<Alt
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518194.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Seether - Si Vis Pacem, Para Bellum (2020) 2CD, Deluxe Edition, 2022 [MP3|320 Kb
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517719.jpg" />
 </div>
 
 

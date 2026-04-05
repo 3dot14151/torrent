@@ -1,81 +1,3 @@
-###  Публикация: 1852833   (1056534) от 12.02.2026
-
-С.А. Молодяков, А.В. Милицын | Алгоритмы работы с мультимедийными данными в telegram-боте (100 примеров на Python) (2024) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056534.jpg" />
-</div>
-
-
-###  Подробнее
-
-В монографии излагаются вопросы постоения программ редактирования медийных данных, которые реализованы в виде telegram-бота. В представленных алгоритмах редактирования аудио и видео файлов используются функции библиотек OpenCV, FFmpeg и другие. Приведены 100 примеров полностью рабочих программ, написанных на языке Python. Примеры разделены по главам: алгоритмы преобразования (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ПОЛИТЕХ-ПРЕССФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7175079FB6C8CF96E70982525B61996FB3969D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852832   (1056533) от 12.02.2026
-
-П.А. Головинский, А.А. Дробышев, Е.А. Михин | Основы математического моделирования и оптимизации на языке Python. Учебно-методическое пособие (2023) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056533.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии представлены основные методы применения языка Python для решения задач моделирования, оптимизации и обработки данных. Каждая рассмотренная тема включает краткие теоретические сведения, подробный разбор практической работы, индивидуальные варианты заданий и контрольные вопросы по теме.Жанр: Компьютерная литератураИздательство: Знание-МФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9540679B91907EC20A76FA57C3EF5D24E26E9C7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852791   (1056529) от 12.02.2026
-
-И.В. Судакевич | Абсолютный минимум знаний Java-разработчика уровня Junior. Пособие для подтверждения IT-компетенции (2025) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056529.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подтверждение IТ-компетенции важно по множеству причин, вплоть до предельно формальных, например, в тендере на получение заказа может стоять требование, мол, компания-претендент обязана иметь такой-то процент разработчиков либо сертифицированных, либо с подтвержденной компетенцией. Сюда же можно отнести валидацию скиллов, чуточку побольше возможностей для карьерного (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: СамиздатФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF0BDBDF8C06A77A3218F431169BD0A267FDEBC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1852803   (1056528) от 12.02.2026
 
 Сэм Лау, Джозеф Гонсалес, Дебора Нолан | Изучаем Data Science. Обработка, исследование, визуализация и моделирование данных с помощью Python (2025) [PDF]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056528.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056527.jpg" />
 </div>
 
 
@@ -137,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056525.jpg" />
 </div>
 
 
@@ -164,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056524.jpg" />
 </div>
 
 
@@ -190,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056523.jpg" />
 </div>
 
 
@@ -216,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056320.jpg" />
 </div>
 
 
@@ -234,59 +156,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852752   (1056317) от 10.02.2026
-
-А.Н. Жуков | Хакерская самооборона. Приемы обнаружения и предотвращения хакерских атак (2025) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1056317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена практическим методам активной киберзащиты, основанным на анализе действий злоумышленника и применении принципов кибер-самообороны. Рассматриваются подходы к выявлению и минимизации атак на различных этапах проникновения — от внешней разведки до активности во внутреннем периметре сети. Показано, как использовать методы защиты, не требующие административных (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: БХВ-ПетербургФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2380AFE3BEE6144C8DB1C8FACA31DE17C6C633F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852739   (1056314) от 10.02.2026
-
-А.А. Чайка | Практическая безопасность Linux (2026) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1056314.jpg" />
-</div>
-
-
-###  Подробнее
-
-Миф о том, что Linux по умолчанию безопасен, давно пора развеять. Эта книга — подробное практическое руководство по защите Linux-систем: от архитектуры ядра и модели прав доступа до расследования инцидентов безопасности. Она предоставляет все необходимые знания и инструменты для эффективной защиты операционной системы.
-Издание ориентировано на системных администраторов, (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: БХВ-ПетербургФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8B74A156144E2B86DA54D1F2E5AFD138A384ED6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1852866   (1056290) от 10.02.2026
 
 Jennifer Robbins | Learning Web Design. A Beginner's Guide to HTML, CSS, JavaScript, and Web Images. 6th Edition (2025) [PDF] [EN]
@@ -295,7 +164,7 @@ Jennifer Robbins | Learning Web Design. A Beginner's Guide to HTML, CSS, JavaScr
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056290.jpg" />
 </div>
 
 
@@ -323,7 +192,7 @@ Paul McFedries | Build a Website with ChatGPT. No coding experience necessary (2
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056289.jpg" />
 </div>
 
 
@@ -352,7 +221,7 @@ Yohan J. Rodriguez | The C# and .NET Interview Compendium. 700+ Questions and Co
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056154.jpg" />
 </div>
 
 
@@ -381,7 +250,7 @@ Joyce Farrell | Microsoft Visual C#. Introduction to Object Oriented Programming
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056153.jpg" />
 </div>
 
 
@@ -407,7 +276,7 @@ Chandradev Prasad Sah | Ultimate Blazor WebAssembly for Web Development. Unlock 
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056152.jpg" />
 </div>
 
 
@@ -436,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056151.jpg" />
 </div>
 
 
@@ -462,7 +331,7 @@ Tom Graves, Slade Beard | Doing Enterprise-Architecture. A Maturity-Model Guide 
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056150.jpg" />
 </div>
 
 
@@ -490,7 +359,7 @@ Julian de Ruiter, Ismael Cabral, Kris Geusebroek и др. | Data Pipelines with 
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055903.jpg" />
 </div>
 
 
@@ -516,7 +385,7 @@ Jon Emch, Diana Muresan, Travis Ormsby | Getting to Know ArcGIS Enterprise (2025
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055902.jpg" />
 </div>
 
 
@@ -544,7 +413,7 @@ Baihan Lin | Privacy and Security for Large Language Models. Hands-On Privacy-Pr
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055898.jpg" />
 </div>
 
 
@@ -570,7 +439,7 @@ Tom Taulli | AWS Certified Cloud Practitioner (CLF-C02) Study Guide. In-Depth Ex
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055896.jpg" />
 </div>
 
 
@@ -596,7 +465,7 @@ Shubham Jain | Ultimate Next.js for Modern Web Applications. Master Modern Web D
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055895.jpg" />
 </div>
 
 
@@ -625,7 +494,7 @@ Daniel Gomez Blanco | Practical OpenTelemetry. Adopting Open Observability Stand
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055894.jpg" />
 </div>
 
 
@@ -651,7 +520,7 @@ Yvonne Wilson, Abhishek Hingnikar | Solving Identity Management in Modern Applic
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055892.jpg" />
 </div>
 
 
@@ -679,7 +548,7 @@ Jeremy Gibson Bond | Introduction to Game Design, Prototyping, and Development. 
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055891.jpg" />
 </div>
 
 
@@ -692,6 +561,136 @@ If you want to design and develop games, there is no substitute for strong, hand
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCF72CB7A2D285B7CE6E42AAB2887B5CF5E2A906
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852634   (1055890) от 08.02.2026
+
+Milecia McGregor | Full Stack JavaScript Strategies. The Hidden Parts Every Mid-Level Developer Needs to Know. 1st Edition (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055890.jpg" />
+</div>
+
+
+###  Подробнее
+
+As a working software developer, you know how to complete your tasks with solid code, whether it's on the frontend or backend. Now you're ready to move to the next level in your career, and you need to understand the subtle yet deep skills it takes to become a senior developer. This practical book shows you everything it takes to create a full-stack web application (   Читать дальше...   )Жанр: Web Services, JavaScript Programming, Computer Systems Analysis & DesignЯзык: АнглийскийИздательство: O’ReillyФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5AC2F53BBE625FF3503F36DE5B8D48BBA5B6249
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852631   (1055889) от 08.02.2026
+
+Oswald Campesato | Transformer, BERT, and GPT. Including ChatGPT and Prompt Engineering (MLI Generative AI Series). 1st Edition (2024) [PDF] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055889.jpg" />
+</div>
+
+
+###  Подробнее
+
+This book provides a comprehensive group of topics covering the details of the Transformer architecture, BERT models, and the GPT series, including GPT-3 and GPT-4. Spanning across ten chapters, it begins with foundational concepts such as the attention mechanism, then tokenization techniques, explores the nuances of Transformer and BERT architectures, and culminates (   Читать дальше...   )Жанр: Artificial Intelligence, Artificial Intelligence Expert Systems, Natural Language ProcessingЯзык: АнглийскийИздательство: Mercury Learning and InformationФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A473EFBA5DFEB0273BAB63C8390EFAFFBCCA79A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852624   (1055887) от 08.02.2026
+
+Sergio Pereira | Generative AI for Software Development. Building Software Faster and More Effectively (2025) [EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055887.jpg" />
+</div>
+
+
+###  Подробнее
+
+How does Generative AI impact software development? In this practical guide, author Sergio Pereira shows you how to use this new technology to write better code in a fraction of the time. You'll learn how to leverage Generative AI at each step of a software feature's lifecycle, from brainstorming implementation ideas to writing and testing code to releasing features (   Читать дальше...   )Жанр: C & C++ Programming, Programming LanguagesЯзык: АнглийскийИздательство: O’ReillyФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0759FA1936A9649D0B0C42C7875638CD27EF6921
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851451   (1055879) от 06.02.2026
+
+Дмитрий Кетов | Внутреннее устройство Linux, 3-е издание (2024) [PDF] [RU]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055879.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 3-м издании описаны механизмы принудительного разграничения доступа и контроля целостности, уникальные для российского защищенного дистрибутива Astra Linux и операционных систем в целом.  Учтены последние изменения в компонентах ОС и обновлены листинги примеров. Расширена глава про сетевую подсистему, добавлена глава по современным средствам трассировки, измерения (   Читать дальше...   )Жанр: Компьютеры и программыЯзык: РусскийИздательство: БХВФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87397BBB729AA1C91988815271F35071E25FF95F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852324   (1055816) от 07.02.2026
+
+А.В. Кондратьев | Разработка Telegram-ботов на Python с нуля (2026) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены практические подходы к созданию Telegram-ботов на языке Python с использованием фреймворка aiogram. Подробно описаны этапы разработки — от установки фреймворка и запуска бота до сложных сценариев взаимодействия с пользователем. Даны рекомендации по безопасному хранению токенов и других данных. Рассмотрены обработка сообщений, команд и аргументов, форматирование (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: БХВ-ПетербургФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA6105F1F27EDDAF8F55F0A255C3BBB9A71DD873
 ```
 
 https://mybot314.ru/tekegram_catalog/

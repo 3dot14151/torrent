@@ -1,136 +1,3 @@
-###  Публикация: 1105808   (875069) от 18.02.2017
-
-Юрий Алянский | Рассказы о Русском музее (1964) [FB2]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875069.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга состоит из популярно написанных очерков, посвященных отдельным произведениям живописи, скульптуры, графики и прикладного искусства, хранящимся в собрании Государственного Русского музея в Ленинграде.Жанр: Научно-популярная литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1F2076784374B3026A6CCCD043353F44256041E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105933   (875032) от 18.02.2017
-
-Курт Эйхенвальд | Песочные замки Уолл-стрит. История величайшего мошенничества (2011) [PDF, EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875032.jpg" />
-</div>
-
-
-###  Подробнее
-
-От издателя: Последние десятилетия ознаменовались крахом незыблемых, казалось бы, корпоративных гигантов, таких как Enron и WorldCom. Скандалы и махинации в крупнейших мировых компаниях, нечистоплотность и алчность их топ-менеджмента уже стали приметой времени и разрушительно повлияли как на мировую экономику в целом, так и на жизнь рядовых граждан. Курт Эйхенвальд, (   Читать дальше...   )Жанр: История. БизнесФормат: PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83A76F1DE844F227D65E6D416787A69176F365FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105275   (875029) от 18.02.2017
-
-К.В. Судаков (ред.) | Физиология. Основы и функциональные системы (2000) [PDF]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875029.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящий курс лекций - результат многолетнего опыта преподавания физиологии на основе теории функциональных систем, предложенной акад. П.К. Анохиным. Курс лекций представлен в 5 разделах.
-В первом излагаются структурно-функциональные основы базисных физиологических процессов - возбуждения, торможения, синаптической передачи, мышечного сокращения, секреции.
-
-Во втором (   Читать дальше...   )Жанр: Физиология, медицинаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09457CB1A00A893801F63E133E2EFF2F75F29270
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105837   (875019) от 18.02.2017
-
-В.В. Капитоненко | Задачи и тесты по финансовой математике (2007) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый раздел этого пособия содержит четыре типа задач: расчетные, аналитические, ситуационные и задачи-тесты. В начале раздела даются основные понятия и формулы, примеры их применения для решения типовых задач. Все задания в зависимости от их характера снабжены ответами или решениями. В пособие включены задачи по основным разделам финансовой математики: потоки платежей, (   Читать дальше...   )Жанр: Математика, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:788389C931A19452C284D2ED508D8963FBDE2A88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105289   (875018) от 18.02.2017
-
-Р. Александер | Биомеханика (1970) [DJVU]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875018.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге в доступной, но вместе с тем строгой форме изложены разделы механики, необходимые для понимания движения животных. При этом каждое положение механики рассматривается на конкретных примерах из зоологии, что очень облегчает восприятие материала. Отдельные главы посвящены соединениям костей и костным рычагам, направлению тяги мышечных волокон, понятию о центре (   Читать дальше...   )Жанр: Биомеханика, спорт, медицинаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FACEA750BF98BD8584786A58EC3A6E819A4970AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1105944   (875015) от 18.02.2017
 
 Нейл Ландау | Дорожная карта шоураннера (2016) [PDF, EPUB]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875015.jpg" />
 </div>
 
 
@@ -165,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874996.jpg" />
 </div>
 
 
@@ -193,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874989.jpg" />
 </div>
 
 
@@ -219,7 +86,7 @@ RCA | Basic Alcohol Tutorial (Руководство для барменов) (2
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874984.jpg" />
 </div>
 
 
@@ -247,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_874952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874952.jpg" />
 </div>
 
 
@@ -275,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874947.jpg" />
 </div>
 
 
@@ -301,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874939.jpg" />
 </div>
 
 
@@ -327,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874874.jpg" />
 </div>
 
 
@@ -353,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874464.jpg" />
 </div>
 
 
@@ -381,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874339.jpg" />
 </div>
 
 
@@ -409,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874330.jpg" />
 </div>
 
 
@@ -435,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874298.jpg" />
 </div>
 
 
@@ -461,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874198.jpg" />
 </div>
 
 
@@ -487,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874187.jpg" />
 </div>
 
 
@@ -513,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874183.jpg" />
 </div>
 
 
@@ -539,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_874137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874137.jpg" />
 </div>
 
 
@@ -566,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_874121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874121.jpg" />
 </div>
 
 
@@ -592,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_874119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874119.jpg" />
 </div>
 
 
@@ -619,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873899.jpg" />
 </div>
 
 
@@ -645,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873837.jpg" />
 </div>
 
 
@@ -671,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873737.jpg" />
 </div>
 
 
@@ -682,6 +549,136 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57310B8B3EEB821B9F6F453CF1505E4A12A6F49D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997245   (873688) от 17.03.2016
+
+М. П. Ивановский | Законы движения (1957) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873688.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга М. Ивановского «Законы движения» знакомит читателей с основными законами механики и с историей их открытия. Наряду с этим в ней рассказано о жизни и деятельности великих ученых Аристотеля, Галилея и Ньютона. Книга рассчитана на школьников среднего возраста. Ввиду скоропостижной смерти автора рукопись осталась незаконченной. Работа по подготовке ее к печати (   Читать дальше...   )Жанр: История, естествознание, механика, науковедениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BB85E3736E91E970F5C259726DB24FA7AA1CCDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106497   (873650) от 19.02.2017
+
+С. Я. Лурье | Геродот (1947) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873650.jpg" />
+</div>
+
+
+###  Подробнее
+
+Понять и представить воззрения человека, которому мы обязаны наиболее достоверным рассказом о Греко-Персидских войнах и одновременно — первой книгой по истории, — и является главной целью нашей работы.Жанр: История, историография, искусствоФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5E8D22E6D8D99FEB1B709E7B725D308467D4635
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997358   (873569) от 17.03.2016
+
+О.Д. Самарин | Гидравлические расчеты инженерных систем (2014) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873569.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассмотрены основные понятия, касающиеся гидравлического режима инженерных систем зданий — отопления, вентиляции, холодного и горячего водоснабжения. Приведены способы инженерного расчета потерь давления в системах водяного отопления, вентиляционных и водопроводных сетях, ориентированные на применение электронных таблиц Ехсеl с максимальным сокращением потребности (   Читать дальше...   )Жанр: СтроительствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73B7214AF220386D73CF03AE8A876BA65B7460D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105268   (873386) от 19.02.2017
+
+Гершел Рафф | Секреты физиологии (2001) [DJVU]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873386.jpg" />
+</div>
+
+
+###  Подробнее
+
+В выходящем на русском языке в серии книг «Секреты» томе по проблемам физиологии дано важное для студента, интерна, ординатора, аспиранта, врача, специалиста целостное описание природы функций, в канву изложения включены данные генетики, биохимии, биофизики, молекулярной биологии. Она формирует современное понимание медико-биологических проблем, основанное на триединстве (   Читать дальше...   )Жанр: Физиология, медицинаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B131EBD61DE870F14321EF84919C7DC50CAD125
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105599   (873380) от 19.02.2017
+
+И.В. Муравов | Возможности организма человека (1988) [PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873380.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказывается о громадных резервах организма человека, о которых люди обычно даже и не подозревают, но которые помогают им выжить в экстремальной ситуации, поддерживают здоровье и обеспечивают долголетие. Даются советы, как при помощи специальной тренировки приумножить функциональные возможности организма человека.Жанр: Анатомия, физиология, медицинаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D367F63DAE9C995B45D80F594481F666B36C1D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

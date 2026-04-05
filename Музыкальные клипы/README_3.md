@@ -6,7 +6,7 @@ Mylene Farmer - Je te dis tout (2013) [1080p] HDRemux
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986705.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985875.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985476.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Зимний марафон № 217: Новогодний Хит Парад
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985469.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Mylene Farmer - A L'Ombre (2012) [1080p] HDRemux
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985465.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ DJ Smash & Семён Слепаков/Откат (2013).HDTV
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983877.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ In This Moments - 17 Music Videos (2007-2020) WEB-DL [H.264/1080p/720p/480p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983443.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Pet Shop Boys - 3 Music Videos (2012-2020) WEB-DL [H.264/720p/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983439.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ VA - Millenium Sexy vol.2 - Сборник видеоклипов (2011) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982331.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Billie Eilish feat. Khalid - Lovely (2018) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982201.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ VA - Millenium Sexy - Сборник популярных видеоклипов
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982166.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - 50 Самых сексуальных музыкальных видео вс
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982158.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ VA - 50 Самых сексуальных музыкальных видео вс
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982061.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Pitbull ft. Shakira - Get It Started (2012) [1080p] HDRemux
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981342.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Shakira ft. Pitbull - Rabiosa (2011) [1080i] HDRemux
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981297.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Stars Of The 90'S (2004-2006) [H.264] DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981079.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981023.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980082.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980079.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Nelly Furtado - Waiting For The Night / Waiting For The Night (2012) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978774.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Katy Perry - Лучшее видео [24 видеоклипа] (2007-2011) DVDRi
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977475.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Architects (UK) - 34 Music Videos (2006-2019) WEB-DL [Н.264/480p/720p/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976658.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976574.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ VA - Зимний марафон № 218: Зимняя волна новинок
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975575.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ U-ka saegusa IN db Film Collection Vol.1 -Shocking Blue- (2003) DVDRip [H.264/48
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975530.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ Behemoth - 6 Music Videos (2011-2020) WEB-DL [H.264|VP9/2560p/1080p/720p-LQ] <De
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975453.jpg" />
 </div>
 
 

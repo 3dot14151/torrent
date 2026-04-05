@@ -1,3 +1,56 @@
+###  Публикация: 1301115   (587223) от 09.05.2019
+
+Йозеф Аугуста , Зденек Буриан | Исчезнувший мир (1979) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор — известный чешский ученый, профессор, доктор наук, знакомит читателей с животным и растительным миром давно прошедших геологических эпох, отдаленных от нашего времени многими миллионами лет.
+Книга переносит нас в глубокие бездны бесконечно далекого прошлого, где столетия были ничем иным, как ничтожными песчинками гигантских песочных часов вечности, и где красота (   Читать дальше...   )Жанр: детская литература, образовательная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A14CF86958C2997A43A1DE02498170784F9D8165
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945770   (587120) от 04.08.2016
+
+Книжная серия | Черный котенок [422 книги] [Обновляемая] (1996-2015) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герои этой серии – школьники – ровесники юных читателей. Они, также как и все обычные дети, учатся в школе, делают уроки, в свободное время ходят на дискотеки и играют в компьютерные игры. А еще они занимаются настоящими расследованиями: сбор улик, слежказа подозреваемыми. Увлекательные, смешные, а порой и опасные приключения. Иногда первоначальные версии рушатся, (   Читать дальше...   )Жанр: Детская проза, детективФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02073A3060B353638FB090E2AF5F8EA388943845
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 357119   (587041) от 01.07.2011
 
 Журнал | Shape Мама №№7-8 [2011] [PDF]
@@ -6,7 +59,7 @@
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587041.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586985.jpg" />
 </div>
 
 
@@ -61,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586978.jpg" />
 </div>
 
 
@@ -89,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586488.jpg" />
 </div>
 
 
@@ -117,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586478.jpg" />
 </div>
 
 
@@ -143,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586336.jpg" />
 </div>
 
 
@@ -169,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586184.jpg" />
 </div>
 
 
@@ -195,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586182.jpg" />
 </div>
 
 
@@ -221,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586120.jpg" />
 </div>
 
 
@@ -247,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586115.jpg" />
 </div>
 
 
@@ -273,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586007.jpg" />
 </div>
 
 
@@ -299,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585837.jpg" />
 </div>
 
 
@@ -326,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585566.jpg" />
 </div>
 
 
@@ -352,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585538.jpg" />
 </div>
 
 
@@ -379,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585521.jpg" />
 </div>
 
 
@@ -405,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585465.jpg" />
 </div>
 
 
@@ -431,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585408.jpg" />
 </div>
 
 
@@ -458,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585344.jpg" />
 </div>
 
 
@@ -486,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584944.jpg" />
 </div>
 
 
@@ -513,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584888.jpg" />
 </div>
 
 
@@ -539,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584815.jpg" />
 </div>
 
 
@@ -565,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584427.jpg" />
 </div>
 
 
@@ -591,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584335.jpg" />
 </div>
 
 
@@ -617,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584114.jpg" />
 </div>
 
 
@@ -628,58 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6E41ACCB474291888DC54FB4EEE6B8565A08BD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919398   (584109) от 18.07.2015
-
-Иннокентий Жуков | Приключения пионеров в Египте (1926) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584109.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Приключения пионеров в Египте" – вторая фантастическая повесть Иннокентия Николаевича Жукова (1875-1948) – скульптора, педагога, писателя, одного из организаторов и идеологов сначала скаутского, а потом пионерского движения. В ней, в отличие от "Путешествие звена «Красной звезды» в страну чудес", пионеры попадают не в будущее, а в прошлое. Через (   Читать дальше...   )Жанр: Приключения, Детская литератураФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7E0472C0E97AA8921D2A021D925587A0AEF65DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919300   (584020) от 18.07.2015
-
-Игорь Стрелков | Сказки Заколдованного Замка (2015) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Даже капризные принцессы иногда становятся романтичными и поклади­стыми девушками. Особенно если они оказываются в заколдованном замке, в котором живут волшебник, дракон, прекрасный рыцарь с портрета и семейство удивительных существ - снулей. Изменится ради принцессы волшебник? И почему одни и те же истории рассказываются разными геро­ями книги по-разному?Жанр: Сказки, Фэнтези для детейФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B5B35C2CA8FA157983100E698C408A8F8BBD29E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 984126   (940333) от 08.02.2016
+
+VA - Anthems II 1991-2009 (2008) 3CD Mixed [FLAC|Lossless|tracks + .cue] <House, Techno, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stardust - Music Sounds Better With You (3:24)
+02. Daft Punk - Around the World (2:29)
+03. Azzido da Bass - Dooms Night (Timo Maas remix) (2:45)
+04. The Prodigy - Firestarter (2:27)(   Читать дальше...   )Жанр: House, Techno, TranceПродолжительность: 01:14:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82F2129D470664D663554C3456C4A70DC00CD030
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092305   (940246) от 11.01.2017
 
 VA - Nu-Discoteque (Finest Nudisco and House) (2017) [FLAC|Lossless|tracks] <House>
@@ -6,7 +35,7 @@ VA - Nu-Discoteque (Finest Nudisco and House) (2017) [FLAC|Lossless|tracks] <Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940246.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Cubicolor - Hardly A Day, Hardly A Night (2020) [FLAC|Lossless|tracks + .cue] <D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939609.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Caribou - Suddenly (2020) [FLAC|Lossless|tracks + .cue] <Experimental, Progressi
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939603.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Maya Jane Coles - Take Flight (2017) 2CD [FLAC|Lossless|tracks + .cue] <Electron
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939348.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Trentemoller - The Last Resort (2006) Limited Edition [FLAC|Lossless|image + .cu
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938752.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Trentemoller - The Trentemoller Chronicles (2007) 2CD [FLAC|Lossless|image + .cu
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938635.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Prins Thomas - Bringing Mum to Panorama Bar (2020) Prins Thomas Musikk [FLAC|Los
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938011.jpg" />
 </div>
 
 
@@ -208,7 +237,7 @@ V.A. - Hed Kandi: Summer Of Sax (2014) 2CD [FLAC|Lossless]<House, Lounge, Jazzy>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937279.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Satin Jackets - Panorama Pacifico (2016) [FLAC|Lossless|tracks + .cue] <House, N
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937077.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Cristian R - New Frequency (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tec
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933954.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Nathan Micay - Blue Spring (2019) LuckyMe [FLAC|Lossless|WEB-DL|tracks] <Experim
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933816.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Blank & Jones and Mark Reeder  ‎ - Reordered (2009) [FLAC|Lossless|tracks + .c
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932572.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Sven Laux - Alliteration (2017) Archipel [FLAC|Lossless|WEB-DL|tracks] <Ambient,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930856.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ VA - Clubbers Guide Summer 2007 (2007) [FLAC|Lossless|tracks + .cue] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929261.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ VA - Disco De Bolsillo 2 - Dance Compilation (2004) [FLAC|Lossless|tracks + .cue
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927897.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ VA - Best Of Dance 2005 (2005) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927767.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Butch - Papillon (2008) [FLAC|Lossless|tracks] <Techno, Minimal Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925386.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ VA - Espectrum: The Avantroots Dub Techno Compilation (2016) [FLAC|Lossless|WEB-
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924455.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Nils Hoffmann - Once in a Blue Moon (2020) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924122.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ As One (Kirk Degiorgio) - Discography 21 Releases (1994-2020) New Electronica, C
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923675.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ VA - Techno 2007 - The Best (2007) 2CD, Compilation [FLAC|Lossless|tracks + .cue
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922872.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ VA - Parquet Goodies 2016 (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Prog
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922818.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ Everything But The Girl - The Best Of (1996) Compilation [FLAC|Lossless|tracks +
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922639.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ ASOK - MISTRESS 14 (2020) Mistress Recordings [FLAC|Lossless|WEB-DL|tracks] <Tec
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922465.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ The Alchemical Theory - Discography 11 Releases (2018-2021) Annulled, Illegal Al
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922008.jpg" />
 </div>
 
 
@@ -715,35 +744,6 @@ The Alchemical Theory - Discography 11 Releases (2018-2021) Annulled, Illegal Al
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6790B25F70B5B5DDEC015B151D8AC38B8028AD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212075   (922000) от 18.08.2021
-
-Arandel - Discography 13 Releases (2010-2021) Infiné [FLAC|Lossless|tracks+.cue, tracks] <Techno, Experimental, House, Modern Classical, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doxa Notes (feat. Myra Davies) (05:27)
- 02. Fabula (feat. Scalde) (04:38)
- 03. Capriccio (03:16)
- 04. Pr?ludium (03:23)(   Читать дальше...   )Тип издания: CD, WebЖанр: Techno, Experimental, House, Modern Classical, Minimal, Ambient •Продолжительность: 08:27:47 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BC5643B0AC1C22A14F58714ECB9CC3F71E4A9EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

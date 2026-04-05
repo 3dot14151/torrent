@@ -1,3 +1,56 @@
+###  Публикация: 1107746   (866228) от 23.02.2017
+
+А.В. Росляков | Оконечное оборудование сети ISDN (2008) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866228.jpg" />
+</div>
+
+
+###  Подробнее
+
+Систематизированы сведения по оконечному оборудованию цифровых сетей с интеграцией служб (ISDN). Рассмотрены основные функциональные устройства базового и первичного доступов ISDN: сетевые окончания, терминальные устройства, терминальные адаптеры, оборудование видео-конференцсвязи и передачи данных.
+Для студентов высших учебных заведений, обучающихся по направлению (   Читать дальше...   )Жанр: Компьютерная литератураФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7267A4379925164C1EECFC0508823178492CE36C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107708   (866101) от 23.02.2017
+
+Г.Н. Музалевская | Инженерные сети городов и населенных пунктов (2006) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866101.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии изложены вопросы, возникающие при проектировании систем водоснабжения, теплоснабжения, газоснабжения, газоснабжения. Приведен пример расчета водоснабжения города, состоящего из двух районов, систем теплоснабжения, систем газоснабжения и электроснабжения. Рассмотрены принципы размещения подземных сетей в городах и микрорайонах, размещения подземных (   Читать дальше...   )Жанр: СтроительствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6915FDF8CC21BE94C15CB323A2ED53EE0CCAEFF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1107772   (866099) от 23.02.2017
 
 В.В. Величко и др. | Основы инфокоммуникационных технологий (2009) [PDF]
@@ -6,7 +59,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866099.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866095.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865923.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865908.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864726.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864718.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864512.jpg" />
 </div>
 
 
@@ -193,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864403.jpg" />
 </div>
 
 
@@ -219,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864339.jpg" />
 </div>
 
 
@@ -245,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864273.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864267.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863922.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863001.jpg" />
 </div>
 
 
@@ -351,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862908.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862905.jpg" />
 </div>
 
 
@@ -405,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862808.jpg" />
 </div>
 
 
@@ -432,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859192.jpg" />
 </div>
 
 
@@ -458,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858556.jpg" />
 </div>
 
 
@@ -484,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857800.jpg" />
 </div>
 
 
@@ -510,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857790.jpg" />
 </div>
 
 
@@ -537,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857674.jpg" />
 </div>
 
 
@@ -564,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857583.jpg" />
 </div>
 
 
@@ -590,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857581.jpg" />
 </div>
 
 
@@ -617,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857577.jpg" />
 </div>
 
 
@@ -628,60 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC5C8A02B3165EC58B96844AFD3411C4F3296C15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109384   (856931) от 28.02.2017
-
-О.С. Ефремова | Охрана труда в организации в схемах и таблицах (2015) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856931.jpg" />
-</div>
-
-
-###  Подробнее
-
-В издании рассматривается система охраны труда в РФ. Особенностью данного издания является содержание информации в удобной и доступной для восприятия форме - в схемах и таблицах. Наглядность, краткость и доходчивость схематичного изложения материала позволит легче ориентироваться в столь сложной теме, как охрана труда.
- Для руководителей, юристов, работников, отвечающих (   Читать дальше...   )Жанр: Охрана трудаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:343BA6E815980D1A81FFF291D08644BDAD216BF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498579   (856035) от 27.09.2021
-
-В.Б. Топильский | Микроэлектронные измерительные преобразователи (2020) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856035.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии рассмотрен комплекс вопросов, связанных с аналоговой и аналого-цифровой схемотехникой информационно-измерительных систем (ИИС) и систем управления. Подробно описаны компоненты таких систем (микроэлектронные сенсоры, усилители сигналов, аналого-цифровые преобразователи и устройства отображения информации).
-Приведены схемы включения элементов ИИС (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90AFF65B0546341E88E49F56C567542B48F681FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

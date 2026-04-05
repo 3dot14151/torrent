@@ -6,7 +6,7 @@ Log Horizon: Entaku Houkai | Log Horizon: Destruction of the Round Table | Ло�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755063.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Bokutachi wa Benkyou ga Dekinai | We Never Learn | Мы не можем учит
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755036.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Seirei no Moribito / Guardian of the Sacred Spirit / Хранитель Свящ
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754877.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ One Off / Эпизод [2012, OVA, 4 ep.] BDrip 1080p Hi10P raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_753130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_753130.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Netojuu no Susume | Recommendation of the Wonderful Virtual Life | Гайд по
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752932.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Bokutachi wa Benkyou ga Dekinai! | We Never Learn: Bokuben Season 2 | Мы не 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751921.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ ViVid Strike! | Решающий удар! [2016, TV, 13 эп. + 2 SP] BDrip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750928.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Roku de Nashi Majutsu Koushi to Akashic Records | Акашийские хрон�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750926.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750923.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Island | Остров [2018, TV, 12 эп.] WEB-DL 720p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748303.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Happy Sugar Life | Сладкая жизнь [2018, TV, 12 эп.] BDrip 1080p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748055.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Fate/Extra: Last Encore | Судьба: Дополнение [2018, TV, 13 эп.
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747952.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Ano Natsu de Matteru | AnoNatsu | Waiting in the Summer | Ждём тебя ле
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747000.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Itsudatte Bokura no Koi wa 10 Centi Datta. | Our Love Has Always Been 10 Centime
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746848.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Steins;Gate 0 | Врата Штейна 0 [2018, TV, 24 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746213.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Gekijouban Card Captor Sakura|Fuuin Sareta Card / Cardcaptor Sakura: The Movie|T
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745350.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Overman King Gainer | Король Гэйнер [2002, TV, 26 из 26] BDRip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744072.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Eldlive | Эль Драйв [2017, TV, 12 из 12] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742731.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Circlet Princess | Диадема принцессы [2019, TV, 12 из 12] BDRi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742728.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Somali to Mori no Kamisama | Somali and the Forest Spirit | Сомали и Ду
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742702.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Centaur no Nayami | A Centaur's Life | Хлопоты кентавра | Бес�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742691.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Akiba's Trip The Animation | Падение Акибы [2017, TV, 13 из 13] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742637.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Keppeki Danshi! Aoyama-kun | Clean Freak! Aoyama-kun | Чистюля Аояма
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741360.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Rizelmine | Rizerumain | Моя Ризельмина [2002, TV, 24 из 24] BDRi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741334.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Onihei | Онихей: Криминальные истории периода Э
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741301.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Relife | Повторная жизнь [2016, TV, 17 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740633.jpg" />
 </div>
 
 

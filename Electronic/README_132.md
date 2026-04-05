@@ -1,3 +1,61 @@
+###  Публикация: 1274127   (795050) от 05.01.2019
+
+Dreamtime - Farout (2009) [APE|Lossless|image + .cue] <Spacesynth, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sleeping Prophet Part One (2:18)
+02. Ghosthack (5:47)
+03. Escape to the Past (6:16)
+04. New Horizons (6:51)(   Читать дальше...   )Жанр: Spacesynth, SynthpopПродолжительность: 01:13:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:867A0498C0149BEA0D1929DA1990C43BE6AF6D78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274157   (795045) от 05.01.2019
+
+Derrick May - Innovator (1997/2008) R & S Records [FLAC|Lossless|tracks+.cue] <Detroit Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To Be Or Not To Be (06:54)
+ 02. Icon (Montage Mix) (05:50)
+ 03. Phantom (01:43)
+ 04. Kaotic Harmony (06:35)(   Читать дальше...   )Тип издания: CD, Remastered, ReissueЖанр: Detroit Techno •Продолжительность: 01:08:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67FAA32B2C9BB65ADE0F3800B1960A57AF21541A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200787   (795021) от 22.01.2018
 
 VA - Clubbers Culture: Trancefields 003 (2018) [MP3|320 Kbps] <Trance>
@@ -6,7 +64,7 @@ VA - Clubbers Culture: Trancefields 003 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795021.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ IsoQuant - Discography 4 Releases (2015-2017) [FLAC|Lossless|WEB-DL|tracks] <Tec
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795019.jpg" />
 </div>
 
 
@@ -62,7 +120,7 @@ Brien Hindman - Cognitive Buffer Hypothesis (2018) Ant-Zen [FLAC|Lossless|WEB-DL
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795018.jpg" />
 </div>
 
 
@@ -91,7 +149,7 @@ Indecent Noise - Everything Is Connected (Expanded & Extended) (2021) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795002.jpg" />
 </div>
 
 
@@ -120,7 +178,7 @@ VA - Dark Uplifting Vol.3 (2018) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794979.jpg" />
 </div>
 
 
@@ -149,7 +207,7 @@ Damian Wasse - Music Colours (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794978.jpg" />
 </div>
 
 
@@ -178,7 +236,7 @@ Lunar Testing Lab - Discography 11 Releases (2008-2017) [FLAC|Lossless|WEB-DL|tr
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794976.jpg" />
 </div>
 
 
@@ -207,7 +265,7 @@ Jens Buchert - Best Of (2017) Compilation [FLAC|Lossless|WEB-DL|tracks] <Electro
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794966.jpg" />
 </div>
 
 
@@ -236,7 +294,7 @@ Activa - Origins (2021) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794941.jpg" />
 </div>
 
 
@@ -265,7 +323,7 @@ Infected Mushroom - Head of NASA and the 2 Amish Boys (2018) [FLAC|Lossless|WEB-
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794933.jpg" />
 </div>
 
 
@@ -294,7 +352,7 @@ Radius - Discography 7 Releases (2017-2018) echospace [detroit] [FLAC|Lossless|t
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794930.jpg" />
 </div>
 
 
@@ -320,7 +378,7 @@ Mu Cephei - Sidera Et Sonos (2012) Cold Tear Records [FLAC|Lossless|WEB-DL|track
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794905.jpg" />
 </div>
 
 
@@ -349,7 +407,7 @@ VA - Melodic Trance Vol. 1 (2016) [MP3|320 кб/с] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794809.jpg" />
 </div>
 
 
@@ -378,7 +436,7 @@ Aether - Nexus (2017) [FLAC|Lossless|WEB-DL|tracks] <Future Garage, Downtempo, C
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794764.jpg" />
 </div>
 
 
@@ -407,7 +465,7 @@ Microworld - Microworld (2004) [FLAC|Lossless|tracks + .cue] <Techno, Deep House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794554.jpg" />
 </div>
 
 
@@ -436,7 +494,7 @@ VA - Workout Beach 2020 Summer [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794439.jpg" />
 </div>
 
 
@@ -465,7 +523,7 @@ VA - Defected Presents Sonny Fodera In The House (2016) [FLAC|Lossless|WEB-DL|tr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794351.jpg" />
 </div>
 
 
@@ -494,7 +552,7 @@ VA - Cratediggers (2019) [MP3|320 Kbps] <House, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794169.jpg" />
 </div>
 
 
@@ -523,7 +581,7 @@ NSDOS - Discography 5 Releases (2013-2018) [FLAC|Lossless|WEB-DL|tracks] <Techno
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794165.jpg" />
 </div>
 
 
@@ -552,7 +610,7 @@ VA - Always Alive Recordings: Best Of 2018 (Mixed by Daniel Kandi) (2018) [MP3|3
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794164.jpg" />
 </div>
 
 
@@ -581,7 +639,7 @@ Tender H - Sentido Oasis (2018) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794163.jpg" />
 </div>
 
 
@@ -610,7 +668,7 @@ VA - Freshly Picked Vol. 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic Techno 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794161.jpg" />
 </div>
 
 
@@ -639,7 +697,7 @@ Bjorn Torske (Bjørn Torske) - Byen (2018) [FLAC|Lossless|tracks + .cue] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794160.jpg" />
 </div>
 
 
@@ -668,7 +726,7 @@ Michael Elliot - Undercover (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Synthwave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794131.jpg" />
 </div>
 
 
@@ -682,64 +740,6 @@ Michael Elliot - Undercover (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Synthwave>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98145744C762D6DFAE1030292E792DC709B5D2BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274137   (794119) от 06.01.2019
-
-Dreamtime - Particles (2015) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Spacesynth, Synthpop>
-
->>Electronic
->>Synthpop, New Wave, Retro (Hi-Res)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phantasm (5:24)
-02. Cosmoride II (4:42)
-03. Typhoon (6:17)
-04. Guru Meditation (4:24)(   Читать дальше...   )Жанр: Spacesynth, SynthpopПродолжительность: 00:45:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C5B78D0937387DF7A0E014B751FF97ABDE3232D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274132   (794117) от 06.01.2019
-
-Dreamtime - Innerstellar Jam (2013) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Spacesynth, Synthpop>
-
->>Electronic
->>Synthpop, New Wave, Retro (Hi-Res)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Retrological Mind (5:03)
-02. Hexadecimal Memories (5:07)
-03. Kauas Pois (6:07)
-04. Brainhunt (6:20)(   Читать дальше...   )Жанр: Spacesynth, SynthpopПродолжительность: 00:47:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AD59EEDE739F0FED4D23BAFEF97960BDC18032D
 ```
 
 https://mybot314.ru/tekegram_catalog/

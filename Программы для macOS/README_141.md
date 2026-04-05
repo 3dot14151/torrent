@@ -1,3 +1,56 @@
+###  Публикация: 1661525   (188331) от 15.09.2023
+
+Maxon Cinema 4D Studio 2024.0.0 [En]
+
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легко изучаемая и чрезвычайно мощная: Cinema 4D является идеальным пакетом для всех художников трёхмерной графики, которые хотят добиваться захватывающих результатов быстро и без проблем. Начинающие, наравне с опытными профессионалами, могут воспользоваться широким набором инструментов и функций Cinema 4D для быстрого достижения потрясающих результатов. Легендарная (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.09.2023Разработчик: © 2023 MAXON Computer GmbHПоддерживаемая ОС: macOS 10.15 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85E2B9066F9F65282600E5768B4527CCE716C28F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339741   (188294) от 15.09.2023
+
+Launchpad Manager Pro 1.0.10 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_188294.jpg" />
+</div>
+
+
+###  Подробнее
+
+Launchpad Manager Pro – многофунциональное приложение для работы с Launchpad. С его помощью Вы с легкостью сможете реорганизовывать, группировать, переименовывать, удалять, перемещать приложения в Launchpad.
+Некоторые программы очень любят поставить за собой еще кучу дополнительного контента (привет, Adobe!), что в итоге приводит к аду в Launchpad. Для борьбы с этим (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.09.2019Разработчик: © Attila MiklosiПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A714B71FFB008C091E9BEDB0DF341F669AC15A24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1661866   (188265) от 16.09.2023
 
 Speech 1.11.0 [Multi]
@@ -6,7 +59,7 @@ Speech 1.11.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188265.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ PDF Merge & PDF Splitter + 6.3.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188263.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ Web Dumper for Mac 3.4.5 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188253.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ Cool Menu 1.5.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188243.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ DiskWarrior 5.3.1 (Standalone) [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188207.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ GRAPHISOFT ArchiCAD 26.0 ARM/Intel [Rus]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188127.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ Native Instruments Guitar Rig 7 Pro for Mac 7.0.1 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187962.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ IINA 1.3.1 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187736.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ Microsoft Office 2021 for Mac LTSC 16.66 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187620.jpg" />
 </div>
 
 
@@ -245,7 +298,7 @@ Xojo 2020 Release  2 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_185990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_185990.jpg" />
 </div>
 
 
@@ -272,7 +325,7 @@ PullTube 1.8.4.14 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185467.jpg" />
 </div>
 
 
@@ -298,7 +351,7 @@ Wondershare AllMyMusic 3.0.2 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185449.jpg" />
 </div>
 
 
@@ -325,7 +378,7 @@ Rectangle Pro 2.7.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185382.jpg" />
 </div>
 
 
@@ -354,7 +407,7 @@ ScreenFlow 10 v10.0.8 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185243.jpg" />
 </div>
 
 
@@ -382,7 +435,7 @@ AnyTrans 8.9.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185187.jpg" />
 </div>
 
 
@@ -409,7 +462,7 @@ My Favorites 2.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184611.jpg" />
 </div>
 
 
@@ -436,7 +489,7 @@ Motive 1.3.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184580.jpg" />
 </div>
 
 
@@ -463,7 +516,7 @@ HyperDither 2.0.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184555.jpg" />
 </div>
 
 
@@ -489,7 +542,7 @@ Clipboard Booster 1.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184527.jpg" />
 </div>
 
 
@@ -515,7 +568,7 @@ PhotosRevive 1.3.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184481.jpg" />
 </div>
 
 
@@ -541,7 +594,7 @@ New File Menu 1.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184471.jpg" />
 </div>
 
 
@@ -568,7 +621,7 @@ Particulars 34 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184446.jpg" />
 </div>
 
 
@@ -594,7 +647,7 @@ iDatabase 6.6 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184367.jpg" />
 </div>
 
 
@@ -620,7 +673,7 @@ CrystalMaker X 10.5.5 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184318.jpg" />
 </div>
 
 
@@ -632,58 +685,6 @@ CrystalMaker упрощает загрузку структурных данны
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A215A340BDCE4B29F1F63A926EA19FEBA5E7233
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422938   (183695) от 27.11.2020
-
-JetBrains Full Pack 2020.2.3 - 2020.2.4 [En]
-
->>Программы для macOS
->>CAD, 3D, ПО для специалистов для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183695.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплект программ от JetBrains для разработки под различные платформы и технологии. В комплект входят версии 2020.2.3-2020.2.4 программ для Mac OS, доступные на сайте производителя (некоторые из них уже получили минорные апдейты до версий 2020.2.2-2020.2.8. Не стал заменять образы в торренте, чтобы не напрягать скачиванием всех тех кто уже скачал, т.к. им проще обновиться (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: JetBrainsПоддерживаемая ОС: macOS 10.13 или более поздняя версияЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84FE9BA1C7BBAF05A065B2028C1C74A9281BC599
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427403   (183542) от 28.11.2020
-
-SideNotes 1.2.7 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183542.jpg" />
-</div>
-
-
-###  Подробнее
-
-SideNotes - это боковая панель, которая заполнит заметками одну из сторон экрана вашего Mac. Текст, код или изображения - SideNotes справится со всем, что позволит вам хранить важные данные под рукой. Для удобства переносите заметки в настраиваемые папки, назначайте цвет и добавляйте флажки к задачам. Это общая полка для всего действительно важного.Тип издания: macOS SoftwareРелиз состоялся: 27.11.2020Разработчик: ApptoriumПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1858A4F7BF0D3FEB7F6D0D35CD3A779E0803EF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1215240   (756730) от 27.03.2018
+
+Н.В. Тулупов, П.М. Шестаков | Воробушек (1915) [JPG]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756730.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказы для детей о природе, ребятах и зверятах.Жанр: Детская прозаФормат: JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5486D85FF6EC956DBEAF6878C9B81189DBA60AB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215238   (756614) от 27.03.2018
 
 П. А. Висковатов | Внучка бабушки Татьяны (1914) [PDF]
@@ -6,7 +32,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756614.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756610.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756606.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756602.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756596.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756102.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756019.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755924.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755920.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755734.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755668.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755665.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755664.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_755663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_755663.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755661.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755660.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755657.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755656.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755655.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755654.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755653.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755586.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755579.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_755572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_755572.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755524.jpg" />
 </div>
 
 
@@ -648,32 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53AF8E2E03E9226C1D5F792731B9264D7749D324
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018603   (755523) от 20.05.2016
-
-Мартин Гарднер, Сэм Лойд | Самые знаменитые головоломки мира (1999) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755523.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник математических задач и увлекательных головоломок, принадлежащий перу одного из классиков этого жанра Сэма Лойда, несомненно доставит большое удовольствие всем любителям занимательной математики.Жанр: Головоломки, развлеченияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:508B5851A6EBE808AC84EAD94CDB90A14BF26DED
 ```
 
 https://mybot314.ru/tekegram_catalog/

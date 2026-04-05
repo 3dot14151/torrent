@@ -1,3 +1,81 @@
+###  Публикация: 1491250   (205685) от 27.10.2025
+
+Sludge Life (2021) [Ru/Multi] (251013) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205685.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исследование от первого лица в открытом мире с элементами вандализма. На этом странном острове, полном непредсказуемых чудиков, такая густая атмосфера, что её можно попробовать на вкус. Побродите по крошечному острову посреди покрытой мутным осадком планеты в роли тэггера GHOST, который собирается отстоять свои позиции среди граффити-элиты.Тип издания: LicenseРазработчик: Terri Vellmann & DoseoneЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC34C0422EC3E26EC777D4A9AEC5140E927976EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333542   (205679) от 27.10.2025
+
+Knights and Bikes (2019) [En] (1.12_rc3_v0_u) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205679.jpg" />
+</div>
+
+
+###  Подробнее
+
+У детей фантазия работает на полную катушку - они в любом предмете могут увидеть друга или опасного противника, а простая прогулка для них превращается в переполненное событиями приключение. Главные героини Knights and Bikes Демельция и Несса так и развлекаются - познакомившиеся при странных обстоятельствах девочки быстро стали подругами и решили отправиться на поиски (   Читать дальше...   )Тип издания: LicenseРазработчик: Foam SwordЖанр: Экшн, Приключение, ГоловоломкаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C3646E5AE792CBA0A7915ECEADB4AEA3EB97253
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570430   (205416) от 17.08.2022
+
+As Dusk Falls (2022) [Ru/Multi] (1.0 Build 9076338) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205416.jpg" />
+</div>
+
+
+###  Подробнее
+
+As Dusk Falls — это оригинальная интерактивная драма от INTERIOR/NIGHT. В центре сюжета судьбы двух семей, за тридцать лет прочно переплетённые между собой. Действие начинается в 1998 году с неудавшегося ограбления. Это история о предательстве, стойкости духа и готовности пойти на жертвы. Жизни персонажей будут зависеть от ваших действий и решений.Тип издания: RepackРазработчик: INTERIOR/NIGHTЖанр: AdventureЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB13018EE0FCEB293F75C57B7975690AAAC1397B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1581967   (205205) от 07.10.2022
 
 The Plague Doctor of Wippra (2022) [Multi] (1.0.3) License GOG
@@ -6,7 +84,7 @@ The Plague Doctor of Wippra (2022) [Multi] (1.0.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205205.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Demetrios - The BIG Cynical Adventure (2016) [Ru/Multi] (1.2.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205116.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ A Plague Tale: Requiem (2022) [Ru/Multi] (20221017_1052/dlc) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205009.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Broken Pieces (2022) [Ru/Multi] (1.21) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204382.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Unforeseen Incidents (2018) [Ru/Multi] (1.0.9.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204094.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Prison Princess (2020) [Multi] (1.1) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204048.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Criminal Expert (2023) [Multi] (1.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204000.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ PixARK (2019) [Ru/Multi] (1.151/dlc) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203797.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ The Legend of Kyrandia: Malcolm's Revenge - Book Three (1994) [Multi] (1.0) Lice
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203267.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ The Legend of Kyrandia: Hand of Fate - Book Two (1993) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203228.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ The House of Da Vinci 3 (2022) [Ru/Multi] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203090.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Loretta (2023) [Ru/Multi] (1.1.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202595.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Hike Isle (2023) [En] (1.0.2) Scene DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202582.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Labyrinthine (2023) [Ru/Multi] (Build 19882271/dlc) Repack Pioneer [Supporter Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202442.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Truberbrook / Trüberbrook: A Nerd Saves the World (2019) [Ru/Multi] (1.6-fix) L
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202441.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Jenny LeClue - Detectivu (2019) [Ru/Multi] (2.2.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202440.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Midnight Scenes: The Highway (2020) [Ru/Multi] (1.27a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202384.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Remorse: The List (2022) [Multi] (1.1.1/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202295.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Undead Wilderness: Survival (2023) [Ru/Multi] (0.1) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202282.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Through the Darkest of Times (2020) [Ru/Multi] (1.04.03.1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202246.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Fort Solis (2023) [Ru/Multi] (Build 11938463) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202244.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Unto The End (2020) [Ru/Multi] (1.61) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202243.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Fort Solis (2023) [Ru/Multi] (Build 11938463) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202219.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Fort Solis — сюжетный триллер от третьего лица, �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3BD7C470D3433C6DB26F4CA0220D0E077FC8195
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621174   (202177) от 24.08.2023
-
-The Wreck (2023) [Multi] (1.0.0) License GOG [Supporter Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключения в The Wreck показывают жизнь неудавшейся сценаристки по имени Джунон, что старается справляться с трудностями взрослой жизни. Игроки будут наблюдать за 36-летней женщиной, у которой происходит переломный момент, что разрушает её стремления, карьеру и личную жизнь. Игра представляет собой трехмерный визуальный роман, где будет продемонстрирована меланхоличная (   Читать дальше...   )Тип издания: LicenseРазработчик: The Pixel HuntЖанр: Приключение, Визуальные новеллы, ДрaмаЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский, КитайскийЯзык интерфейса: Английский, Немецкий, Французский, Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F64B0519B34EA4368B54778C8DE71A72990D459B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560293   (202176) от 25.10.2025
-
-FAR: Lone Sails (2018) [Ru/Multi] (1.31) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202176.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключенческая игра про путешествие на корабле. Ваш корабль уникален тем, что движется по высушенному морскому дну по следам некогда процветающей цивилизации. Вам нужно продолжать движение, даже несмотря на ряд препятствий на вашем пути и трудные погодные условия. Куда заведет вас ваше приключение? Неужели вы – единственный выживший?Тип издания: LicenseРазработчик: OkomotiveЖанр: Приключение, ГоловоломкаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B56CBE2F30F367005951945CE5DA6D7FF85060AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829971   (201765) от 26.10.2025
-
-Subnautica (2018) [Ru/Multi] (83031) Repack Necros
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201765.jpg" />
-</div>
-
-
-###  Подробнее
-
-Subnautica — это подводная приключенческая игра в совокупности с чужой океанической планетой. Вас ждёт огромный открытый мир, полный чудес и опасностей! Вы потерпели крушение в чудом океаническом мире, где единственный путь ведёт вниз. Океаны Subnautica разнятся от залитых солнцем коралловых рифов до коварных глубоководных расщелин, лавовых полей и биолюминесцентных (   Читать дальше...   )Тип издания: RepackРазработчик: Unknown Worlds EntertainmentЖанр: Приключенческие игры, ИндиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B780180657A9A0956F4DF728080E96887829F26D
 ```
 
 https://mybot314.ru/tekegram_catalog/

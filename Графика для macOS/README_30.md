@@ -6,7 +6,7 @@ PowerPhotos 2.5.7 U2B [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112720.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ColorWell 7.4.3 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112705.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ EazyDraw 11.6.3 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112576.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Adobe InCopy 2024 v.19.3.0 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112225.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Alien Skin Bokeh 2.0.1.442 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81759.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Alien Skin Snap Art 3.0.0.697 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81712.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Pixelmator Pro 3.5.7 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63762.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Capture One 23 Pro 16.3.7.10 [En/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63618.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Capture One 23 Enterprise 16.3.7.10 [En/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63609.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ DxO PhotoLab 7 ELITE Edition 7.5.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62955.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ FxFactory Pro 8.0.14 U2B [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62673.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ ON1 NoNoise AI 2024 for Mac v18.2.0.15224 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62530.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Luminar Neo 1.18.3 U2B  [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62059.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Affinity Photo 2 v.2.4.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61753.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Affinity Designer 2 v.2.4.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61729.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Affinity Publisher 2 v.2.4.1  [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61700.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ CorelDRAW Graphics Suite 2024 v.25.0.0.230  [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61682.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Topaz Gigapixel AI for Mac 7.0.5 U2B [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61531.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Topaz Photo AI 2 for Mac 2.4.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61525.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Folder Icons 1.8 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61385.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Adobe Illustrator for Mac 2024 v.28.4.1 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61148.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Photomator for Mac 3.3.4 Patch [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61117.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Adobe InDesign 2024 v.19.3.0 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61024.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ TechSmith Snagit for Mac 2024.2.3 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60998.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Adobe Photoshop 2025 26.10.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4261.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Topaz Photo AI 4.0.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3040.jpg" />
 </div>
 
 

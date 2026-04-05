@@ -1,3 +1,160 @@
+###  Публикация: 1388805   (784413) от 10.06.2020
+
+S.T.A.L.K.E.R. Shadow of Chernobyl / S.T.A.L.K.E.R. Тень Чернобыля (2020) [Ru] (2.1.6.3) Repack/Mod [Народная Солянка 2016 OGSR]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легендарный мод на «Тень Чернобыля», который допиливался и дорабатывался народными умельцами, начиная с 2010 года. Много воды утекло с тех пор, многие игровые концепции и фишки геймплея были пересмотрены, добавлены новые и выкинуты старые. Всё идёт в угоду игровой сталкерской общественности. «Народная солянка 2016» является вершиной долгих поисков и мытарств игроделов (   Читать дальше...   )Тип издания: Repack/ModРазработчик: GSC Game WorldЖанр: Action (Shooter), Adventure, 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:907BE3560FDD14614488300DB9F0894017FB3D5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204359   (784273) от 07.02.2018
+
+В Госдуму внесён проект о конфискации автомобиля за совершение ДТП пьяным водителем
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784273.jpg" />
+</div>
+
+
+###  Подробнее
+
+Законодательное собрание Архангельской области внесло в Госдуму законопроект, предусматривающий конфискацию автомобиля, если водитель совершил ДТП в состоянии алкогольного опьянения. Это следует из базы данных нижней палаты парламента.Депутаты предлагают предусмотреть в ч. 1 ст. 104.1 УК положение о конфискации автомобиля или другого транспортного средства, принадлежащего (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204882   (784261) от 07.02.2018
+
+Avira Phantom VPN Free / Pro 2.12.5.31589 RePack by elchupacabra [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784261.jpg" />
+</div>
+
+
+###  Подробнее
+
+Avira Phantom VPN — является новым эффективным приложением, которое предлагает все преимущества частных виртуальных сетей в ненавязчивой форме. Разблокируйте запрещенные сайты и сервисы и улучшите безопасность Интернет-подключений с помощью современной и надежной VPN-службы.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FBB8470E4439DE318C62AE9C420A0CC6178DF82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203957   (784238) от 07.02.2018
+
+Работников предприятий группы Amazon обяжут носить электронные браслеты
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784238.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Прикуют ли нам цепью шары к ногам, как каторжникам?», задаётся вопросом глава рабочей конфедерации Италии. Амазон собирается превратить своих работников в роботов?30 января американское предприятие запатентовало электронный браслет, позволяющий следить за движеним рук своих работников  с целью улучшения их производительности. Проект вызвал переполох во многих странах.Браслет (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204116   (784229) от 07.02.2018
+
+Windows 10 Redstone 4 принесёт целый ворох новшеств
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784229.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft начинает сокращать добавление новых функций в грядущее крупное обновление Windows 10 с кодовым именем Redstone 4 — в настоящее время публика уже может оценить большинство значимых предстоящих изменений благодаря последим тестовым сборкам Insider Preview. Разработчики в целом перешли к фазе тестирования и отладки этого весеннего обновления. Так что предлагаем (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204553   (784222) от 07.02.2018
+
+Windows 7 SP1 4in1 (x86/x64) Elgujakviso Edition (v.03.02.18) [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборки сделаны на основе оригинальных образов от MSDN: (12.05.2011)
+   Системы чистые, ничего не удалено, отключено и пропатчено. Интегрированы Internet Explorer 11 и все важные и рекомендуемые обновления по Декабрь 2017 года. Для получения полной информаций об интегрированных обновлениях и изменениях, читайте раздел "дополнительная информация". Системы протестированы (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA5D6385FBADDF58652FF0C3FF853788B96273F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 382546   (784220) от 07.02.2018
 
 InuYasha / Инуяша [1996] [Манга] [Русский] [главы:1-442, 519-558]
@@ -6,7 +163,7 @@ InuYasha / Инуяша [1996] [Манга] [Русский] [главы:1-442, 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784220.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784217.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ Windows 10 Enterprise LTSB 2016 v1607 (x86/x64) by LeX_6000 [24.12.2017] [Ru/En]
 >>34
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784215.jpg" />
 </div>
 
 
@@ -87,7 +244,7 @@ Apple потратила миллионы долларов, но не смогл
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784153.jpg" />
 </div>
 
 
@@ -113,7 +270,7 @@ Windows 10 Pro 2004 b19041.329 x64 ru by SanLex (edition 2020-06-10) [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784130.jpg" />
 </div>
 
 
@@ -139,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>14
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784123.jpg" />
 </div>
 
 
@@ -165,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784120.jpg" />
 </div>
 
 
@@ -197,7 +354,7 @@ Deus Ex: Mankind Divided (2016) [Ru/En] (1.19hf/dlc) Repack West4it [Digital Del
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784110.jpg" />
 </div>
 
 
@@ -223,7 +380,7 @@ Win 10 Tweaker 5.2 Portable by XpucT [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783975.jpg" />
 </div>
 
 
@@ -249,7 +406,7 @@ Davinci Resolve Studio 14.3.0014 [En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783956.jpg" />
 </div>
 
 
@@ -275,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783949.jpg" />
 </div>
 
 
@@ -301,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783864.jpg" />
 </div>
 
 
@@ -327,7 +484,7 @@ Linux захватывает Германию. Гамбург откажется
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783825.jpg" />
 </div>
 
 
@@ -353,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>14
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_783689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_783689.jpg" />
 </div>
 
 
@@ -379,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783682.jpg" />
 </div>
 
 
@@ -407,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783680.jpg" />
 </div>
 
 
@@ -433,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_783613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_783613.jpg" />
 </div>
 
 
@@ -459,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_783607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_783607.jpg" />
 </div>
 
 
@@ -485,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_783576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_783576.jpg" />
 </div>
 
 
@@ -513,7 +670,7 @@ Sony показала первые игры для PlayStation 5
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_783570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_783570.jpg" />
 </div>
 
 
@@ -524,162 +681,6 @@ Sony показала первые игры для PlayStation 5
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390026   (783563) от 13.06.2020
-
-Windows 7 SP1 х86-x64 by g0dl1ke 20.06.11 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стабильная сборка на базе MSDN windows 7 х86-x64 с интегрированными обновлениями по июнь 2020 года и полезными твиками, по рекомендациям simplixЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE033FB9491A47BA111EBF1CA6E38F6BD32E13A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388195   (783555) от 13.06.2020
-
-Navitel / Навител Навигатор 9.13.51 Full для карт релиза Q1-2020 [Ru/Multi]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Навител Навигатор - точная офлайн GPS навигация, геосоциальные сервисы и подробные карты 65 стран мира.  Навигационная программа Навител отображает текущее местоположение пользователя на карте и способна с помощью отображения маневра на экране навигатора и голосом подсказать водителю, когда и куда необходимо повернуть на автоматически проложенном маршруте для скорейшего (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 04.06.2020Разработчик: NAVITELПоддерживаемая ОС: Android 4.0 +Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95BAC2C093C48FE3E02E061188141E97DD8421E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205628   (783382) от 10.02.2018
-
-Win 10 Tweaker 5.3 Portable by XpucT [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783382.jpg" />
-</div>
-
-
-###  Подробнее
-
-Win 10 Tweaker — это небольшая, но очень мощная программа, позволяющая сделать полную оптимизацию Windows 10 в несколько кликов. Не пускает пыль в глаза бесполезными настройками, а каждый пункт содержит подробную подсказку-описание. Любое действие выполняется без внешних модулей, средствами самой программы и возможностями Windows, поэтому антивирусы не ругаются на (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76623B3CDEC74C5C9A7A8E53F14539C513E798F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205665   (783363) от 10.02.2018
-
-Quantum Break (2016) [Ru/En] (1.0.126.0307) Repack xatab
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783363.jpg" />
-</div>
-
-
-###  Подробнее
-
-Quantum Break - это приключенческий экшен от третьего лица от создателей Max Payne и Alan Wake. Главный герой игры - молодой парень Джек, который после неудачного эксперимента смог управлять временем. За Джеком начинает охота некая организация под названием "Монарх", основатель которой, Пол Серин, так же владеет особой способностью - он может видеть альтернативные (   Читать дальше...   )Тип издания: RepackРазработчик: Remedy EntertainmentЖанр: Action, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCCA133B66E2FB7F6930415B05A4075C5691B612
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389951   (783295) от 14.06.2020
-
-Два казино Лас-Вегаса хотят подключиться к сети подземных туннелей Илона Маска
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_783295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подземная транспортная сеть вокруг Лас-Вегасского Центра Конвенций, которую строит компания Илона Маска Boring Company, должна быть завершена в январе 2021 года. Два отеля уже изъявили желание подключиться к этой транспортной артерии. Wynn Las Vegas и Resorts World Las Vegas добиваются одобрения округа, которое позволит им осуществить задуманный маневр.Если проекты (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390125   (783270) от 14.06.2020
-
-Hotspot Shield VPN Business 9.5.9 (64-bit) [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hotspot Shield VPN - самое полное решение проблем безопасности в интернете. Защищает ваши сессии в веб-браузере, обнаруживает и блокирует вредоносное ПО, сохраняет конфиденциальность, обеспечивает доступ к заблокированным сайтам. Hotspot Shield делает безопасным просмотр веб-страниц, защищая ваше (проводное или беспроводное) соединение дома и в общественных местах. (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84C81194AE951153F3892DB6AE9E53939793FCAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Paquito D'Rivera - La Habana-Rio Conexion (1992) 2005, Messidor [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650559.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Toufic Farroukh - Cinema Beyrouth (2012) Enja [FLAC|Lossless|tracks + .cue] <Wor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650558.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ The Johnny Smith Guitar - My Dear Little Sweetheart (1960) 2017, Roost, Parlopho
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650545.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Rickey Woodard - The Silver Strut (1996) Concord Jazz [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650521.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Earl Anderza - Outa Sight (1962) 1998, Pacific Jazz [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650519.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Wycliffe Gordon - The Joyride (2000) 2003, Nagel Heyer Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650518.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Dorothy Donegan - Dorothy Romps: A Piano Retrospective 1953-1979 (1991) Rosetta 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650513.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Wycliffe Gordon - The Search (2000) Nagel Heyer Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650495.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Djabe - Flow (2018) [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650401.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - 25 Legendary vocal jazz ballads (2015) [FLAC|Lossless]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649156.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Mike Melvoin, Charlie Haden, Bill Henderson - The Capitol Sessions (2000) Naim [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648851.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Lars Gullin - with Chet Baker: 1955 - 56, Vol.1 (1992) Dragon Records [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648815.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Bob Belden Ensemble - Treasure Island (1990) [FLAC|Lossless|tracks + .cue] <Cont
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648814.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Chick Corea - The Musician (2017) 3CD, Concord Jazz [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648611.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Jimmy Rowles - Lilac Time (1994) Kokopelli Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648600.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Makoto Terashita - Great Harvest (1978) 2014, Think! Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648595.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Jeri Brown & Jimmy Rowles - A Timeless Place (1995) Justin Time [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648591.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Brad Mehldau Trio - Seymour Reads The Constitution! (2018) Nonesuch Records [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648586.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Al Cohn & Jimmy Rowles - Heavy Love (1977) 2015, Elemental Music [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648570.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Brother Jack McDuff - Live! (1963) 1994, Prestige [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648020.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Yusef Lateef - Yusef's Mood, Complete 1957 Sessions with Hugh Lawson (2008) 4CD,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648017.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Scott LaFaro - Pieces Of Jade (2009) [FLAC|Lossless]<Jazz, Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647959.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Laura Teller - Three Sides To Everything (2015) [FLAC|Lossless|WEB-DL]<Vocal Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647956.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Emil Viklicky Trio - Kafka On The Shore: Tribute To Haruki Murakami (2011) Japan
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647908.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Lee Morgan - Midtown Blues (1957, 1960) 2CD, 2011, Not Now Music[FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647904.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Jaga Jazzist - Starfire (2015) [FLAC|tracks + .cue] <Electronic, Jazz, Rock, Fut
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647826.jpg" />
 </div>
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1101477   (893800) от 07.02.2017
+
+Battlefield 1 (2016) [Ru/Multi] (1.0.47.30570/dlc/u3) Rip YelloSOFT [Digital Deluxe Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Станьте свидетелем рассвета мировых войн в реалистичном шутере от первого лица Battlefield 1. Сражайтесь в многочисленных битвах – вас ждут напряженные уличные бои в осажденном французском городе, яростные штурмы укрепленных горных крепостей в Альпах и массовые боестолкновения в аравийских пустынях.Тип издания: RipРазработчик: EA DICEЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:979276753E7B84816866A9F2332FED0770EBD16E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 869137   (893793) от 13.02.2015
 
 Левиафан (2014) BDRip [1080p]
@@ -6,7 +32,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893793.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ ESET NOD32 Antivirus 10.0.390.0 Final [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893783.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ DLL Suite 9.0.0.14 RePack by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893772.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893686.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893111.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893073.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893063.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892972.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Windows 8 занимает 3,2 % рынка настольных ОС
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892439.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ Symantec Endpoint Protection 12.1.6 MP7 Build 7166 (12.1.7166.6700) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891837.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ Windows 10 Cloud - первая информация о новой систем�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891836.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ Battlefield 1 (2016) [Ru/Multi] (1.0.47.30570/upd3/dlc) Rip R.G. Revenants [Digi
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891834.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891829.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891827.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ Sea Dogs: City of Abandoned Ships / Корсары: Город потерянн�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891826.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891761.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ Classic Albums: Nirvana - Nevermind (2005) DVDRip
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891726.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891720.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891711.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891710.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891709.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891708.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ Carbon Based Lifeforms - Discography 27 Releases (1998-2021) Ultimae Records, Le
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891707.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ CRSED: FOAD (2018) [Ru/Multi] (2.0.4.171) License (обновляемая)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891705.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ NASA показало полностью электрический самоле
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891553.jpg" />
 </div>
 
 
@@ -648,32 +674,6 @@ X-57 Maxwell — это экспериментальный полностью э
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352365   (891315) от 30.03.2020
-
-Dorohedoro | Дорохедоро [2020, TV, 12 эп.] HDTV 720p raw
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891315.jpg" />
-</div>
-
-
-###  Подробнее
-
-В злачном городе Дыре живёт ящероголовый Кайман. Не то чтобы он хотел быть ящероголовым или помнил, как таким стал. Всё, что он знает: его заколдовал один из магов, прибывших в Дыру для тренировки своих способностей, а чтобы вернуть себе память и прежний облик, нужно убить виновника, на которого укажет чувак в глотке Каймана. Потому ящероголовый и решает начать охоту (   Читать дальше...   )Производство: студия MAPPAЖанр: приключения, фэнтези, чёрная комедияРежиссер: Хаяси ЮйтироПеревод: SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C88137F52C5EC27283FC68DA9CF39CD9288AC31
 ```
 
 https://mybot314.ru/tekegram_catalog/

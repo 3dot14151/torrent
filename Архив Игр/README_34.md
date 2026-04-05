@@ -1,3 +1,57 @@
+###  Публикация: 918253   (587609) от 14.07.2015
+
+World of Tanks (2010) [Ru] (0.9.9) License
+
+>>След.
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587609.jpg" />
+</div>
+
+
+###  Подробнее
+
+World of Tanks — это массовая многопользовательская онлайн-игра, полностью посвященная бронированным машинам середины XX века.
+
+Игроки получат возможность плечом к плечу сражаться с поклонниками стальных гигантов со всех уголков планеты, отстаивая свои претензии на мировое танковое господство, а продвинутая система прокачки и развития позволит вам испытать любую (   Читать дальше...   )Тип издания: Официальный клиент (SD+HD)Разработчик: Wargaming.netЖанр: Action / Tank / 3D / 3rd Person / Online-onlyЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1666298DB7AA46059A840DEE0F7BA8CD9F20FD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918251   (587599) от 14.07.2015
+
+60 Seconds! (2015) [Ru/Multi] (1.042) Repack xGhost
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587599.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чудесная игра про выживание типичного семьянина в экстремальной ситуации. Соберите как можно больше припасов, прихватите свою семью и разместитесь в бункере, только не надейтесь на тихую жизнь. У каждого члена семьи будут свои потребности, нередко нарушающие нужды других родственников. Управление этим хаосом ляжет на вас.Тип издания: RepackРазработчик: Robot Gentleman StudiosЖанр: Adventure, Indi, StrategyЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский, Английский, Польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2201C98AFCF0FC2C09375EA04ACDC1FCE12CE985
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1040273   (587124) от 04.08.2016
 
 Crashlands (2016) [En] (1.1.11.0) License GOG
@@ -6,7 +60,7 @@ Crashlands (2016) [En] (1.1.11.0) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587124.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Cloning Clyde (P) [En] 2011
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586020.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585587.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584618.jpg" />
 </div>
 
 
@@ -117,7 +171,7 @@ Post Apocalyptic Mayhem [Ru] (RePack/upd3) 2011 | shidow
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583631.jpg" />
 </div>
 
 
@@ -143,7 +197,7 @@ Mystery Case Files: The Malgrave Incident [Wii] [NTSC] [Eng] (2011)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582912.jpg" />
 </div>
 
 
@@ -169,7 +223,7 @@ Scythe (2018) [Ru/Multi] (1.7.30/dlc) License GOG [Digital Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582655.jpg" />
 </div>
 
 
@@ -195,7 +249,7 @@ GRID Autosport (2014) [Ru/Multi] (1.0.100.5260/6dlc) SteamRip R.G. Игрома�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582213.jpg" />
 </div>
 
 
@@ -223,7 +277,7 @@ Dex (2015) [En/Multi] (5.2.1.1/dlc) License GOG [Enhanced Version]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581223.jpg" />
 </div>
 
 
@@ -249,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580670.jpg" />
 </div>
 
 
@@ -278,7 +332,7 @@ Enderal: Forgotten Stories (2019) [Ru] (1.9.32.0/dlc) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579985.jpg" />
 </div>
 
 
@@ -304,7 +358,7 @@ Bully Scholarship Edition [Ru] (RePack) 2008 | Spieler
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579442.jpg" />
 </div>
 
 
@@ -331,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579435.jpg" />
 </div>
 
 
@@ -357,7 +411,7 @@ Rise of the Tomb Raider (2016) [Ru/En] (1.0.668.1/dlc) Repack R.G. Revenants
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579116.jpg" />
 </div>
 
 
@@ -383,7 +437,7 @@ This Is the Police (2016) [Ru/Multi] (1.0.34) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579060.jpg" />
 </div>
 
 
@@ -409,7 +463,7 @@ Surviving Mars (2018) [Ru/Multi] (244677/dlc) Repack xatab [Digital Deluxe Editi
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578875.jpg" />
 </div>
 
 
@@ -435,7 +489,7 @@ Endless Space (Repack/1.0.9) [En] 2012 | VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578269.jpg" />
 </div>
 
 
@@ -461,7 +515,7 @@ Kingdoms of Amalur: Reckoning + 10 DLC [Ru] (RePack/1.0.0.2) 2012 l Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578268.jpg" />
 </div>
 
 
@@ -487,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578255.jpg" />
 </div>
 
 
@@ -515,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576104.jpg" />
 </div>
 
 
@@ -541,7 +595,7 @@ Harry Potter and the Deathly Hallows: Part 2 / Гарри Поттер и Дар
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576088.jpg" />
 </div>
 
 
@@ -567,7 +621,7 @@ Warhammer 40,000: Sanctus Reach (2017) [Ru/Multi] (1.2.5/dlc) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575538.jpg" />
 </div>
 
 
@@ -593,7 +647,7 @@ Inversion (RePack) [Ru/En] 2012 l Sash HD
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575122.jpg" />
 </div>
 
 
@@ -620,7 +674,7 @@ Super Laser Racer (Eng) [L] (2009)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_574762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_574762.jpg" />
 </div>
 
 
@@ -632,60 +686,6 @@ Super Laser Racer (Eng) [L] (2009)
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527700   (574480) от 27.07.2012
-
-Angry Birds Space [En] (L/1.2.2) 2012
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Angry Birds Space отправляется в космос! После того, как гигантский коготь похищает их яйца, Сердитые птицы преследуют его в червоточину и двигаются по странной новой галактике – окруженной космическими свиньями! К счастью у Сердитых птиц есть собственная сверхдержава... Angry Birds Space включает в себя 60 межзвездных уровней на планетах и в невесомости, приводящей к захватывающему геймплею с головоломками, совершенно новыми птицами, совершенно новыми супердержавами и целой галактикой для исследования. Небо больше не предел!
-(   Читать дальше...   )Тип издания: ЛицензияЖанр: Arcade / Logic (Puzzle)Язык озвучки: -/-Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F441D7AA5F1B3095514E8FC925F0BDA66510B5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527962   (574312) от 27.07.2012
-
-Inversion [En] (L) 2012 | SKIDROW
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574312.jpg" />
-</div>
-
-
-###  Подробнее
-
-События Inversion разворачиваются в будущем. На Землю вторгся таинственный и могущественный враг, перед которым и люди, и современное оружие оказались беспомощны. Вскоре повсюду на планете образовались аномальные зоны, где изменяется вектор притяжения или вовсе царит невесомость.
-Полицейский Дэвис Рассел и его друг Лео Дельгадо отправляются в смертельно опасное путешествие по ввергнутому в хаос мегаполису, чтобы отыскать пропавшую дочь Рассела. Противопоставить захватчикам отчаянные герои могут лишь изобретательность и смекалку… Однако, по счастью, в их руки попадает главное оружие противника — Gravlink, устройство для управления гравитацией.(   Читать дальше...   )Тип издания: ЛицензияРазработчик: Saber InteractiveЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:561E5033E8349AB1E4B5F59F407D048998A63C85
 ```
 
 https://mybot314.ru/tekegram_catalog/

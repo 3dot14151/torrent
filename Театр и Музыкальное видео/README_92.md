@@ -6,7 +6,7 @@
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379375.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379359.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Rammstein - Bizarre Festival (1996) VHSRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379305.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Rammstein - Bizarre Festival (1997) VHSRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379301.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Rihanna - Bitch Better Have My Money (2015) WEBRip[H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379153.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ U2-Концерт/Чикаго (2015) WEBRip[H.264/2160p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379152.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379093.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Караоке
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378986.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ LG Karaoke 200 суперхитов ver. 9.0 (2012) DVD9
 >>Караоке
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378857.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378415.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378112.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ Dolly Dots - Reunie Concert Ahoy (2007) [H.264, SD] DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377412.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Akcent / Коллекция видео (2002-2010) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377111.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ VA - Осенний марафон № 199 / Видеоклипы (Свежие 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377040.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376804.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Billy Hlapeto And Kristo Feat. Lexus - Are Dai Pak (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376421.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ M. O. B feat. Alex T - Make You Scream (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376072.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Madonna: Rebel Heart Tour (2016) BDRemux [H.264/1080i] [EN]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375706.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Santana - Santana IV: Live at the House of Blues, Las Vegas (2016) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375660.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Santana - Santana IV Live at the House of Blues (2016) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375566.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375342.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Tubular Bells II Live (1999) DVDRip [hand made 60fps] H.264
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375107.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374410.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Metallica - Концерт в Москве (2015) WEBRip [1080p/60fps]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374350.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374111.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374069.jpg" />
 </div>
 
 

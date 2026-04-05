@@ -6,7 +6,7 @@ Akagami no Shirayukihime | Красноволосая Белоснежка [2015
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493539.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Tokyo Ghoul A | Токийский гуль [ТВ-2] [2015, TV, 12] BDRip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491342.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Hitsugi no Chaika: Avenging Battle Chaika: The Coffin Princess - Avenging Battle
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489730.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Wake Up, Girls! / Подъем, девчата! [2014, TV, 12] BDrip 1080p Hi10p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489398.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Dantalian no Shoka / The Mystic Archives of Dantalian / Таинственная
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488827.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Nihon Animator Mihonichi | Japan Animator Expo | Японская выставк
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487120.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Lucky ☆ Star / Счастливая звезда [2007, 24 эп.] BDRip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486738.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Wakaba Girl | Модница Вакаба [2015, TV, 13 + 1] BDrip 1080p Hi10p r
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485995.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Katsute Kami Datta Kemono-tachi e | To the Abandoned Sacred Beasts | Отвер�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483245.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Go-Toubun no Hanayome | The Quintessential Quintuplets | Пять невест [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482584.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Tate no Yuusha no Nariagari | The Rising of the Shield Hero | Восхожден
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482568.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Penguin Highway | Тайная жизнь пингвинов [2018, Movie] BDrip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479222.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Masou Gakuen HxH | Hybrid x Heart Magias Academy Ataraxia | Магическая
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479010.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Moonlight Mile: 2nd Season - Touch Down | Лунная миля: Приземл�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478416.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Bakumatsu Rock | Рок эпохи Бакумацу [2014, TV, 12 из 12] BDRip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475150.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Moonlight Mile: 1st Season - Lift off | Лунная миля [2007, TV, 12 из
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474312.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Kamigami no Asobi | Забавы богов [2014, TV, 12 из 12] BDRip 1080p r
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470985.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Hinako Note | Дневник Хинако [2017, TV, 12 из 12] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470722.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Taimadou Gakuen 35 Shiken Shoutai | Anti-Magic Academy: The 35th Test Platoon | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470590.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Days | Дни [2016, TV, 24 из 24] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466550.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Mawaru Penguindrum / Крутящийся пингвиний барабан [201
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466461.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Ajin | Полулюди [2016, TV, 13] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465810.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Mashiroiro Symphony: The Color of Lovers / Белоснежная симфони
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464200.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Ore ga Ojou-sama Gakkou ni "Shomin Sample" Toshite Gets-sareta Ken | Прост�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463820.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Danchigai / Big Difference / Большая разница [2015, TV, 12 + OVA] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462386.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Akai Koudan Zillion | Red Photon Zillion | Красный фотон Зилли�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462348.jpg" />
 </div>
 
 

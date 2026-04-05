@@ -1,3 +1,185 @@
+###  Публикация: 1531949   (688059) от 05.03.2022
+
+King’s Man: Начало / The King's Man (2021) BDRip [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kingsman — организация супершпионов, действующая на благо человечества вдали от любопытных глаз. И один из первых и самых талантливых оперативников в истории организации — Конрад, молодой и наглый сын герцога Оксфордского. Как и многие его друзья, он мечтал служить на благо Англии, но в итоге оказался втянут в тайный мир шпионов и убийц.Производство: Великобритания, США / 20th Century Studios, Marv Films, Marv StudiosЖанр: боевик, триллер, приключенияРежиссер: Мэттью ВонАктеры: Харрис Дикинсон, Даниэль Брюль, Рэйф Файнс, Аарон Тейлор-Джонсон, Рис Иванс, Джемма Артертон, Мэттью Гуд, Том Холландер, Бранка Катич, Стэнли ТуччиПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 02:10:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AE06937491F8CCA5BD0CFD08F2A1419D02C98ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 660537   (687963) от 23.06.2016
+
+Легенда №17 (2013) Blu-ray [1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_687963.jpg" />
+</div>
+
+
+###  Подробнее
+
+2 сентября 1972 года. Монреаль. Хоккейная сборная СССР с разгромным счетом 7:3 победила канадских профессионалов из НХЛ в стартовом матче эпохальной Суперсерии СССР-Канада. Это была не просто игра, это была битва за свою страну, которая перевернула мировое представление о хоккее. Теперь весь мир знал его просто по номеру «17». Валерий Харламов, забивший в том матче (   Читать дальше...   )Производство: РоссияЖанр: Спорт, Драма, БиографияРежиссер: Николай ЛебедевАктеры: Данила Козловский, Олег Меньшиков, Владимир Меньшов, Борис Щербаков, Роман Мадянов, Светлана Иванова, Дарья Екамасова, Гёц Отто, Алехандра Грепи, Александр РагулинПеревод: Не требуется (Русский)Язык субтитров: ОтсутствуетПродолжительность: 02:13:53
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028216   (687949) от 23.06.2016
+
+Deadlight: Director's Cut (2016) [Ru/Multi] (1.0) Repack Other s
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир рухнул. Надежды нет. Нельзя начать все с чистого листа. Остались только выжившие. Игра «Deadlight: Director's Cut» рассказывает историю Рэндэла Уэйна — человека, ищущего свою семью в Сиэтле после событий 1980-х годов, во время которых вся жизнь на Земле была уничтожена. Этот ошеломляющий кинематографичный платформер заставит вас бегать, прыгать, карабкаться по (   Читать дальше...   )Тип издания: RepackРазработчик: Tequila Works, Abstraction GamesЖанр: Arcade (Platform), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16EDC607D926DA91E68073EB3D038F45876C6619
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028611   (687947) от 23.06.2016
+
+Adobe Photoshop CC 2015.5 (17.0.0) [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop CC — программа для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, коллажирования, трансформации (   Читать дальше...   )Тип издания: Mac OS X SoftwareРелиз состоялся: 20 июня 2016Разработчик: Adobe SystemsПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A1C0905475DC6E752EE077AD4EE2EC342B44958
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958388   (687946) от 23.06.2016
+
+Mordheim: City of the Damned (2015) [Ru/Multi] (1.3.4.1/dlc) License CODEX
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mordheim: City of the Damned – это первая видеоигра, сделанная на основе культовой классической настольной игры Mordheim от Games Workshop. Действие Mordheim: City of the Damned разворачивается в опустошенном имперском городе вселенной Warhammer.Тип издания: LicenseРазработчик: Rogue FactorЖанр: Strategy (Turn-based, Tactical), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3513FE6C4F193B6AC0BBF3A19403B2FD94322EDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028427   (687945) от 23.06.2016
+
+Windows 7 Максимальная Ru x86-x64 Orig w. BootMenu by OVGorskiy® 06.2016 1DVD
+
+>>3
+>>9
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687945.jpg" />
+</div>
+
+
+###  Подробнее
+
+обновленные оригинальные русские образы ОС "Windows® 7™ Максимальная" от Microsoft разных разрядностей (x86 и x64), объединенных в один образ стандартными средствами от Microsoft (AIK) на 1 DVD. Включает в себя "чистые" не модифицированные образы ОС Windows 7 Ultimate x86/x64 и расширенный загрузчик-установщик Stop SMS Uni Boot от Core-2. Интегрированы: (   Читать дальше...   )Язык интерфейса: Русский (Russian)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8230426C6D34A242A0C00456079F32B2429B1E31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028145   (687944) от 23.06.2016
+
+The Elder Scrolls IV: Oblivion - Association: Era of Change (2016) [Ru] (1.2.0416/1.6) Mod Rubicon
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем Вам новый проект гильдии мастеров Rubarius. Разработка серии Oblivion Association на протяжении пяти последних лет позволила команде создать абсолютно новый и амбициозный проект. Предыдущие полгода, используя новейшие инструменты работы и оптимизации, велась разработка и тестирование нового проекта, основной целью которого стало создание сборки не перегруженной (   Читать дальше...   )Тип издания: Глобальная модификацияРазработчик: Oblivion Association Team & Bethesda SoftworksЖанр: RPG, 3D, 1st Person, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D116FA954BECC72FEADA811AB8748730704284E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1403464   (687901) от 21.08.2020
 
 «Калашников» анонсировал умное ружьё с подключением к смартфону
@@ -6,7 +188,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_687901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_687901.jpg" />
 </div>
 
 
@@ -33,7 +215,7 @@ Navitel / Навител Навигатор 9.13.51 Full для карт рел�
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687884.jpg" />
 </div>
 
 
@@ -59,7 +241,7 @@ Frostpunk (2018) [Ru/Multi] (1.6.0/dlc) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_687882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_687882.jpg" />
 </div>
 
 
@@ -85,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687880.jpg" />
 </div>
 
 
@@ -111,7 +293,7 @@ Windows 10 32in1 (2004 + LTSC 1809) x86/x64 +/- Office 2019 x86 by SmokieBlahBla
 >>24
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687879.jpg" />
 </div>
 
 
@@ -140,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_687730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_687730.jpg" />
 </div>
 
 
@@ -166,7 +348,7 @@ CorelDRAW Graphics Suite 2019 21.0.0.593 RePack by KpoJIuK [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687719.jpg" />
 </div>
 
 
@@ -192,7 +374,7 @@ Kingdom Come: Deliverance (2018) [Ru/En] (1.8.1 247g/dlc) Repack R.G. Механ
 >>14
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687718.jpg" />
 </div>
 
 
@@ -218,7 +400,7 @@ The Elder Scrolls V: Skyrim (2016) [Ru/En] (1.5.73.0.8) Repack =nemos= [Special 
 >>15
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687716.jpg" />
 </div>
 
 
@@ -244,7 +426,7 @@ The SIMS 4 (2014) [Ru/En] (1.50.67.1020/dlc) Repack R.G. Механики [Delux
 >>17
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687715.jpg" />
 </div>
 
 
@@ -270,7 +452,7 @@ Fallout 4 (2015) [Ru/En] (1.10.130.0.1/dlc) Repack =nemos=
 >>31
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687714.jpg" />
 </div>
 
 
@@ -296,7 +478,7 @@ Mozilla Firefox 38.0 Final [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687209.jpg" />
 </div>
 
 
@@ -322,7 +504,7 @@ Etherlords 2: The Second Age / Демиурги 2 [Ru] (RePack) 2003 | Focus
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687141.jpg" />
 </div>
 
 
@@ -348,7 +530,7 @@ Max Payne 3 (Steam-Rip/1.0.0.22) [Ru/En/Multi8] 2012 l R.G. Origins
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687139.jpg" />
 </div>
 
 
@@ -376,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686861.jpg" />
 </div>
 
 
@@ -402,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_686728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_686728.jpg" />
 </div>
 
 
@@ -428,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_686618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_686618.jpg" />
 </div>
 
 
@@ -454,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_686602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_686602.jpg" />
 </div>
 
 
@@ -480,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686518.jpg" />
 </div>
 
 
@@ -493,190 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F91F42DF7DED472743CA73A4A960B3A88BD0AEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134740   (686511) от 16.05.2017
-
-Rufus 2.15 (Build 1117) Final Portable [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686511.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rufus - небольшая утилита помогает отформатировать и создавать загрузочные USB флэш-накопители (USB ключи, карты памяти и т.д.). Несмотря на свои небольшие размеры, Rufus предоставляет все, что вам нужно для создания установочного USB носителя с загрузочными ISO (Windows, Linux и т.д.) или микропрограммами из DOS.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB95F18524EBD3D21D48AC6E3FADE86FE14C53D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134395   (686505) от 16.05.2017
-
-Microsoft обвинила АНБ в накоплении эксплойтов
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_686505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Microsoft в лице президента и юридического директора Брэда Смита (Brad Smith) высказала официальную позицию по поводу глобальной эпидемии червя и криптовымогателя WannaCrypt (WannaCry, WanaDecrypt0r). С пятницы этот зловред поразил более 200 тыс. компьютеров в более 150 странах мира, наиболее пострадали Великобритания и Россия. Червь распространяется через (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134503   (686493) от 16.05.2017
-
-Microsoft Windows 7 SP1 x86/x64 Ru 9 in 1 Origin-Upd 05.2017 by OVGorskiy® 1DVD
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686493.jpg" />
-</div>
-
-
-###  Подробнее
-
-обновленные оригинальные русские образы ОС Windows 7 от Microsoft разных редакций и разрядностей. Образ содержит в себе 9 редакции ОС на 1 DVD (x86 и x64). Включает в себя "чистые" не модифицированные образы ОС Windows 7 Starter x86, Home Basic x86/x64, Home Premium x86/x64, Professional x86/x64, Ultimate x86/x64, собранные в один образ стандартными средствами (   Читать дальше...   )Язык интерфейса: Русский (Russian),
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EA803DDD6EC7D19F96F95994938E8E48F651979
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916229   (686491) от 16.05.2017
-
-Сотовые операторы PRO 1.54 [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686491.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение позволяет определять сотового оператора или оператора фиксированной связи при входящих/исходящих вызовах. Проект "Сотовые операторы" стал победителем в открытом конкурсе инновационных гражданских проектов в сфере Web-разработок Apps4Russia 2013 в номинации "Государство в кармане" - инициативы и проекты, нацеленные на разработку мобильных (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 16.05.17Разработчик: Gleb ZakaevПоддерживаемая ОС: Android 4.0 +Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B6F1D424E96D34D1B0F88C688CFEC37F829DADC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133038   (686489) от 16.05.2017
-
-Windows 10 (x86/x64) 12in1 + LTSB +/- Office 2016 by SmokieBlahBlah 11.05.17 [Ru/En]
-
->>3
->>27
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686489.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 редакций Windows 10 (русские и английские) с обновлениями по май 2017, основанных на оригинальных образах (1703 и LTSB 1607) и интегрированными системными библиотеками
-+12 таких же редакций со встроенным MS Office 2016 Pro Plus VL x86 (можно выбрать, ставить ли Office. Галочка перед началом установки, см. 1-й скриншот).
-Язык офиса зависит от выбранного языка ОС. (   Читать дальше...   )Язык интерфейса: Русский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FB1C2CD20069BCB04B26BD2AA7A55E01F0FA2C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028845   (686251) от 24.06.2016
-
-Индия установила мировой рекорд, запустив в космос 20 спутников одной ракетой
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_686251.jpg" />
-</div>
-
-
-###  Подробнее
-
-22 июня 2016 года в 09:26 по местному времени (IST) со стартовой площадки Second Launch Pad (SLP) Космического центра имени Сатиша Дхавана (Satish Dhawan Space Centre), Шикарихота, Индия, был произведен запуск ракеты-носителя PLSV (Polar Satellite Launch Vehicle) С-34. Этот 34-й запуск сделал Индию обладателем нового мирового рекорда, ведь в грузовом отсеке ракеты (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028846   (686087) от 24.06.2016
-
-Ученые готовятся к первым клиническим испытаниям нового лекарственного препарата против старения
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_686087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ученые-медики из Вашингтонского университета, Сент-Луис, США, и университета Кейо, Япония, готовятся к началу проведения объединенных клинических испытаний нового препарата, который может значительно замедлить процесс старения человеческого организма. Эти испытания могут быть начаты в начале-середине июля этого года, но предварительно "зеленый свет" их (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1683032   (130654) от 09.12.2023
+
+King Arthur: Knight's Tale (2022) [Ru/Multi] (2.0.0/dlc) Scene Rune
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы сэр Мордред, роковой противник короля Артура, некогда черный рыцарь из мрачных легенд. Вы убили короля Артура, но перед смертью он сразил и вас. Вы оба умерли, и вместе с тем вы оба живы. Владычица Озера, правительница загадочного острова Авалон, вернула вас к жизни, чтобы покончить с истинным кошмаром. Она хочет, чтобы вы отправились в рыцарский поход. Она хочет, (   Читать дальше...   )Тип издания: SceneРазработчик: NeocoreGamesЖанр: Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3012942D184CC5E2FF5A743A487C6F9BA5B9FCB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524890   (130544) от 18.01.2022
+
+Urtuk: The Desolation (2021) [Ru/Multi] (1.0.091b) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тактическая пошаговая RPG в стилистике фэнтези с открытым миром. Ведите свою группу искателей приключений через руины древнего мира. Набирайте новых последователей, обчищайте трупы своих павших врагов и делайте всё возможное, чтобы выжить в этих суровых и мрачных землях.Тип издания: LicenseРазработчик: David KaletaЖанр: Ролевая игра, Пошаговая, ФэнтезиЯзык субтитров: Русский, Английский, Польский, Французский и другиеЯзык интерфейса: Русский, Английский, Польский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:399122B0C1256BD51A9806EE62133EC77489417E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1588329   (128344) от 12.12.2023
 
 World of Horror (2020) [Multi] (1.01) License GOG
@@ -6,7 +58,7 @@ World of Horror (2020) [Multi] (1.01) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128344.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Cookie Cutter (2023) [Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127901.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Wo Long: Fallen Dynasty (2023) [Ru/Multi] (1.300/dlc) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127525.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Legend of Keepers: Career of a Dungeon Manager (2020) [Ru/Multi] (1.1.0.3/dlc) L
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127331.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Cygnus Enterprises (2023) [Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127018.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Asterigos: Curse of the Stars (2022) [Ru/Multi] (1.08rc1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126557.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Trinity Fusion (2023) [Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126386.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ You Will Die Here Tonight (2023) [En] (20231102) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126341.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Shadows Over Loathing (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125609.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Dungeons of Sundaria (2023) [Ru/Multi] (1.0.0.53394) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125396.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Merchant of the Six Kingdoms (2023) [En] (5.1) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125126.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Dungeons of Sundaria (2023) [Ru/Multi] (1.0.0.53385) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125125.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Small Saga (2023) [En] (20231130) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124822.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Darkwood (2017) [Ru/Multi] (1.4a/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124626.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Gone Rogue (2023) [Ru/Multi] (1.14) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124615.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Six Ages 2: Lights Going Out (2023) [En] (1.0.4) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124606.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Six Ages: Ride Like the Wind (2019) [En] (1.0.12-1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124417.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Final Fantasy VII Rebirth (2025) [Ru/Multi] (1.003/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124407.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Dragon Ball Z: Kakarot (2020) [Ru/Multi] (2.02/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124300.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Gray Zone (2022) [Ru/Multi] (1.12) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124127.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Sea of Stars (2023) [Ru/Multi] (1.0.47140) Scene Razor1911
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124115.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Fates of Ort (2020) [En] (1.4.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123953.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Vagrus The Riven Realms (2021) [En] (1.1.50.1219V/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123477.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Above Snakes (2023) [Ru/Multi] (1.4.4/dlc) Repack Other s [Collectors Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123473.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Above Snakes (2023) [Ru/Multi] (1.4.4/dlc) Repack Other s [Collectors Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8E348050C19857A9768D8DB47EAA711D1556B3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691159   (123373) от 12.01.2024
-
-Space Rangers / Космические рейнджеры (2002) [Ru] (1.6) Repack Decepticon
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123373.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новое издание популярной тактической ролевой игры. Действие игры происходит в огромном мире, который живет и развивается по своим законам, в нем постоянно происходят разнообразные события: захватываются и освобождаются планеты и целые звездные системы, пираты грабят суда, на планетах совершаются государственные перевороты, а ученые делают новые открытия. В роли представителя (   Читать дальше...   )Тип издания: RepackРазработчик: Elemental GamesЖанр: RPG, Strategy, Adventure, QuestЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08E511703BDDB255701E0EFFF46B19F810DBB420
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691475   (123356) от 12.01.2024
-
-Dragon Quest Treasures (2023) [Multi] (20240111/dlc) Scene Tenoke [Digital Deluxe]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123356.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dragon Quest Treasures - ролевое приключение, в центре которого герой Эрик и его сестра Миа. Они живут и путешествуют на корабле викингов по всему миру, пытаясь отыскать древние сокровища. Одного дня они натыкаются на странных существ, таких как Поркус и Мурсулу. Демоны уносят их в другой мир, который носит названием Дракония. Это королевство, известное в первую (   Читать дальше...   )Тип издания: SceneРазработчик: Square Enix, TOSE CO., LTD.Жанр: Экшены, Ролевая играЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D67FDCF4C7B5E3E21E8A3147FA8EFB443FAF44E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

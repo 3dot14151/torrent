@@ -1,3 +1,161 @@
+###  Публикация: 859469   (943851) от 14.01.2015
+
+VideoHive - Slideshow Constructor [AEP]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Slideshow Constructor - само название говорит само за себя, проект для создания слайд шоу.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB00836AD06E1E16538AE07C81C36D5C86981067
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 859525   (943843) от 14.01.2015
+
+Левиафан (2014) WEB-DL [H.264/720p-LQ]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943843.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре истории — живущий на севере Николай, который вместе с отцом построил дом и мастерскую. Но его нормальная жизнь рушится под влиянием судьбы.Производство: Россия, Нон-стоп ПродакшнЖанр: ДрамаРежиссер: Андрей ЗвягинцевАктеры: Алексей Серебряков, Елена Лядова, Владимир Вдовиченков, Роман Мадянов, Анна Уколова, Алексей Розин, Сергей Походаев, Валерий Гришко, Сергей Бачурский, Платон КаменевПеревод: Не требуется (русский)Субтитры: Вшитые не отключаемыеЯзык субтитров: АнглийскийПродолжительность: 02:21:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49B6317B00FE35A5928CC95BCFF96BB3FB0D5C72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 741725   (943839) от 14.01.2015
+
+Черепашки Мутанты Ниндзя / Teenage Mutant Ninja Turtles (2013) WEB-DL [720p] (Сезон: 2, Серии: 1-26 из 26)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943839.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лео, Раф, Майки и Донни – черепашки-мутанты, научившиеся боевому искусству ниндзюцу у своего сэнсэя Учителя Сплинтера. Выбравшись из канализации на улицы Нью-Йорка, братья оказываются в бурлящем жизнью мегаполисе. Здесь им придется неустанно противостоять самым кровожадным злодеям в истории человечества. В свободное от схваток время ребята занимаются своим любимым (   Читать дальше...   )Жанр: Экшн, Приключения, Фэнтези, КомедияРежиссер: Майкл ЧангПерсонажи: Леонардо, Рафаэль, Донателло, Микеланджело, Сплинтер, Эйприл О’Нил, Шреддер, КараиПеревод: Многоголосый закадровыйФормат: MKVПродолжительность: ~00:23:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0538F19B6009954F7554BE42A42C6B10517A4351
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 859535   (943832) от 14.01.2015
+
+Левиафан (2014) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>15
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943832.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре истории — живущий на севере Николай, который вместе с отцом построил дом и мастерскую. Но его нормальная жизнь рушится под влиянием судьбы.Производство: Россия, Нон-стоп ПродакшнЖанр: ДрамаРежиссер: Андрей ЗвягинцевАктеры: Алексей Серебряков, Елена Лядова, Владимир Вдовиченков, Роман Мадянов, Анна Уколова, Алексей Розин, Сергей Походаев, Валерий Гришко, Сергей Бачурский, Платон КаменевПеревод: Не требуется (русский)Субтитры: Вшитые не отключаемыеЯзык субтитров: АнглийскийПродолжительность: 02:21:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8CED82DC7EA273B0749D83329137CAE785AC294
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 582304   (943778) от 05.03.2013
+
+Far Cry 3 [Ru/En] (Repack/1.05) 2012 | z10yded
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой, Джейсон Броуди, отправляется с друзьями в отпуск на необычайно красивый тропический остров. И тут же оказывается в заложниках у банды пиратов под предводительством безумного убийцы Вааса. Начиная с этого момента, ваша задача – выжить любой ценой.
+
+Джейсон будет втянут в кровопролитную войну между пиратами и местными повстанцами, в которой кровь, свинец и наркотики льются рекой. Одни психопаты сражаются с другими, и вскоре главный герой уже не в силах отличить опиумный сон от безумной яви. Сумасшедший остров сводит с ума всех, кто ступит на его берега и нужно быть психом, чтобы здесь остаться. А ты в своём уме?(   Читать дальше...   )Тип издания: RepackРазработчик: Ubisoft Montreal, Massive Entertainment and Ubisoft ShanghaiЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F05BB177E49B15421A0A4E88283944D13AE0F0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363119   (943471) от 27.02.2020
+
+Россия запустила крупнейшее в мире производство графеновых нанотрубок
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943471.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российская компания OCSiAl, выделившаяся из портфельной группы компаний "Роснано", запустила в Новосибирске Graphetron 50 - крупнейшую в мире установку по синтезу графеновых нанотрубок, кардинально изменяющих характеристики различных материалов.Graphetron 50 - крупнейшая в мире установка по синтезу графеновых нанотрубок - вторая установка новосибирского (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363089   (943470) от 27.02.2020
 
 RMS Удаленный доступ 6.10 [Ru/En]
@@ -6,7 +164,7 @@ RMS Удаленный доступ 6.10 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943470.jpg" />
 </div>
 
 
@@ -34,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943461.jpg" />
 </div>
 
 
@@ -60,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943459.jpg" />
 </div>
 
 
@@ -86,7 +244,7 @@ Microsoft® Windows® 7 Ultimate Ru x64 SP1 7DB by OVGorskiy® 02.2020
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943457.jpg" />
 </div>
 
 
@@ -112,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943455.jpg" />
 </div>
 
 
@@ -138,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943333.jpg" />
 </div>
 
 
@@ -165,7 +323,7 @@ Deepin OS 15.1 [amd64] 1xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943249.jpg" />
 </div>
 
 
@@ -191,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943117.jpg" />
 </div>
 
 
@@ -217,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943098.jpg" />
 </div>
 
 
@@ -243,7 +401,7 @@ Avast Premier 2016.11.1.2253 Final [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943094.jpg" />
 </div>
 
 
@@ -269,7 +427,7 @@ Kaspersky Internet Security 16.0.1.445 MR1 Repack by ABISMAL [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943091.jpg" />
 </div>
 
 
@@ -295,7 +453,7 @@ Kaspersky Internet Security 16.0.0.614 (d)  Repack by ABISMAL & Planemo [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943088.jpg" />
 </div>
 
 
@@ -321,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942856.jpg" />
 </div>
 
 
@@ -347,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942845.jpg" />
 </div>
 
 
@@ -373,7 +531,7 @@ GOIT | [GoJava EE Online] (2016) PCRec [H.264/720p]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942468.jpg" />
 </div>
 
 
@@ -402,7 +560,7 @@ Hexlet | Полная версия курса "Бэкенд JS-программ�
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942454.jpg" />
 </div>
 
 
@@ -428,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942452.jpg" />
 </div>
 
 
@@ -454,7 +612,7 @@ Far Cry Primal (2016) [Ru/Multi] (1.3.3/dlc) Repack R.G. Механики [Apex 
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942451.jpg" />
 </div>
 
 
@@ -480,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942390.jpg" />
 </div>
 
 
@@ -508,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942333.jpg" />
 </div>
 
 
@@ -520,170 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:616AB0B3A5A98DB24D7E3CBC431C464347EB82F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 587584   (942282) от 06.03.2013
-
-Far Cry 3 [Ru/En] (Repack/1.05) 2012 | R.G. Catalyst
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой, Джейсон Броуди, отправляется с друзьями в отпуск на необычайно красивый тропический остров. И тут же оказывается в заложниках у банды пиратов под предводительством безумного убийцы Вааса. Начиная с этого момента, ваша задача – выжить любой ценой.
-
-Джейсон будет втянут в кровопролитную войну между пиратами и местными повстанцами, в которой кровь, свинец и наркотики льются рекой. Одни психопаты сражаются с другими, и вскоре главный герой уже не в силах отличить опиумный сон от безумной яви. Сумасшедший остров сводит с ума всех, кто ступит на его берега и нужно быть психом, чтобы здесь остаться. А ты в своём уме?
-
-(   Читать дальше...   )Тип издания: RePackРазработчик: Ubisoft Montreal, Massive Entertainment and Ubisoft ShanghaiЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:810A14B15148A77B615E1CBB35D2F727EAF2F993
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 859843   (942251) от 15.01.2015
-
-Левиафан (2014) WEB-DLRip [H.264]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942251.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре истории — живущий на севере Николай, который вместе с отцом построил дом и мастерскую. Но его нормальная жизнь рушится под влиянием судьбы.Производство: Россия, Нон-стоп ПродакшнЖанр: ДрамаРежиссер: Андрей ЗвягинцевАктеры: Алексей Серебряков, Елена Лядова, Владимир Вдовиченков, Роман Мадянов, Анна Уколова, Алексей Розин, Сергей Походаев, Валерий Гришко, Сергей Бачурский, Платон КаменевПеревод: Не требуется (русский)Субтитры: Вшитые не отключаемыеЯзык субтитров: АнглийскийПродолжительность: 02:21:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89C67482B3674473B833AEC3FFA9F190FC0B7EFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 858688   (942247) от 15.01.2015
-
-МосГаз. Палач (2014) SATRip (сезон 2, серии 1-10 из 10)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение телесериала «Мосгаз» (2012) об опергруппе Черкасова.
-События разворачиваются на окраине Москвы в 1965 году. В центре - история разоблачения женщины-палача, которая во время войны по указке немцев расстреливала пленных, партизан, мирных жителей. Это фактически отдельная гражданская война изуверки со своим народом. В войну ей едва исполнилось 20 лет, а (   Читать дальше...   )Производство: Россия, ООО «Студия Русский проект»Жанр: психологический триллерРежиссер: Вячеслав НикифоровАктеры: Андрей Смоляков, Марина Александрова, Алексей Бардуков, Юлия Пересильд, Виктория Толстоганова, Анатолий Журавлёв, Анатолий Калмыков, Анатолий Просалов, Руслан Ягудин, Юрий Чурсин, Светлана Ходченкова, Андреас Хельги Шмид, Маттиас В. Винтцер, Борис Полунин, Юрий Тарасов, Юлия КуварзинаФормат: AVIПродолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DEEE5EA924DA1D4323E9AF69D5DAB7255678EC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363154   (941896) от 28.02.2020
-
-Роскосмос планирует заменить всех сотовых операторов в России
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941896.jpg" />
-</div>
-
-
-###  Подробнее
-
-На сегодняшний день в России существует четыре гиганта сотовых операторов, остальным весьма сложно с ними конкурировать, что в итоге усложняет задачу новым операторам. Хотят тот же Теле 2 смог пробиться в своё время. В итоге вся страна пользуется услугами именно конкретных операторов, но есть одна большая загвоздка – зона покрытия ещё далека от идеала, в связи с (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363231   (941895) от 28.02.2020
-
-Евросоюз хочет вернуть в смартфоны съемные аккумуляторы
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941895.jpg" />
-</div>
-
-
-###  Подробнее
-
-В наше время съемный аккумулятор в смартфоне — очень большая редкость. Такой если и встречается, то лишь изредка в защищенных моделях (например, Samsung Galaxy XCover Pro) или бюджетниках (например, Motorola Moto E6). При этом многие до сих пор ностальгируют по тем недалеким временам, когда можно было легко самостоятельно заменить батарею, просто сняв заднюю крышку (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983474   (941702) от 07.02.2016
-
-Очередное достижение: 500 релизов от Alexman121
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941702.jpg" />
-</div>
-
-
-###  Подробнее
-
-
-Друзья!!
- Наш одноклубник, активный релизер, Модератор TV/Спорт RG NNM-Club DocTV!
-Alexman121 сегодня "незаметно" перешагнул рубеж 500 релизов!Поздравим уважаемого Alexman121 с этим достижением и пожелаем благополучия и всяческих успехов во всех его начинаниях! и конечно же не останавливаться на достигнутом !(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

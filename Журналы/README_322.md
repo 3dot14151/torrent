@@ -1,3 +1,133 @@
+###  Публикация: 931681   (511020) от 27.08.2015
+
+Журнал | H.O.M.E.&Style №5 (август-сентябрь 2015) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511020.jpg" />
+</div>
+
+
+###  Подробнее
+
+«H.O.M.E.&Style» (Дом и стиль) - журнал о современном взгляде на дизайн интерьера, который связал воедино дизайн, архитектуру, моду и современные технологии. Издание состоит из четырех разделов: интерьер, архитектура, техника, драйв, которые послужат поддержкой и хорошим ориентиром в современной жизни.Жанр: Дизайн интерьеровФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DA4FF605ADF3CAD3E0710B6DFE393DBCE16059E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931768   (511013) от 27.08.2015
+
+Журнал | Salon-interior №9 (сентябрь 2015) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511013.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторитетный российский журнал по архитектуре и дизайну представляет на своих страницах все новое, уникальное, эксклюзивное, что создается в стране и мире, помогая читателям всегда быть в курсе современных тенденций архитектуры и дизайна. События, мировые выставки, обзоры аксессуаров, исторические здания, интервью с мировыми звездами, ландшафтные и флористические (   Читать дальше...   )Жанр: Архитектура, строительство, дизайнФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2799BFF594889A29921F627151E156AB5F3EE1D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931932   (510950) от 27.08.2015
+
+Журнал |Мастерица №8 (2015) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал по разным видам рукоделия. В нём представлены: шитьё, вязание, вышивание крестом и лентами, декупаж, бисероплетение, фриволите, другие рукоделия, обзорные статьи и мастер-классы.Жанр: Рукоделие, Вышивание, ВязаниеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EA736E272C52AB7C06B24A71BA94CFC4848A7C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931842   (510940) от 27.08.2015
+
+Календарь | Современная усадьба. "Обезьяны" на 2016 год (2015) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510940.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перекидной календарь на 2016 год является специальным выпуском газеты "Современная усадьба".Жанр: календариФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ABC721DA11AEA711387D68CBD820C0D6A8741BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931706   (510857) от 27.08.2015
+
+Журнал | UPgrade №28 (733) (август 2015) [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510857.jpg" />
+</div>
+
+
+###  Подробнее
+
+UPgrade – самый популярный еженедельный компьютерный журнал России. В нем рассматривается самые интересные новинки компьютерного железа, даются многочисленные полезные советы и рекомендации, как сделать работу на компьютере удобной и эффективной. Искрометный юмор авторов не даст вам заскучать, даже читая о сложных вещах!Жанр: Компьютерный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:839DEEF12F6FDF01C87454B1F1688A6890B6826A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 931598   (510856) от 27.08.2015
 
 Журнал | Новый дом №8-9 (август-сентябрь 2015) [PDF]
@@ -6,7 +136,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510856.jpg" />
 </div>
 
 
@@ -33,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510779.jpg" />
 </div>
 
 
@@ -59,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510772.jpg" />
 </div>
 
 
@@ -85,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510561.jpg" />
 </div>
 
 
@@ -111,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510557.jpg" />
 </div>
 
 
@@ -137,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510495.jpg" />
 </div>
 
 
@@ -163,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510380.jpg" />
 </div>
 
 
@@ -189,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510351.jpg" />
 </div>
 
 
@@ -215,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510268.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510190.jpg" />
 </div>
 
 
@@ -267,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510114.jpg" />
 </div>
 
 
@@ -293,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510106.jpg" />
 </div>
 
 
@@ -320,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510105.jpg" />
 </div>
 
 
@@ -346,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509781.jpg" />
 </div>
 
 
@@ -372,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509774.jpg" />
 </div>
 
 
@@ -398,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509722.jpg" />
 </div>
 
 
@@ -424,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509687.jpg" />
 </div>
 
 
@@ -450,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509631.jpg" />
 </div>
 
 
@@ -476,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509596.jpg" />
 </div>
 
 
@@ -502,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509584.jpg" />
 </div>
 
 
@@ -529,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509536.jpg" />
 </div>
 
 
@@ -540,136 +670,6 @@ Stereo & Video первым встречает и представляет са�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:987347F8DE63F65089E2190611F1C87D981400FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932338   (509281) от 29.08.2015
-
-Журнал | Уютный дом №7 (июль 2015) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509281.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Уютный дом» — строительный журнал, предлагающий актуальную информацию о новинках в области строительства: новых технологиях, материалах, инструментах и т.п. Публикуются обзорные статьи о строительных и отделочных материалах, проводится анализ рынка стройматериалов. Специалисты популярно рассказывают о тонкостях строительства и ремонта, технологиях проведения отдельных (   Читать дальше...   )Жанр: Строительство, ремонт, дизайнФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66AD086806ECE7A40B2A79C162D6D78FE13B0FE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562460   (509210) от 09.07.2022
-
-Журнал | CQ Amateur Radio №7 (2022) [PDF][En]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509210.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американский журнал, посвященный радиосвязи на КВ и УКВ. В каждом номере описания различной аппаратуры, радиолюбительские конструкции и антенны, результаты различных соревнований по радиосвязи на КВ и УКВ и самая последняя DX-info.Жанр: КВ и УКВ радиосвязФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99E285F3ECE1FE98ED8B7E70511805BB53F94525
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562449   (509209) от 09.07.2022
-
-Журнал | Practical Wireless №8 (2022) [PDF][En]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509209.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журналы "Practical Wireless" - это бестселлеры для радиолюбителей. Усовершенствуйте старые технологии и будьте в курсе текущих технологических новшеств с информированными статьями журнала «Practical Wireless», новостями и обзорами по всем аспектам любительского радио. Сконструируйте радиооборудование и получите техническую информацию в разделах журнала, (   Читать дальше...   )Жанр: КВ и УКВ радиосвязьФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0FE74BC2D42EF326473B8FC07CAF5568F8C3C7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562434   (509207) от 09.07.2022
-
-Журнал | Woodcarving №188 (2022) [PDF][En]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иллюстрированный журнал рассказывает о резьбе по дереву, представляя это как приятное времяпрепровождение и признанную форму искусства. Каждый выпуск содержит подробные инструкции, обучающие программы, которые помогут читателю на каждом этапе в процессе резки, а также красивые художественные галереи различных работ. В журнале представлены фотографии, советы, приемы (   Читать дальше...   )Жанр: Резьба по деревуФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B99CD3FA85D450D19CBE37F24D9D2EA23E22E45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562418   (509205) от 09.07.2022
-
-Журнал | Selbst ist der Mann №8 (2022) [PDF] [De]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Selbst ist der Mann — популярный немецкий журнал для домашних мастеров, на его страницах полезные советы по ведению домашнего хозяйства, создание изделий из дерева для дома и сада своими руками, а так же по обустройству приусадебного участка и навыки обращения с рабочим инструментомЖанр: ДомоводствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39FD2B2424431DA761A323DD2FAFA393E90EA5B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

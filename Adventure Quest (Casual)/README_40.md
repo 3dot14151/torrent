@@ -6,7 +6,7 @@ Haunted Halls 3: Revenge of Doctor Blackmore. Collector's Edition [En] (P) 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443608.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mystery Case Files 21: The Harbinger / За семью печатями 21: Пр
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442687.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Dark Realm 2: Princess of Ice /Темный мир 2: Владычица льд�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439202.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Paris 1925. Episode 1: The Shadow of the Freak [En] (P) 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438748.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Sable Maze: Sullivan River Collector's Edition [En] (P) 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438568.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Spirit Walkers: Curse of the Cypress Witch / Искатели призраков
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438171.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ McPixel (L) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438143.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ The Dungeon of Naheulbeuk: The Amulet of Chaos (2020) [Multi] (1.0.373.34341) Re
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437569.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Uncharted Tides: Port Royal / Неизведанные воды: Королев�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437345.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Grim Tales 15: The Hunger / Страшные сказки 15: Голод (2018) 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437155.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Whispered Secrets 7: Forgotten sins / Нашептанные секреты 7: �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436580.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Scars of Destiny (2015) [En] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435995.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Mystery Crusaders - Resurgence of the Templars (2015) [En] Unofficial [Collector
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435857.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Twilight Phenomena 3: The Incredible Show / Сумрачное явление: �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435670.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Haunted Hotel 9: Phoenix / Проклятый отель 9: Феникс (2015) 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435071.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Connected Hearts 2: Fortune Play / Связанные Любовью 2: Игры
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433727.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Dark Romance 11: The Ethereal Gardens (2019) [En] (1.0) Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433693.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Mystery Trackers 18: Fatal Lesson / Охотники за тайнами 18: Р�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433614.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Sable Maze: Sullivan River. Collector's Edition / Темный Лабиринт:
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433138.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ The Search (2017) [Ru/Multi] (20170910) License PLAZA
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430179.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Mythic Wonders 2: Child of Prophecy / Мифические чудеса 2: Ди�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428341.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Fear for Sale 5: The 13 Keys / Страх на продажу 5: 13 ключей
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428305.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Fear for Sale 7: City of the Past / Страх на продажу 7: Город
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428186.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Dark Canvas 3: A Murder Exposed (2015) [En] Unofficial [Collector's Edition / К
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427252.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Redemption Cemetery 7: Clock of Fate (2015) [En] Unofficial [Collector's Edition
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427159.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Elly Cooper and the City of Antiquity (2015) [En] Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427156.jpg" />
 </div>
 
 

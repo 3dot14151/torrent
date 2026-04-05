@@ -6,7 +6,7 @@
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558373.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Discovery. Взрывая историю / Blowing up History (2018) HDTVRip (С
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557739.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BBC. Длинные тени Первой мировой войны / The Long S
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557471.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Discovery. Катастрофа на колесах / Wheels That Fail (2014) HD
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557377.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ BBC. Может ли питание насекомыми спасти мир? / 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557283.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557062.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557006.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ BBC: Размер имеет значение / Size Matters (2017) DVB (сер�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556952.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ BBC: Атом / BBC: Atom (2007) HDTVRip (Сезон 1, эпизод 1-3 из 3)
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556546.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ NG: Дикая природа Америки / Untamed Americas (2012) BDRip [H.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556403.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ NG: Человечество из космоса / Mankind from Space (2015) HDT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556399.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556355.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ NGW: 72 самых опасных животных Австралии / 72 Dange
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556241.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ NG: Научные глупости / Science of stupid (2013) HDTVRip [H.264/72
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556239.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ NG: Разгадка египетских тайн. Подлинный Рамз�
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556225.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ NG: Взлом Системы / Hacking the System (2014) HDTVRip [H.264/1080p-L
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556209.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ NG: Разгадка египетских тайн. Настоящая Клео�
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556203.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Animal Planet: В дикие края с Эваном. Стройная Лори
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555893.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Animal Planet: Герои среди нас / Dodo Heroes (2018) HDTV [H.264/108
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555869.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ History Channel. Морские котики: тайная сила / Navy SEALs
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555862.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ NG. Международный аэропорт Дубай / Ultimate Airport Du
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555660.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ NG: Враждебная планета / Hostile Planet (2019) HDTVRip (Сез�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555640.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555631.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ NG: Загадки исполинов каменного века / Riddle of th
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555541.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Animal Planet: В дикие края с Эваном. Среди ягуаров
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555170.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Discovery: Коварная Земля / Rogue Earth (2018) HDTVRip [H.264/1080p
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555169.jpg" />
 </div>
 
 

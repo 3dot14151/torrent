@@ -1,3 +1,161 @@
+###  Публикация: 1654499   (194066) от 21.08.2023
+
+Драка / Za jia xiao zi / Knockabout (1979) BDRemux [H.264/1080p] [AVO] [USA REMASTERED]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два мелких мошенника живут тем, что обманывают людей, пока не натыкаются на мастера кунг-фу по имени Старый Лис, который перехитрил их и побил за обман.Производство: Гонконг, Golden Harvest Company Ltd.Жанр: боевик, комедияРежиссер: Саммо ХунгАктеры: Юэнь Бьяо, Саммо Хунг, Лю Чя-Юн, Леунг Ка-Ян, Карл Мака, Ли Хой-Сан, Марс, Ван Куан-Юй, Лау Тинь-Чи, Билли ЧанПеревод: Авторский (Александр Буданов)Язык озвучки: русский, китайский, английскийСубтитры: Английские, китайскиеПродолжительность: 01:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB3B61345012F65026CE6C5FA41003F41D44283C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654521   (194064) от 21.08.2023
+
+Дети-ниндзя / Nintama Rantaro / Ninja Kids!!! (2011) BDRip [H.264/720p] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194064.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маленького Рантаро родители отправляют в Школу ниндзя. Там мальчика и его новых друзей ждут необыкновенные приключения.Производство: Япония / Amuse Soft, Asahi Shimbunsha, Dentsu и др.Жанр: боевик, комедия, приключенияРежиссер: Такаси МиикеАктеры: Сидо Накамура, Наото Такэнака, Сусуму Тэрадзима, Хироки Мацуката, Микидзиро Хира, Рэндзи Исибаси, Рэи Дан, Такахиро Миура, Сэисиро Като, ГуамаПеревод: Одноголосый любительский (Вячеслав Прошин)Язык озвучки: русский, японскийСубтитры: русские, английскиеПродолжительность: 01:39:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAC7845DBC3D3A8F8DA8534F6FA292C1DABD996F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654601   (194048) от 21.08.2023
+
+Ип Ман. Начало / Shao nian ye wen zhi wei ji shi ke / Young Ip Man: Crisis Time (2020) WEBRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юный Ип Ман приезжает учиться в Гонконг. Однако его мирная жизнь в университете неожиданно обрывается, когда на уроке английского местный криминалитет берет в заложники целый класс.Производство: Китай / iQIYI Motion PicturesЖанр: боевик, историяРежиссер: Ли ЛиминАктеры: Чжао Вэньхао, Му Фэнбинь, Пантерас Фридман, Джонатан Кос-Рид, Ши Юйцин, Тун СяохуПеревод: Дублированный (Leff Sound)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:18:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:335DC49265E2C02E12E36CF90E19E4CBE9EDFA4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655141   (193847) от 24.08.2023
+
+Непокорная / Ceoi faa kong mo / Undefeatable (1993) BDRip [H.265/1080p] [10-bit] [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кристи Джонс — лидер одной из уличных группировок. Орудующий в городе маньяк по кличке Скат убивает сестру Кристи. Вместе с полицейским Ником ДеМарко непокорная Кристи начинает охоту на преступника, чтобы в роковой схватке свершить правосудие.Производство: Гонконг / Action Star Pictures, Filmswell International Ltd., Incorporated Television Company (ITC)Жанр: боевик, триллер, криминал, детективРежиссер: Годфри ХоАктеры: Синтия Ротрок, Робин Шоу, Годфри Хо, Кен Ип, Дон Ниам, Джон Миллер, Донна Джейсон, Санни Дэвид, Эмиль Давазак, Ханг Йип ЙимПеревод: АвторскийЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:35:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADB43CD21E8CFC540730769A019359F5C8F2B1B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655404   (193827) от 26.08.2023
+
+Кунг-фу жеребец / Long ma jing shen / Ride On (2023) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193827.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый мастер боевых искусств и его верный скакун врываются в мир, где любая уличная драка заслуживает тиктока.
+Круто разделавшись с бандой коллекторов, они тотчас становятся супергероями в сети. Но вместе с любовью фанатов их находят и могущественные враги.Производство: Китай / Alibaba Pictures, Beijing Hairun Pictures CompanyЖанр: комедия, боевикРежиссер: Ларри ЯнАктеры: Джеки Чан, Лю Хаоцюнь, Го Цилинь, Джеки У, Юй Айлэй, Джои Юн, Юй Жунгуан, Энди Он, Сяо Шэньян, Лан ЮэтинПеревод: Дублированный (Mосфильм-Мастер)Язык озвучки: русский, китайскийСубтитры: английские (UTF-8), хорватские (UTF-8), немецкие (UTF-8), (PGS)Продолжительность: 02:05:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EA6A86AED0BB03241BEFA3016B5B7D99844AD26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655784   (193796) от 27.08.2023
+
+Старый телохранитель / Wo de te gong ye ye / My Beloved Bodyguard (2016) BDRemux [H.264/1080p] [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телохранитель в отставке живёт в одиночестве в маленьком городке, находящемся где-то между Россией, Китаем и Северной Кореей. Долгие годы он винит себя в исчезновении своей внучки. Однажды мужчине ставят диагноз — деменция, и вскоре после этого он знакомится с девочкой-цветочницей, с которой у него завязывается дружба.
+Но у юной леди есть одна проблема — её отец (   Читать дальше...   )Производство: Китай, Гонконг, BDI Films Inc., Edko Films, Focus Films Co. Ltd.Жанр: боевикРежиссер: Саммо ХунАктеры: Саммо Хун, Жаклин Чан, Ли Циньцинь, Энди Лау, Джеймс Ли Гай, Томер Оз, Дин Шек, Карл Мака, Цуй Харк, Юэнь БяоПеревод: Авторский (Антон Алексеев)Язык озвучки: русский, китайскийСубтитры: китайские, английские (PGS)Продолжительность: 01:38:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF35409CCB14DC22935FBA547C895816B24CCB03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1656221   (193647) от 29.08.2023
 
 Кунг-фу жеребец / Long ma jing shen / Ride On (2023) BDRip [H.264/1080p]
@@ -6,7 +164,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193647.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193568.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193444.jpg" />
 </div>
 
 
@@ -85,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193409.jpg" />
 </div>
 
 
@@ -111,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193236.jpg" />
 </div>
 
 
@@ -137,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193200.jpg" />
 </div>
 
 
@@ -163,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193190.jpg" />
 </div>
 
 
@@ -189,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193108.jpg" />
 </div>
 
 
@@ -215,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193091.jpg" />
 </div>
 
 
@@ -241,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193083.jpg" />
 </div>
 
 
@@ -267,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192974.jpg" />
 </div>
 
 
@@ -293,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192916.jpg" />
 </div>
 
 
@@ -319,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192756.jpg" />
 </div>
 
 
@@ -345,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192625.jpg" />
 </div>
 
 
@@ -371,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192433.jpg" />
 </div>
 
 
@@ -397,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192395.jpg" />
 </div>
 
 
@@ -423,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192366.jpg" />
 </div>
 
 
@@ -449,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192361.jpg" />
 </div>
 
 
@@ -475,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192236.jpg" />
 </div>
 
 
@@ -501,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192093.jpg" />
 </div>
 
 
@@ -512,162 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D06EFC8514C6E925F77FE6E43C2B2040EF53806
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587948   (192061) от 02.11.2022
-
-Невиновная / Gyeolbaek / Innocence (2020) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192061.jpg" />
-</div>
-
-
-###  Подробнее
-
-На поминках в Тэчхоне происходит массовое отравление со смертельным исходом, пострадал даже мэр. Главная подозреваемая — вдова покойного. Её дочь Чон-ин, преуспевающая сеульская адвокатесса, возвращается в родной город и берётся защищать мать, хотя та страдает деменцией и даже не узнаёт её. Многое в этом деле кажется подозрительным, расследование было проведено с (   Читать дальше...   )Производство: Южная Корея / Idio Plan, Kidari EntЖанр: криминал, детектив, триллер, драмаРежиссер: Пак Сан-хёнАктеры: Щин Хе-сон, Пэ Джон-ок, Хо Джун-хо, Хон Гён, Тхэ Хан-хо, Ко Чхан-сок, Пак Чхоль-мин, Чха Сун-бэ, Чон Ин-гём, Чхве Хон-ильПеревод: Дублированный (Zone Vision)Язык озвучки: русский, корейскийСубтитры: английские, корейскиеПродолжительность: 01:50:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B73191F0DB0D87DBFBB984B31C0D9AB840A23564
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649992   (191647) от 06.09.2023
-
-Круче некуда / Hidden Strike (2023) WEB-DL [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191647.jpg" />
-</div>
-
-
-###  Подробнее
-
-В будущем битвы за нефть захватили весь мир. Когда команда международных преступников захватывает заложников, чтобы провернуть крупнейшее ограбление, только два человека оказываются в силах остановить их. Это два наемника по разные стороны конфликта, их план совершенно безумен, но они должны прорваться через град пуль и песчаные бури. Даже если терпеть друг друга (   Читать дальше...   )Производство: Китай, США, Чанчуньская киностудия, Epitome, Flame Pictures Company, Huaxia Film Distribution, Talent International Media, XYZ FilmsЖанр: боевик, комедияРежиссер: Скотт ВоАктеры: Джеки Чан, Джон Сина, Пилу Асбек, Ван Чжэньвэй, Рэйчел Холовэй, Макс Хуан, Амадеус Серафини, Хоу Минхао, Рима Цзэйдань, Ма ЧуньжуйПеревод: Профессиональный многоголосый (HDRezka Studio)Субтитры: Русские (forced (HDRezka)), английскиеПродолжительность: 01:43:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F0A95265808337C6673D44B29C5BFE4AE0EA785
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587924   (191468) от 04.11.2022
-
-Чрезвычайная ситуация / Bisangseoneon / Emergency Declaration (2021) WEB-DLRip [H.264/1080p] [МVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191468.jpg" />
-</div>
-
-
-###  Подробнее
-
-На борту забитого до отказа авиалайнера, совершающего рейс на Гавайи, таинственно погибает один из пассажиров. Вскоре воздушное судно охватывает хаос: все больше людей поражено неизвестной болезнью. Оперативный штаб пытается добиться посадки, но аэропорты не принимают зараженный рейс. Горючее на исходе, и теперь обреченный самолет может спасти лишь чудо.Производство: Южная Корея / C-JeS Entertainment, Magnum9, Showbox EntertainmentЖанр: триллер, драмаРежиссер: Хан Джэ-римАктеры: Ли Бён-хон, Сон Кан-хо, Чон До-ён, Ким Нам-гиль, Им Щи-ван, Ким Со-джин, Ким Бо-мин, Пак Хэ-джун, Хён Бон-щик, У Ми-хваПеревод: Многоголосый любительский (STEPonee), авторский (Юрий Сербин)Язык озвучки: русский, корейскийСубтитры: русские (forced, full), английскиеПродолжительность: 02:20:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33B73DFD718E5D3F072C7DCC71817896BDECAF7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658238   (191368) от 07.09.2023
-
-Проходимцы / Apkkujeong / Men of Plastic (2022) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191368.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сеул, 2007 год. Все в Апкуджоне знают Кан Дэ-гука. Он, вроде бы, ничем особенным не занят, но обладает харизмой, деловым чутьём, а также полезными связями и может решить любую проблему. Однажды судьба сводит его с талантливым пластическим хирургом Пак Чи-у, который из-за подлости делового партнёра лишился бизнеса, лицензии врача и погряз в долгах. Увидев в нём потенциал, (   Читать дальше...   )Производство: Корея Южная / B.A. Entertainment, Big Punch Pictures, Hong Film, Showbox/MediaplexЖанр: Комедия, криминалРежиссер: Лим Джин-сунАктеры: Ма Дон-сок, Чон Гён-хо, О На-ра, Чхве Бён-мо, О Ён-со, Рю Сын-су, Лим Хён-джун, На Гван-хун, Киль Хэ-ён, Чха У-джинПеревод: Дублированный (Кипарис)Язык озвучки: Русский, корейскийСубтитры: АнглийскиеПродолжительность: 01:47:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4117C1EA5617D3EEA922461613831D9CF101B291
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658257   (191367) от 07.09.2023
-
-Во сне / In deurim (2022) WEBRip [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191367.jpg" />
-</div>
-
-
-###  Подробнее
-
-Участвовавшая в клинических исследованиях сна женщина внезапно обнаруживает, что может контролировать чужие сновидения. Однажды она оказывается в сне подруги и встречает там серийного убийцу с такой же способностью.Производство: Корея ЮжнаяЖанр: Триллер, фантастика, криминалРежиссер: Щин Джэ-хоАктеры: Со Хё-рим, О Джи-хо, Ким Сын-су, Ли Соль-гу ...Перевод: Многоголосый любительский (Head Pack Films)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:28:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFD869EE915E08BC944D5619D15A4BE7776FB222
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588620   (191360) от 05.11.2022
-
-Женщина рождается дважды / Onna wa nido umareru / Women Are Born Twice (1961) BDRip [H.264/1080p] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Родители Томоко погибли во время войны. Судьба привела её в дом гейш, где она получила имя Коэн. Нередко ей приходится развлекать клиентов не только беседой, но и торговать своим телом. По совету подруги Томоко оставляет ремесло гейши и устраивается работать в бар, где встречает бывшего клиента по имени Цуцуи и вскоре становится его содержанкой. По роману "Дневник (   Читать дальше...   )Производство: Япония / Daiei StudiosЖанр: драмаРежиссер: Юдзо КавасимаАктеры: Аяко Вакао, Со Ямамура, Дзюн Фудзимаки, Фуранки Сакаи, Кю Садзанка, Хисано Ямаока, Кунъиити Таками, Маюми Курата, Кадзуко Яманака, Сатико МэгуроПеревод: Двуголосый любительский (Head Pack Films)Язык озвучки: русский, японскийСубтитры: русские, английскиеПродолжительность: 01:38:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDC9DA30AE11782AA63921763686099233CFEE7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 947289   (420383) от 16.10.2015
+
+Курара - Бойз донт край (2015) EP [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Бойз донт край
+ 02. Грясь 13
+ 03. Лору Палмер (Марсу Нужны Любовники Remix)
+ 04. Ответы (Переделка Феликса Беспомощного)(   Читать дальше...   )Жанр: RockПродолжительность: 00:27:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D88A9F874EAD0692486BF0887679EF36360A5923
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1412194   (420319) от 28.09.2020
 
 Blue Oyster Cult - The Symbol Remains (2020) [FLAC|Lossless|tracks + .cue] <Hard Rock>
@@ -6,7 +35,7 @@ Blue Oyster Cult - The Symbol Remains (2020) [FLAC|Lossless|tracks + .cue] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420319.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - Blackend - The Black Metal Compilation Vol. 3 (1997) 2CD [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420282.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Black Mark Tribute Vol. II (1998) [FLAC|Lossless|image + .cue] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420279.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Within Temptation - Интервью с Шарон ден Адель на рад
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420255.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Whorion - The Reign Of The 7th Sector (2015) [FLAC|Lossless|image + .cue] <Symph
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420227.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420207.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Acacia Avenue - Cold (2014) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420203.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ VA - Blackend - The Black Metal Compilation Vol. 1 (1995) 2CD [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420201.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420155.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Delain - Apocalypse & Chill (2020) Napalm Records [FLAC 24/44.1|MQA|Lossless|WEB
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420140.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ BY CRY - BY CRY (2015) [FLAC|Lossless|tracks + .cue] <Folk, Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420102.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Nazareth - Loud & Proud! Anthology (2018) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419963.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Falling Up - 11 альбомов, 2 Сингла, 2 EP (2004-2017) [MP3|128-320 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419711.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Josh Todd (of Buckcherry) & The Conflict - Year Of The Tiger (2017) [FLAC|Lossle
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419577.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Subscaria - Afterwrath (2016) [MP3|320 Kbps] <MDM>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419547.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419510.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Revival Black - Under The Light (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419481.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Metallophobia by Peterson - Metallophobia (2022) [MP3|320 Kbps] <Old School Heav
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419478.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Sic Vikki - The Early Years (1985-1992) Compilation, Reissue, 2022, FnA Records 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419475.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Tomi Malm - Coming Home (2021) Japanese Edition [FLAC|Lossless|image + .cue] <AO
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419469.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Alliance - Fire And Grace (2019) [FLAC|Lossless|image + .cue] <Melodic Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419467.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Dynazty - Final Advent (2022) [MP3|320 Kbps] <Power Metal, Hard Rock, Melodic Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419462.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419457.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Sunstorm - Brothers In Arms (2022) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419456.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Restless Spirits - Second To None (2022) Japanese Edition [FLAC|Lossless|image +
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419326.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Restless Spirits - Second To None (2022) Japanese Edition [FLAC|Lossless|image +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8423B7F09172341D60CEF13CBCD102449DAEFA53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065217   (419100) от 23.10.2016
-
-Amaranthe - Maximalism (2016) [FLAC|tracks|WEB-DL]<Modern Melodic Metal, Male and Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419100.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:10] 01. Maximize
-[03:22] 02. Boomerang
-[03:13] 03. That Song
-[03:05] 04. 21(   Читать дальше...   )Жанр: Modern Melodic Metal, Male and Female VocalПродолжительность: 00:39:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC59894076F6AD49E00CBB64B152AD909BCED806
 ```
 
 https://mybot314.ru/tekegram_catalog/

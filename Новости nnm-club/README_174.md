@@ -1,3 +1,55 @@
+###  Публикация: 931005   (441796) от 06.10.2015
+
+Бойтесь ходячих мертвецов / Fear the Walking Dead (2015) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-6 из 6) (AMC)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действия сериала происходят параллельно с событиями зомби-апокалипсиса, показанными в сериале «Ходячие мертвецы», но в совершенно другом месте — Лос-Анджелесе. Акцент будет сделан на семейные отношения, в частности, проблемы отцов и детей. История вращается вокруг Шона — разведённого школьного учителя и Нэнси руководительницы женского совета. А так же детей Нэнси: (   Читать дальше...   )Производство: СШАЖанр: ужасы, драмаРежиссер: Адам Дэвидсон, Кари Скогланд, Стефан ШварцАктеры: Клифф Кёртис, Ким Диккенс, Алисия Дебнем-Кери, Фрэнк Диллэйн, Рубен Бладес, Мерседес Масон, Колман Доминго, Лоренцо Джеймс Хенри, Элизабет Родригес, Тони Френч и др.Перевод: Многоголосый закадровый, профессиональный - AMCЯзык субтитров: АнглийскийФормат: MKVПродолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86EFA373DA71E21A5119E6E8AD0AAA2E3BCBD0F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916901   (441795) от 06.10.2015
+
+Overlord / Повелитель [2015, TV, 13 ep + 8 SP] HDTV 720p Raw+Rus
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441795.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бежать из тягостной повседневности, покорить дивный новый мир, стать неуязвимым и бессмертным суперменом – такова мечта пресловутого «офисного планктона». Типичный его представитель, сражавшийся в недалеком будущем в виртуальную РПГ «Иггдрасиль» под ником Момонга, не захотел покидать закрывающуюся игру. Зачем же уходить из обжитой иллюзии, если можно даром получить (   Читать дальше...   )Жанр: приключения, комедия, фэнтезиРежиссер: Ито НаоюкиСубтитры: ASS, Встроенные, Полные | Надписи «nnm-club^anime»Формат: MKVПродолжительность: 13 эпизодов и 8 спэшлов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64FC0C769580D24A4A1CD2E60FD47132A5EB0E13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 780784   (441794) от 06.10.2015
 
 Виктор Пелевин | Собрание сочинений [94 книги. Обновляемая] (1989-2015) [FB2]
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441794.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441752.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_441449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_441449.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441283.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_441144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_441144.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441101.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_440764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_440764.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ ACDSee Pro 6.0 Build 169 Final (x86) RePack by KpoJIuK [Русский / Анг�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_440187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_440187.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ Adobe Audition CS6 5.0 build 708 + Update 5.0.2 build 7 [MULTi + Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_440155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_440155.jpg" />
 </div>
 
 
@@ -247,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440145.jpg" />
 </div>
 
 
@@ -273,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439770.jpg" />
 </div>
 
 
@@ -301,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439752.jpg" />
 </div>
 
 
@@ -327,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439396.jpg" />
 </div>
 
 
@@ -354,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439383.jpg" />
 </div>
 
 
@@ -380,7 +432,7 @@ Microsoft Office 2016 Professional Plus 16.0.4266.1003 (x86/x64) by Ratiborus 4.
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439380.jpg" />
 </div>
 
 
@@ -406,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439378.jpg" />
 </div>
 
 
@@ -434,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_439303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_439303.jpg" />
 </div>
 
 
@@ -462,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_439193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_439193.jpg" />
 </div>
 
 
@@ -488,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439173.jpg" />
 </div>
 
 
@@ -514,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_438768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_438768.jpg" />
 </div>
 
 
@@ -541,7 +593,7 @@ Mafia III (2016) [Ru/Multi] (1.010.01/dlc) Repack Dok2 [Digital Deluxe Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438697.jpg" />
 </div>
 
 
@@ -567,7 +619,7 @@ Adobe Acrobat Professional DC (v15.20) Multilingual
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438691.jpg" />
 </div>
 
 
@@ -593,7 +645,7 @@ The Elder Scrolls V: Skyrim - Skyrim ReDynamic (2016) [Ru] (1.9.32.0.8/3.2.1) Mo
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438690.jpg" />
 </div>
 
 
@@ -619,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_438603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_438603.jpg" />
 </div>
 
 
@@ -630,58 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409870   (437914) от 20.09.2020
-
-Китай запустит робота-майнера в космос
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_437914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Китай начнет работу по добыче полезных ископаемых в космосе уже в этом году. Исследователи запустят «робота-майнера» до конца 2020 года, однако пока будут только тестировать устройство.Частная китайская компания Origin Space, которая занимается разработкой внеземных космических ресурсов, собирается запустить свой первый «космический робот-майнер» в ноябре 2020. Их (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 239806   (437787) от 30.09.2012
-
-Алиса - 2 Альбома (2010-2012) [MP3|320 kbps]<Rock>
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437787.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алиса — русская рок-группа, образованная в 1983 году в Ленинграде. Широкая популярность пришла к группе после их выступления в ленинградском рок-клубе, где были исполнены песни «Мы вместе» и «Моё поколение», написанные пришедшим в группу в 1984 году новым вокалистом Константином Кинчевым.Жанр: RockПродолжительность: 01:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34B45A035CBA14FDE81AC05FE98EC8E8CD8DF4CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

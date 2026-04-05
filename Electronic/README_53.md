@@ -1,3 +1,58 @@
+###  Публикация: 1180192   (1003217) от 06.08.2021
+
+Holon - Discography 11 Releases (2013-2021) Subatomic Audio [FLAC|Lossless|WEB-DL|tracks] <IDM, Industrial, Breaks, Psybient, Downtempo, Electro, Synthwave>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On The Outside Looking In (05:02)
+ 02. Have Things Gone Too Far (05:25)
+ 03. This Is The Only Way (04:26)
+ 04. A Glimpse Into Infinity (05:31)(   Читать дальше...   )Тип издания: WebЖанр: IDM, Industrial, Experimental, Breaks, Psybient, Downtempo, Electro, Synthwave •Продолжительность: 10:53:03 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:465C69681FB4B5DF8BE135B937FB0130DB2EA346
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487832   (1003071) от 07.08.2021
+
+Fidem Community - Discography 20 Singles (2020-2021) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Two One (06:31)Тип издания: Web •Жанр: Deep House •Продолжительность: 02:42:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DCC8AF15E025B26226CCADE3833172CE9228C2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483801   (1003052) от 07.08.2021
 
 Overmono - fabric presents Overmono | Unmixed + DJ Mix (2021) Fabric Worldwide [FLAC|Lossless|WEB-DL|tracks] <House, UK Garage, Breakbeat, Techno, Drum & Bass>
@@ -6,7 +61,7 @@ Overmono - fabric presents Overmono | Unmixed + DJ Mix (2021) Fabric Worldwide [
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003052.jpg" />
 </div>
 
 
@@ -35,7 +90,7 @@ DJ Eric Foster - Night Light (2004) [FLAC|Lossless|image + .cue] <House, Trance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003023.jpg" />
 </div>
 
 
@@ -64,7 +119,7 @@ Igor Pumphonia - Elixir Of The Soul (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambien
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003017.jpg" />
 </div>
 
 
@@ -93,7 +148,7 @@ Dinka - A Date With Dinka (2014) 2CD, DJ Mix, Compilation [FLAC|Lossless|tracks 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003012.jpg" />
 </div>
 
 
@@ -122,7 +177,7 @@ Above & Beyond - Live @ The New York Expo Center, United States 2019-12-31 [MP3|
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003010.jpg" />
 </div>
 
 
@@ -151,7 +206,7 @@ Sole Massif & Jacob Newman - Santraukos (2019) [FLAC|Lossless|WEB-DL|tracks] <Am
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003000.jpg" />
 </div>
 
 
@@ -180,7 +235,7 @@ Iris - Siх (2019) [FLAC|Lossless|image + .cue] <SynthPop, SynthWave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002988.jpg" />
 </div>
 
 
@@ -209,7 +264,7 @@ Pleiadians - Pyramid (2019) [FLAC|Lossless|WEB-DL|tracks] <Psytrance, Goa Trance
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002960.jpg" />
 </div>
 
 
@@ -238,7 +293,7 @@ Autumn Of Communion - Discography 28 Releases + Box Set 20 Releases (2012-2021) 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002955.jpg" />
 </div>
 
 
@@ -264,7 +319,7 @@ LTN - The Path Of Life (2019) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002856.jpg" />
 </div>
 
 
@@ -293,7 +348,7 @@ Saive - Closer (2021) Click Records [FLAC|Lossless|WEB-DL|tracks] <Tech House, P
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002826.jpg" />
 </div>
 
 
@@ -322,7 +377,7 @@ Steve Pickton | Stasis - Discography 19 Releases (1993-2021) [FLAC|Lossless|trac
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002796.jpg" />
 </div>
 
 
@@ -350,7 +405,7 @@ Gabriel Le Mar - Into Sonic States (2021) LSD - Liquid Sound Design [FLAC|Lossle
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002791.jpg" />
 </div>
 
 
@@ -379,7 +434,7 @@ Rydex - Trancemission Marathon 2019 (2019-12-31) [MP3|320 Kbps] <Trance>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002765.jpg" />
 </div>
 
 
@@ -408,7 +463,7 @@ VA - Poker Flat Recordings: Best of 2019 (2019) Compilation [FLAC|Lossless|WEB-D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002761.jpg" />
 </div>
 
 
@@ -437,7 +492,7 @@ Pete Tong & The Heritage Orchestra and Jules Buckley - Ibiza Classics - Live at 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002757.jpg" />
 </div>
 
 
@@ -466,7 +521,7 @@ Action Nano - Select and Start (2008) (M-Tronic) [FLAC|Lossless|tracks + .cue] <
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002549.jpg" />
 </div>
 
 
@@ -495,7 +550,7 @@ John N. Sellekaers (Xingu Hill, Urawa) - Discography 15 Releases (1995-2006) Nov
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002523.jpg" />
 </div>
 
 
@@ -524,7 +579,7 @@ The Twins-  Love Is Blind (1993) [FLAC|Lossless|image + .cue] <Synth-pop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002479.jpg" />
 </div>
 
 
@@ -553,7 +608,7 @@ Faithless - All Blessed (2021) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pro
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002284.jpg" />
 </div>
 
 
@@ -582,7 +637,7 @@ TheFatRat - Discography (2011-2021) [FLAC|Lossless|WEB-DL|tracks] <Electro, Glit
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002272.jpg" />
 </div>
 
 
@@ -610,7 +665,7 @@ TeHÔM (TeHOM) - Discography 6 Releases (1996-2021) Twilight Command, Cyclic Law
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002270.jpg" />
 </div>
 
 
@@ -639,7 +694,7 @@ VA - Chillout And Ambient Pieces, Vol. 5 (2019) [FLAC|Lossless|WEB-DL|tracks] <D
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002220.jpg" />
 </div>
 
 
@@ -668,7 +723,7 @@ Blank & Jones - #WhatWeDoAtNight 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002170.jpg" />
 </div>
 
 
@@ -682,64 +737,6 @@ Blank & Jones - #WhatWeDoAtNight 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Progres
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75203886C3CF88434AFBD04F45852C87639AFCA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488389   (1002048) от 11.08.2021
-
-Manual | Jonas Munk - Discography 29 Releases (2000-2021) Morr Music, Darla Records, Azure Vista [FLAC|Lossless|tracks+.cue, tracks] <IDM, Downtempo, Ambient, Shoegaze, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Asteroid 2467 (08:52)
- 02. Return To Burlington (06:04)
- 03. Solitary Falling (04:29)
- 04. Perpetual Motion (10:51)(   Читать дальше...   )Тип издания: CD, WEBЖанр: IDM, Downtempo, Ambient, Shoegaze, Experimental •Продолжительность: 24:14:12 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2135D5660D4B31FA8E263335568350CA991116D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316795   (1001981) от 11.08.2021
-
-Anders Ilar - Discography 29 Releases (2002-2021) [FLAC|Lossless|tracks+.cue, tracks] <Techno, Minimal, IDM, Ambient, Dub Techno, Acid, Glitch>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do You Want To Sleep? (01:22)
- 02. Can You Stop It From Bleeding? (02:41)
- 03. Hurting Myself (05:13)
- 04. Blackmail (02:51)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Techno, Minimal, IDM, Ambient, Dub Techno, Acid, Glitch •Продолжительность: 23:40:21 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9BEE76FCB02612C8697FF2D21859A79A2184288
 ```
 
 https://mybot314.ru/tekegram_catalog/

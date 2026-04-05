@@ -1,3 +1,32 @@
+###  Публикация: 1585471   (221695) от 22.10.2022
+
+Crooked Royals - Quarter Life Day Dream (2022) [MP3|320 Kbps] <Progressive Metalcore, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glass Hands (3:10)
+02. Ill Manor (3:40)
+03. Waypoint (3:48)
+04. Counterfeit (2:41)(   Читать дальше...   )Жанр: Progressive Metalcore, Post-HardcoreПродолжительность: 00:30:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28D1DD34B95461E335AEED07678C7BD059A1B6FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1585472   (221690) от 22.10.2022
 
 Kliodna - Way Of Heroes (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
@@ -6,7 +35,7 @@ Kliodna - Way Of Heroes (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221690.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Bandolier Kings - Time to Remember(A Tribute to Budgie - Volume 2) (2022) [FLAC|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221684.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Less Than Jake - Silver Linings (2022) Deluxe Edition [MP3|320 Kbps] <Ska punk>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221674.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Bad Kingz - Take Me Into Your Kingdom (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221670.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Orianthi - O (2020) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue] <Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221664.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Aisa - Join Me to Metal (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221654.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Mad Head - 5 Albums (2019-2022) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221638.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Aavenger - Valor (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221629.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_221610.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221607.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Orden Ogan - Final Days (Orden Ogan and Friends) (2022) [FLAC 2.0|44/24|tracks|W
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221589.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Sammy Hagar & The Circle - Crazy Times (2022) [FLAC|Lossless|image + .cue] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221568.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Buckner & Garcia - Pac-Man Fever (1982) LP [MP3|320 Kbps] <Electronic, Pop Rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221541.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ SeaWitch - Well of Spells (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Ston
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221514.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Antreib - Наши голоса I (2019) [MP3|320 Kbps] <Punk Rock, Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221505.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221500.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Nita Strauss - Controlled Chaos (2018) [MP3|320 Kbps] <Instrumental Heavy Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221338.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Chris Rea - Shamrock Diaries (1985) 2CD, Deluxe Edition, Remastered 2019 [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221330.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Carthus - Images of Tyranny (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_221327.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Roy Wood ( ex-The Move, ELO, Wizzard ) - You Can Dance The Rock'N'Roll-The Roy W
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221324.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Duff McKagan - Lighthouse: Live from London (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_221294.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Tram - Tram (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Space Rock, Elect
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_221255.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Joel Hoekstra's 13 - Crash Of Life (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_221247.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Robert Palmer - Pressure Drop (1975) Reissue, 1987 [FLAC|Lossless|tracks + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221215.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Ralf Nowy - (1973-74) 2 альбома [MP3|320 Kbps] <Progressive Rock, Krautro
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221211.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Ralf Nowy - (1973-74) 2 альбома [MP3|320 Kbps] <Progressive Rock, Krautro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4FCC4686F26435D7D15ECBE95AEB4D9192BF8D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966211   (221184) от 17.12.2015
-
-Dendera - Pillars Of Creation (2015) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Claim Our Throne (05:48)
-02. Bloodlust (05:06)
-03. In High Tide (06:01)
-04. Disillusioned (06:39)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:492C3C9C4516DAF5209E5B3E5F3F5FA4C045D83E
 ```
 
 https://mybot314.ru/tekegram_catalog/

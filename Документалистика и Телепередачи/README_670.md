@@ -1,3 +1,162 @@
+###  Публикация: 1428263   (180667) от 01.12.2020
+
+Есть на свете тихий уголок. Вашингтон / Where the Wild Men Are with Ben Fogle (2016) HDTV [H.264/1080i] (сезон 5, серия 1)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180667.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом эпизоде отправимся в глухие леса Вашингтона, здесь живёт американо-британская Агафья Лыкова.., почти...Производство: Великобритания, Renegade Pictures, GroupM Entertainment, Channel 5 Television,Жанр: Документальный, познавательный, путешествияРежиссер: Натали ВилкинсонПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:44:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67F7B2228DFFF1CA435B0334098BCE56809F6D88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593560   (180511) от 27.11.2022
+
+Первая передача на НТВ. Автомобильная передача (27.11.2022) SATRip [H.264]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180511.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Первая передача» — это познавательный проект про автомобилистов и для автомобилистов — для тех, что хочет из простого автолюбителя стать автопрофессионалом!
+Штрафстоянка требует с водителя 1000 тысяч. Чем ответхранение отличается от вымогательства? Автомобиль «издевается» над хозяйкой — невидимый дефект. Как же доказать, что машина неисправна? Он даже не мечтал (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:24:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F194813070C6C2CE88E10B1B8419370F9E08FD10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593563   (180486) от 27.11.2022
+
+Чудо техники с Сергеем Малозёмовым (27.11.2022) SATRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инновационные протезы: как разработчики доводят искусственные части тела до совершенства и что пользователи все равно мечтают в них добавить?
+Жизнь в розовом свете! Помогают ли на самом деле фитолампы вырастить домашний огород на подоконнике? Нужен ли этот свет растениям и не опасно ли соседство с такими лампами для организма человека?
+Традиционно Сергей Малозёмов (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:40:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F94BF5D238351F446B27E14D598941EED5D4150
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 172340   (180446) от 01.12.2020
+
+Луна (1965) TVRip
+
+>>Документалистика и Телепередачи
+>>Космос
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180446.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм, синтезирующий два жанра - научно-популярное кино и научно-художественную фантазию - создан непревзойденным мастером в этой области Павлом Клушанцевым. В первой части фильма - собственно научно-популярной - сообщается о последних на тот момент достижениях ученых в области исследования Луны, ученые делятся гипотезами относительно происхождения лунных морей, (   Читать дальше...   )Производство: СССР, ЛеннаучфильмЖанр: ДокументальныйРежиссер: П. КлушанцевПеревод: ОригинальныйПродолжительность: 00:50:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:214FE65D82853C17E3436F6FA57280773114C61E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593577   (180408) от 27.11.2022
+
+Битва экстрасенсов (2022) WEBRip [H.264/720p] (сезон 23, выпуск 12)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180408.jpg" />
+</div>
+
+
+###  Подробнее
+
+В проекте «Битва экстрасенсов» участвуют люди, обладающими необычными способностями. Ведьмы и колдуны, эзотерики, маги, целители, гадатели и многие другие соревнуются за победу и звание лучшего экстрасенса сезона. «Битва экстрасенсов» – культовый проект и знаковое шоу в истории ТНТ. Каждый год люди, которые называют себя экстрасенсами, доказывают свои способности (   Читать дальше...   )Телекомпания: ТНТЖанр: Телепередача, Реальное ТВСубтитры: ОтсутствуютПродолжительность: 01:11:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:058A1B0B83864A0371310B947D1058533A48FD4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593474   (180404) от 27.11.2022
+
+Конец игры: Нарушая молчание / Violences sexuelles dans le sport, l'enquete (2020) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Истории о насилии в отношении малолетних в спорте всплывают в СМИ постоянно – от Ларри Нассара, который сексуально надругался над девочками-гимнастками, до скандала в Союзе пловцов США. Число детей-жертв переживших сексуальное насилие измеряется сотнями тысяч, и чем выше статус спортсмена, тем вероятнее попытка замять скандал. Предполагается, что от 10 до 15% спортсменов (   Читать дальше...   )Производство: Франция, Yuzu Productions, ARTEЖанр: документальный, драма, спорт, расследованиеРежиссер: Пьер-Эммануэль Луно-ДориньякПеревод: двуголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:57:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B9323FE8C7DE48844E948F6CAB8EC168DCB36AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666177   (180077) от 03.10.2023
 
 Блеск и нищета советских миллионеров (2019) IPTVRip [H.264]
@@ -6,7 +165,7 @@
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180077.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180049.jpg" />
 </div>
 
 
@@ -58,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180036.jpg" />
 </div>
 
 
@@ -84,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179868.jpg" />
 </div>
 
 
@@ -110,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179829.jpg" />
 </div>
 
 
@@ -136,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179827.jpg" />
 </div>
 
 
@@ -162,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179816.jpg" />
 </div>
 
 
@@ -188,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179727.jpg" />
 </div>
 
 
@@ -214,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179578.jpg" />
 </div>
 
 
@@ -240,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179486.jpg" />
 </div>
 
 
@@ -266,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179469.jpg" />
 </div>
 
 
@@ -293,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179119.jpg" />
 </div>
 
 
@@ -319,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178930.jpg" />
 </div>
 
 
@@ -345,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178785.jpg" />
 </div>
 
 
@@ -371,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Космос
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178727.jpg" />
 </div>
 
 
@@ -397,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178720.jpg" />
 </div>
 
 
@@ -423,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178706.jpg" />
 </div>
 
 
@@ -449,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178698.jpg" />
 </div>
 
 
@@ -475,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178668.jpg" />
 </div>
 
 
@@ -501,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178620.jpg" />
 </div>
 
 
@@ -512,162 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDC4250A8701F233FB1220DF9D6C0E510FF5F468
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594271   (178614) от 30.11.2022
-
-Заппа / Zappa (2020) BDRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм расскажет о жизни, карьере и взглядах музыканта Фрэнка Заппы, который за 52 года сделал, кажется, все, что может сделать человек. Множество архивных видео и интервью, рассказы знакомых, коллег и членов семьи — все это сливается в единое двухчасовое полотно, подробно описывающее потрясающую историю нонконформиста, сумевшего остаться собой в сложные (   Читать дальше...   )Производство: США, Великобритания, Trouper Productions, Zipper Bros FilmsЖанр: документальный, история, музыка, биографияРежиссер: Алекс УинтерПеревод: многоголосый профессиональный (Jaskier)Субтитры: русские, английскиеПродолжительность: 02:07:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1F5CC43903D1D9A3E534063CBD93DBF17A2EDFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594185   (178549) от 30.11.2022
-
-Дэвид Боуи: Moonage Daydream / Moonage Daydream (2022) WEB-DL [H.264/720p] [MVO]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ о Дэвиде Боуи, прославившемся экспериментами в разных музыкальных жанрах и частыми сменами имиджа, а также о его творческих исканиях в других направлениях, в первую очередь в кино.Производство: Германия, США / BMG, Live Nation Productions, Public Road ProductionsЖанр: документальный, биография, музыкаРежиссер: Бретт МоргенПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 02:14:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1540CD77C4925B709B32CC403A290FBF595DA9E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428471   (178155) от 04.12.2020
-
-Настоящие Парни что надо / The Real Right Stuff (2020) WEB-DL [H.264/1080p] [MVO]
-
->>Документалистика и Телепередачи
->>Космос
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм рассказывает замечательную и правдивую историю первых астронавтов США и оригинального Меркурия 7. Использовав сотни часов архивных фильмов и радиопередач, интервью, домашних видео и других редких и никогда ранее не публиковавшихся материалов, создатели проекта перенесли зрителей в конец 1950-х годов, когда человечество делало свои первые шаги (   Читать дальше...   )Производство: США / 1895 FilmsЖанр: Документальный, историяРежиссер: Том ДженнингсПеревод: Многоголосый профессиональный (HDRezka Studio)Субтитры: Русские (forced), английские, французские, немецкие, испанскиеПродолжительность: 01:29:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADCBFEFFF6F343BFF2CBA9DC6599B873D1A2EED5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428762   (178075) от 04.12.2020
-
-Долгий путь на север / Long Way Up (2020) WEB-DLRip (сезон 1, серии 1-11 из 11) AMS [AD]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юэн Макгрегор и Чарли Бурмен пересекают Южную и Центральную Америку на электрических мотоциклах Harley-Davidson в третьей части своего эпического путешествия.Производство: Великобритания / Long Way RoundЖанр: документальный, реальное ТВ, приключенияРежиссер: Дэвид Алексаниан, Расс МалкинАктеры: Юэн Макгрегор, Чарли Бурмен, Расс Малкин, Дэвид Алексаниан, Клаудио фон Планта, Джеймс Саймак, Энтони Сек, Тейлор Эстевез и др.Перевод: Многоголосый закадровый - Студия «AMS»Субтитры: русские, украинские, английские (отдельными файлами в раздаче)Продолжительность: ~00:50:00 серияРеклама: присутствуют аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC9D58D3C30FBECE145320D698DABE51CF878602
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594628   (178046) от 01.12.2022
-
-Сага о парижском рынке / La saga des Halles de Paris (2012) DVB [FR / RU Sub]
-
->>Документалистика и Телепередачи
->>История
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если бы нам поведали историю Парижа, мы бы узнали, что в течение многих веков этот район кормил парижан. "Чрево Парижа" исчезло, но осталось сердце. И, несмотря на все испытания последних лет, оно по-прежнему бьется. В начале 70-х годов душа Парижа оказалась наполовину растерзанной. Сегодня в квартале вновь грядут изменения. Реконструкция Ле-Аль вызывает (   Читать дальше...   )Производство: Франция, France Télévisions, Institut National de l'Audiovisuel (INA), K'Ien ProductionsЖанр: документальный, история, строительствоРежиссер: Владимир ВасакПеревод: субтитрыЯзык озвучки: французскийСубтитры: русские (Е.Маньен, Éclair Group), немецкие, нидерландские, румынские - (IDX+SUB); английские, французские - (SRT)Продолжительность: 00:51:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EA6CF4B4AB885F269EEA084CD65BCECD5216389
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594493   (177951) от 01.12.2022
-
-Бэнкси уделывает Нью-Йорк / Banksy Does New York (2014) BDRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бэнкси бросает вызов властям и общепринятому порядку, устоявшимся представлениям об искусстве. В октябре 2013 года улицы Нью-Йорка на протяжении месяца пережили настоящий художественный «бум». Каждый день Бэнкси использовал новую территорию – это мог быть фрагмент стены или целый квартал, которые меняли свой вид, превращаясь в произведение стрит-арта. Бэнкси преследуют (   Читать дальше...   )Производство: США, Home Box Office (HBO), Matador Content, Permanent WaveЖанр: документальный, история, биографияРежиссер: Крис МукарбельПеревод: двуголосый профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 01:20:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2358047BFE3B3F15784E9F87608E57082B8B809
 ```
 
 https://mybot314.ru/tekegram_catalog/

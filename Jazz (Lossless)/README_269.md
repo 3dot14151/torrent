@@ -6,7 +6,7 @@ VA - Jazz Love Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205500.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Rock and Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocal, Rock>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205488.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Gene Ammons - Funky (1957) 1992, Original Jazz Classics [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205452.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Dr. John - The Montreux Years (2023) [FLAC|Lossless|tracks + .cue] <Jazz, Funk, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205436.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Phineas Newborn, Jr. - Back Home (1976) 1998, Original Jazz Classics [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205384.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Phil Woods & Gene Quill - Phil & Quill With Prestige (1957) 1991, Original Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205279.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Fats Navarro - Memorial (1947) 1992, Savoy Jazz [FLAC|Lossless|tracks + .cue] <B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205137.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Sonny Stitt - The Hard Swing (1959) 2001, Verve [FLAC|Lossless|tracks + .cue] <B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205125.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Larry Young - Young Blues (1960) 1994, Original Jazz Classics [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204895.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Mohini Dey - Mohini Dey (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz Rock>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204728.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Sonny Criss - Rockin' In Rhythm (1968) 1999, Original Jazz Classics [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204610.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ V.A. - Magic Moments 16 (In the Spirit of Jazz) (2023) [FLAC|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204319.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Oscar Pettiford & Vinnie Burke - Bass by Pettiford / Burke (1955) 1999, Bethlehe
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204207.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Roy Haynes With Booker Ervin - Cracklin' (1963) 1994, Original Jazz Classics [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204008.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Enrico Pieranunzi & Marc Johnson - The Dream Before Us (1990) 1992, IDA Records 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203708.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Howard Rumsey's Lighthouse All-Stars - Sunday Jazz A La Lighthouse, Vol.2 (1953)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203548.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Wardell Gray - 1946 - 1950 (2002) Classics [FLAC|Lossless|tracks + .cue] <Bop, S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203296.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Mal Waldron - Left Alone (1959) 2000, Avenue Jazz [FLAC|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203039.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Tommy Flanagan - Something Borrowed, Something Blue (1978) 1990, Original Jazz C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202823.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Electro Swing - New York City of Swing (2025) [FLAC|Lossless|WEB-DL|tracks] <Ele
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202480.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Electro Swing Groove - Vocal Nights, Vol. 2 (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202477.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ The Electro-Swing Band - A Fading Gleam (2025) [FLAC|Lossless|WEB-DL|tracks] <El
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202475.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Martin Taylor & David Grisman - I'm Beginning To See The Light (1999) Acoustic D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201374.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Series Retro Planet: The Best Of Retro Music (1999) Unofficial Release [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198685.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ V.A. - Pop Nostalgia (Popular Songs From The Past Revisited) Vol. 1 / Vol. 2 (20
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198409.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Phil Woods, Gene Quill, Sahib Shihab, Hal Stein - Four Altos (1957) 1991, Origin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193147.jpg" />
 </div>
 
 

@@ -1,3 +1,58 @@
+###  Публикация: 1103305   (887203) от 11.02.2017
+
+Templates for Photoshop - Alungu Designs 2.0 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887203.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шаблоны для Photoshop предлагает 200 высококачественные PSD шаблоны для книг, информационных бюллетеней, вырезок и других документов.
+
+Премиум-качество предлагает 200 красивых и функциональных конструкций для Adobe Photoshop и включает в себя эклектичную смесь полностью редактируемых шаблонов, из листовок и счетов-фактур до 50 стильных вырезок.
+(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13 декабря 2016Разработчик: Alungu UABПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F92C1FFA26EB30702AD93FAC40C271C70D0C44DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372171   (886766) от 02.04.2020
+
+Adobe Zii 2020 - Universal Patcher 5.1.9 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886766.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Zii - это небольшая и замечательная утилита, которая помогает вам забыть обо всех проблемах с регистрацией всех существующих продуктов Adobe.Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: TNTПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:518B258E4CCCE217CAEBFDFF694574688B1D8850
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371174   (886491) от 02.04.2020
 
 Stellar Data Recovery Technician 10.0.0.0 [Multi]
@@ -6,7 +61,7 @@ Stellar Data Recovery Technician 10.0.0.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886491.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ Bookmarks Duplicates Cleaner 1.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886348.jpg" />
 </div>
 
 
@@ -59,7 +114,7 @@ Periscope Pro 3.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886192.jpg" />
 </div>
 
 
@@ -88,7 +143,7 @@ Xmas snow 1.5.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886094.jpg" />
 </div>
 
 
@@ -116,7 +171,7 @@ Theine 3.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886060.jpg" />
 </div>
 
 
@@ -142,7 +197,7 @@ Join Any Video 3.0.2 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886054.jpg" />
 </div>
 
 
@@ -171,7 +226,7 @@ RAW Converter Ultimate Full v3.0.1 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885991.jpg" />
 </div>
 
 
@@ -197,7 +252,7 @@ FxFactory Pro 7.2.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885927.jpg" />
 </div>
 
 
@@ -224,7 +279,7 @@ HashTab 6.0.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885762.jpg" />
 </div>
 
 
@@ -253,7 +308,7 @@ macOS Server 5.10 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885051.jpg" />
 </div>
 
 
@@ -279,7 +334,7 @@ Scudo 1.0.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884467.jpg" />
 </div>
 
 
@@ -305,7 +360,7 @@ AnyMP4 Mac Blu-ray Player 6.2.52 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884194.jpg" />
 </div>
 
 
@@ -331,7 +386,7 @@ Scudo 2 v2.0.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883742.jpg" />
 </div>
 
 
@@ -357,7 +412,7 @@ Mate Translate 6.2.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883622.jpg" />
 </div>
 
 
@@ -385,7 +440,7 @@ Wondershare Data Recovery 3.7.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883425.jpg" />
 </div>
 
 
@@ -414,7 +469,7 @@ ChronoSync 4.9.9 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883403.jpg" />
 </div>
 
 
@@ -443,7 +498,7 @@ Disk Cleaner - Free Your Hard Drive Space 1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883374.jpg" />
 </div>
 
 
@@ -470,7 +525,7 @@ Simon 4.2 (4028) [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882939.jpg" />
 </div>
 
 
@@ -497,7 +552,7 @@ TextExpander 5.1.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882323.jpg" />
 </div>
 
 
@@ -525,7 +580,7 @@ Disk Drill Entreprise 2.4.438 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882320.jpg" />
 </div>
 
 
@@ -552,7 +607,7 @@ GarageBand 10.1.6 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881348.jpg" />
 </div>
 
 
@@ -578,7 +633,7 @@ Autodesk Maya 2017.1 Security Fix for Mac [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880959.jpg" />
 </div>
 
 
@@ -605,7 +660,7 @@ KeyKey 1.0.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880746.jpg" />
 </div>
 
 
@@ -634,7 +689,7 @@ AnyMP4 iPhone Data Recovery for Mac 7.3.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880734.jpg" />
 </div>
 
 
@@ -648,63 +703,6 @@ AnyMP4 iPhone Data Recovery for Mac - Восстановление содерж�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCFDD93645F23442797D74907BC79EEDA360296D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373303   (880340) от 06.04.2020
-
-Squash — Web Image Compression 2.0.4 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880340.jpg" />
-</div>
-
-
-###  Подробнее
-
-Squash является простым, мощным приложением для сжатия и преобразования изображений и многое другое.
-Оптимизация размера файла ваших изображений не должна означать, что это делает их зернистыми или размытыми. Squash  сохраняет существующее качество при одновременном снижении размера файла и экономии пространства!
-
-Squash работает точно так же, как магия.Тип издания: macOS SoftwareРелиз состоялся: 04.09.2017Разработчик: Realmac SoftwareПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CDB7E341480AB3171957F269BE9A0632D5DA070
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104579   (880095) от 15.02.2017
-
-Sketchode 2.0.1 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая версия Sketchode с расширенным функционалом, программное решение для разработчиков, обеспечивающее быстрый доступ к элементам дизайн проекта, выполненного в Sketch. Более быстрый, с обновленным дизайном и улучшенным интерфейсом, Sketchode 2 стал еще удобнее.
-
-Главное преимущество второй версии — улучшенный способ отображения контента. Теперь все элементы рисуются (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 27 января 2017Разработчик: IT Top, LLCПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2328F706164F39FAB1D7FA98A275A7B4C0328D32
 ```
 
 https://mybot314.ru/tekegram_catalog/

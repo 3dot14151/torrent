@@ -1,81 +1,3 @@
-###  Публикация: 1232112   (599919) от 24.06.2018
-
-Росс Кинг | Чарующее безумие. Клод Моне и водяные лилии (2018) [FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599919.jpg" />
-</div>
-
-
-###  Подробнее
-
-К 1914 году шумные баталии, ознаменовавшие появление на свет мятежной группы художников-импрессионистов, давно стали историей, а молодые бунтари, их спровоцировавшие, – те из них, кто еще не покинул этот мир, – превратились в седобородых патриархов французской живописи. Клод Моне, которому исполнилось 73 года, обосновался в Живерни, где обустроил свой персональный (   Читать дальше...   )Жанр: Биографии и мемуары, Зарубежная литература о культуре и искусстве, Зарубежная публицистика, Изобразительное искусство, Искусствоведение, История искусстваФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A93424FFD281B91D8C757B979ED817E7DC90AF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232159   (599916) от 24.06.2018
-
-Питер Франкопан | Первый крестовый поход: Зов с Востока (2018) [FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599916.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый крестовый поход – величайшее событие Средневековья, изменившее историю Европы и стран Востока. Принято считать, что он начался по призыву папы Урбана II, когда тысячи рыцарей оправились отвоевывать Святую землю у мусульман. Но что, если на самом деле инициатива исходила вовсе не из Рима? Опираясь на малоизученные источники, британский историк Питер Франкопан (   Читать дальше...   )Жанр: Зарубежная образовательная литература, Научно-популярная литература, Популярно об историиПеревод: Михаил ВитебскийФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C2FA1238461343B1374E811FEB5F41149E7852C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526394   (598894) от 23.07.2012
-
-Мария Аксенова | Знаем ли мы русский язык? [2011] [FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трудно безупречно говорить по-русски. Ошибки допускают самые грамотные люди. Главное - стараться их исправлять, постигать логику языка, интересоваться его историей и бесконечно наслаждаться его красотой. Вместе с автором вы разберетесь во всех тонкостях русского языка. Вы прочтете увлекательные истории о происхождения различных слов, получите ответ на вопрос: почему мы употребляем "слова-паразиты", и если это просто дурная привычка, то можно ли от нее избавиться, откроете для себя, что модными бывают не только одежда, книги и фильмы, но и слова, узнаете самые популярные ошибки из радио и телеэфира.Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AE65A53973D4CA68C4715386B0F89F482E11E22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 914144   (598564) от 02.07.2015
 
 П. В. Мандрыка (отв. ред.) | Современные проблемы древних и традиционных культур народов Евразии (2014) [PDF]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598564.jpg" />
 </div>
 
 
@@ -113,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598559.jpg" />
 </div>
 
 
@@ -139,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598558.jpg" />
 </div>
 
 
@@ -165,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598476.jpg" />
 </div>
 
 
@@ -191,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598410.jpg" />
 </div>
 
 
@@ -217,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598408.jpg" />
 </div>
 
 
@@ -243,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598406.jpg" />
 </div>
 
 
@@ -269,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598400.jpg" />
 </div>
 
 
@@ -295,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598397.jpg" />
 </div>
 
 
@@ -321,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598345.jpg" />
 </div>
 
 
@@ -348,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598341.jpg" />
 </div>
 
 
@@ -375,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598335.jpg" />
 </div>
 
 
@@ -401,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598332.jpg" />
 </div>
 
 
@@ -427,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598278.jpg" />
 </div>
 
 
@@ -453,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598270.jpg" />
 </div>
 
 
@@ -479,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598269.jpg" />
 </div>
 
 
@@ -505,7 +427,7 @@ John Bisney, J. L. Pickering | The Space-Age Presidency of John F. Kennedy: A Ra
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598266.jpg" />
 </div>
 
 
@@ -531,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598225.jpg" />
 </div>
 
 
@@ -557,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598127.jpg" />
 </div>
 
 
@@ -583,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598126.jpg" />
 </div>
 
 
@@ -609,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597974.jpg" />
 </div>
 
 
@@ -635,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597973.jpg" />
 </div>
 
 
@@ -661,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597972.jpg" />
 </div>
 
 
@@ -672,6 +594,88 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7891EC750FC5464F314C6E18A80C790120058969
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299463   (597966) от 02.05.2019
+
+Питер Сойер | Эпоха викингов (2006) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга известного английского историка Питера Сойера посвящена викингам, "неистовым воинам", одно упоминание о которых наводило страх на народы Западной Европы.
+На основе тщательного изучения многочисленных исторических источников автор раскрывает причины и следствия скандинавской экспансии с конца VIII века на территорию христианской Европы.Жанр: ИсторияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C580651AD1A2F06AD35144CBF1EA14E0D5E9574E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299131   (597965) от 02.05.2019
+
+В.П. Любин, Е.В. Беляева | Ранняя преистория Кавказа (2006) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена ранней преистории Кавказа, периодам нижнего и среднего палеолита, когда территорию региона заселяли предшественники современного человека - архантропы и палеоантропы (неандертальцы). Заселение Кавказа, начиная с первого проникновения сюда ранних людей в самом начале плейстоценового периода, около 1,8 млн. лет назад, рассматривается в тесной связи (   Читать дальше...   )Жанр: История, Палеография, ГеологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB4D883AA0543657D526EB4EB573C1D2816E1831
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299142   (597963) от 02.05.2019
+
+М. Перро (общ. ред.) | История женщин на Западе [5 книг] (2005-2015) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597963.jpg" />
+</div>
+
+
+###  Подробнее
+
+"История женщин на Западе" в пяти томах под общей редакцией Жоржа Дюби и Мишель Перро состоит из работ 75 выдающихся историков, представляющих читателям увлекательную панорамную хронику от античности до современности.
+Том 1. От древних богинь до христианских святых
+Том 2. Молчание Средних веков
+Том 3. Парадоксы эпохи Возрождения и Просвещения(   Читать дальше...   )Жанр: ИсторияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBD26B63DF50E1A60A4B9F7376CF5E79C5ECB448
 ```
 
 https://mybot314.ru/tekegram_catalog/

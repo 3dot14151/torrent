@@ -1,3 +1,55 @@
+###  Публикация: 1526182   (738802) от 23.01.2022
+
+Compress PDF 2.0.0 fix [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738802.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF-файл может быть очень большим, если он содержит много изображений в оригинальном качестве. Мы хотели бы сохранить документы, такие как брошюра о продукте, руководство пользователя, отчеты, предложения или другие, в виде файла PDF для распространения. Но вы не хотите размещать руководство пользователя объемом 50 МБ в формате PDF на своем веб-сайте или отправлять (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.10.2021Разработчик: Lighten Software Limited.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7034FFA3A2E5196074CAB05AB1AC81B3F73FC987
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526219   (738797) от 23.01.2022
+
+VideoSolo DVD Copy 1.0.18 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738797.jpg" />
+</div>
+
+
+###  Подробнее
+
+VideoSolo DVD Copy — это быстрое и простое в использовании программное обеспечение для копирования DVD, позволяющее копировать DVD-фильмы на DVD в соотношении 1:1, сжимать DVD-9 в DVD-5, копировать DVD в папку DVD или файл образа ISO в идеальном качестве. Помимо функции резервного копирования DVD, он также может записывать локальные папки DVD или файлы образов ISO (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.12.2022Разработчик: © 2022 VideoSoloПоддерживаемая ОС: macOS 10.5+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24DA63644F8BE575CC7949D5F784CD22A4F1F951
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1526073   (738796) от 23.01.2022
 
 VideoSolo Video Cutter 1.0.8 [En]
@@ -6,7 +58,7 @@ VideoSolo Video Cutter 1.0.8 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738796.jpg" />
 </div>
 
 
@@ -35,7 +87,7 @@ PDF Converter OCR 6.2.1 fix [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738785.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ VideoSolo Blu-ray Player 1.1.22 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738783.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ PDF to EPUB Converter 6.2.1 fix [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738782.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ PDF to Word OCR 6.2.1 fix [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738780.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ PDF to Excel Converter 6.2.1 fix [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738773.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ Sidify Spotify Music Converter Pro for Mac 2.3.3 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738734.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ Sidify Apple Music Converter 3.5.3 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738693.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ Mirror for Toshiba TV 1.1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738513.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ XCOrganizer 1.2.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738510.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738462.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ PDF to Word Converter 6.2.1 fix [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738388.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ iMuscle 2 v3.9.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738207.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ Mirror for Sharp TV 3.6.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738169.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ HighTop Full 1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738164.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ SnippetsLab 2.0.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738162.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ PopDo 2021.2.6 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737836.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ Twitterrific 5 v5.4.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737830.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ Hej Stylus! v3 3.7.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737825.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ iBarcoder 3.12.11 U2B [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737810.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ Exposure Software Snap Art 4 v4.1.3.392 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737807.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ Exposure Software Eye Candy 7 v7.2.3.189 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737798.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ YTD Video Downloader PRO 4.16.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737793.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ Bill Express 1.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737408.jpg" />
 </div>
 
 
@@ -622,58 +674,6 @@ Bill Express — это простой инструмент для планир�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8119C1513C50BAA4B56A3BD290C9BF30E334503
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527227   (737400) от 27.01.2022
-
-Image Tricks Pro 3.9.5 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737400.jpg" />
-</div>
-
-
-###  Подробнее
-
-Image Tricks Pro — это мощное приложение для редактирования фотографий, которое использует фильтры Mac OS X Core Image и композиции Quartz для преобразования ваших любимых фото. Image Tricks Pro также содержит мощный генератор изображений для создания случайных картинок, а также фоторамки для дальнейшего украшения ваших изображений.Тип издания: macOS SoftwareРелиз состоялся: 25.01.2022Разработчик: ©2003–2022 BeLight Software Ltd.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F43D4674FD96F7865ABF4141D9E51704AF919BFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527254   (737392) от 27.01.2022
-
-aText 2.40.5 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737392.jpg" />
-</div>
-
-
-###  Подробнее
-
-AText ускоряет вашу запись, заменяя сокращения на часто используемые фразы, которые вы определяете: например, сделайте аббревиатуру «myname», чтобы вставить свое имя «First Middle Last» в любом приложении.Тип издания: macOS SoftwareРелиз состоялся: 27.01.2022Разработчик: © 2020 Trần Kỳ NamПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D364F566733E54800F275D5FD5D264C1DBD47BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

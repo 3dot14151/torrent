@@ -1,82 +1,3 @@
-###  Публикация: 1654644   (205022) от 22.08.2023
-
-Джонни и бомба / Johnny and the Bomb (2006) (3 серии из 3) DVD9 [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205022.jpg" />
-</div>
-
-
-###  Подробнее
-
-13-летний Джонни Максвелл и его друзья помогают эксцентричной бездомной старухе. Оказывается, что её тележка с черными мешками на самом деле - машина времени. Совершив путешествие в 1941 год, Джонни нарушает исторический ход событий, в результате чего германская бомба убивает его бабушку. Теперь Джонни должен вернуться в прошлое, чтобы исправить ход истории и спасти (   Читать дальше...   )Производство: Великобритания / BBC Television Centre, Childsplay ProductionsЖанр: фантастика, драма, комедия, приключения, семейныйРежиссер: Дермот БойдАктеры: Джордж Маккэй, Люсьен Лависконт, Джазмин Фрэнкс, Кайл Херберт, Энтони Бауэрс, Скотт Кэй, Саманта Сигер, Холлидей Грейнджер, Рой Брэндон, Фрэнк ФинлейПеревод: одноголосый любительский (innokent33)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 01:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CFECC616A0AF722EA43FE1CA66871B8C0250D73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654677   (205001) от 22.08.2023
-
-Сальваторе - это и есть жизнь / Salvatore - Questa e la vita / Salvatore, This Is Life (2006) DVD5 [AVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это рассказ о дружбе мальчика, потерявшего родителей, и его учителя, недавно приехавшего из Северной Италии на Сицилию, где — несмотря на все новшества современной «глобализованной» жизни — сильны старые обычаи. Учитель поражен стойкостью, с которой малыш переносит свое горе, а тот видит в новом учителе своего отца…Производство: Италия / Globe FilmsЖанр: драмаРежиссер: Джан Паоло КуньоАктеры: Энрико Ло Версо, Галатеа Ранци, Люсия Сардо, Маурицио Николози, Алессандро Маллиа, Кончетта д’Амико, Claudia Gennarino, Габриэле Лавиа, Эрнесто Махье, Джанкарло ДжанниниПеревод: авторский (Сергей Кузнецов)Язык озвучки: русский, итальянскийСубтитры: итальянские, английскиеПродолжительность: 01:25:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D708101614AF7CFF73FFFAA359F9DB805F49F07C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654894   (204804) от 23.08.2023
-
-Луна Понтиак / Pontiac Moon (1994) DVD5 [AVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие комедии происходит в Америке во время первого полета человека на Луну. Школьный учитель, большой чудак, хочет одновременно с высадкой астронавтов на Луну оказаться на месте падения метеорита «Спирали Луны». Он отправляется туда со своим сыном на понтиаке модели «Старый вождь».
-Жена учителя страдает от психического расстройства. Она боится выходить из дома (   Читать дальше...   )Производство: США / Paramount PicturesЖанр: драмаРежиссер: Питер МедакАктеры: Тед Дэнсон, Мэри Стинберген, Райан Тодд, Эрик Швейг, Кэти Мориарти, Макс Гэйл, Лиза Джейн Перски, Дж. К. Куин, Джон Шак, Дон СуэйзиПеревод: авторский (Михаил Иванов)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:46:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A3FD2060B59DA357C8B4A5A2C25609EBEA40A77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1655319   (204494) от 25.08.2023
 
 Сдержать обещание / Keeping the Promise (1997) DVD9 [DVO]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204494.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204356.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203903.jpg" />
 </div>
 
 
@@ -163,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199602.jpg" />
 </div>
 
 
@@ -189,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197808.jpg" />
 </div>
 
 
@@ -217,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197140.jpg" />
 </div>
 
 
@@ -243,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193994.jpg" />
 </div>
 
 
@@ -269,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193991.jpg" />
 </div>
 
 
@@ -295,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192188.jpg" />
 </div>
 
 
@@ -321,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190519.jpg" />
 </div>
 
 
@@ -347,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187971.jpg" />
 </div>
 
 
@@ -373,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182238.jpg" />
 </div>
 
 
@@ -399,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182051.jpg" />
 </div>
 
 
@@ -425,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177556.jpg" />
 </div>
 
 
@@ -451,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176627.jpg" />
 </div>
 
 
@@ -477,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173173.jpg" />
 </div>
 
 
@@ -503,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172987.jpg" />
 </div>
 
 
@@ -529,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171899.jpg" />
 </div>
 
 
@@ -555,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171897.jpg" />
 </div>
 
 
@@ -581,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170239.jpg" />
 </div>
 
 
@@ -607,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170180.jpg" />
 </div>
 
 
@@ -633,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169156.jpg" />
 </div>
 
 
@@ -659,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169006.jpg" />
 </div>
 
 
@@ -670,6 +591,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F187DF36CDB06AF74C70413E0ACA06623B436473
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516056   (167327) от 09.12.2021
+
+Дюна / Dune: Part One (2021) DVD9 [Custom]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167327.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наследник знаменитого дома Атрейдесов Пол отправляется вместе с семьей на одну из самых опасных планет во Вселенной — Арракис. Здесь нет ничего, кроме песка, палящего солнца, гигантских чудовищ и основной причины межгалактических конфликтов — невероятно ценного ресурса, который называется меланж. В результате захвата власти Пол вынужден бежать и скрываться, и это (   Читать дальше...   )Производство: США, Канада, Венгрия / Warner Bros., Legendary Pictures, Villeneuve FilmЖанр: Фантастика, боевик, драма, приключенияРежиссер: Дени ВильнёвАктеры: Тимоти Шаламе, Ребекка Фергюсон, Оскар Айзек, Джош Бролин, Джейсон Момоа, Зендея, Стеллан Скарсгард, Хавьер Бардем, Дэйв Батиста, Шарлотта РэмплингПеревод: Дублированный, многоголосый, авторскийСубтитры: Русские, английскиеПродолжительность: 02:29:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A22C2E7A6B70962360EF909D226A16DED035B75D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345629   (166100) от 15.12.2019
+
+Yesterday / Yesterday (2019) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еще месяц назад Джек был обычным неудачником. Теперь он суперзвезда, миллионы людей слушают его песни, билеты на концерты раскупаются за секунду. В чем секрет? Все просто. Джек — единственный человек в мире, кто помнит о существовании The Beatles.Производство: Великобритания, Россия, Китай, Япония / Universal Pictures, Perfect World Pictures, Working Title FilmsЖанр: Музыка, мелодрама, фэнтези, комедияРежиссер: Дэнни БойлАктеры: Химеш Патель, Лили Джеймс, Джоэль Фрай, Эд Ширан, Кейт Маккиннон, Мира Сайал, Санджив Бхаскар, Софи Ди Мартино, Эллиз Шаппелль, Гарри МишельПеревод: Дублированный (лицензия)Субтитры: Русские, английские, испанские, португальские, эстонские, латышские, литовскиеПродолжительность: 01:51:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91C9576C031411848E6CD0EE6658760F2946932A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345798   (165461) от 16.12.2019
+
+Yesterday / Yesterday (2019) DVD5 [Custom]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165461.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еще месяц назад Джек был обычным неудачником. Теперь он суперзвезда, миллионы людей слушают его песни, билеты на концерты раскупаются за секунду. В чем секрет? Все просто. Джек — единственный человек в мире, кто помнит о существовании The Beatles.Производство: Великобритания, Россия, Китай, Япония / Universal Pictures, Perfect World Pictures, Working Title FilmsЖанр: Музыка, мелодрама, фэнтези, комедияРежиссер: Дэнни БойлАктеры: Химеш Патель, Лили Джеймс, Джоэль Фрай, Эд Ширан, Кейт Маккиннон, Мира Сайал, Санджив Бхаскар, Софи Ди Мартино, Эллиз Шаппелль, Гарри МишельПеревод: Дублированный (лицензия)Субтитры: Русские, английские, испанские, португальские, эстонские, латышские, литовскиеПродолжительность: 01:51:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F51F19C00ED7C60B1BADD6BA94544003C4455FB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

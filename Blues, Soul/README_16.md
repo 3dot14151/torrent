@@ -6,7 +6,7 @@ Kokomo Arnold - The Essential (2003) 2CD[MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634243.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ John Lee Hooker - Alternative Boogie: Early Studio Recordings (1948-1952) 3CD /1
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634172.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Crow Black Chicken - 3 альбома (2012-2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634166.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Jerimiah Marques - Down By The River (2016) [MP3|320 Kbps] <Electric Blues, Regg
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633367.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Dave Hunt - Whiskey And Demons (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632481.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Old Gray Mule - Have Mercy (2014) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632409.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Bobby Messano - Love & Money (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632408.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Bridget Kelly Band - Blues Warrior (2018) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632107.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ VA - Mercury Blues 'n' Rhythm Story (1945-1955) 8 CD /1996/ [MP3|320 кб/с]<Ju
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629747.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Etta James - Original Album Classics (2012) 5CD [MP3|~256 кб/с ]<Blues, Vocal
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629081.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Mississippi Sheiks - The Essential (2002) 2CD [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628582.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ The Miltones - The Miltones (2017) [MP3|320 Kbps] <Folk Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627607.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Omar Coleman - Born & Raised (2015) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626406.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Mungo Jerry - Kicking Back (2015) [MP3|320 кб/с]<Blues Rock, Modern Electric 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626134.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Annika Andersson & The Boiling Blues Band - Reborn (2019) [MP3|320 Kbps] <Blues 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625978.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Welshly Arms - Covers (2014) EP [MP3|320 Kbps] <Blues Rock, Blues, Covers>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625646.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Welshly Arms - Welcome (2013) EP [MP3|320 Kbps] <Blues Rock, Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625516.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Blinddog Smokin - Start Packin' (1999) [MP3|~256 кб/с ]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625228.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ VA - Down Home Blues Classics: Memphis & The South 1949-1954 (2007) 2CD [MP3|320
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625225.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ VA - Down Home Blues Classics: New York & The East Coast States (1943-1953) 2CD 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625159.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ VA - Down Home Blues Classics 1943-1953 (2004) 4CD [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625156.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ VA - Down Home Blues Classics: California & The West Coast 1948-1954 (2007) 2CD 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625155.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ VA - Down Home Blues Classics Chicago 1946-1954 (2005) 4CD [MP3|320 кб/с]<Blu
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625149.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ VA - The Real... Blues: The Ultimate Collection (2015) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624572.jpg" />
 </div>
 
 
@@ -734,7 +734,7 @@ Brilleaux - Pictures Of The Queen (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624240.jpg" />
 </div>
 
 
@@ -763,7 +763,7 @@ Thornetta Davis - Honest Woman (2016) [MP3|320 Kbps] <Detroit Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623794.jpg" />
 </div>
 
 

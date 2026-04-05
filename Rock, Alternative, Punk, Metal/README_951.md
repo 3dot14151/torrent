@@ -1,3 +1,32 @@
+###  Публикация: 1426337   (215045) от 24.11.2020
+
+The Samurai Of Prog - Beyond The Wardrobe (2020) [FLAC|Lossless|image + .cue] <Progressive Rock, Symphonic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another Time (6:23)
+02. Dear Amadeus (8:53)
+03. King of Spades (5:55)
+04. Forset Rondo (5:51)(   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 00:55:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F5026BE9540FB3E3E31959C1F64E9CF3162C6C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 853223   (214979) от 26.12.2014
 
 Colaars - Native EP (2014) [MP3|320 Kbps]<Indie Rock, Math Rock, Electronic>
@@ -6,7 +35,7 @@ Colaars - Native EP (2014) [MP3|320 Kbps]<Indie Rock, Math Rock, Electronic>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214979.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Callejon - Eternia (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214853.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Bon Jovi - Lost Highway (2007) [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214838.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Grzegorz Skawinski - Me & My Guitar (2012) [MP3|~245 Kbps (V0)] <Prog Rock, Hard
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214822.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Bon Jovi - Burning Bridges (2015) [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214784.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Bon Jovi - The Circle (2009) [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214775.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Bon Jovi - What About Now (2013) [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214768.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Malice - License To Kill (1987) Japanese Edition, Reissue, 2014, Atlantic [FLAC|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214747.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Fit For A King - The Hell We Create (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214740.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Grand Funk Railroad - E Pluribus Funk (1971) reissue /1995, Capitol Records/ [FL
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214727.jpg" />
 </div>
 
 
@@ -301,7 +330,7 @@ Cosmograf - Heroic Materials (2022) [FLAC|Lossless|image + .cue] <Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214716.jpg" />
 </div>
 
 
@@ -330,7 +359,7 @@ John Fogerty - Fogerty's Factory (2020) [FLAC|Lossless|image + .cue] <Country Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214705.jpg" />
 </div>
 
 
@@ -359,7 +388,7 @@ Royal Hunt - Dystopia, Pt. 2 (2022) [MP3|320 Kbps] <Melodic Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214696.jpg" />
 </div>
 
 
@@ -388,7 +417,7 @@ WolfeBlitzer - Lonely World (2007) [MP3|192 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214669.jpg" />
 </div>
 
 
@@ -417,7 +446,7 @@ Hobbit - Two Feet Tall (1999) [MP3|320 Kbps] <Classic Rock, Prog Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214616.jpg" />
 </div>
 
 
@@ -446,7 +475,7 @@ Rob Rock - Eyes Of Eternity (2003) [FLAC|Lossless]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214614.jpg" />
 </div>
 
 
@@ -475,7 +504,7 @@ Therion - Leviathan II (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Operatic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214576.jpg" />
 </div>
 
 
@@ -504,7 +533,7 @@ dArtagnan - Felsenfest (2022) 3CD [MP3|320 Kbps] <Musketier-Rock, Folk Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214539.jpg" />
 </div>
 
 
@@ -533,7 +562,7 @@ Zed Yago - Pirates From Hеll (2010) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214526.jpg" />
 </div>
 
 
@@ -562,7 +591,7 @@ Fire From the Gods - Soul Revolution (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu-Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214524.jpg" />
 </div>
 
 
@@ -591,7 +620,7 @@ The Who - WHO (2019) Deluxe [FLAC|24/48|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214514.jpg" />
 </div>
 
 
@@ -620,7 +649,7 @@ Warrel Dane - Shadow Work (2018) [FLAC|Lossless|image + .cue] <Heavy Metal, Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214492.jpg" />
 </div>
 
 
@@ -649,7 +678,7 @@ Veiled in Scarlet - Atonement (2018) Japan [FLAC|Lossless|image + .cue] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214468.jpg" />
 </div>
 
 
@@ -678,7 +707,7 @@ Deep Purple - Live in Rome 2013 (2019) [FLAC|24/48|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Hi Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214462.jpg" />
 </div>
 
 
@@ -707,7 +736,7 @@ Plini - Handmade Cities (2016) [FLAC|Lossless|WEB-DL|tracks] <Prog Rock, Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214442.jpg" />
 </div>
 
 
@@ -721,35 +750,6 @@ Plini - Handmade Cities (2016) [FLAC|Lossless|WEB-DL|tracks] <Prog Rock, Progres
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:702BC9F750D8468A4FAD1EDBE94EE18BED980640
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587005   (214419) от 28.10.2022
-
-Nazareth - The Ballads Album (2022) [MP3|320 Kbps] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Heart's Grown Cold (2010 - Remaster) (04:14)
- 02 - Love Hurts (Single Edit) (03:51)
- 03 - Loved and Lost (2010 - Remaster) (05:13)
- 04 - Dream On (03:25)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:59:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88AD21BAAB66898098AE37EA315E91E2EA4B58C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

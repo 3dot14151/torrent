@@ -1,3 +1,119 @@
+###  Публикация: 1259777   (316911) от 05.11.2018
+
+Klint - Klint (2002) [FLAC|Lossless|tracks + .cue] <Blues Rock, Soft Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Closer (2:10)
+ 02. Atlantic Spaceham Blues (2:44)
+ 03. Are You There (6:19)
+ 04. The Mess We're In (3:47)(   Читать дальше...   )Жанр: Blues Rock, Soft Rock, Pop RockПродолжительность: 00:50:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40AEB53814FE60052F0EA96B800FBB06365BEE87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332306   (316680) от 19.10.2019
+
+The Presidents of the United States of America - These Are the Good Times People (2008) [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mixed Up S.O.B. (3:05)
+02. Ladybug (2:34)
+03. Sharpen Up Those Fangs (3:06)
+04. More Bad Times (3:00)(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C390A3FC60FB13794BB4399E56EAD4122A15B67F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332191   (316679) от 19.10.2019
+
+The Presidents of the United States of America - Love Everybody (2004) [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Everybody (2:38)
+02. Some Postman (2:51)
+03. Clean Machine (2:32)
+04. Highway Forever (2:53)(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFA92F31C9C3510750348553361FA564D0E169A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331871   (316670) от 19.10.2019
+
+The Presidents of the United States of America - The Presidents of the United States of America (1995) [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kitty (3:23)
+02. Feather Pluckn (2:56)
+03. Lump (2:12)
+04. Stranger (3:04)(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADCB72BEA6ACC21F55B5E7E33DD8063A82F03C4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1332205   (316039) от 19.10.2019
 
 Chris Rea - On The Beach (1986) 2CD Deluxe Edition, Remastered 2019 [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Soft Rock>
@@ -6,7 +122,7 @@ Chris Rea - On The Beach (1986) 2CD Deluxe Edition, Remastered 2019 [FLAC|Lossle
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316039.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Chris Rea - One Fine Day (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316034.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Chris Rea - The Road To Hell (1989) 2CD Deluxe Edition, Remastered 2019 [FLAC|Lo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316026.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ H.E.A.T - Address The Nation (2012) [FLAC|Lossless]<Melodic Hard Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_315481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_315481.jpg" />
 </div>
 
 
@@ -128,7 +244,7 @@ Neil Young & Crazy Horse - Return To Greendale (2020) Live [FLAC|Lossless|WEB-DL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315435.jpg" />
 </div>
 
 
@@ -157,7 +273,7 @@ Fish - Weltschmerz (2020) 2xCD [FLAC|Lossless|image + .cue] <Progressive Rock, A
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315296.jpg" />
 </div>
 
 
@@ -186,7 +302,7 @@ Bryan Adams - 18 Til I Die (1996) [FLAC|tracks+.cue]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314953.jpg" />
 </div>
 
 
@@ -215,7 +331,7 @@ The Snakes - Once Bitten... (1998) Unofficial Release [FLAC|image + .cue]<Hard R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314837.jpg" />
 </div>
 
 
@@ -244,7 +360,7 @@ Fish - 13th Star (2007) [FLAC|image + .cue]<Alternative Rock, Symphonic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314722.jpg" />
 </div>
 
 
@@ -273,7 +389,7 @@ Elton John - Diamonds (2017) Deluxe, 3CD [FLAC|Lossless|WEB-DL|tracks] <Pop Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314475.jpg" />
 </div>
 
 
@@ -302,7 +418,7 @@ The Presidents of the United States of America - Freaked Out and Small (2000) PU
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314439.jpg" />
 </div>
 
 
@@ -331,7 +447,7 @@ Rainbow - Long Live Rock 'N' Roll (1978) [FLAC|tracks+.cue]<Hard Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312268.jpg" />
 </div>
 
 
@@ -360,7 +476,7 @@ Plenty - It Could Be Home (2018) [FLAC|Lossless|tracks + .cue] <Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312180.jpg" />
 </div>
 
 
@@ -389,7 +505,7 @@ Hootie & the Blowfish - Cracked Rear View (1994) Europe Reissue [FLAC|Lossless|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312179.jpg" />
 </div>
 
 
@@ -418,7 +534,7 @@ Bad Company - Dangerous Age (1988) [FLAC|Lossless|tracks + .cue] <Classic Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312060.jpg" />
 </div>
 
 
@@ -447,7 +563,7 @@ Zephyr - 4 Albums, 1 Box Set (1969 - 2014) [FLAC|Lossless|image + .cue|tracks + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311789.jpg" />
 </div>
 
 
@@ -476,7 +592,7 @@ VA - Greatest Rock Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310501.jpg" />
 </div>
 
 
@@ -505,7 +621,7 @@ Paul Carrack - Paul Carrack Collected (2012) 3CD Box Set [WavPack|Lossless]<Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_310411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_310411.jpg" />
 </div>
 
 
@@ -540,7 +656,7 @@ Sniff 'N' The Tears - Ride Blue Divide (1982) 2009, Remastered [FLAC|image+.cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310326.jpg" />
 </div>
 
 
@@ -569,7 +685,7 @@ Isotope And Gary Boyle - Live At The BBC (1973-1977) [FLAC|tracks + .cue]<Jazz-R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310324.jpg" />
 </div>
 
 
@@ -598,7 +714,7 @@ Good God - Good God (1972) Reissue, Unofficial Release /2012, Flawed Gems/ [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310322.jpg" />
 </div>
 
 
@@ -624,7 +740,7 @@ Shania Twain - Shania Twain (1993) [FLAC|tracks+.cue]<Country Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310192.jpg" />
 </div>
 
 
@@ -638,122 +754,6 @@ Shania Twain - Shania Twain (1993) [FLAC|tracks+.cue]<Country Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:022B9EC678EE92D01B8029FE963699E9EF6D09F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960015   (309937) от 27.11.2015
-
-Foreigner - The Very Best...And Beyond (1992) [FLAC|tracks+.cue]<Hard Rock, Arena Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Doctor (4:52)
-02. Prisoner Of Love (5:15)
-03. With Heaven On Our Side (5:16)
-04. Juke Box Hero (4:20)(   Читать дальше...   )Жанр: Hard Rock, Arena Rock, Classic RockПродолжительность: 00:69:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB590C03213FF8E2E5E859BFE1099CDDCEDAA33A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960086   (309935) от 27.11.2015
-
-Fish - Songs From The Mirror (1993) [FLAC|image + .cue]<Folk Rock, Pop Rock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309935.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Question  6:38
-Written-By – J. Hayward*
-2.Boston Tea Party  4:25
-Written-By – A. Harvey*, H. McKenna*, A. Cleminson*(   Читать дальше...   )Жанр: Folk Rock, Pop Rock, Prog RockПродолжительность: 00:44:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A969212260D9B5538CF48D8828EB965F3EC9A102
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959916   (309816) от 27.11.2015
-
-Bee Gees - This Is Where I Came In (2001) [FLAC|tracks+.cue]<Soft Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Is Where I Came In (4:56)
-02. She Keeps on Coming (3:57)
-03. Sacred Trust (4:53)
-04. Wedding Day (4:43)(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:47:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E01DDAD86DB6CAB00FF53F2C44FD9C80B607281
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332775   (309538) от 22.10.2019
-
-The Hu - The Gereg (Digipak) (2019) [FLAC|Lossless|image + .cue] <Folk Rock, Overtone Singing>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Gereg (4:55)
-02. Wolf Totem (5:38)
-03. The Great Chinggis Khaan (4:32)
-04. The Legend Of Mother Swan (5:25)(   Читать дальше...   )Жанр: Folk Rock, Overtone SingingПродолжительность: 00:47:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:183A3FBD0002AAE47C505F461F58D9525C94DB4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,31 +1,3 @@
-###  Публикация: 906858   (641464) от 10.06.2015
-
-Книжная серия | Великие правители [9 книг] (2014) [FB2, EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641464.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кто больше сделал для империи? Петр I, который ее основал? Александр I, который устоял перед нашествием Наполеона? Александр II, освободивший крестьян? Многие российские императоры внесли свою лепту в процветание и укрепление России, но лишь одно царствование называют Золотым веком Российской империи!
-
-Когда юная принцесса София Августа Фредерика фон Анхальт-Цербст-Дорнбург (   Читать дальше...   )Жанр: Биографии и Мемуары, ИсторияПеревод: А. Милехин, Геннадий Ярославцев, В. Минорский, Георгий ВернадскийФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB0EEA96B88AE8656EA25FBEC5183BCA79CDD40C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 906738   (641457) от 10.06.2015
 
 Александр Сидоров | Великие битвы уголовного мира. История профессиональной преступности Советской России. Книга первая (1917-1940 г.г.) (1999) [FB2]
@@ -34,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641457.jpg" />
 </div>
 
 
@@ -60,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641358.jpg" />
 </div>
 
 
@@ -87,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641355.jpg" />
 </div>
 
 
@@ -115,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640003.jpg" />
 </div>
 
 
@@ -143,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639911.jpg" />
 </div>
 
 
@@ -169,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639838.jpg" />
 </div>
 
 
@@ -195,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639809.jpg" />
 </div>
 
 
@@ -221,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639448.jpg" />
 </div>
 
 
@@ -247,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638087.jpg" />
 </div>
 
 
@@ -275,7 +247,7 @@ Andrew Jotischky, Caroline Hull | Исторический Атлас Средн
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637866.jpg" />
 </div>
 
 
@@ -301,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637415.jpg" />
 </div>
 
 
@@ -327,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637336.jpg" />
 </div>
 
 
@@ -353,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636947.jpg" />
 </div>
 
 
@@ -381,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636154.jpg" />
 </div>
 
 
@@ -407,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636130.jpg" />
 </div>
 
 
@@ -434,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635978.jpg" />
 </div>
 
 
@@ -460,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635964.jpg" />
 </div>
 
 
@@ -487,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635927.jpg" />
 </div>
 
 
@@ -515,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635436.jpg" />
 </div>
 
 
@@ -541,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634848.jpg" />
 </div>
 
 
@@ -570,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634302.jpg" />
 </div>
 
 
@@ -598,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634300.jpg" />
 </div>
 
 
@@ -626,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634076.jpg" />
 </div>
 
 
@@ -652,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633972.jpg" />
 </div>
 
 
@@ -678,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633971.jpg" />
 </div>
 
 
@@ -689,6 +661,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6602E9A97FBBF2537B44288495116BC1D92714CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908264   (633857) от 14.06.2015
+
+Федор Достоевский | Слезинка ребенка. Дневник писателя (2015) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633857.jpg" />
+</div>
+
+
+###  Подробнее
+
+...От высшей гармонии совершенно отказываюсь. Не стоит она слезинки хотя бы одного только того замученного ребенка, который бил себя кулачонком в грудь и молился в зловонной конуре неискупленными слезами своими к боженьке". Данная цитата, принадлежащая герою романа "Братья Карамазовы", возможно, краеугольная мысль творчества Ф.М.Достоевского - писателя, (   Читать дальше...   )Жанр: Биографии и Мемуары, Русская классика, Литература 19 векаФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4373C24BC82B8D0A55A627B3D3393B6B29393C77
 ```
 
 https://mybot314.ru/tekegram_catalog/

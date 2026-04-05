@@ -1,3 +1,81 @@
+###  Публикация: 1214262   (761153) от 24.03.2018
+
+Скачущие издалека / The Long Riders (1980) Blu-ray [H.264/1080p] [Custom]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761153.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитая банда Малыша Джеймса — самая крутая шайка грабителей банков, поездов и дилижансов. Преисполненные отваги, они слывут в народе местными героями. Но поймать их клянется само всемогущее сыскное агентство Пинкертона, а это значит, что бандитам предстоит встреча со смертельным врагом. Выбор небогат: оказаться за решеткой или погибнуть. Только сила воли и кровное (   Читать дальше...   )Производство: США, Huka ProductionsЖанр: ВестернРежиссер: Уолтер ХиллАктеры: Дэвид Кэрредин, Кит Кэрредин, Роберт Кэрредин, Джеймс Кич, Стейси Кич, Деннис Куэйд, Рэнди Куэйд, Кевин Брофи, Гарри Кэри мл., Кристофер Гест, Николас Гест, Шелби Леверингтон, Феличе Орланди, Памела Рид, Джеймс Римар, Фран Райан, Саванна Смит Бучер, Эми Страйкер, Джеймс Уитмор мл., Джон Боттомс, Уэст Бьюкэнэн, Эдвард Банкер, Мартина Дэйнан, Аллан Граф, Крис МалкиПеревод: Многоголосый, Двухголосый х2, АвторскийСубтитры: Русские, английские, испанские, французские, итальянские, немецкие, датские, голандские, норвежские, шведские, японскиеПродолжительность: 01:39:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7EC59643A39673B245A496E0DB5DCA9B9CB02D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 886780   (760863) от 11.04.2015
+
+Венсан, Франсуа, Поль и другие / Vincent, Francois, Paul... et les autres (1974) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760863.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждое воскресенье старые приятели собираются вместе. Они очень разные люди, у каждого свои проблемы. Винсент разорен и должен кучу денег, Франсуа вынужден наблюдать, как его жена меняет мужчин, Поль — писатель без собственных книг. Проблемы приходят и уходят. С годами меняется все — счет в банке, любовь, карьера… Только не меняется старая мужская дружба.Производство: Франция, Италия / Lira Films, President ProduzioniЖанр: ДрамаРежиссер: Клод СотеАктеры: Ив Монтан, Мишель Пикколи, Серж Реджани, Жерар Депардье, Стефан Одран, Мари Дюбуа, Умберто Орсини, Людмила Микаэль, Антонелла Луальди, Катрин АллегреПеревод: Многоголосый закадровыйСубтитры: ФранцузскиеПродолжительность: 01:53:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80D1C8D73F11142CB7F63AF3076800EDC7871E20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571324   (759301) от 26.04.2014
+
+Пианист / The Pianist (2002) BDRemux [1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм повествует о судьбе Владислава Шпильмана — выдающегося польского пианиста, еврея по национальности. Вынужденный жить в Варшавском гетто во время Второй мировой войны, он сполна познает вкус унижений, страдания и борьбы. Один из офицеров отступающей немецкой армии обнаруживает его среди руин разрушенного бомбежками города и помогает ему выжить...Жанр: Драма, военныйРежиссер: Роман Полански / Roman PolanskiАктеры: Эдриан Броуди, Томас Кречманн, Фрэнк Финлэй, Морин Липман, Эмилия Фокс, Эд Стоппард, Джулия Рэйнер, Джессика Кейт Мейер, Михал Жебровский, Ваня МуесПеревод: Профессиональный (полное дублирование), профессиональный (многоголосый, закадровый)Язык субтитров: Русские (forced, только на непереведённые в дубляже немецкие фразы), русские (полные), английскиеПродолжительность: 02:28:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1388596   (756739) от 09.07.2020
 
 Хороший, плохой, злой / Il buono, il brutto, il cattivo (1966) BDRemux [H.264/1080p]
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756739.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756692.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756574.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756330.jpg" />
 </div>
 
 
@@ -113,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756003.jpg" />
 </div>
 
 
@@ -139,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755909.jpg" />
 </div>
 
 
@@ -167,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755415.jpg" />
 </div>
 
 
@@ -193,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755059.jpg" />
 </div>
 
 
@@ -219,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753185.jpg" />
 </div>
 
 
@@ -245,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752798.jpg" />
 </div>
 
 
@@ -272,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_751334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_751334.jpg" />
 </div>
 
 
@@ -298,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750724.jpg" />
 </div>
 
 
@@ -324,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750372.jpg" />
 </div>
 
 
@@ -351,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749682.jpg" />
 </div>
 
 
@@ -377,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749093.jpg" />
 </div>
 
 
@@ -403,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747498.jpg" />
 </div>
 
 
@@ -429,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746431.jpg" />
 </div>
 
 
@@ -455,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745888.jpg" />
 </div>
 
 
@@ -481,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745831.jpg" />
 </div>
 
 
@@ -508,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745177.jpg" />
 </div>
 
 
@@ -534,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744896.jpg" />
 </div>
 
 
@@ -560,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744322.jpg" />
 </div>
 
 
@@ -587,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743962.jpg" />
 </div>
 
 
@@ -598,84 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B298B653DFFC28C350730F912B03075ECA4A731
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 783252   (743813) от 05.05.2014
-
-Побег из Шоушенка / The Shawshank Redemption (1994) BDRip [H.264/720p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шоушенк  название тюрьмы. И если тебе нет еще 30-ти, а ты получаешь пожизненное, то приготовься к худшему: для тебя выхода из Шоушенка не будет! Актриса Рита Хэйворт  любимица всей Америки. Энди Дюфрейну она тоже очень нравилась. Рита никогда не слышала о существовании Энди, однако жизнь Дюфрейну, бывшему вице-президенту крупного банка, осужденному за убийство жены (   Читать дальше...   )Производство: СШАЖанр: драма, криминалРежиссер: Фрэнк ДарабонтАктеры: Тим Роббинс, Морган Фриман, Боб Гантон, Уильям Сэдлер, Клэнси Браун, Джил Беллоуз, Марк Ролстон, Джеймс Уайтмор, Джеффри ДеМун, Ларри Бранденбург, Нил Гвинтоли, Брайан Либби, Дэвид Прувал, Джозеф Раньо, Джуд Чикколелла, Пол МакКрейн, Рени Блейн, Скотт Манн, Джон Хортон, Гордон Грин, Альфонсо ФриманПеревод: Профессиональный (многоголосый, закадровый) x6, Профессиональный (двуголосый, закадровый) х3, Профессиональный (одноголосый, закадровый) х7Субтитры: Вшитые отключаемыеЯзык субтитров: Русский, АнглийскийПродолжительность: 02:22:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62E2AD85F8CF43BC37A7B3820ECF444AA3CE67CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215942   (743227) от 04.04.2018
-
-Рождённая свободной / Born Free (1966) Blu-ray [H.264/1080p] [Custom]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743227.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм был снят в Африканской саванне по одноименному бестселлеру известной писательницы и натуралиста Джой Адамсон. Картина рассказывает о судьбе львицы Эльзы, еще детенышем попавшей к супругам Адамсон. Они не только спасают малышку от неминуемой гибели, но и, вырастив ее, возвращают назад в дикую природу потому, что она была рождена свободной. Авторам удалось превосходно (   Читать дальше...   )Производство: США, Atlas, Highroad, Open Road Films (II)Жанр: Драма, приключения, семейныйРежиссер: Джеймс Хилл, Том МакгоунАктеры: Вирджиния МакКенна, Билл Треверс, Джеффри Кин, Питер Лукойе, Омар Чамбати, Билл Годден, Брайан Эпсом, Роберт Читэм, Роберт С. Янг, Джеффри БестПеревод: Профессиональный (двухголосый закадровый)Субтитры: РусскиеПродолжительность: 01:35:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AB0A1391105ABC8CD576FEB0F79462AEA25FE3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 888554   (742846) от 21.04.2015
-
-Список Шиндлера / Schindler's List (1993) BDRip [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лента рассказывает реальную историю загадочного Оскара Шиндлера, члена нацистской партии, преуспевающего фабриканта, спасшего во время Второй мировой войны более тысячи ста евреев. Это триумф одного человека, не похожего на других, и драма тех, кто, благодаря ему, выжил в ужасный период человеческой истории.Производство: СШАЖанр: драма, военный, биография, историяРежиссер: Стивен СпилбергАктеры: Лиам Нисон, Бен Кингсли, Рэйф Файнс, Кэролайн Гудолл, Эмбет Дэвидц, Джонатан Сагалл, Малгоша Гебель, Марк Иванир, Беатриче МаколаПеревод: Дублированный , Многоголосый закадровый, Одноголосый закадровыйЯзык субтитров: русский , английскийПродолжительность: 03:15:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57F1BA5E114129DD7DA907B56CFA8D32E6246737
 ```
 
 https://mybot314.ru/tekegram_catalog/

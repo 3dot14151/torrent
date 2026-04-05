@@ -1,3 +1,29 @@
+###  Публикация: 1146940   (611310) от 01.07.2017
+
+Ф. Э. Дзержинский | Избранные произведения [2 тома] (1967) [DJVU, PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611310.jpg" />
+</div>
+
+
+###  Подробнее
+
+Избранные произведения выдающегося деятеля Коммунистической партии и Советского государства, верного ученика и ближайшего соратника В. И. Ленина, пламенного борца за коммунизм Феликса Эдмундовича Дзержинского, подготовленные Институтом марксизма-ленинизма при ЦК КПСС. Первый том охватывает периоды с 1897 по 1923 год. Второй том охватывает период с января 1924 по (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CE366C8EB64781BF9F33DDB286BFB6A888A83DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038004   (610113) от 26.07.2016
 
 Максим Чертанов | Эйнштейн (2015) [PDF]
@@ -6,7 +32,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610113.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610106.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608723.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608590.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608491.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608347.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608283.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608055.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606594.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604937.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604823.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604144.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604140.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603906.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603804.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603768.jpg" />
 </div>
 
 
@@ -432,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603675.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603606.jpg" />
 </div>
 
 
@@ -486,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603595.jpg" />
 </div>
 
 
@@ -512,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603046.jpg" />
 </div>
 
 
@@ -539,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602892.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602502.jpg" />
 </div>
 
 
@@ -592,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601903.jpg" />
 </div>
 
 
@@ -620,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600856.jpg" />
 </div>
 
 
@@ -646,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600755.jpg" />
 </div>
 
 
@@ -657,33 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7852C01299891453B4F4D1E65763B353A1DE2B3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299108   (600752) от 30.04.2019
-
-Гордон Брук-Шеферд | Перебежчики из разведки. Изменившие ход «холодной войны» (2018) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перебежчики из разведки (советской и западной) сыграли важную роль в послевоенной истории. Например, полковник ГРУ Олег Пеньковский передал на Запад 5,5 тыс. документов, которые «определили планирование в западном альянсе на годы, а в некоторых вопросах – на десятилетия».
-Сотрудник британской разведки Ким Филби сообщил в Москву обо всех операциях ЦРУ против СССР. (   Читать дальше...   )Жанр: Биографии и Мемуары, Спецслужбы, ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:481F76E655C3E53836462DBFD7C26950A14A8A8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

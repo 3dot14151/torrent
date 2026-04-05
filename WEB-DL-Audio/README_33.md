@@ -6,7 +6,7 @@ Frank & Tony - Ethos (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111372.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Love Sex Machine - Trve (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Sludge Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111368.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Starsailor - Where The Wild Things Grow (2024) [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111360.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Stonehurst - Wild Visions (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111359.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Caru de Souza - Amor, Pele e Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111358.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111357.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Susan Santos - Sonora (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111355.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Nick Cave & Warren Ellis - Back to Black (2024) Original Motion Picture Score [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111349.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Estopa - Estopía (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop Rock, Latin Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111329.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Jeff Russo - Fargo Year 4 (Soundtrack from the MGM/FXP Series) (2020) [FLAC 24/4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111322.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Jeff Russo - Fargo Year 5 (Soundtrack from the MGM/ FXP Series) (2023) [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111320.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Voided - One (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu-Metal, Alternative
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111317.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Kevin & JD - Island Of Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111314.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Void Chapter - humAnIty (2023) Deluxe, 2024, FiXT[FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111301.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Crimson Train - Crimson Train (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111290.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Bless Her Evil - We Are Mystery... (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111287.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Vella la Vella - Revolution (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111279.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Neal Francis - Francis Comes Alive (2023) Deluxe Edition, 2023, ATO Records [FLA
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111278.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Soul Twin Messiah - Soul Twin Messiah (2024) [FLAC 24/96|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111275.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Hypersonic - Kaosmogonia (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111274.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ DVNE - Voidkind (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Post-Metal, Progress
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111273.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ My Dying Bride - A Mortal Binding (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111270.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Gun - Hombres (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111269.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Bruce Springsteen - Best of Bruce Springsteen (Expanded Edition) (2024) [FLAC 24
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111265.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Vanden Plas - The Empyrean Equation of The Long Lost Things (2024) [FLAC 24/96|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111251.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Larry Campbell & Teresa Williams - All This Time (2024) [FLAC 24/96|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111165.jpg" />
 </div>
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 1424546   (228020) от 17.11.2020
+
+BPMD - American Made (2020) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wang Dang Sweet Poontang (Ted Nugent cover)
+02. Toys In The Attic (Aerosmith cover)
+03. Evil (Cactus cover)
+04. Beer Drinkers & Hell Raisers (ZZ Top cover)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:38:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10E7D19B25AE56146C4E7C3AF06EAEB140672E08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1649953   (228012) от 30.07.2023
 
 Herald the Apocalypse - They Don't Care About Us (2023) EP [MP3|320 Kbps] <Death Metal, Doom Metal>
@@ -6,7 +35,7 @@ Herald the Apocalypse - They Don't Care About Us (2023) EP [MP3|320 Kbps] <Death
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228012.jpg" />
 </div>
 
 
@@ -34,7 +63,7 @@ Chris Rea - Auberge (1991) [FLAC|Lossless|image + .cue]<Soft Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228007.jpg" />
 </div>
 
 
@@ -63,7 +92,7 @@ Kost - Warden (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228004.jpg" />
 </div>
 
 
@@ -92,7 +121,7 @@ Avi Rosenfeld & Caz Mera - It's Late (2020) [MP3|320 Kbps] <Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227994.jpg" />
 </div>
 
 
@@ -121,7 +150,7 @@ Allen/Olzon - Army Of Dreamers (2022) Japanese Edition [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227979.jpg" />
 </div>
 
 
@@ -150,7 +179,7 @@ Ady & The Hop Pickers - Are You Ready Guys? (2020) [MP3|320 Kbps] <Rockabilly>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227974.jpg" />
 </div>
 
 
@@ -179,7 +208,7 @@ Nephenzy Chaos Order - Pure Black Disease (2003) [APE|Lossless|image + .cue] <Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227961.jpg" />
 </div>
 
 
@@ -208,7 +237,7 @@ Nielsen/Pearson - Nielsen/Pearson & Blind Luck (1980-1983) Japanese Edition, Rem
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227953.jpg" />
 </div>
 
 
@@ -237,7 +266,7 @@ Range Of Mutilated - Beheaded Or Melted (2013) [FLAC|Lossless|image + .cue] <Bru
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227951.jpg" />
 </div>
 
 
@@ -266,7 +295,7 @@ Mutoid Man - Mutants (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal, Post-Ha
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227948.jpg" />
 </div>
 
 
@@ -295,7 +324,7 @@ Eibon - Eibon (2008) EP [FLAC|Lossless|image + .cue] <Sludge Metal, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227940.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ Arkham Witch - Beer And Bullet Belts (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227938.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ James Rivera's Metal Wave - New Wave Gone Metal (2023) [FLAC|Lossless|WEB-DL|tra
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227932.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ Nordheim - Refill (2013) [FLAC|Lossless|image + .cue] <Folk Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227929.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ Abaddon - Statues of Sorrow (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227926.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ Magma - Kartehl (2022) [FLAC|Lossless|tracks + .cue] <Prog Rock, Jazz-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227924.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ Nocturnal Graves - ...from the Bloodline of Cain (2013) [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227921.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ Dogs Of Neptune - 2 Albums (2016-2023) [MP3|320 Kbps] <Progressive Heavy Metal, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227914.jpg" />
 </div>
 
 
@@ -524,7 +553,7 @@ Bonded - Into Blackness (2021) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227913.jpg" />
 </div>
 
 
@@ -553,7 +582,7 @@ Signs Of The Swarm - Amongst The Low And Empty (2023) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227907.jpg" />
 </div>
 
 
@@ -582,7 +611,7 @@ Edain - Of Those Who Worship Fire (2013) [FLAC|Lossless|image + .cue] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227905.jpg" />
 </div>
 
 
@@ -611,7 +640,7 @@ William The Conqueror - Excuse Me While I Vanish (2023) [FLAC|Lossless|WEB-DL|tr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227896.jpg" />
 </div>
 
 
@@ -640,7 +669,7 @@ SoMaD - Story of Marion & Damiel (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227889.jpg" />
 </div>
 
 
@@ -669,7 +698,7 @@ Little Feat - Sailin' Shoes (1972) 2CD, Deluxe Edition, Remaster, 2023, Rhino - 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227882.jpg" />
 </div>
 
 
@@ -697,7 +726,7 @@ Orianthi - Rock Candy (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227880.jpg" />
 </div>
 
 
@@ -711,35 +740,6 @@ Orianthi - Rock Candy (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:491CAE0AF8EB6BC4BF557BCE4DA4C06C9EA5CC3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650093   (227875) от 30.07.2023
-
-Dogs Of Neptune - Zero (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227875.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Odds Against Us
-02. Filthy Lies
-03. Sound of a Ghost
-04. Start of It All(   Читать дальше...   )Жанр: Progressive Heavy, Power MetalПродолжительность: 00:43:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA82D2F8F808450B25B7BA4E39F9E369D9E06E88
 ```
 
 https://mybot314.ru/tekegram_catalog/

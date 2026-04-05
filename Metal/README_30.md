@@ -6,7 +6,7 @@ BPMD - American Made (2020) [MP3|320 Kbps] <Thrash Metal, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784591.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Iahsari - Shrine Of The Ancient Gods (2018) [MP3|320 Kbps] <Symphonic Metal, Fol
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784370.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Caligula's Horse - Rise Radiant (2020) [MP3|320 Kbps] <Progressive Rock, Progres
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784284.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Therion - Beloved Antichrist (2018) [MP3|320 Kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784035.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Killitorous - The Afterparty (2020) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783058.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Royal Hunt - Cast In Stone (2018) [MP3|320 Kbps] <Melodic Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782521.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Metallica - Best Ballads (1999) [MP3|192 kbps]<Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781859.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Ost+Front - Adrenalin (2018) Deluxe Edition [MP3|320 Kbps] <Industrial Metal, ND
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781726.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Umbra Et Imago - 13 Альбомов (1992-2017) [MP3|320 Kbps] <Gothic Metal, I
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781704.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Xibalba - Anos En Infierno (2020) [MP3|320 Kbps] <Hardcore, Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781082.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Asylum 8 - Repressed (2017) [MP3|320 Kbps] <Melodic Death Metal, Industrial Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780861.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Eleine - Until the End (2018) [MP3|320 Kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779807.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Dream Ocean - Lost Love Symphony (2018) [MP3|320 Kbps] <Symphonic Metal, Female 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779801.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ MegaDriver - TriMetal (2017) [MP3|256 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779674.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ MegaDriver - For Great Justice (2018) [MP3|256 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779665.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ MegaDriver - Metalvania (2016) [MP3|192 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779528.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Secret Rule - The Key to the World (2017) [MP3|320 Kbps] <Symphonic melodic meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779296.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Neveryon - The Blind Side (2018) [MP3|320 Kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779289.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Scythe Beast - Breeding Devastation (2016) [MP3|320 кб/с] <MDM,Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778000.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ MegaDriver - Gaming Hell (2016) [MP3|256 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777278.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Judas Priest - Firepower (2018) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777086.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Marauder - Bullethead (2016) [MP3|320 кб/с] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776957.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ The Foreshadowing - Seven Heads Ten Horns (2016) [MP3|320 кб/с] <Doom Metal, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776929.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Fausttophel - ...Sancta Simplicitas... (2015) [MP3|320 кб/с] <Melodic Black M
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776558.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ Armored Dawn - Barbarians In Black (2018) [MP3|320 Kbps] <Heavy Metal, Power Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776510.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ Ministry - AmeriKKKant (2018) [MP3|320 Kbps] <Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776431.jpg" />
 </div>
 
 

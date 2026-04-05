@@ -1,3 +1,55 @@
+###  Публикация: 1256301   (356442) от 21.10.2018
+
+В.В. Воронина | Технологии автоматизации бизнес-процессов предприятий (2013) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356442.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассматриваются технологии, совместимые с платформой .Net, позволяющие строить эффективные многофункциональные приложения на языке С#, решая задачи автоматизации бизнес-процессов предприятий. Пособие предназначено для студентов направления "Прикладная информатика", а также для студентов других направлений, изучающих дисциплины, связанные с автоматизацией (   Читать дальше...   )Жанр: Компьютерная литература, бизнесФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D08031ABF3F0B3C750CF9D8A00641DF4CB788E01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329043   (356297) от 03.10.2019
+
+Д.В. Чистов (ред.) | Проектирование информационных систем. Учебник и практикум (2019) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356297.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебнике рассматриваются теоретические и практические аспекты проектирования информационных систем: жизненный цикл ИС; стандарты, технологии и процессы проектирования; процессная технология RUP; моделирование бизнес-процессов в среде WebSphere Business Modeler; технология проектирования в среде IBM Rational Rose; технология применения MS Project для оценки стоимости (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C1054B9FD1BB8CC06F24CCDB7CBFD93CEAE6E96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 577750   (354850) от 20.11.2012
 
 В.Д. Черненко | Высшая математика в примерах и задачах: Учебное пособие для вузов. [2003] [DJVU]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354850.jpg" />
 </div>
 
 
@@ -36,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354030.jpg" />
 </div>
 
 
@@ -62,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353727.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353409.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353323.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352824.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351964.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351275.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351108.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350817.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350343.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349771.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349301.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ C.А. Борминский | Электротехника и электрони�
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348986.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347751.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346810.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345591.jpg" />
 </div>
 
 
@@ -459,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345289.jpg" />
 </div>
 
 
@@ -489,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344510.jpg" />
 </div>
 
 
@@ -515,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344453.jpg" />
 </div>
 
 
@@ -541,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344434.jpg" />
 </div>
 
 
@@ -567,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344122.jpg" />
 </div>
 
 
@@ -594,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342162.jpg" />
 </div>
 
 
@@ -620,7 +672,7 @@ C.Е. Ерошенко и др. | Проектирование оборудов�
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341999.jpg" />
 </div>
 
 
@@ -631,59 +683,6 @@ C.Е. Ерошенко и др. | Проектирование оборудов�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C2D1140FA9E6FF6E85C3339637ABBF29B42D7D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954361   (341800) от 07.11.2015
-
-С.И. Кошелев | Автоматизация проектирования электронных устройств средствами САПР OrCAD (2012) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341800.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самоучитель по проектированию аналоговых и цифровых схем, их моделированию и разводке печатных плат. C учетом ЕСКД.
-Обычно книги по САПР (или фирменные руководства) имеют устрашающую толщину. В тоже время известно, что дети легко осваивают компьютерные игры, никогда не читая их описаний. Они пользуются интуицией и небольшими подсказками, зато имеют возможность много (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE96A45058E38D242B8F93B79C47124267B5B68E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954340   (341675) от 07.11.2015
-
-И.П. Конакова, Э.Э. Истомина | Основы работы в "КОМПАС-График V 14" (2015) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341675.jpg" />
-</div>
-
-
-###  Подробнее
-
-Практикум содержит сведения, необходимые для выполнения лабораторных работ и практических заданий по курсу «Инженерная и компьютерная графика» средствами компьютерной графики, и позволяет освоить приемы создания двумерных чертежей в программе «КОМПАС-График». Большое количество подробно рассмотренных заданий позволяют увеличить долю самостоятельности в изучении графического (   Читать дальше...   )Жанр: Инженерная и компьютерная графикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CEF7760FBFC58FBDF9A83C1DAAA2C8265274F62
 ```
 
 https://mybot314.ru/tekegram_catalog/

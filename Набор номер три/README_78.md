@@ -1,3 +1,162 @@
+###  Публикация: 980779   (952392) от 31.01.2016
+
+X-2 - первый истребитель-невидимка японского производства
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952392.jpg" />
+</div>
+
+
+###  Подробнее
+
+Япония, наряду с США, Россией и Китаем стала четвертой страной в мире, которая имеет в своем распоряжении истребитель-невидимку следующего поколения собственной разработки и производства. Новый самолет, известный ранее под названием ATD-X (Advanced Technology Demonstrator X), был представлен вниманию общественности в одном из ангаров аэропорта Нагои, а свой первый (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475756   (952372) от 31.01.2016
+
+Специалист | Linux. Уровень 2. Использование систем на UNIX в качестве серверов [2011] PCRec
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный курс позволит получить знания для эффективного использования сетевых возможностей Linux / FreeBSD. Вы узнаете принцип работы как с корпоративными сервисами, такими как электронная почта, Intranet, FTP-сервер, так и с незаметными, но не менее необходимыми — шлюз в Интернет, DNS, DHCP и т.п.
+
+Курс в первую очередь будет интересен системным администраторам, администраторам (   Читать дальше...   )Жанр: Обучающие видеоурокиПродолжительность: 24:13:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:351F173373CE8DF8FE2BD3D349570DAD3246D882
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981092   (952371) от 31.01.2016
+
+Срочно выйду замуж (2015) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Женя — редактор-трудоголик, Стас — светский фотограф. Она амбициозна, а у него по жизни — ни задачи, ни проблемы. Женя хочет и может стать главным редактором журнала, но для этого у нее срочно должен появиться супруг! Условие акционеров издания — семейная аудитория нуждается в семейном руководителе. И на решение этой задачи у девушки есть всего неделя. Стас берется (   Читать дальше...   )Производство: Россия / Art Pictures Studio, ВайТ МедиаЖанр: Комедия, МелодрамаРежиссер: Сергей ЧекаловАктеры: Юлия Ковальчук, Алексей Чумаков, Екатерина Маликова, Сергей Бурунов, Ольга Прокофьева, Вячеслав Гришечкин, Нонна Гришаева, Анатолий Белый, Алика Смехова, Эвклид КюрдзидисПеревод: Не требуется (русский) iTunesПродолжительность: 01:43:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7616D12AFD93353E38E16CBE9A82F6AA5332728D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361498   (951953) от 21.02.2020
+
+Хакеры массово атаковали пользователей Windows 7
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951953.jpg" />
+</div>
+
+
+###  Подробнее
+
+В середине января Microsoft официально прекратила поддержку операционной системы Windows 7. Уже спустя несколько недель её пользователи столкнулись с техническими проблемами и навязчивым предложением компании обновиться до более актуальной версии ОС. Теперь же «выкуривать» пользователей «семёрки» принялись создатели вредоносного ПО. Эксперты компании Webroot отметили (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361951   (951902) от 21.02.2020
+
+Достать ножи / Knives Out (2019) BDRip [H.264/720p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951902.jpg" />
+</div>
+
+
+###  Подробнее
+
+На следующее утро после празднования 85-летия известного автора криминальных романов Харлана Тромби виновника торжества находят мёртвым. На лицо — явное самоубийство, но полиция по протоколу опрашивает всех присутствующих в особняке членов семьи, хотя, в этом деле больше заинтересован частный детектив Бенуа Блан. Тем же утром он получил конверт с наличными от неизвестного (   Читать дальше...   )Производство: США / Lionsgate, Media Rights Capital, T-StreetЖанр: Детектив, Комедия, Драма, КриминалРежиссер: Райан ДжонсонАктеры: Дэниэл Крэйг, Ана де Армас, Крис Эванс, Джейми Ли Кёртис, Майкл Шеннон, Дон Джонсон, Тони Коллетт, Лакит Стэнфилд, Кристофер ПламмерПеревод: Дублированный (iTunes)Субтитры: Русские (Full, Forced)Продолжительность: 02:10:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED123E1FB82195387F7C97CFC8F5C90C392B9D21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360179   (951900) от 21.02.2020
+
+SolidWorks 2020 Premium SP 1.0 [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951900.jpg" />
+</div>
+
+
+###  Подробнее
+
+SolidWorks – система автоматизированного проектирования, инженерного анализа и подготовки производства изделий любой сложности и назначения.
+SolidWorks является ядром интегрированного комплекса автоматизации предприятия, с помощью которого осуществляется поддержка жизненного цикла изделия в соответствии с концепцией CALS-технологий, включая двунаправленный обмен (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:644022003A71DAB5ABB8A08074EE779BE6650BFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 624221   (951827) от 28.02.2013
 
 The Settlers 7: Paths to a Kingdom [Ru/En/Multi9] (Repack/1.12.1396.0) 2012 | z10yded
@@ -6,7 +165,7 @@ The Settlers 7: Paths to a Kingdom [Ru/En/Multi9] (Repack/1.12.1396.0) 2012 | z1
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951827.jpg" />
 </div>
 
 
@@ -34,7 +193,7 @@ Windows 7 Максимальная SP1 x86-x64 Rus Orig Upd 02.2013 by OVGorskiy
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951825.jpg" />
 </div>
 
 
@@ -62,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951773.jpg" />
 </div>
 
 
@@ -88,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951386.jpg" />
 </div>
 
 
@@ -114,7 +273,7 @@ Subsistence (2016) [En] (020117) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951384.jpg" />
 </div>
 
 
@@ -140,7 +299,7 @@ Unreal Tournament 2004 (2004) [En] (3369-128.29/dlc) License GOG [Editor's Choic
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951382.jpg" />
 </div>
 
 
@@ -166,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>16
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951377.jpg" />
 </div>
 
 
@@ -192,7 +351,7 @@ Acronis BootUSB 5in1 v1.3 by zdanovych [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951376.jpg" />
 </div>
 
 
@@ -218,7 +377,7 @@ Windows XP SP3 RUS VL+ Быстрая установка из ESD v1 [Ru] by yah
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951375.jpg" />
 </div>
 
 
@@ -244,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951374.jpg" />
 </div>
 
 
@@ -270,7 +429,7 @@ Mozilla Firefox Good 1.9 (50.1.0) Portable by southron4965 [Ru]
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951373.jpg" />
 </div>
 
 
@@ -296,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951372.jpg" />
 </div>
 
 
@@ -322,7 +481,7 @@ Mafia III / Мафия 3 (2016) [Ru/En] (20161221/dlc) Repack R.G. Механи�
 >>18
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951371.jpg" />
 </div>
 
 
@@ -348,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951251.jpg" />
 </div>
 
 
@@ -376,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951216.jpg" />
 </div>
 
 
@@ -402,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951144.jpg" />
 </div>
 
 
@@ -429,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951127.jpg" />
 </div>
 
 
@@ -455,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951122.jpg" />
 </div>
 
 
@@ -481,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951107.jpg" />
 </div>
 
 
@@ -507,7 +666,7 @@ Reg Organizer 7.30 Final + Portable [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951004.jpg" />
 </div>
 
 
@@ -518,169 +677,6 @@ Reg Organizer® - это многофункциональная программ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55C9416FA7BAC2BBB5A0C0D54BABCB87A1022611
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981238   (950847) от 01.02.2016
-
-American Truck Simulator (2016) [Ru/Multi] (0.9.1.3s/dlc) License SKIDROW
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950847.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение легендарной серии Truck Simulator от SCS Software, на этот раз нас ждёт увлекательное путешествие по солнечным штатам Америки, где вы можете насладится прекрасными дорогами, управляя многотонным монстром! Есть люди, чьим призванием является дорога.Тип издания: LicenseРазработчик: SCS SoftwareЖанр: Simulator, IndieЯзык озвучки: -/-Язык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62E55F1942AAF9A7169495C4BE310FB18A352C84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981845   (950833) от 01.02.2016
-
-Reg Organizer 7.30 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950833.jpg" />
-</div>
-
-
-###  Подробнее
-
-Reg Organizer® - это многофункциональная программа для комплексного обслуживания системного реестра операционных систем Micorosft Windows XP, Vista, 7 и 8. Позволяет проводить чистку реестра, его сжатие и дефрагментацию. Имеет мощный редактор системного реестра и расширенную функцию поиска и замены данных. С помощью утилиты Reg Organizer можно осуществлять предварительный (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60FA92421A3A47A4FAB8D678AC8D79CA8A804300
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981790   (950827) от 01.02.2016
-
-CFW REBUG 4.78.1 REX (2016) [PS3] 4.78 [Unofficial] [Ru/Multi]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950827.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда разработчиков REBUG выпустила прошивку Rebug 4.78.1 REX + Cobra 7.20, а так-же новый Toolbox 2.02.09.
-
-ВНИМАНИЕ:
-Функции кобры по умолчанию отключены, включаются через REBUG_TOOLBOX. Как включить - смотрите видео.(   Читать дальше...   )Тип издания: UnofficialРазработчик: Rebug TeamЖанр: ПрошивкаЯзык интерфейса: Русский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9000B36CEC1C5CFC1B19F5A8F72A49E31C5393B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981375   (950821) от 01.02.2016
-
-Xelius Groupe | Трейдинг на миллион - углубленный курс по трейдингу (2014) PCRec
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подробное Описание:
-
-ОБУЧЕНИЕ ТРЕЙДИНГУ ДО РЕЗУЛЬТАТА
-ПЕРВЫЙ 1,000,000 РУБЛЕЙ ОТ 3 ДО 6 МЕСЯЦЕВ(   Читать дальше...   )Жанр: ТрейдингПродолжительность: 40:24:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E81AD31F4FE7B2517FF027F031110DCAE52956A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981248   (950819) от 01.02.2016
-
-"Первый канал" посоветовал чистить оперативную память компьютера ластиком
-
->>3
->>16
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950819.jpg" />
-</div>
-
-
-###  Подробнее
-
-В утреннем эфире «Первого канала» 27 января неназванный эксперт порекомендовал зрителям, заметившим, что их компьютер «тормозит», очистить контакты на слоте оперативной памяти ластиком. После этого компьютер будет работать «гораздо быстрее», пообещал молодой человек.Эксперт объяснил, что с годами пропускная способность оперативной памяти ухудшается, ластик же удаляет (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 798771   (950815) от 01.02.2016
-
-Обложки для AIMP 3 - Магнитофоны v.3 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы ностальгируете по прошлым временам, когда еще не было компьютеров и цифровой техники, тогда эти скины поднимут вам настроение и подарят частичку прошлого. Реалистичные обложки, созданные в виде аудио-систем(Hi-Fi и Hi-End класса) для AIMP3.
- Обложки  имеют сравнительно большие размеры(некоторые очень большие), поэтому для их использования желателен монитор (   Читать дальше...   )Язык интерфейса: русский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9664C342C20A6512D43E5A5769EF0DC4585A19A
 ```
 
 https://mybot314.ru/tekegram_catalog/

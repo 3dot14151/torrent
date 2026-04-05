@@ -1,29 +1,3 @@
-###  Публикация: 1386079   (795916) от 27.05.2020
-
-Макс Брэльер | Последние подростки на Земле (2019) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795916.jpg" />
-</div>
-
-
-###  Подробнее
-
-С тех пор, как в городе начался Монстр-Апокалипсис, тринадцатилетний подросток Джек Салливан живет в укрепленном домике на дереве. Но ему одному не справиться с ордами зомби, Крылатых Мерзостей, Бульдозеров и особенно – с необычайно умным монстром, известным как Гррыгх. Поэтому Джек собирает команду: его лучший друг-умник Квинт, бывший школьный хулиган Дирк, верный (   Читать дальше...   )Жанр: Фантастика, Приключения для детейПеревод: Виктория ГорпинкоФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7C23942F880377CCF75E59327D81C91E00AF391
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200550   (795726) от 21.01.2018
 
 А. Апухтин и др. | Стихотворения (1910) [PDF]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795726.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795714.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795709.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795706.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795704.jpg" />
 </div>
 
 
@@ -162,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795700.jpg" />
 </div>
 
 
@@ -188,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795697.jpg" />
 </div>
 
 
@@ -214,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795673.jpg" />
 </div>
 
 
@@ -243,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795654.jpg" />
 </div>
 
 
@@ -269,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795651.jpg" />
 </div>
 
 
@@ -295,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795588.jpg" />
 </div>
 
 
@@ -321,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795556.jpg" />
 </div>
 
 
@@ -347,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795526.jpg" />
 </div>
 
 
@@ -373,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795420.jpg" />
 </div>
 
 
@@ -399,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795202.jpg" />
 </div>
 
 
@@ -425,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795055.jpg" />
 </div>
 
 
@@ -451,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794954.jpg" />
 </div>
 
 
@@ -477,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794953.jpg" />
 </div>
 
 
@@ -503,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794087.jpg" />
 </div>
 
 
@@ -530,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794018.jpg" />
 </div>
 
 
@@ -556,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793836.jpg" />
 </div>
 
 
@@ -582,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793829.jpg" />
 </div>
 
 
@@ -608,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793826.jpg" />
 </div>
 
 
@@ -634,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793792.jpg" />
 </div>
 
 
@@ -660,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793789.jpg" />
 </div>
 
 
@@ -671,6 +645,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C56919210040C68988F31664FA00D3E1248C51E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386816   (793788) от 30.05.2020
+
+Холли Голдберг Слоун | Опоссум по имени Апельсинка (2019) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793788.jpg" />
+</div>
+
+
+###  Подробнее
+
+Апельсинка, самая младшая в семье, пытается найти свое призвание и понять, на что она способна. Однажды она случайно попадает в человеческое жилище. И тут Апельсинка открывает в себе неожиданные качества: она может быть бесстрашной и очень даже сообразительной. А как иначе? Ведь здесь обитают мама, папа, девочка и ОГРОМНЫЙ пес. А мама-опоссум всегда предупреждала (   Читать дальше...   )Жанр: Сказки для детейПеревод: Ирина ЮщенкоФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E47F1ECBE93D0F586E20615E2F17B097913F681
 ```
 
 https://mybot314.ru/tekegram_catalog/

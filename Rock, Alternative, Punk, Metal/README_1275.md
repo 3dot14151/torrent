@@ -1,3 +1,32 @@
+###  Публикация: 1806669   (11502) от 14.07.2025
+
+Helix - No Rest For The Wicked (1983) Reissue, Remastered, 2005, RockCandy Records [FLAC|Lossless|image + .cue] <Hard Rock, Glam, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Does a Fool Ever Learn (3:23)
+02. Let's All Do It Tonight (2:51)
+03. Heavy Metal Love (3:01)
+04. Check Out the Love (3:02)(   Читать дальше...   )Жанр: Hard Rock, Glam, Heavy MetalПродолжительность: 00:32:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6E40477FA45B3770C0DA0B18AFDB689F8B4F6E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1806561   (11497) от 14.07.2025
 
 Sodom - The Arsonist (2025) Limited Edition, Japanese Edition [FLAC|Lossless|image + .cue] <Thrash Metal, Experimental Thrash Metal, Metal>
@@ -6,7 +35,7 @@ Sodom - The Arsonist (2025) Limited Edition, Japanese Edition [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11497.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Yngwie Malmsteen - Tokyo Live (2025) 2 x CD [MP3|320 Kbps] <Neoclassical Power M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11488.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Steve Harris - British Lion (2012) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11311.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Animalistic! - Age of Furor (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Mod
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11310.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Jethro Tull - Still Living In The Past (2025) Box Set, 5XCD, Compilation, Reissu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11299.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Palecurse - dark room (2025) [MP3|320Kbps|tracks] <Alternative Rock, Mrtalcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11286.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ The Way of Silence - 1 Albums, 3 Singles (2018-2024) [MP3|320 Kbps] <Metalcore>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11280.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Born of Osiris - Through Shadows (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11276.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Queen - Funk (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive-Rock, Glam-
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11093.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Liliac - Delusion (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Female Vocal>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10771.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Mustend - Люболь. Часть первая (2025) [MP3|320 Kbps] <Alternati
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10562.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ VA - 70s Rock Ballads (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10520.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Queen - Ballads (2025) Remastered, 2011, UMG Recordings, Inc. [FLAC|Lossless|WEB
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10095.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Pretty Maids - Original Album Classics (2015) Japanese Edition, Box Set, 5XCD, C
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10058.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ The B-Shakers - Kissed By The Devil (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9947.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Alice Cooper - The Revenge Of Alice Cooper (2025) Japanese Edition [FLAC|Lossles
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9748.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Queen - Slightly Mad (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive-Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9661.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Queen - Greatest Hits II (1991) 1st UK Press [APE|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9617.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Styx - 19 Studio Albums, 6 Live, 12 Compilations, 1 Box Set (1972 - 2025) 66 CD 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9580.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ Reef - 6 Albums, 9 Singles (1995 - 2019) 17 CD [FLAC|Lossless|tracks + .cue|imag
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9457.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Golden Earring - 31 Albums, 3 Box Set (1965 - 2022) (91 CD) [FLAC|Lossless|image
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9397.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Enigma Project - Maze of Time (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9329.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ James Gang - 12 альбомов (1969 - 2000) 19 CD [FLAC|Lossless|tracks/image
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9267.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Paul McCartney - Chaos And Creation In The Backyard (2005) SHM-CD, Japanese Edit
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9219.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ The Alan Parsons Project - Limelight - The Best Of Vol. 2 (1987) [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9133.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ The Alan Parsons Project - Limelight - The Best Of Vol. 2 (1987) [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:012E6F0792DF7BD20B1D06266933F0C96164BDB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810868   (9109) от 06.08.2025
-
-Sting - The Soul Cages (1991) 2025 Japan 2CD Expanded Edition [FLAC|Lossless|image + .cue] <Pop, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9109.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Island Of Souls
-02. All This Time
-03. Mad About You(   Читать дальше...   )Жанр: Pop, Rock |Продолжительность: 01:45:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2CAA8EC515FD1C885B551A1FF0761D001FE1324
 ```
 
 https://mybot314.ru/tekegram_catalog/

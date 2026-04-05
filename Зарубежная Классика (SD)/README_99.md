@@ -1,3 +1,55 @@
+###  Публикация: 1618269   (242258) от 05.04.2023
+
+Дневная жена / Day-Time Wife (1939) DVDRip [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ко второй годовщине бракосочетания молодая Джейн понимает, что ее муж проводит все вечера вовсе не в офисе, как рассказывает ей. Его внимание занимает не только бизнес, но и миловидная секретарша. Джейн решает не устраивать скандалов, а задается вопросом: «Чем таким обладают эти... секретарши, чего нет у нас, порядочных жен?» Ответ на этот вопрос она решает искать (   Читать дальше...   )Производство: США, 20th Century Fox Film CorporationЖанр: мелодрама, комедияРежиссер: Григорий РатовАктеры: Тайрон Пауэр, Линда Дарнелл, Уоррен Уильям, Бинни Барнс, Уэнди Барри, Джоан Дэвис, Джоан Валери, Леонид Кински, Милдред Говер, Рени РианоПеревод: Одноголосый любительский (Andre1288)Язык озвучки: Русский, АнглийскийСубтитры: русские (отдельным файлом)Продолжительность: 01:12:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:079BCB604EC6AFF30794BDC09A4420CBA0191D78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538595   (242012) от 13.04.2022
+
+Цветок кактуса / Cactus Flower (1969) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джулиан Уинстон, смешной холостяк — дантист, который под влиянием жизненных обстоятельств попадает в различные комические ситуации. Уинстон встречается с головокружительной блондинкой Тони, обманывая её и говоря, что у него есть жена и трое детей. Но когда он узнает, что она пыталась совершить самоубийство из-за него, твердо обещает жениться на ней. Тони добивается (   Читать дальше...   )Производство: США / Columbia Pictures Corporation, Frankovich ProductionsЖанр: Мелодрама, КомедияРежиссер: Джин СэксАктеры: Уолтер Мэттау, Ингрид Бергман, Голди Хоун, Джек Уэстон, Рик Ленц, Вито Скотти, Ирен Херви, Ив Брюс, Ирвин Чарон, Мэттью СаксПеревод: Дублированный, многоголосый профессиональный, двуголосый профессиональный, авторскийСубтитры: Русские, английские (Full, SDH)Продолжительность: 01:43:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:213F6B5977C887E660E99CFBE42DACCE0C28C93A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1615061   (241765) от 07.04.2023
 
 Больше, чем секретарша / More Than a Secretary (1936) DVDRip [AVO]
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241765.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241749.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241693.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241406.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241373.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241114.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241053.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241045.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240488.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240478.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240434.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239775.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239725.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239703.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239677.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239587.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239523.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239419.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238444.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238333.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238231.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237947.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237937.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237647.jpg" />
 </div>
 
 
@@ -618,58 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC890DD070D14BD7D67BAA07D900C7F39A3FBA09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640205   (237640) от 16.06.2023
-
-Моя дорогая Клементина / My Darling Clementine (1946) BDRip [H.264] [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237640.jpg" />
-</div>
-
-
-###  Подробнее
-
-По одноимённой книге Стюарта Лейка. Аризона. 1882 год. Братья Эрп — Уайетт, Морган, Вирджил и Джеймс — гонят скот в Калифорнию. По дороге они встречают семью скотоводов Клэнтонов, старика с четырьмя сыновьями, и от них узнают о ближайшем городке Тумстоуне. Братья едут в город, оставив самого младшего, Джеймса, караулить скот. По их возвращении в лагерь видят, что (   Читать дальше...   )Производство: США, Twentieth Century Fox Film CorporationЖанр: драма, мелодрама, вестернРежиссер: Джон ФордАктеры: Генри Фонда, Линда Дарнелл, Виктор Мэтьюр, Кэти Даунс, Уолтер Бреннан, Тим Холт, Уорд Бонд, Алан Маубрэй, Джон Айрлэнд, Рэй РобертсПеревод: профессиональный многоголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:37:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E18FDCD8E47A7EEDF8013FED9C2C64938A49DE69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624243   (237639) от 29.04.2023
-
-Провинциальные актеры / Aktorzy prowincjonalni / Provincial Actors (1979) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой режиссёр, вдохновлённый новаторскими идеями, приезжает в провинциальный город. Здесь он планирует поставить классическую пьесу, придав её новое звучание. Однако придётся столкнуться с серьёзным сопротивлением местной труппы.Производство: Польша / Film Polski, Polish Corporation for Film Production, Zespol Filmowy XЖанр: драма, комедияРежиссер: Агнешка ХолландАктеры: Халина Лабонарска, Тадеуш Хук, Ивона Бернацкая, Эва Далковска, Слава Квасьневска, Казимира Ногаева, Янина Орденжанка, Кристина Вахелько-Залеска, Штефан Бурчик, Андрей БушевичПеревод: Одноголосый любительский (Мика Бондарик)Язык озвучки: русский, польскийСубтитры: английские, русскиеПродолжительность: 01:49:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59801305949805909A2EEB22346158B75D424875
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,58 @@
+###  Публикация: 1360128   (961880) от 14.02.2020
+
+Boytronic - The Original Maxi-Singles Collection (2014) [FLAC|Lossless|image + .cue] <Synth-pop, Euro-Disco>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961880.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 You (Extended Version) 7:10
+2 Diamonds And Loving Arms (Special Front-Mix) 6:56
+3 Man In A Uniform (Continental-Mix) 5:17
+4 Hold On (Deaf Dumb & Blind Mix 115 Bpm) 6:22(   Читать дальше...   )Жанр: Synth-pop, Euro-DiscoПродолжительность: 01:19:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:880E41B7841959876D6DA8A96479666F929A3A9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 171120   (961426) от 29.01.2010
+
+Massive Attack - Heligoland (2010) [MP3|320 kbps]<Trip-Hop>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961426.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Trip-HopПродолжительность: 00:52:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 277498   (961419) от 02.01.2011
 
 VA - Record Super Chart - TOP 100 (2010) [MP3|192-320 kbps]<House, Electro House, Trance, Dance>
@@ -6,7 +61,7 @@ VA - Record Super Chart - TOP 100 (2010) [MP3|192-320 kbps]<House, Electro House
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_961419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_961419.jpg" />
 </div>
 
 
@@ -41,7 +96,7 @@ R-Tem - Voiceless (2004) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960933.jpg" />
 </div>
 
 
@@ -70,7 +125,7 @@ DJ Aligator Project - The Sound Of Scandinavia (2002) [MP3|320 Kbps] <Trance, Eu
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960738.jpg" />
 </div>
 
 
@@ -99,7 +154,7 @@ Depeche Mode - 101 (2006) 2CD, Gala Records, RE. [FLAC|Lossless|tracks + .cue] <
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960634.jpg" />
 </div>
 
 
@@ -128,7 +183,7 @@ Omauha - Discography 17 Releases (2011-2020) Morphosis Records [FLAC|Lossless|WE
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960403.jpg" />
 </div>
 
 
@@ -157,7 +212,7 @@ VA - Chill Out Smoothies (Relaxed & Calm Chill Out Sounds) (2016) [MP3|320 кб/
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959776.jpg" />
 </div>
 
 
@@ -186,7 +241,7 @@ VA - Progressive MEGA Mix vol.2 (2003) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959468.jpg" />
 </div>
 
 
@@ -215,7 +270,7 @@ Ultra SKM - Southern Shaman (2020) [FLAC|Lossless|WEB-DL|tracks] <Uplifting Tran
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959401.jpg" />
 </div>
 
 
@@ -241,7 +296,7 @@ Boytronic - Love For Sale (1988) Remastered, Deluxe Edition, 2014, SP Records [F
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959395.jpg" />
 </div>
 
 
@@ -270,7 +325,7 @@ Tiesto - Club Life 351 - 460 (Обновляемая) (2013-2016) [MP3|128-320 �
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959383.jpg" />
 </div>
 
 
@@ -299,7 +354,7 @@ Blacktree - The Beginning Of Summer - The Beginning Of The Party (2016) [FLAC|Lo
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959333.jpg" />
 </div>
 
 
@@ -328,7 +383,7 @@ Air Texture - Label Pack 7 Releases (2011-2020) [FLAC|Lossless|tracks+.cue, trac
 >>Label-Packs
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959328.jpg" />
 </div>
 
 
@@ -357,7 +412,7 @@ Azaleh - Discography 31 Releases (2015-2020) [FLAC|Lossless|WEB-DL|tracks] <Futu
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959253.jpg" />
 </div>
 
 
@@ -383,7 +438,7 @@ Syntec - Collection 2 Releases (2016) Infacted Recordings [FLAC|Lossless|WEB-DL|
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958123.jpg" />
 </div>
 
 
@@ -412,7 +467,7 @@ likeicare - Discography 8 Releases (2010-2014) [FLAC|Lossless|WEB-DL]<IDM, Dark 
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957814.jpg" />
 </div>
 
 
@@ -441,7 +496,7 @@ Massive Attack - Ritual Spirit (2016) [FLAC|Lossless|WEB-DL|tracks] <Trip Hop, E
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957156.jpg" />
 </div>
 
 
@@ -470,7 +525,7 @@ VA - The Seeds Of Love Vol.1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Dow
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957074.jpg" />
 </div>
 
 
@@ -499,7 +554,7 @@ Arno Hoddinghaus (A/R/N/O, Höddinghaus) - Дискография (1994-2000) [M
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956786.jpg" />
 </div>
 
 
@@ -525,7 +580,7 @@ Germind - Elusive Shadows (2016) [MP3|320 кб/с] <Psybient, Breaks, Downtempo,
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956287.jpg" />
 </div>
 
 
@@ -554,7 +609,7 @@ VA - Lounge Deluxe, Vol 2 (50 Fantastic Lounge Grooves) (2016) [MP3|320 кб/с]
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956217.jpg" />
 </div>
 
 
@@ -583,7 +638,7 @@ Marc Romboy - Voyage De La Planète (New Interpretations) (2020) Hyperharmonic [
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955910.jpg" />
 </div>
 
 
@@ -610,7 +665,7 @@ Snakeskin - Medusa's Spell (2020) [MP3|320 Kbps] <EBM, Synth, Gothic-Rock, Darkw
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955402.jpg" />
 </div>
 
 
@@ -639,7 +694,7 @@ VA - Welcome 2017  [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955165.jpg" />
 </div>
 
 
@@ -668,7 +723,7 @@ VA - Next Destination: Summer Chill-Out (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955163.jpg" />
 </div>
 
 
@@ -682,64 +737,6 @@ VA - Next Destination: Summer Chill-Out (2017) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6A9B6BF67CB426D827D79207BCFC203C4C59987
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088729   (955159) от 01.01.2017
-
-VA - New Year's Lounge Countdown: Refined Lounge Music to Celebrate (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giacomo Bondi – Por do sol – Full Mix
- 02. Aurys – Suave Moon – Full Mix
- 03. Luigi Seviroli – Silky – Full Mix
- 04. Giacomo Bondi – Crazy Town – Full Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 01:06:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:248C9798028A988196449E3381EB2C8A727AC51C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088839   (955152) от 01.01.2017
-
-VA - The Best Running Beats 2017 (2016) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Suzie Kju - Baby! (Classic edit)
-02. Million Colours - I Hold On (radio edit)
-03. Cheap Sunglasses - Till The End (Endless mix)
-04. Ibiza Groove Squad - I Don't (DJ Absinth Fitness remix)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:40:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F354D3FB8702D739658BA9C5AF0DAE67EC9617F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

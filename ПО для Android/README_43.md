@@ -1,3 +1,107 @@
+###  Публикация: 1213028   (772767) от 15.03.2018
+
+SPB TV Russia v1.9.5 AdFree [Ru] - онлайн ТВ каналы, фильмы и сериалы
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772767.jpg" />
+</div>
+
+
+###  Подробнее
+
+SPB TV Россия – онлайн ТВ, фильмы и сериалы, ВСЕ центральные ТВ-каналы в отличном качестве. Смотрите ТВ в удобном интерфейсе на телефоне, планшете и телевизоре c Android TV. Первый, Россия 1, Матч ТВ, ТНТ, СТС, НТВ, Рен-ТВ, ТВ-3, Пятница, Пятый, Культура, Муз ТВ, Карусель, и многие другие каналы стабильно, легально и бесплатно, - совсем как у вас дома (если у вас (   Читать дальше...   )Тип издания: Пиратка (без рекламы, без подписки)Релиз состоялся: 22.02.2018Разработчик: SPB TV Telecom LLCПоддерживаемая ОС: Android (версия зависит от устройства)Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBCC7810B68DB24C7081E09B3886FBD4B23DCBCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 804350   (772763) от 06.04.2015
+
+Essential Anatomy 3 v1.1.3 [En] - справочник по анатомии человека
+
+>>След.
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Essential Anatomy 3 — бестселлер среди 3D справочников по анатомии на Андройд устройствах. Данное приложение абсолютно точно будет интересным для врачей, медсестер, студентов, а так же людей, которые интересуются своим строением и здоровьем. Приложение содержит огромные объем информации о строении тела человека, но не смотря на это разобраться в нем очень просто. (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 03.12.2014Разработчик: 3D4Medical.com, LLCПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C542EF7D2677D7878B290AF12A0CEB5499D8835
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 833976   (770882) от 13.05.2016
+
+NRG Player Full 2.0.3 [Ru] - Аудио плеер
+
+>>След.
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивый музыкальный плеер для Android с 10-полосным эквалайзером, работой с папками (директориями) и изменяемым интерфейсом. Поддерживает работу на планшете.Тип издания: ПираткаРелиз состоялся: 12.06.16Разработчик: NRG Mobile SoftwareПоддерживаемая ОС: Android 2.3 +Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19FECE0DAC849EDB389452C4C8E9BE96E425679E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391981   (770570) от 23.06.2020
+
+Global Equalizer & Bass Booster Pro v0.03 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Global Equalizer & Bass Booster Pro позволит вам улучшить качество звука на своем устройстве, усилить уровень громкости и управлять общими звуковыми настройками. Во время проигрывания музыки вы можете менять спектры (их всего 5) по своему усмотрению. Приложение работает с любым аудио- и видеоплеером. Встроенный мощный эквалайзер с 10 предустановками имеет способность (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 22.06.2020Разработчик: HowarJranПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:902A49392A7F1EE4B77C8B0E467055765DE6334E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281226   (769008) от 27.06.2020
 
 Старое Радио v2.6.35 (b2225) [Ru] (обновляемая)
@@ -6,7 +110,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769008.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768999.jpg" />
 </div>
 
 
@@ -61,7 +165,7 @@ DevCheck Hardware and System Info Pro 2.61 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768864.jpg" />
 </div>
 
 
@@ -87,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768854.jpg" />
 </div>
 
 
@@ -113,7 +217,7 @@ FullReader Premium 4.2.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768848.jpg" />
 </div>
 
 
@@ -139,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768492.jpg" />
 </div>
 
 
@@ -168,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768488.jpg" />
 </div>
 
 
@@ -197,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768356.jpg" />
 </div>
 
 
@@ -226,7 +330,7 @@ Language Translator v1.5 AdFree [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767550.jpg" />
 </div>
 
 
@@ -252,7 +356,7 @@ RealVisor / Детектор движения v5apr2017 Full [Ru/En] - Виде�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767522.jpg" />
 </div>
 
 
@@ -281,7 +385,7 @@ TikTok v16.0.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767478.jpg" />
 </div>
 
 
@@ -307,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767451.jpg" />
 </div>
 
 
@@ -333,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767443.jpg" />
 </div>
 
 
@@ -359,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767150.jpg" />
 </div>
 
 
@@ -385,7 +489,7 @@ Pulsar - Музыкальный плеер / Pulsar - Music Player v1.8.10 [Ru/E
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766200.jpg" />
 </div>
 
 
@@ -411,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766007.jpg" />
 </div>
 
 
@@ -440,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766003.jpg" />
 </div>
 
 
@@ -466,7 +570,7 @@ myRouteMap 8.1.2 [En/Ru] - интерактивный планировщик м�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765996.jpg" />
 </div>
 
 
@@ -492,7 +596,7 @@ All-In-One Toolbox Pro 7.2.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765920.jpg" />
 </div>
 
 
@@ -519,7 +623,7 @@ Assistant Pro for Android v24.14 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765855.jpg" />
 </div>
 
 
@@ -546,7 +650,7 @@ Magisk Manager v23.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765796.jpg" />
 </div>
 
 
@@ -572,7 +676,7 @@ Vocalizzo - Vocal Warm-up v2.0 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765438.jpg" />
 </div>
 
 
@@ -583,114 +687,6 @@ Vocalizzo - Vocal Warm-up v2.0 [Ru/En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9894C8BA4D53F70672615939BBE4B46E74046E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393988   (765106) от 03.07.2020
-
-Google Play Market (Плей Маркет) v20.5.19-all [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765106.jpg" />
-</div>
-
-
-###  Подробнее
-
-Google Play Market (Плей Маркет) – это приложение является объединением всех магазинов Google в один под девизом: "Чистое развлечение, где бы вы этого не захотели." Магазин Google play объединил в единое целое Андроид Маркет, Музыкальный магазин, Видеомагазин и Магазин книг. Google дает отличную возможность получить доступ к своим покупкам в любое время (   Читать дальше...   )Тип издания: ОригиналРелиз состоялся: 22.06.2020Разработчик: Google LLCПоддерживаемая ОС: Android 2.2+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83FF1614046E6CEE4F1DAB627A35035430A09232
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521365   (765084) от 02.01.2022
-
-Цветовой код резистора - калькулятор v1.1 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765084.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение представляет собой простой в использовании калькулятор цветового кода для расчета сопротивления резистора. Приложение поддерживает цветовые коды для 4, 5 и 6-полосных резисторов.Тип издания: Пиратка (открыт Pro)Релиз состоялся: 18.08.2020Разработчик: Tom HogenkampПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA6F96C96062D817FB2A611BD7F6BF2FFFF1C97B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521502   (765070) от 02.01.2022
-
-Мастерок: строительный калькулятор v7.02 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765070.jpg" />
-</div>
-
-
-###  Подробнее
-
-Строительный калькулятор "Мастерок":
-Расчет количества кирпича
-Расчет гипсокартона
-Расчет при покраске(   Читать дальше...   )Тип издания: Пиратка (AdFree - удалена реклама)Релиз состоялся: 12 сентября 2020 г.Разработчик: Dastory StudioПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1856C943209ED760867999CB1A343C4017F59D5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 581600   (765030) от 18.04.2017
-
-Root Cleaner 7.1.0 [Ru] - Чистилка
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765030.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очистка памяти, кэш-файлов и т.д., и вы можете сделать это без перезагрузки (при быстрой очистке). Полная очистка требует перезагрузки. Приложение также является менеджером приложений, вы можете удалить, очистить данные и заморозить или разморозить системные и пользовательские приложения.
-Поддерживает работу на планшетах.Тип издания: ПираткаРелиз состоялся: 18.04.17Разработчик: Adam JůvaПоддерживаемая ОС: Android 3.0 +Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8C98FB5DEBDACB70FE2FBB21B09FBE2AB0C887A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Bryan Adams - So Happy It Hurts (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672657.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Miami Heat (2019) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672460.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - In The Loving Memory Of Diana, Princess Of Wales (1997) Unofficial Release 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672294.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Car Hits: The Ultimate Collection (2018) 5CD [FLAC|Lossless|tracks + .cue] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672222.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Bonnie Tyler - Between The Earth And The Stars (2019) [FLAC 2.0|48/24|tracks|WEB
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672143.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Panda Bear - Buoys (2019) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670830.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670694.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Mia Martini - Io Sono La Mia Musica (2019) 4CD [FLAC|Lossless|tracks + .cue] <Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670565.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - 60s Jukebox: The Ultimate Collection (2018) 5CD [FLAC|Lossless|tracks + .cu
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670489.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Hits 2016 (2016) [FLAC|Lossless|tracks] <Dance, R&B, Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670147.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Sarah Brightman - Greatest Hits (2009) 2CD [FLAC|Lossless|image + .cue] <Europop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670043.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Dear Rouge - Black To Gold (2015) [FLAC|Lossless|tracks] <Electronic Pop Rock, D
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669773.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Dear Rouge - Phases (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic Pop Rock, D
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669766.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Fancy - 30 Years: The New Best Of (2018) Compilation [FLAC|Lossless|image + .cue
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669541.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Kimbra - Primal Heart (2018) [FLAC|Lossless|tracks + .cue] <Alternative Pop, Ind
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669539.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Dionne Warwick - The Real... Dionne Warwick (2015) 3CD [FLAC|Lossless|tracks + .
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669215.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Delta Goodrem - Wings Of The Wild (2016) Sony Music Entertainment [FLAC|Lossless
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668650.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ The Pointer Sisters - Best Of The Pointer Sisters (1998) [APE|Lossless|image + .
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668599.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Book Of Love - MMXVI-The 30th Anniversary Collection (Remastered) (2016) [FLAC|L
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668590.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Radio Italia - Summer Hits (2016) 2CD [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668499.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ West End Players and Singers - Highlights from Grease (2000) [FLAC|Lossless|imag
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668106.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667880.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Spring Hits 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667835.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Shakira - El Dorado (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Latin>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666221.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ The Pointer Sisters - In Concert (2007) Compilation, Unofficial Release [FLAC|Lo
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666059.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ John Travolta - John Travolta (1998) 2001 Compilation, Reissue [FLAC|Lossless|im
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664868.jpg" />
 </div>
 
 

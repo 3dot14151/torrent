@@ -1,3 +1,56 @@
+###  Публикация: 1154290   (542775) от 29.07.2017
+
+Фрэнсис Хардинг | Недобрый час (2016) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мошка Май, Эпонимий Клент и Сарацин - непокорная девчонка, умеющая читать и мечтающая об учёбе в настоящей школе, мастер замысловатых фраз и ловкий аферист, а также боевой гусь - уже знакомая нам компания, снова окажется в переделке.
+Компания покинет столицу и продолжит странствовать по королевству. Нелегкая занесет их в город Побор, который так прекрасен днем для (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DB3E1282B1E028F097ADD8AE8A4186BB4154F79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154276   (542541) от 29.07.2017
+
+Фрэнсис Хардинг | Дерево лжи (2016) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542541.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами портрет идеальной семьи викторианской эпохи. Мать, отец, сын и дочь. Чудесная старая фотография. Но что если я скажу вам, что это лишь ложь? Лишь маскарад из масок, за каждой из которых скрывается свой, иногда мрачный, секрет. Откажитесь ли вы заглянуть в пещеру, где вас уже поджидает то, что не любит света, но питается ложью? Подходите ближе, ведь Фейт (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D548E6833590EBF7C664478C1EF33BB829E9639
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1239153   (542510) от 03.08.2018
 
 Димитр Ангелов | Когда человека не было (1959) [FB2]
@@ -6,7 +59,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542510.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542408.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542401.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542360.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542252.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542091.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541980.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541906.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541511.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540997.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540908.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540817.jpg" />
 </div>
 
 
@@ -325,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540815.jpg" />
 </div>
 
 
@@ -351,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540531.jpg" />
 </div>
 
 
@@ -377,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540504.jpg" />
 </div>
 
 
@@ -403,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540497.jpg" />
 </div>
 
 
@@ -429,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540421.jpg" />
 </div>
 
 
@@ -455,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540377.jpg" />
 </div>
 
 
@@ -482,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540174.jpg" />
 </div>
 
 
@@ -510,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540119.jpg" />
 </div>
 
 
@@ -536,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539962.jpg" />
 </div>
 
 
@@ -563,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539776.jpg" />
 </div>
 
 
@@ -589,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539685.jpg" />
 </div>
 
 
@@ -615,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539328.jpg" />
 </div>
 
 
@@ -627,60 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:169FB69F62F28FE2E2CBB08C1A659CABDDBE7B9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925480   (539217) от 07.08.2015
-
-Алексей Олейников | Велькино детство (2015) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга рассказывает о приключениях мальчика Вельки в южной деревеньке под Ростовом, где он проводит каникулы у бабушки. Велька то и дело попадает в переделки, находит новых друзей, спасает нутрий, летает на бричке и даже случайно поджигает далёкую южноамериканскую страну Уругвай.
-В 2007 году сборник рассказов «Велькино детство» стал лауреатом национальной детской (   Читать дальше...   )Жанр: Детская проза, Детские приключенияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A22216017C7202934054219D66B0940D4F90423
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925790   (539108) от 07.08.2015
-
-Дмитрий Николаевич Медведев | Это было под Ровно (1962) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор этой книги Дмитрий Николаевич Медведев (1898—1954) родился в городе Бежица, Брянской области, в семье рабочего-сталелитейщика. С малых лет он работал на брянском заводе, юношей вступил в ряды Красной гвардии, принимал участие в октябрьских боях.
-В 1920 году Медведев вступил в Коммунистическую партию. Тогда же он начал работать в органах советской разведки, (   Читать дальше...   )Жанр: Детская проза, военная литератураФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:946748D4E948DFDE1163BDFB328643D2445E277D
 ```
 
 https://mybot314.ru/tekegram_catalog/

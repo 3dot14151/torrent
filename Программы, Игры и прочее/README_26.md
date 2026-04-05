@@ -1,3 +1,116 @@
+###  Публикация: 1451500   (1028327) от 02.03.2021
+
+Электрик проектировщик v2.2 Pro [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028327.jpg" />
+</div>
+
+
+###  Подробнее
+
+Электрика , расчеты , проектирование , электрик
+-Расчет количества кирпича и песка в траншее при укладке кабеля.
+-Расчет веса круглой стали
+-Расчет спецификации для одноцепной линии 0,4кВ, выполненной проводом СИП на железобетонных опорах.(   Читать дальше...   )Тип издания: Paid (Куплена в Маркете)Релиз состоялся: 7 мая 2019 г.Разработчик: Alexandr KuznetsovПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA03CE903E3201506B89B43119D5A0F74706ACB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094122   (1028283) от 02.03.2021
+
+ElLi - Расчет проводки v1.3.33  Pro [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028283.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение "Электра Лайт", поможет вам произвести простые расчеты, по электрике. С помощью приложения можно:
+
+- Подобрать сечение провода (данные взяты из ПУЭ).
+- Перевести сечения провода в диаметр и обратно.(   Читать дальше...   )Тип издания: Paid (Куплена в Маркете)Релиз состоялся: 18 августа 2020 г.Разработчик: Vladimirus - teamПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C9E682DD97D0A0E440DDE23A31C435360397A97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080190   (1028279) от 02.03.2021
+
+Справочник электрика v2.1 Pro [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028279.jpg" />
+</div>
+
+
+###  Подробнее
+
+Помощь в выборе сечения кабельной линии, автоматического выключателя для разного вида нагрузки, сечения плавкой вставки, выборе пускового конденсатора для эл. двигателя.
+Схемы соединений эл. двигателей;
+Определение начал и концов статорной обмотки;
+Схемы соединений силовых тр-ров;(   Читать дальше...   )Тип издания: Paid (Куплена в Маркете)Релиз состоялся: 8 апреля 2019 г.Разработчик: Alex1001000RПоддерживаемая ОС: Android 4.0.3 +Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9657D92AD658D31C129A74F1C70BE06038C6825
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451968   (1028043) от 04.03.2021
+
+Calc for Electronics v3.3.4 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028043.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это приложение помогает студентам и энтузиастам создавать электронные схемы. Содержащая наиболее часто используемые функции в этой области и многие другие ресурсы, это отличный справочник для студентов и инженеров.Тип издания: Paid (Куплена в Маркете)Релиз состоялся: 15 ноября 2020 г.Разработчик: SchillerAppПоддерживаемая ОС: Android 4.2+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E98456B47CEB906A1F62DD854FDCA2652FE3D5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452107   (1027893) от 05.03.2021
 
 Vector Full v1.2.1 [Ru/En]
@@ -6,7 +119,7 @@ Vector Full v1.2.1 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027893.jpg" />
 </div>
 
 
@@ -35,7 +148,7 @@ Plague Inc + Редактор сценариев v1.18.5 b1270 / v1.2.1 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027855.jpg" />
 </div>
 
 
@@ -61,7 +174,7 @@ Grand Theft Auto: SAMP Mobile v7.2 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027841.jpg" />
 </div>
 
 
@@ -87,7 +200,7 @@ Piano Melody ver.Tokyo Ghoul Fix (200) [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027836.jpg" />
 </div>
 
 
@@ -116,7 +229,7 @@ Freezer v0.6.9 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027834.jpg" />
 </div>
 
 
@@ -143,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027714.jpg" />
 </div>
 
 
@@ -169,7 +282,7 @@ Queen Rock Tour v1.1.1 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027697.jpg" />
 </div>
 
 
@@ -195,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027684.jpg" />
 </div>
 
 
@@ -221,7 +334,7 @@ Hungry Dragon v3.10 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027680.jpg" />
 </div>
 
 
@@ -247,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027676.jpg" />
 </div>
 
 
@@ -273,7 +386,7 @@ Jetpack Joyride + Mod (Unlimited Money) v1.40.1 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027517.jpg" />
 </div>
 
 
@@ -299,7 +412,7 @@ Slay the Spire v2.2.6 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027475.jpg" />
 </div>
 
 
@@ -325,7 +438,7 @@ SAI (Split APKs Installer) v4.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027463.jpg" />
 </div>
 
 
@@ -351,7 +464,7 @@ AutoTagger - авто и пакетный редактор тегов v3.3.4 [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027391.jpg" />
 </div>
 
 
@@ -378,7 +491,7 @@ Evolution Never Ends / Эволюция никогда не заканчивае
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027329.jpg" />
 </div>
 
 
@@ -404,7 +517,7 @@ Handy GPS 35.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027168.jpg" />
 </div>
 
 
@@ -430,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027141.jpg" />
 </div>
 
 
@@ -459,7 +572,7 @@ WOW Volume Manager v1.6 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027058.jpg" />
 </div>
 
 
@@ -485,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027011.jpg" />
 </div>
 
 
@@ -511,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026908.jpg" />
 </div>
 
 
@@ -537,7 +650,7 @@ Starman v1.1 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026706.jpg" />
 </div>
 
 
@@ -563,7 +676,7 @@ Scythe: Digital Edition v1.9.40 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026691.jpg" />
 </div>
 
 
@@ -574,111 +687,6 @@ Scythe: Digital Edition -  мобильная версия успешной на
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7800FC5CD32CF9DD12755651306B3877ADA136F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454018   (1026565) от 13.03.2021
-
-Пульс по лицу – пульсометр FaceBeat v1.0.58 [Ru/Multi] (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение измеряет пульс с помощью фотографии. Конечно, присутствует и стандартный режим в виде прикладывания пальца к объективу, но вариант со снимком не уступает классическому. Нужно расположить лицо так, чтобы оно уместилось в овал.
-Приятно, что в программе установлена наглядная полоса состояния сердцебиения. Другими словами, можно разобраться, в порядке ли все (   Читать дальше...   )Тип издания: Free с Маркета  + Пиратка (разблокирован Premium)Релиз состоялся: 08.07.2020Разработчик: Heart Rate LabsПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99E0E2E0E2F48982A38AA04F8DED10691981D2C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453969   (1026563) от 13.03.2021
-
-Easy Text Scanner - Распознавание текста (OCR) v1.1.2 [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Easy Text Scanner - это приложение для распознавания текста: извлекает текст из картинок, конвертирует изображение в текст,  быстро и точно конвертирует документы с помощью камеры в текст за считанные секунды. Функция распознавания бесплатная.Тип издания: Пиратка (Мод) Premium версияРелиз состоялся: 5 марта 2021 г.Разработчик: WECR TECHПоддерживаемая ОС: Android 4.2 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1124CA51CAF1DB3E0E7110B8444BA9A6D7455287
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453999   (1026538) от 13.03.2021
-
-ToonApp v1.0.29 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026538.jpg" />
-</div>
-
-
-###  Подробнее
-
-ToonApp - карикатура фоторедактор лучшее приложение для превращения вашей картинки в мультфильм. Создатель мультфильмов предлагает удивительные фильтры AI для изображений, чтобы превратить фотографию в мультфильм.Тип издания: Пиратка (Мод) Premium версияРелиз состоялся: 2 марта 2021 г.Разработчик: Lyrebird StudiosПоддерживаемая ОС: Android 5.0 и вышеЯзык интерфейса: Русский есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1353EFBBC03B316108145A9F40D90AEAAFE0ADF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453978   (1026530) от 13.03.2021
-
-First Strike: Classic v3.0.0 [Ru/En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026530.jpg" />
-</div>
-
-
-###  Подробнее
-
-FIRST STRIKE – Первый удар - это захватывающий стратегический симулятор ядерной войны. Интерфейс интуитивный, а геймплей быстрый, так что сбросить несколько мегатонн - как два пальца об асфальт. Но не стоит забываться. Ты - глава государства, и самое важное - это безопасность твоих сограждан.Тип издания: Paid  (Куплена)Релиз состоялся: 8 марта 2021 г.Разработчик: Blindflug Studios AGПоддерживаемая ОС: Android 5.0 и вышеЖанр: СтратегияЯзык интерфейса: Русский есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13C4673E33B577E5F44F4AAE091C3725E76BFCB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 977346   (966651) от 20.01.2016
+
+Джоанн Харрис | Шоколад (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966651.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ветром карнавала в захолустный городок Ланскне-су-Танн занесло прекрасных незнакомок, мать и дочь. Кто они - добрые феи, злые колдуньи или просто люди, которые ищут свой дом, вечно одинокие, вечно в пути, не свободные от воспоминаний, как и все мы, и, как все мы, ищущие покоя? Вианн Роше и ее дочь Анук открывают в городе шоколадную - и жизнь городка меняется навсегда. (   Читать дальше...   )Жанр: Зарубежная прозаПродолжительность: 10:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F623B8ED95ADADE0C877210E859C94FF0E0573D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359026   (966275) от 10.02.2020
+
+Кристофер Скайф | Англия. Глазами воронов (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удивительные истории и уморительные байки от смотрителя воронов в Тауэре.
+Кристофер Скайф – смотритель воронов в лондонском Тауэре. Эта редкая и воистину уникальная профессия ставит Криса в любопытное положение: никто не видит Англию так, как он. В своей доброй и захватывающей аудиокниге Крис рассказывает о тонкостях своей работы, о тауэрских мифах и, конечно, об (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 07:25:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12103DE69E143E71C90EDB5800A7929028243867
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1359019   (966203) от 10.02.2020
 
 Маркус Зусак | Глиняный мост (2020) [MP3]
@@ -6,7 +59,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966203.jpg" />
 </div>
 
 
@@ -35,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966193.jpg" />
 </div>
 
 
@@ -63,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965128.jpg" />
 </div>
 
 
@@ -90,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964964.jpg" />
 </div>
 
 
@@ -116,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963572.jpg" />
 </div>
 
 
@@ -142,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963438.jpg" />
 </div>
 
 
@@ -169,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961938.jpg" />
 </div>
 
 
@@ -195,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961923.jpg" />
 </div>
 
 
@@ -221,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960732.jpg" />
 </div>
 
 
@@ -250,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960553.jpg" />
 </div>
 
 
@@ -276,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959973.jpg" />
 </div>
 
 
@@ -302,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959474.jpg" />
 </div>
 
 
@@ -328,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958521.jpg" />
 </div>
 
 
@@ -354,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958125.jpg" />
 </div>
 
 
@@ -380,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958113.jpg" />
 </div>
 
 
@@ -407,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958045.jpg" />
 </div>
 
 
@@ -433,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957339.jpg" />
 </div>
 
 
@@ -459,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957137.jpg" />
 </div>
 
 
@@ -485,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957136.jpg" />
 </div>
 
 
@@ -511,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956285.jpg" />
 </div>
 
 
@@ -537,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956045.jpg" />
 </div>
 
 
@@ -563,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956019.jpg" />
 </div>
 
 
@@ -589,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955737.jpg" />
 </div>
 
 
@@ -615,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955688.jpg" />
 </div>
 
 
@@ -628,58 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:004EF8811E44ACBA8B84E6A7E18335CB097BE326
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980898   (954672) от 30.01.2016
-
-Сборник рассказов японских авторов "Причуды жизни" (2013) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954672.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли рассказы, написанные не только разными авторами, но и в разное время, даже в разные эпохи. Объединяет их легкая меланхолия, присущая японским людям и созерцательное отношение к миру и обществу. Название сборника как нельзя лучше обобщает сюжетные линии историй, подчеркивая насколько сильно разняться наше и их восприятие жизни, любви и смерти.Жанр: Проза, романтикаПродолжительность: 09:16:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EE19A9C669A1C39CC2FFFDE912533101CD6E22C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980981   (954670) от 30.01.2016
-
-Сад опавших листьев. Сборник рассказов японских авторов (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Японская эстетика, присущая классической литературе, с легкостью находит своё продолжение и отражение в произведениях современных авторов. Неторопливость, созерцательность и кажущаяся простота сюжетов и образов представлены в этом сборнике в многообразии жанровых решений. Тексты пронизаны светлой грустью, ощущением что время застыло и только осенние листья с тихим (   Читать дальше...   )Жанр: Проза, романтикаПродолжительность: 04:50:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E06FCF15BD790530AE8721FC2A14EB48FC00B861
 ```
 
 https://mybot314.ru/tekegram_catalog/

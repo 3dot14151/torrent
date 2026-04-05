@@ -1,3 +1,38 @@
+###  Публикация: 466603   (81872) от 13.03.2012
+
+Иоганн Себастьян Бах - Месса си минор | Mass in B minor BWV 232	(1986) [MP3|192 кб/с]<Classic>
+
+>>Классика
+>>Вокал
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81872.jpg" />
+</div>
+
+
+###  Подробнее
+
+001-Kyrie eleison
+002-Christe eleison
+003-Kyrie eleison
+004-Gloria in excelsis Deo
+005-Laudamus te
+006-Gratias agimus tibi
+007-Domine Deus
+008-Qui tollis
+009-Qui sedes
+010-Quoniam tu solus(   Читать дальше...   )1986Жанр: ClassicПродолжительность: 1:49:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:011858B532EFDCB7E1C8EFCBA87E6D721057EA76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 466309   (81452) от 11.03.2012
 
 VA - REQUIEM (2005) [MP3|320 кб/с]<Классическая музыка>
@@ -6,7 +41,7 @@ VA - REQUIEM (2005) [MP3|320 кб/с]<Классическая музыка>
 >>Классика (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81452.jpg" />
 </div>
 
 
@@ -41,7 +76,7 @@ Carreras, Domingo, Pavarotti - The Best of The 3 Tenors (2002) [FLAC|Lossless]<C
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80970.jpg" />
 </div>
 
 
@@ -76,7 +111,7 @@ Ludwig Van Beethoven - Missa Solemnis (1990) [FLAC|Lossless]<камерная>
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78761.jpg" />
 </div>
 
 
@@ -106,7 +141,7 @@ Jon Schmidt & Steven Sharp Nelson (The Piano Guys) - Hits Volume I: Limited Foun
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77225.jpg" />
 </div>
 
 
@@ -141,7 +176,7 @@ VA - Classical Music Brilliance (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71211.jpg" />
 </div>
 
 
@@ -170,7 +205,7 @@ VA - Best Classical Piano Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69997.jpg" />
 </div>
 
 
@@ -199,7 +234,7 @@ VA - Car Rides: Classical Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69883.jpg" />
 </div>
 
 
@@ -228,7 +263,7 @@ https://mybot314.ru/tekegram_catalog/
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68295.jpg" />
 </div>
 
 
@@ -254,7 +289,7 @@ VA - Beautiful Classical Instrumental Music (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68256.jpg" />
 </div>
 
 
@@ -283,7 +318,7 @@ VA - Franz Schubert – Night Wanderer (1997) [FLAC|Lossless|tracks + .cue] <Cla
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67310.jpg" />
 </div>
 
 
@@ -312,7 +347,7 @@ VA - Музыка Семейства Штраусов. На Прекрасном
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67053.jpg" />
 </div>
 
 
@@ -341,7 +376,7 @@ Andrea Bocelli - Sogno (1999) [FLAC|Lossless|tracks + .cue] <Pop, Vocal>
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66667.jpg" />
 </div>
 
 
@@ -370,7 +405,7 @@ VA - Adrenaline Classical Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64833.jpg" />
 </div>
 
 
@@ -398,7 +433,7 @@ VA - Dark Piano Music (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62753.jpg" />
 </div>
 
 
@@ -427,7 +462,7 @@ VA - Легкая музыка (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62567.jpg" />
 </div>
 
 
@@ -456,7 +491,7 @@ VA - Best Classical Instrumental Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Cla
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60534.jpg" />
 </div>
 
 
@@ -485,7 +520,7 @@ VA - Lovely Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58978.jpg" />
 </div>
 
 
@@ -514,7 +549,7 @@ VA - Classical Instrumental Masterworks (2024) [FLAC|Lossless|WEB-DL|tracks] <Cl
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58656.jpg" />
 </div>
 
 
@@ -543,7 +578,7 @@ VA - Top 50 Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58342.jpg" />
 </div>
 
 
@@ -571,7 +606,7 @@ VA - The Best Classical Pieces (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58132.jpg" />
 </div>
 
 
@@ -600,7 +635,7 @@ VA - Deep Sleep Classical Piano Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Clas
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57951.jpg" />
 </div>
 
 
@@ -629,7 +664,7 @@ VA - The Essentials: Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Class
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56868.jpg" />
 </div>
 
 
@@ -658,7 +693,7 @@ Hauser, London Symphony Orchestra - Classic II (2024) [FLAC|Lossless|image + .cu
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56781.jpg" />
 </div>
 
 
@@ -687,7 +722,7 @@ VA - The Essentials: Classical Crossover (2024) [FLAC|Lossless|WEB-DL|tracks] <C
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55929.jpg" />
 </div>
 
 
@@ -716,7 +751,7 @@ VA - Best Classical Music: 50 Masterpieces (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54154.jpg" />
 </div>
 
 
@@ -730,35 +765,6 @@ VA - Best Classical Music: 50 Masterpieces (2024) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEEF7036112792DE82F8C0453008E94729E12FD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 124481   (53595) от 12.06.2024
-
-Robert Schumann - The Complete Piano Works (13 CD Set) (1989) [APE]<Classical>
-
->>Классика
->>Полные собрания сочинений (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Замечательное боксовое издание великого композитора. Под спойлером я разместил статьи о композиторе и о исполнителе для интересующихся.Disc: 1
-01-18 - DAVIDSBUNDLERTANZE OP. 6
-19-21 - PHANTASIESTUCKE OP.lll
-22-26 - GESANGE DER FRUHE OP. 133(   Читать дальше...   )Жанр: ClassicalПродолжительность: 14:26:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:636B3A230715F22A3A0064B38F747BF5A9B9B7F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

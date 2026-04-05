@@ -6,7 +6,7 @@
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325739.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323247.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320314.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318951.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ NG. Гитлеровские лагеря смерти: американские
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318786.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ NG. Из истории Второй мировой войны: за линия�
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313866.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ National Geographic. Из истории Второй мировой войны:
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313861.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ National Geographic. Из истории Второй мировой войны:
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313658.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312389.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303778.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ NG. Взгляд изнутри: Вторая мировая война: вой�
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293158.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290867.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290839.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290837.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290197.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288916.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287151.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287138.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284468.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281676.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271132.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270442.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270400.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267042.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ National Geographic. Нераскрытые тайны Второй мирово
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264195.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ NG: Нераскрытые тайны Второй мировой войны / B
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264167.jpg" />
 </div>
 
 

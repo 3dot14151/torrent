@@ -1,3 +1,61 @@
+###  Публикация: 232371   (508193) от 01.09.2010
+
+Papa Roach - Time For Annihilation... On the Record & On the Road (2010) [FLAC|Lossless]<Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burn (3:26)
+02. One Track Mind (3:26)
+03. Kick In The Teeth (3:11)
+04. No Matter What (3:33)(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 01:00:22
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562531   (508159) от 10.07.2022
+
+Negative 13 - Mourning Asteri (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - My Scars Are Showing Again (00:04:04)
+02 - Never Ending Exit Wound (00:03:19)
+03 - Pain Prism (00:05:50)
+04 - Mourning Asteri (00:02:28)(   Читать дальше...   )Жанр: Sludge Metal, Doom MetalПродолжительность: 00:40:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBF8973793095CD8EC80D6179BFDB3B3340D1B41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562581   (508157) от 10.07.2022
 
 Within the Pyre - Within The Pyre (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Groove Metal>
@@ -6,7 +64,7 @@ Within the Pyre - Within The Pyre (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508157.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ HolyRoller - Swimming Witches (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508155.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Undertow - Bipolar (2022) [FLAC|Lossless|WEB-DL|tracks] <Groove, Gothic, Doom Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508153.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Wiegedood - There's Always Blood At The End Of The Road (2022) [FLAC|Lossless|WE
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508151.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Whispering Tales - A Matter of Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Sympho
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508145.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ DeGarmo & Key - This Ain't Hollywood (1980) Reissue, 2021, Girder Records [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508143.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508075.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Switchfoot - interrobang (2021) Deluxe Edition, 2022 [FLAC 2.0|48/24|WEB-DL|trac
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508071.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Sweet Freedom - According to Jörgen Schelander (2022) [FLAC 2.0|48/24|WEB-DL|tr
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508070.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Drive At Night - Echoes Of An Era (2022) [FLAC|Lossless|image + .cue] <Melodic H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508067.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Atomic Symphony - Hybris (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Progressive Meta
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508065.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Flight 19 - Something We Did... (1985 - 1992) (2022) The ''Lost UK Jewels'' Coll
 >>Hard Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508064.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Ardours - Anatomy of a Moment (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Alternative
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508063.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Journey - Freedom (2022) [FLAC|Lossless|image + .cue] <Hard Rock, AOR>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508061.jpg" />
 </div>
 
 
@@ -413,7 +471,7 @@ Black Nazareth - Black Nazareth (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Rock>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508056.jpg" />
 </div>
 
 
@@ -442,7 +500,7 @@ Crazy Town - 3 Альбома, 5 Синглов (1999-2015) [FLAC|Lossless]<Alte
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507964.jpg" />
 </div>
 
 
@@ -471,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507802.jpg" />
 </div>
 
 
@@ -500,7 +558,7 @@ Bokassa - Crimson Rider (2019) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Hardc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507761.jpg" />
 </div>
 
 
@@ -529,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507729.jpg" />
 </div>
 
 
@@ -558,7 +616,7 @@ Dark Princess - The World I've Lost (2012) [FLAC|Lossless]<Gothic Metal, Female 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507591.jpg" />
 </div>
 
 
@@ -593,7 +651,7 @@ Liquid Smoke - Liquid Smoke (1969) [MP3|320 kbps]<Psychedelic Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507504.jpg" />
 </div>
 
 
@@ -627,7 +685,7 @@ Korpiklaani - Manala (Deluxe Edition) (2012) [FLAC|Lossless]<Folk Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507468.jpg" />
 </div>
 
 
@@ -662,7 +720,7 @@ Rainbow - Heavy Portrait (2CD) (2012) [MP3|320 кб/с]<Classic Rock ,Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507454.jpg" />
 </div>
 
 
@@ -697,7 +755,7 @@ Dissenter - Contamination (2003) [FLAC|image +.cue]<Brutal Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507329.jpg" />
 </div>
 
 
@@ -711,64 +769,6 @@ Dissenter - Contamination (2003) [FLAC|image +.cue]<Brutal Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C460DCFBC52CD96A2E244C24DB3F269DE078AF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932616   (507327) от 31.08.2015
-
-Elnordia - Insight (2007) [FLAC|image +.cue]<Symphonic Doom Metal / Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507327.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Velvet of Night
-02. Dark Phoenix Rise
-03. Ghost of the Sunset
-04. Phantom Queen(   Читать дальше...   )Жанр: Symphonic Doom Metal / Death MetalПродолжительность: 00:46:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EBC9DD16C50D272061EAF8BCD837142AB7FD9A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562929   (507326) от 11.07.2022
-
-Scaphis - Dissected & Fermented (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gathering
-02. Broken By The Wheel
-03. The Hunt
-04. Let Me Out(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:53:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:517A5AFC849C6C31AB12D23E0864834BE6A304D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

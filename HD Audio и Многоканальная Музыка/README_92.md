@@ -1,32 +1,3 @@
-###  Публикация: 1696275   (119760) от 01.02.2024
-
-Guns N' Roses - Appetite for Destruction (1987) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome To The Jungle
-02. It's So Easy
-03. Nightrain
-04. Out Ta Get Me(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C442A97E71BEA7AB3B36B5D28953CB0CA5445DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696347   (119661) от 02.02.2024
 
 Paul Mccartney, Wings - Band On The Run (1973) 2024, 50th Anniversary Underdubbed Mixes [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
@@ -35,7 +6,7 @@ Paul Mccartney, Wings - Band On The Run (1973) 2024, 50th Anniversary Underdubbe
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119661.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119646.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Dymytry - Five Angry Men (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119628.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Sigma - London Sound (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119626.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Guns N' Roses - Chinese Democracy (2008) [FLAC|24/192|image + .cue|Vinyl-Rip] <H
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119624.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Guns N' Roses - The Spaghetti Incident? (1993) [FLAC|24/192|image + .cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119623.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Guns N' Roses - Use Your Illusion I (1991) [FLAC|24/192|image + .cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119620.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Guns N' Roses - Use Your Illusion II (1991)[FLAC|24/192|image + .cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119615.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Serenity - Studio Albums (8 releases) (2007-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119474.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ BJ Baartmans - Ghostwriter (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119472.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Peter and the Roses - Peter and the Roses (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119471.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Ocean Jet - Mind Rivers (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Electronic R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119463.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Jennifer Porter - Yes, I Do! (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119456.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Hearts & Hand Grenades - Where I Begin (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119454.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Larmet - Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119450.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ The Tibbs - Keep It To Yourself (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Soul
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119447.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Brookwood Drive - Take A Ride On The Drive (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119444.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Leo - Leo Metal, Vol. 45 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Modern Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119438.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Thomas Frank Hopper - Paradize City (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119433.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Kelp - Datcho Dr (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119432.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Drip Fed Empire - Revolutionist (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119431.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ Dominia - Timeless (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Gothic Doom Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119428.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ Rumboat Chili - All The Time In The World (2024) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119427.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ Suicide Bombers - All For The Candy (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119423.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ Bubble Bones - Go Back to the Mojo (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119422.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ Bubble Bones - Go Back to the Mojo (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F47890F2D6CFCE75567DD157F98CE67662C22C6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696819   (119341) от 04.02.2024
+
+James Blake - Playing Robots Into Heaven (Endel Focus Soundscape) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electronic, Neo-Soul, Future-Garage, UK-Bass>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tell Me (Pt. 1 / Endel Focus Soundscape) [00:02:36]
+02. Tell Me (Pt. 2 / Endel Focus Soundscape) [00:03:30]
+03. Tell Me (Pt. 3 / Endel Focus Soundscape) [00:03:07]
+04. Tell Me (Pt. 4 / Endel Focus Soundscape) [00:03:16](   Читать дальше...   )Жанр: Electronic, Neo-Soul, Future-Garage, UK-BassПродолжительность: 00:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C77AF07F8BB83935BFA367C551868F754E8FEC42
 ```
 
 https://mybot314.ru/tekegram_catalog/

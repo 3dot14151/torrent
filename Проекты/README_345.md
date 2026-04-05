@@ -1,3 +1,271 @@
+###  Публикация: 1801628   (14817) от 12.06.2025
+
+Проекты - VideoHive - Baby Gender Reveal : Girl or Boy? - 58367569 [AEP]
+
+>>Проекты
+>>Детские (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14817.jpg" />
+</div>
+
+
+###  Подробнее
+
+С помощью этого проекта вы можете легко создать уникальное видео для определения пола и удивить своих близких.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70112E2584F7CEFAFBE5DE8A36C20FA43280C4E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801774   (14735) от 13.06.2025
+
+Проекты - VideoHive - Electric Reveal - 58370219 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интересный проект для создания видео с логотипом.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BC9A0497E36A90D75A943C83F9B291FA302B2DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802359   (14453) от 16.06.2025
+
+Проекты - VideoHive - History Opener And Trailer - 57951579 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14453.jpg" />
+</div>
+
+
+###  Подробнее
+
+History Opener And Trailer - отличный проект для создания действительно эпичных и полных эмоций заставок, трейлеров, вступлений, слайд-шоу, фильмов и ваших воспоминаний.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26E185DA491D5CDAD19E372BDB51B6B69D83ED4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802362   (14449) от 16.06.2025
+
+Проекты - VideoHive - Memories - 58370831 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14449.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интересный проект для создания слайд-шоу, где можно использовать как фото так и видео.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00C2F87F6EAE2D85086DA3A3BB3CD39B1C655304
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802528   (14328) от 17.06.2025
+
+Проекты - VideoHive - Blur Transitions - 58374286 [AEP]
+
+>>Проекты
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14328.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blur Transitions — это изысканная коллекция из 10 плавных и чистых переходов на основе размытия для After Effects 2024 и выше. Разработанные для придания ощущения спокойствия, непрерывности и едва заметного движения, эти переходы идеально подходят для видео, где элегантность и мягкость важнее скорости или резкости.
+
+Благодаря чистому размытию движения, мягким переходам (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:285F0A70CA5D2B763203B8ABE9D56C5355567357
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802983   (14011) от 20.06.2025
+
+Проекты - VideoHive - Happy Birthday - 58489717 [MOGRT]
+
+>>Проекты
+>>Детские (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14011.jpg" />
+</div>
+
+
+###  Подробнее
+
+С помощью этого проекта вы можете легко создать праздничное видео.Формат: MOGRT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9591F78AA3AECD0DDCD584DF48D17EFA55249DA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803307   (13779) от 22.06.2025
+
+Проекты - VideoHive - Wedding Slideshow - 58489690 [MOGRT]
+
+>>Проекты
+>>Свадебные и романтические (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интересное свадебное слайд-шоу для ваших творческих задач.
+
+Музыка предоставлена в демо режиме.Формат: MOGRT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BDD8766AE20E46D3F54C53C93108E49C53E3300
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803546   (13690) от 23.06.2025
+
+Проекты - VideoHive - Dreamy Lovely Slideshow - 58578391 [MOGRT]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13690.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dreamy Lovely Slideshow — это высококачественный, хорошо организованный и простой в настройке шаблон. Проект включает видеоурок, даже если вы впервые запускаете программу Premiere Pro, вы легко сможете выполнить работу. Просто перетащите изображение или видео, отредактируйте текст, добавьте аудио и наслаждайтесь результатом!
+
+Музыка предоставлена в демо режиме.Формат: MOGRT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66F83EFBED5AD44C1C2AB1850DB480055B1379E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803663   (13596) от 24.06.2025
+
+Проекты - VideoHive - Golden Particles Logo Formation - 58388253 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интересный проект для создания видео с логотипом.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD0774B7736F90AB05EE3B94285EA166CAEC9A2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803723   (13591) от 24.06.2025
+
+Проекты - VideoHive - Timeline Vertical Slideshow - 58342687 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13591.jpg" />
+</div>
+
+
+###  Подробнее
+
+Минималистичное вертикальное слайд-шоу для ваших творческих задач.
+
+Музыка предоставлена в демо режиме.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:009E3A7B5C009E87CFA256A200E99DB5CD262351
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1806104   (11934) от 10.07.2025
 
 Проекты - VideoHive - Random Cuts Pro - 58609064 [DRFX]
@@ -6,7 +274,7 @@
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11934.jpg" />
 </div>
 
 
@@ -34,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11929.jpg" />
 </div>
 
 
@@ -60,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11731.jpg" />
 </div>
 
 
@@ -89,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11719.jpg" />
 </div>
 
 
@@ -115,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11697.jpg" />
 </div>
 
 
@@ -143,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11589.jpg" />
 </div>
 
 
@@ -171,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11539.jpg" />
 </div>
 
 
@@ -199,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11375.jpg" />
 </div>
 
 
@@ -225,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11212.jpg" />
 </div>
 
 
@@ -251,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11202.jpg" />
 </div>
 
 
@@ -279,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11193.jpg" />
 </div>
 
 
@@ -307,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11182.jpg" />
 </div>
 
 
@@ -335,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11095.jpg" />
 </div>
 
 
@@ -363,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10894.jpg" />
 </div>
 
 
@@ -391,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10877.jpg" />
 </div>
 
 
@@ -417,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10862.jpg" />
 </div>
 
 
@@ -428,278 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D88711E36AFBDE128564C479B2C9018476872745
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807698   (10857) от 20.07.2025
-
-Проекты - VideoHive - Photo Gallery - Through Memories - 57056642 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10857.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект фотостены поможет вам показать любую фотоисторию вашей жизни в одном атмосферном видео.
-
-Музыка очищена и предоставлена.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F0DAB4C78902214224BE012DE6370FB6678A1E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807891   (10812) от 21.07.2025
-
-Проекты - VideoHive - Explosion Transitions for DaVinci Resolve - 57140191 [DRP]
-
->>Проекты
->>Элементы (проекты)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10812.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор реалистичных визуальных эффектов взрывных переходов! Каждая анимация имеет гибкий контроллер цвета, поэтому вы можете раскрасить переходы в несколько цветов и получить потрясающие красочные взрывные эффекты.Формат: DRP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40927771CB4EEF0016CB4ED347ECE85C3EE9EC24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807932   (10780) от 21.07.2025
-
-Проекты - VideoHive - Memories Slideshow - 57170499 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10780.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект фотостены поможет вам показать любую фотоисторию вашей жизни в одном атмосферном видео.
-
-Музыка очищена и предоставлена.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9F94352930B8029C8CC804CD049BB9FB874A6B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808122   (10662) от 22.07.2025
-
-Проекты - VideoHive - Paper Transitions for DaVinci - 57031552 [DRP]
-
->>Проекты
->>Элементы (проекты)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет содержит 15 креативных бумажных переходов для горизонтальных и вертикальных видео, которые помогут сделать ваш проект более динамичным и стильным.Формат: DRP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:781F7851D1FFD1032DC671E14B39431137EDD333
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808023   (10657) от 22.07.2025
-
-Проекты - VideoHive - Fire Seamless Transitions for DaVinci Resolve - 57125170 [DRP]
-
->>Проекты
->>Элементы (проекты)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10657.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fire Seamless Transitions — реалистичный шаблон с коллекцией динамичных переходов пламени! Объедините свои медиафайлы с этими визуальными эффектами всего за несколько кликов и придайте своим работам новый облик. Идеально подходит для слайд-шоу, экстремальных видеороликов, вступительных переходов и многого другого.Формат: DRP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:170E000724F95FD0A6D97DE9D128B412AE6511DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808202   (10602) от 23.07.2025
-
-Проекты - VideoHive - Glitch Logo - 56943656 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10602.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интересный проект с логотипом для ваших творческих задач.
-
-Музыка очищена и предоставлена.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3E3E20A58F7A7B80E860C186D74E3B6FEC91EEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808272   (10597) от 23.07.2025
-
-Проекты - VideoHive - Historical Poetry Slideshow - 57055864 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10597.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создайте захватывающее ретро-видео в формате 4K или винтажную поэтическую историю всего за несколько кликов.
-
-Музыка очищена и предоставлена.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B1BBCFBEE1F32A6F09248054419C4AFCFC259A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808239   (10596) от 23.07.2025
-
-Проекты - VideoHive - Logo Reveal - 57144868 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10596.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интересный проект с логотипом для ваших творческих задач.
-
-Музыка очищена и предоставлена.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EC9FFA77C1263E9CCD539816B184314AFDEA327
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808216   (10595) от 23.07.2025
-
-Проекты - VideoHive - Lovely Brush Slideshow - 57112238 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lovely Brush Slideshow — это высококачественный, хорошо организованный и легко настраиваемый шаблон.
-
-Музыка очищена и предоставлена.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:772BE553344599F630831A6AAEECC5C0902613AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808806   (10305) от 26.07.2025
-
-Проекты - VideoHive - Super Creators Pack (7800+ Elements) - 30929735 [DRFX, MOV, MP4, CUBE, WAV, MP3, PNG]
-
->>Проекты
->>Элементы (проекты)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Огромный пакет элементов для DaVinci Resolve.Формат: DRFX, MOV, MP4, CUBE, WAV, MP3, PNG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C12B10FCBF8210A55F40E372712EED30CF91F8F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

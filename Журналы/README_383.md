@@ -1,3 +1,134 @@
+###  Публикация: 1171381   (396624) от 04.10.2017
+
+Журнал | National Geographic [Россия] №10 (169) (октябрь 2017) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396624.jpg" />
+</div>
+
+
+###  Подробнее
+
+National Geographic - уникальный научно-популярный географический журнал, официальное издание американского Национального географического общества - публикует беспрецедентные и эксклюзивные материалы об истории, археологии, науке и культуре. Ядро журнала одинаково для всех стран, что делает National Geographic по-настоящему общемировым изданием.Жанр: Научно-популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B92011956086A23C644413028746FDC1D7FF853
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171162   (396619) от 04.10.2017
+
+Журнал | Кот Шрёдингера. Cпецвыпуск (октябрь 2017) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396619.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Кот Шредингера» - научно-популярный журнал о науке и научных открытиях. Для всех, кто хочет знать о научных изобретениях, сделанных в России и по всему миру, об инновационных технологиях, которые в скором будущем могут усовершенствовать нашу жизнь.Жанр: Научно-популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26CDFA24059AA7B1D706C2725AA1AE1B105B0DEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 715681   (396592) от 26.10.2013
+
+Журнал | Playboy [Украина]. Спецвыпуск №2 (осень 2013) [PDF]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396592.jpg" />
+</div>
+
+
+###  Подробнее
+
+Playboy (Плейбой) — имя, ставшее легендой. Популярнейший во всем мире глянцевый мужской журнал появился в России в 1995 году и очень быстро стал самым востребованным изданием в своей категории. Данный коллекционный выпуск посвящен стилю жизни настоящего плейбоя: как одеваться, как соблазнять, как сделать своё жилище по настоящему мужским, как преуспеть в жизни. Как (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CB13652217CB65E4BD532914E79F490F1895636
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 567980   (396097) от 30.10.2012
+
+Журнал | Мой уютный дом №11 [ноябрь 2012] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396097.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Лиза. Мой уютный дом» - журнал для тех, кто высоко ценит комфорт, хочет сделать свой дом красивым, находится в постоянном поиске свежих идей и решений. Оборудование дома и квартиры, практические советы по оформлению гостиной, спальни, кухни, ванной и детской комнат. Модные тенденции в дизайне интерьера. Эксклюзивные репортажи. Мебельные новинки. Интересные решения для небольших жилых помещений.
+Тема номера: Сделайте сами! - 33 креативные идеи.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAEC0A2D74D702E4855BF2197429CDAD008E27A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 568005   (396084) от 30.10.2012
+
+Журнал | Интернет-гид №19 [октябрь 2012] [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396084.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Интернет-гид» — это универсальный проводник, спусковая кнопка в необъятный мир веб-страниц. Это полезная прогулка по ту сторону браузера, по самым живописным местам на карте глобальной сети.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:563C27CB49F1275E20202C4EF20C46EA02C3E804
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 567854   (395984) от 30.10.2012
 
 Подборка журналов | Вышивка: просто и красиво №№1 - 9 [январь - сентябрь 2012] [PDF, DJVU]
@@ -6,7 +137,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395984.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395976.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395841.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395817.jpg" />
 </div>
 
 
@@ -110,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395802.jpg" />
 </div>
 
 
@@ -136,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395768.jpg" />
 </div>
 
 
@@ -162,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395766.jpg" />
 </div>
 
 
@@ -191,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395760.jpg" />
 </div>
 
 
@@ -217,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395755.jpg" />
 </div>
 
 
@@ -243,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395753.jpg" />
 </div>
 
 
@@ -269,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395708.jpg" />
 </div>
 
 
@@ -295,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395673.jpg" />
 </div>
 
 
@@ -321,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395631.jpg" />
 </div>
 
 
@@ -347,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395471.jpg" />
 </div>
 
 
@@ -373,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395440.jpg" />
 </div>
 
 
@@ -399,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395150.jpg" />
 </div>
 
 
@@ -425,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395144.jpg" />
 </div>
 
 
@@ -453,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395133.jpg" />
 </div>
 
 
@@ -479,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395092.jpg" />
 </div>
 
 
@@ -505,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395071.jpg" />
 </div>
 
 
@@ -532,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394898.jpg" />
 </div>
 
 
@@ -543,136 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08F9DBD83E6995E2CA9616E3E1CF3FAAFFB2F7F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171872   (394895) от 06.10.2017
-
-Журнал | AD / Architectural Digest [Italia] №9 (434) (сентябрь 2017) [PDF] [It]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394895.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведущий международный журнал об архитектуре и дизайне. Издается в Америке с начала 20-х годов. За долгие годы завоевал репутацию законодателя интерьерной моды, сформировал вкусы нескольких поколений, источник вдохновения в искусстве создания идеального жизненного пространства.Жанр: Дизайн, архитектураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72B015A1D1A16CE0D2A76AF8A4C8F4780C44D619
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171757   (394846) от 06.10.2017
-
-Журнал | Дом и Интерьер №10 (октябрь 2017) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Международный журнал о дизайне "Дом & интерьер" – издание для всех, кому интересны модные тенденции в области создания интерьеров; искусство, антиквариат, шедевры мировой архитектуры.Жанр: Архитектура, строительство, дизайнФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1372EC17D9E0815CA686DBC12CB18327EFB3E0DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171897   (394839) от 06.10.2017
-
-Журнал | Строю и ремонтирую №10 (133) (октябрь 2017) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полезный журнал-каталог о строительстве, ремонте, отделке и декорировании - для тех, кто строит свой дом, ремонтирует квартиру. Материалы журнала Строю и ремонтирую обращены не только к профессиональным строительным фирмам, строителям, декораторам и дизайнерам, но и всем интересующимся читателям, которым интересны теория и практика современной архитектуры, строительства, (   Читать дальше...   )Жанр: Архитектура, строительство, ремонтФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66925E08AB23C8BA99E7F99A31030058564741F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 716062   (394821) от 28.10.2013
-
-Подшивка журналов | Производство Электроники №4, 5 (2013) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал предназначен для технологов, директоров производства, менеджеров по качеству и технических директоров, которые участвуют в принятии решений по выбору нового оборудования и материалов для производства электроники, решений по выбору поставщиков и конкретных производителей. В каждом номере публикуются репортажи с предприятий электронной техники и новости рынка.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82DBCBB038F6AF1DE9719E4DB7BD93CB104C955C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171957   (394790) от 06.10.2017
-
-Газета | Скатерть-самобранка. Спецвыпуск. Готовим из грибов (2017) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394790.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Скатерть-самобранка" – кулинарная газета со множеством интересных рецептов от читателей.Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F118051BD0D0D70C7A76164EDAEA5A60DA803929
 ```
 
 https://mybot314.ru/tekegram_catalog/

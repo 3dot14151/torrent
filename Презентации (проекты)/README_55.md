@@ -1,3 +1,113 @@
+###  Публикация: 1821645   (63923) от 03.10.2025
+
+Проекты - VideoHive - Website Presentation | Laptop Mockup - 59619889 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63923.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект с шаблоном ноутбука для презентации.
+
+Музыка предоставлена в демо-версии.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C0797EF3090A84F10E510F775EC4D23C4B5AE85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772365   (31391) от 10.01.2025
+
+Проекты - VideoHive - Barbershop Promo - 56177586 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31391.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот шаблон After Effects идеально подходит для парикмахерских, которые хотят продвигать свои услуги, выделять персонал и демонстрировать трансформации клиентов. Шаблон содержит динамичные и винтажные сцены.
+
+Музыка предоставлена, но не очищена.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCE395908EE320CD598ED42500B6F1CAC6286DF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772536   (31275) от 11.01.2025
+
+Проекты - VideoHive - News Countdown - 56179614 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект с отсчетом времени для новостных проектов.
+
+Музыка предоставлена в демо версии.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B747E160A58876328E8FD6018A8C368A1CE3390
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776034   (29420) от 29.01.2025
+
+Проекты - VideoHive - Golden Flowers - 30240071 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29420.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Golden Flowers» — это модный и современный шаблон After Effects. Профессионально анимированный с чистой текстовой анимацией. Содержит 8 редактируемых текстовых слоев и 5 фотографий.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:118D376D9054B3CC1F77FBF006E6726C1E8C6C2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1821045   (8537) от 30.09.2025
 
 Проекты - VideoHive - Liquid Promo Stories Pack - 59622125 [AEP]
@@ -6,7 +116,7 @@
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8537.jpg" />
 </div>
 
 

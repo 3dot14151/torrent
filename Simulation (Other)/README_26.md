@@ -1,3 +1,29 @@
+###  Публикация: 1746705   (44946) от 01.09.2024
+
+Retail Company Simulator (2024) [Ru/Multi] (1.0.0.4) Scene Tenoke
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Retail Company Simulator помещает вас в гущу розничного хаоса. Вас ждет скромный магазин - чистый холст для вашего предпринимательского духа. Заключайте контракты с ведущими брендами, заполняйте полки и преображайте пространство. Компьютер станет вашим верным помощником, инструментом для распаковки коробок, расстановки товаров и определения цен. Рынок диктует, а (   Читать дальше...   )Тип издания: SceneРазработчик: Business TycoonЖанр: Казуальные игры, Инди, СимуляторыЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F5BA6892F43CDAF7B86DF1EE6223FBC0C0DBEAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1747056   (44804) от 03.09.2024
 
 Squirrel with a Gun (2024) [Multi] (1.0.2.14) Scene Doge
@@ -6,7 +32,7 @@ Squirrel with a Gun (2024) [Multi] (1.0.2.14) Scene Doge
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44804.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Blocky Farm (2024) [Ru/Multi] (20240830-5) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44653.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Why don't they laugh? (2024) [Ru/Multi] (1.08) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44543.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Survival: Fountain of Youth (2024) [Ru/Multi] (1648/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44455.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Motel Manager Simulator (2024) [Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44421.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Skoof Simulator / Симулятор Скуфа (2024) [Ru/En] (1.0) Scene Tenok
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44348.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Forklift Simulator (2024) [Ru/Multi] (1.0.6) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44316.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Why don't they laugh? (2024) [Ru/Multi] (1.08) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44254.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Northend Tower Defense (2022) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44141.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Rising Star 2 (2020) [Multi] (2.98.342/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44026.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Satisfactory (2019) [Ru/Multi] (1.0) Repack Wagner
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43937.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Satisfactory (2019) [Ru/Multi] (1.0/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43850.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ KeepUp Survival (2024) [Ru/Multi] (20240906/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43849.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Grocery Simulator (2024) [En] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43801.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ We Heist Too (2024) [En] (5.3.1) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43710.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Leo: The Firefighter Cat (2024) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43548.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Motel Manager Simulator (2024) [Multi] (20240908) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43382.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Farmer's Life (2021) [Ru/Multi] (1.0.22) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43108.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Garden Witch Life (2024) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42814.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Internet Cafe & Supermarket Simulator 2024 (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42646.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Gas Station Simulator (2021) [Ru/Multi] (1.0.2.22714s/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42631.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Virtual Rides 3 - Funfair Simulator (2017) [Multi] (2.6.0f2.2/dlc) License GOG [
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42579.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Slackers - Carts of Glory (2024) [Ru/Multi] (0.9975) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42575.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ City Bus Simulator 2024 (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42465.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Tiny Glade (2024) [Ru/Multi] (1.8.0a) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42354.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Tiny Glade – это спокойный и даже местами медита
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10B59929FAB2CDC1F87D2F41E256DD45F4C94A70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751970   (42104) от 28.09.2024
-
-Tiny Glade (2024) [Ru/Multi] (1.8.0a) Repack FitGirl
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42104.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tiny Glade – это спокойный и даже местами медитативный симулятор строительства. Никаких сражений, никакого распределения ресурсов, никакой боязни ошибиться. Вы просто творите красоту. Устраивайтесь поудобнее и начинайте возводить прекрасные и величественные замки на живописных лужайках. Забудьте о правилах и координационной сетке. Ваш замок сам будет подстраиваться (   Читать дальше...   )Тип издания: RepackРазработчик: Pounce LightЖанр: Казуальные игры, Инди, СимуляторыЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5C3129656B777C31EDDD8EEB5BE4EEB371A1483
 ```
 
 https://mybot314.ru/tekegram_catalog/

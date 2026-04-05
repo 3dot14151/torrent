@@ -1,3 +1,133 @@
+###  Публикация: 1763974   (35132) от 05.12.2024
+
+Мойдодыр. Сборник мультфильмов по сказкам К.И. Чуковского (1939-1984) DVDRip [H.264]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы (коллекции, сборники / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35132.jpg" />
+</div>
+
+
+###  Подробнее
+
+Увлекательный сборник мультфильмов по сказкам известного детского писателя Корнея Ивановича Чуковского. В этот сборник вошли мультфильмы: Мойдодыр, Тараканище, Федорино горе, От двух до пяти, Ваня и крокодил, а также Краденное солнце и еще одна версия мультфильма Мойдодыр, созданная в 1939 году.Производство: СССР / СоюзмультфильмЖанр: мультфильм, детский, короткометражка, кукольныйРежиссер: Иван Иванов-ВаноАктеры: Владимир Грибков, Мария Виноградова, Михаил Рыба, Юрий Хржановский, Сергей Цейц, Юрий Филимонов, Нина Никитина, Алексей Грибов и др.Субтитры: отсутствуютПродолжительность: ~ 00:16:32 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:162416959CA4B1224FB680CF3898907F141A5FF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763617   (35086) от 06.12.2024
+
+Хранители: Часть 2 / Watchmen: Chapter II (2024) WEB-DL [H.264/1080p] [MVO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35086.jpg" />
+</div>
+
+
+###  Подробнее
+
+Убийца бывших членов команды "Хранители" так до сих пор и не пойман, а мотивы его не ясны. А мир тем временем неумолимо приближается к ядерному армагеддону...Производство: США / DC Studios, Paramount Pictures, Warner Bros. AnimationЖанр: мультфильм, фантастика, боевик, драма, детективРежиссер: Брэндон ВиеттиАктеры: Трой Бэйкер, Эдриенн Барбо, Майкл Серверис, Зехра Фазал, Фил Фондакаро, Грэй Гриффин, Джон Маршалл Джонс, Макс Кох, Фил ЛаМарр, Юрий ЛовентальПеревод: Многоголосый ( LostFilm, TVShows, LE-Production)Язык озвучки: Русский, АнглийскийСубтитры: Английские (SDH)Продолжительность: 01:29:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CAF54055195EAE49C877637BA852783AB3FDFF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764223   (35045) от 06.12.2024
+
+Хранители: Часть 2 / Watchmen: Chapter II (2024) WEB-DLRip [H.264] [MVO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35045.jpg" />
+</div>
+
+
+###  Подробнее
+
+Убийца бывших членов команды "Хранители" так до сих пор и не пойман, а мотивы его не ясны. А мир тем временем неумолимо приближается к ядерному армагеддону.Производство: США / DC Studios, Paramount Pictures, Warner Bros. AnimationЖанр: мультфильм, фантастика, боевик, драма, детективРежиссер: Брэндон ВиеттиАктеры: Трой Бэйкер, Эдриенн Барбо, Майкл Серверис, Зехра Фазал, Фил Фондакаро, Грэй Гриффин, Джон Маршалл Джонс, Макс Кох, Фил ЛаМарр, Юрий ЛовентальПеревод: Многоголосый профессиональный (LostFilm, TVShows)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:29:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC4A4E9A2FB07AA4034799A25E6EE69F03F3C101
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764213   (35024) от 06.12.2024
+
+Мистер Берчем / Mr. Birchum (2024) WEB-DL  [H.264/1080p] (сезон 1  серии 1-6 из 6) TVShows
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35024.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мистер Бёрчем пытается ориентироваться в мире, который он не понимает. Его сбивает с толку его сын-игровой стример Эдди, его раздражают ученики, делающие селфи, и он постоянно воюет с назначенным школьным округом «джедаем» мистером Карпонзи.Производство: США / DailyWire+Жанр: Мультфильм, комедияРежиссер: Нэйт Адамс, Манэуль Моралес, Алекс КароллаАктеры: Адам Каролла, Бретт Купер, Кайл Данниган, Тайлер Фишер, Меган Келли, Алонзо Бодден, Брайан Стивале, Джеймс Арнольд ТейлорПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: ~ 00:27:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85B232EC91F33D6A56FC0682FCD1F472D48C60F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764450   (34963) от 07.12.2024
+
+Трансформеры: Начало / Transformers One (2024) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юные Оптимус Прайм и Мегатрон превращаются из братьев по оружию в заклятых врагов.Производство: США / Bay Films, Di Bonaventura Pictures, Paramount AnimationЖанр: мультфильм, фантастика, фэнтези, боевик, приключения, семейныйРежиссер: Джош КулиАктеры: Крис Хемсворт, Брайан Тайри Генри, Скарлетт Йоханссон, Кигэн-Майкл Ки, Стив Бушеми, Лоренс Фишбёрн, Джон Хэмм, Ванесса Лигуори, Джон Бэйли, Джейсон КонописосПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5B41AB05D826A197D198C9C66AA4E3B0EFA04A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764517   (34947) от 07.12.2024
 
 Волшебник изумрудного города (1973-1974) DVD9
@@ -6,7 +136,7 @@
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34947.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34943.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34932.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34899.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34802.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34795.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34794.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34788.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34781.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34693.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34691.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34653.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34636.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34623.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34484.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34417.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34407.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34363.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34359.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34347.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34302.jpg" />
 </div>
 
 
@@ -537,138 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD8AE45C64C46953E526D71C4FE2C3BA45B1A81B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765606   (34299) от 13.12.2024
-
-Незнайка на Луне (1997-1999) DVDRip (серии 1-12 из 12)
-
->>Мультфильмы
->>Отечественные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34299.jpg" />
-</div>
-
-
-###  Подробнее
-
-Незнайка находит на улице камень и считает, что этот камень упал с Луны. Он отдаёт его Знайке. На следующий день Знайка заметил, что при действии на камень магнитного поля камень создаёт невесомость. Знайка принял решение сделать ракету и полететь вместе с остальными коротышками на Луну, предварительно устроив спор с астрономом Стекляшкиным, о том, есть ли на Луне (   Читать дальше...   )Производство: Россия / FAF EntertainmentЖанр: мультфильм, фантастика, фэнтези, комедия, приключенияРежиссер: Юрий Бутырин, Александр Люткевич, Андрей ИгнатенкоАктеры: Венера Рахимова, Кристина Орбакайте, Светлана Степченко, Алексей Борзунов, Клара Румянова, Александр Леньков, Ирина Бякова, Артем Карапетян, Михаил Кононов, Светлана Харлап и др.Продолжительность: ~ 00:12:44 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6C5493652AB63E9BC4A83F0E07C2ECE28F5CFCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765456   (34284) от 13.12.2024
-
-13 карт (2024) WEB-DL [H.264/1080p] (сезон 1, серия 1-9 из 9)
-
->>Мультфильмы
->>Отечественные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комичная история о том, как разные архетипы уживаются под одной крышей. Фёдор, как и всякий подросток, хотел лёгкой жизни, чтобы все скучные обязанности вроде уборки и учебы за него делали другие. Желание сбылось, и в его распоряжении оказалось 8 клонов, призванных из магической колоды карт. Только Фёдор не ожидал, что каждая карта — уникальная личность с собственными (   Читать дальше...   )Производство: Россия / Phoenix Animation StudioЖанр: рисованная анимацияРежиссер: Ваня ТейлАктеры: Вячеслав Никитин, Асет Бейсембаев, Эдуард Айзатуллин, Кирилл Цаповский, Данил Михайлов, Левон Мамулов, Иван Яшин, Иван Шухин, Денис Губайдуллин, Пётр ИващенкоПродолжительность: ~00:10:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A9CF00250921E89749BA6824EEA476675AC3168
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 335520   (34149) от 15.12.2024
-
-Звероферма (Скотный двор) / Animal Farm (1954) DVDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34149.jpg" />
-</div>
-
-
-###  Подробнее
-
-Животные поднимают восстание против владельца фермы, побеждают и начинают строить светлое коммунистическое будущее. Ну а дальше оказывается, что некоторые животные равнее, чем остальные…
-
-Фильм по одноименной книге Дж.Оруэла, рассчитанной на взрослую аудиторию. Но литературная метафора совсем не то, что метафора в кино и мультипликации. Когда читаешь «Скотный двор», (   Читать дальше...   )Производство: Великобритания, США / Halas & Batchelor, Central Intelligence Agency (CIA)Жанр: Рисованая анимация, Семейный, ДетскийРежиссер: Джой Батчелор, Джон ХаласПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, АнглийскийПродолжительность: 01:09:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BE32134F6D25286A34A08CF3C65190F9DBC71A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765951   (34098) от 15.12.2024
-
-Большие гонки / / Flaklypa Grand Prix / Pinchcliffe Grand Prix (1975) BDRip [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда ремонтник-изобретатель Теодор Римспоук узнаёт, что его бывший помощник Рудольф Гор-Слайми стал чемпионом автомобильных гонок только благодаря машине, построенной на основе изобретения Теодора, то решает восстановить справедливость. С помощью двух надежных ассистентов он создает новый мощный автомобиль и бросает вызов Рудольфу в самом удивительном и захватывающем (   Читать дальше...   )Производство: Норвегия / Caprino Filmcenter a/sЖанр: кукольныйРежиссер: Иво КаприноАктеры: Венке Фосс, Пер Теодор Хаген, , Лейф Джастер, Хенки Кольстад, , Рольф Жюст Нильсен, Хэльге Рейсс, Фрэнк Роберт, Кари СимонсенПеревод: Двуголосый профессиональныйЯзык озвучки: русский, норвежский, английскийСубтитры: русские, норвежские, английскиеПродолжительность: 01:28:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECA5CA26B1AC2546C845FB2356F2B8EC346CABDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766102   (33964) от 16.12.2024
-
-По щучьему велению (1970) DVDRip [H.264]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33964.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят на основе спектакля Калининского театра кукол по пьесе Елизаветы Тараховской, сюжетом которой послужила русская народная сказка «По щучьему веленью».Производство: СССР / ТО "Экран"Жанр: кукольный, короткометражка, мультфильмРежиссер: Владимир Пекарь, Владимир ПоповАктеры: Анатолий Кубацкий, Зинаида НарышкинаСубтитры: отсутствуютПродолжительность: 00:29:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EA9C356701000D3D29953B7A1E81F5DC6C0CE4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

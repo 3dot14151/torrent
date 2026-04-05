@@ -1,3 +1,59 @@
+###  Публикация: 565188   (394386) от 31.10.2012
+
+Blade and Soul [Kr] (L/1.3.8.632) 2012 | {24 октября 2012}
+
+>>След.
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394386.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из самых ожидаемых корейских онлайн-игр, Blade & Soul, в которую компания NCsoft вложила огромное количество денег, завоёвывает все больше и больше геймерских сердец, благодаря своей потрясающей графике и шикарной боевой системе. Но поиграть в неё удалось пока что далеко не каждому. Многие просто следят за проектом посредством видео роликов и различных статей в интернете. По сути, главным качеством Blade & Soul является кропотливый дизайн действий и боевой стратегии, которые можно оценить лишь поиграв в игру.
+Клиент скачан 24 октября 2012 года. Запуск клиента производится с официального сайта игры. Что возможно только при наличии аккаунта С ПОДТВЕРЖДЕННЫМ СЕРТИФИКАТОМ ЛИЧНОСТИ. Другими словами вам нужно либо купить готовый аккаунт, либо найти друга корейца, либо третий вариант - вы и есть кореец.
+(   Читать дальше...   )Тип издания: ЛицензияЖанр: MMORPGЯзык озвучки: -/-Язык субтитров: -/-Язык интерфейса: Корейский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F38FF717D61FD00E0046C0BD26800FD2FC43894
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 568611   (393497) от 01.11.2012
+
+Painkiller: Hell & Damnation [Ru] (RePack) 2012 | =Чувак=
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393497.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра со страшным названием Painkiller: Hell & Damnation, что на русском обозначает «Ад и Проклятье» - это ремейк оригинального Painkiller, появившегося на рынке в 2004 году.
+Начнём с того, что уровень графики совсем не опустился - благодаря движку Unreal Engine 3 локации по-прежнему выглядят превосходно. Уровни не подверглись практически никаким изменениям (разве что локации обогатились доселе невиданными секретными зонами). Зато история новая. Феерическое действие разворачивается после событий первой части. Кроме того, была существенно улучшена физика.
+Авторы из The Farm 51 порадуют геймеров ещё и свежими сетевыми режимами, онлайновыми турнирами и прочими интернет-вкусностями.(   Читать дальше...   )Тип издания: RePackРазработчик: The Farm 51Жанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4C554D0540D3C0E444EECD510BC2A3C72758554
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 568734   (393445) от 01.11.2012
 
 Painkiller: Hell & Damnation [Ru] (RePack) 2012 | R.G Repacker's
@@ -6,7 +62,7 @@ Painkiller: Hell & Damnation [Ru] (RePack) 2012 | R.G Repacker's
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393445.jpg" />
 </div>
 
 
@@ -34,7 +90,7 @@ R.A.W.: Realms of Ancient War [Ru/En] (RePack/1.0) 2012 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393433.jpg" />
 </div>
 
 
@@ -61,7 +117,7 @@ Painkiller: Hell and Damnation [Ru] (Repack/DLC) 2012 | R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392483.jpg" />
 </div>
 
 
@@ -91,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392479.jpg" />
 </div>
 
 
@@ -118,7 +174,7 @@ I Am Alive [PS3] [PSN] [ENG] [NTSC] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392472.jpg" />
 </div>
 
 
@@ -144,7 +200,7 @@ Brutal DooM [En] (Mod/0.17) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392410.jpg" />
 </div>
 
 
@@ -171,7 +227,7 @@ Sleeping Dogs - Limited Edition [Ru/En] (1.7/Steam-Rip/16 DLC) 2012 l R.G. Origi
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_392370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_392370.jpg" />
 </div>
 
 
@@ -198,7 +254,7 @@ Call of Duty: Ghosts [PS3] [USA] [Multi4] [4.46] [Cobra ODE / E3 ODE PRO ISO] (2
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391515.jpg" />
 </div>
 
 
@@ -224,7 +280,7 @@ Painkiller Hell & Damnation [Ru/En] (RePack/1.0/3 DLC) 2012 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391509.jpg" />
 </div>
 
 
@@ -254,7 +310,7 @@ King's Bounty - Warriors of the North [Ru/En] (RePack/1.3.1) 2012 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391442.jpg" />
 </div>
 
 
@@ -283,7 +339,7 @@ Warlock: Master of the Arcane [Ru] (RePack/1.3.1.47) 2012 | Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391436.jpg" />
 </div>
 
 
@@ -310,7 +366,7 @@ Elemental: Fallen Enchantress [En] (Repack/1.0) 2012 | R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391391.jpg" />
 </div>
 
 
@@ -341,7 +397,7 @@ Worlds of Legend: Son of the Empire [En] (RePack) 1993 | RG games/Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_390840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_390840.jpg" />
 </div>
 
 
@@ -370,7 +426,7 @@ Roger Rabbit and Baby Herman in "Hare Raising Havoc" [En] (RePack) 1991 | RG Gam
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390795.jpg" />
 </div>
 
 
@@ -397,7 +453,7 @@ Shank Dilogy [Ru/En] (RePack) 2010 - 2012 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390690.jpg" />
 </div>
 
 
@@ -423,7 +479,7 @@ Bioshock 2 [Xbox 360] [RUSSOUND] [PAL] (2010)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390599.jpg" />
 </div>
 
 
@@ -452,7 +508,7 @@ Divinity II: Developer's Cut [Ru] (RePack/1.4.700.38) 2012 | R.G. Revenants
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390590.jpg" />
 </div>
 
 
@@ -479,7 +535,7 @@ Mystical [En] (RePack) 1990 | RG games/Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_390332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_390332.jpg" />
 </div>
 
 
@@ -506,7 +562,7 @@ Wizkid: The Story of Wizball 2 [En] (RePack) 1992 | RG Games/Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_390275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_390275.jpg" />
 </div>
 
 
@@ -532,7 +588,7 @@ Murders in Venice и Murder in Space [En] (RePack) 1990 | RG Games/Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_390269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_390269.jpg" />
 </div>
 
 
@@ -558,7 +614,7 @@ Kajko i Kokosz [Pl] (RePack) 1994 | RG games/Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_390212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_390212.jpg" />
 </div>
 
 
@@ -584,7 +640,7 @@ The Blues Brothers Дилогия [En] (RePack) 1993 | RG games/Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_390102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_390102.jpg" />
 </div>
 
 
@@ -610,7 +666,7 @@ Wayne's World [En] (RePack) 1993 | RG Games/Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_390059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_390059.jpg" />
 </div>
 
 
@@ -636,7 +692,7 @@ Lethal Weapon [En] (RePack) 1992 | RG games/Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_389976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_389976.jpg" />
 </div>
 
 
@@ -647,59 +703,6 @@ Lethal Weapon [En] (RePack) 1992 | RG games/Pilotus
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 717905   (389960) от 02.11.2013
-
-Call of Juarez: Gunslinger (2013) [Ru/Multi] (1.03) License PROPHET
-
->>След.
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389960.jpg" />
-</div>
-
-
-###  Подробнее
-
-Call of Juarez The Gunslinger перенесет вас на просторы легендарного Дикого Запада - место, где царит неповторимая атмосфера беззакония и жестокости. Вживайтесь в роль безжалостного охотника за головами, отыщите и пристрелите самых отъявленных негодяев. Вам предстоит побывать в грязных салунах, золотых шахтах и многих других местах, где могут укрываться бандиты. (   Читать дальше...   )Тип издания: ЛицензияРазработчик: TechlandЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Испанский, Итальянский, Французский, Немецкий, Польский, Бразильский, ЯпонскийЯзык интерфейса: Русский, Английский, Испанский, Итальянский, Французский, Немецкий, Польский, Бразильский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D93C6CAD1DDB864A372B86682FFF4A77BC7A9495
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570462   (389904) от 05.11.2012
-
-007 Legends [Ru] (RePack) 2012 l R.G. Repackers
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389904.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот секретный агент вооружен и чрезвычайно опасен. Он – единственная защита демократии от преступных синдикатов и свихнувшихся лидеров развивающихся стран. У него самые красивые напарницы и самые смертоносные изобретения, когда-либо созданные в лабораториях Mi6. Его зовут Бонд. Джеймс Бонд. И только он сможет выполнить задания, которые изменят мир.
-    Новая игра 007 Legends позволит всем поклонникам Бонда пережить самые значимые моменты его карьеры. Сюжет игры строится на шести голливудских блокбастерах о приключениях самого популярного в мире секретного агента, включая новый фильм «007: Координаты «Скайфолл». Воспользуйтесь уникальным шпионским снаряжением, устройтесь за рулем навороченных автомобилей и разрушьте коварные замыслы врагов с помощью внушительного арсенала различного оружия. Враги умеют убивать, но с вами им не сравниться; вас ждут боевые навыки и приемы, головокружительные спецэффекты… и конечно, красавицы, ставшие визитной карточкой Агента 007!(   Читать дальше...   )Тип издания: RePackЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6324B69AF13CBBF950993D753DDD14A325FE25D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

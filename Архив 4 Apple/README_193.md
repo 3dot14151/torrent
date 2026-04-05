@@ -6,7 +6,7 @@ Data Guardian 7 v7.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793041.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Color Wheel 6.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793040.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ EazyDraw 10.7.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793039.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v4.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793038.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Cockos REAPER 6.41 for Mac [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793037.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ GoodTask 6.8.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793036.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Things 3 v3.15.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793035.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Principle 6 v6.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793034.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Music Tag Editor 5.9.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793033.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Pacifist 4.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792985.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Dynaper - Dynamic Wallpapers 1.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792984.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Prism 9 v9.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792982.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Submerge 3 v3.7.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792979.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ myTracks 4.0.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792978.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ PhotoReflector 1.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792976.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Movist 2.5.6 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792973.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ MP3 Gain - Audio Normalization 5.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792972.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ MP3 Encoder 2.18 fix [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792967.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Luminar 3 v3.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792959.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Audirvana Plus 3.2.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792952.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Picture Collage Maker 3 v3.7.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792944.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Acon Digital Acoustica Premium Edition 7.3.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792943.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ CollageIt 3 Pro v3.6.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792940.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Focusplan Pro - Mind Map 1.6.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792938.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Cinemagraph Pro 2.7.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792925.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ SyncTime 3.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792890.jpg" />
 </div>
 
 

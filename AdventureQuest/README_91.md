@@ -1,3 +1,81 @@
+###  Публикация: 1760830   (37092) от 16.11.2024
+
+Beyond The Darkness (2024) [Ru/En] (Build 16409241) Scene Rune
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37092.jpg" />
+</div>
+
+
+###  Подробнее
+
+Beyond The Darkness - это мрачная история, которая окунёт вас в детские кошмары, даже если вы успели о них позабыть. Помогите маленькой девочке Милли сразиться с ужасами, таящимися во тьме, и найдите её пропавшую семью. Вы окажетесь причудливых мирах воспоминаний, искажённых страхом и отчаянием, а вашим единственным оружием станет свет маленькой лампы…Тип издания: SceneРазработчик: My Little StudioЖанр: Приключенческие игры, ИндиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:515782352BD11B471638C39036CFE92B176CC8F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760745   (37090) от 16.11.2024
+
+Beyond The Darkness (2024) [Ru/En] (Build 16409241) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37090.jpg" />
+</div>
+
+
+###  Подробнее
+
+Beyond The Darkness - это мрачная история, которая окунёт вас в детские кошмары, даже если вы успели о них позабыть. Помогите маленькой девочке Милли сразиться с ужасами, таящимися во тьме, и найдите её пропавшую семью. Вы окажетесь причудливых мирах воспоминаний, искажённых страхом и отчаянием, а вашим единственным оружием станет свет маленькой лампы…Тип издания: RepackРазработчик: My Little StudioЖанр: Приключенческие игры, ИндиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D4085F7C3DB4BF2AA6E6B2A0BB8601E306450E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760742   (37073) от 16.11.2024
+
+Dave the Diver (2023) [Ru/Multi] (1.0.3.1535/dlc) Repack Wanterlude
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37073.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dave the Diver - это казуальная приключенческая RPG для одного игрока, в которой днем проводятся глубоководные исследования и рыбалка, а ночью - управление суши-рестораном. Присоединяйтесь к Дэйву и его причудливым друзьям, которые стремятся раскрыть секреты таинственной Голубой бездны. Исследуйте и разгадывайте тайны в глубинах Голубой бездны днем и управляйте успешным (   Читать дальше...   )Тип издания: RepackРазработчик: MINTROCKETЖанр: Adventure, CasualЯзык субтитров: Русский, Английский, Корейский, Японский и другиеЯзык интерфейса: Русский, Английский, Корейский, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2AAEC2B703087C6845B1B508A44FD236CB77AF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103559   (37044) от 17.11.2024
 
 Leisure Suit Larry 7: Love for Sail! / Ларри 7: Секс под парусом (1996) [En] (1.01_v3) License GOG
@@ -6,7 +84,7 @@ Leisure Suit Larry 7: Love for Sail! / Ларри 7: Секс под парус�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37044.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Potion Permit (2022) [Ru/Multi] (1.5/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37042.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Evil Awaits (2024) [En] (1.0) Scene Skidrow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37002.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Beyond The Darkness (2024) [Ru/En] (Build 16409241) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36981.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ VED (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36915.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ The Oregon Trail (2022) [Ru/Multi] (1.0.33/dlc) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36911.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Depersonalization (2022) [Multi] (2.0.30) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36655.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Disney Dreamlight Valley (2023) [Multi] (1.14.1.990/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36619.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Once Alive (2024) [Ru/Multi] (0.9.9.8) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36599.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Once Alive (2024) [Ru/Multi] (0.9.9.8) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36525.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ A Quiet Place: The Road Ahead (2024) [Ru/Multi] (1.1.0/dlc) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36374.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Sam & Max: Save the World (2020) [Ru/Multi] (2.0.0) License GOG [Remastered]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36230.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Detroit: Become Human (2019) [Ru/Multi] (Build 12158144) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36227.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ The Journey of AutUmn (2024) [Multi] (1.12) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36224.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Heavy Rain (2019) [Ru/Multi] (Build 5236766) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36212.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Beyond: Two Souls (2019) [Ru/Multi] (Build 5117920) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36209.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Sam & Max: Beyond Time and Space (2021) [Multi] (2.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36180.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Beyond Hanwell (2024) [En] (1.1) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36126.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ The Strange City (2024) [Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36082.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Slay the Princess (2023) [Ru/Multi] (1.0z) License GOG [The Pristine Cut]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36073.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ El Hijo - A Wild West Tale (2020) [Ru/Multi] (1.03) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36059.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Rauniot (2024) [Ru/Multi] (1.0.0.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36013.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Beyond The Edge Of Owlsgard (2022) [Multi] (1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36009.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Beyond The Edge Of Owlsgard (2022) [Multi] (1.2) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D47AC1AC89730C44BEF83FF6BD065985102F9CF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762761   (36001) от 27.11.2024
-
-Be Your Cat (2024) [Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36001.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Быть твоим котом" - это настоящая любовная игра, это как жизненный опыт, одна интересная мечта. Мы все хотели бы обладать сверхспособностями, но что бы ты сделал, если бы однажды у тебя были сверхспособности, но не такие, как у Супермена? Что бы ты сделал со своими ограниченными способностями? Как это влияет на окружающих вас людей и меняет их?Подробнее:Тип издания: SceneРазработчик: HKBOIЖанр: Казуальные игры, Инди, Ролевые игры, СимуляторыЯзык озвучки: КитайскийЯзык субтитров: Английский, Китайский (упрощенный, традиционный)Язык интерфейса: Английский, Китайский (упрощенный, традиционный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A281A58A5633D822E8097A7279D50E0BC14EDEE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760579   (35991) от 27.11.2024
-
-Beyond The Darkness (2024) [Ru/En] (Build 16538909) Repack Let'sРlay
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Beyond The Darkness - это мрачная история, которая окунёт вас в детские кошмары, даже если вы успели о них позабыть. Помогите маленькой девочке Милли сразиться с ужасами, таящимися во тьме, и найдите её пропавшую семью. Вы окажетесь причудливых мирах воспоминаний, искажённых страхом и отчаянием, а вашим единственным оружием станет свет маленькой лампы…Тип издания: RepackРазработчик: My Little StudioЖанр: Приключенческие игры, ИндиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE7B045C46185E602AE7C040710CE203CE0739D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762875   (35876) от 28.11.2024
-
-THE MULLER-POWELL PRINCIPLE (2023) [Ru/En] (1.1.5.9) Repack Let'sРlay
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35876.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие игры происходит в 2032 году. Вы — Гарри Герман, сотрудник научной компании Delta Laboratories, которая занималась изучением путешествий между мирами. Вы участвовали в проекте, который должен был принести пользу всему человечеству, но что-то пошло не так. Все, что вы помните, это слова "Принцип Мюллер-Пауэлла". Вам нужно разгадать значение этих (   Читать дальше...   )Тип издания: RepackРазработчик: Three Dots GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97FCA364F7ED091A8C7A343B7C80C85AF130E3F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

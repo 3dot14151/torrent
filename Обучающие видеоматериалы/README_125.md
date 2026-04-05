@@ -1,3 +1,32 @@
+###  Публикация: 1143074   (636933) от 17.06.2017
+
+Виктор Стиннер | Оптимизации, сделавшие Python 3.6 быстрее Python 3.5 (2017) HDTV
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636933.jpg" />
+</div>
+
+
+###  Подробнее
+
+Различные оптимизации сделали Python 3.6 быстрее Python 3.5. Давайте разберём, что и как было сделано.
+
+Python 3.6 превосходит любую другу версию во многих тестах производительности. Мы познакомимся с результатами тестов на Python 2.7, 3.5 и 3.6.
+(   Читать дальше...   )Производство: PSFЖанр: ПрограммированиеПродолжительность: 00:28:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5CE43C689AAB04C74F584A475F8E6EF2C0E4C43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292839   (636904) от 03.04.2019
 
 Видеоуроки по джазовому фортепиано / Online Jazz Piano Lessons (2018) WEBRip [H.264]
@@ -6,7 +35,7 @@
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636904.jpg" />
 </div>
 
 
@@ -34,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636821.jpg" />
 </div>
 
 
@@ -62,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636811.jpg" />
 </div>
 
 
@@ -88,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636532.jpg" />
 </div>
 
 
@@ -115,7 +144,7 @@ Lynda.com | PHP (2012-2014) [PCRec] [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636190.jpg" />
 </div>
 
 
@@ -141,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635010.jpg" />
 </div>
 
 
@@ -167,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634958.jpg" />
 </div>
 
 
@@ -194,7 +223,7 @@ CGcircuit, Matthew Skonicki | Scratch to Substance Volume 4 (2019) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634926.jpg" />
 </div>
 
 
@@ -220,7 +249,7 @@ CGcircuit, Matthew Skonicki | Scratch to Substance Volume 3 (2018) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634918.jpg" />
 </div>
 
 
@@ -246,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634720.jpg" />
 </div>
 
 
@@ -272,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634582.jpg" />
 </div>
 
 
@@ -299,7 +328,7 @@ Neointegral | Саи Гаятри / Sai Gayatri (2012) [H.264] SATRip
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634342.jpg" />
 </div>
 
 
@@ -329,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633831.jpg" />
 </div>
 
 
@@ -356,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633347.jpg" />
 </div>
 
 
@@ -382,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633204.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632941.jpg" />
 </div>
 
 
@@ -436,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632931.jpg" />
 </div>
 
 
@@ -462,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632683.jpg" />
 </div>
 
 
@@ -488,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632674.jpg" />
 </div>
 
 
@@ -514,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632579.jpg" />
 </div>
 
 
@@ -540,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632575.jpg" />
 </div>
 
 
@@ -566,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632569.jpg" />
 </div>
 
 
@@ -592,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630543.jpg" />
 </div>
 
 
@@ -618,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_630350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_630350.jpg" />
 </div>
 
 
@@ -650,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629471.jpg" />
 </div>
 
 
@@ -663,34 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:046740594F2C49072460D8709FD39E691E7C861C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908770   (629464) от 16.06.2015
-
-Яндекс.Events | OWASP Russia Meetup (2014) CamRip [H.264]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629464.jpg" />
-</div>
-
-
-###  Подробнее
-
-OWASP Russia Meetup — встреча российского сообщества специалистов по информационной безопасности. Мероприятие будет интересно как опытным безопасникам, так и тем, кто хочет ближе познакомиться с этим направлением.
-
-OWASP объединяет крупные компании, образовательные организации и частных лиц со всего мира. Участники сообщества пишут статьи и учебные пособия, создают (   Читать дальше...   )Жанр: Компьютерная безопасностьПродолжительность: 02:27:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:992D0803DF67F51B08EAF8E9324A41C277247F67
 ```
 
 https://mybot314.ru/tekegram_catalog/

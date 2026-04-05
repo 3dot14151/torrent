@@ -1,3 +1,55 @@
+###  Публикация: 1702887   (115630) от 26.02.2024
+
+Dying Light 2: Stay Human (2022) [Ru] (1.15.1/dlc) Repack Other s [Reloaded Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115630.jpg" />
+</div>
+
+
+###  Подробнее
+
+Более двадцати лет назад мы пытались побороть этот вирус в Харране... и потерпели поражение. Теперь мы проигрываем вновь. Город - последнее из крупных человеческих поселений - раздирает внутренняя вражда. Цивилизация отброшена во тьму средневековья, но надежда еще жива. Вы скиталец, которому по силам решить судьбу Города, но ваши исключительные способности имеют (   Читать дальше...   )Тип издания: RepackРазработчик: TechlandЖанр: Action, RPG, AdventureЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DD356019D3D6F3E4804509467DDFC0DFACB39EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703220   (115269) от 28.02.2024
+
+Fossilfuel 2 (2024) [Multi] (1.0.1) Repack FitGirl
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115269.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fossilfuel 2 забрасывает игроков в затопленный исследовательский центр на Аляске, кишащий доисторическими хищниками. Джек Аллен, участник злополучной экспедиции, должен проложить свой путь через опасные головоломки, затопленные туннели и пугающую темноту. Вооружившись арсеналом смертоносного оружия, геймеры прокладывают себе путь через динозавров в жутких деталях (   Читать дальше...   )Тип издания: RepackРазработчик: DangerousBob Studio LLCЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE097DAFCD65F3D3B3DE7C42F2F390F34AF659F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703625   (114906) от 01.03.2024
 
 WRATH: Aeon of Ruin (2019) [Ru/Multi] (1.5) Repack FitGirl
@@ -6,7 +58,7 @@ WRATH: Aeon of Ruin (2019) [Ru/Multi] (1.5) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114906.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Hospital of the Undead (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114574.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Fida Puti Samurai (2022) [En] (1.0b) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112672.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Deadlink (2022) [Ru/Multi] (1.2.32484) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104418.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Sniper Elite [En/Ru] (RePack) 2005 l R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101688.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ Sker Ritual (2022) [Ru/Multi] (1.3.2.25602/dlc) Repack Let'sРlay [Anniversary E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100808.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ System Shock (2023) [Ru/Multi] (1.3.0.19128) Repack dixen18 [Remake]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94588.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ CULTIC (2022) [Ru/En] (Build 20066947/dlc) Repack Other s [Complete Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91303.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ Tom Clancy's Rainbow Six 3: Raven Shield и Athena Sword [Ru] (RePack) 2003 | Pi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89964.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ Terminator 3: War of The Machines / Терминатор 3: Война маши�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89138.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ Robocop / Робокоп [Ru] (L) 2003
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87911.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87910.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ Call of Duty: Modern Warfare 2 + All DLC + AlterIWnet [Ru] (RePack) 2009 | R.G. 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87079.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ Witchaven [En] (RePack) 1995 | Pilotus
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87009.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ Medal of Honor. Limited Edition / Medal of Honor. Расширенное изд�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86871.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ Painkiller: Recurring Evil / Painkiller: Абсолютное зло (2012) [Ru]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86236.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ World War Zero / Iron Storm / Коммандос: В тылу врага [En] (L
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85785.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ Vietcong / Вьетконг [Ru/En] (RePack) 2003 | Pilotus
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85191.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ FireStarter [Ru] (RePack) 2003 | Pilotus
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85187.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ Warhammer 40 000: Fire Warrior [Ru] (L) 2003
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84806.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ Tom Clancy's The Sum of All Fears / Цена страха [Ru] (L) 2002
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84178.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ Battlefield Vietnam [En/Ru] (P) 2004
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84010.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ Battlefield: Bad Company 2 + DLC Vietnam [Ru] (RePack/795745) 2010 | Naitro
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84006.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ Left 4 Dead 2  [Ru/En] (Steam-Rip/2.1.0.2 build 4777) 2009 l R.G. Origins
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83397.jpg" />
 </div>
 
 
@@ -622,60 +674,6 @@ Left 4 Dead 2  [Ru/En] (Steam-Rip/2.1.0.2 build 4777) 2009 l R.G. Origins
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:239BF64451E74ECAA52F35CF8546F41AB56266D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462811   (80222) от 05.03.2012
-
-Depth Hunter [Multi5/-] (RePack/1.10) 2011 | R.G. ReCoding
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80222.jpg" />
-</div>
-
-
-###  Подробнее
-
-Depth Hunter - симулятор подводной охоты, позволяющий в полной мере испытать все прелести экстремальной спортивной рыбалки с острогой, а также охоты за подводными пейзажами и сокровищами.
-
-(   Читать дальше...   )Тип издания: RePackЖанр: Sport (Hunt/Fish) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Немецкий, французский, Итальянский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1EFDECE3D7A529DB665BD50B0530CB2C71D9202
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779784   (70609) от 15.02.2025
-
-Roboquest (2020) [Ru/Multi] (1.6.0-353) Repack Pioneer
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70609.jpg" />
-</div>
-
-
-###  Подробнее
-
-Roboquest - это динамичный рогалик от первого лица, в который можно играть как в одиночку, так и в кооперативном режиме на двоих. Прыгайте в стальные башмаки мощного гипермобильного робота и сражайтесь так, как никогда раньше. Бегите по случайно сгенерированной среде на неузнаваемой Земле. Выжженные каньоны и яркие города, наполненные секретами, улучшениями и врагами. (   Читать дальше...   )Тип издания: RepackРазработчик: RyseUp StudiosЖанр: Экшны, От первого лица, RoguelikeЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46DECF6B1B5FC5BFF6C52F6495203B23B1019100
 ```
 
 https://mybot314.ru/tekegram_catalog/

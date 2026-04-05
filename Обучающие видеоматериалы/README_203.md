@@ -1,3 +1,30 @@
+###  Публикация: 1563039   (212657) от 12.07.2022
+
+Rebelway, Saber Jlassi | Transferring High-Res Assets from Houdini to Unreal Engine (2021) WEB-DL [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212657.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом туториале вы узнаете все необходимое, чтобы правильно импортировать ассеты из Houdini в Unreal, включая UV, карты и многое другое. Мы даже погрузимся в тему процедурных UV-координат для меша.
+Это бесплатный мастер-класс по импорту ресурсов с высоким разрешением из Houdini в Unreal Engine. Если туториал оказался вам полезен, мы настоятельно рекомендуем проверить (   Читать дальше...   )Производство: RebelwayЖанр: Houdini, UnrealEngineЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 01:26:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65FF19A0BE3B083430E2E8E329B174F05461D524
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1563065   (212655) от 12.07.2022
 
 Художник Онлайн, Роман Круглов | Авторский курс Романа Круглова (2022) WEB-DL [AD] [RU]
@@ -6,7 +33,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212655.jpg" />
 </div>
 
 
@@ -34,7 +61,7 @@ Rebelway, Urban Bradesko | CG Cinematography 101 (2021) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212653.jpg" />
 </div>
 
 
@@ -61,7 +88,7 @@ Rebelway, Saber Jlassi | Mastering Destruction And FX In Houdini (2019) PCRec [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212647.jpg" />
 </div>
 
 
@@ -87,7 +114,7 @@ Rebelway, Jayden Paterson | Master The Art of Magical FX in Houdini (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212642.jpg" />
 </div>
 
 
@@ -116,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212625.jpg" />
 </div>
 
 
@@ -142,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212623.jpg" />
 </div>
 
 
@@ -168,7 +195,7 @@ Udemy, Victor Yamakado | Master Character Modeling with Victor Yamakado (2020) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212615.jpg" />
 </div>
 
 
@@ -196,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212609.jpg" />
 </div>
 
 
@@ -222,7 +249,7 @@ HOP&SCOTCH | Культовый британский акцент (2022) WEB-DL 
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212607.jpg" />
 </div>
 
 
@@ -249,7 +276,7 @@ Rebelway, Corbin Mayne | Math for fx Artists (2020) PCRec [EN/ RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212589.jpg" />
 </div>
 
 
@@ -275,7 +302,7 @@ CGcircuit, VFX Magic | Houdini Crack Effect (2021) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212587.jpg" />
 </div>
 
 
@@ -301,7 +328,7 @@ Rebelway, Saber Jlassi | Mastering Pyro FX In Houdini Level 1 (2018) PCRec [EN, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212582.jpg" />
 </div>
 
 
@@ -330,7 +357,7 @@ JavaBegin, Тимур Батыршинов | Авторизация и рабо�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212540.jpg" />
 </div>
 
 
@@ -359,7 +386,7 @@ Yiihuu, Jungwon Park | “Liu yifei likeness as Mulan” for Photorealistic rend
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212506.jpg" />
 </div>
 
 
@@ -385,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212471.jpg" />
 </div>
 
 
@@ -412,7 +439,7 @@ Mold3D, J Hill | Character Creation for Video Games with J Hill (2019) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212431.jpg" />
 </div>
 
 
@@ -440,7 +467,7 @@ Wingfox, Alexander Sköld | The Lost Soldier- Environment Concept Design (2020) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212417.jpg" />
 </div>
 
 
@@ -468,7 +495,7 @@ Wingfox, Andre Pires | UE4 for Real-Time Hair Course (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212409.jpg" />
 </div>
 
 
@@ -497,7 +524,7 @@ BrainsCloud, Дмитрий Валак | Вёрстка сайта трансп�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212397.jpg" />
 </div>
 
 
@@ -526,7 +553,7 @@ ItGid, Александр Лущенко | Методы массивов JavaScr
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212393.jpg" />
 </div>
 
 
@@ -553,7 +580,7 @@ Playfingerstyle, Стэн Кэрил | Прогрессивный Фингерс
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212371.jpg" />
 </div>
 
 
@@ -581,7 +608,7 @@ WebCademy, Никита Юдаев | PRO верстка. Командная ра
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212364.jpg" />
 </div>
 
 
@@ -610,7 +637,7 @@ hipflask, Fraser Shiers | Houdini Geometry Essentials (Все части) (2020)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212358.jpg" />
 </div>
 
 
@@ -639,7 +666,7 @@ Rebelway, Saber Jlassi | Advanced Asset Creation In Houdini For VFX And Games (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212356.jpg" />
 </div>
 
 
@@ -665,7 +692,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212343.jpg" />
 </div>
 
 
@@ -679,35 +706,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4CE54110BA398F2E412FFCBE281136F61C8D384
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565106   (212303) от 22.07.2022
-
-Школа гитары Андрея Аксёнова, Андрей Аксёнов | Фингерстайл Аранжировка (2022) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Музыка (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для тех, кто мечтает делать собственные гитарные аранжировки, выступать с ними и завоевывать интернет.
-
-36 видео-уроков
-Уровень: средний/продвинутый(   Читать дальше...   )Производство: Школа гитары Андрея АксёноваЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 04:04:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D9F3E6B8EBF8966FFCDF7AD72DD70E4594879B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

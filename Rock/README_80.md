@@ -6,7 +6,7 @@ Little Feat - Sailin' Shoes (1972) 2CD, Deluxe Edition, Remaster, 2023, Rhino - 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227882.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Paul McCartney & Wings - Wild Life (1971) Remastered, 2018, Capitol Records [MP3
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227834.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Richard Wright - Wet Dream (1978) Remix by Steven Wilson, 2023, Rhino [MP3|320 K
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227668.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Sweet - Give Us A Wink (Alternative Mixes & Demos) (2022)  [MP3|320 Kbps] <Rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227523.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ Kozmik Landing - Distant Land (2019) [MP3|320 Kbps] <Psychedelic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227519.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Eagles - Hell Freezes Over (1994) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227001.jpg" />
 </div>
 
 
@@ -185,7 +185,7 @@ Blake Hobson - 2 Albums (2020-2022) [MP3|320 Kbps] <Progressive Rock, Progressiv
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226927.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Richard Marx - Paid Vacation (1993) [OGG Vorbis|480 Kbps] <Rock, Pop, Soft Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226906.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Pink Floyd - The Later Years: 1987-2019 (2019) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226879.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ The Samurai Of Prog - The Spaghetti Epic 4 (2022) [MP3|320 Kbps] <Progressive Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226849.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Madder Mortem - 7 Albums (2006-2019) [MP3|320 Kbps] <Progressive Rock, Avantgard
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226726.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ John Mellencamp - Other People's Stuff (2018) [MP3|320 Kbps] <Rock, Blues>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226562.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Roxette - The RoxBox! (A Collection Of Roxette's Greatest Songs) (2015) Box Set:
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226365.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Mamooth Band - First Steps (2022) [MP3|320 Kbps] <Hard Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226161.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Doomdozer - Live in Industrial Plate (Live) (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_226086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_226086.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Meat Puppets - Santa Monica (1988) live, Remaster, 2023, [MP3|320 Kbps] <Pop Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_225883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_225883.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Aerolith - Megalorama Part II (2023) [MP3|320 Kbps] <Progressive Rock, Space Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_225869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_225869.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Sunstain - Modern Nature (2022) [MP3|320 Kbps] <Heavy Rock, Stoner, Psych>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225743.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ dArtagnan - Verehrt und verdammt (2017) [MP3|320 Kbps] <Musketier-Rock, Folk Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225345.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ GNOB - 2 Albums (2018-2023) [MP3|320 Kbps] <Heavy Psych, Fuzz, Stoner>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224938.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Captain Caravan - 2 Albums (2018-2022) [MP3|320 Kbps] <Heavy Rock, Stoner, Sludg
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224869.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Stefan Kaiser - 6 Albums (2018-2023) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224860.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Rifle - Repossessed (2022) [MP3|320 Kbps] <Heavy Rock, Psych Stoner, Punk>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224859.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Realisea - 2 Albums (2020-2022) [Mp3|320 kbps] <Progressive Rock, Neo-Prog, Fema
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224800.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ Silver Nightmares - 2 Albums (2020-2022) [MP3|320 Kbps] <Crossover Prog, Prog-Me
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224787.jpg" />
 </div>
 
 
@@ -735,7 +735,7 @@ Red Mess - 2 Albums (2017-2022) [MP3|320 Kbps] <Heavy Rock, Stoner, Psych,>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224758.jpg" />
 </div>
 
 

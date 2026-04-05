@@ -1,58 +1,3 @@
-###  Публикация: 1857252   (1059551) от 05.03.2026
-
-Анастасия Невзорова | Будущее Chat GPT. Тенденции и прогнозы (2025) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059551.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данном издании использованы изображения, сгенерированные системой DALL-E.
-В этой электронной книге вы найдете эксклюзивную информацию о будущем ChatGPT и его развитии. Узнайте о ключевых тенденциях и прогнозах, которые будут определять путь искусственного интеллекта в ближайшие годы. Эта книга предназначена для всех, кто интересуется новыми технологиями и стремится (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: СамиздатФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:308780AA0A50544E00A8AA7A5A38638BEC804A9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856333   (1059090) от 28.02.2026
-
-Андрей Столяров | Программирование введение в профессию. В 3-х томах + задачи и этюды. 2,91 издание [4 книги] (2025) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый том серии «Программирование: введение в профессию» включает две основные части.
-
-В первую часть книги вошли избранные сведения из истории вычислительной техники, обсуждение некоторых областей математики, непосредственно используемых программистами (таких как алгебра логики, комбинаторика, позиционные системы счисления), математических основ программирования (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: МАКС ПрессФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39FEDDA9D56C479C9681607C1A4CF08EA9ED181A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856324   (1058953) от 27.02.2026
 
 Roberto Infante | AI Agents and Applications. With LangChain, LangGraph, and MCP (2026) [PDF] [EN]
@@ -61,7 +6,7 @@ Roberto Infante | AI Agents and Applications. With LangChain, LangGraph, and MCP
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058953.jpg" />
 </div>
 
 
@@ -89,7 +34,7 @@ Tilman M. Davies | The Book of R. A First Course in Programming and Statistics. 
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058946.jpg" />
 </div>
 
 
@@ -117,7 +62,7 @@ Mabrouk Mahdhi | Mastering ASP.NET Core 10. Web Applications Made Easy with the 
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058939.jpg" />
 </div>
 
 
@@ -145,7 +90,7 @@ Audrey Roggenkamp, Ian Rutkowsky, Nita Rutkosky | Benchmark Series, Microsoft Ex
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058656.jpg" />
 </div>
 
 
@@ -171,7 +116,7 @@ Michael McDonald | 200+ Excel Formulas and Functions. The go-to-guide to master 
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058655.jpg" />
 </div>
 
 
@@ -200,7 +145,7 @@ Ritu Arora | Mastering Advanced Excel - With ChatGPT Integration. Learn Formulas
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058654.jpg" />
 </div>
 
 
@@ -229,7 +174,7 @@ Robinson Cortez | Microsoft Office 365 Bible 2024. Harness the Full Power of Off
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058653.jpg" />
 </div>
 
 
@@ -257,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058652.jpg" />
 </div>
 
 
@@ -283,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058651.jpg" />
 </div>
 
 
@@ -309,7 +254,7 @@ Roshan Gavandi | Building Enterprise-Ready Azure Infrastructure. Learn Security,
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058650.jpg" />
 </div>
 
 
@@ -335,7 +280,7 @@ Vaskaran Sarcar | Python Bootcamp. A Rapid Crash Course Featuring Q&A Sessions, 
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058062.jpg" />
 </div>
 
 
@@ -363,7 +308,7 @@ Artur Guja, Marlena Siwiak, Marian Siwiak | Starting Data Analytics with Generat
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058061.jpg" />
 </div>
 
 
@@ -391,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058060.jpg" />
 </div>
 
 
@@ -417,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058031.jpg" />
 </div>
 
 
@@ -443,7 +388,7 @@ Benjamin Bennett Alexander | 50 Days of Data Analysis with Python: The Ultimate 
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058030.jpg" />
 </div>
 
 
@@ -472,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058024.jpg" />
 </div>
 
 
@@ -499,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058023.jpg" />
 </div>
 
 
@@ -525,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058022.jpg" />
 </div>
 
 
@@ -551,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058021.jpg" />
 </div>
 
 
@@ -577,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1057424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1057424.jpg" />
 </div>
 
 
@@ -603,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057345.jpg" />
 </div>
 
 
@@ -629,7 +574,7 @@ Greg Wilson | Software Design by Example. A Tool-Based Introduction with Python.
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057343.jpg" />
 </div>
 
 
@@ -655,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057306.jpg" />
 </div>
 
 
@@ -681,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056894.jpg" />
 </div>
 
 
@@ -692,6 +637,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD4644F93FD7EB73705F2A165CE09D547E151BB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852868   (1056564) от 12.02.2026
+
+Deepshikha Bhati, Fnu Neha, Angela Guercio и др. | A Beginner’s Guide to Generative AI. An Introductory Path to Diffusion Models, ChatGPT, and LLMs (Synthesis Lectures on Computer Science) (2025) [ ...
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056564.jpg" />
+</div>
+
+
+###  Подробнее
+
+This book is the essential guide for anyone curious about AI’s creative power. In the rapidly evolving landscape of artificial intelligence, generative AI stands out as one of the most transformative technologies of our time. Designed for beginners and requiring no prior knowledge of AI, this book breaks down the fundamentals of generative AI, from text and image (   Читать дальше...   )Жанр: Speech & Audio Processing, Database Storage & Design, Artificial IntelligenceЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F67DD246704934EA59A6B3604AE37FEB837FF8C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852864   (1056563) от 12.02.2026
+
+В.М. Фомичев | Элементы теории информации в защите информации. Учебное пособие (2021) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056563.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии систематически изложены основы математической теории информации, для ее разделов, относящихся к математическим моделям источников сообщений и к методам кодирования, подчеркивается связь с вопросами криптографической защиты информации. Для закрепления знаний в каждой главе даны задачи, упражнения и контрольные вопросы.Жанр: Компьютерная литература, КриптографияИздательство: ПрометейФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E361F3EB857BE7F43E0A16096E15D881B519761
 ```
 
 https://mybot314.ru/tekegram_catalog/

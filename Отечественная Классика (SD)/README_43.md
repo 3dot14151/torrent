@@ -1,3 +1,56 @@
+###  Публикация: 189217   (313002) от 27.11.2014
+
+Калина красная (1973) DVDRip [полная реставрация]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выйдя из тюрьмы, Егор Прокудин, по кличке Горе, решает податься в деревню, где живет синеглазая незнакомка Люба, с которой он переписывался - ведь надо немного переждать и осмотреться. Но жизнь в деревне рушит все планы Егора, и он решает навсегда порвать с прошлым. Теперь у него есть друзья, работа. Он любит Любу. Однако дружки Егора упорно не отпускают его…Производство: СССР / МосфильмЖанр: ДрамаРежиссер: Василий ШукшинАктеры: Василий Шукшин, Лидия Федосеева-Шукшина, Иван Рыжов, Мария Скворцова, Алексей Ванин, Мария Виноградова, Афимья Быстрова, Лев Дуров, Николай Граббе, Георгий Бурков, Татьяна Гаврилова, Наталья ГвоздиковаПродолжительность: 01:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E00B598F17B3D3DC2E24E151C78A1B959D45115
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 583169   (312665) от 02.12.2012
+
+Конец «Сатурна» (1967) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Художественный фильм по роману Василия Ардаматского, продолжение фильма «Путь в «Сатурн». Вторая часть трилогии. Продолжение в фильме «Бой после победы».
+Получив от разведчиков сведения о деятельности немецких диверсионных групп, советская контрразведка повела игру по дезинформации противника. Деятельность разведцентра «Сатурн» была нейтрализована.Жанр: Военный, Драма, ПриключенияРежиссер: Виллен АзаровАктеры: Михаил Волков, Георгий Жженов, Евгений Кузнецов, Аркадий Толбузин, Владимир Кашпур, Владимир Муравьев, Николай Граббе, Бруно Фрейндлих, Владимир Покровский, Людмила Шапошникова, Григорий Гай, Николай Прокопович, Михаил Глузский, Людмила МаксаковаПродолжительность: 01:31:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EABD39AEB9B3566854C8555585EC1CE09A4DC0CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1181606   (311711) от 12.11.2017
 
 Семь стариков и одна девушка (1969) TVRip [H.264]
@@ -6,7 +59,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311711.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311649.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311113.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310789.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_310696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_310696.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310596.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310513.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308458.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308030.jpg" />
 </div>
 
 
@@ -241,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306417.jpg" />
 </div>
 
 
@@ -267,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306201.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306069.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306064.jpg" />
 </div>
 
 
@@ -349,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305988.jpg" />
 </div>
 
 
@@ -375,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305956.jpg" />
 </div>
 
 
@@ -401,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_305955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_305955.jpg" />
 </div>
 
 
@@ -427,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_305953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_305953.jpg" />
 </div>
 
 
@@ -453,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304125.jpg" />
 </div>
 
 
@@ -479,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303972.jpg" />
 </div>
 
 
@@ -505,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303862.jpg" />
 </div>
 
 
@@ -531,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303858.jpg" />
 </div>
 
 
@@ -557,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303740.jpg" />
 </div>
 
 
@@ -583,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303156.jpg" />
 </div>
 
 
@@ -609,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302930.jpg" />
 </div>
 
 
@@ -622,60 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0328340C4AEE9D6CED1F8E756C3E798C10B442B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 419927   (302584) от 07.12.2011
-
-Фрак для шалопая (1979) TVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302584.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двенадцатилетний Женька Грачев бежит из пионерлагеря, чтобы успеть встретиться со своим братом, служащим в армии, которого вот-вот переведут в другое место. В дороге он сталкивается с непутевым тридцатилетним трактористом Гришкой Мякишевым, которому во что бы то ни стало необходимо раздобыть фрак, чтобы провернуть одну авантюру. Отношения у двух шалопаев поначалу (   Читать дальше...   )Жанр: Комедия, ПриключенияРежиссер: Эльдор УразбаевАктеры: Михаил Егоров, Виктор Ильичев, Леонид Куравлев, Александр Лебедев, Артем Карапетян, Татьяна Ташкова, Антонина Богданова, Елизавета Никищихина, Николай Парфенов, Владимир Тихонов, Владимир Герасимов, Наталья Казначеева, Николай Погодин, Максим ПучковПродолжительность: 01:05:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D323DFE8F1E36B1887CBF574EBF729A15B6AAFB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 104615   (302354) от 07.12.2011
-
-Подвиг разведчика (1947) [DVDRip]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302354.jpg" />
-</div>
-
-
-###  Подробнее
-
-Советский разведчик Алексей Федотов (Павел Кадочников) под именем Генриха Эккерта получает задание: в оккупированной Виннице добыть секретную переписку генерала фон Кюна с гитлеровской ставкой. Блестящий профессионал не только выполняет задание, но и, возвращаясь на Родину, «прихватывает» самого генерала.
-
-Прототипом главного героя считается советский разведчик Николай (   Читать дальше...   )Жанр: ВоенныйРежиссер: Борис БарнетАктеры: Павел Кадочников,  Амвросий Бучма,  Виктор Добровольский,  Дмитрий Милютенко, Елена ИзмайловаПродолжительность: 01:27:35
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

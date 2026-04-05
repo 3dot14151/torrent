@@ -1,3 +1,30 @@
+###  Публикация: 1797250   (18262) от 15.05.2025
+
+George Vondriska | Создать невозможный стол (2024) WEBRip
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18262.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я давно хотел построить невозможный стол и наконец сделал это. Такие столы также называют тенсегрити-столами. Они отлично подходят для разговора, потому что кажется, что стол ничем не поддерживается.
+Мой стол использует слэбы с живым краем для верхней и нижней части, что добавляет еще одну визуально интересную деталь столу. В качестве альтернативы вы можете склеить (   Читать дальше...   )Жанр: ДеревообработкаЯзык озвучки: Английский, Русский (Отдельная дорожка, перевод - AI)Продолжительность: 01:17:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:334B2F1939CECC59D2A371859DD3A3E92E4DE10B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1797424   (18117) от 16.05.2025
 
 Stuart Loughridge | Портретный эскиз (2023) WEBRip [EN, RU]
@@ -6,7 +33,7 @@ Stuart Loughridge | Портретный эскиз (2023) WEBRip [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18117.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ Nicki LaFoille | Сумка с разделителем (2025) WEBRip [EN, RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18095.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ Udemy, Rick Crisci | Beginner Introduction to Containers, Docker, and Kubernetes
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18047.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ Gerardo Escamilla | Быстрый набросок (2025) WEBRip [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18032.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ Cynthia Nims | Французская домашняя кухня: Основн�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17877.jpg" />
 </div>
 
 
@@ -136,7 +163,7 @@ Illene Sofranko | Консервирование 101 (2025) WEBRip [EN, RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17790.jpg" />
 </div>
 
 
@@ -162,7 +189,7 @@ Nicki LaFoille | Трикотажное ноу-хау + толстовка с к
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17778.jpg" />
 </div>
 
 
@@ -188,7 +215,7 @@ Sara Bendrick | Выходные в саду (2021) WEBRip [EN, RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17765.jpg" />
 </div>
 
 
@@ -214,7 +241,7 @@ Craig Olson | Стрижка овец (2020) WEBRip [EN, RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17694.jpg" />
 </div>
 
 
@@ -240,7 +267,7 @@ Robin Miller | Давай устроим поздний завтрак (2024) WE
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17692.jpg" />
 </div>
 
 
@@ -266,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17650.jpg" />
 </div>
 
 
@@ -292,7 +319,7 @@ Katie Workman & Robin Miller | Готовим в будние вечера (2024
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17583.jpg" />
 </div>
 
 
@@ -318,7 +345,7 @@ Susan Rubin | Основы работы с цветными карандашам
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17408.jpg" />
 </div>
 
 
@@ -344,7 +371,7 @@ ZJ Humbach | Организация идеальной студии для ши�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17380.jpg" />
 </div>
 
 
@@ -371,7 +398,7 @@ Kerry Brooks | Яркие портреты цветными карандашам
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17368.jpg" />
 </div>
 
 
@@ -397,7 +424,7 @@ Susan Rubin | Библиотека для начинающих: Цветные �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17272.jpg" />
 </div>
 
 
@@ -423,7 +450,7 @@ Maude Hirst | "Путь к Любви к Себе": Медитационный �
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16892.jpg" />
 </div>
 
 
@@ -449,7 +476,7 @@ Mental Room, Сергей Бубович | Стрессовая коммуник
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16881.jpg" />
 </div>
 
 
@@ -478,7 +505,7 @@ Mental Room, Сергей Бубович | Face Hunter. Чтение эмоци�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16878.jpg" />
 </div>
 
 
@@ -504,7 +531,7 @@ Stepik, Сергей Бубович | Искусство чтения челов
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16876.jpg" />
 </div>
 
 
@@ -530,7 +557,7 @@ Stepik, Сергей Бубович | Менталист: искусство у�
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16873.jpg" />
 </div>
 
 
@@ -556,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16773.jpg" />
 </div>
 
 
@@ -582,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16761.jpg" />
 </div>
 
 
@@ -611,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16639.jpg" />
 </div>
 
 
@@ -639,7 +666,7 @@ Udemy, Виктор Быстров | Как БЫСТРО находить люд
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16460.jpg" />
 </div>
 
 
@@ -650,32 +677,6 @@ Udemy, Виктор Быстров | Как БЫСТРО находить люд
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1267B0808667BF0E6E58606797FA9E6561210998
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799595   (16391) от 29.05.2025
-
-Владимир Рябов | Манипуляция и лидерство (2024) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Психология и саморазвитие (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс — уникальный синтез базовых знаний нейролингвистического программирования и методов боевой коммуникации. На нём Вы овладеете всеми известными методами психологического давления, а также способами защиты от любого воздействия на психику человека.Жанр: видеокурс, обучающий курс, психология общения, межличностные коммуникации, НЛПЯзык озвучки: русскийПродолжительность: 09:39:05Реклама: cторонние вставки и наложения на видео (водяной знак спонсора)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E84DA2245A772258E85CDE1F218268A24B056A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,159 @@
+###  Публикация: 1088155   (143234) от 29.12.2016
+
+Вести в 20-00. Большие Вести. Россия 1 (29.12.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вечерний выпуск «Вестей» посвящен главным событиям дня. «Вести» — информационная телевизионная программа Всероссийской государственной телерадиокомпании. Выходит в эфир на каналах «Россия-24», «Россия-1», «РТР-Планета» и «РТР-Беларусь». Производятся Дирекцией информационных программ Государственной телекомпании «Россия». Самые последние новости в России и в мире (   Читать дальше...   )Телекомпания: Россия 1Жанр: ТелепередачаПродолжительность: 00:50:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52A241179952C7D2A509C9BE8863C67DA0037B75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088087   (143151) от 29.12.2016
+
+Мода с риском для жизни (29.12.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143151.jpg" />
+</div>
+
+
+###  Подробнее
+
+За пятнадцать лет в Екатеринбурге произошло пять жестоких и загадочных убийств девушек, близких к модной индустрии. Сначала в лесу нашли изуродованное тело 24-летней модели Олеси Демидовой. Второй жертвой стала дизайнер Наталья Боханцева. Модель Анастасию Кирикович искали месяц - полусожжённое тело нашли в лесу. Четвёртой жертвой, найденной за городом, была модель (   Читать дальше...   )Телекомпания: ТВ-ЦентрЖанр: ДокументальныйПродолжительность: 00:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC05C18ED8F969A4494077226A035C2560B4B2C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088079   (143135) от 29.12.2016
+
+Место встречи. Ще не вмерла Украина? (29.12.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Общественно-политические и пропагандистские ток-шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143135.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый день по будням гости в студии вместе с ведущими будут в прямом эфире разбирать наиболее актуальные темы, которые подбрасывает сама жизнь. Все, что волнует зрителей, — от сезонных эпидемий до военной операции в Сирии — может стать поводом для обсуждения.В этом выпуске: Что для Украины Майдан, то для России госпереворот? Почему Надежда Савченко осталась без «Батькивщины»? Зачем Петру Порошенко война на Донбассе? И как украинцы остались без Деда Мороза и Снегурочки?Телекомпания: НТВЖанр: Общественно-политическая программа, телепередачаПродолжительность: 01:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:429C25DF934C0F4BCB8741E21DC465129363146F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088132   (143114) от 29.12.2016
+
+60 минут. Налог на тунеядство в России 2017 все-таки может быть введен?! (29.12.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Общественно-политические и пропагандистские ток-шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143114.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ток-шоу с Ольгой Скабеевой и Евгением Поповым. В новом социально-политическом ток-шоу каждый день ведущие и гости программы обсуждают главную тему текущего дня. В студию приглашаются политические и общественные деятели, эксперты по актуальной проблематике.Телекомпания: Россия 1Жанр: Телепередача, политическое ток-шоуПродолжительность: 01:01:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77E129311AD894578848B65F2E4B5041D6558D7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088073   (143093) от 29.12.2016
+
+Время покажет (29.12.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новогодний стол. Новый год — праздник, который россияне проведут в кругу семьи и друзей. В эту ночь праздничный стол принято накрывать щедро — салаты, горячее, закуски и десерт. Однако праздничное настроение могут омрачить неприятные последствия. Риск отравиться в новогодние праздники вырастает в полтора раза. Впрочем, проблемы с пищеварением могут быть вызваны и (   Читать дальше...   )Телекомпания: Первый каналЖанр: Тв-ШоуПродолжительность: 01:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:015DFB2C6D4CDB9BE914EE66F50DDE1772EC1D89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087902   (143088) от 29.12.2016
+
+Вечерний Ургант (2016.12.28) SATRip (cезон 10, выпуск 76)
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143088.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:30:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B82C04F011F64FD3BC1A7A4485FF4ADAB714B938
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 969302   (143030) от 29.12.2015
 
 Американский секрет советской бомбы (2015) IPTVRip (2 серии из 2)
@@ -6,7 +162,7 @@
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143030.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143020.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142969.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142942.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142917.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142844.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религии и культы (Док/TV)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142810.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142695.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142662.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142612.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142520.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142291.jpg" />
 </div>
 
 
@@ -319,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142256.jpg" />
 </div>
 
 
@@ -345,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142146.jpg" />
 </div>
 
 
@@ -371,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142103.jpg" />
 </div>
 
 
@@ -397,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142092.jpg" />
 </div>
 
 
@@ -423,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142033.jpg" />
 </div>
 
 
@@ -449,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142018.jpg" />
 </div>
 
 
@@ -475,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141892.jpg" />
 </div>
 
 
@@ -501,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141857.jpg" />
 </div>
 
 
@@ -512,162 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFA6372B25CC65995277EC0DF8703B89D918C8ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195442   (141825) от 29.12.2017
-
-Эволюция Метала / Metal Evolution (2011-2014) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-12 из 12)
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждая из 12 серий этого проекта от канадских документалистов Сэма Данна и Скота Макфадьена, будет посвящена отдельной специфической области звука и культуры хэви-метал. Премьерный эпизод «Эволюции метала» поведает об эпохе до метала и о самых ранних зачатках метала, которые можно услышать в музыке Led Zeppelin, Deep Purple и Джими Хендрикса. В последующих эпизодах (   Читать дальше...   )Производство: КанадаЖанр: ДокументальныйРежиссер: Sam Dunn, Scot McFadyenПеревод: Переводман/одноголосый закадровый, любительский (М.Чадов)Субтитры: Русские (+ форсированные / анимированные)Продолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:957791715D3D0CC740144F723EC260960683A692
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348767   (141714) от 29.12.2019
-
-Первая передача на НТВ. Автомобильная передача (29.12.2019) SATRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141714.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Первая передача» — это познавательный проект про автомобилистов и для автомобилистов — для тех, что хочет из простого автолюбителя стать автопрофессионалом!Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:26:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:109B7F1ACD5D7D4131F1C0C9C980D45D8F26D35E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348769   (141712) от 29.12.2019
-
-Чудо техники с Сергеем Малозёмовым (29.12.2019) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141712.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прощай, декада! «Чудо техники» и Сергей Малозёмов подвели итоги уходящего десятилетия и вспомнили самые знаковые и технологичные события: как светодиодные лампочки смогли затмить все остальные, а роботы стали повседневной реальностью, и почему смартфон заменил собой фотоаппарат, плеер и живое общение, сделав нас цифрозависимыми.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:39:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E33D1D5EAE726B2FB572D4891EA286CCE9E23F49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678780   (141695) от 23.11.2023
-
-Котики / Cat Daddies (2022) WEBRip [H.264]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141695.jpg" />
-</div>
-
-
-###  Подробнее
-
-Истории о домашних питомцах не только смешные и веселые, они рассказывают об ответственности, любви и тепле, которые дарят друг другу пушистые «дети» и их «папы». В частности, зрители познакомятся с бездомным Дэвидом и его котиком Счастливчиком, пожарным котом Флеймом, любимцем профессионального каскадера Туддлсом, а также хвостатыми любимцами учителя, актера, инженера, (   Читать дальше...   )Производство: США / Gray Hat ProductionsЖанр: документальный, фильм о животныхРежиссер: Май ХоанУчастники: Нэйтан Кен, Райан Робертсон, Дэвид Дерст, Уилл Цвайгарт, Джордан Лайд, Питер МаресПеревод: Дублированный (Moygolos)Язык озвучки: РусскийСубтитры: Русские (forced-hardsub)Продолжительность: 01:28:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEA0136C843F0B84BDF1F02695EE802B387919A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520571   (141685) от 28.12.2021
-
-Рождество в гостях у Тюдоров с Люси Уорсли / A Merry Tudor Christmas with Lucy Worsley (2019) WEBRip [H.264/720p-LQ)
-
->>Документалистика и Телепередачи
->>История
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141685.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для нас Рождество – это время традиций, старинных обычаев и символов. Но если мы перенесёмся на 500 лет назад, в эпоху правления Генриха VIII, мы не увидим многое из того, что так важно для современного Рождества. У Тюдоров не было ни рождественских ёлок, ни хлопушек, ни чулок с подарками. А если отбросить все обычаи, придуманные с тех пор, как же выглядело тогда (   Читать дальше...   )Производство: Великобритания, Burning Bright Productions для BBCЖанр: документальный, история, исследованияРежиссер: Петер СуисиПеревод: двуголосый профессиональный (СВ-Дубль)Субтитры: отсутствуютПродолжительность: 00:55:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C2043752B52FD1BDE9B8FE4BCEABCFB7D93587B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348788   (141661) от 29.12.2019
-
-Три Пьеты Микеланджело / Michelangelo's Three Pietas (2016) DVB
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гений Микеланджело вобрал в себя множество талантов, но истинной страстью великого художника был камень. Несмотря на многие достижения Микеланджело, главной темой его творческого пути, образом, к которому он возвращался снова и снова, была Пьета. Образ матери, девы Марии, которая держит на руках тело своего сына, снятого с креста, настолько сильно трогал Микеланджело, (   Читать дальше...   )Производство: Италия, ВеликобританияЖанр: Документальный, искусствоРежиссер: Марко Беллоне, Джованни КонсонниПеревод: Двуголосый закадровый, профессиональный (СВ-Дубль)Субтитры: отсутствуютПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:875FC11A12C28929F55F637BF5BF172DEB81E323
 ```
 
 https://mybot314.ru/tekegram_catalog/

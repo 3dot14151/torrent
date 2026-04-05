@@ -1,136 +1,3 @@
-###  Публикация: 1698457   (118477) от 09.02.2024
-
-Ю.Г. Антонов и др. | Радиотехнические цепи и сигналы. Лабораторный практикум (2011) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представлены описания 14 лабораторных работ, выполняемых при изучении курсов цикла «Радиотехнические цепи и сигналы». Предназначен для студентов факультета радиотехники и телекоммуникаций направлений 210400 «Радиотехника», 210700 «Инфокоммуникационные технологии и системы связи» и 211000 «Конструирование и технология электронных средств».Жанр: РадиотехникаИздательство: СПбГЭТУ «ЛЭТИ»Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2F4AAB4DABE03B17F189F95276D8CB3C12B748F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698556   (118470) от 09.02.2024
-
-Я. Б. Мордкович, Е. А. Соколов | Справочник-определитель карантинных и других опасных вредителей сырья, продуктов запаса и посевного матери­ала (1999) [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дано морфологическое описание жуков-вредителей промышленного сырья и продуктов запаса (более 400 видов, представителей 24 семейств), а также гусениц-вредителей промышленного сырья растительного и живот­ного происхождения, пищевых продуктов, в том числе свежих фруктов и овощей, цветочной рассады, черенков и саженцев плодовых деревьев и кус­тарников (всего 158 видов (   Читать дальше...   )Жанр: Справочник-определительИздательство: КолосФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92A5D95F39648C8F9C7F93E9F672F6AE02C422E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698542   (118430) от 09.02.2024
-
-Н. В. Парахин,  И. В. Кобозев и др. | Кормопроизводство (2006) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изложены биологические и экологические основы лугового и полевого кормопроизводства. Приведены классификация и характеристика природных кормовых угодий. Рассмотрены ресурсосберегающие технологии со­здания и использования высокопродуктивных сенокосов и пастбищ, заго­товки и хранения различных видов кормов. Уделено особое внимание основам семеноводства кормовых культур. (   Читать дальше...   )Жанр: УчебникИздательство: КолосСФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DC612225DEFC52469ED6435E4BFF15980387A67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698635   (118300) от 10.02.2024
-
-Н. Коновалова и др. | От ЭР-200 до "Сапсана" (2023) [DJVU, PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118300.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассматривается история развития скоростного железнодорожного сообщения в СССР и России. Рассказывается о создании и развитии техники для высокоскоростного движения.
-И конечно о людях, которые рарабатывали ее, внедряли и обеспечивали ее эксплуатацию.
-Книга может быть использована как учебное пособие для дополнительного образования по истории железных дорог.Жанр: история техникиИздательство: Издательский дом "ОМ-Экспресс"Формат: DJVU, PDFКачество: Обработанный скан + OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D7E977DF9B40BC5DCB085F4AADF86DEBC244C25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699146   (118160) от 11.02.2024
-
-Г.Б. Белоцерковский | Радиолокационные устройства (1961) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118160.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге описаны общие принципы работы, электрические схемы и конструктивные особенности нескольких образцов наземных и самолетных радиолокационных станций различного назначения.
-При этом автор не ограничивается простым описанием выбранных образцов аппаратуры, а расширяет сведения о них на основе анализа характеристик и параметров станций, критической оценки и сопоставления (   Читать дальше...   )Жанр: ЭлектроникаИздательство: ОборонгизФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:047717DF0078CB3E77E538887AB28C450498B8E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699147   (118157) от 11.02.2024
 
 Г.Б. Белоцерковский | Основы радиолокации и радиолокационные устройства (1975) [DJVU]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118157.jpg" />
 </div>
 
 
@@ -166,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118151.jpg" />
 </div>
 
 
@@ -192,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118144.jpg" />
 </div>
 
 
@@ -219,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118137.jpg" />
 </div>
 
 
@@ -245,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118134.jpg" />
 </div>
 
 
@@ -272,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118131.jpg" />
 </div>
 
 
@@ -298,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118128.jpg" />
 </div>
 
 
@@ -324,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118121.jpg" />
 </div>
 
 
@@ -350,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118117.jpg" />
 </div>
 
 
@@ -377,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117992.jpg" />
 </div>
 
 
@@ -403,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117870.jpg" />
 </div>
 
 
@@ -430,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117866.jpg" />
 </div>
 
 
@@ -456,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117864.jpg" />
 </div>
 
 
@@ -482,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117861.jpg" />
 </div>
 
 
@@ -508,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117854.jpg" />
 </div>
 
 
@@ -535,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117846.jpg" />
 </div>
 
 
@@ -562,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117834.jpg" />
 </div>
 
 
@@ -590,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117830.jpg" />
 </div>
 
 
@@ -616,7 +483,7 @@ Lourdes Miquel etc. | серия книг Lola Lago [8 книг] (2003-2020) [PD
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117816.jpg" />
 </div>
 
 
@@ -643,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117815.jpg" />
 </div>
 
 
@@ -671,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117813.jpg" />
 </div>
 
 
@@ -683,6 +550,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A49D41D0024D242F50451DB5ED01D5FC3CB196C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 714458   (117753) от 14.02.2024
+
+Е. Ф. Макаров, В. В. Дрозд | Справочник по электрическим сетям 0,4-35 кВ и 110-1150 кВ. 16 томов (1999 - 2015) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Справочник предназначен для работников предприятий энергосистем, обслуживающих электросети 0,4-35 кВ, энергетиков промышленных предприятий и предприятий коммунальной энергетики, энергетиков сельскохозяйственного производства, студентов университетов и колледжей электротехнических специальностей, учащихся производственно-технических училищ электротехнического профиля, (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: Энергия, АльвисФормат: DJVUКачество: Хороший скан, с ч/б илл.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84D5BAC0391F82A97C7E54C7B126F24256BC0664
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699661   (117745) от 14.02.2024
+
+Самудзи Фудзибаяси | Бансэнсюкай. Настольная книга ниндзя (2023) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бансэнсюкай – древнейшее из сохранившихся пособий по ниндзюцу, составленное в XVII веке выдающимся ниндзя Самудзи Фудзибаяси. Вскоре после публикации книга стала главным учебным пособием для большинства кланов ниндзя и оставалась им вплоть до конца XIX века. Эта книга и поныне используется для подготовки бойцов японского спецназа.
+В книге подробно описаны философия (   Читать дальше...   )Жанр: Историческая прозаИздательство: РодинаФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A30E90CF93DDC70370F377F82A31DDA3732CAE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699591   (117694) от 14.02.2024
+
+А.Т. Блажкин (ред.) | Общая электротехника (1986) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117694.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для студентов вузов неэлектротехнических специальностей. Излагаются основы теории электрических и магнитных цепей, электромагнитных устройств, электрических измерений, электрических машин и понятия о физическом, аналоговом и цифровом моделировании. Приводятся сведения об электроприводах, управлении электроприводами, некоторых системах автоматики и их элементах.Жанр: ЭлектротехникаИздательство: ЭнергоатомиздатФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8F5E08AED98E28F626911FA6A3F6477117611A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699963   (117500) от 15.02.2024
+
+А.В. Белов | Микроконтроллеры AVR: от азов программирования до создания практических устройств (2-е изд.) (2020) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117500.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная книга — это практический самоучитель по микроэлектронике и микроконтроллерам для начинающих конструкторов, а также для широкого круга инженеров, мастеров по ремонту электроники и всех желающих расширить свои знания в этой области. За шесть шагов читатель пройдет путь от «чайника», изучающего азы цифровой техники, до вполне готового специалиста, умеющего самостоятельно (   Читать дальше...   )Жанр: Компьютерная литература, электроникаИздательство: Наука и ТехникаФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42F3B012B3BB737933B3662BC533502467171999
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552924   (117496) от 15.02.2024
+
+С.М.Беков и др. | 15 бригада Спецназ. Люди и судьбы. Афганистан глазами очевидцев [2009] [DJVU]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117496.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге рассказывается об истории 15-й отдельной ордена Красного Знамени Республики Афганистан бригады специального назначения ГРУ ГШ ВС СССР, солдатах и сержантах, прапорщиках, офицерах и генералах, связавших свою судьбу со Спецназом. Глазами участников боевых действий в Афганистане раскрывается роль Спецназа ГРУ ГШ в афганской войне 1979-1989 гг., боевые будни (   Читать дальше...   )Издательство: М.: Русская панорамаФормат: DJVUКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25617008F6381AEC4E9A6B06A6FD4B2C3D782986
 ```
 
 https://mybot314.ru/tekegram_catalog/

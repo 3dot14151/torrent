@@ -1,3 +1,161 @@
+###  Публикация: 1340580   (263596) от 24.11.2019
+
+Первая передача на НТВ. Автомобильная передача (24.11.2019) SATRip
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как получить перелом за мелкое нарушение и почему можно лишиться прав из-за новой прописки?
+«Первая передача» — это познавательный проект про автомобилистов и для автомобилистов — для тех, что хочет из простого автолюбителя стать автопрофессионалом!Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:25:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C2C6A3A40F064776EB2112C5E1A0B489DB41A9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340578   (263595) от 24.11.2019
+
+Чудо техники с Сергеем Малозёмовым (24.11.2019) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263595.jpg" />
+</div>
+
+
+###  Подробнее
+
+Умельцем этой недели стал предприниматель Николай Потапов из Якутска — он создал отечественного робота-уборщика для аэропортов, вокзалов и торговых центров. В новом выпуске программы телезрители узнают, столько стоит работа таких роботов, какова цена им самим, и действительно ли за роботами — будущее? Также в новом выпуске: вся правда о вшах — маленьких насекомых, (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:37:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C14584116B59162BBA382DAB918F02E8734A7B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340661   (263581) от 24.11.2019
+
+Табунщики (1984) VHSRip
+
+>>Документалистика и Телепередачи
+>>Кинолетопись Страны Советской
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм о жизни табунщиков на летних и зимних отгонных пастбищах – джайлоо. О людях трудной профессии, что придаёт картине особый национальный колорит.Телекомпания: СССР, КиргизтелефильмЖанр: Документальный, ТелепередачаСубтитры: отсутствуютПродолжительность: 00:23:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B78CA242F8AE703B0D346EB5533C2B3052197EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340601   (263571) от 24.11.2019
+
+Тайная жизнь собак / The secret life of the dog (2013) HDTVRip [H.264/720p-LQ] [VO]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263571.jpg" />
+</div>
+
+
+###  Подробнее
+
+Яркий и зрелищный документальный фильм английских кинематографистов позволяет нам по-новому взглянуть на собак - наших четвероногих питомцев, которых мы привыкли считать своими преданными друзьями. Взаимоотношения человека с собакой воистину уникальны. Ни с одним животным на планете нам не удаётся контактировать более тесно. За последние несколько лет учёные погрузились (   Читать дальше...   )Производство: Великобритания, Oxford scientific films prodction, BBC WorldwideЖанр: Документальный, кинологияРежиссер: Барни РевиллПеревод: Одноголосый закадровый, любительскийСубтитры: Русские, английскиеПродолжительность: 00:46:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D624FB25B66D1230E5C96ADF2AC6678663DD79A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340664   (263565) от 24.11.2019
+
+Битва экстрасенсов (2019.11.23) WEBRip [H.264/720p-LQ] (сезон 20, выпуск 9)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263565.jpg" />
+</div>
+
+
+###  Подробнее
+
+Паранормальное шоу канала ТНТ об экстрасенсах, магах, ясновидящих, гадалках и колдунах. «Битва экстрасенсов 20 сезон» – продолжение рейтингового российского шоу «Битва экстрасенсов», которое выходит с 2007 года на канале ТНТ. Создатели проекта в 20-м сезоне вновь подготовили для телезрителей встречи с удивительными людьми, обладающими уникальными способностями.Телекомпания: ТНТЖанр: ТВ-шоуРежиссер: Олег ЧаурсСубтитры: отсутствуютПродолжительность: 01:10:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27C2B7480C2967E6582FB1EC036D81CA5E176C2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192095   (263456) от 16.12.2017
+
+НашПотребНадзор. Не дай себя обмануть! (2017.12.16) SATRip
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создатели нового потребительского проекта «НашПотребНадзор» проведут журналистские расследования на волнующие каждого зрителя темы, в деталях расскажут, как не попасться на уловки мошенников, обличат виновных и на ярких примерах объяснят, как отличить качественное от низкосортного.
+Для того чтобы максимально полно и объективно раскрыть тему каждого выпуска и защитить (   Читать дальше...   )Производство: НТВЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBE35F4EB6007DDBAF31271985E7AED4352AC59D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1192093   (263453) от 16.12.2017
 
 Главная дорога (2017.12.16) SATRip
@@ -6,7 +164,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263453.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263446.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263435.jpg" />
 </div>
 
 
@@ -84,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263425.jpg" />
 </div>
 
 
@@ -111,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263384.jpg" />
 </div>
 
 
@@ -137,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263376.jpg" />
 </div>
 
 
@@ -163,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263343.jpg" />
 </div>
 
 
@@ -189,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263336.jpg" />
 </div>
 
 
@@ -217,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263237.jpg" />
 </div>
 
 
@@ -243,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263208.jpg" />
 </div>
 
 
@@ -269,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263203.jpg" />
 </div>
 
 
@@ -295,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263202.jpg" />
 </div>
 
 
@@ -321,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263201.jpg" />
 </div>
 
 
@@ -347,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263189.jpg" />
 </div>
 
 
@@ -373,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263182.jpg" />
 </div>
 
 
@@ -399,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263176.jpg" />
 </div>
 
 
@@ -425,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263175.jpg" />
 </div>
 
 
@@ -451,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263166.jpg" />
 </div>
 
 
@@ -477,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263162.jpg" />
 </div>
 
 
@@ -503,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263158.jpg" />
 </div>
 
 
@@ -514,162 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA5F198CA583060E18CD12CD5F1E8A0F017AF077
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192302   (263157) от 17.12.2017
-
-Территория заблуждений с Игорем Прокопенко (2017.12.16) WEB-DLRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263157.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый день приносит научные сенсации, которые противоречат нашим привычным знаниям. Невероятные находки археологов опровергают учебники истории. Новейшие открытия астрономов начисто ломают знания о жизни Вселенной. А последние исследования медиков - рушат, казалось бы, незыблемые истины даже о жизни и смерти. В результате даже ученые все чаще приходят к неутешительному (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 01:32:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4D3F0B1B790F299514FCADC21A68669691D85D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192478   (263155) от 17.12.2017
-
-Орел и решка. Звёзды (2017.12.17) WEB-DL [H.264/720p-LQ] (Лиссабон. Португалия)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Орёл и Решка. Звёзды – это спецпроект от всеми вами любимого тревел-шоу Орёл и Решка. Катерина Варнава, Михаил Башкатов, Анфиса Чехова, Виктор Васильев, Светлана Лобода и Александр Ревва – именно эти звезды звёды шоу-бизнеса будут отчаянно бороться за золотую карту с нашими опытными ведущими Колей Сергой, Машей Иваковой, Жанной Бадоевой и Аланом Бадоевым! Всего вас (   Читать дальше...   )Телекомпания: ИНТЕРЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:52:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EB1DC60112657B7447804AAC678E922B2AF7B35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192482   (263153) от 17.12.2017
-
-Вокруг М / Орел и решка / Леся здеся (2016) WEB-DL [H.264/720p-LQ] (Рим. Италия)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263153.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не завершив кругосветное путешествие в проекте «Орел и решка» ведущая Леся Никитюк куда то пропала с поля зрения телезрителей. Однако поклонники талантливой ведущей не успели поволноваться, совсем скоро на на телеэкранах появится новый проект Никитюк «Вокруг М», выпуски которого также проводит продакшен TeenSpirit Studio. Леся Никитюк станет первой украинской девушкой (   Читать дальше...   )Телекомпания: ИНТЕРЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:45:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:220432CC4B7F33554ED37ED420FEB0D6DBAFE7E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192564   (263152) от 17.12.2017
-
-Русский ниндзя (2017.12.17) SATRip (выпуск 4)
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263152.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Русский ниндзя» — российская версия культового формата Ninja Warrior, шоу о сильных телом и духом приобрело мировую известность благодаря фирменной полосе препятствий, которая усложняется от этапа к этапу и которую венчает финальное испытание — «Гора Мидорияма». На отборочной стадии соревнований участникам необходимо успешно преодолеть шесть препятствий, не сорвавшись (   Читать дальше...   )Телекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 01:38:33Реклама: Присутствуют вставки текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE8FE2173173CFD949D3B42B29B82A27E2C3BF72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192425   (263147) от 17.12.2017
-
-Вокруг М / Орел и решка / Леся здеся (2016) WEB-DL [H.264/1080p-LQ] (Афины)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263147.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не завершив кругосветное путешествие в проекте «Орел и решка» ведущая Леся Никитюк куда то пропала с поля зрения телезрителей. Однако поклонники талантливой ведущей не успели поволноваться, совсем скоро на на телеэкранах появится новый проект Никитюк «Вокруг М», выпуски которого также проводит продакшен TeenSpirit Studio. Леся Никитюк станет первой украинской девушкой (   Читать дальше...   )Телекомпания: ИНТЕРЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:40:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE5448535E9080CCE25B698D4113092F64638151
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192480   (263143) от 17.12.2017
-
-Вокруг М / Орел и решка / Леся здеся (2016) WEB-DLRip (Рим. Италия)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263143.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не завершив кругосветное путешествие в проекте «Орел и решка» ведущая Леся Никитюк куда то пропала с поля зрения телезрителей. Однако поклонники талантливой ведущей не успели поволноваться, совсем скоро на на телеэкранах появится новый проект Никитюк «Вокруг М», выпуски которого также проводит продакшен TeenSpirit Studio. Леся Никитюк станет первой украинской девушкой (   Читать дальше...   )Телекомпания: ИНТЕРЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:45:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C7DE6AAB08BDCDC58622CAFACD60589BC8810C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Twitterrific 5 v5.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183501.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Sensei 1.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183369.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ TechSmith Camtasia 2020 Studio v2020.0.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183308.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Wondershare Recoverit 9.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183282.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ FontExplorer X Pro 7 v7.2.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183228.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Movavi Picverse 1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183186.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Downie 4 4.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182495.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Sensei 1.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182486.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ EdgeView 2 v2.903 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182476.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Mirror for Sony TV 3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182444.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Audiobook Builder 2 2.2.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182394.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Keka 1.2.58 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182386.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ X Lossless Decoder XLD 20201123 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182291.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Microsoft Office 2021 for Mac LTSC 16.67 VL [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182123.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Boom 3D 1.3.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182027.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ TablePlus 3.11.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181955.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Receipts 1.9.10b7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181680.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Smultron 12.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181676.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Privatus 6.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181672.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ PatterNodes 2 v2.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181669.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Workspaces 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181666.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ iCollections 6 v6.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181657.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ BusyCal 3 v3.11.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181653.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Drop - Color Picker 1.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181650.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ A Better Finder Rename 11 v11.25 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181627.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Usher 2.0 Beta [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181621.jpg" />
 </div>
 
 

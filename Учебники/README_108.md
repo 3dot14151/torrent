@@ -1,3 +1,56 @@
+###  Публикация: 1601471   (137441) от 31.12.2022
+
+И.М.Низамов | Задачи по физике с техническим содержанием (1980) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник содержит физические задачи с техническим содержанием по всем темам программы курса физики VI-VII классов, соответствующие различным сферам производства.
+Использование в учебном процессе задач такого вида способствует ознакомлению учащихся с принципом устройства и действия механизмов и машин, передачи и преобразования энергии, технологии промышленного и сельскохозяйственного (   Читать дальше...   )Жанр: физика, задачникФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD3867BD9814F0EA6AB046A3A1DDE09868F2A2F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601272   (137437) от 31.12.2022
+
+Д.И. Перепелкин | Курс элементарной геометрии (1948) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137437.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет собой курс элементарной геометрии, рассчитанный на студентов педагогических институтов, а также на преподавателей средней школы.От обычных учебников отличается большей строгостью изложения (курс строится на основе идей современной аксиоматики) и более широким содержанием (геометрические преобразования, задачи на построение).Жанр: МатематикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1B8BC55E8125B45EDE5F5DC10217EC9D0B15EDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601267   (137327) от 31.12.2022
 
 Л.С. Атанасян и др. | Курс элементарной геометрии (1997) [DJVU]
@@ -6,7 +59,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137327.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137253.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136044.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135543.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134486.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134137.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134129.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134099.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133741.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132623.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132519.jpg" />
 </div>
 
 
@@ -298,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132342.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132334.jpg" />
 </div>
 
 
@@ -350,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131857.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131807.jpg" />
 </div>
 
 
@@ -406,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131770.jpg" />
 </div>
 
 
@@ -432,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131732.jpg" />
 </div>
 
 
@@ -458,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131584.jpg" />
 </div>
 
 
@@ -485,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131468.jpg" />
 </div>
 
 
@@ -511,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131444.jpg" />
 </div>
 
 
@@ -537,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131432.jpg" />
 </div>
 
 
@@ -563,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131407.jpg" />
 </div>
 
 
@@ -589,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131342.jpg" />
 </div>
 
 
@@ -616,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131319.jpg" />
 </div>
 
 
@@ -627,59 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5101C6317EEBE8DA31CB39E6CB2F33079802E641
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682784   (131102) от 08.12.2023
-
-Д.Н. Борисов | Корпоративные информационные системы (2007) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131102.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебно-методическое пособие подготовлено на кафедре информационных систем факультета компьютерных наук Воронежского государственного университета. Учебное пособие предназначено для использования на лабораторных занятиях и для самостоятельной работы студентов 5-го курса вечернего отделения факультета компьютерных наук по курсу "Корпоративные информационные системы". (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Воронежский ГУФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B8799E5B7A729101AEC3DDA8863E386798FFBE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682847   (131070) от 08.12.2023
-
-А.С. Васильева | Корпоративные информационные системы (2017) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131070.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебно-методическое пособие предназначено для студентов специальности 09.02.02 «Компьютерные сети».
-Целью освоения дисциплины (модуля, междисциплинарного курса) получение студентами знаний об общих принципах работы корпоративных информационных систем (корпоративных ИС, КИС), их архитектуре, возможностей в управлении производственными и другими процессами предприятия, (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ПВГУСФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D0A4E4AC1590CBDEBC81B3AAC07BFB61395908E
 ```
 
 https://mybot314.ru/tekegram_catalog/

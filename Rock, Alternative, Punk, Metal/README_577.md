@@ -1,3 +1,60 @@
+###  Публикация: 1435338   (500513) от 18.07.2022
+
+Seraphim Project - 2 Albums (2020-2021) [MP3|320 Kbps] <Heavy Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Эйзенхорн(Eisenhorn) [00:05:14]
+02. Легион проклятых(Legion of the damned) [00:05:32]
+03. Кадия стоит!(Cadia stands!) [00:06:45]Жанр: Heavy Power MetalПродолжительность: 2 CD, 01:11:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BD2A6FA32AA3468E92EC94FF87E0D4F4AD6FD68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317586   (500417) от 01.08.2019
+
+Crystal Ball - 2020 (2019) 2CD [MP3|320 Kbps] <Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500417.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+1. HELLvetia
+2. Moondance
+3. Soul Mate(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 01:21:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05A684A3E692BB627557754A925A1BFC6A223C5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 935050   (500400) от 07.09.2015
 
 Fear Factory - Genexus (2015) Japanese Edition [MP3|320 кб/с]<Industrial Metal>
@@ -6,7 +63,7 @@ Fear Factory - Genexus (2015) Japanese Edition [MP3|320 кб/с]<Industrial Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500400.jpg" />
 </div>
 
 
@@ -35,7 +92,7 @@ Volbeat - Rewind, Replay, Rebound (2019) Deluxe Edition [MP3|320 Kbps] <Heavy Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500360.jpg" />
 </div>
 
 
@@ -64,7 +121,7 @@ Skillet - Victorious (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500281.jpg" />
 </div>
 
 
@@ -93,7 +150,7 @@ Dire Straits - Sultans Of Swing the Very Best Of Dire Straits (1998) (2012, SHM-
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500264.jpg" />
 </div>
 
 
@@ -128,7 +185,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499762.jpg" />
 </div>
 
 
@@ -157,7 +214,7 @@ Lethal Prayer - Spiritual Decay (1996) [FLAC|Lossless|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499752.jpg" />
 </div>
 
 
@@ -186,7 +243,7 @@ Leucosis - Leucosis (2013) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499741.jpg" />
 </div>
 
 
@@ -215,7 +272,7 @@ YARuGA - Карколист (2022) [MP3|320 Kbps] <Ritual, Dark Pagan Folk Metal
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499705.jpg" />
 </div>
 
 
@@ -245,7 +302,7 @@ Rage Against The Machine - Live & Rare (1997) Remaster, 2022, Epic-Legacy [MP3|3
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499700.jpg" />
 </div>
 
 
@@ -274,7 +331,7 @@ Allen-Olzon - Worlds Apart (2020) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499677.jpg" />
 </div>
 
 
@@ -303,7 +360,7 @@ Carlotta Valdes - Praha (2022) [MP3|320 Kbps] <Prog-Metal, Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499661.jpg" />
 </div>
 
 
@@ -332,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499641.jpg" />
 </div>
 
 
@@ -367,7 +424,7 @@ Lunar Aurora - Hoagascht (2012) [WavPack|Lossless]<Atmospheric Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499607.jpg" />
 </div>
 
 
@@ -400,7 +457,7 @@ Break Me Down - 1 Album, 3 Singles (2019-2022) [MP3|320 Kbps] <Alternative Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499597.jpg" />
 </div>
 
 
@@ -426,7 +483,7 @@ Sorrowful Knight - Legacy of The Knight (Best of 2014-2020) (2022) [MP3|320 Kbps
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499594.jpg" />
 </div>
 
 
@@ -455,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499593.jpg" />
 </div>
 
 
@@ -484,7 +541,7 @@ Wicked Sensation - Outbreak (2021) [FLAC|Lossless|image + .cue] <Hard Rock, Heav
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499592.jpg" />
 </div>
 
 
@@ -513,7 +570,7 @@ O.A.K. (Oscillazioni Alchemico Kreative) - Lucid Dreaming and the Spectre of Nik
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499589.jpg" />
 </div>
 
 
@@ -542,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499579.jpg" />
 </div>
 
 
@@ -571,7 +628,7 @@ Gillan - Toolbox (1991) [FLAC|tracks + .cue]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499466.jpg" />
 </div>
 
 
@@ -600,7 +657,7 @@ Fear Factory - Genexus (2015) Japanese Edition [FLAC|Lossless|WEB-DL]<Industrial
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499460.jpg" />
 </div>
 
 
@@ -629,7 +686,7 @@ British India - Nothing Touches Me (2015) [FLAC|Lossless]<Rock, Alternative Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499456.jpg" />
 </div>
 
 
@@ -658,7 +715,7 @@ VA - Monsters Of Rock Live/Double Album (2005) [APE|Lossless]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499449.jpg" />
 </div>
 
 
@@ -687,7 +744,7 @@ Yes - Yes 50 Live (2019) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499445.jpg" />
 </div>
 
 
@@ -701,64 +758,6 @@ Yes - Yes 50 Live (2019) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67E4B3D956477474C3860ACE42A081C5B6B447B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935248   (499406) от 08.09.2015
-
-АукцЫон - Бодун (1991) 2CD Remastered /2015, Геометрия/ [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Самолёт
-02. Немой
-03. Пионер
-04. Боюсь(   Читать дальше...   )Жанр: RockПродолжительность: 01:54:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A181D95B30FD55413760231F8849274B13D2CF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935364   (499404) от 08.09.2015
-
-Hail The Ghost - Forsaken (2015) [FLAC|Lossless|WEB-DL]<alternative rock, indie>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nostalgia 04:24
-02. Colony of Ants 03:46
-03. Ink & Blood 03:39
-04. Gabriel 03:52(   Читать дальше...   )Жанр: alternative rock, indieПродолжительность: 00:41:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFCCF8BFBFB8B7FB381B905485C391EA0F479ACC
 ```
 
 https://mybot314.ru/tekegram_catalog/

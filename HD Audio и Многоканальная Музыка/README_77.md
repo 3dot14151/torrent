@@ -1,32 +1,3 @@
-###  Публикация: 1348746   (140982) от 29.12.2019
-
-Leonard Cohen - Thanks for the Dance (2019) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Contemporary Singer/Songwriter>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Happens to the Heart (4:34)
- 02. Moving On (3:12)
- 03. The Night of Santiago (4:15)
- 04. Thanks for the Dance (4:13)(   Читать дальше...   )Жанр: Contemporary Singer/SongwriterПродолжительность: 00:29:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4B856C6887D03482BB918D17F88CCB19526C9A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679139   (140599) от 24.11.2023
 
 Opeth - Blackwater Park (2001) Reissue, 2010, Music On Vinyl,  Sony Music Entertainmen [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death Metal, Progressive Rock>
@@ -35,7 +6,7 @@ Opeth - Blackwater Park (2001) Reissue, 2010, Music On Vinyl,  Sony Music Entert
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140599.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Final Strike - Finding Pieces (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140591.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - Новогодняя Дискотека. Выпуск 1 (1998) [FLAC 2.0|48
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140587.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Hitten - While Passion Lasts (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140580.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Compass - A Silent Symphony (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progre
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140561.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Silent Tiger - Twist Of Fate (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140521.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Big Something - Headspace (2023) [FLAC 24/44.1, 24/96|Lossless|WEB-DL|tracks] <A
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140479.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Led Zeppelin - The Song Remains The Same 1976 (2007) [FLAC 2.0|192/24|tracks|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140396.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Nektar - Remember The Future (1973) 50th Anniversary Edition, 2023, Esoteric [FL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140314.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Absurd Minds - Gravitas (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <EBM, Elect
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140245.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Yes - The Yes Album (1971) Super Deluxe Edition, Remaster, Steven Wilson Remix, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139951.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139726.jpg" />
 </div>
 
 
@@ -382,7 +353,7 @@ Atlanta Rhythm Section - Time Machine (2023) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139716.jpg" />
 </div>
 
 
@@ -411,7 +382,7 @@ Max Greger - Da Ist Musik Drin (1976) Promo Record - Not For Sale [FLAC 2.0|96/2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139412.jpg" />
 </div>
 
 
@@ -440,7 +411,7 @@ VA - Новогодняя дискотека (1989) [FLAC 2.0|96/24|tracks|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138945.jpg" />
 </div>
 
 
@@ -469,7 +440,7 @@ VA - The Greatest Old Traditional Christmas Songs 1942-2017 (2020) Unofficial Re
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138880.jpg" />
 </div>
 
 
@@ -498,7 +469,7 @@ Mirror - Pyramid of Terror (2019) [FLAC|24/96|tracks|Vinyl-Rip] <Heavy Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138537.jpg" />
 </div>
 
 
@@ -527,7 +498,7 @@ Atack - Nine Lives (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Modern rock wit
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138415.jpg" />
 </div>
 
 
@@ -556,7 +527,7 @@ Foster & Allen - Reflections. 20 Best Loved Favorites (1987) [FLAC 2.0|24/192|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138112.jpg" />
 </div>
 
 
@@ -585,7 +556,7 @@ Old Gods of Asgard feat. Alan Wake & Mr. Door - Herald of Darkness (2023) Single
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138108.jpg" />
 </div>
 
 
@@ -613,7 +584,7 @@ John Lennon & Yoko Ono - Double Fantasy (1980) [FLAC 2.0|192/24|image + .cue|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138074.jpg" />
 </div>
 
 
@@ -642,7 +613,7 @@ Michel Legrand - Legrand Jazz (1958) [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Jazz
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137949.jpg" />
 </div>
 
 
@@ -671,7 +642,7 @@ Tarja Turunen - From Spirits and Ghosts (2017) Score for a Dark Christmas, Speci
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137815.jpg" />
 </div>
 
 
@@ -700,7 +671,7 @@ Freakstorm - Angel In The Dark (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137786.jpg" />
 </div>
 
 
@@ -729,7 +700,7 @@ Uriah Heep - 12 Albums (1970-1978)  USA release [FLAC 2.0|192/24|image + .cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137699.jpg" />
 </div>
 
 
@@ -743,6 +714,35 @@ A4  I'm Alive(   Читать дальше...   )Жанр: Classic Rock, Prog Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F1BA2F737F46C0D386C8682EC6C51D1C277974D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679553   (137695) от 25.11.2023
+
+Rockets - Time Machine (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Space Rock, Synth-pop, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jammin' (Bob Marley) (3:18)
+02. Walk On The Wild Side (Lou Reed) (6:20)
+03. On The Road Again (Floyd Jones - Alan Wilson) (5:06)
+04. Piccola Katy (Roby Facchinetti - Valerio Negrini) (3:29)(   Читать дальше...   )Жанр: Space Rock, Synth-pop, Pop RockПродолжительность: 00:56:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE35F6F5CCB4DFC90BB0B4C2773A9886A2CCF7E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

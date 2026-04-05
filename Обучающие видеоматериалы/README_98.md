@@ -1,3 +1,29 @@
+###  Публикация: 1511427   (788836) от 21.11.2021
+
+Ctrl + Paint, Matt Kohr | 3D For Illustrators 04: Texturing (2016) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788836.jpg" />
+</div>
+
+
+###  Подробнее
+
+Превосходное продолжение "Основ моделирования" это "Текстурирование". В этих видео разбираются различные подходы к созданию материалов, с акцентом на нужды художника. Для иллюстраторов текстуры не всегда должны быть предельно высокого качества и не обязательно на них нужно тратить много времени. Часто они создаются для того, чтобы нарисовать поверх (   Читать дальше...   )Производство: Ctrl + PaintЖанр: Цифровая живописьПродолжительность: 01:06:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC3F19FA23CD33CC2AD643F3721652780D7AAEA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511543   (788802) от 21.11.2021
 
 Ctrl + Paint, Matt Kohr | Edge Control (2014) PCRec [En, Ru]
@@ -6,7 +32,7 @@ Ctrl + Paint, Matt Kohr | Edge Control (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788802.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ Ctrl + Paint, Matt Kohr | 3D For Illustrators 06: Paintover Demo (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788800.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Ctrl + Paint, Matt Kohr | 3D For Illustrators 01: First Steps (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788795.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Ctrl + Paint, Matt Kohr | House Design (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788793.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Ctrl + Paint, Matt Kohr | Perspective Sketching 2 Form and Design (2012) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788786.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ Ctrl + Paint, Matt Kohr | Perspective Sketching 1 The Basics (2012) PCRec [En, R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788776.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ Ctrl + Paint, Matt Kohr | World Design (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788766.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ Udemy, Motion Guru | Complete Curse of Blender version 2.93 (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788762.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ Ctrl + Paint, Matt Kohr | Basic Photoshop Rendering Volumes 1-4 (2014) PCRec [En
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788756.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ Ctrl + Paint, Мэтт Корр | Цифровая живопись от "Ctrl +
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788754.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ Udemy, Motion Guru | Create and Animate Tank & Machine in Blender 2.93 (2021) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788733.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ Skillbox, Анжела Каменская и др. | Продуктовый ма
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788697.jpg" />
 </div>
 
 
@@ -327,7 +353,7 @@ Ctrl + Paint, Matt Kohr | Design Basics 2: Shape (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788351.jpg" />
 </div>
 
 
@@ -355,7 +381,7 @@ Ctrl + Paint, Matt Kohr | Boss Monster (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788332.jpg" />
 </div>
 
 
@@ -382,7 +408,7 @@ Ctrl + Paint, Matt Kohr | Game Icons (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788322.jpg" />
 </div>
 
 
@@ -409,7 +435,7 @@ Ctrl + Paint, Matt Kohr | Design Basics (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788321.jpg" />
 </div>
 
 
@@ -437,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788310.jpg" />
 </div>
 
 
@@ -463,7 +489,7 @@ Udemy, CG Masters, Chris Plush, Erindale Woodford | Master Procedural Texturing 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788291.jpg" />
 </div>
 
 
@@ -489,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788258.jpg" />
 </div>
 
 
@@ -518,7 +544,7 @@ CG Boost, Zach Reinhardt | Blender 2.8 Стартовая площадка / Ble
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788256.jpg" />
 </div>
 
 
@@ -545,7 +571,7 @@ PhLearn Pro | Juicy Kicks (2014) TS [H.264/720p-LQ] [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788056.jpg" />
 </div>
 
 
@@ -571,7 +597,7 @@ PhLearn Pro | The Perfect Composite (2014) TS [H.264/720p-LQ] [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788050.jpg" />
 </div>
 
 
@@ -597,7 +623,7 @@ PhLearn Pro | Beginners Guide to Compositing (2014) TS [H.264/720p-LQ] [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788044.jpg" />
 </div>
 
 
@@ -624,7 +650,7 @@ PhLearn Pro | Fashion (2014) TS [H.264/720p-LQ] [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788017.jpg" />
 </div>
 
 
@@ -650,7 +676,7 @@ PhLearn Pro | Liquid Portrait (2014) TS [H.264/720p-LQ] [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788007.jpg" />
 </div>
 
 
@@ -662,33 +688,6 @@ PhLearn Pro | Liquid Portrait (2014) TS [H.264/720p-LQ] [EN]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70E4C16CE9D8C9B11829FE34FA18B026F78223C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203021   (787977) от 02.02.2018
-
-PhLearn Pro | The Ultimate Guide to Retouching (2014) PCRec [H.264/1080p-LQ] [EN]
-
->>Обучающие видеоматериалы
->>Фотография и Видео (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787977.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это ретуширование, ретуширование от PhLearn.
-Эксперт YouTube по фотошопу Аарон Найс предлагает многолетний опыт работы с Photoshop вместе с уникальными методами ретуширования и критическим вниманием к деталям.Жанр: ВидеоурокиПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 07:13:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54C5DAF884AAFBB0DCD842ADF3F4E60FD91E3984
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1650440   (225883) от 02.08.2023
+
+Meat Puppets - Santa Monica (1988) live, Remaster, 2023, [MP3|320 Kbps] <Pop Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_225883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - In Love (live) [00:03:35]
+02 - Wish Upon A Storm (live) [00:04:45]
+03 - Light (live) [00:04:01]
+04 - Touchdown King (live) [00:05:09](   Читать дальше...   )Жанр: Pop Rock, Hard RockПродолжительность: 00:41:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD954CAF4BE11236B7098664512AC430634F8802
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1650550   (225869) от 02.08.2023
 
 Aerolith - Megalorama Part II (2023) [MP3|320 Kbps] <Progressive Rock, Space Rock>
@@ -6,7 +35,7 @@ Aerolith - Megalorama Part II (2023) [MP3|320 Kbps] <Progressive Rock, Space Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_225869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_225869.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Astral Doors - New Revelation (2007) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225855.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Dream Theater - Systematic Chaos (2007) Japanese Edition [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_225825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_225825.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ DeafBrood - Hell Reel (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225789.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ TORF - Романтика не в моде (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_225782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_225782.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225775.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Tag My Heart - Tag My Heart (2023) [MP3|320 Kbps] <Nu Metal, Metalcore, Female V
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_225756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_225756.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Sunstain - Modern Nature (2022) [MP3|320 Kbps] <Heavy Rock, Stoner, Psych>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225743.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Omnium Gatherum - Origin (2021) [FLAC|Lossless|image + .cue] <Progressive Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225725.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_225722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_225722.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Red Mourning - Flowers & Feathers (2022) [MP3|320 Kbps] <Sludge Metal, Stoner, G
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225708.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Ancient Flame - Blood stained the barren land (2022) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225700.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Dream Master - A World Without People (2022) [FLAC|Lossless|WEB-DL|tracks] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225683.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Imperia - The Last Horizon (2021) [FLAC|Lossless|image + .cue] <Epic Metal, Goth
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225676.jpg" />
 </div>
 
 
@@ -414,7 +443,7 @@ Satin - Appetition (2022) [MP3|320 Kbps] <Rock & Metal World>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225675.jpg" />
 </div>
 
 
@@ -443,7 +472,7 @@ Outlanders - From Chaos to Extinction (2023) [MP3|320 Kbps] <Heavy, Thrash Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_225670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_225670.jpg" />
 </div>
 
 
@@ -472,7 +501,7 @@ Erzfeynd - Behaft.Bekert (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225667.jpg" />
 </div>
 
 
@@ -501,7 +530,7 @@ Unchained Horizon - Fallen Kingdom (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225657.jpg" />
 </div>
 
 
@@ -530,7 +559,7 @@ Ekseption & Royal Philharmonic Orchestra - Ekseption 00.04 (2023) Expanded Editi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_225625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_225625.jpg" />
 </div>
 
 
@@ -559,7 +588,7 @@ Brazzaville - Welcome to Brazzaville 2 (2012) [MP3|320 Kbps] <Chamber pop, Indie
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225602.jpg" />
 </div>
 
 
@@ -588,7 +617,7 @@ Converge - Jane Doe (2001) [FLAC|Lossless|image + .cue] <Chaotic Hardcore, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225587.jpg" />
 </div>
 
 
@@ -617,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_225571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_225571.jpg" />
 </div>
 
 
@@ -646,7 +675,7 @@ Stun Silence - Мотылёк (2022) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225563.jpg" />
 </div>
 
 
@@ -675,7 +704,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225551.jpg" />
 </div>
 
 
@@ -704,7 +733,7 @@ Cavalera - Morbid Visions (2023) [FLAC|Lossless|image + .cue] <Thrash Metal, Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_225532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_225532.jpg" />
 </div>
 
 
@@ -718,35 +747,6 @@ Cavalera - Morbid Visions (2023) [FLAC|Lossless|image + .cue] <Thrash Metal, Dea
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A699C1D62CC583A4D9F13C09B3DE2D99265185E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513188   (225528) от 28.11.2021
-
-VA - Animals Reimagined - A Tribute to Pink Floyd (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock, Psychedelic Rock, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nick Van Eede, Martin Barre - Pigs On The Wing, Pt. 1 1:53
-02. Graham Bonnet, Vinnie Moore, Kasim Sulton, Jordan Rudess, Pat Mastelotto - Dogs 17:00
-03. James LaBrie, Al Di Meola, Joe Bouchard, Patrick Moraz, Billy Cobham - Pigs (Three Different Ones) 11:33
-04. Arthur Brown, Rick Wakeman, Jan Akkerman, David J, Carmine Appice - Sheep 10:24(   Читать дальше...   )Жанр: Rock, Psychedelic Rock, Progressive RockПродолжительность: 00:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3339F069FB79111CCB915BB3874B054AFC5302F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1239598   (536543) от 06.08.2018
+
+Adguard Premium 6.3.1399.4073 RePack by elchupacabra [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536543.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adguard – интернет-фильтр для защиты пользователей от опасных веб-сайтов, блокировки всех возможных видов рекламы в Интернете. Программа представляет собой отличное дополнение для вашей основной антивирусной защиты с эффективной блокировкой вредоносных, мошеннических и фишинговых ресурсов, и родительским контролем за онлайн-активностью детей. Веб-защита работает (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:279DC3429718D5D372C0C3BD8C6A60A39A03AC73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050702   (535845) от 09.09.2016
+
+Люди Икс: Апокалипсис / X-Men: Apocalypse (2016) BDRemux [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535845.jpg" />
+</div>
+
+
+###  Подробнее
+
+События «Дней Минувшего Будущего» оказали колоссальное влияние на мир, где мутанты и люди борются за свое место под Солнцем. В это нелегкое время Людям Икс предстоит столкнуться со своим самым опасным противником — древним мутантом Апокалипсисом, существом, схватка с которым может стать последней не только для мутантов, но и в принципе для всего человечества. В поисках (   Читать дальше...   )Производство: США / 20th Century Fox Film Corporation, Bad Hat Harry Productions, Donners' CompanyЖанр: фантастика, боевик, приключенияРежиссер: Брайан СингерАктеры: Джеймс МакЭвой, Майкл Фассбендер, Дженнифер Лоуренс, Эван Питерс, Оливия Манн, Роуз Бирн, Оскар Айзек, Софи Тёрнер, Николас Холт, Тай Шеридан, Бен ХардиПеревод: Дублированный (iTunes)Язык субтитров: Русский, АнглийскийПродолжительность: 02:23:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F62492C1D0861359556C6EC210D9BCD985FBE32B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1050604   (535843) от 09.09.2016
 
 Люди Икс: Апокалипсис / X-Men: Apocalypse (2016) WEB-DL [H.264/1080p-LQ]
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535843.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535109.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ KeePass Password Safe 2.30 + Portable [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534835.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Hotspot Shield Elite 4.20.5 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534824.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Pinguy OS 14.04.2 [x86-64] 1xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534821.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ Prinect PDF ToolBox 2016 16.0.24 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534684.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ Ad Muncher 4.93 Build 33707/4146 Final + TrialReset v 1.0.0.1 [Английск�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533866.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ One Punch Man 2nd Season / Ванпанчмен [ТВ-2] [2019, TV, 12 из 12] 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533821.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ elementary OS Loki 0.4 [x86-64] 1xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533786.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533731.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ Castlevania: Lords of Shadow (2013) [Ru/Multi] (1.0.2.9/u2) Repack Fenixx [Ultim
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533600.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533288.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ Adobe Photoshop for Mac 2022 23.4.1 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533283.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533268.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ Don't Starve (2013) [Ru/En] (1.222215/dlc) License GOG [Alone Pack]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532881.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532879.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ Prinect Package Designer 2016 16.00.26 [Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532871.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532587.jpg" />
 </div>
 
 
@@ -483,7 +535,7 @@ Windows 10 Pro 1903 (build 18362.207) x64 by vladislays v19.07.03
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531951.jpg" />
 </div>
 
 
@@ -511,7 +563,7 @@ Rayman Legends (2013) [Ru/En] (1.1.1) RePack R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531586.jpg" />
 </div>
 
 
@@ -537,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531327.jpg" />
 </div>
 
 
@@ -563,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531318.jpg" />
 </div>
 
 
@@ -589,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531117.jpg" />
 </div>
 
 
@@ -615,7 +667,7 @@ FIFA 17 (2016) [Ru/Multi] (1.09) Repack R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530938.jpg" />
 </div>
 
 
@@ -626,58 +678,6 @@ FIFA 17 - это очередная часть футбольного симул
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01F2321D8254E6C86BD7D3F21A298B2273227412
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926829   (530912) от 11.08.2015
-
-CyberLink PowerDirector 13 Ultimate 13.0.3130.0 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530912.jpg" />
-</div>
-
-
-###  Подробнее
-
-PowerDirector - самое быстрое и передовое программное обеспечения для редактирования видео. В состав PowerDirector входит комплект самых передовых и простых в использовании средств для создания профессиональных видеоматериалов. Также в наличии имеется технология обработки видео (SVRT), NVIDIA CUDA, ATI-Stream для многоядерных блоков обработки, которые помогут вам (   Читать дальше...   )Язык интерфейса: Русский (by loginvovchyk), Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E3EE47474BC83A7093C0C37F99683AD6E9BD122
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017554   (530086) от 12.09.2016
-
-Exanima (2016) [En] (0.6.4.3e) License GOG
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Exanima, намеренно неуютная и реалистичная игра о выживании в подземелье. Если вы не первый день играете в игры, то, должно быть, подземельями вас не запугаешь: сколько раз мы в них спускались, сколько раз сражались, побеждали и погибали, но рано или поздно все равно возвращались, груженые ценным лутом. Но в подземельях Exanima все гораздо серьезнее.Тип издания: LicenseРазработчик: Bare Mettle EntertainmentЖанр: RPG, 3D, IsometricЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CACBC10567833E33C53149545D9FF57DDEF557EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

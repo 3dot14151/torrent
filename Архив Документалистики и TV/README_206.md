@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535256.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535255.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535151.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535144.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ NG: Смертельная Любовь. Кровопийцы / Spiders Deadly L
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534913.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534883.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534882.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534551.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ History Channel: Боязнь темноты / Afraid of the Dark (2010) TVRip [
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534524.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Virgin Australia Supercars Championship. Сезон 2017. Coates Hire Ipswich Su
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533605.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533062.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533060.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533059.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533057.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533056.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533054.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533053.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533051.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532989.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532939.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532837.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532807.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532804.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532795.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ NGW: Африканская кровавая река / Africa's blood river (20
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532440.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532426.jpg" />
 </div>
 
 

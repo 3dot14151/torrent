@@ -1,139 +1,3 @@
-###  Публикация: 1369838   (900310) от 25.03.2020
-
-М. Темкин | Грамотный красноармеец. Коммунистический букварь (1923) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ликвидировать безграмотность, научить многомиллионную рабочую и крестьянскую массу читать и писать — вот грандиозная задача, которую поставила себе Советская Власть. Задачу эту нельзя откладывать ни на один день, так как призванные к мирному социалистическому строительству широкие народные массы должны во что бы то ни стало, и чем скорее приобщиться к знанию.
-
-Проводить (   Читать дальше...   )Жанр: История, политология, педагогика, искусствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDB1EFEDCF3C7C1A699E4F01D39CBC635E0DFB24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369804   (899943) от 25.03.2020
-
-Д.А. Карпека | Сравнительная грамматика классического китайского языка вэньянь и современного литературного китайского языка путунхуа (2020) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее пособие представляет собой первую отечественную систематическую сравнительную грамматику классического китайского языка вэньянь и современного литературного китайского языка путунхуа, рассчитанную на лиц, освоивших нормативных курс современного
-китайского языка.
-В основу материала «Грамматики» положен, с одной стороны, язык современной китайской прессы (   Читать дальше...   )Жанр: Иностранные языкиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:716F30AD2B902743218EE2325FAC94D730ABAAE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369817   (899927) от 25.03.2020
-
-Айк Геворкян | Осторожно: еда! Как перестать попадаться на уловки производителей и научиться покупать полезную еду (2020) [FB2]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Правда ли, что маргарин делают из нефти? Стоит ли покупать майонез на перепелиных яйцах? Какие сухофрукты выбрать — гладкие и блестящие или темные и сморщенные? Среди обилия продуктов, хранящихся на прилавках и появляющихся в рекламе, сегодня действительно сложно выбрать что-то и вкусное, и полезное. Кроме того, мы привыкли искать на прилавках знакомые этикетки и (   Читать дальше...   )Жанр: ЗдоровьеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDB71061D4383AD5DEE40CF3AFBD4B799E24A73E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 760893   (899911) от 26.02.2014
-
-Игорь Бестужев | Крымская война 1853-1856 гг. (1956) [DJVU]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Крымская война 1853—1856 гг.— одно из крупнейших исторических событий XIX в.— особенно ярко выявила контраст между величием народа и ничтожностью правящих клик, мнивших себя вершителями судеб истории.
-
-В этой войне провалились захватнические планы и царизма, и правящих кругов Англии и Франции; вскрылись вопиющие пороки военных систем царизма, бонапартизма и английской (   Читать дальше...   )Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC70F50B39DEBF1D1B6DE256ED70FADBAAE8169F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100468   (899882) от 04.02.2017
-
-Г. В. Плеханов | В защиту революционного марксизма (1922) [DJVU, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899882.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великой заслугой Плеханова в истории европейского и русского социализма, кроме открытия русского рабочего класса и создания русской социал-демократии,— является блестящее обоснование, развитие и популяризация теоретических, главным образом, философских и социально-исторических основ марксизма. В этом отношении он занимает несомненно первое место в ряду европейских (   Читать дальше...   )Жанр: История, философия, политология, экономикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E07E784F2DF5CFEC5D0FD9686D8A232316B78CC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100805   (899232) от 04.02.2017
 
 Юрген Брауэр, Хуберт ван Туйль | Замки, битвы и бомбы. Как экономика объясняет военную историю (2016) [DJVU]
@@ -142,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899232.jpg" />
 </div>
 
 
@@ -168,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899091.jpg" />
 </div>
 
 
@@ -195,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899046.jpg" />
 </div>
 
 
@@ -221,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898941.jpg" />
 </div>
 
 
@@ -247,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898784.jpg" />
 </div>
 
 
@@ -273,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898574.jpg" />
 </div>
 
 
@@ -299,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898412.jpg" />
 </div>
 
 
@@ -325,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898399.jpg" />
 </div>
 
 
@@ -351,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898342.jpg" />
 </div>
 
 
@@ -377,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898329.jpg" />
 </div>
 
 
@@ -404,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898257.jpg" />
 </div>
 
 
@@ -431,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898250.jpg" />
 </div>
 
 
@@ -457,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898204.jpg" />
 </div>
 
 
@@ -483,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897723.jpg" />
 </div>
 
 
@@ -509,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897701.jpg" />
 </div>
 
 
@@ -535,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897668.jpg" />
 </div>
 
 
@@ -561,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_897550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_897550.jpg" />
 </div>
 
 
@@ -587,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897407.jpg" />
 </div>
 
 
@@ -613,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897397.jpg" />
 </div>
 
 
@@ -639,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896951.jpg" />
 </div>
 
 
@@ -665,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896914.jpg" />
 </div>
 
 
@@ -676,6 +540,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99083D4A89E3A792589F7610CA02211DA5B0BD53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371522   (896877) от 02.09.2021
+
+Сергей Михайлович Соловьев | Сборник произведений [88 книг] (1959-2017) [FB2, PDF, DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Соловьев Сергей Михайлович (1820-1879). Крупнейший историк дореволюционный России родился в семье церковнослужащего. Обучался в духовном училище, гимназии, Московском университете. Всего в 27 лет Соловьев стал профессором Московского университета. Все последующие годы он работал здесь в должностях заведующего кафедрой, декана, ректора. В 1864 г. он избирается членом-корреспондентом, (   Читать дальше...   )Жанр: ИсторияФормат: FB2, PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B6F5297166CA63BAF59D4DE753396CA0A660592
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 272965   (896822) от 02.09.2021
+
+Т-во И.Д.Сытина | Военная энциклопедия  [1911-1915] [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитая 18-томная "Военная энциклопедия", выпущенная в начале ХХ в. т-вом Сытина и остающаяся непревзойденным справочником по военной истории.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F356CA0B8CA489FA3872AE980B1259D03359E27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369369   (896808) от 02.09.2021
+
+Тематический сборник | История политических репрессий в СССР. (История ГУЛАГа) [197 книг] (1947-2015) [FB2, DJVU, PDF] [Обновляемая]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896808.jpg" />
+</div>
+
+
+###  Подробнее
+
+История политических преследований и репрессий в нашей стране, будь то Россия времен Ленина - Сталина, а может быть Хрущева - Брежнева заслуживает глубокого изучения, хотя бы для того, что бы в будущем не допустить того, что уже случилось когда-то и имеет тенденцию повториться вновь. Не берусь расставлять какие-то акценты или навязывать свое видение всего случившегося (   Читать дальше...   )Жанр: ИсторияФормат: FB2, DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA0C8A45984342E56FB3B9181394AAC57E351CD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370395   (896791) от 27.03.2020
+
+Майкл Бенсон | Космическая Одиссея 2001. Как Стэнли Кубрик и Артур Кларк создавали культовый фильм (2019) [EPUB]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896791.jpg" />
+</div>
+
+
+###  Подробнее
+
+К пятидесятилетию одного из величайших фильмов в истории! Уникальный рассказ о том, как режиссер Стэнли Кубрик и писатель Артур Кларк создали кинематографический шедевр, влюбивший в себя аудиторию! Автор Майкл Бенсон провел множество интервью с Кларком, вдовой Кубрика, с создателем визуальных эффектов Дугом Трамбаллом, с актером Дэном Рихтером и многими другими. (   Читать дальше...   )Жанр: Культура и искусство, КинематографПеревод: Д. Сажина, Д. КалининаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2650C704FBBBC10D063815F820387E0922D73DC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370371   (896712) от 27.03.2020
+
+А.В. Чудова (ред.) | Портреты цветов и фруктов (2018) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наверное, в мире нет ничего прекраснее благоухающих цветов и аппетитнее спелых ароматных фруктов, и художнику так хочется запечатлеть мгновение и передать красоту и свежесть плодов и растений. Нет ничего проще. С помощью этого самоучителя, написанного известными художниками и преподавателями, вы с легкостью научитесь рисовать:
+• розы и тюльпаны
+• лилии и гвоздики (   Читать дальше...   )Жанр: Изобразительное искусствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B8862182D2867C04D945890EC9A39B95401790D
 ```
 
 https://mybot314.ru/tekegram_catalog/

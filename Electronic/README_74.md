@@ -1,3 +1,59 @@
+###  Публикация: 755839   (926944) от 11.02.2014
+
+Jonas Stenberg - Overworld (2014) [MP3|320 кб/с]<Trance, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926944.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Overworld (Original Mix) 07:48
+2. Overworld (Alexander Popov Mix) 06:16Жанр: Trance, Progressive TranceПродолжительность: 00:14:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC215CABDFD58D8A03638EFE5C89E7A81FC28846
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987538   (926233) от 17.02.2016
+
+VA - Sweet Valentine Kuschel Lounge (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chriss De Vynal - Take Me Back to the Music [07:16]
+02. Collective Sound Members - When Love Leaves [05:19]
+03. Ludwig Zibell - Wagneritz - David Hasert Remix [07:38]
+04. John Soultek - Let the Music Talk [07:08](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:08:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9604775EE021BD6BFA8BCDBA61DE5D5703D4BAC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987130   (926222) от 17.02.2016
 
 Mage - Everything Is Changing (2016) [MP3|320 кб/с] <Drum & Bass>
@@ -6,7 +62,7 @@ Mage - Everything Is Changing (2016) [MP3|320 кб/с] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926222.jpg" />
 </div>
 
 
@@ -35,7 +91,7 @@ Sterling Angel - Obsession (2008) [MP3|320 Kbps] <Downtempo, Chillout>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926124.jpg" />
 </div>
 
 
@@ -64,7 +120,7 @@ VA - French Plates 2016 (2016) [MP3|320 кб/с] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926091.jpg" />
 </div>
 
 
@@ -93,7 +149,7 @@ Sterling Angel - Eden (2009) [MP3|320 Kbps] <Downtempo, Chillout>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926080.jpg" />
 </div>
 
 
@@ -122,7 +178,7 @@ V.A. - Coffee Bar Lounge, Vol. 17 (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy Lis
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925728.jpg" />
 </div>
 
 
@@ -151,7 +207,7 @@ X-Dream - X-Dream Remixed (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925725.jpg" />
 </div>
 
 
@@ -180,7 +236,7 @@ VA - Halva (2020) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925631.jpg" />
 </div>
 
 
@@ -209,7 +265,7 @@ VA - GRL GANG Presents: RIOT! (2020) [MP3|320 Kbps] <Dirty Dubstep, Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925620.jpg" />
 </div>
 
 
@@ -238,7 +294,7 @@ VA - Lush Buns (2020) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925615.jpg" />
 </div>
 
 
@@ -267,7 +323,7 @@ VA - Segment (2020) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925607.jpg" />
 </div>
 
 
@@ -296,7 +352,7 @@ VA - Absurd Idea (2020) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925526.jpg" />
 </div>
 
 
@@ -325,7 +381,7 @@ Butch - Papillon (2008) [FLAC|Lossless|tracks] <Techno, Minimal Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925386.jpg" />
 </div>
 
 
@@ -354,7 +410,7 @@ DRØN (Dron, Signalform, Self Oscillate) - Discography 19 Releases (2000-2021) E
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925075.jpg" />
 </div>
 
 
@@ -381,7 +437,7 @@ Proem - Discography 28 Releases (1999-2021) n5MD, Merck, The 1056 [FLAC|Lossless
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924951.jpg" />
 </div>
 
 
@@ -410,7 +466,7 @@ VA - Wind In The Field (Downtempo Series)  Vol.008 (2017) [MP3|320 Kbps] <Downte
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924572.jpg" />
 </div>
 
 
@@ -439,7 +495,7 @@ VA - Future Funk Meets Electro (2017) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924570.jpg" />
 </div>
 
 
@@ -468,7 +524,7 @@ VA - Wind In The Field (Downtempo Series)  Vol.009 (2017) [MP3|320 Kbps] <Downte
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924566.jpg" />
 </div>
 
 
@@ -497,7 +553,7 @@ VA - Detox Lounge Deluxe (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924557.jpg" />
 </div>
 
 
@@ -526,7 +582,7 @@ VA - Espectrum: The Avantroots Dub Techno Compilation (2016) [FLAC|Lossless|WEB-
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924455.jpg" />
 </div>
 
 
@@ -555,7 +611,7 @@ Bill Bruce - Changing (1982) 12" [MP3|320 Kbps] <Electro, Synth-pop, Minimal>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924373.jpg" />
 </div>
 
 
@@ -584,7 +640,7 @@ Blank & Jones - Pure Lounge: Chilling Club Sounds (2016) [MP3|320 кб/с] <Chil
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924306.jpg" />
 </div>
 
 
@@ -613,7 +669,7 @@ VA - Armada Chill 2017 [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924243.jpg" />
 </div>
 
 
@@ -642,7 +698,7 @@ ATB - Under The Stars (2016) [MP3|320 кб/с] <Chillout, Downtempo, Ambient>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924169.jpg" />
 </div>
 
 
@@ -671,7 +727,7 @@ Halftribe - Backwater Revisited (2019) Dronarivm [FLAC|Lossless|WEB-DL|tracks] <
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924165.jpg" />
 </div>
 
 
@@ -685,64 +741,6 @@ Halftribe - Backwater Revisited (2019) Dronarivm [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBA8B4E02928A49159550656CC385373DA79466F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366283   (924132) от 11.03.2020
-
-VA - Sirup Miami 2020 [MP3|320 Kbps] <House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Funk Machine - In My Arms [03:00]
-02. Sons Of Maria - Empires [02:57]
-03. ilMuro - Lost [03:14]
-04. The Giver - Do It [03:12](   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 01:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:289B6EFD910A3A9BB6BD8B5E1344341A16E3DC9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366284   (924129) от 11.03.2020
-
-VA - Machine Prototype 12 (2019) [MP3|320 Kbps] <House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daniel Hecke - Acid (Joe De Renzo Remix) [06:34]
-02. Callibry - Bubbles (Instrumental Mix) [05:33]
-03. Mountain P - The Groove (Miguel Serrano Remix) [06:35]
-04. Simone Cerquiglini - Inside The Box (Jack Liberto Remix) [05:32](   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 03:45:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E5E6781A1CD5B87F7C6D72B4DA07819C4DDCE34
 ```
 
 https://mybot314.ru/tekegram_catalog/

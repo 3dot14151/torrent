@@ -1,3 +1,32 @@
+###  Публикация: 1648137   (231177) от 21.07.2023
+
+Wanted - Late Attraction (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231177.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breaking 'Till Dawn
+02. Late Attraction
+03. Lost In The Night
+04. Gas Burner(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:55:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ED8E973656217F637EA4D1E1A4EBC504E35BF7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1649020   (231176) от 26.07.2023
 
 Питоны 3000 - Грустный и дерзкий (2023) [MP3|320 Kbps] <dance-punk>
@@ -6,7 +35,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231176.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Demonic Sacrifice - Enter the Realm of Pure Darkness (1997) [MP3|320 Kbps] <Deat
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231168.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Zorormr - The Monolith (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231165.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Graywolf - Graywolf (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231163.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Dawnlight - Eternity (2017) EP [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231162.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Lachaise - Silent Cries for Help (2009) [MP3|320 Kbps] <Symphonic Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231157.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Foo Fighters - But Here We Are (2023) [FLAC|Lossless|tracks + .cue] <Alt. Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231156.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Critical Defiance - No Life Forms (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231148.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Oxbow - Love's Holiday (2023) [MP3|320 Kbps] <Art-Rock, Post-Rock, Noise Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231144.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Crossing Eternity - The Rising World (2018) [FLAC|Lossless|image + .cue] <Heavy,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231142.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Mystfall - Celestial Vision (2023) [MP3|320 Kbps] <Symphonic Metal, Gothic Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231138.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Decimator - Carnage City State Mosh Patrol (1989) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231135.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Lachaise - In a State of Oblivion (2012) [MP3|320 Kbps] <Symphonic Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231131.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Damnatory - The Complete Disgoregraphy 1991-2003 (2018) Compilation [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231111.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Feuerschwanz - Fegefeuer (2023) 3CD, Digital Deluxe Album [MP3|320 Kbps] <Gothic
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231107.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Various Artists - 80s Finest Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231103.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Ornamentos Del Miedo - El Cosmos Me Observa En Silencio (2023) [FLAC|Lossless|WE
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231087.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231079.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Hænesy (Haenesy) - Garabontzia (2021) [FLAC|Lossless|WEB-DL|tracks] <Black Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231070.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Gardenian - Sindustries (2000) [FLAC|Lossless|image + .cue] <Melodic Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231062.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Desolator - Sermon of Apathy (2020) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231052.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Gardenian - Two Feet Stand (1997) [FLAC|Lossless|image + .cue] <Melodic Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231048.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Desolator - Unearthly Monument (2013) [FLAC|Lossless|WEB-DL|tracks] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231046.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Cavern Deep - 3 Albums (2021-2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231041.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Demonic Sacrifice - Enter the Realm of Pure Darkness (1997) [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231039.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Demonic Sacrifice - Enter the Realm of Pure Darkness (1997) [FLAC|Lossless|image
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7ECB9A78D1BB811767DC6F93171FBF114C0AAA53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649312   (231034) от 27.07.2023
-
-Gardenian - Soulburner (1999) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. As a True King
-02. Powertool
-03. Deserted
-04. Soulburner(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DD1E29DDC1A26DD875483679EC6F60D0247F1AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

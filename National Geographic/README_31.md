@@ -6,7 +6,7 @@ NG: Из истории Второй мировой войны. Гражданс
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298670.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NGW: Дикая природа Перу: арена боев – Анды. До�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298602.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ NGW. Голый землекоп: Самый странный супергеро
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298593.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ NG. Космический шаттл: триумф и трагедия / The Sp
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296779.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ NG: Широкий взгляд с Кэлом Пенном / The Big Picture wit
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295474.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ NG: Расследования авиакатастроф / Air Crash Investigat
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294686.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ NG: Дикий Йеллоустоун: Волчица /  Wild Yellowstone: She W
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292642.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ NG: Международный аэропорт Дубай. Серия 6 / Ultim
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291623.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ NG: Международный аэропорт Дубай. Серия 7 / Ultim
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291454.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ NG: Возмездие / Avenging Evil (2018) DVB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289613.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ NG: Международный аэропорт Дубай. Серия 1 / Ultim
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288719.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ NG: Международный аэропорт Дубай. Серия 9 / Ultim
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287937.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ NG: Международный аэропорт Дубай. Серия 8 / Ultim
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287344.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ NGW: TerraMater. Дикая природа Уганды / Wild Uganda (2018) HDT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286130.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ NG. Ледяная дорога: Кошмар на дороге! / Ice Road Resc
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280993.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ NGW. Выжить в дикой природе / Survive the Wild(2016) HDTV [H.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279455.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ NG: Древние греки / The Greeks (2016) HDTVRip (Серии 1-3 из 3
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276271.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ NGW: Потоп / The Flood (2018) HDTV [H.264/1080i-LQ] (серии 1-2)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274073.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ NG: Миссия полета к Солнцу / Mission to the Sun (2018) DVB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274064.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ NGW: Голодное нападение / Striker (2007) HDTVRip [H.264/720p-LQ
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272974.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ NGW: Последний рай орангутанов / The Last Orangutan Eden 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271443.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ NG: Лики Власти / Icons of Power (2006) HDTV [H.264/1080i-LQ] (фил�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271433.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ NGW: Династия дельфинов / Dolphin Dynasty (2016) HDTV [H.264/10
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270890.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ NG. Американская мафия изнутри / Inside the American Mob
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270404.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ National Geographic. Американская мафия изнутри / Inside
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270394.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ NG: Невероятное путешествие Хаббла / Hubble's Amazin
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269992.jpg" />
 </div>
 
 

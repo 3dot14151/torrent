@@ -1,3 +1,58 @@
+###  Публикация: 1671069   (171564) от 23.10.2023
+
+Renamer 6.2.0 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Renamer - это приложение для пакетного переименования файлов в macOS, которое позволяет быстро и удобно переименовывать множество файлов. Вам понравится красивый пользовательский интерфейс , новые полезные усовершенствования, которые делают переименование файлов еще проще, и, конечно, множество способов переименования файлов. Поддерживает ID3 и EXIF.Тип издания: macOS SoftwareРелиз состоялся: 25.09.2023Разработчик: © 2023 Incredible Bee Ltd.Поддерживаемая ОС: macOS X 12.3 и вышеЯзык интерфейса: Русский, английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F990487A2D50E0421AA8BDA6E1847851A993FA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671217   (171500) от 23.10.2023
+
+MediaHuman Youtube Downloader for Mac 3.9.9.86 [Multi/Ru]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171500.jpg" />
+</div>
+
+
+###  Подробнее
+
+YouTube Downloader - удобная программа-загрузчик для тех, кто хочет скачать свой любимый видеоклип, музыкальное видео или трейлер нового фильма с YouTube или подобных сервисов.
+
+• Закачка нескольких файлов одновременно
+• Сохранение видео целиком, либо только звуковой дорожки(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.09.2023Разработчик: MediaHumanПоддерживаемая ОС: OS X 10.6 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2D9CBC164BDD660550700F329CB8FDC7B11EE88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1671223   (171497) от 23.10.2023
 
 ACDSee Photo Studio 9 v.9.3 [En]
@@ -6,7 +61,7 @@ ACDSee Photo Studio 9 v.9.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171497.jpg" />
 </div>
 
 
@@ -33,7 +88,7 @@ Adobe Audition 2024 v.24.0 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171470.jpg" />
 </div>
 
 
@@ -59,7 +114,7 @@ NCH Doxillion Plus 7.22 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171441.jpg" />
 </div>
 
 
@@ -88,7 +143,7 @@ Permute 3 v.3.11.1 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171437.jpg" />
 </div>
 
 
@@ -114,7 +169,7 @@ Donemax DMmenu 1.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171424.jpg" />
 </div>
 
 
@@ -140,7 +195,7 @@ Disk Clean Pro 6.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171422.jpg" />
 </div>
 
 
@@ -166,7 +221,7 @@ iStatistica Pro 5.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171413.jpg" />
 </div>
 
 
@@ -192,7 +247,7 @@ iStatistica 6.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171409.jpg" />
 </div>
 
 
@@ -218,7 +273,7 @@ MacX Video Converter Pro 6.8.1 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171404.jpg" />
 </div>
 
 
@@ -245,7 +300,7 @@ Apple Remote Desktop 3.9.7 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171354.jpg" />
 </div>
 
 
@@ -271,7 +326,7 @@ DoYourData Start Menu Pro 5.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171348.jpg" />
 </div>
 
 
@@ -297,7 +352,7 @@ Adobe Character Animator 2024 v.24.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171336.jpg" />
 </div>
 
 
@@ -324,7 +379,7 @@ Adobe Animate 2024 v.24.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171332.jpg" />
 </div>
 
 
@@ -350,7 +405,7 @@ Jump Desktop (RDP, VNC, Fluid) 8.10.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171328.jpg" />
 </div>
 
 
@@ -377,7 +432,7 @@ Deliver 2.7.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171272.jpg" />
 </div>
 
 
@@ -403,7 +458,7 @@ Web Confidential for Mac 5.4.1 U2B [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171253.jpg" />
 </div>
 
 
@@ -429,7 +484,7 @@ Color Wheel 8.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171250.jpg" />
 </div>
 
 
@@ -455,7 +510,7 @@ PDF Squeezer 4 v.4.4 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171245.jpg" />
 </div>
 
 
@@ -482,7 +537,7 @@ NetWorker Pro 9.0.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171238.jpg" />
 </div>
 
 
@@ -508,7 +563,7 @@ ConceptDraw PROJECT 14 v.14.0.0.302 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171237.jpg" />
 </div>
 
 
@@ -534,7 +589,7 @@ ConceptDraw DIAGRAM 17 v.17.0.0.468 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171204.jpg" />
 </div>
 
 
@@ -560,7 +615,7 @@ Colibri 2.1.7 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171200.jpg" />
 </div>
 
 
@@ -587,7 +642,7 @@ ConceptDraw MINDMAP 15 v.15.0.0.296 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171198.jpg" />
 </div>
 
 
@@ -613,7 +668,7 @@ GM EPUB Reader Pro 2.5.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171193.jpg" />
 </div>
 
 
@@ -624,58 +679,6 @@ GM EPUB Reader — это полнофункциональное приложе�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1D1CB8EF88249C635B1523359323FA47505203C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671506   (171175) от 25.10.2023
-
-ConceptDraw Office for Mac 10.0.0 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171175.jpg" />
-</div>
-
-
-###  Подробнее
-
-ConceptDraw Office – пакет приложений для бизнес-продуктивности, разработанный компанией CS Odessa . Пакет ConceptDraw Office включает в себя инструменты для создания и обработки интеллект-карт (mind map), программное обеспечение для управления проектами, и графический редактор для создания бизнес–графики. Приложения в составе ConceptDraw Office поддерживают авторскую (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.10.2023Разработчик: © 1993 — 2021 CS Odessa Corp.Поддерживаемая ОС: macOS 10.15 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0A70D832B579BFAEB577F3E61AC9CC0CBC1E139
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671545   (171164) от 25.10.2023
-
-The Unarchiver 4.3.6 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171164.jpg" />
-</div>
-
-
-###  Подробнее
-
-Unarchiver — небольшая и простая в использовании утилита, которая может разархивировать множество различных типов архивных файлов. Приложение будет открывать распространенные форматы, такие как Zip, RAR (включая v5), 7-zip, Tar, Gzip и Bzip2, также откроет многие старые форматы, такие как StuffIt, DiskDoubler, LZH, ARJ и ARC. Unarchiver даже откроет другие типы файлов, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.10.2023Разработчик: © 2023 MacPaw Inc.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FDBE51AB5743635B5888BB553677E0EB3D6AB61
 ```
 
 https://mybot314.ru/tekegram_catalog/

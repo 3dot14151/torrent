@@ -1,3 +1,31 @@
+###  Публикация: 1314655   (516828) от 16.07.2019
+
+Михаил Антончик | НЛП Практик (2014) DVDRip [H.264]
+
+>>Обучающие видеоматериалы
+>>Психология и саморазвитие (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для кого предназначен этот курс?
+- Для бизнесменов, менеджеров, руководителей любого уровня, рекламных агентов, консультантов и других специалистов, для которых коммуникация является важнейшей составляющей их деятельности
+- Для всех людей, заинтересованных в личностном развитии, более эффективном использовании имеющихся ресурсов и открытии в себе новых возможностей (   Читать дальше...   )Жанр: Психология, Гипноз, НЛППродолжительность: 23:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25C884DEDC2322006D08A436979DAC7DE4A78406
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1561073   (516588) от 03.07.2022
 
 Cybrary, Robert Smith и др. | Become a SOC Analyst - Level 1 (2020) PCRec [EN / EN Sub]
@@ -6,7 +34,7 @@ Cybrary, Robert Smith и др. | Become a SOC Analyst - Level 1 (2020) PCRec [EN
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516588.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516479.jpg" />
 </div>
 
 
@@ -62,7 +90,7 @@ SmartMe | Thinking in Angular: про что не знает 80% AngularJS ра�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514745.jpg" />
 </div>
 
 
@@ -88,7 +116,7 @@ Udemy, Angela Yu | 100 Days of Code - The Complete Python Pro Bootcamp (2021) PC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514344.jpg" />
 </div>
 
 
@@ -117,7 +145,7 @@ Games Workshop | Как красить миниатюры Citadel [2012] DVDRip 
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514258.jpg" />
 </div>
 
 
@@ -146,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513927.jpg" />
 </div>
 
 
@@ -172,7 +200,7 @@ PluralSight | Check Point Certified Security Administrator Install & Deploy (201
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513655.jpg" />
 </div>
 
 
@@ -198,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513228.jpg" />
 </div>
 
 
@@ -224,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513217.jpg" />
 </div>
 
 
@@ -250,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512609.jpg" />
 </div>
 
 
@@ -277,7 +305,7 @@ Caden Painter | SWA COMPLETE FL STUDIO 12 (2015) PCRec [H.264/1080p] [EN]
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512578.jpg" />
 </div>
 
 
@@ -303,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512245.jpg" />
 </div>
 
 
@@ -332,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511199.jpg" />
 </div>
 
 
@@ -361,7 +389,7 @@ video2brain | Adobe After Effects CS6: Learn by Video [Jul 31, 2012] PCRec [En]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511154.jpg" />
 </div>
 
 
@@ -388,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510628.jpg" />
 </div>
 
 
@@ -414,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510617.jpg" />
 </div>
 
 
@@ -440,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510044.jpg" />
 </div>
 
 
@@ -467,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509806.jpg" />
 </div>
 
 
@@ -493,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509481.jpg" />
 </div>
 
 
@@ -522,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508916.jpg" />
 </div>
 
 
@@ -548,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508867.jpg" />
 </div>
 
 
@@ -575,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508864.jpg" />
 </div>
 
 
@@ -604,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508778.jpg" />
 </div>
 
 
@@ -630,7 +658,7 @@ Oleg Lav | Camtasia Studio — профессиональный видеоред
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508757.jpg" />
 </div>
 
 
@@ -657,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508744.jpg" />
 </div>
 
 
@@ -670,35 +698,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E229B00EC4C327AC6DF9C3F71AD419409D7B306E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932824   (507820) от 30.08.2015
-
-Дарья Черненко | Заморозка. Готовим впрок (2015) PCRec
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507820.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы научитесь правильно замораживать, хранить и размораживать продукты.
-Вы научитесь правильно замораживать, хранить и размораживать готовые блюда.
-Вы сможете существенно сэкономить, замораживая на зиму ягоды, зелень, овощи и фрукты.
-У вас в холодильнике ВСЕГДА будет готовая ДОМАШНЯЯ еда.(   Читать дальше...   )Жанр: КулинарияПродолжительность: 07:37:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D23B8C2E7B468BE0327BDE5EEB05DC9C8A2B955D
 ```
 
 https://mybot314.ru/tekegram_catalog/

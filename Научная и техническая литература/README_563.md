@@ -1,134 +1,3 @@
-###  Публикация: 1194213   (155485) от 25.12.2017
-
-А.П. Станчинский | Политграмота [5-е изд.] (1925) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155485.jpg" />
-</div>
-
-
-###  Подробнее
-
-Политическая грамота — это первоначальные сведения о строе современного человеческого общества, о положении трудящихся в нем и их борьбе за полное освобождение от всякого гнета, необходимые для каждого сознательного гражданина. Без этих первоначальных сведений трудящиеся не смогут вести сознательную борьбу за такое устройство человеческого общества, в котором не (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5760115AA7755970C67A17DF2E6DBD64F12C429
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676699   (155434) от 14.11.2023
-
-Е.В. Титов, А.А. Сошников | Контроль и оценка электромагнитной обстановки для выбора защитных мероприятий (2023) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены вопросы обеспечения электромагнитной безопасности на предприятиях агропромышленного комплекса, в организациях и учреждениях различных отраслей экономики, занимающихся и/или связанных с вопросами проектирования, эксплуатации, обслуживания и ремонта систем электроснабжения городов и других населённых пунктов, промышленных предприятий и сельского хозяйства, (   Читать дальше...   )Жанр: Электротехника, электроэнергетикаИздательство: Алтайский государственный технический университетФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:304E4227F7A181DC997376E06A37F810FB28EF57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346999   (155422) от 21.12.2019
-
-О.С. Рымаренко | Леонардо да Винчи: Жизнь и открытия (2013) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Математика, анатомия, механика, гидротехника, военное искусство, авиастроение и архитектура - вот далеко не полный список научных интересов Леонардо да Винчи. На страницах книги исследования и открытия Леонардо в этих областях сравниваются с достижениями последующих эпох. И выводы зачастую оказываются не в пользу современников. Теоретическое обоснование гениальности (   Читать дальше...   )Жанр: История, БиографияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFFA29E7B367DD41A83ADD13F5EBE69DFC60EDAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270709   (155408) от 20.12.2018
-
-В.Б. Миронов | Первая мировая война. Борьба миров (2014) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155408.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга академика РАЕН В.Б. Миронова посвящена Первой мировой войне, столетие которой отмечалось в 2014 году. Это глубокое, серьезное исследование о том, кто был заинтересован в развязывании этой бойни миллионов людей, какие страны и почему в ней участвовали, как развивались события и каковы итоги войны. Книга основана на сотнях документальных источников, показаниях (   Читать дальше...   )Жанр: Военная историяФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED2E04D460EBC001EEFC6720EFDFF4621B4AC602
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600527   (155404) от 28.12.2022
-
-Л. И. Резников  и др. | Методика преподавания физики в средней школе. Механика. (1974) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155404.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге анализируются содержание и основные методические принципы изучения механики в средней школе, рассматривается трактовка основных понятий и закономерностей в области механики с точки зрения их современного понимания в науке.
-Основное содержание книги составляют конкретные рекомендации к изложению учебного материала, проведению демонстрационного эксперимента (   Читать дальше...   )Жанр: физика, пособие для учителейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:463B1B7107305E8B06C8B040D9EFD8FE25AD0F54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 500273   (155387) от 21.12.2020
 
 Подборка книг | «Белое движение» [1920-2012] [FB2, PDF, DjVu, DOC, TXT]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155387.jpg" />
 </div>
 
 
@@ -163,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155336.jpg" />
 </div>
 
 
@@ -189,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155329.jpg" />
 </div>
 
 
@@ -215,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155318.jpg" />
 </div>
 
 
@@ -241,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155294.jpg" />
 </div>
 
 
@@ -267,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155267.jpg" />
 </div>
 
 
@@ -293,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155251.jpg" />
 </div>
 
 
@@ -320,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155203.jpg" />
 </div>
 
 
@@ -347,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155185.jpg" />
 </div>
 
 
@@ -374,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155075.jpg" />
 </div>
 
 
@@ -400,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155069.jpg" />
 </div>
 
 
@@ -426,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155023.jpg" />
 </div>
 
 
@@ -452,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155016.jpg" />
 </div>
 
 
@@ -478,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154999.jpg" />
 </div>
 
 
@@ -505,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154983.jpg" />
 </div>
 
 
@@ -532,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154947.jpg" />
 </div>
 
 
@@ -558,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154901.jpg" />
 </div>
 
 
@@ -584,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154846.jpg" />
 </div>
 
 
@@ -610,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154813.jpg" />
 </div>
 
 
@@ -638,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154799.jpg" />
 </div>
 
 
@@ -664,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154626.jpg" />
 </div>
 
 
@@ -675,6 +544,142 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFA31593C1ED3FB9B2153540B81D114DADAA1C36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676852   (154600) от 15.11.2023
+
+А.А. Преображенский | Магнитные материалы (1965) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154600.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге кратко изложены основные представления о физических процессах, происходящих в ферромагнитных металлах, сплавах и ферритах. Рассмотрены требования, предъявляемые к различным группам магнитных материалов, и их свойства. Описаны технологические операции, выполняемые на заводах-потребителях магнитных материалов. Даны некоторые сведения об измерении свойств магнитных (   Читать дальше...   )Жанр: ФизикаИздательство: Высшая школаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBBBC344443A9A0C186C7DD4E2AF54584066ED25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085191   (154599) от 23.12.2016
+
+Зигмунт Бауман | Идет ли богатство немногих на пользу всем прочим? (2015) [FB2]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154599.jpg" />
+</div>
+
+
+###  Подробнее
+
+Принято считать, что лучший способ помочь бедным состоит в том, чтобы позволить богатым богатеть, что всем выгодно, когда богатые платят меньше налогов, и что, в конце концов, их богатство полезно для всех нас. Но эти распространенные представления опровергаются опытом, исследованиями и простой логикой. Такое несоответствие представлений фактам заставляет нас остановиться (   Читать дальше...   )Жанр: СоциологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A77BE528B317905874ACC0F6B8BE683C8A4B3F36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085236   (154516) от 23.12.2016
+
+А. А. Горелова (ред.) | Норвегия. Справочная карта (1977) [JPG, PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154516.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данное издание входят:
+1) Подробная справочная карта Норвегии с административным делением (масштаб 1:2 500 000).
+2) Указатель географических названий в алфавитном порядке.
+3) Обложка с выходными данными (утеряна).(   Читать дальше...   )Жанр: Складная географическая картаФормат: JPG, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6415B1B888A1B1718AC4A148F5707F19A0418F55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085556   (154502) от 23.12.2016
+
+М. П. Бушуева (ред.) | Норвегия. Справочная карта (1984) [JPG, PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154502.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данное издание входят:
+1) Подробная справочная карта Норвегии с административным делением (масштаб 1:2 500 000).
+2) Указатель географических названий в алфавитном порядке.
+3) Обложка с выходными данными.(   Читать дальше...   )Жанр: Складная географическая картаФормат: JPG, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D4E4FBF54D802B64BC4B61E543388E166776B85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085149   (154404) от 23.12.2016
+
+Джек Голдстоун | Революции. Очень краткое введение (2015) [FB2]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга ведущего специалиста в области исторической макросоциологии и одного из основоположников клиодинамики Джека А.Голдстоуна посвящена описанию структуры, причин и результатов революций — этих ключевых событий в развитии общества, их переходе от монархий, империй и диктатур, персоналистских режимов к демократической форме правления. Автор критически анализирует (   Читать дальше...   )Жанр: Публицистика, общество, историяФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE96C7F87F87CE96A6BC180A551C68B3156A6EDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

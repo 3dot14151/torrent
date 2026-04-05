@@ -1,3 +1,90 @@
+###  Публикация: 1560167   (520745) от 29.06.2022
+
+Werewolves - From the Cave to the Grave (2022) [FLAC|Lossless|WEB-DL|tracks] <Technical Black, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Self-Help Book-Burning (00:04:59)
+02 - We Are Better Than You (00:03:43)
+03 - All the Better to Eat You With (00:02:52)
+04 - Crushing Heaven's Mandate (00:03:47)(   Читать дальше...   )Жанр: Technical Black, Death MetalПродолжительность: 00:34:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B205EDBBF5C5335E5A5CF4AC4DE6F51CF1B88DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927984   (520619) от 18.08.2015
+
+Veil of Maya - Matriarch (2015) [FLAC|image+.cue]<Progressive Metalcore/Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Nyu  01:56
+02 - Leeloo  02:52
+03 - Ellie  03:04
+04 - Lucy  02:56(   Читать дальше...   )Жанр: Progressive Metalcore/DeathcoreПродолжительность: 00:36:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5687298F3C212A3040B09FE5259BB545B06DA840
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927986   (520613) от 18.08.2015
+
+Periphery - 2 альбома - Juggernaut: Alpha\Omega (2015) [FLAC|tracks+.cue]<Progressive Metal / Math Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Reprise  01:26
+02 - The Bad Thing  05:54
+03 - Priestess  05:04
+04 - Graveless  03:56(   Читать дальше...   )Жанр: Progressive Metal / Math MetalПродолжительность: 00:39:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B90A3C49D8C060838BAFE8CEE5E0EE2732FB5E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 929188   (520552) от 18.08.2015
 
 АлисА - Черная метка (1994) Remastered /2014, Мистерия Звука/ [MP3|320 кб/с]<Rock>
@@ -6,7 +93,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520552.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520544.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Hel - Das Atmen der Erde (2012) [FLAC|Lossless]<Progressive Metal/Pagan Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520434.jpg" />
 </div>
 
 
@@ -99,7 +186,7 @@ Apostol - Aranyalbum (Nehéz a boldogságtól búcsút venni) (1996) [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520258.jpg" />
 </div>
 
 
@@ -128,7 +215,7 @@ Pathfinder - 2 Albums (2010-2012) [FLAC/WavPack|Lossless]<Symphonic Power Metal/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520244.jpg" />
 </div>
 
 
@@ -163,7 +250,7 @@ Weird Fate - The Collapse Of All That Has Been (2012) [WavPack|Lossless]<Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520234.jpg" />
 </div>
 
 
@@ -198,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520225.jpg" />
 </div>
 
 
@@ -230,7 +317,7 @@ Fox - 3 Albums (1975-1977) LP [MP3|320 Kbps] <Rock, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520131.jpg" />
 </div>
 
 
@@ -259,7 +346,7 @@ Doro - Forever Warriors // Forever United (2018) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520125.jpg" />
 </div>
 
 
@@ -288,7 +375,7 @@ Status Quo - Down Down & Dirty At Wacken (2018) (Live)  [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520050.jpg" />
 </div>
 
 
@@ -317,7 +404,7 @@ Silberbart - 4 Times Sound Razing (1971) (1 альбом, 2 издания) [FLA
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519836.jpg" />
 </div>
 
 
@@ -346,7 +433,7 @@ Dark Funeral - We Are the Apocalypse (2022) [FLAC|Lossless|image + .cue] <Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519830.jpg" />
 </div>
 
 
@@ -375,7 +462,7 @@ Ben Folds Five - Ben Folds Five (1995) [OGG| 469-511 кб/с]<Alternative, Class
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519600.jpg" />
 </div>
 
 
@@ -404,7 +491,7 @@ Tokyo Rose - New American Saint (2005) [MP3|320 кб/с]<Pop Punk, Alternative R
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519593.jpg" />
 </div>
 
 
@@ -433,7 +520,7 @@ Ben Folds Five - Whatever And Ever Amen (1997) Special Expanded Edition /2005, E
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519592.jpg" />
 </div>
 
 
@@ -462,7 +549,7 @@ Whitford / St. Holmes - Whitford / St. Holmes (1981) [MP3|320 кб/с]<Melodic H
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519587.jpg" />
 </div>
 
 
@@ -491,7 +578,7 @@ Rare Earth - Get Ready (1969) [MP3|320 кб/с]<Rock, Funk Rock, Blues, Acid Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519586.jpg" />
 </div>
 
 
@@ -520,7 +607,7 @@ Stray Dog - Stray Dog (1973) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519584.jpg" />
 </div>
 
 
@@ -549,7 +636,7 @@ Verdunkeln - Weder Licht Noch Schatten (2012) [WavPack|Lossless]<Atmospheric Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519454.jpg" />
 </div>
 
 
@@ -579,7 +666,7 @@ Eric Clapton - Eric Clapton & Friends - The Album (2015) [MP3|320 кб/с]<Rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519441.jpg" />
 </div>
 
 
@@ -608,7 +695,7 @@ Ad Patres - Scorn Aesthetics (2012) [MP3|192 кб/с]<Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519400.jpg" />
 </div>
 
 
@@ -643,7 +730,7 @@ Landforge - Servitude To Earth (2012) [WavPack|Lossless]<Atmospheric Doom Metal/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519393.jpg" />
 </div>
 
 
@@ -674,7 +761,7 @@ Bonded By Blood - The Aftermath (2012) [FLAC|Lossless]<Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519312.jpg" />
 </div>
 
 
@@ -694,96 +781,6 @@ Bonded By Blood - The Aftermath (2012) [FLAC|Lossless]<Thrash Metal>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 534558   (519310) от 14.08.2012
-
-Tokyo Shoegazer - Crystallize (2011) [MP3|320 кб/с]<Alternative Post-Rock / Shoegaze>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 299 Addiction (03:45)
- 02. Just Alright (03:48)
- 03. Bright (08:18)
- 04. Silent Lies (04:31)
- 05. Waltz Matilda (06:24)
- 06. Free (03:34)
- 07. Back To My Place (08:58)Жанр: Alternative Post-Rock / ShoegazeПродолжительность: 00:39:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CF4A0DC999E71EA2ED4AE23FB0BAF6BBA7A567C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241568   (519294) от 18.08.2018
-
-Chris Smither - Small Revelations (HDCD) (1997) [FLAC|Lossless|tracks + .cue] <Folk-Rock, Contemporary Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thanks to You (Jesse Winchester) 02:46
-02. Slow Surprise (Chris Smither) 02:49
-03. Hold On(Chris Smither) 04:05
-04. Cave Man(Chris Smither) 04:40(   Читать дальше...   )Жанр: Folk-Rock, Contemporary BluesПродолжительность: 00:35:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9C6142A8837703DFB4DA42BF4A58C450A539AD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241611   (519281) от 18.08.2018
-
-Agnes Strange - Strange Flavour (1975) Remaster, 1996 [MP3|320 Kbps] <Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Give Yourself A Chance (03:29)
-02. Clever Fool (03:24)
-03. Motorway Rebel (04:05)
-04. Travelling (02:54)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 01:02:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4F5D3250402717E22171FDF438158C7C8CC85A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

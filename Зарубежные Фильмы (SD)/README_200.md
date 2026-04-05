@@ -1,55 +1,3 @@
-###  Публикация: 1507750   (790277) от 18.11.2021
-
-Перед дождём / Before the Rain (1994) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм на тему трагической войны в Югославии в начале 1990-х годов. Главным героем можно условно назвать фотографа, возвращающегося в родную деревню после долгих лет скитаний по горячим точкам планеты. Он не может принять новой реальности ненависти и кровной мести между людьми, с которыми когда-то жил, ходил в школу, играл...Производство: Македония, Франция, Великобритания, Aim, British Screen, European Co-production Fund, Ministry of Culture for the Republic of Macedonia, Noe, PolyGram Audiovisuel, Vardar FilmЖанр: драма, военныйРежиссер: Милчо МанчевскиАктеры: Грегуар Колен, Иосиф Йосифовски, Boris Delcevski, Деян Велков, Кирилл Ристоски, Младен Крстевский, Джемаил Максут, Лабина Митевска, Миле Йовановски, Милица СтояноваПеревод: профессиональный двухголосый (НТВ+), авторский (Михаил Иванов)Субтитры: русские (Toby & leburs), английские (Criterion)Продолжительность: 01:52:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C38B77D25420134233F3C07E0BC8598076D7643
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202404   (790244) от 28.01.2018
-
-Тор: Рагнарёк / Thor: Ragnarok (2017) WEB-DLRip [AVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790244.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вернувшись в Асгард в поисках таинственного врага, ведущего охоту на Камни Бесконечности, Тор обнаруживает, что действия его брата Локи, захватившего трон Асгарда, привели к приближению наиболее страшного события — Рагнарёка. По легенде это ознаменует последнюю битву Асгарда, последствием которой станет его полное уничтожение. В попытке предотвратить это событие (   Читать дальше...   )Производство: США / Marvel EntertainmentЖанр: фантастика, боевик, комедия, приключенияРежиссер: Тайка ВайтитиАктеры: Крис Хемсворт, Том Хиддлстон, Кейт Бланшетт, Идрис Эльба, Джефф Голдблюм, Тесса Томпсон, Карл Урбан, Марк Руффало, Энтони Хопкинс, Бенедикт КамбербэтчПеревод: Авторский (одноголосый, закадровый) (Solod)Субтитры: ОтсутствуютПродолжительность: 02:10:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16779F185332FFD937FDE5971EB2328FE2027283
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202140   (790240) от 28.01.2018
 
 Виктория и Абдул / Victoria & Abdul (2017) BDRip [H.264]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790240.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790239.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790235.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790185.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790179.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790136.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789617.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789580.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789549.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789345.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789283.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789282.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789278.jpg" />
 </div>
 
 
@@ -396,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789209.jpg" />
 </div>
 
 
@@ -422,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789140.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789135.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789027.jpg" />
 </div>
 
 
@@ -501,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789018.jpg" />
 </div>
 
 
@@ -527,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789014.jpg" />
 </div>
 
 
@@ -553,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788987.jpg" />
 </div>
 
 
@@ -579,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788981.jpg" />
 </div>
 
 
@@ -605,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788919.jpg" />
 </div>
 
 
@@ -631,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788917.jpg" />
 </div>
 
 
@@ -657,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788890.jpg" />
 </div>
 
 
@@ -668,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB7AC2C1EB39DF0425B1E904A420EC812BA38795
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203060   (788888) от 31.01.2018
+
+Джунгли / Jungle (2017) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа друзей отправляется в непроходимые джунгли Боливии в поисках экзотических впечатлений. Однако когда проводник исчезает и приятели остаются один на один с дикой природой, путешествие, начавшееся как забавное приключение, превращается в борьбу за выживание.Производство: Австралия, Колумбия / Babber Films, Cutting Edge Group, Screen AustraliaЖанр: Триллер, Драма, ПриключенияРежиссер: Грег МакЛинАктеры: Дэниэл Рэдклифф, Томас Кречман, Алекс Расселл, Джоэль Джексон, Лили Салливан, Ясмин Кассим, Яцек Коман, Луис Лопез, Энджи Милликен, Пэрис МолеттиПеревод: Дублированный (BD RUS)Субтитры: отсутствуютПродолжительность: 01:55:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EDD8822D402A3C6C7E2D242E8B15FFFD2B7C7B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202867   (788887) от 31.01.2018
+
+О теле и душе / Testrol es Lelekrol (2017) HDRip
+
+>>След.
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788887.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторонящаяся людей Мария и общительный, но одинокий Эндре — коллеги. Оба ведут замкнутый образ жизни и стараются избегать общения друг с другом. Неожиданно для себя они узнают, что каждую ночь им снятся одинаковые сны. Видя в этом некий знак, герои решаются на сближение. Открывшись друг другу, Эндре и Мария окажутся в водовороте комических и даже шокирующих событий…Производство: Венгрия / Inforg-M&M Film Kft.Жанр: Драма, мелодрамаРежиссер: Ильдико ЭньедиАктеры: Геза Морчани, Александра Борбей, Золтан Шнайдер, Эрвин Надь, Тамаш Йордан, Жужа Яро, Река Тенки, Юлия Ньяко, Итала Бекеш, Эва БатаПеревод: Профессиональный многоголосый (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:55:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE05DE20CA578AB1D08B90EAC0FBA604136A9EC8
 ```
 
 https://mybot314.ru/tekegram_catalog/

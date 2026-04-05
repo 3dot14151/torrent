@@ -1,3 +1,30 @@
+###  Публикация: 600236   (998816) от 08.01.2013
+
+Фред Адра | Приключения Лиса Улисса (4 книги)  [2010-2012] [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключения Лиса Улисса - интересный цикл Фреда Адра в жанре "звериной фэнтези".
+Приключения различных животных во главе с хитроумным Лисом Улиссом.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBC92FFB6BBA560BF7B4439BEBD8637EE3D7F7F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 349581   (998721) от 08.01.2013
 
 Е.О. Комаровский | Книга от насморка. О детском насморке для мам и пап [2010] [PDF]
@@ -6,7 +33,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998721.jpg" />
 </div>
 
 
@@ -34,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997792.jpg" />
 </div>
 
 
@@ -61,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997784.jpg" />
 </div>
 
 
@@ -88,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997415.jpg" />
 </div>
 
 
@@ -114,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997388.jpg" />
 </div>
 
 
@@ -143,7 +170,7 @@ Square Enix | Front Mission (3 модели) [2004-2005] [PDF] [JPN]
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997145.jpg" />
 </div>
 
 
@@ -169,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996801.jpg" />
 </div>
 
 
@@ -200,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995876.jpg" />
 </div>
 
 
@@ -227,7 +254,7 @@ WAK [2005-2012] [JPEG] [Pl, En]
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995795.jpg" />
 </div>
 
 
@@ -254,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995651.jpg" />
 </div>
 
 
@@ -286,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994685.jpg" />
 </div>
 
 
@@ -312,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994680.jpg" />
 </div>
 
 
@@ -342,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994443.jpg" />
 </div>
 
 
@@ -368,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994364.jpg" />
 </div>
 
 
@@ -396,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994124.jpg" />
 </div>
 
 
@@ -424,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993966.jpg" />
 </div>
 
 
@@ -450,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993110.jpg" />
 </div>
 
 
@@ -478,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992770.jpg" />
 </div>
 
 
@@ -504,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992635.jpg" />
 </div>
 
 
@@ -532,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992512.jpg" />
 </div>
 
 
@@ -558,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992077.jpg" />
 </div>
 
 
@@ -586,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991845.jpg" />
 </div>
 
 
@@ -613,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991789.jpg" />
 </div>
 
 
@@ -639,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991747.jpg" />
 </div>
 
 
@@ -666,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990891.jpg" />
 </div>
 
 
@@ -679,34 +706,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94BF04B0E511A70A55843851FB37937C93231A93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609242   (990815) от 28.01.2013
-
-Настольная игра | Сталкер: 1 уровень-Кордон 1.2 [2011] [JPG/DOC]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Настольные игры и Поделки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настольная игра «Сталкер: 1 уровень - Кордон» создавалось что называется «на коленке». Поэтому не судите строго за качество и оформление картинок. Желающие могут ввести в игру учет параметров артефактов, брони, и проч. предметов, прокачав таким образом правила до настольного Варгейма, а для картинок  использовать работы профессиональных художников.
-Цель проекта.
-Продолжить играть в любимую игру «Сталкер. Тени Чернобыля» в семейном кругу и с друзьями, только уже в настольном варианте.Язык интерфейса: Только русскийФормат: JPG/DOC
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F1DDC21103BECD634B082324418EBC1525109A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

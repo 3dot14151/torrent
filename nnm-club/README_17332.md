@@ -1,23 +1,22 @@
-###  Публикация: 958109   (324624) от 20.11.2015
+###  Публикация: 957911   (325618) от 19.11.2015
 
-Проекты - VideoHive - Elegant Opener - 13154533 [AEP]
+AusLogics BoostSpeed 8.1.1.0 [Ru/En]
 
->>След.
->>Слайдшоу (проекты)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325618.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Проект для создания эффектного слайдшоу.
-Проект предназначен для редактирования в AE.Формат: AEP
+Auslogics BoostSpeed - популярный набор инструментов для оптимизации и настройки вашей операционной системы. С помощью этой программы вы сможете значительно оптимизировать работу вашей системы, с легкостью настроить различные параметры Windows, очистить жесткий диск и системный реестр от мусора и ненужных записей, сделать дефрагментацию дисков и реестра, а также (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F593A3E1DDFDFE50D24E902462096102895E9AB2
+magnet:?xt=urn:btih:4CB43AF8877369641526316715D77CCF33BF6B40
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -25,28 +24,167 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582082   (324603) от 08.10.2022
+###  Публикация: 957938   (325617) от 19.11.2015
 
-Knorkator - Sieg der Vernunft (2022) [FLAC|Lossless|WEB-DL|tracks] <Neue Deutsche Harte>
+Вадим Крабов | Из России с любовью (2015) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый роман цикла «Колдун».
+
+Наш соотечественник попадает в магический мир. Только-только осваивает магию, по большой любви женится, воюет за новую Родину… и вдруг на тебе! Провидение забрасывает его назад, в Россию. Ох и повыл он, ох и погрыз земельку. Магии-то лишился, а привыкнуть к ней успел. Пристрастился, как кот к валерьянке, так и манит. Надо возвращаться, (   Читать дальше...   )Жанр: Городское фэнтези, ПопаданцыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E6A39C8E46303D10388A1A510AA495A8B2EFC56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958069   (325616) от 19.11.2015
+
+Терри Пратчетт | Финт (2015) [FB2, EPUB]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325616.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новинка от создателя «Плоского мира»!
+
+Лондон, викторианская Англия.
+Семнадцатилетний Финт рыщет в городской канализации в поисках утерянных сокровищ. Малопочтенное занятие, как ни крути, однако ж и не воровство…(   Читать дальше...   )Жанр: Историческая фантастика, Юмористическая фантастика, Зарубежная фантастикаФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23CE157AF6588D442C5686166AEC1035079ED145
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958053   (325615) от 19.11.2015
+
+Adele - 25 (2015) [MP3|320 кб/с]<Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello
+02. Send My Love (To Your New Lover)
+03. I Miss You
+04. When We Were Young(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FBB69A29F8B80B5B0887999CBD19933AEBA11F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957900   (325614) от 19.11.2015
+
+Картинки - Змей - искуситель. 2048x1152 - 100 шт [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эффектные обои с хитрыми, коварными, не на шутку опасными рептилиями, в том числе и легендарными в этом плане "змиями зелеными", вечно искушающими род людской.Формат: JPGРазрешение файлов: 2048х1152
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2A0F58E9B4CCE7913F0E6800AFE5AF991F05582
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957993   (325613) от 19.11.2015
+
+Эверест / Everest (2015) WEBRip [H.264] iTunes [MP4|960х400]
+
+>>Мультимедиа и прочее
+>>Мобильное Видео
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эверест — великая неприступная гора, покорить вершину которой мечтают многие профессиональные альпинисты. Одна из экспедиций на ее вершину закончилась настоящей трагедией, однако этот факт не останавливает отважных альпинистов.
+Опытный инструктор Роб Холл, собрав группу из лучших альпинистов, собирается совершить восхождение на самую высокую вершину планеты. Все (   Читать дальше...   )Производство: США, Великобритания, ИсландияЖанр: Триллер, Драма, ПриключенияРежиссер: Бальтасар КормакурАктеры: Джейсон Кларк, Джош Бролин, Джейк Джилленхол, Сэм Уортингтон, Джон Хоукс, Майкл Келли, Ингвар Эггерт Сигюрдссон, Кира Найтли, Эмили Уотсон, Робин РайтПеревод: Дублированный (iTunes Russia)Продолжительность: 02:01:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:352295F5E9F495A32E732A4B0732020C5D1CC973
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581573   (325592) от 07.10.2022
+
+Obituary - Slowly We Rot - Live & Rotting (2022) [FLAC|Lossless|image + .cue] <Death Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325592.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Die Welt wird nie wieder so, wie sie vorher war [00:03:55]
-02. Sieg der Vernunft [00:03:49]
-03. Der Hofstaat [00:04:04]
-04. Ihr habt gewonnen [00:03:59](   Читать дальше...   )Жанр: Neue Deutsche HarteПродолжительность: 00:40:51
+01. Intro
+02. Internal Bleeding
+03. Godly Beings
+04. Til Death(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:52:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2B2160909CF592579E0C2BA01F9CD3417D714D0C
+magnet:?xt=urn:btih:B4B0919C3BC14B4DE395722FC7C1B58F82129530
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -54,86 +192,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582206   (324602) от 08.10.2022
+###  Публикация: 1581571   (325591) от 07.10.2022
 
-King Gizzard & The Lizard Wizard - Ice, Death, Planets, Lungs, Mushrooms and Lava (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Garage Rock, Doom>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mycelium [00:07:35]
-02. Ice V [00:10:15]
-03. Magma [00:09:06]
-04. Lava [00:06:41](   Читать дальше...   )Жанр: Psychedelic, Garage Rock, DoomПродолжительность: 01:03:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD42BAEBEFB6ABCF2051249417FB03E3D98B1C9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581938   (324601) от 08.10.2022
-
-Big Mouth - Hands Of Time (1997) Japanese Edition, Reissue, 1998, Avalon [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where Were You (3:50)
-02. Show Me The Way (4:27)
-03. Valerie (3:35)
-04. Borderline (3:54)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24C37FB43AF72A1A3E4D51B7476B9B1B0E628651
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582027   (324600) от 08.10.2022
-
-Sleeping Romance - We All Are Shadows (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+Obituary - Cause Of Death - Live Infection (2022) [FLAC|Lossless|image + .cue] <Death Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325591.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Of Shadows And Men
-02. Smoke And Mirrors
-03. Call My Name
-04. Ghost Shadows(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:41:25
+01. Infected
+02. Body Bag
+03. Chopped In Half
+04. Circle Of The Tyrants(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:59:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5C8EB291B4D3E8FFDE0A587B5D68C67CF8C643B1
+magnet:?xt=urn:btih:D90D13AFA81E2F34B5BD6F0AB8C5FA1BAD08429A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -141,28 +221,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582248   (324599) от 08.10.2022
+###  Публикация: 1582049   (325590) от 07.10.2022
 
-Sarah Brightman - Dreamchaser (2013) [OGG Vorbis|484 Kbps] <Pop, Classical>
+Александр Островский | Без вины виноватые (2002) [MP3, Юлия Борисова и др.]
 
->>Pop
->>Зарубежная поп-музыка
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325590.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Angel
-02. One Day Like This
-03. Glosoli
-04. Lento E Largo From Symphony No. 3, Op. 36 (Symphony Of Sorrowful Songs)(   Читать дальше...   )Жанр: Pop, ClassicalПродолжительность: 01:00:46
+Радиоверсия любимого произведения Александра Николаевича Островского, написанного им "на одном дыхании" и обреченного на 120 лет вперед быть самой репертуарной пьесой российской сцены. "Без вины виноватые" - это история женщины, однажды обманутой любимым и оставившей на попечение чужих людей своего маленького сына. Он не знает о своей матери ровным (   Читать дальше...   )Жанр: Драма, РадиоспектакльПродолжительность: 02:45:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F7C28080549BD9D1F713E66D37DB245E76BD9DC6
+magnet:?xt=urn:btih:70F84B18737C37620B8C589C41A318CAF08E1E14
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -170,57 +247,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581787   (324598) от 08.10.2022
+###  Публикация: 1581919   (325589) от 07.10.2022
 
-Sarah Brightman - Dive (1993) [OGG Vorbis|484 Kbps] <Pop, Downtempo, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dive
-02. Captain Nemo
-03. The Second Element
-04. Ship Of Fools(   Читать дальше...   )Жанр: Pop, Downtempo, Synth-popПродолжительность: 00:51:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2489F02AA8A7E8512D8070C4658C1D94B0D4BAC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582155   (324597) от 08.10.2022
-
-She Bites - Super Hero (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+DPrize - 2 Albums (2021-2022) [MP3|320 Kbps] <Melodic Death, Black Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325589.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Eye Of The Storm (3:38)
-02. Little Song (3:37)
-03. Hunter (3:53)
-04. Running (3:59)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:45:27
+01. Пролог [00:03:46]
+02. Исход [00:03:56]
+03. В тумане [00:03:28]
+04. Одержимость [00:03:29](   Читать дальше...   )Жанр: Melodic Death, Black MetalПродолжительность: 2 CD, 00:57:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F4A5A3A2DB489A95CF1A2915A147C8B81A81EAF8
+magnet:?xt=urn:btih:825CC686A2E91447B7E4A458E0259BBDA465761E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -228,144 +276,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582065   (324596) от 08.10.2022
+###  Публикация: 1581855   (325588) от 07.10.2022
 
-Haven of Echoes (Frequency Drift family) - he Indifferent Stars (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324596.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Sirensong - 6:11
-2.The Orator's Gift - 4:49
-3.Stasis - 5:31
-4.Endtime - 9:03(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:43:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B26CDA6C810437523739989985372FF9D6D0CC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582238   (324595) от 08.10.2022
-
-Wednesday 13 - Horrifier (2022) [MP3|320 Kbps] <Heavy Metal, Horror Punk, Glam Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Severed (0:56)
-02. Insides Out (3:32)
-03. Exhume and Devour (3:06)
-04. You're so Hideous (3:07)(   Читать дальше...   )Жанр: Heavy Metal, Horror Punk, Glam MetalПродолжительность: 00:39:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB126FE9A97002AE138F44F7E421A906B3F74F9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581830   (324594) от 08.10.2022
-
-Queensryche - Digital Noise Alliance (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Extremis
-02. Chapters
-03. Lost In Sorrow
-04. Sicdeth(   Читать дальше...   )Жанр: Progressive Heavy MetalПродолжительность: 01:00:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CC25C721D9B1588315DD3B15EEA50F408EDB9AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581939   (324593) от 08.10.2022
-
-Sarah Brightman - Fly (1996) [OGG Vorbis|484 Kbps] <Rock, Pop, Classical>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324593.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time To Say Goodbye (Con Te Partiro) (Featuring Andrea Bocelli)
-02. The Fly
-03. Why
-04. Murder In Mairyland Park(   Читать дальше...   )Жанр: Rock, Pop, ClassicalПродолжительность: 00:52:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEE711268CAEBDACA0DD2A1AC9A562379CE289CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582209   (324592) от 08.10.2022
-
-I Drink My Coffee Alone - Nichts (2022) [FLAC|Lossless|WEB-DL|tracks] <Experimental Deathcore>
+Bush - The Art Of Survival (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Grunge>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325588.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Die drei Brüder [00:02:56]
-02. Alles [00:04:29]
-03. Adam's Alltag [00:05:14]
-04. Mivina [00:03:39](   Читать дальше...   )Жанр: Experimental DeathcoreПродолжительность: 00:46:50
+01. Heavy Is The Ocean [00:05:12]
+02. Slow Me [00:03:48]
+03. More Than Machines [00:03:21]
+04. May Your Love Be Pure [00:03:21](   Читать дальше...   )Жанр: Alternative Rock, Post-GrungeПродолжительность: 00:48:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F8CBA610DC7845D30B434E112901C852C1D6972D
+magnet:?xt=urn:btih:1D0589E4619B0F5CE4BBEB4528A5DA5588311B2B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -373,28 +305,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582100   (324591) от 08.10.2022
+###  Публикация: 1581984   (325587) от 07.10.2022
 
-Sarah Brightman - Harem (2003) [OGG Vorbis|484 Kbps] <Electronic, Classical, Ambient>
+The Diego Rivera Quartet - Hercules (2004) 2006, Rivera Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
 
->>Pop
->>Зарубежная поп-музыка
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325587.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Harem
-02. What A Wonderful World
-03. It's A Beautiful Day
-04. What You Never Know(   Читать дальше...   )Жанр: Electronic, Classical, AmbientПродолжительность: 01:03:06
+01. Morena [4:38]
+02. Boogaloo to You [3:54]
+03. The Unsaid [8:19]
+04. Hercules [7:05](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:54:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C1E9F62EA8ABF110AF5944B182B0E1DC8E5014C
+magnet:?xt=urn:btih:0865D1F4A33E446FDA4869B39FA817C81CFD531F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -402,28 +334,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582152   (324590) от 08.10.2022
+###  Публикация: 1581983   (325586) от 07.10.2022
 
-Taboo - Taboo (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+The Cult - Under The Midnight Sun (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325586.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Flames (4:19)
-02. Bleeding (3:35)
-03. Learning To Breathe (4:35)
-04. Demons (3:41)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:47:09
+01 Mirror [03:48]
+02 A Cut Inside [03:59]
+03 Vendetta X [03:24]
+04 Give Me Mercy [03:37](   Читать дальше...   )Жанр: Alternative, Hard RockПродолжительность: 00:35:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3C8F68A5EDE63DE062D4A76A0D9A63E05A153495
+magnet:?xt=urn:btih:C0D535C60B39929FD6A8A0EC8FE7A3DE847AC492
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -431,57 +363,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582139   (324589) от 08.10.2022
+###  Публикация: 1581753   (325585) от 07.10.2022
 
-Минтранс (08.10.2022) SATRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324589.jpg" />
-</div>
-
-
-###  Подробнее
-
-Плюсы и минусы двигателей. Что такое ресурс мотора, и как его увеличить?
- Тест-драйв Suzuki Vitara. Как этот «японец» ведет себя на дороге?
- Правильные лайфхаки. Как убрать царапину на стекле?  И как с помощью рециркуляции воздуха сэкономить топливо?
- Спущенное колесо: ехать или стоять? Что будет, если ехать с дырой в покрышке?(   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:48:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5C27217993F66053682E9902ACF2C4697989D71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582165   (324588) от 08.10.2022
-
-Magic Dance - New Eyes (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+Caravan - Better by Far (1977) Japanese Edition, Reissue, Remastered, 2022, Belle Antique [FLAC|Lossless|image + .cue] <Canterbury rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325585.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. You're Holding Back (4:13)
-02. Never Go Back (3:59)
-03. These Four Walls (4:35)
-04. Please Wake Me (5:02)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:49:21
+01. Feelin’ Alright
+02. Behind You
+03. Better by Far
+04. Silver Strings(   Читать дальше...   )Жанр: Canterbury rockПродолжительность: 00:42:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F317B754AA2D5BB5AE820C597BEDA134EF6A28F0
+magnet:?xt=urn:btih:6EC026BB2B1465A72C2F0580D43308958779D1B6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -489,28 +392,80 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582094   (324587) от 08.10.2022
+###  Публикация: 1581987   (325584) от 07.10.2022
 
-Sarah Brightman - Classics (2001) [OGG Vorbis|484 Kbps] <Electronic, Pop, Classical>
+Macrorit Data Wiper 6.3.3 Unlimited Edition RePack (& Portable) by 9649 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Macrorit Data Wiper Unlimited Edition – мощная утилита, которая поможет вам полностью очистить диск. Если вы хотите удалить данные с жесткого диска, форматирования или простого удаления недостаточно, чтобы защитить свои личные данные или корпоративные документы от восстановления. Вам нужен профессиональный инструмент по очистке диска, который полностью сотрет все (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:206FE285FB54E2AAC8F0843A0B0852156761BC38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581976   (325583) от 07.10.2022
+
+Джеймс Освальд | Естественные причины (2022) [MP3, Михаил Нордшир]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325583.jpg" />
+</div>
+
+
+###  Подробнее
+
+При разрушении старого дома строители находят в подвале мумифицированное тело молодой девушки, пролежавшее там около шестидесяти лет. Судя по расположению останков, она была зарезана в ходе какого-то оккультного ритуала. Тони Маклин, детектив-инспектор полиции Эдинбурга, понимает, что дело такой давности раскрыть практически невозможно, но все же никак не может о (   Читать дальше...   )Жанр: детективПродолжительность: 11:52:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE83B037F4B478759701166FA254B1336AB22504
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581751   (325582) от 07.10.2022
+
+Kylie Minogue - Disco (Guest List Edition) (2020) 3 CD, Reissue, 2021, BMG [OGG Vorbis|484 Kbps] <Electronic, Pop, Disco>
 
 >>Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325582.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ave Maria (New Recording)
-02. La Wally
-03. Winter Light (New Recording)
-04. Anytime, Anywhere(   Читать дальше...   )Жанр: Electronic, Pop, ClassicalПродолжительность: 00:54:22
+01. Magic
+02. Miss a Thing
+03. Real Groove
+04. Monday Blues(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 02:26:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:47595C5B9CABB7A10882F2D15208E014A440405F
+magnet:?xt=urn:btih:10232DEB28C3DAD42E13AF796023F187FA1C8D27
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -518,86 +473,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582197   (324586) от 08.10.2022
+###  Публикация: 1581824   (325581) от 07.10.2022
 
-Sarah Brightman - Symphony (2007) [OGG Vorbis|484 Kbps] <Electronic, Pop, Classical>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gothica
-02. Fleurs Du Mal
-03. Symphony
-04. Canto Della Terra (Duet With Andrea Bocelli)(   Читать дальше...   )Жанр: Electronic, Pop, ClassicalПродолжительность: 01:01:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7341D82EA3F41F260F6F3364196E66EEDFBCD03E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581988   (324585) от 08.10.2022
-
-Sarah Brightman - Eden (1998) Reissue, 1999, EastWest [OGG Vorbis|484 Kbps] <Electronic, Rock, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Paradisum
-02. Eden
-03. So Many Things
-04. Anytime, Anywhere(   Читать дальше...   )Жанр: Electronic, Rock, Synth-popПродолжительность: 00:55:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:253D5EEBE8A7B3F4EDC7F6AAA78C1DA93D9288A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582186   (324584) от 08.10.2022
-
-Caravan - Back To Front (1982) Japanese Edition, Reissue, 2022, Belle Antique [FLAC|Lossless|image + .cue] <Canterbury rock>
+Ellefson-Soto - Vacation In The Underworld (2022) [FLAC 2.0|48/24|tracks|WEB-DL] <Heavy Metal, Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Hard Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325581.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Back to Herne Bay Front
-02. Bet You Wanna Take It All / Hold on Hold On
-03. A.A. Man
-04. Videos of Hollywood(   Читать дальше...   )Жанр: Canterbury rockПродолжительность: 00:42:59
+01. Vacation In The Underworld
+02. Like A Bullet
+03. Sharpen The Sword
+04. The Reason(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:52:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C1D4325A107C530E8D69A361AF5C05239D56EC1A
+magnet:?xt=urn:btih:49EA9F71DFAB7B2F26B1C162109420C9DEFCAB6E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -605,34 +502,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 843129   (324571) от 22.11.2014
+###  Публикация: 1581799   (325580) от 07.10.2022
 
-James Last - With Compliments (1970) [FLAC 2.0 24/96|image+.cue (Vinyl-Rip)]<Easy Listening>
+Кэтрин Мэй | Зима не будет вечной (2022) [MP3, Юлия Шустова]
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325580.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Endless Journey
-02. The House Of The Rising Sun
-03. The Last Guest Is Gone
-04. El Condor Pasa
-05. Evie
-06. Rainy Rainy
-07. Luciana
-08. Andanca
-09. Tango Regina
-10. Ballad Of Easy Rider(   Читать дальше...   )
+Когда судьба наносит неожиданный удар, приходится остановиться и принять перемены – будь то увольнение, тяжелое расставание или проблемы со здоровьем. Книга Кэтрин Мэй – это терапевтическая исповедь, которая помогает преодолеть болезненный этап и найти в нем источник сил и вдохновения. Автор рассказывает о собственном опыте «путешествия сквозь мглу». Ее слова обволакивают, (   Читать дальше...   )Жанр: Саморазвитие, личностный ростПродолжительность: 06:19:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5DD2D5A6E1311620EAFA9775CF28329A2426C987
+magnet:?xt=urn:btih:175F31433DAB77349655AE7641DCE632EAC00AA6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -640,25 +528,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 843473   (324568) от 22.11.2014
+###  Публикация: 1581807   (325579) от 07.10.2022
 
-Пейзаж в тумане / Topio stin omichli / Landscape in the Mist (1988)  BDRip [H.264/720p-LQ] [Hi10P]
+Екатерина Яшникова - Подорожник (2022) [MP3|320 Kbps] <Rock>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325579.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: ДрамаРежиссер: Тео АнгелопулосАктеры: Михалис Зик, Таня Палайологу, Стратос Цорцоглу, Ева Котаманиду, Алики Георгули, Василис Коловос, Василис Буйиуклакис, Илиас Логотетис, Вангелис Казан, Стратос ПахисПеревод: ДвухголосыйЯзык субтитров: РусскийПродолжительность: 02:04:58
+1. Екатерина Яшникова - Чёрный человек
+2. Олег Барабаш - Ребро (feat. Екатерина Яшникова)
+3. Екатерина Яшникова - Тутуту
+4. Бранимир - Пророк (feat. Екатерина Яшникова)(   Читать дальше...   )Жанр: RockПродолжительность: 00:19:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B1BCD8F1F198876FF047E9A239BAE0C09CDE8A15
+magnet:?xt=urn:btih:00249212630BB395D92365A2BF503A864FEF2AA0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -666,23 +557,76 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 158204   (324561) от 27.11.2011
+###  Публикация: 1581808   (325578) от 07.10.2022
 
-Генералы песчаных карьеров / The Sandpit Generals (1971) DVDRip
+Электропартизаны - Воспоминания о мире (2022) [MP3|320 Kbps] <Rock>
 
->>След.
->>Зарубежная Классика (SD)
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325578.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Картина снята по роману Жоржи Амаду «Капитаны песка».
-Тысячи покинутых беспризорных детей скитаются по просторам Южной Америки. В Бразилии они роются в отбросах, попрошайничают и воруют. Их дом - улица, они озлоблены и одиноки. Чтобы не пропасть поодиночке, они сбиваются в шайки и терроризируют благополучных горожан.
-Одна такая шайка нашла пристанище среди песчаных (   Читать дальше...   )Производство: СШАЖанр: Драма, Криминал, МелодрамаАктеры: Алехандро Рей (Alejandro Rey), Кент Лейн (Kent Lane), Тиша Стерлинг (Patricia Ann Sterling), Бутч Патрик (Butch Patrick)Перевод: ДубляжСубтитры: НетПродолжительность: 01:30:00
+1. Солнечный ветер
+2. Воспоминания о мире
+3. Последний поезд в Нюрнберг
+4. Не мы такие(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46354425D367C182F223E49C4600892D364B6B47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 415046   (325576) от 26.11.2011
+
+Николай Рабушко | Обрезка кустарников: Плодовые, декоративные и уход за ними [2011] DVDRip
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325576.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данном видеокурсе Вы познакомитесь с основными принципами и профессиональными хитростями правильной обрезки плодовых и декоративных кустарников, узнаете, как с помощью обрезки добиться обильного цветения, сформировать живую изгородь декоративных кустарников. А так же: - Что, кроме обрезки, еще нужно делать, чтобы кусты оставались здоровыми и жили долго.- Когда (   Читать дальше...   )Жанр: Садоводство, обучающее видеоПродолжительность: ~ 03:50:00 (23 серии)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70C9D067D8873CAD3902364A1EA849DA2624B8C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 415635   (325573) от 26.11.2011
+
+Конан-варвар / Conan the Barbarian (2011) [1080p] BDRip 3D  [Горизонтальная анаморфная стереопара]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325573.jpg" />
+</div>
+
+
+###  Подробнее
+
+Природа наделила его силой. Гибель отца сделала его свирепым. Великий киммерийский воин Конан отправляется в дальнее странствие, чтобы совершить отмщение за кровь своего рода. Но поиски, которые начинаются как личная вендетта, вскоре оборачиваются эпической схваткой со сверхъестественными силами, поработившими народы великой Хайбории. Киммерийский воин — последняя (   Читать дальше...   )Жанр: фэнтези, боевик, приключенияАктеры: Джейсон Момоа, Рон Перлман, Стивен Лэнг, Рейчел Николс, Роуз МакГоун, Боб Сапп, Лео Ховард, Стив О’Доннелл, Нонсо Анози, Раад РавиПеревод: Русский дубляжСубтитры: нетПродолжительность: 01:52:42
 
 ## Скачать торент
 ```bash
@@ -694,24 +638,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 405002   (324541) от 27.11.2011
+###  Публикация: 414843   (325567) от 26.11.2011
 
-Скотт Келби | Adobe Photoshop CS5. Книга для фотографов [2011] [Ru] [PDF]
+Гарри Поттер и Дары смерти: Часть 1 / Harry Potter and the Deathly Hallows: Part 1 (2010) [1080p] BDRip 3D [Горизонтальная анаморфная стереопара]
 
->>След.
->>2D графика
+>>Зарубежное кино
+>>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325567.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Это перевод книги Scott Kelby - The Adobe Photoshop CS5 Book for Digital Photographers, 2010. Перевод полноцветный, повторяет дизайн оригинала, содержит алфавитный указатель пар названий элементов рабочей среды и функций оригинальной и русской версий Photoshop CS5 и предназначен для русскоязычных пользователей обеих этих версий.
-Во 2-м издании перевода автоматическое масштабирование страниц при загрузке и развитая система ссылок, аналогичные оригиналу, облегчают навигацию и поиск. Исправлены ошибки. В остальном перевод не изменился.
-В книге просто и доступно изложены все новшества версии CS5 и даны представления о работе версии CS5 в целом.
-К переводу прилагается папка с фотографиями для выполнения учебных упражнений, приведенных в книге.2011Жанр: Компьютерная литература, работа с программой, учебное пособиеФормат: PDF
+Гарри Поттера ждёт самое страшное испытание в жизни — смертельная схватка с Волан-де-Мортом. Ждать помощи не от кого — Гарри одинок, как никогда… Друзья и враги Гарри предстают в совершенно неожиданном свете. Граница между Добром и Злом становится всё призрачнее…Жанр: фэнтези, драма, детектив, приключенияАктеры: Дэниел Рэдклифф, Эмма Уотсон, Том Фелтон, Руперт Гринт, Бонни Райт, Алан Рикман, Рэйф Файнс, Хелена Бонем Картер, Майкл Гэмбон, Брендан Глисон, Джеральдин Сомервилль, Робби Колтрейн, Девон Мюррэй, Ник Моран, Джейсон АйзексПеревод: Русский дубляжСубтитры: Русские, вшитые в видео (надписи и пр.)Продолжительность: 02:26:05
 
 ## Скачать торент
 ```bash
@@ -723,27 +664,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 244499   (324539) от 27.11.2011
+###  Публикация: 414867   (325566) от 26.11.2011
 
-Аудио теги и Скрытие неиспользуемых форумов (Обновлено 27.11.2011)
+Гарри Поттер и Дары смерти: Часть 2 / Harry Potter and the Deathly Hallows: Part 2 (2011) [1080p] BDRip 3D [Горизонтальная анаморфная стереопара]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325566.jpg" />
+</div>
+
+
+###  Подробнее
+
+В грандиозной последней главе битва между добрыми и злыми силами мира волшебников перерастает во всеобщую войну. Ставки ещё никогда не были так высоки, а поиск убежища — столь сложен. И быть может именно Гарри Поттеру придется пожертвовать всем в финальном сражении с Волан-де-Мортом. Способен ли наш герой спасти мир? И всё закончится здесь.Жанр: фэнтези, драма, детектив, приключенияАктеры: Дэниэл Рэдклифф, Руперт Гринт, Эмма Уотсон, Рэйф Файнс, Алан Рикман, Хелена Бонем Картер, Том Фелтон, Гари Олдман, Майкл Гэмбон, Мэгги СмитПеревод: Русский дубляжСубтитры: Русские, вшитые в видео (надписи и пр.)Продолжительность: 02:10:26
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 415254   (325563) от 26.11.2011
+
+Андрей и Мария Круз | Исход [2011] [MP3]
 
 >>3
->>4
+>>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325563.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Аудио тег, подразумевает прослушивание музыки в теле сообщения формата mp3.
-Бывет очень полезным при знакомстве с неизвестным исполнителем. Позволяет понять жанр, стиль исполнения и нужно ли оно вам.
-(   Читать дальше...   )
+Бывает так, что, когда привычная жизнь рушится, неожиданно появляется не только новый выход из ситуации, но за этим выходом – целый новый мир. И в нем человек может найти новый смысл своей жизни, новых друзей и даже любовь, хотя за все это ему придется драться, против новых врагов и против старых. Так и случилось в жизни Андрея Ярцева, казалось бы состоявшегося и (   Читать дальше...   )Жанр: боевая фантастика
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:57BCFEBC7CE6708DE9C45341BBDF0737A8B45E40
 ```
 
 https://mybot314.ru/tekegram_catalog/

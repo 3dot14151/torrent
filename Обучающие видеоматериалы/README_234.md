@@ -1,3 +1,32 @@
+###  Публикация: 1662359   (187885) от 17.09.2023
+
+Синхронизация | Гид по философии (2020) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Другие видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Недостаточно овладеть премудростью, нужно также уметь пользоваться ею.
+
+Изучение философии — это путешествие в мир идей, в котором легко сбиться без точной карты. Можно свернуть в неважные темы, заскучать, не разобраться.
+(   Читать дальше...   )Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 13:14:16Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58FF8DD8C02EDCE8D61ECC72A34EEA307B5DFF42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1662340   (187882) от 17.09.2023
 
 Udemy, Raffi Bedross | Real-time VFX in EmberGen and Unreal Engine 5 (2023) WEB-DL [AD] [EN]
@@ -6,7 +35,7 @@ Udemy, Raffi Bedross | Real-time VFX in EmberGen and Unreal Engine 5 (2023) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187882.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187879.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Udemy, Hossein mashayekhi | Complete Unreal Engine 5 Mastery (2023) WEB-DL [AD] 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187877.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187772.jpg" />
 </div>
 
 
@@ -117,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187765.jpg" />
 </div>
 
 
@@ -144,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187759.jpg" />
 </div>
 
 
@@ -170,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_187754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_187754.jpg" />
 </div>
 
 
@@ -196,7 +225,7 @@ Designlectures, Ольга Косырева | Коллекционный диз�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187721.jpg" />
 </div>
 
 
@@ -224,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187712.jpg" />
 </div>
 
 
@@ -250,7 +279,7 @@ Dream&Draw, Анастасия Козлова | Марафон по акваре
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187687.jpg" />
 </div>
 
 
@@ -279,7 +308,7 @@ Domestika, Ruth Wilshaw | Fantasy Landscapes with Watercolor & Gouache (2022) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187680.jpg" />
 </div>
 
 
@@ -306,7 +335,7 @@ Wingfox, Milad Kambari | Hard Surface Modeling Foundation Tutorial (2023) WEB-DL
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187586.jpg" />
 </div>
 
 
@@ -332,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187502.jpg" />
 </div>
 
 
@@ -358,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_187500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_187500.jpg" />
 </div>
 
 
@@ -384,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_187499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_187499.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187472.jpg" />
 </div>
 
 
@@ -440,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187467.jpg" />
 </div>
 
 
@@ -466,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187461.jpg" />
 </div>
 
 
@@ -492,7 +521,7 @@ Skillshare, Daniel Kim | Spaceship Concept Art with Affinity Photo and Blender 2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187378.jpg" />
 </div>
 
 
@@ -518,7 +547,7 @@ Skillshare, Daniel Kim | Space Marine Helmet - 3D Game Art with Blender and Subs
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187369.jpg" />
 </div>
 
 
@@ -545,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187363.jpg" />
 </div>
 
 
@@ -574,7 +603,7 @@ Skillshare, Daniel Kim | Sci-Fi Character Armor with Blender and Substance Paint
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187358.jpg" />
 </div>
 
 
@@ -602,7 +631,7 @@ Skillshare, Daniel Kim | Sci-Fi Vehicle Creation with Blender and Substance Pain
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187352.jpg" />
 </div>
 
 
@@ -629,7 +658,7 @@ Liveclasses, Виталий Новиков | Продающее ценообра
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_187345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_187345.jpg" />
 </div>
 
 
@@ -656,7 +685,7 @@ Liveclasses, Артур Орлов | Steinberg Cubase: быстрый старт
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187293.jpg" />
 </div>
 
 
@@ -670,34 +699,6 @@ Liveclasses, Артур Орлов | Steinberg Cubase: быстрый старт
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64674910DAEB1D6D6CEB0DFA20F3B117E7EA9858
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662782   (187250) от 19.09.2023
-
-Udemy, Learn IT University, Andrii Piatakha | Java from Zero to First Job, Practical Guide, 2000+ examples (2022) WEB-DL [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Java Core, TDD, Streams, Lambdas, JPA/Hibernate, SQL, Build Tools, Git, Web Servers, HTML,Servlets, JSP, Spring Boot etc
-
-Welcome to the fundamental and the most complete course 'Java from Zero to First Job'.  As it's declared in the course name, it's created for people who want to learn programming from scratch. You need to know how to turn on your computer, no other (   Читать дальше...   )Производство: Udemy, Learn IT UniversityЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 80:04:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:377E59B3390F47B9784A99817E4A2586E2E44424
 ```
 
 https://mybot314.ru/tekegram_catalog/

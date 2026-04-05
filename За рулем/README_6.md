@@ -1,3 +1,29 @@
+###  Публикация: 998661   (868501) от 20.03.2016
+
+Первая передача на НТВ. Автомобильная передача. Выпуск №243 (20.03.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868501.jpg" />
+</div>
+
+
+###  Подробнее
+
+« Первая передача» — новый проект для автомобилистов и про автомобилистов. Ведущий «Первой передачи» — Виктор Травин, президент Коллегии правовой защиты автовладельцев. Уже много лет этот известный журналист защищает права автолюбителей. В автомире для него нет секретов и закрытых дверей. Всех, кто не представляет своей жизни без автомобиля, и тех, кто только задумывается (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаРежиссер: Роман ИовицаСубтитры: ОтсутствуютПродолжительность: ~ 00:32:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F175423898A4A5A66600F57BEC26F1D9EBCDD077
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 291884   (863112) от 03.03.2011
 
 BBC: Топ Гир (сезон 16 серии 1-6) / Top Gear (2011) HDTVRip [H.264/720p-LQ] Jetvis Studio [Обновляемый]
@@ -6,7 +32,7 @@ BBC: Топ Гир (сезон 16 серии 1-6) / Top Gear (2011) HDTVRip [H.2
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863112.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862353.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860456.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859661.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ History Channel: Поворот наворот / Counting Cars (2012) HDTV [H.26
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859088.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858927.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858068.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857494.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857019.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855637.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854793.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850424.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849919.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849829.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848273.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847832.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846699.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846187.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845288.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845101.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844809.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844346.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843320.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ Discovery. Махинаторы. Машина мечты / Wheeler Dealers: Drea
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840752.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837853.jpg" />
 </div>
 
 
@@ -645,36 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBFB17A61E47A29C0DCA2917005ADC46FD72A114
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 309751   (837214) от 18.03.2011
-
-Топ Гир (сезон 1) / BBC: Top Gear (1 Season) (2002) TVRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837214.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авто-шоу «Top Gear» — это программа абсолютно новой формации для телезрителей прогрессивного толка. В ней нет ни слова о недорогих семейных автомобилях, нет занудных советов автолюбителям, да и банального cлова «автолюбитель» в ней тоже нет.
-
-Это программа для настоящих фанатов роскошных, безумно дорогих и самых быстрых автомобилей, для настоящих ценителей запаха бензина и пылающих тормозных дисков, для тех, кому не безразличен экстремальный драйв.
-
-Эксперты программы, профессионалы высочайшего класса, способны вынести справедливый вердикт любому сверхсовременному спорткару.Жанр: Телепередача, ДокументальныйПеревод: Одноголосый закадровый, профессиональный (озвучка НТВ)Продолжительность: ~00:59:00 на серию
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53307E9417F31E814B9AF2DF1A7369B716B8C37B
 ```
 
 https://mybot314.ru/tekegram_catalog/

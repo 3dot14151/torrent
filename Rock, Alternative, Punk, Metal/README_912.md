@@ -1,3 +1,32 @@
+###  Публикация: 1648442   (231292) от 23.07.2023
+
+Renaissance Rock Orchestra - The Ice Age Cometh (2023) [FLAC|Lossless|image + .cue] <Prog Rock, Arena Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In My Loving Arms (5:31)
+02. The Ice Age Cometh (6:59)
+03. Here We Are Again (4:55)
+04. Secrets In The Sand (7:35)(   Читать дальше...   )Жанр: Prog Rock, Arena Rock, Classic RockПродолжительность: 01:05:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B00C0675CE22EA4334631305C25CA49BAFCEC5AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1649024   (231290) от 26.07.2023
 
 Emerald Sun - Kingdom of Gods (2022) [FLAC|Lossless|image + .cue] <Power Metal>
@@ -6,7 +35,7 @@ Emerald Sun - Kingdom of Gods (2022) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231290.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ False Memories - Live Until the Twiligh (2022) [FLAC|Lossless|WEB-DL|tracks] <Go
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231284.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ The Contortionist - Retrospective Live From Atlanta (2023) 3CD Box Set [MP3|320 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231283.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Exelerate - EO (2014) EP [MP3|320 Kbps] <Power, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231278.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Bang - Another Me (2023) [MP3|320 kbps] <Psychedelic Hard Rock, Heavy Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231277.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Carnal Agony - Back from the Grave (2020) [FLAC|Lossless|image + .cue] <Power, T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231270.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Exelerate - Exelerate (2023) [MP3|320 Kbps] <Power, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231264.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ King’s X - In The New Age The Atlantic Recordings 1988-1995 (2023) [MP3|320 Kb
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231262.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Korn - Сollection (1994-2022) 23 CD [FLAC|Lossless|image + .cue|tracks + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231248.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Zorormr - IHS (2013) [FLAC|Lossless|image + .cue] <Melodic Black Metal, Dark Amb
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231241.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Pont Of Reindeer - Мир И Порядок (2023) [MP3|320 Kbps] <Thrash Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231240.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Anubis Gate - Covered in Colours (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231236.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Nervosa - Perpetual Chaos (2021) Japan Edition [FLAC|Lossless|image + .cue] <Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231232.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Anubis Gate - Interference (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231230.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Ealee - Лабиринт (2023) [MP3|320 Kbps] <Alternative Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231229.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Amon - Shemhamforash (1995) [FLAC|Lossless|tracks] <Death, Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231221.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Archeonic - Digital Pain (2021) [FLAC|Lossless|image + .cue] <Technical Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231216.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Evil Hunter - Lockdown (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231213.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Howl at the Sky - In Line for the End Times (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231212.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Arouse the Darkness - Cemetery Of Buried Hopes (2022) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231211.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Zorormr - Corpus Hermeticum (2015) [FLAC|Lossless|image + .cue] <Melodic Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231199.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ James and the Cold Gun - James and the Cold Gun (2023) [MP3|320 Kbps] <Grunge>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231195.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Mister Kill - Mister Kill (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231190.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Desolator - Resurgency & Desolator - Dark Revival - Mass Human Pyre (2011) Split
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231187.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Deathsiege - Throne of Heresy (2022) [FLAC|Lossless|image + .cue] <Black, Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231180.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Deathsiege - Throne of Heresy (2022) [FLAC|Lossless|image + .cue] <Black, Death 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E20490ADD58A112E892479393D21F4C3B0041C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648137   (231177) от 21.07.2023
-
-Wanted - Late Attraction (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231177.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breaking 'Till Dawn
-02. Late Attraction
-03. Lost In The Night
-04. Gas Burner(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:55:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ED8E973656217F637EA4D1E1A4EBC504E35BF7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

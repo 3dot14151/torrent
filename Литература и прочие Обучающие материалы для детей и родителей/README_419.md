@@ -1,3 +1,55 @@
+###  Публикация: 1695677   (120144) от 30.01.2024
+
+Л. Гоник | Всемирная история. Том 3. От расцвета Аравии до Ренессанса (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый том знаменитой «Всемирной истории:» Ларри Гоника начинается с событий 395 г. - закрытия языческих храмов в Европе - и заканчивается первой экспедицией Христофора Колумба, состоявшейся в 1492-м. Между этими двумя датами в мире происходило очень многое: зарождение ислама, формирование великих тюркских и китайских династий, Крестовые походы... Жизнь Византийской (   Читать дальше...   )Жанр: Научно-популярная литератураПеревод: Вадим КадученкоЯзык: РусскийИздательство: Колибри, Азбука-АттикусФормат: PDFКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D9EC787BAD06CC9868323DFAFAF581F67AFE60C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695671   (120142) от 30.01.2024
+
+Л. Гоник | Всемирная история. Том 2. От расцвета Китая до падения Рима (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120142.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новом томе тщательно проработанной, доходчивой и невероятно смешной «Всемирной истории» озорной карандаш Ларри Гоника успевает рассказать о ведущих цивилизациях Древнего мира - от Индии и Китая до Рима и его северных соседей. Он заставляет читателя как следует вспомнить школьный материал, подробно останавливаясь на ключевых событиях и фигурах древности. Поскольку (   Читать дальше...   )Жанр: Научно-популярная литератураПеревод: В. КадученкоЯзык: РусскийИздательство: Колибри, Азбука-АттикусФормат: PDFКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A053C5C326F51287137687EF6D3E835B00186BE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695797   (120126) от 30.01.2024
 
 И.М. Пёрышкин, А.И. Иванов | Физика. Учебник для 8 класса (2023) [PDF]
@@ -6,7 +58,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120126.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120124.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120122.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119989.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119981.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119689.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119682.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119650.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119551.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119536.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119510.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119503.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119480.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119458.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119119.jpg" />
 </div>
 
 
@@ -405,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119005.jpg" />
 </div>
 
 
@@ -432,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118996.jpg" />
 </div>
 
 
@@ -458,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118964.jpg" />
 </div>
 
 
@@ -484,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118618.jpg" />
 </div>
 
 
@@ -510,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118616.jpg" />
 </div>
 
 
@@ -538,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118614.jpg" />
 </div>
 
 
@@ -566,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118609.jpg" />
 </div>
 
 
@@ -592,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118608.jpg" />
 </div>
 
 
@@ -620,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118591.jpg" />
 </div>
 
 
@@ -631,60 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E772E45C0736ECFB6176A654581BAF00B821CE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698483   (118467) от 09.02.2024
-
-Л.П. Баканина, В.Е. Белонучкин, С.М. Козел | Физика. Сборник задач по физике. 10-11 класс с углубленным изучением физики (2003) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118467.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник содержит около 1000 задач по всем разделам курса физики в объеме и в соответствии с программой для 10 и 11 клас­сов школ и лицеев с углубленным изучением физики.
-
-Авторы при составлении сборника отдавали предпочтение за­дачам с глубоким физическим содержанием, решение которых тре­бует свободного владения физическими законами. Однако в каж­дом разделе имеются (   Читать дальше...   )Жанр: Учебная литература по физике, сборники задач по физикеЯзык: РусскийИздательство: Вербум-МФормат: PDFКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4873AE3C8BC5F0136B21794B5BA982FB597C56FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698475   (118424) от 09.02.2024
-
-А.П. Рымкевич | Физика. Сборник задач по физике. 10-11 класс (2013) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118424.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник задач по физике включены задачи по всем разделам школьного курса для 10—11 классов. Расположение задач соответствует структуре учебных программ и учебников.Жанр: Учебная литература по физике, сборники задач по физикеЯзык: РусскийИздательство: ДрофаФормат: PDFКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDBA2D4A7A60011DE55A1DB5675D86846286D1C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

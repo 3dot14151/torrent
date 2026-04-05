@@ -1,3 +1,119 @@
+###  Публикация: 1247503   (452657) от 15.09.2018
+
+VA - Armin van Buuren - A State Of Trance ASOT 881 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452657.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Hour - Regular & Guests:
+01. Above & Beyond - Rocket Science
+02. Andrew Rayel & David Gravell - Trance Reborn (Mark Sixma Remix)
+03.GXD & Elle Vee - A Dream(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70E508BDDAFE4EC18A2D7961E93DAA04B0DB6C67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1163097   (452622) от 04.09.2017
+
+VA - Vocal and Funky House Selection (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Pagany - Joy And Pain (feat Barry Stewart/Yvonne Shelton - Roby Arduini & Pagany Classic Flavour mix)
+02.  Faz - Someday (feat Vale Ducros - Faz Phillys Flavour's mix)
+03.  Luca Fregonese - It's All Right (feat Sterling Void - House Bros Back To Classic mix)
+04.  Soul Groove/Funky Judge - Papa Was A Rolling Stone (Pagany vs Soul Groove Horns mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:18:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:487D1615274D26C49E4676F8079333CB1E375759
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1322070   (452489) от 27.08.2019
+
+VA - Guitar Del Mar (Chillout Lounge Bossa Nova Guitar Music) (2019) [MP3|320 Kbps] <Acoustic, Lounge, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eric Appapoulay & Synergee - Many Rivers To Cross (Original Mix) 3:04
+02. Soulalchemy - If You Love Her 5:23
+03. Hardage, Berenice Scott - Riverman (Vezio Bacci Remix) 4:30
+04. Tides - Guitar Floyd 3:57(   Читать дальше...   )Жанр: Acoustic, Lounge, DowntempoПродолжительность: 01:16:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E949505039091E4D04439966B323FECA5B279404
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1163209   (452399) от 04.09.2017
+
+V.A. - Cafe Del Mar XXIII  (Volumen Veintitres) (2017) 2CD [FLAC|Lossless|tracks + .cue] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452399.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист CD1:
+01. Télépopmusik - Breathe (Kartell Slow remix)
+02. Vincenzo - Today
+03. Lord Echo - In Your Life(   Читать дальше...   )Жанр: Downtempo, Chillout, Lounge |Продолжительность: 02:13:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E44F7F7E6C87E96133FA90EC16C3D21CE4F4F270
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1408916   (451828) от 14.09.2020
 
 Varuna - Metamorph (2019) amenthia recordings [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno, Experimental>
@@ -6,7 +122,7 @@ Varuna - Metamorph (2019) amenthia recordings [FLAC|Lossless|WEB-DL|tracks] <Amb
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451828.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Erasure - Day-Glo (Based on a True Story) (2022) [MP3|320 Kbps] <Synthpop, New W
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451658.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Erasure - Ne:EP (2021) Mini Album [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New W
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451654.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ DJ Dado - The Album (1996) [OGG|485 Kbps] <House, Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451647.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ DEADLIFE - City of Eternal Rain (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451596.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Kyoto - Squares & Triangles (2020) Microcosmos Records [FLAC|Lossless|WEB-DL|tra
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451587.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - AFTER DARK 4 (2022) [FLAC|Lossless|WEB-DL|tracks] <EDM, Electropop, Nu Disc
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451521.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ PRIZM - All Night (2020) [FLAC|Lossless|WEB-DL|tracks] <Electro, Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451459.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Le Tour De Trance (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451390.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ David Forbes pres. Hal Stucker - Electronic Excursions (2018) [MP3|320 Kbps] <Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451378.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - Vocal Dance Vol.4 (2018) [MP3|320 Kbps] <Trance,Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451372.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Polynation - Discography 11 Releases (2015-2020) Atomnation [FLAC|Lossless|WEB-D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451290.jpg" />
 </div>
 
 
@@ -353,7 +469,7 @@ Aot-x - Per Aspera Ad Astra (2018) Touched Music [FLAC|Lossless|WEB-DL|tracks] <
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451205.jpg" />
 </div>
 
 
@@ -382,7 +498,7 @@ The Digital Blonde - Neon (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive Tran
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451203.jpg" />
 </div>
 
 
@@ -411,7 +527,7 @@ Cabeiri - Temple Within (2018) Altar Records [FLAC|Lossless|WEB-DL|tracks] <Psyb
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451202.jpg" />
 </div>
 
 
@@ -440,7 +556,7 @@ Scooter - The Fifth Chapter (Limited Edition) (2014) 2CD [FLAC|Lossless]<Big Roo
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451173.jpg" />
 </div>
 
 
@@ -469,7 +585,7 @@ Vista Le Vie - A Futuristic Family Film (2005) [FLAC|Lossless]<Downtempo, Future
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_451106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_451106.jpg" />
 </div>
 
 
@@ -504,7 +620,7 @@ VA - Music For Dreams Copenhagen 2016, Vol. 1 (2016) [FLAC|Lossless|WEB-DL|track
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450990.jpg" />
 </div>
 
 
@@ -533,7 +649,7 @@ VA - Sexual Healing Affair Vol.1 Sexy Erotic Chill Cafe Lounge Music for Romanti
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450980.jpg" />
 </div>
 
 
@@ -562,7 +678,7 @@ VA - Kunst Musik V2 (2018) Kunst Musik [FLAC|Lossless|WEB-DL|tracks] <Dub Techno
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450821.jpg" />
 </div>
 
 
@@ -591,7 +707,7 @@ SAINT PEPSI - Mannequin Challenge (2019) [FLAC|Lossless|WEB-DL|tracks] <Vaporwav
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450808.jpg" />
 </div>
 
 
@@ -620,7 +736,7 @@ VA - Afterwork Bar Tunes, Vol. 2 (Fantastic Selection Of Modern Cocktail Bar Mus
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450470.jpg" />
 </div>
 
 
@@ -634,134 +750,6 @@ VA - Afterwork Bar Tunes, Vol. 2 (Fantastic Selection Of Modern Cocktail Bar Mus
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D2F19B57BBF278B1BF09038F74BABEA1C75E9A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247586   (450333) от 16.09.2018
-
-Orbital - Monsters Exist (3xCD Deluxe) (2018) ACP Recordings [FLAC|Lossless|tracks+.cue] <Techno, Electro, IDM, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kinetic (2017) (06:12)
- 02. Copenhagen (05:26)
- 03. To Dream Again (Reocurring Mix) (04:02)
- 04. Where Is It Going? (Live Style Mix) (07:56)Жанр: Techno, Electro, IDM, HouseПродолжительность: 01:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5A519B7959644FB052F1F6B6285ED2E26EDBAA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163489   (450230) от 05.09.2017
-
-Cosmic Gate - Materia Chapter.Two (2017) [FLAC|Lossless|tracks] <Trance, Progressive Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Gate & JES – Materia (Intro Mix) (06:29)
-02. Cosmic Gate & Emma Hewitt – Tonight (03:11)
-03. Cosmic Gate & Super8 & Tab – Noom (05:33)
-04. Cosmic Gate & Eric Lumiere – Bigger Than We Are (03:21)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 00:40:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD2FD9286D29BD709652EC79F178ED67519336F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551881   (449864) от 25.09.2012
-
-The Prodigy - The Dirtchamber Sessions, Volume One (1999) [FLAC|Lossless]<Alternative Rock, Breaks, Punk, Big Beat, Hip Hop, Breakbeat>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_449864.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Dirtchamber Sessions Volume One - альбом, состоящий из диджейских ремиксов различных исполнителей от лидера электронного коллектива The Prodigy Лиама Хоулетта.01. Section 1: Intro Beats / Punk Shock / Untitled / Chemical Beats / Kool Keith ... :: 07:18
-02. Section 2: Bug Powder Dust / Pump Me Up / How High / Poison / Been Caught Ste... :: 06:44
-03. Section 3: The Mexican / Rock the House / The Best Part of Breaking Up / King... :: 06:03
-04. Section 4: Hey Can You Relate / What Time Is Love / Funky Acid Makossa / Shaf... :: 07:52
-05. Section 5: New York / Punk to Funk / I'm Sick :: 04:57
-06. Section 6: The Home of Hip-Hop / Strong Island / Kowalski / Time to Get Ill /... :: 05:48
-07. Section 7: Get Down / Humpty Dance / Dope On Plastic / Beats and Pieces :: 03:59
-08. Section 8: Sure Shot / Breakdance Electric Boogie / Doomsday of Rap / Ozone B... :: 08:40
-Section 1 - 7:18
- 1. Intro Beats - taken from Run-D.M.C.’s «Here We GoЖанр: Alternative Rock, Breaks, Punk, Big Beat, Hip Hop, BreakbeatФормат: CD, Compilation, MixedПродолжительность: 00:51:26
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552018   (449860) от 25.09.2012
-
-Группа Технология - 4 Альбома (1991 - 1996) /2003, JAM Group/ [FLAC|Lossless]<Synth Pop, Techno Pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_449860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Телефон небес
-02. Королева дорог
-03. Яд
-04. Скорая помощь
-05. Экран
-06. Не последний танец
-07. Это война
-08. Хранитель тишины
-09. Тайга
-10. Вспоминай(   Читать дальше...   )Жанр: Synth Pop, Techno PopПродолжительность: 00:53:13
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

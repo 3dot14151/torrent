@@ -6,7 +6,7 @@
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893307.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NG. Звездное выживание с Беаром Гриллсом / Runni
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893278.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893241.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ N.G. Момент смерти / Moment of death (2008) WEB-DLRip [H.264/720p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892787.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ BBC: Армада. Неизвестная история (12 дней чтобы
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892646.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ N.G. Нацистские тайны Второй мировой / Nazi weird wa
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892287.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Discovery. Техногеника. Карьер "Удачный" (2016) HDTVRip 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891196.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891054.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ NG: Христианство. Восхождение к власти / Иису�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890343.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Nat Geo Wild: Секреты крокодила / Croc Inside Out (2015) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889223.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ BBC. Horizon. Тайная жизнь кошек / The Secret Life of the Cat (2
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889123.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ NG: Самые страшные мировые морские катастроф
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889082.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ BBC: Тайная жизнь льда / The Secret Life of Ice (2011) HDTVRip [H
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888844.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888265.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888042.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886609.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885662.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ NG: Миссия полета к Солнцу / Mission to the Sun (2018) IPTVRi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884959.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ BBC: Эйнштейн и Хокинг. Гении нашей Вселенной 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883336.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883208.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PBS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883023.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882235.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ BBC: Внутри человеческого тела / BBC: Inside the Human Bo
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882174.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881795.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881673.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ BBC: Мир природы. Каланы. Малышка на миллион / N
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880740.jpg" />
 </div>
 
 

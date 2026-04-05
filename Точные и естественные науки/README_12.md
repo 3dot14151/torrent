@@ -1,3 +1,84 @@
+###  Публикация: 1014819   (775675) от 09.05.2016
+
+В. Н. Трифонова, Т. А. Пляцедевская (ред.) | Куба. Справочная карта (1982) [JPG, PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775675.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данное издание входят:
+1) Подробная справочная карта Кубы с административным делением (масштаб 1:1 500 000).
+2) Указатель географических названий в алфавитном порядке.
+3) Обложка с выходными данными.(   Читать дальше...   )Жанр: Складная географическая картаФормат: JPG, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB8D1CEF5BAF107E4085DBFDFD4FA7210D4DFF96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212215   (774464) от 14.03.2018
+
+И. Е. Амлинский | Жоффруа Сент-Илер и его борьба против Кювье (1955) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774464.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящей монографии освещены наиболее значительные исследования Жоффруа, которые способствовали утверждению в науке одного из наиболее плодотворных общетеоретических обобщений биологии — учения о единстве строения, животных. Это учение, материалистически истолкованное, вошло составной частью в современное учение о единстве происхождения и развития органического (   Читать дальше...   )Жанр: История, науковедение, естествознание, биология, анатомияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F3431B3C39C220EE171C79433ABAB04BAFACF27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212370   (774405) от 14.03.2018
+
+Архимед | Исчисление песчинок [Псаммит] (1932) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774405.jpg" />
+</div>
+
+
+###  Подробнее
+
+Арифметический трактат Архимеда, впервые изданный в переводе профессора Г. Н. Попова. "Псаммит" - работа древнегреческого ученого Архимеда, в которой он пытается определить верхнюю грань числа песчинок, которые занимает в своем объеме Вселенная. С этой целью он пробует вычислить размер Вселенной, основываясь на астрономических представлениях того времени, (   Читать дальше...   )Жанр: История, науковедение, математика, алгебра, геометрия, арифметикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D92A626F1513BFD1E39312E8D32CF4A05988D39C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212375   (774404) от 14.03.2018
 
 Г. А. Лоренц и др. | Принцип относительности (1935) [DJVU]
@@ -6,7 +87,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774404.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774403.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774077.jpg" />
 </div>
 
 
@@ -86,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772348.jpg" />
 </div>
 
 
@@ -112,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771911.jpg" />
 </div>
 
 
@@ -138,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768811.jpg" />
 </div>
 
 
@@ -164,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767041.jpg" />
 </div>
 
 
@@ -190,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766969.jpg" />
 </div>
 
 
@@ -216,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766964.jpg" />
 </div>
 
 
@@ -242,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765704.jpg" />
 </div>
 
 
@@ -270,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765431.jpg" />
 </div>
 
 
@@ -296,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765288.jpg" />
 </div>
 
 
@@ -322,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764459.jpg" />
 </div>
 
 
@@ -350,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763166.jpg" />
 </div>
 
 
@@ -376,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763164.jpg" />
 </div>
 
 
@@ -402,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763072.jpg" />
 </div>
 
 
@@ -430,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762715.jpg" />
 </div>
 
 
@@ -459,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761736.jpg" />
 </div>
 
 
@@ -487,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758503.jpg" />
 </div>
 
 
@@ -513,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754002.jpg" />
 </div>
 
 
@@ -541,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753954.jpg" />
 </div>
 
 
@@ -567,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746815.jpg" />
 </div>
 
 
@@ -593,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746613.jpg" />
 </div>
 
 
@@ -604,88 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB748DD46FAC745CEE7F259E2C45065405E66802
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524361   (744992) от 15.01.2022
-
-Владимир Успенский | Апология математики (сборник статей) (2017) [FB2, PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_744992.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этот сборник вошли статьи разных лет российского математика и лингвиста Владимира Андреевича Успенского, ученика великого Колмогорова, существенно переработанные и дополненные. Очерчивая место математики в современной культуре, автор пытается прояснить для читателей-нематематиков некоторые основные понятия и проблемы «царицы наук».
-
-Обновленное и дополненное издание.Жанр: Математика, Научно-популярная литератураФормат: FB2, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFE1E28431CEF3612ADBB45F6A67BFD7022ACBA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282791   (742457) от 14.02.2019
-
-В. Грант | Эволюция организмов (1980) [DJVU, PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга известного ученого, члена Национальной академии наук США представляет собой сжатый обзор современных концепций по важнейшим проблемам эволюционной теории на уровне организма. Благодаря тщательному отбору фактических данных и примеров, которых, в отличие от других сводок по эволюции, в книге мало, Грант сумел при относительно небольшом объеме рассмотреть все (   Читать дальше...   )Жанр: История, науковедение, биологияФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:077ADD7BB986706BC244D1192E2C4C203336E219
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216548   (742130) от 05.04.2018
-
-В.В. Андреев | Лабораторный практикум по ядерной физике [Часть1] (1994) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный лабораторный практикум предназначен для выполнения лабораторных работ по ядерной физике. Издаётся в двух частях . В первой части более простые лабораторные работы во второй повышенной сложности.
-
-В.В. Андреев | Лабораторный практикум по ядерной физикеЖанр: учебное пособиеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2172345EC8770518BDF44805DD892FCB62788975
 ```
 
 https://mybot314.ru/tekegram_catalog/

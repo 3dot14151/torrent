@@ -1,3 +1,29 @@
+###  Публикация: 972217   (983282) от 05.01.2016
+
+Неудержимый МАКС. Городской спецназ (2015) HDTVRip [720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983282.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уникальный проект, о героях нашего времени. Обычно они остаются за кадром. Но неудержимый Макс познакомиться с ними ближе, чем кто-либо. Вы увидите, как проходит подготовка настоящих бойцов в спецподразделениях России. Посмотрим, под силу ли подобные нагрузки профессиональному спортсмену и офицеру запаса Максу Гришину! У него может и не получиться, но одно ясно - (   Читать дальше...   )Телекомпания: Т24Жанр: ТелепередачаПродолжительность: 00:26:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C00E7BB4F76C3F6C40531EC8F53B0A45513FA6CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972223   (983277) от 05.01.2016
 
 Неудержимый МАКС. Спасатели (2015) HDTVRip [720p-LQ] [Серии: 1-2 из 2]
@@ -6,7 +32,7 @@
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983277.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964583.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964560.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960948.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955840.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954428.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951400.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943536.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943351.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941788.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939963.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924488.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924480.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922574.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919201.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919107.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919106.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919094.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916905.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916900.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916775.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915681.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915638.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915556.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915505.jpg" />
 </div>
 
 
@@ -652,32 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7255AA4983D77E9EC913CF765C577D7DC7D1A91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989694   (915436) от 23.02.2016
-
-Полигон. Большой десантный корабль (2015) HDTVRip [720p-LQ]
-
->>Документалистика и Телепередачи
->>Военное дело
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915436.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа о современных военных разработках, новейших видах вооружения, средствах ведения боя и индивидуальной защиты! В "боевых условиях" ведущие попытаются выяснить, как устроены и работают современные бронеавтомобили и снайперские винтовки, ударные вертолеты и боевые корабли. С любознательностью новобранцев они будут рассматривать каждый винтик и интересоваться (   Читать дальше...   )В этом выпуске: Алексей Громыко побывает на большом десантном корабле, чтобы рассказать, как проходит десантирование подразделений морской пехоты с техникой на морское побережье и как выполняется условное задание.Телекомпания: Т24Жанр: ТелепередачаПродолжительность: 00:26:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1023BF755688EA5CBCE6A8AB7F85EC9E0B2EB9E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

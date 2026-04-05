@@ -1,3 +1,32 @@
+###  Публикация: 1804911   (12646) от 03.07.2025
+
+Bruce Springsteen - Lost And Found (Selections From The Lost Albums) (2025) Compilation [FLAC|Lossless|tracks + .cue] <Folk Rock, Pop Rock, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12646.jpg" />
+</div>
+
+
+###  Подробнее
+
+from LA Garage Sessions '83:
+01 - Follow That Dream [3:54]
+02 - Seven Tears [1:52]
+03 - Unsatisfied Heart [5:46](   Читать дальше...   )Жанр: Folk Rock, Pop Rock, RockПродолжительность: 01:19:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDD9B35366E30B8E7B7C2F9FB509451F71575718
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1805222   (12566) от 04.07.2025
 
 Queen - Pop (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive-Rock, Glam-Rock>
@@ -6,7 +35,7 @@ Queen - Pop (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive-Rock, Glam-R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12566.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ The Essence - Есенин (2025) [MP3|320 Kbps] <Pop Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12422.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ The Essence - Есенин (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12414.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Kiss - Love Gun (1977) Deluxe Edition, 2014, UMe Direct 2 [FLAC|Lossless|WEB-DL|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12325.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12151.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12146.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ VA - Summer Rock Songs (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12142.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ VA - Road Trip Rock Ballads (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12141.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ VA - 25 Indie Rock Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock/Rock po
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12139.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Anger Machine - Human Error (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Groove
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12126.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Main-De-Gloire - Ravecore (2025) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12122.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Dance Gavin Dance - Pantheon (2025) [MP3|320 Kbps] <Post-Hardcore, Progressive, 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12119.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Type O Negative - Dead Again (2007) Reissue, 2022, Nuclear Blast [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12112.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ AC/DC - Problem Child The Best Of The Bon Scott Years (2018) Box Set, 8 x CD, Co
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12061.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Manic Depression - Escapade (2025) [MP3|320 Kbps] <Thrash Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12026.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Royale Lynn - Black Magic (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12020.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Dire Straits - Brothers In Arms (1985) Box Set, 3xCD, Reissue, 2025 ,Mercury Rec
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11963.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Celestial Wizard - Regenesis (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11922.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ VA - Оргазм Нострадамуса: Трибьют Vol.1-2-3 (2020-2025)
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11823.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Gorillaz - Live in London 2001 (2025) [MP3|320 Kbps] <Alternative-Rock, Trip-Hop
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11818.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Queen - Anthems (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive-Rock, Gl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11774.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Sting - The Dream Of The Blue Turtles (1985) 2025 Expanded Edition [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11605.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Chris Rea - New Light Through Old Windows (1988) 2CD, Reissue, Remastered, 2025,
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11590.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Black Sabbath - The End (4 February 2017 - Birmingham) (2017) Box Set, 3XCD, Del
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11520.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Metallica - Master Of Puppets (1986) Expanded Edition, Reissue, Remaster, 2017, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11512.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Metallica - Master Of Puppets (1986) Expanded Edition, Reissue, Remaster, 2017, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71CEA1C8545AE200B79D96169431ABF1563E0A5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806669   (11502) от 14.07.2025
-
-Helix - No Rest For The Wicked (1983) Reissue, Remastered, 2005, RockCandy Records [FLAC|Lossless|image + .cue] <Hard Rock, Glam, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Does a Fool Ever Learn (3:23)
-02. Let's All Do It Tonight (2:51)
-03. Heavy Metal Love (3:01)
-04. Check Out the Love (3:02)(   Читать дальше...   )Жанр: Hard Rock, Glam, Heavy MetalПродолжительность: 00:32:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6E40477FA45B3770C0DA0B18AFDB689F8B4F6E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

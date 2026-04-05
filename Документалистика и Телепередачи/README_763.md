@@ -1,3 +1,165 @@
+###  Публикация: 1804248   (65688) от 28.06.2025
+
+Тест-драйв GEELY EX5 2025 — Минтранс (28.06.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65688.jpg" />
+</div>
+
+
+###  Подробнее
+
+🔸 Юридические тонкости. Что будет, если не явиться в суд за выезд на полосу встречного движения? Чем это грозит?
+🔸 Тест-драйв GEELY EX5 2025. Что удивит, а что расстроит?
+🔸 Водительский туризм. Можно ли открыть категорию в правах, если учился не на родине?
+🔸 Срочное дело. Что делать, если потёк антифриз?(   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:48:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5420BAB5B7FA032CA949F4EE92745EFDD19E23C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804398   (65643) от 29.06.2025
+
+Антропоцен: Эпоха людей / Anthropocene: The Human Epoch (2018) WEBRip [H.264/1080p] [DVO]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65643.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм о катастрофическом влиянии человека на окружающую природу планеты Земля. Группа кинематографов побывала на шести континентах, чтобы изучить последствия воздействия деятельности человека на планету Земля.Производство: Канада / Mercury Films, Seville InternationalЖанр: документальный, природаРежиссер: Дженнифер Бейчуэл, Edward Burtynsky, Ник де ПенсьерПеревод: Двуголосый (Pazl Voice)Язык озвучки: русский, английскийСубтитры: английские (hardsub)Продолжительность: 01:26:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48B79AD05D6DE0EDA64AD3564E7CAD06FDD0E147
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804430   (65637) от 29.06.2025
+
+Чудо техники с Сергеем Малозёмовым (29.06.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65637.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гаджеты для пляжа — пусть волнуется море, а не вы! Команда программы рассказала, какие устройства помогут наслаждаться пляжным отдыхом: попробовала зарядить телефон от солнца, протестировала браслет-спасатель и проверила на прочность портативный сейф.
+ Инновационные тиски XXI века с разными зажимами.
+ Безопасные городские бассейны без хлорки на природе.
+ Свежие научные (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:964F8A1D46D5A69784D6FA1967F4F1719BFFE496
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804373   (65601) от 29.06.2025
+
+Военная тайна с Игорем Прокопенко (28.06.2025) WEBRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65601.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 02:34:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A924D05100131BEDF1B87B38739B14C29E5F57C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804737   (65570) от 01.07.2025
+
+Рождение Хичкока: Наследие «Шантажа» / Becoming Hitchcock: The Legacy of Blackmail (2024) WEB-DL [H.264/1080p] [DVO]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучение культового стиля Хичкока через его ранний фильм "Шантаж", взгляд на развивающиеся техники и темы режиссера в период перехода к звуковому кино, демонстрируя элементы, которые определят его поздние шедевры.Производство: Франция / StudioCanal Films, Nedland Media, Turner Classic Movies (TCM)Жанр: документальный, биографияРежиссер: Лоран БузероПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: русский, английскийСубтитры: русские (forced + full), английские (SDH)Продолжительность: 01:08:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFE37EBC998ED75CDD65607EBA80CA00F1341F66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805039   (65537) от 03.07.2025
+
+Папанинцы (1938) WEBRip
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65537.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1937 году при помощи самолёта в районе Северного полюса была организована первая научно-исследовательская дрейфующая станция «Северный полюс-1» (СП-1) под руководством Ивана Папанина. Участники экспедиции гидробиолог Петр Ширшов, геофизик Евгений Федоров, радист Эрнст Кренкель и руководитель Иван Папанин в течение девяти месяцев вели научные наблюдения на станции. (   Читать дальше...   )Производство: СССР / Московская и Ленинградская студии кинохроникиЖанр: документальный, природа, историяРежиссер: Яков Посельский, Ирина ВенжерЯзык озвучки: русскийСубтитры: в некоторых эпизодах поясняющие интертитры (русский)Продолжительность: 00:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C852FA3C32395C3036EA00DBD94AC917894540BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1805408   (65483) от 05.07.2025
 
 Военная тайна с Игорем Прокопенко (05.07.2025) WEBRip [H.264]
@@ -6,7 +168,7 @@
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65483.jpg" />
 </div>
 
 
@@ -32,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65481.jpg" />
 </div>
 
 
@@ -61,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65370.jpg" />
 </div>
 
 
@@ -87,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65236.jpg" />
 </div>
 
 
@@ -113,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65193.jpg" />
 </div>
 
 
@@ -140,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65178.jpg" />
 </div>
 
 
@@ -169,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65177.jpg" />
 </div>
 
 
@@ -195,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64882.jpg" />
 </div>
 
 
@@ -223,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64786.jpg" />
 </div>
 
 
@@ -249,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64597.jpg" />
 </div>
 
 
@@ -275,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64573.jpg" />
 </div>
 
 
@@ -304,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64562.jpg" />
 </div>
 
 
@@ -330,7 +492,7 @@ Bono: История примирения / Bono: Stories of Surrender (2025) WE
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64557.jpg" />
 </div>
 
 
@@ -356,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64419.jpg" />
 </div>
 
 
@@ -386,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63911.jpg" />
 </div>
 
 
@@ -414,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63903.jpg" />
 </div>
 
 
@@ -440,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63899.jpg" />
 </div>
 
 
@@ -466,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63655.jpg" />
 </div>
 
 
@@ -492,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63494.jpg" />
 </div>
 
 
@@ -518,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63487.jpg" />
 </div>
 
 
@@ -529,169 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A46633A8B0F4B68CAE75415636A78F09D64EF813
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705890   (63398) от 10.03.2024
-
-Спецназ животного мира / Animal Special Forces (2018) WEBRip [H.264/1080p] (сезон 1, серии 1-6 из 6)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63398.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью современного оборудования и новейших исследований зрители смогут погрузиться в тайны волшебного мира дикой природы.
-Спецназ — только так можно назвать создания, наделенные феноменальной силой, невероятной гибкостью и необычными органами чувств.Производство: США, Чехия / KM Records, BIG MediaЖанр: документальныйРежиссер: Макс СериоУчастники: Джим О’БрайэнПеревод: Дублированный (по заказу "Русский Репортаж")Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~00:48:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F18434690000B548E214DC7E8B945376DB02D71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705792   (63392) от 10.03.2024
-
-Ты не поверишь! (09.03.2024) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63392.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Ты не поверишь!» — информационно-развлекательная программа в жанре светского репортажа, освещающая жизнь богатых и знаменитых со всех сторон. Шикарные особняки и тайный бизнес звезд — на чем они зарабатывают свои миллионы? Новые романы и закрытые свадьбы — как живут семьи знаменитых артистов?
-
-Звездные подарки к 8 Марта, защита от назойливых фанатов, Лариса Долина (   Читать дальше...   )Телекомпания: НТВЖанр: ТВ-шоуЯзык озвучки: РусскийПродолжительность: 00:46:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8878E93CAFAA948F1E384EBB7AC28CD4ECEC6399
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704279   (63386) от 10.03.2024
-
-Первая передача на НТВ. Автомобильная передача (03.03.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63386.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разнузданный босс автосервиса без тормозов: чем может обернуться ремонт по ОСАГО?
- Зачем коммунальщики разбрасывают снег по асфальту?
- Freelander второго поколения: реальный внедорожник или «премиум-понты»?
- «Поворотник» - как он может обмануть?Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:24:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2C6A2ABB6BFC107FEE17A4843CF22A04AEE0429
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705800   (63268) от 11.03.2024
-
-Экстрасенсы. Реванш (09.03.2024) WEBRip [H.264/1080p] (сезон 1, выпуск 9)
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экстрасенсы. Реванш - новое мистическое шоу, где участники «Битвы экстрасенсов», которые так и не смогли одержать победу, ещё раз бросят вызов себе и покажут, на что они способны. У них есть амбиции, способности, сила и даже место в финале своего сезона. Нет только победы, за которую они сразятся в новом проекте ТНТ.
-В «Экстрасенсы. Реванш» участники и финалисты (   Читать дальше...   )Телекомпания: ТНТЖанр: Телепередача, ТВ-шоу, Реальное ТВСубтитры: ОтсутствуютПродолжительность: 01:13:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47763B28B5C97FC7E1DDDABD9184E54344CB304C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706401   (63199) от 12.03.2024
-
-Жизнь и смерть Тупака Шакура / The Life and Death of Tupac Shakur (2021) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63199.jpg" />
-</div>
-
-
-###  Подробнее
-
-Борьба на грани: история простого парня из Гарлема, успевшего за четверть века жизни изменить историю хип-хопа.Производство: Великобритания / Entertain Me ProductionsЖанр: документальный, биография, криминал, музыкаРежиссер: Finlay BaldУчастники: Donovon Allion-Ruddock, Tupac ShakurПеревод: Одноголосый профессиональныйЯзык озвучки: Русский, английскийСубтитры: отсутствуютПродолжительность: 01:04:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECF6021551E3C9C729862A47575E7D8B8C0D23CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706415   (63194) от 12.03.2024
-
-Роллинг Стоунз. Короли рока / The Rolling Stones: Rock Royalty (2018) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полувековая история культовой группы, созданной как альтернатива «битлам» и ставшей символом свободы и рок-н-ролла.Производство: Великобритания / Entertain Me ProductionsЖанр: документальный, музыкаРежиссер: Matt SalmonУчастники: Gerry Conway, Tony Calder, Howard CohenПеревод: Одноголосый профессиональныйЯзык озвучки: Русский, английскийСубтитры: отсутствуютПродолжительность: 01:00:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EF1DF2BFBA1960B7D0C13637212096E162C35C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

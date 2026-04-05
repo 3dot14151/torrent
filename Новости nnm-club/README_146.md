@@ -1,3 +1,56 @@
+###  Публикация: 1004372   (552566) от 26.08.2016
+
+Арчер / Спецагент Арчер / Archer (2016) WEB-DLRip (сезон 7, серии 1-10 из 10) Кубик в кубе & Бяко Рекордс
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552566.jpg" />
+</div>
+
+
+###  Подробнее
+
+В международном шпионском агенстве ISIS любой мировой кризис — лишь предлог для высококлассных секретных агентов посоревноваться между собой в обмане и предательстве. Главным героем мультсериала является спецагент Стерлинг Арчер, известный также под кодовым именем «Герцогиня». На службе Арчеру приходится мириться со своей эксцентричной мамашей/начальницей — Мэлори, (   Читать дальше...   )Производство: США / FX Productions, Floyd County Productions, Radical AxisЖанр: мультфильм, боевик, комедия, для взрослыхРежиссер: Адам Рид, Брайан ФордниАктеры: Х. Джон Бенжамин, Джуди Грир, Эмбер Нэш, Крис Парнелл, Аиша Тайлер, Джессика Уолтер, Адам Рид и др.Перевод: Многоголосый закадровый, профессиональный - Кубик в кубе & Бяко Рекордс
+Внимание! Присутствует ненормативная лексика.Озвучка: Руслан Габидуллин, Константин Погодаев, Ольга Кравцова, Анна ТухПродолжительность: ~00:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:851B9E260DB662A04E3909926B215EF611EB7E7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046220   (552565) от 26.08.2016
+
+Трудная мишень 2 / Hard Target 2 (2016) HDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552565.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение культового экшн-триллера 1993 года о подпольных игрищах, где проплаченные «охотники» травят, как дичь, похищенных людей. Новой мишенью становится опальный мастер боевых искусств, который соблазнился деньгами, даже не подозревая, на что подписывается. Но и его преследователи еще не знают, с кем связались.Производство: США, Universal 1440 Entertainment, Living FilmsЖанр: Боевик, ТриллерРежиссер: Роэль РейнАктеры: Скотт Эдкинс, Роберт Неппер, Рона Митра, Темуэра Моррисон, Адам Саундерс, Джэйми Тимони, Питер Харди, Шон КинэнПеревод: Дублированный (Лицензия)Субтитры: ОтсутствуютПродолжительность: 01:43:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58AA8CEB0500EF0802A05C772E8D0C27FEB9A09F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 815517   (551914) от 23.08.2014
 
 Sleeping Dogs (2012) [En/Ru] (2.1.437044/DLC) SteamRip R.G. Games [Limited Edition]
@@ -6,7 +59,7 @@ Sleeping Dogs (2012) [En/Ru] (2.1.437044/DLC) SteamRip R.G. Games [Limited Editi
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551914.jpg" />
 </div>
 
 
@@ -36,7 +89,7 @@ Adobe After Effects CC 2015.3 (13.8.1.38) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551623.jpg" />
 </div>
 
 
@@ -63,7 +116,7 @@ Adobe Premiere Pro CC 2015.4 (10.4.0.30) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551616.jpg" />
 </div>
 
 
@@ -91,7 +144,7 @@ sZone Online (2014) [Ru] (25.08.16) License
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551615.jpg" />
 </div>
 
 
@@ -117,7 +170,7 @@ Devil May Cry 4 (2015) [En/Multi] (12.12.2015/dlc) Repack R.G. Механики 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551612.jpg" />
 </div>
 
 
@@ -143,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551001.jpg" />
 </div>
 
 
@@ -169,7 +222,7 @@ Microsoft Office 2003 SP3 rus vl + conv2007 + updates (21.08.2013) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550760.jpg" />
 </div>
 
 
@@ -197,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550692.jpg" />
 </div>
 
 
@@ -225,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550691.jpg" />
 </div>
 
 
@@ -251,7 +304,7 @@ Microsoft Windows 7 Ultimate Ru x86/x64 nBook IE11 by OVGorskiy® 06.2019 1DVD
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549989.jpg" />
 </div>
 
 
@@ -277,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549838.jpg" />
 </div>
 
 
@@ -303,7 +356,7 @@ No Man's Sky (2016) [Ru/Multi] (1.0/u3/dlc) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549794.jpg" />
 </div>
 
 
@@ -329,7 +382,7 @@ Galactic Civilizations III (2015) [Ru/Multi] (1.82/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549786.jpg" />
 </div>
 
 
@@ -355,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549771.jpg" />
 </div>
 
 
@@ -381,7 +434,7 @@ Manjaro Illyria 18.0.4 (GNOME, KDE, Xfce) [x86_64] 3xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549191.jpg" />
 </div>
 
 
@@ -407,7 +460,7 @@ MediaChance Dynamic Auto Painter PRO 5.0.3 RePack by KaktusTV (x86) [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548911.jpg" />
 </div>
 
 
@@ -433,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548892.jpg" />
 </div>
 
 
@@ -459,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548888.jpg" />
 </div>
 
 
@@ -485,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548883.jpg" />
 </div>
 
 
@@ -511,7 +564,7 @@ Grim Dawn (2016) [Ru/En] (1.1.3.0/dlc) Repack R.G. Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_548292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548292.jpg" />
 </div>
 
 
@@ -537,7 +590,7 @@ AusLogics BoostSpeed 9.0.0.0 DC 27.08.2016 RePack (& Portable) by KpoJIuK [Multi
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547942.jpg" />
 </div>
 
 
@@ -563,7 +616,7 @@ Movavi Video Suite 15.4.0 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547940.jpg" />
 </div>
 
 
@@ -589,7 +642,7 @@ Adobe InDesign CC 2015 (v11.4.1) x86-x64 RUS/ENG Update 6
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547939.jpg" />
 </div>
 
 
@@ -615,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547937.jpg" />
 </div>
 
 
@@ -628,58 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F07DC7CD1F8E9BFC243940E086ED2FA4D47B506
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238087   (547739) от 28.07.2018
-
-Черновик (2018) WEB-DLRip [H.264]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547739.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой москвич Кирилл — талантливый дизайнер компьютерных игр. В один прекрасный день он оказывается напрочь стертым из памяти всех, кого он знал и любил. Кирилл узнает, что выбран для важной и таинственной миссии. Его предназначение — стать таможенником между параллельными мирами, коих во Вселенной десятки. Сможет ли Кирилл разгадать тайну этих таинственных миров (   Читать дальше...   )Производство: Россия, Новые людиЖанр: ФантастикаРежиссер: Сергей МокрицкийАктеры: Никита Волков, Евгений Ткачук, Ольга Боровская, Юлия Пересильд, Северия Янушаускайте, Евгений Цыганов, Елена Яковлева, Ирина Демидкина, Андрей Мерзликин, Андрей РуденскийПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:55:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DED4CE5046CC3564D84D49A9366DCA8C9B83ABF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310252   (547487) от 23.06.2019
-
-Microsoft Windows 7 SP1 x86/x64 Ru 9 in 1 Origin-Upd 06.2019 by OVGorskiy® 1DVD
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547487.jpg" />
-</div>
-
-
-###  Подробнее
-
-обновленные оригинальные русские образы ОС Windows 7 от Microsoft разных редакций и разрядностей. Образ содержит в себе 9 редакций ОС на 1 DVD (x86 и x64). Включает в себя "чистые" не модифицированные образы ОС Windows 7 Starter x86, Home Basic x86/x64, Home Premium x86/x64, Professional x86/x64, Ultimate x86/x64, собранные в один образ стандартными средствами (   Читать дальше...   )Язык интерфейса: Русский (Russian),
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D054F8CFE3D5F7F4AA942B80B2A7EC18868FAD2
 ```
 
 https://mybot314.ru/tekegram_catalog/

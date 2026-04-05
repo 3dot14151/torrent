@@ -1,3 +1,55 @@
+###  Публикация: 1839660   (1046857) от 30.11.2025
+
+You Are Empty (2006) [Ru] (1.2) Repack Other s
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Смерть ли это? Или спасение? Прозрение или гибель разума? Судьба свела вас со зловещей пустотой мертвого города, который внимательно следит за своим единственным гостем. Способны ли вы противопоставить себя этому монстру и бросить вызов судьбе? Невидимое поле, изменяющее физиологию человека, вызвало у населения крупного советского города неконтролируемые мутации.Тип издания: RepackРазработчик: Digital Spray Studios, Mandel ArtPlainsЖанр: Экшены, ШутерыЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2DEF7880A1158413FCACD50504FA46DF6D8C3A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839664   (1046856) от 30.11.2025
+
+Geneforge 3 (2005) [En] (1.0g) License GOG
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046856.jpg" />
+</div>
+
+
+###  Подробнее
+
+Geneforge 3 - это приключенческая ролевая инди-игра, третья часть саги Geneforge. В этом сказочном путешествии вам предстоит исследовать неведомые, враждебные земли, выбрать, на чьей стороне вы сражаетесь, и, конечно же, создать свою собственную орду монстров-мутантов. Geneforge 3 порадует вас большой свободой действий и открытой сюжетной линией, в игре дюжина различных (   Читать дальше...   )Тип издания: LicenseРазработчик: Spiderweb SoftwareЖанр: Стратегии, Ролевые игры, ИндиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CE162F175B9E1BD1DE3DD8CBF40D6A1AB7C4F61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1839852   (1046734) от 01.12.2025
 
 Galador: The Prince and the Coward / Галадор: Проклятие Принца (1998) [Ru/Multi] (1.0) License GOG [Digital Deluxe Edition]
@@ -6,7 +58,7 @@ Galador: The Prince and the Coward / Галадор: Проклятие Прин
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046734.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ MechWarrior 5: Mercenaries (2019) [Ru/Multi] (1.13.378/dlc) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046641.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Adventures of Chris (2020) [Ru/Multi] (1.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046296.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Divinity 2 (II): Developer's Cut (2012) [Ru/En] (1.4.700.38) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044179.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Jagged Alliance 2: Wildfire (2005) [Ru/Multi] (6.08/dlc) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040671.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Worms 2 (1998) [En] (2.0.0.23) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037052.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Nancy Drew: The Creature of Kapu Cave / Нэнси Дрю: Чудовище пе
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036778.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Time Commando (1996) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036486.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Puzzle Agent (2010) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035677.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Rayman 3 HD (2012) [Multi] (1.0) Repack/Mod HDlab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035605.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Vangers / Вангеры (1998) [Ru/En] (1.46) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034729.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Nancy Drew: Curse of Blackmoor Manor / Нэнси Дрю: Проклятье п�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034316.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Baldur's Gate Trilogy + Neverwinter Nights (2022) [Ru] (1.0) Repack/Mod AGKanevc
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033584.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Rayman Forever (1999) [En] (1.21) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033583.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Ankh (2005) [En] (1.0a) License GOG [Anniversary Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032901.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Harvester (1996) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032886.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Phantasmagoria: A Puzzle of Flesh (1996) [En] (1.0.06) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032863.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Fahrenheit / Indigo Prophecy (2005) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032848.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030829.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Europa Universalis III / Европа 3 (2007) [En] (5.2/dlc) License GOG [Compl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030624.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Wizards & Warriors (2000) [En] (1.0b HotFix2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030166.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Half-Life RTX (2023) [En] (1.0.5a) Mod
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030158.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Total Immersion Racing / Жажда Скорости (2002) [Ru] (1.0) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029894.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Stronghold Crusader HD (2002) [Ru/Multi] (1.41a) License GOG [Extreme Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029354.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Stronghold Crusader HD (2002) [Ru/Multi] (1.41a) License GOG [Extreme Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8612CFA319947006963EEB4D33422B57DC18E81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451641   (1028138) от 03.03.2021
-
-1nsane (2001) [Multi] (1.0) License GOG
-
->>Win Старые Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Никаких ограничений, никаких треков и скучных автодромов. В 1nsane вам предстоит покорять захватывающее бездорожье как в одиночном режиме, так и с друзьями по локальной сети или в Интернете. Выбирайте машины и местность, покажите, на что вы способны на внедорожнике в семи уникальных режимах игры. Да воцарится безграничная свобода и хаос полноприводной гонки! Никаких (   Читать дальше...   )Тип издания: LicenseРазработчик: Invictus GamesЖанр: Racing, ArcadeЯзык озвучки: Английский, Французский, Немецкий, Итальянский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ED9744D02611B0EA7941123D75BBDCF4A50AB02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453812   (1026678) от 12.03.2021
-
-M.U.L.E. / MULE (1983) [En] (1.0) License GOG
-
->>Win Старые Игры
->>Strategy Tactical (RTS/TBS/Wargame)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра проходит на вымышленной планете Irata (Atari наоборот). Игра представляет собой опыт в экономике спроса и потребления, включающий соревнование между четырьмя игроками. Место отсутствующих игроков занимают компьютерные противники. У игроков есть возможность выбрать расу их колонистов, что даёт различные преимущества и недостатки, которые могут быть соединены (   Читать дальше...   )Тип издания: LicenseРазработчик: Ozark SoftscapeЖанр: Strategy, TacticalЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD38A25E955507A99B096C49AC76A7FC2A9E0D97
 ```
 
 https://mybot314.ru/tekegram_catalog/

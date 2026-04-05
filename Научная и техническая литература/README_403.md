@@ -1,136 +1,3 @@
-###  Публикация: 1251778   (413176) от 03.10.2018
-
-Книжная серия | 400 лет Дому Романовых. Повседневная жизнь Российского императорского двора [11 книг] (2010-2017) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413176.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книжной серии приводятся результаты глубоких исследований повседневных аспектов жизни российских монархов династии Романовых.
-Из книг вы узнаете много нового и интересного о членах императорской фамилии. Поймете, что их жизнь совсем не была бесконечной чередой праздников и торжественных церемоний. Помазанники Божии – живые люди со своими характерами, вкусами, причудами, (   Читать дальше...   )Жанр: Биографии и Мемуары, История, КультурологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:636155D812F45BF0B08C12FB057198A8A975B12D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301783   (413154) от 01.10.2020
-
-Книжная серия | Военные тайны XX века [197 книг] (1999-2019) [FB2, PDF, DJVU]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413154.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Военные тайны XX века" - серия документально-публицистических книг, рассказывающих о наиболее загадочных и драматических событиях и явлениях бурного XX века. В рамках серии публикуются мемуары, исторические исследования и сборники очерков, авторами которых являются писатели и политики, журналисты и военные.
-
-Главная задача серии - освещение таких тем и (   Читать дальше...   )Жанр: История, Военная историяФормат: FB2, PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:906713DC0EDCBA0A0433CADA4445226AE9757A7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167880   (412845) от 22.09.2017
-
-А. И. Лепешкин и др. | Основы советского государства и права (1970) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412845.jpg" />
-</div>
-
-
-###  Подробнее
-
-Содержание книги отражает уровень развития юридической науки и советского законодательства на 1970 год.Жанр: История, политология, правоведение, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8A9DD4C88CBEE5AEAF6DB91E249DD2C19E1DBAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 832329   (412636) от 18.10.2014
-
-С. И. Поварнин | Введение в логику (1921) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412636.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное издание посвящено проблеме научного исследования в аспекте логического знания.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7EA0EEE5F3646FBE22714D5211059F73CA49598
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325586   (412584) от 15.09.2019
-
-В.Ф. Марков и др. | Коллоидная химия. Примеры и задачи (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412584.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии изложены основные разделы коллоидной химии: количественные характеристики, образование, строение лиофильных и лиофобных дисперсных систем, их молекулярно-кинетические и оптические свойства, седиментационный анализ, адсорбция, смачивание, капиллярные и электрокинетические явления, кинетика коагуляции. Каждый раздел содержит основные теоретические положения, (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7932801BD4747E38C4C74DCD36ABDB7F3F3D2109
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1325659   (412576) от 15.09.2019
 
 В.П. Федотов и др. | Проектирование микропроцессорных защит элементов электрических сетей 110-220 кВ (2018) [PDF]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412576.jpg" />
 </div>
 
 
@@ -166,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412571.jpg" />
 </div>
 
 
@@ -193,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412570.jpg" />
 </div>
 
 
@@ -219,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412466.jpg" />
 </div>
 
 
@@ -245,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412459.jpg" />
 </div>
 
 
@@ -271,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412454.jpg" />
 </div>
 
 
@@ -297,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412445.jpg" />
 </div>
 
 
@@ -323,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412440.jpg" />
 </div>
 
 
@@ -349,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412435.jpg" />
 </div>
 
 
@@ -375,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412267.jpg" />
 </div>
 
 
@@ -401,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412252.jpg" />
 </div>
 
 
@@ -427,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411956.jpg" />
 </div>
 
 
@@ -453,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411954.jpg" />
 </div>
 
 
@@ -479,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411787.jpg" />
 </div>
 
 
@@ -505,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411766.jpg" />
 </div>
 
 
@@ -532,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411704.jpg" />
 </div>
 
 
@@ -558,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411672.jpg" />
 </div>
 
 
@@ -584,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411614.jpg" />
 </div>
 
 
@@ -610,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411613.jpg" />
 </div>
 
 
@@ -636,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411560.jpg" />
 </div>
 
 
@@ -662,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411511.jpg" />
 </div>
 
 
@@ -673,6 +540,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4472A67F991FF7AC530FFBC8AA16C0E737BE71D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948350   (411487) от 20.10.2015
+
+Василий Ефремов , Вадим Гольцев  | Крах Белой мечты в Синьцзяне (2015) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411487.jpg" />
+</div>
+
+
+###  Подробнее
+
+Записки В. Н. Ефремова написаны автором в конце 1920-х годов в эмиграции сразу после описываемых событий и в настоящее время хранятся в архиве Объединения Лейб-Гвардии Казачьего полка в Париже. В воспоминаниях повествуется о побеге автора в Китай из большевицкой России. Подробно рассказывается об отходе белых отрядов в Китай после поражения в Гражданской войне и (   Читать дальше...   )Жанр: История,Биографии и мемуарыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F202A6C6B0040D212D6B30B83B61DB143E8CA8C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948364   (411384) от 20.10.2015
+
+Джузеппе Боффа | СССР: от разрухи к мировой державе. Советский прорыв (2015) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411384.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джузеппе Боффа, итальянский историк и журналист, один из самых авторитетных специалистов по истории СССР. В Советском Союзе он работал много лет, получив с особого разрешения ЦК КПСС доступ к закрытым архивам; на основе их изучения Боффа написал книгу по советской истории, но она была издана только для высших должностных лиц СССР.
+
+В представленной вашему вниманию (   Читать дальше...   )Жанр: История,ПублицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60D27A5797B59D30F64A6A182DC4DA979C823FA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559130   (411298) от 11.10.2012
+
+Л.П.Христорождественская | Фразовые глаголы в разговорном английском [2012] [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411298.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пособие посвящено изучению и практическому применению наиболее часто используемых фразовых глаголов в современном английском языке. Они представлены в алфавитном порядке, их значение поясняется на русском и английском языках в примерах и упражнениях. Вся информация основана на современных аутентичных материалах (английских и американских пособий, словарей и справочников). Подходит для абитуриентов, студентов, аспирантов, преподавателей и всех, кто хочет изучать особенности использования фразовых глаголов в современном английском языке.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:167FA84185FA5229072C2212837B6115A3325E7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948374   (411267) от 20.10.2015
+
+Ю.П. Мельников, С.В. Попов | Радиотехническая разведка. Методы оценки эффективности местоопределения источников излучения (2008) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены методы местоопределения источников радиоизлучения (пеленгационные, временные, доплеровские, доплеровско - временные, многопозиционные и др.), а также методы определения вектора скорости подвижных объектов как из неподвижного, так и подвижного пунктов наблюдения. Приведены аналитические соотношения для оценки координат объектов и для погрешностей этих (   Читать дальше...   )Жанр: РадиотехникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D51B3884CA6D6C2976D6E6EE9A8F5B85353BD80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065998   (411216) от 26.10.2016
+
+Натаниел Поппер | Цифровое золото. Невероятная история биткоина (2016) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411216.jpg" />
+</div>
+
+
+###  Подробнее
+
+Биткойн — это пиринговая платежная система и финансовая технология, ломающая многие привычные представления о деньгах и их роли в обществе. В этой книге представлена невероятная история о том, как идея подобной системы, изначально интересная лишь маленькой группке энтузиастов, постепенно привлекла к себе внимание всего мира.
+В этой истории принимают участие самые (   Читать дальше...   )Жанр: ФинансыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A20C00A93ADC4DCFC0AE83310D5673DDB683284
 ```
 
 https://mybot314.ru/tekegram_catalog/

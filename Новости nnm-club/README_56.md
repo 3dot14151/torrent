@@ -1,3 +1,29 @@
+###  Публикация: 838019   (862365) от 03.03.2015
+
+Два с половиной человека / Two and a Half Men (2014) WEB-DLRip (Сезон 12, серии 1-16 из 16) (Jimmy J)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя восемь лет, после того как в особняке на побережье Беверли Хиллз сумбурно поселился «свежеразведённый» бездомный Алан Харпер, не стало его брата - хозяина особняка, местного бабника и знатного алкоголика Чарли. Но ушли ли с ним приключения семейства Харперов? Вряд ли, так как новым хозяином шикарного жилища становится очень незаурядная личность - некий Уолден (   Читать дальше...   )Производство: СШАЖанр: КомедияРежиссер: Ли Аронсон, Чак ЛорриАктеры: Джон Крайер, Эштон Катчер, Энгус Т. Джонс, Кончата Феррелл, Холланд Тейлор, Марин Хинкль, Мелани Лински, Дженнифер Бини Тейлор, Райан Стайлз, Эйприл Боулби и др.Перевод: Профессиональный двухголосый закадровый - Jimmy JОзвучка: Дмитрий Чепусов и Cветлана ЧистохинаФормат: AVIПродолжительность: ~00:21:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4B93551E4503A004977E5F52310858B709D4EDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1108112   (862354) от 25.02.2017
 
 TRAPPIST-1 - карликовая звезда, имеющая систему из восьми планет, размеры семи из которых сопоставимы с размером Земли
@@ -6,7 +32,7 @@ TRAPPIST-1 - карликовая звезда, имеющая систему и
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_862354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_862354.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Navicat Premium 11.2.15 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862018.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861973.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861849.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861835.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ Nexus: The Jupiter Incident Remastered (2016) [Ru/Multi] (1.02) License SKIDROW
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861825.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861822.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ Acronis True Image 2017 20.0.8029 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861779.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861771.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861768.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861284.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_860977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_860977.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860883.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860280.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ Company of Heroes (2013) [Ru] (2.700.2.42) Repack xatab [Complete Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860278.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860089.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860085.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_859963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_859963.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ Jonas Schmedtmann | The Complete JavaScript Course 2020: Build Real Projects! (2
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859852.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859727.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ Journey to the Savage Planet (2020) [Ru/Multi] (53043/dlc) Repack xatab (обн�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859720.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ Adobe Photoshop 2021 22.5.1.441 (x64) RePack by SanLex [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859228.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859226.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859116.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859114.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AADD272F8F7B232AE18B3542A5D9E6156BEBDA07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000315   (858617) от 25.03.2016
-
-Звёздные войны: Пробуждение силы / Star Wars: Episode VII - The Force Awakens (2015) BDRip [H.264/720p] [Line]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858617.jpg" />
-</div>
-
-
-###  Подробнее
-
-Через тридцать лет после гибели Дарта Вейдера и Императора галактика по-прежнему в опасности. Государственное образование Первый Орден во главе с их таинственным верховным лидером Сноуком и его правой рукой Кайло Реном идёт по стопам Империи, пытаясь захватить всю власть. В это нелёгкое время судьба сводит юную девушку Рей и бывшего штурмовика Первого Ордена Финна (   Читать дальше...   )Производство: США / Bad Robot, Lucasfilm Ltd., Truenorth ProductionsЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Джей Джей АбрамсАктеры: Джон Бойега, Дэйзи Ридли, Оскар Айзек, Адам Драйвер, Донал Глисон, Харрисон Форд, Марк Хэмилл, Кэрри Фишер, Макс фон Сюдов, Энди СеркисПеревод: Дублированный (чистый звук)Язык субтитров: АнглийскийПродолжительность: 02:18:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99ADA17FDFAABE671A97860DD9932B8A662D24FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

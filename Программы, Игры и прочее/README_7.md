@@ -1,3 +1,108 @@
+###  Публикация: 1851413   (1055474) от 03.02.2026
+
+Plus Messenger (Telegram+)  v12.3.1.1 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Plus Messenger - неофициальное приложение для обмена сообщениями, на основе Telegram API. Весьма крутой альтернативный клиент для Telegram. Много настроек. Развивается. Вкладки. Категории. В наличии весьма немалое количество дополнительных настроек. Быстро обновляется. Plus без проблем синхронизируется со всеми вашими устройствами и может использоваться на планшетах (   Читать дальше...   )Тип издания: ModРелиз состоялся: 29.01.2026Разработчик: rafalenseПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:260B9FA7507967E40D3876E2AA8FC89AC28C40D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851396   (1055210) от 01.02.2026
+
+Vanced Tube v5.5.80.363 Mod by TRUMods [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055210.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vanced — это модифицированная версия YT, которая включает в себя различные улучшения, такие как отсутствие рекламы, автоматический пропуск заставок и рекламы в середине видео, фоновое воспроизведение, регулировку громкости и яркости и многое другое.Тип издания: ModРелиз состоялся: 30.01.2026Разработчик: getvanced2020@gmail.comПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E776200E4492ADDEB47494F37A7DD0E4FBA54E04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851409   (1055209) от 01.02.2026
+
+Remini / Улучшение Фото v3.7.1260.202519018 Mod by Mixroot [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055209.jpg" />
+</div>
+
+
+###  Подробнее
+
+Превратите ваши старые, смазанные, размытые или поврежденные фото в фотографии высокой четкости одним касанием! Remini использует современный искусственный интеллект для восстановления четкости и улучшения любого фото. Подарите новую жизнь старым воспоминания в потрясающем, кристально чистом HD качестве. На сегодня мы обновили более 100 миллионов фотографий. Фоторедактор (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 31.01.2026Разработчик: Splice Video EditorПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E39AB57BFDB5C31CE2FB212C11C723F710E90BF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851336   (1054986) от 01.02.2026
+
+PixelLab Pro - Text on pictures 2.1.9 Mod by Alex.Strannik [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удобный фоторедактор, основной целью использования которого является создание логотипов и рекламных слоганов. Наложения, фильтры, работа со слоями. Обширная база готовых элементов и шаблонов.
+PixelLab - отличный фоторедактор, в котором все функции и возможности крутятся преимущественно вокруг наложения 3D текста на исходные файлы. В распоряжении пользователей большое (   Читать дальше...   )Тип издания: Pro (Mod)Релиз состоялся: 30.01.2026Разработчик: App HoldingsПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D13D64CF2BE61DD20F1D3F55FF170603B5FA3F56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1851326   (1054985) от 01.02.2026
 
 Night clock / Ночные часы v2.11.26 Mod by Alex.Strannik [Ru/Multi]
@@ -6,7 +111,7 @@ Night clock / Ночные часы v2.11.26 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054985.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ SD  Test Pro v3.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054951.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ Grok - ИИ ассистент v1.1.13-release.08 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054950.jpg" />
 </div>
 
 
@@ -85,7 +190,7 @@ Screenshot touch v2.6.2 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054948.jpg" />
 </div>
 
 
@@ -111,7 +216,7 @@ DjVu Reader & Viewer (читалка) v1.0.142 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054947.jpg" />
 </div>
 
 
@@ -138,7 +243,7 @@ Horary Chart / Астрология: Хорарная Карта v4.1.9 [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054942.jpg" />
 </div>
 
 
@@ -164,7 +269,7 @@ Astrological Charts / Астрологические Карты Pro v11.2.4 [Ru/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054941.jpg" />
 </div>
 
 
@@ -190,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054939.jpg" />
 </div>
 
 
@@ -216,7 +321,7 @@ Cozy Timer - Sleep timer v4.1.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054938.jpg" />
 </div>
 
 
@@ -242,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054937.jpg" />
 </div>
 
 
@@ -268,7 +373,7 @@ Frameo+: Share to photo frames v1.37.17 Mod by @tomic [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054936.jpg" />
 </div>
 
 
@@ -294,7 +399,7 @@ NewPipe x SponsorBlock x Return YouTube Dislike v0.28.2 Mod by baalajimaestro  [
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054730.jpg" />
 </div>
 
 
@@ -320,7 +425,7 @@ NewPipe v0.28.2 Free + Mod by Alex.Strannik  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054729.jpg" />
 </div>
 
 
@@ -346,7 +451,7 @@ PORTAL-WG 1.3.6 Mod by STR_BYPASS [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054214.jpg" />
 </div>
 
 
@@ -372,7 +477,7 @@ AirBrush: ИИ Фоторедактор v8.0.1 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054107.jpg" />
 </div>
 
 
@@ -398,7 +503,7 @@ Magic Eraser / Магический ластик v2.25.13 Mod by Maximoff⁠ [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054040.jpg" />
 </div>
 
 
@@ -424,7 +529,7 @@ MIUI Hidden Settings Activity v1.6.14 Mod by TryRoom [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054039.jpg" />
 </div>
 
 
@@ -450,7 +555,7 @@ Win 11 Launcher Pro v4.9 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054038.jpg" />
 </div>
 
 
@@ -477,7 +582,7 @@ BlockSudoku / Кудоку-Вуди Блок v2.6.6 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054037.jpg" />
 </div>
 
 
@@ -503,7 +608,7 @@ Solid Explorer File Manager v3.2.16 + Plugins Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054025.jpg" />
 </div>
 
 
@@ -532,7 +637,7 @@ Remini / Улучшение Фото v3.7.1260.202518969 Mod by Mixroot [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054024.jpg" />
 </div>
 
 
@@ -558,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054023.jpg" />
 </div>
 
 
@@ -569,111 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33F0CBEF8234C97D8CF29E4E16F684CF483151B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849905   (1054022) от 25.01.2026
-
-ТВ+ Эфир: Цифровое телевидение v4.2.9 Mod by vadj [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054022.jpg" />
-</div>
-
-
-###  Подробнее
-
-TV+: Бесплатное Онлайн Телевидение
-Погрузитесь в мир бесплатного онлайн телевидения с приложением TV+. Насладитесь основными российскими телеканалами в HD качестве, а также региональным цифровым ТВ прямо на вашем телефоне. С TV плюс вы всегда на связи с любимыми передачами и шоу!Тип издания: ModРелиз состоялся: 25.01.2026Разработчик: Лайм Эйч ДиПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81B94FA697F94B6149D1F1D1F89E997C27DF6370
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849678   (1053926) от 25.01.2026
-
-Win 11 Launcher v9.38 Mod by vadj [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вам наскучил пользовательский интерфейс Android и вы хотите насладиться лаунчером в стиле Windows на своем Android? Нет, подожди сейчас. Win 11 и Win 10 Launcher здесь для вас (вдохновленный ОС Win 11 и Win 10). Настройте свой телефон с уникальным внешним видом с помощью быстрой, чистой и энергоэффективной программы запуска. Удивите своих друзей новым внешним видом (   Читать дальше...   )Тип издания: ModРелиз состоялся: 22.01.2026Разработчик: Spark PlanetПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22A339E1518F3EC3E3114FF75CE4F614C8CA947C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849892   (1053877) от 25.01.2026
-
-EOBD Facile: OBD 2 авто сканер v3.82.1145 Mod by derrin [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053877.jpg" />
-</div>
-
-
-###  Подробнее
-
-EOBD Facile - автосканер обд2 последнего поколения с технологией Bluetooth. С адаптером ELM327 ты становишься обладателем автомобильного сканера ODB! Загорелся индикатор проверки двигателя? Запусти диагностику OBD2 на своем смартфоне, чтобы выяснить причину включения значка чека - и не нужно ехать к механику на диагностику! Подключай устройство для автодиагностики (   Читать дальше...   )Тип издания: PlusРелиз состоялся: 29.09.2025Разработчик: Outils OBD FacileПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED11F43EAC7F68053E0DE9FB7D8EF51654E30150
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849890   (1053876) от 25.01.2026
-
-Auto Reply: автоответчик v6.5 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053876.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшой и удобный автоответчик, поддерживающий работу с Facebook, WhatsApp и Skypе. Позволяет создавать шаблоны ответных сообщений и  отвечать  в групповые чаты. Поддерживает фильтрацию по контактам. Включите автоматический ответ одним касанием, нет необходимости устанавливать сложные требования. Автоответчик отправляет автоматический ответ всем, кто обращается к (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 24.01.2026Разработчик: TechInnate SolutionsПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCD20C955626114A3922640A6ADA8B08ED92FC6C
 ```
 
 https://mybot314.ru/tekegram_catalog/

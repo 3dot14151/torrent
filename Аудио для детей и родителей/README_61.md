@@ -1,3 +1,32 @@
+###  Публикация: 258652   (336511) от 16.11.2010
+
+А. Усачев - Тридцать три кота (2006) [MP3|256 kbps]<Музыка и песенки детей>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336511.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Кошки – мышки (А.Пинеген, В.Приходько) – 01:56
+2. Стулья и кошка (А.Усачев, А.Пинеген – А.Усачев) – 00:50
+3. Классный кот (А.Пинеген – слова народные) – 2:24
+4. Киса Василиса (А.Пинеген – слова народные) – 01:26(   Читать дальше...   )Жанр: Музыка и песенки детейПродолжительность: 01:08:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E95E7FCE3A91933202BA6636F311D23DC14B0D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1074670   (336138) от 20.11.2016
 
 Александра Анненская | Брат и сестра. Младший брат (2014) [MP3]
@@ -6,7 +35,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336138.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335819.jpg" />
 </div>
 
 
@@ -59,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335088.jpg" />
 </div>
 
 
@@ -85,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334909.jpg" />
 </div>
 
 
@@ -114,7 +143,7 @@ VA - Країна дитинства (2007) [MP3|128 kbps]<Песенки для
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334462.jpg" />
 </div>
 
 
@@ -143,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334008.jpg" />
 </div>
 
 
@@ -169,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334001.jpg" />
 </div>
 
 
@@ -195,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333938.jpg" />
 </div>
 
 
@@ -221,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333880.jpg" />
 </div>
 
 
@@ -249,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333823.jpg" />
 </div>
 
 
@@ -278,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333584.jpg" />
 </div>
 
 
@@ -304,7 +333,7 @@ Baby Einstein - Baby Santa Holiday Classics (2000) [MP3|192 kbps]<Классич
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333562.jpg" />
 </div>
 
 
@@ -333,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333560.jpg" />
 </div>
 
 
@@ -361,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332550.jpg" />
 </div>
 
 
@@ -387,7 +416,7 @@ VA - Поп-рок-хиты в стиле колыбельных для малы
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332075.jpg" />
 </div>
 
 
@@ -416,7 +445,7 @@ VA - Livin'G presents: Happy Box, Happy Kids, Happy Time. Music Box, Baby Box, v
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332067.jpg" />
 </div>
 
 
@@ -445,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329895.jpg" />
 </div>
 
 
@@ -475,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329373.jpg" />
 </div>
 
 
@@ -503,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328862.jpg" />
 </div>
 
 
@@ -532,7 +561,7 @@ VA - Детские песни. 200 песен (2011) [MP3|128-256 kbps]<Дет�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328474.jpg" />
 </div>
 
 
@@ -561,7 +590,7 @@ VA - Детская площадка №1 (2011) [MP3|320 kbps]<Детские �
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327629.jpg" />
 </div>
 
 
@@ -590,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327389.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327311.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327046.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326858.jpg" />
 </div>
 
 
@@ -683,34 +712,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD024C741C8A6AA92277766947CF6665D6C7534C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 415218   (326794) от 25.11.2011
-
-Михаил Булгаков | Собачье сердце (2007) [MP3, Александр Андриенко]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326794.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Школьная библиотека.
-Михаил Афанасьевич Булгаков (1891–1940) писатель, драматург, классик русской литературы ХХ столетия.
-«Школьная библиотека» продолжает знакомить своих слушателей с творчеством замечательного русского писателя Михаила Афанасьевича Булгакова. Предлагаем вашему вниманию его мудро-печальную повесть – «Собачье сердце». Вы услышите удивительный (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: АудиокнигаПродолжительность: 03:45:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:164CA8D82770DC6511587189728A27B4205E1573
 ```
 
 https://mybot314.ru/tekegram_catalog/

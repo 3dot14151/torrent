@@ -1,3 +1,159 @@
+###  Публикация: 1515786   (168419) от 08.12.2021
+
+Преступная жизнь: 1984-2020 / Life of Crime 1984-2020 (2021) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168419.jpg" />
+</div>
+
+
+###  Подробнее
+
+Путешествие по улицам и тюрьмам Ньюарка. Фильм рисует пронзительную картину того, как наркотики влияют на жизнь американцев. Борьба с ними — это настоящая война, где счет идет на миллионы. Проект показывает борьбу самых разных людей за выживание, их боль, любовь, мужество и искупление.Производство: США / Downtown Community Television CenterЖанр: Документальный, криминалРежиссер: Джон АлпертПеревод: Многоголосый профессиональный (Lucky Production)Язык озвучки: Русский, английскийСубтитры: РусскиеПродолжительность: 02:00:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80C4DF88B7A814424E1F216C6B37007C7ABA8903
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515878   (168367) от 08.12.2021
+
+Норвежские фьорды. Мир чудес / The Norwegian Fjords. Life in the Twilights (2018) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Норвежские фьорды - один из самых драматичных пейзажей Европы. В их холодных темных водах обитает удивительно богатый и красочный подводный мир: огромные рифы из холодноводных кораллов, морские загоны с перистыми руками и мигающими огнями, странные морские слизни, светящиеся в темноте. Зимой миллиарды сельди собираются на фьордах, касатки и горбатые киты лакомятся (   Читать дальше...   )Производство: Германия / NDR Naturfilm, Doclights GmbHЖанр: Документальный, Природа, Фауна, ФлораРежиссер: Ян ХафтПеревод: Одноголосый профессиональный (телеканал "Живая планета")Субтитры: ОтсутствуютПродолжительность: 00:51:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:260DA3C1CE9D79C787F9B3BAB0932EAF42BDAB21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 209269   (168343) от 12.12.2020
+
+Дворы нашего детства. 2 серии. (1992) TVRip
+
+>>Документалистика и Телепередачи
+>>Кинолетопись Страны Советской
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это было детство – веселое, трудное, с драками и первой любовью. Давно ушедший аромат тех лет – голубятни, коммунальные ссоры и общие праздники, блатные песни и катание на катке под песни Марка Бернеса. О московских двориках конца 1940-х – начала 1950-х годов рассказывают: Валентин Гафт, Александр Збруев, Александр Козлов, Лев Дуров, Наталья Молчанова.Жанр: ДокументальныйРежиссер: Алексей ГабриловичПродолжительность: 00:51:04 + 00:52:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:707DF710B53EEF1EFF68FA570EABADFD9B84329A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596873   (168217) от 12.12.2022
+
+Жизнь в эпоху замков / La vie au temps des chateaux forts (2018) DVB
+
+>>Документалистика и Телепередачи
+>>История
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Средневековье - это Золотой век замков. Вам предлагается реконструкция-погружение в Средние века через историю вымышленного персонажа Гийома де Кастельнака (Guillaume de Castelnac), который строит замок, но сможет ли тот отразить все атаки его заклятого врага Веру (Verou)? Фильм показывает нам жизнь строителей, крестьян, ремесленникой и воинов того времени.Производство: Франция, TV5MONDE EuropeЖанр: документально-постановочный, историяРежиссер: Филипп ВержоПеревод: двуголосый профессиональный (SDI Media)Субтитры: русские (перевод Н.Коттель, ECLAIR), английские, французские, немецкие, нидерландские, румынские, испанские - (IDX+SUB); английские, французские - (SRT) - телетекстПродолжительность: 01:31:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E02786BF4291AB48656A20799DC00DA648749F7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672720   (168115) от 29.10.2023
+
+Чудо техники с Сергеем Малозёмовым (29.10.2023) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168115.jpg" />
+</div>
+
+
+###  Подробнее
+
+Правда ли на планете массово умирают опылители и это грозит гибелью нам всем? И какие необычные улья создают инженеры? Чудо-товар: как и зачем украшают брови и губы при помощи перманентной краски, не опасно ли это для кожи, а также перманентный макияж — чудо или не чудо?Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2B9B9053AC277A3CF00143CC02E07969605162B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345041   (168104) от 13.12.2019
+
+Планета Кино / Terres de Cinema (2017) HDTVRip [H.264/720p-LQ] (серии 1-5 из 5)
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Захватывающее путешествие где-то между мифом и реальностью. Сюжеты посвящены странам, где снимали совершенно разные, но любимые всеми фильмы.Производство: WHAT'S UP films, ARTE G.E.I.E., Centre National du Cinema et de L’Image Animee, ZEDЖанр: Документальный, ИскусствоРежиссер: Alice Doyard, Vincent Trisolini, Jean Froment, Fanny TondreПеревод: Двуголосый профессиональный (Видеофильм ТВ)Субтитры: отсутствуютПродолжительность: 5 x ~ 00:26:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAE5388E07D3496EF2D18EB7B1B4EC6ECE9BE03F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1672718   (168097) от 29.10.2023
 
 Первая передача на НТВ. Автомобильная передача (29.10.2023) WEBRip [H.264/720p]
@@ -6,7 +162,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168097.jpg" />
 </div>
 
 
@@ -34,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168004.jpg" />
 </div>
 
 
@@ -60,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167989.jpg" />
 </div>
 
 
@@ -89,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167984.jpg" />
 </div>
 
 
@@ -115,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167964.jpg" />
 </div>
 
 
@@ -141,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167924.jpg" />
 </div>
 
 
@@ -168,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167905.jpg" />
 </div>
 
 
@@ -194,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167859.jpg" />
 </div>
 
 
@@ -221,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167839.jpg" />
 </div>
 
 
@@ -247,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167836.jpg" />
 </div>
 
 
@@ -273,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167830.jpg" />
 </div>
 
 
@@ -299,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167818.jpg" />
 </div>
 
 
@@ -325,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167803.jpg" />
 </div>
 
 
@@ -351,7 +507,7 @@ RTG. Река Нева (2013) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167778.jpg" />
 </div>
 
 
@@ -377,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167719.jpg" />
 </div>
 
 
@@ -403,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167712.jpg" />
 </div>
 
 
@@ -429,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167705.jpg" />
 </div>
 
 
@@ -455,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167689.jpg" />
 </div>
 
 
@@ -481,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167688.jpg" />
 </div>
 
 
@@ -507,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167631.jpg" />
 </div>
 
 
@@ -518,167 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4764D2265EBAB9B4EE144384F8BDB2CB641CB5F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515683   (167535) от 09.12.2021
-
-Жизнь после Навигатора / Life After the Navigator (2020) WEBRip [H.264/1080p] [EN]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167535.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм Лизы Даунс о фильме "Полет Навигатора" и жизни ребенка-звезды Джои Крамера, главного героя фильма после его прорывной роли.
-
-Фильм в течение 90 минут исследует детство Джоуи, жизнь в неполной семье с матерью-хиппи, его перспективные начинания в Голливуде и быстрый упадок. Фильм также наполнен личными воспоминаниями и переживаниями Джоуи (   Читать дальше...   )Производство: Великобритания / Life after movies, Spare Change Films, Strict MachineЖанр: Документальный, АвтобиографияПеревод: ОтсутствуетЯзык озвучки: английскийСубтитры: Английские (отдельным файлом)Продолжительность: 01:30:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FBE041EF039EDC5066C42E20717C4CC7AF4B954
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431320   (167523) от 13.12.2020
-
-Битва экстрасенсов (12.12.2020) WEB-DL [H.264/720p-LQ] (сезон 21, выпуск 12)
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167523.jpg" />
-</div>
-
-
-###  Подробнее
-
-На ТНТ стартует 21-й сезон «Битвы экстрасенсов» – проекта, который навсегда изменил представление людей об экстрасенсорике и человеческих возможностях. Из-за пандемии в этом году кастинг в 21-й сезон «Битвы экстрасенсов» впервые был полностью дистанционный. Его можно было пройти по видеосвязи – не выходя из дома, из любой точки мира, из любой деревни или села, везде, (   Читать дальше...   )Производство: ТНТЖанр: ТВ-шоуПродолжительность: 01:07:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6120341F37E7AF57355055BD3DCD7BCC7F199D36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345275   (167473) от 14.12.2019
-
-Научное расследование Сергея Малозёмова. Еда живая и мертвая (14.12.2019) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167473.jpg" />
-</div>
-
-
-###  Подробнее
-
-Религия и еда: какие пищевые ограничения есть в разных странах мира и как православный пост влияет на здоровье человека? В рубрике «За что такие деньги?» — цены на вареную колбасу. Почему они так отличаются и действительно ли дорогая колбаса вкуснее и полезнее дешевой? Эклеры: чем российский десерт отличается от французского оригинала и можно ли его сделать менее (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0AD45A3AD7313C3E77784AA0273230B55CF6817
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419265   (167452) от 29.10.2023
-
-Энциклопедия загадок (2018-2023) WEB-DLRip [H.264] (серии 1-55 из ?) (обновляемая)
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167452.jpg" />
-</div>
-
-
-###  Подробнее
-
-Земля. Третья планета от Солнца. Единственная в солнечной системе, на которой есть жизнь. Казалось бы, за столько лет истории человечества, когда мы уже обошли всю планету, переплыли, облетели не один раз, трудно столкнуться с чем-то, что было бы нам неизвестно. Но это не так...
-Каждый год преподносит любителям загадок и приключений всё новые сюрпризы. Открываются (   Читать дальше...   )Производство: Россия / ГОЛД МЕДИУМЖанр: ДокументальныйРежиссер: Алексей Артемьев, Алексей Пучинин, Алексей Горовацкий, Александр КолесниковУчастники: Алексей ГоровацкийЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~00:26:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27604AB8B4FF61F32407EB798F2E42D7F0BC0B6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345274   (167445) от 14.12.2019
-
-Главная дорога (14.12.2019) SATRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зима пора суровая. И для автомобилиста в том числе. Сегодня в программе мы сравним, как же правильно убирать обледенение на стёклах . Что лучше дедовским методом скребком стирать лёд или же пробовать, какие-то специальные средства с магазина. Что же лучше работает наш специальный тест в программе . Также еще рассмотрим вопрос, если случаются ДТП почему происходит (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:31:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E62B4C02F03D4C03FBAA6D06A6483AB78979374
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1826524   (167344) от 19.10.2025
-
-Первая передача на НТВ. Автомобильная передача (19.10.2025) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167344.jpg" />
-</div>
-
-
-###  Подробнее
-
-11-летняя девочка выскочила на дорогу и попала под грузовик. В результате ребенок потерял часть ноги. Мог ли водитель избежать наезда и есть ли нарушение с его стороны?
- Инспектор отправил трезвого водителя к наркологу. Чем в этом случае грозит отказ от медицинского освидетельствования?
- «Луноход», «кирпич», «скотовоз» — как только не нарекала народная фантазия народный (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:23:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7035B4A38B4762DB5F1F03C33A04CAC930F2E61A
 ```
 
 https://mybot314.ru/tekegram_catalog/

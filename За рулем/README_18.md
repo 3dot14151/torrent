@@ -1,3 +1,31 @@
+###  Публикация: 1310010   (548727) от 22.06.2019
+
+Главная дорога (22.06.2019) SATRip
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548727.jpg" />
+</div>
+
+
+###  Подробнее
+
+В автомобиле комфортно не только нашему организму, но и МИКРОорганизмам! Даже в чистом с виду салоне вашей машины больше микробов, чем на ободке унитаза!
+Чем живут эти незаметные пассажиры и как можно с ними бороться?
+Ведущие программы Андрей Федорцов и Денис Юченков отмыли салоны на обычной мойке, в дорогом детейлинг-центре и даже отправили машину на озонирование (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:29:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:873D196B109AE8C89D71F894146B98CD4A3D9244
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1310225   (547779) от 23.06.2019
 
 Первая передача на НТВ. Автомобильная передача (23.06.2018) SATRip
@@ -6,7 +34,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547779.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ Discovery: Братья Дизель / Diesel Brothers (2016) HDTV [H.264/1080i-
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547239.jpg" />
 </div>
 
 
@@ -60,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545799.jpg" />
 </div>
 
 
@@ -86,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545643.jpg" />
 </div>
 
 
@@ -112,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544612.jpg" />
 </div>
 
 
@@ -138,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541711.jpg" />
 </div>
 
 
@@ -167,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539963.jpg" />
 </div>
 
 
@@ -195,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535829.jpg" />
 </div>
 
 
@@ -221,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535706.jpg" />
 </div>
 
 
@@ -248,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534553.jpg" />
 </div>
 
 
@@ -274,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532348.jpg" />
 </div>
 
 
@@ -300,7 +328,7 @@ Discovery: Полный форсаж / Fat N' Furious: Rolling Thunder (2014) HD
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524673.jpg" />
 </div>
 
 
@@ -326,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524423.jpg" />
 </div>
 
 
@@ -352,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524412.jpg" />
 </div>
 
 
@@ -381,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517791.jpg" />
 </div>
 
 
@@ -407,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517704.jpg" />
 </div>
 
 
@@ -436,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515210.jpg" />
 </div>
 
 
@@ -462,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514821.jpg" />
 </div>
 
 
@@ -488,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509277.jpg" />
 </div>
 
 
@@ -514,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508160.jpg" />
 </div>
 
 
@@ -540,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508074.jpg" />
 </div>
 
 
@@ -566,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502703.jpg" />
 </div>
 
 
@@ -592,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502329.jpg" />
 </div>
 
 
@@ -618,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501332.jpg" />
 </div>
 
 
@@ -644,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494911.jpg" />
 </div>
 
 
@@ -655,32 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02C894E958E867A2193EFE7626661AF96E889098
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053938   (494331) от 19.09.2016
-
-Субару Импреза / Subaru Impreza (2000) DVDRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494331.jpg" />
-</div>
-
-
-###  Подробнее
-
-Супербыстрая, супермощная, притягивающая взгляд Субару Импреза! Этот спортивный автомобиль стал культовым во многом благодаря Колину МакРею и его победе на чемпионате мира по ралли в 1995 году. На этом DVD диске собраны уникальные материалы о легендарном автомобиле Субару Импреза.Телекомпания: СШАЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:61:00 + 00:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4E584E4C826EFE8622FAEE387D6507D8882DF19
 ```
 
 https://mybot314.ru/tekegram_catalog/

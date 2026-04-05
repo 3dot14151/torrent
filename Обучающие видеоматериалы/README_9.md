@@ -1,3 +1,164 @@
+###  Публикация: 1604441   (1045343) от 13.01.2023
+
+Иван Викторович | Python для начинающих (2022) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс для новичков в программировании, который даст хороший старт для реализации ваших планов в IT-сфере. Вы изучите основы Python, сделаете своего Телеграм-бота и напишите веб-приложение, используя фреймворк Django.Жанр: ПрограммированиеЯзык озвучки: РусскийПродолжительность: 33:21:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EB9818F1E74A6B202A14ACE282F232D91A9756F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604676   (1045247) от 14.01.2023
+
+Slurm (Слёрм), Леонид Крутовский | Python-разработчик (2022) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта программа переподготовки поможет вам с нуля получить необходимые для работы навыки и претендовать на вакансии младшего junior-разработчика на Python. Но на этом ваше обучение не закончится. Вам предстоит самостоятельно погрузиться в разные фреймворки и писать pet-проекты для портфолио. Так вы быстрее вырастете как специалист и найдете первую работу по новой специальности. (   Читать дальше...   )Производство: Slurm (Слёрм)Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 09:56:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:299364B61E0D048FE37A61A06F00BEEC452DC480
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604875   (1045149) от 15.01.2023
+
+Вита Данева, Анна Котова | Портфолио на Behance + Гайд Patternbank (2022) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045149.jpg" />
+</div>
+
+
+###  Подробнее
+
+Behance — популярная среди дизайнеров и иллюстраторов всего мира социальная медиа-платформа, для поиска заказчиков, рекламы и продвижения своих работ.
+
+Всегда есть сложности с первым шагом на новой площадке, какими бы не были спецами в той или иной сфере.
+Сделать продукт, оформить его, и показать - это три разных процесса.(   Читать дальше...   )Жанр: БизнесЯзык озвучки: РусскийПродолжительность: 05:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4F42AE8B601B2F3B14D3A33DD34C45E0108397A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422708   (1045122) от 15.01.2023
+
+Skillbox | Дизайн интерьеров с нуля до PRO (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045122.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы будете работать с чертежами, создавать концепции интерьера и научитесь использовать отделочные материалы. Освоите ArchiCad и 3ds Max, сможете выстраивать долгосрочные отношения с клиентами и получать интересные заказы.
+Вы научитесь проектировать интерьеры в программах ArchiCad и 3ds Max, будете создавать чертежи и визуализировать идеи клиентов — и сможете освоить (   Читать дальше...   )Жанр: ДизайнПродолжительность: 54:23:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A7264A2A7A912CAA01AE2AE9E42431018A81A76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604937   (1044904) от 17.01.2023
+
+Дмитрий Светлов | Как доминировать в отношениях и обществе (2022) WEB-DLRip [RU]
+
+>>Обучающие видеоматериалы
+>>Психология и саморазвитие (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как стать доминирующей особью – не только в отношениях, но и в социуме, и в обычной жизни!Жанр: Психология отношенийЯзык озвучки: РусскийПродолжительность: 03:35:50Реклама: В курсах есть рекламный логотип стороннего ресурса
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E78F5C22D1A19460313A2AB743A9F420F786CC48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426532   (1044897) от 17.01.2023
+
+Нетология | Дизайн для социальных сетей (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044897.jpg" />
+</div>
+
+
+###  Подробнее
+
+В соцсетях бывает такая проблема — содержание контента вроде хорошее, но вот визуализация «хромает»: в аккаунте нет единообразия, не считывается фирменный стиль, каждый пост живёт сам по себе. От этого у пользователя складывается неоднозначное впечатление о продукте. А нанять дизайнера не всегда получается.
+Мы создали этот курс, чтобы научить вас самостоятельно оформлять (   Читать дальше...   )Жанр: ДизайнПродолжительность: 16:55:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CAABF4E75B829949AF1B64EB3CC65265E4FC0B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1605465   (1044790) от 18.01.2023
 
 Вольница, Андрей Шкиль | Blndr 2.0 Lite — Новая Надежда (2022) WEB-DL [AD] [RU]
@@ -6,7 +167,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044790.jpg" />
 </div>
 
 
@@ -35,7 +196,7 @@ Udemy, Bogdan Stashchuk | Git - Курс по Git и GitHub (2023) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044777.jpg" />
 </div>
 
 
@@ -61,7 +222,7 @@ Timesavervfx, Александр Ежов | Живые фото - Анимаци
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044667.jpg" />
 </div>
 
 
@@ -90,7 +251,7 @@ Archicad Master, Полина Журавлева | Марафон по визу�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044474.jpg" />
 </div>
 
 
@@ -119,7 +280,7 @@ Saharovigor, Анна Маратканова | Горный пейзаж с до
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044409.jpg" />
 </div>
 
 
@@ -148,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044370.jpg" />
 </div>
 
 
@@ -176,7 +337,7 @@ CodeBreakers, Анна Радзиевская и др. | Создавайте в
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044280.jpg" />
 </div>
 
 
@@ -205,7 +366,7 @@ Breezzly, Анастасия Свеженцева | Веб-дизайн и ди�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044276.jpg" />
 </div>
 
 
@@ -233,7 +394,7 @@ CGBoost Academy, Martin Klekner | Пусковая площадка програ
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044272.jpg" />
 </div>
 
 
@@ -260,7 +421,7 @@ The Gnomon Workshop, Daniel Zeni | Создание модели в Zbrush то�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044266.jpg" />
 </div>
 
 
@@ -289,7 +450,7 @@ Udemy, Creativity Unleashed | Blender Character Creation Megacourse: Beginner to
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044181.jpg" />
 </div>
 
 
@@ -316,7 +477,7 @@ SideFX, Nikola Damjanov | TheComplete A-Z Terrain Handbook:  ND edition (2022) W
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044111.jpg" />
 </div>
 
 
@@ -342,7 +503,7 @@ Slurm (Слёрм), Виктор Попов, Ирина Блажина | Без�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044108.jpg" />
 </div>
 
 
@@ -368,7 +529,7 @@ CG Boost, Kevin Ramirez | Master Grease Pencil in Blender (2022) PCRec [AD] [EN 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044105.jpg" />
 </div>
 
 
@@ -396,7 +557,7 @@ FlippedNormals | Unreal Engine 5 - How to Create Professional Cinematics (2022) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044099.jpg" />
 </div>
 
 
@@ -422,7 +583,7 @@ Stepik, Evgen Marfel | Веб-дизайн в Figma 2023 (2022) WEB-DL [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044095.jpg" />
 </div>
 
 
@@ -451,7 +612,7 @@ Udemy, Vince Petrelli | Unreal Engine 5: One Course Solution For Material (2022)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043989.jpg" />
 </div>
 
 
@@ -477,7 +638,7 @@ Thinknetica Pro, Кирилл Храпков | Продвинутый Git (2023)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043985.jpg" />
 </div>
 
 
@@ -506,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043881.jpg" />
 </div>
 
 
@@ -534,7 +695,7 @@ Skill Cup, Максим Ильяхов | Сильный текст в соцсе
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043878.jpg" />
 </div>
 
 
@@ -548,173 +709,6 @@ Skill Cup, Максим Ильяхов | Сильный текст в соцсе
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:813DCCB74E4138FC326B6C04DFCA1D6ED5E91719
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607602   (1043875) от 27.01.2023
-
-Udemy, Rob Baker | Pro Unreal Engine Game Coding (2022) PCRec [EN, RU / EN Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Привет, и добро пожаловать в курс Профессиональное Игровое Программирование для Unreal Engine. Или Black Book (черная книга). Но почему Black Book? Что ж, если вы хотите получше разобраться - просто посмотрите короткий вступительный видеоролик.
-Если же вы любите читать, то лет 25 назад, когда я только начинал заниматься игровой индустрией, вышла такая вот черная (   Читать дальше...   )Производство: UdemyЖанр: Разработка игр, Unreal EngineЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 27:33:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEADBF118307CA3BD8EC6B4D612B098D9FCB466C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607697   (1043873) от 27.01.2023
-
-Stepik, Evgen Marfel | Создание UI KIT в FIGMA. Делаем и продаем (2022) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это не просто курс по дизайну, это курс по созданию современного дизайн-продукта. Далеко не каждый практикующий дизайнер может похвастаться умением создавать такие сложные системы, как UI KIT и профессиональной работой с компонентами.
-
-Проходя уроки курса мы постепенно, шаг за шагом будем создавать свой продукт. От созданий базовых стилей текста и цвета, подбора (   Читать дальше...   )Производство: StepikЖанр: Дизайн, UI-ДизайнЯзык озвучки: РусскийПродолжительность: 08:05:56Реклама: Сторонние вставки и наложения на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33A4429F83E12F455F219A0348BF5C89941BD224
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607727   (1043869) от 27.01.2023
-
-Владилен Минин | Docker Практикум (2022) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043869.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как правильно использовать Docker для разработки?
-Не важно кто вы: frontend или backend разработчик, но когда вы закончили локальную разработку приложения и хотите показать его людям, возникает вопрос: "А как правильно это сделать?"
-Разумеется это могут сделать за вас, однако чем шире вы понимаете как технологии связаны между собой, чем подробней вы понимаете (   Читать дальше...   )Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 04:42:48Реклама: Наложения на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E1388EABAEFC527CFB01207B8C3F6D501957079
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607775   (1043778) от 28.01.2023
-
-Курсы-по-1С.РФ, Евгений Гилев | Подготовка к Аттестации 1С:Специалист-Консультант по производству и ремонтам в 1С:ERP 2.5 (2022) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043778.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучите центральную функцию флагманского продукта 1С и получите весомый сертификат, который реально поднимет Ваш профессиональный статус.
-В курсе рассмотрены следующие темы:НСИ и ввод остатков.
-Нормативная система.
-Планирование производства.(   Читать дальше...   )Производство: Курсы-по-1С.РФЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 17:49:11Реклама: Наложения на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:518E2729359969615EC53EAD52362FFE644ADF0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608045   (1043679) от 29.01.2023
-
-Udemy, Dzianis Matveyenka | Shell and Bash Scripting Beginner's Guide (2022) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043679.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для успешного прохождения этого курса необходимо всего лишь:
-- базовое понимание и опыт работы с Unix operating systems
-- основы алгоритмизации и программирования
-Другими словами говоря, этот курс рассчитан на людей практически с нуля.(   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 05:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CA194FADFD0669B9B9B352AD09F503AB88847BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566823   (1043576) от 30.01.2023
-
-Udemy, Dzianis Matveyenka | Maven (2022) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043576.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный курс является продолжением курса "HTTP. Servlets" Курс Apache Maven содержит информацию про инструмент автоматизированной сборки проектов, который полностью отвечает за жизненный цикл Java приложений. Зайдем в исходный код Apache Maven, чтобы понять основное ядро его, которым на самом деле являются плагины. Более того, мы сами попробуем написать (   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 04:31:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EBF0360E04373C4607C4E66FA0996D98D1F0EDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

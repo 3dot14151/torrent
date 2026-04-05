@@ -1,3 +1,56 @@
+###  Публикация: 616109   (578636) от 23.07.2015
+
+Побег из Шоушенка / The Shawshank Redemption (1994) [H.264] BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578636.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шоушенк — название тюрьмы. И если тебе нет еще 30-ти, а ты получаешь пожизненное, то приготовься к худшему: для тебя выхода из Шоушенка не будет!
+Актриса Рита Хэйворт — любимица всей Америки. Энди Дюфрейну она тоже очень нравилась. Рита никогда не слышала о существовании Энди, однако жизнь Дюфрейну, бывшему вице-президенту крупного банка, осужденному за убийство (   Читать дальше...   )Жанр: Драма, КриминалРежиссер: Фрэнк Дарабонт / Frank DarabontАктеры: Тим Роббинс, Морган Фриман, Боб Гантон, Уильям Сэдлер, Клэнси Браун, Джил Беллоуз, Марк Ролстон, Джеймс Уайтмор, Джеффри ДеМун, Ларри Бранденбург, Нил Гвинтоли, Брайан Либби, Дэвид Прувал, Джозеф Раньо, Джуд Чикколелла, Пол МакКрейн, Рени Блейн, Скотт Манн, Джон Хортон, Гордон Грин, Альфонсо Фриман.Перевод: 4х Многоголосый, 2х Двухголосый, 6х Авторский одноголосыйЯзык субтитров: РусскийПродолжительность: 02:22:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0841055813563F602C84C21B75C18EF6142E4B40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917782   (578628) от 23.07.2015
+
+Флэш Гордон / Flash Gordon (1980) BDRip
+
+>>След.
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578628.jpg" />
+</div>
+
+
+###  Подробнее
+
+Странные энергетические волны сместили Луну с орбиты, вызвав тотальное солнечное затмение на Земле. Жизнь человечества в опасности. Доктор Зарков уговаривает звезду американского футбола Флэша Гордона и прелестную Дэйл совершить вместе с ним отчаянный прыжок в гиперпространство — на планету Монго, откуда исходят разрушительные энергетические волны. Планетой управляет (   Читать дальше...   )Производство: США, ВеликобританияЖанр: Фантастика, фэнтези, боевик, приключенияРежиссер: Майк ХоджесАктеры: Тимоти Далтон, Орнелла Мути, Макс фон Сюдов, Сэм Дж. Джонс, Мелоди Андерсон, Тополь, Брайан Блессид, Питер Уингард, Марианджела Мелато, Джон Осборн, Ричард О’Брайэн, Джон Хэллам, Филип Стоун, Сюзанн Даниэль, Уильям Хуткинс, Бобби Браун, Тед Кэрролл, Эдриэнн Кроненберг, Стэнли Лебор, Джон Мортон, Бернелл Таккер, Робби Колтрейн, Питер Дункан, Тесса Хьюит, Винишия Спайсер, (   Читать дальше...   )Перевод: Профессиональный многоголосыйПродолжительность: 01:51:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C66A14858918AAA1895F92324418A2650D17D0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1552304   (577494) от 30.05.2022
 
 Дочь дьявола / La fille du diable (Devil’s Daughter) (1946) BDRip [AVO]
@@ -6,7 +59,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577494.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577002.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576903.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576781.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576681.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576678.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576201.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576141.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576025.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575561.jpg" />
 </div>
 
 
@@ -268,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574732.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574724.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574590.jpg" />
 </div>
 
 
@@ -347,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_574204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_574204.jpg" />
 </div>
 
 
@@ -373,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573824.jpg" />
 </div>
 
 
@@ -399,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573807.jpg" />
 </div>
 
 
@@ -425,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573648.jpg" />
 </div>
 
 
@@ -451,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573497.jpg" />
 </div>
 
 
@@ -477,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573444.jpg" />
 </div>
 
 
@@ -503,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573357.jpg" />
 </div>
 
 
@@ -529,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573055.jpg" />
 </div>
 
 
@@ -556,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572588.jpg" />
 </div>
 
 
@@ -582,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572492.jpg" />
 </div>
 
 
@@ -608,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572347.jpg" />
 </div>
 
 
@@ -619,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4E230CBDC457AF602198E930844118848F0F2E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265890   (572147) от 21.05.2019
-
-За шкуру полицейского / Pour la peau d'un flic (1981) BDRip [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572147.jpg" />
-</div>
-
-
-###  Подробнее
-
-Частный детектив Шукас и его очаровательная секретарша Шарлотта расследуют исчезновение слепой девушки. Поиски выводят их на банду наркоторговцев, тесно связанную с коррумпированными полицейскимиПроизводство: Франция / Adel ProductionsЖанр: Боевик, Триллер, Криминал, МелодрамаРежиссер: Ален ДелонАктеры: Ален Делон, Анн Парийо, Мишель Оклер, Даниэль Секкальди, Жан-Пьер Даррас, Ксавье Депра, Жак Риспаль, Жерар Эрольд, Пьер Бело, Анник Алан, Паскаль Робертс, Жан Барни, Этьен Шико, Уилли Холт, Мишель Беррёр, Филипп Кастелли, Мари МарчакПеревод: Многоголосый Эй Би Видео по заказу Первого канала
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95A0A08894672B040C0FDE6EFE0300958568600A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 12640   (572014) от 28.07.2012
-
-Гений дзюдо / Judo Saga / (1965) DVDRip
-
->>След.
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перевод: Советский дубляж на к/с им. М. Горького.Формат: XviDПродолжительность: 02:30:40
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

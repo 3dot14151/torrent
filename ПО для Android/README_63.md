@@ -1,3 +1,110 @@
+###  Публикация: 956419   (330036) от 14.11.2015
+
+KMPlayer Pro 1.1.3 [Ru]
+
+>>След.
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330036.jpg" />
+</div>
+
+
+###  Подробнее
+
+Долгожданный мобильный KMPlayer наконец вышел!
+Вышел в 230 странах и переведен на 36 разных языков.
+KMPlayer не требует отдельного кодировщика. Все медиафайлы можно увидеть в простом интерфейсе, с необходимым функционалом, таким как изменение названия и управление контентом.Тип издания: ПираткаРелиз состоялся: 12.10.2015Разработчик: PANDORA.TVПоддерживаемая ОС: Android 2.3+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:861252A268139E5486BCB51C35E2E8D2B7BB7B06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580771   (329681) от 02.10.2022
+
+GreenNet: Hotspot VPN Proxy v1.5.45 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329681.jpg" />
+</div>
+
+
+###  Подробнее
+
+GreenNet VPN - это бесплатный и неограниченный прокси VPN (виртуальная частная сеть) для устройств Android. GreenNet VPN маскирует ваш IP-адрес, шифрует ваш интернет-трафик, превращает общедоступный Wi-Fi в частную сеть и помогает разблокировать сайты и приложения на вашем телефоне Android, чтобы вы могли безопасно и анонимно получать доступ к любому ограниченному (   Читать дальше...   )Тип издания: VIPРазработчик: AnonymithПоддерживаемая ОС: Android 5.0 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB4D12A0B98AFEEE360B79D399337B4BD6939775
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580684   (329676) от 02.10.2022
+
+Unique VPN | Fast VPN Proxy 1.3.33 b43 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329676.jpg" />
+</div>
+
+
+###  Подробнее
+
+Unique VPN - это бесплатный защищенный прокси-сервер VPN (виртуальная частная сеть) для устройств Android. Уникальный VPN маскирует ваш IP-адрес, шифрует ваш интернет-трафик, превращает общедоступный Wi-Fi в частную сеть и помогает разблокировать сайты и приложения на вашем телефоне, чтобы вы могли безопасно и анонимно получить доступ к любому ограниченному контакту. (   Читать дальше...   )Тип издания: ModРелиз состоялся: 30 сент. 2022 г.Разработчик: AnonymithПоддерживаемая ОС: Android 5.0 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7525C88949C600517539279DF1FCE63855058343
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580812   (329632) от 02.10.2022
+
+XP VPN (Xtra Power) 3.0 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329632.jpg" />
+</div>
+
+
+###  Подробнее
+
+Xtra Power VPN - это сверхбыстрый и безопасный VPN-прокси-сервис для всех пользователей, как деловых, так и личных. Используя эту прокси-службу VPN, вы можете анонимно и безопасно просматривать веб-страницы без какой-либо настройки.
+Умный VPN, такой как XP VPN, является важным инструментом для повышения безопасности и сверхбыстрой скорости вашего интернет-соединения. (   Читать дальше...   )Тип издания: VIPРелиз состоялся: 21 сент. 2022 г.Разработчик: Premium Apps By UllashПоддерживаемая ОС: Android 5.0 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25475798F85AF11D383B801C5D36A5607782AC5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 956751   (329117) от 15.11.2015
 
 AirRadio Pro v5.0.0 [Ru/Multi] - Радиосканер переговоров между пилотами и наземными службами
@@ -6,7 +113,7 @@ AirRadio Pro v5.0.0 [Ru/Multi] - Радиосканер переговоров �
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329117.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ Solo Launcher 2.4.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329026.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ Kiwi VPN Proxy: Safer & Faster 42.30.09 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328800.jpg" />
 </div>
 
 
@@ -84,7 +191,7 @@ HAWA VPN Super VPN Proxy Maste 1.1.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328798.jpg" />
 </div>
 
 
@@ -111,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326952.jpg" />
 </div>
 
 
@@ -137,7 +244,7 @@ Tangle / Клубок v72.20.4.22 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324395.jpg" />
 </div>
 
 
@@ -163,7 +270,7 @@ Planimeter - GPS area measure v 4.5.4 [Ru/Multi] - инструмент для �
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323515.jpg" />
 </div>
 
 
@@ -189,7 +296,7 @@ Agenda 2018 Pro v5.16 [Ru/Multi] - Простой ежедневник
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322864.jpg" />
 </div>
 
 
@@ -218,7 +325,7 @@ Instant Heart Rate Pro 2.6 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322855.jpg" />
 </div>
 
 
@@ -244,7 +351,7 @@ Image Colorizer Pro v2.0.3 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321900.jpg" />
 </div>
 
 
@@ -270,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320430.jpg" />
 </div>
 
 
@@ -298,7 +405,7 @@ En32 2018.728.1914.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318235.jpg" />
 </div>
 
 
@@ -327,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317809.jpg" />
 </div>
 
 
@@ -353,7 +460,7 @@ MacroDroid - Device Automation PRO v4.9.2 [Ru/En] - Автоматизация �
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315599.jpg" />
 </div>
 
 
@@ -379,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315455.jpg" />
 </div>
 
 
@@ -408,7 +515,7 @@ Mandala ColoringBook v1.2 [Ru/Multi] - раскраска
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313500.jpg" />
 </div>
 
 
@@ -434,7 +541,7 @@ RocketENG v1.5.4 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313044.jpg" />
 </div>
 
 
@@ -460,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312893.jpg" />
 </div>
 
 
@@ -486,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311935.jpg" />
 </div>
 
 
@@ -513,7 +620,7 @@ SignalCheck Pro v4.63 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310606.jpg" />
 </div>
 
 
@@ -540,7 +647,7 @@ Speak And Translate v3.1.0.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310370.jpg" />
 </div>
 
 
@@ -566,7 +673,7 @@ Automatic Call Recorder v6.09.1 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310349.jpg" />
 </div>
 
 
@@ -577,119 +684,6 @@ utomatic Call Recorder — программа для записи входящи
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B719143594BD11B8E55AF71004CE4F66E5286E0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956381   (307024) от 28.11.2015
-
-Photo Collage Editor v2.16 Ad-Free [En] - Фото коллаж редактор
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307024.jpg" />
-</div>
-
-
-###  Подробнее
-
-* Фото коллаж редактор позволяет создавать удивительные коллажи, используя свои фотографии, забавные наклейки, фоны, текст красивые шрифты кадров.
-* Фото коллаж редактор позволяет объединить несколько фотографий и обмениваться ими одновременно.
-* Фото коллаж редактор пакеты простой дизайн с мощным редактором, чтобы дать вам все, что вы, возможно, хотят, чтобы Коллаж (   Читать дальше...   )Тип издания: Mod Ad FreeРелиз состоялся: 25.11.2015Разработчик: ZentertainПоддерживаемая ОС: Android 4.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:585FB173AFE53B570ADB4C74059A83FD9AD0C9B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077368   (306312) от 28.11.2016
-
-AnyBalance+ 1.1.220 [Ru] Full
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306312.jpg" />
-</div>
-
-
-###  Подробнее
-
-— Как оперативно узнавать и контролировать баланс карты/cчёта/телефона, зачисление/списание денег, остаток трафика/минут/смс и др. информацию из личных кабинетов?
-— Как постоянно не входить в разные личные кабинеты, не бродить по запутанным интерфейсам и экономить своё время?
-Используйте AnyBalance!
-Получайте информацию из 1500+ личных кабинетов в едином виде в одном (   Читать дальше...   )Тип издания: Пиратка/FullРелиз состоялся: 24 ноября 2016 г.Разработчик: KrawllyПоддерживаемая ОС: Android 4.0 +Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7393B55E22059F2123CE62D2BB6CB30F3E78193
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039059   (305714) от 10.11.2020
-
-Vinci v2.2 (74) [Ru/Multi] - Обработка фотографий при помощи нейросетей (обновляемая)
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305714.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обрабатывает фотографии при помощи нейросетей. Десятки вдохновляющих фильтров для мгновенной обработки фотографий:
-– Ретушируйте фотографии;
-– Применяйте арт-фильтры и сравнивайте разные художественные стили;
-– Развлекайтесь и добавляйте уникальные фотоэффекты;(   Читать дальше...   )Тип издания: ModРелиз состоялся: 12.10.2020Разработчик: VK.comПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDEB6148D0E7D77F2AAD3689BC43A51A1E3CA226
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095413   (305710) от 10.11.2020
-
-Camera Auto Timestamp v2.48 Pro [En/Ru] - добавление различных меток на фотографии (обновляемая)
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы когда-либо задавались вопросом, почему у Вашей встроенной камеры нет опции, чтобы поместить метку времени в Ваши фотографии? Удивление не больше! Это приложение автоматически напечатает метку времени на Ваших фотографиях, поскольку Вы берете их со своей встроенной камерой.
-Легко настройте метку времени и настройки местоположения на Вашем мобильном устройстве: (   Читать дальше...   )Тип издания: Пиратка (Разблокированы Pro функции)Релиз состоялся: 09.11.2020Разработчик: AscendAppsПоддерживаемая ОС: Android 4.1+Язык интерфейса: Английский и Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4FD5CB74849B410B8439B014227777282EE0A74
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,57 @@
+###  Публикация: 641889   (881391) от 10.04.2013
+
+Александр Вампилов | Дом окнами в поле [2011] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881391.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одноактная пьеса. Написана в 1963 г. Впервые опубликована в журнале «Театр» (1964). С этой пьесы начинался для читателей Вампилов-драматург.
+
+ Учитель Третьяков, возвращающийся в город после трех лет работы в деревне, приходит попрощаться к Лидии Васильевне Астафьевой. Постепенно выясняется, что герои испытывают взаимную симпатию, тщательно скрываемую друг от друга...Жанр: Одноактная пьеса
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:567EC187111C252E23360556B987A2F5CA641B31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 641941   (881121) от 10.04.2013
+
+Джеймс Оливер Кервуд | Бродяги севера [2008] [MP3, Вячеслав Герасимов]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подружиться с медведем совсем непросто, даже если он всего-навсего медвежонок. Но для щенка Микки не было другого пути. И вот два малыша-звереныша в дикой американской тайге стали верными друзьями. Теперь ни злобная волчица, ни ночные убийцы совы, ни свирепая воронья стая - никто не мог одолеть их. А когда пришли холода и медвежонок Неева забрался в берлогу, Микки (   Читать дальше...   )Жанр: романИздательство: Нигде не купишь
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D0391FD60E939957E29A9441999B258A89BFF08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1373470   (880330) от 06.04.2020
 
 Иосиф Прут | Незабываемая ночь (1980) [MP3]
@@ -6,7 +60,7 @@
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880330.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880140.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872738.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871878.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871765.jpg" />
 </div>
 
 
@@ -141,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871223.jpg" />
 </div>
 
 
@@ -169,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870314.jpg" />
 </div>
 
 
@@ -196,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870265.jpg" />
 </div>
 
 
@@ -222,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868237.jpg" />
 </div>
 
 
@@ -249,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867988.jpg" />
 </div>
 
 
@@ -275,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867103.jpg" />
 </div>
 
 
@@ -301,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866103.jpg" />
 </div>
 
 
@@ -327,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862958.jpg" />
 </div>
 
 
@@ -353,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862276.jpg" />
 </div>
 
 
@@ -379,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858359.jpg" />
 </div>
 
 
@@ -407,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857357.jpg" />
 </div>
 
 
@@ -433,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855483.jpg" />
 </div>
 
 
@@ -459,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855474.jpg" />
 </div>
 
 
@@ -485,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850243.jpg" />
 </div>
 
 
@@ -511,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_848185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_848185.jpg" />
 </div>
 
 
@@ -537,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847106.jpg" />
 </div>
 
 
@@ -564,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846672.jpg" />
 </div>
 
 
@@ -590,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846442.jpg" />
 </div>
 
 
@@ -616,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846169.jpg" />
 </div>
 
 
@@ -627,58 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F756ADB6ABD26A9047AB64E5B4B315312030345
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378836   (844730) от 26.04.2020
-
-Михаил Анчаров | Венский вальс (1976) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844730.jpg" />
-</div>
-
-
-###  Подробнее
-
-Война разлучила Катарину, дочь эмигранта из Испании, и Алексея в то время, когда их первое трепетное чувство только начинало зарождаться. Любовь помогала юноше жить в суровые годы...Жанр: Драма. РадиоспектакльВ ролях: Николай Александрович, Владимир Кенигсон, Татьяна Решетникова, Владимир Василенко, Светлана Мизери, Чеслав Сушкевич, Антонина Гунченко, Всеволод Ларионов, Михаил ЛобановПродолжительность: 00:49:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:244F6EFB3733B911E6A5B0187503D238F0D517C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111934   (843293) от 08.03.2017
-
-Евгений Шварц | Из дневников (2012) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843293.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аудиокнига Евгения Шварца (1896–1958) "Из дневников" - это собственные мемуары известного драматурга, изложенные в виде воспоминаний. Произведение стало своеобразной автобиографией Шварца, которая носит характер исповеди. В ней очень много собственных мыслей драматурга, о его каждодневной работе и о событиях которым он был свидетелям с 1900 года и до самой (   Читать дальше...   )Жанр: Мемуары, автобиографияПродолжительность: 03:25:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CD48EEF3E7D9FE6D67822092CE813F74980F7F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

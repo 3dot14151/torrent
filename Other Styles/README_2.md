@@ -1,3 +1,62 @@
+###  Публикация: 1619215   (1032497) от 18.03.2023
+
+VA - Enigma-Forest-Transit 13 (1999) [OGG Vorbis|480 Kbps] <Electronic, Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Indigo - Indigo Sunshine + As Above, So Below
+02. Dao Dezi - Hebrides
+03. Deep Forest - Madazulu
+04. Wes - Ken Mouka(   Читать дальше...   )Жанр: Electronic, Ambient, New AgeПродолжительность: 01:13:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DF19E3ECB09159F2569881BC0BDECC336ADC4BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619964   (1032492) от 18.03.2023
+
+Blackmore's Night - Shadow Of The Moon (2023) 25th Anniversary Edition [FLAC|Lossless|image + .cue] <Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все песни были смикшированы заново и зазвучали по-новому, а в некоторых местах аранжировки обрели совсем иной характер.
+На издании присутствуют два бонус-трека, записанные Ричи и Кэндис в прошлом году - это новые акустические версии "Shadow of The Moon" и "Spirit Of The Sea".01. Shadow of the Moon (25th Anniversary New Mix)
+02. The Clock Ticks On (25th Anniversary New Mix)
+03. Be Mine Tonight (25th Anniversary New Mix)
+04. Play Minstrel Play (25th Anniversary New Mix)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:13:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C979B485CF82F614EFC6E90A1FD22D9B6B9DBD52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447543   (1031654) от 14.02.2021
 
 VA - A Cup of Chocolat Piano Winter Music (2021) [FLAC|Lossless|WEB-DL|tracks] <New age>
@@ -6,7 +65,7 @@ VA - A Cup of Chocolat Piano Winter Music (2021) [FLAC|Lossless|WEB-DL|tracks] <
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031654.jpg" />
 </div>
 
 
@@ -35,7 +94,7 @@ Go_A - Шум (2021) [FLAC|Lossless|WEB-DL|tracks] <Folk-Rock>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031331.jpg" />
 </div>
 
 
@@ -61,7 +120,7 @@ VA - Spring Break 2023: Country Hits (2023) [MP3|320 Kbps] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031194.jpg" />
 </div>
 
 
@@ -90,7 +149,7 @@ Sina Vodjani - Священный Будда (1998) Правительство �
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031010.jpg" />
 </div>
 
 
@@ -119,7 +178,7 @@ The Harmony Group - Spanish Guitar Tribute to Abba (2007) Brisa Records, 2015 [F
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030910.jpg" />
 </div>
 
 
@@ -148,7 +207,7 @@ Bernd Steidl - Paganiniana (2001) [FLAC|Lossless|image + .cue] <Instrumental, Gu
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030601.jpg" />
 </div>
 
 
@@ -177,7 +236,7 @@ VA - Original Musette (2000) [FLAC|Lossless|image + .cue] <Instrumental, Accordi
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030598.jpg" />
 </div>
 
 
@@ -206,7 +265,7 @@ VA - Tango Planet – The Best Of Tango (1998) [FLAC|Lossless|image + .cue] <Tan
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030590.jpg" />
 </div>
 
 
@@ -235,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030589.jpg" />
 </div>
 
 
@@ -264,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030584.jpg" />
 </div>
 
 
@@ -293,7 +352,7 @@ VA - La collection Latina Tango (2007) Compilation, Digipak [APE|Lossless|image 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030581.jpg" />
 </div>
 
 
@@ -322,7 +381,7 @@ VA - Erotica (1977) [FLAC|Lossless] <Instrumental>
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030579.jpg" />
 </div>
 
 
@@ -351,7 +410,7 @@ VA - Cosmic Chill Lounge Vol.1-4 (2007-2010) [FLAC|Lossless|image + .cue] <Chill
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030578.jpg" />
 </div>
 
 
@@ -380,7 +439,7 @@ Harry Holland ‎– Superhits '85 Im Magic Accordion-Sound (1985) [FLAC|Lossles
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030576.jpg" />
 </div>
 
 
@@ -409,7 +468,7 @@ VA - Mystera IX (2002) [OGG Vorbis|480 Kbps] <Downtempo, Synth-pop, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030509.jpg" />
 </div>
 
 
@@ -438,7 +497,7 @@ VA - Mystera V (2000) [OGG Vorbis|480 Kbps] <Electronic, New Age, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030508.jpg" />
 </div>
 
 
@@ -467,7 +526,7 @@ VA - The Best Of Mystera (2001) 2 CD [OGG Vorbis|480 Kbps] <New Age, Synth-pop, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030497.jpg" />
 </div>
 
 
@@ -496,7 +555,7 @@ Markus Klepper - Akkordeon Classics (2000) [FLAC|Lossless|image + .cue] <Classic
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030410.jpg" />
 </div>
 
 
@@ -525,7 +584,7 @@ Liliana Barrios - Troileana (2007) [FLAC|Lossless|image + .cue] <Tango>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030401.jpg" />
 </div>
 
 
@@ -554,7 +613,7 @@ VA – Exotic Guitars From The Clovis Vaults - Including "World Wide Hits" (2010
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030379.jpg" />
 </div>
 
 
@@ -583,7 +642,7 @@ VA – Ball Room Dance Collection - Tango (2001) Compilation [FLAC|Lossless|imag
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030368.jpg" />
 </div>
 
 
@@ -612,7 +671,7 @@ The Royal Philharmonic Orchestra - Hits Of Elton John - The Ballads (1991) [FLAC
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030366.jpg" />
 </div>
 
 
@@ -641,7 +700,7 @@ Stefan Nicolai - 2 альбома (1993, 2006) [FLAC|Lossless|tracks] <Instrumen
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030362.jpg" />
 </div>
 
 
@@ -670,7 +729,7 @@ Norrie Paramor and His Orchestra - 2 альбома (1998) Compilation [FLAC|Los
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030361.jpg" />
 </div>
 
 
@@ -684,64 +743,6 @@ Norrie Paramor and His Orchestra - 2 альбома (1998) Compilation [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BF62CDB926F75D8BD70D111631983EE78741EA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 203755   (1030357) от 19.02.2021
-
-VA - The Best Of Instrumental Music (2001) 2CD [FLAC|Lossless|image + .cue] <Instrumental>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030357.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Paco De Lucia - Entre Dos Aguas		      (06:01)
-02. Paul Mauriat - L'Amour Est Bleu	 	      (02:34)
-03. David A Stewart feat. Candy Dufler - Lily Was Here (04:19)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:50:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DC5DC0E110914174C6A9D262DC084941BF75036
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 314749   (1030354) от 19.02.2021
-
-VA - Romantic Guitar (1995) Compilation, Unofficial Release [FLAC|Lossless|image + .cue] <Instrumental, Guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Romance De Amour 	(03:21)
-02. Johnny Guitar 	(02:29)
-03. La Ragazza Di Bube 	(02:42)
-04. Love Story 		(02:31)(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 00:36:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:994238C1081A2478B61B2A605BF55418CB804AB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

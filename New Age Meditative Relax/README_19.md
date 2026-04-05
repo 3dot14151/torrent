@@ -1,3 +1,32 @@
+###  Публикация: 1321208   (456439) от 25.08.2019
+
+Tantric Sex Background Music Experts - Asian Tantric Yoga (2019) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sensual Yoga (3:19)
+02. Spiritual Intimacy (2:57)
+03. Deep Tantric Sensuality (4:00)
+04. Awaken Your Sexual Potential (3:33)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:57:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39B526179D2721EE15897C450E9210853496A08A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 942740   (453911) от 01.10.2015
 
 VA - Music Selection for the Best Macrobiotic Restaurants (2015) [MP3|320 кб/с]<New Age, Ambient>
@@ -6,7 +35,7 @@ VA - Music Selection for the Best Macrobiotic Restaurants (2015) [MP3|320 кб/�
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453911.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Slavik...Kemmler - Close To Heaven (1998) [OGG|485 Kbps] <New Age, Tribal>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453497.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Enigma - MCMXC a.D. (1990) [OGG|485 Kbps] <Ambient, New Age, Downtempo>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453494.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Gregorian - 14 cтудийных альбомов (1991 - 2013) [MP3|320 кб/с
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452754.jpg" />
 </div>
 
 
@@ -120,7 +149,7 @@ Prem Joshua - Breath Of Voavah (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450346.jpg" />
 </div>
 
 
@@ -149,7 +178,7 @@ Wuauquikuna - Original Edition (2020) [MP3|320 Kbps] <Native American, New age, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449026.jpg" />
 </div>
 
 
@@ -178,7 +207,7 @@ VA - Back To Nature (2012) [MP3|320 кб/с]<New age, Instrumental, Relax, Sound
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448753.jpg" />
 </div>
 
 
@@ -213,7 +242,7 @@ Rajendra Teredesai & BlueMonk - Samsara (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448491.jpg" />
 </div>
 
 
@@ -242,7 +271,7 @@ Cybertribe & Deuter & Kamal - Yoga & Pilates by the Sea (2008) [MP3|320 kbps]<Re
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_447771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_447771.jpg" />
 </div>
 
 
@@ -276,7 +305,7 @@ Guy Sweens - Universal Language (2015) [MP3|320 кб/с]<New Age, World>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447333.jpg" />
 </div>
 
 
@@ -305,7 +334,7 @@ Enigma - The Cross Of Changes (1993) [OGG|485 Kbps] <Ambient, New Age, Downtempo
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447088.jpg" />
 </div>
 
 
@@ -334,7 +363,7 @@ Acoustic Ocean - Blue Moon Rising (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446500.jpg" />
 </div>
 
 
@@ -363,7 +392,7 @@ Jon Richards - Earthlight (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446430.jpg" />
 </div>
 
 
@@ -392,7 +421,7 @@ Amethyste - Alien Moon (2016) [MP3|320 Kbps] <New Age, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446420.jpg" />
 </div>
 
 
@@ -421,7 +450,7 @@ Pawel Mareyn - Habitable Zone (2018) [MP3|320 Kbps] <New Age, Neo-Classical>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442411.jpg" />
 </div>
 
 
@@ -450,7 +479,7 @@ Jana Mashonee - American Indian Story (2006) [MP3|320 кб/с]<Native American E
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441904.jpg" />
 </div>
 
 
@@ -485,7 +514,7 @@ VAD - Заря (2011) [MP3|320 кб/с]<New Age, Ethnic , Folk>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441901.jpg" />
 </div>
 
 
@@ -520,7 +549,7 @@ Age Of Echoes - Beyond the Farthest Shore (2015) [MP3|320 кб/с]<New Age, Rela
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440382.jpg" />
 </div>
 
 
@@ -549,7 +578,7 @@ VA - Ayurveda Lounge - Relaxation & Meditation, Vol. 4 (2014) [MP3|320 Kbps] <Ne
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439487.jpg" />
 </div>
 
 
@@ -578,7 +607,7 @@ Wychazel - White Wolf Spirit 2 (2015) [MP3|320 кб/с]<New Age, World, Meditati
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438318.jpg" />
 </div>
 
 
@@ -607,7 +636,7 @@ Gregorian - Masters Of Chant Final Chapter Tour (2016) Live [MP3|320 Kbps] <New 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434495.jpg" />
 </div>
 
 
@@ -636,7 +665,7 @@ SolarFlow - Imagine (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433313.jpg" />
 </div>
 
 
@@ -665,7 +694,7 @@ VA - Relax Music Vol.1 (Star Mark Compilations) (2008) [MP3|320 kbps]<Relax, Ins
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_430961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_430961.jpg" />
 </div>
 
 
@@ -700,7 +729,7 @@ Bernard L'Hoir - She's... (2015) [OGG| 407-500 кб/с]<New Age, Jazz, Folk, Ins
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429453.jpg" />
 </div>
 
 
@@ -729,7 +758,7 @@ Enigmatic Hits - Reloaded (2020) [MP3|320 Kbps] <Enigmatic, New age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429360.jpg" />
 </div>
 
 
@@ -743,35 +772,6 @@ Enigmatic Hits - Reloaded (2020) [MP3|320 Kbps] <Enigmatic, New age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72194804D4A027ED7781AF054E7F115592748122
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249917   (429128) от 26.09.2018
-
-Mauricio Nader - Our Soul Revealed (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hope Within
-02. Wish to Be with You
-03. The Own Reflection
-04. Hidden Loneliness(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:38:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56D2EC25F9506E858C902900931F78F721EC2322
 ```
 
 https://mybot314.ru/tekegram_catalog/

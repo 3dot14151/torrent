@@ -6,7 +6,7 @@ Max Roach, Clifford Brown Quintet - Brownie Lives! (Live At Basin Street And In 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477713.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Billie Holiday - Lady In Satin (1958, 1959) 2CD, 2011, Not Now Music[FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477604.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Lionel Hampton - Just Jazz (1947) 1990, MCA [FLAC|Lossless|tracks + .cue] <Swing
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477600.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Nina Simone - 16 Top Tracks (1967-1971) 1988, BMG Music[FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477515.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Armen Chakmakian & Djivan Gasparyan - Ceremonies (1998) [WavPack|Lossless]<Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476628.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Joe Williams - Four Classic Albums (1956 - 1960) 2CD, 2021, Avid Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476504.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Cecilia - 2 альбома (1994 & 1996) [FLAC|Lossless]<Jazz Vocal, Ballad, Eas
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476481.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Milton Nascimento - Millennium (2000) 2006, Mercury [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476273.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Isao Suzuki Group - 1998, New (1998) Platz [FLAC|Lossless|tracks + .cue] <Jazz F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476212.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ VA - Voices of Love (2012) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476185.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Gary Bartz - Episode One Children Of Harlem (1994) /Challenge/[FLAC|tracks+.cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476102.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ VA - Jazz Audiophile Voices (2010) [FLAC|Lossless]<Vocal jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476067.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Kat Reinhert - Spark (2015) [FLAC|image+.cue]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476035.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Thomas Chapin - I've Got Your Number (1993) /Arabesque Jazz/[APE|tracks+.cue]<Av
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476032.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ VA - Acoustic Audiophile Voices (2004) [FLAC|Lossless]<Vocal jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475892.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ The Tony Lustig Quintet - Taking Flight (2016) Bimperl Entertainment & Media[FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475481.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ John Surman - Morning Glory (1973) 2016, Fledg'ling Records[FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475476.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Herbie Mann - Verve Jazz Masters 56 (1996) PolyGram Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474546.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Buddy Collette - Six Classic Albums (1957 - 1961) 4CD, 2017, Real Gone Jazz [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474218.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Horace Tapscott - Aiee! The Phantom (1995) 2009, Arabesque Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474154.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Madeleine Peyroux - Anthem (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474008.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Mette Juul - There Is A Song(2015) - There Is A Song (2015) [FLAC|tracks|WEB-DL]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473585.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Donna Hightower - Take One! & Gee, Baby, Ain't I Good To You? (2009) [FLAC|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473560.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Fourplay - Silver (2015) [FLAC|Lossless|WEB-DL]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473464.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Eric Reed - Groovewise (2014) Smoke Sessions Records[FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473432.jpg" />
 </div>
 
 
@@ -761,7 +761,7 @@ John Lewis & Hank Jones - An Evening with Two Grand Pianos (1979) 2000, Collecta
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473305.jpg" />
 </div>
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1338191   (270306) от 14.11.2019
+
+Алексей Филатов | Профайлинг в Социальных сетях (2019) PCRec [H.264/720p-LQ]
+
+>>Обучающие видеоматериалы
+>>Психология и саморазвитие (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270306.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы даже не представляете какое количество информации выдаете о себе просто создав страничку в таких популярных в наше время социальных сетях! И даже не обязательно выкладывать определенное количество фотографий и заполнять подробную информацию.
+Все мы хотим создать определенное впечатление о себе, заполняя нашу страницу. И, как правило, произвести то самое желаемое (   Читать дальше...   )Производство: proprofiling.comЖанр: Интернет, Психология, Социальная инженерияПродолжительность: 06:29:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB60263C588CF6C03F0A75D2BFAEDE5830BCC529
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1338562   (268622) от 16.11.2019
 
 Максим Русаков | Premiere pro: Легкий старт (2018) PCRec [H.264/1080p-LQ]
@@ -6,7 +33,7 @@
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268622.jpg" />
 </div>
 
 
@@ -34,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268431.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ ProfIT | XDebug или Давайте искать баги быстро! (2018)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268304.jpg" />
 </div>
 
 
@@ -86,7 +113,7 @@ doge.codes | Онлайн интенсив по React и Redux (2018) PCRec [H.2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268300.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ javascript.ru | Продвинутый курс по Angular (2018) PCRec [H.264
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268262.jpg" />
 </div>
 
 
@@ -139,7 +166,7 @@ javascript.ru | Курс по React.JS (2018) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268257.jpg" />
 </div>
 
 
@@ -165,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268199.jpg" />
 </div>
 
 
@@ -191,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267558.jpg" />
 </div>
 
 
@@ -226,7 +253,7 @@ Convert Monster | Яндекс.Директ 2017 (2017) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267497.jpg" />
 </div>
 
 
@@ -252,7 +279,7 @@ ProfIT | Что нового в PHP (7.3) (2018) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267421.jpg" />
 </div>
 
 
@@ -278,7 +305,7 @@ Webcademy | Gulp Сборка (2018) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267395.jpg" />
 </div>
 
 
@@ -304,7 +331,7 @@ ProfIT | PhpStorm для самых маленьких (2018) PCRec [H.264/720p-
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267379.jpg" />
 </div>
 
 
@@ -330,7 +357,7 @@ Udemy | Парсеры, роботы, автоматизация, Selenium, Phan
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267326.jpg" />
 </div>
 
 
@@ -356,7 +383,7 @@ Lynda.com | Обучение 3D-графике для Web с помощью Thre
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266876.jpg" />
 </div>
 
 
@@ -382,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266784.jpg" />
 </div>
 
 
@@ -410,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266563.jpg" />
 </div>
 
 
@@ -439,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265903.jpg" />
 </div>
 
 
@@ -465,7 +492,7 @@ Udemy | Unity 5 Professional Guide Mastering C# Programming / Профессио
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265614.jpg" />
 </div>
 
 
@@ -491,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265464.jpg" />
 </div>
 
 
@@ -517,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265204.jpg" />
 </div>
 
 
@@ -545,7 +572,7 @@ MonsterLessons | Интернет-магазин на React/Redux (2017) PCRec [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264327.jpg" />
 </div>
 
 
@@ -574,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264325.jpg" />
 </div>
 
 
@@ -600,7 +627,7 @@ FlippedNormals | Введение в Blender 2.8 / Introduction to Blender 2.8 (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263875.jpg" />
 </div>
 
 
@@ -627,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263793.jpg" />
 </div>
 
 
@@ -656,7 +683,7 @@ Lynda.com | Основы программирования: Алгоритмы / 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263134.jpg" />
 </div>
 
 
@@ -667,34 +694,6 @@ Lynda.com | Основы программирования: Алгоритмы / 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:344775A873AE610468F84866AB9C28C4301FD91A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340640   (263127) от 25.11.2019
-
-Convert Monster | Специалист SEO-оптимизации (2017) PCRec [H.264/720p-LQ]
-
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наш новый курс «Специалист по работе с поисковыми системами, SEO-оптимизатор» даст вам полное понимание всех механизмов привлечения органического трафика, чтобы в будущем вы успешно продвигали свой проект, либо стали одним из честных SEO-гуру.
-
-Мы взяли 5-летний опыт продвижения нашего сайта и 40+ успешных проектов и разобрали его по косточкам. Мы расскажем вам, (   Читать дальше...   )Жанр: SEO, Продвижение сайтовАктеры: Анастасия Богуш, Анастасия Волошина, Александр Конченко, Светлана ТренбаПродолжительность: ~11:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AA5B8DDCE4ABBA74863040662D523EECCF27C34
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1300165   (594837) от 04.05.2019
+
+Hozier - Wasteland, Baby! (2019) [FLAC|lossless|image + .cue] <Rock, Indie Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nina Cried Power (Featuring Mavis Staples) (03:45)
+02. Almost (Sweet Music) (03:37)
+03. Movement (03:57)
+04. No Plan (05:31)(   Читать дальше...   )Жанр: Rock, Indie Rock, Blues RockПродолжительность: 00:57:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E143567F464D1C57A80FA553FD9CF987B2878ECB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039663   (594797) от 02.08.2016
+
+Embraced - Within (2001) Japan [FLAC|Lossless|image + .cue] <Melodic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Solitude of My Own
+02.Within Me
+03.The Fallen
+04.Putrefaction(   Читать дальше...   )Жанр: Melodic Black MetalПродолжительность: 00:46:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68AF4CC5B85B93F1C96F758E8C61BC46D35F5204
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548837   (594745) от 05.05.2022
+
+Conception - State of Deception (2020) Deluxe Edition, 2022, Conception Sound Factory [FLAC 2.0|44.1, 48/16, 24/|WEB-DL|tracks] <Progressive, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. in: Deception (1:46)
+02. Of Raven and Pigs (4:46)
+03. Waywardly Broken (4:38)
+04. No Rewind (3:12)(   Читать дальше...   )Жанр: Progressive, Power MetalПродолжительность: 02:14:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ED28187A6A6491B5258DDB5EA162C6B8EF71E28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549041   (594732) от 05.05.2022
+
+Three Days Grace - Explosions (2022) [MP3|320 Kbps] <Post-Grunge, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594732.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. So Called Life
+2. I Am The Weapon
+3. Neurotic (feat. Lukas Rossi)
+4. Lifetime(   Читать дальше...   )Жанр: Post-Grunge, Alternative RockПродолжительность: 00:37:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45147C665E9B95054436837ED467569F12E9B8F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300164   (594728) от 04.05.2019
+
+Fortune - II (2019) [FLAC|lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Say You Love Me (04:10)
+02. Shelter of the Night (04:43)
+03. Freedom Road (04:59)
+04. A Little Drop of Poison (for Amy W.) (04:27)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:43:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2B6280798B33929FE378371388680B47908651D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039801   (594703) от 02.08.2016
 
 Hangar - Stronger Than Ever (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Progressive Pover Metal>
@@ -6,7 +151,7 @@ Hangar - Stronger Than Ever (2016) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594703.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ CiG (Chad I Ginsburg) - Rock N Roll Alibis (2015) [FLAC|Lossless|WEB-DL|tracks] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594700.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Evan - Blue Lightning (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594692.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ The Last Days - When The Tomorrow Is A Grey Day (2010) [MP3|320 kbps]<Shoegaze, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594651.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ The Wildhearts - Renaissance Men (2019) [MP3|320 kbps] <Hard Rock, Punk'n'Roll>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594594.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Cigarettes After Sex - Cigarettes After Sex (2017) Partisan Records [FLAC|Lossle
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594586.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Mystic Braves - Mystic Braves (2013) [MP3|320 Kbps] <60's Psychedelic Rock, Gara
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594565.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Focus - 11 Albums, 1 Box Set (1970 - 2019) 24 CD [FLAC|Lossless|image + .cue|tra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594530.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Foals - Holy Fire (2013) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594515.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Vivaldi Metal Project - The Four Seasons (2016) Japanese Edition [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594506.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ VA - Stars Of Rockabilly (2016) 3CD [FLAC|Lossless|image + .cue] <Rockabilly>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594502.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ Catfish and the Bottlemen - The Ride (2016) [FLAC|Lossless|tracks] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594438.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ Syberia - Statement on Death (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Rock, Po
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594021.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ Motor Sister - Get Off (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Heavy Metal, Hard 
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593999.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ Depressed Mode - Decade of Silence (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Sympho
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593996.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ Reamonn - 5 Albums (2000-2008) Full Studio Discography [FLAC|Lossless|tracks + .
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593970.jpg" />
 </div>
 
 
@@ -470,7 +615,7 @@ Christian Death - Evil Becomes Rule (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Gothi
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593966.jpg" />
 </div>
 
 
@@ -499,7 +644,7 @@ Salamandra - Opus Bohemica (2022) [FLAC|Lossless|WEB-DL|tracks] <Sympho Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593965.jpg" />
 </div>
 
 
@@ -528,7 +673,7 @@ Jani Liimatainen - My Father's Son (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Melo
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593960.jpg" />
 </div>
 
 
@@ -557,7 +702,7 @@ Protos Nemesis, Keld, Keldian - The Hidden History of Keldian (2018) 5 диск�
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593953.jpg" />
 </div>
 
 
@@ -586,7 +731,7 @@ Gipsy Love - Gipsy Love (1971) Reissue, 2011, Genschman Soundroom [MP3|320 Kbps]
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593951.jpg" />
 </div>
 
 
@@ -600,151 +745,6 @@ Gipsy Love - Gipsy Love (1971) Reissue, 2011, Genschman Soundroom [MP3|320 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE5DD4D8477D5EA287368FA9CA94A230C4702AD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150548   (593924) от 15.07.2017
-
-Coldplay - Kaleidoscope (2017) EP [MP3|320 Kbps] <Alternative Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593924.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. All I Can Think About Is You
-2. Miracles (Someone Special)
-3. A L I E N S
-4. Something Just Like This (Tokyo Remix)(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:24:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EDC8C304B419F9744B403417E8B91BBB680344F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549133   (593901) от 06.05.2022
-
-Гран-КуражЪ - IX жизней (2022) 2xCD, Live [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593901.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Интро
-02. Достучаться до небес (П. Елфимов)
-03. Только вперёд (П. Елфимов)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 02:18:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79DE09A754A0FFB06F1EFE10CAE4F184C6BCE85C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549217   (593897) от 06.05.2022
-
-Arcade Fire - WE (2022) [FLAC 2.0|96/24|WEB-DL|tracks] <Art.Rock, Indie Rock, Synthpop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Age of Anxiety I (5:27)
-02. Age of Anxiety II (Rabbit Hole) (6:41)
-03. Prelude (0:30)
-04. End of The Empire I-III (5:23)(   Читать дальше...   )Жанр: Art.Rock, Indie Rock, SynthpopПродолжительность: 00:40:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49C72776D9A8652E3C3000F115E1C8A99DC6E019
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549114   (593894) от 06.05.2022
-
-Sabaton - The Symphony To End All Wars (2022) Symphonic Version [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sarajevo (4:45)
-02. Stormtroopers (3:53)
-03. Dreadnought (3:25)
-04. The Unkillable Soldier (3:36)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:43:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41555484270A5CCAA2FD0A0144B716B7E5EC7315
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300219   (593883) от 05.05.2019
-
-Mark Morton - Anesthetic (2019) [FLAC|Lossless|tracks + .cue] <Groove Metal, Heavy Metal, Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cross Off (feat. Chester Bennington) (4:13)
-02. Sworn Apart (feat. Jacoby Shaddix) (3:57)
-03. Axis (feat. Mark Lanegan & Myles Kennedy) (4:13)
-04. The Never (feat. Chuck Billy & Jake Oni) (4:06)(   Читать дальше...   )Жанр: Groove Metal, Heavy Metal, Alternative MetalПродолжительность: 00:42:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECA40DCC5C2BED98B2541B86173634D9801289CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

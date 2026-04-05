@@ -1,3 +1,55 @@
+###  Публикация: 1692741   (122368) от 17.01.2024
+
+PDF Checkpoint 1.9.20 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122368.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF Checkpoint автоматизирует рабочие процессы PDF с мощной пакетной обработкой данных: preflight, route by preflight results, экспорт в качестве изображения, split, возможность конвертировать цвета, уменьшить размер файла и многое другое. Прекрасно организованный простой и наглядный инструмент для проверки PDF перед отправкой в типографию.Тип издания: macOS SoftwareРелиз состоялся: 16.01.2024Разработчик: © 2006 - 2024 Zevrix SolutionsПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FECF1B1096B6ED6630ECF5CEBACFF04F1AC2F429
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692542   (122359) от 17.01.2024
+
+Chain - Study & Workout Timer 10.1 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122359.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Chain Timer – это удобный мультитаймер на каждый день.Тип издания: macOS SoftwareРелиз состоялся: 16.01.2024Разработчик: © Roman SevastyanovПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C6E45D0CA098EAC8D12D4D5970816D3576C947E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692537   (122353) от 17.01.2024
 
 Battery Indicator for Mac 2.17.0 [En]
@@ -6,7 +58,7 @@ Battery Indicator for Mac 2.17.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122353.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Wattagio 1.13.1 [Multi/Rus]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122342.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ PaintCode 3 v.3.5.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122340.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ GM CHM Reader Pro for Mac 2.5.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122332.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Color Folder - Custom Icons for Mac 3.8 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122331.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ BatchOutput PDF 3.1.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122324.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ Disk Drill Enterprise 5.4.1426 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122264.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ WiFi Explorer 3 Pro 3.6.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122210.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ Numi 3.32 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122193.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ Eassiy Data Recovery for Mac 5.1.16 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122186.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ NCH Express Scribe Pro for Mac 13.00 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122169.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ Mac FoneLab Android Data Recovery 3.2.18 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122165.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ News Headlines 4.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122156.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ Greeting Card Shop v.4.0.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122152.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ WiFi Explorer 3.5.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122149.jpg" />
 </div>
 
 
@@ -405,7 +457,7 @@ Wizard 2 for Mac 2.0.16 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122148.jpg" />
 </div>
 
 
@@ -432,7 +484,7 @@ Aiseesoft Mac FoneLab for Android 5.0.30 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122146.jpg" />
 </div>
 
 
@@ -459,7 +511,7 @@ Apeaksoft Android Toolkit 1.2.16 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122145.jpg" />
 </div>
 
 
@@ -485,7 +537,7 @@ MetaRename for Mac 1.0.8 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122136.jpg" />
 </div>
 
 
@@ -511,7 +563,7 @@ MetaVideo for Mac 1.1.3 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122135.jpg" />
 </div>
 
 
@@ -538,7 +590,7 @@ Beyond Compare 5 for Mac 5.0 beta [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122019.jpg" />
 </div>
 
 
@@ -565,7 +617,7 @@ Desktop Aquarium Wallpapers 2.2.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121898.jpg" />
 </div>
 
 
@@ -591,7 +643,7 @@ Weather Dock 5.5.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121876.jpg" />
 </div>
 
 
@@ -617,7 +669,7 @@ PhotosRevive for Mac 2.1.3 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121858.jpg" />
 </div>
 
 
@@ -628,58 +680,6 @@ PhotosRevive автоматически раскрашивает ваши ста
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FB89C538F363D472A76C01134F7F72B4C3663B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693532   (121850) от 20.01.2024
-
-FoneDog Toolkit for Android on Mac 2.1.12 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121850.jpg" />
-</div>
-
-
-###  Подробнее
-
-FoneDog Android Data Recovery специализируется на восстановлении удаленных контактов (номера телефонов, имена, электронные письма), текстовых сообщений (контент, номера телефонов, дата отправки / получения) и истории вызовов (имена, номера телефонов, тип вызова, продолжительность), WhatsApp (сообщения / вложения), фотографии, видео, аудио файлы и документы с устройств (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.12.2023Разработчик: © 2016 - 2023 FoneDog Technology LimitedПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B99C3F7B149B7BF6502A7F2102707101A2C4CA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693530   (121842) от 20.01.2024
-
-One Chat Pro - All In One Messenger 4.9.95 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121842.jpg" />
-</div>
-
-
-###  Подробнее
-
-One Chat объединяет чаты и службы обмена сообщениями в одно простое приложение для Mac. WhatsApp, Facebook Messenger, Hangouts, Telegram, Skype, Slack, WeChat, Twitter, YahooChat, ICQ-чат, HipChat, Discord, GroupMe, QQ, Facebook, VKChat и др. Одно приложение для всех служб обмена сообщениями.Тип издания: macOS SoftwareРелиз состоялся: 16.01.2024Разработчик: © 2016-2024 AppYogi SoftwareПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCFFF3D511CEA0D91E2FC6EF0013E970601BB361
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1227451   (216612) от 16.12.2018
+
+Pillars of Eternity II: Deadfire / Pillars of Eternity 2: Deadfire (2018) [Ru/Multi] (3.1.1.0023/dlc) Repack R.G. Механики
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216612.jpg" />
+</div>
+
+
+###  Подробнее
+
+Преследуйте беглого бога на земле и по морю в сиквеле Pillars of Eternity — ролевой игры, заслужившей высокую оценку критиков. Отправьте свой корабль в опасную экспедицию через огромный неизученный архипелаг Дэдфайр. Подчините мир своей воле — исследуйте массу безграничных возможностей, включая детальную персонализацию героя, полную свободу в исследовании мира и (   Читать дальше...   )Тип издания: RepackРазработчик: Obsidian EntertainmentЖанр: Ролевая игра, Приключение, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AD9CA67A2322B4F3202C2E0DBC1722D1B765F45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514350   (216513) от 03.12.2021
+
+Griftlands (2021) [Ru/Multi] (484799) License PLAZA
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Технологии в упадке, а остатками былого прогресса торгует клан Электробаронов, то и дело кусаясь за власть с религиозным культом почитателей Хеша. И те, и другие не стесняются прибегать к использованию рабского труда. Рабы и пролетариат категорически не согласны мириться с таким положением дел и готовятся устроить проклятым капиталистам Красный Октябрь. В этом пытается (   Читать дальше...   )Тип издания: LicenseРазработчик: Klei EntertainmentЖанр: Сюжетная RPG, Карточный рогаликЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B644A753B30CD40DD3495BCA9DAD29B67E6A9CAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204595   (216111) от 26.10.2022
 
 Tangledeep (2018) [Multi] (1.53a/dlc) License GOG
@@ -6,7 +58,7 @@ Tangledeep (2018) [Multi] (1.53a/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216111.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Shieldwall Chronicles: Swords of the North (2018) [En] (1.0) License HOODLUM
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214906.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Vikings - Wolves of Midgard (2017) [Ru/Multi] (2.1) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214728.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Al-Qadim: The Genie's Curse (1994) [Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214191.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Lightracer Spark (2023) [Multi] (1.2.2/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213989.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ The Triumphant Return of Diabolos (2022) [Multi] (3/dlc) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212767.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ World of Haiku (2022) [En] (1.0.0f5) License TiNYiSO
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211329.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ NeverHome - Hall of Apathy (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211031.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Monster Hunter Rise (2022) [Ru/Multi] (13.0.0.1/dlc) License EMPRESS
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208126.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Legend of Grimrock (2012) [En] (1.3.7) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208105.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Spells of Gold / Заклятие (2002) [Ru/En] (1.042) Repack/Mod Foxx164
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207954.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ StarCrawlers (2017) [En] (1.1.4.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207920.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Sylphy and the Sleepless Island (2021) [Multi] (v1/dlc) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207629.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Class of '09 (2021) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207132.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Volcano Princess (2023) [Multi] (2.01.05) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207052.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Beacon Pines (2022) [En] (1.0.2) License GOG [Collector's Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206997.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Liberte (2023) [En] (1.0.2.b) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206769.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ False Myth (2022) [Multi] (v3/dlc) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206629.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Shadow Flare (2002) [En] (1.0) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206016.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Nicktoons and The Dice of Destiny (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205707.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Heroes of Hammerwatch II (2025) [Ru/Multi] (Build 20392961) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205658.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ A Legionary's Life (2019) [Multi] (1.3.14.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205631.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ BorderZone / Пограничье (2005) [Ru/En] (1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205214.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Din's Legacy (2019) [En] (1.013) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204425.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Din's Legacy - изометрическая RPG, выполненная в ду�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA9B359DE31590165FD113C9C5B6F681862F6BD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609124   (203196) от 02.02.2023
-
-Lust Academy Season 1 (2022) [Multi] (0.7.1f.002) License GOG [18+]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наш проект называется "Lust Academy" и не секрет, что мы были сильно вдохновлены книгами о Гарри Поттере и сериалом "Волшебники". Lust Academy - это сюжетно-ориентированная 3d визуальная новелла, где вы играете за молодого 18-летнего парня, который только что узнал, что он волшебник. В настоящее время у нас есть два режима игры: Песочница и Визуальная (   Читать дальше...   )Тип издания: LicenseРазработчик: Bear in the NightЖанр: Adventure, Role-playing, NarrativeЯзык субтитров: Английский, КитайскийЯзык интерфейса: Английский, Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09D4BB27AA6F119E6146B0BEAA215BD5809EFC3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610045   (203058) от 05.02.2023
-
-Monster Hunter Rise: Sunbreak (2022) [Ru/Multi] (13.0.0.1/dlc) Repack DjDI [Deluxe Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203058.jpg" />
-</div>
-
-
-###  Подробнее
-
-Готовьтесь: настало время Охоты! В Monster Hunter Rise - новой игре всемирно известного бестселлера Monster Hunter - вас ждет история, в которой вы станете охотником и отправитесь исследовать невиданные прежде карты и расправляться с кровожадными монстрами с помощью целого арсенала оружия. В версии для ПК, помимо всего прочего, особое внимание уделено оптимизации (   Читать дальше...   )Тип издания: RepackРазработчик: CAPCOM Co., Ltd.Жанр: Action-RPGЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:856DFB342704FD4DA257EA2D362D5E40D976F8C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

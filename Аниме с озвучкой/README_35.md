@@ -1,3 +1,134 @@
+###  Публикация: 1421239   (319170) от 04.11.2020
+
+Tamayomi | Тамаёми [2020, TV, 12 из 12] WEBRip 720p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319170.jpg" />
+</div>
+
+
+###  Подробнее
+
+В средней школе команда питчера Ёми Такэды не смогла далеко продвинуться в чемпионате по бейсболу, так как у кэтчера не получалось поймать коронную «волшебную подачу» Ёми. Девочка решила бросить бейсбол и поступила в старшую школу Синкосигая, где даже не было собственной команды. Но оказалось, что в этой школе учится Тамаки Ямадзаки — подруга детства Ёми, вместе (   Читать дальше...   )Производство: Япония, Studio A-CATЖанр: Повседневность, спортРежиссер: Фукусима ТосинориЯзык озвучки: Русский (профессиональный многоголосый) - Студийная БандаПродолжительность: 12 х ~ 00:23:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:346259E9E17A843F1DDE0F554FA1F19ABC965269
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421244   (317008) от 05.11.2020
+
+Eizouken ni wa Te o Dasuna! | Руки прочь от киноклуба! [2020, TV, 12 из 12] WEBRip 720p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317008.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Асакусы Мидори есть мечта - создать свое аниме, но для этого у нее не хватает сосредоточенности на деле. По чистой случайности девушка встретила Мидзусаки Цубамэ, которая в тайне мечтает стать аниматором. Компанию им составляет любящая деньги лучшая подруга Мидори Канамори Саяка. Вместе они медленно но уверенно начали работать над претворением своих мечт в реальность!Производство: Япония, Science SaruЖанр: Комедия, приключения, повседневностьРежиссер: Юаса МасаакиЯзык озвучки: Русский (многоголосый) - AniDubСубтитры: Русские (внешние, отдельной папкой) - CrunchyrollПродолжительность: 12 х ~ 00:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D3CC430E9D848E52630B90D1DCBBBB666CD710F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259698   (315767) от 05.11.2018
+
+Satsuriku no Tenshi / Angels of Death / Ангелы смерти [2018, TV, 16 ep] WEB-DL 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315767.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тринадцатилетняя девочка по имени Рэйчел просыпается в подвале здания, не помня, как она попала туда и не зная причин, по которым оказалась в таком затруднительном положении.
+Блуждая по зданию в поисках выхода, девочка встречается с Заком — серийным убийцей с бандажом на лице и косой в руках. Отрешённая и лишённая любых стремлений к жизни, Рэйчел просит нового знакомого (   Читать дальше...   )Жанр: триллер, ужасыРежиссер: Судзуки КэнтароЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 16 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ECC230B8CA2A511563316BDA748D5991991A8CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308363   (315593) от 19.10.2019
+
+Carole & Tuesday / Кэрол и Тьюсдей [2019, TV, 24 из 24] WEBRip 720p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315593.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие разворачивается на колонизированном Марсе, примерно через полвека после того как человечество покинуло свою колыбель. В новом мире созданием художественных произведений занимается искусственный интеллект, людям же отведена роль потребителей. В огромном мегаполисе Альба Сити живёт 17-летняя Кэрол, работающая то тут, то там и пытающаяся стать музыкантом, но (   Читать дальше...   )Производство: Япония, BONESЖанр: Приключения, мультсериалРежиссер: Синъитиро ВатанабэЯзык озвучки: Русский (AkariGroup)Субтитры: ОтсутствуютПродолжительность: ~00:25:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C73BD370705BE611F8052F53BF2D46A5CC66D92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 435853   (315323) от 24.11.2016
+
+Pokemon: Advanced Battle (8 Season) / Покемон: Новое Сражение (8 сезон) [2005, TV, 52 ep] DVDRip 480p Rus+Eng
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эш заработал последние 2 значка и обеспечил себе место в Чемпионате Лиги Хоэнн, в то время как Мэй сильно рискует оказаться без последней ленты, готовясь при этом к эпичным схваткам с обоими своими соперниками на Большом Фестивале. Эш познакомился с двумя тренерами, которые становятся его личными соперниками в Хоэнн и против которых ему предстоит сразиться во время (   Читать дальше...   )Жанр: кодомо, комедия, фэнтезиФормат: MKVПродолжительность: 52 эпизода по 21 минуте
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB3B4076A4BCFA7314D60FA013CEE77FC2604928
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 583119   (314603) от 01.12.2012
 
 Mnemosyne: Mnemosyne no Musume-tachi / Rin: Daughters of Mnemosyne / Дочери Мнемозины [2008, TV-Special, 6 из 6] BDRip 400p RAW+2xRUS(int)+ENG+JAP+SUB HWP
@@ -6,7 +137,7 @@ Mnemosyne: Mnemosyne no Musume-tachi / Rin: Daughters of Mnemosyne / Дочер�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314603.jpg" />
 </div>
 
 
@@ -34,7 +165,7 @@ Strike Witches Gekijouban / Штурмовые ведьмы (фильм) [2012] 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311571.jpg" />
 </div>
 
 
@@ -62,7 +193,7 @@ Meitantei Conan | Detective Conan | Детектив Конан. Фильмы и
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311266.jpg" />
 </div>
 
 
@@ -88,7 +219,7 @@ Triage X / Искусственный отбор [2015, TV, 10 ep] BDRip Hi10p 7
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308995.jpg" />
 </div>
 
 
@@ -115,7 +246,7 @@ Tears to Tiara / Слёзы Тиары / Расколотая Тиара [2009, 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307407.jpg" />
 </div>
 
 
@@ -143,7 +274,7 @@ Fune o Amu | Fune wo Amu | Мы создаём корабль | Великое �
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305711.jpg" />
 </div>
 
 
@@ -169,7 +300,7 @@ Dragon Ball Super | Драгон Болл Супер [2015, TV, 46 из 131 эп
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304570.jpg" />
 </div>
 
 
@@ -195,7 +326,7 @@ Shichisei no Subaru / Seven Senses of the Re'Union / Семизвёздная п
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304417.jpg" />
 </div>
 
 
@@ -221,7 +352,7 @@ Ranma 1/2 Special | Ranma Nibun no Ichi Special | Ранма 1/2: Специал
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298239.jpg" />
 </div>
 
 
@@ -247,7 +378,7 @@ Ranma 1/2: Chou Musabetsu Kessen! Ranma Team vs. Densetsu no Houou | Ranma 1/2: 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298237.jpg" />
 </div>
 
 
@@ -273,7 +404,7 @@ Ranma 1/2 Super | Ranma Nibun no Ichi Super | Ранма 1/2: Супер [1995, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298235.jpg" />
 </div>
 
 
@@ -299,7 +430,7 @@ Ranma 1/2 OVA | Ranma Nibun no Ichi OVA | Ранма 1/2 OVA [1993, OVA, 6 из 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298233.jpg" />
 </div>
 
 
@@ -325,7 +456,7 @@ Ranma 1/2: Chuugoku Nekonron Daikessen! Okite Yaburi no Gekitou Hen!! | Ranma 1/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298231.jpg" />
 </div>
 
 
@@ -351,7 +482,7 @@ Ninja Senshi Tobikage / Ninja Warrior Tobikage / Ниндзя-воин Тоби�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291112.jpg" />
 </div>
 
 
@@ -378,7 +509,7 @@ Mahou Shoujo Site | Magical Girl Site | Сайт девочек-волшебни
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290697.jpg" />
 </div>
 
 
@@ -404,7 +535,7 @@ Sunohara-sou no Kanrinin-san / Госпожа заведующая общежи�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289610.jpg" />
 </div>
 
 
@@ -432,7 +563,7 @@ Xenosaga: The Animation | Ксеносага [2005, TV, 12 эп.] DVDRip 480p ra
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288898.jpg" />
 </div>
 
 
@@ -458,7 +589,7 @@ Seitokai Yakuindomo* / Члены Школьного совета (ТВ-2) [2014
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288189.jpg" />
 </div>
 
 
@@ -484,7 +615,7 @@ Crusher Joe | Крушила Джо [1983, Movie] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286904.jpg" />
 </div>
 
 
@@ -511,7 +642,7 @@ Sewayaki Kitsune no Senko-san | The Helpful Fox Senko-san | Заботливая
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286903.jpg" />
 </div>
 
 
@@ -537,7 +668,7 @@ Crusher Joe | Крушила Джо [1983, Movie] BDRip 720p raw+rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285226.jpg" />
 </div>
 
 
@@ -549,140 +680,6 @@ Crusher Joe | Крушила Джо [1983, Movie] BDRip 720p raw+rus
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61D2C9DD07935F5BB89345C01B17642ACFFF2A05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263758   (283844) от 21.11.2018
-
-Ingress: The Animation | Ингресс [2018, ONA, 11 эпизодов] WEBRip 720p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283844.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учёные обнаружили субстанцию, которая способна напрямую взаимодействовать с человеческим мозгом. Оказалось, что эта субстанция, названная «экзотическая материя» с древних времён оказывала влияние на прогресс человечества. Вскоре после открытия началась борьба среди могущественных наций и гигантских корпораций. Организации по всему миру стали тайно пытаться использовать (   Читать дальше...   )Производство: Япония / CraftarЖанр: Детектив, фантастикаРежиссер: Сакураги Юхэй (Yūhei Sakuragi)Язык озвучки: Русский (Xelenum, одноголосный)Субтитры: ОтсутствуютПродолжительность: 11 эпизодов, 25 мин./серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E396EABDB35870299C85178723C510EF8B03751D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963894   (281511) от 11.12.2015
-
-Inou Battle wa Nichijou-kei no Naka de / Inou Battle / Супербои в повседневности [2014, TV, 12 ep] BDRip Hi10p 720p Raw+Rus x3(ext)
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281511.jpg" />
-</div>
-
-
-###  Подробнее
-
-В литературном клубе старшей школы Сэнко собрались истинные романтики и мечтатели. Президент Саюми скрывает пылкий нрав под маской «книжного червя», шумная Томоё боится признаться, что пишет романы, ее подруга Хатоко настолько простая и добрая, будто не от мира сего, а 10-летней Тифую, племяннице куратора, давно скучно рядом со сверстницами. Ну а живым талисманом (   Читать дальше...   )Жанр: приключения, комедия, мистикаРежиссер: Оцука МасахикоПеревод: Русские субтитры от Timecraft & GMC & OpenDub
-Переводчик/Оформление: atom4ik, Редакторы: Jarly, kievbearСубтитры: ASS, Полные | Надписи (внешними файлами)Формат: MKVПродолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D648ED39A3230ECCF13CA74A786519EA78F7008
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264142   (280478) от 23.11.2018
-
-Bounen no Xamdou | Xam'd: Lost Memories | КсамД: Позабывший невзгоды [2008, Web, 26] WEBRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семнадцать лет назад закончилась кровопролитная война, но мир слишком хрупок. То тут, то там гремят взрывы, которые устраивают беловолосые дети – боги для беженцев из Тессики, убийцы для всех остальных. И вот в небе над островом Сэнтан появляются корабли Северного правительства, знаменуя начало боевых действий.
-
-Жизнь старшеклассника Акиюки и его друзей навсегда (   Читать дальше...   )Производство: Япония BonesЖанр: приключения, фантастика, драмаРежиссер: Миядзи МасаюкиЯзык озвучки: Русский (Cuba 77)Продолжительность: Web (26 эп.), 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D5B7EAFA45B92F969E5AA264DE4870827BA9501
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062289   (279803) от 11.12.2016
-
-Haikyuu!! Karasuno Koukou vs Shiratorizawa Gakuen Koukou / Волейбол!! Старшая Карасуно против академии Сираторидзава [ТВ-3] [2016, TV, 10 ep] WEB-DL 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279803.jpg" />
-</div>
-
-
-###  Подробнее
-
-12-летний Сёё Хината увидел по телевизору несколько матчей – и влюбился в волейбол. Три года парень работал на свою мечту – и в последний год средней школы смог собрать команду и вывести ее на настоящий турнир. А там, понятно, новичков, набранных «с бору по сосенке», побили в первом же круге, причем жуткий разгром им устроил, чуть ли не в одиночку, гениальный плеймейкер (   Читать дальше...   )Жанр: спорт, комедия, повседневностьРежиссер: Мицунака СусумуПеревод: AOS TeamСубтитры: ASS, Встроенные, Полные | Надписи «AOS Team»Формат: MKVПродолжительность: 10 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCC0B453E12BE0136C195F2E8ECE3555691160FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 215529   (274955) от 27.11.2018
-
-Jack to Mame no Ki / Jack and the Beanstalk / Джек в Стране Чудес [1974, Movie] DVDRip raw+ru
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вместо того, чтобы продать единственное имущество их бедной семьи — корову, которая больше не дает молока, Джек умудряется поменять ее на 5 волшебных бобов. Раздосадованная мать выбрасывает бесполезные бобы. Но за ночь они вырастают до небес и Джек вскарабкивается по стеблю вместе со своим верным псом Кросби.
-Там за облаками в огромном замке он встречает прекрасную (   Читать дальше...   )Производство: Nippon Herald Films, Group TACЖанр: приключения, сказка, музыкальныйРежиссер: Сугии ГисабуроЯзык озвучки: Русский, ЯпонскийСубтитры: нетФормат: MKV DVDRipПродолжительность: 98 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94C5AF054DAADE5A570D758D15705D3009E25256
 ```
 
 https://mybot314.ru/tekegram_catalog/

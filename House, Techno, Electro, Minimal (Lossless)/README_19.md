@@ -1,3 +1,32 @@
+###  Публикация: 1385791   (795801) от 27.05.2020
+
+The KLF - Коллекция (1989 - 2010) [FLAC|Lossless|image + .cue] <Deep House, Ambient, Electronic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795801.jpg" />
+</div>
+
+
+###  Подробнее
+
+КЕЙ ЭЛ ЭФ (KLF, сокращенно от Kopyright Liberation Front), английская панк-группа. Была образована в 1987 в Ливерпуле. В ее состав входили: вокалист, гитарист, клавишник и перкуссионист Билл «Кинг Бой Ди» Драммонд (Bill «King Boy D» Drummond) (р. 29 апреля 1953, Баттеруорт, Южная Африка) и вокалист, бас-гитарист и ударник Джимми «Рокмэн Рок» Коти (Jimmy «Rockman (   Читать дальше...   )01. Disaster Fund Collection (12' Mix)
+02. 3 A.M. Eternal
+03. Kylie Said Trance
+04. What Time Is Love? (Instrumental Acid Mix)(   Читать дальше...   )Жанр: Electronic, Ambient, Deep HouseПродолжительность: 17:58:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9682F302DA9751B194BB93642222AC5B7D7558DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200490   (795712) от 21.01.2018
 
 Jaques Le Noir - Deep Mood (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Nu Disco, Club House, Funky>
@@ -6,7 +35,7 @@ Jaques Le Noir - Deep Mood (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Nu 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795712.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - Summer Dance Mania (2010) [FLAC|Lossless|tracks] <Trance, Euro House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795710.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Hed Kandi 2017 (2016) [FLAC|Lossless|tracks] <Deep House, Vocal House, Soul
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795695.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Forteba - Space Between Us (2007) [APE|Lossless|image + .cue] <Deep House, Tech 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795636.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - DJ Зорькин - Приключения Электроника (1998) Ga
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795599.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - club.bit! (mixed by DJ Suhov) (2003) Promotional CD [FLAC|Lossless|tracks +
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795502.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Matthias Meyer - Watergate 20 (2016) [FLAC|Lossless|tracks + .cue] <Deep House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795500.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Advanced Dreams - Collection 4 Releases (2013-2015) [FLAC|Lossless|WEB-DL]<Dub T
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795232.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Speedy J (Jochem Paap, Electric Deluxe, Public Energy, Tune, Problem House, Coll
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795108.jpg" />
 </div>
 
 
@@ -266,7 +295,7 @@ Tears Of Change - Road To Beijing (2015) Rohs! Records [FLAC|Lossless|WEB-DL|tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795071.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ System 7 & Derrick May - Mysterious Traveller (2002) A-Wave [FLAC|Lossless|track
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795068.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ Drexciya - Neptune's Lair (1999) Tresor [FLAC|Lossless|tracks+.cue] <Electro, De
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795064.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ Derrick May - Innovator (1997/2008) R & S Records [FLAC|Lossless|tracks+.cue] <D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795045.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ IsoQuant - Discography 4 Releases (2015-2017) [FLAC|Lossless|WEB-DL|tracks] <Tec
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795019.jpg" />
 </div>
 
 
@@ -407,7 +436,7 @@ Radius - Discography 7 Releases (2017-2018) echospace [detroit] [FLAC|Lossless|t
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794930.jpg" />
 </div>
 
 
@@ -433,7 +462,7 @@ Microworld - Microworld (2004) [FLAC|Lossless|tracks + .cue] <Techno, Deep House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794554.jpg" />
 </div>
 
 
@@ -462,7 +491,7 @@ VA - Defected Presents Sonny Fodera In The House (2016) [FLAC|Lossless|WEB-DL|tr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794351.jpg" />
 </div>
 
 
@@ -491,7 +520,7 @@ NSDOS - Discography 5 Releases (2013-2018) [FLAC|Lossless|WEB-DL|tracks] <Techno
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794165.jpg" />
 </div>
 
 
@@ -520,7 +549,7 @@ Tender H - Sentido Oasis (2018) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794163.jpg" />
 </div>
 
 
@@ -549,7 +578,7 @@ VA - Freshly Picked Vol. 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic Techno 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794161.jpg" />
 </div>
 
 
@@ -578,7 +607,7 @@ Bjorn Torske (Bjørn Torske) - Byen (2018) [FLAC|Lossless|tracks + .cue] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794160.jpg" />
 </div>
 
 
@@ -607,7 +636,7 @@ VA - Electronic Sound Presents Coldcut: The Ninja Mix (2017) [FLAC|Lossless|trac
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793373.jpg" />
 </div>
 
 
@@ -638,7 +667,7 @@ Umami - In Exchange For Everything (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793053.jpg" />
 </div>
 
 
@@ -667,7 +696,7 @@ Voiski - The Bat Who Wanted To See The Sun (2019) Dolly [FLAC|Lossless|WEB-DL|tr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792992.jpg" />
 </div>
 
 
@@ -696,7 +725,7 @@ VA - Hed Kandi: Back To Love (2017) [FLAC|Lossless|tracks] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792879.jpg" />
 </div>
 
 
@@ -710,35 +739,6 @@ VA - Hed Kandi: Back To Love (2017) [FLAC|Lossless|tracks] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2F1271139FAA718120C16A8EAB3F58E77F94328
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201204   (792875) от 24.01.2018
-
-VA - Hed Kandi Beach House (2016) [FLAC|Lossless|tracks] <Funky House, Club House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792875.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ben Delay - The Boy Is Mine (feat Alexandra Prince - Mark Lower remix) [7:02]
-02. NY's Finest - Do You Feel Me (City Soul Project Club mix) [7:14]
-03. O&O Music - Music's Hypnotising [4:22]
-04. Sonny Fodera - Feeling U (feat Yasmin - Deep mix) [6:09](   Читать дальше...   )Жанр: Funky House, Club HouseПродолжительность: 05:52:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EB410304B15554E79EBE76B2B3B1AA641D2856C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1497372   (864290) от 22.09.2021
+
+Arcanum: Of Steamworks and Magick Obscura (2001) [En] (1.0.7.4hf) License GOG
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Промышленная революция в мире магии. Представьте себе чудесное место, где магия и технологии сосуществуют в непростом балансе, и искатель приключений может так же легко владеть кремневым пистолетом, как и пылающим мечом. Место, где в крупных промышленных городах находятся замки и фабрики, где обитают гномы, люди, орки и эльфы. Место древних рун и паровых электростанций, (   Читать дальше...   )Тип издания: LicenseРазработчик: Troika GamesЖанр: RPG, Steampunk, AdventureЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8614647E01921281F8F6F9F33F0FE03AF8128DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109486   (858531) от 27.02.2017
+
+Ultima™ 4: Quest of the Avatar (1985) [En] (1.0) License GOG
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы готовы к воистину эпическому событию? Настоящая веха в истории ролевых игр, Ultima™ IV в 16 раз больше, чем Ultima™ III. В этой игре лорд Бритиш потребует от вас не только концентрации ума и силы, но и твердости характера. Мондейн, Минакс и их дьявольское порождение Эксодус повержены в прах. В Британии воцарился мир. Однако зло все еще живо в темных чащобах...Тип издания: LicenseРазработчик: Origin SystemsЖанр: Ролевая игра, Приключение, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB967306260C4786D0C5C83F90FA7E11F4F29684
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1322652   (857981) от 18.04.2020
 
 The Bard's Tale IV: Director's Cut (2019) [Ru/Multi] (upd4/dlc) Repack xatab [Deluxe Edition]
@@ -6,7 +58,7 @@ The Bard's Tale IV: Director's Cut (2019) [Ru/Multi] (upd4/dlc) Repack xatab [De
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857981.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857521.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Torment: Tides of Numenera (2017) [Ru/Multi] (1.0.1) SteamRip Let'sPlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856684.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Death's Door (2021) [Ru/Multi] (1.1.5) License GOG [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855694.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Stygian: Reign of the Old Ones (2019) [Ru/Multi] (1.1.7) License GOG (обнов
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854466.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ NEO: The World Ends with You (2021) [Multi] (1.00) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852324.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Divinity II (2012) [Ru/En] (1.4.700.49) Repack R.G. Origami [Developer's Cut]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851611.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Baldur's Gate: The Original Saga (1999) [Ru/En] (1.1.4315/1.3.5508/dlc) License 
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851399.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Leap of Fate (2016) [Ru/Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849941.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Guild of Ascension (2021) [Multi] (8) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849065.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Konung Dilogy / Князь Дилогия (1999-2003) [Ru/En] (1.3/1.05) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848226.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Crystal Rift (2016) [En] (1.2.4) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848224.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Ultima 9: Ascension (1999) [En] (1.00) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847941.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Gothic / Готика (2001) [Multi] (1.08j/1.08k) License PROPHET
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847761.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Gothic II: Gold Edition / Готика 2: Золотое издание (2005) [
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847755.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ The Incredible Adventures of Van Helsing (2013) [Ru/Multi] (1.2.73c/7dlc) Repack
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846696.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Iratus: Lord of the Dead (2020) [Ru/Multi] (1.0) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845893.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ BELOW (2018) [Ru/Multi] (1.1.0.82) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845793.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Rustler (2021) [Ru/Multi] (1.02.01) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845705.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Hyper Light Drifter (2016) [En] (1.0) License HI2U
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842493.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ Divinity: Original Sin (2015) [Ru/Multi] (2.0.119.430/dlc) Repack =nemos= [Enhan
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842487.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ Middle-earth Shadow of Mordor / Средиземье Тени Мордора (20
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842441.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ Mana Spark (2018) [Ru/Multi] (1.1.08) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842376.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ Vagrus - The Riven Realms (2021) [En] (1.0.00.1004H) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842212.jpg" />
 </div>
 
 
@@ -616,60 +668,6 @@ Vagrus - The Riven Realms (2021) [En] (1.0.00.1004H) License CODEX
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD1820E80435C144B7C1D45C8E10B2A1BC04E678
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112810   (840852) от 09.03.2017
-
-Atelier Firis: The Alchemist and the Mysterious Journey (2017) [En] (1.0.0.9/dlc) License CODEX
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая игра из серии Mysterious рассказывает историю энергичной девушки Firis Mistlud и ее заботливой старшей сестры Liane Mistlud. Сестры провели всю жизнь в уединенном городке Ertona, где Firis регулярно упражнялась в поиске месторождений кристаллов. Волей случая Firis узнает про Alchemy Exam и решает сделать первый шаг на пути в большой мир, где ей предстоит стать (   Читать дальше...   )Тип издания: LicenseРазработчик: KOEI TECMO GAMES COЖанр: RPG (Japane Style), Third-person, 3D,Язык озвучки: Английский, ЯпонскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D118538B6075632C35C3EF597244E0D953B2DDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 794716   (838482) от 17.03.2015
-
-The Incredible Adventures of Van Helsing II/2 / Van Helsing 2: Смерти вопреки (2014) [Ru/Multi] (1.3.0d/7dlc) Repack R.G. Механики
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838482.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра Van Helsing 2: Смерти вопреки (The Incredible Adventures of Van Helsing II) — это не только коллекция десятка новых карт и монстров, но настоящее продолжение, сохранившее все лучшее из первой игры. Кроме небольших улучшений и доделок, оно также обрело множество новых особенностей.
-
-И еще... Это не совсем особенность, но если вам нравились живые диалоги, развязный юмор и «пасхалки» первой игры, то вы будете счастливы услышать, что в продолжении такого еще больше.Тип издания: RepackРазработчик: Neocore GamesЖанр: Action / RPGЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05EEC8526D26F3DB4488A7017D6641638B13D72C
 ```
 
 https://mybot314.ru/tekegram_catalog/

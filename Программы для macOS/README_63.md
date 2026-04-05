@@ -1,3 +1,58 @@
+###  Публикация: 1400239   (721421) от 04.08.2020
+
+Alarmey 2 v2.0.3d [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Менеджер будильников, который всегда находится на расстоянии одного клика в строке меню. Вы можете использовать его в три быстрых и простых шага:
+1. Нажмите (или используйте горячую клавишу) один раз - добавьте сигнал.
+2. Нажмите (или используйте горячую клавишу) дважды - запланируйте будильник.
+3. Нажмите кнопку списка - проверьте свои будильники, ожидающие и завершенные, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.06.2020Разработчик: NICE APPS.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05D3BE9C451A69DE80DB962B3A3E33DDBBA090E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400247   (721413) от 04.08.2020
+
+Todoey 2: menu bar checklists v2.0.6d [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый простой способ запомнить что-то необходимое. Приложение находится в строке меню, поэтому оно всегда на расстоянии одного клика. Оно отлично вписывается в ваш рабочий стол macOS в темной и светлой темах. Todoey 2 также синхронизируется с помощью iCloud, поэтому вы всегда будете получать резервные копии и обновляться на всех ваших Mac.Тип издания: macOS SoftwareРелиз состоялся: 28.06.2020Разработчик: NICE APPS.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:209D16ED6BC34BACF135DE6B0177F5E6E860E7FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1400387   (721295) от 04.08.2020
 
 Alfred 4 Powerpack 4.1.1 (build1170) [En]
@@ -6,7 +61,7 @@ Alfred 4 Powerpack 4.1.1 (build1170) [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721295.jpg" />
 </div>
 
 
@@ -34,7 +89,7 @@ Kingpin Private Browser 1.3.22 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721289.jpg" />
 </div>
 
 
@@ -61,7 +116,7 @@ SkyLab Studio 2.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721071.jpg" />
 </div>
 
 
@@ -90,7 +145,7 @@ Motion 5.4.1 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721040.jpg" />
 </div>
 
 
@@ -118,7 +173,7 @@ Clearview 2.2.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720957.jpg" />
 </div>
 
 
@@ -144,7 +199,7 @@ Live Home 3D Standard 3.5.4 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720956.jpg" />
 </div>
 
 
@@ -172,7 +227,7 @@ App Icon Generator 1.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720831.jpg" />
 </div>
 
 
@@ -198,7 +253,7 @@ AppCleaner 3.6.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720647.jpg" />
 </div>
 
 
@@ -225,7 +280,7 @@ NCH Pixillion Image Converter 8.59 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720642.jpg" />
 </div>
 
 
@@ -251,7 +306,7 @@ Native Instruments Kontakt 6 v6.7.0 STANDALONE, VSTi, AU [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720529.jpg" />
 </div>
 
 
@@ -277,7 +332,7 @@ Pinegrow Web Editor 6.21 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720412.jpg" />
 </div>
 
 
@@ -304,7 +359,7 @@ Focusey 1.0.1d [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719410.jpg" />
 </div>
 
 
@@ -330,7 +385,7 @@ Pingey 1.0.1d [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719408.jpg" />
 </div>
 
 
@@ -356,7 +411,7 @@ Path Finder 9 v9.4 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718863.jpg" />
 </div>
 
 
@@ -382,7 +437,7 @@ IINA 1.0.2 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718798.jpg" />
 </div>
 
 
@@ -408,7 +463,7 @@ Airtool 2 v2.3.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718726.jpg" />
 </div>
 
 
@@ -434,7 +489,7 @@ Export for iTunes 3.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718717.jpg" />
 </div>
 
 
@@ -460,7 +515,7 @@ Photosign - Batch Watermark 2.1.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718695.jpg" />
 </div>
 
 
@@ -489,7 +544,7 @@ Movavi Video Converter 22 Premium 22.3.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718357.jpg" />
 </div>
 
 
@@ -515,7 +570,7 @@ Milkeddit 1.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718158.jpg" />
 </div>
 
 
@@ -541,7 +596,7 @@ Weather Guru - Accurate Weather Forecasts 1.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718055.jpg" />
 </div>
 
 
@@ -570,7 +625,7 @@ MKVtools 3.7.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717306.jpg" />
 </div>
 
 
@@ -596,7 +651,7 @@ Simbooster Premium 2.9.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716791.jpg" />
 </div>
 
 
@@ -624,7 +679,7 @@ Spillo 2.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716648.jpg" />
 </div>
 
 
@@ -637,62 +692,6 @@ Spillo имеет красивый современный интерфейс, к
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F54679C44E220435798992D79FE6CA88CF5CDE9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532116   (716632) от 18.02.2022
-
-Teorex DupHunter 3.0.1 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716632.jpg" />
-</div>
-
-
-###  Подробнее
-
-DupHunter - поиск и удаление дубликатов фотографий
-DupHunter - небольшая программа от разработчиков TeoreX, которая способна найти дубликаты изображений на ваших дисках или в папках. Программа быстро проведёт поиск фотографий на компьютере и найдёт все дубликаты, при этом оставит только лучшие изображения.
-DupHunter автоматически найдет серии снимков, созданных при (   Читать дальше...   )Тип издания: macOS X SoftwareРелиз состоялся: 15.12.2021Разработчик: © 20011-2021 Maxim GapchenkoПоддерживаемая ОС: macOS X 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12180505D7114C8779F5D8C309B7B73C477A269F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130358   (716531) от 01.05.2017
-
-Membrane Pro - Cover image maker 1.1.1 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716531.jpg" />
-</div>
-
-
-###  Подробнее
-
-Membrane Pro представляет собой приложение, которое легко позволяет создавать обложки для альбомов, Facebook обложки, обложки для канала YouTube, и многое другое.
-
-Выберите шаблон, редактируйте текст и графику. Membrane Pro имеет все необходимое для потрясающих макетов. Красивые шаблоны, бесплатные фотографии высокого разрешения, большие шрифты и многое другое. Простой, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.04.2017Разработчик: Hoyun ChuПоддерживаемая ОС: OS X 10.8 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19C6AA955553B26923EB765356DC6D24EBAADFB8
 ```
 
 https://mybot314.ru/tekegram_catalog/

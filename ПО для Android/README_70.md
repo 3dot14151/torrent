@@ -1,3 +1,107 @@
+###  Публикация: 1563174   (250204) от 12.07.2022
+
+Screen Stream Mirroring Pro 2.7.0c Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250204.jpg" />
+</div>
+
+
+###  Подробнее
+
+Screen Stream Mirroring - многофункциональное приложение для трансляции экрана устройств на базе Android и звука в реальном времени! Приложение позволяет «в прямом эфире» транслировать (дублировать) изображение с экрана на любое устройство или ПК в той же сети - на мультимедиаплееры, веб-браузеры, Chromecast и устройства UPnP и DLNA (Smart TV и другие совместимые (   Читать дальше...   )Тип издания: Patched (Pro)Релиз состоялся: 02.04.2020Разработчик: MOBZAPPЯзык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9346074683C77B498D73C12D4D6FDA89AAF3E6E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429996   (250190) от 12.07.2022
+
+PhotoLayers v4.0.0 [En/Ru] (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Миниатюрное приложение для создание фотоколлажей и всяческих "фотожаб". Поддерживает автоматическое удаление у накладываемого изображения. Безусловно позволяет убирать фон и вручную с помощью инструмента "Умное удаление". Великолепно работает со слоями. Присутствует возможность поделиться полученным коллажем через социальные сети.Тип издания: Пиратка (Mod)Релиз состоялся: 02.07.2022Разработчик: handyCloset Inc.Поддерживаемая ОС: Android 6.0+Язык интерфейса: Английский + русификация
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F720A8449020112105783D7F5642826FE44836DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563504   (250070) от 14.07.2022
+
+Браузер Opera Touch 2.9.6 Mod by AlexxVp [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250070.jpg" />
+</div>
+
+
+###  Подробнее
+
+Opera Touch - новый быстрый браузер с функцией Flow, предлагает более быстрый поиск в интернете и рассчитан на то, чтобы им было удобно пользоваться одной рукой. Как только вы запускаете Opera Touch, браузер сразу же готов к поиску информации в сети. Просто начните поиск или произнесите ваш запрос вслух. Если нужно считать QR-код, сделайте это прямо в приложении (   Читать дальше...   )Тип издания: ModРелиз состоялся: 03.07.2021Разработчик: OperaЯзык интерфейса: Русский, Английский, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5E5DF6D02C0444D8916E9E55E333E15AA47CB4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564353   (249769) от 18.07.2022
+
+Pure Tuber: Block Ads on Video (Ранее. Vanced Tuber) 3.8.0.101 Mod by Valikovrepikov [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249769.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pure Tuber: Block Ads on Video (Ранее. Vanced Tuber) - приложение тире клиент, что станет отличной находкой для всех кто хочет существенно повысить комфорт взаимодействия с известным видеохостингом. Удобное управление, различные интересные идеи в механике воспроизведения, сохранение всех главных и классических функций, отсутствие рекламы, работа с закладками, крайне (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 16.07.2022Разработчик: Pure Tuber StudioЯзык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F661BEF91DADB4820F6D89032DFB6F7A2DEF71D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564614   (249697) от 19.07.2022
 
 OD VPN - Fast & Stable Server Premium v3.5.1 b3501 [Ru/Multi]
@@ -6,7 +110,7 @@ OD VPN - Fast & Stable Server Premium v3.5.1 b3501 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249697.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249393.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249338.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ Seven / 7 Минут Упражнение v9.24.2 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249336.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ Gallery - Photo Gallery, Album (XGallery) v2.0.2 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249335.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ AirBrush: ИИ Фоторедактор v7.19.0 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249333.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ BikeComputer Pro v9.2.4 GP Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249332.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ Remini / Улучшение Фото v3.7.1156.202517454 Mod by Mixroot [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249049.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249046.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ Ventusky: Прогноз погоды v48.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248601.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ BlockSudoku / Кудоку-Вуди Блок v2.6.3 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248599.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248597.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ Talksy: Навык общения v0.1.8 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247855.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ Food.ru: пошаговые рецепты v02.14.00 Mod by vadj [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247853.jpg" />
 </div>
 
 
@@ -375,7 +479,7 @@ Sipnetic v1.1.8 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247837.jpg" />
 </div>
 
 
@@ -402,7 +506,7 @@ Cleaner for WhatsApp / Очиститель для WhatsApp v3.0.0 Mod by TryRoo
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247829.jpg" />
 </div>
 
 
@@ -428,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247828.jpg" />
 </div>
 
 
@@ -454,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247822.jpg" />
 </div>
 
 
@@ -480,7 +584,7 @@ VRadio - Online Radio App v2.8.8 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247821.jpg" />
 </div>
 
 
@@ -506,7 +610,7 @@ WeNote: заметки блокнот планер v6.50 Mod by PieMods [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247820.jpg" />
 </div>
 
 
@@ -532,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247814.jpg" />
 </div>
 
 
@@ -559,7 +663,7 @@ AI Photo Editor Pro - Polish v1.685.235 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247813.jpg" />
 </div>
 
 
@@ -570,114 +674,6 @@ AI Photo Editor Pro - Polish v1.685.235 Mod by Mixroot [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:319B31A1053866BAA5CB02E8F67FBF53D055C07D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440191   (247754) от 06.06.2023
-
-Colorize it v2.1.1 [Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оживите свои старые черно-белые фотографии, раскрасив их с помощью искусственного интеллекта! "Colorize it" - это приложение, которое использует нейронные сети и методы искусственного интеллекта для автоматической раскраски изображений в оттенках серого. Он отлично работает со всеми типами фотографий: полностью полутоновыми, тонированными сепией, частично (   Читать дальше...   )Тип издания: Premium / ModРелиз состоялся: 16.05.2023Разработчик: reAImagineПоддерживаемая ОС: Android 6.0+Язык интерфейса: Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CEB3DBCCA9E6D8CFA9CB213F183B71FDBE7104C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456369   (247706) от 08.06.2023
-
-Русский самогон 2 v5.1 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247706.jpg" />
-</div>
-
-
-###  Подробнее
-
-Расширенная версия приложения "Русский самогон".
-Основные выполняемые функции:Тип издания: Купленная версия с Маркета (Paid) и FreeРелиз состоялся: 13.02.2023Разработчик: Roma ShilovПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6D85A2E3922D76A4E0AE816BC600256954AE987
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467995   (247583) от 14.06.2023
-
-МДС | Модель для Сборки - аудиокниги v19.3 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247583.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Модель для сборки» (сокращённо МДС) - культовая российская радиопередача. Одно из самых известных радиошоу в сегменте авторских программ. Впервые начала выходить на радио в 1995 году. МДС - радиопостановки произведений современной прозы в сопровождении электронной музыки. Приложение является каталогом крупнешего архива МДС mds-club.ru от фанатов с расширенными возможностями: (   Читать дальше...   )Тип издания: Free + AdFree (без рекламы)Релиз состоялся: 05.03.2023Разработчик: Anton BalashovПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:308A529EEBF4EA612BA1B39E8FCFBC6905D68149
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197554   (247438) от 21.06.2023
-
-МТС Music v9.10.0 [Ru]
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альтернатива классической Яндекс Музыке с точно такой же базой музыки, но с немного другим интерфейсом и поддержкой устаревающих устройств. В наличии обширный каталог списков под ваше настроение и разнообразных хитпарадов. Работает хорошо. МТС Music — это 65 миллионов треков, подкасты и радио для абонентов любых операторов.
-
-МТС Music без подписки это:
-• радио и (   Читать дальше...   )Тип издания: ModРелиз состоялся: 09.06.2023Разработчик: MTS PJSCПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:664B8E29E175BB2F86D5B5B9C9E8B36BF60B6855
 ```
 
 https://mybot314.ru/tekegram_catalog/

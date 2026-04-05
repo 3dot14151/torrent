@@ -6,7 +6,7 @@ Charlie Byrd - Midnight Guitar (1957) 1994, Nippon [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103321.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Anita O'Day - My Funny Valentine: Live (1955 - 1959) 2012, Kayo Stereophonic [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103272.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Frank Sinatra & Bing Crosby - The Golden Era Of Jazz Vol. 1 (2006) 2CD [WavPack|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103243.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Jazz Guitar Ultimate Collection, , Vol.1 (1947 - 1960) 10CD, 2024, Fermata 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103237.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Spyro Gyra - Jubilee (2024) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103236.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Art Blakey & The Jazz Messengers - The Complete 3 Blind Mice (1961, 1962) 2CD, 2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103196.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Ken Colyer - Boston Church Service (1972) 1998, GHB Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103185.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Kenny Barron - 1+1+1 (1986) BlackHawk Records [FLAC|Lossless|tracks + .cue] <Har
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103183.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Larry Willis Trio - Just In Time (1989) SteepleChase [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103173.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Michel Sardaby - Blue Sunset (1967) 1990, Mantra [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103172.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - LoFi Chillhop & JazzHop Christmas (Calm Music Session One) (2024) [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103140.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Stan Getz - The Complete 1952-1954 Small Group Sessions, Vol.1 (1952, 1953) Blue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103129.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Don Ellis - Three Classic Albums Plus (1959 - 1962) 2CD, 2018, Avid Jazz [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103105.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Marian McPartland Trio - Live At Shanghai Jazz (2002) [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103068.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Stan Getz - The Complete 1952-1954 Small Group Sessions, Vol.2 (1953) Blue Moon 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103067.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Teddy Wilson - 1947 - 1950 (2002) Classics [FLAC|Lossless|tracks + .cue] <Swing,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102935.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Stu Williamson - Stu Williamson Plays (1956) 1989, Fresh Sound [FLAC|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102934.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Teddy Wilson - Gentleman Of Keyboard (1934 - 1957) 1990, Giants Of Jazz [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102918.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Fusion Classics (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Ro
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102901.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Hubert Laws - The Rite Of Spring (1971) 1991, CBS [WavPack|Lossless|image + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102895.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Bobby Hutcherson - Mirage (1991) Landmark Records [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102891.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Duke Jordan - Three Classic Albums Plus (1955 -1962) 2CD, 2014, Avid Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102887.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Bobby Hutcherson - Skyline (1999) Verve Records [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102864.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Hubert Laws - Carnegie Hall (1973) 2002, CTI Records [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102833.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Jazz Sabbath - The 1968 Tapes (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102827.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Jane Monheit - Jane Monheit (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102804.jpg" />
 </div>
 
 

@@ -1,137 +1,3 @@
-###  Публикация: 906541   (643501) от 09.06.2015
-
-Василий Христофоров, Александр Черепков | Секреты Российского флота. Из архивов ФСБ (2014) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643501.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге на основе уникальных документов из архивов ФСБ рассказывается о самых таинственных событиях в истории Российского флота 1916 — 1945 гг. Читатель узнает новые подробности о гибели «Императрицы Марии», кронштадтских событиях, о противостоянии советской и немецкой морских разведок накануне и в годы Великой Отечественной войны и об участии морской пехоты (   Читать дальше...   )Жанр: Военная историяФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCC518BF81E3BD53BFBB9A4FA1763A643F2282E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905057   (643493) от 09.06.2015
-
-Коллектив авторов Афинского университета | Υπόθεση Γλώσσα [7 книг] (2003, 2004) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643493.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник сборников с более 200 упражнениями, сопровождаемых схемами, таблицами, на разные грамматические темы.Жанр: иностранные языкиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF7B508E955224236358714C19311B70C4B0DED9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032669   (643459) от 08.07.2016
-
-Сергей Матвеев | Английская грамматика за один месяц. Базовый курс (2014) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643459.jpg" />
-</div>
-
-
-###  Подробнее
-
-От издателя: Данное пособие представляет собой базовый курс английской грамматики. В простой и доступной форме даны все грамматические правила английского языка, особенности правописания, сравнительные степени прилагательных и наречий и времена английского глагола. В качестве справочного аппарата в пособии дано большое количество таблиц, облегчающих восприятие материала, (   Читать дальше...   )Жанр: Английский языкФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01BEDA0DBCB8809B0A01918A742946E97DED83BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906463   (643416) от 09.06.2015
-
-Александр Север | СМЕРШ. Битвы под грифом секретно (2015) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643416.jpg" />
-</div>
-
-
-###  Подробнее
-
-Органы СМЕРШ — самый засекреченный орган Великой Отечественной. Военная контрразведка и должна была быть на особом режиме секретности. Десятки имен героев СМЕРШ мы не знаем до сих пор. Об операциях, которые они проводили, не было принято писать в газетах, некоторые из них лишь сейчас становятся известны историкам.
-А ведь в годы Великой Отечественной советским военным (   Читать дальше...   )Жанр: История, Документальная литература, CпецслужбыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:122EABF2DFCBE4F837A1FE35EBE1E600799E6AD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292806   (643371) от 31.03.2019
-
-Задачи марксистов в области естествознания [Выпуск 2] (1929) [PDF]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643371.jpg" />
-</div>
-
-
-###  Подробнее
-
-В апреле 1929 г. (с 8-го по 13-е) в Москве, в стенах Коммунистической академии, происходила Вторая Всесоюзная Конференция Марксистско-Ленинских научных учреждений.
-
-В Конференции приняли участие 229 делегатов, представлявших все сколько-нибудь значительные научно-исследовательские учреждения Москвы, Ленинграда, Харькова, Киева и т. д.
-(   Читать дальше...   )Жанр: История, науковедение, естествознание, философияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2265D5D707EA215361AA632C0ECB2F83E7854563
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292809   (643300) от 31.03.2019
 
 С. Е. Можнягун | О модернизме [2 книги] (1970-1974) [DJVU]
@@ -140,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643300.jpg" />
 </div>
 
 
@@ -166,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643232.jpg" />
 </div>
 
 
@@ -193,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643196.jpg" />
 </div>
 
 
@@ -219,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643189.jpg" />
 </div>
 
 
@@ -247,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643092.jpg" />
 </div>
 
 
@@ -273,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643030.jpg" />
 </div>
 
 
@@ -299,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642963.jpg" />
 </div>
 
 
@@ -325,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642922.jpg" />
 </div>
 
 
@@ -351,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642920.jpg" />
 </div>
 
 
@@ -377,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642832.jpg" />
 </div>
 
 
@@ -405,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642825.jpg" />
 </div>
 
 
@@ -433,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642824.jpg" />
 </div>
 
 
@@ -459,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642822.jpg" />
 </div>
 
 
@@ -485,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642804.jpg" />
 </div>
 
 
@@ -511,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642718.jpg" />
 </div>
 
 
@@ -538,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642716.jpg" />
 </div>
 
 
@@ -564,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642714.jpg" />
 </div>
 
 
@@ -590,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642635.jpg" />
 </div>
 
 
@@ -616,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642604.jpg" />
 </div>
 
 
@@ -643,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642581.jpg" />
 </div>
 
 
@@ -670,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642575.jpg" />
 </div>
 
 
@@ -681,6 +547,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28D18E5B2029D58FEFA3AC997231C6F210163F0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 450766   (642367) от 31.03.2019
+
+В.А. Ацюковский | Трансформатор Тесла: Энергия из эфира (2004) [DJVU]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642367.jpg" />
+</div>
+
+
+###  Подробнее
+
+В продолжение темы об изобретениях Николы Теслы. В данной брошюре рассматривается теория и описана конструкция трансформатора Тесла, который при определенных условиях способен черпать энергию из эфира, то есть превращается в источник дармовой энергии. Ну-ка, радиолюбители, попробуйте - конструкция довольно простая...Жанр: Научно-популярнаяФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B49965BAB19122A0A00AD652729CB83DFBA0D8C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906741   (641709) от 10.06.2015
+
+Патрик Хамфриз | Множество жизней Тома Уэйтса (2009) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первая полноценная биография культового артиста включает все аспекты его богатой творческой деятельности. Проникнуть в душу Тома Уэйтса непросто, и эта книга — серьезный шаг в постижении того, что кроется за сложным характером, богатым набором разнообразных песен и внушительной репутацией киноактера.
+Автор предисловия и перевода — Александр Кан, легендарный музыкальный (   Читать дальше...   )Жанр: Биографии и МемуарыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDC99A59E51C00F523D4BA6CE402DEE16F9995E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906969   (641708) от 10.06.2015
+
+Роман Белоусов | Кровавая карусель (1996) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга — о знаменитых преступниках, ворах, грабителях, о громких судебных процессах и уголовных делах прошлого, которые легли в основу известных художественных произведений.
+Сопоставляя факты и писательский вымысел, автор как бы устраивает очную ставку с представителями преступного мира.
+Перед читателем разверзаются страшные бездны порока, низменных инстинктов (   Читать дальше...   )Жанр: Исторические приключенияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD775BDC50981F7FC4A8614EB5322C9C641AB815
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906826   (641615) от 10.06.2015
+
+О. Вейхельт и др. (сост.) | Книга по русской истории для начальных школ (1919) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641615.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книгe своей мы давали, главным образом, картины бытовой, культурной жизни русского народа, стараясь подыскать для ее изложения живую, красочную, конкретную форму, как болee доступную пониманию учащихся в начальной школe, и в этом отношении шли навстречу известному постановлению съезда учителей городских училищ по Полож. 1872 г.; при чем на ряду с написанием оригинальных (   Читать дальше...   )Жанр: история, культурологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2E3317CA4FBB052FC2C181CB98AE8DD871F4EF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906868   (641511) от 10.06.2015
+
+Б. А. Исаев | Политология в схемах и комментариях (2009) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие написано в соответствии с требованиями Государственного образовательного стандарта РФ по предмету «Политология». В нем в полной мере реализован принцип наглядности в обучении, применение которого поможет видеть каждый изучаемый вопрос в целом и во всех его взаимосвязях, сократить время на изучение, тверже запомнить необходимый материал и успешно сдать (   Читать дальше...   )Жанр: Учебная литература, Студентам и аспирантам, ПолитологияФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC4749686C5203CAA9C7CA5AC9BD1136D6DED208
 ```
 
 https://mybot314.ru/tekegram_catalog/

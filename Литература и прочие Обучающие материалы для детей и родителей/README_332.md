@@ -1,3 +1,55 @@
+###  Публикация: 731529   (297402) от 07.12.2013
+
+Тод Штрассер | Волна (2013) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тод Штрассер (род. 1950) — американский писатель, журналист, автор более 120 произведений для детей и подростков. Всемирная известность пришла к автору после выхода его книги «Волна», которая произвела эффект разорвавшейся бомбы. Книга основана на реальных событиях, произошедших в 1967 году в одной из школ маленького калифорнийского городка. Учитель истории Бен Росс ставит социальный эксперимент, чтобы в игровой форме показать подросткам, что такое нацизм. Сначала все выглядело как непривычное и увлекательное приключение, игра в дисциплину и коллективизм. Однако спустя всего несколько дней Бен Росс осознает, что его ученики, по сути, превратились в образцовых граждан тоталитарного общества.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8D444715894764E3590ABAB44C6C1D141BDBFEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962083   (297236) от 03.12.2015
+
+Елена Кршижановская | Человек решает сам (1975) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ученик 5-го «а» класса Веня Фонарев сегодня занимается в одном кружке, завтра — в другом. Ничем он не интересуется серьезно. Кропотливый труд вызывает в нем скуку и отвращение к любому делу. Но вот мальчик подружился с сыном артиста цирка. Веня увлекается романтической профессией акробата. Но сколько упорства, смелости, ловкости должен проявить человек, желающий (   Читать дальше...   )Жанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA0685BF294970C7B80CFE465C174EE2D90FCC2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 961917   (297228) от 03.12.2015
 
 Джулиана Болдрини | Дети на продажу (1980) [PDF]
@@ -6,7 +58,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297228.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297221.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297213.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297192.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297139.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297114.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297098.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296972.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296887.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296797.jpg" />
 </div>
 
 
@@ -273,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296763.jpg" />
 </div>
 
 
@@ -301,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296635.jpg" />
 </div>
 
 
@@ -327,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296561.jpg" />
 </div>
 
 
@@ -353,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296449.jpg" />
 </div>
 
 
@@ -379,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296390.jpg" />
 </div>
 
 
@@ -405,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296384.jpg" />
 </div>
 
 
@@ -431,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296227.jpg" />
 </div>
 
 
@@ -457,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296169.jpg" />
 </div>
 
 
@@ -483,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296072.jpg" />
 </div>
 
 
@@ -514,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296070.jpg" />
 </div>
 
 
@@ -543,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296069.jpg" />
 </div>
 
 
@@ -569,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296068.jpg" />
 </div>
 
 
@@ -600,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296063.jpg" />
 </div>
 
 
@@ -627,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295947.jpg" />
 </div>
 
 
@@ -638,60 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0C1A224EF324D18FE1BA2AE6FB83D124053BC5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 731737   (295931) от 08.12.2013
-
-Жаклин Уилсон | Дневник Трейси Бикер (1991) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эти добрые, трогательные и веселые повести познакомят вас с девочкой Трейси, ее дневником и ее надеждами.
-Трейси, ужасная хулиганка Трейси Бикер, живет в детском доме и надеется однажды обрести семью. В детский дом пришла писательница Кэм Лоусон. Некий журнал заказал ей статью о жизни несчастных сироток, статью, которая должна вызвать у читателя умиление и жалость. Кэм берет ужасную Трейси из детского дома, и они становятся семьей.Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:060ED19886F02E5AEC5FC0F167B69F25BBD44535
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 731743   (295834) от 08.12.2013
-
-Жаклин Уилсон | Бриллиантовые девочки (2004) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295834.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мартина бесконечно названивает своему Тони, Джуд ввязывается во все драки, а Рошель только и думает, что о шмотках. Когда у тебя такие сестрички, один переезд равен не двум, а двадцати двум пожарам. К тому же мама вот-вот родит ещё одного Бриллиантового ребёнка. Единственная отрада в этом сумасшедшем доме — Фиалка, маленький попугайчик с надписью «Сделано в Китае».
-И все-таки Бриллиантовые девочки — лучше всех!Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDD8C8FD123EE6A34770877786F319DE0D48FFC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

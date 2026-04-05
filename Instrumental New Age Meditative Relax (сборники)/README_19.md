@@ -6,7 +6,7 @@ VA - Инструментальная музыка (2012) vol. № 18 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90674.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - Инструментальная музыка (2012) vol. № 20 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90654.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VA - Инструментальная музыка (2012) vol. № 16 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89857.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - Инструментальная музыка (2012) vol. № 17 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89856.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ VA - Инструментальная музыка (2012) vol. № 13 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89640.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ VA - Инструментальная музыка (2012) vol. № 10 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89282.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ VA - Инструментальная музыка (2012) vol. № 07 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89050.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ VA - Инструментальная музыка (2012) vol. № 05 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88844.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ VA - Инструментальная музыка (2012) vol. № 03 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88841.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ VA - Инструментальная музыка (2012) vol. № 01 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88270.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ VA - Музыка для успокоения и отдыха (2001) [MP3|192 к
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87998.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ DJ Aurm - Compilation Version 2 (2024) [MP3|320 Kbps] <Instrumental, Piano, Elec
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61516.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - Soul Healing Music (2024) [MP3|320 Kbps] <New Age, Ambient, Meditative>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59814.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ VA - Instrumental 79 Compilation (2024) [MP3|320 Kbps] <Instrumental, Sax>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55311.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Hiromi Sano - Compilation (2024) [MP3|320 Kbps] <Instrumental, Sax>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55298.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Chris Spheeris - Compilation (2024) [MP3|320 Kbps] <Instrumental, New Age, Chill
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54687.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ VA - The Mysterious music of the World vol.1 (2024) [MP3|320 Kbps] <Enigmatic, N
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54685.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ VA - The Mysterious music of the World (2024) vol.3 [MP3|320 Kbps] <Enigmatic, N
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54291.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ The Gino Marinello Orchestra - Compilation (2024) [MP3|320 Kbps] <Instrumental, 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54266.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ VA - The Mysterious music of the World (2024) vol.2 [MP3|320 Kbps] <Enigmatic, N
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54079.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ VA - Compilation Easy Listening part 85 (2024) [MP3|320 Kbps] <Instrumental, Eas
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53922.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Sacred Spirit - Native Compilation (2024) [MP3|320 Kbps] <Native American, New A
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53772.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ VA - compilation  part 92 Relaxation (2024) [MP3|320 Kbps] <New Age, Relaxation>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51497.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ VA - part 100 velvet saxophone compilation (2024) [MP3|320 Kbps] <Easy Listening
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49002.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ VA - compilation  part 107 Instrumental  Saxophone (2024) [MP3|320 Kbps] <Instru
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48196.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ VA - compilation  part 106 Instrumental  Saxophone (2024) [MP3|320 Kbps] <Instru
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48195.jpg" />
 </div>
 
 

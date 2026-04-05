@@ -1,3 +1,160 @@
+###  Публикация: 548280   (982753) от 03.01.2014
+
+Black Mesa (2012) [Ru/Multi] (1.0) Repack RG Games
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Black Mesa («Чёрная Меза», ранее известная как Black Mesa: Source) — ремейк культовой компьютерной игры Half-Life 1998 года на движке Source. Представляет собой модификацию для игры Half-Life 2.
+Разработчики намерены воссоздать оригинальную вселенную Half-Life, используя расширенные возможности движка Source, переработать все текстуры, модели и уровни, создать реалистичный геймплей. В игре не будет нового оружия, однако они решили добавить к защитному костюму H.E.V функцию «спринт». Также создатели модификации заявили, что собираются сделать полностью синхронную сюжетную линию, лишь несколько изменив её, не нарушая баланса. Также в игру планируют ввести достижения.(   Читать дальше...   )Тип издания: RepackРазработчик: LeakFreeЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Итальянский, Испанский, Норвежский, Немецкий, ФинскийЯзык интерфейса: Русский, Английский, Итальянский, Испанский, Норвежский, Немецкий, Финский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:614A1EF48F6378F4534B49FCF7EFEA78DAAE1DC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972421   (982626) от 05.01.2016
+
+Project I.G.I. (2000) [Ru/Multi] (1.0) Repack R.G. Revenants
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982626.jpg" />
+</div>
+
+
+###  Подробнее
+
+В игре мы выступаем в роли секретного агента Дэвида Джонса, которому поручают секретное задание по спасению из лап террористов Иосифа Прибоя, по данным спецслужб имеющего информацию о недавнем похищении преступниками атомной бомбы. Постепенно клубок сюжетных хитросплетений развязывается, и мы выходим на след самих террористов, которых и должны в конечном итоге обезвредить.Тип издания: RepackРазработчик: Innerloop Studios и Vision ParkЖанр: Action (Tactical, Shooter), 3D, 1st Person, StealthЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AF2DBA73C33C2878F712B5483B9CDE30DE706F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972068   (982616) от 05.01.2016
+
+Проекты - VideoHive - 3D Portrait (v.1) - 13766531 [AEP]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982616.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для лёгкой реализации анимированных портретов. С помощью данного готового проекта вы сможете с лёгкостью анимировать статичные фотографии(портреты) не прилагая особого труда.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C349126FDD3026E937CBBDB1054C9A1A81464B73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972429   (982606) от 05.01.2016
+
+IGI 2: Covert Strike / I.G.I. 2: Скрытый удар (2003) [Ru/Multi] (1.3) Rip R.G. Revenants
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982606.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дэвид Джонс – бывший десантник специального подразделения SAS, ныне – суперагент секретной организации IGI. Его задача – расстроить планы крупнейшей террористической организации и предотвратить начало Третьей мировой войны. Три его главных союзника – оружие, тактика и маскировка. В его распоряжении – компьютер-картограф из специального оборудования IGI и всевозможные (   Читать дальше...   )Тип издания: RipРазработчик: Innerloop StudiosЖанр: Action (Tactical, Shooter), 3D, 1st Person, StealthЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39B7B40284EF4A0C8074D4291CD1E71B6006EF91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972390   (982599) от 05.01.2016
+
+Про Любовь (2015) WEB-DLRip [H.264]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982599.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое любовь? На этот вопрос пытаются ответить герои фильма. Вереница самых разных персонажей и историй переплетаются в этом фильме. Маленькие истории о самом разном и все о любви: молодая пара, предпочитающая жить в образах японских аниме-героев; секретарша, получившая непристойное предложение от своего босса; японка, приехавшая в Москву в поисках русского мужчины; (   Читать дальше...   )Производство: Россия, Кинокомпания «Магнум»Жанр: КомедияРежиссер: Анна МеликянАктеры: Рената Литвинова, Михаил Ефремов, Мария Шалаева, Василий Ракша, Юлия Снигирь, Владимир Машков, Алексей Филимонов, Евгений Цыганов, Александра Бортич, Мария ДанилюкПеревод: Не требуется (русский) iTunesПродолжительность: 01:55:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2102F15FFB8923135D14273DE283B8FD2227721
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 844606   (982597) от 05.01.2016
+
+Metal War Online: Retribution (2013) [Ru] (1.0.5.0.0.2064) Repack Irenis
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982597.jpg" />
+</div>
+
+
+###  Подробнее
+
+Metal War Online - это клиентская сессионная MMO-игра в Sci-Fi сеттинге. Cобытия, захлестнувшие мир MWO, основаны на противостоянии двух крупнейших корпораций Global Resource Network и Morgan Industries. Обе структуры боролись за особые месторождения, позволяющие производить синтетическую кровь невиданных доселе качества и свойств.Тип издания: RepackРазработчик: GD-Team LtdЖанр: MMO Action, RacingЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:573015A813870FEBD588E8FDB30F24C766FF8403
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972028   (982591) от 05.01.2016
 
 The Witcher 2: Assassins of Kings / Ведьмак 2: Убийцы королей (2011) [Ru/Multi] (3.4.4.1/dlc) Repack =nemos= [Enhanced Edition]
@@ -6,7 +163,7 @@ The Witcher 2: Assassins of Kings / Ведьмак 2: Убийцы короле�
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982591.jpg" />
 </div>
 
 
@@ -33,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>59
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982544.jpg" />
 </div>
 
 
@@ -61,7 +218,7 @@ Vit Registry Fix Pro 12.5.0 RePack (& portable) by KpoJIuK [MULTi / Русски
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982145.jpg" />
 </div>
 
 
@@ -89,7 +246,7 @@ Dead Space 3 [XBOX360] [PAL] [Ru] [LT+2.0] (XGD3 / 15574) 2013 | R.G.X360CLUB
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982137.jpg" />
 </div>
 
 
@@ -117,7 +274,7 @@ Dead Space 3 [XBOX360] [PAL] [Ru] [LT+3.0] (XGD3 / 15574) (2013) | R.G.X360CLUB
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982127.jpg" />
 </div>
 
 
@@ -145,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981960.jpg" />
 </div>
 
 
@@ -171,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981895.jpg" />
 </div>
 
 
@@ -197,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981887.jpg" />
 </div>
 
 
@@ -223,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981875.jpg" />
 </div>
 
 
@@ -249,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981874.jpg" />
 </div>
 
 
@@ -275,7 +432,7 @@ Starbound (2016) [Ru/En] (1.4.4) Repack Other s
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981873.jpg" />
 </div>
 
 
@@ -301,7 +458,7 @@ Mars 2030 - система виртуальной реальности, кото
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981555.jpg" />
 </div>
 
 
@@ -327,7 +484,7 @@ Microsoft отчиталась о 200 миллионах устройств на
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981457.jpg" />
 </div>
 
 
@@ -353,7 +510,7 @@ Emsisoft Anti-Malware 11.0.0.6054 Final [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981454.jpg" />
 </div>
 
 
@@ -379,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>24
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981431.jpg" />
 </div>
 
 
@@ -412,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981354.jpg" />
 </div>
 
 
@@ -438,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981352.jpg" />
 </div>
 
 
@@ -464,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981351.jpg" />
 </div>
 
 
@@ -490,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981350.jpg" />
 </div>
 
 
@@ -516,7 +673,7 @@ Rosetta Stone | Rosetta Stone TOTALe v4.5.5-41188. English (British & American L
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981349.jpg" />
 </div>
 
 
@@ -527,163 +684,6 @@ Rosetta Stone | Rosetta Stone TOTALe v4.5.5-41188. English (British & American L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC7F4FA1194FA1824B0C1283C5EE3A0B7FFCB265
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972552   (981348) от 06.01.2016
-
-Стажёр / The Intern (2015) BDRip [H.264/1080p]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981348.jpg" />
-</div>
-
-
-###  Подробнее
-
-70-летний вдовец Бен Уитакер обнаруживает, что выход на пенсию — еще не конец. Пользуясь случаем, он становится старшим стажером в интернет-магазине модной одежды под руководством Джулс Остин.Производство: СШАЖанр: Комедия, мелодрамаРежиссер: Нэнси МайерсАктеры: Роберт Де Ниро, Энн Хэтэуэй, Рене Руссо, Андерс Холм, ДжоДжо Кушнер, Эндрю Рэннеллс, Адам Дивайн, Зак Перлман, Джейсон Орли, Кристина Шерер, Нат Вулф, Линда Лавин, Селия Уэстон, Стив Винович, С.Дж. Уилсон, Мэри Кэй Плэйс, Эрин Маккей, Кристина Брукато, Уоллис Карри-Вуд, Молли БернардПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 02:01:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:377F924787767CC5F1876A8EA7FD7B7EF985C646
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972503   (981347) от 06.01.2016
-
-Microsoft: пользователи остаются на Windows 7 на свой страх и риск
-
->>3
->>28
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981347.jpg" />
-</div>
-
-
-###  Подробнее
-
-Операционная система Windows 7 по-прежнему установлена на 55 % всех находящихся в эксплуатации компьютеров, и Microsoft выражает по этому поводу беспокойство. Как заявил директор корпорации по маркетингу Крис Капоссела (Chris Capossela) в интервью Windows Weekly, пользователи, выбирающие Windows 7, делают это на свой страх и риск.«Нас беспокоит, что люди работают (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972290   (981346) от 06.01.2016
-
-Adobe Master Collection CC 2015 RUS/ENG Update 2
-
->>3
->>9
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981346.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как, надеюсь, вам известно, пакета Adobe Master Collection CC 2015 в природе не существует, компания Adobe его никогда не выпускала. Но, тем не менее, он перед вами! Я очень постарался, чтобы этот пакет появился на свет. Он представляет из себя сборник программ линейки Creative Cloud 2015, объединенный единым инсталлером. Выглядит все очень похоже на старый добрый (   Читать дальше...   )Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEC9915053B0618BB61A6B62D179AAD70547D102
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970664   (981344) от 06.01.2016
-
-Он – дракон (2015) WEB-DL [H.264/1080p-LQ]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981344.jpg" />
-</div>
-
-
-###  Подробнее
-
-В разгар свадьбы княжну Мирославу похищает дракон, унося в свой замок на острове. В прошлом остались родные, жених, теперь только каменный плен в компании прекрасного Армана… но кто он и как оказался на острове? Мира поймет это слишком поздно: любовь к нему, человеку-дракону, откроет ей горькую истину — любить страшно.Производство: Россия / Базелевс ПродакшнЖанр: ФэнтезиРежиссер: Индар ДжендубаевАктеры: Мария Поезжаева, Матвей Лыков, Станислав Любшин, Иева Андреевайте, Петр Романов, Андрей Лебединский, Марта Тимофеева, Иво Господинов, Егор Зубарчук, Виктория РунцоваПеревод: Не требуется (русский) iTunesПродолжительность: 01:46:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:233DA269ECF38DF54238FF53AA86B79453F065F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355380   (980747) от 28.01.2020
-
-Сто секунд до Судного дня. Ученые прогнозируют глобальную катастрофу
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980747.jpg" />
-</div>
-
-
-###  Подробнее
-
-В четверг, 23 января, физики, в том числе несколько Нобелевских лауреатов, перевели так называемые часы Судного дня на 20 секунд вперед. Этот проект, придуманный в 1947 году Альбертом Эйнштейном, отражает вероятность глобальной катастрофы, в результате которой человечество может исчезнуть с лица Земли. По словам ученых, из-за неспособности мировых лидеров справиться (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355573   (980746) от 28.01.2020
-
-Налоговая служба получила доступ к информации о всех телефонных звонках
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980746.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несмотря на протесты «большой тройки»: «Мегафона», «Билайна» и МТС — 23 января Арбитражный суд Москвы опубликовал решение о том, что мобильные операторы обязаны делиться информацией с ФНС. И для этого даже не нужно решение суда. Какие данные уже доступны налоговикам и зачем им ещё и детализация звонков?
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

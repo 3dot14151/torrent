@@ -1,3 +1,134 @@
+###  Публикация: 1266681   (269075) от 03.12.2018
+
+Совершеннолетие / Age of Consent (1969) HDRip [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269075.jpg" />
+</div>
+
+
+###  Подробнее
+
+Брэдли Морахэн — знаменитый австралийский художник, выплачивающий большие алименты, готовится к отъезду на родину. Он направляется на Большой Барьерный Риф, чтобы поселиться в полуразрушенной хижине на острове своей мечты недалеко от материка. Живут на этом острове еще только пропитанная джином старуха, похожая на ведьму, ее внучка Кора и Изабель Марли изголодавшаяся (   Читать дальше...   )Производство: Австралия / Nautilus ProductionsЖанр: Драма, Мелодрама, КомедияРежиссер: Майкл ПауэллАктеры: Джеймс Мэйсон, Хелен Миррен, Джек МакГоурэн, Нева Кар-Глэн, Андония Катсарос, Майкл Бодди, Харольд Хопкинс, Слим ДеГрей, Макс Мелдрам, Фрэнк ТрингПеревод: Любительский одноголосый (Гундос)Продолжительность: 01:46:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E4C0BF23D4116CA58E1E654C293BBE8A2912626
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338739   (268748) от 16.11.2019
+
+Война мутантов / Mutant War (1988) BDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268748.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой сражается против злодея, создающего мутантов с целью захвата мира. Но, увы, все мутанты мужского пола, так что для размножения им требуются обычные девушки, которых они похищают и утаскивают к себе на базу. Спасать похищенных и отправляется наш герой.
+Продолжение фильма Бретта Пайпера "Битва за потерянную планету".Производство: США / Cinevest Entertainment GroupЖанр: Боевик, ФантастикаРежиссер: Бретт ПайперАктеры: Кэмерон Митчелл, Мэтт Митлер, Дебора Квейл, Кристин ВатерманПеревод: Авторский, Вячеслав КотовСубтитры: Английские (Full, SDH)Продолжительность: 01:21:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:830F0A0C4A3A2D0E1E10DB5A36D6E9841939A189
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190227   (268730) от 08.12.2017
+
+Глазастые существа / Eye Creatures (1965) DVDRip [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268730.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пока одни военные гоняются за летающими тарелками, другие военные тратят время на подглядывания за подростками, обжимающимися в машинах поздней ночью. В одну из таких ночей злобные инопланетяне и высаживаются в деревенской глуши…Производство: Azalea PicturesЖанр: Фантастика, Приключения, КомедияРежиссер: Ларри БьюкэнэнАктеры: Джон Эшли, Синтия Халл, Чет Дэвис, Билл Пек, Этан Аллен, Нэйтан Уайл, Боб Кауэн, Тони ХьюстонПеревод: Одноголосый закадровый
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6203917645041AC2FE7C85D02B5CD64CA650C5C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338720   (268713) от 16.11.2019
+
+Аллан Куотермейн и потерянный город золота / Allan Quatermain and the Lost City of Gold (1986) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение фильма «Копи царя Соломона». Герой возвращается в Африку в поисках своего брата, идущего по следам затерянного белого племени.Производство: США, Израиль / Golan-Globus Productions Ltd.Жанр: Боевик, Комедия, ПриключенияРежиссер: Гэри НельсонАктеры: Ричард Чемберлен, Шэрон Стоун, Джеймс Эрл Джонс, Генри Сильва, Роберт Доннер, Догми Ларби, Эйлин Марсон, Кассандра Петерсон, Мартин Раббетт, Рори КилалеаПеревод: Многоголосый профессиональный, двуголосый профессиональный, авторскийСубтитры: АнглийскиеПродолжительность: 01:39:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D57E3F92F0A6EC20FAAF9E9BCD6BA7CD74F542F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189588   (268517) от 08.12.2017
+
+Путешествие на Китеру / Taxidi sta Kythira (1984) BDRip [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268517.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре сюжета одна из самых траги­ческих страниц новейшей истории Греции — гражданская война конца сороковых годов и судьбы сотен ты­сяч греков, вынужденных бежать от преследования в СССР и другие страны «социалистического лагеря».Производство: Греция, Италия, Великобритания, Германия (ФРГ) / Channel 4 Television Corporation, Greek Film Center, Greek Television ET-1Жанр: ДрамаРежиссер: Тео АнгелопулосАктеры: Манос Катракис, Маири Хронопулу, Дионисис Пападжианнопулос, Дора Воланаки, Джулио Броджи, Гиоргос Нецос, Атинодорос Прусалис, Майкл Яннатос, Василис Цаглос, Деспоина ГерулануПеревод: Одноголосый закадровый, авторский (Антон Алексеев)Субтитры: отсутствуютПродолжительность: 02:19:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28A394BB170F2169B56C79606FB2273B00203009
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1266815   (268344) от 04.12.2018
 
 Зомби 2 (Пожиратели плоти) / Zombi 2 (Zombie Flesh Eaters) (1979) BDRip [AVO]
@@ -6,7 +137,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268344.jpg" />
 </div>
 
 
@@ -33,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268334.jpg" />
 </div>
 
 
@@ -59,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268250.jpg" />
 </div>
 
 
@@ -85,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_268249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_268249.jpg" />
 </div>
 
 
@@ -111,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268137.jpg" />
 </div>
 
 
@@ -137,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267730.jpg" />
 </div>
 
 
@@ -164,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267612.jpg" />
 </div>
 
 
@@ -190,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267592.jpg" />
 </div>
 
 
@@ -216,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267472.jpg" />
 </div>
 
 
@@ -242,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267432.jpg" />
 </div>
 
 
@@ -268,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267063.jpg" />
 </div>
 
 
@@ -294,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266917.jpg" />
 </div>
 
 
@@ -321,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266840.jpg" />
 </div>
 
 
@@ -347,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266838.jpg" />
 </div>
 
 
@@ -373,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266828.jpg" />
 </div>
 
 
@@ -399,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266658.jpg" />
 </div>
 
 
@@ -425,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266657.jpg" />
 </div>
 
 
@@ -451,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266653.jpg" />
 </div>
 
 
@@ -477,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266577.jpg" />
 </div>
 
 
@@ -503,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266147.jpg" />
 </div>
 
 
@@ -529,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265928.jpg" />
 </div>
 
 
@@ -540,136 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6D87A3BA1EEDA1D0AA87B605526160CA67C6A2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190849   (265851) от 11.12.2017
-
-Заговор «Параллакс» / The Parallax View (1974) WEB-DLRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265851.jpg" />
-</div>
-
-
-###  Подробнее
-
-По роману Лорен Сингер. Репортер Джо Фрэйди случайно оказался одним из свидетелей убийства политического деятеля. Когда остальные семь очевидцев преступления один за другим умирают при загадочных обстоятельствах, наш герой начинает сомневаться в истинности официальной версии, гласящей, что убийство - дело рук одиночки-психопата. Джо начинает мерещиться целая группировка (   Читать дальше...   )Производство: США / Doubleday Productions, Gus, Harbor ProductionsЖанр: Триллер, ДрамаРежиссер: Алан Джей ПакулаАктеры: Уоррен Битти, Пола Прентисс, Уильям Дэниелс, Уолтер МакДжинн, Хьюм Кронин, Келли Тордсэн, Чак Уотерс, Эрл Хиндмэн, Уильям Джойс, Бетти Мюррэй, Билл МакКинни, Джо Энн Харрис, Тэд Геринг, Ли Пулфорд, Дория Кук-Нельсон, Джим ДэвисПеревод: Многоголосый закадровый, Двуголосый закадровыйСубтитры: Английские (отдельным файлом)Продолжительность: 01:42:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74436A7317F3DA120DA86858AFC997D2A3BFA071
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190965   (265846) от 11.12.2017
-
-Турист поневоле / The Accidental Tourist (1988) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265846.jpg" />
-</div>
-
-
-###  Подробнее
-
-После смерти сына, Мэкон Лири, путешествующий писатель, не живет, а существует. Жена Мэкона, кажется, тоже испытывает душевные муки и, не в силах больше бороться за свой брак, решает, что им будет лучше расстаться. После расставания Мэкон встречает удивительную и немного эксцентричную молодую женщину, которая вновь возвращает его к жизни. Но она ли ему нужна?Производство: США / Warner Bros. PicturesЖанр: Драма, МелодрамаРежиссер: Лоуренс КэзданАктеры: Уильям Хёрт, Кэтлин Тёрнер, Джина Дэвис, Эми Райт, Дэвид Огден Стайерз, Эд Бегли мл., Билл Пуллман, Роберт Хай Гормен, Брэдли Мотт, Сет ГрэйнджерПеревод: Двуголосый закадровый (iTunes Russia)Субтитры: Русские (полные, форсированные), английскиеПродолжительность: 02:01:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B984A3E9A4D87075E9F1E27E2BB866D16ACB2E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267639   (265722) от 07.12.2018
-
-В то же время, в следующем году / Same Time, Next Year (1978) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие начинается в 1951 году на курорте в Северной Калифорнии. Дорис, 24-летняя домохозяйка из Окленда, и Джордж, 27-летний бухгалтер из Нью-Джерси, знакомятся за ужином, сходятся ближе, и возникает любовный роман. На следующее утро они просыпаются в одной кровати, говорят о том, что произошло, оба осознают, что, когда они оба будут счастливо женаты с шестью детьми (   Читать дальше...   )Производство: США / The Mirisch Corporation, Universal PicturesЖанр: Драма, Мелодрама, КомедияРежиссер: Роберт МаллиганАктеры: Эллен Бёрстин, Алан Алда, Иван Бонар, Берни Каби, Космо Сардо, Дэвид Норткатт, Уильям КантреллПеревод: Профессиональный (двухголосый закадровый)Субтитры: АнглийскиеПродолжительность: 01:58:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:802045273C158E75111D2BA52E9E00D5B94D3895
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 120404   (265680) от 11.12.2017
-
-Колодец смерти / The Dead Pit (1989) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доктор Ремзи проводил бесчеловечные опыты с пациентами психиатрической клиники, за что и был убит коллегой доктором Сваном в своей подземной лаборатории. Спустя двадцать лет в ту же клинику попадает девушка по имени Джейн. Она не сумасшедшая, просто у нее отказала память. В лечебнице у девушки начинаются кошмары и видения, но это только начало того ужаса, в который (   Читать дальше...   )Жанр: УжасыРежиссер: Бретт ЛеонардАктеры: Джереми Слейт, Шерил Лоусон, Стефен Грегори Фостер, Дэнни ГокнауэрПеревод: Одноголосый закадровыйПродолжительность: 1:37:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC1549E5626D5D9DD6C1E3ED79530608384D85F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339644   (265325) от 20.11.2019
-
-Кот / Il gatto (1977) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265325.jpg" />
-</div>
-
-
-###  Подробнее
-
-Амадео и Офелия — брат и сестра средних лет, вместе проживающие в старом доме. Из дома начинают выселять жильцов. Герои не хотят уезжать, а когда умирает их любимый кот, талисман их жизни, оба они меняются: Амадео начинает ухаживать за молодой Вандой, а Офелия обольщает священника Дона Пеззоллу. Тем временем полиция ищет убийцу кота.Производство: Италия, Франция / Rafran CinematograficaЖанр: КомедияРежиссер: Луиджи КоменчиниАктеры: Уго Тоньяцци, Марианджела Мелато, Мишель Галабрю, Далила Ди Лаззаро, Жан Мартен, Альдо Реджани, Адриана Инноченти, Филипп Леруа, Армандо Бранча, Марио БрегаПеревод: Двуголосый профессиональный, Тоникс МедиаСубтитры: ОтсутствуютПродолжительность: 01:45:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DF329C8E880FBBCD823144CCF0063227DC479A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

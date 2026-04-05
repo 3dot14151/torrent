@@ -6,7 +6,7 @@ VA - NRJ Beach Party (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518186.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Paul McCartney - Paul Is Live (2019) Original Release Date: 8 Nov. 1993 (Digital
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518081.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - NOW 100 Hits Car Songs (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517968.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Lauren Christy - Lauren Christy (1994) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517350.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Jess Glynne - I Cry When I Laugh (2015) Deluxe Edition [MP3|320 кб/с]<Pop, Da
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517312.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Classic Pop - The Ultimate Collection (5CD) (2018) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516118.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - 80's Hits (2022) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515523.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ One Dove - Morning Dove White (1993) [MP3|256 кб/с]<Trip-Hop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515298.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Sunshine Live Vol. 65 (2018) 3CD [MP3|320 Kbps] <Tropical, Indietronica, Ba
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515122.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - 101 Hits: Festival Headliners (2018) 5CD [MP3|320 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515048.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Thompson Square - Just Feels Good (2013) Deluxe Edition[MP3|320 кб/с]<Pop, Po
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514096.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Johan Timman - Trip Into The Body (1981) Audio Works, Reissue CD, 1993 [MP3|320 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513896.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Brainstorm - Another Still Life (English version) (2012) [MP3|320 kbps] <Indie-R
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513362.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ VA - Kiss Kiss Play Summer (2019) [Explicit] [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512791.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ David Dundas - 2 Albums (1977, 1978) LP [MP3|320 Kbps] <Pop, Rock, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512520.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Barbra Streisand - Rose Of New York City: Barbra, 1961-1962 Live Recordings (202
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512505.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ VA-Jennifer Lopez & Shakira - Battle (2012) [MP3|320 кб/с]<Pop, dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512226.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Andrea Schroeder - Blackbird (2012) [MP3|320 Kbps] <Pop-Nuar>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510981.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Andrea Schroeder - Where The Wild Oceans End (2014) [MP3|320 Kbps] <Pop-Nuar>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510977.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Bad Boys Blue - 25 Best Songs (2012) [MP3|320 кб/с]<Euro Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510318.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Lara Fabian - Greatest Hits (2010) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510236.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Brooklyn Funk Essentials - Funk Ain't Ova (2015) [MP3|320 кб/с]<Funk, Acid Ja
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509275.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Modern Talking - The First Album & The Second Album (30th Anniversary Limited Sp
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509003.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ Halsey - BADLANDS (2015) Deluxe Edition [MP3|320 кб/с]<Indie Pop, Electronic>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508926.jpg" />
 </div>
 
 
@@ -726,7 +726,7 @@ Roxette - It's Possible (Unofficial Release) & The Sweet Hello, The Sad Goodbye 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507465.jpg" />
 </div>
 
 
@@ -761,7 +761,7 @@ Michael Jackson - Memorial (2019) 2CD [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505006.jpg" />
 </div>
 
 

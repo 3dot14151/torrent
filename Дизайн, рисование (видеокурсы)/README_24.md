@@ -1,3 +1,57 @@
+###  Публикация: 1501165   (837752) от 08.10.2021
+
+Schoolism, Sonja Christoph | Introduction to Blender 2.9 (2021) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Моделирование, живопись, анимация, симуляция, рендеринг... есть что-нибудь, чего вы НЕ МОЖЕТЕ сделать в Blender?
+Возможности кажутся бесконечными, и 3D-инструменты, такие как Blender, сделали визуальное повествование еще более доступным для художников, а также предоставили художникам инструменты, необходимые им для создания 3D-арта высокого уровня, к которому сегодня (   Читать дальше...   )Производство: SchoolismЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 07:26:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:545D72F2DA9B6A98969B86BA551577C8EC4F0239
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500252   (837643) от 08.10.2021
+
+Learn Squared, Joe Garth | Unreal Environments with Unreal expert Joe Garth (2020) PCRec [EN, RU]
+
+>>След.
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837643.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создавайте миры в реальном времени.
+Создавайте красивые, реалистичные миры в Unreal Engine 4 под руководством Джо Гарта, одного из лучших художников индустрии в реальном времени. Поработав над такими проектами, как Quixel's Rebirth и Crysis, Джо научит вас всему, что вам нужно знать, чтобы начать работу с окружением в Unreal.Производство: Learn SquaredЖанр: 3D моделирование, Разработка игрЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 13:14:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A96C6DA8E4EBF0244FB4D8944DCABB8B2AA84F61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501084   (837631) от 08.10.2021
 
 Яндекс.Практикум | Профессия Дизайнер интерфейсов (2021) WEB-DL [Части 1-7 из 7] [AD]
@@ -6,7 +60,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837631.jpg" />
 </div>
 
 
@@ -34,7 +88,7 @@ Learn Squared, Joe Garth | Unreal Environments with Unreal expert Joe Garth (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836278.jpg" />
 </div>
 
 
@@ -61,7 +115,7 @@ Alex Crow | Большой пак с 9 видеоуроками (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836142.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ kalachevaschool, Вера Соколова | Согревающие пожела
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835115.jpg" />
 </div>
 
 
@@ -113,7 +167,7 @@ kalachevaschool, Татьяна Чулюскина | Антиква и скри�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835114.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ kalachevaschool, Анна Цымбал | Надпись на стекле (2018)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835110.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ kalachevaschool, Вера Соколова | Новогодний девиз (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835109.jpg" />
 </div>
 
 
@@ -192,7 +246,7 @@ kalachevaschool, Анастасия Ермакова | Горное пастби
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835108.jpg" />
 </div>
 
 
@@ -218,7 +272,7 @@ kalachevaschool, Анна Цымбал | Оформление предметов
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_835107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_835107.jpg" />
 </div>
 
 
@@ -245,7 +299,7 @@ kalachevaschool, Анастасия Ермакова | Закат на горн�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835044.jpg" />
 </div>
 
 
@@ -272,7 +326,7 @@ kalachevaschool, Татьяна Чулюскина | Книжка-расклад
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_835042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_835042.jpg" />
 </div>
 
 
@@ -299,7 +353,7 @@ kalachevaschool, Татьяна Чулюскина | Шрифтовой колл
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835041.jpg" />
 </div>
 
 
@@ -325,7 +379,7 @@ kalachevaschool, Анастасия Ермакова | Звездная ночь
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835040.jpg" />
 </div>
 
 
@@ -352,7 +406,7 @@ kalachevaschool, Анна Цымбал | Меловой леттеринг (2018
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834966.jpg" />
 </div>
 
 
@@ -379,7 +433,7 @@ kalachevaschool, Дарья Остапенко | Живописный рисун
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834948.jpg" />
 </div>
 
 
@@ -405,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834403.jpg" />
 </div>
 
 
@@ -431,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834317.jpg" />
 </div>
 
 
@@ -457,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833452.jpg" />
 </div>
 
 
@@ -486,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833070.jpg" />
 </div>
 
 
@@ -515,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833028.jpg" />
 </div>
 
 
@@ -543,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832797.jpg" />
 </div>
 
 
@@ -569,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832789.jpg" />
 </div>
 
 
@@ -595,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832787.jpg" />
 </div>
 
 
@@ -621,7 +675,7 @@ CGMA, Niels Prayer | Organic Design in Houdini (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831559.jpg" />
 </div>
 
 
@@ -632,59 +686,6 @@ CGMA, Niels Prayer | Organic Design in Houdini (2018) PCRec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF3E73FB35E6DC9D1A58BB21088510FC560C4F91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501639   (829540) от 13.10.2021
-
-FlippedNormals, Maria Puchkova | Real-Time Hair Tutorial (2021) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829540.jpg" />
-</div>
-
-
-###  Подробнее
-
-2 года назад я решила освоить груминг в реальном времени. Я просмотрела каждое видео на YouTube и купила множество курсов, но всё равно в моих знаниях и навыках было много пробелов. Годы отраслевой практики и большая работа помогли мне разобраться во всех моих вопросах и найти решения наиболее распространённых проблем.
-Создание волос в реальном времени расширило (   Читать дальше...   )Производство: FlippedNormalsЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 05:49:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0B9C315ADDDF5A97EB09F1B2A7DB3C7C8A8FEEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381154   (829174) от 05.05.2020
-
-Константин Тимофеев | Blender для всех. Основы работы в редакторе (2019) PCRec [H.265/1080p-LQ]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829174.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фундаментальный авторский видеокурс, рассказывающий об основах работы в 3d редакторе Blender.Производство: grafikana.ruЖанр: Обучающее видеоПродолжительность: 05:50:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8CCA634879565547C19081DC83E5377A16CC550
 ```
 
 https://mybot314.ru/tekegram_catalog/

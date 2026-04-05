@@ -6,7 +6,7 @@ BookMacster 2.12.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502766.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Darkroom: Photo & Video Editor 6.0.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502715.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ TunesKit AceMovi Video Editor 4.9.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502710.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Iridient Developer 3.7.1 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502709.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Color Wheel 7.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502706.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ KCNcrew Pack 07-15-22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502705.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ TG Pro (Temperature Gauge Pro) 2.71 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502611.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Mp3tag 1.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502609.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ ON1 NoNoise AI 2022.5 v16.5.1.12526 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502602.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ ON1 Effects 2022.5 v16.5.1.12526 U2B [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502600.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ ON1 HDR 2022.5 v16.5.1.12526 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502496.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ SwitchResX 4.12.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502493.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ ON1 Resize AI 2022.5 v16.5.1.12526 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502487.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ PictureCode Photo Ninja 1.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502144.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Alfred PowerPack 5.0.1 Pre-release [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501736.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ xSearch for Safari 1.8.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501734.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Music Tag Editor Pro 7.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501733.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Boxy SVG 3  v3.86.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501728.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Aiseesoft Mac Screen Recorder 2.1.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501678.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Vinegar 2.3.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501669.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ YT Saver Video Downloader & Converter 5.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501583.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Photomatix Pro 5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501072.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ MetaImage  2.0.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500677.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Stats 2.7.26 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500675.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ future.dj pro - mix everything 1.11.0 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500668.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ VideoDuke 2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500666.jpg" />
 </div>
 
 

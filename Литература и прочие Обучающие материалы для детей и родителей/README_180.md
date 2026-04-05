@@ -1,3 +1,58 @@
+###  Публикация: 509866   (671782) от 13.06.2012
+
+Бумажное моделирование | Canon. Объемные фигурки из бумаги (2007) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Настольные игры и Поделки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_671782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вашему вниманию представляется очередная подборка объемных моделей для детского творчества, намного обширнее по объему, чем предыдущая. Все что вам нужно сделать - это распечатать на листе А4 выбранный pdf и приступить к вырезанию, сгибанию, склейке и сборке очередной фигурки! Вы сможете собрать целую коллекцию фигурок животных, птиц, динозавров, различных транспортных средств(автомобилей, мотоциклов, самолетов, танков) и известных архитектурных сооружений! В наличии имеются как совсем простенькие модели, так и настолько сложные, что и взрослый человек провозится минимум день! Наверняка вы найдете что-нибудь на свой вкус!
+
+Советы для новичков и детей как легко собрать и склеить бумажную модель:
+Распечатай, вырежи, склей. Бумажные модели.Жанр: Поделки из бумагиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:260D40DD7ACBDA523CD1BFC00812EC388B53106B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223736   (671643) от 06.05.2018
+
+Фрэнк О'Коннор, Брайан Фрил | Протест настоящего мужчины (1981) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671643.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник из семи рассказов известного ирландского прозаика Франка О'Коннора и семи рассказов известного ирландского драматурга Брайана Фрила о жизни ирландской провинции первой четверти XX века, о детях, о сложных взаимоотношениях с родителями.Жанр: Детская прозаПеревод: Инна  ЛевидоваФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:405F46A1BBFE62EDE3643E20B161306B84FA42AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223692   (671641) от 06.05.2018
 
 Павел Засодимский | Бывальщины и сказки (1888) [PDF]
@@ -6,7 +61,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671641.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671525.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671415.jpg" />
 </div>
 
 
@@ -84,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671230.jpg" />
 </div>
 
 
@@ -110,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670954.jpg" />
 </div>
 
 
@@ -136,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670845.jpg" />
 </div>
 
 
@@ -162,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670840.jpg" />
 </div>
 
 
@@ -188,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670148.jpg" />
 </div>
 
 
@@ -215,7 +270,7 @@ Mia Tavonatti | Лучшие уроки для начинающих. Альбо�
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670125.jpg" />
 </div>
 
 
@@ -241,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670061.jpg" />
 </div>
 
 
@@ -268,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669830.jpg" />
 </div>
 
 
@@ -294,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669309.jpg" />
 </div>
 
 
@@ -320,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669288.jpg" />
 </div>
 
 
@@ -347,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669216.jpg" />
 </div>
 
 
@@ -373,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669144.jpg" />
 </div>
 
 
@@ -401,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668907.jpg" />
 </div>
 
 
@@ -430,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668494.jpg" />
 </div>
 
 
@@ -458,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668480.jpg" />
 </div>
 
 
@@ -485,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668374.jpg" />
 </div>
 
 
@@ -513,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668310.jpg" />
 </div>
 
 
@@ -541,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667893.jpg" />
 </div>
 
 
@@ -568,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667689.jpg" />
 </div>
 
 
@@ -595,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667647.jpg" />
 </div>
 
 
@@ -623,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667584.jpg" />
 </div>
 
 
@@ -634,58 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:356E4BF3DD40A5E43A7D1A1DEE810D288C8CF68A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224228   (667185) от 09.05.2018
-
-Погоский (ред.) | Начальная книжка (1867) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667185.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начальная книжка о человеке и о природеЖанр: Обучение и развитие детей, география, историяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC6B854867F865CFA1B7A658FE66A72203320852
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224226   (667181) от 09.05.2018
-
-Траугот Бромме | Систематический атлас к естественной истории (1874) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667181.jpg" />
-</div>
-
-
-###  Подробнее
-
-Систематический атлас к естественной истории, для употребления в школе и дома.Жанр: Обучение и развитие детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E480AB8071150133DA9225088AC64ACB3ED54CEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

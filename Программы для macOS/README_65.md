@@ -1,3 +1,61 @@
+###  Публикация: 1401240   (711497) от 09.08.2020
+
+Copied 4.0.0 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711497.jpg" />
+</div>
+
+
+###  Подробнее
+
+Copied - полнофункциональный менеджер буфера обмена.
+Сохраните текст, ссылки и изображения, которые вы скопировали в буфер обмена из любого приложения. Быстрый доступ к сохраненным вырезкам из строки меню и копирование их обратно в буфер обмена в оригинальном формате или в различных форматах с использованием шаблонов.
+
+Создавайте списки и организуйте вырезки. Используйте (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.08.2020Разработчик: Kevin ChangПоддерживаемая ОС: OS X 10.14 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE116C8ABA35CBA5BCCAAF2CC5F17F77DAEB2C32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401419   (711491) от 09.08.2020
+
+Lux 1.3 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы когда-нибудь задумывались, сколько времени осталось до восхода или заката? Lux может предложить это и многое другое.
+Особенности:
+● Убедитесь, что у вас есть подключение к сети «Интернет» по Wi-Fi.
+● На этом этапе приложение определит ваше географическое положение.(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.08.2020Разработчик: LionsApp.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D2B2D15E51E4DA3118E7CB3B49A780A41A6A334
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025016   (711289) от 11.06.2016
 
 Maple 2015.1 [En]
@@ -6,7 +64,7 @@ Maple 2015.1 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711289.jpg" />
 </div>
 
 
@@ -32,7 +90,7 @@ Movavi Video Converter 8.3.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711121.jpg" />
 </div>
 
 
@@ -58,7 +116,7 @@ Nik Complete 3 Collection by DxO v3.0.8 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710709.jpg" />
 </div>
 
 
@@ -85,7 +143,7 @@ Orion Markup - image notes and annotations 3.04 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710670.jpg" />
 </div>
 
 
@@ -114,7 +172,7 @@ Git For Command Line on Mac OS X (Git v. 2.7.1) [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710388.jpg" />
 </div>
 
 
@@ -142,7 +200,7 @@ AppDelete 4.3.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710148.jpg" />
 </div>
 
 
@@ -171,7 +229,7 @@ Outline – note app with local storage & cloud sync 3.19 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708910.jpg" />
 </div>
 
 
@@ -200,7 +258,7 @@ Hot Door CADtools 11 for Adobe Illustrator 11.2.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708847.jpg" />
 </div>
 
 
@@ -226,7 +284,7 @@ Blocs 3.5.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707802.jpg" />
 </div>
 
 
@@ -254,7 +312,7 @@ FoldersSynchronizer 5.1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707708.jpg" />
 </div>
 
 
@@ -281,7 +339,7 @@ Tenorshare UltData - Mac 3.0.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707527.jpg" />
 </div>
 
 
@@ -310,7 +368,7 @@ Bills 1.10.8 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706947.jpg" />
 </div>
 
 
@@ -339,7 +397,7 @@ Wolf 1.35.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706830.jpg" />
 </div>
 
 
@@ -367,7 +425,7 @@ Offline Pages Pro 1.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706725.jpg" />
 </div>
 
 
@@ -396,7 +454,7 @@ Canary Mail 2.19 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706682.jpg" />
 </div>
 
 
@@ -422,7 +480,7 @@ MacPaw Hider 2 2.4.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706680.jpg" />
 </div>
 
 
@@ -450,7 +508,7 @@ Themes for iBooks Author 4.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706627.jpg" />
 </div>
 
 
@@ -478,7 +536,7 @@ Business Template Lab - Templates for MS Word 1.0.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706618.jpg" />
 </div>
 
 
@@ -504,7 +562,7 @@ Stellar Drive Defrag 3.0.0.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706585.jpg" />
 </div>
 
 
@@ -532,7 +590,7 @@ iStatistica 1.2.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706041.jpg" />
 </div>
 
 
@@ -561,7 +619,7 @@ Printworks 2 v2.0.5 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705520.jpg" />
 </div>
 
 
@@ -589,7 +647,7 @@ CyberByte Antivirus and Internet Security Premium 3.0.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705360.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ SQLPro for MSSQL - Management studio for SQLServer 1.0.152 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_705212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705212.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ USB Overdrive 3.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704921.jpg" />
 </div>
 
 
@@ -657,64 +715,6 @@ USB Overdrive - универсальный USB-драйвер, который м
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6894DCCA6397A6F7704B4B94E40D0ACB7F3305D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026419   (703967) от 15.06.2016
-
-BusinessTasks - Tasks, Notes & Todos Manager 1.0.3 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703967.jpg" />
-</div>
-
-
-###  Подробнее
-
-BusinessTasks - приложение для легкого управления задачами.
-BusinessTasks предоставляет вам интуитивно понятный интерфейс, из которого пользователи могут добавлять задачи или Todos по одному для любого деня. Будьте в курсе, что вы должны выполнить в течение дня.
-
-Задачи и Todos могут быть сохранены в различные категории и подкатегории. Создайте свои предпочтительные (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 09 июня 2016Разработчик: iLifeTouchПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D477C2723FFBF2BF3C1404E5DEA106460DF19E5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402211   (703935) от 13.08.2020
-
-IconKit 10.1.1 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703935.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для создания (генерации) иконок для Mac OSX. С помощью IconKit вы легко сможете создавать иконки разных размеров и для разных устройств - это элементарно, просто перетащите изображение размером 1024х1024 на рабочее поле программы.
-
-Основные возможности:
-• Интуитивный интерфейс(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 15.12.2018Разработчик: Mojtaba KomeiliПоддерживаемая ОС: OS X 10.12 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:675F91F6962E4994069E8DA43585CECBC14BDCF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

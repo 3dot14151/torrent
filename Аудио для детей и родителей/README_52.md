@@ -1,3 +1,32 @@
+###  Публикация: 1405848   (481079) от 31.08.2020
+
+Юрий Кудинов (клоун Плюх) - Песенки сказочных героев. Любимые детские песенки (2014) [MP3|320 Kbps]<Детские песни и минусовки>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01+/-10. Клоун Плюх - Лягушка-путешественница
+02+/-11. Клоун Плюх, Татьяна Кистол - Песня феи
+03+/-12. Клоун Плюх, Мила - Песня Золушки
+04+/-13. Клоун Плюх - Гуси-лебеди(   Читать дальше...   )Жанр: Детские песни и минусовкиПродолжительность: 00:42:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F29E19217E38CE9F963D6D36DE0E773FBEEEB3D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1405844   (481078) от 31.08.2020
 
 Юрий Кудинов (клоун Плюх) - Песни для детей любого возраста. Любимые детские песенки (2012) [MP3|320 Kbps]<Детские песни>
@@ -6,7 +35,7 @@
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481078.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480917.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480661.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480422.jpg" />
 </div>
 
 
@@ -116,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480420.jpg" />
 </div>
 
 
@@ -142,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479682.jpg" />
 </div>
 
 
@@ -168,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479484.jpg" />
 </div>
 
 
@@ -195,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479376.jpg" />
 </div>
 
 
@@ -222,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479275.jpg" />
 </div>
 
 
@@ -248,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479135.jpg" />
 </div>
 
 
@@ -274,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479025.jpg" />
 </div>
 
 
@@ -303,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478987.jpg" />
 </div>
 
 
@@ -330,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478816.jpg" />
 </div>
 
 
@@ -356,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478457.jpg" />
 </div>
 
 
@@ -382,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478451.jpg" />
 </div>
 
 
@@ -408,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476833.jpg" />
 </div>
 
 
@@ -434,7 +463,7 @@ VA- The Best Disney Album In The World… Ever! (3CD) (2006) [MP3|160 kbps]<Де
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476351.jpg" />
 </div>
 
 
@@ -463,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475152.jpg" />
 </div>
 
 
@@ -490,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473200.jpg" />
 </div>
 
 
@@ -516,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471003.jpg" />
 </div>
 
 
@@ -545,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470420.jpg" />
 </div>
 
 
@@ -572,7 +601,7 @@ VA - Babydream. "Songs"  Vol. 1 (2001) [MP3|192 kbps]<Детские песен�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469616.jpg" />
 </div>
 
 
@@ -601,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468858.jpg" />
 </div>
 
 
@@ -627,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468160.jpg" />
 </div>
 
 
@@ -653,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466918.jpg" />
 </div>
 
 
@@ -664,34 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6062DAE8B59D133E3D14C148C2B4744C4AA37EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549095   (465018) от 19.09.2012
-
-Лион Измайлов | Лягушонок Ливерпуль  [1983 / 2012] [WavPack]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лягушки способны на многое. Когда ты будешь слушать рассказ Л. Измайлова, то узнаешь, что лягушек можно даже дрессировать. А исследователи лягушачьей жизни поражаются, например, сложенным вдвое языком лягушки, который может вдруг раскрываться, вытягиваться – и вот уже какая-нибудь неосторожная букашка у лягушки в животе. А глаза лягушек, которыми они могут видеть во всех направлениях, – об этом даже сочинена японская народная сказка, очень смешная.
-Лягушки первыми «встали на ноги», первыми стали… чихать, садиться, хватать. Когда все это впервые происходило, на Земле не родился не то что человек, но даже и обезьяна – отдаленный человечий предок. Когда же самая первая лягушка впервые заквакала, – не знает никто. Потому что на Земле тогда не раздавалось вообще ни одного звука. Да и слышать это кваканье тоже было некому, потому что, по совести говоря, даже и ушей, кроме земноводных, никто из тогдашних обитателей Земли еще не имел!..
-Это теперь ученые знают, что есть около двух сотен видов настоящих лягушек и что часто (   Читать дальше...   )Жанр: Моноспектакль
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18C36558551559E056095CA90B9CE8BFB821AF7F
 ```
 
 https://mybot314.ru/tekegram_catalog/

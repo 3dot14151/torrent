@@ -1,3 +1,55 @@
+###  Публикация: 482932   (88400) от 14.04.2012
+
+Эмулятор Nintendo GameCube и Wii "Dolphin" v3.0-591 [Multi24\+] (2012)
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88400.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dolphin является открытым исходным кодом Nintendo GameCube и Wii эмулятор для Microsoft Windows и операционные системы Linux. В последней версии, многие игры для GC & Wii могут воспроизводиться (хотя пока еще есть ограничения скорости в играх), и несколько игр, как утверждается, имеют полную функциональность.Язык интерфейса: Русский / Английский / Арабский / Каталонский / Китайский (Урощенный) / Китайский (Традиционный) / Чешский / Голландский / Фарси / Француский / Греческий / Германский / Еврейский / Венгерский / Итальянский / Японский / Корейский / Норвежский / Польский / Португальский / Португальский (Бразильский) / Сербский / Испанский / Турецкий
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482398   (88269) от 13.04.2012
+
+[PC] Эмулятор Sony Playstation 2 "Pcsx2" v.0.9.9. SVN r5156 [Multi16\+] (2012)
+
+>>След.
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88269.jpg" />
+</div>
+
+
+###  Подробнее
+
+PCSX2 SVN является открытым исходным кодом Sony PlayStation 2 (PS2) эмулятор для Microsoft Windows и операционные системы Linux. В последней версии, многие игры для PS2 могут воспроизводиться (хотя пока еще есть ограничения скорости в играх), и несколько игр, как утверждается, имеют полную функциональность.Язык интерфейса: Русский / Английский / Чешский / Китайский (Упрощенный) / Китайский (Традиционный) / Француский / Германский / Венгерский / Индонезийский / Итальянский / Японский / Польский / Португальский / Испанский / Шведский / Турецкий
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 482402   (88208) от 13.04.2012
 
 [PC] Эмулятор Sony Playstation Portable "Jpcsp" v.0.6. SVN r2529 [Multi14\+] (2012)
@@ -6,7 +58,7 @@
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88208.jpg" />
 </div>
 
 
@@ -35,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88051.jpg" />
 </div>
 
 
@@ -62,7 +114,7 @@ Conquest: Frontier Wars (RePack) [Ru] 2001 | Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88031.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ Captain Morgane and the Golden Turtle [Multi3/-] (L) 2012 | RELOADED
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87995.jpg" />
 </div>
 
 
@@ -115,7 +167,7 @@ BattleForge: Lost Souls Edition (L) [Ru] 2008
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87894.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ King Arthur 2: The Role-Playing Wargame / Король Артур 2 (L) [En] 201
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87863.jpg" />
 </div>
 
 
@@ -168,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87854.jpg" />
 </div>
 
 
@@ -194,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87788.jpg" />
 </div>
 
 
@@ -223,7 +275,7 @@ Age of Empires Online (L) [En] 2011
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87676.jpg" />
 </div>
 
 
@@ -249,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87643.jpg" />
 </div>
 
 
@@ -275,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87639.jpg" />
 </div>
 
 
@@ -303,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87635.jpg" />
 </div>
 
 
@@ -329,7 +381,7 @@ Slizz (L) [En] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87557.jpg" />
 </div>
 
 
@@ -355,7 +407,7 @@ The Elder Scrolls IV: Oblivion Association [Ru] (RePack/Mod/0.7) 2012 | Naitro
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87487.jpg" />
 </div>
 
 
@@ -381,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87473.jpg" />
 </div>
 
 
@@ -407,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87471.jpg" />
 </div>
 
 
@@ -434,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87348.jpg" />
 </div>
 
 
@@ -463,7 +515,7 @@ Men of War: Condemned Heroes / Штрафбат [Ru/En] (RePack) 2012 | R.G. Ori
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87292.jpg" />
 </div>
 
 
@@ -490,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87276.jpg" />
 </div>
 
 
@@ -517,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87273.jpg" />
 </div>
 
 
@@ -549,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87245.jpg" />
 </div>
 
 
@@ -575,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87091.jpg" />
 </div>
 
 
@@ -602,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87017.jpg" />
 </div>
 
 
@@ -628,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86996.jpg" />
 </div>
 
 
@@ -642,58 +694,6 @@ Enable decoding of indexed textures (using (   Читать дальше...   )
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479014   (86873) от 06.04.2012
-
-Minecraft IndustrialClient 1.4.1 (P) [Multi56/+] 2012
-
->>След.
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Minecraft это игра наподобие песочницы в которой можно строить. В настоящее время в процессе развития. Разрабатывается Маркусом Перссоном, известным также как "Notch". Игра была задумана как клон игры Infiniminer, хотя Перссон хочет, чтобы геймплей был больше похож на Dwarf Fortress. В режиме выживания, основной задачей является строительство и зарабатывание очков, но в него также включен ряд дополнительных функций. Такими является наличие враждебных монстров, а так же необходимость собирать ресурсы на постройку сооружений и материалы для ковки инструментов работы и защиты от монстров. Сайт Minecraft IndustrialServerТип издания: ПираткаЖанр: Аркада, Кросс-платформерЯзык озвучки: n/aЯзык интерфейса: Русский, Английский, Французский, Испанский... (multi 56)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1D87C0E2A392AA2700EDF7DB57E8C9ED635F895
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479034   (86863) от 06.04.2012
-
-Top Gun: Hard Lock [En] (RePack) 2012 | z10yded
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86863.jpg" />
-</div>
-
-
-###  Подробнее
-
-Боевой симулятор полета Top Gun: Hard Lock создан на основе фильма «Лучший стрелок» 1986 года. В игре представлена новая сюжетная линия, действия которой разворачивается в наше время. Кроме одиночной кампании, состоящей из 15 миссий, в Top Gun: Hard Lock есть многопользовательский режим, поддерживающий одновременно до 16 игроков. В мультиплеере пользователи смогут вместе противостоять врагам или играть друг против друга.Тип издания: RePackЖанр: Arcade / Flight Combat / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81100AD731BCB4319B2B3B358E2B5C8DADEC2BFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

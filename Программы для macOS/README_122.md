@@ -1,3 +1,57 @@
+###  Публикация: 1624274   (242722) от 05.04.2023
+
+Airflow 3.3.5 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Смотрите контент с компьютера на Apple TV и Chromecast. Не нужно ждать, индексировать, просто перетащите видео и смотрите. Проще уже действительно не придумать.Тип издания: macOS SoftwareРелиз состоялся: 02.04.2023Разработчик: © 2020 BitCave Ltd.Поддерживаемая ОС: macOS 10.12.2 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15B9CEF24CA4B55F8FEAD56559A7E9E65F5BFF79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360371   (242709) от 15.02.2020
+
+Fuel for Pages 2.0 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fuel for Pages - это удивительное дополнение для приложения Apple Pages. В Вашем распоряжении 1019 шаблонов в 11 категориях, такие как: - Брошюры, - Визитные карточки, - Календарь, - Карты и Приглашения, - Конверты, - Листовки, - Флаеры, - Письма, - Бюллетени, - Бланки для докладов, - Резюме.
+
+Различные размеры. - Все шаблоны доступны в US Letter и A4. Размер бумаги (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.02.2020Разработчик: Infinite Loop AppsПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FCF17CDCEA7E31E85906C23D34759E811A5570E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457389   (242650) от 26.03.2021
 
 DSP-Quattro 5.6.0 [En]
@@ -6,7 +60,7 @@ DSP-Quattro 5.6.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242650.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Mullvad Browser 12.0.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242546.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ Tab Launcher 2.9.6 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242529.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ Iris 1.5.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242135.jpg" />
 </div>
 
 
@@ -113,7 +167,7 @@ iClip - Clipboard Recorder & ClipArt Manager 5.5.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242010.jpg" />
 </div>
 
 
@@ -141,7 +195,7 @@ Short Menu 2.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241868.jpg" />
 </div>
 
 
@@ -170,7 +224,7 @@ MarkMyWords 2.4.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241808.jpg" />
 </div>
 
 
@@ -196,7 +250,7 @@ batchRESIZE 1.76 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241714.jpg" />
 </div>
 
 
@@ -222,7 +276,7 @@ Magic Sort List 3.5.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241675.jpg" />
 </div>
 
 
@@ -250,7 +304,7 @@ Image Plus - Easy Photo Editor 1.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241650.jpg" />
 </div>
 
 
@@ -276,7 +330,7 @@ InstaGrid 3.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241504.jpg" />
 </div>
 
 
@@ -302,7 +356,7 @@ Crop Any Video 2.0.5 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241190.jpg" />
 </div>
 
 
@@ -331,7 +385,7 @@ Any Media Info 2.1.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241168.jpg" />
 </div>
 
 
@@ -358,7 +412,7 @@ Later - Create Quick Reminders With Presets 1.0.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240949.jpg" />
 </div>
 
 
@@ -387,7 +441,7 @@ iShowU Studio 2 v2.3.3 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240947.jpg" />
 </div>
 
 
@@ -414,7 +468,7 @@ TweetShot 4.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240815.jpg" />
 </div>
 
 
@@ -440,7 +494,7 @@ Faxbot 2.6.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240777.jpg" />
 </div>
 
 
@@ -467,7 +521,7 @@ Dial!List 1.9.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240643.jpg" />
 </div>
 
 
@@ -495,7 +549,7 @@ ShredIt X 6.4.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240552.jpg" />
 </div>
 
 
@@ -522,7 +576,7 @@ JPEG Jackal PRO 2.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240378.jpg" />
 </div>
 
 
@@ -548,7 +602,7 @@ Aiseesoft Mac Video Enhancer for Mac 9.2.32 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240268.jpg" />
 </div>
 
 
@@ -576,7 +630,7 @@ Mitti 2.2.9 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240222.jpg" />
 </div>
 
 
@@ -603,7 +657,7 @@ AnyMP4 DVD Copy 3.1.36 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240206.jpg" />
 </div>
 
 
@@ -629,7 +683,7 @@ TinkerTool System 6 v6.98 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240182.jpg" />
 </div>
 
 
@@ -640,59 +694,6 @@ TinkerTool System - утилита для управления скрытыми 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C11A0DE8A1E2AD36B2B86803D5162C9720DBC34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571279   (240017) от 21.08.2022
-
-Screaming Frog SEO Spider 17.0 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Screaming Frog SEO Spider Tool - программа для проведения подробного SEO анализа любого сайта. С помощью нее вы сможете проверить все внутренние ссылки, исходящие ссылки, метаописания каждой страницы, теги h1-h6 веб ресурса. С помощью Screaming Frog SEO Spider вы без труда обнаружите все ошибки в СЕО оптимизации вашего веб ресурса и сможете устранить до их появления (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.08.2022Разработчик: © 2022 Screaming Frog Ltd.Поддерживаемая ОС: macOS 10.7.3+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E61C4E16155FF7AE6018C46E6609EFF3677E5DDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466745   (240010) от 01.05.2021
-
-Semulov 2.6 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Semulov отображает все смонтированные тома в строке меню, сгруппированные по типу.
-При нажатии на меню приложения этот том будет отключен / извлечен. Semulov также поддерживает уведомления Growl о размонтировании / монтировании диков.Тип издания: macOS SoftwareРелиз состоялся: 2021Разработчик: Kevin WojniakПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C65502A2C8D22670761057845A43D889B1E99099
 ```
 
 https://mybot314.ru/tekegram_catalog/

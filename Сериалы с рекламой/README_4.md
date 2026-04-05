@@ -1,3 +1,56 @@
+###  Публикация: 1354619   (986734) от 23.01.2020
+
+Открытое море / Alta Mar (2019) WEB-DLRip [H.264/720p-LQ] (сезон 2, серии 1-8 из 8) AMS [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986734.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1940 году из Европы в Южную Америку отправляется трансатлантический лайнер, который везет счастливых людей, бегущих от войны в новый дивный мир. Среди пассажиров две сестры Каролина и Ева, а также офицер Николас Сала, оказавшийся не в том месте и не в то время.
+Через какое-то время на борту появляется труп неизвестного пассажира, которого не было в списке, более (   Читать дальше...   )Производство: ИспанияЖанр: драма, криминал, детективРежиссер: Лино Эскалера, Мануэль Гомес Перейра, Карлос СедесАктеры: Ивана Бакеро, Джон Кортахарена, Алехандра Ониэва, Элой Асорин, Чики Фернандес, Тамар Новас, Даниэль Лунд, Наталия Родригес, Игнасио Монтес, Бегонья Варгас и др.Перевод: Многоголосый профессиональный - AMS (Adiós Muchachos Studio)Субтитры: Русские, английские, испанскиеПродолжительность: ~00:40:00 серияРеклама: присутствуют аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECFA524D0EF8219C578055D640B5B53845D94A2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343019   (986732) от 23.01.2020
+
+Дом с прислугой / Servant (2019) WEB-DLRip [H.264/720p-LQ] (сезон 1, серии 1-10 из 10) AMS [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986732.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герои драмы «Дом с прислугой» — пара из Филадельфии. У супругов Тёрнер случилась страшная беда — они потеряли трёхмесячного малыша и их брак оказывается под угрозой, а в дом проникает таинственная и зловещая сила. Дороти никак не может оправиться от трагедии, поэтому продолжает нянчить куклу и даже нанимает для этих целей няню, девушку по имени Лиенн. А та, как будто, (   Читать дальше...   )Производство: США / Blinding Edge Pictures, Escape ArtistsЖанр: ужасы, триллер, драмаРежиссер: М. Найт Шьямалан, Дэниэл Сакхайм, Лиза БрюльманнАктеры: Лорен Эмброуз, Тоби Кеббелл, Нелл Тайгер Фри, Руперт Гринт, Филлип Джеймс Браннон, Джеффри Моуэри и др.Перевод: Многоголосый профессиональный - AMS (Adiós Muchachos Studio)Субтитры: русские, английскиеПродолжительность: ~00:37:00 серияРеклама: присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0D414AF7B93DAAD4CEC41AE2E0EE1B39201C57E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1354613   (986730) от 23.01.2020
 
 Открытое море / Alta Mar (2019) WEB-DLRip [H.264/1080p-LQ] (сезон 2, серии 1-8 из 8) AMS [AD]
@@ -6,7 +59,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986730.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977335.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972709.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969293.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964069.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960397.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960281.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942457.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939087.jpg" />
 </div>
 
 
@@ -246,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926532.jpg" />
 </div>
 
 
@@ -272,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918338.jpg" />
 </div>
 
 
@@ -298,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913274.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906447.jpg" />
 </div>
 
 
@@ -350,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902717.jpg" />
 </div>
 
 
@@ -376,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902073.jpg" />
 </div>
 
 
@@ -403,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897966.jpg" />
 </div>
 
 
@@ -429,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896734.jpg" />
 </div>
 
 
@@ -455,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888722.jpg" />
 </div>
 
 
@@ -481,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887115.jpg" />
 </div>
 
 
@@ -507,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883026.jpg" />
 </div>
 
 
@@ -533,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881431.jpg" />
 </div>
 
 
@@ -559,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878825.jpg" />
 </div>
 
 
@@ -585,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878412.jpg" />
 </div>
 
 
@@ -611,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877351.jpg" />
 </div>
 
 
@@ -622,58 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34E8B06B85DFB1C9165891CFBFAAEE1D107FC864
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495567   (877098) от 14.09.2021
-
-В ночь / Into the Night (2021) WEB-DLRip [H.264/1080p-LQ] (сезон 2, серии 1-6 из 6) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_877098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ранним утром возникает внезапная аномалия: лучи солнца начинают убивать всё живое на своём пути. Пассажиры и экипаж самолёта, который перед рассветом успел покинуть аэропорт Брюсселя, пытаются убежать от смертоносного солнечного света.Производство: Бельгия / Entre Chien et LoupЖанр: фантастика, триллер, драмаРежиссер: Инти Кальфат, Дирк ВерхейАктеры: Полин Этьен, Лорен Капеллуто, Мехмет Куртулуш, Бабетида Саджо, Ян Бейвут, Ксаверы Шленкер, Винсент Лондез, Регина Биккинина, Альба Гайя Крагеде Беллуджи, Набил Маллат и др.Перевод: Профессиональный двуголосый (ViruseProject)Язык озвучки: Русский, французскийСубтитры: РусскиеПродолжительность: ~00:40:00 серииРеклама: Присутствует видео (бегущая строка)+аудио реклама!!!
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90539192DEB19308EB3AEB2B3A8B88E401DD2E2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328179   (875612) от 15.09.2021
-
-Проповедник / Preacher (2019) WEBRip [H.264/1080p-LQ] (сезон 4, серии 1-10 из 10) LakeFilms [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875612.jpg" />
-</div>
-
-
-###  Подробнее
-
-Священник Джесси Кастер по воле случая стал носителем внутри своего естества странного существа по имени Генезис. Это дитя совокупления ангела и демона представляет собой одновременно чистый идеал и квинтэссенцию света, но также сгусток абсолютного зла. Генезис — единственное существо во Вселенной, которое может встать вровень с Богом, если того пожелает, а его носитель (   Читать дальше...   )Производство: США / Short Drive Entertainment, Point Grey Pictures, Original FilmЖанр: ужасы, фэнтези, драма, детектив, приключенияРежиссер: Майкл Словис, Эван Голдберг, Сет РогенАктеры: Доминик Купер, Джозеф Гилган, Рут Негга, Йен Коллетти, Грэм Мактавиш, Пип Торренс, Ноа Тейлор, Джули Энн Эмери, Малкольм Баррет, Марк ХареликПеревод: Двуголосый любительский (LakeFilms)Язык озвучки: РусскийПродолжительность: ~00:45:00 серияРеклама: присутствуют видео, аудио, текстовые вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EB347FE2EBEB24D3442B72C32BED6CB2915C3A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

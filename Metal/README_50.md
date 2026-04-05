@@ -6,7 +6,7 @@ Unheilig - Gipfelkreuz (2015) [MP3|320 кб/с]<Gothic Rock, Metal, NDH>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622021.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Lindemann - Skills In Pills (2015) [MP3|320 кб/с]<Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621347.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Dust Bolt - Mass Confusion (2016) Japanese Edition [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621163.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Orden Ogan - Vale (2007) Reissue, Remastered, 2015 [MP3|320 Kbps] <Heavy Metal, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621161.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Reverence - When Darkness Calls (2012) [MP3|320 кб/с]<Heavy/Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621148.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Ignition - A New Conspiracy (2015) [MP3|320 кб/с]<Heavy / Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620807.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Anuryzm - All Is Not For All (2015) [MP3|320 кб/с]<Power / Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620804.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Negacy - Flames Of Black Fire (2015) [MP3|320 кб/с]<Heavy / Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620799.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Heavens Gate - Best for Sale! (2015) Remastered [MP3|320 кб/с]<Heavy / Power 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620673.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Municipal Waste - Slime And Punishment (2017) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619823.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Revocation - Great Is Our Sin (2016) [MP3|320 Kbps] <Technical Death Metal, Thra
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619257.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Refuge - Solitary Men (2018) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619067.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Trillium - Tectonic (2018) [MP3|320 Kbps] <Symphonic Metal, Melodic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618969.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Lovell's Blade - The Nightmare Begins (2019) [MP3|320 Kbps] <Heavy Metal, Hard R
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618808.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Vivaldi Metal Project - The Four Seasons (2016) [MP3|320 Kbps] <Symphonic Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618731.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Valensorow - The Battle Of Oak Mountain (2015) [MP3|320 кб/с]<Folk / Viking M
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618611.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Distruzione - Distruzione (2015) [MP3|320 кб/с]<Death Metal, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618609.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Kreator - Phantom Antichrist (2CD Ltd Deluxe Edition & 1CD Japanese Edition) [MP
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_618552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_618552.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Born2Rule feat. Chad Wagner - Arena Of Souls (2015) [MP3|320 кб/с]<Heavy Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618507.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Titans Eve - Chasing The Devil (2015) [MP3|320 кб/с]<Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618500.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Tears of Heaven - 2 Albums (2015, 2022) [MP3|320 Kbps] <Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616665.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Vangough - Living Madness (2015) [MP3|320 кб/с]<Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616583.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ My Refuge - A Matter Of Supremacy (2015) [MP3|320 кб/с]<Progressive / Heavy /
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616582.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Pleuel - Durch die Wand (2015) [MP3|320 кб/с]<Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616581.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ Aeon Rising - Aeon Rising (2015) [MP3|320 кб/с]<Progressive Metal, Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616580.jpg" />
 </div>
 
 
@@ -734,7 +734,7 @@ Soldier - Defiant (2015) [MP3|320 кб/с]<Heavy Metal, NWOBHM>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616579.jpg" />
 </div>
 
 

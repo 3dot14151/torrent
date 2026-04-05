@@ -1,3 +1,119 @@
+###  Публикация: 1290544   (678351) от 20.03.2019
+
+VA - Vocal Anthems Miami (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feel & Rimsky feat. Diana Leah - One Last Time (Adip Kiyoi Extended Remix)
+02. Roman Messer & DJ Xquizit feat. OSITO - Empire Of Our Own (Alexander Popov Extended Remix)
+03. Ruslan Radriges & Neurofunq feat. Tiff Lacey - Wonderfull (Extended Mix)
+04. Adip Kiyoi feat. Christina Novelli - Carousel (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:52:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7744B01AD428A095A38B4099D4BA55677BFDCED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029843   (678317) от 28.06.2016
+
+VA - Balkan Connection Summer 2016 (2016) [MP3|320 Kbps] <Deep House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Subconscious Tales - Helligkeit [07:51]
+02. Praveen Achary, Vlada D'Shake - Public Secret (Praveen Achary Remix) [06:48]
+03. Matter, Jorgio Kioris - Pushin' (Matter's Pushin Too Hard Remix) [08:37]
+04. Rick Pier O'Neil, Dio S, Desaturate - Nonchalance (Rick Pier O'Neil & Desaturate Remix) [07:23](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 06:33:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE67F30AC0A7F5A94C1EDB8D435BD2372476FFD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 508762   (678289) от 10.06.2012
+
+The Prodigy - Their Law (2005) The Singles 1990-2005 [FLAC|Lossless]<Breakbeat, Hardcore, Big Beat>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_678289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Firestarter :: 04:40
+02. Their Law :: 05:35
+03. Breathe :: 05:34
+04. Out of Space :: 05:00(   Читать дальше...   )Жанр: Breakbeat, Hardcore, Big BeatФормат: CD, CompilationПродолжительность: 01:12:14
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290458   (678254) от 20.03.2019
+
+Argus - Pure Love / Pure Chill-out Vol.1 (2019) [MP3|320 Kbps] <Ambient, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Argus feat. Mina - The Invisible Sun - 07:24
+02. Argus & Ascent - Strong Connection - 06:51
+03. Argus - Feelings - 07:04
+04. Argus - Questions - 07:36(   Читать дальше...   )Жанр: Ambient, ChilloutПродолжительность: 02:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82404C843383073B6776A0A80ECD3B1DC0B6A225
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290452   (678249) от 20.03.2019
 
 Lemongrass - Earth (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Breaks, Downtempo, Chillout>
@@ -6,7 +122,7 @@ Lemongrass - Earth (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Breaks, Dow
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678249.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - A State Of Trance Top: 20 March 2019 (Selected By Armin Van Buuren) - (Miam
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678196.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Yoga Vibes Vol.1 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677524.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - My Heart Belongs To You - Romantic Tracks For Good Moments (2018) [MP3|320 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677417.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Ultra Undeground Festival (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677415.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Maine - Scores (2017) [MP3|320 Kbps] <Ambient, Drone>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677412.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - This Growing Love - Best Love Music To Close The Perfect Date (2018) [MP3|3
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677408.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Mma Cardio Training (2018) [MP3|320 Kbps] <Minimal, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677395.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ M-Tronic - Frontiers (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677390.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Rick Tedesco - Style Clash Vol. 2 (2017) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677386.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - Black Hole House Music 05-17 (2017) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677302.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - Driving EDM Vol 2 (2017) [MP3|320 Kbps] <Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677301.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Liquid Bloom - ReGen Mose Remixes (2018) [FLAC|Lossless|WEB-DL|tracks] <Psychill
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677285.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ VA - Ori Uplift - - Uplifting Only, Episode 223 (2017) [MP3|320 Kbps] <Trance, U
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677282.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Monolink - Burning Sun (2017) Maxi Single [FLAC|Lossless|WEB-DL|tracks] <Deep Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677281.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ VA - Ori Uplift - Uplifting Only, Episode 222 (2017) [MP3|320 Kbps] <Trance, Upl
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677274.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Lazy Hammock - Natural High (2012) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677272.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ VA - Techno Club Vol. 52 (Mixed by Talla 2XLC & ReOrder)(2017) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677157.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Waveshaper - 12 Releases (2013-2018) [MP3|320 Kbps] <Electronic, Synthwave, Retr
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677129.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Faderhead - Anima In Machina (2016) Limited Edition, Compilation [FLAC|Lossless|
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677002.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ VA - Electrotastic Vol.22 (2016) [MP3|320 Kbps] <House, Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676782.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Erasure - World Be Gone (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New-Wave
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676730.jpg" />
 </div>
 
 
@@ -632,122 +748,6 @@ Erasure - World Be Gone (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New-Wave
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64AD2D11370ECFDD25E07DB9B07E1DC1E8DAF29D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136048   (676721) от 21.05.2017
-
-Omnimar - Poison (2017) [MP3|320 Kbps] <Synth-pop, Synthwave, Darkwave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01	Poison 1:40
-02	I Go On On My Own 4:06
-03	Out Of My Life 5:55
-04	I Wanna Know Now 4:15(   Читать дальше...   )Жанр: Synth-pop, Synthwave, DarkwaveПродолжительность: 00:42:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82E09FE7EB4C189396D78ABD57C15A1E84249278
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536376   (676686) от 11.03.2022
-
-Johan Tronestam - Best of Johan Tronestam 2010-2013 (2015) [FLAC|Lossless|WEB-DL|tracks] <Berlin-School, Space Music>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Acceleration (6:40)
-02. I'm Already There (5:50)
-03. The Ancient Pulse Still Beats (6:24)
-04. Lake Vostok (6:24)(   Читать дальше...   )Жанр: Berlin-School, Space MusicПродолжительность: 01:03:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB058A531AEF529C41535139E81EBBFDD4C232BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030014   (676672) от 29.06.2016
-
-VA - Relaxation and Deep Sleep (2016) [MP3|320 Kbps] <Downtempo, Chillout, Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Igge Scoce - Abyssal Voyage
-02. Jonathan Carlile - Ambient Uplifting
-03. David Hollandsworth - Artic Sun
-04. Emlyn Ellis Addison - Breaking Ground Ambient Soundbed(   Читать дальше...   )Жанр: Downtempo, Chillout, AmbientПродолжительность: 01:48:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D2EBF4F12B993AD76BCC20AB85D16C66ED6BBD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029963   (676535) от 29.06.2016
-
-VA - Goa 2016 Vol.3 (2016) [MP3|320 Kbps] <Trance, Goa Trance, Psy>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Motion Drive -  The Substance 7:59
-02. Aioaska -  Tschatahitika (Original Mix) 9:43
-03. Mindwave -  Singularity 7:23
-04. Microlin -  True Believer 8:04(   Читать дальше...   )Жанр: Trance, Goa Trance, PsyПродолжительность: 02:22:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF7DDE529908A8B0F568BC2718005A48AE91612D
 ```
 
 https://mybot314.ru/tekegram_catalog/

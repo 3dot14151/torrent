@@ -1,3 +1,55 @@
+###  Публикация: 1310764   (545062) от 26.06.2019
+
+Outward (2019) [Multi] (1.0upd2/dlc) Repack R.G. Catalyst
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545062.jpg" />
+</div>
+
+
+###  Подробнее
+
+Outward – приключенческая РПГ, события которой разворачиваются в большом открытом мире. Вам предстоит выступить в роли путешественника, отправившегося исследовать неизведанные земли, населенные опасными существами, неприятелями и интересными персонажами. Играть вы сможете как в одиночку, так и с друзьями в кооперативном режиме локально или онлайн.Тип издания: RepackРазработчик: Nine Dots StudioЖанр: Ролевые игрыЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F488F2A82B3DF1C4E76A66062EA8E7598FA349BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238916   (543549) от 02.08.2018
+
+Sword Art Online: Hollow Realization (2017) [Multi] (1.00) License SKIDROW [Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sword Art Online: Hollow Realization - это очередная часть приключенческой ролевой игры, созданной по мотивам вселенной аниме Sword Art Online, события которой разворачиваются в новом мире очередной многопользовательской онлайн игры в виртуальной реальности.Тип издания: LicenseРазработчик: AQURIAЖанр: Action, 3rd Person, RPGЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEEDF4851644399011BEBD4FE6EB6383BB2E244C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037144   (542301) от 14.06.2022
 
 Starbound (2016) [Ru/En] (1.4.4) License GOG
@@ -6,7 +58,7 @@ Starbound (2016) [Ru/En] (1.4.4) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542301.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Titan Quest Anniversary Edition (2016) [Ru/Multi] (2.7a/dlc) Repack R.G. Catalys
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539420.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Undercroft (2006) [En] (1.2) Repack dark_elf2
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536816.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ NECROPOLIS: A Diabolical Dungeon Delve (2016) [Ru/Multi] (1.1) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535857.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Lisa (2014) [Ru] (1.0u2) Repack MasterDarkness
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533836.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ The Technomancer (2016) [Ru] (1.0.3636) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533787.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Silver (1999) [Ru/En] (1.23) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531333.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Mechajammer (2021) [En] (1.11) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531332.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Deiland (2018) [Ru/Multi] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531131.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Deiland (2018) [Ru/Multi] (1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531122.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Gorasul: The Legacy of the Dragon / Горасул: Наследие Драко�
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530150.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Darklands (1992) [En/Ge] (483.07) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529462.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Fairy Fencer F (2015) [En/Jp] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529390.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Underhero (2018) [En] (4.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528957.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Pyre (2017) [Ru/Multi] (1.50427) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528470.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Acting Lessons (2018) [En] (1.0.2.1) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528433.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Avadon 3: The Warborn (2016) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527713.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ The Legend of Heroes: Trails of Cold Steel (2017) [En/Jp] (1.0.6421.30108/dlc) R
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527525.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Kyn (2015) [En/De] (4.6.6.11209528/dlc) License GOG [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527043.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Envy the Dead (2016) [Ru/En] (1.0b) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527036.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Victor Vran (2015) [Ru/Multi] (2.07/dlc) SteamRip Let'sPlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526490.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Guild of Dungeoneering (2015) [En] (1.02) Repack CPY
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523819.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Royal Bounty HD (2015) [Ru/Multi] (1.0.0.210) Repack MasterDarkness
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523048.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Fairy Fencer F (2015) [En] (1.0/dlc/u2) Repack R.G. Games
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523047.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Fairy Fencer F (2015) [En] (1.0/dlc/u2) Repack R.G. Games
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C01767C9F8D372774189BB0B87342865CA3B2C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928134   (522992) от 15.08.2015
-
-Lords Of The Fallen (2014) [Ru/Multi] (1.6/dlc) Repack R.G. Механики
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522992.jpg" />
-</div>
-
-
-###  Подробнее
-
-В эпоху древних миром правил злобный бог, и всё человечество жило у него под пятой. Но страх, сковывавший сердца людей, уступил место ярости, и наступило утро Великого восстания, когда началась борьба за свободу. После славной победы над низвергнутым богом, люди установили новый порядок…Тип издания: RepackРазработчик: City Interactive и Deck13 InteractiveЖанр: RPG (Rogue/Action) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5919C513AD7F09D5505EABD9C53C33AC507AB66A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928443   (522283) от 16.08.2015
-
-The Incredible Adventures of Van Helsing III (2015) [En/Multi] (1.0.6) SteamRip Let'sРlay
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522283.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гражданская война в Борговии закончилась, но будущее все еще мрачное. Город мистических наук лежит в руинах, остатки различных фракций грызут друг другу глотки за оставшиеся клочки власти. Волна жутких событий сотрясает землю, бывший союзник превратился в страшного злодея, древнее зло грозит миру темного восточно-европейского фэнтези. Ван Хельсингу, главному герою (   Читать дальше...   )Тип издания: SteamRipРазработчик: NeocoreGamesЖанр: RPG (Rogue/Action) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий, Испанский, Венгерский, Польский, ПортугальскийЯзык интерфейса: Английский, Французский, Итальянский, Немецкий, Испанский, Венгерский, Польский, Португальский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDC65CBA84647FD8C018C070379BCADB5FED9DF2
 ```
 
 https://mybot314.ru/tekegram_catalog/

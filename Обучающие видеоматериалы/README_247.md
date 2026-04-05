@@ -1,3 +1,30 @@
+###  Публикация: 1526431   (173088) от 14.10.2023
+
+Руслан Шипицын | Межпозвонковые грыжи и протрузии (2021) WEBRip
+
+>>Обучающие видеоматериалы
+>>Здоровье и Спорт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173088.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа безоперационного лечения протрузий и грыж межпозвонкового диска, коррекция осанки и устранение боли в спине.
+Грыжа – это следствие нарушение осанки. На фоне изменения нормальной оси позвоночника, формируется неравномерная нагрузка на межпозвонковый диск и в условиях нарушения его питания (сидячий образ жизни, неправильная нагрузка) происходит разрушения (   Читать дальше...   )Жанр: ВидеокурсПродолжительность: 08:10:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0B188B864333420F6CAA747E2457441A733140F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 312173   (173083) от 14.10.2023
 
 Игорь Пелинский | От интуиции к ясновидению. Упражнения, тренировки, практики. (2010) DVDRip
@@ -6,7 +33,7 @@
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173083.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173079.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ Sinclaire Institute | Секреты совершенного секса [2005] 
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173078.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173076.jpg" />
 </div>
 
 
@@ -114,7 +141,7 @@ Mark Schoen | Секреты совершенного секса / The Better Se
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173065.jpg" />
 </div>
 
 
@@ -140,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172942.jpg" />
 </div>
 
 
@@ -167,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172930.jpg" />
 </div>
 
 
@@ -194,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172929.jpg" />
 </div>
 
 
@@ -223,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172926.jpg" />
 </div>
 
 
@@ -250,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172912.jpg" />
 </div>
 
 
@@ -278,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172911.jpg" />
 </div>
 
 
@@ -307,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172893.jpg" />
 </div>
 
 
@@ -333,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172882.jpg" />
 </div>
 
 
@@ -359,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172717.jpg" />
 </div>
 
 
@@ -388,7 +415,7 @@ Patricia Llewellyn | Жить Вкусно с Джейми Оливером / Ja
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172712.jpg" />
 </div>
 
 
@@ -414,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172706.jpg" />
 </div>
 
 
@@ -443,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172695.jpg" />
 </div>
 
 
@@ -469,7 +496,7 @@ SovaFilm, Игорь Пелинский | Худеем с умом! Меню д�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172558.jpg" />
 </div>
 
 
@@ -495,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172536.jpg" />
 </div>
 
 
@@ -524,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172529.jpg" />
 </div>
 
 
@@ -550,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172217.jpg" />
 </div>
 
 
@@ -579,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172169.jpg" />
 </div>
 
 
@@ -607,7 +634,7 @@ Mark Schoen | Увлекательный секс: Продвинутая сек
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172151.jpg" />
 </div>
 
 
@@ -633,7 +660,7 @@ SovaFilm, Алексей Кузьмин | Эффективная самообо�
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171840.jpg" />
 </div>
 
 
@@ -661,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171833.jpg" />
 </div>
 
 
@@ -673,35 +700,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A02CD4A39D90B5A9377693AC4AD2443885B10032
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671023   (171670) от 22.10.2023
-
-Udemy, Sergio Miller | Норвежский язык "с нуля" до А2 (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Иностранные языки (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Норвежский язык для начинающих, полный курс на русском языке. Грамматика, правила чтения, сложности норвежского.
-Этот курс подходит для обучения "с нуля". Знание английского совсем НЕ обязательно, но может сильно ускорить процесс обучения.
-Давно хотели выучить норвежский? Оказалось, что это дороже и сложнее, чем выучить английский?
-Действительно, цены на (   Читать дальше...   )Производство: UdemyЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 01:17:25Реклама: Присутствуют наложения на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1445D530FBA1C0F5BFC733B71FAB63A05F5577B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

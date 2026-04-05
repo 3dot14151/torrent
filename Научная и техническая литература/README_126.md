@@ -1,135 +1,3 @@
-###  Публикация: 1107566   (868234) от 22.02.2017
-
-Л.Д. Троцкий | Война и революция. Крушение второго Интернационала и подготовка третьего [В двух томах] (1922) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая книга окажет, может быть, некоторое содействие стоящей перед нашей молодёжью задаче изучения вчерашнего дня. Атор этой книги имел во время войны преимущество - весьма условное преимущество эмигранта - в качестве наблюдателя и отчасти приматриваться к внутренней жизни нескольких европейских и северо-американской социалистических партий. Здесь собраны работы, (   Читать дальше...   )Жанр: история, публицистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FED7E971EA773D1976733AFB6E7B37CA72BA7B7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107580   (868229) от 22.02.2017
-
-Л.Д. Троцкий | Перманентная революция (1930) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая книжка посвящена вопросу, тесно связанному с историей трёх русских революций, но не только с нею. Этот вопрос за последние годы играл огромную роль во внутренней борьбе коммунистической партии Советского Союза, был затем перенесён на Коммунистический интернационал, сыграл решающую роль в развитии китайской революции и определил целый ряд первостепенной (   Читать дальше...   )Жанр: история, публицистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC0BAD034E91BA19D64C2524D4BC18969D8DC28D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107587   (868129) от 22.02.2017
-
-Л.Д. Троцкий | Терроризм и коммунизм (1920) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поводом к этой книге послужил ученый пасквиль Каутского того же наименования. Наша работа была начата в период ожесточенных боев с Деникиным и Юденичем и не раз прерывалась событиями на фронтах. В те тягчайшие дни, когда писались первые главы, все внимание Советской России было сосредоточено на чисто военных задачах. Прежде всего нужно было отстоять самую возможность (   Читать дальше...   )Жанр: история, публицистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2D3D6492F55598A72BBCF7A2644C820D279C24F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106927   (868127) от 22.02.2017
-
-О. С. Чубарьян | Человек и книга [социальные проблемы чтения] (1978) [DJVU, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868127.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассматриваются различные, прежде всего социальные, аспекты процесса чтения. На основе последних достижений советской науки в этой области автор анализирует проблемы социологии, психологии и педагогики чтения, его роль в воспитании и образовании советских людей.
-
-Особое место отведено характеристике роли библиотек — одного из главных средств пропаганды книги (   Читать дальше...   )Жанр: История, политология, социология, психология, педагогикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B22A40C7E483D1438A7CC64CDD51AC3C296C112B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496922   (868014) от 20.09.2021
-
-В.М. Куковякин | Азбука здорового питания по Майру (2007) [FB2]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868014.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге мы будем вести разговор о значении питания для здоровья, о том, какой должна быть здоровая пища, а также о том, каким должен быть безупречно функционирующий пищеварительный аппарат, способный полноценно перерабатывать поступающую пищу. И если вы, прочитав эту книгу, осознаете, что одним из важнейших, непременных условий хорошего здоровья являются полноценная (   Читать дальше...   )Жанр: ДиетологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55AC236FC234720FD1F073714A9C51CABC75C1B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1107275   (867994) от 22.02.2017
 
 Б.Н. Ковалев | Нацистская оккупация и коллаборационизм в России, 1941—1944 (2004) [PDF, DJVU]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867994.jpg" />
 </div>
 
 
@@ -164,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867877.jpg" />
 </div>
 
 
@@ -190,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867856.jpg" />
 </div>
 
 
@@ -216,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867854.jpg" />
 </div>
 
 
@@ -242,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867791.jpg" />
 </div>
 
 
@@ -270,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866933.jpg" />
 </div>
 
 
@@ -296,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866485.jpg" />
 </div>
 
 
@@ -323,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866471.jpg" />
 </div>
 
 
@@ -350,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866468.jpg" />
 </div>
 
 
@@ -376,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866370.jpg" />
 </div>
 
 
@@ -402,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866363.jpg" />
 </div>
 
 
@@ -428,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866359.jpg" />
 </div>
 
 
@@ -454,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866232.jpg" />
 </div>
 
 
@@ -481,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866228.jpg" />
 </div>
 
 
@@ -508,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866107.jpg" />
 </div>
 
 
@@ -534,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866101.jpg" />
 </div>
 
 
@@ -560,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866099.jpg" />
 </div>
 
 
@@ -586,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866095.jpg" />
 </div>
 
 
@@ -613,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865923.jpg" />
 </div>
 
 
@@ -639,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865908.jpg" />
 </div>
 
 
@@ -666,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865705.jpg" />
 </div>
 
 
@@ -678,6 +546,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C150C99946D953DF6D79624C142905AA482B9AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107719   (865603) от 23.02.2017
+
+С.М. Рюмик | 1000 и одна микроконтроллерная схема. Выпуск 3 (2016) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865603.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новой книге «Выпуск 3» содержатся электрические схемы сопряжения микроконтроллеров с внешними устройствами. Основной упор, в отличие от аналогичных по тематике изданий, делается на рассмотрение небольших, конструктивно завершённых, схемных узлов.
+В книге освещается работа базовых микроконтроллерных подсистем, в частности ввода и вывода сигналов, питания, тактирования, (   Читать дальше...   )Жанр: ЭлектроникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:193B913034891F5833080529D3FADC9D97F4EE06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375418   (865384) от 14.04.2020
+
+Екатерина Кононенко | Продюсер. Инструкция по применению, или Куда приводят мечты (2019) [EPUB]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865384.jpg" />
+</div>
+
+
+###  Подробнее
+
+Екатерина Кононенко – продюсер таких громких и рейтинговых проектов, как фильмы "Марафон желаний", "Я худею", "Хардкор", "Кислород", "Троица", клипов к песням "Пьяная любовь" (Дима Билан & Polina), "Вояж" и "Кольщик" (группа "Ленинград") и многих других.
+
+"В кино у (   Читать дальше...   )Жанр: Культура и искусство, Кинематограф, Истории успехаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67EC1D3AB3D67B7344885CE185BD898FE02017D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375587   (865312) от 14.04.2020
+
+Серджио Боллиторе | Италия. Полная история страны (2020) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865312.jpg" />
+</div>
+
+
+###  Подробнее
+
+Италия – страна с историей, которая насчитывает не одну тысячу лет. Цезарь, Наполеон, Леонардо да Винчи – великие итальянцы, которые покорили мир! А сколько открытий и достижений во всех областях науки и искусства было совершено именно в Италии! Все самые важные события от этрусков до Берлускони найдет читатель в этой книге. Интересно читать и легко запомнить все (   Читать дальше...   )Жанр: Культурология, Популярно об историиФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F474CAD9FD2739CA50EE764590BDDD7544979DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375453   (865305) от 14.04.2020
+
+Джон Брокман (ред.) | Искусственный интеллект – надежды и опасения (2020) [FB2]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865305.jpg" />
+</div>
+
+
+###  Подробнее
+
+В далеком 1950 году американский математик, отец-основатель кибернетики и теории искусственного интеллекта Норберт Винер опубликовал работу «Человеческое применение человеческих существ» (в русском переводе – «Кибернетика и общество»), в которой выразил свои опасения, связанные с развитием искусственного интеллекта.Жанр: Научно-популярная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7B1460A10CDCDBF7F6AEC53120A50F18AA787C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 300787   (865293) от 02.03.2011
+
+Мир в войнах | Серия книг [1998-2006] [fb2, djvu]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Формат: fb2, djvu
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

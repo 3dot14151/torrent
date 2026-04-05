@@ -1,3 +1,55 @@
+###  Публикация: 1771780   (31638) от 08.01.2025
+
+Toy Tactics (2023) [Ru/Multi] (1.1E) Repack FitGirl
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Toy Tactics - основанная на законах физики стратегия в реальном времени, в которой вы можете рисовать боевые построения и отправлять в бой валкие игрушки. Под руководством легендарных генералов научитесь рисовать схемы расположения на поле боя и отправляйте крошечные легионы в бой с ордами нежити. Усиливайте армию артефактами и разрушительными заклинаниями, чтобы (   Читать дальше...   )Тип издания: RepackРазработчик: Kraken EmpireЖанр: Экшены, Казуальные игры, Инди, Симуляторы, СтратегииЯзык озвучки: Английский, ИспанскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B2C55CE3E5BD3321773B95A0D2C510BFE0EA3DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747595   (31554) от 09.01.2025
+
+Red Solstice 2: Survivors (2021) [Ru/Multi] (3.16/dlc) Repack Wagner
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31554.jpg" />
+</div>
+
+
+###  Подробнее
+
+После падения Земли прошло 117 лет, и перед вами стоит крайне важная задача. Вас пробудили, чтобы вы возглавили «Ячейку» - секретное спецподразделение, созданное для борьбы с нашествием мутантов, которые стали жертвами вируса STROL. Вам с отрядом предстоит прорваться сквозь ряды мутантов и найти лекарство от опасного вируса, который ставит под угрозу существование (   Читать дальше...   )Тип издания: RepackРазработчик: IronwardЖанр: Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF3E2DD8EB58F63904EE465F71A8A5A115CD4282
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1772490   (31297) от 11.01.2025
 
 Galactic Civilizations IV (4) (2023) [Ru/Multi] (2.92/dlc) Repack FitGirl [Supernova Edition]
@@ -6,7 +58,7 @@ Galactic Civilizations IV (4) (2023) [Ru/Multi] (2.92/dlc) Repack FitGirl [Super
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31297.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Dynasty Warriors: Origins (2025) [Multi] (1.0.0.2/dlc) Repack FitGirl [Digital D
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30925.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Root (2020) [Ru/Multi] (1.32/dlc) Repack Let'sРlay [Collector's Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30871.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Dynasty Warriors: Origins (2025) [Multi] (1.0.0.2/dlc) Repack DjDI [Digital Delu
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30812.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Terra Exodus (2025) [En] (43.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30692.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ The Great War: Western Front (2023) [Ru/Multi] (Build 822194/dlc) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28596.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Status One (2025) [Ru/Multi] (1.1.0) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28541.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Exogate Initiative (2023) [Multi] (1.0.0.97bd92b) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28190.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Sumerian Six (2024) [Ru/Multi] (1.0.3) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28118.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Thronefall (2024) [Ru/Multi] (2.12) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28096.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Door Kickers (2014) [Ru/Multi] (1.1.6) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27945.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Door Kickers 2: Task Force North (2020) [Ru/Multi] (1.00) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27751.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Fantasy General II (2019) [Ru/Multi] (01.02.12913/dlc) Repack Let'sРlay [Comple
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27451.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Secrets of Magonia (2024) [Ru/Multi] (1.10с) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27353.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Dune: Spice Wars (2023) [Ru/Multi] (2.2.6.32935/dlc) Repack Let'sРlay [The Ixia
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26853.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Victoria 3 (2022) [Ru/Multi] (1.8.6/dlc) Repack dixen18 [Grand Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26744.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Galactic Civilizations IV (4) (2023) [Ru/Multi] (2.95/dlc) Repack seleZen [Super
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26207.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ FRONT MISSION 1: Remake (2023) [Ru/Multi] (3.0.1/dlc) Repack Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26201.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Door Kickers 2: Task Force North (2020) [Ru/Multi] (1.05) Repack Pioneer
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26186.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Might and Magic: Heroes VI / Might & Magic: Heroes VI / Герои меча и �
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25988.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Old World (2022) [Ru/Multi] (1.0.76630/dlc) Repack FitGirl [Complete]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25794.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Knights in Tight Spaces (2025) [Ru/Multi] (1.0.18525) Repack FitGirl [Collector'
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25578.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Galactic Civilizations IV (4) (2023) [Ru/Multi] (2.95/dlc) Scene Rune [Supernova
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25169.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Panzer Corps 2 (2020) [Ru/Multi] (1.14.3/dlc) Repack seleZen [Complete Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24909.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Panzer Corps 2 - Field Marshal Edition - ультимативное люксов
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2500154D517319C7E4A7BD3513746325A9DE5B86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784879   (24850) от 13.03.2025
-
-Combat Mission: Black Sea (2021) [Multi] (2.18.01/dlc) License GOG
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24850.jpg" />
-</div>
-
-
-###  Подробнее
-
-После того, как в 2014 году напряжение между Россией и Украиной вышло на новый уровень, в 2017 году две державы перешли в открытое военное противостояние. Американские силы помогают Украине в защите от врага. На выбор доступно 3 фракции. Каждая сторона имеет свои особенности и уникальный набор юнитов. Представлены пехотные мехи, мотострелковые отряды, бронированная (   Читать дальше...   )Тип издания: LicenseРазработчик: BattlefrontЖанр: Симуляторы, СтратегииЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14F37C98412EF2B59F3EB6A713B1E0EED59685F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784829   (24798) от 13.03.2025
-
-Panzer Corps 2 (2020) [Ru/Multi] (1.14.3/dlc) Repack FitGirl [Complete Edition]
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24798.jpg" />
-</div>
-
-
-###  Подробнее
-
-Panzer Corps 2 - Field Marshal Edition - ультимативное люксовое издание игры Panzer Corps 2, включающее в себя все бонусные материалы General Edition плюс первые два из будущих дополнений. Panzer Corps 2 - лучшая стратегическая игра о Второй мировой войне! Классический игровой процесс, который полюбили миллионы игроков во всем мире, получил дальнейшее развитие и (   Читать дальше...   )Тип издания: RepackРазработчик: Flashback GamesЖанр: Стратегия, Пошаговая, ИсторическаяЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECB123E257A49E29F7D736412D2E0837B43A46B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

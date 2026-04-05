@@ -1,29 +1,3 @@
-###  Публикация: 575402   (365121) от 16.11.2012
-
-Видеоурок | Технология ремонта блока питания ATX [2012] WEB-DLRip [H.264/1080p]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Блок питания персонального компьютера преобразует сетевое переменное напряжение 220 вольт 50 герц в постоянное напряжение плюс пять и плюс двенадцать вольт которые используются для питания цифровых схем. Вам представлен один из вариантов ремонта блока питания. Приятного просмотра.Жанр: ВидеоурокПродолжительность: 00:23:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9B3CEAF9B1ABD01DB88526B5277D6181E775462
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 797926   (364811) от 28.10.2015
 
 Lynda.com | Bootstrap 3 (2013-2014) [PCRec] [EN]
@@ -32,7 +6,7 @@ Lynda.com | Bootstrap 3 (2013-2014) [PCRec] [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364811.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364742.jpg" />
 </div>
 
 
@@ -87,7 +61,7 @@ Fandroid | Продвинутый курс по созданию андроид-
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364606.jpg" />
 </div>
 
 
@@ -114,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364602.jpg" />
 </div>
 
 
@@ -140,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364520.jpg" />
 </div>
 
 
@@ -167,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364512.jpg" />
 </div>
 
 
@@ -193,7 +167,7 @@ Stepik, Дмитрий Фокеев | Верстка и веб-разработ�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363277.jpg" />
 </div>
 
 
@@ -222,7 +196,7 @@ Slurm (Слёрм), В. Севостьянов, А. Бурылов | Apache Kafk
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363276.jpg" />
 </div>
 
 
@@ -251,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362309.jpg" />
 </div>
 
 
@@ -277,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362307.jpg" />
 </div>
 
 
@@ -305,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362194.jpg" />
 </div>
 
 
@@ -334,7 +308,7 @@ Slurm (Слёрм), Александр Волочнев | AWS База. Адми
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361058.jpg" />
 </div>
 
 
@@ -360,7 +334,7 @@ Lectoria, Артем Зернов | MODX: Большой курс по разр�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361056.jpg" />
 </div>
 
 
@@ -389,7 +363,7 @@ Slurm (Слёрм), Денис Наумов и др. | Python: Работа с A
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361053.jpg" />
 </div>
 
 
@@ -417,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361052.jpg" />
 </div>
 
 
@@ -446,7 +420,7 @@ Slurm (Слёрм), Марсель Ибраев и др. | Docker: from zero to 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361050.jpg" />
 </div>
 
 
@@ -474,7 +448,7 @@ Slurm (Слёрм), Владимир Федорков | Тюнинг и масш
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361048.jpg" />
 </div>
 
 
@@ -503,7 +477,7 @@ Udemy, Roman Dushkin | Системы, основанные на знаниях 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359132.jpg" />
 </div>
 
 
@@ -529,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359129.jpg" />
 </div>
 
 
@@ -555,7 +529,7 @@ Foxminded, Дмитрий Береговец | Python с нуля. Курс пи
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358670.jpg" />
 </div>
 
 
@@ -581,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357634.jpg" />
 </div>
 
 
@@ -610,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355221.jpg" />
 </div>
 
 
@@ -638,7 +612,7 @@ Slurm (Слёрм), Павел Селиванов | Terraform (2022) WEB-DL [К�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353933.jpg" />
 </div>
 
 
@@ -667,7 +641,7 @@ Slurm (Слёрм), Иван Чувашов | PostgreSQL: replication, backup an
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353912.jpg" />
 </div>
 
 
@@ -695,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353797.jpg" />
 </div>
 
 
@@ -708,6 +682,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E55D58369E40CDA1A2E57A24478B97C6343713ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952217   (353156) от 02.11.2015
+
+Oleg Lav | Right Click Enhancer Professional - Редактор контекстного меню (2015) PCRec [H.264/720p]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Right Click Enhancer Professional — создание волшебного меню правой кнопки мыши одна из тех программ кому нравится порядок, аккуратность и быстрота действий при работе с компьютером. Right Click Tweaker - позволит добавить в контекстное меню уже готовые твики. Right Click Shortcust Creator - добавляем новые папки, файлы, ярлыки приложений и быстрый доступ к различным (   Читать дальше...   )Жанр: МенюПродолжительность: 00:05:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C90463CC4C2BB93F9DD824AED612522DC6358BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

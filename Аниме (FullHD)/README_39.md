@@ -6,7 +6,7 @@ Gekijouban KanColle | Kantai Collection Movie | Fleet Girls Collection: Movie Se
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335187.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Ikoku Meiro no Croisee The Animation | Croisee in a Foreign Labyrinth: The Anima
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334446.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Gekijouban Sidonia no Kishi | Knights of Sidonia | Рыцари Сидонии (
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334099.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Night Head 2041 | Сумеречный разум 2041 [2021, TV, 12 эп.] BDRi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333217.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Yawara! Sore Yuke Koshinuke Kids!! | Yawara!: Go Get 'Em, Wimpy Kids!! | Ява�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332272.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Yawara! A Fashionable Judo Girl | Явара! [1989, TV, 124 из 124] BDRip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332263.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Yawara! Special: Zutto Kimi no Koto ga... | Yawara! Atlanta Special | Явара
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332259.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Saiki Kusuo no Sainan S1+S2 | The Disastrous Life of Saiki K. | Ох уж это
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332021.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Karakai Jouzu no Takagi-san 3 | Teasing Master Takagi-san 3 | Озорная Т�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329838.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Aoki Hagane no Arpeggio: Ars Nova | Arpeggio of Blue Steel | Мелодия во
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328898.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ One Piece 3D2Y: Ace no shi wo Koete! Luffy Nakama Tono Chikai | 3D2Y: Переж
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324409.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Panda Kopanda: Amefuri Circus no Maki | Panda! Go, Panda!: Rainy Day Circus | Б
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322802.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Panda Kopanda | Panda! Go, Panda! | Большая панда и маленьк�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322800.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Mahou Sensei Negima! | Negima! | Волшебный учитель Нэгима!
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320744.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Sora to Umi no Aida | Space Fish: Between the Sky and Sea | Между небо�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317566.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Bakuman / Бакуман [ТВ-1] [2010, TV, 25 из 25] BDrip 1080p Hi10p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317283.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Kimi ni Todoke / Reach You / Дотянуться до тебя [2009, TV, 25 э
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317281.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Kidou Keisatsu Patlabor (1990) | Mobile Police Patlabor - The New Files | Пол
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317278.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Macross Zero | Макросс Зеро [2002, OVA, 5 эп.] BDRip 1080p Hi10P ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317185.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Kiseijuu: Sei no Kakuritsu | Parasyte: The Maxim | Паразит [2015, TV, 24]
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317182.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Natsume Yuujinchou / Тетрадь дружбы Нацумэ (первый се
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317178.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Karas /  Crow /  Карас  [2005, OVA,  6 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317047.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Fumiko no Kokuhaku | Fumiko's Confession | Признание Фумико [2009
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316762.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Alice or Alice | Алиса или Алиса [2018, TV, 12 эп. + OVA] BDrip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316626.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Paulette no Isu | Стульчик Полетты [2014, Другое] BDrip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316624.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Hinata no Aoshigure | Солнце сквозь дождик [2013, Movie] BDrip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316618.jpg" />
 </div>
 
 

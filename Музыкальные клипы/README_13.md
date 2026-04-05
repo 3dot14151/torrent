@@ -6,7 +6,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803299.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802121.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801633.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Satyricon - Fuel For Hatred (2002) DVDRip [H.264/1080p-LQ] [Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801042.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796792.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ The Beatles 1962-1970 (2015) BDRip [H.264/720p] [handmade AI colored]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792681.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792661.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791949.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790354.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784828.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783038.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Roxette - Видеоколлекция от ALEXnROCK (2018) WEBRip [H.264/720p-
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780169.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778460.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Everest of Rock - 1 (1980) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777212.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Wax Audio - Mashopolos (2016) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777139.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777078.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776783.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ VA - Весенний марафон № 227: С 8 Марта (2017-2018) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776740.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ VA - Весенний марафон № 228: (Дискотека с разма�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776704.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776353.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Rammstein - Видеоколлекция от ALEXnROCK (2018) DVDRip, BDRip [H.
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776301.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ VA - Весенний марафон № 229: (Новые Лучшие Зару�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776273.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Everest of Rock - 2 (1980) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775680.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Bon Jovi - Music Video (51 клип) (1985-2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774197.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774037.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ Everest of Rock - 3 (1980) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771350.jpg" />
 </div>
 
 

@@ -1,3 +1,33 @@
+###  Публикация: 465233   (82122) от 14.03.2012
+
+Ангелина Шам | Лекции по психологии бизнеса [2009 - 2010] DVDRip
+
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82122.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждому человеку приходится сталкиваться с тем, что принято называть деловым общением. Что значит "умело вести деловые переговоры"? Как научиться быть в них одновременно твердым и гибким? Какой стиль ведения таких переговоров оптимален? Во многом от того, насколько вы владеете наукой и искусством убеждения, зависит успех вашей деятельности.
+В курсе содержится три лекции:
+1. Как побеждать за столом переговоров
+2. Эффективное манипулирование людьми
+3. Язык жестовЖанр: Бизнес - психологияПродолжительность: 02:07:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B24BF551704F840C6A9BDAA264CE82D136BE92E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 465998   (81535) от 11.03.2012
 
 Эльдар Гузаиров | Уроки игры на гитаре (проект "Я Гитарист") [2011] CamRip
@@ -6,7 +36,7 @@
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81535.jpg" />
 </div>
 
 
@@ -37,7 +67,7 @@ hochuchu | Использование функции ReWire в Adobe Audition 3.
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80261.jpg" />
 </div>
 
 
@@ -65,7 +95,7 @@ hochuchu | Параллельная обработка звука эффекта
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79456.jpg" />
 </div>
 
 
@@ -93,7 +123,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78894.jpg" />
 </div>
 
 
@@ -121,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78860.jpg" />
 </div>
 
 
@@ -151,7 +181,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78426.jpg" />
 </div>
 
 
@@ -177,7 +207,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78391.jpg" />
 </div>
 
 
@@ -203,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78367.jpg" />
 </div>
 
 
@@ -229,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78248.jpg" />
 </div>
 
 
@@ -255,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77989.jpg" />
 </div>
 
 
@@ -284,7 +314,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77819.jpg" />
 </div>
 
 
@@ -310,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75165.jpg" />
 </div>
 
 
@@ -336,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74548.jpg" />
 </div>
 
 
@@ -369,7 +399,7 @@ JUG Ru Group | Mobius 2024 Autumn. Конференция для мобильн�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70467.jpg" />
 </div>
 
 
@@ -395,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70309.jpg" />
 </div>
 
 
@@ -424,7 +454,7 @@ Desertmsk | Конфеты Птичье молоко (2022) WEB-DL [RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69457.jpg" />
 </div>
 
 
@@ -450,7 +480,7 @@ Desertmsk | Зефир в шоколаде (2022) WEB-DL [RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69454.jpg" />
 </div>
 
 
@@ -477,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69086.jpg" />
 </div>
 
 
@@ -506,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69070.jpg" />
 </div>
 
 
@@ -535,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63822.jpg" />
 </div>
 
 
@@ -562,7 +592,7 @@ Gumroad, Pierrick Picaut | Alive! Animation course in Blender 2.9 [Chapters 1-9]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63772.jpg" />
 </div>
 
 
@@ -589,7 +619,7 @@ ITsets | Дизайн-симулятор - Middle UI - UX-дизайнер (2023
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63681.jpg" />
 </div>
 
 
@@ -618,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63651.jpg" />
 </div>
 
 
@@ -646,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63598.jpg" />
 </div>
 
 
@@ -675,7 +705,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63569.jpg" />
 </div>
 
 
@@ -688,35 +718,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62CC0F7A19CF93EFF6CD2EB511E7845EA290EADF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469246   (63563) от 09.03.2024
-
-Елена Удалова | Курсы немецкого языка (2020) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Иностранные языки (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка курсов немецкого языка Елены Удаловой:
-Немецкий Курс для нулевиков
-Курс немецкого языка для начинающих
-Курс немецкого языка для продолжающих(   Читать дальше...   )Жанр: Немецкий языкЯзык озвучки: РусскийПродолжительность: 136:25:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BCE1870E77974FE2DDA98857721AFC919DA649D
 ```
 
 https://mybot314.ru/tekegram_catalog/

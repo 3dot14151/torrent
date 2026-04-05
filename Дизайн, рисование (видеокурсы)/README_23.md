@@ -1,3 +1,56 @@
+###  Публикация: 1499241   (849526) от 01.10.2021
+
+kalachevaschool, Светлана Плакасова | Синий ирис (2018) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849526.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Китае ирис обозначает уважение, доверие и верность. Синий — цвет сосредоточенности, помогающей вершить великие дела. Цветок символизирует лето. Специалисты по фэншуй считают ирис символом жизни, не знающей старости, символом веры и надежды.Производство: kalachevaschoolЖанр: Создание видеоПродолжительность: 00:48:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61238F259DCEFFDF44097290355B2A1DFA2D59A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499244   (849425) от 01.10.2021
+
+kalachevaschool, Светлана Плакасова | Лиловая глициния (2018) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849425.jpg" />
+</div>
+
+
+###  Подробнее
+
+В странах Востока глициния символизирует хрупкость, утонченность, нежность и чистоту.
+У китайцев есть красивая легенда об этом растении. В одном селении жила прекрасная девушка Гуй. Она была так красива, что люди забывали обо всем, глядя на ее лицо и удивительные длинные волосы. Днем они переливались яркими лилово-фиолетовыми красками, а вечером от них исходило нежное (   Читать дальше...   )Производство: kalachevaschoolЖанр: Создание видеоПродолжительность: 00:48:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F74FA34F0C21E7A1376A7389F9C4770C10AF90BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1499230   (849420) от 01.10.2021
 
 kalachevaschool, Александра Балашова | Героини сказок (2018) PCRec
@@ -6,7 +59,7 @@ kalachevaschool, Александра Балашова | Героини сказ
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849420.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ kalachevaschool, Александра Балашова | Волшебные су
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849414.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ kalachevaschool, Александра Балашова | Мужские перс
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849407.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ Motion Design School | Cinema 4D Journey (2019) PCRec [H.264/1080p-LQ] (урок
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849352.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ kalachevaschool, Анна Михеева | Ювелирные украшения
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849296.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ FlippedNormals | Скульптинг инопланетянина в Blender 2.
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847924.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847909.jpg" />
 </div>
 
 
@@ -193,7 +246,7 @@ Max Twain, Katy Joker | KIARA (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845820.jpg" />
 </div>
 
 
@@ -219,7 +272,7 @@ Max Twain, Many Wayne | IDOL (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845818.jpg" />
 </div>
 
 
@@ -245,7 +298,7 @@ Max Twain, Stan Air | QUEENY (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845809.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ CG Cookie | Введение в видеоэффекты в Blender 2.63 / Intro
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844638.jpg" />
 </div>
 
 
@@ -298,7 +351,7 @@ Udemy | Симуляция жидкости с помощью Mantaflow в Blend
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844633.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ Udemy | Создание видеоэффектов с помощью продв
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844551.jpg" />
 </div>
 
 
@@ -350,7 +403,7 @@ Udemy, Josh Gambrell | Недеструктивное твёрдотельное
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844401.jpg" />
 </div>
 
 
@@ -376,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842496.jpg" />
 </div>
 
 
@@ -404,7 +457,7 @@ kalachevaschool, Евдокия | Настроение города (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841201.jpg" />
 </div>
 
 
@@ -430,7 +483,7 @@ kalachevaschool, Евдокия | Колоритные жители (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841200.jpg" />
 </div>
 
 
@@ -457,7 +510,7 @@ kalachevaschool, Анастасия Лавру | Добрый волшебник
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841197.jpg" />
 </div>
 
 
@@ -483,7 +536,7 @@ kalachevaschool, Анастасия Лавру | Мудрая сова (2018) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841196.jpg" />
 </div>
 
 
@@ -509,7 +562,7 @@ kalachevaschool, Евдокия | Ритм улиц (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841187.jpg" />
 </div>
 
 
@@ -535,7 +588,7 @@ kalachevaschool, Анастасия Лавру | Сказочный замок (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841183.jpg" />
 </div>
 
 
@@ -561,7 +614,7 @@ Udemy, Emiel Sleegers | Full Environment Creation in UE5 & Blender 2.92 - In-Dep
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840824.jpg" />
 </div>
 
 
@@ -587,7 +640,7 @@ ArtStation, Emiel Sleegers | Creating a metro train interior in Unreal Engine 5 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_839347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_839347.jpg" />
 </div>
 
 
@@ -613,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839183.jpg" />
 </div>
 
 
@@ -627,60 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51CBF2DED4382CE1604244D2C9DC0F024F509100
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501165   (837752) от 08.10.2021
-
-Schoolism, Sonja Christoph | Introduction to Blender 2.9 (2021) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Моделирование, живопись, анимация, симуляция, рендеринг... есть что-нибудь, чего вы НЕ МОЖЕТЕ сделать в Blender?
-Возможности кажутся бесконечными, и 3D-инструменты, такие как Blender, сделали визуальное повествование еще более доступным для художников, а также предоставили художникам инструменты, необходимые им для создания 3D-арта высокого уровня, к которому сегодня (   Читать дальше...   )Производство: SchoolismЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 07:26:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:545D72F2DA9B6A98969B86BA551577C8EC4F0239
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500252   (837643) от 08.10.2021
-
-Learn Squared, Joe Garth | Unreal Environments with Unreal expert Joe Garth (2020) PCRec [EN, RU]
-
->>След.
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837643.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создавайте миры в реальном времени.
-Создавайте красивые, реалистичные миры в Unreal Engine 4 под руководством Джо Гарта, одного из лучших художников индустрии в реальном времени. Поработав над такими проектами, как Quixel's Rebirth и Crysis, Джо научит вас всему, что вам нужно знать, чтобы начать работу с окружением в Unreal.Производство: Learn SquaredЖанр: 3D моделирование, Разработка игрЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 13:14:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A96C6DA8E4EBF0244FB4D8944DCABB8B2AA84F61
 ```
 
 https://mybot314.ru/tekegram_catalog/

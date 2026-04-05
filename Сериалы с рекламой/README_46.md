@@ -1,3 +1,55 @@
+###  Публикация: 1703029   (115365) от 27.02.2024
+
+Мэнди и силы зла / Mandy und die Machte des Bosen (2023-2024) WEB-DLRip (сезон 1, серии 1-8 из 8) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115365.jpg" />
+</div>
+
+
+###  Подробнее
+
+На вечеринке в честь Хэллоуина с Мэнди Пёппль происходит несчастный случай, после которого у неё появляются агорафобия и панические атаки. В квартире, где Мэнди живёт со своей матерью Тиффани, она устраивает спиритические сеансы, чтобы заработать себе на жизнь. Однако, когда во время одного из надувательских сеансов внезапно появляется призрак её соседки Сельчан, (   Читать дальше...   )Производство: Австрия / Caligari Film- und Fernsehproduktions, Samsara FilmproduktionЖанр: ужасыРежиссер: Франциска Мейер Прайс, Андреас ШмидАктеры: Giovanni Funiati, Bayan Layla, Eli Riccardi, Ребекка Иммануэль, Рафаэль Гарайзен, Михаэль Пинк, Инге Маукс, Томас Пон, Christina Trefny, Сафира Робенс и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:25:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6F02F96C88F79A4F46E102D3D14B21495438037
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703028   (115338) от 27.02.2024
+
+Мэнди и силы зла / Mandy und die Machte des Bosen (2023-2024) WEB-DLRip [H.264/1080p] (сезон 1, серии 1-8 из 8) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115338.jpg" />
+</div>
+
+
+###  Подробнее
+
+На вечеринке в честь Хэллоуина с Мэнди Пёппль происходит несчастный случай, после которого у неё появляются агорафобия и панические атаки. В квартире, где Мэнди живёт со своей матерью Тиффани, она устраивает спиритические сеансы, чтобы заработать себе на жизнь. Однако, когда во время одного из надувательских сеансов внезапно появляется призрак её соседки Сельчан, (   Читать дальше...   )Производство: Австрия / Caligari Film- und Fernsehproduktions, Samsara FilmproduktionЖанр: ужасыРежиссер: Франциска Мейер Прайс, Андреас ШмидАктеры: Giovanni Funiati, Bayan Layla, Eli Riccardi, Ребекка Иммануэль, Рафаэль Гарайзен, Михаэль Пинк, Инге Маукс, Томас Пон, Christina Trefny, Сафира Робенс и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:25:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEBF8F58827C047B5D0CF6C854DC635B46981150
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704712   (114211) от 05.03.2024
 
 Исчезающий треугольник / The Vanishing Triangle (2023) WEB-DLRip (сезон 1, серии 1-6 из 6) ViruseProject [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114211.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114189.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114075.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113733.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111347.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111341.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109498.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109476.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108240.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108239.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108204.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107407.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107404.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107379.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107331.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107327.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107149.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106936.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106935.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106920.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106913.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106812.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106794.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106103.jpg" />
 </div>
 
 
@@ -617,59 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36AEE54BE0FF2F48E425FBF2CEB9128B8C560374
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739151   (106096) от 27.07.2024
-
-Добрые друзья. Взлёт футбольного клуба Бавария / Gute Freunde - Der Aufstieg des FC Bayern (2023) WEBRip (сезон 1, серии 1-6 из 6) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106096.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал «Добрые друзья» повествует о триумфах и неудачах мюнхенского футбольного клуба «Бавария» в конце 1960-х - начале 1970-х годов, когда начался его путь к статусу одной из величайших команд мира.  Пять талантливых футболистов следуют своей страсти: Герд Мюллер, Зепп Майер, Франц Беккенбауэр, Пауль Брайтнер и Ули Хёнесс прокладывают дорогу в профессиональный футбол. (   Читать дальше...   )Производство: Германия / UFA FictionЖанр: драмаРежиссер: Дэвид ДитльАктеры: Максимилиан Брюкнер, Михаэль Гримм, Маркус Кроер, Саша Александр Гершак, Мартин Брамбах, Moritz Lehmann, Макс Хубахер, Леони Бриль, Лео Райзингер, Янник Бекер и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:45:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:111DC24CBE1B4EFB2E5E299BDC2B80AF47129F94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739812   (105977) от 30.07.2024
-
-Другая жизнь / Zeytin Agaci / Another Self (2022) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105977.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три подруги приезжают в морской городок на сеанс групповой терапии и неожиданно для себя узнают о непроработанных травмах своих семей.
-"Другая Жизнь" - это не просто сериал о любви и интригах, это история о поиске своего истинного "Я" в мире, полном лжи и предательства. Этот сериал заставит вас задуматься о жизненных ценностях, о том, что по-настоящему (   Читать дальше...   )Производство: Турция / OGM PicturesЖанр: драма, мелодрамаРежиссер: Бурджу АлптекинАктеры: Туба Бюйюкюстюн, Седа Бакан, Бонджук Йылмаз, Мурат Боз, Фырат Таныш, Серкан Алтунорак, Рыза Коджаолу, Фюсун Дэмирэль, Умут Курт, Mehmet Aybars Kaya и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:50:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:284746BAC5A33E3C994927D19CEA480B5570103D
 ```
 
 https://mybot314.ru/tekegram_catalog/

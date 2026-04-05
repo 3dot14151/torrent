@@ -6,7 +6,7 @@ BBC: Одна жизнь / One Life (2011) BDRemux [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602479.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602450.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BBC: Таинственный мир гормонов / The Fantastical World of
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602245.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Discovery: Как устроена Земля / How the Earth Works (2013) HDTVR
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602236.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NGW: Секреты зоопарка. Ждем малыша! / Secrets of the Zo
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602142.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ NG. Мегазаводы: Тата Нано / Megafactories: Tata Nano (2023) HD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601858.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Discovery. Эд Стаффорд: Игра на вылет / Ed Stafford: First 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601658.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Discovery. Почему пал Древний Египет? / Why Ancient Egypt 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601565.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ National Geographic. В Святом Иерусалиме / Secrets of Jerusalem
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601216.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Discovery. Природа человека / Human Nature (2012) SATRip [Сер�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601139.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ NGW: На прогулке с жирафами / Walking with Giraffes (2017) HD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599930.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ NGW: Гризли Аляски бросают вызов. Осада белым�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599925.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599740.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ BBC: Первобытная Америка / BBC: Wild New World (2002) DVDRip (
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599430.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ DV: Невероятное вокруг нас. Следы ДНК [12 из 28] /
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598813.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Discovery. Игра на жизнь / Survive That! (2013) HDTVRip [Сезон 1
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598337.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Discovery. Игра на жизнь / Survive That! (2014) HDTVRip [Сезон 2
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598331.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ NG: Прекрасная Америка: Величественный Север
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598226.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ NGW: Могущественные рептилии / Planet of the Reptiles (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598067.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Discovery. Встречи на краю света / Encounters at the End of th
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597663.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Discovery: Крушение Concordia: Взгляд изнутри / Cruise Ship
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597294.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Discovery: Внутри планеты Земля / Inside Planet Earth (2009) B
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597136.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Discovery. Уличные гонки: Новый Орлеан / Discovery. Stree
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597090.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Discovery. Через червоточину с Морганом Фримено�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597076.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ BBC: История Шотландии с Нейлом Оливером [Сез�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596970.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ History Channel: Вселенная.  Как возникла Солнечная
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596958.jpg" />
 </div>
 
 

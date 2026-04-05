@@ -1,3 +1,163 @@
+###  Публикация: 1103906   (882646) от 13.02.2017
+
+Другой мир: Войны крови / Underworld: Blood Wars (2016) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882646.jpg" />
+</div>
+
+
+###  Подробнее
+
+Воительница-вампир Селена вступает в свой последний и решающий бой между оборотнями и кланом вампиров, который её предал.Производство: США / Lakeshore Entertainment, Screen Gems, Sketch FilmsЖанр: ужасы, боевикРежиссер: Анна ФерстерАктеры: Кейт Бекинсейл, Тео Джеймс, Лара Пулвер, Чарльз Дэнс, Тобайас Мензис, Брэдли Джеймс, Алисия Вела-Бэйли, Трент Гарретт, Дэйзи Хэд, Джеймс Фолкнер, Оливер СтаркПеревод: Профессиональный (многоголосый, закадровый) (Paradox&Omsbird)Язык субтитров: АнглийскийПродолжительность: 01:31:49Реклама: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88ED1372BE66CFB8296DFA2D970FA0A10AD99B52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 891636   (882644) от 13.02.2017
+
+ITVDN | Коллекция видеокурсов (2014-2015) PCRec
+
+>>3
+>>9
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882644.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная коллекция представляет собой 26 отдельных видео курсов IT video developers network, включающая в себя C#, SQL, ASP.NET, WPF, JavaScript, JQuery, HTML, CSS, и несколько общих тем, которые заинтересуют разработчика работающго в Visual Studio. Материал будет полезен как и новичкам, так и уже практикующим разработчикам, использующих указанные выше инструменты. (   Читать дальше...   )Жанр: ПрограммированиеПродолжительность: 250:08:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:833AC8F2133A3694BD0B985EB07D7D003490EB32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 761241   (882637) от 07.03.2014
+
+Microsoft Office 2013 SP1 VL RUS-ENG x86-x64 Compact (AIO)
+
+>>3
+>>19
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882637.jpg" />
+</div>
+
+
+###  Подробнее
+
+Офисный пакет Microsoft Office 2013 представляет собой воплощение новой философии компании, в которой центром мироздания объявлен не один конкретный персональный компьютер, а человек владеющий этим компьютером, а также несколькими другими, да еще и смартфоном с планшетом и прочими электронными помощниками в придачу. И, чтобы нам с тобою не заблудиться в этих горах (   Читать дальше...   )Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2EC10714DC5D9CE3CDA48C3AFD6A6416F054E79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 870801   (882194) от 20.02.2015
+
+Highlights School | Цветокоррекция и тонирование в Photoshop (2014) PCRec
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882194.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный мастер-класс будет полезен для фотографов и ретушеров всех уровней: от начинающих, до уже практикующих профессионалов.Жанр: Ретушь, тонирование фотоПродолжительность: 03:15:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:597F77BF082B481DC7CA2E01F62326131D6C0119
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 870687   (882193) от 20.02.2015
+
+Highlights School | Секреты творческой фотографии (2015) PCRec
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный мастер-класс будет полезен для фотографов и ретушеров всех уровней: от начинающих, до уже практикующих профессионалов.Жанр: Коллажирование, ретушь, тонировкаПродолжительность: 05:38:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C88374A54CA763D95B4784B1098353F2BA6E72B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 863965   (882190) от 20.02.2015
+
+Bleach / Блич (2004, TV, 366 + 2 OVA + 4 Movies) DVDRip/HDTVRip/BDRip 480/720p Raw + rus
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ад - место, где черные от грехов души предаются смертным мукам и ужасным пыткам за совершенные при жизни преступления. Синигами запрещено связываться с Адом и на этот запрет есть много причин...
+Но даже в Аду все не так хорошо. Несколько Тогабито (Brutal Prisoners или Ужасные Пленники) устраивают переворот и выбирают для себя цель - Каракуру и Куросаки Ичиго. Семья (   Читать дальше...   )Жанр: Приключения, Фэнтези, СёнэнРежиссер: Абэ НориюкиЯзык субтитров: rus Если нет субтитров рядом - они внутри.
+Подгонял ВСЕ субтитры Я. Ушло часов 8. Не считая времени на сборку 4 фильма. Если в некоторых сериях сабы отстают/спешат на 1 секунду, не серчайте.
+
+Кто будет честно тырить сборку сабов и серии, упоминать наш форум-трекерПродолжительность: 1:33:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31D7B251AF062F2409907C8B894F7DAB1A96D9BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1495239   (881960) от 11.09.2021
 
 20 лет спустя. Загадка одиннадцатого сентября (2021) SATRip [H.264]
@@ -6,7 +166,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881960.jpg" />
 </div>
 
 
@@ -32,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881956.jpg" />
 </div>
 
 
@@ -58,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881949.jpg" />
 </div>
 
 
@@ -85,7 +245,7 @@ MInstAll v.10.09.2021 By Andreyonohov (ISO) [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881936.jpg" />
 </div>
 
 
@@ -111,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881929.jpg" />
 </div>
 
 
@@ -137,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881435.jpg" />
 </div>
 
 
@@ -163,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881342.jpg" />
 </div>
 
 
@@ -189,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881338.jpg" />
 </div>
 
 
@@ -215,7 +375,7 @@ MInstAll v.02.04.2020 By Andreyonohov & Leha342 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881322.jpg" />
 </div>
 
 
@@ -241,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881296.jpg" />
 </div>
 
 
@@ -267,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881295.jpg" />
 </div>
 
 
@@ -293,7 +453,7 @@ SD Maid Pro 4.15.8 Lite Mod [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881293.jpg" />
 </div>
 
 
@@ -320,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880930.jpg" />
 </div>
 
 
@@ -348,7 +508,7 @@ Space Rangers HD: Universe (2016) [Ru] (R7.4) Mod
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880929.jpg" />
 </div>
 
 
@@ -374,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880928.jpg" />
 </div>
 
 
@@ -400,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_880690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_880690.jpg" />
 </div>
 
 
@@ -428,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880675.jpg" />
 </div>
 
 
@@ -454,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880671.jpg" />
 </div>
 
 
@@ -482,7 +642,7 @@ Pinnacle Studio 15 HD Ultimate Collection 15.0.0.7593 Full [Multi/Rus]
 >>16
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_880665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_880665.jpg" />
 </div>
 
 
@@ -508,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_880585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_880585.jpg" />
 </div>
 
 
@@ -519,162 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 642220   (880569) от 10.04.2013
-
-Fraps 3.5.99 Build 15618 Retail [Английский + Русский]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880569.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fraps - предназначена для подсчета количества FPS (кадров в секунду) в приложениях, работающих в режимах OpenGL и Direct3D. Утилита умеет делать скриншоты и записывать видеоролики с изображением с экрана. Fraps состоит из трех модулей Benchmarking Software, Screen Capture Software, Realtime Video Capture Software. Benchmarking Software - показывает, сколько кадров (   Читать дальше...   )Язык интерфейса: Английский + Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 110279   (880567) от 10.04.2013
-
-Все скринсейверы от 3Planesoft (82 скринсейвера) [Английский/Русский]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880567.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полная коллекция красивейших скринсейверов от 3Planesoft. Всего 82 скринсейвера. В качестве бонуса выложен скринсейвер "Christmas Tree 3D", убраный с сайта компании 3Planesoft. Все скринсейверы и лекарства выложены отдельными файлами для того, чтобы каждый желающий мог скачать только то, что ему нужно.Язык интерфейса: Английский/Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 871107   (880499) от 21.02.2015
-
-Врожденный порок / Inherent Vice (2014) WEB-DLRip [H.264/720p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: США, Ghoulardi Film Company, IAC Films, Warner Bros. PicturesЖанр: Драма, мелодрама, комедия, криминал, детектив, экранизацияРежиссер: Пол Томас АндерсонАктеры: Хоакин Феникс, Джош Бролин, Оуэн Уилсон, Кэтрин Уотерстон, Риз Уизерспун, Бенисио Дель Торо, Джена Мэлоун, Майя Рудольф, Мартин Шорт, Джоэнна НьюсомПеревод: Любительский двухголосый (Lord32x и Femida)Субтитры: ОтсутствуютПродолжительность: 02:28:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4F1F44A70B46C483F01A26E1B0894927AC91EE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494397   (880310) от 12.09.2021
-
-«Яндекс.Браузер» теперь может автоматически переводить и озвучивать англоязычные видео с YouTube и Vimeo
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания «Яндекс» запустила автоматический голосовой переводчик для англоязычных видеороликов. Об этом сообщается в блоге разработчиков. Сервис работает не с любыми видео, но доступен на YouTube, Vimeo и нескольких других популярных платформах. Главное условие — чтобы видео было общедоступным.Чтобы посмотреть видео с русской озвучкой, нужно будет нажать специальную (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996157   (880301) от 13.03.2016
-
-Manjaro Linux 16.02(03) (Arch + LXQt, Cinnamon) [i386, x86-64] 3xDVD, 1xCD
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разработчики сообщества представили очередной выпуск Manjaro Linux – основанного на Arch Linux легковесного дистрибутива, пользователь которого имеет выбор из настольных окружений Xfce, Openbox, KDE, E17, LXDE, Gnome, MATE, Cinnamon, netbook, fluxbox, а также ряда других DEs, предлагаемых сообществом Arch. В релизе представлены дистрибутивы с DE LXQt и Cinnamon от (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:727F635D00028CBE8925DF1DA7B32A572748660B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996123   (880300) от 13.03.2016
-
-Symantec Endpoint Protection 12.1.6860.6400 [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880300.jpg" />
-</div>
-
-
-###  Подробнее
-
-Symantec Endpoint Protection, использующий технологию Insight, обеспечивает эффективную и надежную защиту конечных систем. Он предлагает усиленную защиту от всех типов атак для физических и виртуальных систем.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A789DBF75B285C9AE28C45DEF61B5C399511C373
 ```
 
 https://mybot314.ru/tekegram_catalog/

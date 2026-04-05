@@ -1,136 +1,3 @@
-###  Публикация: 1599976   (159228) от 25.12.2022
-
-Майк Доу | Независимый мозг (2022) [FB2]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаете ли вы, что в медицинской среде существует термин "засахаренный мозг"? Да-да, он меньше по объему, у него хуже проводимость сигнальных путей, а еще он значительно менее функционален.
-
-Вот лишь некоторые последствия избытка сахара в рационе:
-- неврозы и психозы;(   Читать дальше...   )Жанр: Популярная анатомия и физиологияПеревод: А. ЩербинаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85B1DFDF874EE4F0C7CF3EB162841ACDBE8716D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599973   (159212) от 25.12.2022
-
-О. Абакумов | Мне только спросить. Как болеть и лечиться правильно (2023) [EPUB]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор книги Олег Абакумов, известный врач-терапевт, топовый блогер. Вы узнаете всё о симптомах и причинах самых распространенных заболеваний - от ОРВИ до гипотиреоза, болезней сердца, почек, и др., а также о подходе к лечению болезней с точки зрения доказательной медицины. В книге даны подробные списки анализов и обследований для всех возрастов. Перечислены бесполезные (   Читать дальше...   )Жанр: Популярная анатомия и физиологияФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2A754C02B0D685F4673E38A8891FFEDBCAC0BE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675846   (159090) от 11.11.2023
-
-С. А. Матвеев | Английский с нуля (2023) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159090.jpg" />
-</div>
-
-
-###  Подробнее
-
-В самоучителе использована специальная методика для начинающих изучение английского языка с нуля. Материал подается от простого к сложному, от глагола to be до условного наклонения. Грамматические темы чередуются с лексическими, развивающими речевые навыки. Постепенно формируются умения задавать вопросы и отвечать на них, рассказывать о себе и знакомых людях, обсуждать (   Читать дальше...   )Жанр: Учебная литератураИздательство: Издательство АСТФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78FBBFC1B58583315C0D390EC47881D731FCBAF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676084   (159013) от 12.11.2023
-
-F. Kroger / Ф. Крёгер | Chemistry of Imperfect Crystals / Химия несовершенных кристаллов (1964) [En] [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159013.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фундаментальный труд по физической химии несовершенных кристаллов, имеющий большое значение, в частности, для развития химии полупроводников и разработки научных основ приготовления полупроводниковых и других материалов, используемых в современной электронике. Сочетание высокого теоретического уровня с прекрасной систематизацией материала и доступностью изложения (   Читать дальше...   )Жанр: ХимияЯзык: АнглийскийИздательство: North-Holland Publishing CompanyФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D99532F91D6C44346FCD96E633D3BFCFCA3F830
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676087   (158993) от 12.11.2023
-
-Ф. Крёгер | Химия несовершенных кристаллов (1969) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158993.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фундаментальный труд по физической химии несовершенных кристаллов, имеющий большое значение, в частности, для развития химии полупроводников и разработки научных основ приготовления полупроводниковых и других материалов, используемых в современной электронике. Сочетание высокого теоретического уровня с прекрасной систематизацией материала и доступностью изложения (   Читать дальше...   )Жанр: ХимияИздательство: МирФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8C4FA8E147A726CC49EA2525825E74F903276E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1676092   (158975) от 12.11.2023
 
 А.Н. Мурин | Химия несовершенных ионных кристаллов (1975) [PDF]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158975.jpg" />
 </div>
 
 
@@ -165,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158939.jpg" />
 </div>
 
 
@@ -191,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158928.jpg" />
 </div>
 
 
@@ -217,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158896.jpg" />
 </div>
 
 
@@ -244,7 +111,7 @@ Heinrich Kley | More Drawings by Heinrich Kley (1962) [PDF] [EN]
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158888.jpg" />
 </div>
 
 
@@ -270,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158881.jpg" />
 </div>
 
 
@@ -297,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158856.jpg" />
 </div>
 
 
@@ -324,7 +191,7 @@ Windell Oskay, Eric Schlaepfer / Уинделл Оскей, Эрик Шлепф�
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158853.jpg" />
 </div>
 
 
@@ -351,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158829.jpg" />
 </div>
 
 
@@ -377,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158710.jpg" />
 </div>
 
 
@@ -403,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158707.jpg" />
 </div>
 
 
@@ -429,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158701.jpg" />
 </div>
 
 
@@ -456,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158699.jpg" />
 </div>
 
 
@@ -482,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158671.jpg" />
 </div>
 
 
@@ -510,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158644.jpg" />
 </div>
 
 
@@ -539,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158606.jpg" />
 </div>
 
 
@@ -566,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158602.jpg" />
 </div>
 
 
@@ -592,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158485.jpg" />
 </div>
 
 
@@ -618,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158440.jpg" />
 </div>
 
 
@@ -644,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158394.jpg" />
 </div>
 
 
@@ -670,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158366.jpg" />
 </div>
 
 
@@ -681,6 +548,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEE9E80A8B014DF9667F57BCFF914210DE5A4226
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967849   (158363) от 21.12.2015
+
+Сергей Матвеев | Новейший самоучитель английского языка (2015) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158363.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга написан популярным автором С.А. Матвеевым, чьи книги пользуются спросом у читателей. Это пособие позволяет овладеть английским языком на начальном уровне в предельно сжатые сроки и с минимальными затратами времени и усилий. Оригинальная авторская методика, предлагающая быстрое вырабатывание навыков устной и письменной речи, весьма эффективна. К тому же стиль (   Читать дальше...   )Жанр: Английский языкФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBC5F6FF11A323899062A64216D86DEA91E5F287
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965988   (158362) от 21.12.2015
+
+Геннадий Киселев | Итальянский без преподавателя (5-е изд.) (2013) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158362.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пособие для начинающих изучение итальянского языка.
+Пособие предназначено для тех, кто приступает к самостоятельному изучению итальянского языка. В основе лежат принципы коммуникативности, способствующие эффективному усвоению итальянской устной и письменной речи. Используется в качестве базового пособия при заочном обучении итальянскому языку.
+
+Пособие делится на (   Читать дальше...   )Жанр: Иностранный языкФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA7A7A23318C05FBCB836DE1081BC2221AE95871
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967774   (158336) от 21.12.2015
+
+Александр Драгункин, Кирилл Котков | Самоучитель устного китайского языка (+CD) (2013) [PDF, MP3]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная книга, написанная по уникальной методике А.Н. Драгункина, является эффективнейшим пособием для самостоятельного изучения устного китайского языка с ноля до возможности на хорошем уровне выразить любую свою мысль и желание. Предназначена для широкого круга изучающих без возрастных ограничений. В конце издания имеется справочная часть, включающая в себя словарь (   Читать дальше...   )Жанр: Китайский языкФормат: PDF, MP3Продолжительность: 04:55:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AB17ACC175D57C6FE6B1159576FD732C50F03A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967856   (158312) от 21.12.2015
+
+Татьяна Цветкова | Английский язык. Самоучитель для тех, кто хочет наконец его выучить (+CD) (2016) [PDF, MP3]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158312.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это инновационное учебное пособие предназначено для самостоятельных занятий английским языком. Оно подойдёт как начинающим изучать английский язык, так и тем, кто долго его учит и никак не может выучить. Разбирая стандартные ошибки и сложности, мешающие заговорить по-английски, автор предлагает продуманный и последовательный курс, основанный на психологических закономерностях (   Читать дальше...   )Жанр: Английский языкФормат: PDF, MP3
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:374FD164531E04E218BE7D2A12B4DF1392CA0945
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967334   (158263) от 22.12.2015
+
+В. Н. Типухин | Метод восхождения от абстрактного к конкретному в «Капитале» К. Маркса (1961) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158263.jpg" />
+</div>
+
+
+###  Подробнее
+
+Метод восхождения от абстрактного к конкретному представляет собой способ воспроизведения конкретного как мысленной целостности, как богатой совокупности с многочисленными определениями и отношениями.Жанр: История, политология, экономика, логика, философияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EED6BB7D84A33CDAA8BBC036D687B768A02927F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

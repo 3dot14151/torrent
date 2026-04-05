@@ -6,7 +6,7 @@ The Phil Woods Quintet - Bouquet (1989) 1999, Concord Jazz [APE|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801284.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Erroll Garner - Erroll Garner's Serenade To Laura (1949) 2003, Savoy Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801281.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Erroll Garner - Magician & Gershwin And Kern (1974, 1976) 1995, Telarc [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801278.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Ella Fitzgerald - The Essential Collection Vol 1 & 2 (1930-e - 1940-e) 2CD, 1999
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801275.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Don Cherry - Home Boy (1985) Barclay [FLAC|Lossless|tracks + .cue] <World Fusion
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801268.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Doris Day - The Real... Doris Day (2012) 3CD [FLAC|Lossless|tracks + .cue] <Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801246.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Cliff Jackson - 1930-1945 (1997) Classics [FLAC|Lossless|tracks + .cue] <Early J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801145.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Coleman Hawkins & Pee Wee Russell - Jam Session In Swingville (1961) 1994, Unive
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801134.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Sadao Watanabe - Sadao Meets Brazilian Friends (1968) 1986, Denon [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801117.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Johnny Griffin - Change Of Pace (1961) 1999, Original Jazz Classics [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800712.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Herman Chittison - 1933 - 1941 (1993) Classics [FLAC|Lossless|tracks + .cue] <St
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800705.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Fred Astaire - My Greatest Songs (1930-e - 1940-e) 1999, MCD [FLAC|Lossless|imag
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800654.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Issa Murad - Joussour (2017) [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800640.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Django Reinhardt & Stephane Grappelli - The Quintessential Django Reinhardt & St
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800616.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Sonny Clark - Cool Struttin' & Sonny Clark Trio (1957, 1958) 2CD, 2012, Not Now 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800610.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Shabaka and The Ancestors - Wisdom of Elders (2016) [FLAC|Lossless|WEB-DL|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800603.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Earl Hines - 1953-1954 (2007) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800451.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Ella Fitzgerald - Swings Lightly & Swings Brightly (1958, 1961) 2CD, 2013, Not N
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800407.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Ahmad Jamal Trio - Complete Live At The Pershing Lounge 1958 (2007) Gambit Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800396.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Konrad Paszkudzki Trio - Night And Day: Cole Porter Song Book (2017) 2020, Venus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800177.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Herman Chittison - 1944 - 1945 (1998) Classics [FLAC|Lossless|tracks + .cue] <St
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799904.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Thinking of You: Soul Love Grooves (2018) [FLAC|Lossless|WEB-DL|tracks] <Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799895.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Stephane Grappelli - Le Toit de Paris (1969) 2002, RCA Victor [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799692.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ The Buddy DeFranco (De Franco) Quartet - Jazz Tones (1954) Remaster, 2012, Unive
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799691.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Art Pepper & Ted Brown - The Complete Free Wheeling Sessions (1956) 2006, Lone H
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799689.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Mary Lou Williams - Plays In London (1953, 1954) 2016, Sony Music [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799685.jpg" />
 </div>
 
 

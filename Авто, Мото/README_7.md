@@ -1,3 +1,81 @@
+###  Публикация: 1498369   (858055) от 26.09.2021
+
+Формула-2. Сезон 2021. 6-й Этап. Гран-при России. Гонка 3 (26.09.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858055.jpg" />
+</div>
+
+
+###  Подробнее
+
+26 сентября 2021, воскресенье. 11:20 МСК. Этап 6, Сочи Автодром, Россия. Третья гонка (28 кругов)Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:05:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:531E124A4EB1F8BC345832B9BDF815EB23BB586F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499747   (846180) от 03.10.2021
+
+MotoGP. Этап 15. Гран-при США. Квалификация (02.10.2021) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846180.jpg" />
+</div>
+
+
+###  Подробнее
+
+2 октября 2021, суббота. 22:10 МСК. Этап 15, Гран-при США. Остин, КвалификацияЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:54:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43C45060AB859510ECDA23C61F865B5F0257265F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500013   (844436) от 04.10.2021
+
+MotoGP. Этап 15. Гран-при США. Гонка (03.10.2021) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844436.jpg" />
+</div>
+
+
+###  Подробнее
+
+3 октября 2021, воскресенье. 22:00 МСК. Этап 15, Гран-при США. Остин, Гонка (20 кругов)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:30:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA7E07197449DBDADF8D8C795F690FDFA17517B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197489   (813510) от 08.01.2018
 
 Феррари: Гонка за бессмертие / Ferrari: Race to Immortality (2017) DVDRip [H.264/1080p-LQ] [VO]
@@ -6,7 +84,7 @@
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813510.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ MotoGP. Этап 16. Гран-при Эмилии-Романьи. Квалифи
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810349.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ MotoGP. Этап 16. Гран-при Эмилии-Романьи. Гонка (24
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802727.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800597.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ MotoGP. Этап 17. Гран-при Алгарве. Квалификация (0
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798128.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ MotoGP. Этап 17. Гран-при Алгарве. Гонка (07.11.2021) WEB
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797921.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797151.jpg" />
 </div>
 
 
@@ -192,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797149.jpg" />
 </div>
 
 
@@ -219,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796647.jpg" />
 </div>
 
 
@@ -248,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794588.jpg" />
 </div>
 
 
@@ -275,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793456.jpg" />
 </div>
 
 
@@ -304,7 +382,7 @@ MotoGP. Этап 18. Гран-при Валенсии. Квалификация 
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792898.jpg" />
 </div>
 
 
@@ -330,7 +408,7 @@ MotoGP. Этап 18. Гран-при Валенсии. Гонка (14.11.2021) W
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792092.jpg" />
 </div>
 
 
@@ -356,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791801.jpg" />
 </div>
 
 
@@ -385,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790895.jpg" />
 </div>
 
 
@@ -412,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789671.jpg" />
 </div>
 
 
@@ -438,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788525.jpg" />
 </div>
 
 
@@ -464,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787163.jpg" />
 </div>
 
 
@@ -490,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786945.jpg" />
 </div>
 
 
@@ -516,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785147.jpg" />
 </div>
 
 
@@ -545,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782676.jpg" />
 </div>
 
 
@@ -574,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770677.jpg" />
 </div>
 
 
@@ -603,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768953.jpg" />
 </div>
 
 
@@ -617,90 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD9A3D9DB9F399AB0F9747761B0BEE3D4841B5C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394548   (763731) от 05.07.2020
-
-Формула-3. Сезон 2020. 1-й Этап. Гран-при Австрии. Гонка 1 (04.07.2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763731.jpg" />
-</div>
-
-
-###  Подробнее
-
-2-й Чемпионат ФИА Формула-3. Сезон 2020 года
-04 июля 2020, суббота. 11:25 МСК
-1-й Этап. Гран-при Австрии. Шпильберг (Австрия)
-Гонка 1(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:49:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA931F58B793EE59C5E732038355E458B3CC8604
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394576   (763725) от 05.07.2020
-
-Формула-2. Сезон 2020. 1-й Этап. Гран-при Австрии. Гонка 2 (05.07.2020) HDTV [H.264/1080i-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763725.jpg" />
-</div>
-
-
-###  Подробнее
-
-4-й Чемпионат ФИА Формула-2. Сезон 2020 года
-05 июля 2020, воскресенье. 12:10 МСК
-1-й Этап. Гран-при Австрии. Шпильберг (Австрия)
-Гонка 2(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:57:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90C4BBF6CC0354A70E8DBC15F14558B7AD0E54B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394429   (763711) от 05.07.2020
-
-Михаэль Шумахер: Красный барон / Michael Schumacher: The Red Baron (2012) IPTVRip [H.264]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Имя семикратного чемпиона мира, официально провозглашенного величайшим гонщиком "Формулы-1", давно уже стало синонимом скорости, смелости и воли к победе, а он сам – кумиром и примером для подражания мальчишек со всего света.Производство: Worldwide EntertainmentЖанр: Документальный, СпортРежиссер: Peter WarrenПеревод: Одноголосый профессиональный (Igmar)Субтитры: отсутствуютПродолжительность: 00:47:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDC882EB7AB68AA6945599AD988F95536FCA7F5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

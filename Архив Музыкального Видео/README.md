@@ -7,7 +7,7 @@ Bryce vs. Gerald G! - Physical Thing (2013) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999642.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Adam et Ève, la seconde chance/Адам и Ева-второй шанс (2012)D
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998270.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ David Guetta Feat. Usher - Without You (2011) BDRip [h.264,1080p]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991243.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Katy Perry - Part Of Me (2012) BDRip [h.264,1080p]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991189.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Katy Perry - The One That Got Away (2011) BDRip [h.264,1080p]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991186.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Katy Perry - Last Friday Night (T.G.I.F.) (2011) BDRip [h.264,1080p]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991181.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Katy Perry - Wide Awake (2012) BDRip [h.264,1080p]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991117.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Alexandra Stan feat. Carlprit - One Million (2011) BDRip [h.264,1080p]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990340.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Bob Taylor feat. Inna - Deja Vu (1st Version) (2009) HDRemux [h.264,1080p]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990336.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Rihanna - Where Have You Been (2012) HDRemux [H.264,1080p]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990333.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Inna - Sun Is Up (2010) HDRemux [h.264,1080p]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990326.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Bob Taylor feat. Inna - Deja Vu (2nd Version) (2009) HDRemux [h.264,1080p]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990308.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Anda Adam - Feel (2011) HDRemux [h.264,1080p]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989483.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ LiL Archi & Killa Voice - Нагинайся (Uncensored) (2012) [H.264/720р] W
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989342.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Inna - Hot (1st Version) (2009) HDRemux [h.264,1080p]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987168.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Ela Rose - Lovely Words (2011) HDRemux [h.264,1080p]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987165.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Inna - Hot (2nd Version) (2009) HDRemux [h.264,1080p]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987054.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Inna - Amazing (2009) HDRemux [h.264,1080p]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987004.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Status Quo: Pictures - Live At Montreux (2009) [720р] BDRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985374.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981262.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981029.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978108.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Rednek - Sticky Lips (2013) [H.264/720р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972651.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Wendy O Williams And The Plasmatics - 10 Years Of Revolution Rock And Roll (2006
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972341.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Beth Hart - Bang Bang Boom Boom (2012) [1080p] BDRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970829.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Rihanna ft. Mikky Ekko - Stay (2013) [1080p] HDRemux
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969610.jpg" />
 </div>
 
 

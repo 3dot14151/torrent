@@ -6,7 +6,7 @@ Horace Parlan - Musically Yours (1979) 1994, SteepleChase [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108736.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Phil Woods - Into The Woods: The Best of Phil Woods (1987 - 1995) 1996, Concord 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108734.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Smooth Jazz House Music (Bar & Coffee Lounge) (2024) [FLAC|Lossless|WEB-DL|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108718.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Slow Jazz (Smooth Saxophone, Trumpet and Piano) (2024) [FLAC|Lossless|WEB-D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108696.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Mary Lou Williams - Mary Lou's Mass (1975) 2005, Smithsonian Folkways [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108692.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Enjoyable Easy Listening Alluring Chill Jazz Tunes (2024) [FLAC|Lossless|WE
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108689.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Jeff Shirley - Contigo (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108688.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Kurt Flavin - Six String Heart (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108687.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Alluring Sweet Relaxing Chill Lounge Playlist (2024) [FLAC|Lossless|WEB-DL|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108686.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Jazz Tempoe Doeloe (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108685.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Jeff Shirley - Modes of Nature (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108684.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Sweet Enjoyable Intimate Soft Jazz Playlist (2024) [FLAC|Lossless|WEB-DL|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108683.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - The Groove Funk Sessions (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108682.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Ultimate Enjoyable Sweet Intimate Lounge Chill Tunes (2024) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108676.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ The Birdland Big Band - Live (2019) Birdland Records [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108673.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Horace Parlan - In Copenhagen (1999) 2008, Storyville [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108672.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ The Birdland Big Band - Storybook: The Music Of Mark Miller (2023) Birdland Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108631.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Mary Lou Williams - Zodiac Suite (1945) 1991, Vintage Jazz Classics [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108614.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ David Schumacher - Every Corner (1993) Amosaya Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108611.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Tim Warfield - One For Shirley (2008) Criss Cross Jazz [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108610.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Lee Ritenour - Portrait (1987) GRP [FLAC|Lossless|tracks + .cue] <Crossover Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108569.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Dave Brubeck - We're All Together Again For The First Time (1973) 1990, Atlantic
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108568.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Mary Lou Williams - Solo Recital: Montreux Jazz Festival (1978) 1998, Original J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108549.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Houston Person & Ron Carter - The Complete Muse Sessions (1989, 1990) 2CD, 1997,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108545.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Carmen McRae - Great Women Of Song (1955 - 1959) 2024, Universal [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108538.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Jim Hall - Live In Tokyo (1976) 1991, King Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108536.jpg" />
 </div>
 
 

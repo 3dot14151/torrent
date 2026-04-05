@@ -6,7 +6,7 @@ Live Home 3D Pro Edition 3.7.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285823.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Beamer 3.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285787.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Disk Drill Enterprise 3.5.872 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285650.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Affinity Designer 1.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285622.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ Pacifist 3.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285507.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ Bartender 2.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285123.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ XMind 7 Pro 3.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285122.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ OS X El Capitan 10.11.2 (15C50) [Multi/Ru] (Installer)
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285043.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ AnyTrans 5.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284899.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ DropDMG 3.4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284897.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ SpamSieve 2.9.27 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284887.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Alfred Powerpack 3.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284786.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ UninstallPKG 1.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284772.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ PullTube 0.10.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284743.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Hazel 4.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284741.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Cookie 5 v5.9.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284681.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ RightFont 5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284680.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ BusyContacts 1.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284679.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ BusyCal 3 v3.5.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284673.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ iCollections 4.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284669.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Carbon Copy Cloner 4.1.12 (4485) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284641.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ BlueHarvest 6.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284640.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Jump Desktop (RDP & VNC) 8.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284508.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ PhoneRescue for Android 3.6.0 20180503 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284504.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ PhoneRescue for IOS 3.7.2.20180929 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284503.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ JetBrains RubyMine 2018.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284335.jpg" />
 </div>
 
 

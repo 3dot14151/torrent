@@ -1,3 +1,165 @@
+###  Публикация: 198104   (810559) от 06.05.2010
+
+Adobe® Creative Suite® 5 Master Collection
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новые функции CS5 Master Collection
+
+Программное обеспечение Adobe® Creative Suite® 5 Master Collection представляет собой комплексный набор дизайнерских инструментов для различных медиаисточников. Воспользуйтесь улучшенными функциями, обеспечивающими повышение продуктивности за счет внедрения новых способов создания интерактивного контента, высокой производительности (   Читать дальше...   )Язык интерфейса: Английский. Русский присутствует, а так же еще шесть языков - чешский, венгерский, польский, румынский, турецкий и украинский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937486   (810553) от 26.03.2017
+
+Книжная серия | Межавторский цикл «Пограничье» [9 книг. Обновляемая] (2013-2017) [FB2, EPUB]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Центрум. Центральный мир вселенной, окруженный лепестками других миров, среди которых и наша Земля.
+
+Когда-то Центрум был велик и силен, но катастрофа отбросила его в прошлое.
+(   Читать дальше...   )Жанр: Боевая фантастика, ПопаданцыФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59B760FC840B5D534B16457C8E988FB206ADBEA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118224   (810549) от 26.03.2017
+
+Проекты - VideoHive - Handy Seamless Transitions | Pack & Script v.3.0 - 18967340 [AEP, JSXBIN]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Handy Seamless Transitions | Pack & Script v.3.0 - представляет собой набор видео-переходов, которые могут помочь сделать ваше видео визуально интересным и удивительным! Любой ваш проект будет гораздо более увлекательным, динамичным и профессиональным! Переходы очень просты в использовании - просто перетащите переход в область пересечения двух футажей, и включите (   Читать дальше...   )Формат: AEP, JSXBIN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:366D3720AF938E97BDA9235BB25F834809B272EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116387   (810548) от 26.03.2017
+
+Windows 7 Ultimate Ru x86/x64 nBook IE11 by OVGorskiy® 03.2017 1 DVD
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810548.jpg" />
+</div>
+
+
+###  Подробнее
+
+32-х и 64-х битные ОС Windows® 7™ максимальная с интегрированными обновлениями и дополнительными программами, оформлением в светло-голубом стиле и стандартной ручной установкой на 1 DVD. Дополнительно в сборку интегрирована профессиональная 64-х битная редакция для установки системы на GPT диски. После установки в системе будут присутствовать практически все возможные (   Читать дальше...   )Язык интерфейса: Русский (Russian)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBA15088CE0E72037B5BFB10E45198448D25F5C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090422   (810547) от 26.03.2017
+
+Охотники на троллей / Trollhunters (2016) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-26 из 26) AlexFilm
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810547.jpg" />
+</div>
+
+
+###  Подробнее
+
+В руки пятнадцатилетнему юноше попадает Магический Амулет, который даёт ему звание охотника на троллей, призванного защищать троллей, живущих под землёй — под человеческим городом Аркадия. «Охотники на троллей» — мультсериал в жанре хоррора и фэнтези, вышедший в 2016 году. Он расскажет о легендарной битве, развернувшейся в маленьком городке близ Сан-Бернардино, а (   Читать дальше...   )Производство: США, Мексика, Cha Cha Cha, DreamWorks AnimationЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Родриго Блаас, Илэйн Боган, Эндрю Л. ШмидтАктеры: Келси Грэммер, Антон Ельчин, Рон Перлман, Лекси Медрано, Фред Татаскьор, Чарли Сэкстон, Джонатан Хайд, Стивен Ян, Эми Ландекер, Коул Сэнд и др.Перевод: многоголосый закадровый, профессиональный - AlexFilmОзвучка: Алёна Андронова, Маргарита Корш, Екатерина Муравицкая, Петр Гланц Иващенко, Артём Бахтин, Станислав Черсков, Владимир Курдов, Михаил СусловПродолжительность: ~ 00:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8D3A1B2A05BC932D33C73D8FCA8E53A701F343E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 93822   (810545) от 26.03.2017
+
+Наши Мешатели, или звери юзверей.
+
+>>3
+>>53
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_810545.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наши Мешатели, или звери юзверейТолько что увидела огромного и славного кота в соседней теме (на столе некой дамы),
+вдобавок у самой под правой рукой сидит 2-месячный аллергенный фактор.Моя:(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 864224   (810488) от 01.04.2015
 
 Черные паруса / Black Sails (2015) HDTVRip [H.264/720p-LQ] (Сезон 2, серии 1-10 из 10) LostFilm
@@ -6,7 +168,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810488.jpg" />
 </div>
 
 
@@ -33,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810482.jpg" />
 </div>
 
 
@@ -59,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>13
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810480.jpg" />
 </div>
 
 
@@ -85,7 +247,7 @@ Symantec Endpoint Protection 12.1.4100.4126 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809853.jpg" />
 </div>
 
 
@@ -112,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_809494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_809494.jpg" />
 </div>
 
 
@@ -138,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>13
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_809479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_809479.jpg" />
 </div>
 
 
@@ -164,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809474.jpg" />
 </div>
 
 
@@ -190,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809473.jpg" />
 </div>
 
 
@@ -216,7 +378,7 @@ Microsoft® Windows® 11 Professional VL x64 21H2 RU by OVGorskiy 10.2021
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809472.jpg" />
 </div>
 
 
@@ -242,7 +404,7 @@ KMS Tools Portable by Ratiborus 18.10.2021 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809471.jpg" />
 </div>
 
 
@@ -268,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809470.jpg" />
 </div>
 
 
@@ -294,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809469.jpg" />
 </div>
 
 
@@ -320,7 +482,7 @@ Darksiders (2016) [Ru/Multi] (1.0.2679) Repack =nemos= [Warmastered Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809397.jpg" />
 </div>
 
 
@@ -346,7 +508,7 @@ HTML Academy | Интенсивный онлайн-курс «Базовый HTM
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809394.jpg" />
 </div>
 
 
@@ -372,7 +534,7 @@ Mafia II / Мафия 2 (2011) [Ru] (1.0.0.1/dlc) Repack Other s [Digital Deluxe
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809393.jpg" />
 </div>
 
 
@@ -398,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809392.jpg" />
 </div>
 
 
@@ -424,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809391.jpg" />
 </div>
 
 
@@ -450,7 +612,7 @@ Cимуляторы офисных звуков с чавкающими колл
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_809248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_809248.jpg" />
 </div>
 
 
@@ -477,7 +639,7 @@ Windows 10 Pro 1909 b18363.836 x64 ru by SanLex (edition 2020-05-15) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809234.jpg" />
 </div>
 
 
@@ -503,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809232.jpg" />
 </div>
 
 
@@ -514,166 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6333B19F31D12A0ADA2DFEF2235D21822A7E3EB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278949   (809226) от 16.05.2020
-
-Короткие истории v.3
-
->>3
->>97
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_809226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уважаемые одноклубники!
-Команда Клубные Таланты NNM-Club приглашает Вас принять участие в игре "Короткие истории". Предлагаем читателям поделиться своими жизненными наблюдениями посредством нескольких метких фраз.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009344   (809221) от 21.04.2016
-
-Uninstall Tool 3.4.5 Build 5430 Final + Portable [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809221.jpg" />
-</div>
-
-
-###  Подробнее
-
-Uninstall Tool — быстрая, мощная и надежная альтернатива системному апплету «Установка и Удаление программ». Это безопасный, надежный и удобный способ удалять ненужные приложения и повысить эффективность работы вашего компьютера. Uninstall Tool обладает большим количеством функций: показывает скрытые установленные программы, сортирует список программного обеспечения (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBEB15AD8A1C354EFD3748976F3D9E7299F8894B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009413   (809216) от 21.04.2016
-
-UC Browser 5.6.11651.1013 Portable by Sitego [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809216.jpg" />
-</div>
-
-
-###  Подробнее
-
-UC Browser для Windows - современный веб-браузер, который поддерживает новейшие веб-технологии и стандарты, обладает удобным интерфейсом, и предоставляет всё, что нужно для комфортного и безопасного веб-серфинга. Использует в работе 2 движка - Chromium и Trident, позволяя при необходимости быстро переключаться между ними. Такой подход поможет избежать проблем с неправильным (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACB1A77ADA74C5CB3801B1F61CF9C410BFDE7CD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009361   (808980) от 21.04.2016
-
-Как грамотно заменить вентилятор в БП
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_808980.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этот раз я расскажу вам о том, как и почему надо менять вентилятор в БП.
-На это есть много причин:-Шум. Штатный вентилятор сильно шумит на фоне остальной системы и вы не хотите больше его слышать.
--Перегрев. Ваш вентилятор вышел из строя или его недостаточно для качественного охлаждения компонентов в БП.(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008964   (808978) от 21.04.2016
-
-Всем операторам связи до конца года установят "ревизор" Роскомнадзора
-
->>3
->>10
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_808978.jpg" />
-</div>
-
-
-###  Подробнее
-
-Система будет следить за тем, чтобы операторы связи закрывали доступ к заблокированным сайтам в России
-Новая версия системы "Ревизор", следящей за блокировками запрещенных сайтов, будет установлена у всех операторов связи в России до конца 2016 года. Об этом "Известиям" сообщил замглавы Роскомнадзора Олег Иванов.«Ревизор» в автоматическом режиме (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009448   (808972) от 21.04.2016
-
-WinPE 10 Sergei Strelec (x86/x64) 2016.04.21 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузочный диск WinPE 10 - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, и антивирусы.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12375FE99C3BFA65C9E27F8FCFC4AA7C68D537DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

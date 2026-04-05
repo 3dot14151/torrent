@@ -1,3 +1,134 @@
+###  Публикация: 1795998   (18488) от 13.05.2025
+
+Звёздные войны: Сказания о преступном мире / Star Wars: Tales of the Underworld (2025) WEB-DLRip [H.264/1080p] (сезон 1, серии 1-6 из 6) LostFilm
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывшая наёмная убийца Асажж Вентресс пускается в бега вместе с охотником за головами Кэдом Бэйном...Производство: США / Disney+, Lucasfilm Animation, LucasfilmЖанр: мультфильм, короткометражка, фантастика, фэнтези, боевик, драма, приключенияРежиссер: Дэйв ФилониАктеры: Кори Бёртон, Ника Футтерман, Эйджей Локасио, Лэйн Фэктор, Дон-Лиэн Гарднер, Эрик Лопез, Артт БатлерПеревод: Многоголосый профессиональный (LostFilm)Язык озвучки: РусскийСубтитры: НетПродолжительность: ~00:15:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB93D8F714201377C149A3F2120455C22F167C59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592824   (18308) от 14.05.2025
+
+Сказка о рыбаке и рыбке (1950) BDRemux [H.264/1080i]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жили-были старик со старухой у самого синего моря. Закинул невод старик в море и поймал рыбку, да не простую, а золотую...Производство: СССР, СоюзмультфильмЖанр: детский, рисованная анимацияРежиссер: Михаил ЦехановскийАктеры: Анастасия Зуева, Мария Бабанова, Борис Чирков, Владимир Грибков, Георгий МиллярСубтитры: ОтсутствуютПродолжительность: 00:30:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F010C6DFB363086AD00B6F6D417DB46D70F44372
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471106   (18265) от 15.05.2025
+
+Любовь, смерть и роботы / Love, Death & Robots (2021) WEB-DL [H.264/1080p-LQ] (сезон 2, серии 1-8 из 8) Пифагор, HDRezka Studio
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект Любовь, смерть и роботы - это отдельный вид искусства. Сериал представляет собой великолепную смесь историй, представленных в совершенно различных жанрах. Здесь вас ожидает столкновение с классическими элементами научной фантастики, необычным юмором, удивительным фэнтезийным миром и по-настоящему пробирающим до мурашек ужасом. Каждый из персонажей в проекте (   Читать дальше...   )Производство: США / Blur Studio, NetflixЖанр: мультфильм, ужасы, фантастика, фэнтези, комедия, боевик, криминал,
+для взрослыхРежиссер: Тим МиллерАктеры: Нолан Норт, Мэттью Кинг, Джош Бренер, Генри Даутуэйт, Грэхэм Хэмилто, Эмили О’Брайэн, Хелен Сэдлер, Илэйн Тан.Перевод: Дублированный (Пифагор), профессиональный многоголосый (HDRezka Studio)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (SDH), немецкие, французские, итальянские, испанские, голландские, португальскиеПродолжительность: ~00:15:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC5A96BAAA6B5CD278CDC7036637A6A42B7E318D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797330   (18219) от 15.05.2025
+
+Пингвинёнок Пороро: Музыкальное приключение / Pororo, Popstar Adventure (2023) WEBRip [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18219.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пороро и его друзья находятся в дюйме от победы в песенном конкурсе, к которому они присоединились просто ради развлечения. Смогут ли они справиться с вызовом, брошенным им Биг-Беном, и в конечном итоге выиграть конкурс суперзвезд?Производство: Корея Южная / CGV, JBG Pictures, Nintendo EntertainmentЖанр: мультфильм, детский, приключения, фантастикаРежиссер: Юн Джэ-ванАктеры: Ли Сон, Ли Ми-джа, Са Мун-ён, Щим Гю-хёкПеревод: Многоголосый профессиональный (Официальный)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:17:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3EE8C34C7BDF93718657BD5F7AB72C38CA47379
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797423   (18092) от 16.05.2025
+
+Золотая коллекция любимых мультфильмов. Выпуск 15 (1949 - 1993) DVD5
+
+>>Мультфильмы
+>>Отечественные Мультфильмы (коллекции, сборники / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18092.jpg" />
+</div>
+
+
+###  Подробнее
+
+олотая коллекция любимых мультфильмов. Выпуск 15. Сборник мультфильмов, в который вошли: Сказка старого дуба; Лесные путешественники; Храбрый оленёнок; Чужие следы; Тигрёнок на подсолнухе; Храбрый заяц; Чуффык; В лесной чаще; Тихая поляна; Муравьишка-хвастунишка; Уважаемый леший; Охотничье ружьё; Волк и телёнок.Производство: СССР, Россия  / СоюзмультфильмЖанр: мультфильм, детский, короткометражкаРежиссер: Ольга Ходатаева, Мстислав Пащенко, Витольд Бордзиловский, Леонид Носырев и др.Актеры: Татьяна Канаева, Ирина Маликова, Виталий Ованесов, Александр Котов, Юрий Хржановский, Роман Ткачук, Лидия Катаева, Анатолий Папанов, Александр Баранов, Зоя Зелинская и др.Субтитры: отсутствуютПродолжительность: 03:11:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFE72290179BE763CE403AB7034E22CAF731DDFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 222428   (18066) от 17.05.2025
 
 Кентервильское привидение (1970) DVDRip
@@ -6,7 +137,7 @@
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18066.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17929.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17813.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17684.jpg" />
 </div>
 
 
@@ -110,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17683.jpg" />
 </div>
 
 
@@ -136,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17668.jpg" />
 </div>
 
 
@@ -162,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17590.jpg" />
 </div>
 
 
@@ -188,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17588.jpg" />
 </div>
 
 
@@ -214,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17587.jpg" />
 </div>
 
 
@@ -240,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17577.jpg" />
 </div>
 
 
@@ -266,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17554.jpg" />
 </div>
 
 
@@ -293,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17552.jpg" />
 </div>
 
 
@@ -319,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17541.jpg" />
 </div>
 
 
@@ -345,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17496.jpg" />
 </div>
 
 
@@ -371,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17486.jpg" />
 </div>
 
 
@@ -397,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17464.jpg" />
 </div>
 
 
@@ -423,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17389.jpg" />
 </div>
 
 
@@ -449,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17383.jpg" />
 </div>
 
 
@@ -475,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17339.jpg" />
 </div>
 
 
@@ -501,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17338.jpg" />
 </div>
 
 
@@ -527,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17315.jpg" />
 </div>
 
 
@@ -538,136 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:711C96017F87E47CB8B4125488BAF6FCD39BB073
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798570   (17312) от 23.05.2025
-
-Бэтмен-ниндзя против лиги якудза / Batman Ninja vs. Yakuza League (2025) WEB-DL [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17312.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бэтмен и Робин совершают путешествие через время и пространство, отправляясь в Японию эпохи Эдо. Темный Рыцарь и его верный напарник вынуждены сражаться с альтернативной версией Лиги Справедливости: Джокер и его приспешники теперь средневековые феодалы и зовут себя Лигой якудза.Производство: Япония / Kamikaze DougaЖанр: аниме, мультфильм, боевикРежиссер: Дзюнпэй Мидзусаки, Синдзи ТакагиАктеры: Акио Оцука, Юки Кадзи, Аянэ Сакура, Роми Пак, Коити Ямадэра, Даисукэ Оно, Риэ Кугимия, Хотю Оцука, Ватару Такаги, Акира ИсидаПеревод: Многоголосый (Red Head Sound, HDRezka Studio, 1win Studio, заКАДРЫ)Язык озвучки: Русский, английский, японскийСубтитры: Русские (Forced, Full), английские (Forced, SDH), китайские, датские и др.Продолжительность: 01:29:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DD429E1EDC9E6B5B9726423A8FD43BF87E119C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798574   (17305) от 23.05.2025
-
-Дьявол может плакать / Devil May Cry (2025) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8) Flarrow Films [Локализованная версия]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Злобные силы норовят распахнуть портал между мирами, а Данте оказывается посреди этой заварушки. Злодей по кличке Белый Кролик хочет установить новый порядок, где дьявол правит балом. На крыше небоскрёба главный герой пересекается с наёмницей с арсеналом оружия - Леди. Их короткая болтовня перерастает в нечто большее. Попутно бесстрашный охотник попадает под прицел (   Читать дальше...   )Производство: США, Япония, Корея Южная / Bootleg Universe, Capcom Company, Shankar Animation, Studio MirЖанр: мультфильм, фэнтези, боевик, детектив, приключенияРежиссер: Хан Сын-у, Пак Со-ён, Hong Ji-YoungАктеры: Джонни Йонг Бош, Скаут Тэйлор-Комптон, Хун Ли, Кевин Конрой, Крис Коппола, Бенжамин Абиола, Кари Уолгрен, Роджер Л. Джексон, Jason Marnocha, Эрика ЛиндбекПеревод: Дублированный (Flarrow Films)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: ~00:30:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB4F552448E50C3E53438E97DC262F4324174AD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798558   (17287) от 23.05.2025
-
-Падал прошлогодний снег (1983) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17287.jpg" />
-</div>
-
-
-###  Подробнее
-
-Давным-давно, в одной весьма пластилиновой местности, жил да был орёл-мужчина, которого как-то под новый год послала жена за ёлкой.Производство: СССР / ТО ЭкранЖанр: мультфильм, фэнтези, короткометражка, драма, комедия, семейныйРежиссер: Александр ТатарскийАктеры: Станислав СадальскийСубтитры: отсутствуютПродолжительность: 00:19:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3128B848EC338E08C726C354CD2299F0800F8EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798663   (17257) от 23.05.2025
-
-Чудо-Дино из школы Эр / Wonder Dino (2018) WEB-DL [H.264/1080p] (сезон 1, серии 1-26 из 26)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17257.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трое друзей-второклассников находят маленького дракончика Дино, обладающего невероятными способностями. С этого момента их школьная жизнь переворачивается, наполняясь приключениями, загадками и волшебством.Производство: КитайЖанр: мультфильм, детский, комедия, фэнтезиРежиссер: Чжао ЛяньхуаПеревод: Дублированный (Russian)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: ~ 00:13:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19FAEF238B4A11ECA1666FD0FC539CFC14DF5D23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798577   (17249) от 23.05.2025
-
-Американский Папаша / American Dad! (2024) WEB-DL [H.264/1080p] (сезон 21, серии 1-22 из 22) TVShows
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17249.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главные герои сюжета всех сезонов и серий мультсериала «Американский папаша» — американская семья во главе с настоящим агентом ЦРУ Стэном. Стэн немного глуп, но это сполна компенсируется грудой мышц и воинственным выражением лица. У него и его жены Франсин двое детей-подростков. Дочка Хэйли с замашками хиппи и отчаянным либерализмом ничего не боится, а ее брат Стив (   Читать дальше...   )Производство: США / Turner Broadcasting System (TBS)Жанр: мультфильм, комедия, для взрослыхРежиссер: Шоун Мюррэй, Ральф Фернан, Тим Парзонс, Джо ДаниеллоАктеры: Сет МакФарлейн, Уэнди Шаал, Ди Брэдли Бэйкер, Скотт Граймз, Рэйчел МакФарлейн, Майк Баркер, Кёртис Армстронг, Патрик Стюарт, Эдди Кэй Томас, Даизуке Сузуки, Эрик Дарбин, Кевин Майкл Ричардсон, Джефф Фишер, Майк ГенриПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: Русский, английскийСубтитры: Английские (Full, SDH)Продолжительность: ~00:21:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3A3FA36EC2123D94BBC6C1089E49F96005368BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

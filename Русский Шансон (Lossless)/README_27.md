@@ -6,7 +6,7 @@ VA - Навстречу любви (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Ch
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66171.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66165.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Шансон премьера 2025 июнь (Новые песни. Нов�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65893.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Новые хитовые песни 2025, Часть 6 (2025) [FLAC|Lossle
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65884.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Курортный шансон 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65881.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Самые новые песни о любви 9 (2025) [FLAC|Lossless|WEB-
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65871.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65371.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65083.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65003.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64969.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Блатной шансон в натуре (2025) [FLAC|Lossless|WEB-DL|tr
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64843.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Шансон премьера 2025 июль (Новые песни. Нов�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64831.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62254.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59708.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ VA - Шансон премьера 2023 август (Новые песни. Н�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56879.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56779.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ VA - Шансон премьера 2024 март (Новые песни. Нов�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56071.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ VA - Шансон премьера 2024 февраль (Новые песни. �
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56041.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55926.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ VA - Шансон премьера 2024 май (Новые песни. Новы�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55829.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ VA - Шансон 2024 (Музыкальный хит-парад) (2024) [FLAC|L
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55514.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55199.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ VA - Любимой женщине (Избранная любовная лири
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54357.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ VA - Самые новые песни о любви 3 (2024) [FLAC|Lossless|WEB-
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54351.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ VA - Русский Офицер (2024) [FLAC|Lossless|WEB-DL|tracks] <Шанс�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54350.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54345.jpg" />
 </div>
 
 

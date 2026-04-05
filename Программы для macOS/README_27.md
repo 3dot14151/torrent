@@ -1,3 +1,56 @@
+###  Публикация: 992895   (899187) от 03.03.2016
+
+iNet Network Scanner 2.0 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899187.jpg" />
+</div>
+
+
+###  Подробнее
+
+iNet предоставляет Вам информацию о сети к которой подключен ваш Mac . Удобный дизайн позволяет даже неопытным пользователям, получить полную информацию о вашей локальной сети.
+iNet показывает устройства, подключенные к вашей локальной сети, компьютер или маршрутизатор, а также их имя, IP и поставщика. iNet обнаруживает и различает Windows и Macintosh . Для большинства (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 23 февраля 2016Разработчик: BananaGlueПоддерживаемая ОС: OS X 10.6 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDAB77DAE834D6842EC7FAE25829CE3A68F7C8F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992898   (899175) от 03.03.2016
+
+SuperTab 2.0 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899175.jpg" />
+</div>
+
+
+###  Подробнее
+
+SuperTab расширяет встроенный (Command-Tab) переключатель между запущенными приложениями Мака. Перед появлением SuperTab, только App Switcher дал пользователям Mac доступ к своим активным в данный момент приложениям. С установленным SuperTab, пользователи теперь имеют доступ к намного большему при нажатии Command-Tab, такому как:- Активные программы, - Последние (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 29 февраля 2016Разработчик: SpriTec Software.Поддерживаемая ОС: OS X 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD3CA011223AD7AFCF27592E3061176F6973CD4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493064   (899140) от 01.09.2021
 
 iSubtitle 3 v3.4.6 [Multi]
@@ -6,7 +59,7 @@ iSubtitle 3 v3.4.6 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899140.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ Pure Music 3.0.3 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898957.jpg" />
 </div>
 
 
@@ -61,7 +114,7 @@ NoteBurner M4V Converter Plus 4.4.1 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898531.jpg" />
 </div>
 
 
@@ -89,7 +142,7 @@ Frammer X 1.11 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898431.jpg" />
 </div>
 
 
@@ -115,7 +168,7 @@ MacCleaner PRO 1.8.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898415.jpg" />
 </div>
 
 
@@ -141,7 +194,7 @@ Hammer 6.9.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897853.jpg" />
 </div>
 
 
@@ -169,7 +222,7 @@ TubeG for YouTube 2.6.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897837.jpg" />
 </div>
 
 
@@ -197,7 +250,7 @@ Exif Editor 1.1.9 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897689.jpg" />
 </div>
 
 
@@ -225,7 +278,7 @@ Duplicate Windows 1.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897502.jpg" />
 </div>
 
 
@@ -254,7 +307,7 @@ Antetype 1.7.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897425.jpg" />
 </div>
 
 
@@ -282,7 +335,7 @@ Duplicate Finder 1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897366.jpg" />
 </div>
 
 
@@ -311,7 +364,7 @@ Perfectly Clear Plugin for Photoshop and Lightroom 2.0.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896961.jpg" />
 </div>
 
 
@@ -339,7 +392,7 @@ WordMark 3 v49 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895712.jpg" />
 </div>
 
 
@@ -366,7 +419,7 @@ Scrutiny 10 v10.4.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895702.jpg" />
 </div>
 
 
@@ -393,7 +446,7 @@ SofaPlay 1.5.2 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895689.jpg" />
 </div>
 
 
@@ -419,7 +472,7 @@ Mindly 1.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895392.jpg" />
 </div>
 
 
@@ -447,7 +500,7 @@ Nuance PDF Converter 4.0.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895384.jpg" />
 </div>
 
 
@@ -473,7 +526,7 @@ Davinci Resolve Studio 17.3.1 [Multi/Rus]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895242.jpg" />
 </div>
 
 
@@ -501,7 +554,7 @@ Super Eraser Pro - Scale Photo and Erase Unwanted 2.5.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894567.jpg" />
 </div>
 
 
@@ -529,7 +582,7 @@ Amarra Symphony 3.0.4 R2 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894128.jpg" />
 </div>
 
 
@@ -557,7 +610,7 @@ Timeless: Alarm Clock 1.93 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894000.jpg" />
 </div>
 
 
@@ -583,7 +636,7 @@ Focus - A Pomodoro Timer 3.2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893457.jpg" />
 </div>
 
 
@@ -610,7 +663,7 @@ List My Apps 1.9.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892557.jpg" />
 </div>
 
 
@@ -636,7 +689,7 @@ Calca 1.5.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892550.jpg" />
 </div>
 
 
@@ -647,62 +700,6 @@ Calca - текстовый редактор, который любит мат�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B15A896C10535AE0AE5B1504BFC07E2013FD268
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493906   (892548) от 05.09.2021
-
-IconKit 10.1.2 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение для создания (генерации) иконок на Mac OSX. С помощью IconKit вы легко сможете создавать иконки разных размеров и для разных устройств - это элементарно, просто перетащите изображение размером 1024х1024 на рабочее поле программы.
-
-Основные возможности:
-• Интуитивный интерфейс(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 04.09.2021Разработчик: Mojtaba KomeiliПоддерживаемая ОС: OS X 10.13 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E731701FCF5E91125AB7E0C4CA54D353A830AE6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494052   (892449) от 05.09.2021
-
-Watermark Sense - Bulk Process 1.4.2 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892449.jpg" />
-</div>
-
-
-###  Подробнее
-
-Защитите свою интеллектуальную собственность, продвигайте свой бренд, добавляйте информационные наложения, и обрабатывайте одновременно много изображений.
-Watermark Sense - инструмент с минимальными настройками для пакетной обработки изображения. Это позволяет достичь больших творческих результатов в пакетном режиме, экономя много времени на выполнение повторяющихся (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.09.2021Разработчик: VeprITПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AB88962FAC1EBD0FAB415E8E6A1D1579B04C36F
 ```
 
 https://mybot314.ru/tekegram_catalog/

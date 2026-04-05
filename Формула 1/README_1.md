@@ -1,3 +1,113 @@
+###  Публикация: 1494016   (891880) от 05.09.2021
+
+Формула 1. Сезон 2021. Этап 17. Гран-при Нидерландов. Гонка (05.09.2021) HDTV [H.264/1080i-LQ]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гран-при Нидерландов. Гонка
+Арена: Кольцо Зандворт (Зандворт, Нидерланды)
+05 сентября 2021, воскресенье. 16:00 МСКТелекомпания: Матч ТВЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: отсутствуютПродолжительность: 01:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BF3EB49F68C2E986015D27D8515E0B758C5034B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494017   (891876) от 05.09.2021
+
+Формула 1. Сезон 2021. Этап 17. Гран-при Нидерландов. Гонка (05.09.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гран-при Нидерландов. Гонка
+Арена: Кольцо Зандворт (Зандворт, Нидерланды)
+05 сентября 2021, воскресенье. 16:00 МСКТелекомпания: Матч ТВЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: отсутствуютПродолжительность: 01:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FD85ED3BB4B5CD9E39845875489954B4E566155
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495201   (882117) от 11.09.2021
+
+Формула 1. Сезон 2021. Этап 14. Гран-при Италии. Квалификация (10.09.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882117.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 сентября 2021, пятница. 19:00 МСК
+Этап 14, Арена: Автодром Монца. Италия, КвалификацияТелекомпания: Матч!Жанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: отсутствуютПродолжительность: 01:05:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0A89D551BC5CD227D2E360482CD7B7823B12AF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495338   (882101) от 11.09.2021
+
+Формула 1. Сезон 2021. Этап 14. Гран-при Италии. Спринт-квалификация (11.09.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882101.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 сентября 2021, суббота. 17:30 МСК
+Этап 14, Арена: Автодром Монца. Италия, Спринт-квалификацияТелекомпания: Матч!Жанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: отсутствуютПродолжительность: 00:36:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FCE01539D1DB208E7DE7395E6B32D8E2536548B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1495190   (878725) от 13.09.2021
 
 Формула 1. Сезон 2021. Этап 14. Гран-при Италии. Квалификация. (10.09.2021) HDTVRip [H.264/1080p-LQ] F1TV
@@ -6,7 +116,7 @@
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878725.jpg" />
 </div>
 
 
@@ -35,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878723.jpg" />
 </div>
 
 
@@ -64,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878721.jpg" />
 </div>
 
 
@@ -93,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878720.jpg" />
 </div>
 
 
@@ -122,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878718.jpg" />
 </div>
 
 
@@ -149,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868103.jpg" />
 </div>
 
 
@@ -175,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867957.jpg" />
 </div>
 
 
@@ -201,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867949.jpg" />
 </div>
 
 
@@ -227,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859638.jpg" />
 </div>
 
 
@@ -254,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857576.jpg" />
 </div>
 
 
@@ -283,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857532.jpg" />
 </div>
 
 
@@ -310,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855789.jpg" />
 </div>
 
 
@@ -339,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842913.jpg" />
 </div>
 
 
@@ -367,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841591.jpg" />
 </div>
 
 
@@ -395,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836132.jpg" />
 </div>
 
 
@@ -422,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834877.jpg" />
 </div>
 
 
@@ -451,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834874.jpg" />
 </div>
 
 
@@ -480,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834871.jpg" />
 </div>
 
 
@@ -507,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817602.jpg" />
 </div>
 
 
@@ -534,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817313.jpg" />
 </div>
 
 
@@ -562,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810824.jpg" />
 </div>
 
 
@@ -588,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809742.jpg" />
 </div>
 
 
@@ -600,117 +710,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D7BE821F3CF65D22EE057C8267941CEAC0D3DD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118737   (809018) от 27.03.2017
-
-Формула 1. Гран-При Австралии. Гонка (26.03.2017) [H.264/720p-LQ] [ hand made 50fps]
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат мира по авто гонкам в классе Формула 1. Этап 1. Гран-при Австралии. Автодром Альберт-Парк. ГонкаТелекомпания: Матч ТВЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:54:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CDF8C937D71BA809471FA98F7B409B90A990592
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505007   (808212) от 25.10.2021
-
-Формула 1. Сезон 2021. Этап 17. Гран-при США. Гонка (24.10.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808212.jpg" />
-</div>
-
-
-###  Подробнее
-
-24 октября 2021, воскресенье. 22:00 МСК
-Этап 17, Остин. Гран-при США. Гонка (56 кругов)Телекомпания: Матч!Жанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: отсутствуютПродолжительность: 01:52:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DF43C7E5CB8570F794B96CF9DBB3FE85BB9D348
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504794   (807819) от 25.10.2021
-
-Формула 1. Сезон 2021. Этап 17. Гран-при США. Квалификация (23.10.2021) HDTVRip [H.264/1080p-LQ] [50fps] F1TV
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этап 17. Арена: Автодром Трасса Америк (Остин, США).
-Квалификация. 23 октября 2021, суббота.
-
-Картинка с F1 TV, без рекламы.Телекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Матч ТВ: Алексей Попов, Наталья Фабричнова), Украинский (Максим Подзигун), Английский (SkySports F1HD).Субтитры: отсутствуютПродолжительность: 01:19:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8431E36B8A88BE5EEAE9CBD9C22CBB319A9D147D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505014   (806002) от 26.10.2021
-
-Формула 1. Сезон 2021. Этап 17. Гран-при США. Гонка (24.10.2021) HDTVRip [H.264/1080p-LQ] [50fps] F1TV
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этап 17. Арена: Автодром Трасса Америк (Остин, США).
-Гонка. 24 октября 2021, воскресенье.
-
-Картинка с F1 TV, без рекламы.Телекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Матч ТВ: Алексей Попов, Наталья Фабричнова), Украинский (Максим Подзигун), Английский (SkySports F1HD).Субтитры: отсутствуютПродолжительность: 02:07:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B31002BF428CF352C7CE06020A54190BD301366
 ```
 
 https://mybot314.ru/tekegram_catalog/

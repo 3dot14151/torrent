@@ -1,31 +1,3 @@
-###  Публикация: 926275   (535030) от 09.08.2015
-
-Debian GNU/Linux 9.0 Stretch (Testing, 03.08.2015) [i386] 3xDVD
-
->>Linux, Unix и другие ОС
->>ОС *Nix (Alpha, Beta, RC)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535030.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот выпуск начат как копия Jessie, и сейчас он находится в стадии "тестирования". Это означает, что сейчас ничего не должно сломаться как это бывает в нестабильном или экспериментальном дистрибутиве, так как пакеты попадают в дистрибутив только после определённого периода, и если они не содержат критических для всего выпуска ошибок.
-
-Заметим, что обновления (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5631147C5064EFB0268BA2AD6BDCFD8EA98A3714
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1239713   (534602) от 07.08.2018
 
 Parted Magic 2018.08.06 [i686/amd64] 1xCD
@@ -34,7 +6,7 @@ Parted Magic 2018.08.06 [i686/amd64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534602.jpg" />
 </div>
 
 
@@ -60,7 +32,7 @@ Linux Mint 18 Sarah XFCE [32bit, 64bit] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534045.jpg" />
 </div>
 
 
@@ -86,7 +58,7 @@ Brackets 30 [x32,x64] (deb)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533618.jpg" />
 </div>
 
 
@@ -112,7 +84,7 @@ Kubuntu 16.04.3 LTS Xenial Xerus [i386, amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531224.jpg" />
 </div>
 
 
@@ -140,7 +112,7 @@ Tor Browser 5.0 [анонимный доступ в сети] [х86, x64] (bundl
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531197.jpg" />
 </div>
 
 
@@ -166,7 +138,7 @@ NAS4Free 9.3.0.2.1681 (Nayla) [amd64, i386] 2xCD, 4xIMG
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531024.jpg" />
 </div>
 
 
@@ -195,7 +167,7 @@ Bio-Linux 8.0.7 [x86-64] 1xDVD, 1xIMG
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530916.jpg" />
 </div>
 
 
@@ -221,7 +193,7 @@ OpenMediaVault 2.1 [x86+x64] 2xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529329.jpg" />
 </div>
 
 
@@ -248,7 +220,7 @@ Xubuntu 16.04.3 LTS Xenial Xerus (Легкий дистрибутив) [i386, am
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528368.jpg" />
 </div>
 
 
@@ -274,7 +246,7 @@ Debian GNU/Linux 10.0 + nonfree Buster [i386] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528056.jpg" />
 </div>
 
 
@@ -302,7 +274,7 @@ Runtu XFCE 16.04.3 x64 - 20170806  [amd64] 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527524.jpg" />
 </div>
 
 
@@ -328,7 +300,7 @@ Mageia 6 Sta 1 (+ KDE PLASMA 5) [i586, x86-64] 6xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526481.jpg" />
 </div>
 
 
@@ -356,7 +328,7 @@ KaOS Linux 2016.09 (Arch + Plasma KDE 5) [x86-64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526470.jpg" />
 </div>
 
 
@@ -382,7 +354,7 @@ KDE neon 5.7.5 (15092016) [x86-64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525907.jpg" />
 </div>
 
 
@@ -408,7 +380,7 @@ Parted Magic 2015_08_12 [i686,amd64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523818.jpg" />
 </div>
 
 
@@ -434,7 +406,7 @@ Debian GNU/Linux 9.0 Stretch (Testing, 03.08.2015) [x86-64] 3xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523119.jpg" />
 </div>
 
 
@@ -462,7 +434,7 @@ Debian Edu - Skolelinux 10.0 Buster I [i386, x86-64] DVD, CD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522810.jpg" />
 </div>
 
 
@@ -488,7 +460,7 @@ KaOS Linux 2015.08 (Arch + Plasma KDE 5) [x86-64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522398.jpg" />
 </div>
 
 
@@ -516,7 +488,7 @@ Debian GNU/Linux 9.0 Stretch (Testing, 10.08.2015) [i386] 3xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522366.jpg" />
 </div>
 
 
@@ -544,7 +516,7 @@ Debian GNU/Linux 9.0 Stretch (Testing, 10.08.2015) [x86-64] 3xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522359.jpg" />
 </div>
 
 
@@ -572,7 +544,7 @@ Microsoft Office 2003 Pro SP3 + FrontPage 2003 SP3 + Project 2003 Pro SP3 + Visi
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521242.jpg" />
 </div>
 
 
@@ -598,7 +570,7 @@ Tor Browser 5.0.1 [анонимный доступ в сети] [х86, x64] (bun
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518338.jpg" />
 </div>
 
 
@@ -624,7 +596,7 @@ QNX 4.25 [i386] 1xCD
 >>Другие ОС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518095.jpg" />
 </div>
 
 
@@ -650,7 +622,7 @@ QNX 6.2.1 Non-commercial [i386] 2xCD
 >>Другие ОС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517997.jpg" />
 </div>
 
 
@@ -676,7 +648,7 @@ Mageia 7.1 [i586] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515886.jpg" />
 </div>
 
 
@@ -689,6 +661,34 @@ Mageia 7.1 [i586] 2xDVD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEF58BDD62D29328CBF376812617E951DE3FC708
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315083   (515870) от 17.07.2019
+
+Mageia 7.1 [x86-64] 4xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515870.jpg" />
+</div>
+
+
+###  Подробнее
+
+В текущей версии 7.1 исправлен systemd, также проведены обновления безопасности и исправлены замеченные ошибки.
+
+Спустя два года с момента прошлого значительного выпуска опубликован релиз Linux-дистрибутива Mageia 7, в рамках которого независимым сообществом энтузиастов развивается форк проекта Mandriva. Для загрузки доступны 32- и 64-разрядные DVD-сборки (4 Гб), (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D1F8579171E30EE35DA3652E9DAA1A080497ED0
 ```
 
 https://mybot314.ru/tekegram_catalog/

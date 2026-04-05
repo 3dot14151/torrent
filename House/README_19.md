@@ -1,3 +1,61 @@
+###  Публикация: 1275816   (789485) от 13.01.2019
+
+VA - The Best Of Disco Lab, Vol. 1 (2019) [MP3|320 Kbps] <Tech House, House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maxdal - Guitar Groove (Original Mix)
+02. Maxdal - Strike (Original Mix)
+03. Maxdal - Our Love (Original Mix)
+04. Maxdal - Unstoppable (Original Mix) (feat. B.(   Читать дальше...   )Жанр: Tech House, HouseПродолжительность: 02:01:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:108992E3E2732F9024DCD551653D614A7B817730
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275765   (789445) от 13.01.2019
+
+VA - Disco House Cats, Vol. 1 (2019) [MP3|320 Kbps] <House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disco Project - Talking (Brooklyn & Friends Disco Mix)
+02. Tony Afrique - Sont Claires (Disco Disco Mix)
+03. Gold Jeans - Waiting For The Day (Morning Mix)
+04. Emmanuelle Duvall - Hands Of Loving (Original Mix)(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 01:24:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:007A595323D76EBE09BB4D3629EBA793F6A6AEC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275449   (789444) от 13.01.2019
 
 VA - Miami Beachin Vol.1 [Continuous Mix] Low Tide (2019) [MP3|320 Kbps] <House, IndieDance, Electronic>
@@ -6,7 +64,7 @@ VA - Miami Beachin Vol.1 [Continuous Mix] Low Tide (2019) [MP3|320 Kbps] <House,
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789444.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Melodic House Sessions, Vol. 04 (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789120.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Ice Pack 2018 House: Deep House (2018) [MP3|320 Kbps] <House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789111.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Dance Mix Vol.2 (2019) [MP3|320 Kbps] <House, Dance, Electro>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789051.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Dance Mix Vol 3 (2019) [MP3|320 Kbps] <House, Dance, Electro>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789049.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Dance Mix Vol.1 (2019) [MP3|320 Kbps] <House, Deep House, Progressive House
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789048.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Progressive Dream Escape (2018) [MP3|320 Kbps] <Progressive House, Trance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788679.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Fitness Unlimited 2021 Made For Workout & Running [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788367.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Gym Floor Energy 2019 [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788229.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Big Party: EDM Anthems (2018) [MP3|320 Kbps] <House, Melbourne Bounce, Club
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788217.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Winter Sessions 2019 (Mixed by Milk and Sugar) (2019) [MP3|320 Kbps] <House
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788192.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Valentines Day Collection, King Street Sounds, 25 Years Essentials (2018) [
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787913.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - EDM Dance For Valentines Day (2018) [MP3|320 Kbps] <House, Nu Disco, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787729.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Late Night Disco House, Vol. 1 (2018) [MP3|320 Kbps] <House, Tech House, De
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787715.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - The Best Workout Dance Tracks (2019) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787576.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Minimal Love Vol. 5. (2019) [MP3|320 Kbps] <Minimal>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787259.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Beats And Grooves (30 Top House Tunes),Vol.3 (2019) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787258.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Michel Suhov - From Ghetto With Love (2015) [MP3|320 Kbps|image+.CUE,tracks] <Af
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787103.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Dance Mix Vol.7 (2019) [MP3|320 Kbps] <House, Dance, Electro>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787030.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Dance Mix Vol.5 (2019) [MP3|320 Kbps] <House, Dance, Electro>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787029.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Dance Mix Vol.4 (2019) [MP3|320 Kbps] <House, Dance, Electro>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787027.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Dance Mix Vol.10 (2019) [MP3|320 Kbps] <House, Dance, Electro>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787023.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Solaris Time Sexy Summer (2020) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786756.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Future Core Vol.1 (2017) [MP3|320 Kbps] <House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785986.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Future Core Vol.1 (2017) [MP3|320 Kbps] <House, Dance, Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43F2D094BAD380B6B5FB8C8B9F85C4E777152D2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123520   (785982) от 10.04.2017
-
-VA - Miami 2017: The Club Deluxe Edition (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Marcel Martenez & Jommes Tatze - Make Me Feel  4:51
-02.  Amoon - Let The Music Play (Extended Mix)  4:57
-03.  Freaky Tricks - Tonight  3:36
-04.  Martin Nocun - Take It To The Top (Extended Mix)  3:56(   Читать дальше...   )Жанр: HouseПродолжительность: 02:00:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A8EE65D6F6870C8E04E87CFD392299670C5C651
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123493   (785979) от 10.04.2017
-
-VA - Armada Deep Top 10 April (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Low Steppa feat. Geneva White - Can't Lie  3:12
-02.  Paige feat. Pipo Fernandez - Push It Back  2:38
-03.  TAI - Found Out  2:52
-04.  Felon - Coming Up (Main Mix)  3:43(   Читать дальше...   )Жанр: HouseПродолжительность: 00:29:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:936D0A383DAB3EF9D423748641812C6B5E35E8D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

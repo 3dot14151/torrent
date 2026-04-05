@@ -1,3 +1,55 @@
+###  Публикация: 998299   (867615) от 20.03.2016
+
+Crime Cities (2000) [En] (1.0) Licence
+
+>>Win Старые Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Crime Cities - это оригинальная комбинация шутера и симулятора флайера, со сложным развитым сюжетом.XXV век, планетная система Пандемия - гигантская колония. Один из лучших агентов FSB по имени Гарм Тайгер приговорен к пожизненной ссылке на Пандемию за неповиновение и измену Федерации. Такова «легенда» Тайгера - на самом деле ему предстоит выполнить важнейшую и опаснейшую (   Читать дальше...   )Тип издания: LicenceРазработчик: TechlandЖанр: Action, Arcade, Racing (Futuristic), Simulator (Futuristic), 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:449C7072473AA644BDD849DF063467306584F21B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497372   (864290) от 22.09.2021
+
+Arcanum: Of Steamworks and Magick Obscura (2001) [En] (1.0.7.4hf) License GOG
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Промышленная революция в мире магии. Представьте себе чудесное место, где магия и технологии сосуществуют в непростом балансе, и искатель приключений может так же легко владеть кремневым пистолетом, как и пылающим мечом. Место, где в крупных промышленных городах находятся замки и фабрики, где обитают гномы, люди, орки и эльфы. Место древних рун и паровых электростанций, (   Читать дальше...   )Тип издания: LicenseРазработчик: Troika GamesЖанр: RPG, Steampunk, AdventureЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8614647E01921281F8F6F9F33F0FE03AF8128DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1108358   (863792) от 24.02.2017
 
 X-COM: Enforcer (2001) [En] (1.0) License GOG
@@ -6,7 +58,7 @@ X-COM: Enforcer (2001) [En] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863792.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Hidden & Dangerous Anthology (2002-2005) [Ru/En] (1.51/1.12/1.50) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863789.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Hidden & Dangerous 2: Sabre Squadron (2003-2004) [Multi] (1.12) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863672.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Command & Conquer: Tiberian Sun + Tiberian Sun: Firestorm [Ru] (P) 1999 - 2000
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862677.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Nelly Cootalot: The Fowl Fleet (2016) [En/Multi] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862180.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ X-COM: Interceptor (1998) [En] (1.2) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862024.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Burn / Пекло (2007) [Ru] (1.0) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861963.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ Soldier of Fortune: Payback (2007) [En] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860902.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ Imperium Galactica 2: Alliances (2000) [Multi] (1.83) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860187.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ Battle Engine Aquila (2003) [Multi] (0.9.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859352.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ Ultima™ 4: Quest of the Avatar (1985) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858531.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ Biped (2020) [Ru/Multi] (1.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856182.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ Baldur's Gate: The Original Saga (1999) [Ru/En] (1.1.4315/1.3.5508/dlc) License 
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851399.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ Konung Dilogy / Князь Дилогия (1999-2003) [Ru/En] (1.3/1.05) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848226.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ X-Com Classic Bundle (1994-2001) [En/Multi] (30.03.2016) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848216.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ Ultima 9: Ascension (1999) [En] (1.00) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847941.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ Gothic / Готика (2001) [Multi] (1.08j/1.08k) License PROPHET
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847761.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ Legacy of Kain: Blood Omen 2 (2002) [Multi] (1.0.2hf) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847358.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl / S.T.A.L.K.E.R.: Тень Чернобыл�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847262.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ DX-Ball 2 [En] (L) 1998
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846126.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ Castlevania: Lords of Shadow (2013) [Ru] (1.0.2.9upd2) Repack xatab [Ultimate Ed
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845614.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ Rally Trophy / Ралли Трофи (2001) [Ru] (1.01) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841169.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ Trine (2009) [Multi] (2.12(a)) License GOG [Enchanted Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840943.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ Blade of Darkness (2001) [Multi] (1.01) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837753.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ Blade of Darkness это потрясающий своей графикой и �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0113ABFFC7F1BBF779ABF443140699172A25B011
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113869   (835789) от 12.03.2017
-
-Overlord (2007) [Multi] (1.4/dlc) License GOG
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раскройте в себе таланты тирана в Overlord – приключении-боевике, где лучше быть плохим, а быть еще хуже еще лучше. В извращенном фэнтезийном мире вам уготована роль повелителя странных чертенят-миньонов. Разумеется, вы можете остаться обычным повелителем и повелевать себе с девяти до семи ежедневно. Но разве вам порой не хочется стать самым деспотичным сатрапом (   Читать дальше...   )Тип издания: LicenseРазработчик: Triumph StudiosЖанр: Стратегия, Экшн, ФэнтезиЯзык озвучки: Английский, Немецкий, Испанский и другиеЯзык субтитров: Английский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2CF94D9F8FC680C702AD8065CC5B560351D0947
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379750   (835614) от 01.05.2020
-
-Shogo: Mobile Armor Division / Ярость: Восстание на Кронусе (1998) [Ru/En] (2.214) Repack Evengard
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие разворачивается на планете Кронус, которая является единственным источником загадочного вещества «като», позволяющего перемещаться на огромные расстояния за ничтожное время. На планете идет жестокая гражданская война. Капитан UCA Санджуро Макабе высаживается на Кронусе с целью найти и обезвредить Габриэля — главаря повстанцев, которые называют себя «Падшими».Тип издания: RepackРазработчик: Monolith ProductionsЖанр: FPSЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2C06CFD0A0F2ECB52ABAECA75D70FF9E085D46E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1376783   (856186) от 19.04.2020
+
+Jetbrains IntelliJ IDEA Ultimate 2020.1 [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856186.jpg" />
+</div>
+
+
+###  Подробнее
+
+IntelliJ IDEA — самая умная среда разработки для Java и других языков, включающая поддержку всех последних технологий и фреймворков, идеально подходящая для создания коммерческих, веб- и мобильных приложений.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC851B0045734551F73179CE4472C3169CCD4860
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1417547   (855691) от 27.09.2021
 
 Amnesia: Rebirth (2020) [Ru/Multi] (1.4) License GOG
@@ -6,7 +32,7 @@ Amnesia: Rebirth (2020) [Ru/Multi] (1.4) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855691.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855690.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855504.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Samorost 3 (2016) [Ru/Multi] (1.0) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854978.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854976.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Space Engineers (2013) [Ru/Multi] (beta 01.124) Repack Crisis2010 [Early Access]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854973.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854844.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854843.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854832.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854121.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_854080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_854080.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ S.T.A.L.K.E.R.: Call of Pripyat - Anomaly (2021) [Ru/En] (1.5.1) Repack/Mod koto
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853980.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853828.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853826.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853368.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853365.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853364.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853217.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852747.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_852451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_852451.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852367.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_852326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_852326.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ VideoReg Pro 6.81 [Ru] - Видеорегистратор
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852116.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ Mortal Kombat: Komplete Edition (2011) [PS3] [EUR] 4.30 [Cobra ODE / E3 ODE PRO 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851604.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ Deus Ex: Mankind Divided  (2016) [Ru/Multi] (1.16.761.0/dlc) License SKIDROW
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851388.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ Deus Ex: Mankind Divided - новая часть сериала Deus Ex, про�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:554C24E881B280782C240C3D1201D8A8D0829145
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110608   (851387) от 03.03.2017
-
-Пассажиры / Passengers (2016) BDRemux [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Космический корабль с 5,000 пассажиров на борту, погруженных на время полета в искусственный сон, держит курс на планету, которая станет для них новым домом. Всё идет по плану, но из-за сбоя системы двое пассажиров неожиданно просыпаются и понимают, что до конечного пункта путешествия — 90 лет пути, и им суждено остаток жизни провести вдвоем в роскошных интерьерах (   Читать дальше...   )Производство: США, Columbia Pictures, Company Films, LStar Capital, Original FilmЖанр: Драма, Мелодрама, Приключения, ФантастикаРежиссер: Мортен ТильдумАктеры: Дженнифер Лоуренс, Крис Прэтт, Майкл Шин, Лоуренс Фишборн, Энди Гарсиа, Винс Фостер, Кара Мишель Уайлдер, Конор Брофи, Джули Серда, Аврора ПерриноПеревод: Дублированный (iTunes)Язык субтитров: Русский, Украинский, АнглийскийПродолжительность: 01:56:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CB40DFF9FD049122A50AFF85F5908D12CA1050F
 ```
 
 https://mybot314.ru/tekegram_catalog/

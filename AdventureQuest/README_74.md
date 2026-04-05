@@ -1,3 +1,81 @@
+###  Публикация: 1709609   (61897) от 25.03.2024
+
+Bloody Ink (2024) [Ru/Multi] (13792199) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bloody Ink - это психологическая хоррор-игра от первого лица, направленная на внедрение беспокойства, страха и ужаса. Лука - мужчина, потерявший работу. Он живет день ото дня, пытаясь выжить. Когда новая работа, наконец, обещает изменить его жизнь, начинается его кошмар. Ему предстоит заботиться о человеке, полностью обгоревшем, и Лука переезжает в дом этого человека, (   Читать дальше...   )Тип издания: RepackРазработчик: Daniele Doesn't MatterЖанр: Экшены, Приключенческие игры, СтратегииЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9EB367C1D1EC68343A0B69D2D384FAE43DB0A0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709760   (61861) от 25.03.2024
+
+REVEIL (2024) [Ru/Multi] (1.0.3f4/dlc) License GOG [Funhouse Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра с уникальной историей и привлекательной графикой станет испытанием для ума. Разнообразные головоломки, вопросы без ответов, сбивающие с толку подсказки и расшатанная психика... Чтобы со всем этим совладать, игроку, как и главному герою Уолтеру Томпсону, придется приложить немало усилий. Сумеете ли вы во всем разобраться? Найти ответы поможет упорство.Тип издания: LicenseРазработчик: PixelsplitЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03E71EE8EF80318784B94EAAA980523C30F0EC77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570164   (61786) от 26.03.2024
+
+As Dusk Falls (2022) [Ru/Multi] (1.01) Repack dixen18
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61786.jpg" />
+</div>
+
+
+###  Подробнее
+
+As Dusk Falls - это оригинальная интерактивная драма от INTERIOR NIGHT. В центре сюжета судьбы двух семей, за тридцать лет прочно переплетённые между собой. Действие начинается в 1998 году с неудавшегося ограбления. Это история о предательстве, стойкости духа и готовности пойти на жертвы. Жизни персонажей будут зависеть от ваших действий и решений.Тип издания: RepackРазработчик: INTERIOR NIGHTЖанр: AdventureЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52FD6600DD7EC189F444207144A9349A2D4A1FAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674146   (61784) от 26.03.2024
 
 Jusant (2023) [Ru/Multi] (1.06) Repack dixen18
@@ -6,7 +84,7 @@ Jusant (2023) [Ru/Multi] (1.06) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61784.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Vampires' Melody 2 (2023) [Multi] (20240319) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61763.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Cats Hidden in Georgia (2024) [Ru/Multi] (0313) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61750.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Between Horizons (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61610.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Bloody Ink (2024) [Ru/Multi] (13792199) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61544.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Distant Bloom (2024) [Multi] (1.0) Scene FAiRLIGHT
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61542.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Alone in the Dark (2024) [Ru/Multi] (1.02/dlc) Repack DjDI [Digital Deluxe Editi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61342.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Kona II: Brume (2023) [Ru/Multi] (20240222) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61236.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Goodbye Volcano High (2023) [Ru/Multi] (1.06) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61228.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Open Roads (2024) [Ru/Multi] (1.0) Scene SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61218.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Clash: Artifacts of Chaos (2023) [Ru/Multi] (28836/dlc) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61203.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ There's Something In The Ice (2024) [Ru/En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61192.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ A Divine Guide To Puzzle Solving (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61101.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Distant Bloom (2024) [Multi] (41064.3120) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60997.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Between Horizons (2024) [Multi] (1.0.4+s) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60957.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Gore Doctor (2024) [En] (1.05) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60952.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Bloody Ink (2024) [Ru/Multi] (13792199) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60932.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Holy Maid Academy (2024) [Multi] (1.0.0a/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60774.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Syberia / Сибирь (2002) [Ru/Multi] (1.0.0.11) Repack Cheshire28 [Multilang
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60732.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ DYSCHRONIA: Chronos Alternate (2024) [Multi] (1.0) Scene Tenoke [Dual Edition] [
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60500.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Open Roads (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60481.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Spider Fox (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60474.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Motesolo (2021) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60462.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Motesolo (2021) [Ru/Multi] (1.0) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F66AFBC23A7D28F75C15FA75C11A93E16321140
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582110   (60396) от 08.04.2024
-
-The Excavation of Hob's Barrow (2022) [En] (1.05) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Антиквар Томазина Бейтман пишет книгу о курганах Англии, документируя сокровища, которые она находит в них. Когда интригующее письмо вызывает ее в маленькую деревушку Бьюлай, спрятанную в отдаленной сельской местности, она отправляется поездом со своей помощницей на день позже. Однако по прибытии таинственного человека, вызвавшего ее, нигде не найти. Ее помощник (   Читать дальше...   )Тип издания: LicenseРазработчик: Cloak and Dagger GamesЖанр: Приключение, Квест, ГоловоломкаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B017E40DD10C6F0DEAF449BD64F41DA065C4CE02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714836   (60136) от 10.04.2024
-
-Paradise Marsh (2022) [Multi] (1.0) Scene Tenoke [Soundtrack Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы просыпаетесь на мирном болоте и обнаруживаете, что звезды, наполнявшие небо, упали на землю. Вас ждут живописные, таинственные места; живность, которую нужно ловить сачком; беседы с незабываемыми персонажами... По пути можно рвать цветы, есть грибы, находить послания в пустых бутылках и многое другое! Вернутся ли на небо пропавшие созвездия? Paradise Marsh – исследовательская (   Читать дальше...   )Тип издания: SceneРазработчик: LazyEtiЖанр: Экшены, Приключенческие игры, Казуальные игрыЯзык субтитров: Английский, Французский, Итальянский, ИспанскийЯзык интерфейса: Английский, Французский, Итальянский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A99D44C2466F635E269293ADDE419E1D18A85C8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714993   (60041) от 11.04.2024
-
-Dark Days (2024) [Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dark Days – перед вами классический сверхъестественный триллер, разработкой которого занималась довольно известная инди-студия. При этом игровой процесс был теперь обновлен для пользователей ПК. Мы раньше занимались этим проектом еще в 2016 году. Изначально игра была задумана для мобильных VR-гарнитур, а теперь она полноценно обновлена для компьютеров.Тип издания: RepackРазработчик: Parallel StudioЖанр: Приключенческие игрыЯзык озвучки: Английский, Французский, Немецкий, Испанский и другиеЯзык субтитров: Английский, Французский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FF60AE286F138BF471AF749A327F560FBB8E36E
 ```
 
 https://mybot314.ru/tekegram_catalog/

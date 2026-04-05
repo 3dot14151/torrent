@@ -6,7 +6,7 @@ Erroll Garner - 1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162386.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Johnny Hodges - Storyville Masters Of Jazz (1943 - 1964) 2006, Storyville Record
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162384.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Frank Sinatra with the Red Norvo Quintet - Live In Australia (1959) 1997, Blue N
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162237.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Django Reinhardt - 1947 (1998) Classics [FLAC|Lossless|tracks + .cue] <Swing, Gu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162181.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Katie Melua - Call Off The Search (2003) Dramatico DRAMCD0002 [FLAC|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161866.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Erroll Garner - 1949, Vol.2 (2001) Classics [FLAC|Lossless|tracks + .cue] <Swing
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161738.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Johnny Hodges, Rex Stewart, Barney Bigard - The Great Ellington Units (1940 - 19
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161698.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Count Basie & His Orchestra - The Count Basie Collection (1937 - 1939) 3CD, 2021
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161464.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Sonny Rollins - Go West!: The Contemporary Records Albums (1957, 1958) 3CD, 2023
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161438.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Ulf Meyer & Martin Wind Featuring Billy Test And Alex Riel - Time Will Tell (202
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161428.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Matt Belsante - White Christmas (2008) [FLAC|Lossless|tracks + .cue] <Vocal Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161425.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Dinah Washington - 3 Essential Albums (1954 - 1956) 3CD, 2017, Universal [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161417.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Peter Weiss - Conversation With Six-String People (2022) JazzSick Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161404.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Rebirth::Collective featuring Tutu Puoane - It Might As Well Be Swing (2021) Sou
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161391.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Erroll Garner - 1949-1950 (2001) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161196.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ The Ruby Braff Trio - Bravura Eloquence (1990) Concord Jazz [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161177.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Toshiyuki Miyama & The New Herd - The New Herd At Monterey (1974) 2CD, 1999, Abs
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160868.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Chico Hamilton Quintet with Eric Dolphy - The Original Ellington Suite (1958) 20
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160866.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ VA - This Is Lounge Jazz (2023) [FLAC|Lossless|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160844.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Alan Pasqua, Peter Erskine, Darek Oles - Live In Italy (2022) Fuzzy Music [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160674.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Joshua Redman - Where Are We (2023) Blue Note Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160663.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Jeremy Pelt - Insight (2002) Criss Cross [FLAC|Lossless|tracks + .cue] <Post-Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160480.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Billy Hart - All Our Reasons (2012) ECM [FLAC|Lossless|tracks + .cue] <Post-Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160319.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Flip Phillips - Swinging With Flip (1952) 2007, Membran Music [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160223.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Bob Brookmeyer - Holiday: Bob Brookmeyer Plays Piano (2001) Challenge Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160221.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Nat King Cole - 1944 - 1945 (1996) Classics [FLAC|Lossless|tracks + .cue] <Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160210.jpg" />
 </div>
 
 

@@ -1,3 +1,31 @@
+###  Публикация: 426572   (29099) от 01.02.2025
+
+Foghat - 23 Albums, 2 Box Set (1972 - 2023) 56 CD [FLAC|Lossless|image + .cue|tracks + .cue]<Blues rock, hard rock, boogie rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29099.jpg" />
+</div>
+
+
+###  Подробнее
+
+Смесь блюз-рока, харда, буги и рок-н-ролла, исполняемая этой английской командой, сделала ее весьма популярной в середине 70-х, однако впоследствии волна панка и диско выбросила "Foghat" на обочину шоу-бизнеса. Группу организовали в 1971 году выходцы из "Savoy Brown" Roger Earl (ударные), Dave Peverett (гитара, вокал) и Tony Stevens (бас), объединившиеся (   Читать дальше...   )1972 - Foghat
+1973 - Foghat (Rock and Roll)
+1974 - EnergizedЖанр: Blues rock, hard rock, boogie rockПродолжительность: 41:09:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0AFE4518FA6669DB8CDE9BBE040FA6D13F6E98A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1776256   (28814) от 03.02.2025
 
 ACDC - Back Home With Brian (2024) [MP3|320 Kbps] <Rock, Hard Rock>
@@ -6,7 +34,7 @@ ACDC - Back Home With Brian (2024) [MP3|320 Kbps] <Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28814.jpg" />
 </div>
 
 
@@ -35,7 +63,7 @@ Eric Burdon (The Animals & War & Jimmy Witherspoon & Brian Auger) - 24 Studio Al
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28741.jpg" />
 </div>
 
 
@@ -63,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28674.jpg" />
 </div>
 
 
@@ -92,7 +120,7 @@ The Offspring - Anti-Valentine’s Day with The Offspring (2025) [FLAC|Lossless|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28375.jpg" />
 </div>
 
 
@@ -121,7 +149,7 @@ The Ferrymen - Iron Will (2025) [FLAC|Lossless|image + .cue] <Heavy Metal, Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28361.jpg" />
 </div>
 
 
@@ -150,7 +178,7 @@ Franz Ferdinand - 10 альбомов (2004 - 2025) [FLAC|Lossless|image + .cue,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28119.jpg" />
 </div>
 
 
@@ -179,7 +207,7 @@ Dimmu Borgir - Puritanical Euphoric Misanthropia (2001) 2 x CD, Japanese Edition
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28045.jpg" />
 </div>
 
 
@@ -208,7 +236,7 @@ Dream Theater - Parasomnia (2025) 2 x CD [FLAC|Lossless|image + .cue] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28041.jpg" />
 </div>
 
 
@@ -237,7 +265,7 @@ Brainstorm - Plague Of Rats (2025) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27925.jpg" />
 </div>
 
 
@@ -266,7 +294,7 @@ Thin Lizzy - 39 Albums, 5 Box Set (1971 - 2025) 114 CD [FLAC|Lossless|image + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27690.jpg" />
 </div>
 
 
@@ -296,7 +324,7 @@ Alex Beyrodt's Voodoo Circle - 8 альбомов (2008-2024) Discography [FLAC|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27575.jpg" />
 </div>
 
 
@@ -328,7 +356,7 @@ Smokie & Chris Norman - The very best of Smokie & Chris Norman 50 years annivers
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27559.jpg" />
 </div>
 
 
@@ -357,7 +385,7 @@ Bonfire - 32 albums, 42 CD (1986-2025) [FLAC|Lossless|image + .cue | tracks + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27486.jpg" />
 </div>
 
 
@@ -386,7 +414,7 @@ W.A.S.P. - Bonus Tracks And B Sides (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27416.jpg" />
 </div>
 
 
@@ -415,7 +443,7 @@ Axel Rudi Pell - The Ballads VI (2023) [FLAC|Lossless|tracks + .cue] <Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27098.jpg" />
 </div>
 
 
@@ -444,7 +472,7 @@ Crazy Lixx - 9 альбомов (2007 - 2025) [FLAC|Lossless|image + .cue]<Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26962.jpg" />
 </div>
 
 
@@ -473,7 +501,7 @@ VA - 100 Hits Power Ballads (2016) 5 CD [OGG Vorbis|480 Kbps] <Classic Rock, Pop
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26931.jpg" />
 </div>
 
 
@@ -502,7 +530,7 @@ Raven - Over The Top! (The Neat Albums 1981-1984) (2019) 4 x CD, Box Set, Compil
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26887.jpg" />
 </div>
 
 
@@ -531,7 +559,7 @@ Therion - Collection (1992 - 2023) 30CD [FLAC|Lossless|image + .cue|tracks + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26868.jpg" />
 </div>
 
 
@@ -560,7 +588,7 @@ Krokus - 24 albums, 31 CD (1976-2024) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26833.jpg" />
 </div>
 
 
@@ -589,7 +617,7 @@ Led Zeppelin - Boxed Set2 (1993) 2 x CD, Japanese Edition, Compilation [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26786.jpg" />
 </div>
 
 
@@ -618,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26671.jpg" />
 </div>
 
 
@@ -647,7 +675,7 @@ UFO (U.F.O.) - 33 Albums, 7 Box-sets, 107 CD (1970-2024) [FLAC|Lossless|image + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26648.jpg" />
 </div>
 
 
@@ -676,7 +704,7 @@ Dirkschneider - Balls To The Wall Reloaded (2025) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26256.jpg" />
 </div>
 
 
@@ -705,7 +733,7 @@ Dee Snider - 12 albums (1992-2021) [FLAC|Lossless|image + .cue | tracks +.cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25991.jpg" />
 </div>
 
 
@@ -719,35 +747,6 @@ Dee Snider - 12 albums (1992-2021) [FLAC|Lossless|image + .cue | tracks +.cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEE6892D918381935CD326DB49FFF1E17CBD1A13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782889   (25935) от 02.03.2025
-
-Helloween - March Of Time (The Best Of 40 Years) (2025) 3 x CD [MP3|320 Kbps] <Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25935.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc One:
-01. Walls of Jericho_Ride the Sky (Remastered) (06:46)
- 02. Metal Invaders (Remastered) (04:12)
- 03. Victim of Fate (Remastered) (06:39)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 03:45:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15569F7E65D29738847192ED7B14A46D49672856
 ```
 
 https://mybot314.ru/tekegram_catalog/

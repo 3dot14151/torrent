@@ -1,3 +1,55 @@
+###  Публикация: 1752456   (41901) от 30.09.2024
+
+Л.Э. Генденштейн, А.А. Булатова и др. | Физика. Учебник для 8 класса (в 2 частях, Часть 1) (2018) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Линия учебных изданий для основной школы. Материал разбит на два уровня сложности и представлен как канва сценариев уроков, реализующих деятельностный подход к обучению: тщательно подобранные задания погружены непосредственно в теорию. Имеется набор заданий трех уровней сложности. Есть рубрики «Домашняя лаборатория», «Олимпиадные задачи», приведены задания для проектной (   Читать дальше...   )Жанр: УчебникЯзык: РусскийИздательство: БИНОМ. Лаборатория знанийФормат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA3399BDBE24A107AE09D686C693A80C2833D2A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752477   (41872) от 30.09.2024
+
+Журнал | Юный эрудит №8 (264) (август 2024) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Журналы для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41872.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Юный эрудит» - Журнал для самых любознательных. В занимательной форме журнал расскажет любознательным читателям об истории и сегодняшнем дне науки и техники, выдающихся ученых и первооткрывателях. Ребята узнают, как устроены машины и механизмы, от чего возникают смерчи и циклоны, что вызывает землетрясения и извержения вулканов. Специальные рубрики посвящены современным (   Читать дальше...   )Жанр: Детский научно-популярный журналИздательство: Издательский дом «Лев»Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67D89DD1657A1AA4890F0E7C1CCE82123867496D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1752581   (41807) от 01.10.2024
 
 Л.Э. Генденштейн, А.А. Булатова и др. | Физика. Учебник для 9 класса (в 2 частях, часть 1) (2019) [PDF]
@@ -6,7 +58,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41807.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41806.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41764.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41763.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41697.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41692.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41691.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41619.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41589.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41586.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41259.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ Dorling Kindersley | Как объяснить ребенку географию
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41195.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41062.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41055.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_41011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_41011.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_40951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_40951.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40670.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40668.jpg" />
 </div>
 
 
@@ -483,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40570.jpg" />
 </div>
 
 
@@ -509,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40459.jpg" />
 </div>
 
 
@@ -535,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40458.jpg" />
 </div>
 
 
@@ -561,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40455.jpg" />
 </div>
 
 
@@ -590,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40278.jpg" />
 </div>
 
 
@@ -616,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40275.jpg" />
 </div>
 
 
@@ -628,60 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD49FFB6DED1D5DC6E4CCC095033CADBD905FA21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751704   (40272) от 15.10.2024
-
-И.Ф. Шарыгин | Геометрия. 10-11 классы (1999) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40272.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник по геометрии для общеобразовательных школ реализует авторскую наглядно-эмпирическую концепцию построения школьного курса геометрии. Это выражается, прежде всего, в отказе от аксиоматического подхода и акцентом на наглядные методы.
-Учебник входит в Федеральный комплект учебников 1999/2000 г.Жанр: МатематикаИздательство: ДрофаФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4B43037482C52BED8BEAAABFE61F95EA0761935
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741811   (40254) от 16.10.2024
-
-А.Х. Шахмейстер | Математика. Элективные курсы [22 книги] (2006 - 2023) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40254.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемая серия книг адресована широкому кругу учащихся средних школ, классов и школ с углубленным изучением математики, абитуриентов, студентов педагогических вузов, учителей.
-Книги можно использовать как самостоятельные учебные пособия (самоучители), как задачники по данной теме и как сборники дидактических материалов. Каждая книга снабжена программой элективного (   Читать дальше...   )Жанр: МатематикаИздательство: Петроглиф, МЦНМО, Виктория плюс, ИД КДУФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8715E2E551A6F8702D63D5F7ED8FC5377888D507
 ```
 
 https://mybot314.ru/tekegram_catalog/

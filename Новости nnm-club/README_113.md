@@ -1,3 +1,29 @@
+###  Публикация: 966270   (673705) от 22.03.2019
+
+Жертвуя пешкой / Pawn Sacrifice (2014) BDRip [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673705.jpg" />
+</div>
+
+
+###  Подробнее
+
+В разгар Холодной войны внимание всей планеты приковано к «схватке столетия» — матчу за звание чемпиона мира по шахматам в Рейкьявике. Бой между абсолютным чемпионом Борисом Спасским и по-настоящему одержимым игрой Бобби Фишером превращается в борьбу за интеллектуальное превосходство двух сверхдержав. Права на проигрыш нет. Вокруг поединка разражается мировой скандал. (   Читать дальше...   )Производство: США, Gail Katz Productions, Palm-Star EntertainmentЖанр: Драма, БиографияРежиссер: Эдвард ЦвикАктеры: Тоби Магуайр, Лив Шрайбер, Робин Вайгерт, Лили Рэйб, Питер Сарсгаард, Майкл Стулбарг, Софи Нелисс, Эвелин Брошу, Шеймас Дэви-Фицпатрик, Лидия ЗеделПеревод: Дублированный (iTunes)Язык субтитров: АнглийскийПродолжительность: 01:55:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF3534932FB5347F5984CE61DA83864851853FBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290992   (673690) от 22.03.2019
 
 Ловушка времени / Time Trap (2017) BDRip [H.264/1080p-LQ]
@@ -6,7 +32,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673690.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673601.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Hearts of Iron IV (2016) [Ru/Multi] (1.1.0.5d33/dlc) Repack =nemos= [Field Marsh
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673519.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ SpeedFan 4.52 Final [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673517.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673516.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ QIP Infium 2.0.9036 Final (Grey Pack) v1.2 + Portable [русский + англ
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_673142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_673142.jpg" />
 </div>
 
 
@@ -162,6 +188,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 215111   (673035) от 01.07.2010
+
+[RePack] Counter-Strike: Source [v1.0.0.40] [Ru/En] | A1EXXX
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_673035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Counter-Strike: Source — многопользовательский командный тактический шутер от первого лица, разработанный компаниями Valve и Turtle Rock Studios. Это римейк Counter-Strike, модификации 1999 года для игры Half-Life. Построенная на движке Source игра была выпущена в 2004 году изначально в комплекте с Half-Life 2, однако позже появились и специальные, отдельные издания игры.
+
+Как и в оригинальной версии игры, в Counter-Strike: Source друг другу противостоят команда контр-террористов (спецназа) и команда террористов в серии раундов. Каждый раунд выигрывается посредством выполнения определённой миссии (такой как подрыв бомбы или спасение заложников), либо после уничтожения всех членов вражеской команды.Тип издания: RePackРазработчик: ValveЖанр: Action / FPS / OnlineЯзык озвучки: Язык интерфейса: 
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 192143   (673021) от 01.07.2010
 
 Футурама / Futurama (1999-2003) DVDRip [H.264] (5 сезонов)
@@ -170,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_673021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_673021.jpg" />
 </div>
 
 
@@ -196,7 +250,7 @@ qBittorrent 4.1.0 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672959.jpg" />
 </div>
 
 
@@ -222,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672750.jpg" />
 </div>
 
 
@@ -248,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672611.jpg" />
 </div>
 
 
@@ -274,7 +328,7 @@ Netwrix Auditor 8.5.1026.0 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672304.jpg" />
 </div>
 
 
@@ -300,7 +354,7 @@ MONSTER HUNTER: WORLD (2018) [Ru/Multi] (1.0/dlc) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_671913.jpg" />
 </div>
 
 
@@ -326,7 +380,7 @@ Windows Product Key 1.0 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_671768.jpg" />
 </div>
 
 
@@ -352,7 +406,7 @@ Windows 7 Максимальная (x86) AUZsoft v.17.12. [RUS]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_671767.jpg" />
 </div>
 
 
@@ -382,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_671764.jpg" />
 </div>
 
 
@@ -408,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_671719.jpg" />
 </div>
 
 
@@ -434,7 +488,7 @@ Kaspersky Internet Security 2016 16.0.1.445 (c) MR1 Final [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671562.jpg" />
 </div>
 
 
@@ -460,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671560.jpg" />
 </div>
 
 
@@ -486,7 +540,7 @@ Project CARS (2015) [Ru/Multi] (11.0.0.0.1235/dlc) Repack =nemos= [Digital Editi
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671558.jpg" />
 </div>
 
 
@@ -512,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671553.jpg" />
 </div>
 
 
@@ -538,7 +592,7 @@ Girls und Panzer | Девочки и Танки [2012, TV, 14 эп. + 6 OVA + 6 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_671336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_671336.jpg" />
 </div>
 
 
@@ -564,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_671331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_671331.jpg" />
 </div>
 
 
@@ -592,7 +646,7 @@ Garmin: Дороги России Топо 6.27 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671099.jpg" />
 </div>
 
 
@@ -619,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671092.jpg" />
 </div>
 
 
@@ -630,60 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CD0DCE5FF5BF2D815239D9896D70686174E06F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 899715   (670663) от 20.05.2015
-
-КОМПАС-3D V16 RePack by KpoJIuK [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670663.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Компас-3D» — система трёхмерного моделирования, ставшая стандартом для тысяч предприятий благодаря удачному сочетанию простоты освоения и легкости работы с мощными функциональными возможностями твердотельного и поверхностного моделирования. Главной особенностью (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3336316A74774A1D9B2AD2D1DF81B4694375A567
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433557   (670405) от 14.03.2022
-
-Денис Кожар, Andrew Price | Blender 2.8-2.9. Уроки на русском для начинающих (2019-2022) PCRec
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670405.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия переводных уроков для начинающих по программе blender 2.8-2.9+ от Andrew Price в переводе Дениса Кожара
-Тем, кто еще не готов оплачивать обучение, стоит ознакомиться с бесплатными уроками от Blender Guru — проекта австралийского преподавателя Эндрю Прайса. Эндрю подчеркивает, что саму компанию Blender он не представляет.
-Серию бесплатных уроков перевел и залил (   Читать дальше...   )Жанр: ВидеоурокПродолжительность: 57:44:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E035B750E2FA1CD5FC08B618FB0D9D583F8606FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,57 +1,3 @@
-###  Публикация: 476268   (85533) от 31.03.2012
-
-Плутарх | Сравнительные жизнеописания. Том 1 [2008] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Плутарх сравнивает биографии выдающихся деятелей Греции и Рима попарно: это легендарные основатели Афин и Рима Тесей и Ромул, законодатели Ликург и Нума Помпилий, политики Перикл и Фабий Максим, а также Солон и Попликола, Фемистокл и Камилл, военачальники Тимолеонт и Эмилий Павел, Алкивиад и Гай Марций.
-В сочинении много сведений о частной жизни персонажей, анекдотов и остроумных изречений, и После каждой пары биографий Плутарх называет общие черты своих героев и различия между ними,  приводит философское осмысление их деятельности; при этом он пытается охарактеризовать скорее саму личность великого человека, нежели его поступки или убеждения.
-«Подобно тому, как художники, мало обращая внимания на прочие части тела, добиваются сходства благодаря точному изображению лица и выражения глаз, в которых проявляется характер человека, так и нам пусть будет позволено углубиться в изучение признаков, отражающих душу человек; и на основании этого составлять каждое жизнеописание, предоставив другим воспевать великие дела (   Читать дальше...   )2008Жанр: Биографии
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70EB5154B9DEBFEC2A47C611969222EEFF59B0BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475930   (85510) от 31.03.2012
-
-Николай Соколов | Убийство царской семьи [2010] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85510.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Мне выпало на долю производить расследование об убийстве Государя Императора Николая II и его семьи. В пределах права я старался сделать все возможное, чтобы найти истину и соблюсти ее для будущих поколений. Я не думал, что мне самому придется говорить о ней, надеясь, что ее установит своим авторитетным приговором русская национальная власть. Но суровая действительность (   Читать дальше...   )Жанр: История, мемуары
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FF20A99961197A95C138BDA9F604BC530554185
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 476120   (85500) от 31.03.2012
 
 С. С. Уолкер | Чингиз-хан [2008] [MP3]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85500.jpg" />
 </div>
 
 
@@ -92,7 +38,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85405.jpg" />
 </div>
 
 
@@ -121,7 +67,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84159.jpg" />
 </div>
 
 
@@ -149,7 +95,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83102.jpg" />
 </div>
 
 
@@ -180,7 +126,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77496.jpg" />
 </div>
 
 
@@ -206,7 +152,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75510.jpg" />
 </div>
 
 
@@ -232,7 +178,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74237.jpg" />
 </div>
 
 
@@ -260,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71653.jpg" />
 </div>
 
 
@@ -286,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69337.jpg" />
 </div>
 
 
@@ -314,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69336.jpg" />
 </div>
 
 
@@ -343,7 +289,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69317.jpg" />
 </div>
 
 
@@ -371,7 +317,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68270.jpg" />
 </div>
 
 
@@ -400,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68183.jpg" />
 </div>
 
 
@@ -428,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67477.jpg" />
 </div>
 
 
@@ -454,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65114.jpg" />
 </div>
 
 
@@ -480,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63431.jpg" />
 </div>
 
 
@@ -506,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63424.jpg" />
 </div>
 
 
@@ -535,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63421.jpg" />
 </div>
 
 
@@ -562,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62911.jpg" />
 </div>
 
 
@@ -588,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62906.jpg" />
 </div>
 
 
@@ -616,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62877.jpg" />
 </div>
 
 
@@ -644,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62876.jpg" />
 </div>
 
 
@@ -672,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62665.jpg" />
 </div>
 
 
@@ -700,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62381.jpg" />
 </div>
 
 
@@ -712,6 +658,60 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96B9E34CB038C5722800B2FD536CD4C4CB4A37B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 457663   (61426) от 29.03.2024
+
+Брэд Гигли | День лжецаря (2012) [MP3, Сергей Кирсанов]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61426.jpg" />
+</div>
+
+
+###  Подробнее
+
+1150 год до нашей эры. Заговор по свержению живого воплощения бога Ра – всемогущего фараона Рамзеса III – удалось предотвратить. Однако фараон пал жертвой ненависти своей супруги, царицы Тии. На престол взошел его наследник, легендарный Рамзес IV, но он тяжело болен. На окраинах царства по-прежнему неспокойно, а вечный соперник Египта – Вавилон – плетет дипломатические (   Читать дальше...   )Жанр: Зарубежная литература, историко–приключенческий романИздательство: Нигде не купишьПродолжительность: 08:29:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:729CC11412F2F6A13DE5A04FE230800AD54B7DFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 298323   (60908) от 03.04.2024
+
+Казимир Валишевский | Роман императрицы (2005) [MP3, Лидия Леликова]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60908.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Историческая библиотека.
+Казимир Феликсович Валишевский (1849–1935) – польский писатель, историк, экономист, социолог. Большую известность ему принесла серия произведений, посвященных истории России 17–19 веков – о русских царях и императорах, об их окружении.
+Казимир Валишевский оказался одним из первых, кто решился нарушить запреты и рассказать о личной (   Читать дальше...   )Жанр: Зарубежная литература, исторический романИздательство: МедиаКнигаПродолжительность: 25:54:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59041F83643B62FB6D3D16076C940F7323A7D761
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438343.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Blackmore's Night - A Knight In York (2012) [1080p] Blu Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438150.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ Black Sabbath - Live in O2 Academy Birmingham (2012) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437601.jpg" />
 </div>
 
 
@@ -96,7 +96,7 @@ Mr Saik - Lights Out (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437113.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Cabin Crew - Star To Fall (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437096.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437075.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436947.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436934.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Eric Clapton - Crossroads Guitar Festival (2004) 2хDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436911.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Basshunter - Dream on the Dancefloor (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436815.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Ben Gold feat. The Glass Child - Fall With Me (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436672.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436613.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ David Guetta feat. Sia - She Wolf (Falling to Pieces) (2012) [H.264/1080p] WEBRi
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436437.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436372.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Santana - Hymns for Peace, Live at Montreux (2004) [1080p] Blu-ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436037.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Smokie  Greatest Hits 1975-1979 (2011) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435838.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435711.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Nazareth - Video Collection(1972-2007) (2012) DVDRip.TVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435702.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ W.A.S.P. - First Blood... Last Visions... (1993) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433672.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431958.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Cinnamon Chasers (2012) [1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431781.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Axel Rudi Pell live - Rockpalast (2018) WEBRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430966.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Eminem - Phenomenal (2015) WEBRip[H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429167.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_427866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_427866.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ Boney M - Live In Concert (1979) VHSRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427804.jpg" />
 </div>
 
 
@@ -718,7 +718,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427406.jpg" />
 </div>
 
 

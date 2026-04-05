@@ -1,3 +1,55 @@
+###  Публикация: 1488700   (1001663) от 12.08.2021
+
+Library of Ruina (2021) [Multi] (1.1.0.5b1) License CODEX
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Южнокорейская стратегическая однопользовательская игра от инди-разработчиков Project Moon. Игра является представителем жанра коллекционной карточной игры, чей сюжет подан в стиле визуальной новеллы. Сюжет является прямым продолжением Lobotomy Corporation. В игре Вам предстоит в роли библиотекаря "принимать гостей" в библиотеку. Процесс приёма представляет (   Читать дальше...   )Тип издания: LicenseРазработчик: ProjectMoonЖанр: Card Game, Strategy, RPGЯзык озвучки: КорейскийЯзык субтитров: Английский, Японский, Китайский (упрощённый), КорейскийЯзык интерфейса: Английский, Японский, Китайский (упрощённый), Корейский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AF762EBF2A3A10E7C6F64C0C888D3BB03CBCC91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351571   (1001488) от 12.01.2020
+
+Girls' civilization (2020) [Multi] (4552555) Repack Nikita1358
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001488.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Girls’ civilization не существует мужчин. Вы сможете создать и управлять своей девушкой в режиме от третьего лица и командой армией в режиме RTS, путешествовать по бесшовному открытому миру и встречать компаньонов. Girls’ civilization включает возможность строительства из блоков, широкие возможности кастомизации и систему технологий – от мечей и щитов до танков (   Читать дальше...   )Тип издания: RepackРазработчик: MoondolinoЖанр: RPG, Action, Strategy (RTS, TBS)Язык озвучки: ЯпонскийЯзык субтитров: Английский, Японский, Китайский (упрощенный)Язык интерфейса: Английский, Японский, Китайский (упрощенный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C852777244F2CC599B5FAB037221C889D9FD324
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1324371   (1001326) от 13.08.2021
 
 Bound by Flame (2014) [Ru/Multi] (2195b) License GOG
@@ -6,7 +58,7 @@ Bound by Flame (2014) [Ru/Multi] (2195b) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001326.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ The Surge 2 (2019) [Ru/Multi] (1.09u5/dlc) Repack =nemos=
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000732.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Torchlight 2/II [Ru/En/Multi4] (Steam-Rip/1.21.5.1) 2012
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996615.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ Torchlight II [Ru/En/Pl] (Repack/1.21.5.1) 2012 | THETA
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996596.jpg" />
 </div>
 
 
@@ -116,7 +168,7 @@ Torchlight 2/II [Ru/Multi4] (RePack/1.21.5.1) 2012 | R.G. Games
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996590.jpg" />
 </div>
 
 
@@ -144,7 +196,7 @@ Pirates of Black Cove [En/Multi4] (L/1.0.6.8095) 2011 | PROPHET
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990765.jpg" />
 </div>
 
 
@@ -170,7 +222,7 @@ Dungeon Siege 3 (2011) [Ru/En] (1.0/upd1/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986495.jpg" />
 </div>
 
 
@@ -196,7 +248,7 @@ R.A.W. Realms Of Ancient War [Ru] (Repack/1.0.1) 2012 | Fenixx
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983558.jpg" />
 </div>
 
 
@@ -223,7 +275,7 @@ Vampire: The Masquerade - Bloodlines (2004) [Multi] (1.2/10.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981893.jpg" />
 </div>
 
 
@@ -249,7 +301,7 @@ R.A.W.: Realms of Ancient War [En/Ru] (Lossless Repack/1.0.u1) 2012 | R.G. Origa
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977122.jpg" />
 </div>
 
 
@@ -276,7 +328,7 @@ Vampire's Fall: Origins (2020) [Ru/Multi] (1.5.45) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976185.jpg" />
 </div>
 
 
@@ -302,7 +354,7 @@ Darkwood (2017) [Ru/Multi] (1.3a) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976169.jpg" />
 </div>
 
 
@@ -328,7 +380,7 @@ Antology Gothic / Антология Gothic [Ru/En/De] (L) 2001 - 2011
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974434.jpg" />
 </div>
 
 
@@ -355,7 +407,7 @@ Vampire's Fall: Origins (2020) [Ru/Multi] (1.5.45) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973885.jpg" />
 </div>
 
 
@@ -381,7 +433,7 @@ Drakensang Dilogy / Дилогия Drakensang [Ru/En] (L) 2009-2010
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973053.jpg" />
 </div>
 
 
@@ -408,7 +460,7 @@ Pine (2019) [Ru/Multi] (1a21a22c/Patch 7) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972699.jpg" />
 </div>
 
 
@@ -434,7 +486,7 @@ Divinity: Original Sin (2015) [Ru/Multi] (2.0.119.430) Repack xatab [Enhanced Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971442.jpg" />
 </div>
 
 
@@ -460,7 +512,7 @@ GOD EATER 3 (2019) [Ru/Multi] (2.40) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968333.jpg" />
 </div>
 
 
@@ -486,7 +538,7 @@ The Quest (2015) [En] (1.6.7) Repack Animanyak
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968202.jpg" />
 </div>
 
 
@@ -512,7 +564,7 @@ Atelier Dusk Trilogy (2020) [Multi] (1.0) License CODEX [Deluxe Pack]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964873.jpg" />
 </div>
 
 
@@ -538,7 +590,7 @@ Ys I & II Chronicles [En] (L) 2013 | RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964859.jpg" />
 </div>
 
 
@@ -564,7 +616,7 @@ Torchlight (2009) [Ru/En] (1.15) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964336.jpg" />
 </div>
 
 
@@ -590,7 +642,7 @@ Victor Vran ARPG (2015) [Ru/En] (2.07.20190131/dlc) Repack Other s [Overkill Edi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963877.jpg" />
 </div>
 
 
@@ -616,7 +668,7 @@ WARSAW (2019) [Ru/Multi] (Build 103) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955126.jpg" />
 </div>
 
 
@@ -627,58 +679,6 @@ WARSAW – это увлекательная тактическая RPG на у�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23F1692BC4F637D613C5FDA2C6716EAC0DF6DE95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088253   (954723) от 01.01.2017
-
-Kingdoms of Amalur: Reckoning (2012) [Ru/En] (1.0.0.2/dlc) Repack R.G. Механики
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954723.jpg" />
-</div>
-
-
-###  Подробнее
-
-Объединенные усилия лучшего автора New York Times Р. Э. Сальваторе, творца Спауна Тодда Макфарлейна и ведущего дизайнера The Elder Scrolls IV: Oblivion Кена Ролстона воплотились в создании уникального мира новой ролевой игры Kingdoms of Amalur: Reckoning. Создайте персонажа, о котором вы всегда мечтали, и постепенно развивайте его с помощью революционной системы (   Читать дальше...   )Тип издания: RepackРазработчик: Big Huge Games и 38 StudiosЖанр: RPG, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A567ABCE3B495EB17D366959CC92785F7BDDA265
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220834   (953654) от 20.02.2020
-
-Ys VIII: Lacrimosa of DANA (2018) [Multi] (ph3 update/dlc) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953654.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хроники странствий красноволосого искателя приключений по имени Адол насчитывают полтора десятка игр, хотя почти половина из них это пересказ уже известных событий на новый лад. В какую бы часть мира (география которого весьма похожа на нашу с вами родную Землю) ни занесло героя, ему непременно предстоит столкнуться с отголосками древних цивилизаций, диковинными (   Читать дальше...   )Тип издания: LicenseРазработчик: Nihon Falcom CorporationЖанр: Ролевая игра, Экшн, ФэнтезиЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Японский, ФранцузскийЯзык интерфейса: Английский, Японский, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A92A9F2BF834AE1474D9C17C2EF05C75AB32DA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

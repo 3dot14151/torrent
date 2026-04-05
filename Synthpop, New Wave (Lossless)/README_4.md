@@ -1,32 +1,3 @@
-###  Публикация: 1090493   (947468) от 06.01.2017
-
-Krisma - Cathode Mamma (Remastered) (1980) 2007, Polydor [FLAC|Lossless|tracks + .cue] <Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947468.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cathode Mamma (Neue Version)
-2. Many Kisses
-3. Peggy Guggenheim
-4. Rrock(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:37:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B66A63D43595CB1198378A2B398259C95FD3CC2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090173   (947076) от 06.01.2017
 
 Tove Lo - Lady Wood (2016) [FLAC|Lossless|tracks + .cue] <Synth-pop>
@@ -35,7 +6,7 @@ Tove Lo - Lady Wood (2016) [FLAC|Lossless|tracks + .cue] <Synth-pop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947076.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Chromatics - Kill for Love (2012) Remastered 2017 [FLAC|Lossless|tracks + .cue] 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946570.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Pet Shop Boys - Hotspot (2020) Japanese Edition [FLAC|Lossless|tracks + .cue] <E
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943703.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Wrangler - A Situation (2020) [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942484.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Ultravox - Systems Of Romance (1978) [FLAC|Lossless|image + .cue] <Synthpop, New
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942122.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Ultravox - Vienna (1980) [FLAC|Lossless|image + .cue] <Synthpop, New Wave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942047.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Erasure - Hits! The Very Best of Erasure (2007) 2CD, DVD [FLAC|Lossless|tracks +
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941784.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ La Roux - Supervision (2020) [FLAC|Lossless|tracks + .cue] <Synth-pop, Dance-pop
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940927.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ VA - 12"/80s/2 (2005) 3CD Compilation [FLAC|Lossless|tracks + .cue] <New Wave, P
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940156.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Visage - Demons To Diamonds (2015) [FLAC|Lossless|image + .cue] <Synthpop, New W
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940115.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ VA - 12"/80s (2005) 3CD Compilation [FLAC|Lossless|tracks + .cue] <Dub, Synth-po
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939978.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Pet Shop Boys - Discography: The Complete Singles Collection (1991) [FLAC|Lossle
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_939302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_939302.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937903.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Killstarr - Worlds Apart (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936387.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Ultravox - The Voice:The Best Of Ultravox (1997) [FLAC|Lossless|image + .cue] <N
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935493.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Didier Marouani Space - Greatest Hits (2008) 2CD [FLAC|Lossless|image + .cue] <E
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930409.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Evanton - Colors - The Best Of Evanton (2016) [FLAC|Lossless|WEB-DL|tracks] <Syn
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929019.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Evanton - Stretch It (2015) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929011.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Evanton - Flavors - The Best Of Evanton Vol.2 (2017) [FLAC|Lossless|WEB-DL|track
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929010.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Propaganda - 1234 (1990) [APE|Lossless|image + .cue] <Synthpop, New Wave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915730.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Owl City - Ocean Eyes Deluxe Edition-2CD (2009) [FLAC|Lossless]<synthpop, Electr
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915160.jpg" />
 </div>
 
 
@@ -650,7 +621,7 @@ Camouflage - Sensor (2003) [FLAC|Lossless|image + .cue] <Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910508.jpg" />
 </div>
 
 
@@ -679,7 +650,7 @@ Animotion - Obsession - The Best Of Animotion (1996) Compilation [FLAC|Lossless|
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908597.jpg" />
 </div>
 
 
@@ -708,7 +679,7 @@ Dance With The Dead - B-Sides: Volume 1 (2017) Compilation [FLAC|Lossless|WEB-DL
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900965.jpg" />
 </div>
 
 
@@ -737,7 +708,7 @@ Depeche Mode - Some Great Reward (1984) remastered 2006, collectors edition, CD+
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900611.jpg" />
 </div>
 
 
@@ -751,6 +722,35 @@ Depeche Mode - Some Great Reward (1984) remastered 2006, collectors edition, CD+
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:258F5FD05186F68E71C1858B97B82FCFE1E56E72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992900   (898968) от 03.03.2016
+
+Londonbeat - Best! The Singles (1995) [FLAC|Lossless|tracks + .cue] <Soul, Vocal, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I've Been Thinking About You (3:51)
+02. You Bring on the Sun (3:37)
+03. A Better Love (4:00)
+04. Come Back (3:55)(   Читать дальше...   )Жанр: Soul, Vocal, Synth-popПродолжительность: 01:17:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F175C20EF71395238ADCEC266E98DEE2624F219E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,31 @@
+###  Публикация: 1399202   (733801) от 30.07.2020
+
+Allan McKay | FX Technical Director Transformation Module 15 (2015) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большая работа по спецэффектам связанная со скриптингом и разработкой инструментов. Станьте мастером FX и улучшите свои умения до предела и дальше!
+Просто получите возможность создавать собственные FX инструменты и все автоматизировать. Многие художники имеют нужные знания, но не могут их систематизировать, чтобы увеличить свою востребованность.
+Чтобы получить высокооплачиваемую (   Читать дальше...   )Производство: FumeFXTrainingЖанр: Создание видеоПродолжительность: 05:55:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F31B4E0D6E2B7ED817C9AC1F9FAE89BE77F7F1A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1399295   (733720) от 30.07.2020
 
 [CG-School] Андрей Заморский | VFX pack 3 (углубленный) (2015) PCRec
@@ -6,7 +34,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733720.jpg" />
 </div>
 
 
@@ -35,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733695.jpg" />
 </div>
 
 
@@ -62,7 +90,7 @@ Skillshare, Miguel Nogueira | Realistic Character Design for Games (2022) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_733510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733510.jpg" />
 </div>
 
 
@@ -89,7 +117,7 @@ Skillshare, Neil Bettison | Blender 3 The Ultimate Medieval Scene Course (2022) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_733509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733509.jpg" />
 </div>
 
 
@@ -118,7 +146,7 @@ Udemy | The Ultimate C# and Unity course for beginners (2021) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733494.jpg" />
 </div>
 
 
@@ -144,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_733336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733336.jpg" />
 </div>
 
 
@@ -170,7 +198,7 @@ OTUS | CI/CD на AWS, Azure и Gitlab (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733255.jpg" />
 </div>
 
 
@@ -199,7 +227,7 @@ CGCircuit, Matt Skonicki | Scratch to Substance Volume 2 (2018) PCRec [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733077.jpg" />
 </div>
 
 
@@ -225,7 +253,7 @@ Coursera | IBM AI Engineering Professional Certificate (2021) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733048.jpg" />
 </div>
 
 
@@ -254,7 +282,7 @@ Troy Miller | Capture One Deep Dive II (2022) PCRec [EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733047.jpg" />
 </div>
 
 
@@ -280,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733024.jpg" />
 </div>
 
 
@@ -309,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733019.jpg" />
 </div>
 
 
@@ -337,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733010.jpg" />
 </div>
 
 
@@ -366,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733005.jpg" />
 </div>
 
 
@@ -394,7 +422,7 @@ James Q Quick | React и Serverless - Fullstack разработка / React and
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732832.jpg" />
 </div>
 
 
@@ -420,7 +448,7 @@ Rebelway, Igor Zanic | Water FX in Houdini (2020) PCRec [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732627.jpg" />
 </div>
 
 
@@ -447,7 +475,7 @@ Betonmaster, Архипов Кирилл | Бетон 2.0 (2021) WEB-DL [Пак�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732625.jpg" />
 </div>
 
 
@@ -476,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732620.jpg" />
 </div>
 
 
@@ -505,7 +533,7 @@ Gumroad, Daniel Thiger | Rock Creation Techniques Part 2: Surface Detailing (201
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732455.jpg" />
 </div>
 
 
@@ -532,7 +560,7 @@ Grant Warwick | Mastering Vray Part 1-12 (2013) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732451.jpg" />
 </div>
 
 
@@ -561,7 +589,7 @@ Pluralsight, Winston Powell | Game Character Rigging Fundamentals (2017) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732443.jpg" />
 </div>
 
 
@@ -587,7 +615,7 @@ VFX learning, Amin Sadeghvand | Advanced Facial Rig in Maya 2018 (2018) PCRec [R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732442.jpg" />
 </div>
 
 
@@ -613,7 +641,7 @@ The Gnomon Workshop, Perry Leijten | Creature Rigging for Production (2016) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732414.jpg" />
 </div>
 
 
@@ -639,7 +667,7 @@ Mold3d academy, Gio Nakpil | Master organic Modeling (2017) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732406.jpg" />
 </div>
 
 
@@ -666,7 +694,7 @@ Udemy, Yassine Larayedh | The Ultimate Guide to 3D Environments in Blender 3.0 (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732402.jpg" />
 </div>
 
 
@@ -678,34 +706,6 @@ Udemy, Yassine Larayedh | The Ultimate Guide to 3D Environments in Blender 3.0 (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9C8F1667A63219663159E6A601642D8421F47BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529611   (732370) от 07.02.2022
-
-Udemy, JumpEng School | Грамматика Английского в деталях (2022) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Иностранные языки (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732370.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс "Грамматика Английского" - это первая часть программы "Английский без правил", в которой весь английский язык представлен в виде Грамматических шаблонов.
-Особенность нашей методики
-Грамматические шаблоны - это схема построения английских предложений - мы "прочитываем" и "проговариваем" фразы, используя Шаблоны и начинаем (   Читать дальше...   )Производство: Udemy, JumpEng SchoolЖанр: Английский языкЯзык озвучки: РусскийПродолжительность: 09:34:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EE6FAD01D1C88A46752261C781284D7B02B54C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

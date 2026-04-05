@@ -1,3 +1,29 @@
+###  Публикация: 1449543   (1029979) от 21.02.2021
+
+SideFX | Houdini 15 Masterclass FLIP Workflow Enhancements (2016) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029979.jpg" />
+</div>
+
+
+###  Подробнее
+
+В недавних релизах, улучшения в HoudiniFlipсолвере и использование распределенных вычислений, открыли возможность создавать очень масштабные симуляции жидкостей. Тем не менее, набор данных, получаемый с помощью таких симуляций, может быть настолько большим, что перестанет помещаться на диск, и потеряется возможность создавать из него геометрию и вторичные элементы. (   Читать дальше...   )Производство: SideFXЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 01:12:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45C94ADF73645255606E5384D7230CD63339C3E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1449524   (1029975) от 21.02.2021
 
 Moritz Schwind | New in Houdini 18 (2019) PCRec [EN, RU]
@@ -6,7 +32,7 @@ Moritz Schwind | New in Houdini 18 (2019) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029975.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Alan Thorn | Advanced Game Mechanics In Unity 5 Volume 2 (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029972.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Kurt Jones | Indie Game Development Pipeline Volume 1 (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029968.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Alan Thorn | Advanced Game Mechanics In Unity 5 Volume 5 (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029967.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029962.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ Skillbox, И. Павлов и др. | Алгоритмы и структуры �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029949.jpg" />
 </div>
 
 
@@ -170,7 +196,7 @@ Joshua Kinney | Indie Game Development Pipeline Volume 3 (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029944.jpg" />
 </div>
 
 
@@ -198,7 +224,7 @@ Alan Thorn | Advanced Game Mechanics In Unity 5 Volume 4 (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029935.jpg" />
 </div>
 
 
@@ -224,7 +250,7 @@ Gumroad | Stillsincolor D&B Tutorial (2021) PCRec [En]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029910.jpg" />
 </div>
 
 
@@ -250,7 +276,7 @@ Andreas Glad | Houdini VFX for Games (2017) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029900.jpg" />
 </div>
 
 
@@ -276,7 +302,7 @@ Alan Thorn | Advanced Game Mechanics In Unity 5 Volume 1 (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029895.jpg" />
 </div>
 
 
@@ -302,7 +328,7 @@ Adam Swaab | Houdini Procedural Foundations (2017) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029878.jpg" />
 </div>
 
 
@@ -328,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029862.jpg" />
 </div>
 
 
@@ -356,7 +382,7 @@ Udemy, Colt Steele и др. | The Modern Javascript Bootcamp Course (2021) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029857.jpg" />
 </div>
 
 
@@ -382,7 +408,7 @@ Skillbox, Мария Сулимова | Элементарная музыкал�
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029841.jpg" />
 </div>
 
 
@@ -411,7 +437,7 @@ Udemy, Chang Tan | Введение в разработку эксплойтов
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029837.jpg" />
 </div>
 
 
@@ -440,7 +466,7 @@ Udemy, Андрей Соколов | Docker для начинающих и ча�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029826.jpg" />
 </div>
 
 
@@ -468,7 +494,7 @@ Tara Mapes | Tara Mapes - Уроки изобразительного искус
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029711.jpg" />
 </div>
 
 
@@ -496,7 +522,7 @@ Udemy, Stephen Grider | Полный курс по Elixir и Phoenix / The Compl
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029692.jpg" />
 </div>
 
 
@@ -522,7 +548,7 @@ Portraitsrussian | Московская Коллекция - Мега Пакет
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029680.jpg" />
 </div>
 
 
@@ -548,7 +574,7 @@ The Coding Gnome, Dave Thomas  | Elixir для программистов / Elix
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029679.jpg" />
 </div>
 
 
@@ -574,7 +600,7 @@ Network for Everyone (NFE, N4E) | Работа с Wireshark (2023) WEB-DL [AD] [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029553.jpg" />
 </div>
 
 
@@ -603,7 +629,7 @@ KnowThen, James Moore | Elixir и Phoenix для начинающих / Elixir &
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029488.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Tim Cgi | Abstract Visuals - Houdini and Redshift (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029475.jpg" />
 </div>
 
 
@@ -656,7 +682,7 @@ Learn Enough, Michael Hartl | Разработка веб-приложений �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029465.jpg" />
 </div>
 
 
@@ -667,34 +693,6 @@ Learn Enough, Michael Hartl | Разработка веб-приложений �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9AB2EB17947B26D30DAF0812A1A3F8002A742B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394619   (1029422) от 23.02.2021
-
-Школа Кайно, Павел Голубев | Марафон «Blender Start» (2020) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Низкополигональное моделирование и основы работы в Blender 2.8 на бесплатном марафоне онлайн-университета Кайно.
-
-Другие курсы школы Кайно: Школа КайноПроизводство: Школа КайноЖанр: 3D моделированиеПродолжительность: 03:35:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7D1B6A03E9C61F4A7F2C52D8F4BFFFFED615B8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

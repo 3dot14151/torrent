@@ -1,3 +1,119 @@
+###  Публикация: 1250080   (429263) от 26.09.2018
+
+Hidden Rivers - Where Moss Grows (2015) Serein [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Downtempo>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flying The Nest (01:40)
+ 02. In And Out Of Days (05:24)
+ 03. Sunday's Child (01:13)
+ 04. White Light Peak (03:39)(   Читать дальше...   )Жанр: Ambient, IDM, DowntempoПродолжительность: 00:41:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDF2AAF58BF4ABBE0F3C34D862EA5A871D3E2637
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250117   (429255) от 26.09.2018
+
+VA - The Ambient Cookbook (1995) Fax +49-69/450464 [FLAC|Lossless|tracks+.cue] <Ambient, Tribal, IDM, Downtempo, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pete Namlook - Music For Ballet (Excerpt) (07:29)
+ 02. Transonic - Whirlpool (Slow Spiral Of Clouds) Excerpt (06:16)
+ 03. David Moufang - In / Out (15:31)
+ 04. XJacks - Celophane (10:26)(   Читать дальше...   )Тип издания: CDЖанр: Ambient, Tribal, IDM, Downtempo, Experimental •Продолжительность: 01:09:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D18A7DF9F981F6104CA7C2E7503E30D996C21473
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1166002   (428655) от 15.09.2017
+
+VA - Trance International (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aly & Fila, Roger Shah & Susana - Unbreakable (Original Mix)(03:20)
+02. Ferry Tayle & Dan Stone - Vona (Original Mix) (03:54)
+03. ReOrder - Spirit Of Ecstasy (Original Mix) (03:49)
+04. Sean Tyas & Darren Porter - The Potion (Original Mix) (04:14)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 00:57:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D19E755D0A667F2B3D0927329C6ED2A3CF8BB6B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1166068   (428648) от 15.09.2017
+
+VA - Latin Tribal Ibiza 2017 [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428648.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Simon Fava – El Encanto (Dave Rose remix) (07:10)
+2. Yan Kings & Matt Petrone – Misirlou (04:23)
+3. DjM & Rachel Armenta – Besame Mucho 2k17 (06:19)
+4. Dario Nunez & Victor Perez – All Right Ya (04:21)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:35:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D7288C2FE126E00E1C49C2622DBD03D88A3156F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1166020   (428485) от 15.09.2017
 
 VA - Markus Schulz - Global DJ Broadcast - Top 20 September (2017) [MP3|320 Kbps] <Trance>
@@ -6,7 +122,7 @@ VA - Markus Schulz - Global DJ Broadcast - Top 20 September (2017) [MP3|320 Kbps
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428485.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Mixmag Germany Presents Dantze (Curated by Nicone) (2016) [FLAC|Lossless|WE
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428366.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Ibiza 2017 Closing Party [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428328.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - Liquid Drum & Bass Essentials Vol 02 (2017) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428302.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - A State Of Trance Top 20 - September 2020 (Selected By Armin van Buuren) - 
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427538.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Tiesto feat. Kirsty Hawkshaw - Just Be (2004) [FLAC|Lossless|tracks + .cue] <Tra
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427474.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Armin van Buuren & Rodg - A State of Trance ASOT 983 (2020) [MP3|320 Kbps] 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427461.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Paul Oakenfold - We Are Planet Perfecto, Vol. 5 (Back To My House) (2015) [
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427313.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Mark Slee plays 7v (2018) Seven Villas Music [FLAC|Lossless|WEB-DL|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427183.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - Levitated Radio Top 20 (Selected by Manuel Rocca) (2018) [MP3|320 Kbps] <Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427116.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ The Balustrade Ensemble - Renewed Brilliance (2015) Serein [FLAC|Lossless|WEB-DL
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427114.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - The Ambient Cookbook II (2002) Fax +49-69/450464 [FLAC|Lossless|tracks+.cue
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427099.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Thomas Gandey - Lovemachine (2017) Single [FLAC|Lossless|WEB-DL|tracks] <Deep Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426918.jpg" />
 </div>
 
 
@@ -381,7 +497,7 @@ VA - Deep House Summer Essentials 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <Dee
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426655.jpg" />
 </div>
 
 
@@ -410,7 +526,7 @@ VA - Best Of Bar Chill Out & Lounge (2012) [MP3|320 кб/с]<Downtempo, Lounge, 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426213.jpg" />
 </div>
 
 
@@ -445,7 +561,7 @@ VA - Particle Of Emotions Chapter 017 (2022) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425602.jpg" />
 </div>
 
 
@@ -474,7 +590,7 @@ VA - Uplifting Only Top 15: August  (Extended Mixes) (2022) [MP3|320 Kbps] <Upli
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425588.jpg" />
 </div>
 
 
@@ -503,7 +619,7 @@ VA - Reactivate 13 (Mixed By John '00' Fleming) (1998) [FLAC|Lossless|tracks + .
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425580.jpg" />
 </div>
 
 
@@ -532,7 +648,7 @@ Jens Buchert - Relax (Soothing Ambient & Chillout Music) (2020) Compilation [FLA
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425576.jpg" />
 </div>
 
 
@@ -561,7 +677,7 @@ Lingua Lustra - Concentric (2020) ROHS! Records [FLAC|Lossless|WEB-DL|tracks] <A
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425572.jpg" />
 </div>
 
 
@@ -590,7 +706,7 @@ VA - Summer Collection 2022 [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Or
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425508.jpg" />
 </div>
 
 
@@ -619,7 +735,7 @@ Sandra - Curated By Blank & Jones – So80s (Soeighties) Presents Sandra, 2CD (2
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425505.jpg" />
 </div>
 
 
@@ -633,122 +749,6 @@ Sandra - Curated By Blank & Jones – So80s (Soeighties) Presents Sandra, 2CD (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E209CC2FDCDF72104258A5419487690CE3946314
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411616   (425474) от 26.09.2020
-
-VA - Es Vedra Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roberto Bronco - Mani Peninsula (Original Mix) (4:31)
-02. Eivissarts - No Motion (Original Mix) (5:56)
-03. The Soul Crusaders - Good for You (Original Mix) (5:04)
-04. Marga Sol - Lazy Days (Original Mix) (5:51)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:17:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB7A63D192FA507A9F7B8E349A6CA1958EB6884A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411608   (425459) от 26.09.2020
-
-VA - Ambient & Relax (2020) [MP3|320 Kbps] <Chillout, Ambient, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Astropilot - A Drowning (6:01)
-02. Csillagkod - Cosmic Ocean (10:24)
-03. Kick Bong - Sunrise (5:39)
-04. Lowxy - Rain (6:55)(   Читать дальше...   )Жанр: Chillout, Ambient, LoungeПродолжительность: 01:32:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:861DF9BBB4C87466A3E7492102C694197717AA48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411837   (425389) от 26.09.2020
-
-Jean-Michel Jarre - Oxygene (2014) Reissue, Remastered | Disques Dreyfus [FLAC|Lossless|tracks+.cue] <Ambient, Synthwave>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oxygène Part 1 (07:41)
- 02. Oxygène Part 2 (07:46)
- 03. Oxygène Part 3 (03:17)
- 04. Oxygène Part 4 (04:07)(   Читать дальше...   )Жанр: Ambient, SynthwaveПродолжительность: 00:39:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D15BB887B308A08E33618EE07D43856FEAEB4D99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324493   (425365) от 09.09.2019
-
-Kali Malone - Discography 8 Releases (2016-2019) XKatedral, iDEAL Recordings [FLAC|Lossless|tracks+.cue, tracks] <Experimental, Ambient, Drone, Contemporary, Minimal>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Call From The Tower (03:21)
- 02. A Sunspot (05:52)
- 03. Tempest Of Joy (05:21)
- 04. Legs Of The Fly (06:18)(   Читать дальше...   )Тип издания: CD, WebЖанр: Techno/Experimental/AmbientПродолжительность: 05:08:06 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B5B9C29D2202B164ABA0A77C8981FE69D8F6A30
 ```
 
 https://mybot314.ru/tekegram_catalog/

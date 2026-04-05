@@ -1,3 +1,55 @@
+###  Публикация: 1447293   (1023976) от 28.03.2021
+
+Судьба (1977) WEB-DLRip [H.264] (2 серии)
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение фильма «Любовь земная». В жизнь неуемного Захара Дерюгина, безоглядно любящей Мани Поливановой, терпеливой Фроси, жены Захара, секретаря обкома партии Тихона Брюханова и многих, многих других их современников ворвалась война...Производство: СССР / МосфильмЖанр: Драма, мелодрама, военныйРежиссер: Евгений МатвеевАктеры: Евгений Матвеев, Зинаида Кириенко, Ольга Остроумова, Юрий Яковлев, Валерия Заклунная, Альгимантас Масюлис, Вадим Спиридонов, Владимир Самойлов, Георгий ЮматовСубтитры: ОтсутствуютПродолжительность: 01:33:24 + 01:07:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3B67D921D5D9B7489249ACC8D556FF79BBA7DFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447383   (1023970) от 28.03.2021
+
+Опасные гастроли (1969) DVDRemux
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023970.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма происходит в Одессе в 1910 году, когда по заданию загранбюро РСДРП в город приехал под видом французского лесопромышленника видный большевик-подпольщик, который должен организовать доставку в Россию через Одесский порт нелегальной литературы. Задание удается выполнить. В Одессе был создан театр варьете, который, получив известность, гастролировал (   Читать дальше...   )Производство: СССР, Одесская киностудияЖанр: Боевик, история, мюзиклРежиссер: Георгий Юнгвальд-ХилькевичАктеры: Владимир Высоцкий, Ефим Копелян, Николай Гринько, Лионелла Пырьева, Иван Переверзев, Георгий Юматов, Николай Федорцов, Владимир Шубарин, Рада Волшанинова, Борислав БрондуковСубтитры: Русские, АнглийскиеПродолжительность: 01:22:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:662CAE97841CDFAD52A5C405D3C5B213180F1ECF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447489   (1023737) от 29.03.2021
 
 Невероятные приключения итальянцев в России (1973) DVDRip [H.264]
@@ -6,7 +58,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023737.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022939.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022856.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022854.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022691.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022534.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021704.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021702.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020557.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020551.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018190.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017159.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016998.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016995.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016862.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015910.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015697.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014590.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013751.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013625.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013341.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013307.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012480.jpg" />
 </div>
 
 
@@ -613,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010888.jpg" />
 </div>
 
 
@@ -625,58 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A1FE4F4EE4F131271B9115535AE99E676AED82C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 244239   (1009058) от 27.06.2021
-
-Невероятные приключения итальянцев в России (1973) DVDRip (Реставрация КП)
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009058.jpg" />
-</div>
-
-
-###  Подробнее
-
-В одной из больниц Рима скончалась русская эмигрантка. Перед смертью пожилая дама, некогда эмигрировавшая из России, успела поведать своей внучке Ольге, что всё её огромное состояние спрятано в Ленинграде «подо львом». Это обстоятельство явилось причиной срочного старта в Ленинград всех тех, кто случайно был посвящен в эту тайну — самой Ольги, двух санитаров Антонио (   Читать дальше...   )Жанр: Комедия, ПриключенияРежиссер: Эльдар РязановАктеры: Андрей Миронов, Евгений Евстигнеев, Ольга Аросева, Нинетто Даволи, Антония Сантилли, Алигьеро Носкезе, Тано Чимароза, Луиджи БаллистаПеревод: ОригинальныйПродолжительность: 01:38:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEE4546E2D3B3D99186CA24CEFD15C689D211C6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480408   (1008921) от 28.06.2021
-
-Звезда пленительного счастья (1975) DVDRemux (серии 1-2 из 2)
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008921.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Женщинам России посвящается". Историко-романтический фильм посвящен подвигу жен декабристов, последовавших на каторгу в Сибирь за своими мужьями - участниками декабрьского восстания 1825 года.Производство: СССР / ЛенфильмЖанр: Драма, мелодрама, историяРежиссер: Владимир МотыльАктеры: Ирина Купченко, Алексей Баталов, Наталья Бондарчук, Олег Стриженов, Эва Шикульска, Игорь Косталевский, Иннокентий Смоктуновский, Олег Даль, Василий Ливанов, Михаил БоярскийСубтитры: РусскиеПродолжительность: 01:21:04 + 01:17:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A159867872384F2D730F856DF424E1E2E7D83A17
 ```
 
 https://mybot314.ru/tekegram_catalog/

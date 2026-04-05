@@ -1,29 +1,3 @@
-###  Публикация: 1102557   (890449) от 09.02.2017
-
-Валерий Передерин | Кишечник. Энциклопедия здоровья пищеварительной системы (2017) [FB2, RTF]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890449.jpg" />
-</div>
-
-
-###  Подробнее
-
-ЖКТ беспокоит сейчас практически всех, но именно на здоровье кишечника необходимо обратить особое внимание, ведь от него зависят иммунитет, работа сердца и мозга, общее самочувствие, желание двигаться, заниматься спортом или путешествовать. Автор, гастроэнтеролог с 45-летним стажем, на примере своих пациентов объясняет основы работы пищеварительной системы, рассказывает (   Читать дальше...   )Жанр: Болезни и их лечение. Система пищеваренияФормат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABA9ADA0A05F362EE70698DA7F0612BC943FDF31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371457   (889979) от 31.03.2020
 
 Коммуникационный центр Правительства РФ | Отчёт о текущей ситуации по борьбе с коронавирусом. 30 марта 2020 года (2020) [PDF]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889979.jpg" />
 </div>
 
 
@@ -59,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888765.jpg" />
 </div>
 
 
@@ -85,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888002.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885295.jpg" />
 </div>
 
 
@@ -137,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885182.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885164.jpg" />
 </div>
 
 
@@ -191,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884979.jpg" />
 </div>
 
 
@@ -217,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883393.jpg" />
 </div>
 
 
@@ -244,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882321.jpg" />
 </div>
 
 
@@ -272,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881802.jpg" />
 </div>
 
 
@@ -298,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881686.jpg" />
 </div>
 
 
@@ -325,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881556.jpg" />
 </div>
 
 
@@ -351,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881445.jpg" />
 </div>
 
 
@@ -377,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879881.jpg" />
 </div>
 
 
@@ -405,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879743.jpg" />
 </div>
 
 
@@ -433,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878871.jpg" />
 </div>
 
 
@@ -460,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878024.jpg" />
 </div>
 
 
@@ -486,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877310.jpg" />
 </div>
 
 
@@ -513,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876430.jpg" />
 </div>
 
 
@@ -540,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875029.jpg" />
 </div>
 
 
@@ -569,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875018.jpg" />
 </div>
 
 
@@ -595,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874996.jpg" />
 </div>
 
 
@@ -623,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874989.jpg" />
 </div>
 
 
@@ -649,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_874952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874952.jpg" />
 </div>
 
 
@@ -677,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874947.jpg" />
 </div>
 
 
@@ -688,6 +662,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBBFD767ED9FB677C30C22AC2AF708421C004E8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105272   (874939) от 18.02.2017
+
+Дж.Х. Уилмор, Д.Л. Костилл | Физиология спорта и двигательной активности (2001) [PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874939.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге на основании данных анатомии и физиологии человека подробно рассмотрены реакции организма на двигательную активность. Освещена роль нервной, эндокринной, сердечно-сосудистой и респираторной систем в регуляции обменных процессов. Рассмотрено влияние факторов окружающей среды на двигательную активность, изложены пути оптимизации мышечной деятельности спортсменов. (   Читать дальше...   )Жанр: Физиология, спорт, медицинаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE89B68C9D1B8567D41941CF945332EE2468DC1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

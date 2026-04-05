@@ -1,3 +1,29 @@
+###  Публикация: 1497103   (865920) от 21.09.2021
+
+NVIDIA GeForce Desktop Game Ready 472.12 WHQL + DCH [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865920.jpg" />
+</div>
+
+
+###  Подробнее
+
+NVIDIA GeForce Driver — драйвера для видеокарт производства NVIDIA. Предназначены для видеокарт семейства GeForce, работающих в операционной системе Windows. Унифицированная архитектура драйверов (CUDA) гарантирует прямую и обратную совместимость драйверов с различными поколениями графических процессоров NVIDIA, что упрощает процесс замены видеоподсистемы, так как (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE3EFB3A0ECAF22F1EDBA7D8080781F7CF1E349D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 999233   (865717) от 21.03.2016
 
 Акула-Робот / Roboshark (2015) WEB-DL [H.264/720p]
@@ -6,7 +32,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865717.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865711.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865532.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865509.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ BELOFF 2016.3.1 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865507.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865454.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865450.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865186.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Dead Space Дилогия [Ru/En/Multi3] (Lossless RePack) 2008-2011 | R.G. Ме
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865022.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Pinnacle Studio 15 Content VM & OB Team [Multi/Rus]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865018.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ LiveCD Windows'7 5.5c (cuba) и 5.5m (mini) by xalex (12.01.2011) [Русски�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865014.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Scorpion-3 - прототип летающего мотоцикла от рос�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_863919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_863919.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Autodesk AutoCAD 2017 N.52.0.0 (x64) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863692.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863658.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_863439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_863439.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ Multiboot flash gnom26rus edition [эксклюзивно для NNM-club] 3.16 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863339.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863335.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863311.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ SpeedTest Net Premium 4.5.4 [Ru] - Проверки скорости соеди�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863269.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862685.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_862674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_862674.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_862635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_862635.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862501.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862499.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862498.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:191455F2F7C71EA87B03951C1252B87B392483E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 838019   (862365) от 03.03.2015
-
-Два с половиной человека / Two and a Half Men (2014) WEB-DLRip (Сезон 12, серии 1-16 из 16) (Jimmy J)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862365.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спустя восемь лет, после того как в особняке на побережье Беверли Хиллз сумбурно поселился «свежеразведённый» бездомный Алан Харпер, не стало его брата - хозяина особняка, местного бабника и знатного алкоголика Чарли. Но ушли ли с ним приключения семейства Харперов? Вряд ли, так как новым хозяином шикарного жилища становится очень незаурядная личность - некий Уолден (   Читать дальше...   )Производство: СШАЖанр: КомедияРежиссер: Ли Аронсон, Чак ЛорриАктеры: Джон Крайер, Эштон Катчер, Энгус Т. Джонс, Кончата Феррелл, Холланд Тейлор, Марин Хинкль, Мелани Лински, Дженнифер Бини Тейлор, Райан Стайлз, Эйприл Боулби и др.Перевод: Профессиональный двухголосый закадровый - Jimmy JОзвучка: Дмитрий Чепусов и Cветлана ЧистохинаФормат: AVIПродолжительность: ~00:21:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4B93551E4503A004977E5F52310858B709D4EDA
 ```
 
 https://mybot314.ru/tekegram_catalog/

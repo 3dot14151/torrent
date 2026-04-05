@@ -6,7 +6,7 @@
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397043.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Buyilehu | Подкасты китайского языка (2017) [MP3, PDF]
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396478.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396352.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359858.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_359441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_359441.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_357064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_357064.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341670.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341538.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341439.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Berlitz | Болгарский язык. Базовый курс [MP3+PDF] (2005
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340255.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329962.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_215170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_215170.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209405.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Lucy Bella Simkins | The Listening Challenge (2022) [MP3] [EN]
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208921.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Sir A. Conan Doyle / Артур Конан Дойль | Sherlock Holmes. Short S
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_201823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_201823.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196316.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195908.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Berlitz | Финский язык. Курс изучения языка по м�
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144148.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138559.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Berlitz | Чешский язык. Базовый курс (3CD) [MP3+PDF] [2005
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136354.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Berlitz | Хорватский язык. Базовый курс [MP3+DJVU] [200
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136110.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Goethe Verlag | Book2. Аудиокурс испанского языка [2011]
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136071.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Berlitz | Греческий язык. Базовый курс [PDF + MP3] [2005
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136064.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136055.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Goethe Verlag | Book2. Аудиокурс чешского языка [2011] [PD
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135808.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ Berlitz | Португальский язык. Базовый курс [APE+JPEG
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135798.jpg" />
 </div>
 
 

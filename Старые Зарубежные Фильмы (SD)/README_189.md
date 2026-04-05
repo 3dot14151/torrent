@@ -1,3 +1,133 @@
+###  Публикация: 1597640   (165888) от 15.12.2022
+
+Балканский экспресс / Balkan Ekspres (1982) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма происходит в Югославии, во время Второй мировой войны. Группа мошенников промышляет карманными кражами. С началом войны группа ненадолго распадается, спасая свои жизни. Стесненные обстоятельствами, бывшие мошенники вскоре опять собираются вместе. Чтобы выполнить опасное задание подпольщиков, они организуют оркестр для выступления в ресторане...Производство: Югославия / Art Film 80, Inex FilmЖанр: комедия, военныйРежиссер: Бранко БалетичАктеры: Драган Николич, Бора Тодорович, Таня Бошкович, Велимир, Оливера Маркович, Радко Полич, Тома Здравкович, Бранко Свежич, Богдан Диклич, Ратко ТанкосичПеревод: Одноголосый любительскийЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:40:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEAF74A060F5B89797286CB8A6E1BD492BF7EA23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593879   (165819) от 15.12.2022
+
+Мушетт / Mouchette (1967) BDRip [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девочке-подростку Мушетт живётся несладко: больная мать, за которой требуется постоянный уход, младший брат, отец, терроризирующий дочь, да ещё и в школе постоянные унижения. Однажды в лесу девочка встречает браконьера. Тот думает, что только что убил человека, и потому решает создать себе при помощи Мушетт алиби.Производство: Франция / Argos Films, Parc FilmЖанр: ДрамаРежиссер: Робер БрессонАктеры: Надин Нортье, Жан-Клод Гилберт, Мари Кардинал, Пол Эбер, Жан Вимне, Мари Сузини, Лилиан Прансе, Сюзанн Югенен, Марин Трише, Раймонд ШабрунПеревод: Многоголосый профессиональный, АвторскийЯзык озвучки: Русский, ФранцузскийСубтитры: русские (2 варианта), английские - отдельноПродолжительность: 01:21:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2D61A98827E2936689E199E4DD38B03F587B6BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597555   (165789) от 15.12.2022
+
+Обнажённая и Сатана / Die Nackte und der Satan (1959) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ученый изобретает сыворотку, которая оставляет голову собаки в живых после её смерти. Когда ученый умирает от сердечного приступа, его сумасшедший помощник оживляет его голову с помощью сыворотки и заставляет помочь ему с одним экспериментом...Производство: Германия, Rapid FilmЖанр: ужасы, фантастикаРежиссер: Виктор ТривасАктеры: Хорст Франк Карин Кернке, Гельмут Шмид, Пауль Дальке, Дитер Эпплер, Кристиана Майбах, Мишель Симон, Йоханнес БузалскиПеревод: любительский одноголосый (sephiroth)Субтитры: английскиеПродолжительность: 01:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04571ED446C30FC9043C3A685EAC3ADFEFC3EAC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345795   (165477) от 16.12.2019
+
+Гвендолин / Gwendoline (1984) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гвендолин — прекрасная и невинная девушка едет на Восток в поисках отца, исчезнувшего при загадочных обстоятельствах. Спасенная от ужасной участи искателем приключений — красавцем Уиллардом, она уговаривает его отправиться с ней в город Йик-Йяк, которым правит демоническая королева — амазонка.Производство: Франция / Films de L'Alma, G.P.F.I., Parafrance FilmsЖанр: Фэнтези, ПриключенияРежиссер: Жюст ЖэкинАктеры: Тоуни Китаен, Брент Хафф, Забу Брайтман, Бернадетт Лафон, Жан Ружери, Ролан Амстюц, Джин Станислас Капуль, Чэнь Чан Чин, Вернон Добчефф, Андре ЖюльенПеревод: Многоголосый профессиональный, студия СонотекСубтитры: ОтсутствуютПродолжительность: 01:44:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:705683E72417B6D3DA988BD75BCF6E4D72A41BE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673447   (165400) от 01.11.2023
+
+Билли Джек / Billy Jack (1971) BDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165400.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот фильм - победный гимн духу хиппи. Метис из Аризоны Билли Джек - решительный и трудолюбивый парень. Бывший зелёный берет, владеющий боевым искусством хапкидо, спасает диких лошадей от убоя и помогает защитить расположенную в пустыне школу свободы...Производство: США, National Student Film Corporation, Warner Bros. PicturesЖанр: драма, боевикРежиссер: Том ЛофлинАктеры: Том Лофлин, Делорес Тейлор, Кларк Хауэт, Виктор 'Вик' Айзей, Тереза Келли, Дэвид Роя, Сьюзэн Фостер, Кэти Моффатт, Ричард Стал, Алан Майерсон, Эд Гринберг, Говард Хессемэн, Дэн Бэрроус, Берт Фрид, Пол БрюсПеревод: авторскийЯзык озвучки: русский, английскийСубтитры: английские SDHПродолжительность: 01:53:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B8FE262CC92A3AEBC064D71148667525C828F0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516730   (165332) от 12.12.2021
 
 Вкус насилия / Le gout de la violence (The Taste of Violence) (1961) BDRip [H.264] [VO]
@@ -6,7 +136,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165332.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165315.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165278.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165226.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165206.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165030.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164379.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164354.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164321.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164296.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164274.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164089.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164020.jpg" />
 </div>
 
 
@@ -345,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163978.jpg" />
 </div>
 
 
@@ -371,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163456.jpg" />
 </div>
 
 
@@ -397,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163446.jpg" />
 </div>
 
 
@@ -423,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163255.jpg" />
 </div>
 
 
@@ -449,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163225.jpg" />
 </div>
 
 
@@ -475,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163212.jpg" />
 </div>
 
 
@@ -501,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163200.jpg" />
 </div>
 
 
@@ -527,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163181.jpg" />
 </div>
 
 
@@ -538,136 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9EE3813E3CEDA0A82B2ADC7A605AE1E4CB124AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432744   (163092) от 18.12.2020
-
-Мэри Пикфорд. Бедная маленькая богатая девочка / The Poor Little Rich Girl (1917) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163092.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гвендолин почти 11 лет, её папа "делает деньги" на Уолл-стрит, мама поглощена многочисленными светскими мероприятиями; гувернантка, слуги и учителя пренебрежительно относятся к девочке, уличные мальчишки прозвали её Бедной маленькой богачкой... Гвен очень одиноко и скучно, её проделки - лишь попытки вырваться из замкнутого круга. Вся эта ситуация однажды (   Читать дальше...   )Производство: США, Artcraft Pictures CorporationЖанр: Комедия, семейный, немое киноРежиссер: Морис ТурнёрАктеры: Мэри Пикфорд, Мадлейн Трэверс, Чарльз Веллесли, Глэдис Фербенкс, Фрэнк МакГлинн ст., Эмиль Ла Круа, Марсия Харрис, Чарльз Крэйг, Фрэнк Эндрюс, Херберт ПрайорЯзык озвучки: НемойСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 01:16:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C2C9066DA5D9100D2D93626A165E68FBEFE6F71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598259   (163032) от 18.12.2022
-
-Личная секретарша моего отца / La segretaria privata di mio padre (1976) WEB-DLRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Глава процветающей компании Армандо Понциани вместе со своей женой попадает в автокатастрофу. Теперь оба супруга закованы в гипс, но даже в такой ситуации Армандо видит для себя плюсы. Ведь ему нужно продолжать управлять предприятием, а для этого требуется секретарша. Конечно, его жена тщательно следит, чтобы Армандо не окружал себя красивыми женщинами, но теперь (   Читать дальше...   )Производство: Италия / Dania FilmЖанр: КомедияРежиссер: Мариано ЛаурентиАктеры: Мария Розария Омаджо, Ренцо Монтаньяни, Стефано Патрици, Альваро Витали, Анита Стриндберг, Альдо Массассо, Рина Франкетти, София Ломбардо, Джулиана Каландра, Энцо КаннавалеПеревод: Одноголосый любительский, А.ГерусовСубтитры: Русские, итальянские, английскиеПродолжительность: 01:32:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:095114C14E590040DBD45C6B0278670142CCEBB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673843   (162943) от 03.11.2023
-
-Одержимая / Possession (1981) BDRip [H.264] [DVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вернувшись домой из длительной командировки, Марк обнаруживает, что стал для жены совсем чужим человеком. Он решает узнать всю правду. Постепенно выясняется, что дело в чём-то большем, чем обычная любовная интрижка. С каждым днём супруги всё глубже погружаются в пучину безумия, перерастающего в кровавый кошмар...Производство: Франция, Германия (ФРГ), Gaumont, Marianne Productions S.A., Oliane Productions, Soma Film ProduktionЖанр: ужасы, драмаРежиссер: Анджей ЖулавскийАктеры: Изабель Аджани, Сэм Нилл, Маргит Карстенсен, Хайнц Беннент, Йоханна Хофер, Карл Дюринг, Шон Лоутон, Майкл Хогбен, Максимилиан Рютлайн, Томас Фрей, Лесли Молтон, Герд Нойберт, Керстин Вольфарт, Ильзе Барс, Карин Мумм, Херберт Хвойка, Барбара Станек, Ильзе ТраутшольдПеревод: профессиональный двухголосый, авторскийЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 02:03:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68B171C7EBC1611AF7E33AF2EDF40E87CAC33F27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598581   (162730) от 19.12.2022
-
-Чарли Чейз. Удачно отсидеться / Sitting Pretty (1924) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162730.jpg" />
-</div>
-
-
-###  Подробнее
-
-Волей случая Джимми Джамп надел чужую форму полицейского. А это дело подсудное, так что ему пришлось делать вид, что он и в самом деле коп. И даже учавствовать опасной полицейской операции.Производство: США, Hal Roach StudiosЖанр: комедия, короткометражный, немое киноРежиссер: Лео МакКериАктеры: Чарли Чейз, Лео Уиллис, Бет Дарлингтон, Эрл Мохан, Джеймс ПэрротПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:10:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4F40E310EC6EB2DF48D492C430326F25D87CA41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432806   (162636) от 18.12.2020
-
-По всему миру с Фанни Хилл / Jorden runt med Fanny Hill (1974) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162636.jpg" />
-</div>
-
-
-###  Подробнее
-
-После развода с ревнивым мужем-режиссёром Роджером Фанни отправляется в Голливуд, где становится востребованной артисткой. Когда слухи об этом достигают ушей Роджера, он собирается вернуть её, и ради этого готов объехать вокруг света.Производство: Швеция, США / Minerva Film ABЖанр: КомедияРежиссер: Мак АльбергАктеры: Ширли Корригэн, Петер Бонке, Габи Фукс, Бо Брундин, Вальтер Бушхофф, Питер Кюипер, Мари Экорре, Ёста Прюцелиус, Йозеф Шварц, Кристина ЛиндбергПеревод: Одноголосый любительскийСубтитры: ОтсутствуютПродолжительность: 01:34:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5812496825BDC2BE8329AE6BAE8D037FB1626EBF
 ```
 
 https://mybot314.ru/tekegram_catalog/

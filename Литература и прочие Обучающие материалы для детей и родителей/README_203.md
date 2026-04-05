@@ -1,3 +1,55 @@
+###  Публикация: 910714   (620105) от 21.06.2015
+
+Н.П. Третьяков | Как ухаживать за домашней птицей (1950) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Прочие материалы для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620105.jpg" />
+</div>
+
+
+###  Подробнее
+
+В брошюре описаны различные виды домашней птицы, даны рекомендации по ухаживанию за ней, а так же описано устройство инкубатора на 100 яиц. Брошюра рассчитана на детей школьного возраста, но может оказаться полезной всем, кто связан с птицеводством.Жанр: ПтицеводствоФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D74731167B7ABB9FA38A256E17EDF3ABD7C1E289
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910715   (619969) от 21.06.2015
+
+Н. Мельникова | Школьная теплица (1950) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Прочие материалы для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619969.jpg" />
+</div>
+
+
+###  Подробнее
+
+В брошюре описаны различные виды теплиц, а так же процесс постройки теплицы. Брошюра рассчитана на детей школьного возраста, но может оказаться полезной всем, кто связан с тепличной деятельностью.Жанр: СадоводствоФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9246942A20F9515A985DA54FD32E770CD8088B81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 910730   (619964) от 21.06.2015
 
 Э.А. Макаревич | Туристские походы выходного дня (1985) [DJVU]
@@ -6,7 +58,7 @@
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619964.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619853.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619847.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619708.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619505.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619442.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619312.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619215.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619093.jpg" />
 </div>
 
 
@@ -247,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619085.jpg" />
 </div>
 
 
@@ -274,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619084.jpg" />
 </div>
 
 
@@ -300,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618995.jpg" />
 </div>
 
 
@@ -327,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618908.jpg" />
 </div>
 
 
@@ -353,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618608.jpg" />
 </div>
 
 
@@ -380,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618583.jpg" />
 </div>
 
 
@@ -406,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618504.jpg" />
 </div>
 
 
@@ -432,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618494.jpg" />
 </div>
 
 
@@ -459,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618473.jpg" />
 </div>
 
 
@@ -485,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618426.jpg" />
 </div>
 
 
@@ -511,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618423.jpg" />
 </div>
 
 
@@ -537,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618408.jpg" />
 </div>
 
 
@@ -563,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618405.jpg" />
 </div>
 
 
@@ -589,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618323.jpg" />
 </div>
 
 
@@ -615,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618308.jpg" />
 </div>
 
 
@@ -626,60 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D530DC37AC8628DFE2A0DAFC473EC308D5FB2A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911315   (618161) от 22.06.2015
-
-Максим Горький | 9-е января. Макар Чудра (1941) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618161.jpg" />
-</div>
-
-
-###  Подробнее
-
-...Толпа напоминала темный вал океана, едва разбуженный первым порывом бури, она текла вперед медленно; серые лица людей были подобны мутно-пенному гребню волны.
-Глаза блестели возбужденно, но люди смотрели друг на друга, точно не веря своему решению, удивляясь сами себе. Слова кружились над толпой, как маленькие серые птицы.
-Говорили негромко, серьезно, как бы оправдываясь (   Читать дальше...   )Жанр: Детская прозаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:959389FAF348E14C8B21B3E7346DD5C5EAF9EE05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911447   (618036) от 22.06.2015
-
-Михаил Зощенко | Приключения обезьянки (1990) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618036.jpg" />
-</div>
-
-
-###  Подробнее
-
-В одном городе на юге был зоологический сад. Небольшой зоологический сад, в котором находились - один тигр, два крокодила, три змеи, зебра, страус и одна обезьянка, или, попросту говоря, мартышка. И, конечно, разная мелочь - птички, рыбки, лягушки и прочая незначительная чепуха из мира животных. В начале войны, когда фашисты бомбили этот город, одна бом­ба попала (   Читать дальше...   )Жанр: Детская литература, РассказыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB929A063C8B0205B990D861BBA0A3E023D95FEC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Liquid Tension Experiment - LTE3 (2021) [MP3|320 Kbps] <Instrumental Progressive
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024765.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Renacer - En Versiones Vol. 2 (2021) [MP3|320 Kbps] <Melodic Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024640.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Manntra - Monster Mind Consuming (2021) [MP3|320 Kbps] <Folk Metal, Industrial M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024435.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Ghosts of Atlantis - 3.6.2.4 (2021) [MP3|320 Kbps] <Symphonic Gothic Metal, Melo
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024397.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Evilizers - Solar Quake (2021) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024248.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Sotury - Andel Zkazy (2021) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024084.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Spliffripper - Spliffripper (2021) [MP3|320 Kbps] <Doom, Sludge Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024080.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Liquid Tension Experiment - LTE3 (2021) 2xCD,  Deluxe Edition [MP3|320 Kbps] <In
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024074.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Silent Winter - Empire of Sins (2021) [MP3|320 Kbps] <Power, Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024070.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Sirenia - 10 Albums, 3 Singles (2002-2021) [MP3|320 Kbps] <Synpho-Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023832.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Servants To The Tide - Servants To The Tide (2021) [MP3|320 Kbps] <Epic Doom Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023790.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Secret Sphere - 11 Release (1999-2021) [MP3|320 Kbps] <Melodic Power, Progressiv
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023518.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Blaze Bayley - War Within Me (2021) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022113.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Primal Fear (feat. Tarja) - I Will Be Gone (2021) EP [MP3|320 Kbps] <Heavy Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021800.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Cannibal Corpse - Violence Unimagined (2021) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021299.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Infinite & Divine - Silver Lining (2021) [MP3|320 Kbps] <Melodic Heavy Metal, Ha
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021030.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Eleine (Madeleine Liljestam) - 4 Albums (2015-2020) [MP3|320 Kbps] <Symphonic Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019326.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Bad Absalom - Bad Absalom (2021) [MP3|320 Kbps] <Stoner Rock, Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019169.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Profecia - Renacer (2021) [MP3|320 Kbps] <Heavy Meatal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018992.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Organic Reaction - Mysteries Of The Lost World (2021) [MP3|320 Kbps] <Progressiv
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018655.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Autumn Bride - Undying (2021) [MP3|320 Kbps] <Sympho Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018645.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Gojira - Fortitude (2021) [MP3|320 Kbps] <Progressive Metal, Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018575.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Poverty's No Crime - A Secret to Hide (2021) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018463.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Arched Fire - Remote Control (2021) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018461.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Sarkonia - Cesta (2021) [MP3|320 Kbps] <Sympho Metal, Female Vocal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018459.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Axewitch - Out Of The Ashes Into The Fire (2021) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018451.jpg" />
 </div>
 
 

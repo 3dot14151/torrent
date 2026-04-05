@@ -1,3 +1,81 @@
+###  Публикация: 1821900   (91209) от 04.10.2025
+
+AIMP 5.40 Build 2695 RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Аудио Плееры и Кодеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91209.jpg" />
+</div>
+
+
+###  Подробнее
+
+AIMP – проигрыватель, включающий в себя множество дополнительных модулей: CD-Ripper, Tag Editor, Audio-player, аудио конвертер, запись аудио и дисков с данными и т.д. Воспроизводит множество аудиоформатов, включая WAV, MP3, MP2, MP1, OGG, WMA, UMX, не нуждаясь в дополнительных кодеках. Имеет стильный многоязычный интерфейс.Язык интерфейса: Русский, белорусский, украинский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A12BE6EBAB869E7CF9359070698B1A720CF48E62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821595   (63964) от 03.10.2025
+
+AIMP 5.40.2695 + Portable [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Аудио Плееры и Кодеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63964.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обновился маленький, качественный, абсолютно бесплатный аудио плеер. Проигрывает большое количество современных популярных форматов. Плеер потребляет самый минимум системных ресурсов, система его просто не замечает, но при этом мгновенно работает с плейлистами и радует своей скоростью работы, даже если сравнивать его с платными аналогичными продуктами. Радует AIMP (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54FFC454DB06F9900ABB1F6EEBB69B4E4BBF1F77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724812   (55763) от 22.05.2024
+
+Spotify Web-Portable by DVLZ 2.3 [Ru/En]
+
+>>Мультимедиа и Графика
+>>Аудио Плееры и Кодеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Spotify - клиент для прослушивания музыки на одноимённом стриминговом сервисе.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:644B174C699D7725207291AE4A52EF2B907E9FCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1782744   (25966) от 02.03.2025
 
 Audio Repeater Pro 1.6.3 [En]
@@ -6,7 +84,7 @@ Audio Repeater Pro 1.6.3 [En]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25966.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ FxSound Pro 1.1.31.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24636.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ MusicBee 3.6.9202 + Portable [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24386.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Spotify 1.2.59.515 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22871.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ Foobar2000 2.24.6 include Portable [En]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12185.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ AIMP 5.40.2694 + Portable [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3762.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ AIMP 5.40 Build 2694 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3649.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ FxSound 1.1.36.0 [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3615.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ AIMP 5.40.2694 RePack (& Portable) by elchupacabra (Extended + Standard) [Multi/
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3614.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ Audacious 4.5.1 [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1346.jpg" />
 </div>
 
 

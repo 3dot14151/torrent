@@ -1,136 +1,3 @@
-###  Публикация: 1804339   (65647) от 29.06.2025
-
-М.А. Тамаров | Неорганическая химия (1974) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65647.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебнике последовательно даны основные понятия и законы общей химии, сведения о химэлементах и их главных соединениях. Содержит новые данные по строению атома, электронно-ионные уравнения и усложненные задачи. Учебник для учащихся фармучилищ.Жанр: ХимияИздательство: МедицинаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:810DC4AD1025D021AC91F7540E81FE6D6CBC8B52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807484   (65259) от 19.07.2025
-
-И. Пигулевская | Боль. Всё, что вы не знали (2012) [FB2, EPUB]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мало кто согласен терпеть боль, и сразу торопятся принять обезболивающее. А надо ли? Как ни странно это может показаться на первый взгляд — не надо! Потому что сначала нужно выяснить источник и причину боли, попытаться удалить эту причину, а уже потом можно изводить и саму боль, если она еще не прошла в результате лечения.
-Что такое боль с точки зрения физиологии (   Читать дальше...   )Жанр: здоровье, лечение без лекарствИздательство: ЦентрполиграфФормат: FB2, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F6FE902D68AB29F27CE7A1794FFBC4C05249220
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807537   (65233) от 19.07.2025
-
-Ева Меркачева | Подвиг разведчиков. Беседы с легендами (2025) [FB2, DOCX, EPUB, MOBI]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65233.jpg" />
-</div>
-
-
-###  Подробнее
-
-Их имена навсегда вошли в историю отечественной разведки. Некоторые из этих специалистов своего дела стали легендами и оказывали влияние на мировую политику. Однако широкая общественность о них мало что знает, ведь далеко не вся информация рассекречена.
-Ева Меркачева – известная российская писательница и журналист – сумела приоткрыть завесу тайны, побеседовав с этими (   Читать дальше...   )Жанр: военная история, военное дело / спецслужбыИздательство: ВечеФормат: FB2, DOCX, EPUB, MOBIКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31E85870AD191E53F3E2713E78B62F2CA0BA2176
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808855   (64852) от 27.07.2025
-
-М.М. Кацнельсон | Приготовление синтетических химико-фармацевтических препаратов (1933) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64852.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Приготовление синтетических химико-фармацевтических препаратов» М. Кацнельсона – книга известного ученого, содержащая практические работы для химиков, медиков и фармацевтов.Жанр: ХимияИздательство: ГосхимтехиздатФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DA471CFDBC217909DE56BE182B84A88F706423C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809007   (64848) от 27.07.2025
-
-Юрий Фролов | Отступники от власти [2 книги] (1999) [PDF, DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64848.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разведчиков-предателей, оказывается, не только на много лет сажают в тюрьмы, расстреливают, но и... сжигают живьем, как бывшего офицера Главного разведуправления СССР Пеньковского... Неужели член знаменитой семьи банкиров Виктор Ротшильд, имевший миллионное состояние и «отец» первой атомной бомбы Оппенгеймер, работали на советскую разведку?
-Почему и как золото разгромленных (   Читать дальше...   )Жанр: ИсторияИздательство: ДонеччинаФормат: PDF, DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9318679336178DAFC3C08859B15F3AFDA6E571C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 771172   (63820) от 06.03.2024
 
 А.К. Лосев | Задачник по теории линейных электрических цепей (1989) [DJVU]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63820.jpg" />
 </div>
 
 
@@ -165,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63786.jpg" />
 </div>
 
 
@@ -193,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63553.jpg" />
 </div>
 
 
@@ -219,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63529.jpg" />
 </div>
 
 
@@ -245,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63521.jpg" />
 </div>
 
 
@@ -271,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63502.jpg" />
 </div>
 
 
@@ -297,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63423.jpg" />
 </div>
 
 
@@ -323,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63418.jpg" />
 </div>
 
 
@@ -349,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63377.jpg" />
 </div>
 
 
@@ -376,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63373.jpg" />
 </div>
 
 
@@ -402,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63208.jpg" />
 </div>
 
 
@@ -428,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63017.jpg" />
 </div>
 
 
@@ -457,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62755.jpg" />
 </div>
 
 
@@ -483,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62593.jpg" />
 </div>
 
 
@@ -509,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62585.jpg" />
 </div>
 
 
@@ -536,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62336.jpg" />
 </div>
 
 
@@ -562,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62290.jpg" />
 </div>
 
 
@@ -590,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62276.jpg" />
 </div>
 
 
@@ -616,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62266.jpg" />
 </div>
 
 
@@ -644,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62172.jpg" />
 </div>
 
 
@@ -670,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62124.jpg" />
 </div>
 
 
@@ -681,6 +548,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFE58C7B8D8B2E0495E89E740E91CD8F585EC14D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708914   (62120) от 22.03.2024
+
+М.Р. Шебес | Задачник по теории линейных электрических цепей (1990) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62120.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге даны краткий справочный материал в виде основных положений и соотношений, расчетные формулы, типовые задачи с подробными решениями и пояснениями, примеры применения основных методов расчета электрических цепей в установившемся и переходном режимах, примеры задач с использованием программируемых микрокалькуляторов. 4-е издание (3-е-—1982 г.) дополнено задачами (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: Высшая школаФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:192F2D2DB703875E91CE4DDFC2740C14E29FAECC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708913   (62117) от 22.03.2024
+
+М.Р. Шебес | Теория линейных электрических цепей в упражнениях и задачах (1973) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель данного учебного пособия - оказать помощь студентам в их самостоятельной работе. К большему количеству задач даны подробные решения и пояснения, к некоторой части задач - методические указания, ко всем остальным задачам - ответы.
+Примеры страницЖанр: ЭлектротехникаИздательство: Высшая школаФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A68263F44A2238607DE461DC2FB5AE6D5065E96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 249332   (61973) от 24.03.2024
+
+Л.Орлова | Женьшень [2006] [PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издревле известны целебные свойства женьшеня. При каких недугах поможет этот чудо-цветок и как правильно применять препараты женьшеня читатель узнает из этой книги.
+ Женьшень является лекарственным средством, внесенным в государственную фармакопею. И это не случайно. На нашей планете нет, пожалуй, другого растения, которое пользовалось бы столь огромной славой всеисцеляющего средства, кок женьшень. И, наверное, ни о каком ином растении в мире не сложено больше легенд и преданий, чем о женьшене.
+ Стресс, синдром хронической усталости, импотенция, сердечно-сосудистые и простудные заболевания — о том, как победить эти недуги с помощью «человека-корня», рассказывает эта книга.Жанр: Фитотерапия, народная медицинаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74A98E8D6B9F98D2669F1833A6E62FCDA09C6B1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709345   (61937) от 24.03.2024
+
+Роберт Миддлкауф | Славное дело. Американская революция 1763-1789 (2015) [FB2, PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61937.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга Роберта Миддлкауфа издана в серии «Оксфордская история США», где каждый том посвящен определенному периоду. «Славное дело» сочетает академическую строгость с живым и привлекательным стилем. Автор, делая масштабный обзор Американской революции, пересматривает и раздвигает границы популярных представлений об этом периоде, детально анализируя дипломатические и (   Читать дальше...   )Жанр: ИсторияПеревод: Максим Леонович, Д. Голубцов, Олег МичковскийИздательство: ООО «Издательство Гонзо», ЕкатеринбургФормат: FB2, PDFКачество: FB2 - Изначально электронное (ebook), PDF - хороший скан + OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA4DB1D6210D1378705FDFCFBAC864AA15F13045
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709665   (61826) от 25.03.2024
+
+И.Н. Орлов | В начале творческого пути (1986) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Советы студентам технических вузов. Цель книги - помочь студентам овладеть глубокими профессиональными знаниями.Жанр: Учебно-воспитательная работаИздательство: Высшая школаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A98F98F27A205F7112284D1271B0EA3F592CB2AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

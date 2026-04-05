@@ -1,3 +1,117 @@
+###  Публикация: 921072   (577454) от 24.07.2015
+
+VA - Chillout Soundbar (Best Lounge Music) (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kaxamalka - Desimaginar [05:50]
+02. Ria - Into the Light - Unplugged Live Radio Edit [03:58]
+03. El Nicoya - Minutos de Oro [05:38]
+04. Avelina Jose - Sir Cosmic [04:22](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 05:33:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5600BE74ACC4CF8A391C424C1AB725EAA77D2588
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921091   (577452) от 24.07.2015
+
+VA - Luxury Lounge Gold Edition (2015) [MP3|320 кб/с]<Easy Listening, Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robert Manos - Silver
+02. Naomi - Go (Feat. Selda Kaya)Жанр: Easy Listening, Balearic, DowntempoПродолжительность: 05:00:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21AD0658FCB522FE831760E5E101B4E257C4D57F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921034   (577222) от 24.07.2015
+
+VA - 80's Generation vol. 2 (2002) [FLAC|image + .cue]<Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Madness - Our House [3:12]
+02. Culture Club - I'll Tumble 4 Ya [2:37]
+03. Monie Love - Grandpa's Party [3:38]
+04. Spandau Ballet - Lifeline [3:19](   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 01:11:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37F3846CDA77AF5D89064A68384C87A9353D86D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920404   (577180) от 24.07.2015
+
+Lukhash - The Other Side (2015) [MP3|320 кб/с]<Chiptune, Dubstep, Electronic, 8-Bit>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another World
+02. Hongdae
+03. The Other Side
+04. Eighties(   Читать дальше...   )Жанр: Chiptune, Dubstep, Electronic, 8-BitПродолжительность: 00:48:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBF1D95257F6ACA25540159E1E7B21D72A5A0D62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 921033   (577072) от 24.07.2015
 
 VA - 80's Generation vol. 1 (2002) [FLAC|image + .cue]<Synthpop, New Wave>
@@ -6,7 +120,7 @@ VA - 80's Generation vol. 1 (2002) [FLAC|image + .cue]<Synthpop, New Wave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577072.jpg" />
 </div>
 
 
@@ -35,7 +149,7 @@ VA - Bye Bye Summer! Best of Deep Summer 2016 Vol.1 (2016) [MP3|320 Kbps] <House
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576642.jpg" />
 </div>
 
 
@@ -64,7 +178,7 @@ VA - Mind Technologies Vol. 7 (2016) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576630.jpg" />
 </div>
 
 
@@ -93,7 +207,7 @@ VA - Pure Salinas Vol.7 ( Mixed by Dj Zappi) (2016) [FLAC|Lossless|WEB-DL|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576547.jpg" />
 </div>
 
 
@@ -122,7 +236,7 @@ VA - Sweet Lounge Session, Vol. 2 (2019) [MP3|320 Kbps] <Lounge, Chill Out>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576455.jpg" />
 </div>
 
 
@@ -151,7 +265,7 @@ VA - Deep Chill Out Waves Vol.2 (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576360.jpg" />
 </div>
 
 
@@ -180,7 +294,7 @@ VA - 32 Summer Of Trance Multibundle (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576341.jpg" />
 </div>
 
 
@@ -209,7 +323,7 @@ Mark Sherry - Confirm Humanity (2019) [FLAC|Lossless|WEB-DL|tracks] <Tech Trance
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576329.jpg" />
 </div>
 
 
@@ -238,7 +352,7 @@ Kristine - Kristine (2015) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576226.jpg" />
 </div>
 
 
@@ -267,7 +381,7 @@ VA - The Best Of Critical Overload 001 (2018) [MP3|320 Kbps] <Trance,Psy-Trance>
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576026.jpg" />
 </div>
 
 
@@ -296,7 +410,7 @@ VA - Sport Music Fitness Personal Trainer - 200 Songs (2016) [MP3|320 Kbps] <Hou
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575963.jpg" />
 </div>
 
 
@@ -325,7 +439,7 @@ U96 - Reboot (2018) [FLAC|Lossless|WEB-DL|tracks] <Techno, Electro>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575898.jpg" />
 </div>
 
 
@@ -354,7 +468,7 @@ Sparks - Exotic Creatures of the Deep (2008) Deluxe Edition, 2022, BMG [FLAC 2.0
 >>Synthpop, New Wave, Retro (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575754.jpg" />
 </div>
 
 
@@ -383,7 +497,7 @@ VA - FG Top 10: May 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575678.jpg" />
 </div>
 
 
@@ -412,7 +526,7 @@ VA - Kalpamantra Records presents: Compilations Collection - 27 Releases (2010-2
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575661.jpg" />
 </div>
 
 
@@ -438,7 +552,7 @@ VA - In Search Of Sunrise 14 (Mixed By Markus Schulz, Gabriel & Dresden and Andy
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575618.jpg" />
 </div>
 
 
@@ -467,7 +581,7 @@ VA - Bar Lounge Classics: Late Night Edition (2009) [MP3|320 kbps]<Chillout, Lou
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575083.jpg" />
 </div>
 
 
@@ -496,7 +610,7 @@ Groove Armada - Goodbye Country (Hello Nightclub) (2CD) (2001) [MP3|320 кб/с]
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575061.jpg" />
 </div>
 
 
@@ -530,7 +644,7 @@ VA - Future Workout Summer '18 (2018) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574701.jpg" />
 </div>
 
 
@@ -559,7 +673,7 @@ VA - Madre Natura, Vol. 32 (2018) [FLAC|Lossless|WEB-DL|tracks] <House, Tech Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574698.jpg" />
 </div>
 
 
@@ -588,7 +702,7 @@ VA - Selektor Music Presents Summer Jams (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574635.jpg" />
 </div>
 
 
@@ -617,7 +731,7 @@ Blank & Jones - Relax Edition 7 (2012) [FLAC|Lossless]<Chillout, Lounge, Downtem
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_574615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_574615.jpg" />
 </div>
 
 
@@ -636,122 +750,6 @@ Blank & Jones - Relax Edition 7 (2012)
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151246   (574509) от 18.07.2017
-
-VA - Ko Samui Beach Dinner Vol.1 (Compiled by Prana Tones) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lo-Fi>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sunyata Project - Bird Of Satori  4:46
-02.  Sami Sivananda - Temple Tunes  6:46
-03.  Prana Tones - Ashtanga Voices  3:56
-04.  Lemongrass - Tropical Nights  4:40(   Читать дальше...   )Жанр: Downtempo, Chillout, Lo-FiПродолжительность: 02:25:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3124B76C71916DFE14A538479CBF375C6984ACAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151344   (574498) от 18.07.2017
-
-VA - EDM Deejay Compilation (Summer Edition) (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Turbotronic - Bomdigi (Original Mix)  4:22
-02.  Ricardo Reyna - New Era (Original Mix)  3:35
-03.  Lukino Simjay - Sunlight (Extended Mix) (feat. Joy Jackson)  4:56
-04.  Wayck - Carousel (feat. Nick Tart) (Burani & Busilacchi Remix)  4:31(   Читать дальше...   )Жанр: HouseПродолжительность: 02:34:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:182D7694698DEA45231158DC75BC7CB38727D7CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303368   (574457) от 20.05.2019
-
-Cholosus - Momentum EP (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From Home (06:38)
-02. Looking at Heaven (06:55)
-03. Artheria (10:45)
-04. Satura (06:24)Жанр: Ambient, DroneПродолжительность: 00:30:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56F432283F6D0FF279752536804E98AC77B91D46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303293   (574445) от 20.05.2019
-
-Conjecture - Discography 5 Releases (2014-2019) Raumklang Music, Amek [FLAC|Lossless|WEB-DL|tracks] <Industrial, Rhythmic Noise, IDM, Ambient, Experimental>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ύπνος (08:55)
-02. Σώμα (05:19)
-03. Τέφρα (05:48)
-04. Κρόνος (08:34)(   Читать дальше...   )Тип издания: WebЖанр: Industrial/Dark Ambient/Rhythmic Noise/NoiseПродолжительность: 00:39:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:884F5944701A0C6B300E22D7A37883AFA9E8747D
 ```
 
 https://mybot314.ru/tekegram_catalog/

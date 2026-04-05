@@ -1,81 +1,3 @@
-###  Публикация: 1393404   (767434) от 30.06.2020
-
-Дэвид Томас, Эндрю Хант | Программист-прагматик [2-е юбилейное издание] (2020) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767434.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом втором, обновленном через 20 лет издании авторы предлагают прагматичный философский подход к разработке программного обеспечения, исходя из своего богатого практического опыта. Книга написана в виде последовательного ряда автономных тем-разделов, сдобрена немалой долей классических и свежих анекдотов, тщательно продуманными примерами и интересными аналогиями, (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96D31EDC810B228657027A1C35DD53952FD917C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278944   (767429) от 27.01.2019
-
-Виктор Петин | Проекты с использованием контроллера Arduino. 3-е издание [+ files] (2019) [DJVU]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены основные платы Arduino и платы расширения (шилды), добавляющие функциональность основной плате. Подробно описан язык и среда программирования Arduino IDE. Приведены практические проекты с использованием контроллеров семейства Arduino в области робототехники, погодных метеостанций, «умного дома», вендинга, телевидения, беспроводной связи (bluetooth, радиоуправление, (   Читать дальше...   )Жанр: ПрограммированиеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E68C473C2E1A2AE068B4FB9132B9F2139BAC822C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213777   (767158) от 18.03.2018
-
-Роман Григорьев | Задачник по PHP (с решениями) (2018) [PDF, RTF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767158.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга написана для начинающих программистов. Ко всем задачам есть решения. Присутствуют задачи повышенной сложности.Жанр: ПрограммированиеФормат: PDF, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB19BBA6B68BA8224B21D497B0192ED259E6BB7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126684   (765043) от 18.04.2017
 
 Виктор Петин, Александр Биняковский | Практическая энциклопедия Arduino (2017) [DJVU]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765043.jpg" />
 </div>
 
 
@@ -111,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764048.jpg" />
 </div>
 
 
@@ -139,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762756.jpg" />
 </div>
 
 
@@ -165,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761475.jpg" />
 </div>
 
 
@@ -191,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761411.jpg" />
 </div>
 
 
@@ -217,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759860.jpg" />
 </div>
 
 
@@ -243,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758824.jpg" />
 </div>
 
 
@@ -269,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758173.jpg" />
 </div>
 
 
@@ -295,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754841.jpg" />
 </div>
 
 
@@ -321,7 +243,7 @@ Jules S. Damji and others | Learning Spark: Lightning-Fast Data Analytics / Об
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753421.jpg" />
 </div>
 
 
@@ -347,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753203.jpg" />
 </div>
 
 
@@ -373,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753117.jpg" />
 </div>
 
 
@@ -399,7 +321,7 @@ Ravesli | Самоучитель "Уроки по С++" + Бонус (2022) [PDF
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752821.jpg" />
 </div>
 
 
@@ -425,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749451.jpg" />
 </div>
 
 
@@ -452,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749390.jpg" />
 </div>
 
 
@@ -478,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747634.jpg" />
 </div>
 
 
@@ -504,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747415.jpg" />
 </div>
 
 
@@ -530,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746530.jpg" />
 </div>
 
 
@@ -556,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744707.jpg" />
 </div>
 
 
@@ -582,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744646.jpg" />
 </div>
 
 
@@ -608,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744416.jpg" />
 </div>
 
 
@@ -635,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743412.jpg" />
 </div>
 
 
@@ -661,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743199.jpg" />
 </div>
 
 
@@ -672,6 +594,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2FC8FD304CC4108CF0B407E333F04E00FEBEC90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523636   (743179) от 16.01.2022
+
+Ной Гифт и др. | Python и DevOps. Ключ к автоматизации Linux (2022) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743179.jpg" />
+</div>
+
+
+###  Подробнее
+
+За последнее десятилетие технологии сильно изменились. Данные стали хитом, облака — вездесущими, и всем организациям понадобилась автоматизация. В ходе таких преобразований Python оказался одним из самых популярных языков программирования. Это практическое руководство научит вас использовать Python для повседневных задач администрирования Linux с помощью наиболее (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:558A4DB719ECFA67051AC3B84051BB9977901519
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282751   (743173) от 13.02.2019
+
+Э. Фримен и др. | Head First. Паттерны проектирования (Обновленное юбилейное издание) (2018) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743173.jpg" />
+</div>
+
+
+###  Подробнее
+
+Больше 12 лет прошло с момента выхода первого издания книги, но она продолжает оставаться актуальной. Основные идеи не изменились, но изменился язык Java, например, появились лямбда-выражения. Поэтому авторы приняли решение обновить легендарную книгу и выпустить юбилейное издание.В мире постоянно кто-то сталкивается с такими же проблемами программирования, которые (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D75152CC37EE0F99931C448729467117BDB9B63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524838   (742144) от 17.01.2022
+
+Иван Гришаев | Clojure на производстве (2020) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Clojure? Это где скобочки и нет типов? На производстве? Всё верно. Книга расскажет о том, как строят боевые системы на этом языке: от простого к сложному, скобка за скобкой. До сих пор информацию о Clojure можно было найти только в книгах на английском и в отдельных статьях в интернете. Ситуация меняется: появилась книга о Clojure на русском, и это не перевод. Автор (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A176E5712608A10799FAC233DC6F78EE7AF3F0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Reinhard Flatischler - Mega Drums (1990) veraBra Records[APE|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316586.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Phil Woods - Round Trip (1969) Remaster, 2016, Universal[FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316582.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Red Rodney & Ira Sullivan - Spirit Within (1981) Remaster, 2013, Warner[FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316580.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Smooth Jazz All Stars - Tribute To Pink Floyd (2011) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316403.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ The Basie Bunch - Cool Too (1954 - 1958) 1999, Vanguard [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315617.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Jackie McLean - The Complete Jubilee Sessions (1955 - 1957) 2007, Lone Hill Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315549.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ The Basie Bunch - Too Marvelous For Words (1956 - 1958) 1999, Vanguard [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315528.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Jazz In Pink - Joy! (2020) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315427.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Jeff Kashiwa - Fly Away (2017) Coastal Access Music [FLAC|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315177.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Stan Getz - The Master (1975) 2017, Sony Music [FLAC|Lossless|image + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315109.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Larry Carlton + SWR Big Band - Lights On (2017) 335 Records/SWR [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315094.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Matt Bianco - Gran Via (1995) [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Sa
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314685.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Keith Jarrett - La Fenice (2018) 2CD, ECM [FLAC|Lossless|tracks + .cue] <Contemp
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314576.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ John Handy & Lee Ritenour - Where Go the Boats (1978) 1986, In-Akustik [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314526.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Eddie Condon - Jam Session Coast-To-Coast (1953) 2005, Membran Music [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314458.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ The Spitfire Sisters - Who Buys Cds Anymore? (2019) [FLAC|Lossless|WEB-DL|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314304.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Club Des Belugas - Fishing For Zebras (2014) [FLAC|Lossless|WEB-DL]<Nu Jazz, Ele
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313813.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Sonny Rollins - Solid (1954) 2002, Past Perfect [FLAC|Lossless|tracks + .cue] <B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313699.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Karen Souza - Hotel Souza (2012) [FLAC|Lossless]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313605.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Mose Allison - Middle Class White Boy (1982) 2013, Warner Music [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312793.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ The Johnny Coles Quartet - The Warm Sound (1961) 2016, Sony Music [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312792.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Stan Kenton - The Complete Capitol Studio Recordings Of Stan Kenton 1943-47 (199
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312784.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Steve Grossman - Live At Cafe Praga (1990) 2015, Timeless Records[FLAC|tracks+.c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312642.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Sonny Rollins - Way Out West (1957) 2000, Fantasy[FLAC|tracks+.cue]<Hard Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312641.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Vaya Con Dios - Vaya Con Dios (1988) [FLAC|tracks+.cue]<Soft Rock, Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312544.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ The J.J. Johnson Sextet - Really Livin' (1959) Remaster, 2015, Sony Music[FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312329.jpg" />
 </div>
 
 

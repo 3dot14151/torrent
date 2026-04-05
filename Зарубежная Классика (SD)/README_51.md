@@ -1,3 +1,55 @@
+###  Публикация: 216965   (643902) от 08.07.2010
+
+Шелест / Фру-Фру / Frou-Frou (1955) [H.264] DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шестнадцатилетняя Антуанетта (Дени Робен) по прозвищу Фру-Фру продает цветы в ресторане. Как-то, очаровав компанию мужчин своей непосредственностью, она получает от них интересное предложение: русский князь Владимир Преображенский (Джино Черви), итальянский граф, полковник (Луи де Фюнес) и богатый предприниматель Сабатье обещают содержать её, предоставить ей все необходимое для роскошной жизни, апартаменты, кареты, если Фру-Фру согласится принимать их у себя по определённым дням и позволит им заниматься своим воспитанием и образованием. При этом близких отношений между ними быть не может, и господа обязаны скрывать нежные чувства к ней, если таковые возникнут. Другими словами четверо скучающих мужчин нашли себе развлечение в виде простой девушки и хотят сделать из неё светскую львицу. Фру-Фру соглашается. Мужчины составляют план посещений, и каждый начинает воспитывать её в соответствии со своими представлениями. Наконец, преподав ей уроки хороших манер и французской истории, покровители решают вывести её в свет (   Читать дальше...)Жанр: драмаРежиссер: Августо Дженина / Augusto GeninaВ ролях: Дени Робен / Dany Robin, Джино Черви / Gino Cervi, Филипп Лемер / Philippe Lemaire,Перевод: Оригинальный, Профессиональный (многоголосый, закадровый)Формат: Matroska
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD75DB1641E78FBFEB2DEA9EF1D6DA92D96A0932
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030722   (643676) от 08.07.2016
+
+Куантес / Quantez (1957) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643676.jpg" />
+</div>
+
+
+###  Подробнее
+
+Банда под предводительством Хеллера ограбила банк и, скрываясь от погони, остановилась переночевать в заброшенном городке под названием Куантес. И тут уже в голове каждого из налётчиков начала созревать идея как бы завладеть деньгами, не поделившись с остальными, прихватив в придачу еще и красавицу Чейни. К тому же городок Куантес находился на территории апачей, (   Читать дальше...   )Производство: США / Universal International Pictures (UI or U-I)Жанр: ВестернРежиссер: Гарри КеллерАктеры: Фред МакМюррэй, Дороти Мэлоун, Джеймс Бартон, Сидни Чаплин, Джон Гэвин, Джон Ларч, Майкл Ансара, Чарльз СолданиПеревод: Одноголосый закадровый (Ю.Медведев)Субтитры: ОтсутствуютПродолжительность: 01:20:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE6B84ABEE2EB60833233A6C16D3F14D066C98B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030467   (643668) от 08.07.2016
 
 Дьявол в 4 часа / The Devil at 4 O'Clock (1961) DVDRip [H.264]
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643668.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643539.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643347.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642778.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642565.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642079.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642036.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642030.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641688.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641575.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641477.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641468.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640930.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640596.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640194.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640140.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_640090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_640090.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639934.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639880.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639639.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639449.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639077.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638372.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638358.jpg" />
 </div>
 
 
@@ -625,59 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7928528E99AAC36221EC2568709186EA93F33A66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 217709   (638353) от 11.07.2010
-
-Счастливчики / Les Veinards / People in Luck (1963) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638353.jpg" />
-</div>
-
-
-###  Подробнее
-
-Антуан Борпэр, владелец небольшого магазинчика в Лиможе, выиграл большой приз в национальной лотерее 100 миллионов франков. Вместе с женой и дочкой он отправляется за призом в Париж.
-Получив приз в виде денежной массы, он сложил всё в чемоданчик, с которым нигде не расставался. Но ему постоянно мерещится, что за ним следят, что его хотят ограбить. И он решает поместить (   Читать дальше...   )Жанр: комедияРежиссер: Филипп де Брока / Philippe de Broca, Жан Жиро / Jean Girault, Жак Пиното / Jacques PinoteauВ ролях: Френс Англаде (Corinne), Франсис Бланш (Bricheton, le gagnant du repas), Бланшетт Брюнуа (Mme Beaurepaire), Даниэль Секкальди (Gros nounours), Ивонн Клеш (Elise Flavigny), Geneviève Cluny (Patricia Paddington), Клодин Костер (Virginie), Дарри Коул (Simon Taquet), Мирей Дарк (Jacqueline), Луи де Фюнес (Antoine Beaurepaire), Пьер Дори (Sam Chips), Жак Иллинг (Le (   Читать дальше...   )Перевод: Оригинальный, Авторский (Козлов Сергей)Формат: MatroskaПродолжительность: 01:37:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF97A21FF3D983D66688989F0E790BAD3B34F55D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031244   (637930) от 11.07.2016
-
-Малыш из Бруклина / The Kid from Brooklyn (1946) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637930.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скромный молочник Берли Салливан случайно посылает в нокаут пьяного чемпиона по боксу Спида Макфарлейна, клеившегося к его сестре. Этот эпизод резко меняет жизнь Берли…Производство: США / Samuel Goldwyn Company, Trinity ProductionsЖанр: Мьюзикл, КомедияРежиссер: Норман З. МакЛеодАктеры: Дэнни Кэй, Вирджиния Майо, Вера-Эллен, Стив Кокран, Ив Арден, Уолтер Абель, Лайонел Стэндер, Фэй Бейнтер, Кларенс Колб, Виктор КатлерПеревод: Двуголосый закадровый (Студия «Ульпаней Эльром»)Субтитры: ОтсутствуютПродолжительность: 01:53:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DFBF0F0F64EB74DA67AC4663E2AF29B7D79C1AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

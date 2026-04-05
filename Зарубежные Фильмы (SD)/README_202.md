@@ -1,56 +1,3 @@
-###  Публикация: 1276546   (788030) от 16.01.2019
-
-Враг общества №1 / Public Enemies (1996) DVDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788030.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основу фильма легла реальная история банды Кейт Баркер и ее сыновей, наводивших ужас на банки во времена Великой депрессии. Кейт, мать четверых сыновей, и ее муж не в состоянии справиться с глубокой бедностью.
-Первое убийство, совершенное в порыве ярости, спровоцированное обманом, положило начало череде жестоких и дерзких преступлений. Банда, не знающая ни страха, (   Читать дальше...   )Производство: США / American World PicturesЖанр: Триллер, Драма, КриминалРежиссер: Марк Л. ЛестерАктеры: Тереза Расселл, Дэн Кортезе, Гэвин Харрисон, Джозеф Линдси, Джеймс Марсден, Фрэнк Сталлоне, Алисса Милано, Грант Крамер, Эрик Робертс, Джо Дэйн, Леа Бест, Чип Хеллер, Том Уорд, Ричард ИденПеревод: Профессиональный (многоголосый закадровый), авторскийСубтитры: ОтсутствуютПродолжительность: 01:31:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC47ABF7DF50E5FE37235413CD49171D7FF1573C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203497   (788004) от 02.02.2018
-
-Скайлайн 2 / Beyond Skyline (2017) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788004.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире — хаос и паника. Небо закрыли нависающие над городами космические корабли, которые через огромные столпы света затягивают к себе на борт тысячи людей прямо с улиц. Чтобы найти похищенного сына, бесстрашному детективу придётся проникнуть на корабль агрессивных пришельцев, отбить атаку этих разъярённых тварей и... попытаться вернуть планету землянам.Производство: Сингапур, Индонезия, Китай, Великобритания, Канада, США / Beyond The Mothership, Head Gear Films, Hongmaisui International Culture (Beijing) Co.Жанр: Ужасы, Фантастика, Боевик, ТриллерРежиссер: Лайам О’ДоннеллАктеры: Фрэнк Грилло, Бояна Новакович, Ико Уайс, Каллэн Мулвей, Валентайн Пайен, Бетти Гэбриел, Джек Чоссе, Кевин О’ДоннеллПеревод: Дублированный (BD RUS)Субтитры: отсутствуютПродолжительность: 01:46:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A79FB4AAE4A612E0F1693DF8D8FC714D873D61A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202786   (787976) от 02.02.2018
 
 Вечный день Валентина / Valentine's Again (2017) WEB-DLRip [MVO]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787976.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787969.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787941.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787927.jpg" />
 </div>
 
 
@@ -163,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787926.jpg" />
 </div>
 
 
@@ -189,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787925.jpg" />
 </div>
 
 
@@ -215,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787922.jpg" />
 </div>
 
 
@@ -241,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787921.jpg" />
 </div>
 
 
@@ -268,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787786.jpg" />
 </div>
 
 
@@ -294,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787777.jpg" />
 </div>
 
 
@@ -320,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787771.jpg" />
 </div>
 
 
@@ -346,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787763.jpg" />
 </div>
 
 
@@ -372,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787674.jpg" />
 </div>
 
 
@@ -398,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787673.jpg" />
 </div>
 
 
@@ -424,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787652.jpg" />
 </div>
 
 
@@ -451,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787548.jpg" />
 </div>
 
 
@@ -477,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787521.jpg" />
 </div>
 
 
@@ -503,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787508.jpg" />
 </div>
 
 
@@ -529,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787493.jpg" />
 </div>
 
 
@@ -555,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787491.jpg" />
 </div>
 
 
@@ -581,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787481.jpg" />
 </div>
 
 
@@ -607,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787439.jpg" />
 </div>
 
 
@@ -633,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787310.jpg" />
 </div>
 
 
@@ -659,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787296.jpg" />
 </div>
 
 
@@ -670,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCD7B1C6DC7CC28C3439ACE937D9FAA8CB961AF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512197   (787292) от 24.11.2021
+
+Аннетт / Annette (2021) HDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие развернётся в Лос-Анджелесе. По сюжету Генри работает стендап-комиком, а его супруга Энн — певицей. Они представляют собой идеальную пару, привыкшую сверкать в свете софитов и вести гламурный образ жизни. Но всё меняется после рождения их первого ребёнка Аннетт — таинственной девочки, которой уготована необычная судьба.Производство: Франция, Бельгия, Германия, США, Япония, Мексика, Швейцария / CG Cinema, ARTE, Arte France CinemaЖанр: Мюзикл, драма, мелодрамаРежиссер: Леос КараксАктеры: Адам Драйвер, Марион Котийяр, Саймон Хелберг, Девин Макдауэлл, Анжель, Кико Мидзухара, Натали Джексон Мендоса, Синай Бавурхе, Франциска ГроманнПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: Русский, АнглийскийСубтитры: Русские (forced, full), Английские (forced, SDH)Продолжительность: 02:20:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4695CABAF7C01AAD82AFA94EE7E85B44A88255C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459936   (787283) от 24.11.2021
+
+Роковое число 23 / The Number 23 (2007) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787283.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сотрудник службы по отлову бездомных животных Уолтер Спэрроу берется за чтение загадочного романа "Номер 23", который подарила ему на день рождения его жена Агата. В итоге тихая и спокойная жизнь Уолтера превращается в невыносимые муки, которые могут привести и его, и близких ему людей к самому печальному концу. А виной всему – число 23. Дело в том, что (   Читать дальше...   )Производство: СШАЖанр: Триллер, Драма, ДетективРежиссер: Джоэл ШумахерАктеры: Джим Керри, Вирджиния Мэдсен, Логан Лерман, Дэнни Хьюстон, Линн Коллинз, Рона Митрэ, Мишель Артур, Марк Пеллегрино, Пол Батчер, Дэвид Стифел, Кори Столл, Эд Лоутер, Патриция БелчерПеревод: Профессиональный многоголосыйПродолжительность: 01:41:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2321B0258BF9181075B6EA8F31EC5CDFB46FA33
 ```
 
 https://mybot314.ru/tekegram_catalog/

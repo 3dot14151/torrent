@@ -1,32 +1,3 @@
-###  Публикация: 743981   (969954) от 12.01.2014
-
-Ambra – Honour & Glory (2003) [DTS 5.1 44.1 /16 | .wav+.cue (SACD)] <new age, electronic, ambient>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969954.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. From Dawn 01:20
-2. Spirit Of Silence 02:52
-3. Signs Of Love 07:12
-4. Walking In The Air 05:19(   Читать дальше...   )Жанр: new ageПродолжительность: 00:54:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFC829BB68B23725A93383E9A73468680061E162
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 976326   (968655) от 18.01.2016
 
 Аквариум - 3 альбома (Белый альбом; Радио Африка; Равноденствие) (1987-1988) [FLAC 2.0 24/192] image + .cue (Vinyl-Rip) <Rock>
@@ -35,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968655.jpg" />
 </div>
 
 
@@ -61,7 +32,7 @@ David Bowie - Blackstar (2016) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Experimental 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968525.jpg" />
 </div>
 
 
@@ -90,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>DVD-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966533.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ The Alan Parsons Project - The Turn Of A Friendly Card (1980) [FLAC 2.0|96/24|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965548.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962043.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Deep Purple - The House Of Blue Light (Дом голубого света) (1987
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958184.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ George Harrison - My Sweet Lord / Isn’t It A Pity (1970) [FLAC 2.0 24/96|track
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957828.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Fleetwood Mac - Tusk (Deluxe edition) (1979/2015) [DTS 5.1|44.1 /16|image+cue|Au
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957106.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Scorpions - Taken By Force (1977) [Vinyl Rip 24Bit/96kHz]<Classic Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955211.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Scorpions - Sting In The Tail (2010) [Vinyl Rip 24Bit/192kHz]<Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955140.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954562.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Deep Purple - Burn (1974) 1976, Warner Bros. [FLAC 2.0|192/24|image + .cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954372.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ VA - RETROспектива, часть I: Эстрадные оркестры (1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953579.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ U.D.O. (UDO) - Mean Machine (1988), RCA [FLAC 2.0|192/24|image + cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952709.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Deep Purple - Fireball (1971) [FLAC 2.0|96/24|image|Vinyl-Rip]<Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951243.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Triumvirat - 3LP (1975-1978) [FLAC 2.0|192/24|Lossless|image + .cue|Vinyl-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948933.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948647.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ VA - RETROспектива, часть III: Эстрадные оркестры 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948575.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ VA - RETROспектива, часть IV: Эстрадные оркестры I
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948567.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Chris Rea - 9 Albums (1979-1989) [WavPack 2.0|192/32|image + .cue|Vinyl-Rip] <Po
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948549.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Yello - The New Mix In One Go (Upmix) (1980-1985) [DTS]<Electro, Synth-pop>
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947635.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ Annie Lennox - Diva (1992) Unofficial Release [FLAC 2.0|192/24|image + .cue|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947206.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ Phil Collins - ...But Seriously (1989)  Incomplete version /1992, DRT/ [FLAC 2.0
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947050.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ VA - RETROспектива, часть V: Эстрадные оркестры V 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945504.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ Black Sabbath - Группа Блэк Саббат (1989) [FLAC 2.0|192/24|track
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943614.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ Black Sabbath - Группа Блэк Саббат (1989) [FLAC 2.0|192/24|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4F7CA1DFB055F827D8A4D5B3632AE2936C4CE02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983450   (943612) от 06.02.2016
+
+Dire Straits - Dire Straits (1978) Phonogram [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Down To The Waterline
+02 - Water Of Love
+03 - Setting Me Up
+04 - Six Blade Knife(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AB81131B695136D0A311CD203087858A122DDC0
 ```
 
 https://mybot314.ru/tekegram_catalog/

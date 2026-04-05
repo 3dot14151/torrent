@@ -1,3 +1,110 @@
+###  Публикация: 1674128   (62394) от 20.03.2024
+
+Background Video Recorder Pro v10.0.11 Mod by srajawwal09 [Ru/Multi]
+
+>>След.
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62394.jpg" />
+</div>
+
+
+###  Подробнее
+
+Background Video Recorder Pro — это приложение, которое помогает записывать видео также в фоновом режиме. он имеет много полезных функций, например: обнаружение движения, наблюдение за ребенком, запись по расписанию и захват изображения. вы даже можете использовать кнопки громкости или множество вспомогательных виджетов для управления камерой.Тип издания: ProРелиз состоялся: 19.03.2024Разработчик: Arbel SolutionsПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7346DEB12BFA37ED1F6669921FB1526D1B93A58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599643   (62387) от 20.03.2024
+
+Photomath v8.36.0 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научитесь решать математические задачи, проверять домашние задания и готовиться к предстоящим экзаменам и экзаменам ACT / SAT с помощью самого популярного в мире учебного ресурса по математике. Более 100 миллионов загрузок и миллиарды решенных задач каждый месяц!Тип издания: FullРелиз состоялся: 18.03.2024Разработчик: Photomath, Inc.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04FFFF07FCE51306DBE37272C7DE0BE34B167269
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708314   (62362) от 20.03.2024
+
+Справочник электрика v77.7 Mod by derrin  [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62362.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для всех тех, чья деятельность связана с электричеством. Для профессионалов и любителей. Данное приложения является своеобразным трамплином для дальнейшего изучения электротехники.
+В приложении присутствуют 4 категории:
+1. Теория
+2. Схемы(   Читать дальше...   )Тип издания: AdFreeРелиз состоялся: 19.03.2024Разработчик: SergeiVПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2E19C1B6825526B0518CC5874ACBFF53664BABE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708323   (62323) от 20.03.2024
+
+Pencil Photo Sketch : Drawing v2.0.69 Mod by PieMods [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pencil Photo Sketch - профессиональное приложение для редактирования фотографий. Вы станете настоящим мастером по созданию карандашных набросков из ваших фото. Pencil Photo Sketch - профессиональное приложение для обработки изображений, превращающее ваши фотографии в черно-белые или цветные карандашные рисунки. Выберите фото из галереи или сделайте снимок и сгенерируйте (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 19.03.2024Разработчик: Minerva Studios Private LimitedПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C6B95CCF25C8E619D29D91C5289F805C643056C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708535   (62257) от 21.03.2024
 
 Blur Photo v6.2 Mod by Dymonyxx [En]
@@ -6,7 +113,7 @@ Blur Photo v6.2 Mod by Dymonyxx [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62257.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ GIF Maker - GIF Editor 1.8.9 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62238.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ PrinterShare Mobile Print v12.14.10 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62066.jpg" />
 </div>
 
 
@@ -84,7 +191,7 @@ Aibi: AI Photo Enhancer-Luminate v1.52.1 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62050.jpg" />
 </div>
 
 
@@ -110,7 +217,7 @@ Thenx v5.50 [En] Mod by youarefinished
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62019.jpg" />
 </div>
 
 
@@ -136,7 +243,7 @@ CapCut - Video Editor v11.5.0 b11100500 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61883.jpg" />
 </div>
 
 
@@ -162,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61876.jpg" />
 </div>
 
 
@@ -188,7 +295,7 @@ PicWish: AI Photo Editor v1.6.8 Mod by Raju054 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61875.jpg" />
 </div>
 
 
@@ -215,7 +322,7 @@ ColorNote - Блокнот заметки v4.4.9 Free + Mod by  Dymonyxx [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61845.jpg" />
 </div>
 
 
@@ -241,7 +348,7 @@ Moon+ Reader Pro v9.2 (build 902004) Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61543.jpg" />
 </div>
 
 
@@ -267,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61529.jpg" />
 </div>
 
 
@@ -293,7 +400,7 @@ BZ Напоминания и Дни Рождения PRO v3.3.7 Mod by Alex.Stra
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61480.jpg" />
 </div>
 
 
@@ -319,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61479.jpg" />
 </div>
 
 
@@ -345,7 +452,7 @@ Picsart AI Photo Editor, Video v24.6.4 Final Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61183.jpg" />
 </div>
 
 
@@ -371,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61096.jpg" />
 </div>
 
 
@@ -399,7 +506,7 @@ DailyRoads Voyager v8.1.1 (54) Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61076.jpg" />
 </div>
 
 
@@ -425,7 +532,7 @@ YouTube ReVanced Extended 19.11.38 (RVP v2.223.0) Mod by Number one' + microG Gm
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60898.jpg" />
 </div>
 
 
@@ -451,7 +558,7 @@ BZ Напоминания и Дни Рождения PRO v3.3.10 Mod by Eco19 [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60873.jpg" />
 </div>
 
 
@@ -477,7 +584,7 @@ IPTV Pro v7.1.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60581.jpg" />
 </div>
 
 
@@ -503,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60567.jpg" />
 </div>
 
 
@@ -529,7 +636,7 @@ AI Translate Voice Translator (Talkao) v389.0 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60566.jpg" />
 </div>
 
 
@@ -555,7 +662,7 @@ Weather app - eWeather HDF v8.8.4 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60565.jpg" />
 </div>
 
 
@@ -567,113 +674,6 @@ eWeather HDF - это точный прогноз погоды от двух м�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12F03519D586107B075B9C41EF40DE23A56C32B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713527   (60545) от 06.04.2024
-
-GPS Локер Prime v2.4.4 Paid [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60545.jpg" />
-</div>
-
-
-###  Подробнее
-
-GPS Локер создан для того чтоб не терять фиксацию сигнала GPS при переключении между прилжениями и при выключенном экране вашего устройства. Так-же он помогает быстрее получить фиксацию сигнала GPS. Где это может быть полезно:
-- В мобильных играх которые используют в игровом процессе GPS навигацию.
-- GPS Локер будет полезен тем кто пользуются GPS навигацией (к примеру, (   Читать дальше...   )Тип издания: Prime / PaidРелиз состоялся: 21.08.2023Разработчик: SilentLexx UAПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9728CEF1647F2B63F94EA3F613798450838A4504
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649745   (60498) от 07.04.2024
-
-Аналоговые Часы Конструктор v6.3 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Минималистичный виджет часов для рабочего стола вашего смартфона. Удобные аналоговые часы с возможностью настройки внешнего вида виджета. Поддерживают озвучивание текущего времени.Тип издания: Pro / ModРелиз состоялся: 04.04.2024Разработчик: StyleSeven.comПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6827DAAA707064FA31D9FAE639A534A2A8E79AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713819   (60492) от 07.04.2024
-
-SnapTube - YouTube Downloader VIP v7.17.0.71750910 Final Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение для просмотра и скачивания роликов с YouTube Snaptube c различным разрешением видео и аудиоформаты в MP3 или M4A.Тип издания: VIP / ModРелиз состоялся: 03.04.2024Разработчик: Snap tubeПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти (26)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BFF618AA2962EB6A6769D29145EE91BA85B3C73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713816   (60448) от 07.04.2024
-
-OsmAnd+ — Карты & GPS Офлайн v4.7.6 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60448.jpg" />
-</div>
-
-
-###  Подробнее
-
-OsmAnd+ - это приложение с картами всего мира на основе OpenStreetMap (OSM). Позволяет осуществлять навигацию с учётом предпочитаемых дорог и габаритов транспортного средства. Планировать маршруты с учетом уклонов и записывать GPX треки без подключения к интернету.
-OsmAnd+ является приложением с открытым исходным кодом. Мы не собираем данные о пользователях и вы (   Читать дальше...   )Тип издания: Extra ModРелиз состоялся: 05.04.2024Разработчик: OsmAndПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B82BDBD4C59AE20567CA534FFE810623FE6EFD57
 ```
 
 https://mybot314.ru/tekegram_catalog/

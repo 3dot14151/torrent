@@ -6,7 +6,7 @@ VA - Лучшие песни 1969-1980 В.И.А. 70-х Vol.3 (1995) [MP3|320 Kbp
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203936.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201635.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA – Мамина пластинка 2. Лучшие хиты 70х-80х (2003)
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201614.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200501.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192935.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174335.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Ретро Шлягер Новогодний (2006) [MP3|320 Kbps] <Рет�
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173814.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172600.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168861.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167340.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Эти песни запевает молодёжь - Любимые пес
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166850.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159743.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Хит-парад 70-х. Выпуск 2 (1998) [MP3|320 кб/с] <Сове�
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158591.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Новогодний подарок (2005) [MP3|320 Kbps] <Ретро>
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154109.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138719.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118142.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115999.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106456.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100598.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Рождественский романс (2015) [MP3|320 Kbps] <Роман
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100589.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Georgia Gibbs - The Complete Original Hits Of Georgia Gibbs (2007  (1950-1958)) 
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97705.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ VA - Romantic Collection Disco 80 vol. 2 (2012) [MP3|256 kbps]<Disco>
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85175.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ VA - XXXL Золотые 80-е Русский (2012) [MP3|224-256 kbps]<Pop>
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84951.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ VA - Диско 80-х - Кумиры восьмидесятых. Выпуск 50
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83920.jpg" />
 </div>
 
 
@@ -726,7 +726,7 @@ VA - Родные хиты семидесятых (2012) [MP3|320 кб/с]<Pop>
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83905.jpg" />
 </div>
 
 
@@ -761,7 +761,7 @@ VA - Звёзды царской эстрады (приложение к кни�
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83458.jpg" />
 </div>
 
 

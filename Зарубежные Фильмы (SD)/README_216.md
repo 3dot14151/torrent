@@ -1,55 +1,3 @@
-###  Публикация: 1278467   (771306) от 25.01.2019
-
-Богемская рапсодия / Bohemian Rhapsody (2018) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771306.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чествование группы Queen, их музыки и их выдающегося вокалиста Фредди Меркьюри, который бросил вызов стереотипам и победил условности, чтобы стать одним из самых любимых артистов на планете. Фильм прослеживает головокружительный путь группы к успеху благодаря их культовым песням и революционному звуку, практически распад коллектива, поскольку образ жизни Меркьюри (   Читать дальше...   )Производство: Великобритания, США / GK Films, New Regency Pictures, Queen Films Ltd.Жанр: Биография, Драма, МузыкаРежиссер: Брайан СингерАктеры: Рами Малек, Люси Бойнтон, Гвилим Ли, Бен Харди, Джозеф Маццелло, Эйдан Гиллен, Аллен Лич, Том Холландер, Майк Майерс, Аарон МакКаскер ...Перевод: Дублированный (iTunes)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (forced, full), Украинские (forced, full), Английские (SDH Colored) | Отдельными файламиПродолжительность: 02:15:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B0681CFAC9AAFFEE5719BC97C1ED747086E79C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278518   (771208) от 25.01.2019
-
-Репродукция / Replicas (2018) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771208.jpg" />
-</div>
-
-
-###  Подробнее
-
-Талантливый учёный-биолог теряет в автокатастрофе свою семью. Одержимый желанием вернуть к жизни жену и детей, он преступает законы научной этики и самой природы.Производство: США, Company Films, Di Bonaventura Pictures, Riverstone PicturesЖанр: Фантастика, ТриллерРежиссер: Джеффри НачманоффАктеры: Киану Ривз, Элис Ив, Эмили Элин Линд, Эмджей Энтони, Джон Ортис, Томас Миддлдитч, Эмбер Таунсенд, Няша Хатенди, Ария Лайрик Либу, Эмбер Ривера ...Перевод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:42:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D14BCC6420E1A8BDB5D7A18F2EE6BF8DEA03D0E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278071   (771198) от 25.01.2019
 
 Репродукция / Replicas (2018) WEBRip [MVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771198.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771197.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771086.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771072.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771008.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770998.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770992.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770949.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770943.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770937.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770887.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770606.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770578.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770492.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770194.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770075.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770039.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770036.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_770007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_770007.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770006.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770000.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769738.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769732.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769730.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F029BFD714E3E9E49990F85986D7FE24B1EBE3A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 886004   (769676) от 09.04.2015
+
+Чем дальше в лес... / Into the Woods (2014) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769676.jpg" />
+</div>
+
+
+###  Подробнее
+
+Золушка мечтает попасть на бал, Пекарь, когда-то проклятый Ведьмой, и его Жена горюют о том, что у них нет ребенка, Джек хочет, чтобы его корова Беляночка наконец-то дала молоко, его Мать мечтает быть богатой, а Красной Шапочке очень нужен каравай хлеба — гостинец (   Читать дальше...   )Производство: СШАЖанр: Мьюзикл, Фэнтези, Комедия, СемейныйРежиссер: Роб МаршаллАктеры: Мэрил Стрип, Эмили Блант, Джонни Депп ...Перевод: Дублированный (iTunes)Язык субтитров: РусскийПродолжительность: 02:04:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8288C3C2E5AAA18107333EF7CB67BB53C2A830AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 886521   (769672) от 09.04.2015
+
+Пятьдесят оттенков серого / Fifty Shades of Grey (2015) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анастейша Стил — скромная студентка, живущая вместе с близкой подругой-сокурсницей Кейт. За неделю до выпускного в университете, Анастейша, по просьбе заболевшей Кейт заменить её, берёт интервью у молодого красавца-миллиардера Кристиана Грея. Интервью складывается не очень удачно, и Анастейша не думает, что они когда-либо встретятся вновь. Неожиданно Грей появляется (   Читать дальше...   )Производство: США, Michael De Luca Productions, Focus FeaturesЖанр: Драма, мелодрамаРежиссер: Сэм Тейлор-ДжонсонАктеры: Джейми Дорнан, Дакота Джонсон, Дженнифер Или, Люк Граймс, Виктор Расук, Элоиза Мамфорд, Марша Гей, Харден Рита, Ора Макс Мартини Каллум, Кит РенниПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 02:05:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE080551B977F5F905D761A3FD6C56852E6CDF58
 ```
 
 https://mybot314.ru/tekegram_catalog/

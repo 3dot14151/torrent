@@ -6,7 +6,7 @@ Wing IDE Pro 7.0.3.0 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550008.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SDL Passolo Professional 2015 SP1 15.1.316.0 [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508805.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ SoMachine 4.1 SP1.2 [Multi]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504076.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Turbo Pascal for Windows 1.5 [Английский]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475556.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Microsoft .NET Framework 4.8.1 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454913.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ EMCO MSI Package Builder Enterprise 5.2.9.3741 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439553.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Java SE Development Kit 18.0.2.1 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438053.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Sybase PowerDesigner 16.5.0.3982 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437294.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Pascal ABC.NET 1.8 build 496 [Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_410951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_410951.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ NVIDIA Nsight Visual Studio Edition 2.2.0.12255 [English]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_396696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_396696.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ IDA Pro 7.0 2017 Incl. Hex-Rays Decompilers [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371225.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ DevelNext 16.7.0 [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313789.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Microsoft Visual C++ 2015 Redistributable Package 14.0.23506 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294287.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ JetBrains GoLand 2019.2.5 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267884.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Intel Parallel Studio XE Cluster Edition 2019 Update 1 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265571.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ SQL Dynamite 2.5.3.0 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261659.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Microsoft  Visual C++ Runtimes AIO v0.103.0 x86-x64 Repack by abbodi1406 [Multi/
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261546.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ JetBrains dotUltimate 2025.2.3 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_261331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_261331.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Microsoft Visual Studio 2026 Enterprise 18.0.1 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259851.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.21 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259840.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Microsoft Visual Studio 2026 Professional 18.0.0 [11205.157] (Offline Cache) [Ru
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256804.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Microsoft Visual Studio 2026 Enterprise 18.0.0 [11205.157] (Offline Cache) [Ru/E
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256803.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.20 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255903.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Microsoft Visual Studio 2022 Professional 17.14.20 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255902.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ JetBrains Rider 2023.1 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255363.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ JetBrains WebStorm 2023.1 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255362.jpg" />
 </div>
 
 

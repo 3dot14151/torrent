@@ -7,7 +7,7 @@ BioWare | Артбук по играм Mass Effect / The Art of the Mass Effect 
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048784.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ John O'Bryan | Артбук Звери четырех наций / Beasts of the
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048537.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Michael Witwer и др. | Артбук по играм Dungeons & Dragons / Dung
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048534.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Geoff Truscott| Мифология Elden Ring. Дар благодати / Grace
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048533.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ id Software | Артбук по игре DOOM: The Dark Ages / The Art of DOOM: 
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047579.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045259.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Tara Bennett, Paul Terry | Артбук Создание фильма "Боль�
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045036.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Blue Byte | Артбуки по играм Anno 2070, 2205, 1800 / The Art of An
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044795.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Mattel | Артбук по мультсериалу Хи-Мэн и Власте�
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044509.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Disney | Артбук по игре Disney Mirrorverse / The World of Disney Mir
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044490.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Mattel | Артбук по мультсериалу Властелины все�
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044485.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ PixelOpus | Артбук по игре Concrete Genie / The Art of Concrete Geni
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041424.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Zack Davisson | Артбук по мультсериалу Звёздные во
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041366.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Dynamite | Артбук по комиксу Рыжая Соня / Red Sonja 35th
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041319.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Astrum Nival | Артбук по игре Аллоды Онлайн / Allods Onl
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040308.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Artbook - The Art of Alice Madness Returns + Posters [RUS] [PDF]
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040015.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038828.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038820.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035689.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035682.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Egmont Russia | Детские комиксы 90х годов XX века (1990-
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034057.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Sarah Rodriguez | Артбук по играм студии Halfbrick / The Art 
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033922.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032913.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ TMS Entertainment | Артбук по мультфильмам Люпен III / 
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032772.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Cinergi Pictures | Артбук по фильму Судья Дредд / The Ar
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032499.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Keith Richardson | Артбук по комиксам Судья Дредд / Th
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032491.jpg" />
 </div>
 
 

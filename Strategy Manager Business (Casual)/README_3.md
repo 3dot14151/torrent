@@ -6,7 +6,7 @@ Rainblood: Town of Death (P) [En] 2010
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_334603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_334603.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Production Line (2017) [Multi] (1.81/dlc) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308786.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Serious Sam: The Random Encounter (2011) [En] (13.11.2015) Repack R.G. Меха�
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304594.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299005.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Lost Artifacts 5: Frozen Queen / Кладоискатели 5: Снежная к
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290718.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Kingdom Rush: Frontiers (2016) [Ru/Multi] (1.3.4/dlc) Repack Other s
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289278.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Gnomes Garden 4: New Home / Сад Гномов 4: Новый Дом (2016) [Ru]
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276831.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Aerie - Spirit of the Forest / Эри - дух леса (P) [Ru] 2010
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274585.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Alice's Wonderland: Cast In Shadow / Алиса в стране чудес: Те
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272283.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Hermes 2: War of the Gods / Гермес 2: Война богов (2019) [Ru] (1
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269482.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ How To Frazzle Out A Neighbor Tycoon's Vacation  / Как достать сос�
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257331.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Toy Defense / Солдатики (L) [Ru] 2012
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255982.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Weather Lord  / Повелитель погоды (L) [Ru] 2012
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253851.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Rogue Hex (2025) [Ru/Multi] (1.1.0/dlc) Repack Let'sРlay [Supporter Edition]
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250475.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Microtopia (2025) [Ru/Multi] (1.1.2f2/dlc) Repack Let'sРlay [Supporter Edition]
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250466.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Garden Defense / Огородные войны. Атака жуков (P) [Ru] 2
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248941.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Beyond the Kingdom 2 / За пределами королевства 2 (2025) [
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248619.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Undead Horde (2019) [Ru/Multi] (1.2.2) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247362.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Big Pharma (2015) [Multi] (1.07.10/dlc) Repack Others [The Healthy Profits Bundl
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217829.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Golden Rails 4: Worlds Fair / Золотые рельсы 4: Всемирная 
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211173.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Viking Heroes 3 / Герои викинги 3 (2022) [Ru] (1.0) Unofficial [Coll
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207880.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Dwarven Skykeep (2022) [Ru/Multi] (50015) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202833.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Bridge Constructor (2013) [Ru/Multi] (1.3-fix/dlc) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201975.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Plebby Quest: The Crusades (2020) [Multi] (1.61/dlc) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200625.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Academia : School Simulator (2017) [Ru/Multi] (1.0.44) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196883.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Undead Horde 2: Necropolis (2023) [Ru/Multi] (1.0.5) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196521.jpg" />
 </div>
 
 

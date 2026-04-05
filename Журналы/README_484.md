@@ -1,3 +1,134 @@
+###  Публикация: 966473   (218979) от 18.12.2015
+
+Газета | Новогодние и рождественские обычаи и традиции (2015) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218979.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная газета является специальным выпуском газеты "Обереги".
+В номере: украшение квартиры и новогодние угощения; новогодние приметы и рождественские гадания, гороскоп и масса всего того, что нужно успеть сделать в уходящем году и достойно встретить новый год!Жанр: ДомоводствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AD57515F77007116A29AD55F682FE23AEE16717
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 737367   (218954) от 22.12.2013
+
+Журнал | Мой прекрасный сад [Россия] №1 (январь 2014) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессиональный и доброжелательный советчик для тех, кто стремится жить в гармонии с природой. Центральные темы издания — планировка и оформление сада, ландшафтный дизайн и садовые стили, оптимальный выбор растений и уход за ними, сезонные практические советы садоводам. Большое внимание уделяется и комнатным растениям, которые используются для оформления жилых и (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A10F9948DBB8FFEB69C3C4EBA036A67F0E82F633
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966751   (218953) от 18.12.2015
+
+Газета | Сад, огород – кормилец и лекарь. Спецвыпуск №23 (119) (Декабрь 2015) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый спецвыпуск издания "Сад, огород – кормилец и лекарь" посвящен определенной теме, волнующей читателей. На их письма отвечают специалисты и журналисты. А также сами читатели делятся опытом и дают мудрые советы.Жанр: Дача, сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5531E904B932C0F199C43F713744880C0E19ACDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966417   (218919) от 18.12.2015
+
+Газета | Заготовки с нашей сотки №9 (2015) [DJVU]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218919.jpg" />
+</div>
+
+
+###  Подробнее
+
+Будучи пресной, еда часто невкусная. Блюдо становится интересным благодаря приправам и соусам. Сегодня речь пойдет о распространенных в домашнем консервировании овощных закусках и соусах: аджике, лечо, кетчупе и овощной икре. Они интересны сами по себе, в качестве отдельного лакомства, и неизменно придают блюду новое звучание.Жанр: КулинарияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E9B4CF1423F08D6DD018D74D7932BFD1C7B0E3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084910   (218914) от 19.12.2016
+
+Журнал | Forbes [Россия] №4 (145) (Апрель 2016) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218914.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Forbes» - влиятельный журнал о бизнесе, экономике, финансах, карьере и стиле жизни, который имеет непосредственный доступ к политикам и первым лицам компаний, получая информацию от самых осведомленных источников. Издание публикует авторитетные рейтинги, пишет о российском бизнесе, успешных предпринимателях и инвестициях.Жанр: Деловой журнал, Бизнес и ПолитикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF73ABFF56C4C7EAD68F11744AC183EE0A10EDCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 758813   (218867) от 23.12.2014
 
 Подшивка журналов | A Radio. Prakticka Elektronika (2014) [PDF] [Cz]
@@ -6,7 +137,7 @@
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218867.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_218820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218820.jpg" />
 </div>
 
 
@@ -59,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218817.jpg" />
 </div>
 
 
@@ -85,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_218765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218765.jpg" />
 </div>
 
 
@@ -112,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218750.jpg" />
 </div>
 
 
@@ -138,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218677.jpg" />
 </div>
 
 
@@ -164,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218650.jpg" />
 </div>
 
 
@@ -190,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218615.jpg" />
 </div>
 
 
@@ -216,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218614.jpg" />
 </div>
 
 
@@ -242,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218582.jpg" />
 </div>
 
 
@@ -268,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218520.jpg" />
 </div>
 
 
@@ -294,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_218509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218509.jpg" />
 </div>
 
 
@@ -320,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218490.jpg" />
 </div>
 
 
@@ -346,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218466.jpg" />
 </div>
 
 
@@ -372,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218444.jpg" />
 </div>
 
 
@@ -398,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218403.jpg" />
 </div>
 
 
@@ -424,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218375.jpg" />
 </div>
 
 
@@ -450,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218360.jpg" />
 </div>
 
 
@@ -476,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218312.jpg" />
 </div>
 
 
@@ -503,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218277.jpg" />
 </div>
 
 
@@ -529,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218268.jpg" />
 </div>
 
 
@@ -541,138 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B4869F52B26C491DD1BB95FE5CE189C42F5C185
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425574   (218266) от 22.11.2020
-
-Журнал | Системный администратор №9 (2020) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218266.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Системный администратор» – ежемесячное издание, цель которого – предоставление максимально полной и объективной информации о решениях, продуктах и технологиях современной ИТ-отрасли.
-Главная задача издания – популяризация лучших разработок ИТ-специалистов разных стран. Девяносто процентов статей в журнале носят прикладной характер, снабжены примерами, таблицами, (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A52AC725FD24EF4C6CFA04418E8C4F52F2F13E54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425605   (218255) от 22.11.2020
-
-Журнал | Системный администратор №5 (2020) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218255.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Системный администратор» – ежемесячное издание, цель которого – предоставление максимально полной и объективной информации о решениях, продуктах и технологиях современной ИТ-отрасли.
-Главная задача издания – популяризация лучших разработок ИТ-специалистов разных стран. Девяносто процентов статей в журнале носят прикладной характер, снабжены примерами, таблицами, (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DC734EB1C53C000A2044018687AEE4FAF91ED48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588166   (218254) от 12.12.2012
-
-Журнал | Вязание модно и просто. Вяжем детям №12(58) [декабрь 2012] [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218254.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция ярких вязаных нарядов для детей в возрасте от 2 до 11 лет, в том числе для празднования Нового года. Также в номере модели теплых пальто, жилетов, пуловеров и жакетов – удобно, нарядно, красиво!Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D35F970D956042C8558A439475A1E68C9405714
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084783   (218251) от 19.12.2016
-
-Журнал | Burda №1 (Январь 2017) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218251.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание с мировым именем, хорошо известное всем женщинам, которые хотят быть образцом безупречного вкуса для окружающих. На страницах журнала Burda — самые последние тенденции мировой моды, новости с европейских подиумов, советы по стилю и модные торговые марки. Это европейская мода высокого класса.Жанр: Мода, рукоделиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:505CFE657885EA57680CE9AF86DCD0919CAE6CFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343494   (218229) от 06.12.2019
-
-Журнал | Народные рецепты - здоровье. Спецвыпуск № 6 Мужское здоровье (2019) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многие мужчины не задумываются, что за своим здоровьем надо следить, пока у них не появляются симптомы того или иного заболевания. Поэтому, чтобы нарушения мужского здоровья не стали хроническими, важно вовремя принимать меры для профилактики и лечения.Жанр: здоровьеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F147FD2A04BC9D1A6583ADF7F6515A63A458B4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

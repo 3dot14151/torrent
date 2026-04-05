@@ -1,32 +1,3 @@
-###  Публикация: 1846110   (1051246) от 06.01.2026
-
-VA - AM Gold 1967 (1991) [OGG Vorbis|480 Kbps] <Rock & Roll, Folk Rock, Soft Rock, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Fifth Dimension - Up-Up And Away
-02. The Turtles - Happy Together
-03. The Monkees - Daydream Believer
-04. The Mamas & The Papas - Dedicated To The One I Love(   Читать дальше...   )Жанр: Rock & Roll, Folk Rock, Soft Rock, Pop RockПродолжительность: 01:04:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22F554A06D60F5AE7EA4BA32E1EB1A3AC58A0638
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1846178   (1051245) от 06.01.2026
 
 VA - AM Gold 1968 (1990) Remastered, 1995, Steve Carr [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Folk, World, & Country>
@@ -35,7 +6,7 @@ VA - AM Gold 1968 (1990) Remastered, 1995, Steve Carr [OGG Vorbis|480 Kbps] <Roc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051245.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - AM Gold 1969 (1991) Remastered, 1994, Steve Carr [OGG Vorbis|480 Kbps] <Roc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051244.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - AM Gold 1966 (1990) Remastered, 1995, Steve Carr [OGG Vorbis|480 Kbps] <Roc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051197.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - AM Gold 1964 (1991) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051092.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051089.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ VA - AM Gold 1965 (1990) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051085.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ VA - AM Gold 1962 (1991) Remastered, 1994, Steve Carr [OGG Vorbis|480 Kbps] <Roc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050856.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ VA - AM Gold 1963 (1991) Remastered, 1995, Steve Carr [OGG Vorbis|480 Kbps] <Roc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050855.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ VA - This Is... Eurovision (1996) 2 CD [OGG Vorbis|480 Kbps] <Pop, Europop, Voca
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050810.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ VA - Top Pop (14 Pop-Songs) (1997) [OGG Vorbis|480 Kbps] <Electronic, Rock, Funk
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050809.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ VA - Smash Hits Of The 80's (1989) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Rock,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050760.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ VA - Dos Décadas Dance (2001) 5 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Dis
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050531.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Baby's Gang - Challenger (Deluxe Edition) (2016) [OGG Vorbis|480 Kbps] <Electron
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050357.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050319.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ VA - Venti Compilation 11 (2025) 2 CD [OGG Vorbis|480 Kbps] <Italo-Disco, Disco,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050179.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Bee Gees - Greatest (1979) 2 x CD, Compilation, Reissue, 1987, Polydor [FLAC|Los
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050112.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Greater Vision - Perfect Candidate (2000) [FLAC|Lossless|tracks + .cue] <Gospel,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050079.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Sabrina Carpenter - Man’s Best Friend (Bonus Track Version) (2025) [MP3|320 Kb
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050030.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Jessie Murph - Sex Hysteria (Deluxe) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049694.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048218.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Infinite Coles - SweetFace Killah (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048113.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047934.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ Sarah Engels - Strong Girls Club (2025) 2 x CD [FLAC 24/44.1|Lossless|WEB-DL|tra
 >>Pop (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047488.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ VA - Hooked On a Feeling - 70s Magic (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047473.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ Kylie Minogue - Kylie Christmas [Fully Wrapped] (2025) [FLAC|Lossless|WEB-DL|tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047414.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ Kylie Minogue - Kylie Christmas [Fully Wrapped] (2025) [FLAC|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB1CFC8407224AA471D31435A6369121682C6E92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840248   (1047148) от 04.12.2025
+
+VA - 70s Collection (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kate Bush - Wuthering Heights (3:25)
+02. Blue Swede - Hooked on a Feeling (2:52)
+03. Christopher Cross - Sailing (4:16)
+04. Rod Stewart - Da Ya Think I’m Sexy (5:31)(   Читать дальше...   )Жанр: PopПродолжительность: 05:22:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC049D878A4157CD9A5B62BFEC1F736BD6C4E9A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ GTA: San Andreas (2005) [PS2] [USA] [Unofficial] [Ru]
 >>PS2
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541440.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Under Night In-Birth Exe: Late (2014) [PS3] [EUR] 4.53 [Cobra ODE / E3 ODE PRO I
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540539.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ THE KING OF FIGHTERS XIII (2011) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540533.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ The Smurfs 2 (2013) [PS3] [EUR] 4.41 [Cobra ODE / E3 ODE PRO ISO] [License] [Mul
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540411.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Army of Two: The 40th Day (2010) [PS3] [EUR] 3.01 [Cobra ODE / E3 ODE PRO ISO] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540274.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Akiba's Trip: Undead & Undressed (2014) [PSVita] [USA] 3.60 [HENkaku] [License] 
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539781.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Where the Wild Things Are (2009) [PS3] [USA] 2.76 [Cobra ODE / E3 ODE PRO ISO] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538626.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Sky Force Anniversary (2016) [PS3] [USA] 4.21 [PSN] [Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537774.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Wii U
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536200.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ The Legend of Heroes: Trails of Cold Steel II (2016) [PS3] [USA] 3.55 [Cobra ODE
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535949.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535763.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Project Zero 2: Wii Edition [Wii] [PAL] [Multi 5] [Undub] (2012)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535753.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Phineas and Ferb: Across the 2nd Dimension (2011) [PS3] [USA] 3.40 [Cobra ODE / 
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534832.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Brink (2011) [PS3] [EUR] 3.60 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534830.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Nintendo 3DS ROMPack (2011-2017) [3DS] [ALL] [Decrypted] [Unofficial] [Multi] (0
 >>Ромы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534731.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Soul Sacrifice Delta (Limited Edition) (2014) [PSVita] [USA] 3.60 [HENkaku] [Rep
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534031.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Monster Hunter World Iceborne (2019) [PS4] [EUR] 5.05 [HEN] [License / 15.11 / D
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533468.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ PSA World Tour Squash (2015) [Wii] [PAL] [License] [En/Multi]
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533112.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Nail’d (2010) [PS3] [EUR] 3.50 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533025.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Color Zen (2014) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [eShop / 1.1] [En]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532345.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Velocity 2X (2014) [PSVita] [EUR] 3.60 [HENkaku] [Repack / 1.04] [Multi]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530309.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Killzone: Mercenary /  Killzone: Наемник (2013) [PSVita] [EUR] 3.60 [HENk
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530196.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Snark Busters: High Society (2014) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO]
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528831.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Street Fighter X Tekken (2012) [PSVita] [EUR] 3.60 [HENkaku] [Repack / 1.08] [Ru
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528781.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Pro Evolution Soccer 2017 (2016) [PS3] [USA] 4.21 [Repack] [Ru/En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528768.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ LEGO Indiana Jones 2: The Adventure Continues [Wii] [PAL] [Multi 6] (2009)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528025.jpg" />
 </div>
 
 

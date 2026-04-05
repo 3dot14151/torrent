@@ -1,3 +1,131 @@
+###  Публикация: 1318157   (497579) от 04.08.2019
+
+Dieter Meier ‎(Yello) - Tango For Fame (2017) Unofficial Release [FLAC|Lossless|image + .cue] <Electronic, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dieter Meier - Jim For Tango
+02. Dieter Meier - Cry For Fame
+03. Lunatica - The Edige Of Infinity
+04. The Bianca Story - Does Mani Matter(   Читать дальше...   )Жанр: Electronic, New WaveПродолжительность: 01:14:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5AA1AED5E08FC1342F826572988F73EEE2E3893
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 543165   (497550) от 04.09.2012
+
+VA - Rome Chill House Night - Chilled Grooves Deluxe Selection (2012) [MP3|320 кб/с]<Chill House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mystique - Good Times (Aperitivo Lounge Edit)
+02. United Colors of House (Can You Feel It)
+03. Brett Sinclair - Roman Holiday (Via Condotti Remix)
+04. Debby Lopez - Vida Loca (Latin House Mix)
+05. Damon Everett - Soulful Night (Ritchie and Giuliani Dub)
+06. Calvin Adam - True (Cafe Roma Instrumental)
+07. Fashion Week - Right Here Right Now (Trevi's Remix)
+08. Chill Loungers - Let the Sunshine in (DJ Ducati House Mix)
+09. Merrick Lowell - 9 Pm (Qube Extended)
+10. Scott Simmons - Children (Mediterranean Mix)(   Читать дальше...   )Жанр: Chill House, Deep HouseПродолжительность: 01:42:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:281848096ED3902CF445F1705FE35789F79C27E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 543272   (497072) от 04.09.2012
+
+Phantogram - 2 альбома,4 EP,1 сингл (2007-2011) [MP3|~210-320 kbps]<Electronic,Indie,Trip-Hop>
+
+>>Electronic
+>>Experimental Electronic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Phantogram - это trip-hop / psych-pop дуэт в составе Sarah D. Barthel (вокал, клавишные) и Joshua M. Carter (вокал, гитара) из Саратога-Спрингс, штат Нью-Йорк, образованный в 2007 году . Их музыка это уникальные ритмы Beat Street «уличный бит» и психоделические мелодии, с комбинированной технологии и органические текстуры. Группа записывает песни с использованием различных пробоотборников, кассет, пластинок, синтезаторов, ударных и струнных инструментов . В различных интервью, группа определяет свою музыку жанром «street beat, psych pop» Если вы ещё не слышали этот транслятор безудержной лёгкости мысли. Мужской и женский голос, трип-хоп ритмика и идеальная композиция. Такие коллективы обязательно должны быть признаны каждым.© lastfm.ru1	Mouthful Of Diamonds	4:07
+2	When I'm Small	4:03
+3	Turn It Off	3:56
+4	Running From The Cops	3:51
+5	All Dried Up	3:38
+6	As Far As I Can See	3:22
+7	You Are The Ocean	5:46
+8	Bloody Palms	3:26
+9	Futuristic Casket	3:33
+10	Let Me Go	4:21(   Читать дальше...   )Жанр: Soul, Trip-Hop, Experimental, Electronic, Indie, Hip Hop,Продолжительность: 00:27:30
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565148   (496743) от 22.07.2022
+
+VA - Black Hole Trance Music 07-22 (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ciaran McAuley & Clara Yates - Anything (Extended Mix) (05:16)
+02. Dennis Sheperd & Nic Toms - Banishora (Extended Mix) (05:37)
+03. tyDi - Monday is Sunday (XiJaro & Pitch Extended Remix) (07:11)
+04. NOMADsignal & Nikol Apatini - To The Ground (Extended Mix) (05:32)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:34:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F2D22F884785025C24E90FA36331FD3DF2D03D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565210   (496648) от 22.07.2022
 
 Bellatrix - Travel (2022) [MP3|320 Kbps] <Spacesynth>
@@ -6,7 +134,7 @@ Bellatrix - Travel (2022) [MP3|320 Kbps] <Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496648.jpg" />
 </div>
 
 
@@ -35,7 +163,7 @@ Wolfgang Gartner - Back Story (2012) [MP3|320 кб/с]<House, Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496335.jpg" />
 </div>
 
 
@@ -68,7 +196,7 @@ VA - Smooth Chill-Out Grooves, Vol. 1 (2015) [MP3|320 кб/с]<Downtempo, Lounge
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496292.jpg" />
 </div>
 
 
@@ -97,7 +225,7 @@ VA - The Very Best Of Uplifting Vocal Trance (2015) [MP3|320 кб/с]<Trance, Vo
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496291.jpg" />
 </div>
 
 
@@ -126,7 +254,7 @@ Helios - Yume (2015) [FLAC|Lossless|WEB-DL]<Ambient, Acoustic, Downtempo, Post-R
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496285.jpg" />
 </div>
 
 
@@ -155,7 +283,7 @@ VA - Progressive Daylight (2018) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496203.jpg" />
 </div>
 
 
@@ -184,7 +312,7 @@ VA - Progressive Cuts (2018) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496114.jpg" />
 </div>
 
 
@@ -213,7 +341,7 @@ VA - Waehlscheibe Compilation X (2018) Waehlscheibe [FLAC|Lossless|tracks|Vinyl]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496108.jpg" />
 </div>
 
 
@@ -242,7 +370,7 @@ VA - Deep-House Themes, Vol. 3 (2018) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496106.jpg" />
 </div>
 
 
@@ -271,7 +399,7 @@ VA - It's Disco House (2018) [MP3|320 Kbps] <House, Nu Disco, Disco House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496094.jpg" />
 </div>
 
 
@@ -300,7 +428,7 @@ VA - Cosmic Chill Lounge Vol.8 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Loung
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495999.jpg" />
 </div>
 
 
@@ -329,7 +457,7 @@ VA - Retrospective Drum 'n' Bass: 10 Years (2018) [MP3|320 Kbps] <Drum'n'Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495896.jpg" />
 </div>
 
 
@@ -358,7 +486,7 @@ Infected Mushroom - Converting Vegetarians II (2015) [MP3|320 кб/с]<Psychedel
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495651.jpg" />
 </div>
 
 
@@ -387,7 +515,7 @@ VA - Progressive Creators (2018) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495572.jpg" />
 </div>
 
 
@@ -416,7 +544,7 @@ Vangelis - Blade Runner Trilogy 25th Anniversary (1994) (CD2) [FLAC|Lossless]<Am
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495467.jpg" />
 </div>
 
 
@@ -445,7 +573,7 @@ Space -Just Blue & Paris-France-Transit, Magic Fly & Deliverance  (2000) [WavPac
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494979.jpg" />
 </div>
 
 
@@ -478,7 +606,7 @@ Drownd - [AN]AESTHETIC (2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, C
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494904.jpg" />
 </div>
 
 
@@ -507,7 +635,7 @@ V.A. - Lounge Freebeat, Vol. 7 (2022) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chi
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494784.jpg" />
 </div>
 
 
@@ -536,7 +664,7 @@ Suicide Commando - Goddestruktor (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <EBM, 
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494782.jpg" />
 </div>
 
 
@@ -565,7 +693,7 @@ Wolfgang Flur (ex. Kraftwerk) - Magazine 1 (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494772.jpg" />
 </div>
 
 
@@ -594,7 +722,7 @@ VA - Trance 100 - Summer 2022 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494676.jpg" />
 </div>
 
 
@@ -623,7 +751,7 @@ VA - Beautiful Vocal Trance - Chapter 9 (2022) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494670.jpg" />
 </div>
 
 
@@ -637,122 +765,6 @@ VA - Beautiful Vocal Trance - Chapter 9 (2022) [MP3|320 Kbps] <Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC6C9C6ED6F6EE7892678D615D073E103287B5AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565430   (494663) от 23.07.2022
-
-VA - Above & Beyond - Anjunabeats Volume 16 (2022) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Jordin Post; Dan Soleil -  Deserve You (Intro Mix)  (4:46)
-02.  Deeparture; Belle Doron -  Brake  (4:14)
-03.  ANUQRAM -  Get On  (4:51)
-04.  Avenue One -  Upstairs Terrace  (4:56)(   Читать дальше...   )Жанр: Progressive House, Trance, DJ MixПродолжительность: 02:46:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69782C59A15EB8602B68B65E62729504A802961C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243306   (494210) от 26.08.2018
-
-Fennesz & Ryuichi Sakamoto - Cendre (2007) Touch [FLAC|Lossless|tracks+.cue] <Ambient, Modern Classical, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oto (03:49)
-02. Aware (04:46)
-03. Haru (04:39)
-04. Trace (05:46)(   Читать дальше...   )Жанр: Ambient, Modern Classical, ExperimentalПродолжительность: 00:51:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83476CD2C1F57B87DA2403959034AC33CB24D7FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936216   (493859) от 12.09.2015
-
-Duran Duran - Paper Gods (2015) Deluxe Edition [MP3|320 кб/с]<New Wave, Pop Rock>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paper Gods (feat. Mr Hudson)
-02. Last Night In The City (feat. Kiesza)
-03. You Kill Me With Silence
-04. Pressure Off (feat. Janelle Monáe & Nile Rodgers)(   Читать дальше...   )Жанр: New Wave, Pop RockПродолжительность: 01:10:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7888DECD9D05E0B6D29A0BE5866ED2A67AC9103D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158427   (493824) от 15.08.2017
-
-VA - Full Moon Dinner Chillout, Vol. 1 (Finest Romantic Dinner Music) (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. James Butler - Dinner in Milano
-02. Alexander S. Karlov - Sex With Yoga
-03. Martin Liege - Doin It
-04. Castlebed - Cartoon Mountains(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:11:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:211B620D1CF72738E541C0196A6F2519B50B8A19
 ```
 
 https://mybot314.ru/tekegram_catalog/

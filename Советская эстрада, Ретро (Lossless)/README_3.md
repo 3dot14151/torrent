@@ -6,7 +6,7 @@ VA - Босса Нова - Всё ещё самая красивая музык�
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282166.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Босса-нова - Самая красивая музыка в СССР 
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282165.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Босса-нова - По-прежнему Самая красивая м�
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282040.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Босса Нова - Навсегда самая красивая музы
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282025.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA – Мамина пластинка 2. Лучшие хиты 70х-80х (2003)
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275857.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275531.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274365.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272088.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269418.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267009.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - La Musique Sovietique L’ete 1969 От Паланги до Гурзуфа 
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266914.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263050.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262727.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262438.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Новогодний подарок. Оригинальные записи 
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262194.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246754.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239140.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ VA - Никита Богословский•Три года ты мне сни�
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231477.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231256.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229657.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228989.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214482.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213767.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210418.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203520.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ VA - Николай Добронравов: Лучшее... (2013) Мелоди�
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_187853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187853.jpg" />
 </div>
 
 

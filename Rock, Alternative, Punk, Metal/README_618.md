@@ -1,3 +1,32 @@
+###  Публикация: 1408965   (451602) от 14.09.2020
+
+Arctic Rain - The One (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Of My Life (04:15)
+02. Lost (04:01)
+03. Friends (04:09)
+04. Night After Night (04:34)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:48:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC5AC71A7027EDFE4AFEFE0C932E6670D23614A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1408951   (451598) от 14.09.2020
 
 Black Rose Maze - Black Rose Maze (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -6,7 +35,7 @@ Black Rose Maze - Black Rose Maze (2020) [FLAC|Lossless|image + .cue] <Melodic H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451598.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Restless Spirits - Second To None (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451526.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Crematory - Inglorious Darkness (2022) [FLAC|Lossless|image + .cue] <Gothic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451520.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ James House - The L.A Tapes: Classic Rock Years (2022) 2 x CD, Compilation, Rema
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451517.jpg" />
 </div>
 
 
@@ -120,7 +149,7 @@ Kasabian - The Alchemist's Euphoria (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Ind
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451509.jpg" />
 </div>
 
 
@@ -149,7 +178,7 @@ Radioactive - xXx (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451508.jpg" />
 </div>
 
 
@@ -178,7 +207,7 @@ Calarook - Surrender Or Die (2020) [FLAC|Lossless|image + .cue] <Folk Metal, Vik
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451466.jpg" />
 </div>
 
 
@@ -207,7 +236,7 @@ Seth Bogart - Men on the Verge of Nothing (2020) [MP3|~245 Kbps (V0)] <Indie Roc
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451456.jpg" />
 </div>
 
 
@@ -236,7 +265,7 @@ Joe Bouchard - Tales from the Island (2012) [MP3|320 кб/с]<Classic Rock, Hard
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451417.jpg" />
 </div>
 
 
@@ -271,7 +300,7 @@ Frank Zappa - Jazz From Hell (1986) 1999, Reissue [FLAC|Lossless|tracks + .cue] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451376.jpg" />
 </div>
 
 
@@ -300,7 +329,7 @@ W.A.S.P. - Golgotha (2015) Limited Digipak [FLAC|image+.cue]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451370.jpg" />
 </div>
 
 
@@ -329,7 +358,7 @@ Sevendust - Kill The Flaw (2015) [MP3|320 кб/с]<Alt.Metal, Nu-Metal, Post-Gru
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451368.jpg" />
 </div>
 
 
@@ -358,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451366.jpg" />
 </div>
 
 
@@ -387,7 +416,7 @@ For Today - 6 Альбомов + 2 EP (2007-2015) [MP3|224-320 кб/с]<Christia
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451362.jpg" />
 </div>
 
 
@@ -416,7 +445,7 @@ TBC - 28 Days (2010) [FLAC|Lossless|image + .cue] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451292.jpg" />
 </div>
 
 
@@ -445,7 +474,7 @@ Brutality - Sea of Ignorance (2016) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451285.jpg" />
 </div>
 
 
@@ -474,7 +503,7 @@ TBC - The Rise (2012) [FLAC|Lossless|image + .cue] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451281.jpg" />
 </div>
 
 
@@ -503,7 +532,7 @@ Narnia - Narnia (2016) [FLAC|Lossless|image + .cue] <Neoclassical Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451277.jpg" />
 </div>
 
 
@@ -532,7 +561,7 @@ Per Gessle - Small Town Talk (2018) BMG [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451210.jpg" />
 </div>
 
 
@@ -561,7 +590,7 @@ VA - 100 Hits: Rock (2007) 5CD Box Set [FLAC|track+.cue]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451181.jpg" />
 </div>
 
 
@@ -590,7 +619,7 @@ Charred Walls Of The Damned - Creatures Watching Over The Dead (2016) [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451151.jpg" />
 </div>
 
 
@@ -619,7 +648,7 @@ Comus - Song To Comus: The Complete Collection (2005) 2CD [WavPack|Lossless|imag
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451135.jpg" />
 </div>
 
 
@@ -648,7 +677,7 @@ Radio Tapok - Последняя песня (2018) Single [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451091.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ Avi Rosenfeld - Very Heepy Very Purple VI (2017) [MP3|320 Kbps] <Hard Rock, Clas
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451087.jpg" />
 </div>
 
 
@@ -703,7 +732,7 @@ Zero People - Красота (2018) [MP3|320 Kbps] <Alternative Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451054.jpg" />
 </div>
 
 
@@ -717,38 +746,6 @@ Zero People - Красота (2018) [MP3|320 Kbps] <Alternative Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36AA4528B8FE6107C72AD95B15B193922053899F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060926   (450988) от 09.10.2016
-
-Crimson Glory - In Dark Places... 1986-2000 (2010) 5CD Box Set [FLAC|Lossless|image + .cue] <Progressive Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450988.jpg" />
-</div>
-
-
-###  Подробнее
-
-Crimson Glory - In Dark Places... 1986-2000
-2010 5CD Box Set Metal Mind productions   - MMP 5 CD BOX 007
-Состав Box Set:
-1986 Crimson Glory (MASS CD 1375 DG)1988 Transcendence (MASS CD 1376 DG)
-1991 Strange And Beautiful (MASS CD 1377 DG)
-1999 Astronomica (MASS CD 1378 DD1)
-1999 Astronomica demos and live tracks (MASS CD 1378 DD2)Жанр: Progressive Heavy, Power MetalПродолжительность: 04:21:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21C44B507CD4997B42E853E564AEC6FA9BE04D22
 ```
 
 https://mybot314.ru/tekegram_catalog/

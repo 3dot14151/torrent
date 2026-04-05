@@ -1,3 +1,135 @@
+###  Публикация: 1637255   (230980) от 03.06.2023
+
+Мы не состаримся вместе / Nous ne vieillirons pas ensemble (1972) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230980.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уже шесть лет Жан и Катрин — любовники. Жан не хочет разводиться и живет с женой. Катрин живет у своих родителей. Они видятся в отелях, машинах, во время отпусков и уикэндов.
+Они любят друг друга, ссорятся, затем мирятся. Но чувства постепенно угасают, а Жан становится все агрессивнее...Производство: Франция, Италия / Empire Films, Lido FilmsЖанр: драмаРежиссер: Морис ПиалаАктеры: Марлен Жобер, Жан Янн, Кристина Фабрега, Патриция Пьеранджели, Жак Галлан, Морис Риш, Гарри-Макс, Мюзе Лальбре, Маша МерильПеревод: Одноголосый любительский, Денис СтроевЯзык озвучки: Русский, французскийСубтитры: Русские, французские, английскиеПродолжительность: 01:46:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDFCFB6CDCBA105A4EAE9AC4C1B4019B087C6993
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556121   (230762) от 07.06.2022
+
+Муж парикмахерши / Le mari de la coiffeuse (1990) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230762.jpg" />
+</div>
+
+
+###  Подробнее
+
+В детстве Антуан очень любил ходить в парикмахерскую. Как-то раз мальчик сказал родителям, что обязательно женится на парикмахерше, и тут же получил от отца оплеуху. Но желание мальчика не исчезло.
+Прошли годы. В маленьком городке, где жил Антуан, появилась парикмахерша Матильда. И при первой же встрече Антуан сделал ей предложение…Производство: Франция / Centre National de la Cinématographie (CNC), Investimage 2, Investimage 3, Lambart Productions, TF1 Films ProductionЖанр: Драма, Мелодрама, КомедияРежиссер: Патрис ЛеконтАктеры: Жан Рошфор, Анна Гальена, Ролан Бертен, Морис Шевит, Филипп Клевено, Жак Мату, Клод Офор, Альбер Дельпи, Генри Хокинг, Тикки ОльгадоПеревод: Многоголосый профессиональныйСубтитры: РусскиеПродолжительность: 01:21:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:047D33375942F0A5BA9E3B84F17DBA71B16A16B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648938   (230754) от 25.07.2023
+
+Два лица доктора Джекила / The Two Faces of Dr. Jekyll (1960) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм ужасов по повести Роберта Льюиса Стивенсона «Странная история доктора Джекила и мистера Хайда». Лондонскому врачу доктору Джекилу удаётся открыть сыворотку, которая заставит Злое в человеке преобладать над Добрым... После укола сыворотки в образе мистера Хайда он исполняет свои заветные мечты: в качестве возлюбленной берёт себе танцовщицу Марию, сближается (   Читать дальше...   )Производство: Великобритания, Hammer Film ProductionsЖанр: ужасыРежиссер: Теренс ФишерАктеры: Пол Мэсси, Доун Аддамс, Кристофер Ли, Дэвид Кософф, Френсис Де Фолфф, Норма Марла, Магда Миллер, Оливер Рид, Уильям Кендалл, Хелен ГоссПеревод: любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские (Александр Герусов), английскиеКачество: BDRipПродолжительность: 01:28:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48197F8D4DF259691C0C2FF3CC680CBBD02D1529
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637554   (230742) от 04.06.2023
+
+Стэн Лорел. Белые крылья / White Wings (1923) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230742.jpg" />
+</div>
+
+
+###  Подробнее
+
+Энергичный молодой человек пытается найти свое место в жизни. С переменный успехом. Это же Стэн Лорел. У него вечно так.Производство: США, Hal Roach StudiosЖанр: комедия, короткометражный, немое киноРежиссер: Джордж ДжескеАктеры: Стэн Лорел, Джеймс Финлейсон, Marvin Loback, Кэтерин Грант, Марк Джонс, Джордж Роу, Уильям Гиллеспи, Вера УайтПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:11:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E9656AEE3555CC52E04C22CC59A3CC14498E44E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637705   (230496) от 06.06.2023
+
+Стэн Лорел. Меж двух огней / Under Two Jags (1923) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230496.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немного дурацкая комедия Стэна Лорела (как и многие его ранние комедии). Стэн оказывается в какой-то экзотической стране. И даже попадает в экспедиционный корпус. Но как военный он оказался совершенно несостоятельным. Почему "меж двух огней"? Да потому что он умудрился обратить на себя внимание сразу двух женщин. А это, сами понимаете, прежде всего рисковано (   Читать дальше...   )Производство: США, Hal Roach StudiosЖанр: комедия, короткометражный, немое киноРежиссер: Джордж ДжескеАктеры: Стэн Лорел, Кэтерин Грант, Мэй Лорел, Сэмми Брукс, Чарльз Стивенсон, Уильям Гиллеспи, Эдди Бэйкер, Рой Брукс, Джордж РоуПеревод: немойСубтитры: ОтсутствуютПродолжительность: 00:13:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A093C7806640E9EAC9BB7CCF9874F8A9844BC0E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1582797   (230357) от 11.10.2022
 
 Гражданин Пищик / Obywatel Piszczyk (1988) WEB-DLRip [H.264] [VO]
@@ -6,7 +138,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230357.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230087.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229889.jpg" />
 </div>
 
 
@@ -84,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229762.jpg" />
 </div>
 
 
@@ -110,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229670.jpg" />
 </div>
 
 
@@ -136,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229493.jpg" />
 </div>
 
 
@@ -164,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229357.jpg" />
 </div>
 
 
@@ -190,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_229310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229310.jpg" />
 </div>
 
 
@@ -216,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228953.jpg" />
 </div>
 
 
@@ -242,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228657.jpg" />
 </div>
 
 
@@ -268,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228626.jpg" />
 </div>
 
 
@@ -294,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228598.jpg" />
 </div>
 
 
@@ -321,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228336.jpg" />
 </div>
 
 
@@ -347,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228018.jpg" />
 </div>
 
 
@@ -373,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227999.jpg" />
 </div>
 
 
@@ -399,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227969.jpg" />
 </div>
 
 
@@ -425,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227853.jpg" />
 </div>
 
 
@@ -451,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227782.jpg" />
 </div>
 
 
@@ -477,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227609.jpg" />
 </div>
 
 
@@ -503,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227589.jpg" />
 </div>
 
 
@@ -529,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227154.jpg" />
 </div>
 
 
@@ -540,136 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9830AE521DCF46409C943EAA3A556F3B935AEF97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341929   (227075) от 30.11.2019
-
-В погоне за мечтой / The Dream Chasers (1984) WEB-DLRip [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Больной ребёнок, который отчуждён от своего отца, объединяется в компанию со стариком, недавно отправленного в дом престарелых. Вместе они решают сбежать от своих проблем, пустившись в "ковбойское" путешествие по дикой Америке. В этом путешествии они узнают очень многое о важности дружбы, верности и прощении.Производство: США, Pacific International EnterprisesЖанр: драма, приключения, семейный, вестернРежиссер: Артур Р. Дубс, Дэвид Э. ДжексонАктеры: Харольд Гулд, Джастин Дэна, Кэролин Кэрредин, Уэсли Бишоп, Дж.Дж. Льюис, Джеффри Тэмбор, Джерион Монро, Стэйси Мортон, Арт Бурк, Лиа ВернонПеревод: Одноголосый любительский (Семён Ващенко)Субтитры: ОтсутствуютПродолжительность: 01:34:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7567F045FE9F26011CA9EE82BFE1D34BE798552
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584180   (226711) от 17.10.2022
-
-Чарли Чейз. Свидание на одну ночь / A One Night Stand (1915) WEBRip [PR]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двое забавных рабочих сцены вытворяют в театре всяческие безобразия, усложняя работу труппе и мешая зрителям получать удовольствие. Как все эксцентрик-комедии она немного сумбурна. Говорят, в те времена в кейстоун многие короткометражки снимали вообще без всякого сценария или плана. Просто задавали тему актерам и пошла импровизация перед кинокамерой. Наверное, поэтому (   Читать дальше...   )Производство: США, Keystone Film CompanyЖанр: комедия, короткометражный, немое киноРежиссер: Уолтер РайтАктеры: Честер Конклин, Мэй Буш, Чарльз Арлинг, Гарри Букер, Гарри Бернард, Бобби Данн, Чарли Чейз, Минта Дарфи, Билли Гилберт, Гарри МакКойПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские встроенные отключаемыеПродолжительность: 00:13:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAF5C2EF789AA8A7A5936CEC181597644847857E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584171   (226698) от 17.10.2022
-
-Его фотография в газетах / His Picture in the Papers (1916) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пит Приндл, чтобы жениться на любимой девушке, обещал, что его фотография появится в центральных газетах. Ему непременно надо сдержать обещание...Производство: США, Fine Arts Film CompanyЖанр: комедия, немое киноРежиссер: Джон ЭмерсонАктеры: Дуглас Фэрбенкс, Clarence Handyside, Rene Boucicault, Джин Темпл, Чарльз Батлер, Лоретта Блейк, Гомер Хант, Helena Rupport, Терри МакГоверн, Ник ТомпсонПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 01:02:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05EB3A0ED412F59FCC24E4D82C0A637B554F37A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424935   (226078) от 18.11.2020
-
-Макс Линдер. Беспокойная ночь / Une nuit agitee (1912) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Докучливое насекомое портит Максу его первую брачную ночьПроизводство: ФранцияЖанр: Короткометражка, комедия, немое киноРежиссер: Макс ЛиндерАктеры: Макс Линдер, Стасья Напьерковска, Jane RenouardtЯзык озвучки: НемойСубтитры: Русские интертитрыПродолжительность: 00:06:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2052154159E13E9F1977F662AB66362DA71D985
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965499   (226007) от 14.12.2015
-
-Док / «Doc» (1971) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226007.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о знаменитых героях Дикого Запада. В городке Тумстоун, штат Аризона, железной рукой порядок наводит грозный шериф Уайтт Эрп. С помощью друга, блестящего стрелка Дока Холлидэя, и своих братьев Эрп поддерживает в городе мир и покой.Производство: США / FP FilmsЖанр: ВестернРежиссер: Фрэнк ПерриАктеры: Стейси Кич, Фэй Данауэй, Харрис Юлин, Майкл Уитни, Денвер Джон Коллинз, Дэн Гринберг, Джон Скэнлон, Ричард МакКензи, Джон Боттомс, Филип ШаферПеревод: Многоголосый закадровый (НТВ+)Субтитры: ОтсутствуютПродолжительность: 01:36:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C2C68B6199B4C4F35129D46A7E14D077F2AB852
 ```
 
 https://mybot314.ru/tekegram_catalog/

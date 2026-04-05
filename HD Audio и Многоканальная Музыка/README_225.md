@@ -1,33 +1,3 @@
-###  Публикация: 1591737   (42908) от 21.09.2024
-
-Nightwish - Studio Albums (11 releases) (1997-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42908.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nightwish — финская симфоник-метал-группа с женским вокалом, исполняющая песни преимущественно на английском языке. Основана Туомасом Холопайненом, Эмппу Вуориненом и Тарьей Турунен в 1996 году в городе Китеэ.
-Nightwish — одна из первых и самых влиятельных групп в жанре симфоник-метал, наряду с Therion и Within Temptation. Раннее творчество Nightwish отличалось сочетанием (   Читать дальше...   )1997 - Angels Fall First
-1999 - Oceanborn
-2000 - Wishmaster
-2002 - Century ChildЖанр: Symphonic MetalПродолжительность: 13:04:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2B454931F661457F8BBD54FDDD5D26682C69FCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1572589   (42838) от 21.09.2024
 
 Seether - Studio Albums (11 releases) (2000-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Post-grunge, Hard Rock, Nu Metal>
@@ -36,7 +6,7 @@ Seether - Studio Albums (11 releases) (2000-2024) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42838.jpg" />
 </div>
 
 
@@ -65,7 +35,7 @@ Katy Perry - 143 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42832.jpg" />
 </div>
 
 
@@ -94,7 +64,7 @@ Purple Disco Machine - Paradise (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <El
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42725.jpg" />
 </div>
 
 
@@ -123,7 +93,7 @@ Calliope Calliopeia Band - Long Distance You and Me (2024) [FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42620.jpg" />
 </div>
 
 
@@ -152,7 +122,7 @@ Hurricanes - Back to the Basement (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42619.jpg" />
 </div>
 
 
@@ -181,7 +151,7 @@ Babbba - Hypnotic Cabaret (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Swing, Smo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42617.jpg" />
 </div>
 
 
@@ -210,7 +180,7 @@ Jamie xx - In Waves (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Da
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42613.jpg" />
 </div>
 
 
@@ -239,7 +209,7 @@ Manu Chao - Viva Tu (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Latin Rock, Regg
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42602.jpg" />
 </div>
 
 
@@ -268,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42600.jpg" />
 </div>
 
 
@@ -297,7 +267,7 @@ Metal Church - Studio Albums (14+1 releases) (1985-2023) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42559.jpg" />
 </div>
 
 
@@ -326,7 +296,7 @@ Little Quirks - Little Quirks (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alte
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42515.jpg" />
 </div>
 
 
@@ -355,7 +325,7 @@ Hiraes - Studio Albums (2 releases) (2021-2024) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42513.jpg" />
 </div>
 
 
@@ -382,7 +352,7 @@ Cold Contrast - Last Honest Words (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42512.jpg" />
 </div>
 
 
@@ -411,7 +381,7 @@ Legacy of Light - Fragments of Major Arcana (2024) [FLAC 24/48|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42511.jpg" />
 </div>
 
 
@@ -440,7 +410,7 @@ Toni Braxton - Singles Collection (2000) Compilation, Unofficial Release [FLAC 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42500.jpg" />
 </div>
 
 
@@ -469,7 +439,7 @@ Ruth Moody - The Wanderer (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42417.jpg" />
 </div>
 
 
@@ -498,7 +468,7 @@ Mylene Farmer - RemiXXL (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42393.jpg" />
 </div>
 
 
@@ -528,7 +498,7 @@ Luna Sol - Vita Mors (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Stoner Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42312.jpg" />
 </div>
 
 
@@ -557,7 +527,7 @@ Crimson Veil - Hex (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42311.jpg" />
 </div>
 
 
@@ -586,7 +556,7 @@ Patti LuPone - A Life in Notes (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42310.jpg" />
 </div>
 
 
@@ -615,7 +585,7 @@ Steve Louw - Between Time (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42309.jpg" />
 </div>
 
 
@@ -644,7 +614,7 @@ The Delta Blues Collective - My Town Was Memphis in 1973 (2024) [FLAC 24/44.1|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42307.jpg" />
 </div>
 
 
@@ -673,7 +643,7 @@ Ivy Lab - Infinite Falling Ground Pt.2 (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42305.jpg" />
 </div>
 
 
@@ -702,7 +672,7 @@ Ratt - Studio Albums (2 releases) (1999; 2010) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42304.jpg" />
 </div>
 
 
@@ -729,7 +699,7 @@ Lady Gaga - Harlequin (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42220.jpg" />
 </div>
 
 
@@ -743,6 +713,35 @@ Lady Gaga - Harlequin (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC64D3A0950F245644BD11E256DFD4F4255F65A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751846   (42205) от 27.09.2024
+
+Karaone - Dragon (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dragon [00:03:12]
+02. Owl on the Hunt [00:03:42]
+03. My Dream [00:04:01]
+04. Morning at Dawn [00:06:53](   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:33:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:303751AEE99B630A2DAF041C6AC7CC2DA3A81A47
 ```
 
 https://mybot314.ru/tekegram_catalog/

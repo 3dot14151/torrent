@@ -1,139 +1,3 @@
-###  Публикация: 1027635   (681759) от 26.06.2016
-
-Роберт Сапольски | Психология стресса [3-е издание] (2015) [PDF]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681759.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из самых авторитетных и знаменитых во всем мире книг по психологии и физиологии стресса.
-Ее автор — специалист с мировым именем, выдающийся биолог и психолог Роберт Сапольски убежден, что человеческая способность готовиться к будущему и беспокоиться о нем — это и благословение, и проклятие. Благословение — в превентивном и подготовительном поведении, а проклятие (   Читать дальше...   )Жанр: Популярная и нетрадиционная медицинаПеревод: Е. НиколаеваФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3106DEEDE87A7CF728087273D6C5654B8B3FB5EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 896779   (681560) от 15.05.2015
-
-П.Д. Дузь | История воздухоплавания и авиации [2 книги] (1981-1986) [DJVU]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681560.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книгах на основе большого архивного и литературного материала изложено в хронологическом порядке развитие воздухоплавания и авиации в России, приведены сведения о спроектированных и построенных в то время в России аэростатах и самолетах.
-Освещены работы многих русских ученых, конструкторов и изобретателей летательных аппаратов различных типов.Жанр: История, авиацияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:279F536D803EE90A3B9D161C2340F7E610B411EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508070   (681346) от 09.06.2012
-
-Г.Г.Хайдаров,В.Т.Тозик | Компьютерные технологии трехмерного моделирования [2010] [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681346.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данном учебном пособии к самостоятельным работам по дисциплине «Компьютерная геометрия и графика» собраны технологии трехмерного моделирования как с помощью графического редактора «Компас – 3D», так и с помощью сред и языков программирования.
-
-Учебное пособие адресовано студентам 1 курса по направлению подготовки 230200 – Информационные системы и соответствуют рабочей программе дисциплины «Компьютерная геометрия и графика»2010Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D84E453749AB3242078FC341F226324D7E2C4248
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 507918   (681335) от 09.06.2012
-
-С.Л.Федосеев | Оружие современной пехоты. Иллюстрированный справочник [2001] [DJVU]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681335.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге в популярной форме рассказано о современной системе вооружения пехоты, об истории и путях ее дальнейшего развития, а также об основах устройства оружия. Для более подробного рассмотрения автором отобраны самые распространенные образцы. Издание подготовлено для всех интересующихся историей военной техники и современным боевым оружием.2001Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:549E12C6DFF88AE2B66042483EBC09573E397581
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135417   (681297) от 19.05.2017
-
-С. Покровский | Теория пролетарской революции (1931) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая работа представляет собою попытку дать сводную популярную работу, которая давала бы возможность товарищу, работающему в кружке ленинизма или занимающемуся самообразованием, систематизировать свои знания и познакомиться с некоторыми спорными вопросами теории пролетарской революции.
-
-Как и другие книжки серии «Библиотека ленинизма» она ставит своей целью (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C1208A11DA891EE72EF91770E70745CB708505D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135424   (681203) от 19.05.2017
 
 И. К. Луппол | На два фронта (1930) [PDF]
@@ -142,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681203.jpg" />
 </div>
 
 
@@ -170,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681201.jpg" />
 </div>
 
 
@@ -196,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681100.jpg" />
 </div>
 
 
@@ -224,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681040.jpg" />
 </div>
 
 
@@ -250,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680824.jpg" />
 </div>
 
 
@@ -282,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680685.jpg" />
 </div>
 
 
@@ -309,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680667.jpg" />
 </div>
 
 
@@ -337,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680654.jpg" />
 </div>
 
 
@@ -364,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680599.jpg" />
 </div>
 
 
@@ -390,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680586.jpg" />
 </div>
 
 
@@ -417,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680378.jpg" />
 </div>
 
 
@@ -444,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680292.jpg" />
 </div>
 
 
@@ -470,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680290.jpg" />
 </div>
 
 
@@ -499,7 +363,7 @@ Michael D. Mattesi | Серия книг "Force" по рисованию [4] (20
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680174.jpg" />
 </div>
 
 
@@ -526,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680153.jpg" />
 </div>
 
 
@@ -554,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680118.jpg" />
 </div>
 
 
@@ -580,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680038.jpg" />
 </div>
 
 
@@ -606,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680027.jpg" />
 </div>
 
 
@@ -632,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679510.jpg" />
 </div>
 
 
@@ -658,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679509.jpg" />
 </div>
 
 
@@ -686,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679508.jpg" />
 </div>
 
 
@@ -697,6 +561,136 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8578EC6224EBC048EF446FC6A6D7CEAC3017CB07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135670   (679426) от 20.05.2017
+
+Н. Н. Варварцев | Национализм в обличье советологии (1984) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679426.jpg" />
+</div>
+
+
+###  Подробнее
+
+В монографии анализируются социально-политические основы составной части советологии - буржуазного «украиноведения», роль государственно-монополистического механизма в его возникновении и функционировании. Раскрываются особенности деятельности центров «украинских исследований», тенденциозная направленность их источниковой базы, механизм распространения антикоммунистических (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A48517B5AC041294C9754F65B70390D2FB2CECFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135668   (679418) от 20.05.2017
+
+Н. Н. Варварцев | Буржуазно-националистическая пропаганда на службе антикоммунизма (1974) [DJVU] [Ua]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор раскрывает организацию буржуазно-националистического пропагандистского аппарата, его зависимость от материальной, политической и другой зависимости от империалистических сил. В работе также анализируются основные направления, методы и приемы антисоветских козней реакционной прессы и радио.Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DF6021BBB3D357C2D1306FBD665525AF2F9BC40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135802   (679406) от 20.05.2017
+
+Вл. Виленский-Сибиряков | Сунь-Ят-Cен. Отец китайской революции (1924) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Задача настоящей книжки — познакомить широкого читателя с основными идеями китайской революции и вкратце рассказать историю борьбы китайского народа за утверждение республики.Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4A58123AD1CB193C39153DAEAFAA4E589764D15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 508540   (679388) от 10.06.2012
+
+Юрий Гончаров и др. | Управление тепловозом и его обслуживание [1961] [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679388.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассмотрены основные вопросы управления и обслуживания магистральных тепловозов с электрической передачей, приведены сведения по тяге и торможению поездов. Значительное внимание уделено анализу причин, порождающих неисправности тепловозов, предупреждению их, методам выявления и устранения неисправностей в эксплуатации.1961Жанр: Научно-техническая литератураФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1355C77D82F3E56D42065937813AD7D8B905D6F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135814   (679371) от 20.05.2017
+
+К. П. Горшенин | Исторический акт [Указ Президиума Верховного Совета СССР «Об отмене смертной казни»] (1947) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стенограмма публичной лекции, прочитанной 19 июня 1947 года в Лекционном зале в Москве.Жанр: История, политология, правоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6315AB7C88D4CCFC7F1E242E1E54D38C231E94B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

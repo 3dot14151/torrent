@@ -1,3 +1,55 @@
+###  Публикация: 1437016   (1042456) от 03.01.2021
+
+Б. Баарс, Н. Гейдж | Мозг, познание, разум: введение в когнитивные нейронауки [В 2-х томах] [5-е издание] (2021) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042456.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге изложены результаты новейших исследований связи строения мозга и способности человека к познанию. В наглядной и доступной форме представлена взаимосвязь строения мозга, психологических функций, эффектов восприятия и умственных способностей человека. Выводы основаны на данных, полученных в психологии, биологии, медицине, биохимии и физике. Показано, что когнитивные (   Читать дальше...   )Жанр: Нейробиология, Нейропсихология, Учебники и пособия для вузовФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7E6A362678B32609C02229FA7916479BD193FE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437244   (1042230) от 04.01.2021
+
+И. Бертини и др. | Биологическая неорганическая химия: структура и реакционная способность [В 2-х томах] [4-е издание] (2021) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042230.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном издании, написанном ведущими зарубежными учеными, изложены фундаментальные теоретические представления, лежащие в основе функционирования природных биологических систем, содержащих ионы металлов, а также прикладные проблемы в этой области. Бионеорганическая химия занимает междисциплинарную нишу на стыке координационной, неорганической, металлоорганической (   Читать дальше...   )Жанр: Биологические науки, Неорганическая химия, Учебники и пособия для вузовФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BF26AC28497EA2AF788EC306D81588F9DB9DB2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1610684   (1042160) от 08.02.2023
 
 А.П. Бородовский | Археосейсмология юга Западной Сибири (2023) [PDF]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042160.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041805.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041802.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041792.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041360.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041083.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041047.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041046.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041027.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040507.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039810.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039796.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039626.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039617.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039552.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039541.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039052.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039049.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038858.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038750.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038744.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038540.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038333.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038238.jpg" />
 </div>
 
 
@@ -618,58 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D99898E1AC234A15A60A56B273347D53575BF031
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441039   (1037998) от 20.01.2021
-
-А.С. Шамаев (ред.) | Сборник задач по уравнениям с частными производными (2005) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037998.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник содержит материалы для упражнений по курсу дифференциальных уравнений с частными производными для университетов и технических вузов с повышенной математической программой. Ко всем задачам даны ответы, к отдельным задачам — решения. Представлены также варианты задач письменного экзамена по уравнениям с частными производными, предлагавшиеся на механико-математическом (   Читать дальше...   )Жанр: МатематикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5673AF86E024DC5A59BED2CFD47F088A6EE9FE48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441091   (1037938) от 20.01.2021
-
-В.П. Безродный | Информационная политика и безопасность (2020) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037938.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии изложены теоретические основы и примеры из практики формирования информационной политики и безопасности, построения информационного общества, выработки информационных стратегий, правового обеспечения информационной сферы, создания электронного правительства, ведения информационных войн. Учебное пособие предназначено для студентов журналистских направлений (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33DA2E1153B622783D0B68D287B9195B946D3795
 ```
 
 https://mybot314.ru/tekegram_catalog/

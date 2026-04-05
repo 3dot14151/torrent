@@ -1,3 +1,55 @@
+###  Публикация: 1777278   (71077) от 05.02.2025
+
+Ад / Jigoku (1979) BDRip [H.264] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71077.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проявление ада через грехи, стыд и желания деревенской семьи из высшего класса и материнского горя из могилы...Производство: Япония / Toei CompanyЖанр: ужасы, драмаРежиссер: Тацуми КумасироАктеры: Миэко Харада, Кёко Кисида, Рюдзо Хаяси, Куниэ Танака, Дзюн Хамамура, Кадзуко Инэно, Рэндзи Исибаси, Нобуо Канэко, Ёси Като, Хироми КуритаПеревод: любительский одноголосый закадровый (VO iDimo)Язык озвучки: русский, японскийСубтитры: русские (на песни и полные, sstonecold), английскиеПродолжительность: 02:09:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52A62F5AEE6F608833EEC3A08C1E732D4FBF25CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779457   (70692) от 13.02.2025
+
+Тюрьма Абасири 2 / Abashiri Bangaichi 2 (1965) BDRip [H.264] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70692.jpg" />
+</div>
+
+
+###  Подробнее
+
+Татибана и его корешок Хирос покидают Хоккайдо на большом пассажирском пароме. Намётанным глазом опытный бандит Татибана сразу выделяет в толпе пассажиров карманницу Юми, однако не успевает распознать группу контрабандисток, переодетых католическими монахинями. В сумке у монахинь коробка с пряжей для вязания, а в каждом клубке спрятаны украденные из ювелирного магазина (   Читать дальше...   )Производство: Япония / Toei TokyoЖанр: криминал, боевикРежиссер: Тэруо ИсииАктеры: Кэн Такакура, Митико Сага, Тору Абэ, Куниэ Танака, Кандзюро Араси, Дзёдзи Аи, Итиро Накатани, Хидэо Мурота, Ёко Михара, Сиро ОсакаПеревод: любительский одноголосый (Horror Maker)Язык озвучки: русский, японскийСубтитры: русские (Schwejk), английскиеПродолжительность: 01:26:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B96ED08431F4E17DDB2A5CF9CDC66C2D74BF3B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1781249   (70292) от 22.02.2025
 
 Проблеск ночи / Крупица ночи / Yoru no henrin (1964) BDRip [H.264] [VO]
@@ -6,7 +58,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70292.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70227.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70151.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68476.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67398.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65672.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65626.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64844.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63479.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63345.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63332.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63243.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63053.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62418.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62319.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62138.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60537.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60236.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60193.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60088.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60078.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58768.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58346.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58275.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67641FCE8D779B1CC68FFB8ED13B593E0B2F4385
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719466   (58137) от 29.04.2024
-
-Ужас Амитивилля: Мотель призраков / Losmen Melati / Motel Melati (2023) WEB-DLRip [H.264] [звук с TS]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Остров Ява, 1997 год. В поисках ночлега путешественники оказываются в проклятом отеле, хозяйка которого жаждет заполучить души новых постояльцев.Производство: Индонезия / Infinite StudiosЖанр: ужасыРежиссер: Майк Уилуэн, Билли КристианАктеры: Александра Готтардо, Кики Нарендра, Сэмюэл Панджэйтан, Фэнди Кристиан, Эна Пасарибу, Дви Сасоно, Джордан Омар, Абирама Путра, Адинда Бретон, Бима СенаПеревод: Дублированный (Paragraph Media) звук с TSЯзык озвучки: РусскийСубтитры: АнглийскиеПродолжительность: 01:33:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A18EDCCE96EF89CE14ECC8D77FB8BE80BC574EC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719812   (58088) от 30.04.2024
-
-Проклятие. Зов могилы / Pamyo / Exhuma (2024) WEB-DLRip [H.265] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58088.jpg" />
-</div>
-
-
-###  Подробнее
-
-Богатая семья из Лос-Анджелеса узнаёт, что страдает от проклятия рода и духа разгневанного предка. Два шамана, эксперт по фэн-шуй и сотрудник похоронной фирмы объединяются, чтобы разобраться в серии загадочных событий. Однако ритуал, требующий раскопок могилы, приводит к ужасным последствиям, и ситуация выходит из-под контроля.Производство: Южная Корея / MCMC, Pinetown Production, ShowboxЖанр: ужасыРежиссер: Чан Джэ-хёнАктеры: Чхве Мин-сик, Ким Го-ын, Ли До-хён, Ю Хэ-джин, Чон Джин-гиПеревод: Многоголосый любительский (DubLikTV)Язык озвучки: РусскийСубтитры: Китайские (PGS)Продолжительность: 02:13:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C86E4AF8D07537AF1E445C74CC51B2305F72B2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Boney James - Solid (2020) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783915.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Chet Baker - But Not For Me (1982) 2003, Random Chance [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783807.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Georgie Auld - 1946 - 1951 (2004) Classics [FLAC|Lossless|image + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783554.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Eddie Jefferson - Letters From Home (1962) 1987, Original Jazz Classics [APE|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783553.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ The Three Sounds - Moods (1960) 1987, Blue Note [FLAC|Lossless|image + .cue] <Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783548.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Dave Brubeck - Three Classic Albums Plus: Third Set 1956 - 1960 (2010) 2CD, Avid
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783419.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Marcus Roberts - Prayer For Peace (1991) BMG [FLAC|Lossless|tracks + .cue] <Hard
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783256.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Mal Waldron - Mal: Live 4 To 1 (1971) 1989, Nippon Phonogram [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783255.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Marian McPartland - Portraits (1999) NPR Classics [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783254.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ The Crusaders - Street Life (1979) CD Album, Reissue [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783100.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Sonny Rollins - Four Classic Albums 1956 - 1957 (2008) 2CD, Avid Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783099.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Sherri Roberts - Anybody's Spring (2017) Pacific Coast Jazz [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782980.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Bud Shank - Four Classic Albums 1956 - 1958 (2012) 2CD, Avid Jazz [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782732.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Manuel Valera Trio - The Seasons (2017) Mavo Records [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782571.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Kathy Kosins - Uncovered Soul (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782565.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Marty Paich - Four Classic Albums 1955 - 1960 (2015) 2CD, Avid Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782302.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Art Blakey And The Jazz Messengers - Live at Kimball's (1986) Concord Jazz [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782166.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Lester Young - Blue Lester: The Immortal Lester Young (1944 - 1949) Savoy Jazz [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782165.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ The Buster Williams Trio LIVE - 65 Roses (2009) BluePort [FLAC|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782164.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Jean-Louis Rassinfosse, Chet Baker, Philip Catherine (1983) 1985, Igloo [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782162.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Dinah Washington - Ballads (1962, 1963) 2002, Roulette Jazz [FLAC|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782161.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Ron Carter And The WDR Big Band - My Personal Songbook (2015) In+Out Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782160.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Mike Garson - Mike Garson's Jazz Hat (2008) Reference Recordings [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782151.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Robert Moore - Outta My Soul (2012) 2014, Reference Recordings [FLAC|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782144.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Adam Shulman Sextet - Full Tilt (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782142.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Earl Klugh - Ballads (1976 - 1983) 1993, Manhattan Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782140.jpg" />
 </div>
 
 

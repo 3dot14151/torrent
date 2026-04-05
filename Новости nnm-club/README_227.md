@@ -1,3 +1,56 @@
+###  Публикация: 110502   (253062) от 11.11.2025
+
+Стиляги (2008) DVD9
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253062.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мэлс — примерный комсомолец, всегда готовый шагать в ногу, осуждать и усмирять несогласных. Он живет как все и думает, что счастлив. Пока однажды не сталкивается с миром стиляг — непонятным, опасным и манящим. Здесь носят одежду сногсшибательных расцветок. Танцуют под неположенную музыку. В этом мире самые красивые девушки! И среди них — королева тусовки: ослепительная, (   Читать дальше...   )Производство: Россия, Канал Россия, Красная стрела, Министерство культуры Российской Федерации, 	Planeta Inform,	Рекун-синемаЖанр: мюзикл, драма, мелодрама, комедияРежиссер: Валерий ТодоровскийАктеры: Оксана Акиньшина, Антон Шагин, Сергей Гармаш, Алексей Горбунов, Евгения Хиривская, София Лебедева, Максим Матвеев, Мария Мина, Олег Пангсепп, Максим Пешков, Олег Янковский, Леонид Ярмольник, Ирина РозановаСубтитры: отсутствуютПродолжительность: 02:16:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:413A83CBE58A952777E041FDD0BAAF4A7B65F48B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 496234   (253023) от 14.05.2012
+
+Сделанные российским спутником уникальные снимки Земли восхитили весь мир
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253023.jpg" />
+</div>
+
+
+###  Подробнее
+
+
+Российский метеорологический спутник «Электро-Л» получил самые четкие из существующих на данный момент снимки Земли, которые привели в восторг западных журналистов и экспертов и не имеют аналогов в мире.Анимированную версию красивейших снимков голубой планеты опубликовал сайт Научного центра оперативного мониторинга Земли.Это великолепный портрет Земли с разрешением в 121 мегапиксель (самое высокое разрешение, с которым когда-либо фотографировали нашу планету), сделанный одним-единственным «фото-выстрелом», пишет The Huffington Post.И в этом заключается одна из уникальностей снимков. Дело в том, что обычно для получения изображения полного диска нашей планеты склеивается несколько изображений (так, в частности, действуют специалисты NASA), однако нашему спутнику не просто удалось получить такую картинку «одним щелчком затвора»: «Электро-Л» фотографирует полный диск Земли каждые 30 минут.Во-вторых, фотографии представляют собой сочетание видимого и ближнего инфракрасного диапазонов, поэтому Земля на них выглядит (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 496439   (253020) от 14.05.2012
 
 ROSA Marathon 2012 [i586, x86-64] (4xDVD)
@@ -6,7 +59,7 @@ ROSA Marathon 2012 [i586, x86-64] (4xDVD)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253020.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252802.jpg" />
 </div>
 
 
@@ -62,7 +115,7 @@ More XBLA Games [Xbox 360] [Ru/En] [Freeboot/Jtag] (2013)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252500.jpg" />
 </div>
 
 
@@ -91,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252245.jpg" />
 </div>
 
 
@@ -117,7 +170,7 @@ Windows 7 Professional SP1 build: 7601 VL x86/x64 with update 10.05.2023 by Spik
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252219.jpg" />
 </div>
 
 
@@ -145,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252212.jpg" />
 </div>
 
 
@@ -171,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252184.jpg" />
 </div>
 
 
@@ -197,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252136.jpg" />
 </div>
 
 
@@ -223,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252111.jpg" />
 </div>
 
 
@@ -249,7 +302,7 @@ Cent Browser 5.0.1002.354 Stable + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252103.jpg" />
 </div>
 
 
@@ -275,7 +328,7 @@ Autodesk 3ds Max 2024.1 RePack by xetrin [Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252093.jpg" />
 </div>
 
 
@@ -301,7 +354,7 @@ Cross Stitch Saga v4.4.4 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252092.jpg" />
 </div>
 
 
@@ -330,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252086.jpg" />
 </div>
 
 
@@ -356,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252076.jpg" />
 </div>
 
 
@@ -382,7 +435,7 @@ Adobe Photoshop 2023 24.5.0.500 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252071.jpg" />
 </div>
 
 
@@ -408,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252057.jpg" />
 </div>
 
 
@@ -434,7 +487,7 @@ Adobe Photoshop 2023 24.5.0.500 Light (x64) Portable by 7997 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252036.jpg" />
 </div>
 
 
@@ -460,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252000.jpg" />
 </div>
 
 
@@ -486,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251993.jpg" />
 </div>
 
 
@@ -512,7 +565,7 @@ Malwarebytes Premium 4.5.29.268 RePack by xetrin [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251868.jpg" />
 </div>
 
 
@@ -538,7 +591,7 @@ Symantec Endpoint Protection 14.3 RU7 (14.3.9681.7000) x64 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251857.jpg" />
 </div>
 
 
@@ -564,7 +617,7 @@ Windows 11 Pro 25H2 26200.6899 x64 by SanLex [Lightweight] [Ru/En] (2025.11.05)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251843.jpg" />
 </div>
 
 
@@ -593,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251815.jpg" />
 </div>
 
 
@@ -619,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251810.jpg" />
 </div>
 
 
@@ -630,62 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637557   (251767) от 04.06.2023
-
-Avast Premium Security 23.5.6066 RePack by xetrin [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251767.jpg" />
-</div>
-
-
-###  Подробнее
-
-Avast Premium Security – комплексный антивирус "все-в-одном", теперь еще более быстрый и эффективный благодаря переносу вычислительных процессов в облачное пространство. Крупнейшая в мире сеть обнаружения угроз, искусственный интеллект на основе облачных технологий и молниеносно быстрый анализ поведения выделяют наш антивирус среди всех остальных.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEE8E3A4DA7BACB5A54DAB21AB59A4A0BDA0EA4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495358   (251342) от 11.05.2012
-
-Ubuntu 12.04 LTS [amd64] (1xDVD)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ubuntu — это разрабатываемая сообществом, основанная на ядре Linux операционная система, которая идеально подходит для использования на персональных компьютерах, ноутбуках и серверах. Она содержит все необходимые программы, которые вам нужны: программу просмотра Интернет, офисный пакет для работы с текстами, электронными таблицами и презентациями, программы для общения в Интернет и много других.
-
-Ubuntu 12.04 LTS богата на очень интересные обновления, которых давно ждали многие пользователи Ubuntu. Стоить отметить, что наконец-то ввели улучшенную поддержку многомониторных конфигураций, сделали более дружественный интерфейс экрана входа в систему (LightDM), доработали оболочку Unity и ещё сделали множество других "вкусностей".
-
-Здесь, в этом релизе, полное совпадение с контрольными суммами образа amd64 с официального сайта, который, видимо, был заменен спустя несколько часов после первоначального релиза. Тем не менее, в предыдущем релизе проблем нет: https://nnm-club.me/forum/viewtopic.php?t=488535
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DECAF680BC746031485C32535CEEF79EC6E4FE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

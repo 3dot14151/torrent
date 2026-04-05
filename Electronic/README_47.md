@@ -1,3 +1,61 @@
+###  Публикация: 1479453   (1009598) от 24.06.2021
+
+VA - opensource.code (2002) Source Records [FLAC|Lossless|tracks+.cue] <Techno, Minimal, IDM, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Akufen - Synthaxis 2 (07:32)
+ 02. Jan Jelinek - Music To Interrogate By (06:08)
+ 03. S.E. Berlin - Toninas (05:50)
+ 04. Robert Lippok - 6 A.M. (05:18)(   Читать дальше...   )Жанр: Techno, Minimal, IDM, AmbientПродолжительность: 01:12:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB8EB3DE22CFE9505E0FDDBEB7C87EF1F968B3FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479457   (1009595) от 24.06.2021
+
+Shaded Explorer - Harmonic Growth (2020) Pregnant Void [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub Techno, Experimental, Field Recording>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009595.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brainroot (05:17)
+ 02. Pneuma (04:32)
+ 03. Omeostasi (07:08)
+ 04. The Human Vector (08:18)(   Читать дальше...   )Жанр: Ambient, Dub Techno, Experimental, Field RecordingПродолжительность: 01:16:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09E119883015477D6048CAE57B8B6370E1617D0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1479601   (1009591) от 24.06.2021
 
 DVS NME - The Electro Manifesto (2021) [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Acid>
@@ -6,7 +64,7 @@ DVS NME - The Electro Manifesto (2021) [FLAC|Lossless|WEB-DL|tracks] <Electro, I
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009591.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Smyglyssna - Departures (2001) Vertical Form [FLAC|Lossless|Vinyl|tracks] <Leftf
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009587.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ De-Phazz - Discography 42 Releases (1997-2020) Mole Listening Pearls, Phazz-a-de
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009484.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Morphology - Discography 29 Releases (2010-2021) Zyntax Motorcity, Abstract Form
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009474.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Nutronixx - Planet Of Love (2020) [FLAC|Lossless|tracks + .cue] <Synth-pop, Euro
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009472.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Mause - Run/Stop EP & Remixes (2021) Massage Brain Cult [FLAC|Lossless|WEB-DL|tr
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009460.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Gimmik - Discography 15 Releases (1997-2021) Worm Interface, Toytronic, n5MD [FL
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009432.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Liebknecht (Daniel Myer & Rinaldo Bite) - Discography 8 Releases (2017-2021) Har
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009428.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Eli & Fur - Found In The Wild (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, Deep Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009413.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Female Vocal Trance 2021 [FLAC|Lossless|WEB-DL|tracks] <Uplifting Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009411.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Microlith | Rhys Celeste - Discography 13 Releases (2014-2021) CPU Records, mind
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009387.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Bot1500 - Discography 9 Releases (2016-2021) Analogical Force, Furthur Electroni
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009266.jpg" />
 </div>
 
 
@@ -353,7 +411,7 @@ Oliver Schories - Paradigm (2020) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tec
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009185.jpg" />
 </div>
 
 
@@ -382,7 +440,7 @@ VA - Summer In Space Vol. 4 (2021) [MP3|320 Kbps] <Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009184.jpg" />
 </div>
 
 
@@ -411,7 +469,7 @@ Balmorhea - The Wind (2021) [FLAC|Lossless|tracks + .cue] <Modern Classical, Pos
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009182.jpg" />
 </div>
 
 
@@ -440,7 +498,7 @@ VA - Summer In Space Vol. 4 (2021) 2CD, Compilation [FLAC|Lossless|WEB-DL|tracks
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009180.jpg" />
 </div>
 
 
@@ -469,7 +527,7 @@ VA - Matters Of The Heart (2021) Behind The Sky Music [FLAC|Lossless|WEB-DL|trac
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009169.jpg" />
 </div>
 
 
@@ -498,7 +556,7 @@ VA - Cafe Del Mar Ibiza - Made Of Sunsets (2021) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009162.jpg" />
 </div>
 
 
@@ -527,7 +585,7 @@ Faint - Label-Pack 28 Releases (2016-2021) [FLAC|Lossless|WEB-DL|tracks] <Ambien
 >>Label-Packs
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008886.jpg" />
 </div>
 
 
@@ -556,7 +614,7 @@ VA - Monday Dreamin' (2021) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008856.jpg" />
 </div>
 
 
@@ -585,7 +643,7 @@ VA - Matters Of The Heart (2021) Behind The Sky Music [FLAC 2.0|48/24|tracks|WEB
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008848.jpg" />
 </div>
 
 
@@ -614,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008833.jpg" />
 </div>
 
 
@@ -643,7 +701,7 @@ Ryan Lee West (Rival Consoles, Aparatec) - Discography 20 Releases (2007-2021) E
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008797.jpg" />
 </div>
 
 
@@ -672,7 +730,7 @@ VA - Adykt (2021) Dyadik [FLAC|Lossless|WEB-DL|tracks] <IDM, Leftfield, Glitch, 
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008742.jpg" />
 </div>
 
 
@@ -686,64 +744,6 @@ VA - Adykt (2021) Dyadik [FLAC|Lossless|WEB-DL|tracks] <IDM, Leftfield, Glitch, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D01472113A1692504E7BC373D45555B397D3A8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480767   (1008712) от 30.06.2021
-
-VA - Acoustic Guitar Hits 2021 [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JP Cooper - September Song - Guitar Acoustic (3:32)
-02. Filip Rudan - Blind (2:59)
-03. Lewis Capaldi - Before You Go - Guitar Acoustic (3:38)
-04. Vinko Ćemeraš & Talvi Tuuli - A Quiet Storm For Her (3:35)(   Читать дальше...   )Жанр: Easy Listening, LoungeПродолжительность: 02:28:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B829179034E3EF78612BBD7DF7544E2F665E5DA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480970   (1008597) от 01.07.2021
-
-VA - Chilled Orient: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sami Sivananda - Temple Tunes - Original Mix (6:45)
-02. Mirage Of Deep - Road of Life (Frontiers of Asia) - Original Mix (5:36)
-03. Marga Sol - Awakening - Original Mix (4:20)
-04. Vellúa - Navin - Original Mix (4:54)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:26:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C4DBCFE214FD2BAC9E1B03C7D570263C1297742
 ```
 
 https://mybot314.ru/tekegram_catalog/

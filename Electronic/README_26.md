@@ -1,3 +1,61 @@
+###  Публикация: 1445337   (1033758) от 05.02.2021
+
+VA - Liquid Drum & Bass Sessions Vol 12 (2020) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unknown Artist - Superstylin' DnB (05:56)
+02. Command Strange, Cnof - Rainy Day (04:33)
+03. Malaky - Serenity (04:48)
+04. Sevin - Feelin So (05:09)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:57:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C09288DB468235FFE0F475E14971A34E56468D18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445115   (1033751) от 05.02.2021
+
+The 5th Galaxy Orchestra - The Melody of the Universe (2020) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Nu-Disco>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - C - (4:31)
+02. The Melody of the Universe (Re-Edit) (5:00)
+03. Night Melts in Sunrise (6:16)
+04. Arianne Dub (5:51)(   Читать дальше...   )Жанр: Chillout, Lounge, Nu-DiscoПродолжительность: 01:16:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:425413DE22A7608B8E153EE0543174961EAE02A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1376076   (1033703) от 05.02.2021
 
 Nicolas Jaar | A.A.L. (Against All Logic) | Ancient Astronaut - Discography 47 Releases (2008-2021) Other People [FLAC|Lossless|tracks+.cue, tracks] <Experimental, Ambient, House, Downtempo>
@@ -6,7 +64,7 @@ Nicolas Jaar | A.A.L. (Against All Logic) | Ancient Astronaut - Discography 47 R
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033703.jpg" />
 </div>
 
 
@@ -32,7 +90,7 @@ Eroticamila - Porn Mood Erotic Sounds (2020) [MP3|320 Kbps] <Easy Listening, Ele
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033690.jpg" />
 </div>
 
 
@@ -61,7 +119,7 @@ Wes Borland - Mutiny on the Starbarge (2023) [FLAC|Lossless|WEB-DL|tracks] <Trip
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033675.jpg" />
 </div>
 
 
@@ -90,7 +148,7 @@ Dreazz & Emery - Ethiopian Jungle (2015) [FLAC|Lossless|WEB-DL|tracks] <Jungle>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033559.jpg" />
 </div>
 
 
@@ -117,7 +175,7 @@ Newt - -273C (1997) Quantum Loop [FLAC|Lossless|tracks+.cue] <IDM, Techno, Exper
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033558.jpg" />
 </div>
 
 
@@ -146,7 +204,7 @@ Dubble Vision & Pixel (DNB) - Rastafari Army (2017) [FLAC|Lossless|WEB-DL|tracks
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033557.jpg" />
 </div>
 
 
@@ -173,7 +231,7 @@ VA - Source Of Life CD1 (2015) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033555.jpg" />
 </div>
 
 
@@ -202,7 +260,7 @@ VA - Armin van Buuren & Ferry Corsten - A State of Trance 1002 (2021) [MP3|320 K
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033534.jpg" />
 </div>
 
 
@@ -231,7 +289,7 @@ Bucky - Deep Down (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient>
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033521.jpg" />
 </div>
 
 
@@ -257,7 +315,7 @@ Bucky - Retribution (feat. D-DUBLL) (2021) [FLAC|Lossless|WEB-DL|tracks] <Electr
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033519.jpg" />
 </div>
 
 
@@ -283,7 +341,7 @@ Tim Schaufert - Save Myself (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Am
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033507.jpg" />
 </div>
 
 
@@ -312,7 +370,7 @@ Bucky - Twist of Fate (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient>
 >>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033501.jpg" />
 </div>
 
 
@@ -338,7 +396,7 @@ VA - Live @ Tomorrowland NYE Edition (2020-12-31) [MP3|~245 Kbps (V0)] <Electro 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033498.jpg" />
 </div>
 
 
@@ -367,7 +425,7 @@ VA - Techno Club Vol 60 (Mixed by Talla 2XLC vs. Xijaro & Pitch) (2020) [MP3|320
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033497.jpg" />
 </div>
 
 
@@ -396,7 +454,7 @@ Frank Mokros (Totakeke, Synth-Etik, Ativ) - Discography 16 Releases (2001-2015) 
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033440.jpg" />
 </div>
 
 
@@ -425,7 +483,7 @@ Darrell Fitton (Bola, Jello) - Discography 18 Releases (1995-2017) Skam [FLAC|Lo
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033412.jpg" />
 </div>
 
 
@@ -454,7 +512,7 @@ VA - Extreme Sports Music Vol 6 (2020) [MP3|320 Kbps] <Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033399.jpg" />
 </div>
 
 
@@ -483,7 +541,7 @@ The 5th Galaxy Orchestra - The Land of Forgotten Tales (2016) [FLAC|Lossless|WEB
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033312.jpg" />
 </div>
 
 
@@ -512,7 +570,7 @@ The 5th Galaxy Orchestra - From Venus to Mars (2016) [FLAC|Lossless|WEB-DL|track
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033300.jpg" />
 </div>
 
 
@@ -541,7 +599,7 @@ The 5th Galaxy Orchestra - The Return to Planet Nostalgia (2018) [FLAC|Lossless|
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033298.jpg" />
 </div>
 
 
@@ -570,7 +628,7 @@ MNEKiNG - White After Black (2020) [FLAC|Lossless|WEB-DL|image + .cue] <Acid, El
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033296.jpg" />
 </div>
 
 
@@ -599,7 +657,7 @@ VA - Pure Retrowave, Vol. 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Ret
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033295.jpg" />
 </div>
 
 
@@ -628,7 +686,7 @@ Tim Schaufert - Haunted (2018)  [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Chill
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033293.jpg" />
 </div>
 
 
@@ -654,7 +712,7 @@ The 5th Galaxy Orchestra - Searching for Atlantis (2019) [FLAC|Lossless|WEB-DL|t
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033292.jpg" />
 </div>
 
 
@@ -668,61 +726,6 @@ The 5th Galaxy Orchestra - Searching for Atlantis (2019) [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FFF0A69E30D595A870561ABA8487DF64E285C03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445910   (1033287) от 07.02.2021
-
-Tim Schaufert & Shwin - Sublime - (2017)  [FLAC 2.0|24/44.1|tracks|WEB-DL] <Ambient, Chillstep>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tim Schaufert, Shwin - Sublime (03:55)Жанр: Ambient, ChillstepПродолжительность: 00:03:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B73E03916E6E0982A8E048265142FFEBDDC40568
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445887   (1033278) от 07.02.2021
-
-VA - Pure Retrowave, Vol. 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris Huggett & Parallels - Golden (Radio Edit) (3:52)
-02. Moonrunner83 & Josh Dally - Hearts On Fire (Original Mix) (4:02)
-03. Morgan Willis & Kel - Brand New (Original Mix) (5:25)
-04. Paradise Walk - Summer Heat (Original Mix) (4:29)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 01:30:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17BD8A41BADAA1B19631440E81AEC4A0D1F4C3E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

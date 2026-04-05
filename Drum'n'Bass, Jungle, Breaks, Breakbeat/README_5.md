@@ -6,7 +6,7 @@ Gunsta Sessions - Vol. 2 (2008) [MP3|320 kbps]<Drum&Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197220.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ John B - Live At 7years Jungle Club Freiburg (28 Ноября 2008) [MP3|192 Kbp
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_197204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_197204.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ John B - To Russia With Love (2008) [MP3|320 kbps]<Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197191.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197033.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Stim Axel - На Радиоволнах... (2008) [MP3|320 Kbps] <Drum & Bass, V
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197031.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ VA - Pirate Station X [Mixed by DJ Gvozd] (26.02.2010) [MP3|320 kbps]<Drum'n'Bas
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197025.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Stim Axel - AcousticA (2010) [MP3|320 kbps]<Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197023.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Aphrodite - Break In Reality (2007)
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197019.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Stim Axel - Тишина (2006) [MP3|320 Kbps] <Drum & Bass, Vocal>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197015.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ The Chemical Brothers - For That Beautiful Feeling (2023) [MP3|320 Kbps] <Big Be
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190394.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182757.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ VA - RAM Drum & Bass Annual 2020 (2019) [MP3|320 Kbps] <Drum And Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164313.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ VA - Liquid Drum & Bass Sessions Vol 14 (2016) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144823.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ DJ Muggs (Cypress Hill) - Sound Boy Killa (2012) EP [MP3|320 kbps] <Dubstep, Hip
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136193.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ VA - This Is Bass 2023 (2023) [MP3|320 Kbps] <Breaks, Breakbeat>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121502.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ VA - Spektra's History - 16th Anniversary (2024) [MP3|320 Kbps] <Breaks, Breakbe
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120454.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ ShockOne - Organism Algorithm (2024) [MP3|320 Kbps] <drum 'n' bass, dubstep, dru
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115700.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ VA - drama (2024) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108354.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ VA - Drum & Bass Arena (2012) [MP3|320 кб/с]<Drum'n'Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89983.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ The Chemical Brothers - Don't Think (2012) [MP3|320 кб/с]<Electronic, Breakbe
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85763.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ VA - Spektra's History - 17th Anniversary (2025) [MP3|320 Kbps] <Breaks, Breakbe
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71968.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ VA - Spektra Compilation - Special 600 References (2024) [MP3|320 Kbps] <Breaks,
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50661.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ VA - Drum & Bass Party Hits, Mini Mix Vol. 1 - Extended Versions (2024) [MP3|320
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39006.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ VA - Drum & Bass Party Hits, Mini Mix Vol. 2 - Extended Versions (2024) [MP3|320
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38582.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ VA - This Is Bass 2024 (2024) [MP3|320 Kbps] <Breaks, Breakbeat>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32084.jpg" />
 </div>
 
 
@@ -736,7 +736,7 @@ Pola & Bryson - Fabriclive presents Pola & Bryson (2025) [MP3|320 Kbps] <Drum & 
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4414.jpg" />
 </div>
 
 

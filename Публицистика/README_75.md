@@ -1,3 +1,29 @@
+###  Публикация: 1665510   (182254) от 30.09.2023
+
+Иван Конев | Записки командующего фронтом. 1943—1945 (1989) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182254.jpg" />
+</div>
+
+
+###  Подробнее
+
+Воспоминания посвящены крупнейшим наступательным операциям Советской Армии, проводившимся в 1943-1945 годах. Рисуя грандиозный размах наступления советских войск, автор рассказывает о деятельности Ставки ВГК, военных советов фронтов и армий по подготовке и ведению операций, анализирует действия войск, размышляет об истоках мужества и героизма советских воинов.Жанр: Мемуары, История ВОВИздательство: ВоениздатФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF36D689977A900F14B723AC5AF82E0C5465F491
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665502   (182181) от 30.09.2023
 
 Хайнц Фельфе | Мемуары разведчика (1988) [EPUB]
@@ -6,7 +32,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182181.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182140.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182092.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182034.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181439.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181422.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180460.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179942.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179234.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179020.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178366.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176644.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176316.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176002.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173970.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170662.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170140.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168837.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168481.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ The Epoch Times | Призрак коммунизма управляет наш�
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168073.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167991.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167796.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167606.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166413.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165330.jpg" />
 </div>
 
 
@@ -651,32 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:066E2CF5DF0C9665ED457C70DFE8F8317C6C4456
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432157   (165306) от 16.12.2020
-
-Сати Спивакова | Нескучная классика. Еще не всё (2020) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165306.jpg" />
-</div>
-
-
-###  Подробнее
-
-В программе «Сати. Нескучная классика» известная телеведущая Сати Спивакова разговаривает с самыми разными представителями культуры. Музыканты, дирижеры, танцовщики, балетмейстеры, актеры, режиссеры, художники и писатели – они обсуждают классику, делятся историями из своей жизни и творчества, раскрывают тайны загадочного музыкального мира. В этой книге собраны самые (   Читать дальше...   )Жанр: Культурология, ПублицистикаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13A9D34638CE540A804368919BEC6E558E855C1C
 ```
 
 https://mybot314.ru/tekegram_catalog/

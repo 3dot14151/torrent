@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340312.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Mickeys Ultimate Challenge 1.2 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339834.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Flintstones 1.3 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339599.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ WiFi Connection Manager 1.5.7.113
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339346.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ dict.cc+ Wörterbuch 11.0.2 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338730.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ AmiHear v2.4 [En/Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338577.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ FlyTube 1.09.RC1 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338306.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337867.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337550.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Minecraft - Pocket Edition 0.17.0.1 + Mod [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337317.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ WiFi Analyzer v2.1 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337055.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Adventures of the Gummi Bears v1.2 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337021.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Comix Zone Return 1.5 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336801.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Castlevania Immortality 1.2 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336794.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Videoder Premium v14.4.2 Ultra Mod [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336249.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ FotMob v121.0.8531.20201026 [Ru] - Футбольные новости и LIVE �
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335807.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ PixelLab - Text on pictures v1.9.9 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335236.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Battle City 1.2 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334884.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334746.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ DOG VPN-Unlimited freedom VPN 2.15 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334302.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Putty Squad 1.2 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333710.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Videoder - Video Downloader v9.0.0 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333612.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Felix the Cat 1.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333608.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Mortal Kombat II Unlimited 1.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333342.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Busuu Premiumу v17.8.1.285 Mod by Balatan [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333100.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Alto's Adventure v1.7.6 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332484.jpg" />
 </div>
 
 

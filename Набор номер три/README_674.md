@@ -1,3 +1,212 @@
+###  Публикация: 1755944   (40034) от 18.10.2024
+
+Microsoft Windows 11 24H2 (26100.2033) Pro-Home Optim Lite by OVGorskiy 10.2024 [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40034.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оптимизированная облегчённая (LITE) сборка на основе оригинального образа новой версии операционной системы Windows 11 x64 (64 бит.) 24H2 от Microsoft  Профессиональная и Домашняя. В сборке произведена оптимизация системы для более комфортной работы с ней. Из системы удалены все плиточные приложения, кроме магазина MicrosoftStore и кодеков. Удалена в оптимальном режиме (   Читать дальше...   )Язык интерфейса: Русский (Russian).
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68520D2880E4A1BAC45DF6A3358C3E8E15E39C56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534193   (40031) от 18.10.2024
+
+ELDEN RING (2022) [Ru/Multi] (1.16/dlc) Repack Decepticon [Deluxe Edition]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40031.jpg" />
+</div>
+
+
+###  Подробнее
+
+Elden Ring – фэнтезийное экшен-РПГ приключение, действия которого развиваются в мире, созданном знаменитым Хидэтака Миядзаки, известным по работе над играми Dark Souls. К проекту также приложил руку известный писатель Джордж Р. Р. Мартин (Песнь Льда и Огня).Тип издания: RepackРазработчик: FromSoftware Inc.Жанр: Action, RPG, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44B433538C9DD739D3E4E01DF8596BFDD16CFD3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754605   (40018) от 18.10.2024
+
+Skype вернул себе позиции самого популярного файлообменника в России
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40018.jpg" />
+</div>
+
+
+###  Подробнее
+
+Skype вернул себе позиции самого популярного файлообменника в России
+Росстат отмечает взрывной рост пользователей некогда популярного файлообменника Skype в России: за первые сутки после блокировки мессенджера Discord его установили 32 млн человек. Таким образом, он впервые с 2012 года стал самым популярным файлообменником в России.«Мы рады, что наши блудные пользователи, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396489   (39930) от 19.10.2024
+
+Wavelet: Headphone specific equalization v24.10 (2173) Mod by Kirlif' [Ru/Multi]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39930.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разработчик pittvandewitt разработал приложение Wavelet, которое может точно настроить звучание подключенных к смартфону наушников благодаря встроенным инструментам. Главная особенность — наличие звуковых профилей для 2300 моделей наушников, как проводных, так и беспроводных. Эта функция называется AutoEq. Она настраивает звучание на нейтральный стандарт Harman. (   Читать дальше...   )Тип издания: FullРелиз состоялся: 19.10.2024Разработчик: pittvandewittПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9654A0FA823CCD4B24316C82BEC3D0D5092921E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755351   (39929) от 19.10.2024
+
+Adobe Photoshop 2025 26.0.0.26 RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39929.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop 2025 - новая версия программы для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, коллажирования, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4BBB4E61619E9F7F26A2130DB2E24C40395ECC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755356   (39928) от 19.10.2024
+
+Чужой: Ромул / Alien: Romulus (2024) WEB-DL [H.265/2160p] [4K, HDR10+, 10-bit]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39928.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время изучения заброшенной космической станции группа молодых космических колонизаторов сталкивается с самой страшной формой жизни во Вселенной.Производство: Великобритания, США, Венгрия, Австралия, Новая Зеландия, Канада / 20th Century StudiosЖанр: ужасы, фантастика, триллерРежиссер: Феде АльваресАктеры: Кейли Спейни, Изабела Мерсед, Арчи Рено, Дэвид Джонссон Фрэй, Айлин У, Спайк Ферн, Рози Эде, Сома Саймон, Бенсе Океке, Виктор ОризуПеревод: Дублированный, многоголосый, одноголосыйЯзык озвучки: Русский, Грузинский, Украинский, АнглийскийСубтитры: Русские (Forced, Full), Украинские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:59:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E74BDA467BF71E7C98A2FC382E0118954BDE5E61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755879   (39908) от 19.10.2024
+
+Роскомнадзор продолжает считать Google виновным в замедлении YouTube
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39908.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это следует из ответов и возражений на претензии пользователей, которые те направили в прокуратуру и суд (документы есть в распоряжении «Роскомсвободы»).Продолжаем следить за ходом разбирательства россиян с надзорными органами и операторами связи по факту нарушения работы YouTube в России.Один из пользователей написал жалобу в прокуратуру Санкт-Петербурга, поскольку (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755683   (39886) от 19.10.2024
+
+Россия и Китай снимут ремейк фильма «Невероятные приключения итальянцев в России»
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кинематографисты из России и Китая планируют снять ремейк советского фильма «Невероятные приключения итальянцев в России» с участием китайских актеров. Об этом сообщает агентство ТАСС со ссылкой на председателя российской части Российско-китайского комитета дружбы, мира и развития Бориса Титова.Оригинальный фильм «Невероятные приключения итальянцев в России» вышел (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1756390   (39834) от 20.10.2024
 
 Launcher for zapret 1.1 [Ru]
@@ -6,7 +215,7 @@ Launcher for zapret 1.1 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39834.jpg" />
 </div>
 
 
@@ -34,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39827.jpg" />
 </div>
 
 
@@ -60,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39825.jpg" />
 </div>
 
 
@@ -87,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39722.jpg" />
 </div>
 
 
@@ -114,7 +323,7 @@ Launcher for zapret 1.0 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39718.jpg" />
 </div>
 
 
@@ -142,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39716.jpg" />
 </div>
 
 
@@ -168,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39636.jpg" />
 </div>
 
 
@@ -194,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39625.jpg" />
 </div>
 
 
@@ -220,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39537.jpg" />
 </div>
 
 
@@ -246,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39528.jpg" />
 </div>
 
 
@@ -273,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39527.jpg" />
 </div>
 
 
@@ -299,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39452.jpg" />
 </div>
 
 
@@ -326,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39447.jpg" />
 </div>
 
 
@@ -352,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39442.jpg" />
 </div>
 
 
@@ -378,7 +587,7 @@ Alan Wake 2 (2023) [Ru/Multi] (1.2.2/dlc) Repack dixen18 [Deluxe Edition]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39434.jpg" />
 </div>
 
 
@@ -404,7 +613,7 @@ Launcher for zapret 1.2 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39433.jpg" />
 </div>
 
 
@@ -432,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39329.jpg" />
 </div>
 
 
@@ -458,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39262.jpg" />
 </div>
 
 
@@ -469,217 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756959   (39255) от 26.10.2024
-
-Российских разработчиков Linux лишили руководящих статусов
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39255.jpg" />
-</div>
-
-
-###  Подробнее
-
-Грег Кроа-Хартман (Greg Kroah-Hartman), отвечающий за поддержку стабильной ветки ядра Linux, внёс изменение в список мэйнейнеров подсистем ядра Linux, в результате которого были удалены 11 сопровождающих, предположительно работающих в российских компаниях. В качестве причины удаления упомянуто лишь "выполнение различных требований комплаенса" (various compliance (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757156   (39247) от 26.10.2024
-
-Windows 11 20in1 24H2 (incl. LTSC) +/- Office 2024 by SmokieBlahBlah 2024.10.25 [Ru/En]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39247.jpg" />
-</div>
-
-
-###  Подробнее
-
-5 редакций Windows 11 (русские и английские) с обновлениями по октябрь 2024, основанных на оригинальном русском дистрибутиве и интегрированными системными библиотеками
-+5 таких же редакций со встроенным MS Office LTSC 2024 Pro Plus (можно выбрать, ставить ли Office. Галочка перед началом установки.) Язык офиса зависит от выбранного языка ОС. Файлы Office вынесены (   Читать дальше...   )Язык интерфейса: русский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CED7ED7C06DA06EE6794C89567149402C8D44D53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558024   (39246) от 26.10.2024
-
-Старик / The Old Man (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-7 из 7) LostFilm, HDRezka
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дэн Чейз (Джефф Бриджес) — вдовец из Вермонта, который живет с двумя ротвейлерами в тихом уединении и время от времени общается по телефону со своей дочерью. Когда в его доме появляется ватага киллеров, становится очевидно, что Дэн — больше, чем обычный пенсионер с регулярными визитами к врачу и нерегулярным сном. Оказывается, в 1980-х он был оперативником ЦРУ в (   Читать дальше...   )Производство: США / 20th Television, Fox 21 Television Studios, Fresh Bacon Media, Littlefield Company, The Littlefield Co.Жанр: боевик, триллер, драмаРежиссер: Джон Уоттс, Джет Уилкинсон, Зетна ФуэнтесАктеры: Джефф Бриджес, Педж Вахдат, Джон Литгоу, Нур Разуки, Э.Дж. Бонилья, Алиа Шокат, Гбенга Акиннагбе, Билл Хек, Фаран Таир, Этан РэйнсПеревод: Профессиональный многоголосый (LostFilm, HDRezka)Язык озвучки: Русский, английскийСубтитры: русские (forced, Full), английские (Full, SDH)Продолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AF5CDA6A9C21061E533366ACCBB8208E9E5C3A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444823   (39245) от 26.10.2024
-
-Все мои друзья мертвы / Wszyscy moi przyjaciele nie zyja (2020) WEB-DL [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комедия в стиле "Американского пирога" повествует об улётной вечеринке польских студентов, которая кончается загадочной гибелью практически всех участников. Детективам, прибывшим на место преступления на следующий день, предстоит изучить кровавые следы прошлой ночи и по крупицам распутать цепь событий, приведших к кровавой трагедии.Производство: Польша / Aurum FilmЖанр: Драма, комедия, криминалРежиссер: Ян БельцлАктеры: Михал Мейер, Адам Воронович, Юлия Венява-Наркевич, Адам Турчик, Никодем Розбицкий, Моника Кшивковская, Шимон Рошак, Михал Сикорский, Адам Бобик, Матеуш Венцлавек, Яссин ФадельПеревод: Дублированный (Netflix)Субтитры: Русские (Forced,full), английские (Full)Продолжительность: 01:36:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7E698A0EE1A0088C3A2D45102838FB102DFA708
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756978   (39237) от 26.10.2024
-
-Образец авиадвигателя — демонстратора ПД-35 прошел первый этап испытаний
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Опытный образец авиадвигателя — демонстратора технологий ПД-35 успешно завершил первый этап испытаний. Об этом сообщили ТАСС в одном из предприятий, участвующих в разработке двигателя.«Двигатель показал устойчивую работу в соответствии с заданными параметрами и готовится к следующим этапам испытаний», — отметили в предприятии.Разработка двигателя ПД-35 началась летом (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757041   (39154) от 27.10.2024
-
-Роскомнадзор усиливает борьбу с VPN, а чиновники тратят бюджет на платный VPN
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39154.jpg" />
-</div>
-
-
-###  Подробнее
-
-В России уже заблокировано 197 VPN-сервисов Роскомнадзором.  Блокировка VPN-сервисов является приоритетным направлением для ведомства.На этом фоне, весьма необычно выглядит интерес госорганов к закупке VPN-сервисов. Неужели чиновники хотят пользоваться большей свободой, чем большинство обычных граждан?С начала 2024 года государственные структуры резко увеличили свои (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756458   (39146) от 27.10.2024
-
-Одинокие волки / Wolfs (2024) WEB-DL [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Окружной прокурор Маргарет оказывается в весьма щекотливой ситуации: она находится в номере элитного отеля, одежда в крови, в спальне труп молодого человека, с которым она познакомилась нынешним вечером. Судорожно перебирая номера в телефонной книжке, Маргарет находит контакт человека, который «решает проблемы». Вскоре появляется профессиональный чистильщик, который (   Читать дальше...   )Производство: Великобритания, США / Apple Studios, Plan B Entertainment, Smoke HouseЖанр: комедия, криминал, боевикРежиссер: Джон УоттсАктеры: Джордж Клуни, Брэд Питт, Остин Абрамс, Эми Райан, Пурна Джаганнатхан, Златко Бурич, Владимир Сизов, Donut McGunigle, Sergio Cota Jr., Alfred ChouПеревод: Дублированный, многоголосый, двуголосый, авторскийЯзык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (Forced, Full), Украинские (Forced, Full), Английские (Forced, Full, SDH)Продолжительность: 01:47:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A45A5B91D3424A962745AD543B92D7E857824B2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757061   (39143) от 27.10.2024
-
-Launcher for zapret 1.3 [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39143.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для быстрого запуска утилиты zapret (аналог GoodbyeDPI) для ускорения YouTube, Discord etc. Программа предназначена для удобного запуска утилиты zapret, которая разблокирует ютуб, дискорд и еще кучу всего.
-Утилита zapret более сложный и многофункциональный аналог программы GoodbyeDPI.
-На данный момент пробивает замедление ютуба намного эффективнее, чем (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7C31610D64954E3B41D5E7D38E225C6487C1D11
 ```
 
 https://mybot314.ru/tekegram_catalog/

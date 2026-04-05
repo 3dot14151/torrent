@@ -1,3 +1,55 @@
+###  Публикация: 1280032   (763424) от 01.02.2019
+
+Л.Н. Григорьев | Цифровое формирование диаграммы направленности в фазированных антенных решетках (2010) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763424.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изложены методы цифрового диаграммообразования с использованием антенных решеток. Анализируются погрешности, обусловленные наличием дестабилизирующих факторов. Приведены теоретические результаты и экспериментальные данные. Для специалистов-разработчиков радиолокационной аппаратуры, а также для аспирантов и студентов радиотехнических специальностейЖанр: РадиотехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00BFB845FAAC9A4D5B66DFD941A5A50072EAB2C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017117   (762951) от 16.05.2016
+
+Зинаида Марсакова и др. | Производство меховых и овчинно-шубных изделий (1991) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены раскрой и изготовление изделий из различных видов пушно-меховых шкурок и шубной овчины в меховом производстве. Описана технология скорняжного производства, изготовления меховой одежды, меховых головных уборов, изделий из шубной овчины. В отличие от 1-го издания (1974 г.) описано изготовление изделий из мехового велюра.Жанр: Легкая промышленностьФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41BA9446031D9099DADC3DDF08FE4E4C00AF1387
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1017187   (762843) от 16.05.2016
 
 О.А. Бодров | Синтез фазо- и частотноманипулированных сигналов в радиотехнических системах (2016) [PDF]
@@ -6,7 +58,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762843.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762836.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762706.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762548.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762342.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761573.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761500.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760898.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759867.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754847.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754519.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754165.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750837.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748160.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746358.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745254.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_744851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_744851.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743030.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742033.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741779.jpg" />
 </div>
 
 
@@ -535,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737300.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737296.jpg" />
 </div>
 
 
@@ -590,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736852.jpg" />
 </div>
 
 
@@ -616,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732403.jpg" />
 </div>
 
 
@@ -627,58 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BACE0222EA9154DAFB8B4B7D72144E01207D44BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 193604   (731579) от 18.02.2019
-
-Библиотека книг по вакуумной технике
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большая структрированная коллекция книг по вакуумной техникеЖанр: Вакуумная техникаФормат: PDF,djvu
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA1BA2FB126AC6FBB29A8AE178CC4261E84E1B32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 161517   (731577) от 18.02.2019
-
-Карл Ротхаммель | Антенны [2007] [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731577.jpg" />
-</div>
-
-
-###  Подробнее
-
-Радиолюбители уже в течение многих лет неизменно обращаются к справочному пособию Карла Ротхаммеля, ставшему стандартом технической литературы. Сжатые теоретические сведения в сочетании с подробным описанием технических решений позволяют успешно строить перечисленные в книге антенны даже тем, кто слабо разбирается в технике.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3242EAE0D871A8FE311E622A7679F91369816DA9
 ```
 
 https://mybot314.ru/tekegram_catalog/

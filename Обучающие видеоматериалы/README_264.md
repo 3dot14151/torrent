@@ -1,3 +1,32 @@
+###  Публикация: 1519222   (149090) от 23.12.2021
+
+Whitephotoschool, София Карайванская | Коммерческая фотография ONLINE. Тариф - Базовый (2021) PCRec
+
+>>Обучающие видеоматериалы
+>>Фотография и Видео (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149090.jpg" />
+</div>
+
+
+###  Подробнее
+
+ЧТО ТЕБЯ ЖДËТ НА КУРСЕ:
+
+14 ВИДЕОУРОКОВ
+7 лекций + 7 уроков по съёмкам «от и до»(   Читать дальше...   )Производство: WhitephotoschoolЖанр: фотографияПродолжительность: 08:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6D4C8CD45AB7425B7708684308F21CF0A7E27E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1519310   (149083) от 23.12.2021
 
 Learn Squared, Steve Wang | Concept Art Hacks (2019) WEB-DLRip [RU, EN]
@@ -6,7 +35,7 @@ Learn Squared, Steve Wang | Concept Art Hacks (2019) WEB-DLRip [RU, EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149083.jpg" />
 </div>
 
 
@@ -34,7 +63,7 @@ CGMA, Frank Tzeng | Hair Creation & Styling for Games (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149046.jpg" />
 </div>
 
 
@@ -60,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149042.jpg" />
 </div>
 
 
@@ -89,7 +118,7 @@ Genius Courses, Александр Сокирка | Марафон по WordPres
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148976.jpg" />
 </div>
 
 
@@ -115,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148894.jpg" />
 </div>
 
 
@@ -141,7 +170,7 @@ CGMA, Emilia Schatz | Level Design for Games (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148886.jpg" />
 </div>
 
 
@@ -167,7 +196,7 @@ Udemy, Grim Future Studio | Unreal Engine - базовый курс. С нуля
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148820.jpg" />
 </div>
 
 
@@ -196,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148787.jpg" />
 </div>
 
 
@@ -225,7 +254,7 @@ Udemy, Андрей Сумин | Java с нуля до Junior + Подготов
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148764.jpg" />
 </div>
 
 
@@ -252,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148757.jpg" />
 </div>
 
 
@@ -281,7 +310,7 @@ OTUS | Нагрузочное тестирование [Части 3 из 3] (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148713.jpg" />
 </div>
 
 
@@ -309,7 +338,7 @@ FXPHD, Victor Perez | NUK312 Photorealism in Compositing with NUKE Fundamentals 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148692.jpg" />
 </div>
 
 
@@ -335,7 +364,7 @@ FXPHD, Victor Perez | NUK313 Photorealism in Compositing with NUKE Case Studies 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148642.jpg" />
 </div>
 
 
@@ -363,7 +392,7 @@ Udemy, Krystian Wojtarowicz | Leonardo AI: Ultimate Guide For AI Art in Leonardo
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148611.jpg" />
 </div>
 
 
@@ -392,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148558.jpg" />
 </div>
 
 
@@ -420,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148409.jpg" />
 </div>
 
 
@@ -449,7 +478,7 @@ Udemy, Norbert B. Menyhart | React for Beginners - From HTML CSS & JavaScript to
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148384.jpg" />
 </div>
 
 
@@ -476,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148258.jpg" />
 </div>
 
 
@@ -502,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148197.jpg" />
 </div>
 
 
@@ -529,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148176.jpg" />
 </div>
 
 
@@ -558,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148108.jpg" />
 </div>
 
 
@@ -587,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148052.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148019.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ Udemy, James Doyle | Learn To Create a Match-3 Puzzle Game in Unity (2021) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147960.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ BIOMACHINE, Роман Овчаров | Методический материа�
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147774.jpg" />
 </div>
 
 
@@ -683,32 +712,6 @@ BIOMACHINE, Роман Овчаров | Методический материа�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF8BE4DD3146554F87637879059498AD78912D6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434882   (147771) от 26.12.2020
-
-Udemy, Holczer Balazs | Рекурсия, Бэктрекинг и Динамическое программирование в Java / Recursion, Backtracking and Dynamic Programming in Java (2020) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс посвящен фундаментальным концепциям алгоритмических проблем с упором на рекурсию, бэктрекинг, динамическое программирование и подходы «разделяй и властвуй». Насколько мне известно, эти методы очень важны в настоящее время, алгоритмы могут использоваться (и иметь несколько применений) в нескольких областях от разработки программного обеспечения до инвестиционного (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 09:46:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C28865770C73F93DE1E20512B657E19F7841D7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

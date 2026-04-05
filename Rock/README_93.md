@@ -6,7 +6,7 @@ Slade - The Other Side of Slade - The 70's (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128258.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Slade - The Other Side of Slade - The 80s (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126463.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Johnny Hallyday - Made in Rock'n'Roll (2023) [MP3|320 Kbps] <Pop-Rock, Rock'n'Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126262.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Grateful Dead - Winter Solstice (Live) (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126222.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ R.E.M. - Santa Monica 1991 - live (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126214.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Hot Rod Frankie - 9 Albums (2006-2025) [MP3|320 Kbps] <Psychobilly, RAC, Oli, Ho
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126091.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Rainbow - Transmission Impossible (2022) [MP3|320 Kbps] <AOR, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125991.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Johnny Hallyday - Symphonique (2023) [MP3|320 Kbps] <Pop-Rock, Rock'n'Roll>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125593.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ AC/DC - Under The Covers (2023) [MP3|320 Kbps] <Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125105.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Dire Straits - San Antonio Live 1985 (2023) Leftfield Media [MP3|320 Kbps] <Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125059.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Mark Knopfler And Emmylou Harris - Balcony Of Love (2020) Unofficial Release [MP
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124659.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ John Lennon and Yoko Ono Plastic Ono Band with Elephant’s Memory - Power To Th
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124400.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Lumiere Trouble - Sisterie (2023) [MP3|320 Kbps] <Rock Opera, Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123782.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Slade - 12 of Slade (2024) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123687.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ The Tiger Lillies - Onepenny Opera (2022) [MP3|320 Kbps] <Indie Rock, Dark Cabar
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122934.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ To The Max! - Midnight Tea (2024) [MP3|320 Kbps] <Heavy Rock'n'Roll, Garage, Sto
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122512.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Dolly Parton - Rockstar (2024) Deluxe [MP3|320 Kbps] <Pop-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121868.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Slade - Rock n Roll Preachers (2024) [MP3|320 Kbps] <Rock, Glam Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121725.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Karfagen - Messages From Afar Second Nature (2024) [MP3|320 Kbps] <Symphonic Pro
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121519.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Garbage - Garbage (1995) [OGG Vorbis|480 Kbps] <Rock, Pop, Alternative Rock, Pop
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120979.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Robert Hart (Manfred Mann's Earth Band) - Circus Life (2024) [MP3|320 Kbps] <Mel
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120818.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ David Byron - Baby Faced Killer (1978) LP [MP3|320 Kbps] <Electronic, Rock, Disc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119496.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Sorry - Sorry (1978) LP [MP3|320 Kbps] <Electronic, New Wave, Hard Rock, Glam, P
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119334.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Thin Lizzy - Vagabonds Of The Western World (1973) Deluxe Edition, 2023, Univers
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118271.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Pink Floyd - Live At Vienna Stadthalle, Austria, 13 October 1973 (2023) [MP3|320
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117233.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ AC/DC - AC/DC A Touch Too Music Live In Maryland 1979 (Live) (2021) [MP3|320 Kbp
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117219.jpg" />
 </div>
 
 

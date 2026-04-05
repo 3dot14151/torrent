@@ -1,3 +1,162 @@
+###  Публикация: 1635783   (235894) от 27.05.2023
+
+Минтранс (27.05.2023) WEB-DL [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235894.jpg" />
+</div>
+
+
+###  Подробнее
+
+🔸 Наказание за колеса. Может ли инспектор выписать штраф за покрышки от разного производителя, у которых одинаковый рисунок протектора?
+🔸 Американский «недопремиум». Честный тест-драйв Кадиллак SRX 2011. Что не так под капотом статусной иномарки?
+🔸 Полезный лайфхак. Как закрепить держатель к стеклу «намертво»?
+🔸 Opel Zafira 2014. Стоит (   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:48:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F4FB49BC52BE9D2C9F8CC2CE53F987165B7B2C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458096   (235889) от 28.03.2021
+
+Фаградалсфьяль - Исландский вулкан / Fagradalsfjall - Icelandic Volcano (2021) WEBRip [VP9/2160p]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235889.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Исландии на полуострове Рейкьянес началось извержение вулкана Фаградалсфьяль, который до этого спал 6 тысяч лет.Производство: ИсландияЖанр: Документальный, видовойРежиссер: Якоб ФорсПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:09:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16A4538EC1813BD800F7E91AC086F2F2AA51922B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640774   (235885) от 19.06.2023
+
+Фильм без названия / Untitled (2017) WEBRip [H.264/1080p] [EN / EN, RU Sub]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235885.jpg" />
+</div>
+
+
+###  Подробнее
+
+После внезапной смерти Михаэля Главоггера Моника Вилли смонтировала фильм из материалов, снятых режиссером за 4 месяца и 19 дней на Балканах, в Италии, Северо-Западной и Западной Африке.Производство: Австрия, Lotus Film, Österreichischer Rundfunk (ORF), Kasbah Films, Razor Film Produktion GmbHЖанр: документальныйРежиссер: Михаэль Главоггер, Моника ВиллиПеревод: субтитрыЯзык озвучки: английскийСубтитры: английские (Forced), русские (Full, Юрий Сербин)Продолжительность: 01:42:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:338AA04AAC2D461F04CCA59E02B10D9A2C75E3C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631910   (235870) от 08.05.2023
+
+Маска (2023) WEBRip [H.264/720p] (специальный выпуск к юбилею Валерии)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из самых утонченных певиц российской эстрады Валерия в этом году отметила юбилей — 55 лет! В честь дня рождения народной артистки России и бессменного члена жюри шоу «Маска» телеканал НТВ покажет специальный выпуск проекта. Поздравить Валерию с юбилеем придут совершенно новые маски: Авокадо, Сердце, Утренняя Звезда, Овен, Черепаха, Панда и Весна. Также на сцену (   Читать дальше...   )Телекомпания: НТВ | «ВайТ Медиа»Жанр: ТВ-шоу, музыкаПродолжительность: 02:30:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A35542C70E068CBF084E433EEBCFEE06CF65E820
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631638   (235869) от 06.05.2023
+
+История российских тюрем. Владимирский централ (2023) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235869.jpg" />
+</div>
+
+
+###  Подробнее
+
+Портрет тюрьмы, через стены которой прошло рекордное количество политиков, революционеров, ученых, философов и военных. Герои фильма — сотрудники, заключенные и ветераны ФСИН, которые когда-то вели надзор за сыном Сталина Василием, Лидией Руслановой, авторитетами криминального мира.Производство: Россия / Студия «Остров»Жанр: документальныйРежиссер: Юлия БобковаПродолжительность: 01:54:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA10A80D1B7AADB2F035A205384B6EA81F4B8CD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458098   (235859) от 28.03.2021
+
+Мадейра / Madeira (2021) WEBRip [VP9/2160p]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мадейра - такое уникальное место, вероятно, с одним из лучших мест, чтобы сделать несколько хороших снимков.Производство: ПортугалияЖанр: Документальный, видовойРежиссер: Эллис ван ДжейсонПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:04:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF0CAE91A5A1041DB4D9890349FF66608E134265
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1615242   (235855) от 25.02.2023
 
 Пятеро на одного (25.02.2023) WEBRip [H.264/720p-LQ]
@@ -6,7 +165,7 @@
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235855.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235845.jpg" />
 </div>
 
 
@@ -58,7 +217,7 @@ RTG. Мраморный карьер Рускеала (2013) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235837.jpg" />
 </div>
 
 
@@ -84,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235824.jpg" />
 </div>
 
 
@@ -110,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235772.jpg" />
 </div>
 
 
@@ -136,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235771.jpg" />
 </div>
 
 
@@ -162,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235739.jpg" />
 </div>
 
 
@@ -188,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235669.jpg" />
 </div>
 
 
@@ -214,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235618.jpg" />
 </div>
 
 
@@ -240,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235600.jpg" />
 </div>
 
 
@@ -266,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235587.jpg" />
 </div>
 
 
@@ -292,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235537.jpg" />
 </div>
 
 
@@ -318,7 +477,7 @@ RTG. Ювелирное искусство Костромы (2012) SATRip
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235523.jpg" />
 </div>
 
 
@@ -344,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235496.jpg" />
 </div>
 
 
@@ -370,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235452.jpg" />
 </div>
 
 
@@ -396,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235438.jpg" />
 </div>
 
 
@@ -422,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235437.jpg" />
 </div>
 
 
@@ -448,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235385.jpg" />
 </div>
 
 
@@ -474,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235365.jpg" />
 </div>
 
 
@@ -500,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235359.jpg" />
 </div>
 
 
@@ -511,162 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13E85A0CF8E9F7D1C38638F748C4A6D1091DEE72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530714   (235334) от 12.02.2022
-
-Сто к одному (12.02.2022) WEBRip [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235334.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3505F8BCAC11BD2477A9377C6946B24A23558FE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530764   (235320) от 12.02.2022
-
-Пятеро на одного (12.02.2022) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда из пяти звездных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA410FEBCF468F66ADB9C991C3A4A36F197F882D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642685   (235313) от 28.06.2023
-
-RTG. Главный Ботанический сад Российской академии наук (2014) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235313.jpg" />
-</div>
-
-
-###  Подробнее
-
-В России первый ботанический сад - "аптекарский огород" - учредили при царе Иване Грозном в 1581 в Кремле. Заморские растения собирали и культивировали для изготовления лекарств. Сейчас ботанические сады в первую очередь - научные центры, благодаря которым сохраняется многообразие растений на планете. Главный Ботанический сад Российской академии наук крупнейший (   Читать дальше...   )Производство: Россия, RTG Production StudiosЖанр: документальный, познавательный, природаРежиссер: Илья ПетровУчастники: Румия НиязоваЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:26:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF60C00B0E453CB3ECA00496D73C6474D049879F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638232   (235293) от 28.06.2023
-
-Авто S.O.S. / Car S.O.S. (2017) HDTVRip [H.264/1080i-LQ] (сезон 5, серии 2-5, 7-10 из 10) (обновляемая)
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235293.jpg" />
-</div>
-
-
-###  Подробнее
-
-Возьмите одну любимую, но изрядно потрепанную машину, прибавьте хозяина, нуждающегося в помощи, тайком увезите этот автомобиль в прекрасно оборудованную мастерскую, в течение трех недель сдабривайте его смазкой, краской и ноу-хау по авторемонту, а затем верните его ничего не подозревающему владельцу, приправив щедрой порцией сюрприза. Когда автомеханики Тим и Фазз, (   Читать дальше...   )Телекомпания: National Geographic ChannelsЖанр: Телепередача, автомобилиУчастники: Tim Shaw, Fuzz TownshendПеревод: Одноголосый профессиональныйЯзык озвучки: РусскийПродолжительность: ~00:44:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7611B642EB08D48A517AB5095149F72BA80761FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632705   (235292) от 11.05.2023
-
-«И только так!». Фильм к юбилею Валерии (2023) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот фильм не повторяет уже рассказанных историй, он показывает Валерию сейчас, сегодня. К своей красивой дате в две пятерки она подошла с достоинством, на которое способна только эта артистка. Отличница по жизни, Валерия живет по своим правилам. Какие они? Сколько душевных и физических сил нужно, чтобы им следовать? И как это помогает в творчестве, где, казалось (   Читать дальше...   )Производство: Россия | Freemotion GroupЖанр: документальныйРежиссер: Наташа ФефеловаЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:49:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D45AEB8C858E3C10973176D3D020FB88C992C3B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575976   (235233) от 14.09.2022
-
-Нечисть (2012-2019) WEBRip [H.264/1080p] (сезон 1, выпуск 1-16 из 16)
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235233.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник фильмов, в которых можно увидеть всех мифических существ, которые упоминались в легендах и историях. В каждом выпуске телешоу «Нечисть» команда проекта проводит эксклюзивное расследование и находит доказательства существования темных сил. Ведьмы, оборотни, вампиры и русалки живут среди нас, но лишь немногим удается обнаружить их присутствие. Зрители услышат (   Читать дальше...   )Телекомпания: Россия | «BCBG Production»Жанр: документальный, мистикаЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:47:00 выпуск
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3017F2924EFF5377739E5F03CE8C9EE2C979371F
 ```
 
 https://mybot314.ru/tekegram_catalog/

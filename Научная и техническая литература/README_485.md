@@ -1,134 +1,3 @@
-###  Публикация: 1338019   (271653) от 13.11.2019
-
-Э.В. Кононович | Солнце - дневная звезда (1982) [DJVU, PDF]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271653.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассказывается о физической природе звезд на примере свойств ближайшей звезды - Солнца.
-Особое внимание уделяется самым различным взаимосвязям, проблеме происхождения вещества и эволюции материи.Жанр: научно-популярнаяФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B70DA33AF176811DBFCA979BA7356576CD1208A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 156696   (271644) от 30.11.2018
-
-Т. Фицпатрик и др. | Дерматология. Атлас-справочник (1999) [doc]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271644.jpg" />
-</div>
-
-
-###  Подробнее
-
-Правильный диагноз — ключ к успеху лечения. Мы стремились создать руководство, ко-торое сделало бы диагностику кожных болезней посильной для врача любой специальности. Овладеть ей непросто; самое главное — научиться видеть. Именно поэтому наша книга написана в форме атласа. Краткие описания болезней, принципов диагностики и методов лечения расположены рядом с большими (   Читать дальше...   )Жанр: ДерматологияПеревод: Е.Р.  Тимофеева ред.)Формат: DOC
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F159C3A765BA4649276816CC60137BD672902A8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337811   (271430) от 13.11.2019
-
-С.В. Лукинских и др. | Инженерная графика. Выполнение рабочих чертежей деталей (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие содержит сведения по производству конструкторских чертежей, правила и примеры выполнения чертежей различных деталей. Представлены варианты заданий к домашним и расчетно-графической работам, а также примеры выполнения работЖанр: ГрафикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59BED5DB524EC0EDE713775B78F5FA8106B67F40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 444777   (270750) от 01.12.2018
-
-Стенография [1952] [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270750.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уже давно люди думали о письме, которое давало бы возможность записывать речь с такой же быстротой, с какой она произносится. Они обратили внимание на большую разницу в скорости произнесения слова и его записи. Различными способами люди сокращали слова и буквы. В результате появилась стенография... Настоящий учебник стенографии является первым пособием, написанным (   Читать дальше...   )Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29618D36DBF2DE5EF42B6E8F20761564DE8172FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 150214   (270614) от 01.12.2018
-
-Аристотель | Собрание сочинений [10 книг] (384–322 до н.э.) [FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мышление Аристотеля направлялось острым ощущением реальности, существующей независимо от людских мнений и желаний, и глубокой верой в способность человеческого ума, должным образом примененного, познать эту реальность такой, какая она есть. Вместе эти два убеждения породили в нем беспримерную готовность следовать эмпирическим фактам, куда бы они ни вели, и незаурядное (   Читать дальше...   )Жанр: ФилософияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B07C1332FC0094D81AF8359E25358C7D2A7A7E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1189167   (270412) от 06.12.2017
 
 Виталий Бессонов | Тарутинское сражение (2008) [PDF, FB2, EPUB]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270412.jpg" />
 </div>
 
 
@@ -163,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270389.jpg" />
 </div>
 
 
@@ -189,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270368.jpg" />
 </div>
 
 
@@ -215,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269697.jpg" />
 </div>
 
 
@@ -242,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269511.jpg" />
 </div>
 
 
@@ -268,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269494.jpg" />
 </div>
 
 
@@ -294,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269431.jpg" />
 </div>
 
 
@@ -320,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269409.jpg" />
 </div>
 
 
@@ -347,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269200.jpg" />
 </div>
 
 
@@ -373,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269195.jpg" />
 </div>
 
 
@@ -399,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269193.jpg" />
 </div>
 
 
@@ -425,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269177.jpg" />
 </div>
 
 
@@ -451,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269173.jpg" />
 </div>
 
 
@@ -477,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269170.jpg" />
 </div>
 
 
@@ -503,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269168.jpg" />
 </div>
 
 
@@ -529,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269166.jpg" />
 </div>
 
 
@@ -557,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269154.jpg" />
 </div>
 
 
@@ -583,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269141.jpg" />
 </div>
 
 
@@ -610,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269089.jpg" />
 </div>
 
 
@@ -638,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269085.jpg" />
 </div>
 
 
@@ -666,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269074.jpg" />
 </div>
 
 
@@ -679,6 +548,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EEAEA920C645C756065DE908CC7C207996DF4B61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142882   (269054) от 03.12.2018
+
+Книжная серия | Мировая электроника [22 +5 CD] (2000-2016) [PDF.DJVU] [Обновляемая]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269054.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книги серии «Мировая электроника» представляют собой справочные пособия по микроконтроллерам: интересные и актуальные издания, многие из которых до сих пор единичные в своем роде и пользуются спросом у специалистов, студентов и преподавателей разных направлений и специальностей.Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB99C0AB4CD0F40BA9C017A76C28B883A629DB0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338618   (269002) от 16.11.2019
+
+К. Каутский | Возникновение рабочего класса (1923) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярный исторический очерк об истории возникновения рабочего класса - со времен Римской империи и до позднего средневековья, когда начали образовываться современная буржуазия и пролетариат...Жанр: История, политология, социология, публицистикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3401C599F253766A855389D5B85342FFEF7CDE99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338623   (268995) от 16.11.2019
+
+Н. А. Константинов (ред.) | Очерки по истории педагогики. Сборник статей (1952) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемые читателям «Очерки по истории педагогики» являются книгой справочно-обзорного характера. В первой части «Очерков» освещается история педагогики и школы до Великой Октябрьской социалистической революции. Вторая часть посвящена истории педагогики и школы со времени Великого Октября до наших дней.
+
+Главное место в очерках занимает история марксистско-ленинской (   Читать дальше...   )Жанр: История, социология, психология, педагогика, искусство, публицистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0998B13C7B8CB9FF90F3413D57FCF90FC33318A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338620   (268840) от 16.11.2019
+
+К. С. Бакрадзе | Логика (1951) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268840.jpg" />
+</div>
+
+
+###  Подробнее
+
+Логика — наука о законах и формах правильного мышления. Таково общее определение логики, освященное традицией. Это определение может быть и правильным и ложным, смотря по тому, какое содержание вкладываем мы в это определение. В этом определении мы пользуемся такими понятиями, как «закон», «форма», «правильное», «мышление », которые могут быть понимаемы — и на самом (   Читать дальше...   )Жанр: История, науковедение, философия, логикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D7BB53DC95231848D65EFB116A0CC38CD2CBB38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190000   (268648) от 08.12.2017
+
+Сергей Реутов (сост.) | Самые жуткие и мистические места на планете и тайны их жителей (2017) [FB2]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почему человек боится проклятия? Что собой представляет сам феномен проклятия и почему, как бы страшно ни было входить в заброшенное здание, человек все равно заходит туда? Почему нас так привлекает неведомое? Возможно, ответ на эти вопросы надо искать не извне – в самих проклятых городах и домах, – а внутри, в потаенных участках сознания?
+• Проклятые мосты и дороги (   Читать дальше...   )Жанр: Научно-популярная литература, Таинственные явления, Мистические тайныФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:330C044F6416B33ADC1EFC9C8853E408B930D04A
 ```
 
 https://mybot314.ru/tekegram_catalog/

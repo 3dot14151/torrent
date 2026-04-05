@@ -1,3 +1,57 @@
+###  Публикация: 1595578   (175012) от 06.12.2022
+
+А.В. Усова, А.А. Бобров | Формирование умений и навыков на уроках физики (1988) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175012.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге раскрываются основы методики формирования у школьников учебных умений по физике на различных этапах обучения; дается классификация этих умений.
+Использование материала данного пособия поможет учителю более полно и глубоко осуществлять всестороннее развитие подрастающего поколения.
+Показывая методы формирования обобщенных познавательных и практических умений, (   Читать дальше...   )Жанр: физикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E1CC420B40454D412F9A53B8EBC79FCF63C9BE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595577   (175009) от 06.12.2022
+
+А.Е. Марон, В.Е. Марон | Задания по физике для учащихся 9 класса вечерней (заочной) средней школы (1986) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пособие содержит задания по физике для самостоятельной работы учащихся IX класса вечерней (заочной) школы. Каждое задание состоит из перечня вопросов программы, указаний к работе с учебником, вариантов зачетных работ, заданий повышенной сложности.Жанр: физикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E16DC0599AC3809092D0706D2163F35AA53046D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595566   (174975) от 06.12.2022
 
 Е.Н. Архангельский и др. | Судовая электротехника и электроника (1985) [DJVU]
@@ -6,7 +60,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174975.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174972.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174522.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174462.jpg" />
 </div>
 
 
@@ -111,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174342.jpg" />
 </div>
 
 
@@ -137,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174332.jpg" />
 </div>
 
 
@@ -163,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174316.jpg" />
 </div>
 
 
@@ -189,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174310.jpg" />
 </div>
 
 
@@ -216,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174307.jpg" />
 </div>
 
 
@@ -242,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174229.jpg" />
 </div>
 
 
@@ -268,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174185.jpg" />
 </div>
 
 
@@ -295,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_173966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_173966.jpg" />
 </div>
 
 
@@ -321,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173959.jpg" />
 </div>
 
 
@@ -347,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_173956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_173956.jpg" />
 </div>
 
 
@@ -373,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_173944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_173944.jpg" />
 </div>
 
 
@@ -400,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_173895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_173895.jpg" />
 </div>
 
 
@@ -426,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_173805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_173805.jpg" />
 </div>
 
 
@@ -452,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_173695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_173695.jpg" />
 </div>
 
 
@@ -478,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_173678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_173678.jpg" />
 </div>
 
 
@@ -504,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_173660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_173660.jpg" />
 </div>
 
 
@@ -530,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173602.jpg" />
 </div>
 
 
@@ -559,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173589.jpg" />
 </div>
 
 
@@ -585,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172935.jpg" />
 </div>
 
 
@@ -611,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172916.jpg" />
 </div>
 
 
@@ -622,58 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3E5AF4D2F5C7A4AF4D9E12A5F0BF6B15E0BC076
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669461   (172816) от 16.10.2023
-
-И.И. Ляшко и др. | Основы классического и современного математического анализа (1988) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172816.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии изложен математический анализ с основами теории функций комплексной и действительной переменных, а также некоторые разделы функционального анализа. Дифференциальное исчисление построено на идеях Ферма — Лагранжа. В интегральном исчислении введен в рассмотрение интеграл Ньютона — Лейбница и показаны его приложения. Проведено сравнение интегралов Ньютона (   Читать дальше...   )Жанр: МатематикаИздательство: Вища школаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1111F487AB2D2A8004D66AF4E26A1723C1B856A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669521   (172796) от 16.10.2023
-
-Б.П. Демидович | Сборник задач и упражнений по математическому анализу (1990) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172796.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник включено свыше 4000 задач и упражнений по важнейшим разделам математического анализа: введение в анализ, дифференциальное исчисление функций одной переменной, неопределенный и определенный интегралы, ряды, дифференциальное исчисление функций нескольких переменных, интегралы, зависящие от параметра, кратные и криволинейные интегралы. Почти ко всем задачам (   Читать дальше...   )Жанр: МатематикаИздательство: НаукаФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C32840210403C982B11779F6DC9B01CEE83ACD3A
 ```
 
 https://mybot314.ru/tekegram_catalog/

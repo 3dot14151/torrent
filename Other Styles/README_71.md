@@ -1,3 +1,61 @@
+###  Публикация: 1135883   (679131) от 20.05.2017
+
+VA - Kamasutra Essential Music (2013) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Indian Dawn - Predictions (05:22)
+02. Street Line - Chill Sensation (04:12)
+03. Isla Deejay - Into Your Mind (05:21)
+04. Deep blue - Velvet Secrets (04:21)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:36:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62FC3C1AF312823D45A8064BDBBEDB4F50122985
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290540   (678213) от 20.03.2019
+
+VA - Green Book (Original Motion Picture Soundtrack) (2018) [FLAC|Lossless|tracks + .cue] <Soundtrack, Blues, Classical>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Green Book Copacabana Orchestra - That Old Black Magic (2:14)
+02. Kris Bowers - 881 7th Ave (0:48)
+03. The Blue Jays - So Long Lovers Island (2:22)
+04. Kris Bowers - Dr. Shirley's Luggage (0:34)(   Читать дальше...   )Жанр: Soundtrack, Blues, ClassicalПродолжительность: 00:57:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06BD949CF6FFAAC23D34C4E734EE40F4B06A49E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290423   (678198) от 20.03.2019
 
 VA - # Best Relaxation Music 2019 [MP3|320 Kbps] <New Age, Relaxation>
@@ -6,7 +64,7 @@ VA - # Best Relaxation Music 2019 [MP3|320 Kbps] <New Age, Relaxation>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678198.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Acoustic Sound Orchestra - Candle In The Wind (1997) Box Set, 3CD, Compilation [
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677985.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ John Adorney - 8 albums (1998 - 2014) [MP3|320 kbps]<New age, Relax, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677425.jpg" />
 </div>
 
 
@@ -99,7 +157,7 @@ Harvestman - 3 albums (2005-2010) [FLAC|Lossless] <Drone Ambient, Psychedelic Fo
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_677200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_677200.jpg" />
 </div>
 
 
@@ -134,7 +192,7 @@ Steve Von Till - 3 albums (2000-2008) [FLAC|Lossless] <Acoustic, Neofolk, Ambien
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_677062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_677062.jpg" />
 </div>
 
 
@@ -169,7 +227,7 @@ Jakob - 5 albums (1999-2006) [FLAC|Lossless] <Post-Rock, Ambient, Instrumental>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_676899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_676899.jpg" />
 </div>
 
 
@@ -201,7 +259,7 @@ The Allegorist - Botanical Utopia (2016) [MP3|320 Kbps] <Electronic, Nu Disco, A
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676668.jpg" />
 </div>
 
 
@@ -230,7 +288,7 @@ Victor Reyes - Down A Dark Hall (2018) [FLAC|Lossless|tracks + .cue] <Soundtrack
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676583.jpg" />
 </div>
 
 
@@ -259,7 +317,7 @@ Jeff Beal - House Of Cards - Season 6: Music From The Netflix Original Series (2
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676324.jpg" />
 </div>
 
 
@@ -288,7 +346,7 @@ VA - Вечерняя Коллекция (Звуки природы) (2010) [FLA
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_676057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_676057.jpg" />
 </div>
 
 
@@ -321,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676055.jpg" />
 </div>
 
 
@@ -347,7 +405,7 @@ NeillyRich - Here Now Forever (2017) [FLAC|Lossless|tracks] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674901.jpg" />
 </div>
 
 
@@ -376,7 +434,7 @@ J Stallworth - Unleashed (2016) [MP3|320 Kbps] <Instrumental>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674414.jpg" />
 </div>
 
 
@@ -405,7 +463,7 @@ Tom Russell - October in the Railroad Earth (2019) [FLAC|Lossless|tracks + .cue]
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674334.jpg" />
 </div>
 
 
@@ -434,7 +492,7 @@ Lullatone - Music For Museum Gift Shops (2019) 2CD [FLAC|Lossless|tracks + .cue]
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674332.jpg" />
 </div>
 
 
@@ -463,7 +521,7 @@ VA - Kamasutra Divine: Harmonious Lessons for Love (2013) [MP3|320 Kbps] <New Ag
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673124.jpg" />
 </div>
 
 
@@ -492,7 +550,7 @@ Holly Benton - Road Trip (2017) [MP3|320 Kbps] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_673012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_673012.jpg" />
 </div>
 
 
@@ -521,7 +579,7 @@ VA - Music to Help You Sleep: Deep Restful Sleeping (2017) [MP3|320 Kbps] <Downt
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_673010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_673010.jpg" />
 </div>
 
 
@@ -550,7 +608,7 @@ VA - Thai Massage Lounge: Asian Zen Spa Relaxation (2017) [MP3|320 Kbps] <New Ag
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672877.jpg" />
 </div>
 
 
@@ -579,7 +637,7 @@ VA - Baywatch / Спасатели Малибу (Music From The Motion Picture) 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672537.jpg" />
 </div>
 
 
@@ -608,7 +666,7 @@ The Bodarks - Uprooted (2018) [FLAC|Lossless|tracks + .cue] <Contemporary Folk, 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672350.jpg" />
 </div>
 
 
@@ -637,7 +695,7 @@ Offrandes - Best of 2008-2015 (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672291.jpg" />
 </div>
 
 
@@ -666,7 +724,7 @@ Louis Landon - Ebb and Flow - Solo Piano (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672289.jpg" />
 </div>
 
 
@@ -695,7 +753,7 @@ Aetos - Aetos (2016) [FLAC|tracks|WEB-DL]<Post-Metal, Post-Rock, Instrumental>
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672278.jpg" />
 </div>
 
 
@@ -709,69 +767,6 @@ Aetos - Aetos (2016) [FLAC|tracks|WEB-DL]<Post-Metal, Post-Rock, Instrumental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C9E19C73B308D6BA71CE0C4C55FDA1CF42D21FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290947   (672218) от 23.03.2019
-
-Royal Philharmonic Orchestra London - Rock Dreams (Unknown) Box Set, 4CD, Compilation [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How Deep Is Your Love (4:12)
-02. He Ain't Heavy, He's My Brother (4:30)
-03. Nobody Does It Better (3:30)
-04. Arthur's Theme (The Best You Can Do) (3:28)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 03:27:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72B0B9DF50C278247C1B9BA22800114653E36827
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 509995   (672202) от 13.06.2012
-
-Gregor Samsa - 6 albums (2002-2009) [FLAC|Lossless] <Post-Rock, Ambient, Instrumental>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ain Leuh (05:08)
-02. Jeroen Van Aken (09:11)
-03. Three (05:26)
-04. Adolescent (05:30)
-05. Abutting, Dismantling (06:26)
-06. Young and Old (06:33)
-07. Du Meine Leise / ALTMIX (03:52)
-08. XXX / GS + Tiempo (04:40)
-09. Lean / GS + B Donne (07:09)2002-2009Жанр: Post-Rock, Ambient, InstrumentalПродолжительность: 00:53:59
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

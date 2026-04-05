@@ -6,7 +6,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85752.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Armin van buuren video asot 550 live in Kiev (2012) (CamRip/DVD5)
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85725.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85555.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Lady GaGa Presents: The Monster Ball Tour at Madison Square Garden (2011) [1080p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85018.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Iron Maiden: En Vivo! (2012) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84954.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Hammerfall - Клипы (1997 - 2009) DVDRip-AVC
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84939.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Iron Maiden: En Vivo! (2012) [1080p] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84631.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Iron Maiden: En Vivo! (2011/2012) [720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84613.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Iron Maiden - En Vivo! (2012) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84515.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84332.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Angel Voices. Libera in Concert(2007) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84295.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84246.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84078.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84048.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Monsters of Metal Vol.8 (2012) 2хDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83746.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83711.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83696.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Gregorian - Christmas Chants & Visions - Live in Berlin (2008) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83095.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83066.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82932.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82805.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ UK Top 40 Music Video Hits Febuary 2012 (DVD5)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82706.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82271.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81908.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81897.jpg" />
 </div>
 
 
@@ -720,7 +720,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81846.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Fred Hersch Trio '97 - At The Village Vanguard (2018) Palmetto Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189848.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ McCoy Tyner - The Best Of: The Blue Note Years (1967 - 1995) 1996, Blue Note [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189823.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Orna - The Very Thought Of You (2003) A440 Music Group [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189817.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ John Sneider - The Scrapper (2020) Cellar Music [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189778.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Ethan Iverson Quartet With Tom Harrell - Common Practice (2017) 2019, ECM Record
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189475.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Kenny Barron, Dave Holland, Johnathan Blake - Without Deception (2020) Dare2 Rec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189471.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Brandi Disterheft - Blue Canvas (2016) Justin Time [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189450.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Jimi Tenor - Multiversum (2022) [FLAC|Lossless|tracks + .cue] <Nu Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189448.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Joe "Fingers" Webster & The Swing Fever Big Band - Hooked On Big Bands (1993) K-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189446.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Brandi Disterheft Trio With George Coleman - Surfboard (2020) Justin Time [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189442.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ McCoy Tyner - What's New? (1987) 1998, West Wind [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189426.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Marina Pacowski - Inner Urge (2023) Summit Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189411.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Jazz & Soul Season 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189393.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Montreal Jazz Club 2023, Vol. 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189383.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Luxury Jazz Essentials 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189380.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Unforgettable Romantic Moments Smooth Jazz Tunes (2023) [FLAC|Lossless|WEB-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189374.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Jazz music to concentrate (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189371.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Bar Lounge Costes, Vol. 6 Lounge & Smooth Jazz Flavors (2023) [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189362.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Idris Muhammad - Turn This Mutha Out (1977) 2016, King Record [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189166.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Johnny Smith - The Complete Roost Johnny Smith Small Group Sessions (1952 - 1964
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189150.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Louis Hayes - Serenade For Horace (2017) Blue Note [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188985.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Junko Onishi - Baroque (2010) Verve [FLAC|Lossless|tracks + .cue] <Post-Bop, Str
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188839.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Tommy Flanagan - Super Session (1980) 1988, Enja Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_188788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_188788.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Brad Mehldau - Your Mother Should Know: Brad Mehldau Plays The Beatles (2020) 20
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188573.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Take 6 - Live (2000) Reprise Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188475.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Jakob Bro Trio - Who Said Gay Paree? (2008) Loveland Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188109.jpg" />
 </div>
 
 

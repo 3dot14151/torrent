@@ -1,134 +1,3 @@
-###  Публикация: 1478095   (1010647) от 17.06.2021
-
-Г.К. Жуков и др. | Берлинская операция. Сборник воспоминаний (2021) [EPUB]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010647.jpg" />
-</div>
-
-
-###  Подробнее
-
-Берлинская операция стала кульминацией Великой Отечественной войны, ее отсроченным финалом, к которому Советская армия рвалась долгих четыре года. Наша страна заплатила миллионами жизней за то, чтобы над рейхстагом развивался красный флаг.
-Удивительно, но подробности взятия Берлина не очень хорошо известны широкому читателю до сих пор. Есть простой смысловой ряд (   Читать дальше...   )Жанр: Биографии и мемуары, Военная историяФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62F352F7327A5CCB2D01EF7506015E6A1324CDBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478089   (1010645) от 17.06.2021
-
-Борис Соколов | Рейх. История германской империи (2021) [EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010645.jpg" />
-</div>
-
-
-###  Подробнее
-
-Германская империя существовала с 1871 по 1945 г., хотя она и восходит к империи Карла Великого и Священной Римской империи. Созданная волей «железного канцлера» Бисмарка, она объединила разрозненные немецкие земли в сильное государство, которое разбило Францию, захватило ряд колоний. В дальнейшем Третий рейх под руководством Гитлера cмог подчинить себе почти всю (   Читать дальше...   )Жанр: Общая историяФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77D074C9C12A42B93AE08B197C1EE4AE4FC9AD46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478127   (1010609) от 17.06.2021
-
-Александр Прокопович | Курс начинающего автора [5-е издание] (2021) [EPUB]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010609.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Читателям этого знать не надо, но авторы должны отдавать себе отчет, что мастер слова – это нечто большее, чем человек, который написал некую историю. Некую историю раз в жизни может написать любой нормальный человек. Скорее всего, это будет автобиографический текст, и, скорее всего, он будет неплох: ведь если выжать в одну книгу все самое забавное, что было в жизни, (   Читать дальше...   )Жанр: Литературоведение, Руководства, Писательское мастерствоФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B6B2CF5E0BC48BEE381BCB4B7AAF325E0AB8C52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 621266   (1010558) от 17.06.2021
-
-Настольный энциклопедический словарь [8 томов] (1895-1901) [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Речь идёт о восьмитомном настольном энциклопедическом словаре товарищества А.Гранат. Уже существовала энциклопедия Брокгауза и Ефрона. Последняя, состоявшая из 82-х томов, не всем была по карману. Компактное и более демократичное издание братьев Гранат изначально предназначалось для средних слоев населения. За 1896-1903 годы вышло шесть стереотипных изданий словаря, (   Читать дальше...   )Жанр: Раритеты, энциклопедический словарьФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE40406F863853655BBBF6D1198DA32DAD6C0A64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 458706   (1010461) от 18.06.2021
-
-Ф.Д. Соседко | История 72-го Пехотного Тульского полка (1901) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010461.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге излагается история 72-го Пехотного Тульского полка с 1769 по 1901 год : Сформирование Тульского полка, сражение под Бырладом, сражение при Максимени, Польская война 1792-1794 гг., Италийский и Швейцарский походы 1799 года, война с Наполеоном 1806-1807 гг., сражение под Прейсиш-Эйлау, война со Швецией 1808-1809 гг., Отечественная война 1812 года, поражение (   Читать дальше...   )Жанр: Военная история, раритетФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5E4F8CB6D791042BA53BB389E64CF2A7793A800
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1478344   (1010317) от 19.06.2021
 
 Энтони Бивор | Битва за Арнем. Крах операции «Маркет – Гарден», или Последняя победа Гитлера (2021) [EPUB]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010317.jpg" />
 </div>
 
 
@@ -163,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010308.jpg" />
 </div>
 
 
@@ -189,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010114.jpg" />
 </div>
 
 
@@ -215,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010106.jpg" />
 </div>
 
 
@@ -241,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009984.jpg" />
 </div>
 
 
@@ -267,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009972.jpg" />
 </div>
 
 
@@ -295,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009965.jpg" />
 </div>
 
 
@@ -324,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009738.jpg" />
 </div>
 
 
@@ -350,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009629.jpg" />
 </div>
 
 
@@ -376,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009489.jpg" />
 </div>
 
 
@@ -403,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009207.jpg" />
 </div>
 
 
@@ -430,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008666.jpg" />
 </div>
 
 
@@ -457,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008564.jpg" />
 </div>
 
 
@@ -483,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008551.jpg" />
 </div>
 
 
@@ -509,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008469.jpg" />
 </div>
 
 
@@ -535,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008426.jpg" />
 </div>
 
 
@@ -561,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008420.jpg" />
 </div>
 
 
@@ -589,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008292.jpg" />
 </div>
 
 
@@ -615,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008258.jpg" />
 </div>
 
 
@@ -641,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008233.jpg" />
 </div>
 
 
@@ -667,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008227.jpg" />
 </div>
 
 
@@ -678,6 +547,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACC98886190C1653186B489ED6DA1EE300121984
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481735   (1008134) от 04.07.2021
+
+Алексей Вербовой, Алексей Конеев | Военные речные флотилии в войнах XVIII–XX столетий в деле укрепления геополитического положения России (2019) [FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008134.jpg" />
+</div>
+
+
+###  Подробнее
+
+Монография посвящена вопросам создания и боевого применения речных военных флотилий на приречных театрах военных действий в войнах России с Турцией, Францией, Японией, Германией и Австро-Венгрией, происходивших в XVIII — начале XX века. Содержание работы не только отвечает современным представлениям исторической науки о рассматриваемых вопросах, но и в ряде случаев (   Читать дальше...   )Жанр: История военного делаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D87057726009E239A98BC08D036E69ADF9D851D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 433824   (1008067) от 04.07.2021
+
+Н.М. Тупиков | Словарь древнерусских личных собственных имен (1903) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Словарь древнерусских личных собственных имен составлен крупнейшим специалистом по исторической антропонимики в дореволюционной РоссииЖанр: Исторические науки; ОномастикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DAC2581AA7C78F57205C7594C3D96D4C9A8AFF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481730   (1008057) от 04.07.2021
+
+Елена Аверина и др. | Интенсивный курс английского разговорного языка по системе Авериной [3 книги] (2021) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008057.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами "Интенсивный курс английского разговорного языка по системе Е. Д. Авериной". Состоящий из трёх взаимодополняющих частей. Курс создан по методике, которая позволяет полноценно овладеть английским языком - думать на английском, говорить самому и понимать собеседника, читать без словаря, письменно излагать свои мысли, а при необходимости и синхронно (   Читать дальше...   )Жанр: Английский языкФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6701D5A67B56CDFBEF2699B6245566476491151F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481812   (1008005) от 05.07.2021
+
+Вячеслав Рындин | Я обрёл бога в Африке: письма русского буш-хирурга (2021) [FB2]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008005.jpg" />
+</div>
+
+
+###  Подробнее
+
+Записки московского врача о своей 25-ти летней работе в Нигере, Анголе, Свазиленде и Южно-Африканской Республике, где он получил знания и профессиональный опыт, которые не принесли ему ни советское удостоверение хирурга высшей категории, ни диплом доктора медицинских наук. Книга рассчитана на студентов медицинских вузов и молодых врачей, но она доступна и развлекательна (   Читать дальше...   )Жанр: Биографии и мемуары, Книги о приключениях, МедицинаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:933F0E313FAA689171DA47D9A788E5A8F97CF79C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 293289   (1007943) от 05.07.2021
+
+П.А.Бадмаев | Главное руководство по врачебной науке Тибета «Жуд-Ши» (1903) [PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Система врачебной науки Тибета изложена в руководстве практической медицины и хирургии «Жуд-Ши», которую впервые перевёл на русский язык известный врач и основоположник врачебной науки Тибета в европейской части России - Бадмаев Пётр Александрович.
+Данное издание содержит две книги «Жуд-Ши» - первую и вторую. Примерно треть тома, около 80 страниц - труды самого Петра (   Читать дальше...   )Жанр: Нетрадиционная восточная медицина, раритетФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3704685D010DF9E2D36AE58E78943E1C7D18EB81
 ```
 
 https://mybot314.ru/tekegram_catalog/

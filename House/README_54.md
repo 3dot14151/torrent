@@ -1,3 +1,96 @@
+###  Публикация: 949925   (372759) от 25.10.2015
+
+VA - Dance Hits Euro Style (2015) [MP3|320 кб/с]<House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Djkam - Htechone
+02. Dj Luciano - Red Cobra
+03. Kin3tek - Osiris
+04. Dj Luciano - Miami Vs Ibiza(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 00:51:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA77280F0E1BABD65B44C23B97513BD2C68F0989
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069884   (369259) от 06.11.2016
+
+VA - AMF 2016: Amsterdam (2016) [MP3|320 Kbps] <House, Progressive House, Big Room>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jay Hardway - Amsterdam (Amf 2016 Anthem) (2:42)
+02. Hardwell feat. Craig David - No Holding Back (2:46)
+03. Dimitri Vegas & Like Mike - Stay A While (3:52)
+04. David Guetta feat. Zara Larsson - This Ones For You (3:27)(   Читать дальше...   )Производство: Armada Music BundlesЖанр: House, Progressive House, Big RoomПродолжительность: 01:08:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B374BF53594680C1CDE416672CF37F52C6C7AC5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576380   (366689) от 16.11.2012
+
+VA - Pathaan's Playlist - Ibiza (2011) [MP3|320 кб/с]<Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kemek - Certain Frequencies
+02. The 2 Bears - Church - Midland Remix
+03. Flavius Etcheto - Solaz - Orginal
+04. Martin Dawson Glimpse - No One Belongs Here More Than You - Ewans Balearos Maximos Remix
+05. David Lynch - Good Day Today - DiskJokke Remix
+06. Munty - Changing Times
+07. Flowers and Sea Creatures - I am - Ewan Pearson Re-Edit
+08. Coyote - Too Hard - Aeroplane Remix
+09. Proviant Audio - Hey, Let's Do It! - Jay Shepheard Mix
+10. Bubble Club - The Goddess(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:40:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DCC94A19152B2676B2F0BA9B220FAA5FC506C0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 575947   (366432) от 16.11.2012
 
 Dinka - Lotus (2012) [MP3|320 кб/с]<Progressive House, Trance>
@@ -6,7 +99,7 @@ Dinka - Lotus (2012) [MP3|320 кб/с]<Progressive House, Trance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366432.jpg" />
 </div>
 
 
@@ -34,7 +127,7 @@ Example - Close Enemies (The Remixes) (2012) [MP3|320 кб/с]<Dance, House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366308.jpg" />
 </div>
 
 
@@ -63,7 +156,7 @@ David Guetta Feat. Taped Rai - Just One Last Time (Promo CDR) (2012) [MP3|~245 �
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366303.jpg" />
 </div>
 
 
@@ -93,7 +186,7 @@ Avicii - 28 Релизов (2008-2012) [MP3|320 кб/с]<Progressive House, Tran
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365298.jpg" />
 </div>
 
 
@@ -119,7 +212,7 @@ VA - Top Deep House Anthems (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364772.jpg" />
 </div>
 
 
@@ -148,7 +241,7 @@ VA - Nothing But... Deep House Vol.14 (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364770.jpg" />
 </div>
 
 
@@ -177,7 +270,7 @@ VA - Good Morning IBIZA Vol.2 (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364768.jpg" />
 </div>
 
 
@@ -206,7 +299,7 @@ VA - Analog Deep 2016 (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364762.jpg" />
 </div>
 
 
@@ -235,7 +328,7 @@ VA - Additional Deephouse (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364674.jpg" />
 </div>
 
 
@@ -264,7 +357,7 @@ VA - Sense Of Deephouse (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364673.jpg" />
 </div>
 
 
@@ -293,7 +386,7 @@ VA - Amsterdam Dance Essentials 2016: Deep House (2016) [MP3|320 Kbps] <Deep Hou
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364670.jpg" />
 </div>
 
 
@@ -322,7 +415,7 @@ VA - Deephouse After Dusk (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364668.jpg" />
 </div>
 
 
@@ -351,7 +444,7 @@ VA - Deep House Republic (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364663.jpg" />
 </div>
 
 
@@ -380,7 +473,7 @@ VA - Progressive House Autumn Essentials (2018) [MP3|320 Kbps] <Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364361.jpg" />
 </div>
 
 
@@ -409,7 +502,7 @@ VA - Toolroom Amsterdam 2018 (2018) [MP3|320 Kbps] <House, Tech House, Deep Hous
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364273.jpg" />
 </div>
 
 
@@ -438,7 +531,7 @@ VA - Ministry of Sound: DJ Mag Top 100 Djs (2012) [MP3|256 кб/с]<House, Elect
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363747.jpg" />
 </div>
 
 
@@ -473,7 +566,7 @@ VA - Electro Paradise (2010) [MP3|320 kbps]<Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362317.jpg" />
 </div>
 
 
@@ -499,7 +592,7 @@ VA - Big Room Essentials, Vol. 01 (2016) [MP3|320 Kbps] <Progressive House, Elec
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362133.jpg" />
 </div>
 
 
@@ -528,7 +621,7 @@ VA - Chillout: Ultimate Sunset Collection (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362040.jpg" />
 </div>
 
 
@@ -557,7 +650,7 @@ VA - Dubai Deep House (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362039.jpg" />
 </div>
 
 
@@ -586,7 +679,7 @@ VA - New York City: Deep House Rhythms (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362029.jpg" />
 </div>
 
 
@@ -615,7 +708,7 @@ VA - Getting Deep Vol.7 (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362024.jpg" />
 </div>
 
 
@@ -644,7 +737,7 @@ Andrew Lang - Visions (2016) [MP3|320 Kbps] <Progressive House, Progressive Tran
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361949.jpg" />
 </div>
 
 
@@ -658,93 +751,6 @@ Andrew Lang - Visions (2016) [MP3|320 Kbps] <Progressive House, Progressive Tran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35B239F8E5A27D29F469DAE5898584E517C23EC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071062   (361937) от 09.11.2016
-
-VA - Under The Surface Vol.2 (2016) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Toni Funk - Take Me (Mario Aureo Remix) (07:26)
-02. Solee - Superheld (07:05)
-03. Fabs - Weird Times (07:28)
-04. Mashk - Home (Whomi Remix) (08:00)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:45:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A89DB5D41AD30A0BA1E07CE6ABE881E739BC8A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577126   (359617) от 17.09.2022
-
-VA - Vocal Melodic House (2022) [MP3|320 Kbps] <Euro Dance, Vocal House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anton Ishutin & Note U - Brash (Original Mix) (8:03)
-02. MsE - Cage (Original Mix) (2:59)
-03. TREZZ - Without You (Original Mix) (2:41)
-04. Azophi - Break My Heart (Original Mix) (2:23)(   Читать дальше...   )Жанр: Euro Dance, Vocal HouseПродолжительность: 01:18:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50EB15E39866D4F97B72B9D68F13CA4B0EB28144
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256015   (359139) от 20.10.2018
-
-VA - Nothing But... Amsterdam Dance Essentials 2018 Big Room (2018) [MP3|320 Kbps] <House, Big-Room, Progressive, Electro-House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ZENAVO - Way Back (Original Mix)
-02. J3tcat - The Great Wall (Original Mix)
-03. Chris Fielding feat. Bibiane Z - Enemy (Bitas Remix)
-04. Fenox - Love All Over (Original Mix)(   Читать дальше...   )Жанр: House, Big-Room, Progressive, Electro-HouseПродолжительность: 01:46:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DBEB9516121323EB2C987657FCB8146DBAA7E01
 ```
 
 https://mybot314.ru/tekegram_catalog/

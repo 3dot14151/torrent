@@ -6,7 +6,7 @@ Bruno Muller - Inner Back Home (2016) [FLAC|Lossless|image + .cue] <Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777996.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Brian Bromberg - Full Circle (2016) [FLAC|Lossless|image + .cue] <Bop, Post Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777992.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Natalia M. King - Bluezzin T'il Dawn (2016) [FLAC|Lossless|image + .cue] <Vocal 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777990.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Hal Galper - Wild Bird (1972) 2017, Solid Records [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777900.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Oscar Pettiford - Vienna Blues: The Complete Session (1959) 1988, Black Lion [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777899.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Jimmy Rosenberg - Trio (2004) Hot Club Records [FLAC|Lossless|tracks + .cue] <Gy
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777898.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Cees Slinger, Clifford Jordan, Philly Joe Jones, Isla Eckinger - Sling Shot! (19
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777677.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Buster Williams Trio - Tokudo (Japan Edition) (1989) [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777676.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Lou Mecca, Bill de Arango, Chuck Wayne - 3 Swinging Guitar Sessions (1953-1955) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777657.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Howard McGhee - Dusty Blue (1960) 1999, Bethlehem [APE|Lossless|image + .cue] <B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_777595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_777595.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Jimmy Rosenberg - Portrait of Jimmy Rosenberg (1999) Hot Club Records [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777594.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Jimmy Rosenberg & Stian Carstensen - Rose Room (2005) Hot Club Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777593.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Jerry Gonzalez - Rumba Para Monk (1989) 2001, Sunnyside Communications [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777591.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Brian Culbertson - Colors of Love (2018) [FLAC|Lossless|tracks + .cue] <Smooth J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777475.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ John Coltrane featuring Pharoah Sanders - Live In Seattle (1965) 2011, Verve[FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777341.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Michel Donato - Maree Bass...e (1995) Label Bleu [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777286.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Brother Jack McDuff - Hot Barbeque & Live! (1963, 1965) 1993, BGP Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777285.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Thomas Morris - 1923 - 1927 (1995) Classics [FLAC|Lossless|tracks + .cue] <Early
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777284.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Jazz Orchestra Of The Concertgebouw (2000) RN Discs [FLAC|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777281.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Fred Hersch - Solo (2015) Palmetto Records[FLAC|Lossless|tracks + .cue] <Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776970.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Moacir Santos - Maestro (1972) Remaster, 2012, EMI Music[FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776967.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Shirley Scott - Something (1970) Remaster, 2013, Warner[FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776964.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Teddy Wilson - & His All-Stars Vol. 1 (1935-1939) Remaster, 2014, Sony Music[FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776961.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Davina and The Vagabonds - Nicollet and Tenth (2016) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776958.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Jazzland of New Orleans (2016) [FLAC|Lossless|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776949.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Cheryl Bentyne - Lost Love Songs (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776940.jpg" />
 </div>
 
 

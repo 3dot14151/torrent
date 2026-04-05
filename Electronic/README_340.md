@@ -1,3 +1,116 @@
+###  Публикация: 1329551   (352249) от 05.10.2019
+
+VA - Trance Escapades (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laucco vs Tecnomind - Waterfall (Original Mix)
+02. M3R-T - BIRTH (Aeden Remix)
+03. Ar-2 - SandStorm (Radio Edit)
+04. Etasonic - No Words Can Tell This (Steve Dekay OrchesTrance Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 03:24:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:620016135B9C1D80E759AC676E226C803A299CEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329525   (352118) от 05.10.2019
+
+Didier Marouani - Space Opera (1987) Japanese Edition [FLAC|Lossless|image + .cue] <Electronic, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Part 1 (4:42)
+02. Part 2 (2:58)
+03. Part 3 (3:53)
+04. Part 4 (Save Our Soul) (4:47)(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:33:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6461BA6909F1BC7B7C1F5489FAAD58F54740346
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256712   (352110) от 23.10.2018
+
+Bodyrox Feat. Luciana - Yeah Yeah (2006) [FLAC|Lossless|tracks + .cue] <House, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bodyrox feat Luciana - Yeah Yeah (D Ramirez Radio Edit) (2:45)
+02. Bodyrox feat Luciana - Yeah Yeah (D Ramirez Vocal Club Mix) (8:19)
+03. Bodyrox feat Luciana - Yeah Yeah (D Ramirez Instrumental) (6:57)
+04. Bodyrox feat Luciana - Yeah Yeah (Electro Radio Edit) (2:37)(   Читать дальше...   )Жанр: House, ElectroПродолжительность: : 01:12:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8480E2B794D14AADDBD689203DB470B9DB39638A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256857   (352109) от 23.10.2018
+
+DJ Base - Энергия Жизни 1 (2001) [MP3|256 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.DJ Base - Energiya ZHiZni 2000Жанр: Progressive HouseПродолжительность: 01:09:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5747CA4CC29D73FADE113704732533A0225DA7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1256720   (352001) от 23.10.2018
 
 VA - Dark Amsterdam (2018) [MP3|320 Kbps] <Trance>
@@ -6,7 +119,7 @@ VA - Dark Amsterdam (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352001.jpg" />
 </div>
 
 
@@ -35,7 +148,7 @@ DJ Бинокль - Counter-Strike Attack (2002) [MP3|320 Kbps] <Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351989.jpg" />
 </div>
 
 
@@ -64,7 +177,7 @@ VA - Black Hole Recordings - Miami (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351978.jpg" />
 </div>
 
 
@@ -93,7 +206,7 @@ VA - Pure Trance Frequencies (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351974.jpg" />
 </div>
 
 
@@ -122,7 +235,7 @@ VA - Intricate Records Is Going to Amsterdam (2018) [MP3|320 Kbps] <Progressive 
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351696.jpg" />
 </div>
 
 
@@ -151,7 +264,7 @@ Dubtrak - Be In The Flow (2015) [OGG| 444-531 кб/с]<Electronic, Ambient, Down
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351688.jpg" />
 </div>
 
 
@@ -180,7 +293,7 @@ VA - Neuroporn (2015) [MP3|320 кб/с]<Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351683.jpg" />
 </div>
 
 
@@ -209,7 +322,7 @@ VA - Black Hole Recordings Amsterdam Dance Event (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351647.jpg" />
 </div>
 
 
@@ -238,7 +351,7 @@ Benny Benassi Presents The Biz - Love Is Gonna Save Us (2004) [MP3|320 Kbps] <El
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351646.jpg" />
 </div>
 
 
@@ -267,7 +380,7 @@ Bersarin Quartett - Discography 5 Releases (2008-2015) [MP3|320 кб/с]<Dark Am
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351419.jpg" />
 </div>
 
 
@@ -296,7 +409,7 @@ VA - Solarstone Presents Pure Trance Vol.6 (Mixed by Robert Nickson, Solarstone 
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351410.jpg" />
 </div>
 
 
@@ -325,7 +438,7 @@ Ela Minus - acts of rebellion (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351373.jpg" />
 </div>
 
 
@@ -354,7 +467,7 @@ The Midnight - Horror Show (Instrumentals) (2020) [FLAC 2.0|24/48|Lossless|WEB-D
 >>Synthpop, New Wave, Retro (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351352.jpg" />
 </div>
 
 
@@ -383,7 +496,7 @@ The Midnight - Horror Show (2020) EP [FLAC 2.0|96/24|tracks|WEB-DL] <Synthpop, S
 >>Synthpop, New Wave, Retro (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351220.jpg" />
 </div>
 
 
@@ -412,7 +525,7 @@ Faithless - All Blessed (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive House,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351104.jpg" />
 </div>
 
 
@@ -441,7 +554,7 @@ Kraftwerk - Minimum-Maximum (2005) [FLAC|image+.cue]<Electronic,Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351045.jpg" />
 </div>
 
 
@@ -470,7 +583,7 @@ Digitonal - Discography 17 Releases (2002-2020) Just Music [FLAC|Lossless]<Ambie
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350920.jpg" />
 </div>
 
 
@@ -499,7 +612,7 @@ Depeche Mode - Remixes for the Masses 2020 by Techni-ka (2020) EP [FLAC 2.0|44.1
 >>Synthpop, New Wave, Retro (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350792.jpg" />
 </div>
 
 
@@ -528,7 +641,7 @@ Jurgen Vries feat. Andrea Britton ‎ - Take My Hand (2014) [FLAC|Lossless|WEB-D
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350278.jpg" />
 </div>
 
 
@@ -557,7 +670,7 @@ Contagion - Omnibus (2011) [MP3|320 Kbps] <EBM, Industrial, Rock>
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350175.jpg" />
 </div>
 
 
@@ -586,7 +699,7 @@ VA - Coffee to Chill: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350169.jpg" />
 </div>
 
 
@@ -615,7 +728,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350166.jpg" />
 </div>
 
 
@@ -629,122 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3AEB2D734B3184F9996E038B2956E197635F1BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257088   (350137) от 24.10.2018
-
-VA - Levitated Amsterdam (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manuel Rocca - Resilience (Original Mix)
-02. Lupo (cn) - The Overarching Sky (Original Mix)
-03. NrgMind - Nebula (Original Mix)
-04. Christopher Corrigan - Different Thoughts (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:10:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:008F90543AE78F6341565CF38A1A819DB66F25BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072952   (350133) от 14.11.2016
-
-VA - Unique Sense In Amsterdam (Mixed by Abstract Vision) (2016) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Witness45 & Eleven Fly - Laserlight (Radio Edit) 3:39
-02. Holbrook & SkyKeeper - Memories (Poshout pres. Crystal Design Radio Edit) 2:37
-03. X - Sapphire (Radio Edit) 2:42
-04. DRYM & Abstract Vision - Shark (Radio Edit) 2:17(   Читать дальше...   )Жанр: TranceПродолжительность: 01:38:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D100629E3CCFF3D04224430A9F7560246EDEDD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072772   (350128) от 14.11.2016
-
-VA - Moments in Paradise Chillout (2016) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Riquo - Tribalism (05:33)
-02. Joe Jog - Euphoric Dream (06:45)
-03. Praana - Garden of Nightingales (04:14)
-04. Los Dos Terminados - Guethary on 7.6. - Relax Version (04:15)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:47:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC8E650363DC220260934D1BFC1BD35A0968DD70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257078   (350058) от 24.10.2018
-
-VA - Submission Universal (Mixed By Atragun) (2018) [MP3|320 Kbps] <Trance,Psy-Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Bro - Summit (Basil O Glue Intro Mix)
-02. Emran Badalov - Spaceman (Original Mix)
-03. Atragun - Lost In Dreams (Three Drives Remix)
-04. Xpectra - Seize The Day (Original Mix)(   Читать дальше...   )Жанр: Trance,Psy-TranceПродолжительность: 06:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCB99FA4183E6905A147569A524C5937E4D822BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

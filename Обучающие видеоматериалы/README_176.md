@@ -1,3 +1,29 @@
+###  Публикация: 1079609   (287382) от 07.12.2016
+
+ITVDN | SharePoint Администрирование (2015) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287382.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс является первой ступенькой в подготовке начинающих администраторов SharePoint. Тренинг создан на основе материалов официальных тренингов Microsoft и дает первоначальные сведения о том, что такое SharePoint, какие функциональные возможности предоставляет, как его установить, подготовить к работе и минимально сконфигурировать. В курсе не рассматриваются вопросы, (   Читать дальше...   )Производство: ITVDNЖанр: ПрограммированиеПродолжительность: 07:21:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8389C06DF4CD317ABD8017D120AC0534271969C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1335409   (287356) от 02.11.2019
 
 Blender Cloud | Улучшенный Риггинг в Blender / Advanced Rigging (BlenRig 5) (2016) PCRec [H.264] [RU/EN]
@@ -6,7 +32,7 @@ Blender Cloud | Улучшенный Риггинг в Blender / Advanced Riggin
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287356.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ Blender Cloud | Спидскульптинг в Blender 2.8 / Speed Sculpting (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287354.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Blender Cloud | Основы Анимации в Blender 2.8 / Animation Fundame
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287350.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Blender Cloud | Основы Grease Pencil в Blender 2.8 / Grease Pencil Fundam
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287346.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Udemy | HTML5, CSS3, FlexBox верстка сайтов с нуля. Курс 2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286905.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286845.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ Lynda.com | HTML5: File API in Depth (2011) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285659.jpg" />
 </div>
 
 
@@ -195,7 +221,7 @@ Lynda.com | HTML5: Drag and Drop in Depth (2011) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285648.jpg" />
 </div>
 
 
@@ -224,7 +250,7 @@ Lynda.com | Techniques and Concepts of Big Data (2014) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285492.jpg" />
 </div>
 
 
@@ -252,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283528.jpg" />
 </div>
 
 
@@ -280,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283486.jpg" />
 </div>
 
 
@@ -309,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283369.jpg" />
 </div>
 
 
@@ -335,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282269.jpg" />
 </div>
 
 
@@ -361,7 +387,7 @@ Lisa Kinder | 10 Minute Solution - High Intensity Interval Training (2013) DVDRi
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281879.jpg" />
 </div>
 
 
@@ -388,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281797.jpg" />
 </div>
 
 
@@ -416,7 +442,7 @@ jsexpert | Фундаментальный Node.js (2018) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281794.jpg" />
 </div>
 
 
@@ -444,7 +470,7 @@ HTML Academy | Интенсивный онлайн‑курс  Професси�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281777.jpg" />
 </div>
 
 
@@ -470,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281705.jpg" />
 </div>
 
 
@@ -496,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279893.jpg" />
 </div>
 
 
@@ -522,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279890.jpg" />
 </div>
 
 
@@ -551,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279884.jpg" />
 </div>
 
 
@@ -577,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278913.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278912.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ Udemy | Изучаем React.js 16.7 & Redux (2019) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278455.jpg" />
 </div>
 
 
@@ -658,7 +684,7 @@ jsexpert | Понятный JavaScript [Middle] (2018) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278344.jpg" />
 </div>
 
 
@@ -671,34 +697,6 @@ jsexpert | Понятный JavaScript [Middle] (2018) PCRec [H.264/720p-LQ]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25360AB443EF70D31CDB16F440F6E98E17BD491F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336663   (278342) от 07.11.2019
-
-jsexpert | Понятный JavaScript [Beginner] (2017) PCRec [H.264/1080p-LQ]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс «Понятный JavaScript» — это комплексная программа обучения, которая позволит тебе полностью изучить с нуля главный язык Frontend разработчика. Уже через 3 месяца ты будешь знать JavaScript на очень достойном уровне.
-
-Проверенный временем курс проведет вас от самых основ (история возникновения языка, типы данных, циклы, условия) до серьезных, продвинутых знаний (   Читать дальше...   )Производство: jsexpertЖанр: Программирование, JavaScriptПродолжительность: 09:09:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:982E9E720121B9D0B4B8CEA164F88F1602CDAA0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1382538   (340247) от 25.09.2022
+
+Восточный ветер 4: Легенда о Воине / Ostwind: Aris Ankunft / Windstorm 4: Ari's Arrival (2019) BDRip
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несчастный случай испытывает на прочность тонкую душевную связь между Микой и Оствиндом. Всё меняется, когда Фанни привозит в Кальтенбах Ари — девочку с очень сложным характером и непростой судьбой. Ари практически сразу необъяснимым образом находит подход к неукротимому Оствинду.Производство: Германия, Fresco Film Services, SamFilm ProduktionЖанр: СемейныйРежиссер: Theresa von EltzАктеры: Луна Пайяно, Марион Алессандра Бекер, Мерет Беккер, Ханна Бинке, Амбер Бонгард, Детлев Бук, Тимо Диркес, Лили Эппли, Корнелия Фробёсс, Михаэль ГриммПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:46:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57BC98FFD95CAF9B2965974EF4558F107484049E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 725328   (340008) от 24.11.2013
+
+Приключения в каникулы / Spadla z oblakov (1978) DVDRip [H.264] (13 из 13 серий)
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340008.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о необычной инопланетной девочке Майке с планеты Гурун, попавшей к нам на Землю в небольшой словацкий городок Чабовец, где она знакомится с местными ребятами и с которыми переживает захватывающие приключения.Режиссер: Радим ЦврчекАктеры: Зузана Правняньска / Zuzana Pravnanska (Майка), Матей Ландл / Matej Landl (Карол), Светлана Майбова / Svetlana Majbova (Катка), Любор Чайка / Lubor Cajka (Славо), Мария Хайкова / Maria Hajkova (Бабушка), Франтишек Цварик / Frantisek Zvarik (Валко), Петер Шольц / Peter Scholtz (Эмиль), Повол Ларцар / Pavol Larzar (Ферко)Перевод: Профессиональный (многоголосый закадровый)Субтитры: нетФормат: MKVПродолжительность: 13 серий по ~00:28:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E06949832FCCB6AAD1298B7A34475295911A6DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 729882   (339577) от 28.10.2020
 
 Али-баба и сорок разбойников / Ali Baba et les quarante voleurs (1907) DVDRip
@@ -6,7 +58,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339577.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338545.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336484.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335238.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333773.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330877.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_330688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_330688.jpg" />
 </div>
 
 
@@ -194,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328983.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328810.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328049.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327133.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326040.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324930.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324484.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324412.jpg" />
 </div>
 
 
@@ -406,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323813.jpg" />
 </div>
 
 
@@ -433,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316301.jpg" />
 </div>
 
 
@@ -459,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315213.jpg" />
 </div>
 
 
@@ -485,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313505.jpg" />
 </div>
 
 
@@ -511,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310179.jpg" />
 </div>
 
 
@@ -537,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_305479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_305479.jpg" />
 </div>
 
 
@@ -563,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304668.jpg" />
 </div>
 
 
@@ -589,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303023.jpg" />
 </div>
 
 
@@ -616,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302850.jpg" />
 </div>
 
 
@@ -628,59 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F66D7D036C79AABA5FB1C374A943A82C2A0C2D23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 730512   (302670) от 05.12.2013
-
-О тех, кто украл Луну / Dwoch Takich Co Ukradli Ksiezyc (1962) DVDRip
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация повести Корнеля Макушинского.
-В деревне Запецек на свет появляется двойня - Яцек и Плацек. И через несколько лет у жителей деревни уже нет ни минуты покоя от их выходок. Близнецы, к тому же, страшно ленивы. Готовы пойти на все, лишь бы ничего не делать. Неожиданно Яцеку и Плацеку приходит в голову гениальная мысль - украсть луну, продать ее и обеспечить (   Читать дальше...   )Производство: ПольшаЖанр: Сказка, фэнтези, приключенияРежиссер: Ян БаториАктеры: Лех Качиньский, Ярослав Качиньский, Хелена Гроссувна, Людвик Беноит, Ядвига Курилюк, Януш Страхоцкий, Тадеуш Возняк, Вацлав Ковальский, Станислав Мильский, Хенрик Моджевский, Бронислав Дарский, Януш Клосиньский, Адам Павликовский, Мариан Войтчак, Ежи Вальчак, Здислав Любельский, Ришард Рончевский, Влодзимеж Скочиляс, Хенрик Сташевский, Тадеуш Шмидт, Мариуш Беноит, (   Читать дальше...   )Перевод: ДублированныйСубтитры: Русские отдельным файлом (Неозвученные фрагменты переведены субтитрами)Продолжительность: 01:15:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4620F4D47CB5EB9BC083D46686E7CDBADF851E37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078158   (302165) от 30.11.2016
-
-Несси и я / Nessie & Me (2016) WEB-DLRip
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302165.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девятилетний мальчик переезжает в городок у озера и встречает старого моряка, который утверждает, что истории о монстре по имени Несси из озера являются правдой. Сможет ли монстр стать ключем к спасению города от жестокого бизнесмена?Производство: США, G & G Motion Pictures, Team4FilmsЖанр: Приключения, Фэнтези, СемейныйРежиссер: Джим УайнорскиАктеры: Майкл Паре, Тони Хадсон, Пол Уоллес, Шэй Бэйкер, Джон Генри Ричардсон, Кайла Гилл, Джоли Лэдфорд, Кори ЛэндисПеревод: Многоголосый закадровый (Синема УС)Язык субтитров: ОтсутствуетПродолжительность: 01:29:35Реклама: Имеется реклама от спонсора
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2B84E34577881DC6A3BCCC41A40DDDCA39EBB0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

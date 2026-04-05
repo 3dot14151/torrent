@@ -1,3 +1,134 @@
+###  Публикация: 1190554   (266680) от 10.12.2017
+
+За тридевять земель / Resan till Fjäderkungens Rike (2013) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266680.jpg" />
+</div>
+
+
+###  Подробнее
+
+В поисках своей мамы Йохан попадает в далекое Царство Короля Перьев, откуда нет дороги назад. От судьбы не уйдешь: теперь он должен сам позаботиться о спасении не только своей мамы, но и всего королевства. Но разве можно понимать все тонкости жизни и играть по ее правилам, когда ты еще так молод?Производство: Дания, Швеция | Copenhagen Bombay, Film i VastЖанр: мультфильм, фэнтезиРежиссер: Эсбен Тофт ЯкобсенАктеры: Эдвин Рюдинг, Тува Новотны, Густаф Хаммарстен, Леннарт Якель, Сиселла Кайл, Лейф Андре, Pelle Falk Krusbæk, Сёс Эгелинд, Ларс Брюгманн, Флемминг Квист МюллерПеревод: Дублированный (Лицензия)Субтитры: ОтсутствуютПродолжительность: 01:19:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:212962F67023F1E1BD2B1A067002F3A0CEE20E4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190741   (266679) от 10.12.2017
+
+Гадкий я / Despicable Me (2010) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266679.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гадкий снаружи, но добрый внутри Грю намерен, тем не менее, закрепить за собой статус главного архизлодея в мире, для чего он решает выкрасть Луну при помощи созданной им армии миньонов. Дело осложняют конкуренты, вставляющие высокотехнические палки в колеса, и семейные обстоятельства в виде трех сироток, о которых Грю вынужден заботиться.Производство: США, Франция / Illumination EntertainmentЖанр: мультфильм, комедия, приключения, семейныйРежиссер: Пьер Коффан, Крис РеноПерсонажи: Стив Карелл, Джейсон Сигел, Расселл Брэнд, Джули Эндрюс, Уилл Арнетт, Кристен Уиг, Миранда Косгров, Дэна Гайер, Элси Фишер, Пьер СоффинПеревод: Дублированный (Лицензия BD EUR), Профессиональный (двухголосый, закадровый) (Кубик в кубе), Авторский (одноголосый, закадровый) (А. Гаврилов, Ю. Сербин)Субтитры: Русские (Full-length, Forced), Украинские (Full-length), АнглийскиеПродолжительность: 01:34:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47C467232F132322C921D666538DB0A7623E2E1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184854   (266591) от 10.12.2017
+
+Южный Парк / South Park (2017) HDTVRip [H.264/1080p-LQ] (21 сезон, серия 01-10 из 10)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266591.jpg" />
+</div>
+
+
+###  Подробнее
+
+Южный Парк / South Park — американский мультсериал, созданный Мэттом Стоуном и Треем Паркером. Иногда название переводится также как «Саут-Парк» или «Саус-Парк». Выпускается кабельным телеканалом Comedy Central с 1997 года. Основу сюжета составляют приключения четырёх мальчиков и их друзей, живущих в маленьком городке Саут-Парк, штат Колорадо. Сериал высмеивает недостатки (   Читать дальше...   )Производство: СШАЖанр: Для взрослых, КомедияРежиссер: Трей Паркер, Эрик Сточ, Мэтт СтоунАктеры: Трей Паркер, Мэтт Стоун, Мона Маршалл, Эйприл Стюарт, Айзек Хейз, Элиза Шнайдер, Эдриан Бирд, Мэри Кэй Бергман, Дженнифер Хауэлл, Кайл Маккаллок и др.Перевод: Многоголосый, Двухголосый, ОдноголосыйОзвучка: MVO Jaskier, MVO IdeaFilm, DVO Sunshine Studio, VO L0cDoGСубтитры: ОтсутствуютПродолжительность: 10x 00:22:10Реклама: Вырезана
+ Присутствует ненормативная лексика
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D32851ECD24AB052992161AE63CEAB533714FCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190745   (266529) от 10.12.2017
+
+Маленький вампир / The Little Vampire 3D (2017) WEB-DL [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это история о маленьком вампире Рудольфе — тринадцатилетнем мальчике, чью семью преследует злостный охотник на вампиров. Однажды Рудольф встречает обычного мальчика, Тони, своего сверстника. Тони без ума от старинных замков и страшных историй про вампиров, поэтому он не раздумывая предлагает Рудольфу свою помощь. Теперь эту парочку ждут весёлые и невероятные приключения (   Читать дальше...   )Производство: Нидерланды, Германия, Дания, Великобритания, Ambient Entertainment GmbHЖанр: Мультфильм, ужасы, фэнтези, комедия, приключения, семейныйРежиссер: Рихард Клаус, Карстен КилерихПеревод: Дублированный (iTunes)Субтитры: отсутствуют.Продолжительность: 01:22:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:203DCA7C0D8454EBC47F39BAF98DD391684580FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489296   (266283) от 06.12.2018
+
+В мире сказок. Сборник мультфильмов (2004) DVDRip (Выпуск 1-8)
+
+>>Мультфильмы
+>>Отечественные Мультфильмы (коллекции, сборники / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266283.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как Василиса Микулишна умом да хитростью своего мужа Ставра Год выпускаиновича из темницы Киевского князя вытащила.Жанр: Рисованная анимация, Кукольный, ДетскийРежиссер: Ольга Петровна Ходатаева, Валентина Семеновна Брумберг, Якоб Гримм, Юрий Карлович Олеша, Иван Иванов-Вано, И. Аксенчук, И. Ковалевская, Л. Носырев, Н. Дабижа, Леонид Амальрик, Иван Аксенчук, Василий Ливанов, Вячеслав Котеночкин, Владимир Пекарь, Владимир Полковников, Геннадий Сокольский, Роман Давыдов, Инесса КовалевПродолжительность: 8 сборников по ~ 01:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3CD4BE813B248FF9BC51343BDA590B68127571F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1190844   (265678) от 11.12.2017
 
 Звездные войны: Силы судьбы / Star Wars: Forces of Destiny (2017) WEB-DLRip [H.264/1080p] (Сезон 1, серии 16 из 16) LostFilm
@@ -6,7 +137,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265678.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265619.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265584.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265544.jpg" />
 </div>
 
 
@@ -110,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265535.jpg" />
 </div>
 
 
@@ -136,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265494.jpg" />
 </div>
 
 
@@ -162,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265265.jpg" />
 </div>
 
 
@@ -188,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265259.jpg" />
 </div>
 
 
@@ -214,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265253.jpg" />
 </div>
 
 
@@ -241,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265201.jpg" />
 </div>
 
 
@@ -267,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265190.jpg" />
 </div>
 
 
@@ -293,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265101.jpg" />
 </div>
 
 
@@ -319,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264964.jpg" />
 </div>
 
 
@@ -348,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264759.jpg" />
 </div>
 
 
@@ -374,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264739.jpg" />
 </div>
 
 
@@ -403,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264444.jpg" />
 </div>
 
 
@@ -429,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264034.jpg" />
 </div>
 
 
@@ -455,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263942.jpg" />
 </div>
 
 
@@ -481,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263682.jpg" />
 </div>
 
 
@@ -507,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263651.jpg" />
 </div>
 
 
@@ -534,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263512.jpg" />
 </div>
 
 
@@ -545,138 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69255148D79A28F411457FD974FA989E61091D86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185059   (263328) от 16.12.2017
-
-Южный Парк / South Park (2017) WEB-DL [H.264/1080p-LQ] (21 сезон, серия 01-10 из 10)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263328.jpg" />
-</div>
-
-
-###  Подробнее
-
-Южный Парк / South Park — американский мультсериал, созданный Мэттом Стоуном и Треем Паркером. Иногда название переводится также как «Саут-Парк» или «Саус-Парк». Выпускается кабельным телеканалом Comedy Central с 1997 года. Основу сюжета составляют приключения четырёх мальчиков и их друзей, живущих в маленьком городке Саут-Парк, штат Колорадо. Сериал высмеивает недостатки (   Читать дальше...   )Производство: СШАЖанр: Для взрослых, КомедияРежиссер: Трей Паркер, Эрик Сточ, Мэтт СтоунАктеры: Трей Паркер, Мэтт Стоун, Мона Маршалл, Эйприл Стюарт, Айзек Хейз, Элиза Шнайдер, Эдриан Бирд, Мэри Кэй Бергман, Дженнифер Хауэлл, Кайл Маккаллок и др.Перевод: Профессиональный, двухголосый закадровыйОзвучка: Paramount Comedy, Кубик в кубеСубтитры: Русские, АнглийскиеПродолжительность: 10x ~00:22:10Реклама: Вырезана
- Присутствует ненормативная лексика
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA4B8CE27C58D19FB233BA592D02B93891978D11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340768   (263268) от 25.11.2019
-
-Лешики. Таинственные похитители (2008) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лешики – таинственные лесные жители, не заметные взгляду простого человека, их видят лишь те, кто верит в волшебство и не утратил детскую бескорыстную любовь к сказкам. Увидев в сухой веточке или причудливо изогнутом корне старого пня загадочную фигурку, мы, порой, восхищаемся творением природы, даже не подозревая, что есть в лесу волшебные места, где обитает целый (   Читать дальше...   )Производство: Россия, Директ-Медиа, Издательство "Нитусов"Жанр: Детский, Приключения, Мультфильм, Рисованная анимацияРежиссер: Курченко Сергей, Курченко ОльгаСубтитры: отсутствуютПродолжительность: 00:55:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4FE993A4696F3BD458D0A4B4613D366041ED208
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340880   (263190) от 25.11.2019
-
-Затерянное львиное королевство / The Lost Lion Kingdom (2019) WEB-DLRip [H.264/720p-LQ] [MVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультфильм о борьбе добра со злом на просторах космоса. Героями здесь становятся звери, которые летают на футуристических звездолетах. По сюжету много лет назад животные покинули родную планету и нашли себе новый дом. И вот теперь затерянное царство львов на планете Малтурния в опасности! Афас, король львов, отправляет в космос своего первенца Самара и его верного (   Читать дальше...   )Производство: США / Dream Machine AnimationЖанр: Мультфильм, фантастика, приключения, детский, полнометражныйРежиссер: Джейсон РайтАктеры: Кдж Шрок, Сара ТейлорПеревод: Многоголосый закадровый, профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:13:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:814A8D6159C3D4AD8E0396DDF85B2665CD20EB90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340889   (263137) от 25.11.2019
-
-Скуби-Ду: Возвращение на остров зомби / Scooby-Doo: Return to Zombie Island (2019) WEB-DL [H.264/1080p-LQ] [MVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скуби-Ду и его друзья продолжают разгадывать загадки. Когда у них заканчиваются загадки, компания отправляется в отпуск на странный отдаленный остров, который они, возможно, уже посещали. Вещи становятся действительно страшными, когда зомби нападают на курорт; кажется, злая сила Симоны и Лены выжила.Производство: США / Hanna-Barbera Home Video, Warner Bros. AnimationЖанр: Мультфильм, фэнтези, комедия, детектив, приключения, семейныйРежиссер: Сесилия Аранович, Этан СполдингАктеры: Фрэнк Уэлкер, Грэй Гриффин, Мэттью Лиллард, Кейт Микуччи, Дженелл Кокс, Дэвид Херман, Джон Майкл Хиггинс, Дэйв Митчелл, Кассандра Петерсон, Роджер РоузПеревод: Многоголосый закадровый, любительский (Flarrow Films)Субтитры: АнглийскиеПродолжительность: 01:19:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F192148419926BABA1728B98FBFDFA3863B3EC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341178   (262915) от 26.11.2019
-
-Соколик / Vanadzins (1978) DVDRip [VO]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262915.jpg" />
-</div>
-
-
-###  Подробнее
-
-По рассказу Вилиса Лациса.
-О мальчике по прозвищу Соколик, который живёт с отцом-рыбаком в деревушке на берегу моря. Отец ежедневно отправляется ловить рыбу, а Соколик на весь день остаётся дома вдвоём с котом. Мальчик мечтает когда-нибудь стать капитаном корабля, а пока лишь ждёт возвращения отца с моря. Но однажды его отец не возвращается...Производство: СССР, Латвийская республикаЖанр: Кукольный, КороткометражныйРежиссер: Арнольд БуровсПеревод: любительский одноголосый (progulkin)Субтитры: отсутствуютПродолжительность: 00:15:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4B81E1482C7847E0EBE657A8C2048B056306E1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

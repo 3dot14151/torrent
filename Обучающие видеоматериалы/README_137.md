@@ -1,3 +1,29 @@
+###  Публикация: 1155678   (531231) от 04.08.2017
+
+Андрей Макаревич - Лекция о красоте (2017) HDTVRip [H.264/720p-LQ]
+
+>>Обучающие видеоматериалы
+>>Другие видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Андрей Макаревич рассказал чем,по его мнению отличается ремесло от искусства,как отец(член союза художников СССР) учил его рисовать и многое другоеЖанр: ЛекцияПродолжительность: 00:35:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:154AB755E65BAF924661470B8E1F6A33F30D6F5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 926821   (531029) от 11.08.2015
 
 Oleg Lav | AX64 Time Machine - восстановит операционную систему из пепла (2015) PCRec [H.264/720p]
@@ -6,7 +32,7 @@ Oleg Lav | AX64 Time Machine - восстановит операционную �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531029.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530304.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529118.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528644.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ Leandro Carvalho | Brazil Butt Lift Carnivale (2016) HDTVRip [H.264/720p-LQ] [EN
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528398.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ Daily Burn | Undefeated (2017) HDTVRip [H.264/720p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525126.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ Dylan Patrick | Кинематографичные хедшоты / The Cinemati
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524757.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524386.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524163.jpg" />
 </div>
 
 
@@ -249,7 +275,7 @@ SynforgeTutorials | Basic Java, Java Swing (2013) PCRec [H.264/720p] [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523897.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ Lineware | Учебное руководство по Java / Java Tutorial (2013
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523865.jpg" />
 </div>
 
 
@@ -302,7 +328,7 @@ Mike Kelley | Где искусство встречается с архитек
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523854.jpg" />
 </div>
 
 
@@ -328,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523166.jpg" />
 </div>
 
 
@@ -354,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522995.jpg" />
 </div>
 
 
@@ -380,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522991.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ YouSmart, Нина Наумова | Векторная графика и пол�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521809.jpg" />
 </div>
 
 
@@ -436,7 +462,7 @@ Geekbrains | Objective C. Уровень 2 Профессиональная ра
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521248.jpg" />
 </div>
 
 
@@ -462,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521246.jpg" />
 </div>
 
 
@@ -489,7 +515,7 @@ Profileschool | Секреты цветокоррекции слайдов и н
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520305.jpg" />
 </div>
 
 
@@ -515,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520195.jpg" />
 </div>
 
 
@@ -541,7 +567,7 @@ Pluralsight | CheckPoint Certified Security Administrator: Backup and Updating (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519359.jpg" />
 </div>
 
 
@@ -567,7 +593,7 @@ Keith Barker | Check Point CCSA GAiA (2013) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518345.jpg" />
 </div>
 
 
@@ -593,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518293.jpg" />
 </div>
 
 
@@ -620,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518002.jpg" />
 </div>
 
 
@@ -646,7 +672,7 @@ Udemy | Kickstart ur Network Security Career: Checkpoint CCSA Course (2015) PCRe
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517253.jpg" />
 </div>
 
 
@@ -657,34 +683,6 @@ Udemy | Kickstart ur Network Security Career: Checkpoint CCSA Course (2015) PCRe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:145898402FC7757BB435940DD6A91165B4F906B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314655   (516828) от 16.07.2019
-
-Михаил Антончик | НЛП Практик (2014) DVDRip [H.264]
-
->>Обучающие видеоматериалы
->>Психология и саморазвитие (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516828.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для кого предназначен этот курс?
-- Для бизнесменов, менеджеров, руководителей любого уровня, рекламных агентов, консультантов и других специалистов, для которых коммуникация является важнейшей составляющей их деятельности
-- Для всех людей, заинтересованных в личностном развитии, более эффективном использовании имеющихся ресурсов и открытии в себе новых возможностей (   Читать дальше...   )Жанр: Психология, Гипноз, НЛППродолжительность: 23:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25C884DEDC2322006D08A436979DAC7DE4A78406
 ```
 
 https://mybot314.ru/tekegram_catalog/

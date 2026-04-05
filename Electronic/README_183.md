@@ -1,3 +1,61 @@
+###  Публикация: 1284530   (728964) от 21.02.2019
+
+VA - Believe In Deep Vol.2 (2019) The Groove Edition [MP3|320 Kbps] <House, DeepHouse>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jay Cee Morgan - En Deux Heures (Sunrise Mix) 3:32
+02. Beach & Marine Star - Love Investigation (Original Mix) 2:53
+03. Jonas Layne - I Wait For You (Original Mix) 3:15
+04. Isaac Bradley - Shooting Star (Original Mix) 2:59(   Читать дальше...   )Жанр: House, DeepHouseПродолжительность: 01:19:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CDC03A6082B33268E7FC0059273C599E8D11C09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284534   (728962) от 21.02.2019
+
+VA - Workout House Bangers (2019) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Uniting Nations - Out of Touch (Extended Mix) 6:19
+02. David Morales & The Face feat. Juliet Roberts - Needin' U (Original Mistake Mix) 7:55
+03. Jeremy Sylvester - Whine Ya Bumper (Club Mix) 6:52
+04. Indo - R U Sleeping (Bump 'N' Flex Remix) 5:04(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:57:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6435E0B92FBDAD853E135EC2EDB9DED39F9A72F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1284397   (728960) от 21.02.2019
 
 VA - Anthology of contemporary music from Africa continent (2019) Unexplained Sounds Group [FLAC|Lossless|WEB-DL|tracks] <Ambient, Tribal, Experimental, Abstract>
@@ -6,7 +64,7 @@ VA - Anthology of contemporary music from Africa continent (2019) Unexplained So
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728960.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - The Best Of The Last 50 Releases - Special 150 (2019) [MP3|320 Kbps] <Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728956.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Death In Vegas - Transmission (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728934.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Sunset Chillout Vibes (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728900.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Universal Language Lounge Anthems Vol.4 (2017) [MP3|320 Kbps] <Downtempo, C
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728898.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Femme Fatale (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728893.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Chillout Lounge Summer Dreams (2017) [MP3|320 Kbps] <Downtempo, Chillout, L
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728886.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Lounge System Vol.3 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728883.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ ZOT3 - Wave of Memories (2019) EP [MP3|192 Kbps] <Synthpop, Synthwave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728871.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - I Love Jango (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728865.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - The Sound Of: Arkham Knights (2016) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728817.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Lovers Lounge (Chillout Your Mind) (2019) [MP3|320 Kbps] <Balearic, Downtem
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728771.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Blank & Jones - Beyond Time (2019) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728762.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Neo-Cyberpunk 2015 (2015) [MP3|320 Kbps] <Dark Electro, Synth Pop, Electro 
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728657.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Woob - スリープ 研究 プログラム (2018) Time Limited [FLAC 2.0|44.1/24
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728653.jpg" />
 </div>
 
 
@@ -440,7 +498,7 @@ VA - The Annual Festival Sessions (2016) [MP3|320 кб/с] <Club House, Electro 
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727854.jpg" />
 </div>
 
 
@@ -469,7 +527,7 @@ VA - Melodic House Sessions, Vol.12 (2019) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727847.jpg" />
 </div>
 
 
@@ -498,7 +556,7 @@ VA - Ibiza Overload '19 (2019) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727844.jpg" />
 </div>
 
 
@@ -527,7 +585,7 @@ VA - Chill House: Something For Your Mind Your Body & Your Soul (2019) [MP3|320 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727836.jpg" />
 </div>
 
 
@@ -556,7 +614,7 @@ VA - Anjunadeep 10 (Mixed by Jody Wisternoff & James Grant) (2019) [FLAC|Lossles
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727831.jpg" />
 </div>
 
 
@@ -585,7 +643,7 @@ VA - Winter Collection 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727818.jpg" />
 </div>
 
 
@@ -614,7 +672,7 @@ VA - House Traxx (Tracks 4 DJ's) (2016) [MP3|320 кб/с] <House, Tech House, De
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727788.jpg" />
 </div>
 
 
@@ -643,7 +701,7 @@ Pantha du Prince - The Triad (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronica, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727783.jpg" />
 </div>
 
 
@@ -672,7 +730,7 @@ Above & Beyond - Acoustic II (2016) [FLAC|Lossless|WEB-DL|tracks] <Downtempo , C
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727682.jpg" />
 </div>
 
 
@@ -686,61 +744,6 @@ Above & Beyond - Acoustic II (2016) [FLAC|Lossless|WEB-DL|tracks] <Downtempo , C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACDE3A644CB2FFFC8F24C9EF6E3C58434192E326
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128402   (727669) от 25.04.2017
-
-VA - Blue Sunset Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Grooveyard - Seven Mile (Blade From Jestofunk Re-Edit)  7:03
-02.  Danny Tylar - Blow  3:12
-03.  Ruadh Munro - Joe Sax  3:11
-04.  The Cabildos - Collection Samba  3:44(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:59:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:117D3C4E881BFDFF67925D48701CC8936D2CFF1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128410   (727668) от 25.04.2017
-
-VA - Mantra House Vol. 1 (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Body Dymension - Shake Your Ass (feat. Alex D.)Жанр: HouseПродолжительность: 01:02:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B737B6F13F1EDCB3175F26855EC16155E02407C
 ```
 
 https://mybot314.ru/tekegram_catalog/

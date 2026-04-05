@@ -1,3 +1,29 @@
+###  Публикация: 521627   (626747) от 11.07.2012
+
+Nat Geo Wild: Созданные убивать: Большая белая акула / Build For The Kill: Great White Sharks (2011) HDTVRip
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626747.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый документальный сериал от National Geographic расскажет Вам, как животные эволюционировали в хитрых и жестоких убийц. Мы станем свидетелями, как из слепых и беспомощных они вырастают в сильных и беспощадных хищников.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26907CC18DAD3F142F7FF0F924E23ED6859F51AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 700127   (620851) от 20.07.2016
 
 Горбатые киты. Из огня в лёд / Humpbacks. From Fire to Ice (2008) BDRip [H.264/720p]
@@ -6,7 +32,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620851.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617876.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ NG. Анаконда: Тихий убийца / Anaconda: Silent Killer (2014) H
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617808.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617168.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615853.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615401.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ NG: Исследование. Столкновение с астероидом. 
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615093.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614556.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ BBC: Мир природы. Смертоносные змеи Индии / The N
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611273.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ Nat Geo Wild: Дикая Иберия / Wild Iberia [сезон 1 серии 1-4
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610547.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609791.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607242.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606956.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602855.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601983.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601673.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ Nat Geo Wild: Дикая Венеция / Wildes Venedig / Wild Venice (2014) HD
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600940.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600885.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597909.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597667.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597306.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595832.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ Nat Geo Wild: Дикая Америка: Гризли против белого 
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595529.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594727.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593303.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4B784EE2D6B1F9DAAE363EEBF0BC9F736E82542
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300754   (592752) от 07.05.2019
-
-Возвращение незваных гостей / The Squatters Return (2018) HDTVRip
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как объяснить неожиданное возвращение разных видов жуков? Ученые говорят о глобальном потеплении, нашем образе жизни и их генетических мутациях. Справимся ли мы с этими проблемами?Производство: Франция, Arte France Mona Lisa ProductionЖанр: Документальный, природа, флора, фаунаРежиссер: Тири БэрродПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:52:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E9A779A96F088B38BDCEA5A7DBD17A9425D69EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

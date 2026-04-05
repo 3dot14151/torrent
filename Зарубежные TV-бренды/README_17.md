@@ -6,7 +6,7 @@ Discovery: Будущее с Джеймсом Вудсом. Как стать с
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857370.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BBC: История Единицы с Терри Джонсом / The Story of 1
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856325.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NG: Дикая Флорида  / Wild Florida (2013) BDRip [H.264/720p] (сер�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855970.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Discovery: Смертельный улов / Deadliest Catch (2005) TVRip (Се�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854542.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NG: Доисторические хищники / Prehistoric Predators  (2009) 
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854308.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ NG: Дикая природа России / Wild Russia (2009) BDRip [H.264/720
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854303.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ BBC: Серенгети / Serengeti II (2021) WEBRip [H.264/720p] (сезон 2,
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854073.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854035.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ BBC. Биологические часы: как они работают? / Body
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853261.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ BBC: Что такое свет / Light Fantastic (2004) [2 х DVD5]
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852128.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ BBC. Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 7
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851925.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ BBC: Захватывающая история криминалистики / Ca
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851869.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Discovery. Большое и Ричард Хаммонд  / Richard Hammond's Bi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850995.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Discovery: Смертельный улов / Deadliest Catch (2007) TVRip (Се�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849375.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849271.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ BBC: Волк / The Wildlife Specials: Wolf (1997) DVD-5
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848643.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ BBC: Инстинкт человека (Человеческие инстинк�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848642.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ BBC: Как искусство сотворило мир / How Art Made the Worl
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848569.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Nat Geo Wild: Зимний сезон / Wild Winter (2016) HDTVRip [H.264/720p-L
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848518.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Nat Geo Wild: Дикие земли Европы / Europe's Great Wilderness (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848367.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ BBC. Смартфоны: темная сторона / Smartphones: The Dark Sid
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847938.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ History Channel. Древние пришельцы / Ancient Aliens (2010) HDTVR
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_847772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_847772.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Discovery: Будущее с Джеймсом Вудсом. Заменяя Бо�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846773.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Tехнологии, которые нас меняют /  DSKNECTD: Is Technolo
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846505.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ NGW. Львы: как братья стали королями / Lion Brothers: 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846389.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ History Channel. Америка. История Соединенных Штат�
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846331.jpg" />
 </div>
 
 

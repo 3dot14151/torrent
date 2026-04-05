@@ -6,7 +6,7 @@ Chivalry Quest: Sword and Flame / Рыцарский квест: Меч и Пл�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048258.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Christmas Stories 14: By Candlelight (2025) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048123.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Christmas Across America / Рождество по всей Америке (2025
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048122.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Christmas Fables 4: Nutcracker's Tale (2025) [Multi] (1.0) Unofficial [Collector
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047882.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Mistyvale / Туманная Долина (2025) [Ru] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047881.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Christmas Wonderland 16 (2025) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047356.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Living Legends 13: Haunting Melody / Живые легенды 13: Завора�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046929.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Montgomery Fox and the Case Of The Diamond Necklace / Монтгомери Фо�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046924.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Detectives United 4: Phantoms of the Past (2020) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042265.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Hidden Expedition 20: Reign of Flames / Секретная экспедиция 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042186.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Spirit Legends 4: Finding Balance (2021) [En] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040574.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Twin Mind: Murderous Jealousy (2021) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040302.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Cobra Kai: The Karate Kid Saga Continues (2021) [En] (1.0) License CODEX
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039971.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Secret City 5: Mysterious Collection / Тайный город 5: Таинств
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039758.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ The Cabinets of Doctor Arcana / Кабинеты доктора Аркана (20
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039261.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Living Legends Remastered 2: Frozen Beauty (2021) [En] (1.0) Unofficial [Collect
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038996.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Living Legends 7: Fallen Sky / Живые легенды 7: Упавшее не�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038193.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Labyrinths of the World 13: Eternal Winter (2021) [En] (1.0) Unofficial [Collect
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037106.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Bridge to Another World 7: Secrets of the Nutcracker / Мост в Другой 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035953.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Strange Investigations: Becoming (2021) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035121.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Spirit Legends 4: Finding Balance / Легенды Духов 4: Поиск га
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034559.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Rite of Passage 10: Embrace of Ember Lake (2021) [En] (1.0) Unofficial [Collecto
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033736.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Bridge to Another World 5: Through the Looking Glass / Мост в Другой 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033227.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Immortal Love 8: Sparkle of Talent (2021) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032046.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Wanderlust 4: The Bermuda Secret (2021) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030191.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Labyrinths of the World 13: Eternal Winter / Лабиринты Мира 13: В�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030141.jpg" />
 </div>
 
 

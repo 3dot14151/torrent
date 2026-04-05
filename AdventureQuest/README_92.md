@@ -1,3 +1,81 @@
+###  Публикация: 1762761   (36001) от 27.11.2024
+
+Be Your Cat (2024) [Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36001.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Быть твоим котом" - это настоящая любовная игра, это как жизненный опыт, одна интересная мечта. Мы все хотели бы обладать сверхспособностями, но что бы ты сделал, если бы однажды у тебя были сверхспособности, но не такие, как у Супермена? Что бы ты сделал со своими ограниченными способностями? Как это влияет на окружающих вас людей и меняет их?Подробнее:Тип издания: SceneРазработчик: HKBOIЖанр: Казуальные игры, Инди, Ролевые игры, СимуляторыЯзык озвучки: КитайскийЯзык субтитров: Английский, Китайский (упрощенный, традиционный)Язык интерфейса: Английский, Китайский (упрощенный, традиционный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A281A58A5633D822E8097A7279D50E0BC14EDEE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760579   (35991) от 27.11.2024
+
+Beyond The Darkness (2024) [Ru/En] (Build 16538909) Repack Let'sРlay
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35991.jpg" />
+</div>
+
+
+###  Подробнее
+
+Beyond The Darkness - это мрачная история, которая окунёт вас в детские кошмары, даже если вы успели о них позабыть. Помогите маленькой девочке Милли сразиться с ужасами, таящимися во тьме, и найдите её пропавшую семью. Вы окажетесь причудливых мирах воспоминаний, искажённых страхом и отчаянием, а вашим единственным оружием станет свет маленькой лампы…Тип издания: RepackРазработчик: My Little StudioЖанр: Приключенческие игры, ИндиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE7B045C46185E602AE7C040710CE203CE0739D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762875   (35876) от 28.11.2024
+
+THE MULLER-POWELL PRINCIPLE (2023) [Ru/En] (1.1.5.9) Repack Let'sРlay
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие игры происходит в 2032 году. Вы — Гарри Герман, сотрудник научной компании Delta Laboratories, которая занималась изучением путешествий между мирами. Вы участвовали в проекте, который должен был принести пользу всему человечеству, но что-то пошло не так. Все, что вы помните, это слова "Принцип Мюллер-Пауэлла". Вам нужно разгадать значение этих (   Читать дальше...   )Тип издания: RepackРазработчик: Three Dots GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97FCA364F7ED091A8C7A343B7C80C85AF130E3F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1762901   (35865) от 28.11.2024
 
 KAKU: Ancient Seal (2024) [Ru/Multi] (Build 780639323/dlc) Repack Let'sРlay [The Collector's Edition]
@@ -6,7 +84,7 @@ KAKU: Ancient Seal (2024) [Ru/Multi] (Build 780639323/dlc) Repack Let'sРlay [Th
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35865.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ The Town of Light (2016) [Multi] (2.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35858.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Deep Inside (2024) [En] (Build 16288203) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35793.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Marvel’s Guardians of the Galaxy: The Telltale Series (2017) [Ru/Multi] (1.0.1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35766.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ The Talos Principle 2 (2023) [Ru/Multi] (2.2.0 696260/dlc) Repack Let'sРlay [De
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35688.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ A pet shop after dark (2022) [Ru/Multi] (1.051) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35667.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Puppet House (2024) [Ru/Multi] (build 16153348) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35640.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Puppet House (2024) [Ru/Multi] (build 16153348) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35610.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (1.06) Repack 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35585.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ A Quiet Place: The Road Ahead (2024) (1.1.0-45746.11849/dlc) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35492.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Unforeseen Incidents (2018) [Multi] (1.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35483.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Arsene Lupin - Once a Thief (2024) [Ru/Multi] (1128.ffO6.pc/dlc) Repack Let'sРl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35269.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Little Big Adventure – Twinsen’s Quest (2024) [Ru/Multi] (1.1.2/dlc) Repack 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35198.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.248.905/dlc) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35173.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Lorn's Lure (2024) [Ru/Multi] (Build 16415308) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35149.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Vasilisa and Baba Yaga / Василиса и Баба Яга (2024) [Ru/Multi] (
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35140.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.1.18.0/dlc) Scene Razor1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35084.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Devil's Way (2024) [Ru/Multi] (build 16096646) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35049.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.0.0/dlc) Scene Rune [P
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34949.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Fatal Midnight (2024) [Ru/Multi] (Build 16185793) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34916.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ CONSCRIPT (2024) [Ru/Multi] (1.0.1.2/dlc) Repack Let'sРlay [Officer Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34838.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Go Home Annie (2024) [Ru/Multi] (build 16636802) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34195.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Caravan SandWitch (2024) [Multi] (1.12.71.30) License GOG [Digital Collector's E
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34177.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Caravan Sandwitch переносит на вымышленную пустынн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3434C661F441C52A45E9741065ABD7839E1377FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761106   (34152) от 15.12.2024
-
-Moon Mystery (2024) [Ru/Multi] (1.2) Repack Let'sРlay
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Луна. Наш ближайший сосед. Место, полное загадок и странностей. Все верно. Здесь есть не только камни и недружелюбная среда. Одинокий астронавт ощутил это на себе, когда связь с Землей внезапно прервалась, и началась межзвездная одиссея по вселенной. Moon Mystery - это приключенческий шутер от первого лица, полный загадок, головоломок и необычных миров. Серая поверхность (   Читать дальше...   )Тип издания: RepackРазработчик: CosmoscoutsЖанр: Экшены, Приключенческие игры, Казуальные игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:550EF7ACB32AC7E3E72269B95FD6FBB269EF0D28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765923   (34102) от 15.12.2024
-
-The Painscreek Killings (2017) [Ru/Multi] (1.1.0) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34102.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта игра для тех, кто любит чтение, хорошие истории и детективные игры. В среднем игра длится от 10 до 20 часов, в зависимости от стиля игры. Будучи Джанет, молодой и подающей надежды журналисткой, вы получаете приказ от вашего редактора на расследование в таинственном, некогда оживленном городе. Основываясь на информации, опубликованной СМИ о смерти горожан, вы (   Читать дальше...   )Тип издания: LicenseРазработчик: EQ StudiosЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25542B38EA56E8F5F6D785F376F53858287F5D50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765966   (34092) от 15.12.2024
-
-Baby Blues Nightmares - Toddler Horror Game (2024) [En] (1.1) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34092.jpg" />
-</div>
-
-
-###  Подробнее
-
-Baby Blues Nightmares - Toddler Horror Game - это игра-ужастик на выживание, погружающая игроков в мир кошмаров малыша. В центре внимания - маленький ребенок, который должен пройти через темные, таинственные места, чтобы вернуть пять пропавших игрушек. Хотя эта цель может показаться простой, путешествие будет совсем не таким. Ребенок передвигается на трехколесном (   Читать дальше...   )Тип издания: LicenseРазработчик: Steelkrill StudioЖанр: Экшены, Приключенческие игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E12A4EBEFCEB186951F24BE5789D95E9A5A73A0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

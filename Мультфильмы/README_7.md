@@ -1,3 +1,135 @@
+###  Публикация: 1845758   (1050898) от 03.01.2026
+
+Феи: Загадка пиратского острова / The Pirate Fairy (2014) WEB-DL [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050898.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о Зарине, смышленой и амбициозной фее, собирающей пыльцу растений. Все начинается с того, что она похищает волшебную пыльцу фей…Производство: США, Индия / Walt Disney Pictures, DisneyToon Studios, Prana StudiosЖанр: мультфильм, фэнтези, детский, приключенияРежиссер: Пегги ХолмсАктеры: Кристина Хендрикс, Мэй Уитман, Том Хиддлстон, Памела Адлон, Анджела Бэртис, Меган Хилти, Люси Лью, Рэйвен, Джим Каммингс, Кевин Майкл РичардсонПеревод: дублированный (Невафильм)Язык озвучки: русский, английскийСубтитры: русскиеПродолжительность: 01:15:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CA01CD0D13BE8363405C8C6231634ABADD1D884
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845759   (1050897) от 03.01.2026
+
+Феи: Легенда о чудовище / Tinker Bell and the Legend of the NeverBeast (2014) WEB-DL [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анимационная сказка расскажет удивительную историю о веселой и талантливой фее Фауне, которая убеждена в том, что о книге нельзя судить по ее обложке, впрочем, как и о животном по его клыкам, поэтому она дружит с таинственным существом громадных размеров из Нетландии по прозвищу Чудовище.
+
+В это время группа волшебных фей разведки не настолько уверены в этом страшном (   Читать дальше...   )Производство: США, Индия / Walt Disney Pictures, DisneyToon Studios, Prana StudiosЖанр: мультфильм, фэнтези, приключения, семейныйРежиссер: Стив ЛотерАктеры: Джиннифер Гудвин, Мэй Уитман, Розарио Доусон, Люси Лью, Рэйвен, Меган Хилти, Памела Адлон, Данай Гурира, Хлоя Беннет, Томас ЛеннонПеревод: дублированный (Невафильм)Язык озвучки: русский, английскийСубтитры: русскиеПродолжительность: 01:13:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:209BBA07FBDD9CC5C5EB0E580A853016F2EB611D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845765   (1050889) от 
+
+Губка Боб: В поисках квадратных штанов / The SpongeBob Movie: Search for SquarePants (2025) WEBRip [MVO] [AD]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Губка Боб отправляется вместе с Патриком в самые глубины океана, чтобы встретиться с призраком Летучего Голландца. На пути его ждут захватывающие испытания, загадочные морские тайны и новые открытия в подводном мире. Тем временем мистер Крабс и Сквидвард идут по следу Губки Боба и пытаются его спасти.Производство: США, Nickelodeon Animation Studios, Nickelodeon Movies, Paramount AnimationЖанр: Мультфильм, фэнтези, комедия, приключения, семейный, полнометражныйРежиссер: Дерек ДраймонАктеры: Том Кенни, Клэнси Браун, Роджер Бампасс, Билл Фагербек, Кэролин Лоуренс, Мистер Лоуренс, Джордж Лопес, Айс Спайс, Артуро Кастро, Шерри КолаПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:22:42Реклама: Присутствуют видеовставки и логотип
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71573620BE61608FDA650A81C5501250B470B260
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845794   (1050852) от 03.01.2026
+
+Крот / Krtek / Der Maulwurf (1957 - 1998) 8xDVD5 (43 серии)
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы (коллекции, сборники / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050852.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детский мультфильм о приключениях маленького крота и его друзей.Производство: Чехословакия, Krátký Film PrahaЖанр: мультфильмРежиссер: Зденек Милер / Zdeněk MilerСубтитры: отсутствуютПродолжительность: 00:44:20 + 00:43:28 + 00:44:39 + 00:45:47 + 00:56:35 + 00:55:56 + 00:56:05 + 01:01:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD2F700CD067E8FF2CFCD7035E038C502AF81D3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845620   (1050791) от 02.01.2026
+
+Монстры на каникулах 2 / Hotel Transylvania 2 (2015) BDRip 3D [H.264/1080p] [Горизонтальная анаморфная стереопара]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050791.jpg" />
+</div>
+
+
+###  Подробнее
+
+Граф Дракула выдает свою очаровательную дочь замуж за парня из мира людей, и у молодой «смешанной» пары рождается сын. Станет ли этот ребенок человеком или вампиром?Производство: США, Канада / Columbia Pictures, LStar Capital, Sony Pictures AnimationЖанр: мультфильм, фэнтези, комедия, семейныйРежиссер: Генндий ТартаковскийАктеры: Адам Сэндлер, Энди Сэмберг, Селена Гомес, Кевин Джеймс, Стив БушемиПеревод: дублированныйСубтитры: русские (forced, full), английские (full, SDH)Продолжительность: 01:29:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:497B7C7F8FF61F1C220E1F7D3CFE58F8F83CD478
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1845632   (1050783) от 02.01.2026
 
 На выброс (2025) WEBRip [H.264/1080p]
@@ -6,7 +138,7 @@
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050783.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050741.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050740.jpg" />
 </div>
 
 
@@ -84,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1050721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050721.jpg" />
 </div>
 
 
@@ -110,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1050680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050680.jpg" />
 </div>
 
 
@@ -137,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050604.jpg" />
 </div>
 
 
@@ -163,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050600.jpg" />
 </div>
 
 
@@ -189,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050599.jpg" />
 </div>
 
 
@@ -215,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050520.jpg" />
 </div>
 
 
@@ -241,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050478.jpg" />
 </div>
 
 
@@ -267,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050477.jpg" />
 </div>
 
 
@@ -293,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050225.jpg" />
 </div>
 
 
@@ -319,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050224.jpg" />
 </div>
 
 
@@ -345,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050199.jpg" />
 </div>
 
 
@@ -371,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050197.jpg" />
 </div>
 
 
@@ -397,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050136.jpg" />
 </div>
 
 
@@ -423,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050066.jpg" />
 </div>
 
 
@@ -449,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050065.jpg" />
 </div>
 
 
@@ -475,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049987.jpg" />
 </div>
 
 
@@ -501,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049871.jpg" />
 </div>
 
 
@@ -527,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049870.jpg" />
 </div>
 
 
@@ -538,136 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26155FE909852F5292B86E67FF101E02D7DEF3A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844077   (1049869) от 25.12.2025
-
-Остров сокровищ (1988) BDRip [H.265/1080p] [10-bit] (Реставрация «Крупный План»)
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049869.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шхуна «Испаньола» бороздит морские просторы в поисках острова, на котором спрятаны легендарные сокровища пиратского капитана Флинта. На корабле зреет заговор. Разбойники во главе с одноногим Джоном Сильвером, кажется, близки к цели.Производство: СССР / КиевнаучфильмЖанр: мультфильм, приключения, мюзикл, комедия, семейныйРежиссер: Давид ЧеркасскийАктеры: Владимир Заднепровский, Евгений Паперный, Армен Джигарханян, Юрий Яковлев, Валерий Бессараб, Борис Вознюк, Георгий Кишко, Валерий Чигляев, Виктор Андриенко, Григорий Толчинский и другиеСубтитры: отсутствуютПродолжительность: 00:49:31 + 01:01:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CB1882011BC99DA911D15B3EE4B4F40E0A7B717
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844033   (1049791) от 23.12.2025
-
-Монстры на каникулах / Hotel Transylvania (2012 - 2022) BDRip [AV1/1080p-LQ] [10-bit] [Коллекция]
-
->>Мультфильмы
->>Зарубежные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049791.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Монстры на каникулах» (англ. Hotel Transylvania; оригинальное название — «Отель Трансильвания») — американская анимационная медиафраншиза, созданная комедийным писателем Тоддом Даремомruen. На 2022 год франшиза состоит из четырёх полнометражных фильмов, трёх короткометражных фильмов и комиксов производства «Sony Pictures Animation», а также телевизионного мультсериала, (   Читать дальше...   )Производство: США, Корея Южная, Канада / Columbia Pictures, Sony Pictures Animation, Happy Madison ProductionsЖанр: мультфильм, фэнтези, комедияРежиссер: Генндий Тартаковский, Дерек Драймон, Дженнифер КлускаПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: Русские (forced, full)Продолжительность: 01:31:31 / 01:29:18 / 01:37:23 / 01:27:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BE29ECDA111012DE1867F203712262A722EF202
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844028   (1049728) от 24.12.2025
-
-Зверополис 2 / Zootopia 2 (2025) WEBRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049728.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кролик-полицейский Джуди и лис Ник идут по следу загадочной рептилии, чьё прибытие в Зверополис переворачивает жизнь города с ног на голову. Чтобы раскрыть дело, Джуди и Ник вынуждены работать под прикрытием в разных районах города.Производство: США / Walt Disney Animation Studios, Walt Disney PicturesЖанр: мультфильм, комедия, детектив, приключения, семейныРежиссер: Джаред Буш, Байрон ХовардАктеры: Джиннифер Гудвин, Джейсон Бейтмен, Ке Хюи Куан, Форчун Феймстер, Энди Сэмберг, Дэвид Стрэтэйрн, Идрис Эльба, Иветт Николь Браун, Кинта Брансон, Томми ЧонгПеревод: Дублированный (MovieDalen)Субтитры: ОтсутствуютПродолжительность: 01:47:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B1EA584523879ECC448FD6650DF48307A777F86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843764   (1049625) от 22.12.2025
-
-Экзорцизм. Хроники: Начало / Toemalog / Exorcism Chronicles: The Beginning (2024) WEB-DL [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049625.jpg" />
-</div>
-
-
-###  Подробнее
-
-145-й настоятель тайного храма, сотни лет проведя в изгнании, готовится провести зловещий ритуал, чтобы обрести силу абсолютного зла. Его пытаются остановить хранители храма — представители разных религий.Производство: Корея Южная / Locus Studio, ShowboxЖанр: мультфильм, фэнтези, боевикРежиссер: Ким Дон-чхольАктеры: Чхве Хан, Нам До-хён, Чон Ю-джон, Ким Ён-у, Ким Мин-джу, Хон Сын-хё, Хван Чхан-ён, Пхё Ён-джэПеревод: Дублированный (Flarrow Films)Язык озвучки: Русский, корейскийСубтитры: РусскиеПродолжительность: 01:25:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D38C3493F4DE3F94D5AAC45BD8CA40A7582486B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843749   (1049624) от 22.12.2025
-
-Ганц / Gantz (2004) DVDRip [AV1/2160p] [4K, SDR, 10-bit] (сезон 2 из 2, 1-13 серии из 13) Rezan & Miori [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для участников смертельной игры грядут перемены. Ганц вызывает игроков на новый раунд. Среди новых лиц, собравшихся перед сферой: телевизионный евангелист, который считает, что знает все ответы, и девушка, которая, похоже, готова уделить Кей внимания, которого он так жаждет.Производство: Япония / GonzoЖанр: аниме, мультфильм, фантастика, боевик, ужасыРежиссер: Итиро ИтаноАктеры: Хироси Камия, Мицуаки Мадоно, Хитоми Набатамэ, Даисукэ Намикава, Масаси Оосато, Бин Сасаки, Миэ Сонодзаки, Такуро Накакуни, Хадзимэ Иидзима, Токо АоямаПеревод: Двухголосый любительский (Rezan & Miori)Язык озвучки: Русский, ЯпонскийСубтитры: русскиеПродолжительность: ~00:24:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0623EF107D9632199A2DF5E2D548980C4AB5AF70
 ```
 
 https://mybot314.ru/tekegram_catalog/

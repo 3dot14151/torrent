@@ -1,3 +1,30 @@
+###  Публикация: 1438630   (1040884) от 09.01.2021
+
+Вячеслав Никонов | 28 мгновений весны 1945-го (2020) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040884.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великая Отечественная война – это история великого мужества, великого самопожертвования, триумфа воли народа во имя будущего человечества. Память о тех, кто отдал жизнь, защищая Родину, кто погиб в страшной нацистской машине смерти, живет и будет жить в наших сердцах.
+Победа – главный символ национального величия и национальной гордости. Поэтому наши недруги всегда (   Читать дальше...   )Жанр: Книги о войне, Популярно об истории, ПублицистикаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A7A123C3E185F3259F9F3B6ABADE31E23B18611
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438627   (1040852) от 09.01.2021
 
 Вячеслав Никонов | Октябрь 1917. Кто был ничем, тот станет всем (2017) [EPUB]
@@ -6,7 +33,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040852.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039907.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039861.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039858.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038864.jpg" />
 </div>
 
 
@@ -138,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038738.jpg" />
 </div>
 
 
@@ -164,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038251.jpg" />
 </div>
 
 
@@ -191,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037426.jpg" />
 </div>
 
 
@@ -217,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036930.jpg" />
 </div>
 
 
@@ -243,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036899.jpg" />
 </div>
 
 
@@ -269,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036890.jpg" />
 </div>
 
 
@@ -295,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036868.jpg" />
 </div>
 
 
@@ -324,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036867.jpg" />
 </div>
 
 
@@ -351,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036866.jpg" />
 </div>
 
 
@@ -377,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036863.jpg" />
 </div>
 
 
@@ -405,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036843.jpg" />
 </div>
 
 
@@ -432,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036839.jpg" />
 </div>
 
 
@@ -459,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036824.jpg" />
 </div>
 
 
@@ -485,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036588.jpg" />
 </div>
 
 
@@ -513,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036561.jpg" />
 </div>
 
 
@@ -540,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036518.jpg" />
 </div>
 
 
@@ -567,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036274.jpg" />
 </div>
 
 
@@ -595,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036103.jpg" />
 </div>
 
 
@@ -622,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035692.jpg" />
 </div>
 
 
@@ -649,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035006.jpg" />
 </div>
 
 
@@ -662,32 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2484D75E0363EDF788837A249E5DE4A9F674AB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444266   (1034887) от 31.01.2021
-
-Хелен Папагианнис | Дополненная реальность. Все, что вы хотели узнать о технологии будущего (2019) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034887.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга доктора Хелен Папагианнис, специалиста по дополненной реальности с мировым именем, поможет вам лучше разобраться в этой технологии, понять ее роль в современном обществе и оценить ее перспективы. Прочитав эту книгу, вы узнаете, кто и когда создал первую программу дополненной реальности, чем отличается дополненная реальность от виртуальной, как она поможет людям (   Читать дальше...   )Жанр: Публицистика, Научно-популярная литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5B4F853EF644EDC2BCF9B3311D356E2C4EACA43
 ```
 
 https://mybot314.ru/tekegram_catalog/

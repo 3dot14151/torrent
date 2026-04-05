@@ -1,3 +1,55 @@
+###  Публикация: 1839346   (1046514) от 28.11.2025
+
+Мироздание гуманоидов / The Creation of the Humanoids (1962) WEB-DLRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046514.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пост-апокалиптическом будущем выжили несколько представителей человеческой расы, передав часть своих способностей искусственно созданным существам, гуманоидам. Но первые модели гуманоидов были человекоподобны, что создавало многочисленные общественные проблемы. Люди, обеспокоенные за свое положение, решают поставить гуманоидов на место, то есть превратить их в (   Читать дальше...   )Производство: США / Genie Productions Inc.Жанр: фантастикаРежиссер: Уэсли БэрриАктеры: Дон Мегован, Эрика Эллиотт, Фрэнсис МакКанн, Дон Дулиттл, Дэвид Кросс, Ричард Ват, Рейд Хэммонд, Малкольм Смит, Джордж Милан, Дадли МэнлавПеревод: Одноголосый любительский (В. Рутилов, den904)Язык озвучки: Русский, английскийСубтитры: Русские, английские (Full, SDH)Продолжительность: 01:24:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D4FD8159DCF019821F25904363A719042C6EE4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603386   (1045744) от 09.01.2023
+
+Ночь игуаны / The Night of the Iguana (1964) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045744.jpg" />
+</div>
+
+
+###  Подробнее
+
+Преподобный Епископальной церкви Т. Лоуренс Шеннон переживает нервный срыв прямо во время собрания прихожан. Причиной тому послужили обвинения его в растлении совсем юной учительницы воскресной школы... Прошло два года. Группа преподавателей баптистской школы приезжает на экскурсию в Пуэрто-Вальярта. Молодая туристка Шарлотта Гудэлл очарована их гидом, преподобным (   Читать дальше...   )Производство: США, Seven Arts ProductionsЖанр: драмаРежиссер: Джон ХьюстонАктеры: Ричард Бёртон, Ава Гарднер, Дебора Керр, Сью Лайон, Скип Уорд, Грэйсон Холл, Сайрил Делеванти, Мэри Бойлэн, Эмилио Фернандес, Фидельмар ДуранПеревод: профессиональный многоголосый (СВ-Дубль по заказу ГТРК Культура), авторский (Алексей Медведев)Субтитры: английские SDHПродолжительность: 01:57:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F17FB7E6A48E83B06C929D44E2E424112174935
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1604775   (1045217) от 15.01.2023
 
 Золотая каска / Casque d Or (1952) BDRip [H.264]
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045217.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045210.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044934.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044816.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044631.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044613.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044598.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044484.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044466.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044453.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044312.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044288.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044274.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044242.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043607.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043512.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043328.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043257.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043215.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043007.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042994.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042624.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042353.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042333.jpg" />
 </div>
 
 
@@ -619,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FFC4193001E7ABF22EB03DD31C46FFDF9844C2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607123   (1041324) от 11.02.2023
-
-Смерть красавицы / La mort de Belle (1961) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Французская криминальная драма, основанная на одноимённом романе Жоржа Сименона. Стефан Бланшон живёт спокойной жизнью в Женеве. Он женат на Кристин, холодной и чёрствой женщине. Однажды к ним приезжает погостить Белль Шерманн, дочь одного из друзей Кристин. Жизнь Стефана переворачивается, когда Белль находят задушенной, а он становится главным подозреваемым...Производство: Франция, Cinephonic, OdeonЖанр: драма, криминал, детективРежиссер: Эдуард МолинароАктеры: Жан Дезайи, Александра Стюарт, Моник Мелинан, Иветт Этьеван, Жак Моно, Марк Кассо, Жак Пьер, Ив Робер, Луиса Кольпейн, Ван ДоудеПеревод: любительский одноголосый (rtys)Язык озвучки: русский, французскийСубтитры: русские (Lisok), английскиеПродолжительность: 01:43:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3D9A53644553EBD750C1F09C6CBE63378CE658B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422896   (1041034) от 08.01.2021
-
-Роско Арбакл. Самогон / Moonshine (1918) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041034.jpg" />
-</div>
-
-
-###  Подробнее
-
-Казалось бы, вражда между двумя кланами бутлегеров окончена победой одного из кланов, но горцев настигает новая беда в лице прибывшего в их края правительственного агента и его помощника. Агенты переворачивают все вверх дном в поисках тайного убежища, в котором горцы готовят нелегальный алкоголь, но попадают в серьезные неприятности, из которых спастись им поможет (   Читать дальше...   )Производство: США, Comique Film CompanyЖанр: Короткометражка, комедия, немое киноРежиссер: Роско ’Толстяк’ АрбакльАктеры: Роско ’Толстяк’ Арбакль, Бастер Китон, Аль Ст. Джон, Элис Лэйк, Чарльз Дадли, Джо БордоЯзык озвучки: НемойСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:18:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3E2E7CE06E22AEFBAD5AB1F8319C9E9093D389C
 ```
 
 https://mybot314.ru/tekegram_catalog/

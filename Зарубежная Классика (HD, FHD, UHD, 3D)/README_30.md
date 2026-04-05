@@ -1,3 +1,81 @@
+###  Публикация: 783252   (743813) от 05.05.2014
+
+Побег из Шоушенка / The Shawshank Redemption (1994) BDRip [H.264/720p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743813.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шоушенк  название тюрьмы. И если тебе нет еще 30-ти, а ты получаешь пожизненное, то приготовься к худшему: для тебя выхода из Шоушенка не будет! Актриса Рита Хэйворт  любимица всей Америки. Энди Дюфрейну она тоже очень нравилась. Рита никогда не слышала о существовании Энди, однако жизнь Дюфрейну, бывшему вице-президенту крупного банка, осужденному за убийство жены (   Читать дальше...   )Производство: СШАЖанр: драма, криминалРежиссер: Фрэнк ДарабонтАктеры: Тим Роббинс, Морган Фриман, Боб Гантон, Уильям Сэдлер, Клэнси Браун, Джил Беллоуз, Марк Ролстон, Джеймс Уайтмор, Джеффри ДеМун, Ларри Бранденбург, Нил Гвинтоли, Брайан Либби, Дэвид Прувал, Джозеф Раньо, Джуд Чикколелла, Пол МакКрейн, Рени Блейн, Скотт Манн, Джон Хортон, Гордон Грин, Альфонсо ФриманПеревод: Профессиональный (многоголосый, закадровый) x6, Профессиональный (двуголосый, закадровый) х3, Профессиональный (одноголосый, закадровый) х7Субтитры: Вшитые отключаемыеЯзык субтитров: Русский, АнглийскийПродолжительность: 02:22:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62E2AD85F8CF43BC37A7B3820ECF444AA3CE67CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215942   (743227) от 04.04.2018
+
+Рождённая свободной / Born Free (1966) Blu-ray [H.264/1080p] [Custom]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743227.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм был снят в Африканской саванне по одноименному бестселлеру известной писательницы и натуралиста Джой Адамсон. Картина рассказывает о судьбе львицы Эльзы, еще детенышем попавшей к супругам Адамсон. Они не только спасают малышку от неминуемой гибели, но и, вырастив ее, возвращают назад в дикую природу потому, что она была рождена свободной. Авторам удалось превосходно (   Читать дальше...   )Производство: США, Atlas, Highroad, Open Road Films (II)Жанр: Драма, приключения, семейныйРежиссер: Джеймс Хилл, Том МакгоунАктеры: Вирджиния МакКенна, Билл Треверс, Джеффри Кин, Питер Лукойе, Омар Чамбати, Билл Годден, Брайан Эпсом, Роберт Читэм, Роберт С. Янг, Джеффри БестПеревод: Профессиональный (двухголосый закадровый)Субтитры: РусскиеПродолжительность: 01:35:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AB0A1391105ABC8CD576FEB0F79462AEA25FE3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 888554   (742846) от 21.04.2015
+
+Список Шиндлера / Schindler's List (1993) BDRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лента рассказывает реальную историю загадочного Оскара Шиндлера, члена нацистской партии, преуспевающего фабриканта, спасшего во время Второй мировой войны более тысячи ста евреев. Это триумф одного человека, не похожего на других, и драма тех, кто, благодаря ему, выжил в ужасный период человеческой истории.Производство: СШАЖанр: драма, военный, биография, историяРежиссер: Стивен СпилбергАктеры: Лиам Нисон, Бен Кингсли, Рэйф Файнс, Кэролайн Гудолл, Эмбет Дэвидц, Джонатан Сагалл, Малгоша Гебель, Марк Иванир, Беатриче МаколаПеревод: Дублированный , Многоголосый закадровый, Одноголосый закадровыйЯзык субтитров: русский , английскийПродолжительность: 03:15:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57F1BA5E114129DD7DA907B56CFA8D32E6246737
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517688   (742143) от 17.01.2022
 
 Сумасшедшую – убить / Folle a tuer (1975) BDRemux [H.264/1080p]
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742143.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742072.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741935.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741578.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740567.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739648.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738197.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738044.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737713.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737116.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736580.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735880.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735834.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735622.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735365.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_735289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_735289.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735064.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734661.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734147.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_734115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_734115.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_733693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733693.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_733373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733373.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_733150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733150.jpg" />
 </div>
 
 
@@ -593,86 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FD3E22D3249F2DA67D5745DF52CB9D9C3AC8F76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 788438   (733147) от 24.05.2014
-
-Викинги / The Vikings (1958) WED-DL [H.264/720p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_733147.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тысяча лет назад скандинавские викинги во главе с королем Рагнаром высадились на побережье Англии в надежде захватить вожделенные земли. Движимые жаждой наживы, безжалостные воины опустошали Британские острова, сея смерть и разрушение.
-
-Эйнар и Эрик были сводными братьями. Первый — сын короля викингов Рагнара, бесстрашный и непобедимый воин, которому не было равных (   Читать дальше...   )Жанр: Приключения, БоевикРежиссер: Ричард Флайшер / Richard FleischerАктеры: Кирк Дуглас, Тони Кертис, Эрнест Боргнайн, Джанет Ли, Джеймс Дональд, Александр Нокс , Максин Одли, Фрэнк Тринг, Эйлин Вэй, Эдрик КоннорсПеревод: ДублированныйЯзык субтитров: русские, английскиеПродолжительность: 01:56:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:076709856AA479B6DE40A4C3C6A1B537875DBA70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521810   (733056) от 05.02.2022
-
-Жилец / Le locataire / The Tenant (1976) BDRip [H.265/1080p-LQ] [10-bit]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скромный конторский служащий Трелковский решает сменить место проживания и переехать на новое место. Он снимает квартиру в обветшалом здании с недружелюбными соседями. От консьержки он узнает, что предыдущая квартирантка, Симона, покончила с собой, выбросившись из окна. Со временем Трелковский начинает всё больше и больше думать о ней, стараясь узнать как можно больше (   Читать дальше...   )Производство: Франция / Marianne Productions S.A.Жанр: триллер, драма, детективРежиссер: Роман ПоланскиАктеры: Роман Полански, Изабель Аджани, Мелвин Дуглас, Шелли Уинтерс, Бернар Фрессон, Клод Дофен, Джо Ван Флит, Рюфюс, Роман Бутей, Жак МоноПеревод: Многоголосый профессиональный, АвторскийСубтитры: русские, английскиеПродолжительность: 02:05:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D1E1140F284CD49551A4FBF81574CFEA0964DE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 789438   (732744) от 25.05.2014
-
-Исход / Exodus (1960) BDRip [H.264/720p] [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добросовестная неторопливая экранизация романа Леона Уриса рассказывает о создании и первых годах Израиля, войне за независимость, называемой во всем мире Палестинской. В повествовании множество персонажей. В центре можно выделить дуэт Пола Ньюмана в роли израильского лидера сопротивления и Эвы Мари Сэйнт в роли армейской медсестры, нееврейки. Первые годы, первые (   Читать дальше...   )Производство: США, Carlyle ProductionsЖанр: Боевик, Драма, Военный, ЭкранизацияРежиссер: Отто ПремингерАктеры: Пол Ньюман, Ева Мари Сэйнт, Ральф Ричардсон, Питер Лоуфорд, Сэл Минео, Джон ДерекПеревод: Профессиональный многоголосыйПродолжительность: 03:27:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCBFB95C4ADCCC12D3ED32966F354E125C0B5441
 ```
 
 https://mybot314.ru/tekegram_catalog/

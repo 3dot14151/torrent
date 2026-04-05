@@ -1,3 +1,160 @@
+###  Публикация: 971673   (985315) от 03.01.2016
+
+Kaspersky Total Security 2016 16.0.0.614 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kaspersky Total Security (бывший Kaspersky CRYSTAL) обеспечивает защиту "все-в-одном" для вашего компьютера и важной информации с помощью всех необходимых компонентов. Среди основных возможностей решения: комплексный антивирус, веб-защита, персональный фаервол, резервное копирование данных, родительский контроль. Дополнительные инструменты безопасности (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74E73B90632B02C32E84CF833EDDC5C1EA27A81C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971612   (985246) от 03.01.2016
+
+OMSI2: Steam Edition (2013) [En/Ge/Fr] (2.2.032/dlc) SteamRip MOGLi
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985246.jpg" />
+</div>
+
+
+###  Подробнее
+
+OMSI 2 является очень реалистичным симулятором автобусов для домашних ПК. Он переносит игрока в Западный Берлин, чтобы прокатиться по району Шпандау. Возьмите на себя роль водителя автобуса по улицам Берлина. В игре присутствует автобус MAN двухэтажный SD200 и SD202 разных годов выпуска и впервые сочлененный MAN NG272.Тип издания: SteamRipРазработчик: MR-Software GbRЖанр: Simulator, 3DЯзык озвучки: НемецкийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A63580D2FBB7DA33E5E7E227CCBE5BF5BE9D957E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 737888   (985241) от 03.01.2016
+
+Bleach / Блич [2004, TV, 342 из 366] DVDRip Raw
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой аниме Блич пятнадцатилетний парень Куросаки Ичиго, который с самого детства может видеть и общаться с духами и призраками. Вот живет он себе не тужит, с призраками дружит, и сваливается ему на голову симпатичная девочка, которая на поверку оказывается богиней смерти Кучики Рукия, охотящаяся за злым духом,пожирающим души людей. Такие злые духи называются (   Читать дальше...   )Жанр: приключения, комедия, фэнтези, сёнэнРежиссер: Абэ НориюкиПродолжительность: 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77B76D9C27954B88496585FA786B8DE15DADE3C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971691   (985236) от 03.01.2016
+
+Spectrasonics Omnisphere 2 2.0.3d [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Синтезатор Omnisphere - плод нескольких лет разработок компании Spectrasonics является совершенно новым брендом виртуальных инструментов. Этот эпический синтезатор основан на абсолютно новых звуковых технологиях, комбинируя большое разнообразие гибридных методов синтеза в реальном времени, эпическую библиотеку психоакустических звуков, и множество инновационных функций, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1997BAEB034802307F3BBBBE7F50F78787AE6F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971652   (985235) от 03.01.2016
+
+Рэкетир 2 (2015) WEBRip
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Судьба дарит главному герою второй шанс. Все считали его погибшим. С момента гибели Руслана прошло уже десять лет. Саян — преданный помощник Руслана — принял решение отойти от дел и начать жизнь с чистого листа. Когда к нему в дом пришел младший брат погибшего начальника Була, Саян насторожился. И не зря. Була хотел мести, но Саян не готов возвращаться к прошлому. (   Читать дальше...   )Производство: Казахстан, SataifilmЖанр: Боевик, Драма, КриминалРежиссер: Акан СатаевАктеры: Аружан Джазильбекова, Асель Сагатова, Аян Утепберген, Фархад Абдраимов, Саят Исембаев, Жан Байжанбаев, Азамат Сатыбалды, Дастен ШакировПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:51:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B10A403EEE4D66B84A32839BE063706DFD481BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970668   (985234) от 03.01.2016
+
+C Новым Годом, Клуб! 2016!
+
+>>3
+>>28
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Друзья!
+Ну вот мы и провели старый, 2015-й год, что было хорошего в нем? Хорошее - это уже то, что мы вместе, хорошее - это то, что мы уже десятый год делимся интересной информацией друг с другом, хорошее - это то, что скорости и объемы растут, мы становимся умнее и грамотнее и никто в мире не в силах этого побороть!Что принесет нам 2016 год? Можно с уверенностью (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971595   (985233) от 03.01.2016
 
 JetBrains ReSharper Ultimate 10.0.2 [En]
@@ -6,7 +163,7 @@ JetBrains ReSharper Ultimate 10.0.2 [En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985233.jpg" />
 </div>
 
 
@@ -34,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985230.jpg" />
 </div>
 
 
@@ -60,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985229.jpg" />
 </div>
 
 
@@ -86,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985228.jpg" />
 </div>
 
 
@@ -112,7 +269,7 @@ Dragon Age: Inquisition / Dragon Age: Инквизиция (2014) [Ru/Multi] (1.
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985227.jpg" />
 </div>
 
 
@@ -138,7 +295,7 @@ Kaspersky Free Antivirus 16.0.1.445 Final [Ru]
 >>10
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985226.jpg" />
 </div>
 
 
@@ -164,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985225.jpg" />
 </div>
 
 
@@ -190,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>11
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985224.jpg" />
 </div>
 
 
@@ -216,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985223.jpg" />
 </div>
 
 
@@ -242,7 +399,7 @@ SamDrivers 12.30 от 08.01.2010 [Eng, Rus]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985081.jpg" />
 </div>
 
 
@@ -268,7 +425,7 @@ Kaspersky Internet Security 2013 13.0.1.4190 Final (e) [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985033.jpg" />
 </div>
 
 
@@ -296,7 +453,7 @@ Ravkov WPI 1.2 [Русский/Английский]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985031.jpg" />
 </div>
 
 
@@ -322,7 +479,7 @@ The Amazing Spider-Man [Ru] (Steam-Rip/1.0.1/4 DLC) 2012 | R.G. GameWorks
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985028.jpg" />
 </div>
 
 
@@ -349,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985014.jpg" />
 </div>
 
 
@@ -375,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984485.jpg" />
 </div>
 
 
@@ -401,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984396.jpg" />
 </div>
 
 
@@ -427,7 +584,7 @@ GoodbyeDPI.0.1.6. Launcher-3.3 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984300.jpg" />
 </div>
 
 
@@ -456,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>11
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984299.jpg" />
 </div>
 
 
@@ -483,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984297.jpg" />
 </div>
 
 
@@ -511,7 +668,7 @@ Commandos 2 - HD Remaster (2020) [Ru/Multi] (1.01) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984296.jpg" />
 </div>
 
 
@@ -522,166 +679,6 @@ Commandos 2 - HD Remaster (2020) [Ru/Multi] (1.01) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C18F8B3792083AEBFE2D4F9D17FF00ADEE71F485
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350546   (984295) от 25.01.2020
-
-Приключения Харли Блин
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приглашаем Вас принять участие в игре
-«ПРИКЛЮЧЕНИЯ ХАРЛИ БЛИН»
-Супермен и Бэтмен, держат весь мир в железных рукавицах. Они остановили все войны и повернули историю вспять, в совершенно иное, «правильное» русло, в нём нет войн, коррупции и бандитизма, никто не занимается честным разбоем. Существует легенда, что однажды, придет Мессия, Харли Квинн (позывной ─ (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355211   (984293) от 25.01.2020
-
-[Игра] Досчитаем до миллиона картинками! v.49
-
->>3
->>98
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984293.jpg" />
-</div>
-
-
-###  Подробнее
-
-Смысл: участник размещает одну картинку, содержащую число, которое на 1 больше предыдущего.  Требования:
-1) в одном сообщении одна картинка;  2) избегать повторов; иначе вступает в силу п.4)
-3) чёткие и достаточного размера цифры на изображении для однозначного толкования;(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182535   (984292) от 25.01.2020
-
-Дракоша Тоша (2017-2019) WEB-DLRip [H.264/720p-LQ] (сезон 1-2, серии 1-52 из 52) [Обновляемая]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984292.jpg" />
-</div>
-
-
-###  Подробнее
-
-В обычной семье панд живет необычный друг – живая игрушка дракончик по имени Тоша. Родители-панды о нем не догадываются, а дети-медвежата не могут без него прожить и дня, потому что Дракоша Тоша и его помощник баночка с волшебными мыльными пузырями Тойройчик могут любой скучный день превратить в фантастические приключение, а заодно дать ответы на все вопросы маленьких (   Читать дальше...   )Производство: Россия / Студия компьютерной анимации "Петербург"Жанр: Развивающий анимационный сериал для малышейРежиссер: Марина МошковаАктеры: Андрей Левин, Юлия РудинаПерсонажи: Дракоша Тоша, Няша, Яша, ТойройчикПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: ~ 00:05:30 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14608BA9E5B112AFC9153AF9907D4837177F8A3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 741152   (984250) от 02.01.2014
-
-Call of Duty: Ghosts (2013) [Ru/Multi] (1.0 Upd6) SteamRip @nonymous
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Call of Duty: Ghosts – новая часть в серии Call of Duty. Название игры ассоциирует её с главными героями — элитным подразделением призраков, в котором когда то служил Гоуст, или лейтенант Саймон Райли, культовый персонаж серии, предательски убитый Шепардом во второй части франшизы. Мир игры приближен к постапокалипсису, что является новинкой в серии. По сюжету, из-за (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Infinity Ward / Raven Software / Neversoft EntertainmentЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский, Английский, Французский, Немецкий, Итальянский, ИспанскийЯзык субтитров: Русский, Английский, Французский, Немецкий, Итальянский, ИспанскийЯзык интерфейса: Русский, Английский, Французский, Немецкий, Итальянский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4F401FDF1AF128FC2DF9BDA974A4E308804ACEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 740616   (984247) от 02.01.2014
-
-Навител Navitel 8.5.0.974 - автонавигация для автонавигаторов и автомагнитол (30.12.2013) <Ru/Multi>
-
->>3
->>13
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Навигационная программа Навител отображает текущее местоположение пользователя на карте и способна с помощью отображения маневра на экране навигатора и голосом подсказать водителю, когда и куда необходимо повернуть на автоматически проложенном маршруте для скорейшего прибытия в необходимое место. Также Навител может предсказать время прибытия в точку назначения, (   Читать дальше...   )Разработчик: http://www.navitel.ru/Язык интерфейса: Multilanguage/Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B5CD36B21F2E8C67B0A0E9C6EC8DDF1F5B7C4E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971851   (984141) от 04.01.2016
-
-Ракета SpaceX Falcon 9, совершившая успешную посадку, готова к повторному запуску
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984141.jpg" />
-</div>
-
-
-###  Подробнее
-
-Элон Маск, основатель и руководитель аэрокосмической компании SpaceX, сообщил, что первая ступень ракеты-носителя, которая использовалась для запуска нескольких спутников на околоземную орбиту и которая совершила первую успешную мягкую посадку на поверхность Земли, находится в хорошем состоянии и "готова к повторному запуску". Элон Маск опубликовал снимок (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

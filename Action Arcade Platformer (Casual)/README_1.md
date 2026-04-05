@@ -1,3 +1,55 @@
+###  Публикация: 1451036   (1028610) от 28.02.2021
+
+FEIST (2015) [Ru/Multi] (1.4.0) Repack Other s
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отчаянный, жестокий опыт выживания, полный потрясающих визуальных эффектов, динамичных существ и захватывающего саундтрека. Следуйте за странными зверями через одинокие леса, опасные горы, темные пещеры и светящиеся болота. Остерегайтесь опасных существ, которые реагируют на ваши движения и решения, и искусно спрятанные ловушки, которые испытают вашу способность (   Читать дальше...   )Тип издания: RepackРазработчик: Bits & BeastsЖанр: Adventure, Arcade, 2DЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDF8B159E547DCBB3F30C3682BECA836A03DBD1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457939   (1024113) от 27.03.2021
+
+Kaze and the Wild Masks (2021) [Ru/Multi] (2.0.2) Repack SpaceX
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kaze and the Wild Masks – это весёлый платформер в стиле игр девяностых. Примерьте на себя роль Kaze и спасите Хого от проклятья, которое сеет хаос на всех островах. Сражайтесь со злобными ходячими овощами, пробудив силу Wild Masks. Прыгайте, как свирепый тигр, парите в небе, как орел, бегайте быстро, как ящерица, и устрашайте всех под водой, как акула.Тип издания: RepackРазработчик: PixelHiveЖанр: Экшены, Приключенческие игры, Казуальные игры, ИндиЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F52D3B6B1CFC2174D02944D7887AFB1B40C62B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1458867   (1023540) от 30.03.2021
 
 Crash Bandicoot 4: It’s About Time (2021) [Ru/Multi] (1.0) License CODEX
@@ -6,7 +58,7 @@ Crash Bandicoot 4: It’s About Time (2021) [Ru/Multi] (1.0) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023540.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Crash Bandicoot 4: It’s About Time (2021) [Ru/Multi] (1.0) Repack SpaceX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022861.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Crash Bandicoot 4: It’s About Time (2021) [Ru/Multi] (1.0.03202023) Repack Oth
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022320.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Terraria (2011) [Ru/Multi] (1.4.2.1) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021976.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Supraland (2019) [Ru/Multi] (1.21.17/dlc) Repack Other s [Complete Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021232.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Narita Boy (2021) [Ru/Multi] (1.0.1.61) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013787.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Jump King (2019) [En] (g1.06) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013772.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013283.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Sockventure (2021) [Multi] (1.0.0a) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012839.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Hollow Knight (2017) [Ru/Multi] (1.5.68.11808/dlc) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012035.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ World of One (2017) [Ru/Multi] (1.5.0 B22) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010381.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Ender Lilies: Quietus of the Knights (2021) [Ru/Multi] (1.0) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009606.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Vesper (2021) [Multi] (1.0.i0b) License PLAZA
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004830.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Phoenotopia: Awakening (2021) [Ru/Multi] (1.2.9) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004826.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Symphonia (2021) [Multi] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004294.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Vesper (2021) [Multi] (1.0.i0b) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004251.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Grime (2021) [Ru/Multi] (1.0.0) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004039.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Iron Marines (2019) [Ru/Multi] (1.0.6) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003706.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Closure [En] (Repack) 2012 | R.G. Origami
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000332.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Ricochet Infinity (2007) [Ru/En] (3.0.62) Unofficial
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998476.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Closure [En] (RePack) 2012 | R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997358.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Primal Fears [En/Ru/Multi4] (L) 2013 | TiNYiSO
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996573.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ Symphony [Ru/En] (Steam-Rip/1.3) 2012 | R.G. GameWorks
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991613.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ Unruly Heroes (2019) [Ru/Multi] (1.0/upd5) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986728.jpg" />
 </div>
 
 
@@ -619,58 +671,6 @@ Unruly Heroes (2019) [Ru/Multi] (1.0/upd5) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6704B24FC0265203DC508B7EC7025173D57204D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978919   (961871) от 24.01.2016
-
-The Bug Butcher (2016) [En] (1.0) License PLAZA
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961871.jpg" />
-</div>
-
-
-###  Подробнее
-
-The bug butcher - 2D сайд скроллер, плотно упакованный экшеном, в котором надо расстреливать врагов лезущих с верху. В двух словах: борьба против жуков с пулеметом в руках. За основу взята механика из старого аркадного шутера “Super Pang”, но с современными наворотами и супер графикой. В The bug butcher вы играете за Гарри - дерзкого и крутого истребителя насекомых.Тип издания: LicenseРазработчик: Awfully Nice StudiosЖанр: Arcade (Platform), 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:880BBDB6860A9779B6B58D29ED4FD2BDED4772B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036864   (960277) от 15.02.2020
-
-Zombie Night Terror (2016) [Ru/Multi] (1.4.4) License GOG [Special Edition] (обновляемая)
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в веселую, напряженную и чертовски увлекательную игру Zombie Night Terror! Возьмите под полный контроль орду безмозглых, но очень настойчивых зомби и ведите их в поход за вкус-с-сными человеческими мозгами. Живые ставят ловушки, заваливают проходы и лупят ваших зомби всем, что под руку попадется. Но одного укуса будет достаточно, чтобы человек присоединился (   Читать дальше...   )Тип издания: LicenseРазработчик: NoClipЖанр: Аркада, Казуальная, ЛогическаяЯзык озвучки: СимплишЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2EBBF93607255BA6A353D4D4B45181B3D7310FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

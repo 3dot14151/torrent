@@ -1,3 +1,57 @@
+###  Публикация: 969806   (145362) от 28.12.2015
+
+Как поссорился Иван Иванович с Иваном Никифоровичем (1959) DVDRip [H.264] [Реставрация КП]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145362.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как поссорились Иван Иванович с Иваном Никифоровичем? Зашел Иван Иванович к своему закадычному другу Ивану Никифоровичу, желая выпросить понравившееся ружье. Да не сложилось. И в пылу спора Иван Никифорович возьми да и назови Ивана Ивановича гусаком. А тот возьми да и разгневайся. А что было дальше... Ой, что было!..
+По одноименной повести Н.В.Гоголя.Производство: СССР, Одесская киностудияЖанр: Комедия, экранизацияРежиссер: Владимир КарасёвАктеры: Николай Волков (старший), Григорий Лаврик, Иван Маркевич, Георгий Светлани, Глеб Глебов, Н. Смирнов, Валентина Кравченко, Софья Карамаш, Бронислава Михалевич...Продолжительность: 01:05:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7230DB64847FC8B8C693C0EB9A8EE8FC6742BA75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 154225   (145049) от 27.12.2020
+
+Еврейское счастье (Новая версия) (1925) TVRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145049.jpg" />
+</div>
+
+
+###  Подробнее
+
+По повести Шолом Алейхема "Менахем-Мендл".
+Менахем Мендель пытается заработать деньги на уличной галантерейной торговле, затем на организации страховой конторы, но его проекты оканчиваются неудачей. Случайно найдя список богатых невест, потерянный сватом, Менахем решает заняться сватовством...Производство: СССРЖанр: Мелодрама, комедия, немое киноРежиссер: Алексей ГрановскийАктеры: Соломон Михоэлс, И.Рогалер, А.Эпштейн, Т.Адельгейм, М.Гольдблат и др.Язык озвучки: НемойСубтитры: Русские интертитрыПродолжительность: 01:38:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F622CE747133830C6A9792641D493BC29A751209
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1520348   (143463) от 27.12.2021
 
 Софья Ковалевская (1956) SATRip  [H.264]
@@ -6,7 +60,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143463.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143391.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143103.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141258.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140822.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140406.jpg" />
 </div>
 
 
@@ -167,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139949.jpg" />
 </div>
 
 
@@ -193,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139518.jpg" />
 </div>
 
 
@@ -219,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139386.jpg" />
 </div>
 
 
@@ -246,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138727.jpg" />
 </div>
 
 
@@ -272,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138386.jpg" />
 </div>
 
 
@@ -298,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138259.jpg" />
 </div>
 
 
@@ -324,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137491.jpg" />
 </div>
 
 
@@ -352,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137408.jpg" />
 </div>
 
 
@@ -378,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137370.jpg" />
 </div>
 
 
@@ -404,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136726.jpg" />
 </div>
 
 
@@ -430,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135749.jpg" />
 </div>
 
 
@@ -456,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135131.jpg" />
 </div>
 
 
@@ -483,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134201.jpg" />
 </div>
 
 
@@ -509,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133009.jpg" />
 </div>
 
 
@@ -535,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132903.jpg" />
 </div>
 
 
@@ -561,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132902.jpg" />
 </div>
 
 
@@ -587,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130884.jpg" />
 </div>
 
 
@@ -613,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128794.jpg" />
 </div>
 
 
@@ -624,58 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84D54572C6FFC749F99A41BD5AF12B745BE4F986
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548328   (128658) от 13.10.2025
-
-Гиперболоид инженера Гарина (1965) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128658.jpg" />
-</div>
-
-
-###  Подробнее
-
-Талантливый изобретатель, создавший аппарат невиданной разрушительной силы, одержим идеей мирового господства. В своем маниакальном стремлении он совершает одно преступление за другим, не предполагая, сколь ужасными окажутся последствия для него самого...Производство: СССР / Киностудия им. М. ГорькогоЖанр: ФантастикаРежиссер: Александр ГинцбургАктеры: Евгений Евстигнеев, Всеволод Сафонов, Михаил Астангов, Наталья Климова, Владимир Дружников, Михаил Кузнецов, Юрий Саранцев, Николай Бубнов, Виктор Чекмарев, Павел ШпрингфельдСубтитры: Русские (отдельно)Продолжительность: 01:31:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F65263350B8611F7B2AAB6695FF9D8A1C7AD7F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684908   (127465) от 17.12.2023
-
-Десять негритят (1987) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Десять человек приглашены на Негритянский остров под разными предлогами. Оказавшись в замке, каждый слышит записанный на пластинку смертный приговор. На столе - черные фигурки негритят, в каждой спальне - стишок на стене. «Десять негритят решили пообедать, один из них вдруг поперхнулся, и их осталось девять». Умирает человек - исчезает фигурка негритенка...Производство: СССР / Одесская киностудияЖанр: криминал, детектив, триллерРежиссер: Станислав ГоворухинАктеры: Владимир Зельдин, Татьяна Друбич, Александр Кайдановский, Алексей Жарков, Анатолий Ромашин, Людмила Максакова, Михаил Глузский, Алексей Золотницкий, Ирина Терещенко, Александр АбдуловСубтитры: ОтсутствуютПродолжительность: 02:08:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36FB870B543786448A46C0C8AF32AB78C43F633F
 ```
 
 https://mybot314.ru/tekegram_catalog/

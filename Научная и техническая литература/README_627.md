@@ -1,133 +1,3 @@
-###  Публикация: 1759828   (37695) от 10.11.2024
-
-П.И. Горбунов | Обучение разведчика - наблюдателя (1946) [PDF, DJVU]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37695.jpg" />
-</div>
-
-
-###  Подробнее
-
-Теоретическая подготовка разведчиков, Тренировка разведчиков в развитии наблюдательности и запоминания, Проведение занятий, Отдельные справочные данные и использование их в занятиях. Разведывательная подготовка войск по праву считается сложной, наиболее трудной. И каждый командир части и подразделения, практически руководивший боем во время Отечественной войны, стремится (   Читать дальше...   )Жанр: учебное пособиеИздательство: Военное издательствоФормат: PDF, DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DE4492D35E0ED91035142BE81098D90736DC86D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759788   (37671) от 10.11.2024
-
-Г.В. Анцев и др. (ред.) | Оптикоэлектронные системы самонаведения высокоточного оружия. Введение в теорию (2017) [PDF, DJVU]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37671.jpg" />
-</div>
-
-
-###  Подробнее
-
-На примере оптикоэлектронных систем самонаведения высокоточного оружия впервые показана возможность создания теории для радиоэлектронных информационных систем, функционирующих с координатными и некоординатными характеристиками объектов внешней среды. Основное внимание уделено особенностям и теоретическим основам построения оптикоэлектронных систем самонаведения, (   Читать дальше...   )Жанр: монографияИздательство: РадиотехникаФормат: PDF, DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B576312BC302C712FEB7AAB4008793F81469FCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760012   (37619) от 11.11.2024
-
-Ю.А. Астахов | 50 великих художников мира (2015) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37619.jpg" />
-</div>
-
-
-###  Подробнее
-
-Путь в славное сообщество любителей изобразительного искусства в большинстве случаев индивидуален. Он становится намного короче, если пролегает через знакомство с работами больших мастеров. В настоящем издании представлены краткие жизнеописания и репродукции тщательно отобранных работ пятидесяти величайших из великих в истории человечества художников со времен Средневековья (   Читать дальше...   )Жанр: живопись, знаменитые художники,  история искусстваИздательство: «Белый город»Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F81CE60B009F72A5B67581DA075A276D714D2777
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759979   (37587) от 11.11.2024
-
-С. Гураль | Самые известные драгоценные камни. Путеводитель-определитель (2011) [DJVU]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга — незаменимый навигатор в мире драгоценных камней. С ее помощью вы откроете для себя кладезь мудрости — практической, эстетической и эзотерической. Представленные во всем своем сверкающем великолепии, драгоценности раскроют вам свои тайны. Любуясь этим чудом природы, вы одновременно научитесь разбираться в достоинствах камней и безошибочно оценивать их (   Читать дальше...   )Жанр: геммология, драгоценные минералыИздательство: ЭксмоФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95D96DF8B9FF3D3DEC45A0C6A691084BCBF1C0BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760183   (37492) от 12.11.2024
-
-А.Т. Власенков, В.А. Солдатенков | Основные измерения в практике радиолюбителя (1971) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37492.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге кратко рассказывается о принципе работы радиоприемника, основных его качественных показателях и факторах, от которых они зависят. Основное внимание уделено описанию методики измерений параметров радиодеталей, электронных ламп, полупроводниковых приборов, методике наладки и настройки всех цепей радиоприемника и измерения основных его параметров при помощи (   Читать дальше...   )Жанр: ЭлектроникаИздательство: ДОСААФФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0ACDA4C45A9769EA8510DF1C449B43209A0D18F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1760188   (37468) от 12.11.2024
 
 Ю.Е. Яровой | Цветные глаза Земли (1984) [DJVU]
@@ -136,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37468.jpg" />
 </div>
 
 
@@ -162,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37412.jpg" />
 </div>
 
 
@@ -188,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37127.jpg" />
 </div>
 
 
@@ -216,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37118.jpg" />
 </div>
 
 
@@ -242,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37074.jpg" />
 </div>
 
 
@@ -270,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36963.jpg" />
 </div>
 
 
@@ -299,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36954.jpg" />
 </div>
 
 
@@ -325,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36948.jpg" />
 </div>
 
 
@@ -351,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36897.jpg" />
 </div>
 
 
@@ -378,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36819.jpg" />
 </div>
 
 
@@ -406,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36799.jpg" />
 </div>
 
 
@@ -434,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36798.jpg" />
 </div>
 
 
@@ -460,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36797.jpg" />
 </div>
 
 
@@ -487,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36769.jpg" />
 </div>
 
 
@@ -515,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36684.jpg" />
 </div>
 
 
@@ -542,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36652.jpg" />
 </div>
 
 
@@ -569,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36609.jpg" />
 </div>
 
 
@@ -595,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36608.jpg" />
 </div>
 
 
@@ -621,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36495.jpg" />
 </div>
 
 
@@ -647,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36492.jpg" />
 </div>
 
 
@@ -674,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36380.jpg" />
 </div>
 
 
@@ -685,6 +555,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0067D7437404BF6251683A9C80CCEF9AC7A56887
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582528   (36371) от 23.11.2024
+
+С.Л. Соболев | Уравнения математической физики (1947) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга составлена в результате переработки курса лекций, читанного автором в Московском государственном университете имени М.В. Ломоносова. Поэтому автор сохранил за отдельными лекциями их название. Этим объясняется и подбор материала, который был ограничен в объёме количеством лекционных часов.Жанр: МатематикаИздательство: Государственное издательство технико-теоретической литературыФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:501F5502557E9645C344815CCDCD3EA0ADAFBE34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762224   (36247) от 24.11.2024
+
+Константин Коровин | Воспоминания (2022) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Константин Алексеевич Коровин (1861-1939) - знаменитый «русский импрессионист», театральный художник, талантливый писатель и мемуарист. Книга его воспоминаний охватывает детство, дореволюционную жизнь в России, портреты наставников и друзей, знаменитые мемуары о Шаляпине, путевые заметки и избранные рассказы.
+Его любили, кажется, все! Художники, артисты, театральные (   Читать дальше...   )Жанр: мемуарыИздательство: «Захаров»Формат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3B5B23D5D7DF3CB01B5E9FA2928A0847220CB63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762426   (36175) от 25.11.2024
+
+В.А. Нарсеев | Промышленная геология золота (1996) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36175.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассмотрены различные проблемы геологии золота и его практического применения. Работа включает исторический очерк золотодобычи в мире и в России - в частности, сведения о торговле и потреблении этого металла. Основная часть книги посвящена геологии золоторудных месторождений Мира, особое внимание уделено зональности, которая является основой дня научного (   Читать дальше...   )Жанр: геология, полезные ископаемые, золотоИздательство: Научный мирФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:672FE5DCD6BD5FB99C4509E63038FC52E2CA0C74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762552   (36080) от 26.11.2024
+
+Ж.Г. Вегера, В.В. Слепцов | Основы теории автоматического управления для инженеров (2025) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36080.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изложены материалы по анализу и синтезу управляющих систем с традиционными, нечеткими и нейросетевыми регуляторами. Особое внимание уделено выводу основных формул. Все разделы содержат примеры решения конкретных практических задач. Тенденции развития современного технологического оборудования (станков, промышленных роботов, лазерных технологических установок и пр.), (   Читать дальше...   )Жанр: учебное пособиеИздательство: Инфра-ИнженерияФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9F7416E673E158B15A3A7261BC2D148B1029171
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762666   (36064) от 26.11.2024
+
+Е.И. Бабаджан и др. | Сборник качественных вопросов и задач по общей физике (1990) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36064.jpg" />
+</div>
+
+
+###  Подробнее
+
+Содержит более 1500 качественных вопросов и задач по всем разделам курса общей физики. Подбор материала ориентирован на трехтомный «Курс общей физики» И. В. Савельева (1986—1988 гг.). Структура сборника и качественный характер вопросов и задач, решение которых не осложнено громоздкими математическими выкладками, позволяет сосредоточиться на главном: формировании (   Читать дальше...   )Жанр: ФизикаИздательство: НаукаФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDDF787F688DB842A478E225C02FE8CFB82E5411
 ```
 
 https://mybot314.ru/tekegram_catalog/

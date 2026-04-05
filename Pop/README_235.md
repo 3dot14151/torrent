@@ -1,177 +1,3 @@
-###  Публикация: 1580372   (330803) от 01.10.2022
-
-VA - Keep It Disco Vol. 01 (2022) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funky, Soulful, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. J.B. Boogie - Never Forget (Original Mix)
-02. Hotmood - Disco Simbora (Original Mix)
-03. Tatsuki - The Weekend Vibes (Original Mix)
-04. Alexny - When I Heard That (Original Mix)(   Читать дальше...   )Жанр: Nu Disco, Funky, Soulful, DiscoПродолжительность: 02:15:26 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F200323114F8AA81784FAD2ED7373E6647100755
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580378   (330801) от 01.10.2022
-
-VA - Keep It Disco Vol. 04 (2022) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funky, Soulful, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Garas - Whatcha Gonna Do (Original Mix)
-02. Noil Rago - Disco Think (Original Mix)
-03. Alexny - Dear Miss (Original Mix)
-04. Corrado Alunni - This Is Disco (Original Mix)(   Читать дальше...   )Жанр: Nu Disco, Funky, Soulful, DiscoПродолжительность: 02:27:24 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1A9EBF5816BFF0C2822CB3A42F124AA431FF092
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580458   (330726) от 01.10.2022
-
-Richard Marx - Songwriter (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Same Heartbreak Different Day
-02. Only A Memory
-03. Anything
-04. Moscow Calling(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 01:10:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29E25C2EFF2C713CFF5AFA5F9EDEFE0AB7230AD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580525   (330714) от 01.10.2022
-
-Leo Rojas - Colours of Nature (2022) [FLAC|Lossless|image + .cue] <Instrumental Pop, Easy Listening>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330714.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лео Рохаса называют "поп-звездой панфлейты". Colors of Nature - уже шестой альбом Рохаса. Он был выпущен 6 мая 2022 года. Juan Leonardo Santilla Rojas родился 18 октября 1984 года в небольшом городке Otavalo, Ecuador. Он эмигрировал в Испанию в 2000 году, а сейчас живет в Берлине вместе со своей женой-полькой. Leo Rojas стал одним из самых узнаваемых лиц (   Читать дальше...   )01. Blinding Lights (3:29)
-02. Bad Habits (3:52)
-03. Wellerman (2:03)
-04. Cold Heart (3:24)(   Читать дальше...   )Жанр: Instrumental Pop, Easy ListeningПродолжительность: 00:50:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:555A3144DF2EEB55F97FCC41BACFA763C10B65C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580517   (330617) от 01.10.2022
-
-Boney M. - The Magic Of Boney M. (2022) Special Remix Edition [MP3|320 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Daddy Cool (00:03:28)
-02 - Sunny (00:03:58)
-03 - Rivers Of Babylon (00:04:17)
-04 - El Lute (00:04:00)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:21:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59767BF69946B10772363BB2EA449F366BAAD9E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580508   (330609) от 01.10.2022
-
-Boney M. - The Magic Of Boney M. (2022) Special Remix Edition [FLAC|Lossless|tracks + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Daddy Cool (00:03:28)
-02 - Sunny (00:03:58)
-03 - Rivers Of Babylon (00:04:17)
-04 - El Lute (00:04:00)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:21:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:185EE91DE06C35666C98888E8C80358EA09B27A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 259604   (330517) от 20.11.2010
 
 Tom Jones - Дискография [1964-2010] [MP3|192-320] <Pop/Rock>
@@ -180,7 +6,7 @@ Tom Jones - Дискография [1964-2010] [MP3|192-320] <Pop/Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_330517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_330517.jpg" />
 </div>
 
 
@@ -206,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330200.jpg" />
 </div>
 
 
@@ -235,7 +61,7 @@ Simply Red - Big Love: Greatest Hits Edition (30th Anniversary) (2015) [FLAC|tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330175.jpg" />
 </div>
 
 
@@ -264,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330141.jpg" />
 </div>
 
 
@@ -293,7 +119,7 @@ Justin Bieber - Purpose (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330099.jpg" />
 </div>
 
 
@@ -322,7 +148,7 @@ Didier Marouani & Paris • France • Transit - Concerts En URSS (1983) Reissue
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329814.jpg" />
 </div>
 
 
@@ -351,7 +177,7 @@ Natasha St-Pier - Jeanne (2022) [FLAC|44.1/24|Lossless|WEB-DL|tracks] <Pop, Fren
 >>Pop (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329767.jpg" />
 </div>
 
 
@@ -380,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329691.jpg" />
 </div>
 
 
@@ -409,7 +235,7 @@ Latin Lover - Casanova Action (2007 (1985-87)) [FLAC|Lossless]<Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_328843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_328843.jpg" />
 </div>
 
 
@@ -444,7 +270,7 @@ Anne Harris - Come Hither (2015) [MP3|320 кб/с]<Alternative Pop, Contemporary
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328416.jpg" />
 </div>
 
 
@@ -473,7 +299,7 @@ One Direction - Made In The A.M. (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328359.jpg" />
 </div>
 
 
@@ -502,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328179.jpg" />
 </div>
 
 
@@ -531,7 +357,7 @@ Robbie Williams - Intensive Care (2005) [OGG Vorbis|484 Kbps] <Electronic, Pop R
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328065.jpg" />
 </div>
 
 
@@ -560,7 +386,7 @@ Robbie Williams - Heavy Entertainment Show (2016) [OGG Vorbis|484 Kbps] <Rock, P
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328064.jpg" />
 </div>
 
 
@@ -589,7 +415,7 @@ Milou - Change Your Mind (1990) [OGG Vorbis|485 Kbps] <Electronic, Synth-pop, Eu
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328062.jpg" />
 </div>
 
 
@@ -617,7 +443,7 @@ Performance - Hi-Fi Performance (1976) LP [MP3|320 Kbps] <Disco, Instrumental, E
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328056.jpg" />
 </div>
 
 
@@ -646,7 +472,7 @@ Robbie Williams - The Christmas Present (2019) (2CD) [OGG Vorbis|484 Kbps] <Jazz
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328053.jpg" />
 </div>
 
 
@@ -675,7 +501,7 @@ Madonna - Finally Enough Love: 50 Number Ones (2022) 3CD [FLAC|Lossless|tracks +
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327944.jpg" />
 </div>
 
 
@@ -704,7 +530,7 @@ VA - Best Radio Tracks, Vol. 23 (2022) [MP3|320 Kbps] <Dance, Pop, Electronic>
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327937.jpg" />
 </div>
 
 
@@ -733,7 +559,7 @@ Phildel - The Glass Ghost (2013) EP [MP3|320 кб/с]<Alternative Pop, Indie Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327651.jpg" />
 </div>
 
 
@@ -747,6 +573,180 @@ Phildel - The Glass Ghost (2013) EP [MP3|320 кб/с]<Alternative Pop, Indie Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CBA7F987C43F9E8562505B780C15674D417847A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957374   (327597) от 17.11.2015
+
+Alison Moyet - Singles (1995) [FLAC|image + .cue]<Pop, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327597.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The First Time Ever I Saw Your Face (03:20)
+ 02. Only You (03:13)
+ 03. Nobody's Diary (04:32)
+ 04. Situation (02:25)(   Читать дальше...   )Жанр: Pop, Synth-popПродолжительность: 01:13:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03C2A6A93F9B39751B5EAEFAC0EFC39DB9ACED45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957276   (327501) от 17.11.2015
+
+VA - Now That's What I Call Music! 92 (2015) [MP3|320 кб/с]<Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327501.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Sam Smith - Writings On The Wall
+02. Justin Bieber - What Do You Mean?
+03. The Weeknd - I Can\'t Feel My Face(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:50:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A5DCEC583880E642A1D0FA3E516706872C0D41D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957420   (327442) от 17.11.2015
+
+One Direction - Made In The A.M. (2015) Deluxe Edition [FLAC|Lossless|image + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey Angel
+02. Drag Me Down
+03. Perfect
+04. Infinity(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2E2B8AADF5AB2BF1C64F9290A6BD5AB52376A48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957304   (327428) от 17.11.2015
+
+VA - Радуга (1 пластинка) (1980) [MP3|320 кб/с]<Instrumental, Pop, Retro>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Оркестр Макса Грегера - Хелло, Долли (Дж.Герман)
+MAX GREGGER ORCHESTRA - Hello Dolly (Jerry Herman) ©197?
+02. Джо Дассен - Если в мире нет тебя (Паллавичини - Лемеси)
+JOE DASSIN - Et si Tu N’Existais pas (Salvatore Cutugno - Vito Pallavicini - Pasquale Losito - Claude Lemesle) ©1969(   Читать дальше...   )Жанр: Instrumental, Pop, RetroПродолжительность: 00:36:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9881D8F8681A3A2D75AB8DC3C9D58E306418382
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957498   (327322) от 17.11.2015
+
+МакSим - Хорошо (2015) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Любовь алого цвета
+02. Золотыми рыбками
+03. Иди
+04. В лето(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E86090CD7455E4C1C66044212C05199B48DE0A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956989   (327276) от 17.11.2015
+
+VA - BRAVO The Hits 2015 (2015) [FLAC|Lossless|tracks|WEB-DL]<Top 40, Pop, Electronic, R&B, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glasperlenspiel - Geiles Leben (Madizin Single Mix) (3:32)
+02. Louane - Avenir (Radio Edit) (3:03)
+03. Avicii - Broken Arrows (3:52)
+04. Sido feat. Andreas Bourani - Astronaut (3:59)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Rock, Electronic, Hip Hop, R&B, Europop, Indie Pop, Euro House, Electro, Synthpop, Pop Rap, Reggae Fusion, Pop Rock, Indie RockПродолжительность: 02:40:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E2CCEDF1BC1955D276D6088E9339D9EFA77D2F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

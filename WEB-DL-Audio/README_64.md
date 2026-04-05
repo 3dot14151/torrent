@@ -6,7 +6,7 @@ Iamx - Fault Lines² (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <dark electronic
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104944.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Kehlani - While We Wait 2 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Soul, Funk
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104943.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Lord Of The Lost - Weapons Of Mass Seduction (2023) Deluxe Version [FLAC 24/44.1
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104942.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Tanzwut - Achtung Mensch! (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Folk Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104941.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Gordo - Diamante (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <House, Dance-Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104928.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Endrick & the Sandwiches - Straight Up (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104926.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Lamb of God - Ashes of the Wake (2004) 20th Anniversary Edition, 2024, Epic - Le
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104915.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Joji - Nectar (2020) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <R'n'B, Hip-Hop, Neo-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104912.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Violent Homicidal Slasher (VHS) - For a Few Riffs More (2024) [FLAC 24/44.1|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104901.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ T. Graham Brown - From Memphis to Muscle Shoals (2024) [FLAC 24/48|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104829.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Jerry Phillips - For The Universe (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104826.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Peter Ndlala - Beira (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104825.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ TMS Underscores - Cool Like That Jazz! (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104823.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Steve Smith and The Sneakers - Hopeless Troubadour (2024) [FLAC 24/44.1|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104821.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Taj Farrant - Chapter One (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104820.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Tim Armacost feat. Tom Harrell, Gary Smulyan, John Patitucci & Al Foster - Somet
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104819.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Steve Smith and The Sneakers - Hoodoo Man (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104818.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Zaphica - Zaphica (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104817.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Katrina SoulSinger - Category 5 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104816.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Steve Smith and The Sneakers - The Glory Road (2024) [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104815.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Roberta Gambarini & Hank Jones - You Are There (2024) [FLAC 24/96|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104814.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Los Bitchos - Talkie Talkie (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternat
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104812.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Soft Jazz Mood, Jazz Guitar Music Zone, Old School Funk Squad - Highway Jazz: Hi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104809.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Relaxing Piano Man - On the Road Again (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104808.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Shane Allessio - Tripp City (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104804.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Piper and The Hard Times - Revelation (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104803.jpg" />
 </div>
 
 

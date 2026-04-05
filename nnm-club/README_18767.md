@@ -1,25 +1,22 @@
-###  Публикация: 1838804   (261548) от 24.11.2025
+###  Публикация: 1193392   (262005) от 21.12.2017
 
-Sister - The Way We Fall (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2017.12.21 [Ru]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>3
+>>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262005.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Way We Fall (03:24)
-02. Howling Hell (03:57)
-03. Tanz Der Toten (03:06)
-04. Blood Sacrifice (03:44)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:01
+Загрузочный диск на базе Windows 10 и 8 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, антивирусной профилактики и установки ОС Windows.Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:62CA226A2A9368375B186C0B8C202602B83C574B
+magnet:?xt=urn:btih:1AF9D74A9DDCD19EA1AC3AE7147C4AD1DCFF709D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838774   (261547) от 24.11.2025
+###  Публикация: 905577   (262004) от 21.12.2017
 
-Джордж Оруэлл | 1984 (2021) [PDF, FB2, DOC, RTF, EPUB]
+Интерстеллар / Interstellar (2014) BDRip [H.264/1080p] [IMAX Edition]
 
->>Художественная литература
->>Фантастика, Фэнтези
+>>3
+>>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262004.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«1984» последняя книга Джорджа Оруэлла, он опубликовал ее в 1949 году, за год до смерти. Роман-антиутопия прославил автора и остается золотым стандартом жанра. Действие происходит в Лондоне. Пугающе детальное описание общества, основанного на страхе и угнетении, служит фоном для одной из самых ярких человеческих историй в мировой литературе. В СССР книга Оруэлла (   Читать дальше...   )Жанр: Политическая фантастика, социальная фантастикаИздательство: Прогресс; Альпина Паб лишерФормат: PDF, FB2, DOC, RTF, EPUBКачество: Изначально электронное (ebook)
+Когда засуха приводит человечество к продовольственному кризису, коллектив исследователей и учёных отправляется сквозь червоточину (которая предположительно соединяет области пространства-времени через большое расстояние) в путешествие, чтобы превзойти прежние ограничения для космических путешествий человека и переселить человечество на другую планету...Производство: США, Великобритания, Канада / Paramount Pictures, Warner Bros., Legendary PicturesЖанр: фантастика, драма, приключенияРежиссер: Кристофер НоланАктеры: Мэттью МакКонахи, Энн Хэтэуэй, Джессика Честейн, Маккензи Фой, Майкл Кейн, Дэвид Гяси, Уэс Бентли, Кейси Аффлек, Джон Литгоу, Мэтт ДэймонПеревод: профессиональный (полное дублирование), профессиональный (многоголосый закадровый), авторский (одноголосый закадровый), любительскийЯзык субтитров: русский, украинский, английскийПродолжительность: 02:49:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:69FC84EB7A02CF44128771BBFDAD3D1F257234B0
+magnet:?xt=urn:btih:2849F8A6D4D42FD9981D4FAC7EF9D6903AAFAEE1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,25 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838806   (261546) от 24.11.2025
+###  Публикация: 1151399   (262003) от 21.12.2017
 
-Microsoft  Visual C++ Runtimes AIO v0.103.0 x86-x64 Repack by abbodi1406 [Multi/Ru]
+Enmusubi no Youko-chan / Сводники Духов: Лисьи Свахи [2017, TV, 24 ep] WEB-DL 720p Raw+Rus
 
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262003.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Microsoft Visual C++ Redistributable Package – это распространяемые пакеты, которые устанавливают компоненты среды выполнения библиотек Visual C++. Данные компоненты необходимы для выполнения приложений, разработанных с помощью среды программирования Visual Studio. В состав этих компонентов входят: среда выполнения C (CRT), стандартный C++, MFC, C++ AMP и OpenMP. (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
+В этом мире люди и духи не просто сосуществуют, но и могут влюбиться друг в друга. Проблема в том, что жизнь людей коротка, по сравнению с духами, и последним часто приходится терять своих любимых. Но есть выход: человек может переродиться, потеряв при этом все воспоминания о прошлой жизни. И даже это поправимо. Находить духам их возлюбленных и возвращать потерянную (   Читать дальше...   )Жанр: драма, фэнтези, романтикаРежиссер: Син Ги ЧеолЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 24 эпизода по 25 минут
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1A15BBEDF612CAC8B9BE562302080BB7EEC30530
+magnet:?xt=urn:btih:29F1E08B18093A587B5D6DCB48453FFBC2A9B233
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,25 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838800   (261545) от 24.11.2025
+###  Публикация: 1193243   (262002) от 21.12.2017
 
-Clone Drone in the Danger Zone (2021) [Ru/Multi] (1.6.1.6) Repack Necros
+Оно / It (2017) BDRip [H.264/1080p]
 
->>Win Игры
->>Arcade
+>>3
+>>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262002.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В Clone Drone in the Danger Zone вас ждут сражения на мечах, которыми можно отрубить любую часть тела. Ваш разум был загружен в робота-гладиатора. Чтобы выжить — проходите коварные испытания на арене. Стоит учитывать, что каждый противник наделен индивидуальными характеристиками и навыками, поэтому победить будет не просто. Каждый удар находится под пристальным вниманием (   Читать дальше...   )Тип издания: RepackРазработчик: Doborog GamesЖанр: Экшены, ИндиЯзык озвучки: Английский, Французский, Немецкий, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+В маленьком городке Дерри, штат Мэн, уже много веков орудует воплощение липкого ужаса под видом клоуна из бродячего шапито. Его жертвами становятся преимущественно подростки с неокрепшей психикой, которых он предварительно запугивает до аморфного состояния, чтобы затем устроить детишкам кровавую вакханалию в марсианском аду. Местные власти ничего не предпринимают, (   Читать дальше...   )Производство: США, New Line Cinema, KatzSmith Productions, Lin Pictures, RatPac-Dune Entertainment, Vertigo EntertainmentЖанр: Ужасы, Триллер, ДрамаРежиссер: Андрес МускеттиАктеры: Джейден Либерер, Джереми Рэй Тейлор, София Лиллис, Финн Вулфард, Чоузен Джейкобс, Джек Грейзер, Уайатт Олефф, Билл Скарсгард, Николас Хэмилтон, Джейк Сим, Логан Томпсон, Оуэн Тиг, Джексон Роберт Скотт, Стивен Богерт, Стюарт ХьюзПеревод: Дублированный (iTunes) +  Любительский многоголосый + Авторский (Одноголосый, закадровый)Субтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 02:14:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:026DD76AFF6698F644FF49EA8B0FC21CB1A145A1
+magnet:?xt=urn:btih:5D49124CA555083DCF53F07DAA58A9F9E5DA0EA3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -105,25 +102,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838808   (261544) от 24.11.2025
+###  Публикация: 1193717   (262001) от 22.12.2017
 
-Internet Download Manager 6.42 Build 55 RePack by KpoJIuK [Multi/Ru]
+Harry James - Things Ain't What They Used To Be (1948, 1949) 1989, Object Enterprises [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
 
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262001.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. Shine [03:00]
+02. Block Party [02:12]
+03. Proclamation [03:29]
+04. Slap Happy [03:10](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:53:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C660DB68E51D530C8049A6345BEAF3F3B49C121C
+magnet:?xt=urn:btih:32C673B5829CB64C7E0D5C80378378CBC2676067
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -131,25 +131,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838734   (261543) от 24.11.2025
+###  Публикация: 1193527   (262000) от 22.12.2017
 
-Форсаж 5 / Fast Five (2011) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
+Lewis Nash - Rhythm Is My Business (1993) Evidence Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
 
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262000.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бывший полицейский Брайан О`Коннер вместе с бывалым лихачом Домиником Торетто совсем немного увлеклись жизнью вне закона. После того, как Брайан и Миа Торетто освободили Доминика, они не рискуют долго задерживаться на одном месте, так как являются желанной целью порядком недовольных копов.Производство: США / Original FilmЖанр: Боевик, триллер, криминалРежиссер: Джастин ЛинАктеры: Вин Дизель, Пол Уокер, Джордана Брюстер, Дуэйн Джонсон, Тайриз Гибсон, Лудакрис, Мэтт Шульце, Сон Ган, Галь Гадот, Эльза ПатакиПеревод: Дублированный, Авторский (А. Киреев)Язык озвучки: Русский, Английский, УкраинскийСубтитры: Русские, АнглийскиеПродолжительность: 02:10:19
+01. Let Me Try [07:05]
+02. 106 Nix [10:18]
+03. Sing Me a Song Everlasting [08:12]
+04. My Shining Hour [03:49](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:03:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:30E8AE2321A090CBC652BCD2F040B491AF20C4E9
+magnet:?xt=urn:btih:C6E15D3322AE5BDC8622CCA09DEC3492B0AF285F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -157,27 +160,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838787   (261542) от 24.11.2025
+###  Публикация: 1193722   (261999) от 22.12.2017
 
-Udemy, Арнольд Оберлейтер |  MCP: Создание агентов с помощью Claude, Cursor, Flowise, Python и n8n (2025) PCRec [EN, RU]
+Eric Alexander & Vincent Herring - Friendly Fire: Live At Smoke (2012) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop>
 
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261999.jpg" />
 </div>
 
 
 ###  Подробнее
 
-На курсе вы научитесь как создавать собственные инструменты и автоматизированные рабочие процессы (агенты) на Python или n8n, чтобы затем подключить их к Claude (или другим LLM) с помощью протокола MCP (Model Context Protocol).
-
-Фактически, вы даете Claude возможность не просто отвечать на вопросы, но и самостоятельно выполнять сложные задачи (например, обращаться (   Читать дальше...   )Производство: UdemyЖанр: Обучающий курсЯзык озвучки: Английский, РусскийПродолжительность: 13:26:44
+01. Pat n Chat [08:18]
+02. Sukiyaki [09:51]
+03. Inception [08:47]
+04. Dig Dis [08:42](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:02:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:78602E8B80A480FE89D64DA174041A610D22B107
+magnet:?xt=urn:btih:6AB5765B92D1579AEF5DEA25FA23635B6D6E1B0A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -185,26 +189,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838811   (261541) от 24.11.2025
+###  Публикация: 1193718   (261998) от 22.12.2017
 
-Spotify 1.2.76.286 Repack & Portable by elchupacabra (x64) [Multi/Ru]
+Clark Terry & Bob Brookmeyer Quintet - Gingerbread Men (1966) 1991, Mainstream Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
 
->>Мультимедиа и Графика
->>Аудио Плееры и Кодеки
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261998.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Spotify - это бесплатный потоковый плеер музыки, который вобрал в себя массу онлайн возможностей.
-Spotify имеет громадный каталог музыки, поддерживаемый большинством музыкальных компаний, таких как EMI, Warner Music, Sony или Universal, и вы можете искать в каталоге при помощи встроенного хорошего поискового движка. Хотя, вы можете использовать Spotify и другим образом, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. Haig & Haig [04:33]
+02. I Want a Little Girl [04:12]
+03. Mood Indigo [06:53]
+04. Milo's Other Samba [02:53](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:42:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EB66BAD91B2DFF7512D596D10A1F878151E35836
+magnet:?xt=urn:btih:7AFC2BFA20250AE041B9EF60AD6F977C3E198EC2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -212,25 +218,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838725   (261540) от 24.11.2025
+###  Публикация: 1193713   (261997) от 22.12.2017
 
-Линдси Гибсон | Взрослые дети эмоционально незрелых родителей (2023) [MP3, Андрей Черкасов]
+Buddy Tate - Swinging Like Tate (1959) 1988, Decca Records [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
 
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261997.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В своей революционной книге психолог Линдси Гибсон подробно рассматривает деструктивный характер взаимоотношений с эмоционально незрелыми родителями. Вы увидите, как такие родители создают ощущение покинутости, и узнаете, как можно справиться с болью и замешательством, корни которых уходят в ваше детство. Вы вновь обретете себя и научитесь контролировать свою реакцию (   Читать дальше...   )Жанр: ПсихологияИздательство: Издательство Елены ТерещенковойПродолжительность: 07:33:38
+01. Bottle It [06:04]
+02. Walk That Walk [08:37]
+03. Miss Sadie Brown [06:00]
+04. Moon Eyes [07:41](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:40:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DAD7C31944D0D66B6C79EB66D3EAD8F152CCF692
+magnet:?xt=urn:btih:4922FD0EBEA78A315CAAD7A9178CA26D874EACF0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -238,28 +247,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838807   (261539) от 24.11.2025
+###  Публикация: 1193675   (261996) от 22.12.2017
 
-VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 15 (2025) [MP3|320 Kbps] <Trance, Progressive>
+VA - Best Of Vandit (Mixed by Jardin) (2017) [MP3|320 Kbps] <Trance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261996.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. DJ Geri - The Crowds (Original Mix) [8:22]
-02. Will Dukster & Solnc - Im Reaching (Original Mix) [8:32]
-03. Appledrugs - Every Second Of Time (Front vs Lala Project Mush Up) [8:29]
-04. Audien - Eleven Eleven (Tom Fall Remix) [7:11](   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 03:09:53
+01.  Richard Lowe  -  Levitate (Original Mix)  3:53
+02.  Emanuele Braveri  -  Destination Summer (Original Mix)  3:13
+03.  Chris Bekker  -  Episodes (Original Mix)  3:09
+04.  Alex M.O.R.P.H.  -  It Is Full Of Stars (Original Mix)  3:25(   Читать дальше...   )Жанр: TranceПродолжительность: 02:09:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5399BAECF292385E84F6CA49C303210CE726ED18
+magnet:?xt=urn:btih:A56F98F32F81F107D734EC1FAB63A38595DB3B65
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -267,25 +276,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838812   (261538) от 24.11.2025
+###  Публикация: 1193303   (261995) от 22.12.2017
 
-TweakPower 2.076 + Portable [Multi/Ru]
+Бобслей. Кубок мира 2017-2018. 4-й Этап. Винтерберг (Германия). Мужчины-Двойки. 1-я попытка (09.12.2017) WEB-DL [H.264/720p-LQ] [EN]
 
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261995.jpg" />
 </div>
 
 
 ###  Подробнее
 
-TweakPower – представляет собой единый графический интерфейс объединивший целый пакет продвинутых инструментов для оптимизации, очистки и настройки компьютера, работающего в среде Windows. Эффективные средства диагностики и выявления ошибок в операционной системе помогут выявить не только дыры в безопасности, но и освободить свободное место на дисках. TweakPower (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+09 декабря 2017 года, суббота. 15:30 МСК
+4-й Этапа Кубок мира 2017-2018 по бобслею и скелетону. Винтерберг (Германия)
+Бобслей. Мужчины-Двойки. 1-я попытка
+Стадион: Вельтинс Эйс-Арена (Винтерберг, Германия)Телекомпания: IBSF TVЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 01:06:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C1697C0C249C22A2583D4AA39929018D40D78611
+magnet:?xt=urn:btih:065A14050303E6CAB51027C67B92061429111AEC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -293,25 +305,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838815   (261537) от 24.11.2025
+###  Публикация: 1193683   (261994) от 22.12.2017
 
-HDCleaner 2.095 + Portable [Multi/Ru]
+Yuji KONDO - Faces Past (2017) 10 Label [FLAC|Lossless|WEB-DL|tracks] <Techno, Experimental, Dub Techno>
 
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261994.jpg" />
 </div>
 
 
 ###  Подробнее
 
-HDCleaner – многофункциональный программный продукт от немецкого разработчика софта Kurt Zimmermann, предназначенный для очистки компьютера, работающего под ОС Windows. Данный набор эффективных средств для очистки ПК и создавался как бесплатная альтернатива известному и популярному CCleaner, а по возможностям сопоставим с Pro версией вышеупомянутой программы. Очищаете (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. Vanishing Curvatures (06:47)
+ 02. Juniper Fox (05:35)
+ 03. Linger (05:17)
+ 04. Feigning Death (05:26)(   Читать дальше...   )Жанр: Techno, Experimental, Dub TechnoПродолжительность: 00:46:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9C1B90CF15746EA98E287F041B0363D7914EE217
+magnet:?xt=urn:btih:46AD6AD4428AFD23C37F81E4F47CF8FD1B2A4F27
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -319,28 +334,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838816   (261536) от 24.11.2025
+###  Публикация: 1193515   (261993) от 22.12.2017
 
-VA - The Iron Apocalypse (2025) [MP3|320 Kbps] <Metal, Death, Black>
+Benny Goodman - Benny In Brussels (1958) 1989, CBS [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
 
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261993.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Within Destruction - A Love That Slowly Died (02:30)
- 002. Monolith - Trial Of Society (04:31)
- 003. Warfield - With The Old Breed (04:12)
- 004. Slizard - The Curious Man (02:50)(   Читать дальше...   )Жанр: Metal, Death, BlackПродолжительность: 13:04:52
+01. Let's Dance [01:05]
+02. Don't Be That Way [03:13]
+03. Hallelujah [04:15]
+04. Obsession [03:09](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:09:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:241BEE13C7523699424AC81F1F40FDB7C73A80CC
+magnet:?xt=urn:btih:684332BE3E6D7CCFBC6D332D93A474233CE1A66D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -348,25 +363,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838814   (261535) от 24.11.2025
+###  Публикация: 1193720   (261992) от 22.12.2017
 
-Вадим Денисов | Антигеймер (2025) [MP3, Александр Чернов]
+Eric Alexander - Summit Meeting (2002) Milestone Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261992.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Пришельцы задумали масштабную операцию по улучшению человеческого рода, которая могла бы внести изменения в теорию Дарвина. Люди, неспособные работать и вести семейную жизнь, отправлялись на новую планету с неблагозвучным именем Рассадник. Чтобы жизнь на новой планете не была скучной, Кураторы наполнили её различными фэнтези-существами, придуманными за последнее (   Читать дальше...   )Жанр: Боевая фантастика, ПопаданцыИздательство: МедиаКнигаПродолжительность: 11:41:28
+01. Summit Meeting [08:05]
+02. The Sweetest Sounds [07:45]
+03. There But For The Grace Of... [08:52]
+04. I Haven't Got Anything Better To Do [07:14](   Читать дальше...   )Жанр: Mainstream Jazz, Post-BopПродолжительность: 01:07:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6A1667932AA1FB63C575331F0598DE2E8706164A
+magnet:?xt=urn:btih:23FF4E5682B818EE2B8D8C33DB31DBA7BE1DF543
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -374,25 +392,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838820   (261534) от 25.11.2025
+###  Публикация: 1193298   (261991) от 22.12.2017
 
-COMSOL Multiphysics 6.4 Build 293 [En]
+Бобслей. Кубок мира 2017-2018. 4-й Этап. Винтерберг (Германия). Женщины (09.12.2017) WEB-DLRip [H.264/720p-LQ]
 
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261991.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Программа для конечно-элементных расчётов сложных научно-технических задач. Пакет COMSOL Multiphysics позволяет моделировать практически все физические процессы, которые описываются частными дифференциальными уравнениями. Программа содержит различные решатели, которые помогут быстро справиться даже с самыми сложными задачами, а простая структура приложения обеспечивает (   Читать дальше...   )Язык интерфейса: Английский
+09 декабря 2017 года, суббота. 11:45 МСК
+4-й Этапа Кубок мира 2017-2018 по бобслею и скелетону. Винтерберг (Германия)
+Бобслей. Женщины
+Стадион: Вельтинс Эйс-Арена (Винтерберг, Германия)Телекомпания: IBSF TVЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:41:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9BA7ACC1451A3AA1E2A11345E1DBC7C408DD5D2F
+magnet:?xt=urn:btih:CBEC7118B7E306DE721FC3FBED4D7E9CD4B7E89F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -400,25 +421,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838707   (261533) от 25.11.2025
+###  Публикация: 1193585   (261990) от 22.12.2017
 
-Россия поставила ключевое оборудование для международного термоядерного экспериментального реактора ИТЭР
+VA - Deep Value, Vol. 2 (Mixed By Pornbugs) (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
 
->>След.
->>Новости
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261990.jpg" />
 </div>
 
 
 ###  Подробнее
 
-На стройплощадку на юге Франции прибыл первый из четырех российских испытательных стендов. Он предназначен для вакуумных, тепловых и функциональных испытаний порт-плагов – ключевых элементов диагностики будущей установки). Следующий этап – это проведение испытаний, в ходе которых внутри стендов будут воспроизведены условия, максимально приближенные к реальным.«Этот (   Читать дальше...   )
+01. Martin Aquino - Lucid (Original Mix) [08:26]
+02. El Mundo - The Message (Original Mix) [07:31]
+03. Markus Homm - Open End (Original Mix) [06:50]
+04. Philipp Gonzales - Katana's Drums (Dave Pad Remix) [07:17](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 03:02:43
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:DEFE897CBD8022123B506FD924F38CC257BC52E8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -426,25 +450,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838821   (261532) от 25.11.2025
+###  Публикация: 1193797   (261989) от 22.12.2017
 
-Joseph Steinberg | Кибербезопасность для чайников (2025) [EPUB]
+VA - Ferry Corsten Presents Corsten's Countdown December (2017) [MP3|320 Kbps] <Trance>
 
->>Компьютерная литература
->>
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261989.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Киберпреступники постоянно обновляют свои стратегии и методы в поисках новых способов нарушения безопасности данных. Разве вам не следует научиться обеспечивать безопасность себя и своих близких? «Кибербезопасность для чайников», полностью дополненная информацией об искусственном интеллекте, гибридных рабочих средах и многом другом, представляет собой бестселлер, (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: СамиздатФормат: EPUBКачество: Изначально электронное (ebook)
+01.  Ferry Corsten  -  Wherever You Are (feat. HALIENE) (Solis & Sean Truby Extended Remix)  6:49
+02.  Cosmic Gate & Sarah Lynn  -  Folded Wings (Extended Mix)  6:43
+03.  Markus Schulz presents Dakota  -  The Spirit Of The Warrior (Transmission 2017 Theme) (Extended Mix)  6:23
+04.  DIM3NSION & Zaa  -  Cielo (Extended Mix)  6:02(   Читать дальше...   )Жанр: TranceПродолжительность: 01:06:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D32159AECCD327E37299019EFB1E74A0E4674AB2
+magnet:?xt=urn:btih:72C5661C8EAE4EA807AC0DDDF8B4DD1D2C0092D0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -452,25 +479,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838779   (261531) от 25.11.2025
+###  Публикация: 1193685   (261988) от 22.12.2017
 
-Джеймс Фенимор Купер | Кожаный чулок (Книга 3). Следопыт,  или На берегах Онтарио  (2025) [MP3, Александр Бордуков, Евгений Терновский]
+Condensed Utopia - Assioma (2017) Circular Limited [FLAC|Lossless|WEB-DL|tracks] <Techno, Drone>
 
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261988.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Конец 1750-х годов. На территории Северной Америки продолжается кровавая война за колониальное господство. Британские войска вынуждены отступить под натиском превосходящих сил французов. Группе солдат поручено эвакуировать секретную базу, прежде чем она попадёт в руки французов и их союзников-ирокезов. Под предводительством Натти Бампо на сей раз носящего имя Следопыт (   Читать дальше...   )Жанр: Зарубежная литература, классика, приключенческий романИздательство: СОЮЗПродолжительность: 13:34:53
+01. Complex Alternative to Violence (05:50)
+ 02. Assioma (06:43)
+ 03. Silence Error (06:01)
+ 04. In Abcence of Light (06:27)Жанр: Techno, DroneПродолжительность: 00:25:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:16F32C18512D2B0D33629295C1B076BBA002AD61
+magnet:?xt=urn:btih:252E211C281CDF0F7CC35BDB0DC5E56C65D6F8EB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -478,25 +508,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838781   (261530) от 25.11.2025
+###  Публикация: 1193725   (261987) от 22.12.2017
 
-Грозный Вавила и тетка Арина (1928) WEBRip [H.264/1080p]
+Enrico Pieranunzi Quartet - Alone Together (2001) Challenge Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
 
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261987.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Культурфильм о дне 8 марта, о положении сельской женщины. Похоже эти феминистки давненько начали свою подрывную деятельность.Производство: СССР / АО "Межрабпом-Русь", ЦентросоюзЖанр: рисованная анимация, короткометражный, немое киноРежиссер: Николай Ходатаев, Ольга ХодатаеваСубтитры: русские интертитрыПродолжительность: 00:05:48
+01. Speak Low [05:18]
+02. My Foolish Heart [06:04]
+03. What Is This Thing Called Love [04:35]
+04. Sweet And Lovely [03:37](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:59:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:080718D63787F01845D0832D94A8FE59B92D25C5
+magnet:?xt=urn:btih:24C8FD4FE04867CCBD7CC81E53BDE27A9EA71CB4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -504,25 +537,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838803   (261529) от 25.11.2025
+###  Публикация: 1193762   (261986) от 22.12.2017
 
-Одиннадцать друзей Оушена / Ocean's Eleven (2001) UHD BDRip [AV1/2160p] [4K, HDR, 10-bit]
+VA - Alpine Grooves IX (Kristallhutte) (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
 
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261986.jpg" />
 </div>
 
 
 ###  Подробнее
 
-После выхода из тюрьмы вора Дэнни Оушена не проходит и 24 часов, а он уже планирует организовать самое сложное ограбление казино в истории. Он хочет украсть 160 млн американских долларов из трёх самых преуспевающих казино Лас-Вегаса. Все эти казино принадлежат элегантному и в то же время жестокому дельцу Терри Бенедикту, который только и мечтает о том, как встретится (   Читать дальше...   )Производство: США / Jerry Weintraub Productions, NPV EntertainmentЖанр: криминал, триллерРежиссер: Стивен СодербергАктеры: Джордж Клуни, Брэд Питт, Мэтт Дэймон, Джулия Робертс, Энди Гарсиа, Кейси Аффлек, Скотт Каан, Эллиотт Гулд, Берни Мак, Дон Чидл и др.Перевод: Дублированный (Мосфильм-Мастер), многоголосый (HTB+), двуголосый (П. Гланц и И. Королева, Universal Channel), авторский (А. Матвеев, А. Гаврилов)Язык озвучки: Русский, английскийСубтитры: Русские (forced, full), английские (PGS)Продолжительность: 01:456:32
+01. Joris Voorn & Kid A – So Long (Christian Loeffler Remix) (05:07)
+02. Liza Flume & Alexander Remus – Sheets (06:03)
+03. SAAND – Mysterious Power (Powel Remix) (06:30)
+04. Just Her – Follow You Down (07:48)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:52:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0389B4E81241F0209F315283E902F422EB8DFE5A
+magnet:?xt=urn:btih:0F32696ABF87DE6E06820FFBD6CFF6FD972419A2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -530,25 +566,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838737   (261528) от 25.11.2025
+###  Публикация: 1193694   (261985) от 22.12.2017
 
-Chess Tutor (2014) [En] (1.1.1.9) License
+VA - Entrancing Music Top 20 (2017) [MP3|320 Kbps] <Trance>
 
->>Win Игры
->>Board/Puzzle/Logic (Casual)
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261985.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Chess Tutor это программа для Windows для изучения шахмат. На первом этапе приобретаются элементарные знания, которые нужны каждому успешному шахматисту. Именно здесь метод Stappenmethode принципиально отличается от других методов обучения. Например, на старте поставка матов не играет никакой роли. В конце концов, вы начинаете учиться водить машину с парковкой. Таким (   Читать дальше...   )Тип издания: LicenseРазработчик: Stefan Meyer-KahlenЖанр: ШахматыЯзык интерфейса: Английский
+01. Kate Miles, DJ T.H. & Floe – Like A Miracle (Denis Kenzo Remix)
+02. Denis Sender, DJ T.H. & Cari – I Found You (Maywave Remix)
+03. Floe, Aly Frank & J.Puchler – Home (LTN Remix)
+04. Kiran M Sajeev – Bharat Mata (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:01:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BFEA8FD0494904C96DC48F6A04B5F714C9C95114
+magnet:?xt=urn:btih:6F53BCCE4C4037873430C391F1211F1E993C9F5F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -556,25 +595,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838826   (261527) от 25.11.2025
+###  Публикация: 1193719   (261984) от 22.12.2017
 
-Uninstall Tool 3.8.1 Build 5740 RePack (& Portable) by KpoJIuK [Multi/Ru]
+Charles McPherson - Siku Ya Bibi (1971, 1972) 1991, Mainstream Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
 
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261984.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Uninstall Tool — быстрая, мощная и надежная альтернатива системному апплету «Установка и Удаление программ». Это безопасный, надежный и удобный способ удалять ненужные приложения и повысить эффективность работы вашего компьютера. Uninstall Tool обладает большим количеством функций: показывает скрытые установленные программы, сортирует список программного обеспечения (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. Don't Explain [04:26]
+02. Lover Man (Oh Where Can You Be) [04:58]
+03. God Bless the Child [04:28]
+04. Miss Brown to You [04:42](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:47:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5CB3D7CF714F16AD7DB78821D27F861C1BD30B78
+magnet:?xt=urn:btih:D91A64F9C8CACDE6393A2A748E828AE94E376BA8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -582,25 +624,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838828   (261526) от 25.11.2025
+###  Публикация: 1193707   (261983) от 22.12.2017
 
-PotPlayer 251119 (1.7.22735) Beta RePack (& Portable) by elchupacabra [Multi/Ru]
+PDF Expert 2.2.15 [Multi/Ru]
 
->>Мультимедиа и Графика
->>Видео Плееры и Кодеки
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261983.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PotPlayer - мультимедийный плеер от авторов KMPlayer. Его отличают высокое качество воспроизведения, поддержка всех современных видео и аудиоформатов, а также наличие встроенных видеокодеков DXVA. Potplayer обладает современным дизайном, удобен в настройке, позволяет назначать и изменять горячие клавиши, записывать воспроизводимый звук в отдельный файл, подключать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+PDF Expert - лучший редактор файлов PDF
+PDF Expert - это один из лучших инструментов для работы с PDF на iPhone и iPad, который позволяет на ходу просматривать, редактировать и подписывать документы. Теперь популярное приложение доступно и на Mac.
+
+Разработчики учли все пожелания пользователей и сделали PDF Expert для Mac простым, как и его мобильная версия, но очень (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21 декабря 2017Разработчик: Readdle Inc.Поддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:27EE684929C0E68ACD271B8685CC2CD5B43933CB
+magnet:?xt=urn:btih:463ABED54B4609028591E3BE39B6DA6EA0799E38
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -608,26 +653,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838829   (261525) от 25.11.2025
+###  Публикация: 1193691   (261982) от 22.12.2017
 
-Geek Uninstaller 1.5.3 Build 170 Portable [Multi/Ru]
+VA - Aly & Fila - Future Sound of Egypt 527 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
+>>Electronic
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261982.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Geek Uninstaller - удобный, маленький и надежный, не требующий установки деинсталлятор, разработанный, чтобы помочь пользователям произвести деинсталляцию программ, установленных в системе. В отличие от других деинсталляторов, программа осуществляет глубинные процессы сканирования и очищает ваш ПК от того, что осталось после удаления.
-Поддерживает удаление "магазинных" (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. L. Doblado - Lie Alone (16 Bit Lolitas Remix)
+02. Philipp Kempnich & Allies For Everyone - Disc Nite (Original Mix)
+03. Steve Parry - 303 V (Original Mix)
+04. Paul Thomas & Dylhen - Diablo (Kamilo Sanclemente & Golan Zocher Remix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:57:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:09F8E5F0D0FFB079DF1D712AF933735C8873DF21
+magnet:?xt=urn:btih:80CE5ABF658B6BA214B4FA2D7FB9A52889338950
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -635,25 +682,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838213   (261524) от 25.11.2025
+###  Публикация: 1193806   (261981) от 22.12.2017
 
-Госдума запретила россиянам хранить пакеты в пакетах
+Падре Марчело Росси | Агапа. Настоящая любовь (2014) [PDF, DJVU]
 
->>
->>
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261981.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Государственная дума приняла в третьем чтении поправки в Кодекс об административных правонарушениях, которые вводят ответственность за хранения пакетов в пакетах. По мнению народных избранников, мера благотворно скажется на санитарном состоянии жилищ россиян.(   Читать дальше...   )
+Самая продаваемая книга за всю историю Латинской Америки. Есть любовь, от которой происходят все существующие виды любви. Единственная, настоящая, вечная Любовь, Агапа — Божий дар всем нам, чтобы мы могли достичь всего. Жить в присутствии этой Любви, идти навстречу трудностям, дарить и получать заботу, побеждать зло и творить добро, иметь достаток во всем и быть (   Читать дальше...   )Жанр: Духовные размышленияФормат: PDF, DJVU
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:DF7C19B62ADFD7CF7D467DD6C54CEFE32510FACF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -661,25 +708,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838836   (261523) от 25.11.2025
+###  Публикация: 1193648   (261980) от 22.12.2017
 
-Of Ash and Steel (2025) [Ru/Multi] (1.0.3) License GOG
+Журнал | Сваты на даче №12 (36) (декабрь 2017) [PDF]
 
->>Win Игры
->>Горячие новинки Игр
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261980.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Of Ash and Steel - ролевая игра от третьего лица с открытым миром в духе классических представителей жанра, но с современным дизайном. Исследуйте земли некогда цветущего острова, улучшайте боевые навыки и выживайте в беспощадном королевстве Семи. В Of Ash and Steel сложная, но удобная боевая система. Вы не станете легендарным охотником за головами или истребителем (   Читать дальше...   )Тип издания: LicenseРазработчик: Fire & FrostЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+В журнале «Сваты на даче» вы узнаете, как проще, быстрее и без неимоверных усилий добиться высоких урожаев и обустроить дачный быт. В одном журнале 300 подсказок: самые действенные и доступные методы посева и посадки садово-огородных культур, ухода за ними, борьбы с вредителями и болезнями.Жанр: Дом, сад, огород, дачаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:63F738A6108A132615A0C847F7F2BB170C181502
+magnet:?xt=urn:btih:C6D5B32C9023BA7596F87921877D9ADA1F0CDDC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

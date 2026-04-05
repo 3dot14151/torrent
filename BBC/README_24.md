@@ -6,7 +6,7 @@ BBC. Панорама. Amazon: Что они знают о нас / Amazon: What
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222022.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BBC. Как устроены шикарные отели. Эм-Джи-Эм (Ма
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220854.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220432.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BBC: Жизнь птиц / The Life of Birds (1998) DVDRip (сезон 1, сер
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220273.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ BBC: Детские хирурги: совершая чудеса / Baby Surgeon
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219090.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ BBC. Скрытые вершины (Заповедник Бен-Эй) / The Hidd
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217608.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ BBC. Космическая гонка 21 века / The 21st Century Race for S
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217361.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ BBC: День Д: Последние слова / D-Day: Last Words (D-Day in 14
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216934.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ BBC. Африканские Драконовы горы / BBC: Africa's Dragon M
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215931.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ BBC: Инстинкт человека (Человеческие инстинк�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211376.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ BBC. Белая королева и ее соперницы / The Real White Que
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209885.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ BBC. Как действуют наркотики / How Drugs Work (2011) HDTVRi
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208846.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ BBC: Планета Земля 2 / Planet Earth II (2016) HDRip (серии 1-6 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207777.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ BBC: Армада. Неизвестная история / Armada: The Untold St
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207042.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ BBC: Чудеса Солнечной системы / Wonders of the Solar Syste
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206960.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205760.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204799.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ BBC: Дикая Патагония / Wild Patagonia (2015) BDRip [H.264/720p] (�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203941.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203763.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ BBC: Тайны Бермудского треугольника / The Bermuda Tr
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196491.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ BBC: Хиросима / Hiroshima (2005) DVDRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_194581.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ BBC Horizon: Плутон: Восставший из мёртвых / Pluto: Bac
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193602.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ BBC. Замёрзшая планета 2 / Frozen Planet II (2022) WEB-DL [H.265
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188364.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ BBC: Приключeния Брайана Кокса в пространстве
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183454.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ BBC: Мир природы. Лосось: Серебряный прилив / Th
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178671.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ BBC: Невероятные приключения температуры / From
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177266.jpg" />
 </div>
 
 

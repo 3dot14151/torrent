@@ -1,55 +1,3 @@
-###  Публикация: 1550387   (592510) от 10.05.2022
-
-Ханс Фаллада | Один в Берлине. Каждый умирает в одиночку (2022) [MP3, Дмитрий Стрелков]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592510.jpg" />
-</div>
-
-
-###  Подробнее
-
-1940-й год. Немецкие войска триумфально входят в Париж. Простые немцы ликуют в унисон с верхушкой Рейха, предвкушая скорый разгром Англии и установление германского мирового господства. В такой атмосфере бросить вызов режиму может или герой, или безумец. Или тот, кому нечего терять. Получив похоронку на единственного сына, столяр Отто Квангель объявляет нацизму войну. (   Читать дальше...   )Жанр: Зарубежная классика, Литература 20 векаПродолжительность: 19:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BF3BCFC87D51F4B312E7AEBB17E46B7BC86D1A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551812   (589432) от 17.05.2022
-
-Сергей Сергеев-Ценский | Преображение человека (1961) [MP3, Леонид Губанов и др.]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инсценированные страницы 3 части эпопеи «Преображение России» в исполнении артистов МХАТа. История инженера Матийцева, заведовавшего шахтой, принадлежавшей бельгийской компании. Он был уволен, а позже арестован за свои обвинительные слова в адрес хозяев о каторжном труде и кошмарных условиях жизни шахтеров. Это стало началом его революционного пути.Жанр: Драма, РадиоспектакльПродолжительность: 01:16:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B425A474E7334695050567B0C4AEE71D0310295
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 917533   (589099) от 12.07.2015
 
 Игорь Сахновский | Острое чувство субботы (2014) [MP3]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589099.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589058.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588110.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587990.jpg" />
 </div>
 
 
@@ -164,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587982.jpg" />
 </div>
 
 
@@ -190,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587981.jpg" />
 </div>
 
 
@@ -217,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587939.jpg" />
 </div>
 
 
@@ -244,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586812.jpg" />
 </div>
 
 
@@ -271,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585727.jpg" />
 </div>
 
 
@@ -297,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584848.jpg" />
 </div>
 
 
@@ -323,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584432.jpg" />
 </div>
 
 
@@ -349,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584428.jpg" />
 </div>
 
 
@@ -375,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584110.jpg" />
 </div>
 
 
@@ -401,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584029.jpg" />
 </div>
 
 
@@ -428,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583905.jpg" />
 </div>
 
 
@@ -455,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582964.jpg" />
 </div>
 
 
@@ -481,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582951.jpg" />
 </div>
 
 
@@ -509,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582474.jpg" />
 </div>
 
 
@@ -536,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582207.jpg" />
 </div>
 
 
@@ -562,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581966.jpg" />
 </div>
 
 
@@ -588,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581113.jpg" />
 </div>
 
 
@@ -615,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580645.jpg" />
 </div>
 
 
@@ -641,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580598.jpg" />
 </div>
 
 
@@ -667,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580583.jpg" />
 </div>
 
 
@@ -679,6 +627,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF4B44A2F6B858986D1AA188F2ED1B9531D0C48F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041835   (580536) от 11.08.2016
+
+Леонид Леонов | Барсуки (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580536.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Барсуки» – первый большой роман Леонова, знаменовавший значительный рост художественного дарования автора и выдвинувший его уже тогда, в 1925 году, в первые ряды советских писателей.
+Роман «Барсуки» – крупное эпическое полотно, в котором изображено предреволюционное московское мещанство и драматические эпизоды революционной борьбы в деревне. Глубокое знание старорусского (   Читать дальше...   )Жанр: Советская классическая прозаПродолжительность: 13:44:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A29029BDF603C775538EAD6E05FDD142582225E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042098   (580529) от 11.08.2016
+
+Сара Эдисон Аллен | Сахарная королева (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джози Сиррини живет в небольшом курортном городке вместе с деспотичной матерью и мечтает о путешествиях и приключениях. Она мучительно застенчива, у нее нет друзей, и единственное, что как-то скрашивает ее серую жизнь, — это сласти и любовные романы, которые она тайком от матери поглощает в неимоверных количествах, спрятавшись у себя в гардеробной. В один прекрасный (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 08:27:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B90CC3E042ED94CAD411FC59F7F5AAE4D668BBA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1163603   (447794) от 06.09.2017
+
+Don't Knock Twice / Не стучи дважды (2017) [Ru/Multi] (1.0) License PLAZA
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447794.jpg" />
+</div>
+
+
+###  Подробнее
+
+Don't Knock Twice (Не стучи дважды) — игра-хоррор от первого лица, основанная на городской легенде, от которой стынет кровь и цепенеет сознание. Чтобы спасти свою покинутую дочь, терзаемая чувством вины мать должна раскрыть чудовищную правду городской легенды о мстительной демонической ведьме.Тип издания: LicenseРазработчик: Wales InteractiveЖанр: Adventure, 1st Person, Indie (Horror)Язык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BDC2FEFF10DE1F708CCDB9B88DA576EF173DF0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061430   (447741) от 10.10.2016
+
+Mirror's Edge Catalyst (2016) [Ru/Multi] (1.0.3.47248) Repack R.G. Catalyst
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Присоединитесь к Фейт, бесстрашной паркурщице, сражающейся за свободу в Городе Зеркал. За обманчивым обликом этого изящного техногенного мегаполиса скрываются ужасные тайны. Исследуйте каждый уголок огромного города - от залитых солнцем крыш небоскребов до темных и грязных подземных туннелей - для Фейт не существует недоступных мест.Тип издания: RepackРазработчик: EA DICEЖанр: Action, 3D, 1st PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DBFD2374E0649C5E0D0E43E867E3EC124BE4478
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 552226   (447562) от 26.09.2012
 
 Borderlands: Game of the Year Edition [Ru/En] (RePack/1.4.1/4 DLC) 2010 | R.G. Shift
@@ -6,7 +58,7 @@ Borderlands: Game of the Year Edition [Ru/En] (RePack/1.4.1/4 DLC) 2010 | R.G. S
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447562.jpg" />
 </div>
 
 
@@ -36,7 +88,7 @@ The Chronicles of Riddick Gold [Ru/En] (RePack/1.0.0.1) 2009 | Audioslave
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447555.jpg" />
 </div>
 
 
@@ -64,7 +116,7 @@ Hellpoint (2020) [Ru/Multi] (495/dlc) License GOG (обновляемая)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446499.jpg" />
 </div>
 
 
@@ -90,7 +142,7 @@ World War Z (2019) [Ru/Multi] (1.30) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445878.jpg" />
 </div>
 
 
@@ -116,7 +168,7 @@ Transference (2018) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443794.jpg" />
 </div>
 
 
@@ -142,7 +194,7 @@ Dead Island: Riptide (2016) [Ru] (1.4.1.1.13/dlc) Repack =nemos= [Definitive Edi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443456.jpg" />
 </div>
 
 
@@ -168,7 +220,7 @@ Dishonored (2013) [Ru/En] (1.4.1/dlc) Repack Other s [Game of the Year Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443388.jpg" />
 </div>
 
 
@@ -194,7 +246,7 @@ Borderlands: Game of the Year Edition [Ru/En/Multi5] (L/1.41/4 DLC) 2010
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442813.jpg" />
 </div>
 
 
@@ -224,7 +276,7 @@ Dead Island (2016) [Ru/Multi] (1.1.2/1.1.2/1.0/dlc) Repack R.G. Catalyst [Defini
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441178.jpg" />
 </div>
 
 
@@ -250,7 +302,7 @@ Dead Island: Game of the Year Edition (2011) [Ru] (1.3.0/dlc) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441111.jpg" />
 </div>
 
 
@@ -276,7 +328,7 @@ White Day: A Labyrinth Named School (2017) [Ru/Multi] (1.06/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441044.jpg" />
 </div>
 
 
@@ -302,7 +354,7 @@ BioShock Infinite (2014) [Ru] (1.1.25.5165/dlc) Repack xatab [Complete Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439030.jpg" />
 </div>
 
 
@@ -328,7 +380,7 @@ Rage: Anarchy Edition [MULTi3/+] (L/1.0.29.712/2 DLC) 2011 | SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437782.jpg" />
 </div>
 
 
@@ -356,7 +408,7 @@ Hot Lava (2020) [Ru/Multi] (1.0.431329) SteamRip Goldberg
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437557.jpg" />
 </div>
 
 
@@ -382,7 +434,7 @@ Infinity Runner (2014) [En] (1.0) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437313.jpg" />
 </div>
 
 
@@ -408,7 +460,7 @@ STALINGRAD ABATIS (2018) [Ru/En/De] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436835.jpg" />
 </div>
 
 
@@ -434,7 +486,7 @@ THORNYWAY (2017) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436393.jpg" />
 </div>
 
 
@@ -460,7 +512,7 @@ Help (2016) [Ru/En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436357.jpg" />
 </div>
 
 
@@ -486,7 +538,7 @@ DOOM 64 (2020) [Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435331.jpg" />
 </div>
 
 
@@ -512,7 +564,7 @@ BioShock 2 Remastered (2016) [Ru/Multi] (1.0.121755) SteamRip Let'sPlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434039.jpg" />
 </div>
 
 
@@ -538,7 +590,7 @@ Sniper: Ghost Warrior 3 / Снайпер: Воин-призрак 3 (2017) [Ru/M
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432017.jpg" />
 </div>
 
 
@@ -564,7 +616,7 @@ Call of Duty 2 (2005) [Ru] (1.3) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432001.jpg" />
 </div>
 
 
@@ -590,7 +642,7 @@ The Darkness II (2012) [Ru/En] (1.1) Repack R.G. Механики [Limited Editi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428464.jpg" />
 </div>
 
 
@@ -616,7 +668,7 @@ Earthfall (2018) [Ru/Multi] (1.0/upd2/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428057.jpg" />
 </div>
 
 
@@ -627,58 +679,6 @@ Earthfall (2018) [Ru/Multi] (1.0/upd2/dlc) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C52063682226DF9A303BE1AC91784806B54E1DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143248   (427000) от 25.09.2020
-
-Blood: One Unit Whole Blood (1998) [En] (1.21hf/dlc) License GOG
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427000.jpg" />
-</div>
-
-
-###  Подробнее
-
-На службе у темного бога вы разорвали свою душу на кусочки, но вашей единственной наградой стали ложные обещания и предательство. Теперь вы хотите свести счеты, и они будут оплачены кровью! Испытайте безумие в атмосфере кровавой резни! Все на войну с нечистью! Зомби, горгульи, адские гончие и прочие кровавые ужасы уже ждут вас! Уничтожьте гадкое зло могучего Чернобога! (   Читать дальше...   )Тип издания: LicenseРазработчик: Monolith ProductionsЖанр: Шутер, От первого лица, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1219CEABB77FCB5B349E26431BBFACBA944E3B13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148842   (426993) от 25.09.2020
-
-Serious Sam Anthology (2001-2013) [Ru/Multi] (1.05/1.07/2.080.00/206580/263699/1.0/13.11.2015/261096/dlc) Repack R.G. Механики
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426993.jpg" />
-</div>
-
-
-###  Подробнее
-
-Serious Sam Double D - это аркадный платформер про приключения понятно какого героя компьютерных игр. Это 2D-игра, где по-прежнему есть возможность нацеплять оружие друг на друга. Тем не менее, есть несколько больших различий. Во-первых, игра поддерживает кооператив для двух игроков. Второй игрок может уйти в любой момент, нажав на соответствующую кнопку. Во-вторых, (   Читать дальше...   )Тип издания: RepackРазработчик: Mommy's Best GamesЖанр: Arcade (Platform, Shoot'em up)Язык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ABA11668E56901C79F31549F410ABF3EEB215C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

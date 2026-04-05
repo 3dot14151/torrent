@@ -1,3 +1,32 @@
+###  Публикация: 1628493   (236562) от 23.04.2023
+
+Bruce Gaitsch - How Fragile We Are (2023) Japanese Edition [FLAC|Lossless|image + .cue] <AOR, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unchain My Heart (7:26)
+02. Fools Cry (5:41)
+03. Aphasia (5:00)
+04. Illinois (2:32)(   Читать дальше...   )Жанр: AOR, Soft RockПродолжительность: 00:56:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDAAAEF1302E888EF46160273393B84C6CAEF6FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1456387   (236547) от 22.03.2021
 
 Crack Jaw - Nightout (1985) Limited Edition, Numbered, Reissue, Remastered, 2015, Karthago Records [FLAC|Lossless|image + .cue] <Heavy Metal>
@@ -6,7 +35,7 @@ Crack Jaw - Nightout (1985) Limited Edition, Numbered, Reissue, Remastered, 2015
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236547.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Nedrugh - Depersonalize (2023) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236543.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Hardline - Life (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236535.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Ray Alder - II (2023) [FLAC|Lossless|image + .cue] <Melodic Progressive Metal, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236514.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Autumn Rain Melancholy - Seven Steps to Infinity (2004) 2022, Autumn Rain Melanc
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236513.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ WastedSky - Стая (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Nu
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236504.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Rainover - NOX (2023) [MP3|320 Kbps] <Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236494.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Issa - Lights of Japan (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Mel
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236476.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Abyss Of Despair - Artificial Soul Projection (2023) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236470.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Devilgroth - 2 Albums (2018-2023) [MP3|320 Kbps] <Black Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236463.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Memorized Dreams - Theater Of Life (2004) [WavPack|Lossless|image + .cue] <Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236456.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Burnt Belief - Emergent (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236448.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236446.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Forged In Black - Lightning In The Ashes (2023) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236441.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Axeheart - Through the Seas and Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236427.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Dead Wolvs - What Doesn't Kill You (2021) [FLAC|Lossless|WEB-DL|tracks] <Post-Ha
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236420.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Autumnfall - Bleak (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236419.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ DeWolff - Love, Death & In Between (2023) [FLAC|Lossless|WEB-DL|tracks] <Psych S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236414.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Twisted Illusion - Upstairs To Optimism (2023) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236411.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Distance of Thought - Edge of Forever (2023) [MP3|320 Kbps] <Progressive Power M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236407.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ The Swarm - Flawed Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236406.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Disillusive Play - Songs for the Non-Existent (2023) [MP3|320 Kbps] <Symphonic, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236400.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236388.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Queens Of The Stone Age - In Times New Roman... (2023) [FLAC|Lossless|tracks + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236386.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Fugitive - Nobody Gets out Alive (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236379.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Fugitive - Nobody Gets out Alive (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0832EA364809A5E693986B9C0CA7E9832E2DF53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609392   (236352) от 03.02.2023
-
-Invicti - Songs of conquest (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Riders of death
-02 - Rock, drink, and fuck
-03 - Balls of steel
-04 - Let's rock and roll(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8266B5522CEEA41C7882ADB0FB7B8D5B1A36637D
 ```
 
 https://mybot314.ru/tekegram_catalog/

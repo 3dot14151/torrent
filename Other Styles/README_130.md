@@ -1,3 +1,61 @@
+###  Публикация: 958042   (324962) от 20.11.2015
+
+Laurent Petitgand - The Salt of the Earth (Original Soundtrack) (2014) [OGG|~450 kbps]<Score / Modern Classical, Ambient>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Salt of the Earth (02:41)
+02. Papu's Song (03:36)
+03. Serra Pelada (02:50)
+04. Wrangel Island (03:56)(   Читать дальше...   )Жанр: Score / Modern Classical, AmbientПродолжительность: 00:46:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EDC668234A9C972CE5ABD6BA5A576B0FB9FD118
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958172   (323878) от 21.11.2015
+
+Orchestra Ennio Morricone - Once Upon A Time In The West (1969) /1995, RCA/ [FLAC|image + .cue]<Score, Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. C'era una volta il west (3:44)
+02. Come una sentenza (3:07)
+03. Addio a Cheyenne (2:38)
+04. L'attentato (4:41)(   Читать дальше...   )Жанр: Score, SoundtrackПродолжительность: 00:38:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FDB791B8CF5F15E22C432E978F274FCDFE68DA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 633183   (323652) от 21.11.2015
 
 Ассия Ахат - 7 альбомов (2002-2007) [FLAC|Lossless] <New Age>
@@ -6,7 +64,7 @@
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323652.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Yiruma - Blind Film (2014) [FLAC|Lossless|tracks + .cue] <New Age, Piano Solo, M
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323509.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ David Bowie, Reeves Gabrels, Xavier Despas - Omikron: The Dreamers (Omikron: The
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323507.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Olga Stankevich (Ольга Станкевич) - Dreamway (2011) [FLAC|Lossless
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323498.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Скалолазка и Последний из Седьмой колыбе
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323446.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Loretta Lynn - White Christmas Blue (2016) [MP3|320 Kbps] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323436.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Olga Stankevich (Ольга Станкевич) - Дискография (2010-2
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323363.jpg" />
 </div>
 
 
@@ -208,7 +266,7 @@ VA - Stranger Things / Очень странные дела (Music from the Netf
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323361.jpg" />
 </div>
 
 
@@ -237,7 +295,7 @@ The Man from RavCon - Strange Universe (2016) [FLAC|Lossless|image + .cue] <Inst
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323152.jpg" />
 </div>
 
 
@@ -266,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323050.jpg" />
 </div>
 
 
@@ -295,7 +353,7 @@ VA - RELAX - Морской бриз - Звуки живой природы в �
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322992.jpg" />
 </div>
 
 
@@ -322,7 +380,7 @@ VA - Игла. Remix (2010) [FLAC|Lossless|image + .cue] <Soundtrack>
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322782.jpg" />
 </div>
 
 
@@ -351,7 +409,7 @@ Kevin Kern - 8 альбомов (1996 - 2005) [APE|Lossless|image + .cue] <New A
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321528.jpg" />
 </div>
 
 
@@ -381,7 +439,7 @@ VA - Где-то на белом свете... (1996) [FLAC|Lossless|image + .cu
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321208.jpg" />
 </div>
 
 
@@ -410,7 +468,7 @@ Midori - A Very Midori Christmas (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321152.jpg" />
 </div>
 
 
@@ -439,7 +497,7 @@ Al Conti - Mystic (2016) [MP3|320 Kbps] <New Age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321008.jpg" />
 </div>
 
 
@@ -468,7 +526,7 @@ Craig Armstrong & Adam Peters - Snowden / Сноуден (Original Soundtrack) +
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320990.jpg" />
 </div>
 
 
@@ -497,7 +555,7 @@ Preludio Italiano - Toccata (2001) [FLAC|Lossless|image + .cue] <Instrumental, P
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320841.jpg" />
 </div>
 
 
@@ -526,7 +584,7 @@ Era - Era (1998) [FLAC|Lossless|image + .cue]<New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320419.jpg" />
 </div>
 
 
@@ -555,7 +613,7 @@ Ennio Morricone - All The Best (2016) [MP3|320 Kbps] <Instrumental, classical, s
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320109.jpg" />
 </div>
 
 
@@ -584,7 +642,7 @@ Two Steps From Hell - Skyworld (2012) [MP3|320 кб/с]<Trailer Music, Epic>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319520.jpg" />
 </div>
 
 
@@ -619,7 +677,7 @@ Eloy Fritsch - The Garden of Emotions (2009) [FLAC|image+.cue]<Electronic, Ambie
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319371.jpg" />
 </div>
 
 
@@ -648,7 +706,7 @@ Medwyn Goodall - Dreamweaver (2014) [MP3|320 кб/с]<New Age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319269.jpg" />
 </div>
 
 
@@ -677,7 +735,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319135.jpg" />
 </div>
 
 
@@ -691,64 +749,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E521AE4E64F73F5B82DF634A5C5305BB270A6756
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331868   (318499) от 18.10.2019
-
-Christopher Phillips - A Conversation With God (2006) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Modern Classical, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Need Thee Every Hour (2:09)
- 02. My Faith Looks Up to Thee (2:17)
- 03. How Firm a Foundation (1:43)
- 04. Come Thou Fount (2:02)(   Читать дальше...   )Жанр: New Age, Instrumental, Modern Classical, PianoПродолжительность: 01:01:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9FCA15E374305761981CF75E0CD351371838968
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332057   (318498) от 18.10.2019
-
-Original Sound Project - RTL präsentiert Ilona Christen Privat Concert (1995) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Conquest Of Paradise (4:52)
-02. Wings Of Harmony (3:22)
-03. Für Elise (3:22)
-04. Circle Of Life (5:12)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:191C959C994027CBA4A0DB61E1AFC874CEC0DFD1
 ```
 
 https://mybot314.ru/tekegram_catalog/

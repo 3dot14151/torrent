@@ -1,3 +1,32 @@
+###  Публикация: 1254971   (370374) от 15.10.2018
+
+Evanescence - Synthesis Live (2018) Japanese Edition [FLAC|lossless|image + .cue] <Alternative Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture / Never Go Back (06:03)
+02. Lacrymosa (03:40)
+03. End of the Dream (04:58)
+04. My Heart is Broken (04:40)(   Читать дальше...   )Жанр: Alternative Metal, Gothic MetalПродолжительность: 01:18:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2AE4F522DE214F0B9FC846DB83684DEB32758E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950458   (370364) от 26.10.2015
 
 Julliet - Julliet (1990) [MP3|320 кб/с]<Hard Rock, Glam>
@@ -6,7 +35,7 @@ Julliet - Julliet (1990) [MP3|320 кб/с]<Hard Rock, Glam>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370364.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370362.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370254.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Electric Angels - Electric Angels (1990) [MP3|320 кб/с]<Hard Rock, Glam>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370253.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Born of Osiris - Soul Sphere (2015) [MP3|320 кб/с]<Progressive Metalcore, Tec
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370237.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370236.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370228.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370227.jpg" />
 </div>
 
 
@@ -244,7 +273,7 @@ Tito & Tarantula - 8 Arms to Hold You (2019) [FLAC|Lossless|WEB-DL|tracks] <Blue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370192.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ The Theander Expression - Strange Nostalgia (2013) [FLAC|Lossless]<Melodic Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370182.jpg" />
 </div>
 
 
@@ -302,7 +331,7 @@ Nutz - Hard Nutz (1976) Reissue, 2007, Universum Records [MP3|320 Kbps] <Rock, H
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370142.jpg" />
 </div>
 
 
@@ -331,7 +360,7 @@ Hallatar - No Stars Upon The Bridge (2017) [MP3|320 Kbps] <Doom Metal, Dark Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370140.jpg" />
 </div>
 
 
@@ -360,7 +389,7 @@ Tito & Tarantula - 8 Arms to Hold You (2019) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370121.jpg" />
 </div>
 
 
@@ -389,7 +418,7 @@ Deftones - The Studio Album Collection (2016) [FLAC|Lossless|WEB-DL|tracks] <Alt
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370113.jpg" />
 </div>
 
 
@@ -418,7 +447,7 @@ BrainStorm - День Дождения LIVE (2019) [MP3|320 Kbps] <Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370091.jpg" />
 </div>
 
 
@@ -447,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370071.jpg" />
 </div>
 
 
@@ -476,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370066.jpg" />
 </div>
 
 
@@ -505,7 +534,7 @@ Masters Of Disguise - Alpha/Omega (2017) [MP3|320 Kbps] <Power Metal, Speed Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369994.jpg" />
 </div>
 
 
@@ -534,7 +563,7 @@ VA - Мы Победили - Великой победе посвящается 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369972.jpg" />
 </div>
 
 
@@ -563,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369958.jpg" />
 </div>
 
 
@@ -592,7 +621,7 @@ Dave Gahan & Soulsavers - Angels & Ghosts (2015) [FLAC|image+.cue]<Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369892.jpg" />
 </div>
 
 
@@ -621,7 +650,7 @@ Platinum Overdose - Murder In High Heels (2019) [FLAC|Lossless|image + .cue] <Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369672.jpg" />
 </div>
 
 
@@ -650,7 +679,7 @@ Schwarzer Engel - Kreuziget Mich (2020) [FLAC|Lossless|image + .cue] <Dark Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369671.jpg" />
 </div>
 
 
@@ -679,7 +708,7 @@ Outlasted - Waiting For Daybreak (2019) Limited Edition [FLAC|Lossless|image + .
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369663.jpg" />
 </div>
 
 
@@ -708,7 +737,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369658.jpg" />
 </div>
 
 
@@ -722,35 +751,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A2BD449868DD03FD1D2987EB1AB4E1F7299421B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416215   (369540) от 15.10.2020
-
-Дмитрий Ревякин - Kosmotango (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369540.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Мандарины
-2. День раздет
-3. Дубровник
-4. Лаэтана(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:156CD51748636F7A08960651E0487117F4937679
 ```
 
 https://mybot314.ru/tekegram_catalog/

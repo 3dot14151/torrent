@@ -6,7 +6,7 @@ VA - Lounge Tribute, Vol. 4 (2010) [AAC|~327 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233248.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Lounge Tribute, Vol. 6 (2012) [AAC|~332 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233240.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Distant Places Lounge, Vol. 1: Chillout Your Mind (2022) [AAC|~312 Kbps] <L
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233230.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Lounge Tribute, Vol. 8 (2014) [AAC|~333 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233200.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Lounge Atmosphere, Vol. 3 (2022) [AAC|~322 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233067.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Lounge Jazz In Mykonos (2022) [AAC|~322 Kbps] <Jazz, Lounge, Easy Listening
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233038.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Slow And Mellow (Relaxing Dinner Nu Soul Tracks) (2022) [AAC|~309 Kbps] <Ja
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233032.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Deep-House Carnival, Vol. 1 (2022) [AAC|~315 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232983.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Seville Orange: Urban Chill Music (2022) [AAC|~328 Kbps] <Lounge, Chill Out
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232976.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Across the Ocean (Lounge Collection), Vol. 3 (2020) [AAC|~320 Kbps] <Lounge
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232968.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Sparadise Lounge, Vol.1 (Boutique Spa Chillout Vibes) (2022) [AAC|~306 Kbps
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232963.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Vanlife Moods, Vol. 2 (2021) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232953.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Little Violet - Code Red (2021) [AAC|~299 Kbps] <Jazz, Swing>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232948.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Ibiza Chillout 2022 (2022) [AAC|~302 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232928.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Vanlife Moods, Vol. 3 (2022) [AAC|~312 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232920.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Sweet Morning (Chill out and Lounge Collection), Vol. 2 (2021) [AAC|~311 Kb
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232900.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Sparadise Lounge, Vol.3 (Boutique Spa Chillout Vibes) (2022) [AAC|~325 Kbps
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232869.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Sparadise Lounge, Vol.2 (Boutique Spa Chillout Vibes) (2022) [AAC|~297 Kbps
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232858.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Across the Ocean (Lounge Collection), Vol. 1 (2020) [AAC|~320 Kbps] <Lounge
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232849.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Heights of Lounge (2019) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232678.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Alice Francis - St. James Ballroom (2014) [AAC|~310 Kbps] <Neo Charleston>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232662.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Across the Ocean (Lounge Collection), Vol. 4 (2020) [AAC|~333 Kbps] <Lounge
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232650.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Lakeside Chill Sounds - Spring (2022) [AAC|~312 Kbps] <Lounge, Chill Out, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232643.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Sweet Morning (Chill out and Lounge Collection), Vol. 3 (2021) [AAC|~317 Kb
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232635.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Dream Widow, Foo Fighters - Dream Widow (2022) [AAC|~331 Kbps] <Thrash Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232622.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - Electro Swing Elite Compilation 2016 (2016) [AAC|~309 Kbps] <Electro, Swing
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232620.jpg" />
 </div>
 
 

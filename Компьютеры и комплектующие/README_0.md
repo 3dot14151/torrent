@@ -6,7 +6,7 @@
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_584999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_584999.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_517653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_517653.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_496572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_496572.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_468277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_468277.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комплексные вопросы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_334661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_334661.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_326183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_326183.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Microsoft Windows 10 Professional до 12 долларов США и беспл�
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_292531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_292531.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Tor и Mullvad VPN подготовили новый web-браузер Mullvad 
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255538.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Apple добавляет в iOS режим Lockdown Mode для защиты о�
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249996.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210039.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Google обещает серьёзно улучшить сервис Google Maps
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206762.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Edge в 5 раз увеличил квоту бесплатного трафик
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_196357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_196357.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Intel покоряет Китай своим новым ИИ-чипом
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_195609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_195609.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_195551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_195551.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Google может сканировать и удалять сохраненны�
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191751.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_191263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_191263.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191135.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Google переводит пользователей Gmail на новый ин�
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_189907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189907.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171823.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_169524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_169524.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_165933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_165933.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_165614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_165614.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145985.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126775.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118016.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_117522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_117522.jpg" />
 </div>
 
 

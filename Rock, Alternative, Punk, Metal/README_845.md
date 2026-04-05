@@ -1,3 +1,32 @@
+###  Публикация: 1565364   (239811) от 23.07.2022
+
+Dark Millennium - Acid River (2022) [FLAC|Lossless|image + .cue] <Progressive Death Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Verger
+02. Godforgotten
+03. Threshold
+04. Lunacy(   Читать дальше...   )Жанр: Progressive Death Metal, Doom MetalПродолжительность: 00:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE9EBBF198A4E7D222B9E10B47BAC12CF54F2A26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1467086   (239809) от 03.05.2021
 
 Oryx - Lamenting a Dead World (2021) [FLAC|Lossless|WEB-DL|tracks] <doom metal, sludge metal>
@@ -6,7 +35,7 @@ Oryx - Lamenting a Dead World (2021) [FLAC|Lossless|WEB-DL|tracks] <doom metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239809.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Shadow of Everest - Where Giants Die (2022) [MP3|320 Kbps] <Progressive Metal, G
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239804.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Trillion Ton Beryllium Ships - Consensus Trance (2022) [MP3|320 Kbps] <Heavy Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239800.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Mystic Circle - Erzdamon (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black, De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239794.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ No One Alive - Don't Leave Your Child Alone (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239788.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Deaf Aid - Hellgate (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239787.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Outroduction - Cubique a Face Centree (2023) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239786.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Gods of Space - 4 Albums (2018-2021) [MP3|320 Kbps] <Sci-Fi Stoner Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239782.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Seer of the Void - Mantra Monolith (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239776.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Altered Dead - Returned To Life (2021) [FLAC|Lossless|image + .cue] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239773.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Phlebotomized - Clouds of Confusion (2023) [FLAC|Lossless|WEB-DL|tracks] <Avant-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239770.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Great Wide Nothing - Hymns for Hungry Spirits, Vol. I (2020) [MP3|320 Kbps] <Pro
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239769.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Cloak - Black Flame Eternal (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239764.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Land Of The Sun - II (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Stoner, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239762.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Vansidian - Reflecting The Shadows (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239758.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ WITCH - Zango (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239755.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Stormage - Ashes Of Doom (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239750.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Trespass - Wolf At The Door (2023) [FLAC|Lossless|WEB-DL|tracks] <NWOBHM, Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239734.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Black Hawk - Soulkeeper (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239733.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Alien - Into The Future (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Me
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239732.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Terrifier - Trample the Weak, Devour the Dead (2023) [MP3|320 Kbps] <Thrash Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239726.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Cran Arcanaria - Raging Raven (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239716.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Bully - Lucky For You (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239708.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ VA - The Devil's Blues Christmas (2015) [MP3|320 Kbps] <Rock, Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239704.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ The Silent Rage - Nuances Of Life (2023) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239702.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ The Silent Rage - Nuances Of Life (2023) [MP3|320 Kbps] <Heavy, Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1556E0AB79E7A1F36FEDD0AC31BD58030328DB50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422122   (239690) от 07.11.2020
-
-ReVamp - Wild Card (2013) Limited Edition [FLAC|Lossless|image + .cue] <Symphonic Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Anatomy of a Nervous Breakdown: On the Sideline (3:46)
-02. The Anatomy of a Nervous Breakdown: The Limbic System (4:54)
-03. Wild Card (4:22)
-04. Precibus (4:25)(   Читать дальше...   )Жанр: Symphonic Metal, Heavy MetalПродолжительность: 00:53:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:673C3731B47E370ED02A12CDD71483BFA9A6F560
 ```
 
 https://mybot314.ru/tekegram_catalog/

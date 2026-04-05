@@ -1,3 +1,61 @@
+###  Публикация: 1028669   (688506) от 23.06.2016
+
+Marcin Przybylowicz - The Witcher 3 Wild Hunt - Hearts Of Stone (Original Soundtrack) (2015) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hearts of Stone (02:54)
+02. Go Back Whence You Came (01:45)
+03. You're... Immortal? (02:54)
+04. Evil's Soft First Touches (02:48)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:25:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D5E594E28C7C75E42DAB1DBB063761FDC3A9AF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028665   (688392) от 23.06.2016
+
+Marcin Przybylowicz and Mikolai Stroinski - The Witcher 3 Wild Hunt (Original Soundtrack) (2015) (Extended Edition) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marcin Przybylowicz - The Trail (02:50)
+02. Marcin Przybylowicz - Geralt of Rivia (02:22)
+03. Marcin Przybylowicz - Eredin, King of the Hunt (02:27)
+04. Mikolai Stroinski - Wake Up, Ciri (01:34)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:58:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81CE68DDC81912008F612950CDD209F523916EE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289335   (688278) от 15.03.2019
 
 АЛЁNA - ЧАС (2019) [MP3|320 Kbps] <Folk>
@@ -6,7 +64,7 @@
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688278.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Marcin Przybylowicz, Mikolai Stroinski & Piotr Musial - The Witcher 3 Wild Hunt 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688246.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Mumford & Sons - 20 Albums (2008-2016) 7 Albums, 13 EP & Singles [FLAC|Lossless]
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688238.jpg" />
 </div>
 
 
@@ -90,7 +148,7 @@ Danny Bensi & Saunder Jurriaans - LA 92 / Лос-Анджелес 92 (Original N
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687429.jpg" />
 </div>
 
 
@@ -119,7 +177,7 @@ VA - Los clasicos argentinos - Tango - Vol.18 - Horacio Salgan: La magia de un c
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687345.jpg" />
 </div>
 
 
@@ -148,7 +206,7 @@ Danny Bensi & Saunder Jurriaans - LA 92 / Лос-Анджелес 92 (Original N
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687333.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ Harry Gregson-Williams - The Zookeeper's Wife / Жена смотрителя з
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687238.jpg" />
 </div>
 
 
@@ -206,7 +264,7 @@ Daniel Pemberton - The Counselor / Советник (Original Motion Picture Sou
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687218.jpg" />
 </div>
 
 
@@ -235,7 +293,7 @@ Elevation - Days of Elijah (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instru
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686767.jpg" />
 </div>
 
 
@@ -264,7 +322,7 @@ Lula Wiles - What Will We Do (2019) [FLAC|Lossless|WEB-DL|tracks] <American Folk
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686739.jpg" />
 </div>
 
 
@@ -293,7 +351,7 @@ The Way Down Wanderers - illusions (2019) [FLAC|Lossless|tracks + .cue] <Country
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686641.jpg" />
 </div>
 
 
@@ -322,7 +380,7 @@ VA - The Buddy Holly Story (1978) 2020 / Original Motion Picture Soundtrack / De
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686579.jpg" />
 </div>
 
 
@@ -351,7 +409,7 @@ VSOP (Vienna Symphonic Orchestra Project) - Classic Meets Pop (1989) [FLAC|Lossl
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686476.jpg" />
 </div>
 
 
@@ -380,7 +438,7 @@ VSOP - Vienna Symphonic Orchestra Project (1986) [FLAC|Lossless|image + .cue] <I
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686470.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ VSOP (Vienna Symphonic Orchestra Project) - Classic & Rock - Die Neue Dimension 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686469.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ VSOP (Vienna Symphonic Orchestra Project) - Symphonic Rock (1987) [FLAC|Lossless
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686462.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ Marcin Przybylowicz & PERCIVAL - The Witcher 3 Wild Hunt (Pre-Order EP Soundtrac
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686253.jpg" />
 </div>
 
 
@@ -496,7 +554,7 @@ Ivan Torrent - Reverie: The Compilation Album (2014) [FLAC|Lossless|WEB-DL|24/48
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686124.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ Ivan Torrent - Immortalys (2017) [FLAC|Lossless|WEB-DL|24/44.1-88.2 kHz] <Traile
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686102.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ Ramin Djawadi - Game of Thrones / Игра престолов (Music from the HB
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686101.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ Ramin Djawadi - Game of Thrones / Игра престолов (Music from the HB
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685961.jpg" />
 </div>
 
 
@@ -612,7 +670,7 @@ Joseph Nimoh - Reflections (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685154.jpg" />
 </div>
 
 
@@ -641,7 +699,7 @@ VA - Thunderbolts and Rain Amazing Sounds of Mother Earth for Deep Meditation (2
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684857.jpg" />
 </div>
 
 
@@ -670,7 +728,7 @@ Bear McCreary - God of War (2018) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684816.jpg" />
 </div>
 
 
@@ -684,64 +742,6 @@ Bear McCreary - God of War (2018) [MP3|320 Kbps] <Score>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1C2C6BC63D5A74940DA71F5B17CB8F289639621
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028971   (684545) от 25.06.2016
-
-Martin Iveson - Fighting Force 2 (1999) [MP3|320 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рип сделан на основе образа игры, музыка была извлечена из самого образа игры01. Main Menu
-02. Stage 1
-03. Stage 2
-04. Stage 3(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:37:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B458B4B9455B67E35C5BE408305802B441C49C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289713   (684333) от 17.03.2019
-
-Lab Report ‎ - Terminal (Original Soundtrack) (1995) [FLAC|Lossless|image + .cue] <Industrial, Experimental>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684333.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Information 5:42
-2. Becoming Aware 4:53
-3. The Act 8:57
-4. Contemplation 4:27(   Читать дальше...   )Жанр: Industrial, ExperimentalПродолжительность: 00:58:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57D910D00F668A58A6169F645DB4FE06F6B30EAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

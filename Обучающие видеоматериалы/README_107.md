@@ -1,3 +1,29 @@
+###  Публикация: 1396172   (748036) от 14.07.2020
+
+[Специалист] Перлин Владислав | QPT - PostgreSQL. Оптимизация запросов (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748036.jpg" />
+</div>
+
+
+###  Подробнее
+
+PostgreSQL – одна из самых популярных свободно распространяемых реляционных СУБД. Это программное обеспечение полностью соответствует современным стандартам языка SQL. PostgreSQL позволяет создавать надежные хранилища для большого объема данных с возможностью расширения и репликации. В России PostgreSQL используют многие интернет-проекты: Рамблер, Яндекс, Mail.ru, (   Читать дальше...   )Производство: СпециалистЖанр: СУБД, QPT, PostgreSQLПродолжительность: 11:51:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE67C24F8EF6636413A0552AAD9DCA57A0B74074
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1523952   (747769) от 13.01.2022
 
 ZoomSchool, Екатерина Степанова | Пошив нижнего белья (2021) WEB-DL [AD]
@@ -6,7 +32,7 @@ ZoomSchool, Екатерина Степанова | Пошив нижнего б
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747769.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747760.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ TRX TV | Condition to Win (2011) WEB-DLRip [H.264][EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747712.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ TRX TV | Strength (2011) WEB-DLRip [H.264][EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747707.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ TRX TV | Get Mobile (2011) WEB-DLRip [H.264][EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747706.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ Gumroad, Josh Gambrell and Ponte Ryuurui | The ULTIMATE Guide to Hard Ops and Bo
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747633.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ TRX TV | Flow Mobility (2011) WEB-DLRip [H.264][EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747569.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ TRX TV | 3D Strong (2011) WEB-DLRip [H.264][EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747568.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ TRX TV | Power (2011) WEB-DLRip [H.264][EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747565.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ TRX TV | Endurance (2011) WEB-DLRip [H.264][EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747563.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ TRX TV | Absolute Power (2011) WEB-DLRip [H.264][EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747559.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ TRX TV | StayMobile (2011) WEB-DLRip [H.264][EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747556.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_747280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_747280.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ insidetheedit.com | Видеомонтаж изнутри / Inside The Edit (201
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746528.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ GeekBrains | Основы сетей передачи данных. Модель
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746404.jpg" />
 </div>
 
 
@@ -408,7 +434,7 @@ Udemy, Scott Harris | Character Art School: Complete Coloring and Painting Cours
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746153.jpg" />
 </div>
 
 
@@ -434,7 +460,7 @@ Cybrary | Advanced Penetration Testing (2021) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746148.jpg" />
 </div>
 
 
@@ -462,7 +488,7 @@ Udemy | The Complete Android Oreo Developer Course - Build 23 Apps! (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746144.jpg" />
 </div>
 
 
@@ -490,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746033.jpg" />
 </div>
 
 
@@ -519,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745940.jpg" />
 </div>
 
 
@@ -548,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745275.jpg" />
 </div>
 
 
@@ -577,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745073.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ Patreon, YanSculpts| Character Sculpt in Blender [Packages 22-25] (2019-2020) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_744782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_744782.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744315.jpg" />
 </div>
 
 
@@ -660,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744256.jpg" />
 </div>
 
 
@@ -671,34 +697,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41120A43E45BCDF99E4B80CC6EAB7B254C2FAAE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 890260   (744249) от 20.04.2015
-
-В.Непочатов, Д.Виноградов | Android... это несложно. Разработка приложений и cоздание игр для ОС Android (2013-2015) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744249.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеокурс содержит уроки по программированию и разработке Android приложений и игр для смартфонов и планшетов, тесты, практические задачи, обзоры полезных инструментов и ресурсов для Android разработчиков, а также решения часто возникающих вопросов и проблем с которыми сталкиваются Android разработчики. Уроки предназначены для начинающих пользователей, не имеющих опыта разработки мобильных приложений.
-
-В видеоуроках курса, последовательно, от простого к сложному, отражены основные принципы и технологии разработки (   Читать дальше...   )Жанр: Разработка, ПрограммированиеПродолжительность: 16:09:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13498B110EB3CD4540B56D54CC1B379612EF4B12
 ```
 
 https://mybot314.ru/tekegram_catalog/

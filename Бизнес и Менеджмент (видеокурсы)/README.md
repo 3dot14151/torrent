@@ -7,7 +7,7 @@ ProFinansy, Ольга Гогаладзе | Облигационная зарп�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062805.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ ProFinansy, Наталья Котовская, Никита Прокофьев, 
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062799.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ ProFinansy, Ольга Гогаладзе | Инвестстарт (2024) PCRec 
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062794.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ ProFinansy, Павел Гогаладзе | Запись интенсива по
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062739.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ ProFinansy, Ольга Гогаладзе | Я - инвестор (2021) WEB-DL,
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062685.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ ProFinansy, Наталья Котовская, Эльдар Джабраилов
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062626.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ TutorPlace, Диана Кутепова | Стилист для начинающ
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059800.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059799.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ TutorPlace, Любовь Даняева | Как стать руководите
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058951.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ ProFinansy, Наталья Котовская, Тамара Карапетян |
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058945.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055302.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Eduson Academy, Eduson Academy | Soft skills для руководителя (20
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054749.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ ProFinansy, Ольга Гогаладзе | Золотой курс (2025) PCRec
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054087.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052009.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ ProFinansy, Юлия Ченцова | Ребалансировка портфе�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051476.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ ProFinansy, Ольга Гогаладзе, Павел Гогаладзе | Ин�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050990.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ ProFinansy, Ольга Гогаладзе | Как создать себе ст�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1050645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050645.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ ProFinansy, Светлана Смирнова | Как инвестироват�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049297.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049296.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049295.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ TutorPlace, Лина Максунова | Soft skills (2025) WEB-DL [RU]
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049290.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048446.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048442.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ TutorPlace, Нина Култышева | Финансовая грамотно�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047944.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ TutorPlace, Ирина Аксёнова | Личный капитал (2025) WEB
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047943.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ ProFinansy, Наталья Котовская, Ольга Гогаладзе | �
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046978.jpg" />
 </div>
 
 

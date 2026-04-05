@@ -1,3 +1,61 @@
+###  Публикация: 1132775   (698684) от 10.05.2017
+
+VA - Dishonored 2 (Original Game Soundtrack) (2016) [MP3|200-275 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daniel Licht - Dishonored 2 Main Theme (02:37)
+02. Daniel Licht - Aristocrats of Karnaca (Ambient) (01:07)
+03. Daniel Licht - Aristocrats of Karnaca (Suspense) (02:47)
+04. Daniel Licht - The Dreadful Wale (01:08)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:35:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B00A03643092FF3BCEC7CDA3E2BECEA266F349A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132063   (698497) от 10.05.2017
+
+VA - Horizon Zero Dawn (Original Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Flight - The Spreading Eclipse - Part 4 - Secrets Of The Earth (05:36)
+02. The Flight - The Demon Remade - Part 4 - Secrets Of The Earth (01:26)
+03. Joris de Man - Force Multiplication - Part 4 - Secrets Of The Earth (04:00)
+04. The Flight - Buried Shadow - Part 4 - Secrets Of The Earth (00:57)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 04:00:35 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D38AAE636F5B7BBBAA34B1F2ED98E6B155A539BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027189   (698462) от 18.06.2016
 
 John Ottman & David Buckley - The Nice Guys / Славные парни (Original Motion Picture Score) (2016) [MP3|320 кб/с]<Score>
@@ -6,7 +64,7 @@ John Ottman & David Buckley - The Nice Guys / Славные парни (Origina
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698462.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ John Ottman & David Buckley - The Nice Guys / Славные парни (Origina
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698242.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Thomas Newman - Finding Dory / В поисках Дори (Original Motion Pictu
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698122.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Hans Zimmer & Junkie XL - Batman v Superman: Dawn Of Justice / Бэтмен пр
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697914.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Pam Tillis - Homeward Looking Angel (1992) [FLAC|Lossless|tracks + .cue] <Folk, 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697766.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Cris Velasco - Clive Barker's Jericho (2007) Soundtrack [MP3|~245 Kbps (V0)] <Sc
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697761.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ OST - Mick Gordon - DOOM (2016) [MP3|320 кб/с] <Electronic / Progressive Meta
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697694.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_697360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_697360.jpg" />
 </div>
 
 
@@ -244,7 +302,7 @@ Peru - Constellations (1989) [FLAC|Lossless|tracks + .cue] <New Age, Synth-pop>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696991.jpg" />
 </div>
 
 
@@ -273,7 +331,7 @@ Parijat - Blessings (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696942.jpg" />
 </div>
 
 
@@ -302,7 +360,7 @@ Medwyn Goodall - The Sorcerer's Daughter 2 (2017) [FLAC|Lossless|WEB-DL|tracks] 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696931.jpg" />
 </div>
 
 
@@ -331,7 +389,7 @@ Sverre Knut Johansen - Secret Space Program (2017) [FLAC|Lossless|WEB-DL|tracks 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696872.jpg" />
 </div>
 
 
@@ -360,7 +418,7 @@ Damien Dubois - L'instant sacré (2018) [MP3|320 Kbps] <New age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696795.jpg" />
 </div>
 
 
@@ -389,7 +447,7 @@ Robert Miles - Child of Dream (2001) Bootleg [FLAC|Lossless|image + .cue] <Tranc
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696585.jpg" />
 </div>
 
 
@@ -418,7 +476,7 @@ Thomas Wander & Harald Kloser - Independence Day: Resurgence / День неза
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696534.jpg" />
 </div>
 
 
@@ -447,7 +505,7 @@ VA - The Nice Guys / Славные парни (Original Motion Picture Soundtra
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696528.jpg" />
 </div>
 
 
@@ -476,7 +534,7 @@ Thomas Wander & Harald Kloser - Independence Day: Resurgence / День неза
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696412.jpg" />
 </div>
 
 
@@ -505,7 +563,7 @@ Micki Free - The Native American Flute As Therapy (2016) [MP3|320 Kbps] <New Age
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695124.jpg" />
 </div>
 
 
@@ -534,7 +592,7 @@ Majestica - In the Midst of Stars (2016) [MP3|320 кб/с] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_694837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_694837.jpg" />
 </div>
 
 
@@ -563,7 +621,7 @@ Kavin Hoo - Chi: Music for Balance & Relaxation (2011) [FLAC|Lossless|tracks + .
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694834.jpg" />
 </div>
 
 
@@ -592,7 +650,7 @@ Jupiter Panic - Moments of Nostalgia (2016) [FLAC|Lossless|WEB-DL|tracks] <Elect
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_694833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_694833.jpg" />
 </div>
 
 
@@ -621,7 +679,7 @@ Anugama - 19 albums (1986 - 2000) [MP3|320 kbps]<New age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694820.jpg" />
 </div>
 
 
@@ -656,7 +714,7 @@ Tom Eaton - Abendromen (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694708.jpg" />
 </div>
 
 
@@ -685,7 +743,7 @@ Mark Dwane - Ufology (2016) [MP3|320 кб/с] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694697.jpg" />
 </div>
 
 
@@ -699,64 +757,6 @@ Mark Dwane - Ufology (2016) [MP3|320 кб/с] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FFDD4AE10542E298046EF8900CE1255928D779ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027583   (694558) от 20.06.2016
-
-Jupiter Panic - Distant Tomorrow (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Distant Tomorrow Part 1 [00:03:39]
-02. Distant Tomorrow Part 2 [00:03:31]
-03. Descension [00:05:49]
-04. Anti-Gravity [00:03:49](   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 00:56:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A654E08D41DCAF8927B984947A82DE84B059997
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027580   (694554) от 20.06.2016
-
-Mark Dwane - Ufology (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ufology [00:05:18]
-02. Saucers over Stonehenge [00:06:47]
-03. Suspended Animation [00:05:53]
-04. Roswell (feat- Annaspaceia) [00:04:12](   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 00:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F78AD9FE89CF8687A3B40E64C37AC0535D03141A
 ```
 
 https://mybot314.ru/tekegram_catalog/

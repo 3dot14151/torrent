@@ -1,3 +1,61 @@
+###  Публикация: 1209363   (779388) от 26.02.2018
+
+VA - Best Of Chillout 2018 Vol.02 (2018) [MP3|320 Kbps] <Downtempo, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  DJSaint  -  Souls (Harold-Alexis Remix)  6:06
+02.  Data Rebel  -  Broken Note (Original Mix)  5:26
+03.  Puremusic  -  Closer (SineRider Remix)  6:17
+04.  Jama & Stendahl  -  Follow Me (Original Mix)  4:21(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 01:55:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63FE8599E8140CB07E5E6AA2EA9D281179B98169
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209498   (779301) от 27.02.2018
+
+VA - FG Top 10 February 2018 [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Orphyd - Apex (Original Mix) 06:18
+02. Francesco Sambero - Uoy (Original Mix) 05:46
+03. Novan Vs. Titus1 - Only Love (feat Luke McMaster - Max Freegrant extended remix) 05:28
+04. Amst - Sexerei (Original Mix) 06:15(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:59:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9119FB94A7CC6DD74B26F1E9125864CCE0E342F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209624   (779300) от 27.02.2018
 
 VA - Faces Of House Vol.4 (2018) [MP3|320 Kbps] <House, Funky House, Groove House>
@@ -6,7 +64,7 @@ VA - Faces Of House Vol.4 (2018) [MP3|320 Kbps] <House, Funky House, Groove Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779300.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Chilling Sounds, Vol. 6 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779299.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Hed Kandi Anthems & Artwork (2010) [FLAC|Lossless|tracks] <House, Electro, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779298.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Sexy Lounge Music Songs Selection for Dj (2018) [MP3|320 Kbps] <Chillout, L
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779295.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Mount Everest: The Base Camp Mix (Mixed by Paul Oakenfold) (2018) [MP3|320 
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779262.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Fritz Kalkbrenner - Drown (2018) [FLAC|Lossless|WEB-DL|tracks] <Tech House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779230.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Dance All Night Vol. 1 (2018) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779157.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Hed Kandi: Fit & Fabulous (2010) [FLAC|Lossless|tracks] <House, Electro Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779155.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Rooftop Lounge The Sounds of Chillout (2018) [MP3|320 Kbps] <Balearic, Down
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779153.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA-Artistic Dance Zone 14 (2018) [MP3|320 Kbps] <House, Tech House, Deep House, 
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779152.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Smolik - Smolik3 (2006) [FLAC|Lossless|tracks + .cue] <Downtempo, Nu-Jazz, Chill
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779140.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Molecule (Molécule) Collection 4 Releases (2016-2018) Because Music [FLAC|Lossl
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779135.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Future Trance Vol.83 (2018) [MP3|320 Kbps] <Trance, Progressive House, Prog
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779133.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ ScAnDroid Experiment's - Fera Venator (2018) Single, Авторская разд
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778951.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Chilling Sounds, Vol. 8 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778877.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Urban Love - Renditions, Pt. 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <Balearic, D
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778874.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - The Blossoming Flower (Soulful Music For Positivity, Good Energy & Stress R
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778873.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Armada Miami (2018) [MP3|320 Kbps] <House, Progressive, Trance>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778869.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Moby - Everything Was Beautiful And Nothing Hurt (2018) [MP3|320 Kbps] <Downtemp
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778823.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Moby - Everything Was Beautiful And Nothing Hurt (2018) [FLAC|Lossless|WEB-DL|tr
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778817.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Aether - Flower in Winter (2018) [MP3|320 Kbps] <Ambient, Chill Step, Garage>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778730.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Oliver Schories - Blitzbahn (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778725.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Music Garden to Chill Out your Mind (2018) [MP3|320 Kbps] <Downtempo, Loung
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778718.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ David Vendetta - Rendez-Vous (2007) 541 [MP3|320 Kbps] <House, Progressive House
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778717.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ David Vendetta - Rendez-Vous (2007) 541 [MP3|320 Kbps] <House, Progressive House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEAEF534F86FD4D51C8137200560CF086FF0284A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210706   (778567) от 04.03.2018
-
-VA - Sweet Winter Lounge (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Neber Sover  -  Bossa River  4:40
-02.  Uprising Alchemy  -  Kleine Wansee  5:51
-03.  Lime And Shine  -  Handling Symonette  4:58
-04.  Mephia  -  Sequoia Symposium  3:37(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:22:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3972495BE23963C491086A0C08A1CF99E840DBF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210719   (778566) от 04.03.2018
-
-VA - Easy Winter Chill (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Maurid  -  Valve Radio (Original Mix)  5:45
-02.  Haxxy  -  Dark Veins (Original Mix)  4:40
-03.  Marc Hartman  -  To The Silver Angel (Dedicated To Frits van Swoll)  4:16
-04.  Muzikfabrik & Big John Whitfield feat. Imola  -  Change My Mind (Paperdeer Alternative Remix)  4:20(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:33:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53A590F5E7ECEF3BDAA0DB3437F77542189BC153
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 973729   (978065) от 10.01.2016
+
+Г. А. Тимофеев | Теория механизмов и машин: курс лекций (2009) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изложены основы теории механизмов и машин (ТММ), изучены свойства отдельных типов механизмов, широко применяемых в самых разных машинах, приборах и устройствах; рассматриваются задачи совершенствования современной техники, создания новых высокопроизводительных машин и систем, освобождающих человека от трудоемких процессов. ТММ базируется на методах математического (   Читать дальше...   )Жанр: Машиностроение, механика машин, Лекции для высшей школыФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1E9F49A3F3AF5573E539E8DF27FE5C888288A0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356842   (976663) от 01.02.2020
+
+А.В. Аминев, А.В. Блохин | Основы радиоэлектроники: измерения в телекоммуникационных системах (2019) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976663.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии излагаются основные сведения о современных методах и средствах измерений параметров телекоммуникационных систем. Наряду с традиционными электрорадиоизмерениями, такими как измерения тока, напряжения, мощности, частоты, фазового сдвига, радиопомех, спектров сигналов, параметров элементов электрических цепей, рассматриваются средства измерений, предназначенные (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83AD3BE5D5D1D866CDB5ECA0F13DE31568AA0C38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356860   (976458) от 01.02.2020
 
 В.Ш. Берикашвили | Основы радиоэлектроники: системы передачи информации (2019) [PDF]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976458.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976391.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975536.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975468.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975371.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975179.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974531.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974525.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974478.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974408.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974217.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974213.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972997.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972418.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968714.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968711.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968638.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968533.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968454.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967228.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967083.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967014.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966008.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965951.jpg" />
 </div>
 
 
@@ -626,60 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CB1915EBDBC2F75F45A855EC6516A92789F42CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359385   (965063) от 11.02.2020
-
-П.Ю. Волощенко, Ю.П. Волощенко | Основы теории цепей: одномерная нелинейная электрическая и электронная волновая цепи (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965063.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное пособие, содержащее новые научно-теоретические сведения, в удобной форме излагает основы теории одномерной нелинейной электрической и электронной волновой цепи в случаях переходных резонансных и стационарных состояний.
-Эти знания необходимы студентам необходимы для последовательного аналитического и адекватного численного расчета взаимодействия свободных зарядов (   Читать дальше...   )Жанр: ЭлектроникаИздательство: ЮрайтФормат: PDFКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DE7AD0108548F51756F95604CFD0256B6FC4288
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977661   (964474) от 22.01.2016
-
-Барри Уильямс | Силовая электроника: приборы. применение, управление (1993) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964474.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приведены основные сведения о мощных полупроводниковых приборах-диодах, биполярных и полевых транзисторах, тиристорах. Рассмотрены вопросы работы этих приборов на нагрузку, их параллельные и последовательные схемы соединения.
-Дан анализ применения мощных полупроводниковых приборов в устройствах преобразования электрической энергии: регуляторах напряжения, тиристорных (   Читать дальше...   )Жанр: ЭлектроникаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:041115B618EE6954AF079EC1A1A8A5B7C9315000
 ```
 
 https://mybot314.ru/tekegram_catalog/

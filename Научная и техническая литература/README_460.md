@@ -1,135 +1,3 @@
-###  Публикация: 1182861   (312479) от 12.11.2017
-
-В.В. Дмитриев, Л.Д. Дымченко | Основы социологии и политологии (2012) [FB2, EPUB]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312479.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие создано с целью сформировать у студентов представление об основных категориях социологии и политологии, закономерностях развития общества, государства, политической системы, истории политической мысли. Особое внимание уделено проблемам личности, ее социализации, в том числе в общественно-политической жизни.Жанр: Психология, СоциологияФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:395500DB62FA173136BA556B3BD1C53DD28D9315
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182885   (312475) от 12.11.2017
-
-И.А. Кельмансон | Перинатология и перинатальная психология (2015) [FB2, EPUB]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312475.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие посвящено актуальным вопросам перинатологии и перинатальной психологии, знание которых требуется для подготовки клинических психологов. Издание содержит важнейшие сведения о развитии эмбриона и плода, формировании его компетенций. Рассматриваются изменения в организме женщины во время беременности и связанные с этим психологические проблемы. Обсуждается (   Читать дальше...   )Жанр: МедицинаФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D03EC5A4C329C23762B19B01F7B85AEE5517289A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183143   (312471) от 12.11.2017
-
-Марат Борисович Ботвинник | Откуда есть пошел букварь (1983) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312471.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказывается о зарождении и развитии книги для обучения грамоте, раскрываются духовные богатства учебной литературы, созданные трудом замечательных просветителей, книгопечатников, педагогов, гуманистов XVI-XVII веков - Ивана Федорова, Лаврентия Зизания, Мелетия Смотрицкого, Спиридона Соболя, Василия Бурцова, Симеона Полоцкого, Кариона Истомина, Федора Поликарпова. (   Читать дальше...   )Жанр: ЛитературоведениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5396A8ADCC61421B99786C820EA41F904639BDA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182887   (312463) от 12.11.2017
-
-П.И. Сидоров и др. | Перинатальная психология (2015) [FB2, EPUB]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312463.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие дает основное представление о перинатальном периоде, об адаптации новорожденного; формировании психологической симбиотической связи в диаде «мать – плод», «мать – новорожденный», представляет психологические аспекты перинатальной помощи и пренатальной педагогики.
-Пособие ориентировано на студентов психологических вузов.Жанр: ПсихологияФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9532AF3064120266837DF63CFC15F86A3F01427
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959899   (312409) от 26.11.2015
-
-Артём Драбкин | Я взял Берлин и освободил Европу (2015) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Победная весна 1945 года. Красная Армия рвется к Берлину – «добить фашистскую гадину в ее логове». Война подходит к концу, и у солдат впервые забрезжила надежда выжить. Но впереди еще последние бои – самые трудные и кровавые, которые разделят их на живых и мертвых…
-«Бои в Берлине шли страшные. Под ногами валялись оторванные головы, было месиво. И чем ближе к центру, (   Читать дальше...   )Жанр: Биографии и Мемуары, Военная документалистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06E152788AA69917D34415F5B9C1C5E9FA3F7DB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182875   (312350) от 12.11.2017
 
 Н.А. Курчанов | Антропология и концепции биологии (2007) [FB2, EPUB]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312350.jpg" />
 </div>
 
 
@@ -165,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312344.jpg" />
 </div>
 
 
@@ -194,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312341.jpg" />
 </div>
 
 
@@ -221,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312336.jpg" />
 </div>
 
 
@@ -248,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312303.jpg" />
 </div>
 
 
@@ -274,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312262.jpg" />
 </div>
 
 
@@ -300,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312255.jpg" />
 </div>
 
 
@@ -326,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312193.jpg" />
 </div>
 
 
@@ -352,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312192.jpg" />
 </div>
 
 
@@ -378,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312178.jpg" />
 </div>
 
 
@@ -404,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312175.jpg" />
 </div>
 
 
@@ -430,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312066.jpg" />
 </div>
 
 
@@ -457,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312061.jpg" />
 </div>
 
 
@@ -483,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312045.jpg" />
 </div>
 
 
@@ -511,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312041.jpg" />
 </div>
 
 
@@ -537,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312031.jpg" />
 </div>
 
 
@@ -563,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311910.jpg" />
 </div>
 
 
@@ -590,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311902.jpg" />
 </div>
 
 
@@ -616,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311862.jpg" />
 </div>
 
 
@@ -642,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311861.jpg" />
 </div>
 
 
@@ -669,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311839.jpg" />
 </div>
 
 
@@ -682,6 +550,141 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FC623C75DE53A328D0726DEE03B207DC61BC7C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260204   (311838) от 07.11.2018
+
+Ян Мортимер | Средневековая Англия. Путеводитель путешественника во времени (2015) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311838.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прошлое - другой мир. И эта книга - ваш путеводитель. Представьте, что машина времени перенесла вас в четырнадцатый век… Что вы видите? Как одеваетесь? Как зарабатываете на жизнь? Сколько вам платят? Что вы едите? И где живете?
+Автор книг, доктор исторических наук Ян Мортимер, раз и навсегда изменит ваш взгляд на средневековую Англию, показав, что историю можно изучить, (   Читать дальше...   )Жанр: История, КультурологияПеревод: Андрей ЗахаровФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E996E0B89165A36F4E5FC3A7D29F6D8C63E2FC37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332523   (311813) от 21.10.2019
+
+Атанас Стойков | После заката абстракционизма (1974) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311813.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящая работа представляет собой критический очерк основных течений в современном изобразительном модернистском искусстве.Жанр: История, политология, философия, искусство, культурология, социология, публицисткаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FCFCE3C11E4C44AF7E966AC365ACDB0955538B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959733   (311747) от 26.11.2015
+
+А.В. Родин (ред.), Н.А. Тюнин (ред.) | Современные бюджетные ЖК телевизоры (2015) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311747.jpg" />
+</div>
+
+
+###  Подробнее
+
+В очередной книге серии «Ремонт» описаны популярные модели современных жидкокристаллических телевизоров компаний JVC, RAINFORD, PHILIPS, SAMSUNG, SONY и VESTEL производства 2009—2012 гг.
+Рассмотрены девять телевизионных шасси, на основе которых выпускается более 40 моделей стационарных телевизоров с диагоналями экрана от 14 до 42 дюймов. По каждой модели приводятся: (   Читать дальше...   )Жанр: ТелевидениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E6CC693142DFED38ECEB91701B96A7809229034
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332637   (311657) от 21.10.2019
+
+А.П. Клищенко (ред.) | Атомная физика. Теоретические основы и лабораторный практикум (2011) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Содержит наиболее важные темы курса «Физика атома и атомных явлений» и 18 лабораторных работ, 7 из которых выполняются путем компьютерного моделирования физических явлений и численного решения стационарного уравнения Шрёдингера.
+Каждая лабораторная работа включает краткое изложение теории, описание экспериментальной установки или моделирующей программы, порядок выполнения, (   Читать дальше...   )Жанр: ФизикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8237DCE59737F8FB37709B510D927720F2E7580C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332607   (311653) от 21.10.2019
+
+Атул Гаванде | Тяжелый случай. Записки хирурга (2019) [FB2]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311653.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга Атула Гаванде, практикующего хирурга и известного популяризатора науки, – блестящее, смелое и невероятно увлекательное повествование о буднях врача, ежедневно имеющего дело с жизнью и смертью, вынужденного принимать решения подчас в ситуациях, когда наука ненадежна, информация ограничена, а ставкой является жизнь человека.
+
+Рассказывая трогательные, пронзительные (   Читать дальше...   )Жанр: Медицина, Биографии и МемуарыПеревод: Наталья КолпаковаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A873D496EE1B0372CF8AFF99CB0E06D6BBD03CCD
 ```
 
 https://mybot314.ru/tekegram_catalog/

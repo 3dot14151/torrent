@@ -1,3 +1,29 @@
+###  Публикация: 1332063   (318343) от 18.10.2019
+
+Пронько. Экономика «Налог Чубайса» спровоцирует рост цен и тарифов населению, но не олигархам (17.10.2019) WEBRip
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Совет Федерации пока не поддержал предложенную Минэкономразвития редакцию законопроекта об углеродном налоге, который получил название «налог Чубайса». Именно глава «Роснано» ещё в июне предложил ввести в России новый побор. По его словам, таким образом можно стимулировать промышленников сокращать вредные выбросы. Чубайс предлагает равняться на Европу, но почему-то (   Читать дальше...   )Телекомпания: ЦарьградЖанр: НовостиПродолжительность: 00:40:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB784BD85CCE4BED18731730ECCF4B457D596B23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 131498   (315453) от 24.11.2016
 
 Проект "Общее дело": Культура пития, - возможна ли она на самом деле? (2009) SATRip
@@ -6,7 +32,7 @@
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315453.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315004.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314846.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314823.jpg" />
 </div>
 
 
@@ -117,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314760.jpg" />
 </div>
 
 
@@ -143,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314574.jpg" />
 </div>
 
 
@@ -169,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314371.jpg" />
 </div>
 
 
@@ -195,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314351.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312599.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312469.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312259.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312029.jpg" />
 </div>
 
 
@@ -327,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312025.jpg" />
 </div>
 
 
@@ -356,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310210.jpg" />
 </div>
 
 
@@ -382,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309277.jpg" />
 </div>
 
 
@@ -408,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309073.jpg" />
 </div>
 
 
@@ -434,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307826.jpg" />
 </div>
 
 
@@ -460,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305411.jpg" />
 </div>
 
 
@@ -487,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305311.jpg" />
 </div>
 
 
@@ -513,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304639.jpg" />
 </div>
 
 
@@ -539,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303376.jpg" />
 </div>
 
 
@@ -566,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_301672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_301672.jpg" />
 </div>
 
 
@@ -593,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301414.jpg" />
 </div>
 
 
@@ -619,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300319.jpg" />
 </div>
 
 
@@ -645,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298906.jpg" />
 </div>
 
 
@@ -656,32 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8036029A5F5B7319734908425CA5A3DAC811CE37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962012   (296877) от 03.12.2015
-
-Ежегодное послание Президента РФ В. В. Путина Федеральному Собранию (03.12.2015) WEB-DL [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ежегодное послание Президента РФ В. В. Путина Федеральному Собранию.Производство: RTЖанр: Документальный, политикаПродолжительность: 01:05:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADAD31383FAF8DB46F2520C503DD019685126DA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

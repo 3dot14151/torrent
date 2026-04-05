@@ -1,107 +1,3 @@
-###  Публикация: 1282511   (744709) от 12.02.2019
-
-Как не стать президентом / The Front Runner (2018) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744709.jpg" />
-</div>
-
-
-###  Подробнее
-
-За многие годы карьеры в политике сенатор Гэри Харт создал себе идеальную репутацию. В 1988 году он баллотируется в президенты с прогрессивной программой, в частности в экономике. Его предвыборный штаб работает днём и ночью на поддержание привлекательного имиджа кандидата, и предварительные данные опросов говорят, что Гэри Харт — главный кандидат на должность президента (   Читать дальше...   )Производство: СШАЖанр: Драма, иография, историяРежиссер: Джейсон РайтманАктеры: Хью Джекман, Вера Фармига, Джонатан Кимбл Симмонс, Марк О’Брайэн, Молли Эфраим, Крис Кой, Алекс Карповски, Джош Бренер, Томми Дьюи, Кейтлин ДиверПеревод: Многоголосый закадровый, профессиональный (iTunes)Субтитры: отсутствуют.Продолжительность: 01:53:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79134A94D2AEF70E18E094BBCA7F4A5B0BBF96EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524246   (744662) от 15.01.2022
-
-Трагедия Макбета / The Tragedy of Macbeth (2021) WEB-DLRip [H.264]
-
->>След.
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отличившись на поле боя во славу Шотландии, лорды Макбет и Банко встречают трёх ведьм, которые предсказывают, что первый станет таном кавдорским и даже королём, а второй — предком династии королей. Вскоре Макбет получает в своё распоряжение Кавдор и начинает задумываться о престоле. Следуя наущениям честолюбивой жены, он решает убить остановившегося в его замке короля (   Читать дальше...   )Производство: США / A24, IAC FilmsЖанр: Драма, фэнтезиРежиссер: Джоэл КоэнАктеры: Дензел Вашингтон, Фрэнсис МакДорманд, Алекс Хэсселл, Берти Карвел, Брендан Глисон, Кори Хоукинс, Гарри Меллинг, Майлз Андерсон, Мэтт Хельм, Моусес ИнгрэмПеревод: Дублированный (Невафильм)Язык озвучки: Русский, АнглийскийСубтитры: Русские (forced, full, SDH), Украинские, Английские (full, SDH)Продолжительность: 01:45:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD24E71839B3B1F8CD82438F5CB1A7DDD5CE4602
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524401   (744657) от 15.01.2022
-
-Рэй Донован: Фильм / Ray Donovan: The Movie (2022) WEB-DLRip [H.264] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744657.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение сериала «Рэй Донован (2013)», который закрыли после седьмого сезона, оставив открытыми все сюжетные линии. Сюжет начнётся с того момента, на котором завершился сериал. Микки вынужден бежать, тогда как Рэй должен остановить его раньше, чем начнётся очередная бойня.Производство: США / The Mark Gordon CompanyЖанр: ДрамаРежиссер: Дэвид ХолландерАктеры: Лив Шрайбер, Эдди Марсан, Дэш Майок, Пуч Холл, Кэррис Дорси, Кэтрин Менниг, Керри Кондон, Джон Войт, Билл Хек, Джош Хэмилтон, Грэм Роджерс, Алисса Диас, Дэвид Патрик Келли, Остин Хеберт, Кристофер ГрэйПеревод: Многоголосый профессиональный (Novamedia)Язык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 01:39:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0DCDED3A6CC8EEB5B1E2ED3C0DAA7BFC297D726
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282267   (744586) от 12.02.2019
-
-Точка невозврата / Beirut (High Wire Act) (2017) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_744586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разгар Ливанской войны. Интриги, предательство, грязные компроматы, нравственное падение, жертвенность и любовь, боль и надежда… На руках героя умирает жена, подстреленная террористами. Через десять лет он, преодолев ненависть и отчаяние, возвращается в Бейрут, чтобы вызволить давнего друга, захваченного в плен боевиками.Производство: СШАЖанр: Триллер, драма, криминалРежиссер: Брэд АндерсонАктеры: Розамунд Пайк, Джон Хэмм, Марк Пеллегрино, Дин Норрис, Джонатан Койн, Дуглас Ходж, Лейла Бехти, Кейт Флитвуд, Алон Абутбул, Ши УигхэмПеревод: Дублированный (Лицензия R5)Субтитры: Английские (Full, SDH)Продолжительность: 01:49:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92C4B0094821E1BB5D8564341B0ED0EB76B2FE55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282399   (744585) от 12.02.2019
 
 За пределами пустоты / Beyond White Space (2018) WEB-DLRip [H.264] [MVO]
@@ -110,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744585.jpg" />
 </div>
 
 
@@ -136,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744583.jpg" />
 </div>
 
 
@@ -162,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744569.jpg" />
 </div>
 
 
@@ -188,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744562.jpg" />
 </div>
 
 
@@ -214,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744510.jpg" />
 </div>
 
 
@@ -240,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744429.jpg" />
 </div>
 
 
@@ -266,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744424.jpg" />
 </div>
 
 
@@ -292,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744380.jpg" />
 </div>
 
 
@@ -318,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744355.jpg" />
 </div>
 
 
@@ -344,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744089.jpg" />
 </div>
 
 
@@ -370,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744046.jpg" />
 </div>
 
 
@@ -396,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743581.jpg" />
 </div>
 
 
@@ -422,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743546.jpg" />
 </div>
 
 
@@ -449,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743443.jpg" />
 </div>
 
 
@@ -475,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743419.jpg" />
 </div>
 
 
@@ -501,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743410.jpg" />
 </div>
 
 
@@ -527,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743325.jpg" />
 </div>
 
 
@@ -553,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743320.jpg" />
 </div>
 
 
@@ -579,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743293.jpg" />
 </div>
 
 
@@ -605,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743183.jpg" />
 </div>
 
 
@@ -631,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743021.jpg" />
 </div>
 
 
@@ -657,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742977.jpg" />
 </div>
 
 
@@ -670,6 +566,110 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:630432FC002391F077E1BA65E7E3E7A2702612BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040104   (742973) от 04.04.2018
+
+Догма / Dogma (1999) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два падших ангела, Локи и Бартлби, обреченные вечность торчать в штате Висконсин, узнали, что у них есть шанс вернуться в рай. Для этого нужно всего лишь воспользоваться ошибочной церковной католической догмой, провозглашенной кардиналом-новатором: каждый, прошедший через освященную арку в соборе в Нью-Джерси, получает отпущение грехов. Пройдя через нее, Локи и Бартлби (   Читать дальше...   )Производство: США / STK, View Askew ProductionsЖанр: Комедия, Фэнтези, ПриключенияРежиссер: Кевин Смит / Kevin SmithАктеры: Бен Аффлек, Мэтт Дэймон, Сальма Хайек, Кевин Смит, Джейсон Ли, Джейсон Мьюз, Алан Рикман, Крис Рок, Дэн Этеридж, Джордж Карлин, Брайан О`Халлоран, Джефф Андерсон, Аланис Мориссэтт, Мари Елена О`Брайэн, Бад Корт, Джанин Гарофало, Бэррет Хэкни, Джаред Пфеннигверт, Китао Сакурай, Бетти ЭберлинПеревод: Дублированный, 3x Одноголосый закадровыйЯзык субтитров: РусскийПродолжительность: 02:08:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:126481C679C15BA85300E59530343E41A0FA02DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217378   (742960) от 04.04.2018
+
+Секретное досье / The Post (2017) HDRip [MVO]
+
+>>След.
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742960.jpg" />
+</div>
+
+
+###  Подробнее
+
+История Кэтрин Грэм, первой женщины-издателя газеты «Вашингтон пост», и редактора Бена Брэдли. Они вступают в гонку с «Нью-Йорк таймс» за право пролить свет на государственные тайны, скрывавшиеся более 30 лет. Журналистам придется преодолеть свои разногласия и рискнуть карьерой и свободой, чтобы мир узнал правду.Производство: США / Amblin Entertainment, DreamWorks SKGЖанр: Триллер, драма, биография, историяРежиссер: Стивен СпилбергАктеры: Мэрил Стрип, Том Хэнкс, Сара Полсон, Боб Оденкёрк, Трэйси Леттс, Брэдли Уитфорд, Брюс Гринвуд, Мэттью Рис, Элисон Бри, Кэрри КунПеревод: Любительский многоголосый, закадровый (HDrezka Studio)Субтитры: ОтсутствуютПродолжительность: 01:55:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72B3D6F03E638F30AF215BC14AB5388E86262D89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020677   (742927) от 27.05.2016
+
+Эдди «Орел» / Eddie The Eagle (2015) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742927.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм повествует о трамплинисте Эдди, по прозвищу «Орел». Он прославился благодаря своим неудачам, ибо на всех соревнованиях он занимал последние места.Производство: Великобритания, США, Германия, Marv Films, Saville Productions, Studio Babelsberg, Plowman Craven & Associates, NvizibleЖанр: Драма, Комедия, Спорт, БиографияРежиссер: Декстер ФлетчерАктеры: Тэрон Эджертон, Хью Джекман, Кристофер Уокен, Джо Хартли, Том Костелло, Кит Аллен, Дикон Толсон, Джек Костелло, Марк Бентон, Тим МакИннерниПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDA74D4198107616CF6434055E3E54171277EF39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020653   (742915) от 27.05.2016
+
+Из тьмы / The Hallow (2015) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742915.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семейная пара переезжает в новый дом на краю леса, окутанного жуткими легендами. Его первобытные существа пытаются забрать у родителей младенца.Производство: Великобритания, США, Ирландия / Altitude Film EntertainmentЖанр: УжасыРежиссер: Корин ХардиАктеры: Джозеф Моул, Бояна Новакович, Майкл МакЭлхаттон, Майкл Смайли, Гари Лайдон, Стюарт Грэхэм, Конор Крэйг Стефенс, Joss Wyre, Шон ТайрелПеревод: Дублированный (iTunes)Язык субтитров: Русские, английскиеПродолжительность: 01:37:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1628C4088D36F457C153FA1CF3E18E9B947B2C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

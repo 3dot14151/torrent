@@ -1,3 +1,56 @@
+###  Публикация: 1658460   (191267) от 08.09.2023
+
+Журнал | Левша №6 (июнь 2023) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Журналы для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191267.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Левша» - Журнал для любителей моделирования из картона. Распечатай, вырежи и склей. Журнал «Левша» издается с 1972 года для читателя среднего и старшего возраста. Главной особенностью журнала является его практическая направленность – иллюстрация изобретений и открытий изобретений конкретными конструкциями для самостоятельного изготовления. Журнал имеет гриф «Допущено (   Читать дальше...   )Жанр: Умелые рукиИздательство: ООО "Юный техник"Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D9ED92AB09764717759E5644292FBAF018392D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518456   (191259) от 05.11.2022
+
+А.А. Шахова, В.А. Бакурский и др. | Самая первая энциклопедия [35 книг] (2013-2018) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191259.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта великолепная серия познавательных книг для самых юных читателей дает ответы на множество вопросов об окружающем нас мире, которые так любят задавать дети: доступное изложение; яркие иллюстрации; занимательные рассказы; интересные факты.
+Для дошкольного возраста.Жанр: Энциклопедия, Познавательная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43C78E3F7DF1B97145E8F612F57CF6DE6721610D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1658489   (191249) от 08.09.2023
 
 Журнал | Левша №9 (сентябрь 2023) [PDF]
@@ -6,7 +59,7 @@
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191249.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191235.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191229.jpg" />
 </div>
 
 
@@ -88,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191084.jpg" />
 </div>
 
 
@@ -114,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191032.jpg" />
 </div>
 
 
@@ -141,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190646.jpg" />
 </div>
 
 
@@ -167,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190643.jpg" />
 </div>
 
 
@@ -193,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190635.jpg" />
 </div>
 
 
@@ -219,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190585.jpg" />
 </div>
 
 
@@ -247,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190374.jpg" />
 </div>
 
 
@@ -275,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190370.jpg" />
 </div>
 
 
@@ -301,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190304.jpg" />
 </div>
 
 
@@ -327,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190156.jpg" />
 </div>
 
 
@@ -353,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190155.jpg" />
 </div>
 
 
@@ -379,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190151.jpg" />
 </div>
 
 
@@ -405,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190148.jpg" />
 </div>
 
 
@@ -431,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190127.jpg" />
 </div>
 
 
@@ -457,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190117.jpg" />
 </div>
 
 
@@ -483,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190114.jpg" />
 </div>
 
 
@@ -509,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190112.jpg" />
 </div>
 
 
@@ -535,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190007.jpg" />
 </div>
 
 
@@ -561,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189914.jpg" />
 </div>
 
 
@@ -587,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189781.jpg" />
 </div>
 
 
@@ -614,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189776.jpg" />
 </div>
 
 
@@ -625,60 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:377630F1F9FD6A05284CBCC70E5C0D2D6B3DC577
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589904   (189765) от 11.11.2022
-
-Шарлота Ланнебу | Меня зовут Астрид! (2022) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189765.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книги известной шведской писательницы Шарлотты Ланнебу хорошо знают во многих странах. Её герои – обычные мальчишки и девчонки, про которых писательнице известно всё. И поэтому придуманные ею истории всегда очень правдоподобны и увлекательны.
-
-В этой книге вы познакомитесь с восьмилетней Астрид – типичной вредной девчонкой. Но вредная она только на первый взгляд, (   Читать дальше...   )Жанр: Детские приключенияПеревод: Ольга МяэотсФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:161BFF47B1D4A5D8D58C96F2A265C1E0F0BA3550
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589897   (189764) от 11.11.2022
-
-Ян Улоф Экхольм | Фрёкен Сталь – гроза разбойников (2022) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Городок Гдеугодно – обычный шведский провинциальный городок. В этом городке живёт фрёкен Эмма Сталь. Наверняка ничего особенного, обыкновенная фрёкен, каких в Швеции немало, подумаете вы. А вот и нет! Фрёкен Сталь – самая удивительная фрёкен на свете! Она обладает превосходным чувством юмора, незаурядным аналитическим умом и любит разгадывать детективные загадки. (   Читать дальше...   )Жанр: Детские детективы, детские приключенияПеревод: Ольга МяэотсФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4B05C5B8382DDB1D4481B61E8A513A685F24A2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

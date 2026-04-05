@@ -1,56 +1,3 @@
-###  Публикация: 1817113   (3565) от 09.09.2025
-
-Конн Иггульден | Война роз (Книга 3). Право крови (2025) [MP3, Егор Партин]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Честолюбивые планы герцога Йоркского рассыпались прахом, сам он казнен врагами, а его голова в бумажной короне насажена на штырь над крепостной стеной. Король Генрих VI все еще в плену, но королева Маргарет во главе победоносной разноплеменной армии наступает с севера, и кажется, не существует силы, которая помешала бы ей занять Лондон.
-Но, расправившись с отцом, (   Читать дальше...   )Жанр: История, приключенияИздательство: Азбука-АттикусПродолжительность: 15:10:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F37B49204372C2CE166AE28B12EE24D1ED2A06F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817111   (3563) от 09.09.2025
-
-Конн Иггульден | Война роз (Книга 2). Троица (2024) [MP3, Егор Партин]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3563.jpg" />
-</div>
-
-
-###  Подробнее
-
-На целый год психическая болезнь превратила Генриха VI в добровольного узника Виндзорского замка. В борьбу за власть, выпавшую из рук сумасшедшего монарха, вступили дворцовые партии, возглавляемые королевой Маргаритой и герцогом Йорком, лордом-протектором. Сторону Йорка принимают граф Солсбери и граф Уорик; эта троица полна решимости одержать верх над лоялистами (   Читать дальше...   )Жанр: История, приключенияИздательство: Азбука-АттикусПродолжительность: 14:48:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20394232E94D33AB46B6BFAF3BACA07DF8102A36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1817126   (3561) от 09.09.2025
 
 Конн Иггульден | Император (Книга 5). Кровь богов. Фиговое дерево (2025) [MP3, Егор Партин]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3561.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3560.jpg" />
 </div>
 
 
@@ -111,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3557.jpg" />
 </div>
 
 
@@ -137,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3293.jpg" />
 </div>
 
 
@@ -165,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2934.jpg" />
 </div>
 
 
@@ -192,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42.jpg" />
 </div>
 
 

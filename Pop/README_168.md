@@ -1,188 +1,3 @@
-###  Публикация: 921900   (573752) от 26.07.2015
-
-Fear of Tigers - Christmas In Kaohsiung (2013) EP [MP3|320 кб/с]<Electronic, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kaohsiung Christmas
-02. Hey, Can We Go Back?
-03. HidupЖанр: Electronic, Indie PopПродолжительность: 00:11:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E90B7051FD880D5FA735BC95E1F8F001D7C8FE2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921808   (573643) от 26.07.2015
-
-Inna - Body and the Sun (2015) [MP3|320 кб/с]<Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Too Sexy
- 02. Bop Bop (feat. Eric Turner)
- 03. Rendez Vous
- 04. Salina Skies(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:50:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7436CF580E6BA61A6BBE7A3B154173BAE2525E87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921818   (573267) от 26.07.2015
-
-ВИА Гра - Всё лучшее в одном (2015) [MP3|320 кб/с]<Pop, Dance>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Бриллианты
-02. Океан и три реки
-03. У Меня Появился Другой
-04. Перемирие(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:25:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A175B03872957F00D1282CE19DA470277D11480
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303531   (573085) от 21.05.2019
-
-Elohim - Elohim (2018) Deluxe Edition [Explicit] [MP3|320 Kbps] <Synthpop, Electropop, Indie-Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Why Am I Like This? (01:50)
-02. The Wave (03:10)
-03. Sleepy Eyes (With Whethan) (03:22)
-04. Skinny Legs (05:10)(   Читать дальше...   )Жанр: Synthpop, Electropop, Indie-DanceПродолжительность: 01:32:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08010C92837674A959E5F5D4C620B07EF636D5E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 812633   (573060) от 13.08.2014
-
-Babe - Hollands Glorie (2003) [MP3|320 кб/с]<Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Drunken Sailor
-02. Ooh La La I'm Falling
-03. Mister Blitzer
-04. Wanna Do (What Mamma Said)
-05. Please Me Please Do
-06. (Never Listen To A) Bouzouki Player
-07. I'm A Rocking Machine
-08. Wonderboy
-09. Billy Joe
-10. Indian Habbits(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:04:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D71006148022159E3693D791A0CEF33C7365AAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 812632   (573034) от 13.08.2014
-
-Babe - Never Listen To A Bouzouki Player (2001) [MP3|320 кб/с]<Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (Never Listen To A) Bouzouki Player
-02. Break Away
-03. Do You Know What Love Means
-04. It's Only A Matter Of Time
-05. L.O.V.E.
-06. Only A Woman
-07. Ooh La La I'm Falling
-08. Please Me, Please Do
-09. Rain In Spain
-10. The Spanish Shuffle(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:58:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:465C69FC5E42ECB83971A7ED6D145659036177F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1303549   (572887) от 21.05.2019
 
 VA - We Love Summer (2019) [MP3|320 Kbps] <Pop, Dance>
@@ -191,7 +6,7 @@ VA - We Love Summer (2019) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572887.jpg" />
 </div>
 
 
@@ -220,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572797.jpg" />
 </div>
 
 
@@ -249,7 +64,7 @@ Peter Jacques Band - 3 Albums (1979-1985) [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572678.jpg" />
 </div>
 
 
@@ -278,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572587.jpg" />
 </div>
 
 
@@ -307,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572572.jpg" />
 </div>
 
 
@@ -336,7 +151,7 @@ Ten Sharp - Everything & More: The Best Of Ten Sharp (2000) Compilation [FLAC|Lo
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572528.jpg" />
 </div>
 
 
@@ -365,7 +180,7 @@ VA - Хитовый 4 (2018) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572478.jpg" />
 </div>
 
 
@@ -394,7 +209,7 @@ VA - 80's Chillout. The Ultimate Collection of Chilled 80's Music (2017) [MP3|32
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572441.jpg" />
 </div>
 
 
@@ -423,7 +238,7 @@ Bad Boys Blue - Greatest Hits (2009) [MP3|320 кб/с]<Euro Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572398.jpg" />
 </div>
 
 
@@ -458,7 +273,7 @@ Leo Sayer - Northern Songs (2021) Sings The Beatles [FLAC|Lossless|image + .cue]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572117.jpg" />
 </div>
 
 
@@ -487,7 +302,7 @@ Sandra - Medley - Non-Stop Hit Mix 2020 (2020) [FLAC 2.0|48/24|WEB-DL|tracks] <P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572092.jpg" />
 </div>
 
 
@@ -516,7 +331,7 @@ Sophie Marceau - Certitude (1985) [MP3|192 кб/с]<French Pop, Chanson>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571691.jpg" />
 </div>
 
 
@@ -545,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571591.jpg" />
 </div>
 
 
@@ -574,7 +389,7 @@ VA - 40 Tubes Ete (2018) 2CD [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571024.jpg" />
 </div>
 
 
@@ -603,7 +418,7 @@ Planet Earth - Planet Earth (1978) LP [MP3|320 Kbps] <Electronic, Space Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571019.jpg" />
 </div>
 
 
@@ -632,7 +447,7 @@ Hipnosis - Hipnosis (1984) LP [MP3|320 Kbps] <Electronic, Italo-Disco, Spacesynt
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571017.jpg" />
 </div>
 
 
@@ -661,7 +476,7 @@ MBAND - Грубый возраст (2018) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571013.jpg" />
 </div>
 
 
@@ -690,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571011.jpg" />
 </div>
 
 
@@ -719,7 +534,7 @@ Laurence Castera - Les hauts lieux (2019) [FLAC|Lossless|tracks + .cue] <French 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570968.jpg" />
 </div>
 
 
@@ -748,7 +563,7 @@ Lukas Graham - Lukas Graham (2015) [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570931.jpg" />
 </div>
 
 
@@ -762,6 +577,192 @@ Lukas Graham - Lukas Graham (2015) [FLAC|Lossless|image + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0A5F6FA4C917AE40FC047EAFCB99DB5A0DF2323
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043700   (570921) от 17.08.2016
+
+Gwen Stefani - This Is What The Truth Feels Like (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Misery 03:26
+02. You’Re My Favorite 02:56
+03. Where Would I Be? 03:18
+04. Make Me Like You 03:36(   Читать дальше...   )Жанр: PopПродолжительность: 01:02:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F8757F7673FAF611D513362E4EE648658D2EA5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 812637   (570865) от 14.08.2014
+
+Babe - Never Listen To A Bouzouki Player (2001) [FLAC|Lossless]<Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (Never Listen To A) Bouzouki Player
+02. Break Away
+03. Do You Know What Love Means
+04. It's Only A Matter Of Time
+05. L.O.V.E.
+06. Only A Woman
+07. Ooh La La I'm Falling
+08. Please Me, Please Do
+09. Rain In Spain
+10. The Spanish Shuffle(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:58:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57D9FB8B49EA2085812D7C3F8B85C53E19383CF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 812639   (570863) от 14.08.2014
+
+Babe - Hollands Glorie (2003) [FLAC|Lossless]<Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Drunken Sailor
+02. Ooh La La I'm Falling
+03. Mister Blitzer
+04. Wanna Do (What Mamma Said)
+05. Please Me Please Do
+06. (Never Listen To A) Bouzouki Player
+07. I'm A Rocking Machine
+08. Wonderboy
+09. Billy Joe
+10. Indian Habbits(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:04:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F22DB5801840F4E75C5FD6F3C2BE230DAA46D038
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151679   (570703) от 20.07.2017
+
+Lee Towers - The Real… Lee Towers (The Ultimate Collection) (2017) 3CD [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570703.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01. You'll Never Walk Alone
+02. Frankie
+03. It's Raining In My Heart(   Читать дальше...   )Жанр: Pop, Jazz, Easy ListeningПродолжительность: 03:47:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:794B31FFA3E75CCAA0B6690248CDD831905D4F83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043627   (570633) от 17.08.2016
+
+Wham! - The Final (1986) K2HD Mastering, 2014, Sony Music [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wham Rap! (Enjoy What You Do?) (6:42)
+02. Young Guns (Go For It!) (5:12)
+03. Bad Boys (3:20)
+04. Club Tropicana (4:29)(   Читать дальше...   )Жанр: PopПродолжительность: 01:11:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85BC2B87163A75B03C7508586EB50161D71A1C33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151373   (570510) от 20.07.2017
+
+Joe Yellow - Yellowgraphy (2016) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Eurobeat, Hi-NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lover To Lover (For Sale) (AV Version) (08:13)
+02. Take My Heart (Vocal Version) (05:13)
+03. Recollection (Vocal Version) (07:03)
+04. I'm Your Lover (Vocal) (05:30)(   Читать дальше...   )Жанр: Italo-Disco, Eurobeat, Hi-NRGПродолжительность: 02:28:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E418E763EE17C99779E23F9C6AAA7C687063960
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ NG: Снежный барс Афганистана / NG: Snow Leopard of Afghani
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981301.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NG. Мухи и пиявки (мерзкие существа) / Flies and leech
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980894.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ National Geographic: Сканеры древнего мира. Египетск�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976701.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ NG. Семейное оружие: Ковбойская перестрелка /
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976622.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ NG. Самурайский меч / Samurai Sword: The Making of a Legend (2007)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976507.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ NG. Суперсооружения Третьего рейха (1 сезон, 6 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975127.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ NG: Запреты. Лечение живностью / Taboo. Creature Cures (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974344.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ NG: Запреты. Деликатесы / Taboo. Delicatessen (2003) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974283.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ NG: Запреты. Кровавые Обычаи / Taboo. Blood Rites (2004) TV
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974271.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ NG: Запреты. Экстремальная кухня / Taboo. Extreme Cuisi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973021.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ NG. Осушить океан: корабли-призраки Атлантик�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972947.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ NG: Запреты. Проституция / Taboo: Prostitution (2010) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972888.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ NG: Запреты. Инициации / Taboo. Initiation (2004) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971762.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ NG: Запреты. Изгои общества / Taboo. Outcasts of society (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971749.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ NG: Запреты. Вуду / Taboo. Voodoo (2002) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971696.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ NG: Апокалипсис: Вторая мировая война: Развяз
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970602.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ NG: Запреты. Опознавательные знаки / Taboo. Marks of 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970584.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ NG: Табу: Зарождение эротического кино / Taboo. Th
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970288.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ National Geographic: Расследования авиакатастроф. См
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969600.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ NG: Расследования авиакатастроф: Посадка на �
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969430.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ NGW: Настоящая чёрная пантера / The Real Black Panther (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965961.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ NGW. Дикая природа Португалии / Wild Portugal (2019) HDTV 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952119.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ NG. Дикие места Таиланда / Thailand's Wild Side (2019) HDTV [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952103.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946651.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ NG. Игры разума / Brain Games (2014) SATRip [сезон 3, серии 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942475.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ NGW. Акулы-каннибалы / Cannibal Sharks (2019) HDTVRip [H.264/1080p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936203.jpg" />
 </div>
 
 

@@ -1,32 +1,3 @@
-###  Публикация: 1700777   (116888) от 18.02.2024
-
-Durbin - Screaming Steel (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Metal, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Made Of Metal [4:06]
-02 - Screaming Steel [4:05]
-03 - Where They Stand [3:45]
-04 - Hallows [3:40](   Читать дальше...   )Жанр: Rock, Metal, Heavy MetalПродолжительность: 00:41:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3855996BAF82F8AEEBEB5AEE29ECFAA0B2BE1F63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700683   (116873) от 18.02.2024
 
 Jennifer Lopez - This Is Me...Now (2024) (Deluxe) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Latin, Pop, Dance>
@@ -35,7 +6,7 @@ Jennifer Lopez - This Is Me...Now (2024) (Deluxe) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116873.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Background Instrumental Music Collective - Till Next Summer: Happy Jazz to Keep 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116869.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Unheilig - Frohes Fest (2002) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116849.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Unheilig - Zelluloid (2004) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116847.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Geo22 - Knightcore (2024) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116843.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Amba Shepherd - Superrlativ Collection II (2024) [FLAC 16/44.1; 24/44.1; 24/48|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116836.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Unheilig - Moderne Zeiten (2006)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Gothic Me
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116830.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Unheilig - Das 2. Gebot (2003) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Meta
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116829.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Sundrifter - An Earlier Time (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116828.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Erin Ross - The Wind Will Lead Me Home (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116699.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Cigar Box Band - Don't Belong (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116676.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Lucky Wuthrich (Lucky Wüthrich) - My Kind of Music (2024) [FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116675.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Paul Jensen - Journey Back Home (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116672.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Fatal Rails - Damned (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116653.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ The Immediate Family - Srin In The Game (2024) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116651.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Crazy Lixx - Two Shots At Glory (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ha
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116649.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ The Once - Out Here (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116647.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116527.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Unheilig - Grosse Freiheit (2010) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116500.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Unheilig - Puppenspiel (2008) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116499.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Aname (Anamé) - 2 Albums (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Vocal Ho
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116494.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ Mahmood - Nei Letti Degli Altri (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116487.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ Unheilig - Lichter der Stadt (2012) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116485.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ deer death - Next Death (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Shoegaze, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116483.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ Unheilig - Gipfelsturmer (2014) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Met
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116478.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ Unheilig - Gipfelsturmer (2014) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85CAFF8783015D35FE7545F1978F3A5A063DAD5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701471   (116342) от 21.02.2024
+
+Blackberry Smoke - Be Right Here (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock, Southern Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dig A Hole (4:13)
+02. Hammer And The Nail (2:54)
+03. Like It Was Yesterday (3:27)
+04. Be So Lucky (3:55)(   Читать дальше...   )Жанр: Blues Rock, Southern RockПродолжительность: 00:40:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE86C703631F3CF7400E8E995F09DA3F9D0E27CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

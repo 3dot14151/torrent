@@ -1,3 +1,55 @@
+###  Публикация: 1012624   (793374) от 01.05.2016
+
+Xilisoft Video Converter Ultimate 7.8.6 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793374.jpg" />
+</div>
+
+
+###  Подробнее
+
+Xilisoft Video Converter for Mac - это многофункциональный видео конвертер, поддерживающий конвертирование между почти всеми аудио и видео форматами. Вам больше не прийдется беспокоится, что ваше видео не проигрывается на ваших девайсах. Конвертер делает большинство медиа файлов проигрываемыми на PSP, iPod, PS3, iPhone, iPad, Apple TV, Zune, мобильных телефонах и (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 14.10.2015Разработчик: XilisoftПоддерживаемая ОС: 10.6Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:282F74DB553B556F9D547DFE9CA942AE3220066D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122688   (793358) от 06.04.2017
+
+Blink Pro 4.5.1 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793358.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blink - это произведение искусства, простой в работе SIP клиент. Он элегантный, интуитивный, нагружен всякими функциями. Blink можно использовать без подключения к интернету, в сети LAN, или можно настроить для работы с любыми провайдерами SIP телефонии. Blink - универсальный клиент с возможностями: обмена сообщениями, быстрой передачей файлов, поддержкой VoIP, поддержкой (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 15 октября 2016Разработчик: AG ProjectsПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D62E65CAC147B7F7A351EB6652CDA419110DD0CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1012674   (793319) от 01.05.2016
 
 CrossOver 15.1 [Multi/Ru]
@@ -6,7 +58,7 @@ CrossOver 15.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793319.jpg" />
 </div>
 
 
@@ -35,7 +87,7 @@ Hear 1.3.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793082.jpg" />
 </div>
 
 
@@ -63,7 +115,7 @@ Canary Mail 2.18 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793051.jpg" />
 </div>
 
 
@@ -89,7 +141,7 @@ BookmarkTiles 1.7.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793044.jpg" />
 </div>
 
 
@@ -116,7 +168,7 @@ IconShop - Making Icons Easily 1.0.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793032.jpg" />
 </div>
 
 
@@ -142,7 +194,7 @@ DesiGN Brochures Templates 3.0.2 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792995.jpg" />
 </div>
 
 
@@ -170,7 +222,7 @@ InstaGrid 3.1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792986.jpg" />
 </div>
 
 
@@ -196,7 +248,7 @@ Profanity Filter 1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792983.jpg" />
 </div>
 
 
@@ -223,7 +275,7 @@ Cascadea 2.1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792980.jpg" />
 </div>
 
 
@@ -249,7 +301,7 @@ Alarm Clock Pro 14 v14.0.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792969.jpg" />
 </div>
 
 
@@ -276,7 +328,7 @@ Switch 1.2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792942.jpg" />
 </div>
 
 
@@ -302,7 +354,7 @@ Show Passwords 1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792927.jpg" />
 </div>
 
 
@@ -329,7 +381,7 @@ Minitube for YouTub‪e‬ 3.9.2 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792834.jpg" />
 </div>
 
 
@@ -355,7 +407,7 @@ LilyView 1.5.1 fix [Rus/En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792768.jpg" />
 </div>
 
 
@@ -382,7 +434,7 @@ Reeder 3.1.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792665.jpg" />
 </div>
 
 
@@ -411,7 +463,7 @@ TableEdit Pro 1.4.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792644.jpg" />
 </div>
 
 
@@ -439,7 +491,7 @@ TotalSpaces 2 v2.8.12 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792634.jpg" />
 </div>
 
 
@@ -465,7 +517,7 @@ Mountain Duck 3.4.0 (build 15624) [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792632.jpg" />
 </div>
 
 
@@ -494,7 +546,7 @@ Money Pro - Personal Finance 2.5.6 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792577.jpg" />
 </div>
 
 
@@ -522,7 +574,7 @@ Artstudio Pro 3.2.15 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792259.jpg" />
 </div>
 
 
@@ -548,7 +600,7 @@ MacTotalSecurity for Mac 9.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792198.jpg" />
 </div>
 
 
@@ -574,7 +626,7 @@ KCNcrew Pack 11-15-21 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792151.jpg" />
 </div>
 
 
@@ -600,7 +652,7 @@ Amazing Slow Downer 4.1.5 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792150.jpg" />
 </div>
 
 
@@ -626,7 +678,7 @@ Watermark Plus 1.5.9 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792142.jpg" />
 </div>
 
 
@@ -638,60 +690,6 @@ Watermark Plus 1.5.9 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D071AED9285E2648D274924B31CE493A60979F93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201579   (791891) от 25.01.2018
-
-macOS Server 5.5 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791891.jpg" />
-</div>
-
-
-###  Подробнее
-
-macOS Server для устройств macOS и iOS позволяет легко обмениваться файлами, планировать встречи, синхронизировать контакты, разрабатывать приложения, поддерживать собственный сайт, публиковать wiki-проекты, управлять настройкой Mac, iPhone и iPad, заходить в сеть удалённо и многое другое. Любой пользователь может быстро и легко превратить компьютер Mac с macOS в (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.01.2018Разработчик: Apple Inc.Поддерживаемая ОС: macOS 10.13.3 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16FEF0D4724B84A68DC8406E661A6C6104FA7ADA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274963   (791681) от 09.01.2019
-
-Any Video Converter Ultimate 6.1.9 [Multi/Ru]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Универсальный и удобный DVD риппер, утилита для захвата экрана в реальном времени, Видео конвертор, Загрузчик YouTube видео, Видео редактор и создание DVD, конвертирует видео без потери качества и совместим с большинством мобильных устройств, таких как, такие как iPhone, iPad, iPod, Google Android, PSP, Nokia, Samsung Galaxy и т.д.
-
-С современной технологией акселерации (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.11.2018Разработчик: ANVsoft Inc.Поддерживаемая ОС: macOS 10.5 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7743E0F619F0AF54BAED87407501AEABFC23353
 ```
 
 https://mybot314.ru/tekegram_catalog/

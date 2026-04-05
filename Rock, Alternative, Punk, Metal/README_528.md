@@ -1,3 +1,119 @@
+###  Публикация: 692031   (552366) от 23.08.2013
+
+The Mamas And The Papas - Greatest Hits (1998) [FLAC|Lossless]<Rock, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552366.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. California Dreamin'
+02. Go Where You Wanna Go
+03. Monday, Monday
+04. I Call Your Name(   Читать дальше...   )Жанр: Rock, FolkПродолжительность: 01:01:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F3392D108805F6822C19BE02F7202620D99C508
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237338   (552357) от 23.07.2018
+
+Bring Me The Horizon - 2004-2013 (2017) Compilation [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Traitors Never Play Hangman (3:37)
+ 02. Pray For Plagues (4:22)
+ 03. Diamond Aren't Forever (3:48)
+ 04. The Sadness Will Never End (Feat. Sam Carter) (5:22)(   Читать дальше...   )Жанр: Alternative Rock, MetalcoreПродолжительность: 01:06:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1094B05668DBF6A6D72D9C4E2B5699690E2E3E8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237304   (552345) от 23.07.2018
+
+BrainStorm - Контакты (2018) EP [MP3|320 Kbps] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552345.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Контакты
+2. Nothing Lasts Forever
+3. Ogles
+4. Ogles (Edit)Жанр: Pop RockПродолжительность: 00:16:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9164A2C82004AC6B02906DA770D323B41CBAB95C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237360   (552341) от 23.07.2018
+
+Bad Wolves - Disobey (2018) Eleven Seven Music [FLAC|Lossless|tracks + .cue] <Alternative Rock, Groove Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Officer Down (3:29)
+ 02. Learn To Live (3:40)
+ 03. No Masters (3:53)
+ 04. Zombie (4:15)(   Читать дальше...   )Жанр: Alternative Rock, Groove Metal, MetalcoreПродолжительность: 00:49:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BFF8DD3FE102CFFB46ABD26FF410E84B5DE3E11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1309325   (552145) от 18.06.2019
 
 Hate - Auric Gates of Veles (2019) [MP3|320 Kbps] <Death Metal>
@@ -6,7 +122,7 @@ Hate - Auric Gates of Veles (2019) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552145.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ King Company - One for the Road (2016) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551937.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Duffy - Just In Case You're Interested... (1972) Reissue, 2010, Flawed Gems [MP3
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551936.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Vasco Rossi - Stupido Hotel (2001) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551934.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Blue Stahli - Blue Stahli Instrumentals (2012) [MP3|320 Kbps] <Alternative Rock,
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551929.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ David Byron - 5 albums, 6CD (1975-2008) [FLAC|Lossless|image + .cue] <Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551891.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Cilver - Not The End Of The World (2016) [MP3|320 Kbps] <Hard rock, Alternative,
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551859.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Ultimate Rock: The Classics (2019) 5CD [MP3|320 Kbps] <Rock, Hard Rock, Cla
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551832.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Bad Omens - Bad Omens (2016) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551790.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Glass Animals - How to be a Human Being (2016) [MP3|320 Kbps] <Alternative Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551734.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Sabaton - The Last Stand (2016) Japanese Limited Edition [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551617.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Mars Argo - Discography (2009 - 2017) [MP3|128-320 Kbps] <Alternative, Indie, Po
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551419.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Katatonia - Dethroned and Uncrowned (2013) [MP3|320 кб/с]<Depressive Rock / M
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551397.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Lоst Sосiеtу - Fаst Lоud Dеаth (2013) Limitеd Еditiоn [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551245.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Rustin Man - Drift Code (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551218.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Eveline's Dust - K. (2019) [FLAC|Lossless|tracks + .cue] <Prog Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551214.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Melissa Etheridge - The Medicine Show (2019) [FLAC|Lossless|tracks + .cue] <Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551141.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Furykane - 2 альбома (2011-2014) [MP3|320 Kbps] <Alternative, Nu-metal, R
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551106.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Dirty Dishes - Guilty (2015) [MP3|320 Kbps] <Indie, grunge, post-punk>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551098.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Motanka - Motanka (2019) [MP3|320 Kbps] <Ethno Folk Rock, Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551052.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Blue Tears - The Innocent Ones (2006) [FLAC|Lossless|tracks + .cue] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551028.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Gay Paris - 3 альбома (2011-2015) [MP3|320 Kbps] <Hard rock & Blues>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551024.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Gay Paris - 3 альбома (2011-2015) [MP3|320 Kbps] <Hard rock & Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2F1800D933A661644E0407D7F66E4737D678AF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047015   (551023) от 28.08.2016
-
-Oklahoma Blues - Tribute To JJ Cale (2010) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Money Talks - 5:46
-02. Don’t Cry Sister - 3:03
-03. Sensitive Kind - 5:31
-04. Cajun Moon - 3:48(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:10:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45EB7DD7F1952CDB3B0CEEF5CC3ACBDAFE8425DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046887   (551021) от 28.08.2016
-
-Grave Pleasures - Dreamcrash (2015) [MP3|320 Kbps] <Post-punk, gothic rock, deathrock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Utopian Scream 03:37
-02. New Hip Moon 03:07
-03. Crying Wolves 05:06
-04. Futureshock 03:13(   Читать дальше...   )Жанр: Post-punk, gothic rock, deathrockПродолжительность: 00:43:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A28844E2BE8FC2A306C96ED0446D32A9DA88DB11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046904   (551016) от 28.08.2016
-
-Vader - Iron Times (2016) [FLAC|Lossless|image + .cue] <Death Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Parabellum
-02. Prayer to the God of War
-03. Pięść I Stal (Panzer X cover)
-04. Overkill (Motörhead cover)Жанр: Death Metal, Thrash MetalПродолжительность: 00:13:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:034E9B1620C4ECDF03868AAE0D33C19BA413D3E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309407   (550968) от 19.06.2019
-
-Rammstein - Sehnsucht (1997) Reissue, 2017, Universal Music Group International [FLAC|Lossless|tracks + .cue] <Electronic, Rock, Industrial>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sehnsucht (4:04)
-02.Engel (4:24)
-03.Tier (3:47)
-04.Bestrafe Mich (3:38)(   Читать дальше...   )Жанр: Electronic, Rock, IndustrialПродолжительность: 00:43:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F342D03EC3AA977E90CB21CF9208B82A8D597820
 ```
 
 https://mybot314.ru/tekegram_catalog/

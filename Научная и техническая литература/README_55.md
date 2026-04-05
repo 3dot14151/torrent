@@ -1,133 +1,3 @@
-###  Публикация: 1352285   (1001303) от 13.01.2020
-
-А.Г. Больных | Морские битвы Первой мировой. Трагедия ошибок (2002) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередной том сериала "Морские битвы Первой мировой" посвящен операциям на Средиземном, Черноморском и Балтийском театрах военных действий, и Балтийском театрах военных действий, и своё название — "Трагедия ошибок" — он получил недаром. Сотни кораблей английского, немецкого, российского, французского, итальянского, австро-венгерского и турецкого (   Читать дальше...   )Жанр: Военная историяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B06CB25285B481DFE9F8D6A6093C1D9484343F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352348   (1001284) от 13.01.2020
-
-А.В. Ширяев (ред.) | Высокоскоростные поезда "Сапсан" В1 и В2 (2013) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эксплуатация ЭВС «Сапсан» началась в декабре 2009 г. на направлении Санкт-Петербург-Москва, что положило начало развитию высокоскоростного сообщения в Российской Федерации. В учебном пособии рассмотрены общие сведения о поезде, его эксплуатационные характеристики, механическая и электрическая часть, теоретические основы работы полупроводниковых преобразователей, (   Читать дальше...   )Жанр: техническое пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CBBEDFC42211B6AC01A1BD446C24E6F1782AC4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352334   (1001248) от 13.01.2020
-
-Книжная серия | За три месяца (2004-2014) [PDF, DJVU]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001248.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия "За три месяца" – это интенсивные курсы для начинающих изучать иностранные языки. Вы сможете в сжатые сроки овладеть основами грамматики и приобрести лексический запас, необходимый для общения на выбранном вами языке. Приведены ключи к упражнениям и разговорные словари.Жанр: Учебное пособиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE96591DD456EC12F13B11E2C8540F0245B4B36E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489168   (1001104) от 14.08.2021
-
-Дэвид Натт | Пить или не пить? Новая наука об алкоголе и вашем здоровье (2021) [PDF]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001104.jpg" />
-</div>
-
-
-###  Подробнее
-
-В своей книге Натт постарался простым языком ответить на бесчисленные вопросы, связанные с уходящим во тьму веков симбиозом человека и этанола. Почему алкоголь – наркотик? Как он действует на нашу психику? Как избежать похмелья? Почему от пьянства особенно страдает печень? Каковы социальные преимущества выпивки? Как понять, что у тебя формируется зависимость? Бывают (   Читать дальше...   )Жанр: Здоровье, Научно-популярная литература, НейробиологияПеревод: Галина БородинаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51F1739E3A8685CFC6F357C8C90F4C1460B9019E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352433   (1001013) от 14.01.2020
-
-Мэри Бирд | Цивилизации. Образы людей и богов в искусстве от Древнего мира до наших дней (2019) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001013.jpg" />
-</div>
-
-
-###  Подробнее
-
-Идея «цивилизации» всегда обсуждалась. В основе этих дискуссий лежит большой вопрос о том, как наши предки — от древности до наших дней — изображали себя и других, как людей, так и божеств. Выдающийся историк Мэри Бирд исследует, как искусство формировалось и создавалось людьми, создавшими его. Как мы смотрели на эти изображения? Почему они иногда были такими спорными? (   Читать дальше...   )Жанр: История , Культурология, ИскусствоведениеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C654A1ED8C1E209B416B76D16FDD218E51BBF0F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1352432   (1000992) от 14.01.2020
 
 Мередит Макардл | Всемирная история в вопросах и ответах (2020) [FB2]
@@ -136,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000992.jpg" />
 </div>
 
 
@@ -163,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000968.jpg" />
 </div>
 
 
@@ -189,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000860.jpg" />
 </div>
 
 
@@ -215,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000846.jpg" />
 </div>
 
 
@@ -242,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000802.jpg" />
 </div>
 
 
@@ -269,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000800.jpg" />
 </div>
 
 
@@ -295,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000659.jpg" />
 </div>
 
 
@@ -321,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000474.jpg" />
 </div>
 
 
@@ -347,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000459.jpg" />
 </div>
 
 
@@ -374,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000390.jpg" />
 </div>
 
 
@@ -400,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000362.jpg" />
 </div>
 
 
@@ -429,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000001.jpg" />
 </div>
 
 
@@ -455,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999956.jpg" />
 </div>
 
 
@@ -481,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999896.jpg" />
 </div>
 
 
@@ -509,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999684.jpg" />
 </div>
 
 
@@ -535,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999393.jpg" />
 </div>
 
 
@@ -561,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999387.jpg" />
 </div>
 
 
@@ -587,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999060.jpg" />
 </div>
 
 
@@ -613,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998873.jpg" />
 </div>
 
 
@@ -639,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998850.jpg" />
 </div>
 
 
@@ -665,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998834.jpg" />
 </div>
 
 
@@ -680,6 +550,140 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600392   (998747) от 08.01.2013
+
+В.К. Толкачев | Роскошь системного мышления [2011] [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998747.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга Толкачева Виктора Константиновича - одного из основоположников нового направления в психологии - системно-векторной психологии, основанной на физико-математической модели мира, разработанной его учителем, профессором Ганзеным Владимиром Александровичем - доктором психологических наук, профессором Ленинградского / Санкт-Петербургского государственного университета, (   Читать дальше...   )Жанр: ПсихологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D51AF1B22F7865128683CC6D5922BB91DCF2F2DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 601454   (998345) от 10.01.2013
+
+И.И.Матусис | Витамины и антивитамины [1975] [PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998345.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге в популярной форме рассказано о биологической роли витаминов в жизнедеятельности организма, проблеме витаминной недостаточности у людей и сельскохозяйственных животных. В соответствующих разделах книги освещены следующие вопросы: обмен веществ и круговорот веществ в природе, способы питания и пищевые вещества, ферменты, функции витаминов в организме, коферментные функции витаминов, витамины и биологические мембраны, витамины и здоровье, водо- и жирорастворимые витамины, антивитамины. Предназначена для широкого круга читателей, интересующихся данной проблемой, студентов медицинских вузов и биологических факультетов университетов.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6DCAC60166E906F1C252FDFC31697E035D73725
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 601030   (998196) от 10.01.2013
+
+Сара Ки | Настольная книга для тех, у кого болит спина [2009] [DJVU]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доступным языком объяснено «устройство» человеческой спины, после чего становится понятно, как и почему эффективно срабатывают все предлагаемые упражнения, нацеленные на её укрепление, развитие и постоянное поддержание полной работоспособности. Для широкого круга читателей.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1266F1181D4C173F0F9699E8D0A66458D6B48D2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 601573   (997828) от 12.01.2013
+
+Н.М. Коробков | Метро и прошлое Москвы [1935] [DJVU]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Борьба за метро получает широкое освещение в периодической прессе, назначение же книги Н.М. Коробкова "Метро и прошлое Москвы" - ознакомить читателя не только с организацией и выполнением грандиозного плана строительства, но также дать представление о геологическом строении и историческом прошлом той территории, по которой пойдут пути метро.
+Живой историко-геологический очерк дан на основе последних геологических исследований и археологических находок, впервые публикуемых, а также анализа исторических документов, записей современников и старинных планов. Читатель узнает, какую пользу дало строительству сочетание геологического исследования с археологическими и какие можно сделать отсюда выводы по линии геологического и исторического прошлого Москвы.
+Книга "Метро и пршлое Москвы" будет одинаково полезна широкому кругу читателей: туристу, краеведу, учителю и школьнику.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80A434EF4D0C3556BA9192FFE94D7F3DBBBC95D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 601827   (997661) от 12.01.2013
+
+"Астрель", "Corpus" | Книжная серия "Элементы" (6 книг) [2010-2012] [FB2]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997661.jpg" />
+</div>
+
+
+###  Подробнее
+
+Элементы - серия научно-популярных книг для широкого круга читателей. Охват тематики - от гена до возникновения и существования вселенных.
+Серия Элементы входит в библиотеку Династия, о чем свидетельствует значок на обложках.
+Серию Элементы отличают очень качественные переводы.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E51B61AF3269F3A0990F00E3F0A9F3736BCE9CD6
 ```
 
 https://mybot314.ru/tekegram_catalog/

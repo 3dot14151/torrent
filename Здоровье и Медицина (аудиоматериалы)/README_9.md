@@ -1,3 +1,30 @@
+###  Публикация: 1429253   (177430) от 05.12.2020
+
+Доктор Фил | В поисках волшебной таблетки. Научно-популярная сказка (2020) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Здоровье и Медицина (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вам приходилось в жизни слышать фразы, подобные этим: «Делай по утрам то-то, будешь здоровым» или «съешь вот это, полезно для здоровья», «зачем ты это купил – оно же вредное, срочно выброси».
+Попробуйте спросить у такого человека (или у себя): а что значит «полезно» или «вредно»? На самом деле все просто: полезно – это то, что жизнь продлевает, а вредно – то, что (   Читать дальше...   )Жанр: Здоровье, Научно-популярная литература, Популярно о медицинеПродолжительность: 05:16:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42924743E6D139EA14E32B5B26A6897E907787E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1667107   (177370) от 07.10.2023
 
 Вадим Бондарь | История зрения (2020) [MP3, Сергей Соколов]
@@ -6,7 +33,7 @@
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177370.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_173928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_173928.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171520.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171472.jpg" />
 </div>
 
 
@@ -113,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171397.jpg" />
 </div>
 
 
@@ -139,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170396.jpg" />
 </div>
 
 
@@ -165,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166408.jpg" />
 </div>
 
 
@@ -191,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165032.jpg" />
 </div>
 
 
@@ -217,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164149.jpg" />
 </div>
 
 
@@ -243,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161916.jpg" />
 </div>
 
 
@@ -269,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161197.jpg" />
 </div>
 
 
@@ -297,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160401.jpg" />
 </div>
 
 
@@ -323,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159203.jpg" />
 </div>
 
 
@@ -349,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158937.jpg" />
 </div>
 
 
@@ -375,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158885.jpg" />
 </div>
 
 
@@ -401,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157306.jpg" />
 </div>
 
 
@@ -427,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155492.jpg" />
 </div>
 
 
@@ -454,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154430.jpg" />
 </div>
 
 
@@ -480,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141956.jpg" />
 </div>
 
 
@@ -506,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139471.jpg" />
 </div>
 
 
@@ -532,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138643.jpg" />
 </div>
 
 
@@ -558,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136910.jpg" />
 </div>
 
 
@@ -586,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128827.jpg" />
 </div>
 
 
@@ -613,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128749.jpg" />
 </div>
 
 
@@ -640,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128269.jpg" />
 </div>
 
 
@@ -651,33 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DB45F99CE046C6ADC9B1945553784DC1FA00315
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684307   (127823) от 15.12.2023
-
-Керим Пыгамов | Простатит. Современный подход к диагностике и лечению (2023) [MP3, Денис Белых]
-
->>Обучающие аудиоматериалы
->>Здоровье и Медицина (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127823.jpg" />
-</div>
-
-
-###  Подробнее
-
-В своей книге врач-уролог Керим Пыгамов предлагает взглянуть на простатит с точки зрения доказательной медицины и разобраться в его причинах, симптомах, диагностике и современных методах лечения.
-Книга поможет вам лучше понять поставленный диагноз и найти подходящего врача, избежать ненужных процедур и препаратов. Доктор Пыгамов включил в нее разбор клинических случаев, (   Читать дальше...   )Жанр: Урология и нефрологияИздательство: ЭксмоПродолжительность: 03:04:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0E88BEAB73D0B962350DABEE163DFB1D2E27C97
 ```
 
 https://mybot314.ru/tekegram_catalog/

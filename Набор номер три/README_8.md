@@ -1,3 +1,159 @@
+###  Публикация: 1435844   (1042626) от 02.01.2021
+
+Душа / Soul (2020) WEB-DL [H.264/1080p-LQ] [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042626.jpg" />
+</div>
+
+
+###  Подробнее
+
+Школьный учитель музыки Джо Гарднер умер. Но поскольку незадолго до смерти он отыграл концерт своей мечты и получил предложение играть в крутейшем джаз-бэнде на постоянной основе, Джо с таким положением дел категорически не согласен. Чудом и настырностью он сбегает с травелатора, ведущего прямиком в Великое После, в Великое Перед – дивное местечко, где взращиваются (   Читать дальше...   )Производство: США, Walt Disney Pictures, Pixar Animation StudiosЖанр: Мультфильм, фэнтези, комедия, семейный, музыка, полнометражныйРежиссер: Пит Доктер, Кемп ПауэрсАктеры: Джейми Фокс, Тина Фей, Филисия Рашад, Давид Диггс, Анджела Бассетт, Грэм Нортон, Рэйчел Хаус, Алиси Брага, Ричард Айоади, Доннел Роулингс, Амир-Халиб Томпсон, Марго Холл, Сакина Джэффри, Фортун ФеймстерПеревод: Многоголосый любительский (VPStudio)Субтитры: Русские, украинские, английские, немецкие, французские, итальянские, испанские, датские, португальскиеПродолжительность: 01:40:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C44E59C714FF4216B4840B1942CD6DA5C8ECBF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609448   (1042582) от 06.02.2023
+
+Долги в ящик: в РФ появилась новая схема заработка на виновниках ДТП
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042582.jpg" />
+</div>
+
+
+###  Подробнее
+
+В России активно применяется схема, по которой водителей вынуждают дважды платить за ущерб в мелких ДТП, выяснили «Известия». Со стороны всё выглядит законно: владельцы СТО получают деньги от страховой компании за ремонт пострадавшего авто, затем выкупают у потерпевшей стороны право затребовать задолженность (т.н. право цессии) и спустя несколько лет после аварии (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609471   (1042576) от 06.02.2023
+
+В дорогих и популярных SSD-накопителях Samsung живет ошибка, прервращающая их в «кирпичи»
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042576.jpg" />
+</div>
+
+
+###  Подробнее
+
+Владельцы популярных NVMe SSD Samsung 980 Pro рискуют стать жертвами ошибки, заложенной в одну из ранних версий прошивки устройства. Если ее оперативно не обновить, то дорогостоящий накопитель может лишиться функции записи данных и стать почти бесполезным. Несмотря на репутацию весьма надежных дисков, SSD Samsung в последнее время преподнесли своим хозяевам несколько (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 700731   (1042568) от 06.02.2023
+
+Parallels Desktop for Mac 9.0.23062.920702 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042568.jpg" />
+</div>
+
+
+###  Подробнее
+
+С Parallels Desktop для Mac вы можете одновременно запускать приложения Windows и Mac OS X без перезагрузки, перетаскивать файлы между приложениями Windows и Mac, а также запускать приложения Windows из панели Mac Dock. Благодаря его высокой производительности вы можете с легкостью запускать любые, даже самые ресурсоемкие графические приложения Windows.Тип издания: OS X SoftwareРелиз состоялся: 12 сентября 2013Разработчик: Parallels Holdings, LtdПоддерживаемая ОС: OS X 10.6.8 or LaterЯзык интерфейса: Русский, Английский, Французский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9329D535B846B19845C8DBEE6552AAF9B2317119
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001229   (1042566) от 06.02.2023
+
+Тряпичный союз (2015) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь тихого подростка Вани меняется после знакомства с тремя очень странными парнями. Спортсмены, хулиганы, мечтатели, они называют себя «Тряпичный Союз» и верят, что изменят весь мир. Очарованный новой дружбой, Ваня поселяет парней у себя на даче и всеми силами пытается стать частью их «величайшей организации». Но у соседской девочки Саши свои планы на эту компанию.Производство: РоссияЖанр: Комедия, ДрамаРежиссер: Михаил МестецкийАктеры: Иван Янковский, Александр Паль, Василий Буткевич, Павел Чинарёв, Анастасия Пронина, Федор Лавров, Елена Нестерова, Владислав Ветров, Кирилл Кяро, Андрей КрыжнийПеревод: Не требуется (русский) iTunesПродолжительность: 01:38:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:232B1E35F1F96E2AD76B81095DE450118B101F8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436586   (1042376) от 03.01.2021
+
+Нет смысла покупать: почему телевизоры не готовы к PlayStation 5
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042376.jpg" />
+</div>
+
+
+###  Подробнее
+
+PlayStation 5 и Xbox Series X могут похвастаться наличием инновационных технологий, улучшающих качество картинки, в том числе запуском игр в разрешении 4K при частоте обновления экрана в 120 Гц. Однако далеко не все геймеры смогут насладиться отличным изображением, так как многие телевизоры просто не могут его обеспечить.Консоли последнего поколения от Sony и Microsoft (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435364   (1042370) от 03.01.2021
 
 MInstAll v.27.12.2020 By Andreyonohov / design by Leha342 (Unpacked) [Ru]
@@ -6,7 +162,7 @@ MInstAll v.27.12.2020 By Andreyonohov / design by Leha342 (Unpacked) [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042370.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042369.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Microsoft® Windows® 10 Professional VL x86-x64 20H2 RU by OVGorskiy 10.2020
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042368.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042326.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042314.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042311.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042309.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042308.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042130.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042129.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ Grand Theft Auto V (2015) [Ru/Multi] (1.0.2189) Repack R.G. Games
 >>27
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042122.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042071.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042064.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042062.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041870.jpg" />
 </div>
 
 
@@ -396,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041862.jpg" />
 </div>
 
 
@@ -422,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041825.jpg" />
 </div>
 
 
@@ -450,7 +606,7 @@ Anno 1800 (2020) [Ru/Multi] (9.2/dlc) Uplay-Rip InsaneRamZes [Complete Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041824.jpg" />
 </div>
 
 
@@ -476,7 +632,7 @@ Mi Band Master v3.1.4 Pro [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041820.jpg" />
 </div>
 
 
@@ -504,7 +660,7 @@ Parallels Desktop Business Edition 16.1.2 (build 49151) Toolbox 4.1.1 (build 369
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041811.jpg" />
 </div>
 
 
@@ -518,162 +674,6 @@ Parallels Desktop 16.1.2 (49151) для Mac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C01C6BF1CA870C290AA3F4221F63C86265C8098
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437113   (1041810) от 05.01.2021
-
-Человек из Подольска (2020) WEBRip [H.264/1080p-LQ]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041810.jpg" />
-</div>
-
-
-###  Подробнее
-
-Николай любит Амстердам, но живёт в Подольске, мечтает о музыкальной карьере, но занимает скромную должность в районной газете. Внезапное задержание московской полицией вовлекает его в смешной и страшный аттракцион, исход которого невозможно предсказать. Точно ли он находится в полицейском участке, кто эти требовательные интеллектуалы в погонах и откуда им все про (   Читать дальше...   )Производство: Россия, Фонд развития современного кинематографа «КИНОПРАЙМ», Новые людиЖанр: Комедия, ДрамаРежиссер: Семён СерзинАктеры: Вадик Королев, Виктория Исакова, Владимир Майзингер, Михаил Касапов, Илья Борисов, Олег Рязанцев, Евгений Сангаджиев, Георгий Кудренко, Рита Крон, Денис ГоринПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:28:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB20545B5190E02938A21232773E294EA71D85E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411382   (1041809) от 05.01.2021
-
-Serious Sam 4 (2020) [Ru/Multi] (1.07/dlc) Repack xatab [Deluxe Edition] (обновляемая)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041809.jpg" />
-</div>
-
-
-###  Подробнее
-
-Человечество находится в осаде, орды Ментала распространяются по всему миру, уничтожая остатки сломленной и разбитой цивилизации. Последнее препятствие на пути захватчиков - Армия Обороны Земли, возглавляемая Сэмом Стоуном по прозвищу Крутой Сэм и его вооруженным до зубов отрядом солдат. Croteam возвращаются с мощнейшим приквелом к серии игр Крутой Сэм, увеличивая (   Читать дальше...   )Тип издания: RepackРазработчик: CroteamЖанр: Экшн, Приключение, ФантастикаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84B6807C9621BB181D6720942D0E04928BF57320
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 788376   (1041808) от 05.01.2021
-
-Пора Приключений (Время Приключений) / Adventure Time (2010-2018) WEB-DL [H.264/720p] (Сезон: 1-9(10), Серии: 1-142 из 142) [EN, RU Sub]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пора Приключений - американский анимационный сериал, созданный Пендлтоном Вордом. Сериал повествует о необыкновенных и весёлых приключениях двух лучших друзей: мальчика Финна и его собаки Джейка. Действие сериала происходит в волшебной стране Ууу. Финн - 13-летний мальчик, который обожает путешествовать и спасать принцесс из лап ужасных монстров и злодеев, населяющих (   Читать дальше...   )Производство: США, Frederator StudiosЖанр: Рисованная анимация, Приключения, КомедияРежиссер: Ларри Лэйчлитер / Larry LeichliterПерсонажи: Джереми Шэда - Человек Финн, Джон Димаджио - Пёс Джейк, Хинден Уолш - Принцесса Жвачка, Ники Янг - Леди Радугарог, Том Кенни - Ледяной КОроль, Оливия Олсон - Королева Вампиров МарселинаПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские (отдельным файлом), перевод Павел Самойлов aka TanisПродолжительность: ~00:22:00 х Серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEAD1BD1BB2D72DB6B524342994CA61CD0E89BB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 864383   (1041807) от 05.01.2021
-
-Star Conflict: Faction Wars(2013) [Ru/Multi] (1.8.0.143448) License (обновляемая)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Star Conflict - компьютерная многопользовательская онлайн-игра, созданная студией StarGem Inc совместно с Gaijin Entertainment. Игра позволяет сесть за штурвал космического звездолета и принять участие в массовых битвах звездных армад.Тип издания: LicenseРазработчик: Star GemЖанр: Simulator, MMORPG, Action, AdventureЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7C41772E88558439FC705C25E4FAC8337930E91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610624   (1041779) от 09.02.2023
-
-Производство аккумуляторов всё больше зависит от кустарной добычи кобальта
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Женевский центр бизнеса и прав человека и Центр бизнеса и прав человека им. Стерна Нью-Йоркского университета сообщают, что добыча кобальта кустарным способом становится ключом к росту глобального производства аккумуляторов. Экспертов беспокоит, что отсутствие государственного регулирования на кустарных объектах ведёт к бесправию, угнетению и утрате здоровья работников, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437321   (1041549) от 06.01.2021
-
-Премия Steam Awards 2020: геймеры выбрали игрой года Red Dead Redemption 2
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ещё 22 декабря 2020 года сотрудники компании Valve запустили премию Steam Awards 2020, в ходе которой геймеры голосовали за лучшие проекты в десяти категориях. В этот раз в каждой из категорий было представлено по пять популярных в определённом жанре игр, среди которых пользователь выбирал что-то наиболее интересное, а вчера, 3 января уже 2021 года, были подведены (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

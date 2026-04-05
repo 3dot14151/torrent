@@ -6,7 +6,7 @@ Ninja Kamui | Ниндзя Камуи [2024, Web, 13] WEBRip 1080 raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57143.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Gekijouban Hibike! Euphonium: Todoketai Melody | Играй, эуфониум! �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56881.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Gekijouban Hibike! Euphonium: Chikai no Finale | Sound! Euphonium: The Movie - O
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56878.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Tokubetsu Hen Hibike! Euphonium: Ensemble Contest Hen | Sound! Euphonium: Specia
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56877.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Gekijouban Servamp: Alice in the Garden | Сервамп (фильм) [2018, Mov
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56665.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Kurokami The Animation / Темная богиня [2009, TV,   23 серий] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56516.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Campione! Matsurowanu Kamigami to Kami Koroshi no Maou | Чемпион! ~Шко
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56298.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Grimm Kumikyoku | The Grimm Variations | Вариации Гриммов [2024, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55303.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Suki demo Kirai na Amanojaku | My Oni Girl | Моя подруга — демо�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55219.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Garouden: The Way of the Lone Wolf | Легенда о голодных волк
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55120.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Omamori Himari / Защитница Химари [2010, TV, 12 серий] BDrip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54622.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Boku no Kokoro no Yabai Yatsu | The Dangers in My Heart | Опасность в 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53166.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Mahou Shoujo ni Akogarete | Gushing over Magical Girls | Становясь во
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53137.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Isekai Cheat Magician | Маг-обманщик из другого мира [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49907.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Sousou no Frieren | Frieren: Beyond Journey's End | Провожающая в п
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47185.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Kusuriya no Hitorigoto | The Apothecary Diaries | Записки аптекар�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47157.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Bofuri | Itai no wa Iya nano de Bougyoryoku ni Kyokufuri Shitai to Omoimasu. 2 |
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47144.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Lv2 kara Cheat datta Moto Yuusha Kouho no Mattari Isekai Life | Chillin' in Anot
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47123.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Mato Seihei no Slave | Chained Soldier | Раб спецотряда [ТВ-1] [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47075.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Terminator Zero | Терминатор Зеро [2024, Web, 8 эп.] WebRip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45323.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Gekijouban Blue Lock: Episode Nagi | Синяя тюрьма: Блю Лок - Э
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39670.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Ani ni Tsukeru Kusuri wa Nai! 5 | В случае с братом медицин
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39364.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Edens Zero 2 | Нулевой Эдем [ТВ-2] [2023, TV, 25 эп.] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39271.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Ariel Visual | Ариэль [1989, OVA, 2 из 2] BDRip 1080p HEVC 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36863.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Ariel Deluxe | Deluxe Ariel | Роскошная Ариэль [1991, OVA, 2 из
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36860.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Megami-ryou no Ryoubo-kun. | Mother of the Goddess' Dormitory | Комендан
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35065.jpg" />
 </div>
 
 

@@ -1,3 +1,163 @@
+###  Публикация: 1429149   (176519) от 06.12.2020
+
+Бэнкси. Расцвет нелегального искусства / Banksy and the Rise of Outlaw Art (2020) DVB [H.264/1080i-LQ]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176519.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм «Бэнкси» посвящен не только и не столько личности самого таинственного андеграундного художника современности, превратившего уличное искусство в политический манифест; картина прослеживает историю становления такого неоднозначного вида искусства, как граффити. В фильме принимают участие многие знаменитые художники-стритартеры, которые делятся (   Читать дальше...   )Производство: Великобритания / Spiritlevel CinemaЖанр: Документальный, Искусство, БиографияРежиссер: Элио ЭспанаПеревод: Многоголосый профессиональный (Первый канал)Субтитры: Русские (Teletext)Продолжительность: 01:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89D498BF929A7BD3ADA9148C2FB574DCDA6FDF14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195487   (176491) от 03.12.2022
+
+А. Слободской | Благодатный Огонь (1995) DVDRip
+
+>>Документалистика и Телепередачи
+>>Религии и культы (Док/TV)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм, снятый по благословению Святейшего Патриарха Московского и всея Руси Алексия II, о явлении Благодатного огня у Гроба Господня при свидетельстве Блаженнейшего Патриарха Святого Града Иерусалима и всея Палестины Диодора I...
+
+1. Свидетельство Иерусалимского Патриарха Диодора I и очевидцев о Благодатном Огне.
+2. Гроб Господень - место сошествия Благодатного Огня.(   Читать дальше...   )Жанр: Православные святыниПродолжительность: 00:56:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA342D790CD1CFCBD7B3FAAEF76588511F3F1C36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 334715   (176304) от 06.12.2020
+
+Агент А/201. Наш человек в гестапо (2 серии) (2011) SATRip
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176304.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два года назад Служба внешней разведки (СВР) России рассекретила архивные материалы дела "Брайтенбах" — под таким псевдонимом работал в Германии один из ценнейших агентов советской разведки Вилли Леман.
+У героя Юлиана Семенова был реальный прототип: гауптштурмфюрер СС Вилли Леман, шеф реферата общей контрразведки гестапо. Чистокровный немец, он в годы Первой (   Читать дальше...   )Жанр: Документальный, военная историяПродолжительность: 1. 00:43:19, 2. 00:42:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BE5DF2324F1DB45CCB500C8E21757082803CFE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595198   (176292) от 04.12.2022
+
+Первая передача на НТВ. Автомобильная передача (04.12.2022) SATRip [H.264]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Абсурдные причины лишения водительских прав и правильный запуск разряженного аккумулятора. Насморк и плохое настроение — причины лишения водительских прав. Как защититься от абсурдного обвинения?Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:23:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC975DCB7876750CDB7EA9D18C8B681830AA1593
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595345   (176188) от 04.12.2022
+
+Карл III. Король ожидания (2022) IPTVRip
+
+>>Документалистика и Телепередачи
+>>История
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Британцы называют нового короля "73-летним мужчиной, наконец-то получившим работу". "Слабак", "деспот", "высокомерный транжира"… Или "тонкая личность", "умеющий любить" и "талантливый художник"? Плохих слов в адрес Карла III гораздо больше. Люди хотят видеть на троне его старшего сына.Производство: Россия, ТВЦЖанр: документальный, история, биографияЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5E41394C804CA2CF63C8A8CAB98E80E4B049BE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595195   (176185) от 04.12.2022
+
+Чудо техники с Сергеем Малозёмовым (04.12.2022) SATRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176185.jpg" />
+</div>
+
+
+###  Подробнее
+
+От 2012 до 2022 - 10 лет чудес. Что изменилось в быту транспорте и медицине? Какие чудо-товары нам удалось веселее всего протестировать? Чем и ради чего рисковали испытатели и почему серьёзные учёные соглашаются участвовать в наших безумствах?Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:40:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:250ECB82DAF9E00A32AC6306D2DE8B738F52D45D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595261   (176161) от 04.12.2022
 
 Туссен-Лувертюр / Toussaint Louverture (2012) DVB (сезон 1, серии 1-2 из 2)
@@ -6,7 +166,7 @@
 >>История
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176161.jpg" />
 </div>
 
 
@@ -32,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176131.jpg" />
 </div>
 
 
@@ -58,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176120.jpg" />
 </div>
 
 
@@ -84,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176072.jpg" />
 </div>
 
 
@@ -110,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176058.jpg" />
 </div>
 
 
@@ -136,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176047.jpg" />
 </div>
 
 
@@ -162,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176029.jpg" />
 </div>
 
 
@@ -188,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175949.jpg" />
 </div>
 
 
@@ -214,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175837.jpg" />
 </div>
 
 
@@ -240,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175546.jpg" />
 </div>
 
 
@@ -266,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175545.jpg" />
 </div>
 
 
@@ -292,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175501.jpg" />
 </div>
 
 
@@ -318,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175466.jpg" />
 </div>
 
 
@@ -344,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175463.jpg" />
 </div>
 
 
@@ -370,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175315.jpg" />
 </div>
 
 
@@ -396,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175055.jpg" />
 </div>
 
 
@@ -422,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175028.jpg" />
 </div>
 
 
@@ -448,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175021.jpg" />
 </div>
 
 
@@ -474,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175016.jpg" />
 </div>
 
 
@@ -500,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175004.jpg" />
 </div>
 
 
@@ -511,162 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6792C952EBC069D9A0A84C976103EBA0A1FB3AB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595639   (174979) от 06.12.2022
-
-Военные корабли: в открытом море / Warship: Life at Sea (2021) WEBRip [H.264/720p] (сезон 3, серии 1-5 из 5) [DVO]
-
->>Документалистика и Телепередачи
->>Флот
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174979.jpg" />
-</div>
-
-
-###  Подробнее
-
-Откровенный документальный сериал об эсминце Королевского флота HMS Duncan, рассказывающем о жизни на борту его экипажа из двухсот восьмидесяти человек.Производство: ВеликобританияЖанр: документальныйРежиссер: Rebecca Allan, Ник Гарднер, Matt FisherПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: русскийПродолжительность: ~00:44:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18F989E3BEFDE59A35980AAB244CB0176691C0C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595615   (174967) от 06.12.2022
-
-Жизнь в открытом космосе / Life in Outer Space (2022) WEBRip [H.264/720p] [VO]
-
->>Документалистика и Телепередачи
->>Космос
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174967.jpg" />
-</div>
-
-
-###  Подробнее
-
-Научное сообщество убеждено, что в ближайшие десятилетия мы раскроем одну из величайших тайн Вселенной и найдем жизнь за пределами Земли. Мы пока не можем знать, произойдет ли открытие жизни в нашей Солнечной системе или в другом отдаленном месте во Вселенной, но ясно, что следующее поколение станет свидетелем открытия, которое бросит вызов нашему пониманию Вселенной.Производство: ИспанияЖанр: документальныйРежиссер: Ruth ChaoПеревод: Одноголосый профессиональный (Jaskier)Язык озвучки: русскийПродолжительность: 00:52:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A43CA943452B434FD271F63E4F71B40CC2BCF95D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595641   (174847) от 06.12.2022
-
-Территория / The Territory (2022) WEB-DL [H.264/1080p] [DVO]
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174847.jpg" />
-</div>
-
-
-###  Подробнее
-
-С тех пор как коренной народ уру-эу-вау-вау вступил в контакт с некоренными бразильцами, его население сократилось, а культура оказалась под угрозой. Хотя им было обещано право на владение своей землей тропических лесов, они столкнулись с незаконными вторжениями со стороны разрушительных для окружающей среды лесозаготовительных и горнодобывающих компаний, а в последнее (   Читать дальше...   )Производство: Бразилия, Дания, США / Associação Jupaú do Povo Uru-eu-wau-wau, Doc Society, Documist, Passion Pictures, Protozoa Pictures, Real LavaЖанр: документальныйРежиссер: Alex PritzПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: русский, португальскийСубтитры: английские (full, SDH)Продолжительность: 01:24:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE540A60E75411E5D95A048B1BE29E25219D2D98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668274   (174570) от 11.10.2023
-
-Гильотина: французское изобретение / La guillotine, une invention francaise (2021) DVB [FR / RU Sub]
-
->>Документалистика и Телепередачи
->>История
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174570.jpg" />
-</div>
-
-
-###  Подробнее
-
-В коллективном сознании французов гильотина остается орудием смертного приговора. Изобретённая во время революции 1789 года, она изначально преподносилась как инструмент прогресса. Со временем и с отменой смертной казни во Франции в 1981 году она стала символом человеческой жестокости.Производство: Франция, TV5MONDE EuropeЖанр: документальный, историяРежиссер: Жан-Шарль ДениоПеревод: субтитрыЯзык озвучки: французскийСубтитры: русские (перевод Анастасии Малицкой, компания Hiventy), немецкие, нидерландские, румынские, испанские - (IDX+SUB); английские, французские - (SRT)Продолжительность: 00:52:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:681DA9671993A30AFE26121F4677C9AB7BEE2E6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595818   (174545) от 07.12.2022
-
-Настоящий Дес: История Денниса Нильсена / The Real Des (2020) WEBRip [H.264/720p] [DVO]
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Деннис Нильсен — один из самых известных серийных убийц в британской криминальной истории. В этом документальном фильме представлены эксклюзивные интервью с фигурантами его дела.Производство: ВеликобританияЖанр: документальныйРежиссер: Iwan RobersПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: русский, английскийСубтитры: русскиеПродолжительность: 00:46:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEAF6B99CDA4242C49FE3530557614356135D162
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595904   (174501) от 07.12.2022
-
-Монстр. Йозеф Фритцль: 10 лет спустя / Fritzl The Monster: 10 Years On (2019) HDTVRip [H.264/720p] [VO]
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174501.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дело Йозефа Фритцля шокировало весь мир в 2008 году, когда открылась правда о том, что на протяжении 24 лет он насильно удерживал собственную дочь в подвале. В результате Элизабет родила 7 детей. Документальный фильм раскрывает подробности этого жуткого дела спустя 10 лет после судебного разбирательства, а также рассказывает, что случилось в дальнейшем со всеми участниками (   Читать дальше...   )Производство: ВеликобританияЖанр: документальныйРежиссер: Софи БлэкПеревод: Одноголосый любительский (datynet)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:55:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:112C2BFBBFDACABF4A8B66CE6C90F229E4BA5043
 ```
 
 https://mybot314.ru/tekegram_catalog/

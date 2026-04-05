@@ -1,3 +1,57 @@
+###  Публикация: 1011617   (796039) от 28.04.2016
+
+FILTERiT 4.6.3 plug-in for Adobe Illustrator [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796039.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cvalley FILTERiT - плагин к Adobe Illustrator который позволяет создать больше чем 50 эффектов — от искажения и волн до увеличения и "осколков", а также включает такие фильтры как объемная трансформация, фрактализация, трассирование и др. FILTERiT предоставляет 13 «живых» эффектов.
+
+Например, эффект Live Circle автоматически распространяет различные копии (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2016Разработчик: CValley, Inc.Поддерживаемая ОС: OS XЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A090491281BC1A5D3DFA66A96DEFEC1A71441A6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385996   (795986) от 27.05.2020
+
+Librarian Pro 5 v5.1.4 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение для каталогизации и систематизации различных вещей: книг, журналов, музыкальных, видео и игровых дисков и прочее. Вся создаваемая база сортируется отдельно по каждому типу вещей и содержит множество полей для максимального описания. Поля можно заполнить автоматически, скачивая необходимую информацию из интернета, поскольку программа поддерживает тесную (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.05.2020Разработчик: Koingo Software, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D191D57C7CBDA07D31163AF6878052315BA8F088
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011622   (795894) от 28.04.2016
 
 Xtream Path 1.6.3.2 plug-in for Adobe Illustrator [En]
@@ -6,7 +60,7 @@ Xtream Path 1.6.3.2 plug-in for Adobe Illustrator [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795894.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ Aegisub 3.2.2 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795877.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ Smart Shooter 4 v4.16 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795839.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ Faxbot 2.6.2 fix [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795618.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ CDpedia 6.2.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795616.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ DVDpedia 6.2.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795611.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ Bookpedia 6.2.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795604.jpg" />
 </div>
 
 
@@ -192,7 +246,7 @@ Neural Mix Pro 1.1.1 fix [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795498.jpg" />
 </div>
 
 
@@ -218,7 +272,7 @@ ReaditNews 2.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795355.jpg" />
 </div>
 
 
@@ -244,7 +298,7 @@ Flinto 1.4.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795348.jpg" />
 </div>
 
 
@@ -271,7 +325,7 @@ EJ Technologies JProfiler 11.1.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795270.jpg" />
 </div>
 
 
@@ -297,7 +351,7 @@ Classic Weather Premium 4.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795031.jpg" />
 </div>
 
 
@@ -324,7 +378,7 @@ OCRKit Pro 21.11 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795001.jpg" />
 </div>
 
 
@@ -352,7 +406,7 @@ ConceptDraw PROJECT 12 v12.0.0.167 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794947.jpg" />
 </div>
 
 
@@ -378,7 +432,7 @@ CrossOver 18.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794701.jpg" />
 </div>
 
 
@@ -406,7 +460,7 @@ Adguard 2.4.8 (797) Release [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794324.jpg" />
 </div>
 
 
@@ -432,7 +486,7 @@ Enfocus PitStop Pro 2020 Build 1122552 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794265.jpg" />
 </div>
 
 
@@ -458,7 +512,7 @@ Recordings Pro 7.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793642.jpg" />
 </div>
 
 
@@ -487,7 +541,7 @@ Calendarique 4.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793575.jpg" />
 </div>
 
 
@@ -514,7 +568,7 @@ AnyMP4 MTS Converter 8.2.18 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793554.jpg" />
 </div>
 
 
@@ -540,7 +594,7 @@ Cleaner for Xcode 3.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793550.jpg" />
 </div>
 
 
@@ -566,7 +620,7 @@ Finch for Inbox 2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793423.jpg" />
 </div>
 
 
@@ -594,7 +648,7 @@ Softorino YouTube Converter 2 v2.1.16 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793411.jpg" />
 </div>
 
 
@@ -623,7 +677,7 @@ Flume - A beautiful Instagram experience 1.2.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793382.jpg" />
 </div>
 
 
@@ -635,58 +689,6 @@ Flume - новое приложение для просмотра контент
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F3D32149CB39521E8948F7151B530C0B818A72A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012624   (793374) от 01.05.2016
-
-Xilisoft Video Converter Ultimate 7.8.6 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793374.jpg" />
-</div>
-
-
-###  Подробнее
-
-Xilisoft Video Converter for Mac - это многофункциональный видео конвертер, поддерживающий конвертирование между почти всеми аудио и видео форматами. Вам больше не прийдется беспокоится, что ваше видео не проигрывается на ваших девайсах. Конвертер делает большинство медиа файлов проигрываемыми на PSP, iPod, PS3, iPhone, iPad, Apple TV, Zune, мобильных телефонах и (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 14.10.2015Разработчик: XilisoftПоддерживаемая ОС: 10.6Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:282F74DB553B556F9D547DFE9CA942AE3220066D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122688   (793358) от 06.04.2017
-
-Blink Pro 4.5.1 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793358.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blink - это произведение искусства, простой в работе SIP клиент. Он элегантный, интуитивный, нагружен всякими функциями. Blink можно использовать без подключения к интернету, в сети LAN, или можно настроить для работы с любыми провайдерами SIP телефонии. Blink - универсальный клиент с возможностями: обмена сообщениями, быстрой передачей файлов, поддержкой VoIP, поддержкой (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 15 октября 2016Разработчик: AG ProjectsПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D62E65CAC147B7F7A351EB6652CDA419110DD0CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

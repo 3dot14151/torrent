@@ -1,3 +1,133 @@
+###  Публикация: 130020   (1000920) от 14.01.2020
+
+Легенда о Тарзане / The Legend Of Tarzan (1-2 сезон: 39 серий из 39) (2001-2003) SATRip
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000920.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультсериал компании Уолта Диснея о приключениях смелого и благородного дикаря Тарзана и его возлюбленной Джэйн. Тарзан пытается защитить родные джунгли от вторжения цивилизации. В каждом эпизоде он помогает своим друзьям и борется с негодяями, которые пытаются разрушить его мир.Режиссер: Виктор Кук, Дон МаккиннонПерсонажи: Джэйн, Тарзан, обезьяныПеревод: ДублированныйПродолжительность: 39 х ~ 00:21:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A09289A8F0B50D292B3B9A4B6EA14D3267B4CB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352730   (1000862) от 15.01.2020
+
+Умка ищет друга (1970) WEBRip [H.264/1080p-LQ] [PR]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение приключений медвежонка, который ищет своего друга мальчика на станции полярников во время Нового года.Производство: СССР / СоюзмультфильмЖанр: Короткометражный, Рисованная анимацияРежиссер: Владимир Попов, Владимир ПекарьАктеры: Маргарита Корабельникова, Вера ВасильеваСубтитры: ОтсутствуютПродолжительность: 00:09:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AF1358E9960F0E7D21B449BDACB2EA33A79DF44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350893   (1000855) от 15.01.2020
+
+Первый урок (1948) WEBRip [H.264/1080p-LQ] [PR]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Медведь-учитель, рассказывает медвежатам о пользе и вреде пчел, которые могут причинить медведям. Внезапно над полянкой появляется пчела. Медвежата, не дослушав урока, бросаются за ней в погоню.Производство: СССР / СоюзмультфильмЖанр: Короткометражный, рисованная анимацияРежиссер: Ламис БредисСубтитры: ОтсутствуютПродолжительность: 00:10:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2A1AF067AD96751AC1FABEA6D2F8C8761DF4B4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352729   (1000843) от 15.01.2020
+
+Умка (1969) WEBRip [H.264/1080p-LQ] [PR]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000843.jpg" />
+</div>
+
+
+###  Подробнее
+
+О дружбе белого медвежонка и мальчика.Производство: СССР / СоюзмультфильмЖанр: Короткометражный, рисованная анимацияРежиссер: Владимир Попов, Владимир ПекарьАктеры: Клара Румянова, Маргарита Корабельникова, Варвара ПоповаСубтитры: ОтсутствуютПродолжительность: 00:10:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60B08674DE0FB2D1C23708755485972D57874A1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352767   (1000830) от 15.01.2020
+
+Паровозик из Ромашкова (1967) WEBRip [H.264/1080p-LQ] [PR]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000830.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказка для малышей о паровозике, который очень любил природу.Производство: СССР / СоюзмультфильмЖанр: Короткометражный, рисованная анимацияРежиссер: Владимир ДегтяревАктеры: Клара Румянова, Георгий Вицин, Мария Виноградова, Анатолий ПапановСубтитры: ОтсутствуютПродолжительность: 00:09:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A3D7920AB07C7031ED35A19A3670F94F91527A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1351179   (1000798) от 15.01.2020
 
 Бесконечный поезд / Infinity Train (2020) HDTVRip [H.264/720p-LQ] (сезон 2, серии 1-10 из 10) NewStation
@@ -6,7 +136,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000798.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000648.jpg" />
 </div>
 
 
@@ -60,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000330.jpg" />
 </div>
 
 
@@ -86,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000255.jpg" />
 </div>
 
 
@@ -112,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000245.jpg" />
 </div>
 
 
@@ -138,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000241.jpg" />
 </div>
 
 
@@ -164,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000219.jpg" />
 </div>
 
 
@@ -190,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000111.jpg" />
 </div>
 
 
@@ -218,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000107.jpg" />
 </div>
 
 
@@ -244,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999984.jpg" />
 </div>
 
 
@@ -270,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999893.jpg" />
 </div>
 
 
@@ -296,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999891.jpg" />
 </div>
 
 
@@ -324,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999865.jpg" />
 </div>
 
 
@@ -350,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999558.jpg" />
 </div>
 
 
@@ -378,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999273.jpg" />
 </div>
 
 
@@ -406,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999254.jpg" />
 </div>
 
 
@@ -432,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999252.jpg" />
 </div>
 
 
@@ -458,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999066.jpg" />
 </div>
 
 
@@ -486,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999051.jpg" />
 </div>
 
 
@@ -512,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999041.jpg" />
 </div>
 
 
@@ -538,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999023.jpg" />
 </div>
 
 
@@ -552,136 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F08988DA493F4F1F6BE78F2C2F3EEA4CA1D2AEBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600350   (998846) от 08.01.2013
-
-Чертёнок с пушистым хвостом (1985) DVDRip [H.264]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два незадачливых бандита похищают маленького котёнка, чтобы потребовать от папаши выкуп. Но лучше бы они этого не делали…Жанр: Рисованная анимация, ДетскийРежиссер: Анатолий РезниковПерсонажи: Евгений Евстигнеев, Борис НовиковПродолжительность: 00:15:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:869EC397D9758BCADC1D8773605FBA5E3DD6D74E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600193   (998830) от 08.01.2013
-
-Снеговик и Снежный пёс / The Snowman and the Snowdog (2012) HDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультфильм "Снеговик и Снежный пёс" создан в стилистике и является продолжением классического мультика "Снеговик", созданного в 1982 году по одноименной книге Раймонда Бриггса. Новый фильм, как и его знаменитый предшественник, был нарисован от руки без применения компьютерной графики и рассказывает еще одну волшебную рождественскую историю с участием (   Читать дальше...   )Жанр: Детский, Рисованная анимацияРежиссер: Хилари ОдусПеревод: Без слов / НемойПродолжительность: 00:23:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4917CB4DE5F66E7965280546011115C558DDAB63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600355   (998807) от 08.01.2013
-
-Пушистые против Зубастых 3D / The Outback (2012) [1080p] BDRip [Вертикальная анаморфная стереопара 3D]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нелегко живется на свете если ты белый, а все остальные — серые. Так и белый коала Джонни страдает от своей особенности. А если ты особенный — то тебе, ясное дело, прямая дорога в цирк! Но любовь публики недолговечна, особенно, если кроме цвета шерсти, тебе нечем похвастаться. Джонни мечтает стать крутым суперегероем и ему представится такой шанс! Для этого всего (   Читать дальше...   )Жанр: Мультфильм, Приключения, СемейныйРежиссер: Кюнг Хо ЛиАктеры: Чарли Бьюли, Алан Камминг, Тим Карри, Крис Эджерли, Эрик Лопез, Норм МакДональд, Брэт МакКензи, Нолан Норт, Филип Проктор, Дженни ПулосПеревод: ДублированныйПродолжительность: 01:25:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65D0D87A89B4B2496C9179D586EFD6DBE7E5BBE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600910   (998519) от 09.01.2013
-
-Наживка для акулы: Не очень страшное кино / Shark Bait (2006) DVD9
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веселые приключения забавной маленькой рыбки по имени Пи, отправившейся в поисках счастья на Большой Риф после гибели родителей. Влюбившись в самую очаровательную и знаменитую красотку Рифа, он наживает себе серьезных врагов, значительно превосходящих его по силе. Но с ним верные друзья и мудрые помощники, всегда готовые прийти на помощь. Сможет ли он отстоять свою (   Читать дальше...   )Производство: США, Корея ЮжнаяЖанр: Мультфильм, СемейныйРежиссер: Ховард Э. Бэйкер, Джон ФоксПерсонажи: Фредди Принц мл., Роб Шнайдер, Ивэн Рэйчел Вуд, Донал Лог, Энди Дик, Фрэн Дрешер, Джон Рис-Дэвис, Р. Ли Эрми, Бруно Александр, Брайс Бэкхам ...Перевод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:14:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A46FAE122A27A149C9DD8F05100A6DAF37322EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600076   (998466) от 09.01.2013
-
-Муми-Тролли / Tanoshii Moomin Ikka / Moomin(Delightful Moomin Family) (1990) DVDRip (78 серий)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998466.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот сериал основан на серии книг про Мумитроллей финского писателя и иллюстратора Туве Янссон, создан Telecable Benelux BV 1990-1992 годах. В общей сложности было сделано 104 эпизода. Сериал создал "Муми-бум" 90-х годов, однако многие серии "адаптированы" по сравнению с оригинальными книгами Туве Янсон, которые критиковались как весьма тёмные и страшные для детей. Сюжеты здесь мягче и симпатичней. Это продолжение восхитительных историй семьи Мумитроллей после мультфильма "Комета прилетает" по книге с одноименным названием. Сериал выходил в эфир во многих странах.Жанр: приключения,комедия,семейныйРежиссер: Сайто ХиросиПеревод: Многоголосовый, закадровыйПродолжительность: 78 серий по ~ 00:23:00
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

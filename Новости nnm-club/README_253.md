@@ -1,3 +1,55 @@
+###  Публикация: 1676199   (153728) от 15.11.2023
+
+Илон Маск назначил Робота генеральным директором своей компании
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Илон Маск назначил робота Мику гендиректором своего завода по производству рома. Оказывается, Илон Маск владеет не только технологическими гигантами, но и предприятием по производству колумбийского рома Dictador. «Фишка» в том, что Маск назначил на должность генерального директора человекоподобного робота с искусственным интеллектом Мику.Это «девушка», которая одновременно (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429168   (153714) от 22.12.2020
+
+Враг мой / Enemy Mine (1985) BDRip [H.265/1080p-LQ] [10-bit]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153714.jpg" />
+</div>
+
+
+###  Подробнее
+
+В глубинах нашей галактики, на огромном расстоянии от Земли люди ведут кровопролитную войну с расой рептилий. Войну, которой Земля отдает последние силы, войну на полное уничтожение. В одной из жестоких схваток в окрестностях гористой планеты в системе двойной звезды пилот Виллис Дэвидж сбивает машину чужого, но тут же получает несколько попаданий и выходит из боя.Производство: США, Германия (ФРГ), Великобритания / Twentieth Century Fox, Kings Road Entertainment, SLM Production GroupЖанр: фантастика, боевик, драма, приключенияРежиссер: Вольфганг ПетерсенАктеры: Деннис Куэйд, Луис Госсет мл., Брайон Джеймс, Ричард Маркус, Кэролин МакКормик, Бампер Робинсон, Джим Мапп, Лэнс Кервин, Скотт Крафт, Лу МайклсПеревод: Дублированный, многоголосый, авторскийСубтитры: Русские, английскиеПродолжительность: 01:48:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC481444BF8660CECD9433FBB0E377964C6BEFF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1055686   (153648) от 23.12.2016
 
 Мир Наизнанку. Непал / Світ навиворіт с Дмитром Комаровим (2016) HDRip [H.264/1080p-LQ] (Сезон 8, серии 1- 15 из 15)
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153648.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ WiFi File Explorer Pro 1.11.0 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153635.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Design
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153620.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4456.1003 VL (x86)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153607.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_153502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_153502.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ KMS Tools Portable by Ratiborus 14.12.2021 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153358.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_153187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_153187.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_153152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_153152.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153021.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153016.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ XaKeR_CD USB Edition Full 13.0/Lite 3.0 (19.12.2018)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152844.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152824.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152668.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152641.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ Zомбилэнд: Контрольный выстрел / Zombieland: Double Ta
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152599.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152220.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ Corona Renderer 7 (Hotfix 1) for 3ds Max 2014-2022 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151853.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151606.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ SpaceX запустила новые спутники Starlink для улучш
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151504.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151468.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ Cent Browser 5.0.1002.295 Stable + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151349.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ PotPlayer 221215 (1.7.21862) (x64) Stable RePack (& portable) by 7sh3 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151308.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151293.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ Kerish Doctor 2022 4.90 (DC 18.12.2022) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151238.jpg" />
 </div>
 
 
@@ -623,58 +675,6 @@ Kerish Doctor — комплексное решение для автомати�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EDB392CB45C32D19F3139D18FF85E4CEBAEC398
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454753   (151197) от 30.12.2022
-
-Immortals Fenyx Rising (2020) [Ru/Multi] (1.3.4/dlc) Repack Other s [Gold Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151197.jpg" />
-</div>
-
-
-###  Подробнее
-
-Immortals Fenyx Rising — приключение в вымышленном мире, где главный герой должен спасти греческих богов от могущественного Тифона. Увлекательное путешествие заносит протагониста на остров Благословенный, где обосновались опасные мифические существа.Тип издания: RepackРазработчик: UbisoftЖанр: Adventure, Action, RPG, 3rd Person, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6439680B1BC25BF198CB3EE62450D86F735C44F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521114   (151178) от 30.12.2022
-
-Честный развод (2021) WEBRip [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гена всю жизнь старался быть опорой семьи. Ради этого он даже отказался от бурной молодости и мечты стать звездой КВН. А когда спустя 25 лет жена назвала его скучным и предложила развестись, Гена решает наверстать упущенное — наполнить жизнь приключениями и поехать на фестиваль КВН в Сочи. А подталкивает его к этому путешествию новая знакомая — прекрасная девушка (   Читать дальше...   )Производство: Россия / MEGOGOЖанр: КомедияРежиссер: Иван КульневАктеры: Александр Робак, Агата Муцениеце, Андрей Борисов, Анна Невская, Андрей Федорцов, Юлия Сулес, Сергей Анненков, Ирина БезрядноваПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:37:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:710B0561089A014AC1ABB569EAAACC47354259C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,133 @@
+###  Публикация: 1855748   (1058169) от 24.02.2026
+
+EarthView 7.14.3 RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разное (прочее ПО)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058169.jpg" />
+</div>
+
+
+###  Подробнее
+
+EarthView — это динамические обои для рабочего стола и хранитель экрана, которые отображают прекрасные виды земли с дневным светом и ночными тенями. Он создает красочные, высококачественные изображения с высоким разрешением для любого разрешения экрана — даже выше 3840x2160! Программа поддерживает виды карты и земного шара, городские районы, городские огни, атмосферные (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:186A23E92481AEE1EF783E055266A099671A2839
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855485   (1058080) от 23.02.2026
+
+Aptech Systems GAUSS 25.0.1 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058080.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aptech Systems GAUSS — коммерческая программная среда и язык программирования для численных вычислений, статистики, эконометрики и анализа данных, разработанная компанией Aptech Systems Inc. и используемая для решения сложных математических и аналитических задач. GAUSS изначально создан для эконометрических задач (временные ряды, прогнозирование, модели GARCH, панельные (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F90ED22333ADE81062DB055D6ECE269D44270D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854974   (1057886) от 20.02.2026
+
+Interbase 15.0.0.37 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057886.jpg" />
+</div>
+
+
+###  Подробнее
+
+InterBase — это сверхбыстрая, масштабируемая и встраиваемая SQL-база данных с первоклассной защитой данных, мгновенным восстановлением после сбоев и уникальной, отмеченной наградами технологией синхронизации изменений.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F4D0BFDA7806FCEC0AF35F3283B0311B92D50A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854764   (1057784) от 19.02.2026
+
+MInstAll v.19.02.2026 By Andreyonohov (ISO) [Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>WPI
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед Вами обновленный 19 Февраля 2026 года полюбившийся многим пользователям сборник последних версий самых часто используемых в работе программ от Андрея Онохова. Теперь в новой, более простой и удобной оболочке MInstAll - это новый мастер установки приложений, упрощенный аналог WPI. Данный MInstAll имеет самый оптимальный состав софта для установки на чистые системы. (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3C23656349125AEFBE515CA8E1EBF53A6E90178
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854807   (1057723) от 19.02.2026
+
+Microsoft Visual Studio 2026 Enterprise 18.3.1 (Offline Cache) [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Visual Studio 2026 - это один из самых амбициозных шагов вперед, которые мы предприняли в отношении IDE. В этом выпуске искусственный интеллект напрямую интегрирован в рабочий процесс разработчика, улучшена производительность, которая меняет ожидания относительно скорости в масштабах предприятия, а современный дизайн делает рабочую среду более легкой и целенаправленной. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEF9EFE1B8E577B7C0284E2EF081D4DAA875285F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1854809   (1057722) от 19.02.2026
 
 Microsoft Visual Studio 2022 Enterprise 17.14.27 (Offline Cache) [Ru/En]
@@ -6,7 +136,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.27 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057722.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ MInstAll v.19.02.2026 By Andreyonohov (Unpacked) [Ru]
 >>WPI
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057717.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ SamDrivers 26.2 Mini - Сборник драйверов для Windows [Multi/R
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057675.jpg" />
 </div>
 
 
@@ -86,7 +216,7 @@ MInstAll SPECIAL v.19.02.2026 By Andreyonohov (ISO) [Ru]
 >>WPI
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057600.jpg" />
 </div>
 
 
@@ -112,7 +242,7 @@ TI-Nspire CX CAS Student Software 5.4.0.259 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057170.jpg" />
 </div>
 
 
@@ -138,7 +268,7 @@ SamDrivers 26.2 LAN [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057130.jpg" />
 </div>
 
 
@@ -164,7 +294,7 @@ SamDrivers 26.2 Expert [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057127.jpg" />
 </div>
 
 
@@ -190,7 +320,7 @@ SamDrivers 26.2 OLD - Сборник драйверов для Windows [Multi/Ru
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057121.jpg" />
 </div>
 
 
@@ -216,7 +346,7 @@ Microsoft Visual Studio 2022 Professional 17.14.26 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057078.jpg" />
 </div>
 
 
@@ -242,7 +372,7 @@ Microsoft .NET 10.0.3 Runtime [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056897.jpg" />
 </div>
 
 
@@ -269,7 +399,7 @@ Microsoft Visual Studio 2026 Professional 18.3.0 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056510.jpg" />
 </div>
 
 
@@ -295,7 +425,7 @@ NVIDIA GeForce Desktop Game Ready 591.86 WHQL + DCH [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056468.jpg" />
 </div>
 
 
@@ -321,7 +451,7 @@ Microsoft Visual Studio 2022 Community 17.14.26 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056455.jpg" />
 </div>
 
 
@@ -347,7 +477,7 @@ Microsoft .NET 9.0.13 Runtime [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056447.jpg" />
 </div>
 
 
@@ -374,7 +504,7 @@ JMAG Designer 18.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056423.jpg" />
 </div>
 
 
@@ -401,7 +531,7 @@ Microsoft Visual Studio 2026 Enterprise 18.3.0 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056415.jpg" />
 </div>
 
 
@@ -427,7 +557,7 @@ RegToCMD 1.0 RePack by BlueScreen [Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056414.jpg" />
 </div>
 
 
@@ -453,7 +583,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.26 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056413.jpg" />
 </div>
 
 
@@ -479,7 +609,7 @@ Maplesoft Maple Flow 2025.1 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056404.jpg" />
 </div>
 
 
@@ -505,7 +635,7 @@ MapleSoft MapleSim 2025.1 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056400.jpg" />
 </div>
 
 
@@ -531,7 +661,7 @@ AVEVA Process Simulation 2026.0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056384.jpg" />
 </div>
 
 
@@ -542,140 +672,6 @@ AVEVA Process Simulation — это интегрированная платфо�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:551B5526A16BF5FAAC12904ABDE6704AC619BAA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853086   (1056234) от 11.02.2026
-
-Siemens Solid Edge 2026.2510 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Solid Edge – наиболее полнофункциональная гибридная 2D/3D САПР, использующая синхронную технологию для ускорения процесса проектирования и редактирования, а также расширенной поддержки повторного использования импортированной геометрии. Solid Edge является ключевым компонентом портфеля решений Velocity Series™ и отличается превосходными инструментами для моделирования (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF0C007E37E5484D2184A6C5F17AC5F2E8EEDCFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852923   (1056176) от 10.02.2026
-
-JetBrains GoLand 2025.3.2 (x64-arm64) Repack by IDE`a [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056176.jpg" />
-</div>
-
-
-###  Подробнее
-
-GoLand - это интегрированная среда разработки (IDE) от компании JetBrains, специально разработанная для работы с языком программирования Go. Она предоставляет разработчикам удобную среду для написания кода, анализа и отладки программ на Go.
-
-IDE GoLand предлагает широкий спектр инструментов, специфичных для языка Go, таких, как автодополнение кода, быструю навигацию (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CC9C600C441C84CCA5671D9048B4178AAF8D636
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852259   (1055824) от 07.02.2026
-
-Siemens Simcenter Amesim 2404 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055824.jpg" />
-</div>
-
-
-###  Подробнее
-
-Amesim предлагает инженерам интегрированную платформу моделирования для точного прогнозирования междисциплинарных характеристик интеллектуальных систем. Amesim позволяет моделировать, имитировать и анализировать системы управления в различных областях, а также предоставляет возможности моделирования объектов для интеграции с проектированием систем управления, помогая (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B1EA58DD218AB5542C8C75FAFE38FD78190E5B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852095   (1055714) от 05.02.2026
-
-ESI SimulationX 4.1.1.63427 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055714.jpg" />
-</div>
-
-
-###  Подробнее
-
-SimulationX разработан инженерами для инженеров, с постоянным стремлением к совершенствованию. Мы досконально знаем рутину работы инженеров и понимаем требования рынка благодаря нашему опыту работы с клиентами из разных областей. Более быстрые и короткие циклы разработки, а также более качественные и надежные продукты — вот их главный приоритет, для чего у нас есть (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:483DD6BFD6C94894007637F86C09B0A0902450BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852147   (1055664) от 07.02.2026
-
-Open Server Panel 6.5.0 [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055664.jpg" />
-</div>
-
-
-###  Подробнее
-
-Open Server Panel — это портативная программная среда, созданная специально для веб-разработчиков с учётом их рекомендаций и пожеланий.
-
-Наш программный пакет включает в себя тщательно подобранный набор серверного программного обеспечения, а также удобную в использовании утилиту с широкими возможностями для администрирования и настройки всех доступных компонентов. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2F81FC5F46F58F4592312DAA4BE9D1F52144B23
 ```
 
 https://mybot314.ru/tekegram_catalog/

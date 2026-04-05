@@ -1,3 +1,33 @@
+###  Публикация: 1321312   (461206) от 23.08.2019
+
+Ashra - 4 Albums (1976-1980) Reissue CD [MP3|320 Kbps] <Electronic, Krautrock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461206.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ashra - немецкая группа, представляющая Берлинскую школу электронной музыки, которая была основана в 1976 году.
+Название Ashra является укороченной версией названия бывшей группы Геттшинга - Ash Ra Tempel. Изменение названия связано с изменением стиля - музыка стала менее психоделической и более ориентированной на электронику.Список альбомов:
+1976 - New Age Of Earth
+1977 - Blackouts
+1979 - Correlations(   Читать дальше...   )Жанр: Electronic, KrautrockПродолжительность: 03:01:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E4F46D4BC323FE15155829C39145BEADE0E51F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1162265   (461191) от 31.08.2017
 
 Septicflesh - Codex Omega (2017) Deluxe Edition [MP3|320 Kbps] <Symphonic Death Metal>
@@ -6,7 +36,7 @@ Septicflesh - Codex Omega (2017) Deluxe Edition [MP3|320 Kbps] <Symphonic Death 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461191.jpg" />
 </div>
 
 
@@ -35,7 +65,7 @@ Black Midi - Schlagenheim (2019) [FLAC 2.0|96/24|tracks|WEB-DL] <Math Rock, Art 
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461070.jpg" />
 </div>
 
 
@@ -64,7 +94,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460769.jpg" />
 </div>
 
 
@@ -90,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460578.jpg" />
 </div>
 
 
@@ -125,7 +155,7 @@ Behold… The Arctopus - Hapeleptic Overtrove (2020) [FLAC|Lossless|tracks + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460353.jpg" />
 </div>
 
 
@@ -154,7 +184,7 @@ Harakiri For The Sky - Arson (2018) [FLAC|Lossless|image + .cue] <Post Metal, Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460351.jpg" />
 </div>
 
 
@@ -183,7 +213,7 @@ Psychlona - Mojo Rising / Venus Skytrip (2018-2020) 2CD [MP3|320 Kbps] <Psychede
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460239.jpg" />
 </div>
 
 
@@ -209,7 +239,7 @@ Harakiri For The Sky - Harakiri For The Sky (2012) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460237.jpg" />
 </div>
 
 
@@ -238,7 +268,7 @@ Malevolent Creation - The 13th Beast (2019) [FLAC|Lossless|image + .cue] <Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460236.jpg" />
 </div>
 
 
@@ -267,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460234.jpg" />
 </div>
 
 
@@ -296,7 +326,7 @@ JD Simo (Simo) - JD Simo (2020) [MP3|320 Kbps] <Blues Rock, Psychodelic, Jam Ban
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460233.jpg" />
 </div>
 
 
@@ -325,7 +355,7 @@ Cliff Richard & The Shadows - Reunited (50th Anniversary) (2009) [MP3|128-192 kb
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460219.jpg" />
 </div>
 
 
@@ -360,7 +390,7 @@ Boysetsfire - Boysetsfire (2015) [FLAC|Lossless|WEB-DL]<Alt.Rock | Post-Hardcore
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460198.jpg" />
 </div>
 
 
@@ -389,7 +419,7 @@ Major Parkinson - Songs From A Solitary Home(2010) [FLAC|Lossless]<Progressive R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460195.jpg" />
 </div>
 
 
@@ -418,7 +448,7 @@ The Bloodline - We Are One (2015) [FLAC|Lossless|WEB-DL]<Melodic Metalcore | Mod
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460190.jpg" />
 </div>
 
 
@@ -447,7 +477,7 @@ Bob Dylan - Bob Dylan's Greastest Hits (1967 [2012]) [MP3|320 кб/с]<Folk Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460149.jpg" />
 </div>
 
 
@@ -482,7 +512,7 @@ Jim Kirkpatrick - Ballad Of A Prodigal Son (2020) [MP3|320 Kbps] <Hard Rock, Blu
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460101.jpg" />
 </div>
 
 
@@ -511,7 +541,7 @@ Apocryphus - Eternal Suffering (2019) [FLAC|Lossless|WEB-DL|tracks] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460084.jpg" />
 </div>
 
 
@@ -540,7 +570,7 @@ XXI - Inside Out (2015) [FLAC|Lossless|WEB-DL]<Alt.Rock | Post-Hardcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460056.jpg" />
 </div>
 
 
@@ -569,7 +599,7 @@ Pro-Pain - Voice Of Rebellion (2015) Deluxe Edition [MP3|320 кб/с]<Hardcore, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460053.jpg" />
 </div>
 
 
@@ -598,7 +628,7 @@ Anna von Hausswolff - Ceremony (2013) [FLAC|Lossless]<Pop, Indie Rock, Art Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460052.jpg" />
 </div>
 
 
@@ -627,7 +657,7 @@ Gorillaz - Song Machine Episode 6 (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Trip-
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459958.jpg" />
 </div>
 
 
@@ -656,7 +686,7 @@ Age Of Agony - Machinery of Hatred (2011) [FLAC|Lossless|image + .cue] <Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459950.jpg" />
 </div>
 
 
@@ -685,7 +715,7 @@ April Weeps - Comma (2018) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459946.jpg" />
 </div>
 
 
@@ -714,7 +744,7 @@ Sadist - Hyaena (2015) Digipak [FLAC|Lossless|image + .cue] <Progressive Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459944.jpg" />
 </div>
 
 
@@ -728,35 +758,6 @@ Sadist - Hyaena (2015) Digipak [FLAC|Lossless|image + .cue] <Progressive Death M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8552317C9203568319A4A94364A9EF16B58B325
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568628   (459941) от 09.08.2022
-
-Sadist - Firescorched (2022) [FLAC|Lossless|image + .cue] <Technical Death Metal, Progressive Metal, Fusion>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Accabadora
-02. Fleshbound
-03. Finger Food
-04. Burial Of A Clown(   Читать дальше...   )Жанр: Technical Death Metal, Progressive Metal, FusionПродолжительность: 00:37:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:430581DF2603CD631A286FA49F13F118610D4843
 ```
 
 https://mybot314.ru/tekegram_catalog/

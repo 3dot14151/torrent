@@ -6,7 +6,7 @@ The Legend of Zelda: Twilight Princess (2006) [Wii] [NTSC] [Unofficial] [Ru/Mult
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511574.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Doom 3 BFG Edition (2012) [Xbox360] [RegionFree] [FreeBoot] [Unofficial] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511550.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Tetris 99 (2019) [Switch] [EUR] 8.0.0 [eShop] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510702.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ SpongeBob HeroPants (2015) [Xbox360] [RegionFree] [FreeBoot] [License] [En]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510636.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Cars Race-O-Rama (2009) [Xbox360] [RegionFree] [FreeBoot] [License] [En]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509861.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Need for Speed Payback (2017) [PS4] [EUR] 5.05 [HEN] [License / 1.08 ] [Ru/Multi
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509488.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS2
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508996.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Days Gone / Жизнь после (2019) [PS4] [EUR] 9.00 [HEN] [License / 1.80 
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508767.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Aliens: Colonial Marines (2013) [PS3] [EUR] 4.31 [Cobra ODE / E3 ODE PRO ISO] [L
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508657.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Halo 4 (2012) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507741.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Call of Duty: WWII (2017) [PS4] [EUR] 7.00 [HEN] [License / 1.25] [Ru]
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506881.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Shaun White Skateboarding (2010) [PS3] [USA] 3.42 [Cobra ODE / E3 ODE PRO ISO] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506768.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Dungeons & Dragons: Daggerdale (2011) [Xbox360] [RegionFree] [FreeBoot] [Unoffic
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505858.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Sniper Elite 5: France (2022) [PS4] [USA] 5.05 [HEN] [License / 1.06 / DLC] [Ru/
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504124.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Dead Island (2011) [Xbox360] [RegionFree] [FreeBoot] [Unofficial] [Ru] | R.G.DSh
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504108.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Syberia / Сибирь (2002) [Xbox360] [RegionFree] [FreeBoot] [Unofficial] [Ru
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504071.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Call of Duty: Black Ops II + DLC (2012) [Xbox360] [RegionFree] [FreeBoot] [Unoff
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503997.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Weird West (2022) [PS4] [USA] 5.05 [HEN] [License / 1.11] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503419.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ MotoGP 22 (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.08 / DLC] [Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502481.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ James Cameron’s Avatar: The Game (2009) [PS3] [EUR] 3.01 [Cobra ODE / E3 ODE P
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502052.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Silent Hill HD Collection (2012) [Xbox360] [RegionFree] [FreeBoot] [Unofficial] 
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501937.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Ben 10: Galactic Racing (2011) [PS3] [USA] 3.70 [Cobra ODE / E3 ODE PRO ISO] [Li
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501124.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Final Fantasy XIII (2009) [PS3] [ASIA] 3.21 [Unofficial] [Ru/Jp] | R.G. RED
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500984.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Kung Fu Panda (2008) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] 
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500982.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Disney Universe Disney: Мир героев (2011) [Xbox360] [RegionFree] [FreeB
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500981.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Syndicate [PS3] [RUS] [PAL] (2012)
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500829.jpg" />
 </div>
 
 

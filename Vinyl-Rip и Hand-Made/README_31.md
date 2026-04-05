@@ -1,3 +1,32 @@
+###  Публикация: 1061148   (448105) от 10.10.2016
+
+Эмиль Гилельс - Л. Бетховен (Сонаты "Патетическая" и "Лунная") (1979) [WavPack 2.0|192/32|tracks|Vinyl-Rip] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+Соната №8 до минор "Патетическая", соч. 13
+1. Grave. Allegro Molto E Con Brio  8:22
+2. Adagio Cantabile  5:42(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:35:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D66340AFB8ECE3EEBBF8E2625F9AF15A40949EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 943330   (446906) от 04.10.2015
 
 Marilyn Manson - The Pale Emperor (2015) Deluxe Edition [FLAC 2.0 24/96|traсks(Vinyl-Rip)]<Industrial, Alternative Rock>
@@ -6,7 +35,7 @@ Marilyn Manson - The Pale Emperor (2015) Deluxe Edition [FLAC 2.0 24/96|traсks(
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446906.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444513.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ David Gilmour - Rattle That Lock (2015) [LPCM 2.0 96kHz 24bit, DTS 5.1 96/24 | A
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442358.jpg" />
 </div>
 
 
@@ -96,7 +125,7 @@ VA - Антология советского киношлягера - Любим
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441849.jpg" />
 </div>
 
 
@@ -125,7 +154,7 @@ Pink Floyd - Wish You Were Here (2016) 1975 [DSD2.0|5,64MHz/1bit|tracks|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441150.jpg" />
 </div>
 
 
@@ -154,7 +183,7 @@ Children of Bodom - Studio Albums (12 releases) (1997 - 2019) hand made [restore
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440363.jpg" />
 </div>
 
 
@@ -183,7 +212,7 @@ Audrey Hepburn, Rex Harrison - My Fair Lady (The Original Sound Track Recording)
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437700.jpg" />
 </div>
 
 
@@ -212,7 +241,7 @@ Rainbow - Difficult to Cure (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Hard
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436936.jpg" />
 </div>
 
 
@@ -241,7 +270,7 @@ Porcupine Tree - The Delerium Years 1994-1997 (2016) Box Set [FLAC 2.0|192/24|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436773.jpg" />
 </div>
 
 
@@ -270,7 +299,7 @@ London Orion Orchestra, Alice Cooper, Dave Fowler, Stephen McElroy, Rick Wakeman
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436453.jpg" />
 </div>
 
 
@@ -299,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434943.jpg" />
 </div>
 
 
@@ -328,7 +357,7 @@ Puhdys - Far From Home (1981) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433861.jpg" />
 </div>
 
 
@@ -357,7 +386,7 @@ VA - Мы Друг Друга Нашли Песни на стихи В. Хари
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433857.jpg" />
 </div>
 
 
@@ -386,7 +415,7 @@ Wings - Venus And Mars (1994) Recorded 1975 [FLAC 2.0|96/24|image +.cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433750.jpg" />
 </div>
 
 
@@ -415,7 +444,7 @@ Helen Reddy - Free And Easy (1974) [FLAC 2.0 24/96|image+.cue (Vinyl-Rip)]<Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433726.jpg" />
 </div>
 
 
@@ -444,7 +473,7 @@ VA - 80's Dance Classic (2001) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Pop Rock, P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432118.jpg" />
 </div>
 
 
@@ -473,7 +502,7 @@ Mustasch - Дискография (13 albums) (2001-2019) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431689.jpg" />
 </div>
 
 
@@ -502,7 +531,7 @@ Incubus - Дискография (11 albums) (1995-2020) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431679.jpg" />
 </div>
 
 
@@ -532,7 +561,7 @@ Boston Symphony Orchestra, Erich Leinsdorf - Prokofieff - Romeo And Juliet (1968
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430462.jpg" />
 </div>
 
 
@@ -561,7 +590,7 @@ Glenn Miller - World Music Collection (2002) [FLAC 2.0|48/24|image+.cue|MC-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430305.jpg" />
 </div>
 
 
@@ -590,7 +619,7 @@ Cutting Crew - Broadcast (1986) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Pop Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429327.jpg" />
 </div>
 
 
@@ -619,7 +648,7 @@ The Post Scriptum group - Post Scriptum (1983) [FLAC 2.0|192/24|image+.cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427511.jpg" />
 </div>
 
 
@@ -648,7 +677,7 @@ Tempest - Дискография (2018 - 2022) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427510.jpg" />
 </div>
 
 
@@ -676,7 +705,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_426034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_426034.jpg" />
 </div>
 
 
@@ -705,7 +734,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425061.jpg" />
 </div>
 
 
@@ -719,35 +748,6 @@ A4.Закрой За Мной Дверь, Я Ухожу(   Читать даль
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43EE38CD4C6E351B07E9BCCC13FE941F63162726
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 830973   (423494) от 13.10.2014
-
-Pink Floyd - The Wall (1979) 2LP remaster /2012, EMI Records/ [FLAC 2.0 24/96|image (Vinyl-Rip)]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey You (4:41)
-02. Is There Anybody Out There? (2:41)
-03. Nobody Home (3:23)
-04. Vera (1:35)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:21:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CBA510ACDC3DE4FAC7D964D4A873FCACF8E4B2F
 ```
 
 https://mybot314.ru/tekegram_catalog/

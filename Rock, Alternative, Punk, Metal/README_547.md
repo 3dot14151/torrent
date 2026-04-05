@@ -1,3 +1,90 @@
+###  Публикация: 1155752   (529781) от 05.08.2017
+
+Vanden Plas - Far Off Grace (1999) Reissue, 2004, Inside Out Music [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can See (4:01)
+02. Far Off Grace (7:03)
+03. Into The Sun (6:33)
+04. Where Is The Man (6:11)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:04:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94D78D7528086738A9B42ED8FB1EC9F979F18C6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926915   (529731) от 12.08.2015
+
+Gun - Gun Sight (1969) Remastered /2000, Repertoire/ [FLAC|tracks+.cue]<Hard Rock, Psychedelic Rock, Heavy Psych>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Head in The Clouds 04:41
+02. Drown Yourself in The River 02:56
+03. Angeline 05:36
+04. Dreams And Screams 05:16(   Читать дальше...   )Жанр: Hard Rock, Psychedelic Rock, Heavy PsychПродолжительность: 00:46:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6DA89AD36AED0D34B3DCB0FBFFA3147C22623AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925030   (529725) от 12.08.2015
+
+The Animal In Me - Words and Actions (2015) [MP3|320 кб/с]<Post-Hardcore, Female & Male Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chasing Dreams 03:41
+02. So Unbelievable 03:58
+03. Grave Digger 03:15
+04. Who Will Save Us 04:52(   Читать дальше...   )Жанр: Post-Hardcore, Female & Male VocalПродолжительность: 00:36:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D9B548DD7E37F9B17A36F600144ED5B9019E8A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 915156   (529624) от 12.08.2015
 
 Liorinkarmic - 6 альбомов (2014-2015) [MP3|320 кб/с]<Post-rock, Experimental, Minimal>
@@ -6,7 +93,7 @@ Liorinkarmic - 6 альбомов (2014-2015) [MP3|320 кб/с]<Post-rock, Exper
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529624.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Clawfinger - Save Our Souls (2017) Single [MP3|320 кб/с]<Alternative, Nu-Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529473.jpg" />
 </div>
 
 
@@ -63,7 +150,7 @@ Grateful Dead - 20 Albums (1965-1989)The Golden Road Box Set+Beyond Description 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529459.jpg" />
 </div>
 
 
@@ -92,7 +179,7 @@ Circus Of Power - Circus Of Power (1988) Japan [APE|Lossless|image + .cue] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529273.jpg" />
 </div>
 
 
@@ -121,7 +208,7 @@ The Wallflowers - Collected: 1996-2005 (2009) Interscope Records [FLAC|Lossless|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529211.jpg" />
 </div>
 
 
@@ -150,7 +237,7 @@ Turilli / Lione Rhapsody - Zero Gravity (Rebirth and Evolution) (2019) [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529162.jpg" />
 </div>
 
 
@@ -179,7 +266,7 @@ Nick Cave & The Bad Seeds - Skeleton Tree (2016) [MP3|320 Kbps] <Alternative Roc
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529000.jpg" />
 </div>
 
 
@@ -208,7 +295,7 @@ Bachman-Turner Overdrive - 20 альбомов, 1 Box Set (1973 - 2016) 29 CD [F
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528953.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ The Raconteurs - 3 альбома (2006, 2008, 2019) [FLAC|Lossless|image + .cue
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528951.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Nordicwinter - Le dernier adieu (2021) [FLAC|Lossless|WEB-DL|tracks] <Depressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528798.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Face The Legacy - Ashes on the Ground (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528793.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Ricky Nelson - Les Genies du Rock - I'm Walkin' (1993) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528762.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Devil's Train - Ashes & Bones (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528758.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Sleazy RoXxX - Trinity Junction (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Glam 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528749.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528741.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Soulfly - Savages (2013) Japanese Edition [MP3|320 кб/с]<Groove / Thrash Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528691.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528673.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528672.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Nitrate - Real World (2018) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528667.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ We Are Harlot - We Are Harlot (2015) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528572.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ August Burns Red - Found in Far Away Places (2015) Deluxe Edition [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528503.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Dying Fetus - The Wrong One To Fuck With (2017) [MP3|320 Kbps] <Brutal Death Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528499.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Arcade Fire - Everything Now (2017) [MP3|320 Kbps] <Indie Rock, Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528496.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Arcade Fire - Everything Now (2017) [MP3|320 Kbps] <Indie Rock, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20DB5DA4FEBFE0B58DC7802F14EF98CA4E81333F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313035   (528288) от 07.07.2019
-
-Bornholm - March for Glory and Revenge (2009) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Intro - Reconquering the Carpathians /02:22/
-02.Call of the Heathen Horns /04:47/
-03.From the Blackness of Aeons /05:19/
-04.Mournful Hymns /05:03/(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:46:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0878F25ED0293884C54D6C94DC288758C8B21A81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313007   (528286) от 07.07.2019
-
-Heir Apparent - The View from Below (2018) [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Man in the Sky (5:35)
-02. The Door (5:50)
-03. Here We Aren't (5:44)
-04. Synthetic Lies (4:59)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:45:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2828A2785F5DEF8E63FAA33B749D81C224107E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313073   (528283) от 07.07.2019
-
-Masters of Reality - Welcome To The Western Lodge (1999) [FLAC|Lossless|tracks + .cue] <Space Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Shit (2:57)
- 02. Moriah (3:34)
- 03. The Great Spelunker (3:11)
- 04. Time To Burn (2:36)(   Читать дальше...   )Жанр: Space Rock, Psychedelic RockПродолжительность: 00:38:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C9601205DDA4782C7BED61F5382F601F96285C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 1478812   (1009898) от 21.06.2021
+
+Институт психотерапии и клинической психологии, Ошемкова Наталья, Есаулов Владимир и др. | Нейролингвистическое программирование: практик и мастер (2021) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Психология и саморазвитие (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009898.jpg" />
+</div>
+
+
+###  Подробнее
+
+Принципы НЛП базируются на утверждении о том, что мышление каждого индивида программируемо.
+С помощью НЛП-техник задается программа сознанию и подсознанию, благодаря которой и находится нужное решение в реализации поставленных целей. Тренинги НЛП учат специалистов проводить эффективную работу с клиентами, помогать последним находить наилучшие способы решения тех (   Читать дальше...   )Производство: Институт психотерапии и клинической психологииЖанр: Нейролингвистическое программированиеПродолжительность: 133:08:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEF5865BCEA583A3F30521FAB757F416464BA74C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1479312   (1009604) от 23.06.2021
 
 Верный старт в 1C и др. | Подборка учебных курсов по 1С [часть 2] (2015-2021) PCRec
@@ -6,7 +33,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009604.jpg" />
 </div>
 
 
@@ -35,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009200.jpg" />
 </div>
 
 
@@ -64,7 +91,7 @@ RuFrame, Ленар Баширов | Командная строка Windows  (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008891.jpg" />
 </div>
 
 
@@ -93,7 +120,7 @@ Udemy, Исмаил Усеинов | jQuery для начинающих (2021) P
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008795.jpg" />
 </div>
 
 
@@ -120,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008778.jpg" />
 </div>
 
 
@@ -146,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008777.jpg" />
 </div>
 
 
@@ -175,7 +202,7 @@ Seller Insiders, Джозеф Кеш и др. | Пошаговый курс по
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008649.jpg" />
 </div>
 
 
@@ -202,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008528.jpg" />
 </div>
 
 
@@ -230,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008502.jpg" />
 </div>
 
 
@@ -256,7 +283,7 @@ Gardenstyle, Ирина Пугачева | Создание собственно
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008428.jpg" />
 </div>
 
 
@@ -285,7 +312,7 @@ fullstack.io, Rob Kendal | Real World React: Руководство для на�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008422.jpg" />
 </div>
 
 
@@ -312,7 +339,7 @@ Russian Permaculture, Елена Арифулина | Проектируем л�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008421.jpg" />
 </div>
 
 
@@ -341,7 +368,7 @@ JavaScript.Ninja | Мастер-класс: ﻿тестирование Vue-пр
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008394.jpg" />
 </div>
 
 
@@ -367,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008377.jpg" />
 </div>
 
 
@@ -396,7 +423,7 @@ Skillbox, Сергей Корниенко и др. | Веб-вёрстка (2020
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008371.jpg" />
 </div>
 
 
@@ -425,7 +452,7 @@ A Cloud Guru / LinuxAcademy | Introduction to LVM (2021) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008278.jpg" />
 </div>
 
 
@@ -451,7 +478,7 @@ Academind Pro, Maximilian Schwarzmüller | Начало работы с Golang /
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008215.jpg" />
 </div>
 
 
@@ -478,7 +505,7 @@ Unrealskills, Даниил Лихоманов | Unreal Engine 4 (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008214.jpg" />
 </div>
 
 
@@ -505,7 +532,7 @@ A Cloud Guru / LinuxAcademy | Kali Linux Deep Dive (2021) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008212.jpg" />
 </div>
 
 
@@ -531,7 +558,7 @@ Udemy, Prateek Narang и др. | Graph Theory Algorithms for Competitive Program
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008129.jpg" />
 </div>
 
 
@@ -558,7 +585,7 @@ Udemy, Catalin Stefan | Complete Kotlin development masterclass (2021) PCRec [En
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008094.jpg" />
 </div>
 
 
@@ -586,7 +613,7 @@ SVS, Jake Parker | How To Draw Everything version 2 (2017) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008088.jpg" />
 </div>
 
 
@@ -613,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007929.jpg" />
 </div>
 
 
@@ -639,7 +666,7 @@ Gumroad, Tom Newbury | Look Dev Realistic Skin for Characters (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007863.jpg" />
 </div>
 
 
@@ -665,7 +692,7 @@ Gumroad, Tom Newbury | Xgen Hair for Characters (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007849.jpg" />
 </div>
 
 
@@ -676,32 +703,6 @@ Gumroad, Tom Newbury | Xgen Hair for Characters (2016) PCRec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:879969EA016D5C39DDB9BD53C76A8A92A696A9C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481952   (1007841) от 06.07.2021
-
-Gumroad, Tom Newbury | Texturing Realistic Skin for Characters (2016) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007841.jpg" />
-</div>
-
-
-###  Подробнее
-
-В первой части урока я вам покажу свой процесс создания реалистичной кожи персонажа. Мы будем использовать отличный сайт texturing.xyz Я покажу весь процесс работы с этими текстурами. Начнем с объединения разных картинок с уровнями деталей в одну rgb карту. Я делаю это в Photoshop и Nuke. Затем мы перейдем в Mari, где я быстро расскажу вам основы программы, и мы (   Читать дальше...   )Производство: GumroadЖанр: Создание видеоПродолжительность: 06:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67638FBA2826E1328616FE8E15AF88F570D28DE5
 ```
 
 https://mybot314.ru/tekegram_catalog/

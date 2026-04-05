@@ -1,3 +1,159 @@
+###  Публикация: 610978   (946685) от 12.01.2015
+
+Снежная королева (2012) DVDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946685.jpg" />
+</div>
+
+
+###  Подробнее
+
+В стремлении сотворить Новый мир — холодный и практичный, где четкость линий призвана заменить эмоции, а северный ветер должен остудить людские души, Снежная Королева избавляется от всех представителей творческих профессий. Маленькой и смелой Герде, отправившейся в опасное путешествие, чтобы спасти своего брата Кая, предстоит столкнуться с этим холодным миром Снежной (   Читать дальше...   )Производство: Россия / Инлэй ФильмЖанр: Фэнтези, Приключения, СемейныйРежиссер: Максим Свешников, Владлен БарбэАктеры: Иван Охлобыстин, Нюша Шурочкина, Анна Ардова, Рамиля Искандер, Дмитрий Нагиев, Лиза Арзамасова, Галина Тюнина, Юрий Стоянов, Людмила Артемьева, Михаил ТихоновПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:12:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:182E89EA2A6141307EF499693EE2AF03B1AC5D40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982255   (946599) от 04.02.2016
+
+Ученые, расшифровывая сигналы мозга в реальном времени, научились определять изображения, видимые человеком
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946599.jpg" />
+</div>
+
+
+###  Подробнее
+
+При помощи электродов, внедренных в височные доли (temporal lobes) мозга людей, больных эпилепсией, ученым из Вашингтонского университета удалось в режиме реального времени расшифровать сигналы, связанные с изображениями, демонстрируемыми этим людям. Использованные учеными методы и технологии позволили по сигналам мозга распознать изображения лиц разных людей, зданий (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982400   (946498) от 04.02.2016
+
+Право на доступ в интернет предложили закрепить Конституцией
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946498.jpg" />
+</div>
+
+
+###  Подробнее
+
+Минкомсвязи предлагает закрепить право россиян на доступ к услугам связи как средство реализации конституционного права на доступ к информации. Операторы связи смогут размещать оборудование и интернет-кабели в подъездах многоквартирных домов без необходимости одобрения собственников всех квартир, что и обеспечит реализацию права жильцов на доступ к информации.Уведомление (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982497   (946345) от 04.02.2016
+
+Advanced Systemcare Pro 9.1.0.1090 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946345.jpg" />
+</div>
+
+
+###  Подробнее
+
+Advanced SystemCare PRO обеспечивает автоматический всесторонний сервис для ПК с удалением вредоносных программ, исправлением ошибок в реестре, защитой личных данных, очисткой системы и повышением производительности. Благодаря применению новейших технологий Защита Браузера и Ускорение Интернета, программа обеспечивает превосходную защиту и ускорение доступа при пользовании (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F377916CB89CB73BA132B49418FDA029B22448BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982328   (946330) от 04.02.2016
+
+"Заблокированные навечно" торрент-трекеры пытаются обойти запреты и сохранить свою аудиторию
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новые антипиратские меры в интернете обсуждаются на фоне уже выполненных судебных решений о пожизненной блокировке сайтов, куда заходили за ворованной музыкой и фильмами. Мера призвана перенаправить больше пользователей на легальные ресурсы, но всё ещё остаются так называемые "серые" схемы доступа."Ресурс заблокирован". Больше недели это сообщение (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982510   (946327) от 04.02.2016
+
+Кербела / Karbala (2015) DVDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946327.jpg" />
+</div>
+
+
+###  Подробнее
+
+2004 год, операция "Иракская свобода". Иракские повстанцы, лояльные шиитскому лидеру аль-Садру, начинают мятеж. Городская мэрия Кербелы находится в осаде, ее защищать вынуждены 80 поляков и болгар, у которых боеприпасов и оружия только на 72 часа.Производство: Польша, Болгария, Miramar Film, Next FilmЖанр: Драма, ВоенныйРежиссер: Кшиштоф Лукашевич, Justyna Kapuscinska, Марчин ЛомницкийАктеры: Бартоломей Топа, Антони Круликовский, Христо Шопов, Атир Адель, Лешек Лихота, Михал Журавский, Томаш Шухардт, Лукаш Симлят, Петр ГловацкийПеревод: Двуголосый закадровый, любительский (DeadSno&Den904 по переводу Professor'a)Субтитры: ОтсутствуютПродолжительность: 01:50:42Реклама: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3F027AC1EA7E435EF81266A9811970A3AB3C198
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974366   (946320) от 04.02.2016
 
 Acronis True Image 19.0.6027 + Universal Restore 11.5.40010 + Disk Director 12.0.3270 BootCD/USB [Ru]
@@ -6,7 +162,7 @@ Acronis True Image 19.0.6027 + Universal Restore 11.5.40010 + Disk Director 12.0
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946320.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946315.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946313.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946294.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946289.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ Autodesk Revit 2020.2.1 (x64) [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946288.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946287.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ Linux для дома и игр 22.5.17 (Mint 19.3, wine dxvk) [amd64]
 >>11
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946286.jpg" />
 </div>
 
 
@@ -216,7 +372,7 @@ Hurtworld (2019) [Ru/Multi] (1.0.0.6) Repack R.G. Alkad
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946285.jpg" />
 </div>
 
 
@@ -242,7 +398,7 @@ Massive Attack - Полная дискография (27 релизов) (1991-2
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945943.jpg" />
 </div>
 
 
@@ -268,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945711.jpg" />
 </div>
 
 
@@ -294,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945709.jpg" />
 </div>
 
 
@@ -320,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945707.jpg" />
 </div>
 
 
@@ -346,7 +502,7 @@ Intel Compute Card — компьютер размером с кредитную
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945498.jpg" />
 </div>
 
 
@@ -372,7 +528,7 @@ Total Commander 9.0a LitePack | PowerPack | ExtremePack 2017.1 Final + Portable 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945412.jpg" />
 </div>
 
 
@@ -398,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945358.jpg" />
 </div>
 
 
@@ -424,7 +580,7 @@ Sniper Elite V2 + 4 DLC [Ru] (Repack/1.11) 2012 | Fenixx
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945285.jpg" />
 </div>
 
 
@@ -453,7 +609,7 @@ Age of Empires III: Complete Collection (Age of Empires III/The WarChiefs/The As
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945279.jpg" />
 </div>
 
 
@@ -483,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945214.jpg" />
 </div>
 
 
@@ -509,7 +665,7 @@ Samsung и LG, похоже, разрабатывают внешние мони�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944936.jpg" />
 </div>
 
 
@@ -520,163 +676,6 @@ Samsung и LG, похоже, разрабатывают внешние мони�
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362981   (944934) от 26.02.2020
-
-Расстрельный список препаратов (Фуфломицины) v1.0.8 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944934.jpg" />
-</div>
-
-
-###  Подробнее
-
-Расстрельный список препаратов (РСП) - список сформирован на основе отсутствия убедительных данных об эффективности препаратов по заявленным показаниям, как того требует доказательная медицина, а так же по отсутствию в авторитетных источниках и рекомендациях. Дополнительно в список добавлены гомеопатические препараты и негативный список формулярного комитета РАМН (   Читать дальше...   )Тип издания: Free из МаркетаРелиз состоялся: 06.02.2020Разработчик: Bandarenka YuryПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F9463A2D60C980325DE6E8FBB0CE67C7B78B96B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362564   (944824) от 26.02.2020
-
-Boeing рассказала о покупке в России детали для корабля Starliner
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944824.jpg" />
-</div>
-
-
-###  Подробнее
-
-Boeing покупает в России преобразователь питания для своего пилотируемого космического корабля Starliner, сообщило космическое подразделение компании.Накануне гендиректор "Роскосмоса"  рассказал, что с удивлением узнал об агрегате для системы посадки Starliner, который частная российская компания делает в Воронеже по заказу Boeing.
-"Starliner использует (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362782   (944745) от 26.02.2020
-
-Американский инженер Майк Хьюз разбился на самодельной паровой ракете
-
->>3
->>9
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944745.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американский инженер-любитель Майкл Хьюз, более известный как Безумный Майк, трагически погиб во время очередных испытаний самодельной ракеты на паровом двигателе. Инцидент, оборвавший жизнь инженера на 64 году, произошел 22 февраля.Майкл Хьюз — один из самых известных (в узких кругах) сторонников теории плоской Земли. Для ее подтверждения он в 2014 году собрал первую (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362996   (944739) от 26.02.2020
-
-Microsoft Windows 10 Insider Preview Build 10.0.19041.84 - Оригинальные образы [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944739.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft выпустила новую сборку Windows 10 для участников программы предварительной оценки Windows Insider с приоритетом получения обновлений “Поздний доступ”.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CDCC1795149A645233E905D46D554296B914D07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348480   (944715) от 26.02.2020
-
-Need for Speed: Heat (2019) [Ru] (1.0/dlc) Repack xatab [Deluxe Edition]
-
->>3
->>33
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944715.jpg" />
-</div>
-
-
-###  Подробнее
-
-Need for Speed: Heat – очередная часть гоночной серии NFS, в которой вас ждут как дневные официальные гоночные соревнования Speedhunters Showdown, так и нелегальные уличные заезды.Тип издания: RepackРазработчик: Ghost GamesЖанр: Racing, ArcadeЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B891A01A883000615B86130A80913DD06D8C80E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983092   (944642) от 05.02.2016
-
-Импровизация / Камеди Клаб / Комеди Клаб / Comedy Club (05.02.2016) SATRip (выпуск 1)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944642.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Импровизация» — это новое непредсказуемое комедийное шоу от Comedy Club Production. В нём нет сценария и всё, происходящее на сцене, придумывается участниками на ходу. Под управлением ведущего Павла Воли четыре комика и один звездный гость оказываются в самых странных ситуациях — и выбираются из них с юмором. Прежде, чем попасть на экран, четыре участника «Импровизации» (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморПродолжительность: ~ 00:47:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DEDB08A2C14D1DEBAE9B0F04AB525C7394DD643
 ```
 
 https://mybot314.ru/tekegram_catalog/

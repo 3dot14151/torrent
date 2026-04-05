@@ -1,3 +1,31 @@
+###  Публикация: 1630120   (199100) от 29.04.2023
+
+Онлайн школа SpeakGood | Голос как бренд (2019) CamRip [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Психология и саморазвитие (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_199100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это пошаговый онлайн тренинг.
+
+Вы получите все необходимые навыки дикторского мастерства, техники речи и правильного дыхания, которые помогут Вам начать работать у микрофона в качестве диктора (радио, TV, YouTube). Также у Вас будет возможность озвучить свой любимый фильм или голливудского героя, прикоснуться к профессии актёр дубляжа.Жанр: психология общения, межличностные коммуникации, ораторское искусствоЯзык озвучки: русскийПродолжительность: 06:31:59Реклама: cторонние вставки и наложения на видео (водяной знак спонсора)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E90892BE972718C948BD926E14B84EA0BC1DD963
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1630127   (199092) от 29.04.2023
 
 Мастерская голоса, Сергей Вострецов | Низкий голос за 5 дней (2022) CamRip [AD] [RU]
@@ -6,7 +34,7 @@
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_199092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_199092.jpg" />
 </div>
 
 
@@ -35,7 +63,7 @@ Udemy, Joakim Tornhill | The Emitter Particle Course for Blender 2.8 and above (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_199046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_199046.jpg" />
 </div>
 
 
@@ -62,7 +90,7 @@ Udemy, Joakim Tornhill | Shader Magic in Blender 3.41 and above (2023) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_199028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_199028.jpg" />
 </div>
 
 
@@ -90,7 +118,7 @@ Udemy, Joakim Tornhill | A Workflow to Create Realistic Material in Blender (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_199002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_199002.jpg" />
 </div>
 
 
@@ -116,7 +144,7 @@ Udemy, Joakim Tornhill | All About Eevee for Blender 2.8 and above (2020) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_199000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_199000.jpg" />
 </div>
 
 
@@ -143,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198903.jpg" />
 </div>
 
 
@@ -172,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198892.jpg" />
 </div>
 
 
@@ -201,7 +229,7 @@ Udemy, Lincoln Margison | Procedural animation for humans in Unreal Engine 5 (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198891.jpg" />
 </div>
 
 
@@ -229,7 +257,7 @@ CGcircuit, Tim Van Helsdingen | Aggregation – Rigid body Self Assembly (2021) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198795.jpg" />
 </div>
 
 
@@ -258,7 +286,7 @@ CGcircuit, Radu Cius | Houdini Tutorial Procedural Modeling – Escalator (2022)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198787.jpg" />
 </div>
 
 
@@ -287,7 +315,7 @@ Kalacheva School, Вероника Калачева | Акварель 2.0 (2020
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198761.jpg" />
 </div>
 
 
@@ -315,7 +343,7 @@ Udemy, Serge Lansiquot | Game Dev Math Ultimate guide to polishing your game! (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198749.jpg" />
 </div>
 
 
@@ -343,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198741.jpg" />
 </div>
 
 
@@ -372,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198725.jpg" />
 </div>
 
 
@@ -398,7 +426,7 @@ CGcircuit, Arsen Margaryan | Discovering Houdini VOP 2 (2022) WEB-DL [Без о�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198720.jpg" />
 </div>
 
 
@@ -424,7 +452,7 @@ ivelizar_, Елизавета Иванова | Exterior atmosphere training (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198716.jpg" />
 </div>
 
 
@@ -452,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198698.jpg" />
 </div>
 
 
@@ -479,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198688.jpg" />
 </div>
 
 
@@ -508,7 +536,7 @@ Udemy, Web Oral | ChatGPT: Earning Money With ChatGPT - Easy Way For Beginners (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198678.jpg" />
 </div>
 
 
@@ -537,7 +565,7 @@ Nerual Dreming | Нейробуст (2023) WEB-DL [AD] [RU]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198670.jpg" />
 </div>
 
 
@@ -563,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198647.jpg" />
 </div>
 
 
@@ -592,7 +620,7 @@ Bangbangeducation, Анна Матвеева | Дизайн мобильных �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198629.jpg" />
 </div>
 
 
@@ -618,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198621.jpg" />
 </div>
 
 
@@ -647,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198578.jpg" />
 </div>
 
 
@@ -676,7 +704,7 @@ my_revit | Оформление чертежей (2023) WEB-DL [AD] [RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198574.jpg" />
 </div>
 
 
@@ -689,35 +717,6 @@ my_revit | Оформление чертежей (2023) WEB-DL [AD] [RU]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7868F7B70D772E1111D9F16A21EE338C3D22F14B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632775   (198563) от 11.05.2023
-
-Синхронизация, Ольга Чуворкина, Анна Пронина и др. | Как смотреть картины (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы разработали курс так, чтобы вы получили подробную инструкцию, на что обращать внимание в живописи. И смогли посещать выставки как осознанный зритель.
-
-Чему вы научитесь
-- «Разбирать» картину на составляющие: замечать композицию, свет и цвет(   Читать дальше...   )Производство: СинхронизацияЖанр: ИскусствоЯзык озвучки: РусскийПродолжительность: 02:22:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE6DB8F2AC801BA3DAAC7280FD6F47E49511FB22
 ```
 
 https://mybot314.ru/tekegram_catalog/

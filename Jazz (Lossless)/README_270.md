@@ -6,7 +6,7 @@ Bing Crosby - The CBS Radio Recordings (1954 - 1956) 7CD, 2009, Mosaic Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192977.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Woody Herman - The Complete Capitol Recordings Of Woody Herman (1948 - 1956) 6CD
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192711.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Mal Waldron Quartet - What It Is (1981) 1994, Enja [FLAC|Lossless|image + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192460.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Enrico Pieranunzi - Parisian Portraits (1990) 2007, Egea [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192456.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ Rosemary Clooney - The CBS Radio Recordings (1955 - 1961) 5CD, 2014, Mosaic Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192398.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Nelson Riddle - Eight Classic Albums (1955 - 1961) 4CD, 2012, Real Gone Jazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192122.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Johnny Griffin - The Little Giant (1959) 1995, Original Jazz Classics [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191946.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Jack Teagarden - The Complete Capitol Fifties Jack Teagarden Sessions (1955 - 19
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191856.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Julius Rodriguez - Let Sound Tell All (2022) [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191848.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Jimmie Lunceford - The Complete Jimmie Lunceford Decca Sessions (1934 - 1945) 7C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191650.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Mal Waldron & Jackie McLean - Left Alone '86 (1987) Bellaphon [FLAC|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191636.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Jack Teagarden - The Complete Roulette Jack Teagarden Sessions (1959 - 1961) 4CD
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191422.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ The Airmen Of Note - The 2021 Jazz Heritage Series (2021) Department of the Air 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191419.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ The Airmen of Note - Openers! (2014) Department of the Air Force [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191412.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Enrico Pieranunzi, Marc Johnson, Joey Baron - Play Morricone 2 (2002) CAMJazz [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191014.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Andre Ceccarelli, Pierre-Alain Goualch, Diego Imbert - Porgy & Bess (2021) Trebi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_190906.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Sidney Bechet - 1938 - 1940 (1991) Classics [FLAC|Lossless|tracks + .cue] <Dixie
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190677.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ McCoy Tyner - The Montreux Years (1981 - 2009) 2023, BMG [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190674.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Louis Hayes - Exactly Right! (2023) Savant [FLAC|Lossless|tracks + .cue] <Post-B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190644.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Bunny Berigan - The Complete Brunswick, Parlophone And Vocalion Bunny Berigan Se
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190406.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Paul Marinaro - Not Quite Yet (2022) 122 Myrtle Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190382.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Rickie Lee Jones - Pieces of Treasure (2023) [FLAC|Lossless|tracks + .cue] <Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190167.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Laufey - Bewitched (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190125.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Scott Hamilton - Live At Brecon Jazz Festival (1995) Concord Jazz [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190046.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Najee - The Best Of (1998) Compilation [FLAC|Lossless|image + .cue] <Smooth Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190029.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Trinkle Jazz Ensemble - Red, Hot & Blue Cole (2021) [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190021.jpg" />
 </div>
 
 

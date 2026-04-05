@@ -1,136 +1,3 @@
-###  Публикация: 1192305   (263241) от 17.12.2017
-
-А.И. Криницкий | Основные задачи агитации, пропаганды и культурного строительства (1928) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доклад на агитпропсвещении при ЦК ВКП (б) 30 мая — 3 июня 1928 г.
-
-В своем докладе автор останавливается на четырех вопросах: 1) об общей линии работы в области агитации, пропаганды и культурного строительства. 2) на вопросе о мобилизации масс на дело социалистического строительства и повышении политического и культурного уровня масс, 3) о подготовке кадров для всех (   Читать дальше...   )Жанр: История, политология, искусствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56D40B2F52F7A1C4E3BB92E25EF01EB32F5E2EB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340864   (263234) от 25.11.2019
-
-Ли Бергер, Джон Хокс | Почти человек. Как открытие Homo naledi изменило нашу историю (2019) [FB2]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Челюстная кость, вросшая в скальную породу, окаменевшие кости руки – именно такие находки позволяют понять, как проходила эволюция человека. Но иногда они же подбрасывают ученым весьма непростые загадки.
-Эта книга – рассказ от первого лица об одном из самых значимых открытий XXI века: новом для человеческого «генеалогического древа» виде Homo naledi. Вместе с авторами (   Читать дальше...   )Жанр: Научно-популярная литература, Антропология, ЭволюцияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:954B5F5827EB00F26CEEA08E01EC41255B3FE98C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340801   (263228) от 25.11.2019
-
-П. Г. Володарский, П. В. Терехов | Избирательное право и революционная законность [Руководство для сельсоветов и избирательных комиссий] (1930) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наше избирательное право, как и все законы Советского правительства, является классовым правом трудящихся. Избирательная инструкция ВЦИК от 20 октября 1930 г. о выборах советов, основанная на Конституции (Основной закон) целиком стоит на стороне интересов рабочего класса и трудящихся деревни. Инструкция представляет избирательные права и обеспечивает активное участие (   Читать дальше...   )Жанр: История, политология, правоведениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1A4B98FDFF366E81BAF317E2A9C09FF26B65A5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340947   (263225) от 25.11.2019
-
-Говерт Шиллинг | Складки на ткани пространства-времени. Эйнштейн, гравитационные волны и будущее астрономии (2019) [FB2]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гравитационные волны были предсказаны ещё Эйнштейном, но обнаружить их удалось совсем недавно. В отдалённой области Вселенной коллапсировали и слились две чёрные дыры. Проделав путь, превышающий 1 миллиард световых лет, в сентябре 2015 года они достигли Земли. Два гигантских детектора LIGO зарегистрировали мельчайшую дрожь. Момент первой регистрации гравитационных (   Читать дальше...   )Жанр: Естественные науки, ФизикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D914A2A380E0365DC38A77EA49564BE11529729
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340783   (263222) от 25.11.2019
-
-Г.А. Кузин | Нестандартные задачи по курсу высшей математики. Сборник задач (2012) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263222.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие предназначено для студентов I и II курсов дневного отделения, интересующихся математикой, и включает задачи, предлагавшиеся на внутривузовских олимпиадах в 1973—1993 гг., а также задачи региональных и некоторых всероссийских олимпиад 1980—2011 гг. Ко многим задачам даны ответы или указания к решениюЖанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EAAAADED311F55665E22F85D85B616A5DC51690
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1192287   (263216) от 17.12.2017
 
 В.А. Десницкий (сост.) | Введение в изучение литературы и искусства. Сборник статей и отрывков из произведений К. Маркса, Ф. Энгельса, Г. Плеханова, В. Ленина, К. Каутского (1925) [DJVU, PDF]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263216.jpg" />
 </div>
 
 
@@ -165,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263161.jpg" />
 </div>
 
 
@@ -191,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263068.jpg" />
 </div>
 
 
@@ -217,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263051.jpg" />
 </div>
 
 
@@ -243,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263043.jpg" />
 </div>
 
 
@@ -269,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263035.jpg" />
 </div>
 
 
@@ -295,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262973.jpg" />
 </div>
 
 
@@ -321,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262902.jpg" />
 </div>
 
 
@@ -347,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262888.jpg" />
 </div>
 
 
@@ -373,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262886.jpg" />
 </div>
 
 
@@ -399,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262884.jpg" />
 </div>
 
 
@@ -425,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262880.jpg" />
 </div>
 
 
@@ -454,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262871.jpg" />
 </div>
 
 
@@ -480,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262869.jpg" />
 </div>
 
 
@@ -506,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262866.jpg" />
 </div>
 
 
@@ -532,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262862.jpg" />
 </div>
 
 
@@ -560,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262837.jpg" />
 </div>
 
 
@@ -586,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262834.jpg" />
 </div>
 
 
@@ -612,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262815.jpg" />
 </div>
 
 
@@ -640,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262806.jpg" />
 </div>
 
 
@@ -668,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262805.jpg" />
 </div>
 
 
@@ -679,6 +546,136 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F94FF3B6A11F94162CABA308C078E12FCDB88C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192645   (262802) от 18.12.2017
+
+И.М. Ткачов | Американский фашизм в педагогике (1933) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемая читателей статья является небольшой частью исследования о фашизации американской педагогики. Кильпатрик, один из современных педагогов САСШ, безусловно, даровитый, пользующийся авторитетом и за пределами САСШ, обращает наше исключительное внимание. Кильпатрик - один из тех зарубежных педагогов, система педагогических взглядов которых особенно сильно (   Читать дальше...   )Жанр: История, политология, искусство, педагогикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8E202ED8670BC3DD6C6D3C06C9B8CAEC10494AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192663   (262799) от 18.12.2017
+
+Н.Г. Чичерина | Международные концерны: социальная политика, пропаганда (1985) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262799.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена анализу социальных и идеологических последствий развития международного бизнеса. Внимание автора концентрируется на различных формах интернационализации капиталистического производства и вызываемых ею социально-психологических изменениях, сдвигах в социальной структуре "инкорпорированных" групп и системах ценностных ориентаций. Автор анализирует (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85C0DCE5F997F645B5D297DAE596FA656E7CA265
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192863   (262751) от 18.12.2017
+
+А.Г. Дугин | Ноомахия. Войны ума. Желтый Дракон. Цивилизации Дальнего Востока. Китай. Корея. Япония. Индокитай (2017) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262751.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередной том Александра Дугина из серии «Ноомахия: войны ума» посвящен цивилизациям Дальнего Востока (Китаю, Корее, Японии, Индокитаю), в основании которых лежит синтез различных Логосов, переплетенных друг с другом в сложной и драматической диалектике. Если Китайская цивилизация в целом представляет собой зону сбалансированного Логоса Диониса, а динамичная диада (   Читать дальше...   )Жанр: ФилософияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FCA410A722211899F126EE9CBE9205673CC21C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192433   (262739) от 18.12.2017
+
+Л.В. Щерба | Как надо изучать иностранные языки (1929) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262739.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все, что будет здесь говориться, относится исключительно к изучению иностранных языков взрослыми. Конечно, частично очень многое будет справедливо и для школы. Однако в школе иностранные языки имеют не только практическое значение, но и общеобразовательное, благодаря этому все школьное преподавание иностранных языков должно строиться на иных основаниях.Жанр: История, искусство, лингвистика, филология, языкознаниеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BB919C904BD323AE94E8DFDFB19A2FFF6906D90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192441   (262720) от 18.12.2017
+
+В.Д. Ардзинов | Ценообразование и составление смет в строительстве (2006) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262720.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге изложены основы ценообразования, методы и примеры составления смет в Российской Федерации. Наглядно показаны элементы нормативно-методической базы определения сметной стоимости строительной продукции. Приведены правила определения объемов строительных работ. Изложены основы организации подрядных торгов в строительстве. Даны примеры составления смет от общестроительных (   Читать дальше...   )Жанр: Строительство, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83D6A5A768A2BABFDEABD9A0A57E24ABF8017AD0
 ```
 
 https://mybot314.ru/tekegram_catalog/

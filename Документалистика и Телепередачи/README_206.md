@@ -1,3 +1,161 @@
+###  Публикация: 133551   (787742) от 23.11.2021
+
+Танки! / Tanks! (1999) TVRip (12 серий 12)
+
+>>Документалистика и Телепередачи
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787742.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все серии "Танков!" в одной раздаче. Все серии в хорошем качестве (TVRip 700мб каждая серия)Производство: Cromwell ProductionsЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 09:36:38 (общая)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11CE69B073E4FE4FF2036FA82C1D3A74E1EA69D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203650   (787701) от 03.02.2018
+
+Выступление Владимира Путина в День 75-летия Победы в Сталинградской битве (02.02.2018) WEB-DL [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787701.jpg" />
+</div>
+
+
+###  Подробнее
+
+В день 75-летия победы в Сталинградской битве Президент посетил музей-заповедник «Сталинградская битва» на Мамаевом кургане. Глава государства возложил венок к Вечному огню в Зале воинской славы и почтил память погибших минутой молчания.
+Сталинградская битва по длительности и количеству участников является одной из крупнейших во Второй мировой войне. Это сражение (   Читать дальше...   )Производство: Президент.РФЖанр: ДокументальныйПродолжительность: 00:05:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26E937791B1951FC9CA49A7E01CFAB3441DDE553
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203753   (787675) от 03.02.2018
+
+Главная дорога (03.02.2018) SATRip
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787675.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Главная дорога» — первая на российском телевидении информационная программа обо всем, что происходит на дорогах страны. Это полчаса полезной информации не только для автолюбителей, но и для пешеходов. В постоянной рубрике «Испытано на себе» зрителей ждут наглядные советы, как вести себя в сложных ситуациях на дорогах. Сложнейший курс контраварийной подготовки, адаптированный (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: 00:32:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2817A4F48B26FEFE65D102EDAD2B17645216F53E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203547   (787651) от 03.02.2018
+
+Тайны древних империй / Secrets of Ancient Empires (2001) SATRip (5 серий из 5)
+
+>>Документалистика и Телепередачи
+>>История
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787651.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект, приоткрывающий занавес секретности и объясняющий тайны возникновения цивилизаций.
+Это история путешествия от доисторического общества к вершинам римской цивилизации. Как развивалось человечество и как влияло на мир вокруг себя? Сериал отделяет мифы от реальности и исследует традиции, фольклор, легенды и культуру древних цивилизаций, доживших до наших времен. (   Читать дальше...   )Производство: Великобритания, Cromwell ProductionsЖанр: Документальный, история, научно-популярный, империи, цивилизацииРежиссер: Крис ГормлиПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 5 х ~ 00:49:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:554F4C66BD5EC86786CE2AAFA75B54F2EACC083C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203534   (787639) от 03.02.2018
+
+Несокрушимый небесный замок Мон-Сен-Мишель / Mont-Saint-Michel: Resistance Through The Age (2016) HDTVRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>История
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возвышаясь над морем, словно сказочный замок, Мон-Сен-Мишель по праву называется чудом Запада. Фильм поведает зрителям многовековую историю этого культового места на скалистом острове. В разные века оно было центром паломничества, символом сопротивления в период Столетней войны и одной из самых страшных тюрем времен Французской революции. Вместе с создателями фильма (   Читать дальше...   )Производство: Великобритания, Франция, BBC, Worldwide FranceЖанр: Документальный, история, архитектура, искусствоРежиссер: Дениз СнегПеревод: Двуголосый закадровый, профессиональный (СВ Дубль)Субтитры: отсутствуютПродолжительность: 00:51:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D433938618149F93F0789540E1C729BFBB938A8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276701   (787587) от 17.01.2019
+
+Дрейф в Северной Атлантике / North Atlantic Drift (2017) WEBRip [H.264/2160p] [4K, UHD]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787587.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дрейф через Исландское нагорье и архипелаг Фарерских островов сверху. Отправляйся туда, где парят птицы, туман волнистый, а ледники вырезают ландшафт.Производство: ИсландияЖанр: Документальный, видовойРежиссер: Дуг УркхартПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:04:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B43448F350FA42A665EC37383F9B681C1646A8B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1276699   (787582) от 17.01.2019
 
 Пейзажи: Том 4 / Landscapes: Volume 4 (2015) WEBRip [H.264/2160p] [4K, UHD]
@@ -6,7 +164,7 @@
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787582.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787558.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787537.jpg" />
 </div>
 
 
@@ -84,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787473.jpg" />
 </div>
 
 
@@ -111,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787466.jpg" />
 </div>
 
 
@@ -138,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787462.jpg" />
 </div>
 
 
@@ -165,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787461.jpg" />
 </div>
 
 
@@ -192,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787403.jpg" />
 </div>
 
 
@@ -218,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787401.jpg" />
 </div>
 
 
@@ -244,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787400.jpg" />
 </div>
 
 
@@ -270,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787399.jpg" />
 </div>
 
 
@@ -296,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787398.jpg" />
 </div>
 
 
@@ -322,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787397.jpg" />
 </div>
 
 
@@ -348,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787392.jpg" />
 </div>
 
 
@@ -374,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787388.jpg" />
 </div>
 
 
@@ -400,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787387.jpg" />
 </div>
 
 
@@ -426,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787375.jpg" />
 </div>
 
 
@@ -452,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787370.jpg" />
 </div>
 
 
@@ -478,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787365.jpg" />
 </div>
 
 
@@ -506,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787359.jpg" />
 </div>
 
 
@@ -517,163 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCC390361440E5044F7124CC17FA241BFEA6D4F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512186   (787358) от 24.11.2021
-
--N- Восстание / -N- Uprising (2019) WEBRip [H.264/2160p]
-
->>Документалистика и Телепередачи
->>Релакс / Relax
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787358.jpg" />
-</div>
-
-
-###  Подробнее
-
-В видео показано несколько видов насекомых, цветов и как гусеница превращается в куколку, а затем бабочка выходит из куколки.Производство: ФранцияЖанр: документальный, видовойРежиссер: Томас БланшарПеревод: не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:04:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6422DB4F9CB54AA9694874076F1A214F84F0C9BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512189   (787351) от 24.11.2021
-
-Сингапур. Гиперлапс в государстве чудес / Singapore. Hyperlapse in State of Wonder (2021) WEBRip [ProRes/1080p]
-
->>Документалистика и Телепередачи
->>Релакс / Relax
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787351.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сингапур называют игровой площадкой для богатых, и это правда, что в этом небольшом городе-государстве есть определенный блеск богатства. Но Сингапур предлагает больше, чем просто элитные торговые центры, роскошные отели и изысканные рестораны. Здесь также есть яркая история и разнообразные этнические кварталы, которые стоит открыть, наряду со многими семейными достопримечательностями (   Читать дальше...   )Производство: СингапурЖанр: документальный, видовойРежиссер: Кирилл НеижмаковПеревод: не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:03:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD11F59700977F07CE26E2AC85AFF0727B4D75DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512568   (787108) от 25.11.2021
-
-Родня (2021) WEBRip [H.264/1080p] (выпуск 10)
-
->>Документалистика и Телепередачи
->>Личности в истории
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный онлайн-проект о забытых героях России.
-Герои проекта — военные и медики, профессоры и рабочие, педагоги и строители, музыканты и поэты — простые люди, сыгравшие важную роль в жизни страны, но по какой-то причине незаслуженно забытые. «Родня» — это живой рассказ о людях, их судьбах и поступках, которые и создали наш мир, нашу историю и нашу современность.Телекомпания: НТВЖанр: Документальный, История, БиографияСубтитры: ОтсутствуютПродолжительность: 00:26:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2E414B0A811FCC67B523BD2E854B786F029905D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512490   (787100) от 25.11.2021
-
-Тихий океан / El Pacifico (2021) WEBRip [H.264/2160p]
-
->>Документалистика и Телепередачи
->>Релакс / Relax
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллаж из богатого биоразнообразия морской жизни, обитающей в водах у тихоокеанского побережья Мексики.Производство: МексикаЖанр: документальный, видовойРежиссер: Клейтон КоннПеревод: не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:03:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47617E94AC4729A2971AAC37B43FA89393DA1A2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512488   (787099) от 25.11.2021
-
-Самолёт / Celera 500L (2021) WEBRip [H.264/2160p]
-
->>Документалистика и Телепередачи
->>Релакс / Relax
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Celera 500L — сверхэкономичный экспериментальный самолёт американской компании «Otto Aviation Group».Производство: США, Otto AviationЖанр: документальный, видовойПеревод: не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:03:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4943BF820ABA79A607516588AF10A2FE6F85793C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512665   (787097) от 25.11.2021
-
-Исландия / Iceland (2021) WEBRip [H.264/2160p]
-
->>Документалистика и Телепередачи
->>Релакс / Relax
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787097.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наше путешествие по Исландии. Мы с женой провели там в общей сложности 4 недели. Исландия - удивительная страна. Пейзажи дикие, а погода может быть очень переменчивой. Никакого шума, только звуки природы. В особенности извержение вулкана Фаградалсфьяль - это то, что вы никогда не забудете до конца своей жизни.Производство: Исландия, Abgetaucht-WeltweitЖанр: документальный, видовойПеревод: не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:04:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:848F848851BD09D473734F05DBF6017EABF7BED3
 ```
 
 https://mybot314.ru/tekegram_catalog/

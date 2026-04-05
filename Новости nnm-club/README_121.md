@@ -1,3 +1,55 @@
+###  Публикация: 906829   (640998) от 10.06.2015
+
+SoftMaker Office Professional 2016 rev 733.0527 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программный офисный пакет Softmaker Office 2016, основная разработка компании Softmaker GmbH, является отличной заменой для Microsoft Office. Пакет офисных программ в том или ином составе необходим и в организациях и дома на персональном компьютере для улучшения, оптимизации, облегчения процессов документирования, контроля и учета, автоматизации офисной работы. Вы, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B64ADE061697B453CC117EE4551C7840F0CAF2B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906931   (640952) от 10.06.2015
+
+Оно / It Follows (2014) HDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640952.jpg" />
+</div>
+
+
+###  Подробнее
+
+После сексуальной связи 19-летнюю девушку по имени Джей начинают мучать странные видения и непреодолимое чувство того, что кто-то или что-то за ней следит…Производство: США, Northern Lights Films, Animal Kingdom, Two FlintsЖанр: Ужасы, ДетективРежиссер: Дэвид Роберт МитчеллАктеры: Кейр Гилкрист, Кэролетт Филлипс, Лорен Басс, Оливия Луккарди, Лили Сепе, Майка Монро, Джейк Вири, Дэниэл Дзоватто, Чарльз Гертнер, Бэйли СпрайПеревод: Двуголосый закадровый, любительскийОзвучка / Автор перевода: Студия Пиратского ДубляжаСубтитры: ОтсутствуютПродолжительность: 01:40:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:055DD4B6A71088E35BCC3B6F5F8EE17B6BC0B652
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 805798   (640949) от 10.06.2015
 
 Я не вернусь (2014) WEBRip
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640949.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640727.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640683.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640487.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640384.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640375.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ Warhammer 40.000: Dawn of War III (2017) [Ru/En] (4.0.0.16278) Repack R.G. Ме�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640374.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_639983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_639983.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ Hentai Ouji to Warawanai Neko / The Hentai Prince and the Stony Cat / Принц
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639652.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639355.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ Adguard Премиум 5.10.2035.6350 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639169.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639030.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639026.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_639010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_639010.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638876.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ Pathfinder: Kingmaker - Imperial Edition v1.3.0m (2018) [Multi/Ru] [macOS Native
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638709.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ CorelDRAW Graphics Suite X6 (32/64-Bit)[ENG\RUS] + Corel Website Creator X6 v.12
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_638505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_638505.jpg" />
 </div>
 
 
@@ -457,7 +509,7 @@ Ventoy 1.0.73 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638492.jpg" />
 </div>
 
 
@@ -485,7 +537,7 @@ GeekBrains | Системный и бизнес-аналитик (2021) WEB-DL [
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638478.jpg" />
 </div>
 
 
@@ -513,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638457.jpg" />
 </div>
 
 
@@ -539,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637948.jpg" />
 </div>
 
 
@@ -566,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637084.jpg" />
 </div>
 
 
@@ -592,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636995.jpg" />
 </div>
 
 
@@ -618,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_636826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_636826.jpg" />
 </div>
 
 
@@ -629,59 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142904   (636810) от 17.06.2017
-
-Чиновники: принятый Госдумой законопроект о запрете анонимности в мессенджерах защищает интересы граждан и бизнеса
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_636810.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как и ожидалось, законопроект о регулировании работы мессенджеров, внесенный на рассмотрение депутатами Госдумы, прошел первое чтение. Документ был поддержан 356 депутатами, двое высказались против, а один — воздержался. Законопроект, предусматривающий поправки к закону «Об информации, информационных технологиях и о защите информации», обязывает организаторов обмена (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255479   (636767) от 03.04.2019
-
-Ходячие мертвецы / The Walking Dead (2018) WEB-DL [H.264/1080p-LQ] (сезон 9, серии 1-16 из 16) FOX
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636767.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение популярного американского постапокалиптического сериала основанного на одноименных комиксах Роберта Киркмана The Walking Dead.
-В центре сюжета история бывшего шерифа Рика Граймса, который путешествует с сыном Карлом и группой единомышленников по постапокалиптической Америке, оккупированной зомби.Производство: США / American Movie Classics (AMC), Circle of Confusion, Valhalla Motion PicturesЖанр: ужасы, фантастика, триллер, драмаРежиссер: Грег Никотеро, Розмари Родригез, Дэн ЛьюАктеры: Норман Ридус, Мелисса Сюзанн МакБрайд, Эндрю Линкольн, Лорен Кохэн, Данай Гурира, Аланна Мастерсон, Кристиан Серратос, Джош МакДермитт, Сет Гиллиам, Росс Маркванд и др.Перевод: Многоголосый закадровый, профессиональный - FOXСубтитры: английскиеПродолжительность: ~00:55:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74A03FE03318D55B8369446699EBCC33979341A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

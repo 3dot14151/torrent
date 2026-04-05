@@ -1,32 +1,3 @@
-###  Публикация: 1391393   (780931) от 20.06.2020
-
-Udemy | HTML + CSS с Нуля до Результата (2020) PCRec [H.264/720p-LQ]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из этого курса ты узнаешь, как использовать HTML5 и CSS3 для разработки web-сайта. Также ты изучишь основы написания кода на JavaScript для оживления проекта.
-Для кого этот курс:
-Этот курс предназначен для всех, кто хочет узнать о веб-разработке, независимо от уровня осведомлённости
-Это также отлично подходит для тех, кто имеет некоторый опыт в некоторых технологиях (   Читать дальше...   )Производство: Максим СукманюкЖанр: HTML, CSSПродолжительность: 12:18:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C91F60A3D687DA5F3AB9DA6FEC430E61241376B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209085   (779324) от 26.02.2018
 
 Udemy | Изучаем Социальную Инженерию с Нуля (2017) PCRec [H.264/720p-LQ] [EN]
@@ -35,7 +6,7 @@ Udemy | Изучаем Социальную Инженерию с Нуля (2017
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779324.jpg" />
 </div>
 
 
@@ -61,7 +32,7 @@ OTUS | Разработчик full-stack на Python (2017) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779306.jpg" />
 </div>
 
 
@@ -87,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779169.jpg" />
 </div>
 
 
@@ -115,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777806.jpg" />
 </div>
 
 
@@ -141,7 +112,7 @@ ITVDN | Выполнение домашнего задания по курсу S
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777798.jpg" />
 </div>
 
 
@@ -167,7 +138,7 @@ Search Engine Education | SEO-Коучинг 9.0 (2016) PCRec [H.264/720p]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777768.jpg" />
 </div>
 
 
@@ -193,7 +164,7 @@ ITVDN | HTML & CSS (renewed) (2015) PCRec [H.264/720p]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777765.jpg" />
 </div>
 
 
@@ -219,7 +190,7 @@ ITVDN | HTML5 Web Components (2016) PCRec [H.264/1080p]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777761.jpg" />
 </div>
 
 
@@ -245,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777760.jpg" />
 </div>
 
 
@@ -273,7 +244,7 @@ ITVDN | C# Essential Express (2015) PCRec [H.264/720p]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777758.jpg" />
 </div>
 
 
@@ -299,7 +270,7 @@ ITVDN | Создание адаптивного сайта с Bootstrap 3 (2015)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777757.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ videosharp | Игра Сокобан на C# (2015) PCRec [H.264/720p]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777453.jpg" />
 </div>
 
 
@@ -351,7 +322,7 @@ ProfIT | PHP Готовимся к собеседованию (2016) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777426.jpg" />
 </div>
 
 
@@ -380,7 +351,7 @@ Unity3DSchool | Основы языка C# в unity3D для написания 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777032.jpg" />
 </div>
 
 
@@ -406,7 +377,7 @@ Geekbrains | Node.js Серверное программирование на Ja
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776987.jpg" />
 </div>
 
 
@@ -432,7 +403,7 @@ ProfIT | PHP-3: Повышение квалификации (2016) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776235.jpg" />
 </div>
 
 
@@ -458,7 +429,7 @@ Laracasts | Skills (2014-2017) PCRec [H.264] [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775658.jpg" />
 </div>
 
 
@@ -487,7 +458,7 @@ Laracasts | Extra Series (2013-2018) PCRec [H.264] [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775654.jpg" />
 </div>
 
 
@@ -513,7 +484,7 @@ WebForMySelf | Joomla-Профессионал: создание расшире�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775405.jpg" />
 </div>
 
 
@@ -542,7 +513,7 @@ Udemy | Certified Metasploit Framework Professional (2014) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773206.jpg" />
 </div>
 
 
@@ -570,7 +541,7 @@ Udemy | Unreal Engine Blueprints The Ultimate Developer Course (2020) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772438.jpg" />
 </div>
 
 
@@ -596,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770875.jpg" />
 </div>
 
 
@@ -624,7 +595,7 @@ ITVDN | Видео курс Выполнение домашнего задани
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770002.jpg" />
 </div>
 
 
@@ -650,7 +621,7 @@ ITVDN | Unity 3D User Interface (2016) PCRec [H.264/720p]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769998.jpg" />
 </div>
 
 
@@ -676,7 +647,7 @@ ITVDN | Unity 3D Advanced (2016) PCRec [H.264/720p]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769995.jpg" />
 </div>
 
 
@@ -687,6 +658,34 @@ ITVDN | Unity 3D Advanced (2016) PCRec [H.264/720p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C55C8C748DC3953F9294FEBFC9789C3E1BD39BBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392270   (769641) от 24.06.2020
+
+Udemy | Web приложение - IShop: Servlets, JSP, JSTL, Custom tags (2016) PCRec [H.264/720p-LQ]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769641.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный курс предназначен для изучения основ Java Enterprise Edition (JEE) для создания web приложений с помощью языка Java.
+
+Данный курс состоит из двух частей: в первой части рассматривается  теоретический обзор основных web компонентов: Servlets, Filters,  Listeners, JSP, JSP tags, JSTL, а  также основы HTTP протокола,  а во второй части полученные теоретические знания (   Читать дальше...   )Производство: DevStudy.netЖанр: Программирование, JavaПродолжительность: 14:11:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8810E401103AECE3E91E7155DC0D53DAA41F3BC6
 ```
 
 https://mybot314.ru/tekegram_catalog/

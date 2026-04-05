@@ -1,3 +1,108 @@
+###  Публикация: 1434399   (150352) от 24.12.2020
+
+MudRunner Mobile v1.3.0.8633 [Ru/En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150352.jpg" />
+</div>
+
+
+###  Подробнее
+
+MudRunner — это непревзойденная гонка по бездорожью, в которой вам предстоит сесть за руль потрясающих внедорожников и бросить вызов суровым сибирским ландшафтам, имея под рукой лишь карту и компас. Выполняйте задания и доставляйте грузы, сражаясь с безжалостными климатическими условиями на диких ландшафтах с динамической сменой дня и ночи. Благодаря продвинутой (   Читать дальше...   )Тип издания: Premium+ (Mod Unlocked)Релиз состоялся: 23 ноября 2020 г.Разработчик: Focus Home InteractiveПоддерживаемая ОС: Android 4.4+Жанр: Симуляторы, ГоночныеЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55081B8931B1D82F80F9266DB351BD11C431C9C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677622   (150321) от 18.11.2023
+
+Stellio - Music Player v6.7.0 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stellio - продвинутый плеер, с мощным звуком, поддержкой тем и большим выбором звуковых настроек.
+Главной целью при разработке было получить звук высокого качества. Эта цель была достигнута с помощью внедрения мощной звуковой системы, которая управляет 12-ти полосным эквалайзером и большим разнообразием звуковых эффектов. Плеер даёт полную свободу для экспериментов, (   Читать дальше...   )Релиз состоялся: 28.10.2023Разработчик: Stellio SoftПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3653F20FE5B9F6BC2C9E243C97440DBBFAEBAD7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434595   (149760) от 25.12.2020
+
+Рецепты десертов и выпечки v2.14.10033 [Ru] (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кулинарный справочник-книга для людей любящих готовить самостоятельно. Содержит больше тысячи рецептов сладких блюд с фотографиями и пояснениями. Представлены блюда русской, индийской, итальянской, французской кухни. Присутствует раздел с постными блюдами, детским меню, низкокалорийная еда, а также вегетарианские рецепты. Большое количество кексов, шарлоток, маффинов.Тип издания: Пиратка (AdFree - без рекламы)Релиз состоялся: 16.12.2020Разработчик: remind4u2Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:546B8A8A4008F2DD5AA774CB56E29EA6FE222DEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271537   (149729) от 23.12.2018
+
+Коктейль Гид  v1.2 Pro + Mod [Ru] - лучшие рецепты барменов
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149729.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коктейльный гид - это приложение, которое поможет тебе приготовить лучшие коктейли и организовать яркую вечеринку!Тип издания: Пиратка (Pro и Mod)Релиз состоялся: 11.10.2018Разработчик: ianchuk.comПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:537F125DCBBF0CEEB920B70A1ACD57F878DA1900
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1434580   (149453) от 25.12.2020
 
 Мой Говорящий Хэнк v2.0.1.99 [Ru]
@@ -6,7 +111,7 @@
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149453.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ PAC-MAN 256: вечный лабиринт v2.0.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149291.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149236.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ Space Marshals 3 + Mod Menu v1.3.8 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149183.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ Listen Audiobook Player v5.2.2 (979) Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149021.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ Street Racing Grand Tour v0.12.3756 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147822.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ State of Survival v1.9.90 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147763.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ Webcams v2.0.11 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147649.jpg" />
 </div>
 
 
@@ -214,7 +319,7 @@ Next: тренировки дома v0.0.77 Mod by sserratty [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147512.jpg" />
 </div>
 
 
@@ -240,7 +345,7 @@ Garmin: City Navigator Philippines NT 2015.40 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147429.jpg" />
 </div>
 
 
@@ -266,7 +371,7 @@ Garmin: Bulgaria OFRM Geotrade - 2015 Q4 [Bg]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147227.jpg" />
 </div>
 
 
@@ -292,7 +397,7 @@ Garmin: City Navigator Thailand NT 2015.20 (Dual+Thai) [En/Th]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147221.jpg" />
 </div>
 
 
@@ -318,7 +423,7 @@ Shift Work Calendar (FlexR Pro) v7.12.7 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146974.jpg" />
 </div>
 
 
@@ -347,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146892.jpg" />
 </div>
 
 
@@ -373,7 +478,7 @@ Shamdo v1.3.1216 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146395.jpg" />
 </div>
 
 
@@ -399,7 +504,7 @@ ExoMiner - Idle Miner Adventure v0.7.8 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145746.jpg" />
 </div>
 
 
@@ -426,7 +531,7 @@ Shadow Hunter : Lost World - Epic Hack and Slash v0.20.8.4 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145645.jpg" />
 </div>
 
 
@@ -452,7 +557,7 @@ Age of Civilizations II 1.01584_ELA [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145419.jpg" />
 </div>
 
 
@@ -478,7 +583,7 @@ Flight Simulator 2d v1.3.2 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145356.jpg" />
 </div>
 
 
@@ -504,7 +609,7 @@ Day R Premium v1.677 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145278.jpg" />
 </div>
 
 
@@ -530,7 +635,7 @@ Aimp v4.05.1382 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145248.jpg" />
 </div>
 
 
@@ -558,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145184.jpg" />
 </div>
 
 
@@ -569,116 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF5C5F41D128946E9D71A80D043052021AF322A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520089   (145032) от 26.12.2021
-
-English Idioms & Slang Phrases v1.2.6 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы только начинаете учить английский язык или ищете способы улучшить свои текущие знания? Это приложение для вас!
-
-Английский является наиболее распространенным в качестве второго языка. В международном общении он используется как в формальных ситуациях: бизнес, образование, путешествия, покупки, медицина, так и в неформальном общении, например, в компаниях друзей, (   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 23 апреля 2021 г.Разработчик: Smart learning solutionsПоддерживаемая ОС: Android 4.2+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8279358720B4551D96F924BDC2225317AF0F16D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520073   (144993) от 26.12.2021
-
-TOEFL Vocabulary v1.7.5 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144993.jpg" />
-</div>
-
-
-###  Подробнее
-
-TOEFL – достаточно сложный комплексный стандартизованный тест на знание английского языка (в его североамериканском варианте), сдача которого обязательна для неанглоязычных иностранцев для поступления в вузы США.
-
-Тест TOEFL требует самой серьезной подготовки. Какой бы путь подготовки к этому тесту Вы ни выбрали, неизменным остается одно требование - Ваш словарный (   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 16 февраля 2021 г.Разработчик: Smart learning solutionsПоддерживаемая ОС: Android 4.2+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F6738D0CBFF2B2CA9826F677FE8BCAB18723F82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520053   (144947) от 26.12.2021
-
-Русско-английский словарь v2.4.4 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это русско-английский и англо-русский словарь (Russian-English Dictionary)
-Этот новый словарь больше, чем просто словарь. Вы можете искать слова и прослушать произношение. Словарь работает в режиме офлайн!
-Словарь так же имеет дополнитульные функции, например: словарный тренер! Словарьный тренер помогает быстро запомнить и выучить новые английские слова. В нем содержатся (   Читать дальше...   )Тип издания: Пиратка (AdFree - удалена реклама)Релиз состоялся: 26 декабря 2021 г.Разработчик: AllDictПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BBC4288FA21C789CE4362E524DC06ED7D4AF4C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596437   (144780) от 21.11.2023
-
-Meditative Mind v2.96  [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144780.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весьма удобный клиент для доступа к обширного каталогу медитативной музыки с возможность скачивания оной. Красочный и понятный интерфейс позволит вам быстрее достичь слияния со своей душой. В каталоге предоставлено множество категорий для медитаций разного типа. Поддерживается функционал отключения воспроизводения по таймеру. Meditative Mind - лучшее музыкальное (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 08.10.2023Разработчик: Meditative MindПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39A322842915F2D7700B54B590BF1F48AE02C4B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

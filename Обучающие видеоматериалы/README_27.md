@@ -1,3 +1,29 @@
+###  Публикация: 1446459   (1032658) от 09.02.2021
+
+Дмитрий Фокс | Master of Light (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>Фотография и Видео (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032658.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обучитесь авторским способам работы со светом, получите новые источники вдохновения и найдите свой стильЖанр: ФотографияПродолжительность: 04:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26E71817FAB66A44C5C7029B27A13C8D6749F73B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1446477   (1032652) от 09.02.2021
 
 Polina Washington | Видение (2020) PCRec
@@ -6,7 +32,7 @@ Polina Washington | Видение (2020) PCRec
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032652.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ Mehdi Salehi | Houdini Snow System Simulations (2014) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032518.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Spencer Lueders | Introduction to FX using Houdini (2013) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032478.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Tyler Bay | Houdini For the New Artist I (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032457.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Skillshare, Andrei Dumitrescu | Узнай Docker с нуля / Learn Docker Fro
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032445.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032403.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032386.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ Udemy, Центр digital-профессий ITtensive | Машинное обу
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032385.jpg" />
 </div>
 
 
@@ -223,7 +249,7 @@ Broadcast Design School, Юрий Довганюк | Broadcast Design School + P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032378.jpg" />
 </div>
 
 
@@ -249,7 +275,7 @@ Rohan Dalvi | Floating islands of Houdini 1-3 Parts (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032241.jpg" />
 </div>
 
 
@@ -277,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032198.jpg" />
 </div>
 
 
@@ -306,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032190.jpg" />
 </div>
 
 
@@ -332,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032177.jpg" />
 </div>
 
 
@@ -359,7 +385,7 @@ Rohan Dalvi | Gears of Houdini (2014) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032066.jpg" />
 </div>
 
 
@@ -386,7 +412,7 @@ Ruben Mayor | Houdini PyroFx in Film Production (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032053.jpg" />
 </div>
 
 
@@ -413,7 +439,7 @@ Pluralsight, Craig Stansbury | Cisco Core Security: Securing the Cloud (2021) PC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032039.jpg" />
 </div>
 
 
@@ -439,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032030.jpg" />
 </div>
 
 
@@ -468,7 +494,7 @@ Rohan Dalvi | Hard surface modeling in Houdini (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032016.jpg" />
 </div>
 
 
@@ -495,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031993.jpg" />
 </div>
 
 
@@ -521,7 +547,7 @@ Marc Brunet | Simple Female Figure (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031977.jpg" />
 </div>
 
 
@@ -547,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031975.jpg" />
 </div>
 
 
@@ -576,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031957.jpg" />
 </div>
 
 
@@ -602,7 +628,7 @@ Groove3, Scottie Dugan | Ozone 8 Explained® (2021) PCRec [En]
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031837.jpg" />
 </div>
 
 
@@ -628,7 +654,7 @@ Rohan Dalvi | User interfaces and motion graphics part 2 (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031823.jpg" />
 </div>
 
 
@@ -655,7 +681,7 @@ Rohan Dalvi | User interfaces and motion graphics part 3 (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031816.jpg" />
 </div>
 
 
@@ -667,32 +693,6 @@ Rohan Dalvi | User interfaces and motion graphics part 3 (2014) PCRec [En, Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFD6F917B70D7F43A8D88824CDFB174EE3168133
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447371   (1031802) от 13.02.2021
-
-Groove3, Kenny Gioia | First Song with REAPER (2021) PCRec [En]
-
->>Обучающие видеоматериалы
->>Музыка (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Платиновый продюсер / инженер Кенни Джойя шаг за шагом расскажет вам, как сделать вашу первую песню в Cockos REAPER. От ничего? до чего-то потрясающего, Кенни легко и быстро познакомит вас с REAPER. Вы также получаете заготовки REAPER и аудиофайлы, которые использует Кенни, так что вы можете следить за ним.Производство: Groove3Жанр: МузыкаЯзык озвучки: АнглийскийПродолжительность: 02:21:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C52F73FEFB83F0503D5DA49107EBCD965F8437F
 ```
 
 https://mybot314.ru/tekegram_catalog/

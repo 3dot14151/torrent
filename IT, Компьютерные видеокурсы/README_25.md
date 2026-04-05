@@ -1,31 +1,3 @@
-###  Публикация: 1483515   (1006687) от 14.07.2021
-
-software-testing.ru, О. Назина | Автоматизация тестов для REST API при помощи Postman (2021) PCRec [AD]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006687.jpg" />
-</div>
-
-
-###  Подробнее
-
-а курсе мы будем писать автотесты для API-методов в программе Postman. Мы пройдем полный цикл — от первого автотеста до настройки CI (Continuous Integration). От Math.random до циклов и условий. От простого include до регулярных выражений. Это курс вам подойдет, если:
-Вы не умеете автоматизировать — Postman дает отличный и простой старт.
-Вы тестируете API черным (   Читать дальше...   )Производство: software-testing.ruЖанр: ТестированиеПродолжительность: 38:37:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56A9152A030EA2BE5B628C42CB5250639F78BE0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483754   (1006593) от 15.07.2021
 
 Udemy, Justin Mitchel | DjangoFlix - Build a Netflix-Like Service in Django & Python  (2021) PCRec [En / En Sub]
@@ -34,7 +6,7 @@ Udemy, Justin Mitchel | DjangoFlix - Build a Netflix-Like Service in Django & Py
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006593.jpg" />
 </div>
 
 
@@ -61,7 +33,7 @@ Udemy, Артем Баданов| Изучение Java с нуля (2021) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006561.jpg" />
 </div>
 
 
@@ -90,7 +62,7 @@ Udemy, Marek Gryszkiewicz | WebRTC 2021 Practical Course. Create Video Chat Appl
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006495.jpg" />
 </div>
 
 
@@ -116,7 +88,7 @@ Udemy, Codestars by Rob Percival, Atil Samancioglu |The Complete Quantum Computi
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006129.jpg" />
 </div>
 
 
@@ -144,7 +116,7 @@ Udemy, Elshad Karimov | Java Data Structures and Algorithms Masterclass (2021) P
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006080.jpg" />
 </div>
 
 
@@ -171,7 +143,7 @@ Udemy, Tom Phillips | Gatsby JS и Shopify: Интернет-магазин с G
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006078.jpg" />
 </div>
 
 
@@ -198,7 +170,7 @@ Udemy, Alexander Hagmann | Complete 2-in-1 Python for Business and Finance Bootc
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006069.jpg" />
 </div>
 
 
@@ -226,7 +198,7 @@ Udemy, Imran Afzal | Complete VMWare vSphere ESXi and vCenter Administration (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006061.jpg" />
 </div>
 
 
@@ -253,7 +225,7 @@ Udemy, Angular University | Angular Core Deep Dive (with FREE E-Book) (2021) PCR
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005985.jpg" />
 </div>
 
 
@@ -281,7 +253,7 @@ Udemy, Trevor Sawler | Working with React and Go (Golang) (2021) PCRec [En / En 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005983.jpg" />
 </div>
 
 
@@ -308,7 +280,7 @@ Profit, Степанцев Альберт |  PHP Parallel - новое расш�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005981.jpg" />
 </div>
 
 
@@ -337,7 +309,7 @@ Genius Courses, Александр Сокирка | Разработка Пла�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005977.jpg" />
 </div>
 
 
@@ -363,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005968.jpg" />
 </div>
 
 
@@ -389,7 +361,7 @@ Rebrain, Fevlake, Дмитрий Гордеев и др. | Golang-разрабо
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005959.jpg" />
 </div>
 
 
@@ -418,7 +390,7 @@ Udemy, Andrei Neagoie, Daniel Bourke | TensorFlow Developer Certificate in 2021:
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005898.jpg" />
 </div>
 
 
@@ -444,7 +416,7 @@ Udemy, Laurence Svekis | Google Apps Script Complete Course New IDE 100+ Example
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005414.jpg" />
 </div>
 
 
@@ -471,7 +443,7 @@ Udemy, Jonas Schmedtmann | Build Responsive Real-World Websites with HTML and CS
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005366.jpg" />
 </div>
 
 
@@ -499,7 +471,7 @@ Swiftbook, Алексей Ефимов  и др. | Профессия iOS-раз
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005364.jpg" />
 </div>
 
 
@@ -527,7 +499,7 @@ Udemy, Scott Barrett | JavaScript Algorithms and Data Structures Masterclass (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004524.jpg" />
 </div>
 
 
@@ -556,7 +528,7 @@ Udemy, Apiko Academy | Frontend React JS Web Development Course (2021) PCRec [UK
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004477.jpg" />
 </div>
 
 
@@ -582,7 +554,7 @@ Udemy, Kati Frantz | Advanced React For Enterprise: React for senior engineers (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004464.jpg" />
 </div>
 
 
@@ -610,7 +582,7 @@ Udemy, Jason Cannon | Linux Shell Scripting: A Project-Based Approach to Learnin
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003745.jpg" />
 </div>
 
 
@@ -639,7 +611,7 @@ OTUS | Web-разработчик на Python (2019) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003631.jpg" />
 </div>
 
 
@@ -665,7 +637,7 @@ Udemy, Zachary Reece | A Complete Guide to the JAMstack and React E-Commerce (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003550.jpg" />
 </div>
 
 
@@ -691,7 +663,7 @@ Udemy, Jonas Schmedtmann | Node.js, Express, MongoDB & More: The Complete Bootca
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003477.jpg" />
 </div>
 
 
@@ -704,6 +676,35 @@ Udemy, Jonas Schmedtmann | Node.js, Express, MongoDB & More: The Complete Bootca
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED252EC0455C3F88E4587A804BEC6ED9FD8B1491
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482006   (1003471) от 05.08.2021
+
+Udemy, Dennis Ivy | Python Django 2021 - Complete Course  (2021) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003471.jpg" />
+</div>
+
+
+###  Подробнее
+
+Готовы изучить Django? В этом курсе мы начнем с самых основ того, что такое Django, для завершения и развертывания полнофункционального веб-сайта.
+Веб-сайт, который мы создадим по мере того, как мы узнаем, станет онлайн-платформой, на которой разработчики со всего мира смогут создать профиль и поделиться своей работой с другими.
+
+Для кого этот курс?(   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 18:24:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B68444635DBE15B14349A7418A2576BADAAFB7D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

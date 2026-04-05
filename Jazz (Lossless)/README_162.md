@@ -6,7 +6,7 @@ Ethel Waters - Am I Blue?: Ethel Waters Sings 'Em (1923 - 1940) 2CD, 2019, Retro
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514515.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Blue Mitchell - Heads Up! (1967) /2014, Universal/[FLAC|tracks+.cue]<Hard Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514125.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Masabumi Kikuchi - Wishes / Kochi (1976) /2015, Universal/[FLAC|tracks+.cue]<Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514124.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Chico Hamilton - And The Players (1976) /2013, EMI Music/[FLAC|tracks+.cue]<Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514122.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Shawna Yang - Simple Life (2015) [FLAC|tracks|WEB-DL]<Contemporary Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514100.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Thelonious Monk - Thelonious Himself (1957) /2008, Concord/[FLAC|tracks+.cue]<Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514099.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ The Australian Jazz Quartet & Quintet (1956) /2014, Solid Records/[FLAC|tracks+.
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514098.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ The Bill Evans Trio - I Will Say Goodbye (1977) /2012, Universal/[FLAC|tracks+.c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514092.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Hampton Hawes - Jam Session (1968) 2014, Columbia [FLAC|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514036.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Charles Davis All Stars - A Tribute To Kenny Dorham (2010) TCB Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514035.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Freddie Hubbard - The Hub of Hubbard (1969) 1972, MPS Records [FLAC|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514034.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Thomas Marriott - Romance Language (2018) Origin Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513967.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Paul Desmond & Jim Hall - The Complete Recordings Of The Paul Desmond Quartet Wi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513621.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Tape Five - Both Sides of the Moon (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu-Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513602.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Maynard Ferguson - Maynard '61 + "Straightaway" Jazz Themes (1961) 2013, America
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513169.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ City West Quartet - First Bite Live (1990) /Suisa/[FLAC|tracks+.cue]<Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513080.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Coleman Hawkins - Father Bean (1956/1960) /1990, Jazzlab/[FLAC|tracks+.cue]<Swin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513023.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Sarah Vaughan - Young Sassy (1944 - 1950) 4CD, 2006, Proper Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512588.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Sophie Alour - La geographie des reves (2012) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512424.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Shorty Rogers And His Giants - Way Up There (1955) /2012, Warner/[FLAC|tracks+.c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511948.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Daniel Carter, Roy Campbell, William Parker, Rashid Bakr - Other Dimensions In M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511947.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ The Cannonball Adderley Quintet - Country Preacher (1969) /2014, Universal/[FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511942.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Galactic - Into The Deep [Deluxe Edition] (2015) [FLAC|tracks|WEB-DL]<Funk, Fusi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511847.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Duke Ellington - The Complete Variety, Vocalion And Okeh Small Group Sessions (1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511538.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ Dave Brubeck & Paul Desmond - 1951-1953 /1990, Fantasy/[APE|image+.cue]<Mainstre
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511119.jpg" />
 </div>
 
 
@@ -735,7 +735,7 @@ Bill Evans - Alone (1975) /2012, Universal/[FLAC|tracks+.cue]<Post-Bop, Piano Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511090.jpg" />
 </div>
 
 

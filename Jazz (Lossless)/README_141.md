@@ -6,7 +6,7 @@ Sarah Vaughan - The Roulette Years, Vols. 1-2 (1960 - 1964) 1991, Blue Note [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583808.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ David Linx - Be My Guest: The Duos Project (2021) [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583761.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Glenn Miller - Moonlight Serenade (1939 - 1944) 2000, Past Perfect [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583754.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Rhoda Scott - Anthology (1972, 1973) 2011, Universal [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583753.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Ella Fitzgerald, Count Basie, Joe Williams - One O'clock Jump (1999) [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583481.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Don Wilkerson - The Texas Twister (1960) 2001, Original Jazz Classics[FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583463.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Steve Hooks - No More Rock and Roll (2015) [FLAC|Lossless|WEB-DL|tracks] <Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583458.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Phil Dwyer & Don Thompson - Look For The Silver Lining (2013) Triplet Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583384.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ John Coltrane - Blue Train (2007) 10CD Box Set [APE|Lossless|image + cue]<Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_583257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_583257.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Freddie Hubbard - Red Clay (1970) 1987, CBS [APE|Lossless|image + .cue] <Hard Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582968.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Brad Mehldau - Jacob's Ladder (2022) [FLAC|Lossless|tracks + .cue] <Post-Bop, Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582960.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Chick Webb & Ella Fitzgerald - The Complete Chick Webb & Ella Fitzgerald Decca S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582958.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Rhoda Scott - Lady All Stars (2022) Sunset Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582820.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Mike Pachelli - electricite (2007) [FLAC|Lossless|image + .cue] <Avant Garde Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582612.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Don Pullen - Richard's Tune (1975) 2014, Delmark Records[FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582608.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Mike Pachelli - Simplicity (2006) [FLAC|Lossless|image + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582544.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Mike Pachelli - A Jazzy Little Christmas (2009) [FLAC|Lossless|image + .cue] <Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582538.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Tiny Grimes & J.C. Higginbotham - Callin' The Blues (1958) 1994, Original Jazz C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582530.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Paul Brown & Friends - White Sand (2007) [FLAC|Lossless|tracks + .cue] <Smooth J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582472.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Aldo Romano - Il Piacere (1978) 2001, Universal [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582316.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Zoot Sims Plays Johnny Mandel - Quietly There (1984) [FLAC|tracks+.cue]<Jazz, Ma
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581994.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Blue Mitchell - The Complete Blue Note Blue Mitchell Sessions (1963 - 1967) 4CD,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581875.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Paul Hardcastle - The Chill Lounge Volume 3 (2015) [FLAC|Lossless]<Nu Jazz, Loun
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581861.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Count Basie and his orchestra - Breakfast Dance And Barbecue (2001) [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581614.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Art Blakey - Dig That Beat (1959,1960,1961) 3CD, 2012, Not Now Music[FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581569.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Chick Corea, Joe Farrell, Frank Foster, Gene Perla, Elvin Jones - The John Coltr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581124.jpg" />
 </div>
 
 

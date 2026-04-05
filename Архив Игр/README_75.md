@@ -1,3 +1,55 @@
+###  Публикация: 488612   (91035) от 27.04.2012
+
+A Forgotten Realms Fantasy Role-Playing Epic Антология [En] (RePack) 1988-1991 | Pilotus
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Завершающая часть приключений, начавшихся еще в Pool of Radiance. Интерфейс стал более удобным, а графика значительно улучшилась. Команда приключенцев снова вернется в город Phlan, который они спасли в первой части.Тип издания: RePackЖанр: Ролевая играЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488409   (90905) от 26.04.2012
+
+Cracked Horn (L) [En] 2012
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Динамичный и весёлый платформер – слешер, повествующий о сражение храброго рыцаря со страшными демонами. Давным-давно рыцари из ордена крестоносцев возвели большой замок прямо над бездной, которая вела к вратам ада. Они поклялись не покидать это место и отдать свои жизни в бою, в случае вторжения демонов. Прошли сотни лет, и вот печать блокирующая портал между двумя мирами была сломлена. Толпы демонов вырвались наружу и захватили замок! Отважный герой берёт в руки свой меч, и отправляется на дно ада, чтобы вновь запечатать древнее зло!Тип издания: ЛицензияЖанр: Аркада, Казуальная, ПлатформерЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:193D9637CB1ED9F285CF4C9CE33A3363F38EF5F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 488105   (90876) от 26.04.2012
 
 [PC] Эмулятор Sony Playstation Portable "Jpcsp" v.0.6. SVN r2540 [Multi14\+] (2012)
@@ -6,7 +58,7 @@
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90876.jpg" />
 </div>
 
 
@@ -35,7 +87,7 @@ Botanicula [Multi12/+] (RePack) 2012 l R.G. UniGamers
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90783.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ The Walking Dead: Episode 1 [En] (L) 2012 l RELOADED
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90770.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ Elvira Антология [Ru] (RePack) 1991 | Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90680.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ A Valley Without Wind [En] (L/1.0) 2012 | TiNYiSO
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90541.jpg" />
 </div>
 
 
@@ -143,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90344.jpg" />
 </div>
 
 
@@ -172,7 +224,7 @@ Tom Clancy's Rainbow Six 3: Complete Edition + Raven Shield 2.0 [En] (RePack) 20
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89930.jpg" />
 </div>
 
 
@@ -198,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89926.jpg" />
 </div>
 
 
@@ -224,7 +276,7 @@ Mecha World (L) [En] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89920.jpg" />
 </div>
 
 
@@ -250,7 +302,7 @@ Botanicula [Ru] (RePack) 2012 l Naitro
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89759.jpg" />
 </div>
 
 
@@ -276,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89738.jpg" />
 </div>
 
 
@@ -302,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89737.jpg" />
 </div>
 
 
@@ -329,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89710.jpg" />
 </div>
 
 
@@ -357,7 +409,7 @@ Wrath of Earth [En] (RePack) 1995 | Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89604.jpg" />
 </div>
 
 
@@ -383,7 +435,7 @@ Sniper Elite [Ru/En] (RePack) 2005 | Seraph1
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89530.jpg" />
 </div>
 
 
@@ -411,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89511.jpg" />
 </div>
 
 
@@ -437,7 +489,7 @@ Botanicula (P) [Milti12/+] 2012 | THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89500.jpg" />
 </div>
 
 
@@ -463,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89307.jpg" />
 </div>
 
 
@@ -492,7 +544,7 @@ Crusader Kings 2 + 2 DLC [Ru] (RePack/1.04с) 2012 | SxSxL
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89135.jpg" />
 </div>
 
 
@@ -520,7 +572,7 @@ Naval War: Arctic Circle [Multi5/-] (L) 2012 | TiNYiSO
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89134.jpg" />
 </div>
 
 
@@ -546,7 +598,7 @@ Total War: Shogun 2 - Fall of the Samurai / Закат Самураев (Repack)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89129.jpg" />
 </div>
 
 
@@ -575,7 +627,7 @@ Monsters / Монстрики (P) [Ru] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89005.jpg" />
 </div>
 
 
@@ -601,7 +653,7 @@ Terminator Коллекция [En/Ru] (RePack) 1990-2003 | Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88895.jpg" />
 </div>
 
 
@@ -627,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88471.jpg" />
 </div>
 
 
@@ -638,58 +690,6 @@ Ninja Gaiden 3 впервые даст возможность игрокам в�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F183A9D750CA94624322FFED2A83D445F3BB34A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482932   (88400) от 14.04.2012
-
-Эмулятор Nintendo GameCube и Wii "Dolphin" v3.0-591 [Multi24\+] (2012)
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88400.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dolphin является открытым исходным кодом Nintendo GameCube и Wii эмулятор для Microsoft Windows и операционные системы Linux. В последней версии, многие игры для GC & Wii могут воспроизводиться (хотя пока еще есть ограничения скорости в играх), и несколько игр, как утверждается, имеют полную функциональность.Язык интерфейса: Русский / Английский / Арабский / Каталонский / Китайский (Урощенный) / Китайский (Традиционный) / Чешский / Голландский / Фарси / Француский / Греческий / Германский / Еврейский / Венгерский / Итальянский / Японский / Корейский / Норвежский / Польский / Португальский / Португальский (Бразильский) / Сербский / Испанский / Турецкий
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482398   (88269) от 13.04.2012
-
-[PC] Эмулятор Sony Playstation 2 "Pcsx2" v.0.9.9. SVN r5156 [Multi16\+] (2012)
-
->>След.
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88269.jpg" />
-</div>
-
-
-###  Подробнее
-
-PCSX2 SVN является открытым исходным кодом Sony PlayStation 2 (PS2) эмулятор для Microsoft Windows и операционные системы Linux. В последней версии, многие игры для PS2 могут воспроизводиться (хотя пока еще есть ограничения скорости в играх), и несколько игр, как утверждается, имеют полную функциональность.Язык интерфейса: Русский / Английский / Чешский / Китайский (Упрощенный) / Китайский (Традиционный) / Француский / Германский / Венгерский / Индонезийский / Итальянский / Японский / Польский / Португальский / Испанский / Шведский / Турецкий
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

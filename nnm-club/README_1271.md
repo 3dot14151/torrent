@@ -1,293 +1,25 @@
-###  Публикация: 1449593   (1029747) от 22.02.2021
+###  Публикация: 1448919   (1030250) от 20.02.2021
 
-Дж. С. Лок | Неоновый убийца (2021) [MP3, Пожилой Ксеноморф]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029747.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детектив Мэтт Джексон оказался на краю пропасти. Его любимая жена стала очередной жертвой Неона – неуловимого серийного убийцы, создающего грандиозные неоновые инсталляции из тел убитых им женщин. Жизнь потеряла для Мэтта всякий смысл. Не в состоянии наложить на себя руки, он заказывает собственное убийство наемному стрелку – женщине по имени Айрис. Заказ нельзя (   Читать дальше...   )Жанр: Зарубежные детектив, триллерПеревод: Артем ЛисочкинПродолжительность: 10:04:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1F0BF93894220E281D25D8FFB99C61DA3CE72E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449739   (1029746) от 22.02.2021
-
-Лев Шугуров | Энциклопедия техники. Автомобили (2005) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029746.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красочное издание со множеством иллюстраций, забавных и поучительных историй в увлекательной форме погрузит вас в Мир Автомобиля. Когда, как и где появился первый транспорт, и еще на множество вопросов ответит эта книга. Подросток получит основные знания об автомобиле – не только как о механизме, но и о явлении.
-
-Для среднего школьного возраста.Жанр: Энциклопедия/Познавательная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73C415F599503614DD42DF8291B7E6CBBFABE1B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449682   (1029745) от 22.02.2021
-
-Газета | Народный совет №8 (февраль 2021) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029745.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание помогает читателям узнать свои права, решить проблемы, добиться справедливости! Уникальный справочник и надежный советчик по юридическим вопросам, здоровью и домашнему хозяйству. Консультации лучших специалистов, написанные простым и понятным языком с пошаговыми рекомендациями.Жанр: ПознавательныйФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE7AEA383A510D8C12329F07F2D0CBA34C48D6F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449546   (1029744) от 22.02.2021
-
-Lyn 2.0.6 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lyn - легкий, быстрый и удобный просмотрщик изображений, созданный в первую очередь для фотографов, иллюстраторов и графических дизайнеров. Lyn - это чрезвычайно универсальный и эстетически приятный интерфейс, Geotagging технология, простой и комплексное решение для совместного использования.Тип издания: macOS SoftwareРелиз состоялся: 21.02.2021Разработчик: Mirko VivianiПоддерживаемая ОС: macOS 10.12.6+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BADC61C2492DC771BF78EE87FF97DCDB577ABBDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449605   (1029743) от 22.02.2021
-
-Чудо техники с Сергеем Малозёмовым (22.02.2021) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029743.jpg" />
-</div>
-
-
-###  Подробнее
-
-Катание на снегоходах — прекрасное развлечение или опасное увлечение? Как новации помогают спасти жизни при падении с этих устройств? Гриль-духовка: какие преимущества и недостатки у прибора? Сувенир с подвохом: правда ли обычные магнитики на холодильнике смертельно опасны? Могут ли они остановить кардиостимулятор внутри человека и как влияют на свертываемость крови? (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:39:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:593DCE03BF8069AC9C0D078D0AFDA27CE719ED99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449579   (1029742) от 22.02.2021
-
-Дэвид Болдаччи | Синяя кровь (2019) [MP3, Кирилл Петров]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мейс Перри, офицера полиции, подставили всерьез и жестоко. От тюрьмы не зарекайся, как говорится… Она вышла на волю лишь через два года. Но на судьбу не ропщет. Для нее самое главное – вернуться в полицию, в ряды «синих». Потому что это именно то, для чего она родилась. Но как сделать это, когда твое имя запятнано? И Мейс решила: ей нужно раскрыть преступление. Такое, (   Читать дальше...   )Жанр: ДетективПродолжительность: 14:02:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92E275B7583C9EAF8AC5028C58E39A30B27C5174
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449547   (1029741) от 22.02.2021
-
-Vintage Culture - Live @ Camarote Salvador, Baía de Todos os Santos, Brazil (2021-02-20) [MP3|320 Kbps] <House, Deep House, Progressive House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029741.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shouse - Love Tonight (Vintage Culture & Kiko Franco Remix)
-02. Vintage Culture ft. Elise LeGrow - It Is What It Is
-03. Louie Vega & The Martinez Brothers ft. Marc E. Bassy - Let It Go (Vintage Culture Remix)
-04. Gorgon City & DRAMÄ - You've Done Enough(   Читать дальше...   )Жанр: House, Deep House, Progressive HouseПродолжительность: 01:49:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91F9A497CD0ED3A15AA8E28EFE92D03FB6F5DFA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449604   (1029740) от 22.02.2021
-
-Первая передача на НТВ. Автомобильная передача (22.02.2021) SATRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029740.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неверный диагноз: как доказать, что пострадал в ДТП? Боулинг на дороге: дорожный обзор зимних аварий. Коварный желтый: чем различаются мигающий и постоянный режим. Как отменить автоматический штраф без лишних хлопот? Снежный отбойник: правила безопасного перестроения через «накат».Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:23:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0994DE6114B8243DB7B10EC5449077F365B5CA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449683   (1029739) от 22.02.2021
-
-Rob Zombie - The Lunar Injection Kool Aid Eclipse Conspiracy (2021) [FLAC|Lossless|tracks] <Hard Rock, Industrial Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Expanding The Head Of Zed [00:00:54]
-02. The Triumph Of King Freak (A Crypt Of Preservation & Superstition) [00:04:07]
-03. The Ballad Of Sleazy Rider [00:03:03]
-04. Hovering Over The Dull Earth [00:00:23](   Читать дальше...   )Жанр: Hard Rock, Industrial MetalПродолжительность: 00:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93AE6615C325CA19FC3CCC8845437F0663E25A69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449707   (1029738) от 22.02.2021
-
-Иван Шмелёв | Неупиваемая Чаша. Повести и рассказы (2007) [FB2, EPUB]
-
->>Художественная литература
->>Современная поэзия и проза
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029738.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книгу вошли повести и рассказы замечательного русского писателя И.С. Шмелёва (1873–1950), написанные прекрасным слогом и проникнутые верой и любовью к России.Жанр: Русская классическая прозаФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF303673477FF9DA44CDBC74EA3951E2EAA1D845
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449560   (1029737) от 22.02.2021
-
-Transatlantic - The Absolute Universe: Forevermore (2021) 2xCD, Extended Version [FLAC|Lossless|image + .cue] <Progressive Rock>
+Embrace Of Souls - The Number Of Destiny (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030250.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD - 1:
-01. Overture (8:11)
-02. Heart Like A Whirlwind (5:11)
-03. Higher Than The Morning (5:30)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:30:24
+01. On The Way From The Past
+02. New Hope
+03. From The Sky
+04. In The Castle(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:07:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8F67B3C972CE8864412AA83BC5CD606A5C1118A0
+magnet:?xt=urn:btih:C405276362F20DE9A16957FF32AE1E46BBF9D6E4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -295,27 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449578   (1029736) от 22.02.2021
+###  Публикация: 1449181   (1030249) от 20.02.2021
 
-Маргарет Этвуд | Орикс и Коростель (2019) [MP3]
+Vanishing Point - 6 Studio Albums (1997-2020) 7xCD [FLAC|Lossless|image + .cue] <Progressive Power Metal>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030249.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Первая книга цикла «Орикс и Коростель».
-
-Ошалевшая планета на пороге катастрофы: терроризм, эпидемии, генетический беспредел, мутации. Безумный ученый, бывшая порнозвезда и фигляр-неудачник превращают мир потребительского абсурда в безлюдную пустыню. Чтобы уничтожить человечество, хватит тщательно разработанного вируса и нескольких месяцев эпидемии. На место людей (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 11:55:13
+Австралийские мелодик-прогрессив-металлисты VANISHING POINT были основаны в 1995 году в составе гитариста Томми Вукура, барабанщика Джека Лукича и басиста Джо Дель Мастро из более ранней группы Eye. Вокалист Сильвио Массаро и клавишник Пеп Саммартино присоединились к группе в середине 1990-х годов, и группа изменила свое название на Vanishing Point. Вскоре после (   Читать дальше...   )1997 - In Thought
+2000 - Tangled In Dream
+2005 - Embrace The Silence
+2007 - The Fourth Season(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 06:59:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:53E8540E7987553B61FFEAC5128719D5C04EB74A
+magnet:?xt=urn:btih:6D5A51792E57DC8DDC7AEF45DE92EEF20B8054FC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -323,27 +56,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449723   (1029735) от 22.02.2021
+###  Публикация: 1449206   (1030248) от 20.02.2021
 
-Итан Блэк | Конрад Воорт (Книга 3). Мёртвые незнакомцы (2020) [MP3, Сергей Кирсанов]
+Лора Оуэн, Корки Пол | Весёлые приключения ведьмочки Винни. Восемь волшебных историй в одной книге (2018) [PDF]
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030248.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Двое молодых мужчин найдены мертвыми в гостиничном номере. Несчастный случай?
-Однако детектив Конрад Воорт, друг детства одного из погибших, не верит в это, ведь незадолго до смерти тот передал ему загадочный список из пяти имен.
-Воорт начинает расследование – и вскоре узнает, что трое из указанных в списке людей погибли при загадочных обстоятельствах, а четвертый (   Читать дальше...   )Жанр: ДетективПродолжительность: 13:23:15
+Ты уже знаком с ведьмочкой Винни и её чёрным котом Вильбуром? Винни обожает лежать на волшебном гамаке у себя в саду, лакомиться тортом «Чёрный лес» и смотреть в телескоп на звёзды. Вильбур любит чизкейк и свою корзинку, где он спит, свернувшись клубочком. И, конечно же, с этой парочкой никогда не бывает скучно. Стать дизайнером одежды, поучаствовать в футбольном (   Читать дальше...   )Жанр: Детская литература/Фантастика/ПриключенияФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:01D32FD3896281741AFFB6E2B519A97D623B821F
+magnet:?xt=urn:btih:5BEB149B480E50400EC790515190CC6E2DA47951
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -351,25 +82,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449582   (1029734) от 22.02.2021
+###  Публикация: 1449192   (1030247) от 20.02.2021
 
-Анна и Сергей Литвиновы | Девушка не нашего круга (2018) [MP3, Ольга Петрова]
+Пятеро на одного (20.02.2021) WEBRip [H.264/1080p-LQ]
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030247.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Артём – популярный блогер. Он из хорошей московской семьи, красивый и обеспеченный. Настя – тоже красавица, но она провинциальная девчонка, да вдобавок к тому – воровка. Казалось, что может быть между ними общего? Однако между парнем и девушкой вспыхивает любовь. Та, что не знает преград, ничего не требует и всем готова пожертвовать. Чем может закончиться столь неравный (   Читать дальше...   )Жанр: ДетективПродолжительность: 12:22:49
+Команда из пяти звездных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7A38DB93B367F40ABFA414C9A231072E58A0B343
+magnet:?xt=urn:btih:2408F3B9DE023F4F4189E0F5F3084D2CB146850E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -377,25 +108,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449697   (1029733) от 22.02.2021
+###  Публикация: 1448888   (1030246) от 20.02.2021
 
-Александр Немировский | Пурпур и яд (2018) [MP3]
+Marco Garau's Magic Opera - The Golden Pentacle (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
 
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030246.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Роман известного российского историка и писателя Александра Иосифовича Немировского (1919-2007) посвящен одной из наиболее загадочных и противоречивых фигур Античного мира. Митридат VI Евпатор - царь Понтийский, потомок Александра Македонского по линии матери и царя Кира по линии отца, выдающийся политик, за пятнадцать лет объединивший все народы, племена и города (   Читать дальше...   )Жанр: Исторические приключенияПродолжительность: 12:20:18
+01. The Golden Pentacle
+02. Elixir Of Life
+03. Keepers Of The Nigh
+04. Never-ending Pain(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:04:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1EABF7D36CC108BF4392870C0A2F73CAC4470DE9
+magnet:?xt=urn:btih:99D4D60039CD72B120534D706F198907CC93946A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -403,25 +137,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449734   (1029732) от 22.02.2021
+###  Публикация: 1449116   (1030245) от 20.02.2021
 
-Asobi Asobase | Asobi Asobase: Workshop of Fun | Давайте сыграем [2018, TV, 12+2SP+OVA] BDRip 1080 HEVC 10bit raw
+Сто к одному (20.02.2021) WEBRip [H.264/720p-LQ]
 
->>Аниме с субтитрами
->>Аниме (FullHD)
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030245.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Спортивная, но бестолковая школьница Ханако с крайне странным чувством стиля играет в игры с Оливией, переведённой из Америки. Жизнерадостность героинь раздражает Касуми. Её сестра вечно издевалась над девушкой за неумение играть в игры, и теперь она ненавидит их. Со временем становится ясно, что у Ханако большие проблемы с английским, однако Оливия ничем не может (   Читать дальше...   )Производство: Студия Lerche / ラルケЖанр: комедия, повседневностьРежиссер: Киси СэйдзиПеревод: официальный (Crunchyroll); lukorepka (спешелы и ова)Язык озвучки: ЯпонскийСубтитры: Русские, Английские, ДРУГИЕПродолжительность: 12 эп. по 25 мин. + 2SP + OVA
+Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:38:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:248AE0A2C4F14E8499BE602FBE5610EB1BE6CB4E
+magnet:?xt=urn:btih:B4F840C3CB9793F6002175012F50BFF0C7EBB869
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -429,28 +163,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449610   (1029731) от 22.02.2021
+###  Публикация: 1449222   (1030244) от 20.02.2021
 
-Die Vision - Torture (серия "Другие восьмидесятые") (1990) CD, Album, Reissue, Remastered, 2018, AMIGA, Sony Music [MP3|320 Kbps] <Goth Rock, Post Punk, New Wave>
+Amrakus - A Space Rock Opera (1982) LP [MP3|320 Kbps] <Electronic, Space Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030244.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. After the Sunset
-02. Gimme All Your Love
-03. Take Your Body & Move
-04. I Love You(   Читать дальше...   )Жанр: Goth Rock, Post Punk, New WaveПродолжительность: 00:40:47
+01. Black Hole (3:39)
+02. Spatial Cocoon (6:22)
+03. Greetings Earthlings (2:18)
+04. We Need Water (Part 1 & 2) (3:25)(   Читать дальше...   )Жанр: Electronic, Space RockПродолжительность: 00:44:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2AC8113FD0D48CF2858BE0ECC3086F6C64C75C19
+magnet:?xt=urn:btih:DFFECFA9FC64920A0D1D4932A51975C66F0D8F60
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -458,28 +192,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449619   (1029730) от 22.02.2021
+###  Публикация: 1448934   (1030243) от 20.02.2021
 
-VA - Thumbs Up For Cardio Dance 2021 Workout Compilation (2021) [MP3|320 Kbps] <House, Dance>
+Natural Born Machine - Human (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Electronic
->>House
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030243.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. D'Mixmasters - 911 (Fitness Version 128 Bpm) (04:15)
-02. DJ Kee - Push It (Fitness Version 128 Bpm) (04:00)
-03. D'Mixmasters - Lasting Lover (Fitness Version 128 Bpm) (04:00)
-04. Groovy 69 - Dominos (Fitness Version 128 Bpm) (04:00)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:59:52
+01. Moonchild
+02. Machine
+03. Won't Be Friends
+04. Monster(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:14BDA9993EF9D42E008B17E7F4E5079B8887DDB7
+magnet:?xt=urn:btih:0AFAF65F58145AE8E79849717CB298D5C9F1FF1B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -487,25 +221,280 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449656   (1029729) от 22.02.2021
+###  Публикация: 1449145   (1030242) от 20.02.2021
 
-GPU-Z 2.37.0 + ASUS_ROG [En]
+VA - Ambient Lounge 15 (2012) Globe [FLAC|Lossless|tracks+.cue] <Downtempo, Trip Hop, House, Lounge, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moby - Lie Down In Dark (Radio Edit) (03:28)
+ 02. Afterlife - Let It Go (Original) (05:20)
+ 03. Wayne Martin feat. DJ Friction - Diary (04:31)
+ 04. Starbossa - Spacer (04:32)(   Читать дальше...   )Тип издания: CDЖанр: Downtempo, Trip Hop, House, Lounge, Ambient •Продолжительность: 02:36:43 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:458113C1F424EA18588DDF0531FB4A1BABC5A36C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449144   (1030241) от 20.02.2021
+
+VA - Ambient Lounge 16 (2013) Globe [FLAC|Lossless|tracks+.cue] <Downtempo, Trip Hop, House, Lounge, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fritz Kalkbrenner - Sideways & Avenues (06:38)
+ 02. Visitor - Comin Home (Oliver Moldan Remix) (06:50)
+ 03. G-Starr pres. Big World - Morning Light (Coffee Shop Remix Edit) (03:54)
+ 04. Tiger Hifi - King Of My Castle (03:02)(   Читать дальше...   )Тип издания: CDЖанр: Downtempo, Trip Hop, House, Lounge, Ambient •Продолжительность: 02:29:28 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:158E3D0D880D5097C4A3199E0CF9FA57541C945A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449094   (1030240) от 20.02.2021
+
+Raw Silk - The Borders Of Light (2017) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Lifetime
+02. Nobody Fills The Loneliness
+03. Chimera
+04. Night Time Angels(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:00:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:279B9146A705AC2D6D17023D166120BAC5C9DFA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449203   (1030239) от 20.02.2021
+
+Кровавый Риф - Африказия (2021) EP [MP3|320 Kbps] <Folk Punk, Art Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Горилла [00:04:40]
+02 - Нххххх стать [00:04:42]
+03 - Перехунда Септулай [00:03:39]
+04 - 8 бит [00:04:46]Жанр: Folk Punk, Art PunkПродолжительность: 00:17:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89348920BE773AD6E4607350FFA8688407A05F29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449146   (1030238) от 20.02.2021
+
+VA - Ambient Lounge 14 (2012) Globe [FLAC|Lossless|tracks+.cue] <Downtempo, Trip Hop, House, Lounge, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Casanovy - Need Your Lovin' (Sin Plomo's Superlounger Mix) (05:34)
+ 02. DJ Antoine - Funky Kitchen Club (I'll Remain) (Soft Mix) (03:30)
+ 03. Dubtribe Sound System - Do It Now (Ibizarre Mix) (06:23)
+ 04. David Tort & Norman Doray - Chase The Sun (Musica Feliz Ibiza Dream Remix) (04:53)(   Читать дальше...   )Тип издания: CDЖанр: Downtempo, Trip Hop, House, Lounge, Ambient •Продолжительность: 02:35:30 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B434985AC99BF374A528052825109943A94D5DD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449219   (1030237) от 20.02.2021
+
+Татьяна Копяткевич (сост.) | Как правильно подготовиться к исповеди (2017) [PDF, FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта брошюра предназначается для помощи тем, кто собирается приступить к исповеди. В ней кратко рассказывается о том, когда установлено Таинство Покаяния, что такое исповедь, а также как подготовиться к ней самим и подготовить ребёнка. Для самого широкого круга читателей.Жанр: ПравославиеФормат: PDF, FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5AB26420D13C5F1C190CF51BC05C8290A2D7C39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449064   (1030236) от 20.02.2021
+
+Onyx - Coming Outside (2021) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coming Outside (03:14)Жанр: Rap, Hip-HopПродолжительность: 00:03:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:985A8CF89E2FF220AB3630FC163EA4AB35505A70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449135   (1030235) от 20.02.2021
+
+Cameron Graves - Seven (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz Rock, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sacred Spheres (3:02)
+02. Paradise Trinity (3:11)
+03. Sons of Creation (4:22)
+04. Seven (3:05)(   Читать дальше...   )Жанр: Jazz Rock, FusionПродолжительность: 00:32:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60373021F0A27763F65BEF92AC9E227B5CB43192
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449131   (1030234) от 20.02.2021
+
+VA - Drizzly Chillin' Vol. 01-02 (2003-2004) Drizzly Music [FLAC|Lossless|tracks+.cue] <Trip Hop, Dub, Downtempo, Lounge, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030234.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+ 01. Ibizarre - Lazy Living (Vocal Mix) (04:00)
+ 02. The Grid - Flotation (Subsonic Grid Mix) (05:03)
+ 03. Electribe 101 - Talking With Myself '98 (Canny Remix) (05:49)(   Читать дальше...   )Тип издания: CDЖанр: Trip Hop, Dub, Downtempo, Lounge, Ambient •Продолжительность: 04:43:43 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAB3903ADAB1BB49629967E944F5210B874BCBCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449076   (1030233) от 20.02.2021
+
+Chromium 88.0.4324.182 + Portable [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030233.jpg" />
 </div>
 
 
 ###  Подробнее
 
-GPU-Z - бесплатная программа от TechPowerUp для отображения технической информации о видеоадаптере (видеоконтроллере/видеокарте/видеомодуле), работающая под ОС Microsoft Windows. Программа отображает технические характеристики графического процессора и его видеопамяти, то есть определяет производителя и название видеоадаптера, тип видеопроцессора и его характеристики, (   Читать дальше...   )Язык интерфейса: Английский
+Chromium – веб-браузер с открытым исходным кодом, который обеспечивает своих обозревателей быстрым, безопасным и надёжным доступом к сети Интернет, оснащенный удобной платформой для веб-приложений. Быстрота браузера обеспечивается за счет открытых компонентов. Разработчики браузера постоянно внедряют все новые и новые функции, направленные на повышение безопасности (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8AB4F23E560900FC217A17BE05F92517B0458C1F
+magnet:?xt=urn:btih:B11E1C24343B030528BEE55586122880B81AE03D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -513,28 +502,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449700   (1029728) от 22.02.2021
+###  Публикация: 1449062   (1030232) от 20.02.2021
 
-Кино-Неделя № 32 (1919) WEBRip
+Serhat Durmus - My Feelings (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Trap>
 
->>Документалистика и Телепередачи
->>Кинолетопись Страны Советской
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030232.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Описание:
-Предлагаемые сюжеты интересны и как картинки давних времён, и как веха в истории кинематографа. В «Кино-неделях» зарождался новостной кинорепортаж, их же можно считать прообразами документальных киножурналов, снимавшихся у нас до конца 80-х. Содержание 32-го номера:
-1. Тов. Ленин обращается с пламенной речью к массам перед Советом рабочих депутатов.
-2. (   Читать дальше...   )Производство: РСФСР, Кинематографический Комитет Народного Комиссариата ПросвещенияЖанр: Документальный, новости, кинохроника, историяРежиссер: Дзига ВертовЯзык озвучки: НемойСубтитры: Датские интертитрыПродолжительность: 00:06:51
+01. Serhat Durmus, Georgia Ku - My Feelings (03:28)Жанр: Electronic, TrapПродолжительность: 00:03:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3461B6155A4A1060328ADC440B3D41A88F808779
+magnet:?xt=urn:btih:8E9DC94A0814E54B3794BBA39149739376B8DB81
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -542,28 +528,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449594   (1029727) от 22.02.2021
+###  Публикация: 1449198   (1030231) от 20.02.2021
 
-Transatlantic - The Absolute Universe: The Breath Of Life (2021) Abridged Version [FLAC|Lossless|image + .cue] <Progressive Rock>
+Dmitri Hvorostovsky (Дмитрий Хворостовский) - Singing of Love (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Classical>
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Pop
+>>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030231.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Overture (Instrumental) (5:52)
-02. Reaching For The Sky (5:41)
-03. Higher Than The Morning (4:32)
-04. The Darkness In The Light (5:43)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:04:19
+01. Shine, Shine, My Star (4:02)
+02. Do Not Hurry (3:48)
+03. Don Carlo: O Carlo, ascolta (4:12)
+04. Don Giovanni, K. 527: Deh vieni alla finestra (2:51)(   Читать дальше...   )Жанр: Pop, ClassicalПродолжительность: 01:14:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ABB6A9E80F12F17DD03AFD7730E22F1A888BBF16
+magnet:?xt=urn:btih:7490D6D96E27C3F729F81035E2FFD5B3FDA6B9C5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -571,25 +557,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449633   (1029726) от 22.02.2021
+###  Публикация: 1449139   (1030230) от 20.02.2021
 
-Следствие вели... (21.02.2021) WEBRip [H.264/1080p-LQ]
+VA - Spencer Brown Presents: 20 Years Of Anjunabeats (2021) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
 
->>Документалистика и Телепередачи
->>Тележурналистика
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030230.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1980-й год, город Горький. Сыщики расследуют жестокое нападение на влюбленную парочку — парню выстрелили в глаз, а его знакомая зверски убита. В ходе розыска следствие находит ценного свидетеля — таксиста, который видел, как девушку уводили в лес дети. Какая тайна скрывалась за этим преступлением? И при чем тут Николай Васильевич Гоголь?Производство: Россия | Телекомпания «НТВ»Жанр: Документальный, криминал, расследованиеСубтитры: ОтсутствуютПродолжительность: 00:44:05
+01. Above & Beyond - Sun In Your Eyes (Spencer Brown Remix) (10:00)
+02. Spencer Brown - 5th & Concord (7:09)
+03. Above & Beyond; Richard Bedford - Northern Soul (Spencer Brown Remix) (9:03)
+04. Jody Wisternoff; Mimi Page - For Those We Knew (S.B. & Claybourne Remix) (9:24)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:03:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:16AB8301FA677EC413F90D9095508F5A3DE3E56C
+magnet:?xt=urn:btih:3F3806B7CA21FD0468F2B644DA4D4A8D6C6FB601
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -597,28 +586,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449554   (1029725) от 22.02.2021
+###  Публикация: 1449241   (1030229) от 20.02.2021
 
-Chris Norman (ex-Smokie) - Close Up (2007) [FLAC|Lossless|tracks + .cue]<Pop Rock>
+Тим Северин | Слон императора (2019) [MP3]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030229.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lay Me Down
-02. Love Not War
-03. Trying To Find My Home
-04. Hello Baby(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:46:25
+Когда величайший из владык Западного мира решает наладить дипломатические отношения с могущественным правителем Востока, он делает поистине королевский жест. Карл Великий решает отправить в подарок Харуну ар-Рашиду самых удивительных животных, которых только возможно найти в его владениях: огромного тура, белых медведей и - диковина из диковин - легендарного единорога. (   Читать дальше...   )Жанр: Исторический роман, Исторические приключенияПродолжительность: 13:16:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:97ECA5C9201B78C0888CD70F503D595A5C1ED4D4
+magnet:?xt=urn:btih:17E2C279EC530DAEBE5A6E19C69A32AEE253159B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -626,51 +612,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449645   (1029724) от 22.02.2021
+###  Публикация: 1449029   (1030228) от 20.02.2021
 
-Голос. Дети (20.02.2021) HDTVRip [H.264/720p-LQ] (сезон 8, выпуск 2)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029724.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Первый канал" представляет премьеру 8 сезона музыкального проекта "Голос. Дети". Детский конкурсный проект строится по тем же принципам, что и взрослый. Из тысяч заявок на участие, присланных в адрес "Первого канала", музыкальная редакция отобрала несколько сотен самых достойных. Первым этапом для участников, прошедших предварительный (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ТВ-шоуСубтитры: отсутствуютПродолжительность: 01:18:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1D7EE26A727903A85DE7FD707CA76BE4E0EE545
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443793   (1029723) от 22.02.2021
-
-Мистические тайны кино. "Место встречи изменить нельзя" (2021) WEBRip
+Genesis: Сумма частей (Genesis: Части целого) / Genesis: Sum of the Parts (2014) BDRemux [H.264/1080i]
 
 >>Документалистика и Телепередачи
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030228.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Премьера фильма "Место встречи изменить нельзя" была приурочена ко Дню милиции. Первую серию показали 11 ноября 1979 года. Новый фильм Станислава Говорухина на пять дней парализовал жизнь страны. Кинотеатры пустовали, на улицах не было ни души. Люди собирались у телевизоров и с замиранием сердца наблюдали, как сыщики МУРа ловят банду "Черная кошка". (   Читать дальше...   )Телекомпания: Россия, "Москва медиа"Жанр: Документальный, ТелепередачаСубтитры: нетПродолжительность: 00:44:02
+Группа «Genesis» — одна из наиболее успешных и продаваемых в истории рок-музыки и в то же время одна из самых критикуемых. Коллектив едва не распался в середине 70-х после ухода из коллектива ее лидера — Питера Гэбриэла. После этого группа смогла продолжить существование с новым вокалистом, сменила стиль и вернулась в чарты в 1980-х. Примечательно, что ее лидерам (   Читать дальше...   )Производство: Великобритания, BBC tv, Eagle Rock ProductionsЖанр: Документальный, биография, музыкаРежиссер: Джон ЭджинтонПеревод: Многоголосый закадровый, профессиональный (Эй Би Видео)Субтитры: отсутствуютПродолжительность: 01:30:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7719F1E52EF07555908FC06F8ABB2499B469F1CD
+magnet:?xt=urn:btih:6C5D2508049C546E4CFB53EA027E8C4769917839
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -678,25 +638,80 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449711   (1029722) от 22.02.2021
+###  Публикация: 1449083   (1030227) от 20.02.2021
 
-Роско Арбакл. Странный Дикий Запад / Out West (1918) BDRip
+VA - Every Day Lounge: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL] <Balearic, Downtempo>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030227.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эта пародия на вестерны стала одной из самых уморительных комедий Роско Арбакла. Фатти едет на поезде "зайцем" в цистерне с водой. С помощью нехитрой рыболовной снасти ворует еду у охранников. Но всё же был схвачен и высажен посреди пустыни, где чуть не умер от жажды и едва не стал добычей индейцев. К счастью, ему удалось добежать до ближайшего поселения (   Читать дальше...   )Производство: США, Comique Film CompanyЖанр: Комедия, короткометражный, немое киноРежиссер: Роско АрбаклАктеры: Роско Арбакл, Бастер Китон, Аль Ст. Джон, Элис Лэйк, Джо Китон, Эрни Моррисон ст.Перевод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:20:53
+01. Michael E - Andiamo - Original Mix (4:42)
+02. Peter Pearson - Apres Sun - Original Mix (4:06)
+03. Schwarz & Funk - Fate of Destiny - Original Mix (6:05)
+04. Pier-O - Long Kiss at Trocadero - Original Mix (6:45)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:15:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:28DED4DB4FAD05F01BE840A99A1FD0B016B85DC4
+magnet:?xt=urn:btih:C45F661FAEF6D036EA14F0D75D0FE753C2730674
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449194   (1030226) от 20.02.2021
+
+Игорь Болгарин, Виктор Смирнов | Милосердие палача (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030226.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как стремительно летит время на войне! Лишь год назад Павел Андреевич Кольцов служил "адъютантом его превосходительства". Всего лишь год, но как давно это было... Кольцов попадает туда, откуда, кажется, нет возврата, - в ставку беспощадного батьки Махно. А путаные военные дороги разводят Старцева, Наташу, Красильникова, Юру. Свой совершенно неожиданный (   Читать дальше...   )Жанр: Исторические приключенияПродолжительность: 14:21:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD8289689B150E4AA6BCCB20B51F271CC733D629
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449197   (1030225) от 20.02.2021
+
+Игорь Болгарин, Виктор Смирнов | Багровые ковыли (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030225.jpg" />
+</div>
+
+
+###  Подробнее
+
+В романе рассказывается об одной из самых драматических страниц Гражданской войны — боях под Каховкой. В центре произведения судьбы бывшего «адъютанта его превосходительства» комиссара ЧК Павла Кольцова и белого генерала Слащева, которые неожиданно оказываются не только врагамиЖанр: Исторические приключенияПродолжительность: 19:07:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D667A62B31097D32BF9C481D8D948AFAA8290A7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1143821   (629152) от 21.06.2017
+
+Dire Straits - ExtendeDancEPlay (1982) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Twisting by the Pool (3:30)
+02. Badges, Posters, Stickers, T-Shirts (4:54)
+03. Two Young Lovers (3:23)
+04. If I Had You (4:16)Жанр: RockПродолжительность: 00:16:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63EC11C1F8317AB11F08FBF560769CCFDCF4CD8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 802489   (628788) от 05.07.2014
 
 The Who - Face Dances (1981)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock>
@@ -6,7 +35,7 @@ The Who - Face Dances (1981)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628788.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Acker Bilk - Klarinet (1980) [FLAC 2.0 (image+.cue)|Vinyl-rip (24/96)]<Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627585.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Billie Piper - Walk Of Life (2000) [FLAC 2.0|16/44,1 (MC-Rip)]<Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627576.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Jennifer Paige - Positively Somewhere (2001) [FLAC 2.0 (image+.cue)|16/44,1 (MC-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627459.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Slade - The Story Of Slade (1977) 2LP, Compilation [FLAC 2.0|192/24|image + .cue
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627358.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ The Who - Who Are You (1978)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626669.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ The Beatles/Битлз - Российский/Советский Лицензи�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626021.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ Joe Satriani - Дискография (26 releases) (1984 - 2022) hand made [res
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623574.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ Jean-Michel Jarre - Equinoxe (1978/2011) [WavPack 2.0|32/384|image + .cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622437.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ Blues Company - Ain't Givin' Up [Mastering YMS X] (2019) [FLAC 2.0|96/24|image+.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622364.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622202.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621889.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ VA - Лето 2002/Зарубежная супер двадцатка (2002) [FL
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621888.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621882.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621878.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ John Denver - Rocky Mountain High (1972) [FLAC 2.0 24/96|image+.cue (Vinyl Rip)]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621739.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621736.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620881.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620783.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ Queen - Hot Space (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620346.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620203.jpg" />
 </div>
 
 
@@ -610,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620201.jpg" />
 </div>
 
 
@@ -637,7 +666,7 @@ Roxy Music - Flesh + Blood (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip]  <Pop Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620053.jpg" />
 </div>
 
 
@@ -666,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620042.jpg" />
 </div>
 
 
@@ -695,7 +724,7 @@ VA - Golden Hits Of Turkish / Золотые Хиты Турецкой Эстр�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619907.jpg" />
 </div>
 
 
@@ -709,35 +738,6 @@ VA - Golden Hits Of Turkish / Золотые Хиты Турецкой Эстр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCDF75C9E94F3F159AD388A4B25EC609962A71D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910949   (619835) от 21.06.2015
-
-Scorpions - Love At First Sting (1984) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619835.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Bad Boys Running Wild (3:55)
-A2. Rock You Like A Hurricane (4:12)
-A3. I'm Leaving You (4:18)
-A4. Coming Home (5:00)(   Читать дальше...   )Производство: EMI / HarvestЖанр: Hard RockПродолжительность: 00:41:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3B46D2EB83A020829F628B0FEE437476965C456
 ```
 
 https://mybot314.ru/tekegram_catalog/

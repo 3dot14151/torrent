@@ -1,164 +1,3 @@
-###  Публикация: 1357306   (974205) от 03.02.2020
-
-Сэм Вила | Визуальные эффекты в Blender / Blender for Visual Effects (2015) [PDF] [En]
-
->>Компьютерная литература
->>2D графика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приводя конкретные примеры из отрасли, эта книга объясняет как использовать Blender для создания визуальных эффектов в производстве видео/фильмов. Она предоставляет читателям практический способ узнать, как использовать инструменты Blender в широком диапазоне случаев, включая установку камер на сцене, освещение и другие производственные процессы.
-Сохраняя акцент (   Читать дальше...   )Жанр: Визуальные эффекты, BlenderФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CE4683618BBDE9A47A493BB9D8A43B8653B38B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974649   (974173) от 13.01.2016
-
-Мурат Йенер, Алекс Фидом | Java EE. Паттерны проектирования для профессионалов (2016) [DJVU]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974173.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга "Java EE. Паттерны проектирования для профессионалов" - незаменимый ресурс для всех, кто желает более эффективно работать с Java EE, а также единственная книга, в которой рассмотрены как теория, так и практика использования паттернов проектирования на примерах реальных прикладных задач.
-Авторы знакомят читателя и с фундаментальными, и с наиболее передовыми (   Читать дальше...   )Жанр: ПрограммированиеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0823830CDC71C29F02BC63D667B4DD495CB0329F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357375   (974118) от 03.02.2020
-
-Тари Фарук и др. | Руководство по диагностике и устранению проблем в Oracle (2017) [DJVU]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974118.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга предоставляет исчерпывающие и актуальные рекомендации по обеспечению надежной и эффективной работы СУБД Oracle в сложных производственных корпоративных средах. Семь ведущих экспертов по Oracle объединили свои усилия, чтобы создать не имеющий аналогов сборник испытанных решений, практических примеров и пошаговых описаний процедур для Oracle версий 12c, 11g и (   Читать дальше...   )Жанр: Компьютерная литератураФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:469B84373450CCE5475DA8768E29E48809529EAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357475   (974103) от 03.02.2020
-
-Оливер Виллар | Обучение Blender: Практическое руководство по созданию 3D анимированных персонажей / Learning Blender [2 издания] (2014-2017) [PDF, EPUB] [En]
-
->>Компьютерная литература
->>3D графика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974103.jpg" />
-</div>
-
-
-###  Подробнее
-
-Learning Blender проведет вас через каждый шаг создания выдающегося 3D-анимированного персонажа с помощью Blender, а затем с помощью композитинга мы вставим его в реальное видео.
-Эта книга охватывает новые мощные инструменты моделирования, а также высокоэффективные улучшения, связанные с другими частями проекта, такими как рисование текстур, затенение, риггинг, рендеринг (   Читать дальше...   )Жанр: 3D моделирование, АнимацияФормат: PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4B65687E72883E84D7DC477E5645B2DE43A24A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974994   (974093) от 13.01.2016
-
-Андрей Грачев | Создаем свой сайт на WordPress: быстро, легко и бесплатно (2014) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974093.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью этой книги вы сможете самостоятельно создать собственный сайт на базе популярной системы WordPress 3. Использование CMS WordPress не потребует от вас знания языков программирования и навыков интернет-разработок, что делает веб-строительство доступным для всех пользователей Сети.
-
-В книге рассмотрены такие вопросы, как регистрация доменного имени и приобретение (   Читать дальше...   )Жанр: web-технологии, создание сайтовФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AD1B27C00135CA578FB7DA4D5C69289DEDF46AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357458   (974007) от 03.02.2020
-
-Алан Торн | Анимация 2D персонажей для игр в Blender / Animating 2D Characters for Games in Blender (2015) [PDF] [En]
-
->>Компьютерная литература
->>2D графика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974007.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге Алан Торн предлагает полный, пошаговый рабочий процесс для моделирования, настройки и анимации 2D-персонажей, которые хорошо работают для игр в реальном времени, всё с использованием мощного бесплатного программного обеспечения Blender.Жанр: 2D анимация, BlenderФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D5D8C2F5CC95D41F07904AF6BADA2573CD02684
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1357489   (974003) от 03.02.2020
 
 Дж. Д. Лонг, Пол Титор | R. Книга рецептов. Проверенные рецепты для статистики, анализа и визуализации (2020) [PDF]
@@ -167,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974003.jpg" />
 </div>
 
 
@@ -193,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973905.jpg" />
 </div>
 
 
@@ -219,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973565.jpg" />
 </div>
 
 
@@ -245,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973251.jpg" />
 </div>
 
 
@@ -274,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973047.jpg" />
 </div>
 
 
@@ -300,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>2D графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972932.jpg" />
 </div>
 
 
@@ -327,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972864.jpg" />
 </div>
 
 
@@ -354,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972714.jpg" />
 </div>
 
 
@@ -380,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972705.jpg" />
 </div>
 
 
@@ -407,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972299.jpg" />
 </div>
 
 
@@ -433,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971649.jpg" />
 </div>
 
 
@@ -459,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971539.jpg" />
 </div>
 
 
@@ -485,7 +324,7 @@ Packt Publishing | Книги по Blender на русском языке [+ Sup
 >>3D графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971538.jpg" />
 </div>
 
 
@@ -512,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970565.jpg" />
 </div>
 
 
@@ -538,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970465.jpg" />
 </div>
 
 
@@ -564,7 +403,7 @@ Daz 3D | DAZ Studio 4.6: Руководства [2 книги] (2013) [PDF] [Ru/
 >>3D графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970357.jpg" />
 </div>
 
 
@@ -591,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969470.jpg" />
 </div>
 
 
@@ -617,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969291.jpg" />
 </div>
 
 
@@ -643,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969236.jpg" />
 </div>
 
 
@@ -669,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968513.jpg" />
 </div>
 
 
@@ -682,6 +521,170 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46B38C3C02232D35BE9B030EF701F07F1F5B0CF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976279   (968362) от 18.01.2016
+
+Тодд Лэммл и др. | CCNP. Маршрутизация. Учебное руководство (2015) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968362.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга напиcанная экспертами по сетевым комплексам Cisco облегчит и сделает максимально эффективной подготовку к сертификационному экзамену по маршрутизации. .Учебное руководство включает в себя:
+
+ *Предварительную оценочную работу, определяющую уровень вашей подготовки к экзамену.
+ *Технологии маршрутизации Cisco.(   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D844B46E8ACEC27C5AD61E504A766440936A21D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976086   (968350) от 18.01.2016
+
+Николай Селищев | 1С. Управление небольшой фирмой 8.2. Управленческий учет в малом бизнесе (2014) [FB2]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описана новейшая версия программы "1С: Управление небольшой фирмой 8.2", которая сочетает в себе многофункциональность, простоту в освоении и достоинства современного интерфейса программ фирмы "1С". В этой конфигурации есть все необходимое для автоматизации оперативного и управленческого учета на предприятии малого бизнеса.
+В то же время программа (   Читать дальше...   )Жанр: Бухгалтерия, компьютерная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63492E57BC978AD20E665F17E6C63C6BA0378CCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976183   (968193) от 18.01.2016
+
+Уэс Маккинни | Python и анализ данных (2015) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968193.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге «Python и анализ данных» рассматриваются вопросы переформатирования, очистки и обработки данных на Python. Ее можно также рассматривать как современное практическое введение в разработку научных приложений на Python, ориентированных, главным образом, обработку данных. Это книга о тех частях языка Python и библиотек для него, которые необходимы для эффективного (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:641A7BE8F539D27426C258B678CCAFE35AC01522
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976147   (968192) от 18.01.2016
+
+Эндрю Троелсен | Язык программирования C# 5.0 и платформа .NET 4.5 (2013) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968192.jpg" />
+</div>
+
+
+###  Подробнее
+
+Совершите увлекательное путешествие по вселенной .NET!
+Освойте технологию разработки приложений .NET с помощью нового издания известного бестселлера. Охватывая как базовые, так и новейшие концепции платформы, эта книга призвана научить вас всем тонкостям технологии .NET.
+Признанный эксперт мирового уровня, обучающий .NET с самой первой версии, поможет вам обрести (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27DA519BF6D8545B09749C0D1905F41DEEDD9E22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976749   (967307) от 19.01.2016
+
+Майк МакГрат | Программирование на С для начинающих (2015) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967307.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге с помощью примеров программ и иллюстраций, показывающих результаты работы кода, разбираются все ключевые аспекты языка С. В этой книге описано даже то. как установить бесплатный компилятор для языка С и работать в нем, – у вас просто не будет шансов ошибиться!
+
+Книга идеально подойдет программистам, переключающимся па работу с другим языком, студентам, (   Читать дальше...   )Жанр: веб-программирование, обучение программированию, разработка программного обеспечения, язык CФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9FC1E0EEC083F9524D2A1EB8AD56B4697897AD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359033   (965839) от 10.02.2020
+
+Чарльз Петцольд | Код. Тайный язык информатики (2019) [FB2]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965839.jpg" />
+</div>
+
+
+###  Подробнее
+
+Какое отношение имеют карманные фонарики, британское вторжение, черные кошки и качели к… компьютерам? Используя предметы и явления повседневности, а также знакомые всем языковые системы, такие как шрифт Брайля и азбука Морзе, американский программист и специалист по работе с Microsoft Windows Чарльз Петцольд рассказывает о загадочной внутренней жизни компьютеров (   Читать дальше...   )Жанр: Компьютерная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:899EA967F6E314EDCD64B8512BBA927D7C222F80
 ```
 
 https://mybot314.ru/tekegram_catalog/

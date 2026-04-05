@@ -1,81 +1,3 @@
-###  Публикация: 1240964   (521912) от 15.08.2018
-
-Юваль Ной Харари | Homo Deus. Краткая история будущего (2018) [FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521912.jpg" />
-</div>
-
-
-###  Подробнее
-
-В своей первой книге, ставшей всемирной сенсацией "Sapiens. Краткая история человечества", Юваль Харари рассказал, как Человек Разумный пришел к господству над нашей планетой. "Homo Deus" является своего рода продолжением темы - это попытка заглянуть в будущее. Что произойдет, когда Google и Facebook будут лучше, чем мы сами, знать наши вкусы, (   Читать дальше...   )Жанр: История, антропологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C0A5A97C19AB0D02905F21D74D662C9114B100A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929191   (519614) от 19.08.2015
-
-М. Григорьев | Социалистический реализм в борьбе с модернизмом [Часть 1] (1965) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная работа представляет собой первую часть учебного пособия о социалистическом реализме, в которой делается попытка конкретизировать существующее определение социалистического реализма как искусства, отражающего правду жизни в ее революционном развитии и ставящего целью коммунистическое воспитание людей. Здесь характеризуются магистральные темы социалистического (   Читать дальше...   )Жанр: История, политология, искусство, литературоведениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:096A061A8DF2164073F2B1BC03B8BEA7D51F5C87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928937   (519601) от 19.08.2015
-
-А. О. Маковельский | Софисты [выпуск второй] (1941) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая часть перевода фрагментов софистов, сделанного А. О. Маковельским.Жанр: История, философияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A680A4D67DA3CE6A192935C8FAFB30E403C443B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 929195   (519598) от 19.08.2015
 
 А. М. Зверев | Модернизм в литературе США: формирование, эволюция, кризис (1979) [DJVU]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519598.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519596.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519590.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519558.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518417.jpg" />
 </div>
 
 
@@ -214,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518358.jpg" />
 </div>
 
 
@@ -242,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518267.jpg" />
 </div>
 
 
@@ -270,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516576.jpg" />
 </div>
 
 
@@ -296,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516393.jpg" />
 </div>
 
 
@@ -324,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516350.jpg" />
 </div>
 
 
@@ -350,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516348.jpg" />
 </div>
 
 
@@ -376,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516339.jpg" />
 </div>
 
 
@@ -404,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515257.jpg" />
 </div>
 
 
@@ -432,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_515252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515252.jpg" />
 </div>
 
 
@@ -458,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514966.jpg" />
 </div>
 
 
@@ -484,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514899.jpg" />
 </div>
 
 
@@ -511,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514464.jpg" />
 </div>
 
 
@@ -537,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512785.jpg" />
 </div>
 
 
@@ -563,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509547.jpg" />
 </div>
 
 
@@ -589,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509543.jpg" />
 </div>
 
 
@@ -615,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509542.jpg" />
 </div>
 
 
@@ -641,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509477.jpg" />
 </div>
 
 
@@ -667,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509368.jpg" />
 </div>
 
 
@@ -678,6 +600,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3E8E40402AC2583B79F17C8510B6C65D08C6B38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931141   (509365) от 29.08.2015
+
+А. Г. Ковалев и др. (ред.) | Психология (1966) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие для студентов педагогических вузов подготовлено коллективом кафедры психологии Ленинградского государственного педагогического института имени А. И. Герцена.Жанр: педагогика, психологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65C147A86414DDBE166C46B40019BABF5E5192D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931131   (509190) от 29.08.2015
+
+М. С. Строгович | Логика (1949) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор:
+
+В связи с введением преподавания логики в высших учебных заведениях возникла настоятельная необходимость в создании учебника логики, полностью отвечающего требованиям, предъявляемым к учебникам для вузов. Эта задача до сих пор не решена. Настоящая работа представляет собой лишь первый шаг в деле подготовки вузовского учебника логики и не претендует на большее, (   Читать дальше...   )Жанр: логика, искусство, психология, философияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAC2A6D7A371D148E1C80233F2E5DCDFE793A7F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931801   (509093) от 29.08.2015
+
+Плунгян Владимир | Почему языки такие разные (2012) [FB2]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Человеческий язык – величайший дар природы! Ему мы обязаны возможностью общаться, передавать свои мысли на расстоянии. Благодаря языку мы можем читать книги, написанные много веков назад, а значит, использовать знания, накопленные нашими предками, и сохранять наши знания для будущих поколений. Без языка не было бы человечества!
+Сколько языков на земле, как они устроены; (   Читать дальше...   )Жанр: Языкознание, ЛингвистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:184E3DD2B8ADE90659A31EEB778445AF795B2373
 ```
 
 https://mybot314.ru/tekegram_catalog/

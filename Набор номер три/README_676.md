@@ -1,3 +1,215 @@
+###  Публикация: 1757938   (38666) от 01.11.2024
+
+Лучшие фильмы ужасов
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38666.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильмы ужасов
+Жанр ужасов один из классических в кинематографе. Он появился на заре его становления вместе с комедиями и его сразу оценили любители пощекотать себе нервы. С тех пор на смену актерам в костюмах монстров и чудовищ пришли спецэффекты и компьютерная графика, которую легко спутать с реальностью и зрители готовы платить за билет в кинотеатр, чтобы получить (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757629   (38539) от 02.11.2024
+
+ООН: Из-за трансгендеров женщины лишились 890 медалей в 29 различных видах спорта
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Женщины-спортсменки уступили почти 900 медалей своим соперницам-трансгендерам, соревнующимся с ними в женских спортивных категориях, говорится в шокирующем докладе Организации Объединенных Наций.В исследовании под названием «Насилие в отношении женщин и девочек в спорте» говорится, что более 600 спортсменок потерпели поражение на различных соревнованиях от соперниц, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758457   (38468) от 03.11.2024
+
+Конец эпохи: NVIDIA заменит Intel в индексе Dow Jones
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38468.jpg" />
+</div>
+
+
+###  Подробнее
+
+Intel была одной из двух технологических акций (вторая была Microsoft), которые присоединились к Dow Jones Industrial Average во время пузыря доткомов 90-х. Однако хроническая неэффективность имеет последствия. Производителя микросхем Nvidia с 8 ноября включат в индекс Уолл-стрит Dow Jones Industrial Average заменив компанию Intel.Акции Nvidia в 2024 году выросли (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756791   (38450) от 03.11.2024
+
+Наследники. Дар крови (2024) WEBRip [H.264/1080p] (сезон 1, серии 1-12 из 12)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38450.jpg" />
+</div>
+
+
+###  Подробнее
+
+После нападения на хранилище артефактов дочь могущественного мага Надя исчезает. Её муж Роман уверен, что супруга погибла, поэтому сам воспитывает дочек и сына. Спустя время дети открывают в себе сверхъестественные силы, что не нравится магам, особенно сестре Нади — оперативнице из Отдела магической безопасности Вере. Жёсткая и бескомпромиссная девушка и её правая (   Читать дальше...   )Производство: Россия / Pick Up FilmsЖанр: фэнтезиРежиссер: Антон Федотов, Александр БабаевАктеры: Маша Кошина, Артем Кошман, Полина Айнутдинова, Екатерина Вилкова, Оксана Акиньшина, Елена Подкаминская, Антон Васильев, Дмитрий Чеботарёв, Кристина Корбут, Антон КузнецовСубтитры: отсутствуютПродолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38BA25F4600524A5D0575CB1B52B0284D23D7597
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758397   (38449) от 03.11.2024
+
+Апокалипсис Z: Начало конца / Apocalypse Z: El principio del fin / Apocalypse Z: The Beginning of the End (2024) WEB-DL [H.264/1080p] [DVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38449.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Апокалипсис Z: Начало конца» — это захватывающий постапокалиптический триллер, основанный на романе Мануэля Лурейро. Действие фильма разворачивается в наши дни, когда мир внезапно охвачен смертельной эпидемией, превращающей людей в зомби. В центре сюжета — адвокат из небольшого испанского города, который неожиданно оказывается одним из немногих выживших.Производство: Испания / Nostromo PicturesЖанр: боевик, ужасы, фантастика, триллерРежиссер: Карлес ТорренсАктеры: Берта Васкес, Ирия дель Рио, Франсиско Ортис, Хесус Льоверас, Alberto Ladrón de Guevara, Sergio CrespoПеревод: Двуголосый любительский (KerobTV)Язык озвучки: Русский, ИспанскийСубтитры: Русские, Английские, Испанские (SDH)Продолжительность: 01:58:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B082661E18BD5B63E63E376494D2FFA26B371BED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758716   (38352) от 04.11.2024
+
+Amnezia VPN удалена из AppStore по требованию РКН
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38352.jpg" />
+</div>
+
+
+###  Подробнее
+
+Друзья! 
+У нас плохие новости.
+Буквально пару часов назад мы получили сообщение от Apple, что они по требованию Роскомнадзора удаляют наше приложение Amnezia VPN из AppStore.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758526   (38350) от 04.11.2024
+
+Mail.ru отменила бесплатные вечные 100 ГБ для первых пользователей «Облако Mail.ru»
+
+>>3
+>>9
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38350.jpg" />
+</div>
+
+
+###  Подробнее
+
+В конце октября 2024 года компания Mail (принадлежит VK) предупредила клиентов, что отменяет бесплатные вечные 100 ГБ для первых пользователей «Облако Mail.ru» спустя 11 лет старта проекта.Бесплатный тариф на 100 ГБ хранилища, который сервис «Облако Mail» предоставлял бета-тестерам при запуске в 2013 году, прекратит действие 11 ноября 2024 года. Об этом событии в (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431251   (38344) от 04.11.2024
+
+Cyberpunk 2077 (2020) [Ru/En] (1.63 HotFix/dlc) Repack West4it
+
+>>3
+>>9
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38344.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cyberpunk 2077 — приключенческая ролевая игра, действие которой происходит в мегаполисе Найт-Сити, где власть, роскошь и модификации тела ценятся выше всего. Вы играете за V, наёмника в поисках устройства, позволяющего обрести бессмертие.Тип издания: RepackРазработчик: CD PROJEKT REDЖанр: Adventure, Action, RPG, 3D, 3rd Person, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F76BEDF4AA91FCB7B6003442DBA8362E5F4B2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1757746   (38242) от 05.11.2024
 
 «Не стоят они этих денег, — таксисты вынесли вердикт «китайцам»
@@ -6,7 +218,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38242.jpg" />
 </div>
 
 
@@ -32,7 +244,7 @@ Windows 11 Pro 24H2 26100.2033 x64 by SanLex [Lightweight] [Ru/En] (2024.11.05)
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38239.jpg" />
 </div>
 
 
@@ -60,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38169.jpg" />
 </div>
 
 
@@ -86,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38159.jpg" />
 </div>
 
 
@@ -112,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38158.jpg" />
 </div>
 
 
@@ -138,7 +350,7 @@ Driver Easy Pro 6.1.1.29776 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38154.jpg" />
 </div>
 
 
@@ -164,7 +376,7 @@ Blood: Plasma Pak (1997) [Ru/En] (1.11/1.21/dlc) Repack 1nomok
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38151.jpg" />
 </div>
 
 
@@ -190,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38053.jpg" />
 </div>
 
 
@@ -216,7 +428,7 @@ Return to Castle Wolfenstein (2001) [Ru/En] (1.41/1.42d) Repack 1nomok
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38051.jpg" />
 </div>
 
 
@@ -242,7 +454,7 @@ Clive Barker's Undying (2001) [Ru/En] (1.1hf) Repack 1nomok
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38048.jpg" />
 </div>
 
 
@@ -268,7 +480,7 @@ Far Cry (2004) [Ru/En] (1.4) Repack 1nomok
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38047.jpg" />
 </div>
 
 
@@ -294,7 +506,7 @@ Serious Sam Classic (2002) [Ru/En] (1.07/dlc) Repack 1nomok
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38046.jpg" />
 </div>
 
 
@@ -320,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38044.jpg" />
 </div>
 
 
@@ -346,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37955.jpg" />
 </div>
 
 
@@ -372,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37944.jpg" />
 </div>
 
 
@@ -398,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37839.jpg" />
 </div>
 
 
@@ -424,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37836.jpg" />
 </div>
 
 
@@ -450,224 +662,13 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37828.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Microsoft прекратит поддержку Windows 10 в октябре 2025 года, но предложит корпоративным клиентам программу расширенной безопасности, которая позволит получать дополнительные обновления после этой даты.Поддержка одного ПК будет стоить $61 в год. Программа будет действовать в течение трёх лет. Тем, кто планирует присоединиться к ней позже, придётся заплатить за предыдущий (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759608   (37741) от 10.11.2024
-
-«Увидимся в Зоне, сталкеры»: спустя 15 лет ожиданий S.T.A.L.K.E.R. 2: Heart of Chornobyl ушла на золото
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37741.jpg" />
-</div>
-
-
-###  Подробнее
-
-На пути к релизу постапокалиптический шутер с открытым миром S.T.A.L.K.E.R. 2: Heart of Chornobyl от студии GSC Game World не раз переносили, но больше задержек быть не должно — игра ушла на золото.Напомним, «озолочение» игры означает, что мастер-диск с релизной версией отправляется в печать и на загрузку в сервисы цифровой дистрибуции. Как правило, это гарантирует (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717491   (37738) от 10.11.2024
-
-Shadowsocks
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37738.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shadowsocks – это сетевой протокол шифрования передачи данных, с открытым исходным кодом на основе протокола SOCKS5 разработанный в 2012 в Китае.С 2015 года развитием проекта занимается независимое сообщество.Принцип работы: для программ устроен как обычный SOCKS5 с IP-адресом 127.0.0.1. Подключение происходит локально. То есть любая программа, например браузер, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759230   (37737) от 10.11.2024
-
-GoodbyeDPI 0.2.3rc3 Launcher 9.2 [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37737.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа Launcher for GoodbyeDPI для запуска утилиты GoodbyeDPI с понятным интерфейсом
-Утилита GoodbyeDPI предназначена для обхода систем глубокого анализа трафика (Deep Packet Inspection) и получения доступа к заблокированным сайтам.
-
-Работает с пассивными (подключенными с помощью оптического сплиттера или с зеркалированием трафика) и активными (подключенными последовательно) (   Читать дальше...   )Язык интерфейса: Русский и английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:695C02A51E873F08CD7CD4CE5F81AA30DFFADF7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759546   (37734) от 10.11.2024
-
-Уровни / Levels (2024) WEB-DL [H.264/1080p] [MVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Став свидетелем убийства своей девушки, мужчина рискует всем, включая саму реальность, чтобы узнать правду.Производство: Канада / Farpoint Films Inc., Middle Child Films Inc., Orbital MechanicsЖанр: фантастика, боевик, триллерРежиссер: Адам ШтернАктеры: Кара Ги, Питер Муни, Аарон Абрамс, Дэвид Хьюлетт, Адам Хертиг, Джейд Ма, Сидни Сабистон, Биджей Верот, Кристиан Джордан, Eldon WuПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: Русский, АнглийскийСубтитры: Английские (Full, SDH)Продолжительность: 01:32:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66D91B8D303578FAF0A4DBABE6A336077E1E3D3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759361   (37733) от 10.11.2024
-
-WinPE 11-10-8 Sergei Strelec (x86/x64/Native x86) 2024.11.08 [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37733.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузочный диск на базе Windows 11, 10 и 8 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, антивирусной профилактики и установки ОС Windows.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7933CDA2181A70A39B6C89002CF3801B5AA3E90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758910   (37732) от 10.11.2024
-
-Граф Монте-Кристо / Le Comte de Monte-Cristo / The Count of Monte-Cristo (2024) WEB-DL [H.264/1080p] [MVO]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Став жертвой коварного заговора, молодой Эдмон Дантес был арестован в день своей свадьбы за преступление, которого не совершал. После 14 лет в тюрьме замка Иф ему наконец-то удается бежать. На таинственном острове, о котором ему поведал в заключении его друг аббат Фариа, Эдмон находит легендарное сокровище и становится графом Монте- Кристо. Теперь его единственная (   Читать дальше...   )Производство: Франция, Бельгия / Canal+, Centre National du Cinéma, Chapter 2Жанр: драма, триллер, мелодрамаРежиссер: Александр де Ла Пательер, Матьё ДелапортАктеры: Пьер Нинэ, Пьерфранческо Фавино, Анаис Демустье, Лоран Лафитт, Бастьен Буйон, Анамария Вартоломеи, Патрик Милле, Вассили Шнайдер, Жюльен Де Сен Жан, Жюли Де БонаПеревод: Многоголосый профессиональный (LineFilm)Язык озвучки: Русский, ФранцузскийСубтитры: Русские, Французские (Forced, SDH)Продолжительность: 02:57:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B16A893A6E830E6108B12440B60EAFD9F5115CEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759301   (37724) от 10.11.2024
-
-В Японии арестовали создателей сайта со спойлерами к фильмам и аниме
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37724.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полиция японской префектуры Мияги арестовала троих мужчин за создание так называемого сайта спойлеров, где публиковались пересказы новинок кино и аниме. Об этом сообщает Sendai Television Incorporated.Задержанных обвиняют в нарушении закона об авторском праве. По данным полиции, в прошлом году все трое сговорились создать сайт, на котором без разрешения правообладателей (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759616   (37632) от 11.11.2024
-
-В России начнут делать асфальт по советским технологиям
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37632.jpg" />
-</div>
-
-
-###  Подробнее
-
-В России запускают экспериментальное производство асфальта опираясь на советские технологии. В случае успешных испытаний специалисты собираются запустить предприятие.Российские дороги будут строить по технологиям СССР. Российские ученые создадут реактор для производства неокисленного дорожного битума для строительства дорог. Сегодня битум для возведения магистралей (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

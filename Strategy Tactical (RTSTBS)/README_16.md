@@ -1,3 +1,55 @@
+###  Публикация: 1677767   (61238) от 31.03.2024
+
+Starship Troopers: Terran Command (2022) [Ru/Multi] (2.7.6/dlc) Scene Rune
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Starship Troopers: Terran Command - это захватывающая стратегия в реальном времени, действие которой разворачивается во вселенной фильмов «Звёздный десант». Приготовьтесь командовать отважными бойцами мобильной пехоты (Mobile Infantry) и выполнять свой долг в борьбе с арахнидами. Сделайте всё, чтобы человеческая цивилизация а не насекомые господствовала в галактике (   Читать дальше...   )Тип издания: SceneРазработчик: The ArtistocratsЖанр: СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D369E6E61F1B9F85504DB1650B45CBC992839A7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711902   (61152) от 01.04.2024
+
+Outpost: Infinity Siege (2024) [Multi] (13887315/dlc) Repack FitGirl [Vanguard Edition]
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61152.jpg" />
+</div>
+
+
+###  Подробнее
+
+Outpost: Infinity Siege - это увлекательный научно-фантастический шутер от первого лица с элементами строительства базы и tower defence. Ты командуешь Мобильным опостом и отправляешься с Протослаг-пушкой на глубокое исследование запрещенной зоны Сигнета, где поджидает тебя множество опасностей. Собирай уникальные юниты оружия и укрепляй огневую мощь опоста, который (   Читать дальше...   )Тип издания: RepackРазработчик: Team RangerЖанр: Экшены, СтратегииЯзык озвучки: Английский, КитайскийЯзык субтитров: Английский, Французский, Немецкий, Японски и другиеЯзык интерфейса: Английский, Французский, Немецкий, Японски и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:698F49DE06F6980EA1FA148B3207B3429441046D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1713370   (60722) от 05.04.2024
 
 No Plan B (2024) [Ru/Multi] (1.0) Scene SKIDROW
@@ -6,7 +58,7 @@ No Plan B (2024) [Ru/Multi] (1.0) Scene SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60722.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Outpost: Infinity Siege (2024) [Multi] (13887315/dlc) Scene Tenoke [Vanguard Edi
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60428.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Headquarters: World War II (2) (2024) [Ru/Multi] (1.0) Scene FAiRLiGHT
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59981.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ John Wick Hex (2019) [Ru/Multi] (1.03) Scene DARKSiDERS
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59245.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ War Hospital (2024) [Multi] (1.10/dlc) License GOG [Supporter Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58104.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Solium Infernum (2024) [Ru/Multi] (1.1.0/dlc) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58077.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ FRONT MISSION 2: Remake (2024) [Multi] (1.0.6) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57551.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ FRONT MISSION 2: Remake (2024) [Multi] (1.0.6) Scene FAiRLiGHT
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57253.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Last Train Home (2023) [Ru/Multi] (1.0.0.32413) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57054.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ The Land Beneath Us (2024) [Multi] (1.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56178.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ This War of Mine (2014) [Ru/Multi] (6.0.8/dlc) License GOG [Complete Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55685.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55582.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Capes (2024) [Ru/Multi] (1.0.0.0/dlc) Repack FitGirl [King City Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54737.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Field of Glory: Kingdoms (2024) [Multi] (1.0) Scene SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54315.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Field of Glory: Kingdoms (2024) [Multi] (1.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54206.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Lysfanga: The Time Shift Warrior (2024) [Ru/Multi] (13371529) Repack Wagner
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53755.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ A Game's Tale (2024) [En] (1.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53475.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Starship Troopers: Terran Command (2022) [Ru/Multi] (3.00.01/dlc) Scene FairLigh
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52745.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Grand Tactician: The Civil War (1861-1865) (2021) [En] (1.15.1/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52522.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ The Troop (2023) [Ru/Multi] (20250930 build 20182560/dlc) Repack seleZen
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52137.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Undeadly (2024) [En] (1.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51456.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Supreme Ruler 2030 (2023) [Multi] (1303/dlc) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51209.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Frozen Synapse 2 (2018) [En] (108) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50942.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Frozen Synapse (2011) [En] (35/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50854.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Frozen Synapse - пошаговая стратегия, основанная н�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB2C626FCC3B8AC71C60BBDDB956694D877D295A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597773   (50728) от 08.07.2024
-
-Scythe (2018) [Ru/Multi] (2.1.0/dlc) License GOG [Digital Edition]
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50728.jpg" />
-</div>
-
-
-###  Подробнее
-
-Scythe: Digital Edition - это длинная история в пошаговой стратегии, напоминающей пошаговую настольную игру про Первую Мировую Войну. Конфликт зашел слишком далеко, и на территории земли появились мехи - роботы, которыми управляют люди. Во главе угла стоит государство Фактория - единственная страна, которая получила роботов раньше всех, и теперь отчаянно борется (   Читать дальше...   )Тип издания: LicenseРазработчик: The Knights of UnityЖанр: Стратегия, Пошаговая, ФантаcтикаЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9230462C6CEB5A5C768FF0AC03CD69B37E5D331
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735687   (50614) от 09.07.2024
-
-Shrot (2024) [Multi] (1.2) Repack FitGirl
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shrot – находитесь в поисках небольшой олдскульной стратегии в режиме реального времени? Да?! Тогда приготовьтесь отправиться навстречу удивительному песчаному миру, где будут лошади, трактора и необычная техно-музыка. И это только начало! В основе игрового сюжета заложен чешский ремейк «Dune 2» и третья из когда-либо созданных стратегий в реальном времени. Причем (   Читать дальше...   )Тип издания: RepackРазработчик: SpytihněvЖанр: Экшены, Инди, СтратегииЯзык озвучки: Английский, ЧешскийЯзык субтитров: Английский, ЧешскийЯзык интерфейса: Английский, Чешский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7ABDDF09791EF82E3CB26D9D472312B82BD3D71
 ```
 
 https://mybot314.ru/tekegram_catalog/

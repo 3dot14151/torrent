@@ -1,134 +1,3 @@
-###  Публикация: 1089379   (948938) от 05.01.2017
-
-Е.М. Овсянников | Электрический привод (2011) [PDF, DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник написан с учетом тенденций развития электропривода. Особое внимание уделено следящим и цифровым электроприводам, а также программному обеспечению. Приведены современные методы расчета систем электроприводов. Даны оригинальные схемные решения. Излагаемые методы расчета иллюстрируются практическими примерами.
-Предназначен для студентов высших учебных заведений (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:045C67D6CB5C66F49DF0324002A171B26D6BDA12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090068   (948837) от 05.01.2017
-
-Михаил Вознесенский | Украденная субмарина К-129 (2005) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948837.jpg" />
-</div>
-
-
-###  Подробнее
-
-От издателя: Книга М.Вознесенского — это независимое журналистское расследование одной из трагедий советского подводного флота. При загадочных обстоятельствах в марте 1968 года у Гавайских островов погибла подводная лодка-ракетоносец К-129 с экипажем численностью 97 человек. Сам факт и обстоятельства гибели субмарины, имевшей на борту ядерное оружие, долгое время (   Читать дальше...   )Жанр: История войнФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6888EBAB63633627F9D103F05A1623397A41512E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089650   (948830) от 05.01.2017
-
-В.И. Иголкин и др. | Методы и аппаратура электроразведки на переменном токе (2016) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изложены вопросы теории электромагнитного поля, приведено описание аппаратуры электромагнитных методов с использованием переменного гармонического тока в диапазоне частот 312,5–2250·103 Гц, рассмотрен принцип её действия, технические и методические характеристики. Освещена технология работ с этой аппаратурой, рассмотрены вопросы обработки полученных материалов исследования (   Читать дальше...   )Жанр: Геология, геофизика, электроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9352B29F9A3623D0E6534AC52D24F4E5ED68F035
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089999   (948827) от 05.01.2017
-
-Роджер Форд | Знаменитые винтовки мира (2004) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948827.jpg" />
-</div>
-
-
-###  Подробнее
-
-От издателя: "Знаменитые винтовки мира" - бесценный источник информации и иллюстративного материала для каждого любителя оружия. В этом красочном издании читатель найдет более 50 цветных иллюстраций и схем, а также свыше 120 черно-белых и цветных фотографий лучших образцов стрелкового оружия. Автор - Роджер Форд - эксперт по оружейным технологиям и боевому (   Читать дальше...   )Жанр: Стрелковое оружиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C83CDC59460BA030482CA83B0842DE737544048B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089949   (948825) от 05.01.2017
-
-А.С. Стаценко, В.В. Иванченко | Печные работы (2008) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948825.jpg" />
-</div>
-
-
-###  Подробнее
-
-В издании даются общие сведения о строительстве, конструктивных элементах зданий, строительных работах и документации на их выполнение. Освещаются вопросы контроля качества работ, их оплаты и охраны труда в строительстве. Рассматриваются печные устройства и их элементы, тепловая работа печей, их размещение и конструкции, отбор и заготовка материалов, организация (   Читать дальше...   )Жанр: СтроительствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE598271B52746AC10141E3AFF0E229E3F6B733C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089963   (948819) от 05.01.2017
 
 В.И. Сидоров и др. | Общая химия (2014) [PDF]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948819.jpg" />
 </div>
 
 
@@ -165,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948736.jpg" />
 </div>
 
 
@@ -191,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948732.jpg" />
 </div>
 
 
@@ -218,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948643.jpg" />
 </div>
 
 
@@ -244,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948555.jpg" />
 </div>
 
 
@@ -270,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948514.jpg" />
 </div>
 
 
@@ -296,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948512.jpg" />
 </div>
 
 
@@ -322,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948508.jpg" />
 </div>
 
 
@@ -348,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948507.jpg" />
 </div>
 
 
@@ -376,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948506.jpg" />
 </div>
 
 
@@ -402,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948441.jpg" />
 </div>
 
 
@@ -430,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948428.jpg" />
 </div>
 
 
@@ -456,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948338.jpg" />
 </div>
 
 
@@ -482,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948323.jpg" />
 </div>
 
 
@@ -508,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948305.jpg" />
 </div>
 
 
@@ -534,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948302.jpg" />
 </div>
 
 
@@ -560,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948267.jpg" />
 </div>
 
 
@@ -589,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948129.jpg" />
 </div>
 
 
@@ -616,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948114.jpg" />
 </div>
 
 
@@ -644,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948112.jpg" />
 </div>
 
 
@@ -670,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948104.jpg" />
 </div>
 
 
@@ -684,6 +553,136 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCAE527E6CA2C3F00037FA00F0FCF53FDC64DD41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362780   (948062) от 24.02.2020
+
+Г.Б. Антрушина и др. | Лексикология английского языка (2001) [DJVU] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948062.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие включает разделы: предмет и задачи курса, этимологический состав и стилевые слои словарного состава английского языка, словообразование, семантология, фразеология, синонимия и антонимия современного английского языка. Теоретический материал тесно увязан с материалом для практической самостоятельной работы и работы на семинарах, а также с текстами (   Читать дальше...   )Жанр: Учебное пособиеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCD409AABA68502BCE537EBA98D9C3347A4613B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362655   (947969) от 24.02.2020
+
+А.П. Смирнов | Компьютерное моделирование измерительных процессов. Практикум в среде MathCAD на примерах из механики и оптики (2006) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изложены принципы построения программ в среде MathCAD. Приведены модели механического устройства и оптической системы в параксиальном приближении, на основе которых рассмотрены некоторые свойства измерительных процессов применительно к конструированию оптико-механических системЖанр: Компьютерная литератураФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8B4C042380AEDEBFDA60A538C19160FE10D67ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362632   (947849) от 24.02.2020
+
+А.Л. Решетов, Л.И. Хмарова | Справочное руководство к заданиям по машиностроительному черчению (2015) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пособие написано в помощь студентам при выполнении заданий по курсу «Машиностроительное черчение». В пособии рассмотрены способы образования, изображения и обозначения различных типов резьб, резьбовых крепежных изделий, правила вычерчивания разъемных и неразъемных соединений деталей, цилиндрических зубчатых колес и передач с учётом шероховатости поверхностей. Пособие (   Читать дальше...   )Жанр: МашиностроениеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA9BCF7550E2A8661F03617177E5567DA23A76EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982816   (947110) от 04.02.2016
+
+Анджей Марынярчик | Зачем сегодня томизм? (1995) [PDF, DJVU, DOC]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947110.jpg" />
+</div>
+
+
+###  Подробнее
+
+На примере избранных проблем, являющихся характерными для философского познания, мы попробуем приблизить читателю суть филососфской мысли св. Фомы Аквинского. Не вдаваясь, однако, в детальные дискуссии на тему представленных выше мнений — так как большинство из них родилось, скорее, не на почве содержательных дискуссий , а на почве идеологической, — как и не вдаваясь (   Читать дальше...   )Жанр: ФилософияФормат: PDF, DJVU, DOC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEF75D8E7EAAEE386FC38F5159A633885010B4E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982605   (947103) от 04.02.2016
+
+В. Б. Кувалдин | Американский капитализм и интеллигенция [историко-социологический очерк] (1983) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947103.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге анализируются положение и роль предста­вителей интеллектуального труда в американском об­ществе, раскрываются специфика формирования, ха­рактерные черты их духовного облика. Особое вни­мание уделено анализу оппозиционных тенденций в сознании и поведении американской интеллигенции, перспективам союза рабочего класса и интеллигенции в борьбе против господства (   Читать дальше...   )Жанр: История, политология, социологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E355C486B999B95BB2ED34F6BAFEA6696DF70470
 ```
 
 https://mybot314.ru/tekegram_catalog/

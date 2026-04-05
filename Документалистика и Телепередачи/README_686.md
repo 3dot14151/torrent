@@ -1,3 +1,162 @@
+###  Публикация: 1517561   (161488) от 17.12.2021
+
+Россия. Новейшая История (2021) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Отечественная история
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм отсылает нас в начало 1990-х годов – ко временам невиданного в российской и советской истории краха экономики, идеологии и человеческих судеб.
+В это время все советское стало вдруг неправильным и ненавистным. Вырваться из опостылевшего мира дефицита и разрухи стало общим желанием. По территории бывшего Советского Союза прокатилась волна суверенитетов и митингов, (   Читать дальше...   )Телекомпания: Россия (ВГТРК)Жанр: Документальный, История, Политика, ХроникаСубтитры: нетПродолжительность: 02:09:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A6D8592743F597875C5EF47C43FD93B632AA28C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517860   (161453) от 17.12.2021
+
+Чудеса кораллового рифа / Puff: Wonders of the Reef (2021) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161453.jpg" />
+</div>
+
+
+###  Подробнее
+
+В поисках дома малек иглобрюха путешествует по удивительному микромиру Большого Барьерного рифа, полному самых фантастических созданий.Производство: Австралия, СШАЖанр: Документальный, семейныйРежиссер: Nick RobinsonПеревод: Одноголосый профессиональный (VSI Moscow)Язык озвучки: Русский, английскийСубтитры: РусскиеПродолжительность: 00:59:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AE88C23F6F34141B4976E4728C728EF94E62ACE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674417   (161424) от 05.11.2023
+
+Военная тайна с Игорем Прокопенко (04.11.2023) WEB-DL [H.264]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161424.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 02:34:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F5E8C8A732F6C8D4442BB90224F5849E3EBEC2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674426   (161415) от 05.11.2023
+
+Первая передача на НТВ. Автомобильная передача (05.11.2023) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неожиданный звонок с незнакомого номера: кто может обвинить водителя и как доказать непричастность к ДТП?
+ Простой пенсионер из провинциального городка никак не ожидал, что на него свалится всероссийская слава. Михаил Викторович прославился, когда спас ребенка от грабителя.
+ Автоармагеддон — он случился на нашей планете! Кто выжил на этом ристалище? Как рубились машины? (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:23:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F25419C19BE987EB94F58A46115D74210CE9F1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433353   (161390) от 20.12.2020
+
+Сто к одному (20.12.2020) WEBRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:38:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1FB789DA3826CBC1E390B100F3CC07744F82463
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674488   (161374) от 05.11.2023
+
+Своя игра (05.11.2023) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161374.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «2В Медиа»Жанр: Интеллектуальная играЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9632772D4D5902B91A13559993DC2ADE40E6FBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674446   (161359) от 05.11.2023
 
 Чудо техники с Сергеем Малозёмовым (05.11.2023) WEBRip [H.264/720p]
@@ -6,7 +165,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161359.jpg" />
 </div>
 
 
@@ -33,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161273.jpg" />
 </div>
 
 
@@ -59,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161258.jpg" />
 </div>
 
 
@@ -85,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161248.jpg" />
 </div>
 
 
@@ -111,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161220.jpg" />
 </div>
 
 
@@ -137,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161219.jpg" />
 </div>
 
 
@@ -164,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161205.jpg" />
 </div>
 
 
@@ -190,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161169.jpg" />
 </div>
 
 
@@ -216,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161137.jpg" />
 </div>
 
 
@@ -242,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161130.jpg" />
 </div>
 
 
@@ -268,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161102.jpg" />
 </div>
 
 
@@ -294,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161070.jpg" />
 </div>
 
 
@@ -320,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161055.jpg" />
 </div>
 
 
@@ -346,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161038.jpg" />
 </div>
 
 
@@ -372,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161017.jpg" />
 </div>
 
 
@@ -398,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160998.jpg" />
 </div>
 
 
@@ -424,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160981.jpg" />
 </div>
 
 
@@ -450,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160971.jpg" />
 </div>
 
 
@@ -476,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160817.jpg" />
 </div>
 
 
@@ -502,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160806.jpg" />
 </div>
 
 
@@ -513,164 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9354D4CC606737E8C23808EE0A86C31282751522
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674874   (160629) от 07.11.2023
-
-По течению великих рек (Как река становится морем) Рона / Au Bout c'est la Mer. Le Rhone (2021) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160629.jpg" />
-</div>
-
-
-###  Подробнее
-
-Путешествие по реке Роне - королеве рек Франции и ШвейцарииПроизводство: Франция, France television, Step by Step producionЖанр: документальный, познавательный, путешествияРежиссер: Николя БоероУчастники: Франсуа ПешоПеревод: двуголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:52:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EAC25D7F792502B1C82D344A66476EF8C3D50B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674818   (160555) от 07.11.2023
-
-Время вперед (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-5 из 5)
-
->>Документалистика и Телепередачи
->>Отечественная история
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный проект «Время вперед» представляет собой последовательный и объективный разбор ключевых, взаимосвязанных событий начиная с Петровских времен до 1953 года без характерной риторики и политических спекуляций, опирающийся лишь на факты, с использованием архивных материалов.Производство: Россия, ООО «Ковчег», ОАО ВС РФ «Звезда»Жанр: документальный, историяРежиссер: Александр ЕвсюковЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:40:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4D6B865F24DE3B4507F80DFE5DA2FCD5DC00371
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674900   (160548) от 07.11.2023
-
-Вор. Закон вне закона (2010) IPTVRip [H.264] (серии 1-4 из 4)
-
->>Документалистика и Телепередачи
->>Отечественная история
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Летопись зари воровской идеи в СССР и России периода криминального расцвета. Подобно итальянским мафиози, русские "воры в законе" - элита преступного мира. Они - идеологи уголовных "понятий" и хранители воровских традиций. Первые "доны Корлеоне" появились в СССР в 30-е годы, и с тех пор играют в жизни нашего общества значительную роль. (   Читать дальше...   )Производство: Россия / ООО «Телекомпания «Студия-49»Жанр: документальныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:39:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5808A0586221089450CC4F63C279FF21340E825B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675241   (160432) от 08.11.2023
-
-Дзига Вертов. Одиннадцатый (1928) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Кинолетопись Страны Советской
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм посвящен достижениям Украинской ССР к одиннадцатой годовщине Октябрьской революции.
-"Одиннадцатый" - документальный фильм, смонтированный из кадров советской кинохроники двадцатых годов, рассказывает о строительстве социализма на Украине.
-Режиссер специально акцентировал внимание на этом неюбилейном, некруглом числе. Здесь не может быть праздничной (   Читать дальше...   )Производство: СССР, ВУФКУЖанр: документальный, история, кинохроника, немое киноЯзык озвучки: немойСубтитры: русские (интертитры)Продолжительность: 00:52:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C15BCD9E3E9DFE021947E8C028435A02FA85848
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675472   (160267) от 09.11.2023
-
-Шарксплотейшн / Sharksploitation (2023) WEB-DL [H.264/1080p] [DVO]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160267.jpg" />
-</div>
-
-
-###  Подробнее
-
-История голливудских фильмов ужасов про акул.Производство: США, ShudderЖанр: документальный, кинематограф, история, ужасыРежиссер: Стивен СкарлатаУчастники: Джо Алвес, Марк Аткинс, Пол БэйлсПеревод: двуголосый любительский (Pazl Voice)Язык озвучки: русскийСубтитры: русские (forced+full, Pazl Voice), английские (full + SDH)Продолжительность: 01:46:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAF42AC62D4FEB8F586A479BDE2A0ADDFDBD7D6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599139   (160151) от 22.12.2022
-
-Куда делись ласточки? / Ou sont passees les hirondelles? / Where Have the Swallows Gone? (2020) DVB [FR / RU Sub]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160151.jpg" />
-</div>
-
-
-###  Подробнее
-
-При виде красоты природы трудно представить себе, что природа в опасности. Что однажды всё может исчезнуть. Регион Овернь в центре Франции тоже столкнулся с проблемой экологии. В реках, озерах и на лугах - повсюду можно встретить загрязнения, вызванные человеческой деятельностью. Что же делать? Без каких-либо громких слов простые граждане трудятся на благо природы. (   Читать дальше...   )Производство: Франция, France 3Жанр: документальный, природа, экологияРежиссер: Стефан БентураПеревод: субтитрыЯзык озвучки: французскийСубтитры: русские (перевод А.Вижье, компания Hiventy by TransPerfect), английские, французские, немецкие, нидерландские, испанские - (IDX+SUB); английские, французские - (SRT) - телетекстПродолжительность: 01:54:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04BD384BEE09574196A408840776D2567ED45C1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

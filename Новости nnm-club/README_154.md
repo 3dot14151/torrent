@@ -1,3 +1,59 @@
+###  Публикация: 535927   (514169) от 18.08.2012
+
+Microsoft Visual Studio 2012 - Оригинальные образы MSDN [Eng]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Visual Studio Ultimate 2012 — это передовое решение для разработки, позволяющее командам любого размера проектировать и создавать привлекательные приложения, которые удовлетворят самым взыскательным требованиям заказчиков.
+Вы можете использовать инструменты гибкого планирования — такие как планирование объема работ, панели задач и управление невыполненной работой — для внедрения методов последовательной разработки и применения гибких методологий в удобном для вас темпе.
+Используйте расширенные средства моделирования, обнаружения и проектирования архитектуры, чтобы описать свою систему и обеспечить полную реализацию вашей концепции архитектуры.
+Добейтесь взаимодействия между командами разработчиков и операторов с помощью таких программных средств, как IntelliTrace в производственной среде, Operations Manager Connector и Preemptive Analytics.
+Повышайте качество и сокращайте время устранения неполадок путем создания ошибок из развернутого программного обеспечения, включающих конкретный перечень действий, и обеспечивайте (   Читать дальше...   )Название программы: Microsoft Visual Studio Ultimate 2012Язык интерфейса: English
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB56C93EC0A2901F620A76CCBCB829AED7D75216
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 374906   (514126) от 13.08.2011
+
+Ложь путинского режима - 2 (2011) TVRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514126.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный TVRip сборник, состоит из 12 короткометражных документальных фильмов, раскрывающих и показывающих правду о годах правления В.В.Путина.Жанр: Документальный, ТелепередачаПродолжительность: 00:50:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:460887FA67F43F1C7B795645B06590CE035E25B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 229660   (513740) от 26.08.2010
 
 Microsoft Office Outlook 2007
@@ -6,7 +62,7 @@ Microsoft Office Outlook 2007
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513740.jpg" />
 </div>
 
 
@@ -34,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_513707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_513707.jpg" />
 </div>
 
 
@@ -60,7 +116,7 @@ Windows 10 SpyStop 1.0.0 [Ru/De]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513549.jpg" />
 </div>
 
 
@@ -86,7 +142,7 @@ Windows 10 x86 x64 StartSoft 56-57 2015 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513544.jpg" />
 </div>
 
 
@@ -112,7 +168,7 @@ Far Cry 6 (2021) [Ru/Multi] (1.5.0/dlc) Repack Decepticon
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513299.jpg" />
 </div>
 
 
@@ -138,7 +194,7 @@ Topaz Labs Photoshop Plugins Bundle 2012 (x86/x64) [Английский + Ру�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513123.jpg" />
 </div>
 
 
@@ -166,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512956.jpg" />
 </div>
 
 
@@ -192,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512671.jpg" />
 </div>
 
 
@@ -218,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_512659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_512659.jpg" />
 </div>
 
 
@@ -244,7 +300,7 @@ Windows 10 Enterprise LTSC 1809 17763.615 x64 Rus by OneSmiLe (19.07.2019)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512554.jpg" />
 </div>
 
 
@@ -273,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512488.jpg" />
 </div>
 
 
@@ -299,7 +355,7 @@ Bulletstorm (2011) [Ru/En] (1.0.7147/dlc) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512483.jpg" />
 </div>
 
 
@@ -325,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511595.jpg" />
 </div>
 
 
@@ -351,7 +407,7 @@ Destroy Windows 10 Spying 1.5 Build 325 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511546.jpg" />
 </div>
 
 
@@ -377,7 +433,7 @@ Wolfenstein (2009) [Ru] (1.2) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511518.jpg" />
 </div>
 
 
@@ -403,7 +459,7 @@ Garmin: Дороги России Топо 6.21-R2 (FID 3332 + FID 4594) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511516.jpg" />
 </div>
 
 
@@ -430,7 +486,7 @@ WPI v 8 STARTSOFT [Русский-Английский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511060.jpg" />
 </div>
 
 
@@ -456,7 +512,7 @@ Darksiders II [Ru/En] (L/Update 1) 2012 l SKIDROW
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511058.jpg" />
 </div>
 
 
@@ -483,7 +539,7 @@ Divinity II: The Dragon Knight Saga / Divinity 2: Пламя мести [Ru/En] 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511055.jpg" />
 </div>
 
 
@@ -511,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_510708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_510708.jpg" />
 </div>
 
 
@@ -537,7 +593,7 @@ History Channel. В изоляции / Alone (2015) SATRip (1 сезон: 1-10 �
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510605.jpg" />
 </div>
 
 
@@ -563,7 +619,7 @@ Windows 10 x86 x64 DVD-USB StartSoft 58-59 2015 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510604.jpg" />
 </div>
 
 
@@ -589,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510597.jpg" />
 </div>
 
 
@@ -615,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510286.jpg" />
 </div>
 
 
@@ -623,60 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 
 Проблемы в российском кинематографе заметны невооруженным глазом. Проекты, которые выходят в прокат, не вызывают должного интереса у зрителей. А потому неудивительно, что посещаемость отечественных кинокартин снизилась за первое полугодие аж на 31%, а сборы – на 12,5%. Об этом сообщает «Коммерсантъ», ссылаясь на результаты исследования, проведенного компанией Movie Research. И это притом, что мы чуть ли не каждую неделю пишем о том, как идут дела на заокеанском рынке: «Гарри Поттер» и «Трансформеры» стали миллиардерами, неплохо идет «Восстание планеты обезьян»... Хотя, что сравнивать?
 (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538085   (510226) от 22.08.2012
-
-Модифицированные boot.wim (x86/x64) + комплект автоустановки Win7 от Smokie BlahBlah 2012.08.22 [Multi]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Модифицированные boot.wim (x86/x64) ~160/~200 мб с программами + комплект для создания автоустановки Windows 7. Есть автоустановка драйверов после первого входа в систему (с помощью DriverPackSolution) и другие бонусы (читайте ниже, под спойлером). За основу взяты Win7(x86x64)Live by Xemom1Язык интерфейса: Multi
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 537981   (510151) от 22.08.2012
-
-The Bat! Professional 5.2 Final [MULTi / Русский]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510151.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Bat! - популярный клиент электронной почты; программу используют более шести миллионов пользователей сети Интернет; программа позволяет работать с неограниченным количеством почтовых ящиков, использовать мощные средства фильтрации писем, шаблоны сообщений, диспетчер писем и многое другое. The Bat! Professional Edition оснащен всеми свойствами версии Home. Кроме того, в этой версии присутствуют дополнительные опции, которые понадобятся продвинутым пользователям.
-
-(   Читать дальше...   )Название программы: The Bat! ProfessionalЯзык интерфейса: MULTi / Русский
 
 ## Скачать торент
 ```bash

@@ -1,3 +1,29 @@
+###  Публикация: 21378   (594670) от 14.07.2017
+
+Камасутра: Чувственное искусство любви / Kama Sutra: The Sensual Art of Lovemaking (2006) DVDRip
+
+>>Обучающие видеоматериалы
+>>Другие видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594670.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм представляет собой очень откровенное, красивое и романтичное повествование о сокрытом в камасутре искусстве любви. Профессиональные сексологи раскрывают суть поз и приемов близости, а великолепное исполнение актеров возводит секс на уровень гармонии любви мужчины и женщины.Жанр: *Документальный* Обучающий * Эротика *В ролях: Тавни Робертс,  Рик Робертс,  Сабрина Маюя,  Дональд Джеймс,  Лорна Пэйн,  Джейсон Грид.Перевод: Двухголосый, Закадровый.Продолжительность: 00:52:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B912DBF1932A9D50094B9DE4A17D1AF9CB6198E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1548747   (593817) от 06.05.2022
 
 CGcircuit, David Adan | Total Destruction: Volume 3 Particles (2020) PCRec [EN, RU]
@@ -6,7 +32,7 @@ CGcircuit, David Adan | Total Destruction: Volume 3 Particles (2020) PCRec [EN, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593817.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ CGcircuit, David Adan | Total Destruction: Volume 2 RBD Simulations (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593735.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ CG Forge, Tyler Bay | Vex - Foundations I (2019) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593662.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ Skillshare, Aniket Rawat | Creating A Moroccan Riad Environment In Unreal Engine
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593635.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ ArtStation, Milad Kambari | McLaren 650S GT3 Tutorial (Modeling, Texturing, Ligh
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593221.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ ArtStation, Sam Carr | Blender for 2D Artists (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593170.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ Udemy, Sime Bugarija | Cinematic look with Blender 3.0 - 8+ hours MASTER tutoria
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593165.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ Udemy, Sime Bugarija | Blender 3+ Reality Capture 5h, futuristic movie scence, f
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593160.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ Udemy, Keino Campbell | IELTS Band 7+ Complete Prep Course (2021) WEB-DL [EN / E
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593155.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592823.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592685.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ Udemy, Basar Buyukkahraman | Spring Boot and React with Test Driven Development 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592566.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ Udemy, Михаил Непомнящий | Redux для управления с�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592555.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ Udemy, Михаил Непомнящий | React с нуля для начина
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592551.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ Udemy, Alex Marshal | Автоматизация тестирования Java +
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592550.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ Udemy, Mrawan Hussain | Blender: Tesla Cybertruck Forge (2022) PCRec [EN / EN Su
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592031.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ Udemy, Oleksandr Kocherhin | Практический курс по Lodash (2022
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592027.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ Udemy, Bogdan Stashchuk | The World of Computer Networking. Your CCNA starts her
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591505.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591500.jpg" />
 </div>
 
 
@@ -512,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591498.jpg" />
 </div>
 
 
@@ -538,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591257.jpg" />
 </div>
 
 
@@ -564,7 +590,7 @@ Udemy, Nick Sereda | Разработка приложений с Flutter 2.0 и
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591052.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590800.jpg" />
 </div>
 
 
@@ -620,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590794.jpg" />
 </div>
 
 
@@ -649,7 +675,7 @@ Slurm (Слёрм), Артём Мурадов | Алгоритмы: roadmap дл
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590532.jpg" />
 </div>
 
 
@@ -663,33 +689,6 @@ Slurm (Слёрм), Артём Мурадов | Алгоритмы: roadmap дл
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:259B16DDEC97DC18DA4C840671A18537BC0B2A1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551257   (590054) от 15.05.2022
-
-FlippedNormals, Morten Jaeger | Stylized Character Sculpting in Zbrush - Majora & Skull Kid (2021) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590054.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом 10-часовом курсе мы шаг за шагом рассмотрим, как создать Skull Kid с маской Майоры из франшизы "Легенда о Зельде". Вы сможете следить за каждым шагом, так как ничего не пропущено и не ускорено.
-К каждой главе есть полный комментарий, дающий вам представление о том, как работает профессиональный художник персонажей ZBrush.Производство: FlippedNormalsЖанр: 3D моделирование, СкульптингЯзык озвучки: АнглийскийПродолжительность: 09:59:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:166BDDB141D2B1E98D5246F04068C5243B630CCC
 ```
 
 https://mybot314.ru/tekegram_catalog/

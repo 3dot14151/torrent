@@ -1,3 +1,148 @@
+###  Публикация: 1452142   (1027967) от 05.03.2021
+
+Violator - Scenarios Of Brutality (2013) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Echoes Of Silence 04:00
+02. Endless Tyrannies 04:28
+03. Dead To This World 03:46
+04. Respect Existence Or Expect Resistance 03:58(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:37:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9C8887E71004AA30C01E0CA8A859C9871C9FE5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452033   (1027962) от 05.03.2021
+
+Saturnian - Dimensions (2012) [FLAC|Lossless|image + .cue] <Symphonic Black Meta>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Construct-Illusion 01:36
+02. Into Etherea... 05:55
+03. Aphotic 05:18
+04. Eternal Eclipse / Lament for the Lost 07:36(   Читать дальше...   )Жанр: Symphonic Black MetaПродолжительность: 00:57:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ABA627D3003F19BB4057C9F9F7A74665832C1A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452111   (1027961) от 05.03.2021
+
+Dauthuz - Cold (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Evil Wicked Do
+02. A New Dawn
+03. The Dead
+04. The Apocalypse(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C8C8AD0A0C892FAB65103EC408DA19F49979114
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452035   (1027956) от 05.03.2021
+
+Santiano - Sea Shanty – Wellerman (2021) [MP3|320 Kbps] <Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027956.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Wellerman
+2. Rolling The Woodpile
+3. Santiano
+4. Richtung Freiheit(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:18:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FA011DBCA02A7952AD24B980E141A54E27A3D75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451318   (1027946) от 05.03.2021
+
+Clout - Six Of The Best (1979) Reissue, 2006, 2000 FruitGum Corp [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jowatanite (4:04)
+02. Under Fire (3:29)
+03. Love Talk (5:37)
+04. Oh How I Long To Be With You Again (3:40)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:09:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EA429DF2C6AF6FF245277C935F1D9996C47F69C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451954   (1027939) от 05.03.2021
 
 Ken Hensley - My Book Of Answers (2021) [MP3|320 Kbps] <Classic Rock>
@@ -6,7 +151,7 @@ Ken Hensley - My Book Of Answers (2021) [MP3|320 Kbps] <Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027939.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Black Sabbath - Mob Rules  - 1981 (2021 Deluxe Edition, Remaster 2CD) (2021) [MP
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027937.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Bonfire - Roots (2021) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027930.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Def Leppard - Deep Cuts (2021) EP [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027925.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Hum - Inlet (2020) [FLAC|Lossless|tracks + .cue] <Space Rock, Post Rock, Shoegaz
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027779.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Texel - Metropolitan (2021) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Sym
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027778.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ White Lion - Wait (1988) CDS, Single, Japan [FLAC|Lossless|image + .cue] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027775.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Guardian - Miracle Mile (1993) Japanese Edition [FLAC|Lossless|image + .cue] <Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027768.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Light Field Reverie - Another World (2020) [FLAC|Lossless|image + .cue] <Atmosph
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027767.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Gino Vannelli - Crazy Life (1973) Limited Edition, Reissue, 2020, Japan Edition,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027760.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Warrior Path - Warrior Path (2019) [FLAC|Lossless|image + .cue] <Heavy Metal, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027751.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ Wishbone Ash - Coat Of Arms (2020) [FLAC|Lossless|image + .cue] <Classic Rock, P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027743.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ David Coverdale - Whitesnake (1976) Reissue, Remastered, 2011, Victor Entertainm
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027741.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ Warrior Path - The Mad King (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027732.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ Marillion - With Friends At St.David's (2021) [MP3|320 Kbps] <Neo-Progressive Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027726.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027712.jpg" />
 </div>
 
 
@@ -470,7 +615,7 @@ Noora Louhimo Experience - Eternal Wheel Of Time And Space (2021) [MP3|320 Kbps]
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027666.jpg" />
 </div>
 
 
@@ -499,7 +644,7 @@ Rod Stewart - 9 Albums (1977 - 2013) 10 CD [FLAC|Lossless|tracks + .cue]<Pop Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027664.jpg" />
 </div>
 
 
@@ -528,7 +673,7 @@ Laos - We Want It (1990) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027590.jpg" />
 </div>
 
 
@@ -557,7 +702,7 @@ Art Of Illusion - X Marks The Spot (2021) Japanese Edition [FLAC|Lossless|image 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027578.jpg" />
 </div>
 
 
@@ -586,7 +731,7 @@ A Day To Remember - You're Welcome (2021) [FLAC 2.0|48-96/24|tracks|WEB-DL] <Pos
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027576.jpg" />
 </div>
 
 
@@ -600,151 +745,6 @@ A Day To Remember - You're Welcome (2021) [FLAC 2.0|48-96/24|tracks|WEB-DL] <Pos
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E430A659AD2FD3E3FB4ADE61CEC260BF9EB765B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452669   (1027561) от 07.03.2021
-
-Святослав Вакарчук - Оранжерея (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Оберіг [00:03:33]
-02. Лиш для нас [00:03:00]
-03. Без причини [00:03:10]
-04. Знову [00:05:08](   Читать дальше...   )Жанр: RockПродолжительность: 00:48:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE35F3AA53CF203C91204E1B036C403A12AEF929
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452399   (1027548) от 07.03.2021
-
-Warrior Path - The Mad King (2021) [FLAC 2.0|44/24|tracks|WEB-DL] <Heavy Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Has Begun [00:02:51]
-02. The Mad King [00:04:59]
-03. His Wrath Will Fall [00:04:05]
-04. Beast Of Hate [00:04:18](   Читать дальше...   )Жанр: Heavy Power MetalПродолжительность: 00:52:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA54D94B9F5225CD7D7F4EE2F4DD861DF882CF2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452414   (1027543) от 07.03.2021
-
-Demon Hunter - Songs of Death and Resurrection (2021) [FLAC 2.0|44/24|tracks|WEB-DL] <Acoustic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Throat is an Open Grave (Resurrected) (4:14)
-02. Dead Flowers (Resurrected) (5:37)
-03. The Heart of a Graveyard (Resurrected) (4:34)
-04. Praise the Void (Resurrected) (4:52)(   Читать дальше...   )Жанр: Acoustic RockПродолжительность: 01:02:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65B0D347EBC9E8FF846BE1733A57C103038D8A14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452393   (1027542) от 07.03.2021
-
-Chevelle - Niratias (2021) [FLAC 2.0|48/24|tracks|WEB-DL] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Verruckt [00:03:30]
-02. So Long, Mother Earth [00:04:52]
-03. Mars Simula [00:04:11]
-04. Sleep the Deep [00:01:06](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:50:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDB7FF642DCD9281672DCF402C6884780C5F47FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452400   (1027514) от 07.03.2021
-
-Black Sabbath - Heaven and Hell (2021) 1980 Deluxe Edition [FLAC 2.0|44-96/24|tracks|WEB-DL] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neon Knights (2021 Remaster) (3:52)
-02. Children of the Sea (2021 Remaster) (5:34)
-03. Lady Evil (2021 Remaster) (4:24)
-04. Heaven and Hell (2021 Remaster) (6:57)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:51:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D268639D821DE8016DED510BCCF5493CE0C9E5D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

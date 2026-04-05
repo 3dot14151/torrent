@@ -6,7 +6,7 @@ Benny Goodman - 1942 (2003) Classics [FLAC|Lossless|tracks + .cue] <Big Band, Sw
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108253.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Muggsy Spanier - 1949 - 1954 (2005) Classics [FLAC|Lossless|tracks + .cue] <Dixi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108252.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108214.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Kool&Klean - Volume XI (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108211.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Jack McDuff & Friends - Color Me Blue (1992) Concord Jazz [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108169.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Lee Ritenour - Rit/2 (1982) 2005, Collectables [FLAC|Lossless|tracks + .cue] <Sm
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108162.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Dizzy Gillespie - 1952 (2003) Classics [FLAC|Lossless|tracks + .cue] <Bop, Swing
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108159.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Sonny Stitt - 1951 - 1953 (2004) Classics [FLAC|Lossless|tracks + .cue] <Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108150.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Etta Jones - 1944 - 1947 (1999) Classics [FLAC|Lossless|tracks + .cue] <Vocal Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108147.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Jazzy Covers 80's On The Beach (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108046.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Jazzy Covers 90's On The Beach (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108045.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Alluring Relaxing Mellow Soothing Jazz Playlist (2024) [FLAC |Lossless|WEB-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108034.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Alluring Ultimate Mellow Chilly Lounge Enjoyable Playlist (2024) [FLAC |Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108031.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Jimmie Lunceford - Baby Won't You Please Come Home (1991) Double Play [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108024.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Wallace Roney - No Room for Argument (2000) Stretch Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108013.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Jack Walrath & The Masters of Suspense - Serious Hang (1992) 1994, Muse Records 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108012.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Mel Torme - In Person (1962) Remaster, 2024, Warner Music Group [FLAC|Lossless|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108006.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Jimmie Lunceford - Margie (1946, 1947) 1989, Savoy Jazz [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107980.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Tom Harrell, Kenny Werner, Andre Ceccarelli, Paul Imm - Sail Away (1991) Musidis
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107977.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Vince Guaraldi - A Flower Is A Lovesome Thing (1957) Original Jazz Classics [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107976.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Neon Swingers - Electro Swing Party (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107962.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Michael Brecker - Michael Brecker (1987) 1996, Impulse! [FLAC|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107908.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Jack Walrath & Hard Corps - Journey, Man! (1996) Evidence [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107893.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Vince Guaraldi - The Latin Side Of Vince Guaraldi (1964) 1996, Original Jazz Cla
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107892.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Mary Lou Williams Trio - Free Spirits (1975) 1987, SteepleChase [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107888.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Wilbur Ware Quintet - The Chicago Sound (1957) 1989, Original Jazz Classics [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107884.jpg" />
 </div>
 
 

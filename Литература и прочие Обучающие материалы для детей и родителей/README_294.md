@@ -1,3 +1,55 @@
+###  Публикация: 1170291   (400598) от 30.09.2017
+
+Леда, Алфея| Царевна-Несмеяна  (2015) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия книг "Читаем по слогам" разработана для того, чтобы помочь в обучении детей чтению. Адаптированный текст поможет вашему ребенку с успехом приобщиться к волшебному миру литературы. Короткие предложения набраны крупным шрифтом, слова разделены на слоги, переносы слов отсутствуют. Всё это снижает напряжение, которым неизбежно сопровождается период обучения (   Читать дальше...   )Жанр: Обучение, развитиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:490230ABB515D7AF2DF9246688201356B99642AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169901   (400595) от 30.09.2017
+
+Бьянка Питцорно | Удивительное путешествие Полисены Пороселло (2013) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400595.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полисена и две ее сестренки – дочки преуспевающего купца. Но вот в своих фантазиях, особенно в те дни, когда мать наказывала ее за очередной проступок, Полисена не сомневалась, что она не родная дочь. Как говорится, мысли материальны. В один прекрасный день выясняется, что это правда. Но не в характере Полисены оставаться в неведении. Она немедля отправляется в путь. (   Читать дальше...   )Жанр: Детская проза, Детская литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7B3FD1C07D96D79C7BF04A9F6DADAF4E901CD5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1170264   (400594) от 30.09.2017
 
 Сергей Алексеев | Подвиг Ленинграда. 1941–1944 (2014) [FB2, EPUB]
@@ -6,7 +58,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400594.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400385.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400381.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные материалы для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400207.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399863.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399845.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399294.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398586.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398417.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398394.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397535.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397436.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397211.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396655.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396486.jpg" />
 </div>
 
 
@@ -406,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396484.jpg" />
 </div>
 
 
@@ -432,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395796.jpg" />
 </div>
 
 
@@ -459,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395756.jpg" />
 </div>
 
 
@@ -485,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395588.jpg" />
 </div>
 
 
@@ -512,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395579.jpg" />
 </div>
 
 
@@ -538,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395514.jpg" />
 </div>
 
 
@@ -564,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394780.jpg" />
 </div>
 
 
@@ -592,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394607.jpg" />
 </div>
 
 
@@ -618,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394596.jpg" />
 </div>
 
 
@@ -629,60 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82FBF6DBF617C78CDE4672E928CCAC742CF08517
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172099   (393834) от 07.10.2017
-
-Лайонел Бендер | Изобретения (1997) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393834.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга рассказывает удивительную историю появления хорошо знакомых нам вещей. На красочных фотографиях первые телескопы, старинные радиоприемники, солнечные часы и современные компьютеры. Рассмотрите их во всех подробностях! Вы увидите: телескоп Галилео Галилея, заводную бормашину, древнеримский калькулятор, крылья, впервые поднявшие человека в воздух. Вы узнаете: (   Читать дальше...   )Жанр: ЭнциклопедииФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF05627072636E623423DB8C47521DC4F0EB6A36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 568890   (392916) от 02.11.2012
-
-Эдуард Лабулэ | Сказки [1994] [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392916.jpg" />
-</div>
-
-
-###  Подробнее
-
-В очередной выпуск "Иллюстрированной библиотеки сказок для детей и взрослых" вошли сказки французского писателя Эдуарда Лабулэ (1811-1883), не известные нашему читателю.
-Памфлет-сказка "Принц-пудель" печатается в переводе Д.Писарева по журнальной публикации 1868 года. Текст более не воспроизводился ни в одном российском издании. Удивительные аналогии и злободневность этой сказочной сатиры должны поразить внимательного читателя, хотя писал великий сказочник все это более ста лет назад.
-Издание богато иллюстрировано рисунками, воспроизведенными с парижского издания книг: "Голубые сказки" и "Новые голубые сказки" Эдуарда Лабулэ, а также рисунками екатеринбургского художника Анатолия Демина.Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:067BF40E5C9F8D4E9268FBA012A088C375432FD6
 ```
 
 https://mybot314.ru/tekegram_catalog/

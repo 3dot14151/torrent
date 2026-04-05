@@ -1,3 +1,56 @@
+###  Публикация: 1734454   (50095) от 14.07.2024
+
+Полицейский из Беверли-Хиллз: Аксель Фоули / Beverly Hills Cop: Axel F (2024) WEB-DLRip [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детектив Аксель Фоули снова возвращается на улицы Беверли-Хиллз. После того, как жизнь его дочери Джейн оказывается в опасности, они объединяют силы с новым партнером, детективом Бобби Эбботом, и старыми приятелями — Билли Роузвудом и Джоном Тэггартом, чтобы задать жару негодяям и раскрыть преступный заговор.Производство: США / Don Simpson/Jerry Bruckheimer Films, Eddie Murphy ProductionsЖанр: боевик, триллер, комедия, криминалРежиссер: Марк МоллойАктеры: Эдди Мерфи, Джадж Райнхолд, Кевин Бейкон, Джозеф Гордон-Левитт, Джон Эштон, Бронсон Пиншо, Марк Пеллегрино, Пол Райзер, Тейлор Пейдж, Джеймс РоджерсПеревод: Дублированный (Videofilm Int., Postmodern), многоголосый (TVShows, LE-Production), двуголосый (ViruseProject), авторский (Михаил Яроцкий)Язык озвучки: русский, английский, украинскийСубтитры: русские (forced, full), английские (SDH), украинскиеПродолжительность: 01:55:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68CF1BC238432DD86CA6A1E42BA3B95ABBCBEB9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736322   (50065) от 14.07.2024
+
+Публичные каналы с аудиторией свыше 1000 человек в сутки обяжут передавать данные о себе в Роскомнадзор
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роскомнадзор считает справедливой и обоснованной инициативу властей по идентификации авторов публичных каналов (главным образом в Telegram) с аудиторией более 1000 пользователей. Ведомство напоминает, что анонимность в интернете ведёт к безответственности и часто распространению запрещённой информации.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1736480   (49971) от 15.07.2024
 
 Создан наноспутник с самым острым в России гиперспектральным "зрением"
@@ -6,7 +59,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49971.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49905.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49783.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49660.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ Microsoft отказалась от «повесточки»
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49579.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49554.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ Whitesnake - Live at Donington'1990 (2011) DVD9
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49164.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49156.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49135.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49050.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ Chernobylite (2019) [Ru/Multi] (s04/dlc) License GOG [Complete Edition] (обн�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49049.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48942.jpg" />
 </div>
 
 
@@ -322,7 +375,7 @@ $1000 в месяц: эксперимент Альтмана показал пл
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48922.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ Acronis True Image 2025 Build 41393 BootCD [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48733.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ Games Workshop | Warhammer: Citadel Colour Masterclass (2021-2024) WEBRip [EN, R
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48732.jpg" />
 </div>
 
 
@@ -400,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48634.jpg" />
 </div>
 
 
@@ -427,7 +480,7 @@ Kono Subarashii Sekai ni Shukufuku wo! 3 | Konosuba 3 | Да благослов�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48631.jpg" />
 </div>
 
 
@@ -454,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48630.jpg" />
 </div>
 
 
@@ -480,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48437.jpg" />
 </div>
 
 
@@ -506,7 +559,7 @@ Kaspersky Free 21.18.5.438 Repack by LcHNextGen (01.08.2024) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48243.jpg" />
 </div>
 
 
@@ -532,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48221.jpg" />
 </div>
 
 
@@ -558,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48140.jpg" />
 </div>
 
 
@@ -584,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48137.jpg" />
 </div>
 
 
@@ -610,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48119.jpg" />
 </div>
 
 
@@ -621,58 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 8900   (47924) от 04.08.2024
-
-Евгений Гришковец "Дредноуты" (2001) DVDRip [Спектакль]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47924.jpg" />
-</div>
-
-
-###  Подробнее
-
-На войне мужчины совершали героические поступки. Воевали так, будто уже умерли. И умирали так, будто в войне для них заключался смысл жизни. А ведь можно было просто приспустить флаг, и не было бы боя. Мужчинам, оказывается, важно иметь шанс умереть на войне. И не в своем собственном виде (маленького, толстого и лысого или высокого, худого и уродливого), а в образе (   Читать дальше...   )Жанр: СпектакльПеревод: ОригинальныйПродолжительность: 119 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:390078859027AF0EDC7AFF611CA59CAA11A7998F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027893   (47922) от 04.08.2024
-
-Во все тяжкие / Breaking Bad (2008-2013) BDRip [H.264/720p] (сезон 1-5, серии 1-62 из 62) Кубик в Кубе
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Школьный учитель химии Уолтер Уайт узнаёт, что болен раком лёгких. Учитывая сложное финансовое состояние дел семьи, а также перспективы, Уолтер решает заняться изготовлением метамфетамина. Для этого он привлекает своего бывшего ученика Джесси Пинкмана, когда-то исключённого из школы при активном содействии Уайта. Пинкман сам занимался «варкой мета», но накануне, (   Читать дальше...   )Производство: США, High Bridge Productions, Gran Via Productions, Sony Pictures TelevisionЖанр: триллер, драма, криминалРежиссер: Мишель Максвелл МакЛарен, Адам Бернштейн, Винс ДжиллигэнАктеры: Брайан Крэнстон, Анна Ганн, Аарон Пол, Дин Норрис, Бетси Брандт, АрДжей Митт, Боб Оденкёрк, Джанкарло Эспозито, Джонатан Бэнкс, Стивен Майкл Квезада, Кристофер Казинс, Чарльз Бэйкер и др.Перевод: профессиональный двухголосый - Кубик в КубеЯзык озвучки: Русский, английскийСубтитры: русские (forced, full), английскиеПродолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD9103FF98388D44E316E80394C95B9338B0F596
 ```
 
 https://mybot314.ru/tekegram_catalog/

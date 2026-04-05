@@ -1,3 +1,29 @@
+###  Публикация: 1509908   (792937) от 14.11.2021
+
+Джеральд Даррелл | Говорящий сверток (2021) [MP3, Алексей Багдасаров]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792937.jpg" />
+</div>
+
+
+###  Подробнее
+
+Братья Питер и Саймон и их кузина Пенелопа проводят лучшие на свете каникулы в Греции. Найдя на берегу свёрток, разговаривающий человеческими голосами, друзья знакомятся с министром волшебной страны Попугаем и его домоправительницей паучихой Дульчинеллой. Волшебные существа изгнаны со своей сказочной родины злыми василисками, опасность нависла над страной Мифландией (   Читать дальше...   )Жанр: Детская литература/СказкаПеревод: Наталия РахмановаПродолжительность: 06:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B92DBA911AFDAAC991151EFC9BE7601D22E093E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1509876   (792931) от 14.11.2021
 
 Эми Тимберлейк | Скунс и Барсук (2021) [MP3, Игорь Князев]
@@ -6,7 +32,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792931.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792642.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792575.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ VA - The Mozart Effect - Music for Children, Vol.1 Tune Up Your Mind (1997) [MP3
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792469.jpg" />
 </div>
 
 
@@ -117,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791853.jpg" />
 </div>
 
 
@@ -146,7 +172,7 @@ VA - The Mozart Effect - Music for Babies, Vol.2 Nighty Night (2000) [MP3|320 Kb
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791792.jpg" />
 </div>
 
 
@@ -175,7 +201,7 @@ VA - Сlassics fur mein Bаby (4CD) (2008) [FLAC|Lossless]<Classical>
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791741.jpg" />
 </div>
 
 
@@ -204,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791078.jpg" />
 </div>
 
 
@@ -231,7 +257,7 @@ VA - The Mozart Effect - Music for Children, Vol.2 Relax, Daydream, & Draw (1997
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790047.jpg" />
 </div>
 
 
@@ -260,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787632.jpg" />
 </div>
 
 
@@ -286,7 +312,7 @@ Oбработка Александра Афанасьева | Русские н�
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787386.jpg" />
 </div>
 
 
@@ -312,7 +338,7 @@ Stephan North - Pregnancy (2001) [MP3|320 Kbps]<Детская музыка, Rel
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786767.jpg" />
 </div>
 
 
@@ -341,7 +367,7 @@ Jim Brickman - Piano Lullabies - Baby's Bedtime Favorites (2012) [MP3|320 Kbps]<
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786744.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Twinkle Twinkle Little Rock Star - Lullaby Versions of Lynyrd Skynyrd (2015) [MP
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786589.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ VA - Избранные классические произведения (2011)
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786554.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786341.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785599.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785164.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785163.jpg" />
 </div>
 
 
@@ -538,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785160.jpg" />
 </div>
 
 
@@ -567,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785158.jpg" />
 </div>
 
 
@@ -596,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784889.jpg" />
 </div>
 
 
@@ -625,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784783.jpg" />
 </div>
 
 
@@ -654,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784781.jpg" />
 </div>
 
 
@@ -683,7 +709,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784592.jpg" />
 </div>
 
 
@@ -697,35 +723,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EEB11D0CCCC1E69C60BBD64451CC1044609051DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389376   (784590) от 10.06.2020
-
-Владимир Львовский - Мы фигуры негативные (2008) [MP3|320 Kbps]<Детские песни и минусовки>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01+/-11. Атаманша ждет реванша
-02+/-12. Карабас-барабас - музыкальный магнат
-03+/-13. Кикимора-кокеточка
-04+/-14. Лешему лапши не вешать(   Читать дальше...   )Жанр: Детские песни и минусовкиПродолжительность: 01:08:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:571D98D1A497B96D2B5D27A37AB5AA9B4638D9F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

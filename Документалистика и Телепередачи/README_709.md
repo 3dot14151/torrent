@@ -1,3 +1,159 @@
+###  Публикация: 1195442   (141825) от 29.12.2017
+
+Эволюция Метала / Metal Evolution (2011-2014) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-12 из 12)
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждая из 12 серий этого проекта от канадских документалистов Сэма Данна и Скота Макфадьена, будет посвящена отдельной специфической области звука и культуры хэви-метал. Премьерный эпизод «Эволюции метала» поведает об эпохе до метала и о самых ранних зачатках метала, которые можно услышать в музыке Led Zeppelin, Deep Purple и Джими Хендрикса. В последующих эпизодах (   Читать дальше...   )Производство: КанадаЖанр: ДокументальныйРежиссер: Sam Dunn, Scot McFadyenПеревод: Переводман/одноголосый закадровый, любительский (М.Чадов)Субтитры: Русские (+ форсированные / анимированные)Продолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:957791715D3D0CC740144F723EC260960683A692
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348767   (141714) от 29.12.2019
+
+Первая передача на НТВ. Автомобильная передача (29.12.2019) SATRip
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141714.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Первая передача» — это познавательный проект про автомобилистов и для автомобилистов — для тех, что хочет из простого автолюбителя стать автопрофессионалом!Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:26:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:109B7F1ACD5D7D4131F1C0C9C980D45D8F26D35E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348769   (141712) от 29.12.2019
+
+Чудо техники с Сергеем Малозёмовым (29.12.2019) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прощай, декада! «Чудо техники» и Сергей Малозёмов подвели итоги уходящего десятилетия и вспомнили самые знаковые и технологичные события: как светодиодные лампочки смогли затмить все остальные, а роботы стали повседневной реальностью, и почему смартфон заменил собой фотоаппарат, плеер и живое общение, сделав нас цифрозависимыми.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:39:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E33D1D5EAE726B2FB572D4891EA286CCE9E23F49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678780   (141695) от 23.11.2023
+
+Котики / Cat Daddies (2022) WEBRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141695.jpg" />
+</div>
+
+
+###  Подробнее
+
+Истории о домашних питомцах не только смешные и веселые, они рассказывают об ответственности, любви и тепле, которые дарят друг другу пушистые «дети» и их «папы». В частности, зрители познакомятся с бездомным Дэвидом и его котиком Счастливчиком, пожарным котом Флеймом, любимцем профессионального каскадера Туддлсом, а также хвостатыми любимцами учителя, актера, инженера, (   Читать дальше...   )Производство: США / Gray Hat ProductionsЖанр: документальный, фильм о животныхРежиссер: Май ХоанУчастники: Нэйтан Кен, Райан Робертсон, Дэвид Дерст, Уилл Цвайгарт, Джордан Лайд, Питер МаресПеревод: Дублированный (Moygolos)Язык озвучки: РусскийСубтитры: Русские (forced-hardsub)Продолжительность: 01:28:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEA0136C843F0B84BDF1F02695EE802B387919A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520571   (141685) от 28.12.2021
+
+Рождество в гостях у Тюдоров с Люси Уорсли / A Merry Tudor Christmas with Lucy Worsley (2019) WEBRip [H.264/720p-LQ)
+
+>>Документалистика и Телепередачи
+>>История
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141685.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для нас Рождество – это время традиций, старинных обычаев и символов. Но если мы перенесёмся на 500 лет назад, в эпоху правления Генриха VIII, мы не увидим многое из того, что так важно для современного Рождества. У Тюдоров не было ни рождественских ёлок, ни хлопушек, ни чулок с подарками. А если отбросить все обычаи, придуманные с тех пор, как же выглядело тогда (   Читать дальше...   )Производство: Великобритания, Burning Bright Productions для BBCЖанр: документальный, история, исследованияРежиссер: Петер СуисиПеревод: двуголосый профессиональный (СВ-Дубль)Субтитры: отсутствуютПродолжительность: 00:55:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C2043752B52FD1BDE9B8FE4BCEABCFB7D93587B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348788   (141661) от 29.12.2019
+
+Три Пьеты Микеланджело / Michelangelo's Three Pietas (2016) DVB
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141661.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гений Микеланджело вобрал в себя множество талантов, но истинной страстью великого художника был камень. Несмотря на многие достижения Микеланджело, главной темой его творческого пути, образом, к которому он возвращался снова и снова, была Пьета. Образ матери, девы Марии, которая держит на руках тело своего сына, снятого с креста, настолько сильно трогал Микеланджело, (   Читать дальше...   )Производство: Италия, ВеликобританияЖанр: Документальный, искусствоРежиссер: Марко Беллоне, Джованни КонсонниПеревод: Двуголосый закадровый, профессиональный (СВ-Дубль)Субтитры: отсутствуютПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:875FC11A12C28929F55F637BF5BF172DEB81E323
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435643   (141618) от 29.12.2020
 
 Республика Казахстан (2013) HDTV [H.264/1080i]
@@ -6,7 +162,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141618.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141615.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141583.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141580.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141576.jpg" />
 </div>
 
 
@@ -137,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141575.jpg" />
 </div>
 
 
@@ -163,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141543.jpg" />
 </div>
 
 
@@ -189,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141522.jpg" />
 </div>
 
 
@@ -215,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141494.jpg" />
 </div>
 
 
@@ -241,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141477.jpg" />
 </div>
 
 
@@ -267,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141465.jpg" />
 </div>
 
 
@@ -293,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141459.jpg" />
 </div>
 
 
@@ -319,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141406.jpg" />
 </div>
 
 
@@ -345,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141397.jpg" />
 </div>
 
 
@@ -372,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141394.jpg" />
 </div>
 
 
@@ -398,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141371.jpg" />
 </div>
 
 
@@ -424,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141350.jpg" />
 </div>
 
 
@@ -450,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141327.jpg" />
 </div>
 
 
@@ -476,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141325.jpg" />
 </div>
 
 
@@ -503,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141166.jpg" />
 </div>
 
 
@@ -514,165 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FD0B3A3A4B78D92D77E192CEFEC7AE8A978EAC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435979   (141141) от 29.12.2020
-
-Настоящая зима в Санкт-Петербурге / One Wonderful Winter in Saint Petersburg (2018) WEBRip [VP9/2160p]
-
->>Документалистика и Телепередачи
->>Релакс / Relax
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141141.jpg" />
-</div>
-
-
-###  Подробнее
-
-Февраль зимы 2018 выдался действительно удивительно красивым и настоящим - снежным, морозным, солнечным.Производство: РоссияЖанр: Документальный, видовойРежиссер: Виталий КарповичПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:03:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1D15E04CEE6E3F7A23373F18E75AFA13D5CCE6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088372   (141021) от 30.12.2016
-
-Вечерний Ургант (2016.12.30) SATRip (cезон 10, выпуск 78)
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:42:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D9BAAAAD6A5DE156755BF264510791D4E3BEC20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 853763   (140941) от 30.12.2014
-
-Дятьковский хрусталь  (2013) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140941.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хрусталь пленяет бриллиантовым блеском, поражает чистотой и изяществом форм. А технология его производства остается неизменной вот уже много веков. Хрусталь хрупок и податлив одновременно. Чтобы овладеть искусством его обработки, нужны годы кропотливого труда, верный глаз и твердая рука. От мельчайшей песчинки кварца до готового изделия долгий путь. Проследите за (   Читать дальше...   )Жанр: ДокументальныйПродолжительность: 00:22:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93C50FEFF8E3D1DA02705DCC6C3712E250F9921B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520585   (140749) от 29.12.2021
-
-Клоуны и дети (1977) WEBRip [H.264]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140749.jpg" />
-</div>
-
-
-###  Подробнее
-
-В гости к заболевшему ребенку приходит клоун. Перед малышом разворачивается яркое представление, которое помогает ему обрести бодрость духа, необходимую для его выздоровления.
-
-Режиссер Митта выложил в сеть ранее не публиковавшийся документальный фильм "Клоуны и дети", снятый в 1977-м году, где демонстрируется реакция детей на клоунов.
-Изюминкой фильма (   Читать дальше...   )Производство: МосфильмЖанр: документальныйРежиссер: А. МиттаПродолжительность: 00:29:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99FDC89386C929740D1298ADF7C6D512646C9D4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272873   (140705) от 29.12.2018
-
-Голос. Перезагрузка (2018.12.28) HDTV [H.264/1080i-LQ] (сезон 7, выпуск 12)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140705.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из самых ярких шоу-проектов в очередной раз продемонстрирует невероятные результаты от альянса обладателей незаурядных голосов и опытных наставников, позволяющих талантам раскрыться и расцвести. Великолепные голоса, уникальные музыкальные постановки, молодые и не очень участники, которым придется испытать радость творчества, счастье триумфа и слезы поражения (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ТВ-шоуСубтитры: отсутствуютПродолжительность: 01:40:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DB982DE875692C5695AD68BEBB96F6AE09E9B4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195793   (140639) от 30.12.2017
-
-Научное расследование Сергея Малозёмова. Еда живая и мертвая (2017.12.30) WEB-DL [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140639.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Еда живая и мертвая» – новый научно-популярный цикл Сергея Малозёмова, репортера с медицинским образованием, автора и ведущего программы «Чудо техники» и научных расследований о климате, технологиях, бессмертии и экологии.Телекомпания: НТВ HDЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:44:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:007F97D3213C3FFA8C3BBBCFBCBF8031BD3AE3F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

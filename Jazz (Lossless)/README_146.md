@@ -6,7 +6,7 @@ Simona Parrinello - Con Alma (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569102.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ The Red Mitchell-Harold Land Quintet - Hear Ye! (1961) 1989, Atlantic [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569070.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Phil Ranelin - Collected Works (2003 - 2019) 2CD, 2019, Wide Hive Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569069.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Philly Joe Jones - Six Classic Albums (1956 - 1960) 4CD, 2012, Real Gone Jazz [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569019.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Naomi & Goro - Bossa Nova Songbook 1 & 2 (2008,2009) [FLAC|Lossless|image + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568933.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Bohuslan Big Band - Dont Fence Me In (2011) [FLAC|Lossless]<Modern Big Band, Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568869.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Jimmy Smith - Stay Loose (1968) /2000, Verve/[FLAC|tracks+.cue]<Jazz, Hard Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568354.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Jacques Loussier - Bach to the future (Jacques Loussier Trio) (1986) [FLAC|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568188.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Freddie Redd - In Sweden (1955, 1956) 2007, Lone Hill Jazz[FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567589.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Buck Clayton - Tenderly (1959) 2009, Inner City Records [FLAC|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567587.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Rez Abbasi - Bazaar (2006) [FLAC|Lossless|tracks + .cue] <Fusion, Indian Classic
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567566.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Yusef Lateef - The Golden Flute (1966) 2004, Universal [APE|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567505.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Shirley Scott - Blue Seven (1961) 2000, Original Jazz Classics [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567503.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Maynard Ferguson - The Complete Roulette Recordings Of The Maynard Ferguson Orch
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567491.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Rymden - Reflections & Odysseys (2019) [FLAC|Lossless|tracks + .cue] <Contempora
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567452.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Jimmy Smith - 5 Original Albums (1959 - 1965) 5CD, Universal, 2018 [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567446.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Pearl Django - Live (2019) Modern Hot Records [FLAC|Lossless|tracks + .cue] <Swi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567344.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Claude Thornhill - Snowfall (2000) [FLAC|Lossless]<Swing, Bop, Big Band>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567153.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Stephane Grappelli & Yo Yo Ma - Anything Goes { Grappelli and Ma play (mostly) C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567052.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Claude Bolling & Yo-Yo Ma - Suite for Cello & Jazz Piano Trio (1984) [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566915.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Jimmy Smith - Cool Blues (1957) /2002, Blue Note/[FLAC|tracks+.cue]<Jazz, Hard B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566605.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Jacques Loussier Trio - Handel - Water & Fireworks Music (2006) [FLAC|image +.cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566454.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Illinois Jacquet - The Illinois Jacquet Story: Flying Home (1944 - 1951) 2002, P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566008.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Teddy Wilson - Stomping At The Savoy (1969 - 1971) 1991, Black Lion [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566006.jpg" />
 </div>
 
 
@@ -716,7 +716,7 @@ Lisa Casalino - Introducing Lisa Casalino (2011) Lisa Casalino Entertainment [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565795.jpg" />
 </div>
 
 
@@ -745,7 +745,7 @@ Phil Woods And His European Rhythm Machine - At The Frankfurt Jazz Festival (197
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565656.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Wasurenagumo | Li'l Spider Girl | Паучонок [2012, Special] BDRip 1080p H
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32405.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Bleach: Sennen Kessen Hen - Soukoku Tan | Bleach: Thousand-Year Blood War - The 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31968.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Nanatsu no Taizai: Mokushiroku no Yonkishi 2 | The Seven Deadly Sins: Four Knigh
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28103.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Rescue Me! | Спаси меня! [2013, OVA] BDRip 1080p 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27530.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Dokyuu Hentai HxEros | Super HxEros | Формирование извращён�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27484.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Sakamoto Days | Дни Сакамото [2025, TV, 11 из 11 эп.] WEBRip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23711.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Honey Lemon Soda | Сладкий лимонад [2025, TV, 12] WEB-DL 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23380.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Thunderbolt Fantasy: Seishi Ikken | Thunderbolt Fantasy: The Sword of Life and D
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22794.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Juusenki L-Gaim I: Pentagona Window + Lady Gavlet | Heavy Metal L-Gaim I: Pentag
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22475.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Juusenki L-Gaim III: Fullmetal Soldier | Heavy Metal L-Gaim III: Fullmetal Soldi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22462.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Devil May Cry (2025) | И дьявол может плакать (2025) [2025, W
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22431.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Thunderbolt Fantasy: Touri-ken Yuuki 3 | Thunderbolt Fantasy: Sword Seekers 3 | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22047.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Bloody Escape: Jigoku no Tousou Geki | Bloody Escape: Bats out of Hell | Кро�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20788.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Inazuma Eleven: Outer Code | Одиннадцать молний: Внешний
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20425.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Watashi no Shiawase na Kekkon 2 | My Happy Marriage 2 | Мой счастлив�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20111.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Ore dake Level Up na Ken | Solo Leveling | Поднятие уровня в од
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16319.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Dungeon Meshi | Delicious in Dungeon | Подземелье вкусностей
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16318.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Garo: Honoo no Kokuin / Garo the Animation / Гаро: Печать пламен
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16284.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Watashi no Shiawase na Kekkon | My Happy Marriage | Мой счастливый 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16248.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Kaii to Otome to Kamikakushi | Mysterious Disappearances | Загадочные 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16204.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Hibike! Euphonium 3 | Sound! Euphonium 3 | Играй, эуфониум! [ТВ-3
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16111.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Hamefura. Movie | Bakarina. Movie | Gekijouban Otome Game no Hametsu Flag shika 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16106.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Gekijouban Overlord: Sei Oukoku Hen | Overlord: The Sacred Kingdom | Повел�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15774.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Arifureta Shokugyou de Sekai Saikyou Season 3 | Arifureta: From Commonplace to W
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15760.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15755.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Kimi no Koto ga Dai Dai Dai Dai Daisuki na 100 Nin no Kanojo | The 100 Girlfrien
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15645.jpg" />
 </div>
 
 

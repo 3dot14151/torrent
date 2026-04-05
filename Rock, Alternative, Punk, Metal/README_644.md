@@ -1,3 +1,32 @@
+###  Публикация: 946955   (422567) от 15.10.2015
+
+Zebrahead - Walk The Plank (2015) Japanese Edition [MP3|320 кб/с]<Punk-Rock, Pop-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who Brings A Knife To A Gunfight?
+02. Worse Than This
+03. Headrush
+04. Keep It To Myself(   Читать дальше...   )Жанр: Punk-Rock, Pop-PunkПродолжительность: 00:47:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30155C663B71D55F50B66B5F0C22F4F0AE8869A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1250903   (422544) от 29.09.2018
 
 The Power Station - 2 Albums (1985, 1996) [MP3|320 Kbps] <Rock, Pop Rock>
@@ -6,7 +35,7 @@ The Power Station - 2 Albums (1985, 1996) [MP3|320 Kbps] <Rock, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422544.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Anaal Nathrakh - A New Kind Of Horror (2018) [MP3|320 Kbps] <Industrial Black Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422540.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Riverside - Wasteland (2018) Special Edition [FLAC|Lossless|tracks + .cue] <Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422460.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ White Lion - 8 Albums, 1 Box Set (1985 - 2020) 18 CD [FLAC|Lossless|image + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422421.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Rod Stewart - Blood Red Roses (2018) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422375.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Bakerloo - Bakerloo (1969) Reissue, 1993, Repertoire Records [MP3|320 Kbps] <Hea
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422062.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ FireForce - March On (2011) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421903.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Herman Frank - Loyal To None (2009) 2016 reissue [FLAC|Lossless|image + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421896.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Maureen & The Mercury 5 - Gimme Mo! (2017) [MP3|320 Kbps] <Rockabilly, Swing>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421785.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Hard Stuff / Bullet - 3 альбомa, 5CD (1972-2017) [FLAC|Lossless|image + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421784.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ The Hardkiss - Залізна ластівка (2018) [MP3|320 kbps] <Alternativ
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421735.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Led Zeppelin - Led Zeppelin x Led Zeppelin (2018) Remastered [MP3|320 Kbps] <Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421733.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Eden's Curse - Cardinal (2016) Jараnеsе Еditiоn [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421641.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Tyketto - Reach (2016) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421631.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Foo Fighters - Concrete And Gold (2017) [FLAC|Lossless|tracks + .cue] <Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421585.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Chaos Divine - Africa (2012) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421503.jpg" />
 </div>
 
 
@@ -469,7 +498,7 @@ Inner Visions - Control The Past (2004) [APE|Lossless|image + .cue] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421502.jpg" />
 </div>
 
 
@@ -498,7 +527,7 @@ Echoes of Eternity - The Forgotten Goddess (2007) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421500.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ Domine - Dragonlord (Tales Of The Noble Steel) (1999) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421497.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ Enslaved - Vikingligr Veldi & Hordanes Land (2004) 2CD [WavPack|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421496.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ Domine - Stormbringer Ruler - The Legend Of The Power Supreme (2001) Japan [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421495.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ Domine - Ancient Spirit Rising (2007) Japan [FLAC|Lossless|image + .cue] <Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421494.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ Marillion - F E A R (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421480.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_421450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_421450.jpg" />
 </div>
 
 
@@ -706,7 +735,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421413.jpg" />
 </div>
 
 
@@ -720,35 +749,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54471AFA6220A2FFEB5438867D6D9B1B103771B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572424   (421376) от 27.08.2022
-
-Cavalera Conspiracy - Сollection (2008-2017) 4CD [FLAC|Lossless|tracks + .cue] <Groove Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421376.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cavalera Conspiracy — Бразильско-Американская метал-группа, образованная братьями Игорем Кавалерой (ударные) и Максом Кавалерой (ритм-гитара, вокал). Помимо них, в группе принимает участие Марк Риццо (соло-гитара).Список альбомов:
-2008 - Inflikted
-2011 - Blunt Force Trauma
-2014 - Pandemonium(   Читать дальше...   )Жанр: Groove Thrash MetalПродолжительность: 03:02:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E93379AFC4913D64671D27F9803FFA48D4F043F
 ```
 
 https://mybot314.ru/tekegram_catalog/

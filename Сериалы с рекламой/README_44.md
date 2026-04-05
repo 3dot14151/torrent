@@ -1,3 +1,55 @@
+###  Публикация: 1686289   (126500) от 23.12.2023
+
+Лолита Лобоско расследует / Le indagini di Lolita Lobosco / The Investigations of Lolita Lobosco (2023) HDTVRip [H.264/1080p] (сезон 2, серии 1-6 из 6) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126500.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лолита Лобоско после нескольких лет, проведённых в Леньяно, возвращается в свой родной город Бари, где её назначают заместителем начальника городского полицейского отделения. Возглавляя мужской коллектив, женщина не боится подчеркивать свою женственность, в том числе высокими шпильками и смелыми декольте. В раскрытии преступлений её также отличает свой неповторимый (   Читать дальше...   )Производство: Италия / Rai CinemaЖанр: триллерРежиссер: Лука МиньероАктеры: Луиза Раньери, Франческо Де Вито, Камилла Диана, Бьянка Наппи, Филиппо Шиккитано, Маурицио Донадони, Джампьеро Ротоли, Якопо Каллин, Giulia Fiume, Сьюзи Дель Гьюдиче и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~01:40:00 серияРеклама: Присутствуют видео вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:787EB3915F5D89E3FF6B070DB2B71DBFBA500C05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823962   (126057) от 13.10.2025
+
+Мертвые девушки / Las muertas (2025) WEBRip (сезон 1, серии 1-6 из 6) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126057.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основан на романе Хорхе Ибаргуэнгойтиа и реальных событиях в Мексике 1960-х. В центре — сёстры Баладро, которые начали с управления публичными домами, а в итоге стали одними из самых жестоких серийных убийц в истории страны.Производство: Мексика / Bandidos Films, Jaibol FilmsЖанр: триллер, драма, криминал, биографияРежиссер: Луис ЭстрадаАктеры: Флор Едуарда Гуррола, Хуан Карлос Ремолина, Паулина Гайтан, Арселия Рамирес, Хоакин Косио, Маурицио Исаак, Ессика Боррото Перримен, Patricia Loranca, Альфонсо Эррера, София Эспиноса и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~01:10:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1AB34AD25764E1788AC2815D7C33663CAD26BE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1687189   (125977) от 25.12.2023
 
 Ваша честь / Vostro onore (2022) HDTVRip (сезон 1, серии 1-8 из 8) ViruseProject [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125977.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125749.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125596.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125568.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125463.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125450.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124299.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124270.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123790.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123779.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123685.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123680.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123676.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123654.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123322.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123312.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122804.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122799.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122376.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122374.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122278.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122274.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122051.jpg" />
 </div>
 
 
@@ -613,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122032.jpg" />
 </div>
 
 
@@ -625,62 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:010CBE62B556513A95E561F9317E97152004A320
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694352   (120490) от 28.01.2024
-
-Одна ночь / One Night (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-6 из 6) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда новый роман Симоны становится сенсацией, ее мгновенный успех превращается в настоящий кошмар, разрушающий жизнь ее самой и двух ее ближайших подруг. Их дружба подвергнется испытанию, ведь история нового романа основана на мрачной тайне, которой Симона не должна была знать…Производство: Австралия / Motive Pictures, Easy Tiger Productions, Paramount+Жанр: драмаРежиссер: Лиза Мэтьюз, Катрин МилларАктеры: Николь Да Силва, Mikaela Binns-Rorke, Bridgette Armstrong, Яэль Стоун, Джоди Уиттакер, Bella Ridgway, Джордж Мэйсон, Кэт Стюарт, Harper Simon, David Howell и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:50:00 серияРеклама: Присутствуют видео вставки рекламы, всплывающий баннер
-
-Внимание!! Присутствует ненормативная лексика 18+
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2122CA602338CACC3EE64E35E0641FA0EFA686C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694353   (120487) от 28.01.2024
-
-Одна ночь / One Night (2023) WEBRip (сезон 1, серии 1-6 из 6) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120487.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда новый роман Симоны становится сенсацией, ее мгновенный успех превращается в настоящий кошмар, разрушающий жизнь ее самой и двух ее ближайших подруг. Их дружба подвергнется испытанию, ведь история нового романа основана на мрачной тайне, которой Симона не должна была знать…Производство: Австралия / Motive Pictures, Easy Tiger Productions, Paramount+Жанр: драмаРежиссер: Лиза Мэтьюз, Катрин МилларАктеры: Николь Да Силва, Mikaela Binns-Rorke, Bridgette Armstrong, Яэль Стоун, Джоди Уиттакер, Bella Ridgway, Джордж Мэйсон, Кэт Стюарт, Harper Simon, David Howell и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:50:00 серияРеклама: Присутствуют видео вставки рекламы, всплывающий баннер
-
-Внимание!! Присутствует ненормативная лексика 18+
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80DD6F8DEF4FBD0952CF10560ED46BF5419AD7EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

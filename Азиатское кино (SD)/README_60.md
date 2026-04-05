@@ -1,3 +1,55 @@
+###  Публикация: 1691153   (123438) от 11.01.2024
+
+Токийские мстители 2: Кровавый Хэллоуин - Судьба / Tokyo Revengers 2: Bloody Halloween - Destiny (2023) HDRip [H.264] [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сиквел первого фильма. Возлюбленная Такемичи - Хината - убита на его глазах разъяренной бандой Мандзикай. Такемичи приходится снова отправиться в прошлое на десять лет назад, чтобы спасти девушку. Ключ к ее спасению кроется в печальном происшествии, произошедшем с шестью мужчинами, позже образовавших банду Мандзикай.Производство: Япония / Fuji Television Network Inc. Kadokawa Pictures, Kodansha Ltd. Warner Bros.Жанр: криминал, боевик, фантастикаРежиссер: Цутому ХанабусаАктеры: Такуми Китамура, Юки Ямада, Рё Ёсидзава, Кэйта Араи, Сётаро Мамия, Нидзиро Мураками, Кэнто Нагаяма, Ёсукэ Сугино, Махиро ТакасугиПеревод: Авторский (Александр Смирнов | 18+)Язык озвучки: русский, японскийСубтитры: английскиеПродолжительность: 01:30:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F1C15C2EB755733B16E701C716467FB2D62C383
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691915   (122952) от 14.01.2024
+
+Никогда не говори «никогда» / Ba jiao long zhong / Never Say Never (2023) WEB-DLRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122952.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сян Тэнхуэй организует школу боевых искусств для обездоленных детей и вкладывает всю душу в их воспитание, давая им проблеск надежды на будущее. Однако в сеть просачиваются видеозаписи прошлых выступлений со сценами, которые выглядят жестокими, и это накаляет общественное мнение. Жизнь Сян Тэнхуэя и будущее детей оказывается в руках людей, утверждающих, что они действуют (   Читать дальше...   )Производство: Китай / Beijing Happy Pictures Cultural Communications Co., Tianjin Maoyan Weying Media, Tumxuk Sunflower Pictures, Wuxi Baotang PicturesЖанр: спорт, драма, боевикРежиссер: Ван БаоцянАктеры: Баоцян Ван, Чэнь Юншэн, Ши Пэнъюань, Ван Сюнь, Итун Чжан, Ху Хаофань, Ху Ма, Дебовен Чжоу, Бао Чжэньцзян, Чи ПэнПеревод: Многоголосый любительский (Синема УС)Язык озвучки: русский, китайскийСубтитры: английские, китайские (hardsub)Продолжительность: 01:56:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE918E2816C3ACD9C5166E75358EEEB4D276A1EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691864   (122942) от 14.01.2024
 
 Монстр / Kaibutsu / Monster (2023) WEB-DLRip [H.264] [MVO]
@@ -6,7 +58,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122942.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122930.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122662.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122611.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122392.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122385.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122030.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121932.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121125.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120564.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120488.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120365.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120291.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118816.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118803.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118650.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117687.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116569.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115342.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114662.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114091.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113204.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112433.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112010.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:996A0786C63FD416C9419BE858C6EA078EB092E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713872   (111815) от 07.04.2024
-
-Четыре сестры / Shimaizaka (1985) BDRip [H.264] [JP / RU Sub]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четырёх сводных сестёр связывает необычайно тесная связь в бурные времена послевоенной Японии...Производство: Япония / Toho PicturesЖанр: драмаРежиссер: Нобухико ОбаясиАктеры: Мисако Конно, Ацуко Асано, Ясуко Савагути, Ясуко Томита, Юмико Фудзита, Вакаба Ириэ, Акико Китамура, Тору Минэгиси, Итирота Миякава, Тосинори ОмиПеревод: субтитры (DanuuJI)Язык озвучки: японскийПродолжительность: 01:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1995A72A016DEADF6E09C938B2DBFF2E6978F0C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715961   (111483) от 13.04.2024
-
-Лающие собаки никогда не кусают / Peullandaseuui gae / Barking Dogs Never Bite (2000) BDRip [H.264]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111483.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм про неработающего лектора колледжа, которого раздражает лай собак в его многоквартирном доме, и он прибегает к похищению и убийству их. Тем временем, молодая женщина, работающая в жилом комплексе, решает расследовать это дело после того, как она начинает получать уведомления от арендаторов о пропавших собаках.Производство: Южная Корея / CJ Entertainment, Cinema Service, Uno FilmЖанр: комедияРежиссер: Чжун Хо ПонАктеры: Сон Чжэ Ли, Ду На Пэ, Хо Чон Ким, Хи Бон Бён, Су Хи Го, Рве Ха Ким, Хёк Пун Квон, Джин Гу Ким, Джон Сон СонПеревод: дублированныйЯзык озвучки: русский, корейскийСубтитры: русские, английскиеПродолжительность: 01:50:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADB2358B988EE1DE1737DA70C8658290F9B02426
 ```
 
 https://mybot314.ru/tekegram_catalog/

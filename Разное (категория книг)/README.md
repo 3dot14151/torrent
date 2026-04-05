@@ -1,4 +1,59 @@
 https://t.me/izofen
+###  Публикация: 1862639   (1063520) от 
+
+диакон Андрей Кураев | Священные войны православного мира (2025) [FB2, EPUB, PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга протодиакона Андрея Кураева «Священные войны православного мира» посвящена исследованию феномена религиозного насилия и оправдания войны в истории и богословии православия. Автор рассматривает, как церковь на протяжении веков относилась к войнам – от Византии и Древней Руси до новейшего времени. В центре внимания – противоречие между евангельской заповедью (   Читать дальше...   )Жанр: ПравославиеИздательство: BAbookФормат: FB2, EPUB, PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CF52BDCD32131CE43422909FDDFFC83267A2593
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862612   (1063327) от 
+
+Шон О’Коннелл | Брюс Уиллис. Жизнь и творчество Крепкого орешка (2026) [PDF, FB2, EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063327.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он вошёл в историю кино босиком по битому стеклу и навсегда изменил жанр боевика.
+От сомнений и проб в Нью-Йорке до статуса живой легенды.
+От ролей, которые ему отказывались давать, до ролей, которые писались для него.
+Брюс Уиллис не просто актёр – это феномен. Он говорит одно, а глаза показывают другое: за ухмылкой – усталость, за крутизной – боль, а за молчанием (   Читать дальше...   )Жанр: Биографии и мемуарыПеревод: Антон РытвинИздательство: БомбораФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B2FECFDDD92FDF993BE9D117F91CE969C45819F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1862068   (1062983) от 
 
 Наталия Куцаева | Первая православная энциклопедия (2025) [PDF]
@@ -7,7 +62,7 @@ https://t.me/izofen
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062983.jpg" />
 </div>
 
 
@@ -33,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062982.jpg" />
 </div>
 
 
@@ -51,32 +106,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861615   (1062772) от 
-
-СЗКЭО (изд.) | Библия изложенная для семейного чтения (2026) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062772.jpg" />
-</div>
-
-
-###  Подробнее
-
-Библия на протяжении всей человеческой истории остается главным источником познания Бога и Его творения — видимого и невидимого миров. Тысячи поколений изучают это Божественное Откровение, чтобы найти в нем ответы на главные вопросы бытия, чтобы отличать добро от зла и познать истину существования. «Библия, изложенная для семейного чтения» — это адаптированный пересказ (   Читать дальше...   )Жанр: Религиозная литература. Книги Священного Писания. БиблияИздательство: Издательство Сретенского монастыря и СЗКЭОФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6522FD9780316AB81860D1F22F8B55BA96CB3E95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1861260   (1062606) от 
 
 Мартин Джеймс | The Prodigy. Мы живём ритмом. История группы из первых уст (2026) [PDF]
@@ -85,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062606.jpg" />
 </div>
 
 
@@ -112,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062593.jpg" />
 </div>
 
 
@@ -138,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062527.jpg" />
 </div>
 
 
@@ -166,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062488.jpg" />
 </div>
 
 
@@ -194,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062487.jpg" />
 </div>
 
 
@@ -221,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062242.jpg" />
 </div>
 
 
@@ -247,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062240.jpg" />
 </div>
 
 
@@ -274,7 +303,7 @@ I. Schwenzer, C. Fountoulakis, M. Dimsey et al. | International Sales Law: A Gui
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062235.jpg" />
 </div>
 
 
@@ -303,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062181.jpg" />
 </div>
 
 
@@ -329,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062039.jpg" />
 </div>
 
 
@@ -356,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061642.jpg" />
 </div>
 
 
@@ -385,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061499.jpg" />
 </div>
 
 
@@ -411,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061498.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061497.jpg" />
 </div>
 
 
@@ -464,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061496.jpg" />
 </div>
 
 
@@ -491,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061492.jpg" />
 </div>
 
 
@@ -517,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061446.jpg" />
 </div>
 
 
@@ -545,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061444.jpg" />
 </div>
 
 
@@ -571,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061443.jpg" />
 </div>
 
 
@@ -597,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061349.jpg" />
 </div>
 
 
@@ -624,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060973.jpg" />
 </div>
 
 
@@ -650,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>На досуге
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060907.jpg" />
 </div>
 
 
@@ -662,32 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6DCC4442B618F46F706008226532C82E64AEA79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859053   (1060905) от 14.03.2026
-
-Альфред Косовский | Место преступления. Увлекательные детективные задачки для развития логики. Детективные головоломки (2025) [PDF]
-
->>Разное (категория книг)
->>На досуге
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060905.jpg" />
-</div>
-
-
-###  Подробнее
-
-Давно хотели попробовать себя в роли настоящего сыщика? Тогда вас ждет 40 увлекательных детективных головоломок, с которыми вы сможете испытать свою смекалку и интуицию! Хмурый охранник, подозрительный администратор отеля или скандальный журналист - кто убийца? Решать вам! В книге представлены задачки любого уровня: как для начинающих детективов, так и для специалистов (   Читать дальше...   )Жанр: Головоломки, Логика, ЭрудицияИздательство: ЭксмоФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:289E029D775EB485E46F26A06B05175D59E1664C
 ```
 
 https://mybot314.ru/tekegram_catalog/

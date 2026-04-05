@@ -1,3 +1,61 @@
+###  Публикация: 1110628   (852095) от 03.03.2017
+
+Manu Delago - Metromonk (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, World, Ambient, Hang>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Step (4:39)
+02. Between Oil And Water (4:55)
+03. Freeze (3:52)
+04. Pointillism (6:00)(   Читать дальше...   )Жанр: New Age, World, Ambient, HangПродолжительность: 00:47:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:118E70CA854E68EAC6622A71D2B5D164B16CBA11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110624   (852093) от 03.03.2017
+
+Light? - Pink & Grey (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, Traditional Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pink#1 (8:24)
+02. Pink#2 (6:14)
+03. Pink#3 (9:30)
+04. Grey#1 (11:07)(   Читать дальше...   )Жанр: New Age, Traditional ElectronicПродолжительность: 00:47:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0D1E302B6819583F358C4112E7D21C8765479CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110720   (852089) от 03.03.2017
 
 Guy Sweens - Karmic Journey (2017) [MP3|320 Kbps] <New Age, Ambient, World>
@@ -6,7 +64,7 @@ Guy Sweens - Karmic Journey (2017) [MP3|320 Kbps] <New Age, Ambient, World>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852089.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852053.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Anuna - Cynara (2001) [FLAC|Lossless|tracks + .cue] <Celtic, Folk>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852051.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Guy Sweens - Karmic Journey (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambie
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851961.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - The Best World Instrumental Hits (2009) Vol.1,2,3 (6CD) [FLAC|Lossless|trac
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851799.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Nicholas Gunn - Thirty - One Nights (2012) [FLAC|Lossless|tracks] <Brass & Milit
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850469.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Marco Beltrami - Logan / Логан (Original Motion Picture Soundtrack) (2017) 
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850242.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Marco Beltrami - Logan / Логан (Original Motion Picture Soundtrack) (2017) 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850184.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Armik - Enamor (2017) [FLAC|Lossless|image + .cue] <Flamenco, Acoustic guitar>
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850183.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Aesop Rock - Freedom Finger (Music from the Game) (2020) EP [FLAC|Lossless|Web-D
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850089.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Estas Tonne - Internal Flight (Guitar Version) 2013 [FLAC|Lossless|tracks] <Folk
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850049.jpg" />
 </div>
 
 
@@ -322,7 +380,7 @@ Diaspora - Meditation (1998) [MP3|320 Kbps] <Native American, Ethnic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849649.jpg" />
 </div>
 
 
@@ -351,7 +409,7 @@ Adrian Von Ziegler - Moonsong (2016) [FLAC|Lossless|WEB-DL|tracks] <Celtic Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848365.jpg" />
 </div>
 
 
@@ -380,7 +438,7 @@ Vangelis - Delectus (1973-1985)  Remaster, 2017, Universal International Music, 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848175.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ Gelka - Stardust Memories (2015) [MP3|128 кб/с] <Electronica>
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846832.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ Atom Music Audio - Blood Crave (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, 
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846600.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ Atom Music Audio - Leviathan: Monster Themes (2020) [MP3|320 Kbps] <Soundtrack, 
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846599.jpg" />
 </div>
 
 
@@ -496,7 +554,7 @@ VA - Somewhere My Love: Romantic Guitar  (1995) [FLAC|Lossless|image + .cue] <In
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846572.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ Atom Music Audio - Dystopia (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epi
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846538.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ Atom Music Audio - Heroes (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic 
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846537.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ VA - Одинокий пастух (2001) 2 альбома, Compilation [FLAC|Lo
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846509.jpg" />
 </div>
 
 
@@ -612,7 +670,7 @@ The Legend of Zelda 30th Anniversary Concert (2017) 2CD+DVD, Limited Edition [FL
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846311.jpg" />
 </div>
 
 
@@ -641,7 +699,7 @@ Robert Rodriguez & VA - Once Upon A Time In Mexico (2003) [FLAC|Lossless|tracks 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845099.jpg" />
 </div>
 
 
@@ -670,7 +728,7 @@ Bruce Becvar - Floating Home (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845052.jpg" />
 </div>
 
 
@@ -684,64 +742,6 @@ Bruce Becvar - Floating Home (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7D6DDEDA18C01900885184C9B0CB1EDDB240A3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003171   (845019) от 02.04.2016
-
-VA - Los clasicos argentinos Tango - Vol.08  - Roberto Goyenche: El cantor de Buenos Aires (1996) [MP3|128 кб/с] <Tango>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carlos Gardel - El dia que me quieras
-02. Floreal Ruiz - Por la vuelta
-03 Alberto Marino - Tres amigos
-04. Astor Piazzolla - Orgullo criollo(   Читать дальше...   )Жанр: TangoПродолжительность: 00:46:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3B9B7F01A586483ADD2077259563311927A23A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003061   (845012) от 02.04.2016
-
-Robert Rodriguez & VA - Once Upon A Time In Mexico (2003) [MP3|320 кб/с] <Score / Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Malaguena - Brian Setzer
-02. Traeme Paz - Patricia Vonne
-03. Eye Patch - Alex Ruiz
-04. Yo Te Quiero - Marcos Loya(   Читать дальше...   )Жанр: Score / SoundtrackПродолжительность: 00:51:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:709649576D1AD87A3917614E0E79EA3E9438D221
 ```
 
 https://mybot314.ru/tekegram_catalog/

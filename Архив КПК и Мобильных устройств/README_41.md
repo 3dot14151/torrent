@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_648917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_648917.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_648858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_648858.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Calls Blacklist PRO 1.05 [Программа] (Android 2.1+) - Блокиров�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_648801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_648801.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Sniffi 1.5.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647549.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Rotate The Cube 1.0 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647539.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ FRONTLINE COMMANDO:WW2 1.0.2.1 + КЭШ [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647438.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ MEGA 2.5.1 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647434.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Kung Fury: Street Rage 15 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647217.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_647144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_647144.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Portal Pinball 1.0.1 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647124.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Goat Simulator GoatZ 1.1.3 + КЭШ [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647067.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Hitman: Sniper 1.2.0 + КЭШ [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647016.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Viral (YouTube Pop-up HD) v3.9.4.2 Pro [Ru/Multi] - Функциональнны
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647008.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Blackmart  0.99.2.77B [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647007.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646905.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Goat Rampage PRO v2.0.5 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646148.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_645072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_645072.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Baidu Super Root 3.3.1 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644797.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_642415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_642415.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641807.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641517.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ RAM Manager Pro 7.3.1 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641503.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Hungry Shark Evolution 3.2.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641469.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641296.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Maleficent. Shooting Stars / Малефисента. Звездопад 2.1.0  [
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641269.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Hitman: Sniper 1.2.43823 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641147.jpg" />
 </div>
 
 

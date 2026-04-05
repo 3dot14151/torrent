@@ -6,7 +6,7 @@ NG: Затерянные сокровища Майя / Lost Treasures of the May
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846130.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BBC. Европа изнутри: десять лет смятения (деся
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845801.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NG: Дикая природа России / NG: Wild Russia (2009) HDTVRip (с�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845646.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845456.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ BBC: Замерзшая планета (Застывшая планета) / Fro
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845094.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Tехнологии, которые нас меняют / DSKNECTD: Is Technolog
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844663.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844273.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843107.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843098.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ NG. Бушующие миры: Смертоносная пыль / Storm Worlds:
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843019.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ NG: Марс: Один день на красной планете / Mars: One D
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842550.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ BBC: Исаак Ньютон: Последний чародей (Последн�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842013.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ National Geographic. Охотники на питонов. Нашествие з
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841531.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841425.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841424.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Discovery: Железная дорога Аляски  / Railroad Alaska (2016) 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841061.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ NG. Звездное выживание с Беаром Гриллсом / Runni
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840946.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Discovery: Золотая лихорадка / Gold Rush (2018) HDTV  [H.264/108
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_840741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_840741.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840688.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Discovery: Золотая лихорадка / Gold Rush (2019) HDTV [H.264/1080
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840627.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840150.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Discovery. Дороги России: Трасса Кола (2016) HDTVRip [720p
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839622.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Discovery. Смертельный улов / Deadliest Catch (2019) HDTVRip [H.2
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838923.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ DV: Из истории великих научных открытий / Great M
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838843.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838200.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837852.jpg" />
 </div>
 
 

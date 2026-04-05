@@ -1,29 +1,3 @@
-###  Публикация: 1349833   (1004032) от 03.01.2020
-
-Джим Хаттон | Меркьюри и я. Богемская рапсодия, любовь и котики (2019) [EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фредди Меркьюри — культовый артист, чьи невероятные сценические образы и неповторимая манера выступления до сих восхищают слушателей по всему миру. Но каким он был вне ослепительного света софитов? В 1983 году судьба случайно сводит Фредди Меркьюри с Джимом Хаттоном в одном из лондонских баров. С этого момента начинается удивительная история любви простого ирландского (   Читать дальше...   )Жанр: Биографии деятелей культуры и искусства, Музыкальные коллективыФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF73CF601DD069279A6FAAE107EB070FA5393009
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1487375   (1003595) от 05.08.2021
 
 О. Ю. Климов | Пергамское царство: проблемы политической истории и государственного устройства (2010) [PDF]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003595.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003444.jpg" />
 </div>
 
 
@@ -86,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003381.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003362.jpg" />
 </div>
 
 
@@ -138,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003292.jpg" />
 </div>
 
 
@@ -166,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002943.jpg" />
 </div>
 
 
@@ -192,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002745.jpg" />
 </div>
 
 
@@ -220,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001013.jpg" />
 </div>
 
 
@@ -246,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000992.jpg" />
 </div>
 
 
@@ -273,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000846.jpg" />
 </div>
 
 
@@ -300,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995038.jpg" />
 </div>
 
 
@@ -328,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994001.jpg" />
 </div>
 
 
@@ -356,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993277.jpg" />
 </div>
 
 
@@ -382,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993002.jpg" />
 </div>
 
 
@@ -408,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992572.jpg" />
 </div>
 
 
@@ -434,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991788.jpg" />
 </div>
 
 
@@ -461,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991142.jpg" />
 </div>
 
 
@@ -488,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991113.jpg" />
 </div>
 
 
@@ -514,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990885.jpg" />
 </div>
 
 
@@ -540,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988932.jpg" />
 </div>
 
 
@@ -566,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988929.jpg" />
 </div>
 
 
@@ -592,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988661.jpg" />
 </div>
 
 
@@ -619,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988636.jpg" />
 </div>
 
 
@@ -646,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988631.jpg" />
 </div>
 
 
@@ -672,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988056.jpg" />
 </div>
 
 
@@ -683,6 +657,34 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCA0088A5E1AD111791A53B8C82278EAC25EAB54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971247   (987588) от 02.01.2016
+
+Мария Павлова | Илья Фрэз (1985) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена творчеству народного артиста РСФСР, лауреата Государственной премии СССР Ильи Фрэза, известного мастера детского кино.
+
+Фильмы "Первоклассница", "Я купил папу", "Чудак из пятого "Б", "Я вас любил…", "Вам и не снилось…", "Карантин" и другие принесли ему широкую популярность у зрителей (   Читать дальше...   )Жанр: Биографии и Мемуары, КиноФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC92923C8AA67733AC6309326CED67FD233E4C05
 ```
 
 https://mybot314.ru/tekegram_catalog/

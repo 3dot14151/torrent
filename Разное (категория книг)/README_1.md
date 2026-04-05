@@ -1,3 +1,31 @@
+###  Публикация: 1856817   (1059143) от 02.03.2026
+
+Тимур Садыков | Афганский казан. Лучшие рецепты (2025) [PDF, FB2, EPUB]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Откройте для себя волшебство приготовления блюд в афганском казане — сочных, ароматных, насыщенных, которое запомнятся надолго.
+
+В этой книге собраны лучшие рецепты для афганского казана: от мяса и овощей до плова и дымлямы. Теперь все знания и инструменты для создания кулинарных шедевров у вас под рукой! Пошаговые инструкции, полезные советы и проверенные сочетания (   Читать дальше...   )Жанр: Кулинарные рецептыИздательство: АСТФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47A70AC6A15D540C2A9606C9548310C35B53FC3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856811   (1059141) от 02.03.2026
 
 Юлия Рычкова | Ремонт по расчету (2025) [PDF]
@@ -6,7 +34,7 @@
 >>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059141.jpg" />
 </div>
 
 
@@ -33,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>На досуге
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059133.jpg" />
 </div>
 
 
@@ -59,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059089.jpg" />
 </div>
 
 
@@ -88,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059088.jpg" />
 </div>
 
 
@@ -114,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059078.jpg" />
 </div>
 
 
@@ -141,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>На досуге
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059073.jpg" />
 </div>
 
 
@@ -170,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059071.jpg" />
 </div>
 
 
@@ -198,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058835.jpg" />
 </div>
 
 
@@ -224,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058785.jpg" />
 </div>
 
 
@@ -250,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058784.jpg" />
 </div>
 
 
@@ -277,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057660.jpg" />
 </div>
 
 
@@ -303,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057653.jpg" />
 </div>
 
 
@@ -329,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057475.jpg" />
 </div>
 
 
@@ -355,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057449.jpg" />
 </div>
 
 
@@ -381,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057428.jpg" />
 </div>
 
 
@@ -407,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057426.jpg" />
 </div>
 
 
@@ -425,32 +453,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854207   (1057304) от 18.02.2026
-
-Кай Вектор | Нет - это полноценный ответ. Искусство мягкого, но твердого отказа (2025) [PDF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057304.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вам платят за работу. А за ваше вечное «да» — нет. Хватит быть бесплатным приложением к чужой жизни. Эта книга — динамит для вашей безотказности. 30 глав жёстких, ядовитых правд о том, как говорить «нет» и получать от этого кайф. Перестаньте быть удобным. Станьте ценным. Ваше время дорого. Пора выставить счёт.Жанр: Социальная психология, саморазвитие / личностный ростИздательство: Самиздат в RideroФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:705F6A5DCF2E82177A0FE1B1869C0448C6DB49C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1854530   (1057252) от 18.02.2026
 
 Монс Мусессон | Avicii. Официальная биография (2024) [PDF, FB2, EPUB]
@@ -459,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057252.jpg" />
 </div>
 
 
@@ -477,60 +479,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854507   (1057248) от 18.02.2026
-
-Сергей Анисимов | 60 законов влияния руководителя (2025) [PDF]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057248.jpg" />
-</div>
-
-
-###  Подробнее
-
-60 законов, которые помогут руководителю влиять без давления: через слова, рамки, решения, систему и долгую игру. Книга научит управлять командой, изменять динамику группы, формировать культуру, усиливать доверие и принимать решения, которые люди поддерживают. Практичные инструменты для лидеров, менеджеров, HR и тех, кто развивает управленческие навыки, лидерство (   Читать дальше...   )Жанр: Деловая литература, бизнес-книгиИздательство: СамиздатФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B2F0B45E211D3B6FF22B8E7848F9C7628D6C02D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854500   (1057247) от 18.02.2026
-
-С. Анаиди, А. Литвинова | Шоколадные истории (2022) [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шоколад часто называют «пищей богов», что подчеркивает его уникальный вкус и историческое значение.  Настоящий шоколад — это сочетание нежности, бархатистости и легкой горчинки, способное таять во рту. Недаром этот продукт, изначально почитаемый ацтеками и майя как священный дар, сегодня символизирует наслаждение, любовь и роскошь.
-
-В сборнике Вы найдёте 32 простых, (   Читать дальше...   )Жанр: КулинарияИздательство: СамиздатФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5AACABEA6336870FD6A20F264DBE8C205C17794
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1854371   (1057168) от 17.02.2026
 
 Елена Молоховец | Избранные рецепты [8 книг] (2018-2019) [PDF]
@@ -539,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057168.jpg" />
 </div>
 
 
@@ -565,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057163.jpg" />
 </div>
 
 
@@ -591,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057092.jpg" />
 </div>
 
 
@@ -617,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057090.jpg" />
 </div>
 
 
@@ -643,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057080.jpg" />
 </div>
 
 
@@ -672,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056912.jpg" />
 </div>
 
 
@@ -683,6 +631,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D5AA55E09424B54E068F8F1E9BE3629CCC4308A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852985   (1056895) от 13.02.2026
+
+Иван Бевуч | Пузыри. Айти для детей и их родителей (2023) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056895.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор начал работать в IT в 2008 году. Видел отрасль с разных сторон, видел много смешного и грустного. Видел, как системы создавались и как они разваливались на части… И теперь готов поделиться этим всем с вами, чтобы вы тоже понимали, как оно было, есть и будет. Эта книга поможет приподнять занавес магического мира айти и проникнуть за кулисы. Для всех, кому интересно (   Читать дальше...   )Жанр: Публицистика, ИсторияИздательство: Издательские решенияФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A782E5A2AAD24140B7645509B8B3E35895C2C324
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852975   (1056892) от 13.02.2026
+
+Книжная серия | Если врачи не помогли [16 книг] (2015-2017) [FB2]
+
+>>Разное (категория книг)
+>>Нетрадиционная медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056892.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой серии книг вы найдете подробные пошаговые описания каждого занятия с рисунками и схемами. Они помогут вам самостоятельно, без постороннего воздействия и вмешательства, запустить механизм самооздоровления организма и вернуть себе энергию и бодрость молодости. Книги помогут всем, кто страдает заболеваниями опорно-двигательной системы, получил травму или перенес (   Читать дальше...   )Жанр: ЗдоровьеИздательство: АСТФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C53CBA93915442E8758D763893A3A207430830F
 ```
 
 https://mybot314.ru/tekegram_catalog/

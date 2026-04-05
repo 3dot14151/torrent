@@ -1,3 +1,108 @@
+###  Публикация: 1510350   (659940) от 23.03.2022
+
+Ярость / Fury (1936) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659940.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм по одноимённому роману Нормана Красна. Джо Уилсон повенчан с Кэтрин Грант. Скоро они должны пожениться. Но для свадьбы нужны деньги, и Джо уезжает в Чикаго работать на заводе. Спустя некоторое время он увольняется и покупает бензоколонку. Заработав на автомобиль, герой пускается в путешествие к своей любимой. Неожиданно на просёлочной дороге путь ему преграждает (   Читать дальше...   )Производство: США, Metro-Goldwyn-MayerЖанр: нуар, драма, мелодрама, криминал, триллерРежиссер: Фриц ЛангАктеры: Сильвия Сидни, Спенсер Трэйси, Уолтер Абель, Брюс Кэбот, Эдвард Эллис, Уолтер Бреннан, Фрэнк Альбертсон, Джордж Уэлкотт, Артур Стоун, Морган УоллесПеревод: профессиональный многоголосый (DVD Classic), профессиональный одноголосый (Светла)Субтитры: английские (SDH)Продолжительность: Качество видео: BDRip
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD017681EB243AC638A5B69A3554E254AEF1F0AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222511   (658589) от 17.05.2018
+
+Лорд Джим / Lord Jim (1965) BDRemux [H.264/1080p] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658589.jpg" />
+</div>
+
+
+###  Подробнее
+
+Офицер торгового флота Джим Берк в сильный шторм покидает корабль, не позаботившись о пассажирах. Их спасает французское судно. Джим оставляет службу, понимая, что опозорил мундир офицера. Мучаясь от угрызений совести, он ищет случая искупить свою вину. Судьба приводит его в Азию. Здесь он возглавляет борьбу туземцев против местного феодала и становится их героем. (   Читать дальше...   )Производство: Великобритания, США / Columbia British Productions Ltd., Columbia Pictures Corporation, Keep FilmsЖанр: Драма, ПриключенияРежиссер: Ричард БруксАктеры: Питер О’Тул, Джеймс Мейсон, Курд Юргенс, Илай Уоллак, Джек Хоукинс, Пол Лукас, Далия Лави, Аким Тамирофф, Дзюдзо Итами, Тацуо СайтоПеревод: Многоголосый закадровыйСубтитры: английские, французскиеПродолжительность: 02:34:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB632D7176BCB213D4BFF2D15B28F7660EE88979
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222681   (657720) от 18.05.2018
+
+Непобежденные / The Undefeated (1969) BDRip [H.264/720p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гражданская война в США окончена. Бывший полковник армии Севера Джон Томас перегоняет большой табун лошадей в Мексику. В то же время бывший полковник южан Джеймс Лонгдон так же отправляется в Мексику — вместе со своей семьёй он хочет начать новую жизнь в чужой стране.
+Их пути пересекаются, когда они подвергаются нападению мексиканских головорезов. Теперь бывшие враги (   Читать дальше...   )Производство: США / 20th Century Fox Film CorporationЖанр: ВестернРежиссер: Эндрю В. МакЛагленАктеры: Джон Уэйн, Рок Хадсон, Антонио Агилар, Роман Гэбриел, Мэриэн МакКарго, Ли Меривезер, Мерлин Олсен, Мелисса Ньюман, Брюс Кэбот, Ян-Майкл ВинсентПеревод: Многоголосый закадровый (SomeWax)Субтитры: Русские, английские (полные, SDH)Продолжительность: 01:58:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC7F588C08B5DDC4648B65F57019F6631C72E7A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223774   (657642) от 18.05.2018
+
+Горгона / The Gorgon (1964) BDRemux [H.264/1080p] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657642.jpg" />
+</div>
+
+
+###  Подробнее
+
+В одной деревне центральной Европы происходят жуткие вещи - девушка обратилась в камень, а её парень найден повешенным. Местные замалчивают дикие подробности, поэтому покойник объявляется убийцей, наложившим на себя руки в порыве раскаяния, но его отец - уважаемый мифолог - считает, что тут замешано древнее зло. Пытаясь разобраться, мужчина тоже нарывается на неприятности (   Читать дальше...   )Производство: Великобритания, Hammer FilmsЖанр: УжасыРежиссер: Теренс ФишерАктеры: Кристофер Ли, Питер Кушинг, Ричард Паско, Барбара Шелли, Майкл Гудлифф Патрик Тротон, Джозеф О’Конор, Пруденс Химэн, Джек Уотсон, Редмонд ФиллипсПеревод: Многоголосый закадровыйСубтитры: АнглийскиеПродолжительность: 01:24:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11472832B9411CB930EDE1D5A7FDCD8C2A74B1D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 513875   (656722) от 25.06.2012
 
 Трамвай «Желание» / A Streetcar Named Desire (1951) [1080p] BDRemux
@@ -6,7 +111,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656722.jpg" />
 </div>
 
 
@@ -34,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655750.jpg" />
 </div>
 
 
@@ -60,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655735.jpg" />
 </div>
 
 
@@ -86,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655607.jpg" />
 </div>
 
 
@@ -112,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655259.jpg" />
 </div>
 
 
@@ -138,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655111.jpg" />
 </div>
 
 
@@ -164,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654678.jpg" />
 </div>
 
 
@@ -192,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654571.jpg" />
 </div>
 
 
@@ -218,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654450.jpg" />
 </div>
 
 
@@ -244,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654395.jpg" />
 </div>
 
 
@@ -270,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654243.jpg" />
 </div>
 
 
@@ -297,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654129.jpg" />
 </div>
 
 
@@ -323,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653663.jpg" />
 </div>
 
 
@@ -350,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652260.jpg" />
 </div>
 
 
@@ -376,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652131.jpg" />
 </div>
 
 
@@ -404,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651821.jpg" />
 </div>
 
 
@@ -431,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650082.jpg" />
 </div>
 
 
@@ -457,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650055.jpg" />
 </div>
 
 
@@ -485,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649974.jpg" />
 </div>
 
 
@@ -511,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649906.jpg" />
 </div>
 
 
@@ -537,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649905.jpg" />
 </div>
 
 
@@ -564,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648880.jpg" />
 </div>
 
 
@@ -575,113 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EBFD61E319F5478BC0C72F5CDD85B2440507413
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537223   (648406) от 01.04.2022
-
-Ниагара / Niagara (1952) BDRip [H.264/720p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодожёны Полли и Рэй Катлеры приезжают в коттедж возле водопада и знакомятся с ещё одной супружеской парой, Джорджем и Роуз Лумисами.
-Роуз с самого начала всем доверительно сообщает, что её муж значительно старше её, что его мучает депрессия и его только что выпустили из психиатрической лечебницы.
-Позже Полли видит, как Роуз целуется с молодым человеком, и узнаёт, (   Читать дальше...   )Производство: США / 20th Century Fox Film CorporationЖанр: Фильм-нуар, Триллер, ДрамаРежиссер: Генри ХэтэуэйАктеры: Мэрилин Монро, Джозеф Коттен, Джин Питерс, Макс Шоуолтер, Денис О’Ди, Ричард Аллан, Дон Уилсон, Лёрин Таттл, Расселл Коллинз, Уилл РайтПеревод: Многоголосый профессиональныйСубтитры: Русские, английскиеПродолжительность: 01:28:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F850DCF0985A85C56D6894CF4EE9410B7F42710
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139295   (648157) от 11.06.2017
-
-Фантомас против Скотланд-Ярда / Fantomas contre Scotland Yard (1966) BDRip [H.265/1080p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648157.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этот раз злодей с тысячью лицами решает обложить данью богатейших людей мира, а взамен гарантирует им жизнь. Комиссар Жюв со своими верными друзьями, Фандором и Элен, прибывает в шотландский замок для того, чтобы встать на защиту его владельца и снова попытаться поймать Фантомаса.Производство: Франция, ИталияЖанр: Комедия, Криминал, ПриключенияРежиссер: Андре ЮнебельАктеры: Жан Маре, Луи де Фюнес, Милен Демонжо, Франсуаза Кристоф, Жан-Роже Коссимон, Робер Дальбан, Андре Дюма, Макс Монтавон, Рита Ренуар, Жан ОзеннПеревод: Дублированный, многолосыйСубтитры: ОтсутствуютПродолжительность: 1:40:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF31CBE31BD55E868B171BF729EA66B72D4EF308
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029725   (647626) от 06.07.2016
-
-Чизам / Chisum (1970) BDRemux [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647626.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джон Чизам — справедливый фермер, обеспокоенный вторжением скупщика земли Мёрфи на свои земли. Формально Мёрфи все делает по закону: открывает магазин, банк, снимает неугодных и назначает нужных людей на ключевые посты в штате. Но за всем этим скрывается грязный умысел — всеми правдами и неправдами прогнать Чизама с его владений…Производство: США, Batjac Productions, Warner Bros. PicturesЖанр: ВестернРежиссер: Эндрю В. МакЛагленАктеры: Джон Уэйн, Форрест Таккер, Кристофер Джордж, Бен Джонсон, Гленн Корбетт, Эндрю Прайн, Брюс Сабот, Патрик Ноулз, Ричард Джэкел, Линда Дэй ДжорджПеревод: Профессиональный многоголосый, Профессиональный двухголосыйЯзык субтитров: АнглийскийПродолжительность: 01:51:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77CE2AF27268F067EE7BB4277E04D9AA4D836265
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517565   (646958) от 01.07.2012
-
-Смерть негодяя / Mort D'Un Pourri (1977) BDRip [H.264/720p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646958.jpg" />
-</div>
-
-
-###  Подробнее
-
-Внезапная смерть депутата, убийцы и коррумпированного мафиози перевернула жизнь его давнего бескорыстного друга Ксавье Марешаля. В его руки попадает злополучная тетрадь с компроматом на столпов общества, которые преследуют неподкупного человека с убийственной изощренностью.
-Но он выбирает позицию «одинокого волка», не доверяет ни полиции, ни спецслужбам до тех пор, (   Читать дальше...   )Жанр: Триллер, Драма, КриминалРежиссер: Жорж ЛотнерАктеры: Ален Делон, Орнелла Мути, Стефан Одран, Мирей Дарк, Морис Роне, Мишель Омон, Жан Буиз, Даниэль Секкальди, Жюльен Гиомар, Клаус КинскиПеревод: Профессиональный (дублированный), Профессиональный (многоголосый закадровый)Субтитры: ОтсутствуютПродолжительность: 02:03:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8515B684ADDF9DBD43BFA2BD0EAEEB76EC234F6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

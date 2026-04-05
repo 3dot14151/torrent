@@ -1,136 +1,3 @@
-###  Публикация: 613493   (977301) от 08.02.2013
-
-Александр Муа | Цикл "Таинственные существа. Криптиды" [2012-2013] [FB2]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Таинственные существа. Криптиды - увлекательный цикл произведений Александра Муа - французского писателя, режиссёра и журналиста.
-Криптиды – это животные, существование которых не доказано наукой. Снежный человек, Лохнесское чудовище, кракен...
-Герои книг Александра Муа точно знают о существовании по крайней мере нескольких криптидов, они уверены, что именно по их вине происходят необъяснимые катастрофы. Но власти пытаются скрыть правду и уничтожить криптидов...
-Скоро должен выйти фильм по первой книге цикла.Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FD11CBE8309643974E3F81539D717DFA1D69A45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974054   (976978) от 11.01.2016
-
-Генри Хоум | Основания критики (1977) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976978.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трактат Хоума — характерное произведение английской сенсуалистско-просветительской мысли XVIII века. В решении эстетических проблем Хоум обнаруживает близость к традиции, нашедшей наиболее яркое выражение в трудах Шефтсбери, Хатчесона и Юма. Однако широкое привлечение фактов искусства и их конкретный анализ составляют преимущество этого трактата.Жанр: Философия, эстетика в ВеликобританииПеревод: З. Е. АлександроваФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEC530133A3DC57FB540D02525DE5275CB673A25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974064   (976975) от 11.01.2016
-
-К. В. Ф. Зольгер | Эрвин. Четыре диалога о прекрасном и об искусстве (1978) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трактат немецкого эстетика К.-В.-Ф. Зольгера «Эрвин» публикуется на русском языке впервые. Это сочинение, написанное в традициях платоновского диалога, носит характер напряженной философской дискуссии о природе красоты. В споре о прекрасном, возвышенном, комическом, трагическом, в обосновании системы классификации искусств, в характеристике древнего и нового искусства (   Читать дальше...   )Жанр: ФилософияПеревод: Н. М. БерновскаяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCF95DDE1EE4862CBECACFAC4EC04AC54AF6B498
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974308   (976972) от 11.01.2016
-
-А. И. Герцен | Эстетика, критика, проблемы культуры (1987) [DJVU, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящий сборник состоит в основном из произведений, посвященных проблемам культуры и общественной борьбы, внутри которых и приобретают законное место высказывания Герцена об искусстве, литературе и общих вопросах эстетики. Философско-эстетическое наследие А. И. Герцена, проблемы, им поставленные (взаимодействие культур — русской и европейской, искусства, как органической (   Читать дальше...   )Жанр: История, философия, эстетика, культурология, литературоведениеФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14186A6AACC4C9FA35421A4EF39A365C73ADF793
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974085   (976971) от 11.01.2016
-
-Жан-Поль Рихтер | Приготовительная школа эстетики (1981) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976971.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание является первым полным переводом на русский язык известного эстетического произведения немецкого писателя конца XVIII—начала XIX в. Жан-Поля. Наиболее ценные и яркие страницы книги посвящены проблемам комического, юмора, иронии. Изложение Жан-Поля, далекое от абстрактности теоретических трактатов, использует блестящую и крайне своеобразную литературную технику, (   Читать дальше...   )Жанр: Философия, эстетикаПеревод: А. В. МихайловФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:410AE98FA8A6E82F2E890FA6C51AEE390F01D684
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974042   (976948) от 11.01.2016
 
 Эдмунд Бёрк | Философское исследование о происхождении наших идей возвышенного и прекрасного (1979) [PDF, DJVU]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976948.jpg" />
 </div>
 
 
@@ -165,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976944.jpg" />
 </div>
 
 
@@ -191,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976942.jpg" />
 </div>
 
 
@@ -217,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976941.jpg" />
 </div>
 
 
@@ -243,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976932.jpg" />
 </div>
 
 
@@ -269,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976931.jpg" />
 </div>
 
 
@@ -295,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976887.jpg" />
 </div>
 
 
@@ -321,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976884.jpg" />
 </div>
 
 
@@ -348,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976811.jpg" />
 </div>
 
 
@@ -374,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976663.jpg" />
 </div>
 
 
@@ -400,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976660.jpg" />
 </div>
 
 
@@ -426,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976517.jpg" />
 </div>
 
 
@@ -452,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976479.jpg" />
 </div>
 
 
@@ -478,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976462.jpg" />
 </div>
 
 
@@ -504,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976458.jpg" />
 </div>
 
 
@@ -530,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976391.jpg" />
 </div>
 
 
@@ -556,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976299.jpg" />
 </div>
 
 
@@ -582,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976193.jpg" />
 </div>
 
 
@@ -609,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975874.jpg" />
 </div>
 
 
@@ -635,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975873.jpg" />
 </div>
 
 
@@ -661,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975872.jpg" />
 </div>
 
 
@@ -672,6 +539,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D93E1AA29018D57F9C6C6B51E277250E2B18E22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974733   (975871) от 12.01.2016
+
+И. П. Трайнин | Механизм немецко-фашистской диктатуры (1942) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный труд является попыткой хотя бы вкратце вскрыть пружины механизма гитлеровской диктатуры. Мы поэтому не будем подробно останавливаться на „теориях“ гитлеризма. Мы также специально не исследуем экономику и культуру гитлеровской Германии, а фиксируем основное внимание на вопросах, связанных с государственным механизмом, посредством которого гитлеризм угнетает (   Читать дальше...   )Жанр: История, политологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1872E9E7716DA56AF8C269A361B5C72078523B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 616234   (975825) от 09.02.2013
+
+Т.И. Трофимова | Физика. 400 основных законов и формул [1993] [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975825.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данном справочном издании в сжатой форме представлены основные законы и формулы по всему курсу физики, знание которых необходимо для решения задач и осмысления физической сущности явлений. Используются современная терминология и обозначения.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58EF1E82FA06E035792F3C77A6CA7B6E8B64F041
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974726   (975801) от 12.01.2016
+
+Г. Леви | Германские монополии (1936) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга Германа Леви, вышедшая в Англии в 1935 г. под названием "Industrial Germany", посвящена истории развития и характеристике монополистических объединений (картелей, синдикатов, концернов и трестов) в германской промышленности.
+
+Автор вскрывает особенности промышленных монополий в Германии, показывает общий уровень их развития в целом и в отдельных важнейших (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB81C9626C9329A1C6F351AFC3D5CD248EAD284C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974721   (975794) от 12.01.2016
+
+И. Стоун | Закулисная история войны в Корее (1953) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975794.jpg" />
+</div>
+
+
+###  Подробнее
+
+Корейская война, бесспорно, является одним из важнейших событий нашего времени. Из всех современных событий она получила, пожалуй, наиболее широкую гласность. Но огромный поток широко рекламируемых сообщений, поступающий по всем каналам самых совершенных современных средств связи, дает американскому народу лишь одностороннее освещение событий, преподносит ему только (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:144C645FCB439B8BF6206EF5B369026D726CF1D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974745   (975792) от 12.01.2016
+
+М. Горев | Голод (1922) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975792.jpg" />
+</div>
+
+
+###  Подробнее
+
+Брошюра об ужасах голода, разразившегося в 1921 году на Поволжье и в др. местах России.Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B363559392D2D5FDB529418CE7A0DCECAEA5BE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

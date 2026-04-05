@@ -1,29 +1,3 @@
-###  Публикация: 953701   (346970) от 05.11.2015
-
-Николай Надеждин | Мэрилин Монро (2012) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346970.jpg" />
-</div>
-
-
-###  Подробнее
-
-История жизни Мэрилин Монро – убедительная иллюстрация народной мудрости «не родись красивой». Этой женщине действительно пришлось хлебнуть всякого. Были в ее судьбе и несчастливое детство, и неудачные браки, и разочарование в любви. Но были и взлеты – необыкновенные, стремительные, поражающие воображение. Мэрилин очень точно распознала свой главный талант – дар (   Читать дальше...   )Жанр: Биографии и МемуарыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86E120ABEC2DCB2A909139238167C2C64B70FDBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1179537   (346950) от 01.11.2017
 
 О. А. Пятницкий | Компартии на пути большевизации [2-е изд.] (1932) [PDF]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346950.jpg" />
 </div>
 
 
@@ -60,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346947.jpg" />
 </div>
 
 
@@ -86,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346846.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346845.jpg" />
 </div>
 
 
@@ -138,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346843.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346837.jpg" />
 </div>
 
 
@@ -190,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346809.jpg" />
 </div>
 
 
@@ -216,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346720.jpg" />
 </div>
 
 
@@ -242,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346617.jpg" />
 </div>
 
 
@@ -268,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345539.jpg" />
 </div>
 
 
@@ -294,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344762.jpg" />
 </div>
 
 
@@ -320,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344658.jpg" />
 </div>
 
 
@@ -346,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344654.jpg" />
 </div>
 
 
@@ -373,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344651.jpg" />
 </div>
 
 
@@ -399,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344513.jpg" />
 </div>
 
 
@@ -425,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344497.jpg" />
 </div>
 
 
@@ -453,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343180.jpg" />
 </div>
 
 
@@ -479,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343043.jpg" />
 </div>
 
 
@@ -505,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343039.jpg" />
 </div>
 
 
@@ -531,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342855.jpg" />
 </div>
 
 
@@ -559,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342851.jpg" />
 </div>
 
 
@@ -585,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342846.jpg" />
 </div>
 
 
@@ -613,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342767.jpg" />
 </div>
 
 
@@ -641,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342766.jpg" />
 </div>
 
 
@@ -668,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342519.jpg" />
 </div>
 
 
@@ -679,6 +653,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:064258A53BAC7F2FE450396B898EA22A544F446C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180326   (342511) от 03.11.2017
+
+А.Б. Громов, С.Н. Табаи | Персия. История неоткрытой страны (2017) [PDF, FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немногие державы могли, подобно Персии, противостоять натиску легионов Римской империи и одерживать победы. Уникальные клинки работы персидских мастеров и сейчас остаются эталоном благородного оружия. Древние города, акведуки и оросительные системы Персии даже в наши дни поражают воображение. Произведения здешних поэтов и живописцев принадлежат к вершинам культурного (   Читать дальше...   )Жанр: ИсторияФормат: PDF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DBC849211C89C7578167768C48128BA52409D66
 ```
 
 https://mybot314.ru/tekegram_catalog/

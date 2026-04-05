@@ -1,4 +1,109 @@
 https://t.me/izofen
+###  Публикация: 1862180   (1063383) от 
+
+Не называй это любовью! | Koi to Yobu ni wa Kimochi Warui | Koikimo [2021, TV, 12 из 12] BDRip 1080p HEVC 10-bit Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063383.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рё Амакуса не только красивый, выдающийся молодой человек, но ещё и блестящий бизнесмен. Казалось бы, у него не должно быть отбоя от прекрасных дам, но вот только есть одна проблема — наш герой полный ноль в амурных делах. Однако от прекрасных чувств всё же не убежать, и вскоре Рё влюбляется. Его избранницей становится лучшая подруга младшей сестры — Итика Арима. (   Читать дальше...   )Жанр: комедия, романтикаРежиссер: Накаяма НаомиЯзык озвучки: Японский; Русский закадровый Wozwald, Abe, Flower, NitzСубтитры: Русские полные CrunchyrollПродолжительность: 12 эп. по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30329BBE6BEBA94AD84EF66BD315A04614510336
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862178   (1063382) от 
+
+Секретарь гильдии | Guild no Uketsukejou Desu ga, Zangyou wa Iya nano de Boss o Solo Toubatsu Shiyou to Omoimasu [2025, TV, 12 из 12] BDRip 1080p HEVC 10-bit Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063382.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алина Кловер устраивается секретарём в гильдию искателей приключений с полной уверенностью, что эта спокойная, но прибыльная должность станет её заветным билетиком в счастливую размеренную жизнь.
+Но, к сожалению для девушки, всё оказывается не так просто. При рассмотрении вакансий Алина не учла следующее: если искатели приключений неожиданно застревают в подземелье, (   Читать дальше...   )Производство: Япония / Студия CloverWorks, BoundaryЖанр: комедия, приключения, фэнтези, экшенРежиссер: Нагасава ЦуёсиЯзык озвучки: Японский; Русский трёхголосый закадровый - Amikiri, Anzen, HoopoeСубтитры: Русские полные/надписи -Продолжительность: 12 эп. по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F8003F32382E2426388DB922BE21D8D65C55C42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862173   (1063381) от 
+
+Перерождение: Монстр | Re:Monster [2024, TV, 12 из 12] BDRip 1080p HEVC 10-bit Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063381.jpg" />
+</div>
+
+
+###  Подробнее
+
+Умерев насильственной смертью, Томокуи Каната, который при жизни обладал сверхъестественными способностями, переродился в другом мире как гоблин — представитель низшей, самой слабой расы. Однако память о прошлой жизни и человеческий разум всё ещё при нём, так что не всё так печально и бесперспективно. Понемногу развиваясь и адаптируясь к новым условиям, новоиспечённый (   Читать дальше...   )Производство: Япония / Студия Studio DeenЖанр: приключения, фэнтезиРежиссер: Инагаки ТакаюкиЯзык озвучки: Японский; Русский двухголосый закадровый Jam, EstherСубтитры: Полные и надписи - Сrunchyroll | RUS (ext)Продолжительность: 12 эп. по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66D10814EB0A5C38922846FD30109F83FE42681B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862164   (1063380) от 
+
+Hitoribocchi no Isekai Kouryaku | Нападение одиночки на иной мир [2024, TV, 12 из 12] BDRip 1080p HEVC 10-bit Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063380.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время мирного школьного обеда поднялся страшный переполох, когда ученики увидели, что на полу класса образовывается магический круг призыва. Старшеклассники отреагировали по-разному, а вот Харука, до этого спокойно читавший мангу, попытался унести ноги подальше. Он, прочитавший кучу новелл на тему перемещения в иной мир, лучше всех понимал, что ничего хорошего (   Читать дальше...   )Производство: Passione, Hayabusa FilmЖанр: приключения, фэнтези, комедияРежиссер: Кадзуми ЁсиоЯзык озвучки: Японский; Русский многоголосый закадровый Ditaro, Gomer, Itashi, ZozyaСубтитры: Полные и надписи - AniLibria | RUS (ext) dream_minseok, Keitaro, NekoNisПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A4C604E68BBAE43C11C576019652BFA1A5E6ABF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1861271   (1062560) от 
 
 Watashi ga Koibito ni Nareru Wake Nai jan, Muri Muri! (*Muri ja Nakatta!?) | У меня нет любовницы! (А, может, и есть?!) [2025, TV, 12 эп.] BDRip HEVC 10-bit 1080p raw+rus
@@ -7,7 +112,7 @@ Watashi ga Koibito ni Nareru Wake Nai jan, Muri Muri! (*Muri ja Nakatta!?) | У 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062560.jpg" />
 </div>
 
 
@@ -33,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061107.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059742.jpg" />
 </div>
 
 
@@ -85,7 +190,7 @@ Sidonia no Kishi | Knights of Sidonia | Рыцари Сидонии [2014, TV, 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058504.jpg" />
 </div>
 
 
@@ -111,7 +216,7 @@ Sidonia no Kishi: Daikyuu Wakusei Seneki | Knights of Sidonia: Battle for Planet
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058503.jpg" />
 </div>
 
 
@@ -138,7 +243,7 @@ Kamui no Ken | The Dagger of Kamui | Кинжал Камуи [1985, Movie] BDRip
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058339.jpg" />
 </div>
 
 
@@ -165,7 +270,7 @@ Shuumatsu no Harem | World's End Harem | Гарем конца света [2021,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056847.jpg" />
 </div>
 
 
@@ -191,7 +296,7 @@ Dead Leaves | Мёртвые листья: Звёздная тюряга [2004, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055922.jpg" />
 </div>
 
 
@@ -217,7 +322,7 @@ Slayers Premium | Первосортные Рубаки [2001, Movie] BDRip 1064
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055391.jpg" />
 </div>
 
 
@@ -243,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055362.jpg" />
 </div>
 
 
@@ -269,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055233.jpg" />
 </div>
 
 
@@ -295,7 +400,7 @@ Isekai Meikyuu de Harem o | Harem in the Labyrinth of Another World | Гарем
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054898.jpg" />
 </div>
 
 
@@ -321,7 +426,7 @@ Astarotte no Omocha! | Astarotte's Toy! | Игрушка Астаротты [201
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054897.jpg" />
 </div>
 
 
@@ -347,7 +452,7 @@ Nanatsu no Taizai | The Seven Deadly Sins | Семь смертных грехо
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054116.jpg" />
 </div>
 
 
@@ -373,7 +478,7 @@ Nanatsu no Taizai: Seisen no Shirushi | The Seven Deadly Sins: Signs of Holy War
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054115.jpg" />
 </div>
 
 
@@ -399,7 +504,7 @@ Nanatsu no Taizai: Imashime no Fukkatsu | The Seven Deadly Sins: Revival of the 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054114.jpg" />
 </div>
 
 
@@ -425,7 +530,7 @@ Gekijouban Nanatsu no Taizai: Tenkuu no Torawarebito | The Seven Deadly Sins the
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054113.jpg" />
 </div>
 
 
@@ -451,7 +556,7 @@ Nanatsu no Taizai: Kamigami no Gekirin | The Seven Deadly Sins: Wrath of the God
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054112.jpg" />
 </div>
 
 
@@ -477,7 +582,7 @@ Nanatsu no Taizai: Fundo no Shinpan | The Seven Deadly Sins: Dragon's Judgement 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054111.jpg" />
 </div>
 
 
@@ -503,7 +608,7 @@ Gekijouban Nanatsu no Taizai: Hikari ni Norowareshi Mono-tachi | The Seven Deadl
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054110.jpg" />
 </div>
 
 
@@ -529,7 +634,7 @@ Nanatsu no Taizai: Ensa no Edinburgh | The Seven Deadly Sins: Grudge of Edinburg
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054109.jpg" />
 </div>
 
 
@@ -555,7 +660,7 @@ Haite Kudasai, Takamine-san | Please Put Them On, Takamine-san | Пожалуй�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053425.jpg" />
 </div>
 
 
@@ -566,110 +671,6 @@ Haite Kudasai, Takamine-san | Please Put Them On, Takamine-san | Пожалуй�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74E65916BB22EE67EC3036436629F4C572BDB757
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848866   (1053032) от 20.01.2026
-
-Sasaki to Miyano | Sasaki and Miyano | Сасаки и Мияно [2022, TV, 12 из 12 эп.] BDRip 1080p 10-bit raw+eng+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ничто не нарушало мирных будней Ёсикадзу Мияно: он учился, помогал с работой в ученическом комитете, украдкой от одноклассников наслаждался чтением манги, посвященной любви между мужчинами, временами беспокоился из-за того, что у него девичье лицо, — в общем вёл обычную жизнь обычного старшеклассника, пока судьба не свела его с учащимся на год старше Сюмэем Сасаки. (   Читать дальше...   )Производство: Studio DeenЖанр: сёнэн-aй, повседневнoсть, ромaнтикаРежиссер: Исихира СиндзиЯзык озвучки: Японский, Английский и РусскийСубтитры: Английские и Русские ASS(int) by CrunchyRoll (Полные и Надписи)Продолжительность: 12 эп. по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24B7FF514693DC86596763E9D0D2D3CBF5495FE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848914   (1053007) от 19.01.2026
-
-Eiga Sasaki to Miyano: Sotsugyou Hen | Sasaki and Miyano: Graduation | Сасаки и Мияно: Выпускной [2023, Movie] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053007.jpg" />
-</div>
-
-
-###  Подробнее
-
-В преддверии вступительных экзаменов в университет и выпускного, старшекласснику Сюмэй Сасаки приходится серьёзнее относиться к своему будущему. Однако учёбе становится всё труднее; все его мысли заняты его парнем и младшим товарищем, Ёсикадзу Мияно. Они только недавно официально объявили о своих отношениях, и Сасаки не может не мечтать о том, чтобы обнять своего (   Читать дальше...   )Производство: Studio DeenЖанр: сёнэн-aй, повседневнoсть, ромaнтикаРежиссер: Исихира СиндзиЯзык озвучки: Японский и РусскийСубтитры: Английские и Русские ASS(int) by CrunchyRoll (Полные и Надписи)Продолжительность: 60 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F60F13C5821D784BC2261001B350A80514030A6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848586   (1052970) от 17.01.2026
-
-Slayers Revolution | Рубаки: Революция [2008, TV, 13 эп.] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052970.jpg" />
-</div>
-
-
-###  Подробнее
-
-Потеряв Меч Света, Лина и Гаури теперь ищут замену великому оружию. Герои прибывают в королевство Рубингард, где встречают старых друзей Амелию и Зелгадиса. Друзья решили отпраздновать счастливое воссоединение в таверне, но тут появился инспектор королевства Рубингард, некий Вайзер. Он без объяснения причин задерживает Лину Инверс. А это уже не в какие ворота не (   Читать дальше...   )Производство: Япония, J.C.StaffЖанр: приключения, комедия, фэнтезиРежиссер: Ватанабэ ТакасиЯзык озвучки: Русский закадровый (Anything Group - Dajana & Lisek), (Get Smart Group - Persona99 & MaxDamage), (Amazing Dubbing - KUBISVAN & Alya)Субтитры: ASS (Русский, Rover)Продолжительность: ТВ, 13 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9B5B9B06F672C8A279A6BE2D3831CC72CFE05CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848710   (1052909) от 18.01.2026
-
-Sasaki to Miyano: Koi ni Kizuku Mae no Chotto Shita Hanashi | Sasaki and Miyano: A Tiny Episode from Before He Realized His Feelings | Сасаки и Мияно: Маленькая история, прежде чем я нашёл любовь [ ...
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052909.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ноябрь. В школьный совет за помощью обращается ученик, потерявший брелок от ключей. Осенённый внезапным озарением, Масато Хандзава предлагает организовать детективное агентство по поиску потерянных вещей, члены которого дружно отправляются на розыски!Производство: Studio DeenЖанр: сёнэн-aй, повседневнoсть, ромaнтикаРежиссер: Исихира СиндзиЯзык озвучки: Японский и РусскийПродолжительность: 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE82DBDE77E442AA1B83D331683FD8D9D2F61874
 ```
 
 https://mybot314.ru/tekegram_catalog/

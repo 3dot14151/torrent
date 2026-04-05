@@ -1,3 +1,55 @@
+###  Публикация: 1607203   (201048) от 19.03.2023
+
+Легенда о Vox Machina / Легенда Вокс Макины / The Legend of Vox Machina (2023) WEB-DL [H.264/720p] (сезон 2, серии 1-12 из 12) NewStation
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они хулиганы, они разношерстные, они неудачники, ставшие наемниками. Они больше заинтересованы в легких деньгах и дешевом эле, чем в реальной защите королевства. Но когда королевству угрожает зло, эта неистовая команда понимает, что только они способны восстановить справедливость...Производство: США / Аmazon StudiosЖанр: для взрослых, мультфильм, фэнтези, боевик, комедия, приключенияРежиссер: Ан Сон-джинАктеры: Лора Бэйли, Толизин Джаффе, Эшли Джонсон, Лайам О’Брайэн, Мариша Рэй, Сэм Ригел, Трэвис Уиллингэм, Мэттью Мерсер, Стефани Беатриз, Хари ПэйтонПеревод: Многоголосый профессиональный (NewStation) Присутствует ненормативная лексика!Субтитры: русские, украинские, английские, испанские, норвежские, индонезийские, греческие, румынские, немецкие, тайские, японские, итальянские, португальские, китайские, финские, шведские, ивритские, арабские, голландские, датские, польские, турецкие, корейские, французскиеПродолжительность: ~00:27:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A3EAC0299BDD67AAFD4ED702616FB0347C1369A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607204   (201033) от 19.03.2023
+
+Легенда о Vox Machina / Легенда Вокс Макины / The Legend of Vox Machina (2023) WEB-DLRip (сезон 2, серии 1-12 из 12) NewStation
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они хулиганы, они разношерстные, они неудачники, ставшие наемниками. Они больше заинтересованы в легких деньгах и дешевом эле, чем в реальной защите королевства. Но когда королевству угрожает зло, эта неистовая команда понимает, что только они способны восстановить справедливость...Производство: США / Аmazon StudiosЖанр: для взрослых, мультфильм, фэнтези, боевик, комедия, приключенияРежиссер: Ан Сон-джинАктеры: Лора Бэйли, Толизин Джаффе, Эшли Джонсон, Лайам О’Брайэн, Мариша Рэй, Сэм Ригел, Трэвис Уиллингэм, Мэттью Мерсер, Стефани Беатриз, Хари ПэйтонПеревод: Многоголосый профессиональный (NewStation) Присутствует ненормативная лексика!Субтитры: отсутствуютПродолжительность: ~00:27:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F347369B7BC4A106A0F9579FB0A3D9CAA201A32A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1567598   (201022) от 21.03.2023
 
 Харли Квинн / Harley Quinn (2022) WEB-DL [H.264/720p-LQ] (сезон 3, серия 1-10 из 10 + спецвыпуск) NewStation
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_201022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_201022.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200948.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200942.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200722.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200636.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200405.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200115.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200108.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200102.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199731.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199725.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199678.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199583.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199483.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199342.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_199049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_199049.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_199037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_199037.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198972.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198597.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198379.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197662.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197457.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197215.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197181.jpg" />
 </div>
 
 
@@ -618,58 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:292C994275E32DDC802BF2ABCCB05D024DD3C47E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639272   (197153) от 13.06.2023
-
-Тихая Вода / Stillwater (2020-2023) WEB-DLRip [H.264] (сезон 1-3, серии 1-30 из 30) Пифагор
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197153.jpg" />
-</div>
-
-
-###  Подробнее
-
-У Карла, Эдди и Майкла необычный сосед — мудрая панда по имени Тихая Вода. Дружба с ней помогает ребятам лучше понять окружающий мир, друг друга и самих себя.Производство: США, Франция, Япония / Apple TV+Жанр: мультфильм, семейныйРежиссер: Джан Фалкенштейн, Эмбер Торнквист Холлингер, Рой Бурдин, Гари ХартлПеревод: Дублированный (Пифагор)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: ~00:24:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A85B0D737FFC443C50E748C9F0B96B38A630FD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639518   (197112) от 14.06.2023
-
-Стражи Галактики / Guardians of the Galaxy (2015-2019) WEB-DLRip [H.264] (сезон 1-3, серии 0-77 из 77) Невафильм
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197112.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда космических супергероев во главе со Звёздным Лордом защищает мир и порядок во Вселенной, которой угрожает величайший суперзлодей Танос. Студия Marvel Animation представляет красочный мультсериал о похождениях межрасовой команды наёмников, перешедших на сторону добра, «Стражи Галактики». Путешественникам по космосу предстоит встретиться с другими персонажами (   Читать дальше...   )Производство: СШАЖанр: мультфильм, фантастика, боевик, драма, комедия, приключения, семейныйРежиссер: Лео Райли, Джеймс Янг, Джефф УоместерПеревод: Дублированный (Невафильм)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: ~00:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:405FFEC8AED7CEF0138842908DBF671D7C2DB845
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,161 @@
+###  Публикация: 985132   (814686) от 18.04.2016
+
+Firewatch (2016) [Ru/En] (1.0/upd13) Repack R.G. Механики
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814686.jpg" />
+</div>
+
+
+###  Подробнее
+
+1989-й год. Тебя зовут Генри, и ты уехал от тяжелой жизни в леса Вайоминга, чтобы работать там дозорным. Расположившись на самой вершине горы, ты должен следить за сохранностью окружающей природы. Особо жаркое, сухое лето заставляет всех беспокоиться. Твой начальник, женщина по имени Делайла, всегда поддерживает с тобой контакт с помощью небольшой ручной рации - (   Читать дальше...   )Тип издания: RepackРазработчик: Campo SantoЖанр: Adventure, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E7C80BCAEAB9E7B274C9EE5F06DB110F3CBDEDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 213038   (814685) от 18.04.2016
+
+Губка Боб Квадратные Штаны  / SpongeBob SquarePants (1999-2012) DVDrip + SATrip + TVRip (9 сезонов + полнометражный мультфильм + документальный фильм)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814685.jpg" />
+</div>
+
+
+###  Подробнее
+
+Square Roots: The Story of SpongeBob SquarePants является документальным фильмом производства Патрик Кридон и Кристин O'Маллей, который был показан на VH1 14 июля 2009 года. Документальная хроника о поп-культуре успешного мультсериала Губка Боб Квадратные Штаны, включая его влияние на президента США Барак Обама, обитателей Сан-Квентин в государственной тюрьме, и (   Читать дальше...   )Жанр: документальныйРежиссер: Патрик Кридон, Кристин O'МаллейПерсонажи: Алек Болдуин, Джерри Бек, Эрнест Боргнайн, Клэнси Браун, Роджер Бампасс, Нат Кэш, Тим Конуэй, Розарио ДоусонПеревод: Профессиональный (многоголосый, закадровый)Субтитры: отсутствуютПродолжительность: 00:41:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37A2F555C1B1305EA39521E01B39F4205E3AA815
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382929   (814663) от 13.05.2020
+
+Windows 10 Enterprise x64 lite 2004 build 19041.264 by Zosma [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на официальном образе Microsoft:
+ru_windows_10_business_editions_version_2004_x64_dvd_278397a0
+Сборка делается для личных целей и в том составе, в котором необходимо автору. Пользователям предлагается в том виде в каком есть. Пожелания и предложения по составу удаленных и отключенных компонентов не требуются, принимаются только баг-репортыЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:938A4A80217B8C905EBA192DC4A7F932E0F248AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114277   (814419) от 24.03.2017
+
+Охота на дьявола (2016) SATRip [H.264] (серии 1-16 из 16)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814419.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основу истории легло реальное научное открытие российского физика Михаила Филиппова, которое он совершил в начале XX века. Учёный исследовал электромагнитные волны и проводил опыты по передаче энергии взрыва на расстоянии. Это явление получило название «гипотетический луч Филиппова». Сериал покажет, чем могла бы обернуться для человечества Вторая мировая война, (   Читать дальше...   )Производство: Россия / "Киностудия КИТ", IKa filmЖанр: детективРежиссер: Давид ТкебучаваАктеры: Сергей Безруков, Мария Луговая, Евгений Стычкин, Артём Ткаченко, Илья Любимов, Наталья Швец, Дмитрий Поднозов, Андрей Руденский, Петар Зекавица, Евгений Карпов и др.Продолжительность: ~00:48:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C81EE477A0F64BB07F11E75406D3E88C4A2A0C0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117911   (814417) от 24.03.2017
+
+WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2017.03.24 [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузочный диск на базе Windows 10 и 8 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, антивирусной профилактики и установки ОС Windows.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2561722481244C9AC69CC887241324AAA6EB50BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117894   (814413) от 24.03.2017
+
+Изгой-один: Звёздные войны. Истории / Rogue One: A Star Wars Story (2016) BDRip [H.264/1080p]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сопротивление собирает отряд для выполнения особой миссии — надо выкрасть чертежи самого совершенного и смертоносного оружия Империи. Возглавляет бойцов неуправляемая и бесстрашная Джин Эрсо, у которой в этом самоубийственном задании есть и личные мотивы. Не всем суждено вернуться домой, но герои готовы к этому, ведь на кону судьба Галактики.Производство: США, Allison Shearmur Productions, Black Hangar Studios, Lucasfilm Ltd., Walt Disney Studios Motion PicturesЖанр: Фантастика, Боевик, ПриключенияРежиссер: Гарет ЭдвардсАктеры: Фелисити Джонс, Мадс Миккельсен, Алан Тьюдик, Донни Йен, Бен Мендельсон, Форест Уитакер, Диего Луна, Джонатан Арис, Риз Ахмед, Артур Л. БернштейнПеревод: Дублированный (iTunes)Субтитры: Русские (форс, полные), английские (полные, SDH)Продолжительность: 02:14:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7563A66DF65C1CA2481455D1D6359E5010BFB4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1117781   (814412) от 24.03.2017
 
 Microsoft® Windows® 8.1 Professional VL with Update 3 x86-x64 Ru by OVGorskiy® 03.2017 2DVD
@@ -6,7 +164,7 @@ Microsoft® Windows® 8.1 Professional VL with Update 3 x86-x64 Ru by OVGorskiy�
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814412.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814411.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814410.jpg" />
 </div>
 
 
@@ -84,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814409.jpg" />
 </div>
 
 
@@ -111,7 +269,7 @@ Geekbrains | Системное администрирование. Введен
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814305.jpg" />
 </div>
 
 
@@ -140,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814303.jpg" />
 </div>
 
 
@@ -170,7 +328,7 @@ Shogun 2: Total War (2011) [Ru/En] (1.1.0/15dlc) Repack R.G. Catalyst [Gold Edit
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814302.jpg" />
 </div>
 
 
@@ -196,7 +354,7 @@ WINDOWS 7 BLACK EDITION CLASSIC FULL 2 DVD 29.04.10 16385 [русский]
 >>11
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814257.jpg" />
 </div>
 
 
@@ -223,7 +381,7 @@ Disciples: Liberation (2021) [Multi] (1.0.1.B200.R53076) License CODEX
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813340.jpg" />
 </div>
 
 
@@ -249,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813338.jpg" />
 </div>
 
 
@@ -275,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813053.jpg" />
 </div>
 
 
@@ -301,7 +459,7 @@ Life Is Strange (2015) [Ru/Multi] (1.0.0.397609) Repack R.G. Механики [C
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813052.jpg" />
 </div>
 
 
@@ -327,7 +485,7 @@ The KMPlayer 3.0.0.1440 [Multi/Русский]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812859.jpg" />
 </div>
 
 
@@ -353,7 +511,7 @@ Adguard Премиум 6.0.226.1108 [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812792.jpg" />
 </div>
 
 
@@ -379,7 +537,7 @@ Arma 3/III (2013) [Ru/En] (1.56.134627/upd42/dlc) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812790.jpg" />
 </div>
 
 
@@ -405,7 +563,7 @@ Graviteam Tactics: Mius-Front (2016) [Ru/En] (6.0.3598/4) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812788.jpg" />
 </div>
 
 
@@ -431,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812785.jpg" />
 </div>
 
 
@@ -457,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812547.jpg" />
 </div>
 
 
@@ -483,7 +641,7 @@ BELOFF 2017.3 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812539.jpg" />
 </div>
 
 
@@ -509,7 +667,7 @@ Navitel / Навител Навигатор v9.7.2286 Full  для карт ре
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812538.jpg" />
 </div>
 
 
@@ -520,164 +678,6 @@ Navitel / Навител Навигатор v9.7.2286 Full  для карт ре
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD0D6B50D2FC7A1294B01ED400BD7FBD7F83937D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118303   (812537) от 25.03.2017
-
-Изгой-один: Звёздные войны. Истории / Rogue One: A Star Wars Story (2016) BDRip [H.264/720p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812537.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сопротивление собирает отряд для выполнения особой миссии — надо выкрасть чертежи самого совершенного и смертоносного оружия Империи. Возглавляет бойцов неуправляемая и бесстрашная Джин Эрсо, у которой в этом самоубийственном задании есть и личные мотивы. Не всем суждено вернуться домой, но герои готовы к этому, ведь на кону судьба Галактики.Производство: США, Allison Shearmur Productions, Black Hangar Studios, Lucasfilm Ltd., Walt Disney Studios Motion PicturesЖанр: Фантастика, Боевик, ПриключенияРежиссер: Гарет ЭдвардсАктеры: Фелисити Джонс, Мадс Миккельсен, Алан Тьюдик, Донни Йен, Бен Мендельсон, Форест Уитакер, Диего Луна, Джонатан Арис, Риз Ахмед, Артур Л. БернштейнПеревод: Дублированный (iTunes)Субтитры: Русские (форс., полные) английские (полные, SDH)Продолжительность: 02:14:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1A3C63CDC3BEE8CBD114BCC1E951C1168D1C6A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 280204   (812536) от 25.03.2017
-
-Naruto Shippuuden / Наруто: Ураганные хроники [2007 - 2017, TV, 500 эп.] SDTV raw rus
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812536.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире Наруто незаметно пролетели два года. Бывшие новички пополнили ряды опытных шиноби в ранге тюнин и дзёнин. Главные герои не сидели на месте – каждый стал учеником одного из легендарных Саннин – трех великих ниндзя Конохи. Парень в оранжевом продолжил обучение у мудрого, но эксцентричного Дзирайи, постепенно восходя на новую ступень боевого мастерства. Сакура (   Читать дальше...   )Жанр: Приключения, комедия, боевые искусства, сёнэнРежиссер: Датэ ХаятоПеревод: Mr.Well, DarkDragon, Palladis Tamia, Deep Kamate, Weiss, Hit & MakeОзвучка: Любительский одноголосый / Любительский двухголосый ( Ancord & Noir )Продолжительность: ТВ, 500 серий по ~24 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3007EE85627CADE7D9A8A44A2006831C99EE3D81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 883498   (812515) от 31.03.2015
-
-Сволочи (2006) BDRip [1080p] [hand made 60fps]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812515.jpg" />
-</div>
-
-
-###  Подробнее
-
-1943 год. Полковник Вишневецкий получает правительственное задание: подготовить диверсионную группу бойцов-смертников, которая должна блокировать действия отборных немецких соединений «Эдельвейс». Группа набирается из отчаянных мальчишек 14—15 лет, сирот, которых никто не будет искать.
-
-Подростков отправляют в потайной горный лагерь, где они проходят специальную (   Читать дальше...   )Производство: Россия / Кинокомпания «Парадиз»Жанр: Боевик, драма, военныйРежиссер: Александр АтанесянАктеры: Андрей Панин, Андрей Краско, Александр Головин, Ростислав Бершауэр, Сергей Рыченков, А. Бобров, Олег Буганов, Кирилл Емельянов, Митя Горевой, Владимир КашпурПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 01:37:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23DF369E0013D560D914668D885151F7548298A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 875914   (812436) от 31.03.2015
-
-CFW Darknet 4.70 (Standart + Cobra 7.05) [PS3] [EUR] [4.70] [Unofficial] [Multi] (2015)
-
->>3
->>9
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812436.jpg" />
-</div>
-
-
-###  Подробнее
-
-Корейский разработчикРазработчик: DarkjirosЖанр: ПрошивкаЯзык интерфейса: Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B48DEFAB138B652B6AF5EC9F9787D5D4DE47C784
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 767651   (812435) от 31.03.2015
-
-Сборник видеоклипов от BSV Labs (upd 03.03.2015) / РУССКИЕ КЛИПЫ / 1258 штук / 1950 - 2015 / Поп, Рок, Ретро и др. / BDRip, DVDRip, TVRip, SATRip и др.
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вот решил поделиться своей коллекцией клипов. Собираю их уже много лет. Увлекательное хобби, так как в отличии от mp3 их гораздо меньше. К тому же научился реставрировать видео и звук, на любительском конечно, но вполне достаточно для меня уровне. Основная масса коллекции это клипы 80-х и 90-х. Хотя есть самые модные и очень старые. Упор делается на ОРИГИНАЛЬНЫЕ (   Читать дальше...   )Жанр: Поп, Рок, Ретро и др.Формат: avi, mpg, mpeg, dat, divx, vob, flv, wmv, mp4, mkv
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 831402   (812432) от 31.03.2015
-
-Ходячие мертвецы / The Walking Dead  (2014) WEB-DL [H.264/720p-LQ] (сезон 5, серии 1-16 из 16) LostFilm
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал рассказывает историю жизни семьи шерифа после того, как «зомби» — эпидемия апокалиптических масштабов захлестнула земной шар. Шериф Рик Граймс путешествует со своей семьей и небольшой группой выживших в поисках безопасного места для жизни. Но постоянный страх смерти каждый день приносит тяжелые потери, заставляя героев почувствовать глубины человеческой жестокости. (   Читать дальше...   )Производство: СШАЖанр: ужасы, триллер, драма, приключенияРежиссер: Эрнест Р. Дикерсон, Билл Джирхарт, Гай ФерлендАктеры: Эндрю Линкольн, Сара Уэйн Кэллис, Лори Холден, Стивен Юн, Чендлер Риггз, Норман Ридус, Айрон Э. Синглтон, Мелисса Сюзанн МакБрайд, Лорен Коэн, Джон Бернтал и др.Перевод: Многоголосый закадровый, профессиональный - LostFilmФормат: MKVПродолжительность: ~00:43:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50C054D6A93382EBBBCC73351E42C417457A52F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

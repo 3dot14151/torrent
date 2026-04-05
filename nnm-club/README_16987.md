@@ -1,25 +1,25 @@
-###  Публикация: 1258063   (341342) от 28.10.2018
+###  Публикация: 1419359   (342054) от 27.10.2020
 
-VA - FG Top 10: October (2018) [MP3|320 Kbps] <Trance>
+Wonder - Up & Down (1980) LP [MP3|320 Kbps] <Electronic, Disco>
 
->>Electronic
->>Trance
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342054.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Max Freegrant & Slow Fish – The Dark Side (Extended Mix)
-02. Andre Sobota – Ground Level (Rokazer Remix)
-03. H3 – Windfall (Original Mix)
-04. Tony Hammer – Wild West (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:04:50
+01. Up And Down  (8:38)
+02. I Have Pushed  (7:21)
+03. My Trip  (7:27)
+04. O.K.  (4:47)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:39:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5715F24EE90A9D05FC8C6E0C926AA8AB35050210
+magnet:?xt=urn:btih:3E686D6F46D4283F4BA9EE712D1BD433BFE0F3C6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257981   (341341) от 28.10.2018
+###  Публикация: 1419083   (342053) от 27.10.2020
 
-Футбол. Лига Европы УЕФА 2018-2019. Группа C. 3-й тур. Зенит (Россия) — Бордо (Франция) (25.10.2018) WEB-DL [H.264/720p-LQ]
+Чемпионат мира по шоссейно-кольцевым мотогонкам в классе MotoGP 2020. Гран-При Теруэля / MotoGP 2020. Teruel GP (2020) WEB-DL [H.264/720p-LQ]
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Спорт и активный отдых
+>>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342053.jpg" />
 </div>
 
 
 ###  Подробнее
 
-25 октября 2018 года, четверг. 19:55 МСК
-Лига Европы УЕФА 2018 - 2019. Групповой турнир
-Группа C. 3-й тур.
-Зенит (Санкт-Петербург, Россия) — Бордо (Бордо, Франция)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:06:19
+MotoGP — главное престижное соревнование по шоссейно-кольцевым мотогонкам на гоночных мотоциклах.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 01:32:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7F244F2A2FEB6FF9C09204B680A487FAA2725E52
+magnet:?xt=urn:btih:0D99C2AF6B4D0238DEE1D7C08BCB8BE756675C45
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,31 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257898   (341340) от 28.10.2018
+###  Публикация: 1419178   (342052) от 27.10.2020
 
-VA - Ultimate House Party (2018) [MP3|320 Kbps] <House, Dance>
+VA - Fly To Moscow (2018) Unofficial [MP3|320 Kbps] <Italo-Disco, Synthpop>
 
->>Electronic
->>House
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342052.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD 01:
-
-01. Neneh Cherry - Buffalo Stance
-02. Blondie - Heart Of Glass(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:11:56
-
-01. DNCE - Cake By The Ocean
-02. Sean Paul Feat. Dua Lipa - No Lie(   Читать дальше...   )
+01. Modern Trouble - Fly To Moscow (12'' Version) (5:45)
+02. Carl Max (12 - Bolschevita (12'' Version) (5:30)
+03. Laser Cowboys - Radioactivity (From The Ucraine) (12'' Version) (6:44)
+04. Hectic Electric - Glasnost (The Ultimate Monster Mix) (6:28)(   Читать дальше...   )Жанр: Italo-Disco, SynthpopПродолжительность: 01:19:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BA673AE81A58D62E4AFCFC9BA49AFD616B88D54C
+magnet:?xt=urn:btih:5C07D805820F8663475E75AE2A7942975AE12E95
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -88,28 +82,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258082   (341339) от 28.10.2018
+###  Публикация: 1419175   (342051) от 27.10.2020
 
-Nik Sun - Dancefloor Boost (2018) [MP3|320 Kbps] <Trance,House>
+Piano Fantasia & Beautiful Ballet - Song For Denise / Energy (2020) Unofficial [MP3|320 Kbps] <Italo-Disco, Hi-NRG>
 
->>Архив торрентов
->>Архив Музыки
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342051.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. 5.00 AM (Original Mix)
-02. Stop The Fire (Original Mix)
-03. I Want Another (Original Mix)
-04. I Need You (Original Mix)(   Читать дальше...   )Жанр: Trance,HouseПродолжительность: 02:20:46
+01. Piano Fantasia - Song For Denise (Audiophile Dance-Mix) (6:53)
+02. Piano Fantasia - Walkman (12'' Version) (7:23)
+03. Piano Fantasia - Playing (12'' Version) (5:12)
+04. Piano Fantasia - Sidewalk (12'' Version) (4:59)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRGПродолжительность: 01:18:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:773F85F4CAB74B99973A054985C486C5FEFD5F01
+magnet:?xt=urn:btih:B58F0FD7266A070F596BACB4DA71ED0B84DCAA88
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -117,26 +111,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257999   (341338) от 28.10.2018
+###  Публикация: 1419081   (342050) от 27.10.2020
 
-Рудольф Боммели | История Земли (1912) [PDF]
+Grainne Duffy - Voodoo Blues (2020) [MP3|320 Kbps] <Blues Rock>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
+>>Jazz, Blues, Soul
+>>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342050.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Земля. Геодезия. География. Геология. Планета.
-Для среднего и старшего школьного возраста.Жанр: Образование, обучение и развитие детейФормат: PDF
+01. Voodoo Blues (02:47)
+02. Mercy (02:27)
+03. Blue Skies (03:02)
+04. Shine It On Me (03:01)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:31:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B208D68735AF6F8BF3B257D60D20ADF0FB438ADE
+magnet:?xt=urn:btih:BC3E6BADB5A71776D96ACBC9A118CEA02D3587B7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -144,305 +140,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258174   (341337) от 28.10.2018
+###  Публикация: 1419253   (342049) от 27.10.2020
 
-Abney Park - Under The Floor, Over The Wall (2016) [FLAC|Lossless|tracks + .cue] <Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mister Overkill (4:24)
- 02. Your Escape (5:04)
- 03. Armor and Flight (3:33)
- 04. His Imaginary World (4:27)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:01:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E523C79EAE40314A4BA9F2393F623230DC920A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258096   (341336) от 28.10.2018
-
-Ensiferum - Two Paths (2017) [FLAC|Lossless|tracks + .cue] <Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ajattomasta Unesta (2:12)
- 02. For Those About to Fight for Metal (5:18)
- 03. Way of the Warrior (3:57)
- 04. Two Paths (4:48)(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:53:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61B12197ED4930B9601ED5700F038CF30A8DA0C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258033   (341335) от 28.10.2018
-
-Футбол. Лига Европы УЕФА 2018-2019. Групповой этап. Обзор матчей 3-го тура (25.10.2018) IPTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341335.jpg" />
-</div>
-
-
-###  Подробнее
-
-25 октября 2018 года, четверг.
-Лига Европы УЕФА 2018-2019. Групповой этап
-Обзор матчей 3-го тура
-В обзор вошли далеко не все матчи из 24 сыгранных.Телекомпания: Матч! Футбол 1 HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:23:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA6978C2CC0ECBC631E60EDD608C08164AF54CB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257960   (341334) от 28.10.2018
-
-А. Г. Бокщанин | Социальный кризис Римской империи в I веке н. э. (1954) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341334.jpg" />
-</div>
-
-
-###  Подробнее
-
-Избирая предметом настоящей монографии социальную историю Римской империи в первый век ее существования, концентрируя свое внимание на причинах, сущности и следствиях политического кризиса, пережитого римской рабовладельческой державой в середине I в. н. э., автор не претендует на исчерпывающее разрешение всех проблем экономической и социальной истории древнего Рима (   Читать дальше...   )Жанр: История, политология, экономика, социологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ECEC8B25FE67F0FD8272876CB322867F5118592
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258012   (341333) от 28.10.2018
-
-Axxis - Monster Hero (2018) [FLAC|Lossless|image + .cue] <Melodic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341333.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Monster Hero (4:04)
-2. Living as Outlaws (3:33)
-3. Rock is My Religion (4:09)
-4. Love is Gonna Get You Killed (3:59)(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:56:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BD3479617284A90C86C59AE0A982B2895689B38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 410959   (341325) от 15.11.2011
-
-М. Скребцова, А. Лопатина | Раскрась, малыш! (2009) [JPЕG]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Рабочие тетради, прописи и разукрашки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341325.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книжка раскраска из серии Раскраска по образцу. Каждую картинку сопровождает стихотворение.Жанр: РаскраскаФормат: JPЕG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3427046E96BC05EB8DDCEF9ED289FBD0C8D22A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330386   (341318) от 10.10.2019
-
-VA - Jungle Sound Party (2019) [MP3|320 Kbps] <Jungle, Bass, DnB>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Annix - Only Forever
-02. Duoscience - New York City (Original Mix)
-03. Happy Bandana - Good Marijuana (Original Mix)
-04. Artfckt - Epoch (Original Mix)(   Читать дальше...   )Жанр: Jungle, Bass, DnBПродолжительность: 05:32:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:961ED1F31AE38D99DA7232E2136BB20BCC14966B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330241   (341317) от 10.10.2019
-
-Solis & Sean Truby with Audrey Gallagher - Skin Deep (Solis & Sean Truby vs. Ultimate Remix) (2019) Single [FLAC|Lossless|WEB-DL|tracks] <Trance, Uplifting>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341317.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Skin Deep (Solis & Sean Truby vs. Ultimate Extended Remix) [07:52]
-2. Skin Deep (Solis & Sean Truby vs. Ultimate Remix) [03:45]Жанр: Trance, UpliftingПродолжительность: 00:11:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D06C5E4C2F929CA5332B75EF4293075431992D07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330395   (341315) от 10.10.2019
-
-Схиигумен Гавриил (Виноградов-Лакербая) (ред.-сост.) | Краткое правило для благочестивой жизни (2018) [PDF, DJVU, FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341315.jpg" />
-</div>
-
-
-###  Подробнее
-
-Духовные наставления этой небольшой книги написаны для тех, кто не желает годами топтаться на одном месте, но стремится к деятельной жизни во Христе и к духовно-нравственному самосовершенствованию через ежедневную работу над собой. Эти поучения будут чрезвычайно полезны всем, кто твёрдо намерен следовать путём спасения.Жанр: ПравославиеФормат: PDF, DJVU, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D46D76BD97C47FB9421BF58D8BB746B1CB5E20BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330240   (341312) от 10.10.2019
-
-Solis & Sean Truby with Audrey Gallagher - Skin Deep (Solis & Sean Truby vs. Ultimate Remix) (2019) Single [MP3|320 Kbps] <Trance, Uplifting>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341312.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Skin Deep (Solis & Sean Truby vs. Ultimate Extended Remix) [07:52]
-2. Skin Deep (Solis & Sean Truby vs. Ultimate Remix) [03:45]Жанр: Trance, UpliftingПродолжительность: 00:11:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E25304FFA57DE6EDD86CF8A7D405797428884DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330268   (341311) от 10.10.2019
-
-Fantastical 2 v2.5.11 [Multi]
+KeyCue 9.8 [Multi]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342049.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Популярное приложение-календарь Fantastical 2 сегодня появилось в Mac App Store. Органайзер получил обновленный внешний вид в стиле macOS.
-Особое внимание разработчики уделили новому дизайну приложения. Внешний вид программы полностью соответствует macOS.
-
-Fantastical - приложение представляет собой календарь, располагающийся в строке меню, с возможностью добавления (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.10.2019Разработчик: Flexibits Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Французский и др.
+KeyCue – удобная утилита, которая поможет пользователю, особенно начинающему, запоминать комбинации клавиш быстрого доступа (шорткаты) во время работы в меню маковских приложений.
+При удержании клавиши Command, выскакивает окно со списком шорткатов, доступных для интерфейса данной программы. После того, как пользователь находит и нажимает нужную ему комбинацию, окно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.10.2020Разработчик: Ergonis SoftwareПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Немецкий, Французский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7231F05417F9466CCE09C7EF637EF1C0E0E9433E
+magnet:?xt=urn:btih:B0519366BAA8BD2B2219469F1889AC60087B27DA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -450,28 +167,141 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330367   (341309) от 10.10.2019
+###  Публикация: 1419058   (342048) от 27.10.2020
 
-Sylvia Vrethammar - Vortex (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz, Bossa>
+VA - Dance Club 2020.03 (2020) [MP3|320 Kbps] <Dance, Pop, Deep House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Felix Jaehn feat. Nea & Bryn Christopher - No Therapy [2:52]
+02. twocolors - Lovefool [3:10]
+03. VIZE & Tom Gregory - Never Let Me Down [2:33]
+04. Tujamo x VIZE & MAJAN - Lonely [2:49](   Читать дальше...   )Жанр: Dance, Pop, Deep HouseПродолжительность: 01:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F006FAB4F05B66D2384B3393B7553A42986BF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419182   (342047) от 27.10.2020
+
+Mirko Hirsch - Missing Pieces - Return to Neon (2020) Special Edition [MP3|320 Kbps] <Italo-Disco, Euro-Disco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Return To Neon (4:33)
+02. Pandora's Box 2020 (5:02)
+03. Heart On Fire (4:35)
+04. When Love Said No (4:22)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, SynthpopПродолжительность: 01:58:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:168D0C907D5092C9C4272125DC3F1AE2CE2595B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418914   (342046) от 27.10.2020
+
+И. Л. Альтман | Лессинг и драма (1939) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лессинг дорог и близок нам теми революционно-просветительскими и демократическими идеями, которыми проникнута была вся его деятельность. Революционный мыслитель-«одиночка», он делал в Германии то же, что во Франции делала целая плеяда блестящих просветителей-энциклопедистов, подготавливая буржуазную революцию. Виднейший революционный просветитель XVIII века, Лессинг (   Читать дальше...   )Жанр: История, искусство, драматургияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A7245BD8210B242401FDEBF7053FE7FE23A7FFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419350   (342045) от 27.10.2020
+
+VA - Cappuccino Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Schwarz & Funk - Free Floating (Original Mix)
+02. Chillson, Marc Hartman - Streets of Love (Original Mix)
+03. Lounge Groove Avenue - Cover It Up
+04. Pier-O - Arthur (Original Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:31:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FD91FD24F0A41E2C61AB43DCC9861DAE38F4EF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419205   (342044) от 27.10.2020
+
+Nina Simone - The Nina Simone Anthology (1960-e - 1970-e) 2013, 2CD, Salvo [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Soul-Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342044.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Round Midnight
-02. The Look of Love
-03. Love for Sale
-04. Corcovado(   Читать дальше...   )Жанр: Jazz, Vocal Jazz, BossaПродолжительность: 00:52:34
+CD1:
+01. My Baby Just Cares for Me [3:39]
+02. I Want a Little Sugar in My Bowl [2:35]
+03. Ain't Got No - I Got Life [2:11](   Читать дальше...   )Жанр: Vocal Jazz, Soul-JazzПродолжительность: 02:29:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:320917BE73D05A104172D1160961CF053928B2EB
+magnet:?xt=urn:btih:DB518B5050E877DD5BA44BB0E098E993CF5B89AB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -479,25 +309,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330426   (341307) от 10.10.2019
+###  Публикация: 1419328   (342043) от 27.10.2020
 
-Devonthink Pro Office 3 v3.0.1 [En]
+Анастасия Мещерякова | Почемучкины опыты и эксперименты. География (2017) [PDF]
 
->>Архив торрентов
->>Архив 4Apple
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342043.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Devonthink Pro Office — программное обеспечение для хранения, организации и поиска электронных документов. Devonthink Pro Office в некотором роде можно назвать Вашим вторым мозгом, хранящим все цифровые файлы, будь то PDF-файлы, электронные письма, документы Word, или даже мультимедиа. Devonthink чрезвычайно гибок и легко настраивается под Ваши потребности. А если (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.10.2019Разработчик: DEVONsphere™Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+В книге А. Мещеряковой «География» ты найдешь несколько любопытных рассказов о том, как устроена планета на которой мы живём: отчего происходят землетрясения, извержения вулканов, цунами, отчего сменяются день и ночь, почему возникли горы, острова, пустыни, как образовались материки, а также 8 интереснейших геологических экспериментов. Все эксперименты разработаны (   Читать дальше...   )Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5A0E21F157B548D371E53E755A62A1416782DCC8
+magnet:?xt=urn:btih:82E3896FDE1D241EAA54BEA31BE39E6781E9668D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -505,80 +335,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330478   (341305) от 10.10.2019
+###  Публикация: 1419230   (342042) от 27.10.2020
 
-Movist Pro 2.2.9 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Movist является простым в использовании и мощным проигрывателем видео, который поддерживает множество полезных функций для просмотра фильмов включая: H.264 декодирование видео, цифровой аудиовыход (S / PDIF), высокое качество субтитров, полноэкранный режим, удобный и красивый пользовательский интерфейс.
-
-Из полезных функций можно также отметить удобный полноэкранный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.05.2019Разработчик: MovistПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Мультиязычный, включая русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5BDB0ED6B0B0D911AB54982715BBD98BEB63DC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330471   (341303) от 10.10.2019
-
-Васёк Трубачёв и его товарищи (1955) DVDRip
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм повествует о жизни и приключениях советских школьников в предвоенные годы. О том, как вчерашние друзья - одноклассники едва не становятся врагами. Фильм первый, снятый по одноименному роману - трилогии Валентины Осеевой.Производство: СССР / Киностудия им. ГорькогоЖанр: Приключения, СемейныйРежиссер: Илья ФрэзАктеры: Олег Вишнев, Саша Чудаков, Вова Семенович, Слава Девкин, Жора Александров, Наталья Рычагова, Валерий Сафарбеков, Юра Башкиров, Борис Канарейкин, Оля Троицкая, Юрий Боголюбов, Леонид Харитонов, Иван Пельтцер, Анастасия Зуева, Юрий Медведев, Пётр Алейников, Иветта Киселёва, Нина Никитина...Продолжительность: 01:16:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4312EE0AE1A95D19B9D7C0269F3036FFCD9D759D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330461   (341301) от 10.10.2019
-
-Orjan Nilsen pres. Orion - Gobstice (2007) EP [FLAC|Lossless|WEB-DL|tracks] <Trance>
+VA - Ensancha El Alma Vol. 2 (2020) Ensancha El Alma Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Ambient, Psy-Trance, Progressive Trance>
 
 >>Electronic
->>Trance (Lossless)
+>>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342042.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Gobstice (Original Mix) [09:48]
-2. Adamantica (Original Mix) [09:17]Жанр: TranceПродолжительность: 00:19:05
+01. Androcell - Earth And Sky (09:17)
+ 02. Lab's Cloud - Su Alma, Su Cuerpo Y Su Corazón (09:09)
+ 03. Gaudi - In The Middle Of Bad And Good (05:51)
+ 04. Mindsphere - Consciousness (07:11)(   Читать дальше...   )Жанр: Psybient, Downtempo, Ambient, Psy-Trance, Progressive TranceПродолжительность: 01:17:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E5FBE773540AA3D86D5FCF66DD0716C7F4EB86C3
+magnet:?xt=urn:btih:4634C257C74EC27A4841F686018874ABEBD83BB6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -586,25 +364,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330402   (341299) от 10.10.2019
+###  Публикация: 1419189   (342041) от 27.10.2020
 
-Екатерина Рождественская | Двор на Поварской (2018) [MP3]
+Mirko Hirsch - Missing Pieces - Return to Neon (2020) Special Edition [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco, Synthpop>
 
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342041.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Автор – популярный российский фотограф, журналист, переводчик, фэшн-дизайнер. Книга основана на реальных событиях и являет собой плод синтеза мемуарной прозы и романа, воспоминаний и писательского вымысла. Это история одного московского двора, с его особым воздухом, с удивительными человеческими судьбами. Двор не выдуман, у него есть адрес: Москва, улица Поварская (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 08:51:18
+01. Return To Neon (4:33)
+02. Pandora's Box 2020 (5:02)
+03. Heart On Fire (4:35)
+04. When Love Said No (4:22)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, SynthpopПродолжительность: 01:58:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3E45856DA68896905F0CB6CD03048AFB7821BEDE
+magnet:?xt=urn:btih:BABBCF08DFD469BF9CD2E7D730CC5E5FE1ED8EB7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -612,109 +393,322 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330188   (341297) от 10.10.2019
+###  Публикация: 1419222   (342040) от 27.10.2020
 
-VA - Bass Line Beastmode (2019) [MP3|320 Kbps] <DnB, Dubstep, Jungle>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341297.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hugh Hardie - Cold Touch
-002. Tyrone - Velvet (Original Mix)
-003. Nightmare - No Delay
-004. Dominowe Feat. Fawell - Abantu Benu(   Читать дальше...   )Жанр: DnB, Dubstep, JungleПродолжительность: 09:06:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77309FCC3DD2B06F3916D8535BA94080DB035E54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330415   (341295) от 10.10.2019
-
-Владимир Муравьёв | Карамзин (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Николай Михайлович Карамзин — великий российский историк и писатель, реформатор отечественной словесности. Создатель бессмертной повести «Бедная Лиза», он не только положил начало новому литературному направлению — сентиментализму, но и определил дальнейшие пути развития отечественной литературы. Однако главным трудом всей его жизни по праву считается двенадцатитомная (   Читать дальше...   )Жанр: Биографии и мемуарыПродолжительность: 22:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64830A864B8FC19B361F85C70D235D192616FC4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330409   (341293) от 10.10.2019
-
-VA - Autumn Electro Dance Session (2019) [MP3|320 Kbps] <Dance, Electro, Dance House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341293.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alex Marttin - Body Like
-002. Ken Laszlo Duet - What A Lonely Night
-003. Zippers - All Around The World
-004. Sixnautic - Sytze Wierda(   Читать дальше...   )Жанр: Dance, Electro, Dance HouseПродолжительность: 12:59:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EAF164141F8130DFB9072DC96B87731090CFA1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330430   (341291) от 10.10.2019
-
-Adguard 2.1.4.619 nightly (CL - 1.5.60)[Multi/Ru]
+Glary Utilities Pro 5.153.0.179 Repack (& Portable) by Dodakaedr [Ru/En]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342040.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Adguard — это лучший способ избавиться от раздражающей рекламы, защититься от онлайн-слежки и мошеннических сайтов. Adguard – интернет-фильтр для защиты пользователей от опасных веб-сайтов, блокировки всех возможных видов рекламы в Интернете. Программа представляет собой отличное дополнение для вашей основной антивирусной защиты с эффективной блокировкой вредоносных, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: AdguardПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
+Glary Utilities - функциональный набор системных твикеров и утилит, для тонкой настройки, повышения общего уровня производительности и защиты ПК. Данное приложение позволяет пользователю избавиться от ненужных файлов, от устаревших регистрационных записей и истории интернет-активности, посредством установки различных плагинов, можно добиться полной совместимости (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B5617CD29B1C498B95B3EE44540FF0A0A2B5539C
+magnet:?xt=urn:btih:5AC966A1AF1E53D1FD862CEB5889DB5C78595A38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419292   (342039) от 27.10.2020
+
+Joy Peters - Burning Dreams (2020) [MP3|320 Kbps] <Italo-Disco, Euro-Disco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (1:11)
+02. Roses In Bloom (6:04)
+03. Lilac Flower (6:09)
+04. Burning Dreams (DJ Version) (6:50)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, SynthpopПродолжительность: 01:16:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62563249BC9F50E6B30D2B8943DAFAFE7CB3E277
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569996   (342038) от 25.11.2012
+
+Realtek High Definition Audio Driver (3.58) 6.0.1.6761 [Мульти/Русский] Неофициальные. Обновляемый релиз
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_342038.jpg" />
+</div>
+
+
+###  Подробнее
+
+Realtek High Definition Audio Driver - драйвера для звуковых карт High Definition Audio Codec и для аудиочипов производства Компании Realtek Semiconductor Corp.
+Преимуществами спецификации High Definition Audio перед AC'97 являются: полноценная поддержка новых форматов звука, более высокая частота пропускания, поддержка подключения аудио-устройств по технологии Plug and Play, более точное распознавание речи и ее ввод.Язык интерфейса: Мульти/Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580883   (342037) от 25.11.2012
+
+The Guild II Renaissance [WineSkin]
+
+>>Игры для macOS
+>>Strategy, RPG для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_342037.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самостоятельное дополнение Renaissance ничем не хуже оригинала. Здесь, как и прежде, экономической составляющей уделяется львиная доля внимания. Начинать приходится в нищенских и несправедливых условиях: денег мало, социальное положение удручающее, связей нет, равно как и брачных уз. А еще в «Ренессансе» (тоже традиционно для The Guild 2) нет туториала. Мы, конечно, понимаем стремление разработчиков создать в меру хардкорный экономический симулятор с возможностью непосредственного контроля, а заодно и желание сразу внушить, что легких путей ждать не придется, и отсеять тех, кто не играл ни во что серьезнее тех же самых The Sims. Но в конце-то концов! Часик времени, сэкономленного на освоении минимальной инструкции, иногда оказывается очень нужным. Как говорится, за это время можно было успеть десять раз детей зачать.
+
+Оставляем дежурные ругательства и переходим к главному. Старт кампании предваряется выбором одного из четырех режимов. Тут есть соревнования на время или выбывание, «Династия» или «Миссия». Все они (   Читать дальше...   )Релиз состоялся: 2010 г.Тип издания: MacOS X portЖанр: StrategyЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580499   (342036) от 25.11.2012
+
+Сумерки. Сага. Рассвет: Часть 2 - The Twilight Saga: Breaking Dawn - Part 2 (2012) [MP3|320 кб/с]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342036.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ScoreПродолжительность: 01:12:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95CED7840C080661537127A26D01C9249CA09051
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 579925   (342035) от 25.11.2012
+
+SCP - Containment Breach / SCP - Нарушение условий содержания [En] (RePack/0.5.6) 2012 l Vlad-00003
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_342035.jpg" />
+</div>
+
+
+###  Подробнее
+
+SCP: Containment Breach - новый жуткий survival-horror по мотивам историй о SCP Foundation! Вы будете играть за одного из работников SCP лаборатории, который оказался запертым в одном из помещений, когда несколько из SCP-объектов вырвались на свободу. Сюжет игра строится вокруг объекта SCP-173. Стоит вам только отвернуться от него или просто моргнуть, и он сломает вам шею.Тип издания: RePackРазработчик: RegalisЖанр: FPS / ActionЯзык озвучки: -/-Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 578988   (342034) от 25.11.2012
+
+Татьяна Рогатина | Джирокинезис - Начальный Уровень (2011) DVDRip
+
+>>Обучающие видеоматериалы
+>>Здоровье и Спорт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342034.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основа занятий джирокинезисом заключается в работе тела через семь естественных движений позвоночника: вперед, назад, вправо, влево, скручивание влево, скручивание вправо и круговое движение. Эта методика систематично и мягко прорабатывает суставы и мышцы посредством ритмичных и волнообразных упражнений. Движение, при соответствующих меняющихся режимах дыхания, стимулирует (   Читать дальше...   )Производство: РоссияЖанр: Спорт, аэробика, фитнес, обучающая программаПродолжительность: 00:49:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E86884E207ABE2888C009B441829E9E089D2EC35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580600   (342033) от 25.11.2012
+
+Луи Буссенар | Собрание сочинений (68 книг) [2009-2012] [FB2]
+
+>>Художественная литература
+>>Собрания книг иностранных авторов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Луи Буссенар (Louis Boussenard), Франция, 4.10.1847 - 11.9.1910.
+Автор приключенческих романов и неутомимый путешественник, Луи Анри Буссенар родился 4 октября 1847 года в Эскренне (департамент Луаре, Франция). Едва он успел окончить медицинский факультет в Париже, как летом 1870 года началась франко-прусская война и Буссенар был мобилизован в армию. Служил он в качестве полкового врача, в сражении при Шампиньи Луи Буссенар был ранен. После войны он оставил медицину и вернулся в Париж, где целиком посвятил себя литературным занятиям. В 1877 году Буссенар начал публиковать остросюжетные романы, насыщенные географическим и естественно-историческим материалом. Уже первые его романы, увидевшие свет году в “Журналь де Вояж”, сделали его имя известным в литературных и читательских кругах - “Через Австралию” и “Путешествие парижского гамена вокруг света”. Обычно героями произведений Буссенара были молодые французы, выказывающие чудеса храбрости и сообразительности, а действие разворачивалось в отдаленных и малоизвестных (   Читать дальше...   )Жанр: ПриключениеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:162167EE0245202B1A32C1E8D691B93832C7424A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580187   (342032) от 25.11.2012
+
+Новобранцы идут на войну / Les bidasses s'en vont en guerre (1974) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четыре друга-балбеса отправляются в армию. Как и водится, их командир – зверь-сержант, больше всего ценящий в людях дисциплину. Поэтому армейская жизнь квартета складывается в основном из пребывания на гауптвахте и побегов оттуда. Некоторое разнообразие в «скучную» армейскую жизнь «Шарло» вносят армейские учения, во время которых действие комедии переносится на живописные просторы сельской Франции.Невероятно смешные приключения квартета «Шарло» («Четыре мушкетера», «Четверо против кардинала») в комедии самого (   Читать дальше...   )Производство: Франция, Италия, Германия (ФРГ); F.C.F., Films 7, Les Films Christian Fechner, Renn Productions, Simar Films, Terra FilmkunstЖанр: Комедия, Приключения, ВоенныйРежиссер: Клод ЗидиАктеры: Жан-Ги Фечнер, Жерар Филипелли, Жерар Ринальди, Жан Саррю, Жак Сейлер,  Мариза Мерлини, Хайди Болен, Паоло Стоппа, Мириам Буайе, Бригитте ШтайнПеревод: ДублированныйПродолжительность: 01:24:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3CB38205AE9EDFD02004DC8E7FFA90510068B7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580816   (342031) от 25.11.2012
+
+Станислав Сергеев | И снова война [2012] [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342031.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключения майора Оргулова и его соратников продолжаются. Возможностьпутешествия во времени дает шанс на выживание обреченным людям, прошедшим гражданскую войну и глобальный ядерный конфликт…
+При подготовке к эвакуации в прошлое, выясняется, что участниками ядерного конфликта приведён в действие план тотального уничтожения противника «Тень-2». Остатки (цензура)октатов усиленно пытаются выяснить источники благосостояния заштатного бункера, а в 41 году две самые мощные спецслужбы Рейха, Абвер и СД объединились (   Читать дальше...   )Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80BE7B5F8C79C8BD2C89E1DFE4F9D81CA658951C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 578419   (342026) от 25.11.2012
+
+Intel Parallel Studio XE 2013 for Windows 13.0.1194.11 [English]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_342026.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компиляторы для C++ и Fortran от Intel. Считаются очень быстрыми и надёжными.Название программы: Intel Parallel Studio XE 2013 for WindowsЯзык интерфейса: English
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 548541   (342025) от 25.11.2012
+
+The Dark Eye. Chains Of Satinav [Ru/En] (Repack/1.1) 2012 | Fenixx
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342025.jpg" />
+</div>
+
+
+###  Подробнее
+
+История The Dark Eye: Chains of Satinav развивается вдалеке от Авентурии. Главный герой, молодой зверолов Герон, живет в небольшом королевстве на северо-западе, именуемом Андергаст. Жители этого отдаленного региона очень суеверны – приметы есть практически на любое событие.
+Когда король ждет посла с соседнего королевства, чтобы положить конец многовековой вражде, жителей мучают нападения агрессивной стаи странных воронов. Жертвы нападений также утверждают, что птицы приносят ночные кошмары.
+Правителю не хочется, чтобы эта «незначительная» проблема помешала переговорам, так что нанимает опытного охотника, чтобы тот разобрался с проблемой. Герон, всю жизнь преследуемый неудачами, видит в этом шанс изменить свою судьбу, так что отправляется к королю, дабы предложить свою кандидатуру на столь важное задание. Только вот миссия оказалась намного тяжелее, чем казалось с самого начала, а ее выполнение даже заставляет парня покинуть земли Андергаста.
+Геймплей The Dark Eye: Chains of Satinav выполнен в лучших традициях point-and-click квестов – детально прорисованные локации, масса головоломок, обширный инвентарь и множество колоритных персонажей.(   Читать дальше...   )Тип издания: RepackЖанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01147959D29CF6D14627ABC4EBEB36C37C366824
 ```
 
 https://mybot314.ru/tekegram_catalog/

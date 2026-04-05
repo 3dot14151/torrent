@@ -1,3 +1,55 @@
+###  Публикация: 941478   (461593) от 27.09.2015
+
+Терминатор: Генезис / Terminator: Genisys (2015) BDRemux [H.264/1080p] [Line]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461593.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда Джон Коннор, лидер сопротивления, посылает сержанта Кайла Риза назад в 1984 год, чтобы защитить Сару Коннор и спасти будущее, неожиданный поворот событий создает разлом во времени. Сержант Риз оказывается в новой, незнакомой версии прошлого, где он встречает неожиданных союзников, в том числе Терминатора, новых опасных врагов, и новую миссию: изменить будущее…Производство: США / Paramount Pictures, Skydance ProductionsЖанр: фантастика, боевик, триллерРежиссер: Алан ТейлорАктеры: Арнольд Шварценеггер, Джейсон Кларк, Эмилия Кларк, Джай Кортни, Дж.К. Симмонс, Дайо Окенийи, Мэтт Смит, Кортни Б. Вэнс, Ли Бён Хон, Майкл ГлэдисПеревод: Дублированный (чистый звук)Язык субтитров: Русский, АнглийскийПродолжительность: 02:05:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96666CA084DA059E83875E49DD473334F2AD9ED5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941422   (461585) от 27.09.2015
+
+Final Fantasy V (2015) [Ru/Multi] (1.0) Repack R.G. Механики
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Через двадцать лет после оригинальной Final Fantasy V выпущенной в Японии, классическая РПГ нашла свое место на РС! Отправляйтесь в эпическое приключение вместе с четырмя героями которых свела судьба. Барц, и его компаньон Чокобо, принцесса Lenna замка Tycoon, таинственный Galuf и капитан пиратов Фарис.Тип издания: RepackРазработчик: Square EnixЖанр: RPG (Japanese-style)Язык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1108DFBD87E795D89A99D85F504375C829F2B432
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 941110   (461580) от 27.09.2015
 
 WPI v.10.1.150927 New Autumn by IceSlam and Red [Multi/Ru]
@@ -6,7 +58,7 @@ WPI v.10.1.150927 New Autumn by IceSlam and Red [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461580.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Windows 10 Home 21H2 19044.1826 x64 by SanLex [Lite] [Ru/En] (2022.08.07)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461518.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461240.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_461062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_461062.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Prey - Mooncrash (2018) [Ru] (1.10.0) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460743.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Wondershare Filmora 8.3.5.6 + Effect Packs [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460611.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2017.08.30 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460609.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Dark Souls III / Dark Souls 3 (2016) [Ru/Multi] (1.15/dlc) Repack R.G. Меха�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460595.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460508.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Windows 7 Professional SP1 x86 Game OS 2.6 by CUTA [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460494.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Adobe Photoshop CC 2019 v20.0.6.27696 (x64) Repack by SanLex [Multi.Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460492.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_459434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_459434.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459391.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ Microsoft Office 2016 Install v3.8 by Ratiborus [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459376.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ Acronis True Image 19.0.5634 / Universal Restore 11.5.39006 / Disk Director 12.0
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459352.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ NBA 2K16 (2015) [En/Multi] (1.0) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459347.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ FIFA 16 (2015) [PS3] [EUR] 4.75 [CFW] [Unofficial] [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459346.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ BioShock 2 (2010) [Ru/En] (1.5/dlc) Rip R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459345.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_459322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_459322.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459310.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ AVG Internet Security 2013 2013.0.2677 Final [Русский / Английск�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459256.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459018.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ Mortal Kombat XL (2015) [Ru/Multi] (1.0.0.0/0.305-05.125430.1/dlc) License PLAZA
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459002.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ BBC: Трагическая судьба российских царевен / R
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458694.jpg" />
 </div>
 
 
@@ -616,59 +668,6 @@ BBC: Трагическая судьба российских царевен / R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22E41DED18E1E92DE8614D6721E7D5142033AFCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321260   (458647) от 24.08.2019
-
-Уязвимость в Steam может затронуть 96 млн пользователей Windows
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_458647.jpg" />
-</div>
-
-
-###  Подробнее
-
-Злоумышленники могут отключить межсетевой экран и антивирусное ПО, установить руткит и украсть личные данные пользователей.Исследователь Василий Кравец обнаружил уязвимость повышения привилегий в клиенте Steam для Windows, затрагивающую более 96 млн пользователей игровой платформы. Эксплуатация уязвимости позволяет злоумышленникам с ограниченными правами использовать (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162364   (458619) от 01.09.2017
-
-Как пережить начало учебного года
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_458619.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неизвестно, кому сложнее приходится — школьникам или их родителям. Но у родителей больше возможностей сделать сентябрь приятным для всех месяцем.1. Успокойтесь, всё в порядке
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

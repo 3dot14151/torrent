@@ -1,3 +1,56 @@
+###  Публикация: 1198826   (150847) от 22.12.2018
+
+Divinity: Original Sin 2 / Divinity: Original Sin II (2017) [Ru/En] (3.6.31.2130/dlc) Repack R.G. Механики [Definitive Edition]
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Долгожданное продолжение знаменитой ролевой игры, в котором вы сможете собрать свой отряд храбрецов, изучить проработанную тактическую систему боя и даже объединить силы еще с тремя друзьями. Но помните: лишь один из вас станет Богом. Бог мертв. Пустота надвигается. Великая сила, сокрытая внутри вас, готова к пробуждению. Битва за право стать Создателем началась.Тип издания: RepackРазработчик: Larian StudiosЖанр: RPG, 3D, IsometricЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A92B7D6D54ECF942532881DC1F5C32B4F5BB2D41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 546111   (149753) от 14.12.2012
+
+Mass Effect 3 Digital Deluxe Edition [Ru/En] (RePack/1.04.5427.111/7 DLC) 2012 | R.G. Shift
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не всем суждено выжить. Древняя инопланетная раса, известная как Жнецы, начала глобальное вторжение, оставляя за собой руины цивилизаций. Земля захвачена, галактика стоит на грани полного уничтожения, и только ты можешь исправить положение. Цена ошибки - небытие. Твоя роль - капитан Шепард, персонаж, которого создаешь ты сам. Только ты решаешь, как будут разворачиваться события, какие планеты будут исследованы, и кто станет участником альянса, который ты соберешь, чтобы раз и навсегда ликвидировать угрозу со стороны Жнецов. Ты поведешь эту войну на свое усмотрение: можешь атаковать в лоб, поливая врага огнем или составить хитрый план внезапного нападения. Собери универсальный отряд профессионалов или выбери путь одинокого волка. Атакуй противника с расстояния или сойдись с ним в жестокой рукопашной.
+Mass Effect 3 будет реагировать на каждое принятое тобой решение - эту историю предстоит написать тебе самому. (   Читать дальше...   )Тип издания: RePackЖанр: Action (Shooter) / RPG / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1847FC9C37436AFA53D3D0DB63069A263398BDF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 534203   (149718) от 14.12.2012
 
 Might And Magic. Heroes 6 [Ru/En] (RePack/1.8.0/2 DLC) 2011 l R.G. Shift
@@ -6,7 +59,7 @@ Might And Magic. Heroes 6 [Ru/En] (RePack/1.8.0/2 DLC) 2011 l R.G. Shift
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149718.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ Disciples: Liberation (2021) [Ru/Multi] (1.0.3.B258.R57446/dlc) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148959.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ ATOM RPG: Post-apocalyptic indie game (2018) [Ru/En] (1.0.3) Repack West4it
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148915.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ Stray Blade (2023) [Ru/Multi] (20231116/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148234.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ Fallout 3 (2009) [En] (1.7.0.3/dlc) License GOG [Game of the Year Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147885.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ Hand of Fate (2014) [Ru/Multi] (1.3.14/dlc) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147470.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ Octopath Traveler (2019) [Ru/Multi] (Update 1) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146587.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ Ashen (2018) [Ru/Multi] (1.0.12.0) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146157.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ Mass Effect Dilogy / Mass Effect Дилогия [Ru/En] (RePack) 2008 - 2010 | R
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143866.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ Gothic 2 / Готика 2 (2003-2005) [Ru/En/Ge] (1.30.0/2.6/dlc) Lossless Repac
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142069.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ Kraken Academy!! (2021) [Ru/Multi] (1.0.12.2) License GOG [End of the World Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138775.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ Hades (2020) [Ru/Multi] (1.37133) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137719.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ Darkest Dungeon (2016) [Ru/Multi] (16707) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137219.jpg" />
 </div>
 
 
@@ -347,7 +400,7 @@ Dragon's Dogma: Dark Arisen (2016) [Ru/En] (1.0.10.8756) Repack R.G. Механ�
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137198.jpg" />
 </div>
 
 
@@ -373,7 +426,7 @@ Baldur's Gate: Dark Alliance (2021) [Multi] (1.0.4) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137032.jpg" />
 </div>
 
 
@@ -399,7 +452,7 @@ Dead Age (2016) [Ru/Multi] (1.12-fix) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136734.jpg" />
 </div>
 
 
@@ -425,7 +478,7 @@ Tales of Arise (2021) [Ru/Multi] (20231108/dlc) Repack DjDI [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135032.jpg" />
 </div>
 
 
@@ -451,7 +504,7 @@ Anvil of Dawn (1995) [En] (1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134473.jpg" />
 </div>
 
 
@@ -477,7 +530,7 @@ Ghoul Castle 3D (2021) [Ru/Multi] (2.5) License GOG [Gold Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134467.jpg" />
 </div>
 
 
@@ -503,7 +556,7 @@ Dungeon Defenders Collection [En/Multi 5] (Repack/7.46c) 2012 l R.G. Games
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133798.jpg" />
 </div>
 
 
@@ -534,7 +587,7 @@ Epic Tavern (2017) [En] (1193) License GOG [Early Access]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133662.jpg" />
 </div>
 
 
@@ -560,7 +613,7 @@ Anvil Saga (2022) [Ru/Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133575.jpg" />
 </div>
 
 
@@ -586,7 +639,7 @@ Fuga: Melodies of Steel 2 (2023) [Ru/Multi] (1.30/dlc) Scene Tenoke [Deluxe Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132864.jpg" />
 </div>
 
 
@@ -612,7 +665,7 @@ Beyond Divinity / Beyond Divinity: Оковы судьбы [Ru/En] (L/1.5) 2004
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131787.jpg" />
 </div>
 
 
@@ -626,58 +679,6 @@ Beyond Divinity / Beyond Divinity: Оковы судьбы [Ru/En] (L/1.5) 2004
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59288289D62B2E5AFF57F45B2C0E23EC2AE1F2AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683032   (130654) от 09.12.2023
-
-King Arthur: Knight's Tale (2022) [Ru/Multi] (2.0.0/dlc) Scene Rune
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130654.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы сэр Мордред, роковой противник короля Артура, некогда черный рыцарь из мрачных легенд. Вы убили короля Артура, но перед смертью он сразил и вас. Вы оба умерли, и вместе с тем вы оба живы. Владычица Озера, правительница загадочного острова Авалон, вернула вас к жизни, чтобы покончить с истинным кошмаром. Она хочет, чтобы вы отправились в рыцарский поход. Она хочет, (   Читать дальше...   )Тип издания: SceneРазработчик: NeocoreGamesЖанр: Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3012942D184CC5E2FF5A743A487C6F9BA5B9FCB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524890   (130544) от 18.01.2022
-
-Urtuk: The Desolation (2021) [Ru/Multi] (1.0.091b) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тактическая пошаговая RPG в стилистике фэнтези с открытым миром. Ведите свою группу искателей приключений через руины древнего мира. Набирайте новых последователей, обчищайте трупы своих павших врагов и делайте всё возможное, чтобы выжить в этих суровых и мрачных землях.Тип издания: LicenseРазработчик: David KaletaЖанр: Ролевая игра, Пошаговая, ФэнтезиЯзык субтитров: Русский, Английский, Польский, Французский и другиеЯзык интерфейса: Русский, Английский, Польский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:399122B0C1256BD51A9806EE62133EC77489417E
 ```
 
 https://mybot314.ru/tekegram_catalog/

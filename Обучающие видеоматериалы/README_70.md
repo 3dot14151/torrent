@@ -1,3 +1,31 @@
+###  Публикация: 987910   (921917) от 19.02.2016
+
+Сергей Змеев | Хозяин Судьбы 20.12 (2012) DVDRip [H.264]
+
+>>Обучающие видеоматериалы
+>>Психология и саморазвитие (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921917.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Хозяин Судьбы 20.12» — это полугодовой курс по крутому изменению жизни. Это один из успешнейших информационных продуктов. Это проект, который охватил действующее и активное русскоязычное сообщество со всего Мира. Ведущий и автор курса – Сергей Змеев, миллионер, инвестор, предприниматель, ректор ВИПБ, президент клуба «Ближний Круг».
+
+В ходе курса, вы ответите на (   Читать дальше...   )Жанр: Практическая психология, Личностный ростПродолжительность: 52:50:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AC61F0A84206629A63743B5855E5AD6542C0D09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1489897   (921890) от 18.08.2021
 
 Udemy, Filip Jerga | Next JS & Typescript with Shopify Integration - Full Guide  (2021) WEB-DL [En / En Sub]
@@ -6,7 +34,7 @@ Udemy, Filip Jerga | Next JS & Typescript with Shopify Integration - Full Guide 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921890.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ Udemy, Stephen Grider | Advanced React and Redux  (2021) WEB-DL [En / En Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_921888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_921888.jpg" />
 </div>
 
 
@@ -63,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921773.jpg" />
 </div>
 
 
@@ -89,7 +117,7 @@ Udemy, Tim Lash | Unreal Engine 4: Create Your Own First-Person Shooter (2021) P
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921772.jpg" />
 </div>
 
 
@@ -117,7 +145,7 @@ TheNewBoston | Адоб Иллюстратор CS6 для начинающих /
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921768.jpg" />
 </div>
 
 
@@ -143,7 +171,7 @@ Udemy, Stephen Ulibarri | Unreal Engine C++ The Ultimate Shooter Course (2021) P
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921717.jpg" />
 </div>
 
 
@@ -170,7 +198,7 @@ Udemy | Blender 2.8 Полное руководство от новичка до
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921480.jpg" />
 </div>
 
 
@@ -196,7 +224,7 @@ OTUS | C++ для начинающих программистов (2020) PCRec [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921418.jpg" />
 </div>
 
 
@@ -222,7 +250,7 @@ Skillmed | Конференция "Анатомия медицинского м�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920239.jpg" />
 </div>
 
 
@@ -251,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920071.jpg" />
 </div>
 
 
@@ -280,7 +308,7 @@ Intellect | Техника быстрого чтения [2007] DVDRip
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919660.jpg" />
 </div>
 
 
@@ -311,7 +339,7 @@ Billy Blanks | 12 best tai-bo fat burning workouts (2017) HDTVRip [H.264/720p-LQ
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918835.jpg" />
 </div>
 
 
@@ -338,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918655.jpg" />
 </div>
 
 
@@ -367,7 +395,7 @@ EMPO | Maximum - полный пакет знаний интернет-марк�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918495.jpg" />
 </div>
 
 
@@ -396,7 +424,7 @@ DAYTRADER.UA | Академия Контроля (2014) PCRec
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918386.jpg" />
 </div>
 
 
@@ -425,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918285.jpg" />
 </div>
 
 
@@ -451,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918213.jpg" />
 </div>
 
 
@@ -477,7 +505,7 @@ Diskill | Logo Start. Создание логотипов (2021) WEB-DL [AD]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916670.jpg" />
 </div>
 
 
@@ -506,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916658.jpg" />
 </div>
 
 
@@ -534,7 +562,7 @@ InfiniteSkills | Профессиональное руководство по в
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916339.jpg" />
 </div>
 
 
@@ -561,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915109.jpg" />
 </div>
 
 
@@ -588,7 +616,7 @@ OTUS, Дмитрий Еремин | Ручное тестирование (2020)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914908.jpg" />
 </div>
 
 
@@ -617,7 +645,7 @@ Udemy, Юрий Бошников | Как самому сделать сайт, 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913393.jpg" />
 </div>
 
 
@@ -646,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913385.jpg" />
 </div>
 
 
@@ -675,7 +703,7 @@ ItGid, Александр Лущенко | Функции в JavaScript 2021 (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913280.jpg" />
 </div>
 
 
@@ -689,35 +717,6 @@ ItGid, Александр Лущенко | Функции в JavaScript 2021 (20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B246EE19E410566757B63C105B944163C6ADD9CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490993   (913252) от 23.08.2021
-
-Foxford, Юлия Глухих  | Основы программирования на Python (2020-2021) WEB-DL
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913252.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кому будет полезен курс
-Курс подойдёт тем, кто только начинает изучать программирование на Python.
-Какие знания дает курс
-Курс позволяет освоить базовые конструкции программирования, встречающиеся в любом языке программирования, а также написать под руководством преподавателя несколько игр.(   Читать дальше...   )Производство: FoxfordЖанр: ПрограммированиеПродолжительность: 45:11:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E970B5F679334A25344BE70F742C927976454A22
 ```
 
 https://mybot314.ru/tekegram_catalog/

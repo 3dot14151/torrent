@@ -1,3 +1,90 @@
+###  Публикация: 1239550   (531399) от 09.08.2018
+
+Cauldron - Aker (2001) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marching Towards the North
+02. Odium
+03. Those Who Has No Expression in Their Faces
+04. Man, Mist & Spirit(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:38:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4696CB82E69FB17AD411602283BC2059BC9658E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240096   (531388) от 09.08.2018
+
+In Loving Memory - Negation Of Life (2011) [FLAC|Lossless|image + .cue] <Melodic Death Metal,Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Even A God Can Die
+02.Skilled Nihilism
+03.Adversus Pugna Tenebras
+04.Negation Of Life(   Читать дальше...   )Жанр: Melodic Death Metal,Doom MetalПродолжительность: 01:03:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6143BC47EE75BB4671EBF645E7CBF5C3C0E5945
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155690   (531234) от 04.08.2017
+
+Deep Purple - Johnny's Band (2017) EP [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Johnny's Band (Album Version)
+02. In & out Jam (Rehearsal Recording By Roger Glover)
+03. Strange Kind of Woman (Previously Unreleased Live Version)
+04. The Mule (Previously Unreleased Live Version)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:24:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B062547BE30BCFFED9A2DD2F3BEEA602F40E8AF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1051984   (530993) от 12.09.2016
 
 Art Nation - Revolution (2015) [FLAC|Lossless|image + .cue] <Hard Rock, AOR>
@@ -6,7 +93,7 @@ Art Nation - Revolution (2015) [FLAC|Lossless|image + .cue] <Hard Rock, AOR>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530993.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Whitesnake - 17 альбомов (1978-2011) [MP3|320 kbps]<Hard Rock|Blues Rock
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530984.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Sophia - As We Make Our Way (Unknown Harbours) (2016) [FLAC|Lossless|tracks + .c
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530959.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Fear Factory - 14 Альбомов (1995-2015) [MP3|320] <Death metal\Industrial
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530922.jpg" />
 </div>
 
 
@@ -119,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530893.jpg" />
 </div>
 
 
@@ -148,7 +235,7 @@ Palace - Master Of The Universe (2016) [FLAC|Lossless|image + .cue] <Melodic Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530892.jpg" />
 </div>
 
 
@@ -177,7 +264,7 @@ The Stranges - Madhouse (2016) [MP3|320 Kbps] <Alternative Rock, Alternative Met
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530887.jpg" />
 </div>
 
 
@@ -206,7 +293,7 @@ Freddie Mercury - Messenger Of The Gods - The Singles (2016) 2CD Box Set [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530689.jpg" />
 </div>
 
 
@@ -235,7 +322,7 @@ Tarja Turunen - Into The Sun (2012) Single  (Radio Edit) [MP3|320 кб/с]<Symph
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530644.jpg" />
 </div>
 
 
@@ -261,7 +348,7 @@ Deep Purple - Live In Newcastle 2001 (2019) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530611.jpg" />
 </div>
 
 
@@ -290,7 +377,7 @@ David Gilmour - L.A. 3rd Night (2016) 2CD Bootleg, Live [MP3|320 Kbps] <Progress
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530507.jpg" />
 </div>
 
 
@@ -319,7 +406,7 @@ Freddie Mercury - Messenger Of The Gods: The Singles Collection (2016) 2CD [MP3|
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530499.jpg" />
 </div>
 
 
@@ -348,7 +435,7 @@ Sheryl Crow - Feels Like Home (2013) /Scene/ [FLAC (tracks+.cue)|Lossless]<Pop R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530329.jpg" />
 </div>
 
 
@@ -377,7 +464,7 @@ Pagan Rites - Survival Of The Antichrist Nation (2020) [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530170.jpg" />
 </div>
 
 
@@ -406,7 +493,7 @@ Larry Sandman - More Than Free (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530075.jpg" />
 </div>
 
 
@@ -435,7 +522,7 @@ Oxidize - Stand up for the Masses (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529979.jpg" />
 </div>
 
 
@@ -464,7 +551,7 @@ VA - Pure... Psychedelic rock (2010) Box Set, 4 CD [FLAC|Lossless]<Rock, Pop, Ps
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529964.jpg" />
 </div>
 
 
@@ -494,7 +581,7 @@ Jackdevil - Evil Strikes Again (2015) [MP3|320 кб/с]<Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529947.jpg" />
 </div>
 
 
@@ -523,7 +610,7 @@ ON AN ON - Give In (2013) [OGG| 437-595 кб/с]<Alternative, Indie, Dream Pop, 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529946.jpg" />
 </div>
 
 
@@ -552,7 +639,7 @@ ON AN ON - And The Wave Has Two Sides (2015) [OGG| 459-517 кб/с]<Alternative,
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529941.jpg" />
 </div>
 
 
@@ -581,7 +668,7 @@ Legs Diamond - Legs Diamond (1977) Remastered /2007, Diamond Records/ [MP3|320 �
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529934.jpg" />
 </div>
 
 
@@ -610,7 +697,7 @@ VA - Мы вышли из Кино 2. Трибьют Кино (2022) [MP3|320 Kb
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529905.jpg" />
 </div>
 
 
@@ -639,7 +726,7 @@ Styx - Live at the Orleans Arena, Las Vegas (2015) [FLAC|image + .cue]<Classic-R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529827.jpg" />
 </div>
 
 
@@ -653,93 +740,6 @@ Styx - Live at the Orleans Arena, Las Vegas (2015) [FLAC|image + .cue]<Classic-R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C41E7CA4DB09130906B1E17AA1C4BAFC805AA9A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155752   (529781) от 05.08.2017
-
-Vanden Plas - Far Off Grace (1999) Reissue, 2004, Inside Out Music [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can See (4:01)
-02. Far Off Grace (7:03)
-03. Into The Sun (6:33)
-04. Where Is The Man (6:11)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:04:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94D78D7528086738A9B42ED8FB1EC9F979F18C6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926915   (529731) от 12.08.2015
-
-Gun - Gun Sight (1969) Remastered /2000, Repertoire/ [FLAC|tracks+.cue]<Hard Rock, Psychedelic Rock, Heavy Psych>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Head in The Clouds 04:41
-02. Drown Yourself in The River 02:56
-03. Angeline 05:36
-04. Dreams And Screams 05:16(   Читать дальше...   )Жанр: Hard Rock, Psychedelic Rock, Heavy PsychПродолжительность: 00:46:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6DA89AD36AED0D34B3DCB0FBFFA3147C22623AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925030   (529725) от 12.08.2015
-
-The Animal In Me - Words and Actions (2015) [MP3|320 кб/с]<Post-Hardcore, Female & Male Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529725.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chasing Dreams 03:41
-02. So Unbelievable 03:58
-03. Grave Digger 03:15
-04. Who Will Save Us 04:52(   Читать дальше...   )Жанр: Post-Hardcore, Female & Male VocalПродолжительность: 00:36:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D9B548DD7E37F9B17A36F600144ED5B9019E8A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

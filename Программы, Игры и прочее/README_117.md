@@ -1,3 +1,113 @@
+###  Публикация: 1520089   (145032) от 26.12.2021
+
+English Idioms & Slang Phrases v1.2.6 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы только начинаете учить английский язык или ищете способы улучшить свои текущие знания? Это приложение для вас!
+
+Английский является наиболее распространенным в качестве второго языка. В международном общении он используется как в формальных ситуациях: бизнес, образование, путешествия, покупки, медицина, так и в неформальном общении, например, в компаниях друзей, (   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 23 апреля 2021 г.Разработчик: Smart learning solutionsПоддерживаемая ОС: Android 4.2+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8279358720B4551D96F924BDC2225317AF0F16D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520073   (144993) от 26.12.2021
+
+TOEFL Vocabulary v1.7.5 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144993.jpg" />
+</div>
+
+
+###  Подробнее
+
+TOEFL – достаточно сложный комплексный стандартизованный тест на знание английского языка (в его североамериканском варианте), сдача которого обязательна для неанглоязычных иностранцев для поступления в вузы США.
+
+Тест TOEFL требует самой серьезной подготовки. Какой бы путь подготовки к этому тесту Вы ни выбрали, неизменным остается одно требование - Ваш словарный (   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 16 февраля 2021 г.Разработчик: Smart learning solutionsПоддерживаемая ОС: Android 4.2+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F6738D0CBFF2B2CA9826F677FE8BCAB18723F82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520053   (144947) от 26.12.2021
+
+Русско-английский словарь v2.4.4 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это русско-английский и англо-русский словарь (Russian-English Dictionary)
+Этот новый словарь больше, чем просто словарь. Вы можете искать слова и прослушать произношение. Словарь работает в режиме офлайн!
+Словарь так же имеет дополнитульные функции, например: словарный тренер! Словарьный тренер помогает быстро запомнить и выучить новые английские слова. В нем содержатся (   Читать дальше...   )Тип издания: Пиратка (AdFree - удалена реклама)Релиз состоялся: 26 декабря 2021 г.Разработчик: AllDictПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BBC4288FA21C789CE4362E524DC06ED7D4AF4C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596437   (144780) от 21.11.2023
+
+Meditative Mind v2.96  [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144780.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весьма удобный клиент для доступа к обширного каталогу медитативной музыки с возможность скачивания оной. Красочный и понятный интерфейс позволит вам быстрее достичь слияния со своей душой. В каталоге предоставлено множество категорий для медитаций разного типа. Поддерживается функционал отключения воспроизводения по таймеру. Meditative Mind - лучшее музыкальное (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 08.10.2023Разработчик: Meditative MindПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39A322842915F2D7700B54B590BF1F48AE02C4B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674515   (144523) от 21.11.2023
 
 Лучшие Аудиокниги всегда под рукой. AudioBooks v6.0 Plus [Ru]
@@ -6,7 +116,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144523.jpg" />
 </div>
 
 
@@ -33,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144074.jpg" />
 </div>
 
 
@@ -62,7 +172,7 @@ Vetcalculators v2.9.91 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143714.jpg" />
 </div>
 
 
@@ -89,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143688.jpg" />
 </div>
 
 
@@ -118,7 +228,7 @@ GoneMAD Music Player v3.2.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143507.jpg" />
 </div>
 
 
@@ -144,7 +254,7 @@ SuperLingo: учи английский, китайский язык и боле
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143270.jpg" />
 </div>
 
 
@@ -173,7 +283,7 @@ Santa 3D Live Wallpaper 1.4.1 Premium [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143174.jpg" />
 </div>
 
 
@@ -202,7 +312,7 @@ FilmoraGo - Free Video Editor 13.1.52(13152) Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141841.jpg" />
 </div>
 
 
@@ -228,7 +338,7 @@ My Alarm Clock Pro / Мой Будильник Про v2.8 [Ru/Multi] - Мног
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141742.jpg" />
 </div>
 
 
@@ -254,7 +364,7 @@ Lingvist: эффективное изучение языков v2.75.9 [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141679.jpg" />
 </div>
 
 
@@ -280,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141675.jpg" />
 </div>
 
 
@@ -306,7 +416,7 @@ Garmin: City Navigator Taiwan 2015.40 [Ch]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141464.jpg" />
 </div>
 
 
@@ -332,7 +442,7 @@ Garmin: AnaDigit Map 6.41 (Greek Anavasi TopoNavigator) [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141336.jpg" />
 </div>
 
 
@@ -358,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141229.jpg" />
 </div>
 
 
@@ -384,7 +494,7 @@ aCalendar+ Calendar & Tasks v2.5.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140421.jpg" />
 </div>
 
 
@@ -410,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140227.jpg" />
 </div>
 
 
@@ -437,7 +547,7 @@ Genius Scan+ - PDF сканер v6.1.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140196.jpg" />
 </div>
 
 
@@ -465,7 +575,7 @@ Fabulous v3.65 Premium [En] - Motivate Me! Relax, Meditate, Sleep
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139238.jpg" />
 </div>
 
 
@@ -492,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139147.jpg" />
 </div>
 
 
@@ -520,7 +630,7 @@ Caustic 3 v3.2.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139142.jpg" />
 </div>
 
 
@@ -546,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138972.jpg" />
 </div>
 
 
@@ -574,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138647.jpg" />
 </div>
 
 
@@ -586,113 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BA1F8FE4C609E62A1F18791EEA30FC4F6136C5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435986   (138459) от 30.12.2020
-
-Английский язык. Выучи 12000 слов с ReWord v3.0.23 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучаете английский язык? Запоминайте английские слова эффективно в приложении ReWord!
-
-Обучение английскому языку с ReWord имеет следующие особенности:
-• Тысячи английских слов и словосочетаний, разбитых по 50 категориям.(   Читать дальше...   )Тип издания: Пиратка (Разблокирована полная версия)Релиз состоялся: 20 декабря 2020 г.Разработчик: POASПоддерживаемая ОС: Android 4.2+Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0119F0523B7800ADC58C1C4F89B80023ED36F728
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436144   (138447) от 30.12.2020
-
-Coach Guitar v1.1.6 Premium [Ru] - Играть на гитаре, Songs, Tab, Chords
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Coach Guitar — ПОТРЯСАЮЩИЙ новый способ научиться играть на гитаре с 5 цветами. Вы научитесь играть популярные песни на электрической и акустической гитарах. Coach Guitar будет вашим личным учителем гитары. Это уникальное визуальное обучение с помощью цвета. Не обучая Вас теории музыки, мы будем показывать Вам пошаговые видео уроков с анимированным грифом. Имитируя (   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 19 мая 2020 г.Разработчик: Manomaya SAПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AAA0206611CDE9B502EE3DB5289ED48E94BC049
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435555   (138303) от 30.12.2020
-
-Wi-Fi Mouse Pro v4.3.0 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138303.jpg" />
-</div>
-
-
-###  Подробнее
-
-WiFi Mouse Pro - Превратите ваше устройство в самую настоящую беспроводную мышь и клавиатуру. Вы сможете управлять им, лежа на диване. Теперь для этого не нужно покупать себе беспроводную мышь и клавиатуру, ведь эта функция есть у вас в устройстве. Однако для её использования, вам понадобиться wifi роутер. В программе достаточно много функций, а так же управление (   Читать дальше...   )Тип издания: Premium (Pro)Релиз состоялся: 26 ноября 2020 г.Разработчик: WiFi MouseПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:998FE81C50F0335836DE44CB627D960510129344
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195870   (138177) от 31.12.2017
-
-Краны,Тельферы и Таль 1.3 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Информация о кранах.Кран-балках.Тельферах.Таль.описание,монтаж и эксплуотация. Кран-балки, краны опорные, тельферы, тали электрические,мостовые краны. Техническое описание. Электросхемы.Характеристики.Классификации.Устройство тали и тельферов.Тип издания: Пиратка (Полная с Маркета)Релиз состоялся: 7 сентября 2017 г.Разработчик: NeosectorgazaПоддерживаемая ОС: Android 3.0 +Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06BA16F5407398D3C602D04DD6992C9ED213746C
 ```
 
 https://mybot314.ru/tekegram_catalog/

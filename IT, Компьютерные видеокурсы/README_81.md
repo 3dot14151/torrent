@@ -1,29 +1,3 @@
-###  Публикация: 1830933   (212625) от 28.10.2025
-
-1С Учебный центр №3, Дмитрий Гончаров | Управление производством и ремонтами в прикладном решении «1С:ERP Управление предприятием 2» (2024) PCRec [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основной целью курса является освоение технологии работы с функционалом управления производством и ремонтами, реализованного в прикладном решении «1С:ERP Управление предприятием».Производство: 1С Учебный центр №3Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 18:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97D6E5E67B9AC5143AE189BA446C54ABF73098A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1830936   (212623) от 28.10.2025
 
 1С Учебный центр №3, Дмитрий Гончаров | Управленческий учет затрат, финансовый результат в прикладном решении «1С:ERP Управление предприятием 2» (2024) PCRec [RU]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212623.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212609.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_212572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_212572.jpg" />
 </div>
 
 
@@ -111,7 +85,7 @@ JavaBegin, Тимур Батыршинов | Авторизация и рабо�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212540.jpg" />
 </div>
 
 
@@ -140,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212471.jpg" />
 </div>
 
 
@@ -167,7 +141,7 @@ BrainsCloud, Дмитрий Валак | Вёрстка сайта трансп�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212397.jpg" />
 </div>
 
 
@@ -196,7 +170,7 @@ ItGid, Александр Лущенко | Методы массивов JavaScr
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212393.jpg" />
 </div>
 
 
@@ -223,7 +197,7 @@ WebCademy, Никита Юдаев | PRO верстка. Командная ра
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212364.jpg" />
 </div>
 
 
@@ -252,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212134.jpg" />
 </div>
 
 
@@ -278,7 +252,7 @@ ByteGrad, Wesley | Professional CSS Course (2022) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212097.jpg" />
 </div>
 
 
@@ -307,7 +281,7 @@ Pluralsight, Dale Meredith и др. | Ethical Hacking (C|EH v11 Prep) (2022) WEB
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212072.jpg" />
 </div>
 
 
@@ -333,7 +307,7 @@ Udemy, John Thompson | Mastering Thymeleaf with Spring Boot (2021) WEB-DLRip [EN
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212063.jpg" />
 </div>
 
 
@@ -362,7 +336,7 @@ Nizamov.School, Илья Низамов | 1С ZADARMA  (2022) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211749.jpg" />
 </div>
 
 
@@ -391,7 +365,7 @@ Udemy, Anand Guru | (Security Operation Centre) SOC Essentials by SOC Experts (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211687.jpg" />
 </div>
 
 
@@ -420,7 +394,7 @@ Udemy, Terry Martin | Essential Unix Skills for Developers (2022) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211660.jpg" />
 </div>
 
 
@@ -446,7 +420,7 @@ ui.dev (ex. Tyler McGinnis) | Classic React (2022) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211652.jpg" />
 </div>
 
 
@@ -475,7 +449,7 @@ Adrian Cantrill | AWS Certified Security - Specialty (2022) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211645.jpg" />
 </div>
 
 
@@ -504,7 +478,7 @@ ui.dev (ex. Tyler McGinnis) | React Router (v6) (2022) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211604.jpg" />
 </div>
 
 
@@ -532,7 +506,7 @@ Gumroad, Harry Roberts | Setting up DevTools for Performance Testing (2022) WEB-
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211467.jpg" />
 </div>
 
 
@@ -559,7 +533,7 @@ Udemy, Roman Dushkin | Введение в компьютерную логику
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211338.jpg" />
 </div>
 
 
@@ -587,7 +561,7 @@ Udemy, in28Minutes Official | Learn AWS - Deploy Java Spring Boot to AWS Elastic
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211143.jpg" />
 </div>
 
 
@@ -614,7 +588,7 @@ Udemy, Airlan Technologie Sieciowe | Mikrotik from scratch for everyone (2022) W
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210988.jpg" />
 </div>
 
 
@@ -640,7 +614,7 @@ Udemy, Coding Revolution | Starting with React & Redux: Build modern apps (2nd e
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210873.jpg" />
 </div>
 
 
@@ -666,7 +640,7 @@ Thinknetica Pro, Виктор Маслов | Автоматизация тест
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210335.jpg" />
 </div>
 
 
@@ -692,7 +666,7 @@ LeadTex | Архитектор чат-ботов PRO (2021) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210115.jpg" />
 </div>
 
 
@@ -706,6 +680,35 @@ LeadTex | Архитектор чат-ботов PRO (2021) WEB-DL [AD] [RU]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1A67A3E843AF528837A34914D6E555F6AB59733
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604677   (210036) от 14.01.2023
+
+Thinknetica Pro, Александр Борисов | Безопасность приложений на Ruby on Rails (2022) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210036.jpg" />
+</div>
+
+
+###  Подробнее
+
+Онлайн-воркшоп для Rails-разработчиков, которые хотят сделать свои приложения безопасными и не допустить кражу данных.
+За время воркшкопа вы научитесь:
+понимать, какие проблемы с информационной безопасностью существуют в веб-приложениях
+решать проблемы с информационной безопасностью в приложениях на Ruby on Rails(   Читать дальше...   )Производство: Thinknetica ProЖанр: ВоркшопЯзык озвучки: РусскийПродолжительность: 05:33:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:798F42DC5C214A7C962EFF22A5DABF56CE1625BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Apple iOS 6 Golden Master (iPhone 4S,iPhone 4,iPhone 3GS,iPad 2/3) (IOS)
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466185.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466162.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Espionage 3.6.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466159.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ iMazing 2.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466063.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ iA Writer 4.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465533.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ TechTool Pro 9.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465530.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Corel Painter 2018 (18.0.0.621) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465100.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Unibox 1.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464769.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Beyond Compare 4.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464756.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ PlistEdit Pro 1.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464618.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ iMazing 1.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464607.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Carbon Copy Cloner 3.5.1 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464531.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ SuperDuper! 2.7.1 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464526.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Templates for Pages 5.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464472.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Nice Clipboard - a cloud synced clipboard manager 1.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464468.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Path Finder 6.0.6 [Eng/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464350.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Pixave 2.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464164.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ ExpanDrive 5.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464136.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ MacBooster 3.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464053.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Camtasia 2.10.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464039.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ zCommander Pro 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464035.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ DxO FilmPack Elite 5.5.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464026.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ iDatabase 3.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463900.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Xojo IDE RAD 2016r3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463789.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Topaz Plugins Bundle (03.10.2016) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463768.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Dead Cells v1.0.2.23340 (2018) [Multi] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463185.jpg" />
 </div>
 
 

@@ -1,29 +1,3 @@
-###  Публикация: 1402924   (168165) от 12.12.2020
-
-OTUS | AWS для разработчиков (Часть 1-3) (2020) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168165.jpg" />
-</div>
-
-
-###  Подробнее
-
-В курсе сделан основной упор на выполнение практических задач в облачной системе AWS, с которыми может столкнуться программист / технический руководитель, как в малом стартапе, так и в большой компании. Подобные задачи включают в себя весь жизненный цикл становления проекта: от планирования архитектуры и выбора инфраструктуры, и заканчивая вводом системы в промышленную (   Читать дальше...   )Жанр: ПрограммированиеПродолжительность: 41:12:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF5791C3EBAA08DF5520D9681A1F084B3C8F1BB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386155   (168124) от 12.12.2020
 
 Udemy | Android разработка на Kotlin - с нуля до продвинутого уровня (2020) PCRec
@@ -32,7 +6,7 @@ Udemy | Android разработка на Kotlin - с нуля до продви
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168124.jpg" />
 </div>
 
 
@@ -59,7 +33,7 @@ Udemy, Haytham Omar-Ph.D | Revenue and Pricing Analytics with Excel & Python (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167616.jpg" />
 </div>
 
 
@@ -88,7 +62,7 @@ Udemy, Estefania Cassingena Navone | Visual Studio Code for Developers 2023: Beg
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167578.jpg" />
 </div>
 
 
@@ -116,7 +90,7 @@ Podlodka Crew | PHP Crew #2 (2023) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166782.jpg" />
 </div>
 
 
@@ -143,7 +117,7 @@ Kent C. Dodds | Epic Web. Ship Modern Full-Stack Web Applications (2023) WEB-DL 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166744.jpg" />
 </div>
 
 
@@ -170,7 +144,7 @@ JS Mastery | Ultimate Next.js 13 Course + eBook (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166703.jpg" />
 </div>
 
 
@@ -196,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166687.jpg" />
 </div>
 
 
@@ -223,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166642.jpg" />
 </div>
 
 
@@ -252,7 +226,7 @@ Epic React, Kent C. Dodds | Epic React Pro (2021) WEB-DL [EN, RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166625.jpg" />
 </div>
 
 
@@ -281,7 +255,7 @@ javascript.ru | Курс по современной вёрстке (2023) WEB-D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166608.jpg" />
 </div>
 
 
@@ -309,7 +283,7 @@ Lynda.com | JavaScript: Прототипы / JavaScript: Prototypes (2018) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166289.jpg" />
 </div>
 
 
@@ -335,7 +309,7 @@ kobezzza.channel, Андрей Кобец | Интенсив по архитек
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166221.jpg" />
 </div>
 
 
@@ -361,7 +335,7 @@ XYZ School, Александр Балакшин | Gamecode (2020) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166146.jpg" />
 </div>
 
 
@@ -387,7 +361,7 @@ TCM Security, Heath Adams | Open-Source Intelligence (OSINT) Fundamentals (2020)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165753.jpg" />
 </div>
 
 
@@ -413,7 +387,7 @@ kobezzza.channel, Андрей Кобец | Интенсив ‌‌«РЕФЛЕ�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165677.jpg" />
 </div>
 
 
@@ -439,7 +413,7 @@ kobezzza.channel, Андрей Кобец | Интенсив ‌‌«РАБОТ�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165641.jpg" />
 </div>
 
 
@@ -465,7 +439,7 @@ kobezzza.channel, Андрей Кобец | Интенсив «ITERABLE API» (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165636.jpg" />
 </div>
 
 
@@ -491,7 +465,7 @@ kobezzza.channel, Андрей Кобец | Интенсив ‌«‌PROMISE API
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165631.jpg" />
 </div>
 
 
@@ -517,7 +491,7 @@ kobezzza.channel, Андрей Кобец | Интенсив ‌‌‌«РЕГУ
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165569.jpg" />
 </div>
 
 
@@ -544,7 +518,7 @@ kobezzza.channel, Андрей Кобец | Интенсив ‌«‌ООП В J
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165553.jpg" />
 </div>
 
 
@@ -570,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165526.jpg" />
 </div>
 
 
@@ -599,7 +573,7 @@ kobezzza.channel, Андрей Кобец | Интенсив "TYPESCRIPT" (2022)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165512.jpg" />
 </div>
 
 
@@ -626,7 +600,7 @@ kobezzza.channel, Андрей Кобец | Интенсив "ИНТЕНСИВ �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165459.jpg" />
 </div>
 
 
@@ -652,7 +626,7 @@ IAmTimCorey, Tim Corey | .NET Core AppSettings: Углубленный Курс 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164950.jpg" />
 </div>
 
 
@@ -679,7 +653,7 @@ Udemy, Stephen Grider | React Testing Library and Jest: The Complete Guide (2023
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164913.jpg" />
 </div>
 
 
@@ -693,6 +667,33 @@ Allow each of your engineering teams to work independently
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26112D9F351C81FC0C31C14D926B114C4E31AB61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432252   (164861) от 16.12.2020
+
+IAmTimCorey, Tim Corey | Изучение C#: Blazor WebAssembly / Exploring C#: Blazor WebAssembly (2020) PCRec [En]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Появляются новые технологии, и все об этом говорят. Но как этому научиться? Вы не можете найти никаких хороших руководств. Вы смотрите на примеры, но не знаете, с чего начать. Конечно, вы хотите изучить Blazor WebAssembly. Я собираюсь научить вас пяти ключевым темам Blazor WebAssembly.
+Но как насчет следующей новинки, которая выйдет? Вам не просто нужно, чтобы кто-то (   Читать дальше...   )Производство: IAmTimCoreyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 06:15:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4987D6207E846A464A51FDDB90A379659CADDAA1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1734810   (50998) от 05.07.2024
+
+David Arkenstone - Quest For the Runestone (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prophecy (5:24)
+02. The Soothsayer Speaks (5:24)
+03. Ancient Magic Awakens (4:53)
+04. Réann (4:03)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B717961FAA337752163C390FC70D8EF0172B9100
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738585   (48981) от 24.07.2024
+
+Jindřich Parma (Jindrich Parma) - Juno: Nové Retro (2015) [FLAC|Lossless|WEB-DL|tracks] <Instrumental Pop>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Juno (Zabi Hneff) (6:13)
+02. Mozna (4:02)
+03. 1981 (4:44)
+04. Oda Na Zivot (4:44)(   Читать дальше...   )Жанр: Instrumental PopПродолжительность: 00:58:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8777AB19DBBC372A9A421607F56AEBED5B2B7A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1737464   (48962) от 24.07.2024
 
 VA - Застольное настроение (2020) [MP3|320 Kbps] <Поп, Застольное настроение>
@@ -6,7 +64,7 @@ VA - Застольное настроение (2020) [MP3|320 Kbps] <Поп, З
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48962.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48273.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Marilyn Monroe - The World Of Marilyn Monroe (2006) 2CD [WavPack|Lossless|image 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46915.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Francis Goya - The Most Beautiful Original Melodies of Francis Goya (2024) Remas
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46583.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46378.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44391.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Sensual Music Paradise - Erotic Asanas: Sensual Yoga, Libido Booster, Sexy Body 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43993.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42923.jpg" />
 </div>
 
 
@@ -236,7 +294,7 @@ Tantric Music Masters, Tantric Sex Background Music Experts - Erotic Oasis Tantr
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42293.jpg" />
 </div>
 
 
@@ -265,7 +323,7 @@ Pregnant Women Music Company - Harmony for Two: Music to Soothe Pregnancy Stress
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41780.jpg" />
 </div>
 
 
@@ -294,7 +352,7 @@ Pregnant Women Music Company - Calm Raining: Relaxation for Pregnant Woman (2024
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41778.jpg" />
 </div>
 
 
@@ -323,7 +381,7 @@ VA - The Orient Collective - Blossoms (2024) [FLAC|Lossless|WEB-DL|tracks] <Worl
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41151.jpg" />
 </div>
 
 
@@ -352,7 +410,7 @@ Chris Conway - Guiding Light (2005) [FLAC|Lossless|tracks + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_40958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_40958.jpg" />
 </div>
 
 
@@ -381,7 +439,7 @@ VA - The Orient Collective - Divine Oracle (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40870.jpg" />
 </div>
 
 
@@ -410,7 +468,7 @@ VA - The Orient Collective - Ethernal (2024) [FLAC|Lossless|WEB-DL|tracks] <Worl
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40780.jpg" />
 </div>
 
 
@@ -439,7 +497,7 @@ VA - The Orient Collective - Forest Spirits (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40052.jpg" />
 </div>
 
 
@@ -468,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39741.jpg" />
 </div>
 
 
@@ -497,7 +555,7 @@ Klaus Wunderlich - The Collection Volume 2 (1987) [FLAC|Lossless|tracks + .cue] 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39270.jpg" />
 </div>
 
 
@@ -526,7 +584,7 @@ VA - The Orient Collective: Mandala (2024) [FLAC|Lossless|WEB-DL|tracks] <World,
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39074.jpg" />
 </div>
 
 
@@ -555,7 +613,7 @@ David Arkenstone - Fairy Fantasy (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38981.jpg" />
 </div>
 
 
@@ -584,7 +642,7 @@ Medwyn Goodall - Rhythm of the Ancients 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38926.jpg" />
 </div>
 
 
@@ -613,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38291.jpg" />
 </div>
 
 
@@ -642,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37919.jpg" />
 </div>
 
 
@@ -671,7 +729,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37884.jpg" />
 </div>
 
 
@@ -685,64 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:661F7B7CDC752A014AAD74028F5A2EC4A967A02D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760216   (37471) от 12.11.2024
-
-Руки Вверх! - Руки Вверх! (2024) [MP3|320 Kbps] <OST, Pop>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37471.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Студент (Саундтрек из фильма "Руки вверх!")
-2. Крошка моя (Саундтрек из фильма "Руки вверх!")
-3. Чужие губы (Саундтрек из фильма "Руки вверх!")
-4. Бандито (Саундтрек из фильма "Руки вверх!")(   Читать дальше...   )Жанр: OST, PopПродолжительность: 00:56:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89F4B9800E2FE7C40925AEBF49B5FFA2BAEDD6FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759675   (37394) от 13.11.2024
-
-VA - OST Ласковый май (2009) Саундтрек к кинофильму [WavPack|Lossless|image + .cue] <Pop>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Белые розы
- 02. Седая ночь
- 03. Старый лес
- 04. Месяц июль(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36A14C76C9A08E19820D3C7FE969CCA3EDDAC70A
 ```
 
 https://mybot314.ru/tekegram_catalog/

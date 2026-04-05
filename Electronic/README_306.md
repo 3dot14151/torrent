@@ -1,3 +1,119 @@
+###  Публикация: 1409367   (447233) от 16.09.2020
+
+VA - The Best Of Cafe Del Mar (2020) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D Note - D Votion (7:08)
+02. Lux - Northern Lights (5:34)
+03. Salt Tank - Sargasso Sea (7:14)
+04. Paco De Lucía - Entre Dos Aguas (Remastered 2014) (6:00)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 09:07:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2B068637C04CC62474F51A566EEC0F059404B2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569930   (447204) от 15.08.2022
+
+Proxyon - Proxyon (1989) [OGG|485 Kbps] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Space Guards                      	6:45
+02. Space Travellers                  	5:20
+03. Space Hopper                        6:18
+04. Space Fly (Magic Fly)         	6:40(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:37:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2B7B73E400E699FA3FE70EDDAF4795673773750
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570069   (447200) от 15.08.2022
+
+Pet Shop Boys - Please (1986) [OGG|485 Kbps] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Two Divided By Zero	  3:34
+02. West End Girls            	  4:45
+03. Opportunities            	  3:43
+04. Love Comes Quickly 	  4:19(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:42:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30C58F08D971C38244E3BCD0DE1073CA649F27B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570060   (447199) от 15.08.2022
+
+Pet Shop Boys - Actually (1987) [OGG|485 Kbps] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One More Chance     5:28
+02. What Have I Done To Deserve This? 	4:21
+03. Shopping                   3:37
+04. Rent                          5:07(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88B406950785FEEAE28BF9F4B74B9F3D0C10259B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 942757   (446911) от 04.10.2015
 
 Avicii - Stories (2015) Japanese Edition [MP3|320 кб/с]<Electronic, House, Dance>
@@ -6,7 +122,7 @@ Avicii - Stories (2015) Japanese Edition [MP3|320 кб/с]<Electronic, House, Da
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446911.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Chilled Matters Vol.1 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446761.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Delicious Bar Tunes Vol.3 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Loung
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446757.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - The Lounge Hotel Vol.5 Royal Edition (2016) [MP3|320 Kbps] <Downtempo, Chil
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446754.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - No Need To Rush Vol.6: Sunday Chill (2016) [MP3|320 Kbps] <Downtempo, Chill
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446752.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Moods Of Spring (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446751.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Anjunabeats Vol.100 (Mixed By Above And Beyond) (2008)(2CD)[FLAC|Lossless|i
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446717.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446564.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Paul van Dyk - The Politics Of Dancing (2001)(2CD)[FLAC|Lossless|tracks + .cue] 
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446507.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - Best Of Easy Summer Group (2016) [MP3|320 Kbps] <Downtempo, Chillout, Loung
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446432.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - Paris in Autumn The Love Lounge Music (2016) [MP3|320 Kbps] <Balearic, Down
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446429.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - Falling in Love with Lounge Music, Vol. 2 (2017) [MP3|320 Kbps] <Downtempo,
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446210.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Double Fantasy - Food For Fantasy (1994) [MP3|320 Kbps] <Electronic>
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446191.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Vangelis - Rosetta (2016) [FLAC|Lossless|tracks+.cue] <Ambient, Modern Classical
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446140.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Scooter - 24 Carat Gold (2002) Compilation [FLAC|Lossless|image + .cue] <Techno,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445952.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Aesthetische - MMXX (2020) EP [MP3|320 Kbps] <EBM, Industrial>
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445249.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ AK1200 with MC Navigator - Mixed Live: Moonshine Overamerica, San Francisco (200
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445245.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ One Arc Degree - Gravity Shaped (2020) [FLAC|Lossless|WEB-DL|tracks] <Downtempo,
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445243.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ VA - FSOE Ibiza (2022) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445102.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Kim & Buran - Tramplin (2022) Limited Edition [FLAC|Lossless|tracks + .cue] <Syn
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444996.jpg" />
 </div>
 
 
@@ -587,7 +703,7 @@ VA - Nothing But... Total Trance Selections Vol.05 (2018) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444929.jpg" />
 </div>
 
 
@@ -616,7 +732,7 @@ VA - Epic Trance Vol.3 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444925.jpg" />
 </div>
 
 
@@ -630,122 +746,6 @@ VA - Epic Trance Vol.3 (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF42D6D43364C16EC9A144C38E508575FA4F5F29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570313   (444838) от 16.08.2022
-
-Masterboy - Generation Of Love - The Album (1995) Vinyl-rip, Reissue, Remastered, 2021, Maschina Records [OGG|485 Kbps] <Electronic>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro	2:51
-02. Give Me Your Love	4:12
-03. Anybody (Movin' On)	3:53
-04. Baby Let It Be	4:06(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:48:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:189F37B622B314C5AE0517453024C99B150C59E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062054   (444772) от 12.10.2016
-
-VA - Stay a While and Dance (2016) [MP3|320 Kbps] <Funky, Progressive, House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Simon Sims And Tymers - I Feel You (Extended Mix) (Feat. Luny) 04:38
-02. Ibiza Bitches - Be Happy (Radio Version) 03:22
-03. Claudio Mordax - U Can I Know 06:28
-04. Danny Sinatra - Glimpse Of Light (Single Version) 04:08(   Читать дальше...   )Жанр: Funky, Progressive, HouseПродолжительность: 03:40:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B4B4D782E8A9C7F8546AF47C1D085D37EF8B16D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322822   (444701) от 31.08.2019
-
-Craig Connelly - Live @ Pepsi Max Arena, Creamfields UK, United Kingdom 2019-08-25 [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Above & Beyond ft. Zoe Johnston - Good For Me (Above & Beyond Club Mix)
-02. Craig Connelly - Solstice
-03. Ferry Tayle ft. Poppy - The Way Back Home (Craig Connelly Remix)
-04. Scott Bond vs. Solarstone - Red Line Highway (Factor B Back To The Future Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:15:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CF054EC4FAA055BD56FDD4E12A810A1EB312AE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322850   (444699) от 31.08.2019
-
-VA - Bikini Beach, Vol. 9 (2019) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mitsuhiko Ishikawa - Capture (03:12)
-02. Yako Beatz - Restaurants (03:08)
-03. B.O.S - Meteora (04:00)
-04. Da Angerboyz - Stay Awake (05:55)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:36:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99FABB98806884F679E9705F5D81B19D03F1A047
 ```
 
 https://mybot314.ru/tekegram_catalog/

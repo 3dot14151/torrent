@@ -1,3 +1,116 @@
+###  Публикация: 916697   (590486) от 09.07.2015
+
+VA - Poel (Entspannungs Musik Zum Seele Baumeln Lassen) (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wolfgang Ohmer - Mare Nubium [04:57]
+02. Vladimir Sterzer - City of Dreams (Soft Version) [04:14]
+03. Rocco Muller - Media Nation [09:22]
+04. Tibetan Bells - 6° Chakra [06:35](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:59:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE4330BAC6ABB4FC190A2F114563F75408C5D862
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916281   (590397) от 09.07.2015
+
+FKA twigs - LP1 (2014) Japanese Edition [MP3|320 кб/с]<Alternative R&B, Trip Hop, Dreampop, Experimental Electronic>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Preface
+02. Lights On
+03. Two Weeks
+04. Hours(   Читать дальше...   )Жанр: Alternative R&B, Trip Hop, Dreampop, Experimental ElectronicПродолжительность: 00:57:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:289CF9EAD7FBC453213BDB21CF3075252340B31E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 788929   (590396) от 09.07.2015
+
+Stefan Torto (Stefanos Tortopoglou) - Discography 7 Releases (2011-2015) [MP3|320 кб/с]<Psybient, Psychill, Downtempo, Ambient, Progressive Trance>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590396.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Psybient, Downtempo, Ambient, Progressive Trance |Продолжительность: 05:22:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C8455E2B2EA0B59397764D250EF8BDA3105197B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916796   (590385) от 09.07.2015
+
+VA - Magic Island - Music For Balearic People Vol. 6 (Mixed by Roger Shah) (2015) [FLAC|Lossless|WEB-DL]<Trance, Progressive Trance, Balearic Trance >
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roger Shah & Aisling Jarvis - Call Me Home (Magic Island Mix) (6:20)
+02. Brian Laruso & John James Renfrow - We Used to Know (Original Mix) (5:06)
+03. Rogier Dulac - On the Beach (MI6 Edit) (4:25)
+04. Othon - Japan Suite (Brian Laruso's MI6 Edit) (5:18)(   Читать дальше...   )Жанр: Trance, Progressive Trance, Balearic TranceПродолжительность: 05:47:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:570D4613DD9A37329B2F27D29FDB979CEFBC3181
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 916691   (590363) от 09.07.2015
 
 VA - Cafe del Mar XXI (2015) [MP3|320 кб/с]<Chill House, Lounge>
@@ -6,7 +119,7 @@ VA - Cafe del Mar XXI (2015) [MP3|320 кб/с]<Chill House, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590363.jpg" />
 </div>
 
 
@@ -35,7 +148,7 @@ VA - Chill Out Lounge 2015.1 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Loung
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589977.jpg" />
 </div>
 
 
@@ -64,7 +177,7 @@ VA - Deep Sounds: The Very Best Of Deep House (Spring Edition) 3CD (2015) [FLAC|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589895.jpg" />
 </div>
 
 
@@ -93,7 +206,7 @@ Under Break - The Experience (2022) [FLAC|Lossless|WEB|tracks] <Breaks>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589738.jpg" />
 </div>
 
 
@@ -122,7 +235,7 @@ VA - Hospital Mixtape - Lens (2022) [FLAC|Lossless|WEB|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589730.jpg" />
 </div>
 
 
@@ -151,7 +264,7 @@ VA - Uncharted Vol. 24 (Compiled By Koen) (2022) [FLAC|Lossless|WEB|tracks] <Psy
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589724.jpg" />
 </div>
 
 
@@ -180,7 +293,7 @@ VA - Chillout (The Beauty Of Lounge & Jazz Music) (2015) [MP3|320 кб/с]<Loung
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589595.jpg" />
 </div>
 
 
@@ -209,7 +322,7 @@ VA - A State Of Trance Radio Top 20 - July (2015) [MP3|320 кб/с]<Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589577.jpg" />
 </div>
 
 
@@ -238,7 +351,7 @@ VA - The Dark Room Lounge (Sexy and Smooth Easy Listening Deluxe Moments) (2015)
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589574.jpg" />
 </div>
 
 
@@ -267,7 +380,7 @@ VA - Black Hole Trance Music 05-22 (2022) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589393.jpg" />
 </div>
 
 
@@ -296,7 +409,7 @@ Popof - Love Somebody (2015) [MP3|320 кб/с]<House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589108.jpg" />
 </div>
 
 
@@ -325,7 +438,7 @@ KMFDM - Salvation (2015) EP [MP3|320 кб/с]<Aggro-Industrial>
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589029.jpg" />
 </div>
 
 
@@ -354,7 +467,7 @@ Alan Morris - Made Of Light - The Best Of (2022) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589000.jpg" />
 </div>
 
 
@@ -383,7 +496,7 @@ Dance With the Dead - Send The Signal [EP] (2014) [MP3|320 кб/с]<Electronic, 
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588600.jpg" />
 </div>
 
 
@@ -412,7 +525,7 @@ Angelo Taylor - Alone in the Universe (2006) [MP3|320 Kbps] <Synthpop, Space, Am
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588556.jpg" />
 </div>
 
 
@@ -441,7 +554,7 @@ Angelo Taylor - The Best of Angelo 2008 (2008) [FLAC|Lossless|WEB-DL|tracks] <Sy
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588555.jpg" />
 </div>
 
 
@@ -470,7 +583,7 @@ Angelo Taylor - The Best of Angelo 2008 (2008) [MP3|320 Kbps] <Synthpop, Space, 
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588554.jpg" />
 </div>
 
 
@@ -499,7 +612,7 @@ Aural Haze - The Wanderer (2019) [MP3|320 Kbps] <Synthwave, Retrowave, Sci-Fi>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588553.jpg" />
 </div>
 
 
@@ -528,7 +641,7 @@ Angelo Taylor - Alone in the Universe (2006) [FLAC|Lossless|WEB-DL|tracks] <Synt
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588551.jpg" />
 </div>
 
 
@@ -557,7 +670,7 @@ Moby - Reprise - Remixes (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Alternative Rock
 >>Downtempo, Ambient (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588448.jpg" />
 </div>
 
 
@@ -586,7 +699,7 @@ Ilkae - Formal Format (2019) Eerik Inpuj Sound [FLAC|Lossless|WEB-DL|tracks] <ID
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588194.jpg" />
 </div>
 
 
@@ -615,7 +728,7 @@ Tsode - Innerity (2019) [FLAC|Lossless|WEB-DL|24Bit] <Ambient, New Age, Downtemp
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588044.jpg" />
 </div>
 
 
@@ -629,122 +742,6 @@ Tsode - Innerity (2019) [FLAC|Lossless|WEB-DL|24Bit] <Ambient, New Age, Downtemp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:518B126559DD3021F50E53EFA39BC0E6D0202EDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300805   (588038) от 08.05.2019
-
-Asura - Atmosphere (2017) Altar Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <Psybient, Downtempo, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588038.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frontiers (Final Mix) (05:57)
- 02. Always (LS Vintage Edit) (05:08)
- 03. The Bhaktas - Pitre Purus (Asura Remix) (05:54)
- 04. Eternal Sunshine (Ambient Mix) (06:54)(   Читать дальше...   )Жанр: Psybient, Downtempo, AmbientПродолжительность: 00:59:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDBA6A06D89E17EE3634BF28F77CB1A19381EA84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918038   (587983) от 14.07.2015
-
-VA - Chillaxing: 24 Chillout Classics  (2015) [MP3|320 кб/с]<Lounge, Chillоut, Deep>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Passenger 10 - All I Have (03:49)
-02. Jerome Isma-Ae - Underwater Love (06:15)
-03. Nora En Pure - Come with Me (Satin Jackets Radio Edit) (05:51)
-04. Blondee & KRTO - Something About You (feat. Silk) (05:41)(   Читать дальше...   )Производство: Nero BiancoЖанр: Lounge, Chillоut, DeepПродолжительность: 01:50:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5A8B129EE48746CBD33E964D0B361B4D6A6A4CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918116   (587937) от 14.07.2015
-
-VA - Compiled & Mixed (By Ewan Rill And Milos Miladinovic) - 2015 [FLAC|Lossless|WEB-DL]<Tech House, Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ewan Rill - Compiled And Mixed (continuous DJ mix)
-02. Michael A - 23 59 Am (original mix)
-03. Marcelo Vasami - City Reflections (original mix)
-04. Mehmet Akar - A Kind Of Panic (Kintar remix)(   Читать дальше...   )Жанр: Tech House, Progressive HouseПродолжительность: 09:20:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6A9FB7724A901085CF0D5F2BD4CC35FEAAF7C7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552342   (587660) от 20.05.2022
-
-Giuseppe Ottaviani - Horizons (Part 1) (2022) [MP3|320 Kbps] <Progressive House, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giuseppe Ottaviani & Monika Santucci - With You (4:17)
-02. Giuseppe Ottaviani & Dan Soleil - Hero (4:21)
-03. Giuseppe Ottaviani & April Bender - Something I Can Dream About (4:10)
-04. Giuseppe Ottaviani & Mila Josef - Fade Away (4:21)(   Читать дальше...   )Жанр: Progressive House, Progressive TranceПродолжительность: 01:38:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C393182958EA0AC9E1F3202339C4298C8BEAE1C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

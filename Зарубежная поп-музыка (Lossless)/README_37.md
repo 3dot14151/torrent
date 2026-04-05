@@ -6,7 +6,7 @@ Amy Grant - House Of Love (1994) [APE|Lossless|image + .cue] <Pop, Europop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684642.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Natalia - In My Blood (2016) [FLAC|Lossless|tracks] <Pop, R&B, Soul>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684531.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Fruhlings Fox Hits (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684342.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Let's Dance - Party Pur (2019) [FLAC|Lossless|WEB-DL|tracks] <Euro-dance, P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684330.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ David Cassidy - Rock Me Baby (1972) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684324.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Cyndi Lauper - Twelve Deadly Cyns... And Then Some (1994) [FLAC|Lossless|image +
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684225.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Francesco Gabbani - Magellan (2017) [FLAC|Lossless|tracks] <Pop Rock, Europop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682669.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Broods - Conscious (2016) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682452.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Cher - 200% Platinum Hits (1999) Unofficial Release [APE|Lossless|image + .cue] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682353.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Lana Del Rey - Ultraviolence [Deluxe Edition] (2014) [FLAC|Lossless]<Indie Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681176.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Kylie Minogue - Golden (2018) Deluxe [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680784.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ The Teens - One More Chance (1999) [FLAC|Lossless|image + .cue] <Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680432.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - 100 Hits Sing! (2018) 5CD [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680214.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Romantic Nights (2012) [FLAC|Lossless|image + .cue] <Pop, Ballads>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680146.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Maren Morris - Girl (2019) [FLAC|Lossless|tracks + .cue] <Pop, Country>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676584.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Canzoni - 48 Canti D'Emotioni (Unknown) Box Set, 3CD, Compilation [FLAC|Los
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676459.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Whitney Houston - Greatest Hits (2010) 2CD [FLAC|Lossless|image + .cue] <Rhythm 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675902.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Sucre - A Minor Bird (2012) [FLAC|Lossless]<Pop Rock, Indie Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675454.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Clark Datchler - Journey Songs One (2022) 3xCD, Compilation, Remastered [FLAC|Lo
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675145.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Julio Iglesias - The Very Best Of Julio Iglesias (2007) [FLAC|Lossless|tracks + 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674623.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ VA - Pavarotti & Friends For War Child (1996) [APE|Lossless|image + .cue] <Rock,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674568.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ VA - Ultimate... Christmas (2015) Box Set, 4CD  [FLAC|Lossless|tracks + .cue] <P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674567.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ VA - Sophisticated Ladies (2018) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674346.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Tamaryn - Dreaming The Dark (2019) [FLAC|Lossless|WEB-DL|tracks] <New-wave, Drea
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674340.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ Alessandro Safina - Insieme A Te (1999) 2001 Universal [FLAC|Lossless|image + .c
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674329.jpg" />
 </div>
 
 
@@ -734,7 +734,7 @@ Alice Merton - Mint (2019) [FLAC|Lossless|tracks + .cue] <Pop, Indie Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674328.jpg" />
 </div>
 
 

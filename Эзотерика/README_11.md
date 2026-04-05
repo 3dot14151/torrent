@@ -6,7 +6,7 @@
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650054.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648513.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648043.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647313.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647134.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646492.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646423.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644977.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644957.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641143.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640887.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639488.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637275.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637043.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632476.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631876.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631719.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631716.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631581.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631546.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629780.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629136.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629086.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627951.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627622.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627515.jpg" />
 </div>
 
 

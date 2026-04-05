@@ -1,29 +1,3 @@
-###  Публикация: 1325186   (415896) от 13.09.2019
-
-Udemy | Git: Полный курс для начинающих и не только (2019) PCRec [H.264]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415896.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс подойдет для тех людей, кто не знает про GIT ничего и хотел бы изучить его "с нуля". Однако, курс также будет полезен тем людям, кто ежедневно использует GIT в своей работе, но хотел бы обрести большую уверенность в управлении этим инструментом. Зачастую разработчики, которые ежедневно используют GIT, не имеют глубокого понимания работы этой системы (   Читать дальше...   )Производство: UdemyЖанр: DevOps, gitПродолжительность: 04:47:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03E8E957FDB3E90F365586AA8232D6CB2127E703
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1412581   (415306) от 30.09.2020
 
 [Udemy] Oleg Novikov | Создание API на основе Django и Telegram-botа на Flask (2019) PCRec
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415306.jpg" />
 </div>
 
 
@@ -61,7 +35,7 @@ ProfIT| Введение в фреймворк Codeception (2019) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414195.jpg" />
 </div>
 
 
@@ -87,7 +61,7 @@ ProfIT | Про TDD, BDD и вот это всё (2019) PCRec [H.264/1080p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414051.jpg" />
 </div>
 
 
@@ -113,7 +87,7 @@ ProfIT | MySQL 8 (2019) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414042.jpg" />
 </div>
 
 
@@ -139,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413888.jpg" />
 </div>
 
 
@@ -167,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413400.jpg" />
 </div>
 
 
@@ -198,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411810.jpg" />
 </div>
 
 
@@ -226,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411180.jpg" />
 </div>
 
 
@@ -253,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411027.jpg" />
 </div>
 
 
@@ -282,7 +256,7 @@ Postgres Professional | Разработка серверной части пр�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409826.jpg" />
 </div>
 
 
@@ -311,7 +285,7 @@ Lynda.com | Windows 10 October 2018 Update Essential Training (2018) PCRec [H.26
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408961.jpg" />
 </div>
 
 
@@ -337,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408910.jpg" />
 </div>
 
 
@@ -366,7 +340,7 @@ SoftwareTesting | Программирование на Python для тести
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408297.jpg" />
 </div>
 
 
@@ -392,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407985.jpg" />
 </div>
 
 
@@ -418,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407892.jpg" />
 </div>
 
 
@@ -447,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407882.jpg" />
 </div>
 
 
@@ -476,7 +450,7 @@ Infostart | Онлайн-митап "Web-клиенты для 1С" (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407879.jpg" />
 </div>
 
 
@@ -505,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407856.jpg" />
 </div>
 
 
@@ -532,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407841.jpg" />
 </div>
 
 
@@ -559,7 +533,7 @@ Pluralsight.com | Advanced Python (2017) PCRec [H.264/720p-LQ] [RU/EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407578.jpg" />
 </div>
 
 
@@ -587,7 +561,7 @@ ZTM | SQL + Базы данных Bootcamp: Zero to Mastery / Complete SQL + Dat
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407054.jpg" />
 </div>
 
 
@@ -616,7 +590,7 @@ Brian Yu, David J. Malan | CS50. Веб-программирование с Pyth
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407018.jpg" />
 </div>
 
 
@@ -643,7 +617,7 @@ Skillbox | Основы математики для Data Science (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406970.jpg" />
 </div>
 
 
@@ -672,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406661.jpg" />
 </div>
 
 
@@ -701,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406655.jpg" />
 </div>
 
 
@@ -712,6 +686,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EE2A367EE18F570FD24D18802ED9109BB9A15B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413934   (406618) от 06.10.2020
+
+Никита Хохлов | PyQt5 Python - Разработка графических интерфейсов (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Блок 1. Введение в основные инструменты
+1. Настройка среды и разбор инструментов Qt Designer
+2. Структура Qt программы, преобразование интерфейса и разбор виджетов. Пишем первую программу с кнопками и списками
+3. Использование галочек в программах, принцип построения конфигов(   Читать дальше...   )Жанр: ПрограммированиеПродолжительность: 03:44:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6C07F06BACDC02E02F154086782AD1F1E1AD266
 ```
 
 https://mybot314.ru/tekegram_catalog/

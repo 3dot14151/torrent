@@ -1,3 +1,32 @@
+###  Публикация: 1728377   (54138) от 06.06.2024
+
+Issa - Another World (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armed & Dangerous (4:54)
+02. All These Wild Nights (5:12)
+03. Only In The Dark (4:59)
+04. Never Sleep Alone (4:09)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:50:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:230B8C7F7287E76AB6500F9AAFE42A232B528F54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1728330   (54137) от 06.06.2024
 
 Holy Mother - Rise (2024) [MP3|320 Kbps] <Heavy Metal>
@@ -6,7 +35,7 @@ Holy Mother - Rise (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54137.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Severe Torture - Torn From The Jaws Of Death (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54048.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Marilyn Manson - Sweet Dreams Baby (2000) 2024, Smokin' [FLAC|Lossless|WEB-DL|tr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54028.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ The Serious Men - M.I.R. (Made In Russia) (2020) [FLAC|Lossless|WEB-DL|tracks] <
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54026.jpg" />
 </div>
 
 
@@ -123,7 +152,7 @@ Gone til Winter - Hiding from the Sun (2024) [MP3|320 Kbps] <Gothic Metal, Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53733.jpg" />
 </div>
 
 
@@ -152,7 +181,7 @@ VA - Митьки. 3 Альбома (1996-2002) [FLAC|Lossless|tracks + .cue] <R
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53642.jpg" />
 </div>
 
 
@@ -181,7 +210,7 @@ VA - Митьки. 8 Альбомов (1995-2023) [MP3|320 Kbps] <Rock, Folk>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53629.jpg" />
 </div>
 
 
@@ -210,7 +239,7 @@ Thronehammer - Incantation Rites (2021) [FLAC|Lossless|WEB-DL|tracks] <Doom Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53626.jpg" />
 </div>
 
 
@@ -239,7 +268,7 @@ Horrified - Crematorium Mist (2022) [FLAC|Lossless|image + .cue] <Death Metal, G
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53624.jpg" />
 </div>
 
 
@@ -268,7 +297,7 @@ Weedevil - Profane Smoke Ritual (2024) [FLAC|Lossless|WEB-DL|tracks] <Occult Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53622.jpg" />
 </div>
 
 
@@ -297,7 +326,7 @@ Vredehammer - God Slayer (2024) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53620.jpg" />
 </div>
 
 
@@ -326,7 +355,7 @@ Royal Rage - Evolve (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53619.jpg" />
 </div>
 
 
@@ -355,7 +384,7 @@ Magic Hat - Get Off My Lawn (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53616.jpg" />
 </div>
 
 
@@ -384,7 +413,7 @@ Cactus - Temple Of Blues - Influences & Friends (2024) [FLAC|Lossless|image + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53608.jpg" />
 </div>
 
 
@@ -413,7 +442,7 @@ Deep Purple - Pictures of You (2024) EP [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53538.jpg" />
 </div>
 
 
@@ -442,7 +471,7 @@ Mark Knopfler - ...And Places (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53468.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ Black Country Communion - V (2024) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53434.jpg" />
 </div>
 
 
@@ -500,7 +529,7 @@ Axel Rudi Pell - Risen Symbol (2024) [MP3|320 Kbps] <Melodic Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53433.jpg" />
 </div>
 
 
@@ -529,7 +558,7 @@ Legion Of The Damned - Poisen Chalice (2023) 2 x CD [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53420.jpg" />
 </div>
 
 
@@ -558,7 +587,7 @@ Astral Magic - Shadows Over Jupiter Remixed (2024) [MP3|320 Kbps] <Psychedelic, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53415.jpg" />
 </div>
 
 
@@ -587,7 +616,7 @@ Strength And Sanity - Waking Light Goodbye (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53412.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ Black Country Communion - V (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53410.jpg" />
 </div>
 
 
@@ -645,7 +674,7 @@ Axel Rudi Pell - Risen Symbol (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53406.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ Human Zoo - Echoes Beyond (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53304.jpg" />
 </div>
 
 
@@ -703,7 +732,7 @@ Millennial Reign - World On Fire (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53197.jpg" />
 </div>
 
 
@@ -717,35 +746,6 @@ Millennial Reign - World On Fire (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B7A7F1A43EF1B34151276A922E335DB2CCFA1A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730559   (53006) от 17.06.2024
-
-Led Zeppelin - Remasters (1990) Japanese Edition, 2 x CD, Compilation, Reissue, Remastered, Atlantic [FLAC|Lossless|image + .cue] <Blues Rock, Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53006.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Communication Breakdown 02:29
-02. Babe I'm Gonna Leave You 06:40
-03. Good Times Bad Times 02:44(   Читать дальше...   )Жанр: Blues Rock, Hard Rock, Heavy MetalПродолжительность: 02:25:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D9853180FFA715664535CC107803A3064D68B4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,177 +1,3 @@
-###  Публикация: 1448464   (1030884) от 17.02.2021
-
-VA - VIVA Hit Collection Vol.5 (2000) (2000) [FLAC|Lossless|image + .cue] <Dance-pop, Europop>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Five / We Will Rock You [0:02:58.69]
-02. Savage Garden / Affirmation [0:04:58.64]
-03. Christina Aguilera / I turn To you [0:04:37.44]
-04. Backstreet Boys / The one [0:03:50.74](   Читать дальше...   )Жанр: Dance-pop, EuropopПродолжительность: 01:10:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54BE6D5CF080B1B40E352C88E4FF37774102667B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621900   (1030763) от 26.03.2023
-
-VA - Mystera VI (2000) [OGG Vorbis|480 Kbps] <Electronic, Classical, Ambient>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen - Who Wants To Live Forever
-02. Enigma - Return To Innocence
-03. Rosenstolz - Amo Vitam
-04. Loreena Mckennitt - The Mummers' Dance(   Читать дальше...   )Жанр: Electronic, Classical, AmbientПродолжительность: 01:18:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A76310787E0051E155EF1537D674F96B5A01C599
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448586   (1030694) от 18.02.2021
-
-Стас Костюшкин - Лакшери (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030694.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Лакшери
-2. Гитара
-3. Ха-ха
-4. Васёк(   Читать дальше...   )Жанр: PopПродолжительность: 00:30:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A190D4A4421495534BFD6B54C5B8FAAAF8BDEAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448868   (1030476) от 19.02.2021
-
-NK (Настя Каменских) - Eclectica (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Latin Pop, Dance>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Elefante
-02 - A Huevo
-03 - Yea Or Nay
-04 - Película(   Читать дальше...   )Жанр: Pop, Latin Pop, DanceПродолжительность: 00:20:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C17BC318B39FD1BCF0F8BD7ACA314C95FA5B8850
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448787   (1030454) от 19.02.2021
-
-Soprano Турецкого - 10 (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030454.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Турецкое рондо
-2. Habanera
-3. Ау
-4. Бублики(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:524E25943D48F03FD0DA2F5CA79E01A82CFC912A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621943   (1030274) от 28.03.2023
-
-Lemar - Page In My Heart (2023) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Pop, R&B, Soul>
-
->>Pop
->>Pop (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Page In My Heart
-02. Glorious!
-03. Future Love
-04. Dust(   Читать дальше...   )Жанр: Pop, R&B, SoulПродолжительность: 00:33:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A29DDC2B33B5FA44057CE8A2CEBC181909D543B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1449198   (1030231) от 20.02.2021
 
 Dmitri Hvorostovsky (Дмитрий Хворостовский) - Singing of Love (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Classical>
@@ -180,7 +6,7 @@ Dmitri Hvorostovsky (Дмитрий Хворостовский) - Singing of Lov
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030231.jpg" />
 </div>
 
 
@@ -209,7 +35,7 @@ Luis Miguel - Romances (1997) [OGG Vorbis|480 Kbps] <Latin, Pop, Ballad>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030045.jpg" />
 </div>
 
 
@@ -238,7 +64,7 @@ VA - Mystera VIII (2002) [OGG Vorbis|480 Kbps] <Pop, Downtempo, Ambient>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030043.jpg" />
 </div>
 
 
@@ -267,7 +93,7 @@ VA - Mystera VII (2001) [OGG Vorbis|480 Kbps] <Downtempo, Synth-pop, Classical>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030039.jpg" />
 </div>
 
 
@@ -296,7 +122,7 @@ Mflex Sounds - H.M.H. 2 from Another Perspective (2015) [FLAC|Lossless|WEB-DL|tr
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030019.jpg" />
 </div>
 
 
@@ -325,7 +151,7 @@ Mflex Sounds - Hear My Heartbeat Volume One (2014) [FLAC|Lossless|WEB-DL|tracks]
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030013.jpg" />
 </div>
 
 
@@ -354,7 +180,7 @@ Mflex Sounds - Back To The Roots (2019) [FLAC|Lossless|WEB-DL|tracks] <Italo-Dis
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030001.jpg" />
 </div>
 
 
@@ -383,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029993.jpg" />
 </div>
 
 
@@ -412,7 +238,7 @@ Ariana Grande - Positions (2021) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029966.jpg" />
 </div>
 
 
@@ -441,7 +267,7 @@ VA - Party Mix (2023) [MP3|320 Kbps] <Electropop, Dance, Future House, Synthpop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029799.jpg" />
 </div>
 
 
@@ -470,7 +296,7 @@ VA - Pop Classics (2023) [MP3|320 Kbps] <Disco, Funk, R&B, Synth-pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029794.jpg" />
 </div>
 
 
@@ -499,7 +325,7 @@ Lida - Музло из гаражей (2021) [MP3|320 Kbps] <Pop, Hip-Hop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029718.jpg" />
 </div>
 
 
@@ -528,7 +354,7 @@ Bee Gees - Living Eyes (1981) Reissue, 1993, Polydor [OGG Vorbis|480 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029615.jpg" />
 </div>
 
 
@@ -557,7 +383,7 @@ Elton John - Honky Château: 50th Anniversary (1972, 2xCD, Remastered, 2023, Roc
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029601.jpg" />
 </div>
 
 
@@ -588,7 +414,7 @@ Talisha Karrer - Acoustic Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029574.jpg" />
 </div>
 
 
@@ -617,7 +443,7 @@ Groove State - Unstoppable (2020) Deluxe Edition [MP3|320 Kbps] <EuroDance, Voca
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029524.jpg" />
 </div>
 
 
@@ -646,7 +472,7 @@ E.G. Daily - Wild Child (серия "Другие восьмидесятые") (
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029509.jpg" />
 </div>
 
 
@@ -675,7 +501,7 @@ Celine Dion - 27 Albums, 19 Compilations, 8 Live, 53 Singles & EPs (1981-2019) [
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029500.jpg" />
 </div>
 
 
@@ -704,7 +530,7 @@ Lian Ross - 4You (2023) 2CD [MP3|320 Kbps] <Euro-Disco, Synth-pop, Europop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029408.jpg" />
 </div>
 
 
@@ -733,7 +559,7 @@ Q - Q (1982) LP [MP3|320 Kbps] <Electronic, Pop Rock, Synth-pop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029381.jpg" />
 </div>
 
 
@@ -747,6 +573,178 @@ Q - Q (1982) LP [MP3|320 Kbps] <Electronic, Pop Rock, Synth-pop, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:524ECFA332969F28844545078CB76812AEA7FA40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450121   (1029334) от 24.02.2021
+
+Bonnie Tyler - The Best Is yet to Come (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Best Is Yet To Come
+02. Dreams Are Not Enough
+03. Hungry Hearts
+04. Stuck To My Guns(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:862F4AC879CB311502879E04B64907E3EAA364E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 161466   (1029209) от 02.04.2023
+
+МакSим - Дискография  (2006-2009) [FLAC|Lossless] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029209.jpg" />
+</div>
+
+
+###  Подробнее
+
+Певица МакSим родилась 10 июня 1984 года в городе Казани.По словам МакSим, все в ее жизни происходило само собой. Сначала было обучение в вокальном кружке города Казани. Параллельно МакSим занималась в спортивном кружке карате дзю-тзютсу. 6 лет стараний и красный пояс в кармане.
+Даже в старших классах МакSим не отличалась прилежным поведением. Но прогулы и опоздания (   Читать дальше...   )Жанр: Pop, Dance, Disco.Продолжительность: 4:09:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26D8169623D717E56F5EA76EAF57D7A4657C34FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450279   (1029194) от 25.02.2021
+
+Modern Boots - Garden of Love (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Eurobeat>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maybe Tonight (5:29)
+02. Angel's Heart (6:33)
+03. Give Me Your Heart Again (5:08)
+04. I Couldn't Love You (5:46)(   Читать дальше...   )Жанр: Italo-Disco, EurobeatПродолжительность: 01:35:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC341DCF6BBDA4A567B119D57EADB986B6294FC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450128   (1029189) от 25.02.2021
+
+Bonnie Tyler - The Best Is yet to Come (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Best Is Yet To Come
+02. Dreams Are Not Enough
+03. Hungry Hearts
+04. Stuck To My Guns(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54488F3BC4A9C61F5BEF63A96F907BBEFAB41CFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623872   (1029099) от 03.04.2023
+
+DJ Ryloff (Remixed Ru) - Трава у дома (2023) [WavPack|Lossless|image + .cue] <Pop, Dance>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 DJ Нил & Гелена - Звездное лето (Refuse Breaks Vocal Remix Intro)
+02 Земляне feat. Дима Билан - Трава у дома (Dj Martinr Remix)
+03 Zivert - Я. Т. Л. (DJ Zhuk Remix)
+04 Лолита & Коста Лакоста - По-другому (Roman Max & Nicky One Extended Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:58:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:064894DBCE2BAD61750633AE6DD9BD262DB367E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450562   (1029019) от 26.02.2021
+
+VA - Italo Made In Spain 4 (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Eurobeat>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Various - Italo Made In Spain 4 (Edicion Mexico) (16:15)
+02. Various - Italo Made In Spain 4 (Summer Session) (28:49)
+03. Francesco Napoli - Lady Fantasy 2018 (Italo New Extended Mix) (6:54)
+04. Naoky feat. Stylove - Cybernetic Love (Extended Mix) (6:13)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, EurobeatПродолжительность: 02:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1B42741A4A931A8A57BC9D6FDDA0E005343BE0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

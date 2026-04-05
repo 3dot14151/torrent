@@ -1,3 +1,29 @@
+###  Публикация: 1417623   (1021470) от 11.04.2021
+
+Amnesia: Rebirth (2020) [Ru/Multi] (1.31) Repack Other s
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021470.jpg" />
+</div>
+
+
+###  Подробнее
+
+В игре Amnesia: Rebirth от создателей культовой серии вас ждет новое погружение во тьму. Преодолевая отчаяние и безысходность, вам предстоит проверить на прочность человеческую способность выносить страдания. В Amnesia: Rebirth вы играете за Таси Трианон, которая приходит в себя в недрах алжирской пустыни. Прошло уже много дней. Где вы были? Что делали? Где все остальные? (   Читать дальше...   )Тип издания: RepackРазработчик: Frictional GamesЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A76D338355B3EB7EEC6AAE7C43484610D430C836
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461302   (1021468) от 11.04.2021
 
 Гуляй, Вася! Свидание на Бали (2021) WEBRip [H.264/1080p-LQ]
@@ -6,7 +32,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021468.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ JetBrains PyCharm Professional 2021.1 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021467.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021386.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021349.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ SkillBox, Сергей Корниенко и др.| Веб-разработчи�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021233.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ Google запустила новую функцию Android, которая по
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021100.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021078.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ ABBYY FineReader PDF 15.0.114.4683 RePack (& Portable) by TryRooM [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021053.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ CronosPlus 3.04.72
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020880.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020531.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020386.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020355.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Design
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020343.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020060.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ Wink Universe v1.30.1 [Ru] - ТВ, кино, сериалы, UFC для Android 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020030.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ Windows 7 SP1 х86-x64 by g0dl1ke 21.04.15 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019850.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019846.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019696.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ IT DarkMaycal Sysadmins | Построение сетей CISCO с нуля. Ч�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019679.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019557.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ Assassin's Creed: Valhalla (2020) [Ru/Multi] (1.1.2) Repack R.G. Механик�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019519.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019517.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ F-Secure Freedome VPN 2.41.6817 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019178.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019044.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019035.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321287   (1018659) от 28.04.2021
-
-Wolfenstein: Youngblood (2019) [Ru/Multi] (1.0.3/dlc) Repack =nemos= [Deluxe Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет спин-оффа продолжает события, происходящие в предыдущей части The New Colossus. События происходят в Париже в 80-х годах. Нацисткая машина продолжает активно наступать и уничтожать не желающих склоняться перед ней. Сопротивление практически сломлено. Лидер сопротивления Би Джей Бласковиц был схвачен нацистами недалеко от Парижа.Тип издания: RepackРазработчик: MachineGames, Arkane StudiosЖанр: Action (Shooter), 3D, 1'st PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABCABE9BCBF4BA48D9C607702407EF17D3AC19D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

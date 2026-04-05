@@ -1,3 +1,163 @@
+###  Публикация: 995338   (883837) от 11.03.2016
+
+NVIDIA GeForce Desktop 364.51 WHQL + For Notebooks [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883837.jpg" />
+</div>
+
+
+###  Подробнее
+
+NVIDIA GeForce Driver — драйвера для видеокарт производства NVIDIA. Предназначены для видеокарт семейства GeForce, работающих в операционной системе Windows. Унифицированная архитектура драйверов (UDA) гарантирует прямую и обратную совместимость драйверов с различными поколениями графических процессоров NVIDIA, что упрощает процесс замены видеоподсистемы, так как (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41641BF11EFF2D68B250874EEA54CEF7AF454358
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995475   (883829) от 11.03.2016
+
+Мощные лазеры позволят космическим кораблям добираться до Марса за три дня
+
+>>3
+>>12
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883829.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это весьма и весьма походит на научную фантастику. Однако, согласно результатам последних исследований, проведенных учеными из Калифорнийского университета в Санта-Барбаре, все это может быть воплощено в реальности, и небольшой автоматический космический корабль будет добираться до Марса всего за трое суток полета. Ключом к этому является так называемая фотонная (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 902084   (883813) от 11.03.2016
+
+[BMW] (Все модели с CIC) Обновления карт навигации для CIC BMW PREMIUM EUROPE 2016-2 EAST ВОСТОК
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883813.jpg" />
+</div>
+
+
+###  Подробнее
+
+EAST ВОСТОК Рекомендуется, если вы в основном ездите по России
+Если в основном ездите по Европе - ищите такую-же раздачу, но WEST ЗАПАД
+
+2016-2 BMW ROAD MAP EUROPE PREMIUM EAST(   Читать дальше...   )Формат: ISO
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDCC1F1F62C70757E6DA780BEA2BBAB63E87BFB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994641   (883804) от 11.03.2016
+
+BELOFF 2016.3 [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Универсальный сборник программ, распределённых по категориям, с автоматической установкой на операционные системы Windows. В сборник дополнительно добавлены портативные приложения, которые можно будет легко использовать как с диска и виртуального привода, так и с USB-накопителей, включая установку WPI и MInstAll. Для большего удобства использования сборника добавлено (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6739FCA86D3E50FC67004890DDD3946C0896A2C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995217   (883802) от 11.03.2016
+
+Rescue USB (All-In-One Edition) 1.0 [Ru/En]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rescue USB (All-In-One Edition) 1.0 основана на сборках m0nkrus (Windows AIO), adguard, puhpol, conty9 и Sergei Strelec.
+Загрузка в UEFI и через USB 3.0.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D95D415E03C1477A5A975FAAFDAF40C70B32A9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995370   (883801) от 11.03.2016
+
+Мы уроды / We Are Monsters (2015) DVDRip
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая девушка по имени Эмма подвергается нападению таксиста, получает дозу наркоты и вырубается. Очнувшись в какой-то грязной хибаре, Эмма узнаёт, что теперь она на вечеринке, организованной тремя садистами-психопатами. К сожалению или нет, но психопаты не знают, что Эмма чрезвычайно стойкая и целеустремлённая девушка...Производство: ШвецияЖанр: Ужасы, триллер, драмаРежиссер: Сонни Лагуна, Томмю ВиклундАктеры: Ханна Ольденбург, Ральф Бек, Ники Норденшёльд, Торбьёрн Андерссон, Лина Холл, Стефан Исакссон ...Перевод: Любительский двухголосый (den904 & DeadSno)Субтитры: ОтсутствуютПродолжительность: 01:14:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:323D451B53C056984A6515466D98C9756E6D3F92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995483   (883800) от 11.03.2016
 
 Ускоритель Компьютера 3.0 RePack by KaktusTV [Ru]
@@ -6,7 +166,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883800.jpg" />
 </div>
 
 
@@ -32,7 +192,7 @@ Call of Duty: Advanced Warfare (2014) [Ru/En] (1.22.01/dlc) Repack =nemos=
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883799.jpg" />
 </div>
 
 
@@ -60,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883576.jpg" />
 </div>
 
 
@@ -86,7 +246,7 @@ The Medium (2021) [Ru/Multi] (1.0.184) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883569.jpg" />
 </div>
 
 
@@ -112,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883564.jpg" />
 </div>
 
 
@@ -140,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883264.jpg" />
 </div>
 
 
@@ -166,7 +326,7 @@ ZverDVD v2010.3 + Alkid SE (Официальная раздача)
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_883258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_883258.jpg" />
 </div>
 
 
@@ -193,7 +353,7 @@ EZ CD Audio Converter 9.1.1.1 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883139.jpg" />
 </div>
 
 
@@ -219,7 +379,7 @@ Google запустил сайт, отслеживающий передвиже�
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883136.jpg" />
 </div>
 
 
@@ -245,7 +405,7 @@ Boku no Hero Academia (2019) | My Hero Academia Season 4 | Моя геройск
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883042.jpg" />
 </div>
 
 
@@ -271,7 +431,7 @@ Windows 10 1909 (18363.753) x64 Home + Pro + Enterprise (3in1) by Brux v.03.2020
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883038.jpg" />
 </div>
 
 
@@ -297,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>10
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883030.jpg" />
 </div>
 
 
@@ -324,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883009.jpg" />
 </div>
 
 
@@ -350,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882990.jpg" />
 </div>
 
 
@@ -376,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882987.jpg" />
 </div>
 
 
@@ -402,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882886.jpg" />
 </div>
 
 
@@ -429,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882685.jpg" />
 </div>
 
 
@@ -456,7 +616,7 @@ South Park: The Stick of Truth [XBOX360] [RUS] [PAL] [LT+1.9] (XGD2 / 16537) (20
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882673.jpg" />
 </div>
 
 
@@ -483,7 +643,7 @@ OnOne Perfect Mask Premium Edition 5.2.3 [En/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882664.jpg" />
 </div>
 
 
@@ -509,7 +669,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4498.1000
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882651.jpg" />
 </div>
 
 
@@ -520,166 +680,6 @@ Microsoft Office 2016 хорошо демонстрирует, как сегод
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CC70AA069821C6A85C90F56FC70F1F044679411
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103906   (882646) от 13.02.2017
-
-Другой мир: Войны крови / Underworld: Blood Wars (2016) WEB-DL [H.264/1080p-LQ]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882646.jpg" />
-</div>
-
-
-###  Подробнее
-
-Воительница-вампир Селена вступает в свой последний и решающий бой между оборотнями и кланом вампиров, который её предал.Производство: США / Lakeshore Entertainment, Screen Gems, Sketch FilmsЖанр: ужасы, боевикРежиссер: Анна ФерстерАктеры: Кейт Бекинсейл, Тео Джеймс, Лара Пулвер, Чарльз Дэнс, Тобайас Мензис, Брэдли Джеймс, Алисия Вела-Бэйли, Трент Гарретт, Дэйзи Хэд, Джеймс Фолкнер, Оливер СтаркПеревод: Профессиональный (многоголосый, закадровый) (Paradox&Omsbird)Язык субтитров: АнглийскийПродолжительность: 01:31:49Реклама: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88ED1372BE66CFB8296DFA2D970FA0A10AD99B52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 891636   (882644) от 13.02.2017
-
-ITVDN | Коллекция видеокурсов (2014-2015) PCRec
-
->>3
->>9
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882644.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная коллекция представляет собой 26 отдельных видео курсов IT video developers network, включающая в себя C#, SQL, ASP.NET, WPF, JavaScript, JQuery, HTML, CSS, и несколько общих тем, которые заинтересуют разработчика работающго в Visual Studio. Материал будет полезен как и новичкам, так и уже практикующим разработчикам, использующих указанные выше инструменты. (   Читать дальше...   )Жанр: ПрограммированиеПродолжительность: 250:08:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:833AC8F2133A3694BD0B985EB07D7D003490EB32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 761241   (882637) от 07.03.2014
-
-Microsoft Office 2013 SP1 VL RUS-ENG x86-x64 Compact (AIO)
-
->>3
->>19
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Офисный пакет Microsoft Office 2013 представляет собой воплощение новой философии компании, в которой центром мироздания объявлен не один конкретный персональный компьютер, а человек владеющий этим компьютером, а также несколькими другими, да еще и смартфоном с планшетом и прочими электронными помощниками в придачу. И, чтобы нам с тобою не заблудиться в этих горах (   Читать дальше...   )Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2EC10714DC5D9CE3CDA48C3AFD6A6416F054E79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 870801   (882194) от 20.02.2015
-
-Highlights School | Цветокоррекция и тонирование в Photoshop (2014) PCRec
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный мастер-класс будет полезен для фотографов и ретушеров всех уровней: от начинающих, до уже практикующих профессионалов.Жанр: Ретушь, тонирование фотоПродолжительность: 03:15:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:597F77BF082B481DC7CA2E01F62326131D6C0119
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 870687   (882193) от 20.02.2015
-
-Highlights School | Секреты творческой фотографии (2015) PCRec
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный мастер-класс будет полезен для фотографов и ретушеров всех уровней: от начинающих, до уже практикующих профессионалов.Жанр: Коллажирование, ретушь, тонировкаПродолжительность: 05:38:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C88374A54CA763D95B4784B1098353F2BA6E72B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 863965   (882190) от 20.02.2015
-
-Bleach / Блич (2004, TV, 366 + 2 OVA + 4 Movies) DVDRip/HDTVRip/BDRip 480/720p Raw + rus
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ад - место, где черные от грехов души предаются смертным мукам и ужасным пыткам за совершенные при жизни преступления. Синигами запрещено связываться с Адом и на этот запрет есть много причин...
-Но даже в Аду все не так хорошо. Несколько Тогабито (Brutal Prisoners или Ужасные Пленники) устраивают переворот и выбирают для себя цель - Каракуру и Куросаки Ичиго. Семья (   Читать дальше...   )Жанр: Приключения, Фэнтези, СёнэнРежиссер: Абэ НориюкиЯзык субтитров: rus Если нет субтитров рядом - они внутри.
-Подгонял ВСЕ субтитры Я. Ушло часов 8. Не считая времени на сборку 4 фильма. Если в некоторых сериях сабы отстают/спешат на 1 секунду, не серчайте.
-
-Кто будет честно тырить сборку сабов и серии, упоминать наш форум-трекерПродолжительность: 1:33:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31D7B251AF062F2409907C8B894F7DAB1A96D9BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1846583   (1051457) от 08.01.2026
+
+Bo: Path of the Teal Lotus (2024) [Multi] (1.2.5) License GOG
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bo: Path of the Teal Lotus - яркий платформер, предлагающий сыграть за очаровательную героиню, которая является небесным цветком. Девушка обладает акробатическими способностями, а ее смертельное оружие - серьга. Вместе с девочкой потребуется исследовать таинственный мир, вдохновленный японской мифологией. В игре представлено множество ярких и запоминающихся персонажей, (   Читать дальше...   )Тип издания: LicenseРазработчик: Squid Shock Studios, Christopher Stair, Trevor YoungquistЖанр: Метроидвания, 2DЯзык субтитров: Английский, Французский, Немецкий, Японский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A898AEBF96B33FFE183CC43285E174B3A3AF656
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844920   (1050388) от 29.12.2025
+
+Braid (2024) [Ru/Multi] (0.444 revision 15517 M) Repack Let'sРlay [Anniversary Edition]
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050388.jpg" />
+</div>
+
+
+###  Подробнее
+
+Управляйте временем и решайте загадки в обновленной версии классической инди-игры Braid с обновленной графикой и подробными авторскими комментариями. Попрощайтесь со стенами родного дома и отправляйтесь на поиски принцессы в миры, где у времени нет четких границ. Вам предстоит погрузиться в воспоминания и столкнуться лицом к лицу с сожалениями о прошлом.Тип издания: RepackРазработчик: Thekla, Inc.Жанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B94898B2418BFD6B1D30D9BBC67A64526D5853F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1844854   (1050174) от 28.12.2025
 
 Beacon of Neyda (2025) [Multi] (1.0.4b) License GOG
@@ -6,7 +58,7 @@ Beacon of Neyda (2025) [Multi] (1.0.4b) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050174.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ SANABI (2023) [Ru/Multi] (1.3.51/dlc) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049971.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ The Elephant Collection (2023) [En] (1.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049658.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Contra: Operation Galuga (2024) [Ru/Multi] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049048.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Toziuha Night: Order of the Alchemists (2024) [Multi] (1.0.5.0/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048840.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Winter Burrow (2025) [Ru/Multi] (1.0.1) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048760.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Adrenaline Rampage (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048723.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Metal Mind (2022) [Multi] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048583.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Asterix & Obelix: Mission Babylon (2025) [Ru/Multi] (Build 20404417) Repack FitG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048571.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Hi-Fi RUSH (2023) [Ru/Multi] (Build 20567064/dlc) Repack HardwareMining [Deluxe 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048380.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Hi-Fi RUSH (2023) [Ru/Multi] (Build 20567064/dlc) Scene Rune
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048257.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Hi-Fi RUSH (2023) [Ru/Multi] (Build 20567064/dlc) Repack seleZen [Deluxe Edition
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048198.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Hi-Fi RUSH (2023) [Ru/Multi] (Build 20567064/dlc) Repack Let'sРlay [Deluxe Edit
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047262.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ SANABI (2023) [Ru/Multi] (1.3.49/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046467.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Feist (2015) [Ru/Multi] (1.4.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040429.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Twin Cobra (2023) [Multi] (17) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039472.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Truxton (2023) [Multi] (17) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039225.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Zero Wing (2023) [Multi] (19) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039220.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Momodora: Reverie Under the Moonlight (2016) [Ru/Multi] (1.07) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037414.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Source of Madness (2022) [Ru/Multi] (1.1.6) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035510.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Bit.Trip Runner (2010) [En] (2.0.0.2) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032938.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031517.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Have a Nice Death (2023) [Ru/Multi] (1.0.0.53022) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031306.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Vernal Edge (2023) [Multi] (1.4.2) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030172.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Vernal Edge – приключенческий экшен с видом сбок
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBF094A680B2A38989089849404191F75AC5F884
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451036   (1028610) от 28.02.2021
-
-FEIST (2015) [Ru/Multi] (1.4.0) Repack Other s
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отчаянный, жестокий опыт выживания, полный потрясающих визуальных эффектов, динамичных существ и захватывающего саундтрека. Следуйте за странными зверями через одинокие леса, опасные горы, темные пещеры и светящиеся болота. Остерегайтесь опасных существ, которые реагируют на ваши движения и решения, и искусно спрятанные ловушки, которые испытают вашу способность (   Читать дальше...   )Тип издания: RepackРазработчик: Bits & BeastsЖанр: Adventure, Arcade, 2DЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDF8B159E547DCBB3F30C3682BECA836A03DBD1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457939   (1024113) от 27.03.2021
-
-Kaze and the Wild Masks (2021) [Ru/Multi] (2.0.2) Repack SpaceX
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kaze and the Wild Masks – это весёлый платформер в стиле игр девяностых. Примерьте на себя роль Kaze и спасите Хого от проклятья, которое сеет хаос на всех островах. Сражайтесь со злобными ходячими овощами, пробудив силу Wild Masks. Прыгайте, как свирепый тигр, парите в небе, как орел, бегайте быстро, как ящерица, и устрашайте всех под водой, как акула.Тип издания: RepackРазработчик: PixelHiveЖанр: Экшены, Приключенческие игры, Казуальные игры, ИндиЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F52D3B6B1CFC2174D02944D7887AFB1B40C62B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1700284   (117255) от 16.02.2024
+
+Елена Реунова, Марина Тушевская | Марафон «Предназначение, деньги и истинные желания. Раскрой свой потенциал» (2023) HDRip [RU]
+
+>>Обучающие видеоматериалы
+>>Психология и саморазвитие (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117255.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы соединили в этом марафоне все самые важные в жизни запросы.
+- Почему любимое дело не приносит мне хороший доход?
+- Я много работаю, но денег так и нет. Почему нет желаемой суммы?
+- Какие мои истинные желания?(   Читать дальше...   )Жанр: психология, саморазвитиеЯзык озвучки: РусскийПродолжительность: 13:19:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B61A8BCA96BF055C15EDA1D7DA1399631962E116
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700599   (117077) от 17.02.2024
 
 Gumroad, Eric Huang | 3D PBR Sci-Fi Corridor Tutorial For Game Production (2019) PCRec [EN]
@@ -6,7 +35,7 @@ Gumroad, Eric Huang | 3D PBR Sci-Fi Corridor Tutorial For Game Production (2019)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117077.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ Udemy, Elchin Jamalov | Windows Server 2016 (70-741) полный видеоку
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116988.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ Gromov-PLC, Дмитрий Громов | HMI Язык C++ в среде Qt Crea
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116984.jpg" />
 </div>
 
 
@@ -89,7 +118,7 @@ Mishkie, Артём Морозов | PowerPoint (2021) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116971.jpg" />
 </div>
 
 
@@ -115,7 +144,7 @@ Stepik, Глеб Михайлов | А/Б-тесты с Глебом Михай�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116964.jpg" />
 </div>
 
 
@@ -143,7 +172,7 @@ Udemy, GameDev.tv Team, Stephen Woods | Blender Material Nodes Master: Create Pr
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116963.jpg" />
 </div>
 
 
@@ -170,7 +199,7 @@ Udemy, GameDev.tv Team, Stephen Woods | Geometry Nodes in Blender 4: Create Comp
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116962.jpg" />
 </div>
 
 
@@ -198,7 +227,7 @@ Liveclasses, Павел Лебедев | PowerPoint: быстрый старт (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116939.jpg" />
 </div>
 
 
@@ -226,7 +255,7 @@ Udemy, Elchin Jamalov | Windows Server 2016 (70-742) полный видеоку
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116786.jpg" />
 </div>
 
 
@@ -255,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116469.jpg" />
 </div>
 
 
@@ -284,7 +313,7 @@ Jcenters | C разбега в синематик (2023) WEB-DL [AD] [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116466.jpg" />
 </div>
 
 
@@ -311,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116458.jpg" />
 </div>
 
 
@@ -340,7 +369,7 @@ CyberYozh Academy, LastByte, Евгений Ивченков | Анонимно�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116457.jpg" />
 </div>
 
 
@@ -369,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116311.jpg" />
 </div>
 
 
@@ -396,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116284.jpg" />
 </div>
 
 
@@ -425,7 +454,7 @@ Gustavo Pezzi | 3D Computer Graphics Programming (2023) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116264.jpg" />
 </div>
 
 
@@ -453,7 +482,7 @@ Cryptology School | Cryptology 9.0. Base. Advanced. Pro (2023) WEB-DL [AD] [RU]
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116099.jpg" />
 </div>
 
 
@@ -479,7 +508,7 @@ Cryptology School | Cryptology 10 (2023) WEB-DL [AD] [RU]
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115949.jpg" />
 </div>
 
 
@@ -505,7 +534,7 @@ Raffo VFX, Patreon | Уроки с сайта Patreon по VFX в Blender (2024)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115948.jpg" />
 </div>
 
 
@@ -532,7 +561,7 @@ Udemy, Maksim Skachko | Базовый курс по строительной м
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115772.jpg" />
 </div>
 
 
@@ -559,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115662.jpg" />
 </div>
 
 
@@ -588,7 +617,7 @@ Stepik, Дмитрий Фокеев | Веб дизайн в Figma - с нуля
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115647.jpg" />
 </div>
 
 
@@ -617,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115625.jpg" />
 </div>
 
 
@@ -646,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115612.jpg" />
 </div>
 
 
@@ -675,7 +704,7 @@ Udemy, Meritshot Academy | Statistics and Hypothesis Testing for Data science (2
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115586.jpg" />
 </div>
 
 
@@ -688,35 +717,6 @@ Udemy, Meritshot Academy | Statistics and Hypothesis Testing for Data science (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE471441B879E0404A96AD2FB79EBA6ADF29B94D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702740   (115452) от 27.02.2024
-
-Stepik, Сергей Балакирев | Добрый, добрый Django с Сергеем Балакиревым (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115452.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс позволит вам сделать первые шаги в изучении современного и популярного фреймворка Django для разработки серверной части сайта (бэкенда) на языке Python. Здесь вы шаг за шагом изучите основные компоненты фреймворка и создадите свой собственный полноценный и профессиональный сайт.
-
-Вы
-1. Познакомитесь с шаблонизатором фреймворка Django(   Читать дальше...   )Производство: StepikЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 16:23:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19A76F7EE52E192602A05B1779B6DD3EE94C934E
 ```
 
 https://mybot314.ru/tekegram_catalog/

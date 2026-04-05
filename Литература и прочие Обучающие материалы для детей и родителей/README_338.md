@@ -1,3 +1,59 @@
+###  Публикация: 1187138   (282366) от 27.11.2017
+
+Сюзанна Риха, Ева Рудофски | Сокровища Земли (2017) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282366.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вот девиз австрийской художницы Сюзанны Рихи - автора и иллюстратора научно-популярных книг для детей. Следуя этому девизу, она собрала коллекцию из двадцати сокровищ Земли и написала о них книгу. Речь в ней не о золоте или серебре, а о природных богатствах, без которых невозможно представить нашу жизнь. Это:
+•   Фрукты
+•   Овощи
+•   Травы и деревья(   Читать дальше...   )Жанр: Познвательная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38C999B4BFF29AE44DA962E569DB092A7A7C77E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964565   (282101) от 11.12.2015
+
+Антонина Трофимова | Секреты мастерства для юных шахматистов (2016) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282101.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга предназначена для тех, кто уже сделал первые шаги в шахматах и теперь хочет углубить и расширить свои знания, узнать новые шахматные секреты, повысить квалификацию. Рассчитана на юных шахматистов, но может представлять интерес и для взрослых.
+Учебник знакомит с основами дебюта и эндшпиля, элементами стратегии и тактики. Для лучшего восприятия учебного материала (   Читать дальше...   )Жанр: ШахматыФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E72DC930CA049EB2344FCE62CA34E9EB5926DC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 734675   (282066) от 15.12.2013
 
 Н. Шер | Башмачник-натуралист (1926) [DJVU]
@@ -6,7 +62,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282066.jpg" />
 </div>
 
 
@@ -32,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281769.jpg" />
 </div>
 
 
@@ -58,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281768.jpg" />
 </div>
 
 
@@ -84,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281760.jpg" />
 </div>
 
 
@@ -110,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281567.jpg" />
 </div>
 
 
@@ -138,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281161.jpg" />
 </div>
 
 
@@ -165,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280922.jpg" />
 </div>
 
 
@@ -192,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280919.jpg" />
 </div>
 
 
@@ -218,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280903.jpg" />
 </div>
 
 
@@ -244,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280794.jpg" />
 </div>
 
 
@@ -270,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280639.jpg" />
 </div>
 
 
@@ -297,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280627.jpg" />
 </div>
 
 
@@ -325,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280474.jpg" />
 </div>
 
 
@@ -351,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280419.jpg" />
 </div>
 
 
@@ -377,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280319.jpg" />
 </div>
 
 
@@ -403,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280292.jpg" />
 </div>
 
 
@@ -429,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280274.jpg" />
 </div>
 
 
@@ -456,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280170.jpg" />
 </div>
 
 
@@ -484,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280165.jpg" />
 </div>
 
 
@@ -512,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280159.jpg" />
 </div>
 
 
@@ -538,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280153.jpg" />
 </div>
 
 
@@ -564,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280148.jpg" />
 </div>
 
 
@@ -590,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280144.jpg" />
 </div>
 
 
@@ -616,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280143.jpg" />
 </div>
 
 
@@ -634,58 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D8C46D0D506BA09700A8D91D08661762C077EE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 735305   (280041) от 16.12.2013
-
-Кайсын Кулиев | Сказка о добром муравье (1979) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перевод с балкарского Я. Аким. Рис. Дувидова. Муравей и звери.Жанр: СказкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F97DE39C34FEC22910D014BA89B384149C8669C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 734659   (280040) от 16.12.2013
-
-Анна Аксёнова | Про девочку Ириску и про дом с красными полосками (1964) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280040.jpg" />
-</div>
-
-
-###  Подробнее
-
-Совсем недавно Ириска с родителями переехала в новый дом. Он большой, светлый, красивый, и двор около него тоже большой и светлый. Соседние дома похожи друг на друга, только одни покрашены в синюю, другие — в красную полоску. Ириске повезло: она живёт в доме с красными полосками.Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A1C7F56BF90CF510CF8A5CBF1EC708238997CA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

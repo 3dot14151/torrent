@@ -1,3 +1,218 @@
+###  Публикация: 1423196   (299072) от 13.11.2020
+
+Сервис Google Фото лишится бесплатного безлимита с лета 2021 года
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_299072.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сервисе Google Photos можно было бесплатно хранить весь семейный фотоальбом, если фотографии и видео проходили алгоритмы сжатия, которые не сильно сказывались на качестве. С 1 июня 2021 года этой возможности больше не будет — фото и видео будут отнимать место на диске Google One.Google дает бесплатно 15 ГБ памяти в облаке, для расширения объема придется оформить (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423463   (299053) от 13.11.2020
+
+Windows 7 SP1 х86-x64 by g0dl1ke 20.11.11 [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стабильная сборка на базе MSDN windows 7 х86-x64 с интегрированными обновлениями по ноябрь 2020 года и полезными твиками, по рекомендациям simplixЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEAEC2C2B84BC32EC842CC6DA1ECF714AAA8C37F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423503   (299051) от 13.11.2020
+
+SolveigMM Video Splitter 7.6.2011.05 Business Edition RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299051.jpg" />
+</div>
+
+
+###  Подробнее
+
+SolveigMM Video Splitter - редактор для MPEG-2, AVI, WMV, ASF, MP4, MKV, MOV, AVCHD, WEBM, FLV, MP3, WMA файлов. Основные функции программы - возможность быстро сохранить или вырезать произвольное количество медиафрагментов из видео / аудиофайла, а также объединение медиафайлов. Все операции выполняются с сохранением исходного качества и без потери видео и аудио (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2327824DDF6BD7355FDEC9985E2B85B355572BF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 845516   (299032) от 03.12.2014
+
+LittleBigPlanet 3 / Little Big Planet 3 [PS3] [EUR] [Ru] [Multi 12] [4.65] (2014)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сэкбой возвращается, да не один! На этот раз с ним его верные друзья – Тоггл, Оддсок и Свуп. Каждый из них обладает яркой индивидуальностью и, конечно, уникальными способностями.
+В Little Big Planet 3 Сэкбою и его товарищам предстоит отправиться на новую планету – настоящий рай для творчества, где сам воздух напоен креативными идеями. К сожалению, наш вязаный герой (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Sumo Digital , XDevЖанр: Arcade (Platform) / 3DЯзык озвучки: Русский/Multi 12Язык интерфейса: Русский/Multi 12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DE9CEC03078AB9299D3F364CB1D7DDAFBD3662D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 846693   (299009) от 03.12.2014
+
+В России представили YotaPhone 2
+
+>>3
+>>9
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_299009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Yota Devices представила второе поколение YotaPhone в России. Об этом компания объявила на мероприятии в Москве.Особенность нового гаджета — второй экран, выполненный по технологии E-Ink, которая позволяет сохранять изображение без затрат энергии. Устройство получило обновленный дизайн, более мощную начинку и сенсорный монитор на электронных чернилах.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 814454   (298979) от 03.12.2014
+
+Apple Final Cut Pro X 10.1.4, Motion 5.1.2 & Compressor 4.1.3 [Multi]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298979.jpg" />
+</div>
+
+
+###  Подробнее
+
+Final Cut Pro X включает основные функции аудиомонтажа и цветокоррекции из Final Cut Studio, так что теперь на всех этапах пост-продакшна можно использовать одно приложение.
+
+Motion. Анимация для Final Cut
+Создавайте великолепные титры, переходы, эффекты и многое другое в приложении Motion. Это отличное дополнение к Final Cut Pro. Новые смарт-шаблоны Motion позволяют (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 декабря 2014Разработчик: Apple Inc.Поддерживаемая ОС: OS X 10.9.2 +Язык интерфейса: Английский, Китайский,  Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AD72E20E45B1FBA3C8DD7D9EE8BDCB48D9C1612
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 258770   (298969) от 08.12.2010
+
+Сваты 4 (полная коллекция 16 серий) (2010) TVRip
+
+>>3
+>>20
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298969.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этот раз бабушки и дедушки отправятся в Крым. Но они туда поедут не столько отдыхать, сколько опекать свою любимую внучку Женечку, которую родители отправили в детский лагерь «Артек». Сваты так и не научились жить без внучки, но они и не научились жить друг с другом!Жанр: Лирическая комедияАктеры: Федор Добронравов, Татьяна Кравченко, Анатолий Васильев, Людмила Артемьева, София Стеценко, Даниил Белых, Инна Королёва, Руслана Писанка, Олеся Железняк, Александр ФеклистовПеревод: ОригинальныйПродолжительность: 00:52:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468465   (298841) от 06.12.2013
+
+Города и всё, что с ними связано
+
+>>3
+>>24
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_298841.jpg" />
+</div>
+
+
+###  Подробнее
+
+Города и всё, что с ними связаноДома как слова не написанной книги,
+Где каждая буква - хранилище тайны.
+Их время одело в забвенья вериги,(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1333432   (298467) от 27.10.2019
 
 В Минкомсвязи сочли изоляцию российского интернета "дорогим удовольствием"
@@ -6,7 +221,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_298467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_298467.jpg" />
 </div>
 
 
@@ -33,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_298442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_298442.jpg" />
 </div>
 
 
@@ -59,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_298433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_298433.jpg" />
 </div>
 
 
@@ -85,7 +300,7 @@ Microsoft® Windows® 10 Ent 1709 RS3 x86-x64 RU-en-de-uk by OVGorskiy® 11.2017
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298422.jpg" />
 </div>
 
 
@@ -111,7 +326,7 @@ Little Nightmares (2017) [Ru/Multi] (1.0.29.1/dlc) License GOG
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298421.jpg" />
 </div>
 
 
@@ -137,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298420.jpg" />
 </div>
 
 
@@ -163,7 +378,7 @@ Need for Speed The Run (2011) [Ru] (1.1.0.0/dlc) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298419.jpg" />
 </div>
 
 
@@ -189,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_298414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_298414.jpg" />
 </div>
 
 
@@ -217,7 +432,7 @@ A Way Out (2018) [Ru/Multi] (1.0) License CPY
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298335.jpg" />
 </div>
 
 
@@ -243,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_298334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_298334.jpg" />
 </div>
 
 
@@ -269,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_298323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_298323.jpg" />
 </div>
 
 
@@ -295,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298321.jpg" />
 </div>
 
 
@@ -323,7 +538,7 @@ Adobe Photoshop Lightroom Classic CC 2019 8.0.0 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298317.jpg" />
 </div>
 
 
@@ -349,7 +564,7 @@ Assassin's Creed Odyssey / Assassin’s Creed: Одиссея (2018) [Ru/Multi] 
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298315.jpg" />
 </div>
 
 
@@ -375,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298314.jpg" />
 </div>
 
 
@@ -401,7 +616,7 @@ Acronis True Image 2016 19.0.6027 BootCD [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298260.jpg" />
 </div>
 
 
@@ -427,7 +642,7 @@ Advanced SystemCare Pro 9.0.3.1078 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298252.jpg" />
 </div>
 
 
@@ -453,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_298249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_298249.jpg" />
 </div>
 
 
@@ -461,214 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 
 Разработчики процессоров «Эльбрус» и техники на их основе — компания МЦСТ и ИНЭУМ (входит в «Ростех») — создали прототип первого легкого и компактного пользовательского планшета на отечественных чипах. В производство он должен пойти в 2020 г.Компактный планшет на «Эльбрус-1С+»
 Институт электронных управляющих машин им. И. С. Брука (ИНЭУМ), который входит в состав (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333932   (298246) от 27.10.2019
-
-Три двигателя РД-180 приняты заказчиком
-
->>3
->>10
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_298246.jpg" />
-</div>
-
-
-###  Подробнее
-
-В НПО Энергомаш (входит в состав Госкорпорации «Роскосмос») успешно завершила работу комиссия по приемке очередной партии жидкостных ракетных двигателей РД-180, изготовленных на предприятии.Представителями компаний Pratt&Whitney, United Launch Alliance, РД АМРОСС подписаны формуляры на три товарных двигателя.На протяжении двух недель представители вышеперечисленных (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961507   (298245) от 02.12.2015
-
-Adobe Premiere Pro CC 2015.1 9.1.0 (174) [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Premiere Pro CC 2015 - профессиональная программа для нелинейного видеомонтажа. Приложение обеспечивает высококачественное редактирование видео разрешения 4K x 4K и выше, с 32-битовым цветом, как в RGB, так и YUV цветовом пространстве. Редактирование аудиосемплов, поддержка VST аудиоплагинов (plug-in) и звуковых дорожек 5.1 surround. Архитектура Premiere Pro (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4B8DAB3E32C3BCAD178EB098B94EABBC10D80A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961744   (298240) от 02.12.2015
-
-Acronis True Image 2016 19.0.6027 + Universal Restore + Media Add-ons [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298240.jpg" />
-</div>
-
-
-###  Подробнее
-
-Acronis True Image — это интегрированный пакет программ, обеспечивающий безопасность всей информации на вашем компьютере. True Image предоставляет возможность создавать резервные копии операционной системы, приложений, пользовательских настроек и всех имеющихся данных, а также надежно уничтожать всю конфиденциальную информацию, ставшую ненужной. C помощью этого программного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28A61CB3F68B196A3AF298BE7D1DF59600B3AB6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957721   (298234) от 02.12.2015
-
-Assassin's Creed: Syndicate / Assassin's Creed: Синдикат (2015) [Ru/Multi] (1.21/upd2) Repack xatab [Gold Edition]
-
->>3
->>13
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лондон, 1868 год. Индустриальная революция, эпоха невероятных изобретений. Немыслимые ранее технологии меняют жизнь миллионов. Люди устремляются в Лондон, вдохновленные новыми возможностями, жаждущие стать частью нового мира, над которым будут не властны короли, императоры, политики и священники, мира, где деньги сравняют всех. Однако, не все считают такой мир благом. (   Читать дальше...   )Тип издания: RePackРазработчик: Ubisoft EntertainmentЖанр: Action / 3D / 3rd Person / StealthЯзык озвучки: Русский, АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E64B1DE8CD0A31D418E792A635AAF2079DC13F4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961430   (298232) от 02.12.2015
-
-Решала 2 (2015) WEBRip
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298232.jpg" />
-</div>
-
-
-###  Подробнее
-
-После событий, произошедших в первой части, прошло 4 года. Обстановка в городе напряженная, за сферы влияний борются два криминальных авторитета — Витя Черный и Добрый. В это время из тюрьмы выходит Завгар, и Витя Черный надеется на его поддержку. Но Завгар горит желанием отомстить Каше, ведь по его наводке он отправился за решетку. Каша уехал в другой город, он (   Читать дальше...   )Производство: Россия, Байкалкино, ГринбоксЖанр: Драма, КриминалРежиссер: Роман АсхаевАктеры: Александр Фролов, Моисей Куртанидзе, Константин Озеров, Чингиз Аздаев, Арина Есина, Руслан Балакшиев, Алина НамсараеваПеревод: Не требуется (русский)Продолжительность: 01:22:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01A0A1BBEF34CF9DBEFD4530F785A4D638C70C3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961514   (298230) от 02.12.2015
-
-Agnitum Outpost Firewall Pro 9.3.4934.708.2079 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>17
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Agnitum Outpost Firewall - персональный брандмауэр, защищающий пользователей путем фильтрации входящего и исходящего сетевого трафика, контроля текущих соединений, выявления подозрительных действий. Чтобы полностью обезопасить вас от этих новых угроз, эффективное средство безопасности должно использовать многоуровневый подход, обеспечивая проактивную, основанную (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F42C12A4CFAA341CC608D82EDFD9370584FD77B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333933   (298224) от 27.10.2019
-
-Windows 10 Enterprise v1909.449 x64 by molchel [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298224.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка одноязычная - русская, редакции Enterprise х64, без метро-приложений, созданная на основе оригинального корпоративного MSDN образа ru_windows_10_business_editions_version_1909_x64_dvd_675b5388 с максимально вырезанной телеметрией. Вся работа со сборкой производилась с помощью DISM и оригинальных файлов и компонентов от Microsoft. Возможна установка любого (   Читать дальше...   )Язык интерфейса: русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2CAC3CC43E733C3B4DFE7587F19693E2AF9E1A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 159190   (297952) от 17.12.2009
-
-Демонстрационные диски DTS 5.1 CD-Extra
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжительность: Диск #1 - 01:13:44 | Диск #2 - 01:15:57
 
 ## Скачать торент
 ```bash

@@ -1,3 +1,140 @@
+###  Публикация: 59029   (486019) от 27.07.2022
+
+Капитан Пронин (1992-1994) TVRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультипликационный фильм-пародия на современные западные и отечественные боевики.Производство: РоссияЖанр: Рисованная анимация, Приключения, БоевикРежиссер: Михаил ЗайцевАктеры: Игорь Верник, Всеволод Абдулов, Александр Пожаров и др.Субтитры: ОтсутствуютПродолжительность: 00:07:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E26FCA32B555739C6DDE8A17CDD58CC0BCBFECE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138523   (485563) от 19.08.2017
+
+Римба Гонщик / Rimba Racer (2015) WEBRip [H.264] (Сезон 1, Серии: 01-13 из 13) [EN / RU Sub]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485563.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о молодом, подающем надежды гонщике Тэге, которого пригласили на Римба Гран-при, самое крупное спортивное мероприятие. Однако вскоре он понимает, что гонки это далеко не главное о чём столо бы волноваться.
+Его ожидают друзья и враги, победы и поражения, радость.
+
+Rimba Racer - крупнейший анимационный фурри сериал производства Малайзии.(   Читать дальше...   )Производство: МалайзияЖанр: Компьютерная анимация, Комедия, Приключения, ДетскийРежиссер: Мохд. Азизул Хаким М. ХусиньПерсонажи: Тэг, Майлз, Аксель, Сонни, Милоу, Мейка, Тамира, Кром, Мистер Кинг, Врекс, Кукку, Ууа, Бекс, Бикс, Торрес, Мисс ДираПеревод: СубтитрыЯзык субтитров: РусскийПродолжительность: серия по ~ 00:22:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8282942433CADE1F1F916AF01E0D956D10C7E8AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 319428   (485402) от 19.08.2017
+
+Шайбу! Шайбу!(1964) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хоккейный матч между зазанавшимися «мастерами» и дружной командой новичков завершается, конечно, победой скромных и самоотверженных маленьких хоккеистов.Производство: СССРЖанр: Рисованая анимацияРежиссер: Борис ДежкинПерсонажи: Команда красных, Команда синихПродолжительность: 00:20:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8F1CAA1E78829B63B93B8868701A2F81967134D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 545334   (485093) от 10.09.2012
+
+Гостинец от крестной (2005) DVDRip [H.264]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485093.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам повести А.Погорельского "Лафертовская маковница". У маленькой бесприданницы есть крестная - волшебница,
+которая очень любит девочку. Однако отец, считая родственницу ведьмой, запрещает им общаться.
+Когда девочка подрастает, ее мать решает нарушить запрет мужа. В надежде что таинственная тетя обладает богатством,
+она отправляет девочку навестить (   Читать дальше...   )Жанр: Кукольный, короткометражка, семейныйРежиссер: Екатерина МихайловаПродолжительность: 00:15:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9181F066F23B0B02A198090B7A2174E80837EF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 545353   (485085) от 10.09.2012
+
+Желтухин (2003) DVDRip [H.264]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485085.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам одноименного рассказа А. Толстого.
+ Когда Никита был маленьким, он нашел в саду выпавшего из гнезда скворца - совсем маленького. Птенец очень боялся, что мальчик его слопает. Скворчонка прозвали "Желтухин". Он даже кушать боялся, так как считал что его откармливают специально. Однако после того как Никита спас птенца от кота, Желтухин стал по (   Читать дальше...   )Жанр: Кукольный, короткометражкаРежиссер: Мария МуатПродолжительность: 00:13:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FED4070D0225397748BAAEBF6110D89EF1ADB2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 700271   (484928) от 14.09.2013
 
 Мах и Шебестова на каникулах / Mach a Sebestova na prazdninach (1998) DVD5
@@ -6,7 +143,7 @@
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484928.jpg" />
 </div>
 
 
@@ -33,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484868.jpg" />
 </div>
 
 
@@ -59,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484767.jpg" />
 </div>
 
 
@@ -85,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484492.jpg" />
 </div>
 
 
@@ -111,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484440.jpg" />
 </div>
 
 
@@ -137,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484407.jpg" />
 </div>
 
 
@@ -166,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484401.jpg" />
 </div>
 
 
@@ -192,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484369.jpg" />
 </div>
 
 
@@ -220,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484348.jpg" />
 </div>
 
 
@@ -246,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483962.jpg" />
 </div>
 
 
@@ -272,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483958.jpg" />
 </div>
 
 
@@ -298,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483723.jpg" />
 </div>
 
 
@@ -324,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483713.jpg" />
 </div>
 
 
@@ -352,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483675.jpg" />
 </div>
 
 
@@ -378,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483563.jpg" />
 </div>
 
 
@@ -404,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483539.jpg" />
 </div>
 
 
@@ -431,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483487.jpg" />
 </div>
 
 
@@ -457,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483028.jpg" />
 </div>
 
 
@@ -483,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482979.jpg" />
 </div>
 
 
@@ -509,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482957.jpg" />
 </div>
 
 
@@ -535,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482859.jpg" />
 </div>
 
 
@@ -546,136 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03F21B3D9AE82E67925962EF43AD78F84A99B86E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545877   (482512) от 11.09.2012
-
-Жил-был черный кот / Жив собі чорний кіт (2006) DVDRip [UKR]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482512.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультипликационный фильм для детей о том, как живется черном коту. Про бедного черного кота, с которым случаются неприятности.Жанр: Рисованная анимацияРежиссер: Юрий МарченкоПеревод: ОтсутствуетПродолжительность: 00:05:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDB6651C09E48C9768DCE57AB3E23191F71D1DA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545881   (482418) от 11.09.2012
-
-Маленький Мук (1938) DVDRip [H.264]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482418.jpg" />
-</div>
-
-
-###  Подробнее
-
-По сказке Гауфа.Жанр: мультфильм, короткометражкаРежиссер: Ольга ХодатаеваПродолжительность: 00:12:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E9A551BFC658610698A0D5E670F7DBCF9234373
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545378   (482414) от 11.09.2012
-
-Симпсоны / The Simpsons (2000) DVDRip (Сезон 12, серии 01-21 из 21)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482414.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультфильм - пародия на американский уклад жизни. Cемейство Симпсонов состоит из пяти членов: папаша Гомер, мать семейства Мардж, их дочери Лиза и Мэгги и несносный подросток Барт.Жанр: КомедияРежиссер: Марк Керклэнд, Джефф Линч, Сьюзи ДиттерАктеры: Дэн Кастелланета, Джули Кавнер, Нэнси Картрайт, Ярдли Смит, Гарри Ширер, Хэнк Азария, Памела Хейден, Тресс МакНилл, Карл Видерготт, Мэгги РосвэллПеревод: Многоголосый закадровый (Ren TV)Продолжительность: 21 серия по ~00:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71154478FA58474C0ECEAE67250579C155A7A949
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 384630   (482386) от 06.09.2011
-
-Детективный дуэт. Иван и Митрофан (1994-2004) SATRip (13 серий из 13)
-
->>Мультфильмы
->>Отечественные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482386.jpg" />
-</div>
-
-
-###  Подробнее
-
-В полку экранных сыщиков прирост. Расследованием киношных злодеяний займутся Иван и Митрофан - герои анимационного сериала Детективный дуэт. Роли в этом дуэте распределились весьма необычно. Шерлоком Холмсом, то есть главным сыщиком, является кот Митрофан, а человечку Ивану досталась лишь роль помощника - доктора Ватсона. Но это не мешает друзьям с блеском распутывать самые запутанные преступленияЖанр: Рисованая анимация, Детский, КомедияРежиссер: Сергей Айнутдинов, Александр Давыдов, Дмитрий Куприянов, Наталья Мальгина, Алексей Туркус, Алексей Шелманов, Инна Евланникова, Кирилл ПоликарповПерсонажи: Леонид Куравлев, Виктор Павлов, Михаил Ульянов, Владимир Самойлов, Наталья Крачковская, Татьяна Васильева, Наталья Селезнева, Евгений Стеблов, Роман Богомольный, Эдуард Радзюкевич, Авангард ЛеонтьевПродолжительность: 13 х ~ 00:15:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3ACF74F525EA9D59050D4D9CB9D99FDFB7BEEFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545867   (482327) от 11.09.2012
-
-Приключения маленького паровозика / The Little Engine That Could (2010) [H.264] DVDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482327.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая экранизация известной американской сказки о маленьком паровозике, который должен преодолеть множество трудностей и вывезти из страны снов в реальный мир настоящего мальчика.Жанр: мультфильм, семейныйРежиссер: Эллиот М. БурПеревод: Одноголосый закадровый, любительскийОзвучка / Автор перевода: -Доцент-Продолжительность: 01:21:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EED56298A7C66C66CCF7CA91916CA158326B1837
 ```
 
 https://mybot314.ru/tekegram_catalog/

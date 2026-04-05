@@ -1,3 +1,57 @@
+###  Публикация: 1045370   (558970) от 23.08.2016
+
+No Man's Sky (2016) [Ru/Multi] (1.0/upd3/dlc) SteamRip Let'sPlay
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558970.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классическая научная фантастика, ее многообразие и неповторимый дух приключений, оживают в творении студии Hello Games. No Man’s Sky – игра, отличающаяся невероятным размахом и амбициями. Вам предстоит исследовать бесконечную вселенную, открывать бесчисленные уникальные планеты и знакомиться с невиданными прежде формами жизни.Тип издания: SteamRipРазработчик: Hello GamesЖанр: Action, 3D, 1st Person, 3rd PersonЯзык озвучки: Русский, Английский, Немецкий и другиеЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F563432904DD7CC0C21CCC118DDDBDF8AFBEB78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 793464   (558912) от 20.08.2014
+
+King's Bounty: Dark Side / King's Bounty: Темная Сторона (2014) [Ru/Multi] (1.5.1047.1747/dlc) SteamRip R.G. Игроманы [Premium Edition]
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558912.jpg" />
+</div>
+
+
+###  Подробнее
+
+В продолжении приключенческой саги King’s Bounty вы познаете темную сторону мира Теана и совершите путешествие по невиданным землям, на которых кипит кровопролитье.
+
+Впервые в истории знаменитой серии вы получаете возможность выбрать расу главного персонажа. Знакомьтесь с новыми героями King’s Bounty! Бесстрашный орочий воин Багыр больше других знает о том, как важна (   Читать дальше...   )Тип издания: Цифровая лицензия (Steam-Rip)Разработчик: 1C-SoftClubЖанр: Strategy/RPGЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, ПольскийЯзык интерфейса: Русский, Английский, Польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:146FBA233B1438B6FD3F9B332B72A3CC6A5E2826
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 530980   (558494) от 04.08.2012
 
 Angry Birds [En] (L/2.2.0) 2011
@@ -6,7 +60,7 @@ Angry Birds [En] (L/2.2.0) 2011
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558494.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Binary Domain [Ru/En] (RePack/1.0.0.1) 2012 l R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558492.jpg" />
 </div>
 
 
@@ -62,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_558484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_558484.jpg" />
 </div>
 
 
@@ -94,7 +148,7 @@ Death Rally [En] (P/1.00.20.023) 2012 l THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558399.jpg" />
 </div>
 
 
@@ -120,7 +174,7 @@ Splinter Cell: Blacklist (2013) [Multi] (Update 1.01) License
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557908.jpg" />
 </div>
 
 
@@ -147,7 +201,7 @@ Thief Simulator (2018) [Ru/Multi] (1.08b) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557754.jpg" />
 </div>
 
 
@@ -173,7 +227,7 @@ Battle Brothers (2017) [Ru] (1.3.0.18/dlc) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557746.jpg" />
 </div>
 
 
@@ -199,7 +253,7 @@ House Flipper (2018) [Ru/Multi] (1.17/dlc) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557745.jpg" />
 </div>
 
 
@@ -225,7 +279,7 @@ The Long Dark (2017) [Ru/Multi] (1.52.48486) Repack xatab [Episode 1-2]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557740.jpg" />
 </div>
 
 
@@ -251,7 +305,7 @@ No Man's Sky (2016) [Ru/Multi] (1.0/upd3/dlc) Repack YelloSOFT
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557424.jpg" />
 </div>
 
 
@@ -277,7 +331,7 @@ Layers of Fear 2 (2019) [Ru/Multi] (1.0) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556810.jpg" />
 </div>
 
 
@@ -303,7 +357,7 @@ Assetto Corsa Competizione (2019) [Ru/Multi] (1.0) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556757.jpg" />
 </div>
 
 
@@ -329,7 +383,7 @@ SpellForce 3: Soul Harvest (2019) [Ru/Multi] (1.0) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556340.jpg" />
 </div>
 
 
@@ -355,7 +409,7 @@ Jump Force (2019) [Ru/Multi] (1.07) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555714.jpg" />
 </div>
 
 
@@ -381,7 +435,7 @@ Obduction (2016) [Ru/Multi] (1.0) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553393.jpg" />
 </div>
 
 
@@ -407,7 +461,7 @@ The Banner Saga 2 (2016) [Ru/Multi] (2.32.38) Repack R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553383.jpg" />
 </div>
 
 
@@ -433,7 +487,7 @@ Offworld Trading Company (2016) [Ru/Multi] (1.8.13592/dlc) License HI2U
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553375.jpg" />
 </div>
 
 
@@ -459,7 +513,7 @@ Neverwinter: Storm Kings Thunder (2016) [Ru] (NW.65.20160801c.9) License
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552655.jpg" />
 </div>
 
 
@@ -485,7 +539,7 @@ The Banner Saga 2 (2016) [Ru/Multi] (2.32.59) License GOG [Deluxe Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552570.jpg" />
 </div>
 
 
@@ -511,7 +565,7 @@ Pro Evolution Soccer 2017 Demo (2016) [PS3] [EUR] 4.21 [Repack] [Ru/En]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551666.jpg" />
 </div>
 
 
@@ -537,7 +591,7 @@ Dungeons 2 (2016) [Ru/Multi] (1.6.1/dlc) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551636.jpg" />
 </div>
 
 
@@ -563,7 +617,7 @@ The Bureau: XCOM Declassified (2013) [Ru/En] (1.0/DLC) RePack R.G. Revenants
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_550889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550889.jpg" />
 </div>
 
 
@@ -589,7 +643,7 @@ King's Bounty Anthology / Антология King's Bounty (2008-2012) [Ru] Repa
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549943.jpg" />
 </div>
 
 
@@ -615,7 +669,7 @@ Factorio (2016) [Ru/Multi] (0.14.1-Experimental Build) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549798.jpg" />
 </div>
 
 
@@ -626,58 +680,6 @@ Factorio, стратегия, в которой вам предстоит пос
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D072F6585D2AB440C40B1A65CFA6DCF340AF2CF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991354   (549778) от 29.08.2016
-
-Underrail (2015) [En] (1.0.1.10) License GOG
-
->>След.
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549778.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы переступаете с ноги на ногу, кутаясь в дырявое пальто, которое почти не защищает от влажного, холодного воздуха подземных тоннелей. До вас доносятся голоса мародеров, которые роются в вещах какого-то бездомного, и встречаться с ними вам очень не хочется, но девчушке нужно лекарство. Почти всей нашей расе пришел конец, но вы пока еще живы, а значит, борьба продолжается.Тип издания: LicenseРазработчик: Stygian SoftwareЖанр: Tactical, Turn-based, RPG (Rogue, Action), IsometricЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11DB8B85DB68921FDC4B5FE68A4E0DC6B65A8F20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304957   (549179) от 21.06.2019
-
-S.W.I.N.E. HD Remaster (2019) [Ru/Multi] (1.4.1731) Repack Other s
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549179.jpg" />
-</div>
-
-
-###  Подробнее
-
-S.W.I.N.E. HD Remaster — новое издание классической S.W.I.N.E.! Оригинальная игра о грязной войне кроликов и свиней вышла 18 лет назад, а сейчас продуманная стратегия в реальном времени готова поразить старых и новых поклонников обновленными текстурами, поддержкой современных разрешений, детализированными моделями, интерфейсом, адаптированным под формат 16:9, и улучшенным (   Читать дальше...   )Тип издания: RepackРазработчик: Kite GamesЖанр: Strategy (Real-time), 3DЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A9CB09A13B4BB49E33003A3A589FDC40C190B5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

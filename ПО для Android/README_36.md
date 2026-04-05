@@ -1,3 +1,107 @@
+###  Публикация: 1367608   (914962) от 16.03.2020
+
+Car Scanner ELM OBD2 v1.50.5 [Ru/En]
+
+>>След.
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Car Scanner - это отличный помощник для любого водителя. С помощью этого приложения вы всегда сможете сделать диагностику своего свой автомобиля.Тип издания: Mod (Отвязан от сервисов Google Play)Релиз состоялся: 16.03.2020Разработчик: 0vZПоддерживаемая ОС: Android 4.3+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF3A059414E8052A21650AE3E20753BC835D660C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367858   (913827) от 17.03.2020
+
+Piano Companion PRO: аккорды v1.8.3.2 + v6.29.315 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913827.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piano Companion PRO: аккорды / Piano Chords, Scales, Progression Companion PRO - Играете на пианино но никак не можете управиться с изучением аккордов или разбором какой то мелодии? Тогда это приложение было создано специально для вас! С его помощью вы сможете не только научится находить аккорды, гаммы и ноты но и создавать из них настоящую музыку. Объединив всё (   Читать дальше...   )Тип издания: Premium+Релиз состоялся: 16.03.2019Разработчик: SongtiveПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C68D4171A6E2FDD8E8C843CF1EA15F947E87795C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932789   (913330) от 17.03.2020
+
+Ремонт велосипеда v1.0 Ad-Free [Ru] - инструкции по ремонту велосипеда
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913330.jpg" />
+</div>
+
+
+###  Подробнее
+
+В приложении содержатся инструкции по ремонту велосипеда:Тип издания: Ad-Free с Маркета (без рекламы)Релиз состоялся: 14.09.2019Разработчик: milviknikПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E34C3A8094C50A7386059E6CAD12AA65F53FE9C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367599   (911809) от 18.03.2020
+
+Запись Звонков v6.04 [Ru/En]
+
+>>След.
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911809.jpg" />
+</div>
+
+
+###  Подробнее
+
+Записывайте любые вызовы и сохраняйте важные. Вы можете выбрать, какие вызовы записывать, а какие нет. Прослушивайте записи, добавляйте примечания и делитесь ими с друзьями. Интеграция с Google Drive™ и Dropbox позволяет сохранять вызовы и синхронизировать их в облаке.Тип издания: PremiumРелиз состоялся: 22.01.2020Разработчик: AppliqatoПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D792D32497328C842A1375D23C5605D483019F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1351341   (911785) от 18.03.2020
 
 EUT VPN - Easy Unlimited Tunnelling v1.3.12 [Ru/En]
@@ -6,7 +110,7 @@ EUT VPN - Easy Unlimited Tunnelling v1.3.12 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911785.jpg" />
 </div>
 
 
@@ -35,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911780.jpg" />
 </div>
 
 
@@ -61,7 +165,7 @@ YoWindow Weather 2.16.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910518.jpg" />
 </div>
 
 
@@ -87,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909428.jpg" />
 </div>
 
 
@@ -116,7 +220,7 @@ Kitchen Book / Кухонная книга v26.0.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908856.jpg" />
 </div>
 
 
@@ -142,7 +246,7 @@ SD Card Test Pro 1.8.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906809.jpg" />
 </div>
 
 
@@ -168,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905740.jpg" />
 </div>
 
 
@@ -195,7 +299,7 @@ Deezer 6.1.22.49 MOD [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904664.jpg" />
 </div>
 
 
@@ -221,7 +325,7 @@ VivaCut v2.5.4 [Ru/Multi] - видеоредактор (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903640.jpg" />
 </div>
 
 
@@ -247,7 +351,7 @@ Edge Screen S10 1.6.4.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903581.jpg" />
 </div>
 
 
@@ -273,7 +377,7 @@ Group Ringtone 1.0.9 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903429.jpg" />
 </div>
 
 
@@ -299,7 +403,7 @@ Easy Currency Converter Pro 3.5.9 [Rus/Multi] - Курс и конвертер �
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902939.jpg" />
 </div>
 
 
@@ -325,7 +429,7 @@ XEFX v2.4.9 [Ru/Multi] - оживить фото и Живые обои и Фо�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902070.jpg" />
 </div>
 
 
@@ -351,7 +455,7 @@ Blackmart 2020.1.7 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898001.jpg" />
 </div>
 
 
@@ -377,7 +481,7 @@ Ancleaner Pro, Android cleaner 3.30 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897167.jpg" />
 </div>
 
 
@@ -403,7 +507,7 @@ CountThings from Photos v3.23.1 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897099.jpg" />
 </div>
 
 
@@ -431,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897054.jpg" />
 </div>
 
 
@@ -459,7 +563,7 @@ PortraitPro v15.0 [En] - редактор портретных фотограф�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893117.jpg" />
 </div>
 
 
@@ -485,7 +589,7 @@ Equalizer FX Pro 1.3.2 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891663.jpg" />
 </div>
 
 
@@ -511,7 +615,7 @@ TextGrabber Офлайн Распознавание Текста + Перево�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_887245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_887245.jpg" />
 </div>
 
 
@@ -538,7 +642,7 @@ ESET Mobile Security & Antivirus v6.3.66.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887043.jpg" />
 </div>
 
 
@@ -566,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884104.jpg" />
 </div>
 
 
@@ -577,112 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE1AA75172C7814F551BB4ED03402D09EF944310
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468415   (883766) от 10.09.2021
-
-Adblocker Browser v80.0.2016123424 [Ru/Multi] - Adblock & блокировка рекламы
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883766.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот Android браузер с adblock позволит вам просматривать веб-страницы без рекламы и видеть только ту информацию, которая действительно имеет для вас значение. Бесплатный браузер с адблоком блокирует рекламу, баннера, видеорекламу и поп-апы (всплывающие окна). Он предотвращает отслеживание рекламодателями вашей активности и экономит заряд батареи, а также трафик (   Читать дальше...   )Тип издания: Пиратка (открыт Premium)Релиз состоялся: 4 сентября 2021 г.Разработчик: Adblock - Rocketshield Browser Technology LimitedПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43BC777820FCAE3E178A77A907665F881D7563CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077562   (883577) от 10.09.2021
-
-Учить английский язык с Lingualeo v3.3.27 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883577.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lingualeo — это удобный и эффективный сервис для изучения иностранных языков. Это лингвистический суперапп, который включает в себя множество инструментов и методик обучения.
-Сейчас в приложении можно изучать: английский, китайский, хинди, испанский, португальский, русский, японский, немецкий, корейский, французский, вьетнамский, итальянский, турецкий, украинский, (   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 6 сентября 2021 г.Разработчик: Lingualeo LLCПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83CBCB73C8FDE271E89EC7CDC0BB94D05642F190
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357938   (883257) от 04.04.2020
-
-4K Wallpapers - HD & QHD Backgrounds 7.0.145 (Pro) [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883257.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда HDW с гордостью представляет вам «Мастер обоев», самое удивительное приложение, когда-либо созданное для обоев HD, QHD и 4K, с продвинутым автоматическим переключением обоев.
-Все обои подобраны профессиональными дизайнерами и фотографами, чтобы каждый фон выглядел красиво.Тип издания: ПираткаРелиз состоялся: 04.04.2020Разработчик: HDWПоддерживаемая ОС: Android. 5.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D753A59055EBCB406840D0FBBD07B2528D62E79A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995932   (882102) от 12.03.2016
-
-Шашлык Мастер Pro v1.1 [Ru]
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882102.jpg" />
-</div>
-
-
-###  Подробнее
-
-В первую очередь эта программа была создана для оказания помощи в процессе приготовления шашлыка, а именно она призвана напоминать Вам о необходимости перевернуть мясо каждую минуту - как раз так, как рекомендуют делать профессионалы. Это позволит не пережарить мясо, не дать ему сгореть, а также сделает его сочным и раскроет всю полноту вкуса выбранного Вами рецепта. (   Читать дальше...   )Тип издания: Pro с МаркетаРелиз состоялся: 28.04.2015Разработчик: 074yaraПоддерживаемая ОС: Android 2.3+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:896996B26A0D7AD6A4C35C6FE2BB004E4C329FBA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ National Geographic. Подземный мир майя: настоящий ко
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133691.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132584.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132485.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BBC: Горькое озеро / Bitter Lake (2015) WEB-DLRip [H.265/1080p-LQ] [
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132268.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ BBC. Подделка или удача / Fake or Fortune? (2012) HDTVRip (се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131829.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ BBC. Подделка или удача / Fake or Fortune? (2014) HDTVRip (се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131824.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ BBC. Подделка или удача / Fake or Fortune? (2015) HDTVRip (се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131823.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ BBC. Подделка или удача / Fake or Fortune? (2016) HDTVRip (се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131790.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ BBC. Horizon: Вся правда об упражнениях / The Truth About 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131250.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ NG. Непокорный остров / Port Protection (Lawless Island) (2023) 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130984.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130944.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ BBC. Эдем: Неукротимая Планета / Eden: Untamed Planet (202
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130216.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ BBC. Вселенная / Universe (2021) BDRemux [H.264/1080i] (серии 1-5 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130197.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130174.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ BBC. Аттенборо и Кладбище Мамонтов / Attenborough and 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130162.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ BBC. Вымирание: Факты / Extinction: The Facts (2020) WEB-DL [H.264
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130160.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ BBC. Силы Природы с Брайаном Коксом / Forces of Nature
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130153.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ BBC. Супер Белки / Super Squirrels (2018) WEB-DL [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129853.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ BBC. Прирождённые бунтари / Natural Born Rebels (2018) WEB-DL
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129843.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126985.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126945.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126937.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126164.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ NG. Последняя тайна Клеопатры / Cleopatra's Final Secret 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125913.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ NG. Магия сокровищ Диснея / Magic of the Disney Treasure (202
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125772.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125239.jpg" />
 </div>
 
 

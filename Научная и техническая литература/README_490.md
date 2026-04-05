@@ -1,133 +1,3 @@
-###  Публикация: 1192645   (262802) от 18.12.2017
-
-И.М. Ткачов | Американский фашизм в педагогике (1933) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемая читателей статья является небольшой частью исследования о фашизации американской педагогики. Кильпатрик, один из современных педагогов САСШ, безусловно, даровитый, пользующийся авторитетом и за пределами САСШ, обращает наше исключительное внимание. Кильпатрик - один из тех зарубежных педагогов, система педагогических взглядов которых особенно сильно (   Читать дальше...   )Жанр: История, политология, искусство, педагогикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8E202ED8670BC3DD6C6D3C06C9B8CAEC10494AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192663   (262799) от 18.12.2017
-
-Н.Г. Чичерина | Международные концерны: социальная политика, пропаганда (1985) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена анализу социальных и идеологических последствий развития международного бизнеса. Внимание автора концентрируется на различных формах интернационализации капиталистического производства и вызываемых ею социально-психологических изменениях, сдвигах в социальной структуре "инкорпорированных" групп и системах ценностных ориентаций. Автор анализирует (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85C0DCE5F997F645B5D297DAE596FA656E7CA265
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192863   (262751) от 18.12.2017
-
-А.Г. Дугин | Ноомахия. Войны ума. Желтый Дракон. Цивилизации Дальнего Востока. Китай. Корея. Япония. Индокитай (2017) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередной том Александра Дугина из серии «Ноомахия: войны ума» посвящен цивилизациям Дальнего Востока (Китаю, Корее, Японии, Индокитаю), в основании которых лежит синтез различных Логосов, переплетенных друг с другом в сложной и драматической диалектике. Если Китайская цивилизация в целом представляет собой зону сбалансированного Логоса Диониса, а динамичная диада (   Читать дальше...   )Жанр: ФилософияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FCA410A722211899F126EE9CBE9205673CC21C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192433   (262739) от 18.12.2017
-
-Л.В. Щерба | Как надо изучать иностранные языки (1929) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262739.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все, что будет здесь говориться, относится исключительно к изучению иностранных языков взрослыми. Конечно, частично очень многое будет справедливо и для школы. Однако в школе иностранные языки имеют не только практическое значение, но и общеобразовательное, благодаря этому все школьное преподавание иностранных языков должно строиться на иных основаниях.Жанр: История, искусство, лингвистика, филология, языкознаниеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BB919C904BD323AE94E8DFDFB19A2FFF6906D90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192441   (262720) от 18.12.2017
-
-В.Д. Ардзинов | Ценообразование и составление смет в строительстве (2006) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262720.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге изложены основы ценообразования, методы и примеры составления смет в Российской Федерации. Наглядно показаны элементы нормативно-методической базы определения сметной стоимости строительной продукции. Приведены правила определения объемов строительных работ. Изложены основы организации подрядных торгов в строительстве. Даны примеры составления смет от общестроительных (   Читать дальше...   )Жанр: Строительство, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83D6A5A768A2BABFDEABD9A0A57E24ABF8017AD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1192604   (262705) от 18.12.2017
 
 Эдвард Уилсон | Будущее Земли. Наша планета в борьбе за жизнь (2017) [FB2]
@@ -136,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262705.jpg" />
 </div>
 
 
@@ -162,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262571.jpg" />
 </div>
 
 
@@ -190,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262566.jpg" />
 </div>
 
 
@@ -216,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262468.jpg" />
 </div>
 
 
@@ -242,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262447.jpg" />
 </div>
 
 
@@ -268,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262395.jpg" />
 </div>
 
 
@@ -294,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262393.jpg" />
 </div>
 
 
@@ -321,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262299.jpg" />
 </div>
 
 
@@ -347,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262289.jpg" />
 </div>
 
 
@@ -373,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262268.jpg" />
 </div>
 
 
@@ -401,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262245.jpg" />
 </div>
 
 
@@ -429,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262231.jpg" />
 </div>
 
 
@@ -455,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262219.jpg" />
 </div>
 
 
@@ -481,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262216.jpg" />
 </div>
 
 
@@ -509,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262213.jpg" />
 </div>
 
 
@@ -536,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262212.jpg" />
 </div>
 
 
@@ -564,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262179.jpg" />
 </div>
 
 
@@ -592,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262105.jpg" />
 </div>
 
 
@@ -621,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262049.jpg" />
 </div>
 
 
@@ -648,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262034.jpg" />
 </div>
 
 
@@ -676,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261922.jpg" />
 </div>
 
 
@@ -688,6 +558,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C07C1DAC385FEE9E60825B480D537F8FD6CDDCAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193799   (261920) от 22.12.2017
+
+И.А. Дьяков | Микропроцессорные системы. Архитектура микроконтроллеров семейства MCS-51 (2014) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261920.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлена схемотехника однокристальных микроЭВМ, рассмотрены вопросы программирования на языке Асcемблер.
+Предназначено для студентов всех форм обучения направлений 230100.62 – Информатика и вычислительная техника, 010400.62 – Прикладная математика и информатика, 230104.65 – Системы автоматизированного проектирования.
+С 80-х годов 20 века в микропроцессорной технике (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D559BA62FE17758AB8532ED0B3F2108CC3F205BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193950   (261806) от 23.12.2017
+
+План электрификации РСФСР [2-е изд.] (1955) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261806.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1920 г. Государственная Комиссия по электрификации России (ГОЭЛРО), в обстановке не окончившейся еще иностранной военной интервенции и гражданской войны, в условиях глубочайшей хозяйственной разрухи в нашей стране, разработала рассчитанный на 10—15 лет великий государственный план переустройства народного хозяйства Советской республики на основе крупной машинной (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:688C25ACDF9A727C2AC61A2DD1EE4D641C8DF672
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193938   (261777) от 23.12.2017
+
+А.Е. Козлов | Социальное обеспечение в СССР (1981) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261777.jpg" />
+</div>
+
+
+###  Подробнее
+
+Материальное обеспечение престарелых и нетрудоспособных — проблема, которая не была и не могла быть решена в эксплуататорском общество. К. Маркс и Ф. Энгельс, а затем В. И. Ленин сформулировали и обосновали принципы социального обеспечения при социализме. В книге рассказывается о становлении и организации социального обеспечения в нашей стране, о правовых основах, (   Читать дальше...   )Жанр: История, политология, экономика, правоведениеФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3FE279F2AF99134B55EE64694246CD67A81925B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193935   (261756) от 23.12.2017
+
+А.И. Астайкин и др. | Приборы физической электроники (2008) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены различные типы вакуумных и плазменных приборов физической электроники, особенности их работы и основные характеристики.
+Последовательно описаны принципы и физические основы работы приборов с сосредоточенным (пролетные и отражательные клистроны, триоды) и распределенным (ЛБВ, ЛОВ, приборы М-типа) взаимодействием. Рассмотрены физические основы использования (   Читать дальше...   )Жанр: Электронные компонентыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9955D5BECB740D6247424E16530EEC819756E97D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194079   (261754) от 23.12.2017
+
+В.Н. Смирнов | Строительство городских мостовых сооружений (2010) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261754.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии рассмотрены современные технологии строительства городских мостовых сооружений (городских мостов, эстакад, путепроводов, виадуков). Учитывая, что современные крупные города характеризуются наличием не только автомагистралей, но и железнодорожных узлов, часто расположенных в пределах города, освещены технологические особенности сооружения городских (   Читать дальше...   )Жанр: СтроительствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDF5360D945BCDCFA1AAFCB93D519CC4118D882E
 ```
 
 https://mybot314.ru/tekegram_catalog/

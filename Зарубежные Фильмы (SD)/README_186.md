@@ -1,3 +1,56 @@
+###  Публикация: 1198748   (803973) от 13.01.2018
+
+Уиджи: Проклятие Вероники / Veronica (2017) HDRip [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уиджи — это доска для спиритических сеансов вызова душ умерших. Ее называют доской Дьявола, потому что общение с загробным миром не обходится для живого человека без последствий. Тот, кто берет в руки Уиджи, должен знать, что она обладает страшной властью открывать врата чудовищному злу, противостоять которому практически невозможно.
+Вероника, красивая и веселая (   Читать дальше...   )Производство: Испания / Apaches Entertainment, Expediente La PelГ­cula A.I.E., Film FactoryЖанр: Ужасы, ДрамаРежиссер: Пако ПласаАктеры: Сандра Эскасена, Бруна Гонсалес, Клаудия Плейсер, Иван Чаверо, Ана Торрент, Консуэло Трухильо, Анхела Фабиан, Карла Кампра, Миранда ГасПеревод: Одноголосый закадровый, любительский (Хихикающий доктор)Субтитры: отсутствуютПродолжительность: 01:45:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69C7050119A9CFC198259CA34DF80DB3DAFCC69A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010469   (803969) от 24.04.2016
+
+Понты / Everybody Loves Sunshine / Busted (1998) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двоюродные братья Терри и Рей вышли на свободу и вновь возглавили банду, которая давно враждует с триадами. На самом деле Рей хочет «завязать» и заняться музыкой. Узнав об этом, Терри развязывает кровавую резню, и Рей, чтобы не бросить брата в беде, оказывается втянутым в нее.Производство: Великобритания, Gothic FilmsЖанр: Боевик, Драма, КриминалРежиссер: Эндрю ГотАктеры: Дэвид Боуи, Эндрю Гот, Рэйчел Шейли, Клинт Дайер, Дэвид Бэйкер, Грэм Брайан, Винсент Дэвис, Голди, Джэйн Дрэйвен, Кевин Джон ХарвиПеревод: Двуголосый закадровыйПродолжительность: 01:39:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3032995427272297F35A5C2EAB5710126B45E35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1505414   (803860) от 27.10.2021
 
 Тихий омут / Stillwater (2021) BDRip [DVO]
@@ -6,7 +59,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803860.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803853.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803755.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803713.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803608.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803474.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803318.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803298.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803295.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803278.jpg" />
 </div>
 
 
@@ -268,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803227.jpg" />
 </div>
 
 
@@ -294,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803034.jpg" />
 </div>
 
 
@@ -320,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803032.jpg" />
 </div>
 
 
@@ -347,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803024.jpg" />
 </div>
 
 
@@ -373,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803012.jpg" />
 </div>
 
 
@@ -399,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802973.jpg" />
 </div>
 
 
@@ -425,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802916.jpg" />
 </div>
 
 
@@ -451,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802915.jpg" />
 </div>
 
 
@@ -477,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802914.jpg" />
 </div>
 
 
@@ -504,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802855.jpg" />
 </div>
 
 
@@ -530,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802809.jpg" />
 </div>
 
 
@@ -557,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802805.jpg" />
 </div>
 
 
@@ -583,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802707.jpg" />
 </div>
 
 
@@ -609,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802674.jpg" />
 </div>
 
 
@@ -620,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B9DB695EE162F5B5A4A399A5DFE68686A29D806
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199030   (802594) от 14.01.2018
-
-Фарфоровая луна / China Moon (1991) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полицейский влюбляется в замужнюю женщину, у которой очень плохие отношения с мужем. Муж изменял ей, оскорблял ее, бил, она дважды пыталась развестись с ним. Наконец-то решилась бесповоротно, и вместе с новым возлюбленным поехала домой за вещами. И тут неожиданно пришел благоверный. Между супругами вспыхнула ссора. Он швырнул ее об стену, она выхватила пистолет и (   Читать дальше...   )Производство: США / Tig ProductionsЖанр: Триллер, Мелодрама, Криминал, ДетективРежиссер: Джон БэйлиАктеры: Эд Харрис, Мэделин Стоу, Бенисио Дель Торо, Чарльз Дэнс, Патриция Хили, Тим Пауэлл, Прюитт Тэйлор Винс, Ларри Шулер, Роб Эдвард Моррис, Пол ДэрбиПеревод: Двуголосый закадровый, авторскийСубтитры: Русские, английскиеПродолжительность: 01:39:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D10F5AB59431138A8B596DD258ECD0BE4B53925
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505770   (802489) от 28.10.2021
-
-Не дыши 2 / Don't Breathe 2 (2021) BDRip [H.265]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802489.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спустя несколько лет после кровавого вторжения Норман обрел покой и утешение, но оказалось, что от прошлых грехов так просто не убежишь.Производство: США, Сербия / Bad Hombre, Ghost House Pictures, Sony Pictures Entertainment (SPE) Worldwide Acquisitions Group, Stage 6 FilmsЖанр: Ужасы, боевик, триллер, драмаРежиссер: Родольфо СаягесАктеры: Стивен Лэнг, Мэдлин Грэйс, Брендан Секстон III, Адам Янг, Рокки Уильямс, Кристиан Сахиа, Бобби Шофилд, Фиона О’Шонесси, Стефани Арсила, Диана БабницоваПеревод: Дублированный (Пифагор)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:38:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43B41B93208680B3306533C0713E0A63E78E18CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Vegas Pro - Wedding Title 05 [VEG]
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374117.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372194.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371847.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Revostock - Wedding Short Intro - 392757 [AEP]
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370643.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Vegas Pro - Wedding Title 06 [VEG]
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367679.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367270.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ VideoHive - Wedding Slideshow v2 - 23989006 [AEP]
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365092.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364809.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ VideoHive - Hand Drawn Wedding Opener - 681908 [AEP]
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360912.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360151.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350867.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348550.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348548.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346231.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344002.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ VideoHive - Lyrics Template and Elements V.2 - Paper Cut Concepts - 24487049 [AE
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343066.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ VideoHive - Paper Love Photo Video Slideshow - 10734754 [AEP]
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336266.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334751.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326386.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323656.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323641.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311283.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ VideoHive – Romantic Wedding - 5600098 [AEP]
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308350.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308302.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307018.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Vegas Pro - Slideshow Photo on the Beach [VEG]
 >>Свадебные и романтические (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306751.jpg" />
 </div>
 
 

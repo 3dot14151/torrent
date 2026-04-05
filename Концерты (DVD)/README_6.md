@@ -6,7 +6,7 @@ The Realm Of Napalm Records Vol. III (2012) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_643617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_643617.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_639619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_639619.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ Tarja Turunen & Mike Terrana - Beauty & The Beat (2014) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636310.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_636226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_636226.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Doro - Strong and Proud - 30 Years of Rock and Metal (2016) 2хDVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630053.jpg" />
 </div>
 
 
@@ -158,7 +158,7 @@ Shakespear's Sister - Best Of (2004) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628512.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_624971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_624971.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_623387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_623387.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622168.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620014.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Savage Garden - The Video Collection (1998) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617172.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_616416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_616416.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Celtic Woman - Believe (2012) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616277.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_614497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_614497.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ The Eagles - Live '1974 & '1977 (2018) DVD5 [hand made]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602239.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598173.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Lacrimosa - Live In Mexico City (The First Edition) Bonus DVD (2014) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588764.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586838.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586829.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586774.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ U2: 360° at the Rose Bowl (2010) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585958.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581798.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575276.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_574516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_574516.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ David Gilmour (Pink Floyd) - "Live at Later with Jools Holland" (2008) HDTV
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_571004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_571004.jpg" />
 </div>
 
 
@@ -721,7 +721,7 @@ Ozzy Osbourne - Speak Of The Devil (17.07.2012) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_570559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_570559.jpg" />
 </div>
 
 

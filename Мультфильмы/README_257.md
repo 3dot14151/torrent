@@ -1,3 +1,133 @@
+###  Публикация: 156815   (315919) от 08.12.2009
+
+Золотая коллекция Союзмультфильма диск 29 DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы (коллекции, сборники / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315919.jpg" />
+</div>
+
+
+###  Подробнее
+
+По сказке Мамина-Сибиряка.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563826   (315852) от 12.10.2022
+
+Солнечные противоположности / Solar Opposites (2022) WEB-DL [H.264/720p-LQ] (сезон 3, серии 1-12 из 12) NewStation
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315852.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пришельцы, спасаясь со своей умирающей планеты, потерпели крушение на Земле и теперь вынуждены прикидываться обычными людьми. Человеческая цивилизация вызывает у гостей из другого мира немало вопросов, и они никак не могут до конца решить, хорошая она или нет. Точно известно только одно: они должны защищать Пупу — живой суперкомпьютер, который однажды эволюционирует, (   Читать дальше...   )Производство: США, 20th Century Fox Television, Fox Television Animation, Justin Roiland's Solo Vanity Card Productions, Walt Disney Pictures and TelevisionЖанр: Для взрослых, комедия, фантастикаРежиссер: Майк МакМахан, Джастин РойландПеревод: Многоголосый профессиональный (NewStation) присутствует ненормативная лексика.Субтитры: английские, испанскиеПродолжительность: ~00:23:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90360EEB218B176270BCA93227D96F3A40713E76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332165   (315851) от 19.10.2019
+
+История игрушек 4 / Toy Story 4 (2019) BDRip 3D [H.264/1080p] [вертикальная анаморфная стереопара]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Космический рейнджер Баз Лайтер, ковбой Вуди, собака Спиралька, тиранозавр Рекс и вся команда игрушек снова вместе, и они как никогда готовы к приключениям. С тех пор как Энди поступил в колледж, игрушки поселились в доме своей новой хозяйки Бонни. В свой первый день в школе Бонни смастерила себе из отходов новую игрушку Вилкинса, что положит начало череде событий, (   Читать дальше...   )Производство: США / Pixar Animation Studios, Walt Disney PicturesЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Джош КулиПеревод: Дублированный (Лицензия BD CEE)Субтитры: Русские (Forced, Full, SDH), украинские (Forced), английские (Full, SDH)Продолжительность: 01:40:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EE0C94104095603B646AE24EE30758A907C435E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 843575   (315746) от 26.11.2014
+
+Как поймать перо Жар-Птицы (2013) BDRemux [1080p]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во исполнение воли царя Берендея, младший сын его Иван отправляется на поиски диковинной Жар-птицы. В поисках удачи Ивана Царевича сопровождает верный друг и помощник — Серый Волк, который, обладает всевозможными навыками и всегда спешит на помощь простодушному Ивану. Героев ждут увлекательные и опасные приключения, козни коварных братьев Ивана и его судьбоносная (   Читать дальше...   )Производство: РоссияЖанр: Комедия, Приключения, ДетскийРежиссер: Георгий Гитис, Вячеслав ПлотниковПеревод: Оригинальная русская озвучкаПродолжительность: 01:08:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2936C27E54F1E9D9EC3A96DCED40DE5C3C1EE8BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332033   (315712) от 19.10.2019
+
+История игрушек 4 / Toy Story 4 (2019) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Космический рейнджер Баз Лайтер, ковбой Вуди, собака Спиралька, тиранозавр Рекс и вся команда игрушек снова вместе, и они как никогда готовы к приключениям. С тех пор как Энди поступил в колледж, игрушки поселились в доме своей новой хозяйки Бонни. В свой первый день в школе Бонни смастерила себе из отходов новую игрушку Вилкинса, что положит начало череде событий, (   Читать дальше...   )Производство: США, Walt Disney Studios Motion PicturesЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Джош КулиПеревод: Дублированный (Лицензия BD EUR), многоголосый (HDRezka Studio)Субтитры: Русские, английскиеПродолжительность: 01:40:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E2257E038B1F1318E45B6A059268884790CE137
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 264983   (315622) от 01.12.2010
 
 Рождественская ёлка / "Oh, Christmas Tree" (1999) DVDRip
@@ -6,7 +136,7 @@
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315622.jpg" />
 </div>
 
 
@@ -33,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315606.jpg" />
 </div>
 
 
@@ -61,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315461.jpg" />
 </div>
 
 
@@ -87,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315454.jpg" />
 </div>
 
 
@@ -113,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315120.jpg" />
 </div>
 
 
@@ -140,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314910.jpg" />
 </div>
 
 
@@ -166,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314852.jpg" />
 </div>
 
 
@@ -193,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314820.jpg" />
 </div>
 
 
@@ -219,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314804.jpg" />
 </div>
 
 
@@ -245,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314787.jpg" />
 </div>
 
 
@@ -272,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314107.jpg" />
 </div>
 
 
@@ -298,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313895.jpg" />
 </div>
 
 
@@ -324,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313885.jpg" />
 </div>
 
 
@@ -352,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313785.jpg" />
 </div>
 
 
@@ -378,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313657.jpg" />
 </div>
 
 
@@ -404,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313601.jpg" />
 </div>
 
 
@@ -430,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313590.jpg" />
 </div>
 
 
@@ -456,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313501.jpg" />
 </div>
 
 
@@ -482,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313498.jpg" />
 </div>
 
 
@@ -508,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313492.jpg" />
 </div>
 
 
@@ -534,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313473.jpg" />
 </div>
 
 
@@ -545,136 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5324858BBB25F444A7215AC1C21BCADDA4A86F6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332010   (313311) от 20.10.2019
-
-История игрушек 4 / Toy Story 4 (2019) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313311.jpg" />
-</div>
-
-
-###  Подробнее
-
-Космический рейнджер Баз Лайтер, ковбой Вуди, собака Спиралька, тиранозавр Рекс и вся команда игрушек снова вместе, и они как никогда готовы к приключениям. С тех пор как Энди поступил в колледж, игрушки поселились в доме своей новой хозяйки Бонни. В свой первый день в школе Бонни смастерила себе из отходов новую игрушку Вилкинса, что положит начало череде событий, (   Читать дальше...   )Производство: США, Walt Disney Studios Motion PicturesЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Джош КулиПеревод: Дублированный (Лицензия BD EUR), многоголосый (HDRezka Studio)Субтитры: Русские, английскиеПродолжительность: 01:40:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C335E1D5F506EB8832B583EB4ED27A6C2B067A41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 844733   (313289) от 27.11.2014
-
-Волшебный футбол / Настольный футбол / Metegol (2013) HDRip (AlexFilm)
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313289.jpg" />
-</div>
-
-
-###  Подробнее
-
-История Амадео, застенчивого мальчика с добрым сердцем, и его друзей — отважных футболистов, с помощью которых Амадео должен вернуть себе честь, достоинство и настоящую любовь. Это фильм о дружбе, верности и страсти, действие которого разворачивается на футбольном поле.Жанр: Компьютерная анимация, приключения, семейный, спортРежиссер: Хуан Хосе КампанеллаПеревод: Профессиональный многоголосый закадровый - AlexFilmОзвучка: Татьяна Манетина, Владимир Курдов, Михаил Суслов, Сергей Пономарёв, Роман Сопко, Константин ПогодаевФормат: AVIПродолжительность: 01:46:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE60A4F0F952867DFF6539A4720C743A06C4CEA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583732   (312877) от 02.12.2012
-
-Суперпес Крипто (9 серий) / Krypto the Superdog (2005) DVDRip
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удивительный пес Крипто прибывает на Землю, и с помощью своего нового друга — мальчика Кевина, не покладая лап выручает из беды животных и сражается с межгалактическими преступниками.Жанр: мультфильм, фэнтези, комедия, семейныйРежиссер: Скотт ДжералдсПеревод: ДублированныйПродолжительность: 01:49:04 (1 серия - 00:21:18, 8 серий х ~00:11:00)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01CEEB297A7F9C00A2F3C9F44D083D13A73784FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 265256   (312809) от 02.12.2010
-
-Гадкий Я / Despicable Me (2010) BDRip [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312809.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гадкий снаружи, но добрый внутри Грю намерен, тем не менее, закрепить за собой статус главного архизлодея в мире, для чего он решает выкрасть Луну при помощи созданной им армии миньонов. Дело осложняют конкуренты, вставляющие высокотехнические палки в колеса, и семейные обстоятельства в виде трех сироток, о которых Грю вынужден заботиться.Жанр: Анимация, Комедия, СемейныйРежиссер: Пьер Соффин, Крис РеноАктеры: Стив Карелл, Джейсон Сигел, Расселл Брэнд, Джули Эндрюс, Уилл Арнетт, Кристен Уиг, Миранда Косгров, Дэна Гайер, Элси Фишер, Пьер СоффинПеревод: ДублированныйЯзык субтитров: Русские, Румынские, АнглийскиеПродолжительность: 01:34:48
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583779   (312773) от 02.12.2012
-
-Мишка Мохнатик (4 серии из 13) / Mis Kudlatek (1971) DVDRip
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключения забавного мохнатого медвежонкаЖанр: ДетскийРежиссер: Владислав НегребецкийПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:37:46 (4 х ~00:09:40)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B98B2F11031127463DBFA89562B3172E76C778FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

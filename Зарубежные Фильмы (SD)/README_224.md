@@ -1,55 +1,3 @@
-###  Публикация: 780963   (759174) от 26.04.2014
-
-47 ронинов / 47 Ronin (2013) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759174.jpg" />
-</div>
-
-
-###  Подробнее
-
-Таинственный странник, преданный всеми, проданный в рабство, избранный судьбой вершить месть, станет одним из 47 воинов, бросивших вызов смерти. Явившись из другого мира, он восстанет против темных сил, чтобы защитить свою запретную любовь.Производство: СШАЖанр: Фэнтези, боевик, приключенияРежиссер: Карл РиншАктеры: Киану Ривз, Хироюки Санада, Ко Сибасаки, Таданобу Асано, Ринко Кикути, Кэри-Хироюки Тагава, Того ИгаваПеревод: Дублированный (Лицензия Blu-Ray CEE)Субтитры: ОтсутствуютПродолжительность: 01:58:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CABE0DC899221F9B4D57AC9CAB409321C7394DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 780943   (759173) от 26.04.2014
-
-47 ронинов / 47 Ronin (2013) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759173.jpg" />
-</div>
-
-
-###  Подробнее
-
-Таинственный странник, преданный всеми, проданный в рабство, избранный судьбой вершить месть, станет одним из 47 воинов, бросивших вызов смерти. Явившись из другого мира, он восстанет против темных сил, чтобы защитить свою запретную любовь.Производство: СШАЖанр: Фэнтези, боевик, приключенияРежиссер: Карл РиншАктеры: Киану Ривз, Хироюки Санада, Ко Сибасаки, Таданобу Асано, Ринко Кикути, Кэри-Хироюки Тагава, Того ИгаваПеревод: Дублированный (Лицензия Blu-Ray CEE)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский, Украинский, АнглийскийПродолжительность: 01:58:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D643E897C8175520585F5EE5F4412CA2EE9CB909
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 780200   (759164) от 26.04.2014
 
 Нимфоманка: Часть 2 / Nymphomaniac: Vol. II (2013) HDRip [Line]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759164.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759163.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759161.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759023.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758914.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758904.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758902.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758777.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758766.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758713.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758706.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758594.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758456.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758448.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758447.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_758374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_758374.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758297.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758183.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_758148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_758148.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758008.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758001.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757977.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_757939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757939.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757703.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5241CF283A7AB2E51159CFEB22B81C3370CAE734
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215555   (757676) от 26.03.2018
+
+Величайший шоумен / The Greatest Showman (2017) HDRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757676.jpg" />
+</div>
+
+
+###  Подробнее
+
+Финеас Тейлор Барнум всегда мечтал войти в историю, но все его занятия не приносили ему удовольствия. И когда, казалось, весь мир обернулся против него, он решает пойти вслед за своей мечтой. Барнум создает завораживающее представление-сенсацию, которое стало рождением мирового шоу-бизнеса.Производство: США, 20th Century Fox Film Corporation, Chernin Entertainment...Жанр: драма, биография, мюзиклРежиссер: Майкл ГрэйсиАктеры: Хью Джекман, Зак Эфрон, Мишель Уильямс, Ребекка Фергюсон, Зендея, Кила Сеттл, Яхья Абдул-Матин II, Остин Джонсон, Эллис Рубин, Скайлар ДаннПеревод: Многоголосый закадровый (HDrezka Studio)Субтитры: отсутствуютПродолжительность: 01:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F1A4D97CB5A7AF3BEBC6EBA491563EA25A37BCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215456   (757669) от 26.03.2018
+
+Роман Израэл, Esq. / Roman J. Israel, Esq. (2017) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757669.jpg" />
+</div>
+
+
+###  Подробнее
+
+История опытного адвоката с твёрдой хваткой, Романа Дж. Израэля, на которого свалилось управление крупной фирмой после того, как его босса настиг сердечный приступ. Оказавшись у власти, Израэль узнаёт о тайных делах своей компании, противоречащих его профессиональным и моральным принципам.Производство: США, Bron Studios, Creative Wealth Media Finance, Cross Creek PicturesЖанр: драма, криминалРежиссер: Дэн ГилройАктеры: Дензел Вашингтон, Колин Фаррелл, Кармен Эджого, Линда Граватт, Аманда Уоррен, Хьюго Армстронг, Сэм Гилрой, Тони Плана, Дерон Хортон, Амари ЧитомПеревод: Профессиональный (многоголосый, закадровый) (iTunes)Субтитры: отсутствуютПродолжительность: 02:02:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F29C22F3D55D1CA7CFE3EF5C70AB8EC0E4D1F8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

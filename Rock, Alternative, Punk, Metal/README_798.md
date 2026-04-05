@@ -1,3 +1,38 @@
+###  Публикация: 497449   (253808) от 17.05.2012
+
+Celldweller - Wish Upon A Blackstar (Deluxe Edition) (2012) [MP3|320 кб/с]<Industrial Rock / Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Arrival (0:44)
+02. It Makes No Difference Who We Are (3:02)
+03. Blackstar (4:07)
+04. Louder Than Words (4:40)
+05. The Lucky One (6:46)
+06. Unshakeable (5:09)
+07. I Can't Wait (7:16)
+08. Eon (6:22)
+09. So Long Sentiment (6:03)
+10. Gift For You (5:47)(   Читать дальше...   )2012Жанр: Industrial Rock / ElectronicПродолжительность: 1:12:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE8927696F2028D3B366A2222BD347BEAC901C14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 495983   (253623) от 17.05.2012
 
 Griefrain - Follow The Dusk (2012) [MP3|320 кб/с]<Depressive Post Black>
@@ -6,7 +41,7 @@ Griefrain - Follow The Dusk (2012) [MP3|320 кб/с]<Depressive Post Black>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253623.jpg" />
 </div>
 
 
@@ -32,7 +67,7 @@ John 5 - God Told Me To (2012) [MP3|320 кб/с]<Alternative Metal / Instrumenta
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253455.jpg" />
 </div>
 
 
@@ -67,7 +102,7 @@ The Doors - Strange Days (1967) Remastered, Limited Edition, 24 kt Gold CD /1993
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253227.jpg" />
 </div>
 
 
@@ -102,7 +137,7 @@ Gossip - A Joyful Noise (2012) [MP3|320 кб/с]<Indie Rock / Electronic>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253205.jpg" />
 </div>
 
 
@@ -137,7 +172,7 @@ Kraanium - Post Mortal Coital Fixation (2012) [FLAC|Lossless]<Brutal Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252853.jpg" />
 </div>
 
 
@@ -172,7 +207,7 @@ Deep Purple - Rapture Of The Deep (2005) 2XCD, Reissue, Remastered, 2025, Ear Mu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252547.jpg" />
 </div>
 
 
@@ -201,7 +236,7 @@ Various Artists - Любэ 35. Всё опять начинается. Триб�
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252523.jpg" />
 </div>
 
 
@@ -230,7 +265,7 @@ Alestorm - The Thunderfist Chronicles (2025) [APE|Lossless|image + .cue] <Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252409.jpg" />
 </div>
 
 
@@ -259,7 +294,7 @@ The Cranberries - MTV Unplugged (Live MTV Unplugged) (2025) [FLAC 24/96|Lossless
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252314.jpg" />
 </div>
 
 
@@ -288,7 +323,7 @@ God's Gift - God's Gift (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252289.jpg" />
 </div>
 
 
@@ -317,7 +352,7 @@ Jethro Tull's Ian Anderson - 53 albums, 16 Box sets, 222CD (1968-2023) [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252234.jpg" />
 </div>
 
 
@@ -346,7 +381,7 @@ Mark Knopfler - Headin' Home (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252233.jpg" />
 </div>
 
 
@@ -375,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252074.jpg" />
 </div>
 
 
@@ -404,7 +439,7 @@ Stereophonics - 14 альбомов (1997 - 2022) 18 CD [FLAC|Lossless|tracks + 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251982.jpg" />
 </div>
 
 
@@ -434,7 +469,7 @@ Omega Infinity - The Anticurrent (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251968.jpg" />
 </div>
 
 
@@ -463,7 +498,7 @@ Dave Matthews Band - 28 альбомов, 3 Box Set (1993 - 2023) 68 CD [FLAC|Wa
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251966.jpg" />
 </div>
 
 
@@ -492,7 +527,7 @@ Alcatrazz - 11 аlbums, 2 Box sets, 27 CD (1983-2023) Discography [FLAC|Lossless
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251911.jpg" />
 </div>
 
 
@@ -521,7 +556,7 @@ The Answer - 8 альбомов (2006 - 2023) 13 CD [FLAC|Lossless|tracks + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251907.jpg" />
 </div>
 
 
@@ -550,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251894.jpg" />
 </div>
 
 
@@ -579,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251880.jpg" />
 </div>
 
 
@@ -608,7 +643,7 @@ Prost - Believe Again (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251756.jpg" />
 </div>
 
 
@@ -637,7 +672,7 @@ The Who - Who Are You (2025) Box Set, 7XCD, Reissue, Remastered, 	Polydor, Delux
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_251728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251728.jpg" />
 </div>
 
 
@@ -666,7 +701,7 @@ Alcatrazz - Prior Convictions (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251704.jpg" />
 </div>
 
 
@@ -695,7 +730,7 @@ Finger Eleven - Last Night On Earth (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251696.jpg" />
 </div>
 
 
@@ -724,7 +759,7 @@ Jimi Hendrix (The Jimi Hendrix Experience) - Bold As Love Sessions (2025) [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251694.jpg" />
 </div>
 
 
@@ -738,35 +773,6 @@ Jimi Hendrix (The Jimi Hendrix Experience) - Bold As Love Sessions (2025) [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DA5082CF3EADEA4DAD3493EDABFD9027F138B71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835678   (251693) от 07.11.2025
-
-Kings Of Leon - EP #2 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock, Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All The Little Sheep [00:03:33]
-02. To Space [00:03:53]
-03. Pit To The Rind [00:04:31]
-04. The Wolf [00:03:10]Жанр: Indie Rock, Alternative Rock, Southern RockПродолжительность: 00:15:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01872B8A2739682BC6D9F349F8239D27ED63D3D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

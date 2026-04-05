@@ -1,134 +1,3 @@
-###  Публикация: 1653073   (206357) от 14.08.2023
-
-Д. Гильберт, С. Кон-Фоссен | Наглядная геометрия (1981) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206357.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет собой одно из лучших и исторически одно из первых популярных произведений по математике, написанных крупными математиками. В книге содержится, действительно, очень наглядный, но достаточно строгий рассказ о геометрических науках и теориях, в частности о геометрической кристаллографии, о геометрической сущности кинематики и о топологии. Книга вполне (   Читать дальше...   )Жанр: МатематикаИздательство: НаукаФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18F2634DF119D7D622E06497C09EA73A3CABBEEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653060   (206348) от 14.08.2023
-
-А.А. Бельчусов | Разработка интерактивных сайтов с помощью Microsoft Visual Web Developer (2-е изд.) (2016) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программных продуктов ориентированных на их создание имеется много: больше всего известны Microsoft SharePoint Designer (Microsoft Front Page) и Macromedia Dreamweaver. Однако сегодня все больше фирм и частных лиц хотят иметь не просто сайт, а разместить в сети некий сервис, который мог бы осуществлять интерактивное взаимодействие с посетителем сайта.Часто, этот (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: НОУ "Интуит"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30ED59550669B9ABAD2A41AD830CCA14A131ADD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653051   (206341) от 14.08.2023
-
-М.Р. Богданов | Перспективные языки веб-разработки (2-е изд.) (2016) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206341.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс посвящен теоретическим и практическим вопросам использования новых технологий веб-разработки, известных как HTML5.
-Учащиеся, освоившие предлагаемый курс, смогут разрабатывать высококачественные мультимедиа-приложения, познакомятся с методами программирования трехмерной графики и создания зрелищных визуальных эффектов, научатся разрабатывать офф-лайн приложения, (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: НОУ "Интуит"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9B3B14DFE6C73C9C4CC936B5F119CDEAE2F8DC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652940   (206332) от 13.08.2023
-
-С. Рейнак | Аполлонъ (1913) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206332.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всеобщая исторiя пластическихъ искусствъ. Лекции, читанныя въ высшей школѣ при Луврѣ. Свыше 650 рисунковъ.Жанр: ИскусствоведениеИздательство: Проблемы эстетикиФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C0762E30629B6E889FA7E8488750F1A8A084060
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615790   (206300) от 27.02.2023
-
-Р. Аски, Р. Рой, Дж. Эндрюс | Специальные функции (2013) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206300.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга является учебником по теории специальных функций, отражающим существенный прогресс в этой области, достигнутый во второй половине XX в. Значительную часть изложенного материала нельзя найти в стандартных монографиях и справочниках. Основной предмет книги - одномерные гипергеометрические функции в широком смысле слова (в том числе функции Гаусса, Куммера, Бесселя, (   Читать дальше...   )Жанр: МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:617577C55D6EAB04E2F284C8CF9E8059FC93F024
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1653064   (206254) от 14.08.2023
 
 А.П. Норден | Краткий курс дифференциальной геометрии (1958) [DJVU]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206254.jpg" />
 </div>
 
 
@@ -164,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206245.jpg" />
 </div>
 
 
@@ -190,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206203.jpg" />
 </div>
 
 
@@ -217,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206133.jpg" />
 </div>
 
 
@@ -246,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206122.jpg" />
 </div>
 
 
@@ -273,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206076.jpg" />
 </div>
 
 
@@ -299,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206001.jpg" />
 </div>
 
 
@@ -326,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205959.jpg" />
 </div>
 
 
@@ -355,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205937.jpg" />
 </div>
 
 
@@ -381,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205845.jpg" />
 </div>
 
 
@@ -407,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205355.jpg" />
 </div>
 
 
@@ -436,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205251.jpg" />
 </div>
 
 
@@ -462,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205243.jpg" />
 </div>
 
 
@@ -488,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205226.jpg" />
 </div>
 
 
@@ -514,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204891.jpg" />
 </div>
 
 
@@ -540,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204877.jpg" />
 </div>
 
 
@@ -566,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204851.jpg" />
 </div>
 
 
@@ -592,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204813.jpg" />
 </div>
 
 
@@ -618,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204801.jpg" />
 </div>
 
 
@@ -647,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204793.jpg" />
 </div>
 
 
@@ -674,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204775.jpg" />
 </div>
 
 
@@ -685,6 +554,141 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A552EF2746E705E475E834D46C373465AF522526
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601863   (204602) от 02.01.2023
+
+М.Л. Ловать | Физиология человека и животных [2 части] (2022) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204602.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конспект лекций по курсу "Физиология человека и животных" МГУ им. М.В. Ломоносова.Жанр: ФизиологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:653C2B5B4C8460872AFF201C7C6924CE9F827709
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655229   (204590) от 25.08.2023
+
+Я.П. Понарин | Элементарная геометрия [3 книги] (2004 - 2009) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данные пособия призваны возродить интерес к элементарным методам решения геометрических задач. В них приведены яркие геометрические сведения, не вошедшие в современный школьный учебник. Например, формула Эйлера, окружность девяти точек, теорема Птолемея, геометрические неравенства и многое другое.
+Третий том является заключительной в серии книг по элементарной геометрии. (   Читать дальше...   )Жанр: МатематикаИздательство: МЦНМОФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A28F918808A4A4C4FB5E21153FF04C67E216D057
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655302   (204537) от 25.08.2023
+
+А.В. Погорелов | Лекции по основаниям геометрии (1959) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204537.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга содержит изложении курса 'Основания геометрии' в объеме, предусмотренном программой министерства высшего образования для университетов. Она отличается оригинальностью изложения многих разделов курса, в особенности раздела 'Геометрия Лобачевского' и раздела 'Проективная геометрия'.Жанр: МатематикаИздательство: Издательство Харьковского университетаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D275855E48310BCB0A5CD6121AE2874062318D62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602029   (204511) от 04.01.2023
+
+М.И. Блудов | Беседы по физике (в 3-х частях) 1-е изд. (1964,1965,1970) [DJVU]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга для внеклассного чтения учащихся средней школы. Автор в интересной и доступной для учащихся форме излагает многие вопросы школьного курса физики
+
+Часть 1 посвящена механике, молекулярной физике и термодинамике
+Часть 2 - электричеству, электромагнитным явлениям, оптике и строению атома(   Читать дальше...   )Жанр: научно-популярнаяФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A4D8C6D79E9650AED5732345757BC04558F3656
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655332   (204496) от 25.08.2023
+
+С. Стернберг | Лекции по дифференциальной геометрии (1970) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204496.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга известного американского математика содержит современное изложение основ теории дифференцируемых многообразий, вариационного исчисления, дифференциальной геометрии, а также теории групп Ли.
+Для чтения её достаточно знаний начального университетского курса. Книга заинтересует математиков самых различных специальностей.Жанр: МатематикаИздательство: МирФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:046D107522E4281381647DC8581444C76E5CE6FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

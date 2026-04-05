@@ -1,3 +1,31 @@
+###  Публикация: 1303093   (573058) от 21.05.2019
+
+Н. П. Дубинин | Вечное движение (1973) [DJVU, PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573058.jpg" />
+</div>
+
+
+###  Подробнее
+
+В своих воспоминаниях лауреат Ленинской премии академик Н. П. Дубинин, прошедший путь от беспризорника до ученого с мировым именем, повествует об очень интересной науке - о генетике, которой посвятил всю свою жизнь.
+
+Автор рассказывает о многих замечательных советских ученых, с которыми ему приходилось вместе работать, и о событиях, связанных с решением ряда коренных (   Читать дальше...   )Жанр: История, науковедение, автобиография, публицистикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E355BE47E1CE70F0C6585E6A4286E20E0D782D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1303285   (572892) от 21.05.2019
 
 20 лет Советской власти. Статистический сборник [Цифровой материал для пропагандистов] (1937) [PDF]
@@ -6,7 +34,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572892.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570814.jpg" />
 </div>
 
 
@@ -60,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570337.jpg" />
 </div>
 
 
@@ -86,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570228.jpg" />
 </div>
 
 
@@ -112,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569882.jpg" />
 </div>
 
 
@@ -138,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569419.jpg" />
 </div>
 
 
@@ -164,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569413.jpg" />
 </div>
 
 
@@ -190,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564598.jpg" />
 </div>
 
 
@@ -217,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564489.jpg" />
 </div>
 
 
@@ -243,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564426.jpg" />
 </div>
 
 
@@ -270,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563968.jpg" />
 </div>
 
 
@@ -296,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563715.jpg" />
 </div>
 
 
@@ -322,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563612.jpg" />
 </div>
 
 
@@ -348,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563600.jpg" />
 </div>
 
 
@@ -377,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562975.jpg" />
 </div>
 
 
@@ -404,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562835.jpg" />
 </div>
 
 
@@ -430,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562081.jpg" />
 </div>
 
 
@@ -456,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561543.jpg" />
 </div>
 
 
@@ -482,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560262.jpg" />
 </div>
 
 
@@ -508,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560257.jpg" />
 </div>
 
 
@@ -537,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559845.jpg" />
 </div>
 
 
@@ -563,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558283.jpg" />
 </div>
 
 
@@ -589,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558097.jpg" />
 </div>
 
 
@@ -616,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557929.jpg" />
 </div>
 
 
@@ -642,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557400.jpg" />
 </div>
 
 
@@ -653,33 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EEFA490C3DBFB147FBB0C35E0D19F3CB762B76B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924691   (557349) от 04.08.2015
-
-Джордж Фридман | Следующие 100 лет: Прогноз событий XXI века (2010) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557349.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта провокационная книга мгновенно вошла в список бестселлеров газеты The New York Times. Ее автор, американский политолог Джордж Фридман, директор частной разведывательно-аналитической организации Stratfor, предлагает читателям прогноз изменений, которых можно ожидать в мире в XXI веке.
-Нынешнее кажущееся ослабление США, согласно Фридману, - иллюзия. Американская (   Читать дальше...   )Жанр: Публицистика, ОбществоФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:961F7AFB841AF2A4A6C6A98254CC11AAF1B6F741
 ```
 
 https://mybot314.ru/tekegram_catalog/

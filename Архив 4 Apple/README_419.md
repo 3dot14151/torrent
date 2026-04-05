@@ -6,7 +6,7 @@ Adguard 2.5.1.904 nightly [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362860.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Scrutiny 7.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362831.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ UninstallPKG 1.0.29 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362825.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Wondershare Filmora Х v10.0.0.61 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362733.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Adobe Dreamweaver CC 2018 v18 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362685.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Adobe Audition CC 2018 v11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362446.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Red Giant Trapcode Suite 13.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362361.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Wolfram Mathematica 10.3.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362256.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Lingon X 4.2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362030.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Paste 2.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361866.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Money Pro 1.7.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361831.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ MacX MediaTrans 6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361779.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ iFinance 4 v4.4.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361699.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ TextSoap 8 v8.4.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361697.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Deliveries 3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361648.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Things 3.7.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361645.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ NeoFinder Business 7.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361628.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Keka 1.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361563.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ BetterZip 4.2.1 (1439) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361478.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Sketch 41 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361319.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ LRTimelapse Pro 4.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361281.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ iTubeDownloader 6 v6.5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361267.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Understand 5.1 (build 1002) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361235.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ App Tamer 2.4.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361233.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Photos Exif Editor 2.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361232.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ TurboMosaic Pro 3.0.17 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361231.jpg" />
 </div>
 
 

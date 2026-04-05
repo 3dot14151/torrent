@@ -1,3 +1,30 @@
+###  Публикация: 1405350   (485458) от 29.08.2020
+
+Поуп Брок | Шарлатан (2020) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485458.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1917 году Джон Р. Бринкли прибыл в крошечный городок Милфорд, штат Канзас. Здесь он открыл медицинскую практику и представил диковинный метод восстановления угасающей мужской силы – с использованием козлиных желез. Тысячи клиентов быстро превратили «доктора» в самого богатого и знаменитого хирурга Америки.
+Его слава привлекла внимание другого великого шарлатана (   Читать дальше...   )Жанр: Журналистские расследования, ПублицистикаПеревод: Елена ОсеневаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51CBF5C8EC69DF42306B06EB78CBCF979F440615
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1405429   (485182) от 29.08.2020
 
 Алексей Рыков | Тесла против Эйнштейна. Битва великих «оружейников» (2019) [EPUB]
@@ -6,7 +33,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485182.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485002.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484910.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484902.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484361.jpg" />
 </div>
 
 
@@ -138,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484031.jpg" />
 </div>
 
 
@@ -165,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483732.jpg" />
 </div>
 
 
@@ -192,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482985.jpg" />
 </div>
 
 
@@ -218,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482110.jpg" />
 </div>
 
 
@@ -246,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481974.jpg" />
 </div>
 
 
@@ -273,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481921.jpg" />
 </div>
 
 
@@ -299,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481259.jpg" />
 </div>
 
 
@@ -325,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481043.jpg" />
 </div>
 
 
@@ -351,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480922.jpg" />
 </div>
 
 
@@ -379,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480781.jpg" />
 </div>
 
 
@@ -405,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480031.jpg" />
 </div>
 
 
@@ -434,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477802.jpg" />
 </div>
 
 
@@ -460,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477475.jpg" />
 </div>
 
 
@@ -488,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475594.jpg" />
 </div>
 
 
@@ -516,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474006.jpg" />
 </div>
 
 
@@ -542,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473335.jpg" />
 </div>
 
 
@@ -568,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472753.jpg" />
 </div>
 
 
@@ -594,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471910.jpg" />
 </div>
 
 
@@ -620,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471500.jpg" />
 </div>
 
 
@@ -646,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471395.jpg" />
 </div>
 
 
@@ -659,32 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FC2D294FEA7F2D86AC0D2DEFC65B3034660723B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320197   (470671) от 18.08.2019
-
-Юрий Мухин | И снова Путин. Кому и зачем он нужен (2019) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая книга популярного публициста и писателя Юрия Мухина посвящена оценке деятельности Владимира Путина за первый год очередного президентского срока. Автор, как он сам пишет, собрал в этой книге никем не оспариваемые публичные сведения, однако в том, что видят все, он замечает то, что не видит никто. Неожиданные открытия Ю. Мухина позволяют по-новому оценить расклад (   Читать дальше...   )Жанр: Политология, ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23DD8AE88DFAB35BFC7B0A86B2430372BAB60332
 ```
 
 https://mybot314.ru/tekegram_catalog/

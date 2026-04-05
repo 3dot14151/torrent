@@ -1,3 +1,116 @@
+###  Публикация: 1599842   (159005) от 26.12.2022
+
+VA - Space Holidays Vol. 11 (2019) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Synth-pop, Ambient>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rygar - Sonorous (Album Promo Mix)
+02. Synthesis - Star Explorer
+03. Max Backes - Last Trip
+04. Polaris - Black Hole(   Читать дальше...   )Жанр: Electronic, Synth-pop, AmbientПродолжительность: 03:09:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B221E498A45F8DC1AB99B9DB9E17382E91245AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675880   (158987) от 12.11.2023
+
+Beate Zurwehme ft LDX#40 - Fck Sigrid Kárzer (2022) [FLAC|Lossless|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fck Sigrid Kárzer (8:31)Жанр: TechnoПродолжительность: 00:08:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F132CC4B3C619E29AFE139ACDE2ED1F6A9E1B799
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600045   (158974) от 26.12.2022
+
+VA - Space Holidays Vol. 14 (2022) 3CD [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bellatrix - Synthetic Lifeform (5:51)
+02. Mind Vision - The Last Journey (6:45)
+03. Synthesis - Escape (7:15)
+04. Laser Machine - Fast Attack (4:58)(   Читать дальше...   )Жанр: Synthpop, SpacesynthПродолжительность: 03:23:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D0D26C0BD9E60CB92FC377970FDB84EAE20484D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676005   (158970) от 12.11.2023
+
+VA - The Best Of House 2023 Part 1 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Snipes X Wesley - Devotion (Original Mix) [02:45]
+02. Michael Beltone - I Dont Need You (Original Mix) [02:56]
+03. Eric Chapter - Kiss Like This (Original Mix) [03:56]
+04. Jay Thompson - End Of Time (Empty Rollers Remix) [02:09](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:06:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39EBCEFAEBB56BB8F904BD21384282FED128083E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1600230   (158942) от 26.12.2022
 
 VA - BEST OF 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House. Dub Techno, Minimal>
@@ -6,7 +119,7 @@ VA - BEST OF 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House. 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158942.jpg" />
 </div>
 
 
@@ -35,7 +148,7 @@ Pythius - Turmoil (2023) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Neurofunk>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158941.jpg" />
 </div>
 
 
@@ -61,7 +174,7 @@ Technimatic - For All Of Us (2023) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, L
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158921.jpg" />
 </div>
 
 
@@ -87,7 +200,7 @@ Jean-Michel Jarre - Welcome To The Other Side (Concert From Virtual Notre-Dame) 
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158914.jpg" />
 </div>
 
 
@@ -116,7 +229,7 @@ VA - Ibiza 2016 Winter Clubbing (Deluxe Version) (2015) [MP3|320 кб/с] <House
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158678.jpg" />
 </div>
 
 
@@ -145,7 +258,7 @@ Alphaville - Afternoons In Utopia (1986) [FLAC|Image+cue] <Synth-pop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158646.jpg" />
 </div>
 
 
@@ -174,7 +287,7 @@ VA - Private Beach (Chillout Edition) (2015) [MP3|320 кб/с] <Downtempo, Chill
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158504.jpg" />
 </div>
 
 
@@ -203,7 +316,7 @@ VA - Always Alive Recordings - Best Of 2015 (Mixed By Daniel Kandi) (2015) [MP3|
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158491.jpg" />
 </div>
 
 
@@ -232,7 +345,7 @@ VA - A State Of Trance Year Mix 2015 (Mixed By Armin Van Buuren) (2015) [MP3|320
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158380.jpg" />
 </div>
 
 
@@ -261,7 +374,7 @@ VA - The Sound Of Whartone Winter 2015 (21.12.2015) [MP3|320 кб/с] <Funky, Cl
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158268.jpg" />
 </div>
 
 
@@ -290,7 +403,7 @@ Ornament - Bleu (2004) [FLAC|Lossless|tracks] <Downtempo, Ambient>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158260.jpg" />
 </div>
 
 
@@ -319,7 +432,7 @@ Troels Hammer - Trans/For/Mation (2015) Deluxe [FLAC|Lossless|tracks] <Piano, Lo
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158248.jpg" />
 </div>
 
 
@@ -348,7 +461,7 @@ VA - The Silence Was Warm, Vol. 2 (2008) [FLAC|Lossless|tracks + .cue] <Ambient,
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158245.jpg" />
 </div>
 
 
@@ -374,7 +487,7 @@ Rave The Reqviem - Discography 16 Releases (2013-2020) [MP3|320 Kbps] <Industria
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157995.jpg" />
 </div>
 
 
@@ -403,7 +516,7 @@ Exoplanet - Discography 2 Albums & 26 EP (2005-2014) [MP3|320 кб/с]<Progressi
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157962.jpg" />
 </div>
 
 
@@ -430,7 +543,7 @@ VA - Dark Amsterdam Trance (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157876.jpg" />
 </div>
 
 
@@ -459,7 +572,7 @@ Lane 8 - Winter 2019 Mixtape 2019-12-17 [MP3|320 Kbps] <Deep House, Progressive 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157862.jpg" />
 </div>
 
 
@@ -488,7 +601,7 @@ VA - Angel Voices, Vol. 1 (Enigmatic Chill and Mystic Tracks to Relax) (2020) [F
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157814.jpg" />
 </div>
 
 
@@ -517,7 +630,7 @@ VA - World Sound The Best Of 2022 [MP3|320 Kbps] <House, Funky House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157723.jpg" />
 </div>
 
 
@@ -546,7 +659,7 @@ Koan - Esbat: Initiatio (2019) Blue Tunes Chillout [FLAC|Lossless|WEB-DL|tracks]
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157717.jpg" />
 </div>
 
 
@@ -575,7 +688,7 @@ Koan - Esbat: Exilio (2019) Blue Tunes Chillout [FLAC|Lossless|WEB-DL|tracks] <E
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157704.jpg" />
 </div>
 
 
@@ -604,7 +717,7 @@ Daniel Roeth & Koan - Nothing, Nobody, Never (2018) Blue Tunes Chillout [FLAC|Lo
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157694.jpg" />
 </div>
 
 
@@ -618,122 +731,6 @@ Daniel Roeth & Koan - Nothing, Nobody, Never (2018) Blue Tunes Chillout [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E90E3F0DCD57E641C14783E23E7571B9A2C41D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346468   (157660) от 20.12.2019
-
-Acoustic Chill Out, Tantric Sexuality Masters - Sensual Night Chillout (2019) [MP3|320 Kbps] <Chillout, Easy Listening>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157660.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.New Smooth Chillout 2018 (4:59)
-2.Relaxing Place – Sensual Lounge (5:12)
-3.Workout Chillout Music (3:07)
-4.Electronic Native American Vibes (5:12)(   Читать дальше...   )Жанр: Chillout, Easy ListeningПродолжительность: 01:11:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:524E87226FB60161E638CA2D8BEE3A31758B7089
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346687   (157584) от 20.12.2019
-
-Koan - Muses & Poets: Incomprehensible Sonets (2019) Blue Tunes Chillout [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient, Drum & Bass, Breakbeat>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157584.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Obsidian Insight (Conjuring Poetry Mix) (5:11)
- 02. Murky Avenues (Christine de Pizan Mix) (8:09)
- 03. Annabel Lee (Blue Mix) (9:11)
- 04. Commitment (Blue Mix) (10:40)(   Читать дальше...   )Жанр: Electronic, Ambient, Drum & Bass, BreakbeatПродолжительность: 01:47:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8A2CD66100D6085BE457E94ADB284984FDCA251
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968322   (157386) от 23.12.2015
-
-VA - Morning Glory (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spiritual Soul - Morning Breeze - Chill Mix [05:23]
-02. Collective Sound Members - Don't You Want Me to Be Real - Deephouse Mix [06:40]
-03. Mr. Thruout - Steps on Deep [06:44]
-04. Tamborista - Lovely Dog [07:09](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:17:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65289A30305DC96E611A6C25D06EEC500A315E70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 390616   (157284) от 18.12.2021
-
-Wolfgang Gartner - Weekend in America (2011) [FLAC|Lossless]<Electro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Em (feat. Eve)
-02. Space Junk
-03. Menage A Trois
-04. Circus Freaks (feat. Jim Jones & Cam'ron)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 00:46:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:672B1B7538F546E23EB7A188F81729AF7D860122
 ```
 
 https://mybot314.ru/tekegram_catalog/

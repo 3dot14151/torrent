@@ -1,3 +1,29 @@
+###  Публикация: 964796   (229901) от 12.12.2015
+
+Маленькие монстры: Спрятаться и обмануть / Чудеса адаптации / Kleine Monster: Tauschen & Tarnen / Little Monsters / Hide And Cheat: An Animal Survival Guide (2012) BDRip
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Земля - это единственное известное нам место во Вселенной, где есть жизнь ... Миллиарды лет климат Земли колебался между ледниковыми периодами и потеплением, создавая и разрушая среду обитания. Не все животные смогут приспособиться к новым условиям, но жизнь всегда находит способ отвоевать свои позиции. Пока все внимание обращено на крупных животных, преимущества (   Читать дальше...   )Производство: Австрия / ORF Universum, ORF Enterprise, Power of Earth TV & Film ProductionsЖанр: ДокументальныйРежиссер: Курт МюндлПеревод: ДублированныйПродолжительность: 00:51:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF50A002B1CB0270A3B9CFCF37B8E7C7D8203AC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1424523   (227578) от 17.11.2020
 
 Самые чудесные места / Семь чудес природы / The Greatest Places (1998) BDRemux [H.264/1080p]
@@ -6,7 +32,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227578.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227435.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225777.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225341.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224631.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224628.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224213.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224041.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223213.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222530.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222520.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221838.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_220891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_220891.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_220779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_220779.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220680.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219540.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217173.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216544.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216323.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213925.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213731.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213647.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213597.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213582.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212851.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B7DBB9D83B2F79E1B7C2BEF2349AF3162DD7C89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638286   (212095) от 07.06.2023
-
-Неистовая росомаха / Wild Wolverine (2020) WEB-DL [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_212095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это животное похоже на странный гибрид волка, скунса и бобра... Оно стало легендой. Выносливое, сильное, агрессивное - словно супер-герой из фильмов. Но, поскольку живет оно в самых далеких и суровых уголках мира, его истинная природа скрыта, что делает росомаху одним из самых загадочных существ на планете.Производство: Германия, NDR Naturfilm, DoclightsЖанр: документальный, природа, флора, фаунаПеревод: дублированныйЯзык озвучки: русскийСубтитры: английскиеПродолжительность: 00:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ED646808E3C4DF3382B0A2227B0F3A8098BC972
 ```
 
 https://mybot314.ru/tekegram_catalog/

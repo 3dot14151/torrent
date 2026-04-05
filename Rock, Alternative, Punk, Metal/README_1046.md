@@ -1,3 +1,32 @@
+###  Публикация: 1673089   (166421) от 31.10.2023
+
+A.C.T - Silence (2006) [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Truth Is Pain
+02. Puppeteers
+03. This Wonderful World
+04. Out Of Ideas(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:04:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:989E3378B3886C6E08C4DF6BDCAD3265F7160571
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1673091   (166418) от 31.10.2023
 
 Garden Of Delight - Lutherion I (2005) [FLAC|Lossless|image + .cue] <Gothic Metal>
@@ -6,7 +35,7 @@ Garden Of Delight - Lutherion I (2005) [FLAC|Lossless|image + .cue] <Gothic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166418.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Fleshworks - Engine of Perdition (2018) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166415.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Garden Of Delight - Darkest Hour (2007) [FLAC|Lossless|image + .cue] <Gothic Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166393.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Autopsy - Ashes, Organs, Blood And Crypts (2023) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166382.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Fused by Defiance - Manifest (2023) [FLAC|Lossless|WEB-DL|tracks] <Rap Metal, Nu
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166365.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ The Silver Linings - Pink Fish (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166350.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Vibrion - Bacterya (2016) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166286.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Doro - Maximum Celebration - Strong and Proud (2023) Promo EP [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166283.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Octohpera - Bons Amigos (2002) [FLAC|Lossless|tracks + .cue] <(GentleGiantish) E
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166265.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Smoking Martha - Universe (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166261.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Zelbo - In My Dreams (2021) [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166251.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Assassin - Bestia Immundis (2020) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166248.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ VA - Rock For The Ages (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166245.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Aurum - Время (2020) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166244.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Hatebreed - Weight Of The False Self (2020) [FLAC|Lossless|image + .cue] <Metalc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166240.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Blacklite District - You're Welcome (2020) [FLAC|Lossless|WEB-DL|tracks] <Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166232.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166216.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166213.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ VA - Rockin' & Rollin' (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166211.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Carl Sentance - Electric Eye (2021) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166192.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ VA - Timeless Rock Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166180.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Tokyo Motor Fist - Lions (2020) Japanese Еdition [FLAC|Lossless|image + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166176.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Black Label Society - Doom Crew Inc. (2021) [FLAC|Lossless|tracks + .cue] <South
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166172.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Which One's Pink? - Pink Floyd Tribute Just the basic facts (2010) [MP3|320 Kbps
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166171.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Carmine Appice & Fernando Perdomo Project - Energy Overload (2021) [FLAC|Lossles
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166167.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Carmine Appice & Fernando Perdomo Project - Energy Overload (2021) [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F3AFD0623E7A55A048D7C5586DA82980B4A0082
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431516   (166163) от 15.12.2020
-
-Neal Schon - Universe (2020) [MP3|320 Kbps] <Instrumental Guitar Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Something in the Heart
-02. The Eye of God
-03. The Universe
-04. Caruso(   Читать дальше...   )Жанр: Instrumental Guitar RockПродолжительность: 01:10:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C59351A41F55D75244989FBF2769102C44216EA1
 ```
 
 https://mybot314.ru/tekegram_catalog/

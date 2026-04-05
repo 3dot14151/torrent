@@ -1,3 +1,29 @@
+###  Публикация: 1506320   (799762) от 31.10.2021
+
+Microsoft Windows 10 x64 Release by StartSoft 04-2021 [Ru/En]
+
+>>ОС Windows
+>>Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799762.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка предназначена для установки на компьютеры Windows 10 с архитектурой разрядности x64 bit. В ее состав входит загрузочный образ ISO который предназначен для записи на флешку размером от 32 Гигабайт и выше. Загрузочная флешка, созданная на его базе, поддерживает установку операционной системы с русскоязычным, либо с англоязычным интерфейсами версии Windows 10 (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72F91091BC97246EEB5ACCD81FFF03FE924A6CAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1507319   (798330) от 04.11.2021
 
 Microsoft Windows 10 Enterprise LTSC 2019 Release by StartSoft 06-07-08 2021 [Ru/En]
@@ -6,7 +32,7 @@ Microsoft Windows 10 Enterprise LTSC 2019 Release by StartSoft 06-07-08 2021 [Ru
 >>Сборки Windows 10
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798330.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Microsoft Windows 10 Multiple Editions 10.0.15063.0 Version 1703 (Updated March 
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792998.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Windows 8.1 with Bing (SL, Core, Pro) Dallas_page 6.3.9600.17031.AMD64FRE.WINBLU
 >>Сборки Windows 8
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792000.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ Microsoft Windows 10.0.19044.1288, Version 21H2 - Оригинальные об�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791251.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ Microsoft Windows 10 Enterprise 2021 LTSC, Version 21H2 - Оригинальны
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791228.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ Microsoft Windows 10.0.19042.1348, Version 20H2 (Updated November 2021) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790770.jpg" />
 </div>
 
 
@@ -169,7 +195,7 @@ Microsoft Windows 10.0.19041.1348, Version 2004 (Updated November 2021) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790763.jpg" />
 </div>
 
 
@@ -198,7 +224,7 @@ Microsoft Windows 10.0.19043.1348, Version 21H1 (Updated November 2021) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790742.jpg" />
 </div>
 
 
@@ -227,7 +253,7 @@ Microsoft Windows 10.0.19042.1348, Version 20H2 (Updated November 2021) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790733.jpg" />
 </div>
 
 
@@ -256,7 +282,7 @@ Windows Server, Version 20H2 (10.0.19042.1348) (Updated November 2021) - Ори�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790730.jpg" />
 </div>
 
 
@@ -282,7 +308,7 @@ Microsoft Windows 10.0.19041.1348, Version 2004 (Updated November 2021) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790729.jpg" />
 </div>
 
 
@@ -311,7 +337,7 @@ Microsoft Windows 11 [10.0.22000.318], Version 21H2 (Updated November 2021) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790718.jpg" />
 </div>
 
 
@@ -337,7 +363,7 @@ Windows Server 2022 LTSC, Version 21H2 Build 20348.350 (Updated November 2021) �
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790716.jpg" />
 </div>
 
 
@@ -363,7 +389,7 @@ Microsoft Windows 10 IoT Enterprise, Version 21H2 - Оригинальные о�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790705.jpg" />
 </div>
 
 
@@ -389,7 +415,7 @@ Microsoft Windows 11 IoT Enterprise [10.0.22000.318] (Updated November 2021) - �
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790699.jpg" />
 </div>
 
 
@@ -415,7 +441,7 @@ Microsoft Windows 10.0.19043.1348, Version 21H1 (Updated November 2021) - Ори
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_790697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_790697.jpg" />
 </div>
 
 
@@ -444,7 +470,7 @@ Microsoft Windows 11 [10.0.22000.318], Version 21H2 (Updated November 2021) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790693.jpg" />
 </div>
 
 
@@ -470,7 +496,7 @@ Microsoft Windows 10 IoT Enterprise LTSC 2021, Version 21H2 - Оригиналь
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790689.jpg" />
 </div>
 
 
@@ -496,7 +522,7 @@ Microsoft Windows 10.0.19044.1288, Version 21H2 - Оригинальные об�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790106.jpg" />
 </div>
 
 
@@ -523,7 +549,7 @@ Microsoft Windows 10.0.17763.253 Version 1809 (January 2019 Update) - Ориги
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786921.jpg" />
 </div>
 
 
@@ -551,7 +577,7 @@ Microsoft Windows 10.0.17134.523 Version 1803 (January 2019 Update) - Ориги
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786919.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ Microsoft Windows 10.0.17134.523 Version 1803 (January 2019 Update) - Ориги
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786902.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ Microsoft Windows 10 Enterprise 10.0.15063.0 Version 1703 (Updated March 2017) -
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786417.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ Microsoft Windows 10 Education 10.0.15063.0 Version 1703 (Updated March 2017) - 
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786246.jpg" />
 </div>
 
 
@@ -659,7 +685,7 @@ Microsoft Windows 10 Home Single Language 10.0.15063.0 Version 1703 (Updated Mar
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786234.jpg" />
 </div>
 
 
@@ -670,33 +696,6 @@ Windows 10 — операционная система для персональ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EE2C623F621D90F36171A2934B0B51B5C9439C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390741   (782234) от 17.06.2020
-
-Microsoft Windows 10.0.17763.1282 Version 1809 (June 2020 Update) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 1809 Build 17763.1282.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49CC19DEE4468DD43E199546CE1D71C2576F8653
 ```
 
 https://mybot314.ru/tekegram_catalog/

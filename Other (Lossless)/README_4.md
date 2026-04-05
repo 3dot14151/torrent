@@ -1,3 +1,58 @@
+###  Публикация: 143074   (279028) от 24.11.2018
+
+Various Artists - Наши песни - Песни Победы (2001) [APE|lossless]<Военные песни>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Военные песниПродолжительность: 01:02:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9851A021B636A2C72DE7C8F2F7A1C572F908118E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189449   (266983) от 10.12.2017
+
+Kronos Quartet & Trio Da Kali - Ladilikan (2017) [FLAC|Lossless|tracks + .cue] <Mande Music, Chamber Music>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_266983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tita (06:54)
+02. Kanimba (04:39)
+03. Eh Ya Ye (04:51)
+04. Garaba Mama (03:02)(   Читать дальше...   )Жанр: Mande Music, Chamber MusicПродолжительность: 00:46:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:475C6494CC704769578CD300E060B3EC9F7AD2C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 504972   (260875) от 03.06.2012
 
 I.E.M. (The Incredible Expanding Mindfuck) - Untitled (Complete IEM) - 2010 [FLAC|Lossless] <Krautrock, Abstract, Psychedelic Rock, Experimental>
@@ -6,7 +61,7 @@ I.E.M. (The Incredible Expanding Mindfuck) - Untitled (Complete IEM) - 2010 [FLA
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260875.jpg" />
 </div>
 
 
@@ -36,7 +91,7 @@ No-Man - 18 albums (1993-2012) [FLAC/APE|Lossless] <Progressive Rock, Ambient, A
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260148.jpg" />
 </div>
 
 
@@ -70,7 +125,7 @@ CHAVEneeZ - Great Spirit (2006) [FLAC|Lossless]<Native American Ethno, New Age>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259588.jpg" />
 </div>
 
 
@@ -106,7 +161,7 @@ Subaudition - 2 albums (2006-2009) [APE/FLAC|Lossless] <Neofolk, Atmospheric Roc
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257395.jpg" />
 </div>
 
 
@@ -138,7 +193,7 @@ Empyrium - 6 albums (1995-2006) [FLAC|Lossless] <Neofolk, Doom/Folk/Symphonic Me
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257258.jpg" />
 </div>
 
 
@@ -173,7 +228,7 @@ Love Sessions – Love Sessions (2002) [FLAC|Lossless] <Acoustic, Ethereal, Neof
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256373.jpg" />
 </div>
 
 
@@ -208,7 +263,7 @@ Susheela Raman - 4 albums (2001-2007) [FLAC|Lossless] <World Music, Ethnic, Chil
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255778.jpg" />
 </div>
 
 
@@ -243,7 +298,7 @@ VA - Cтаринные русские романсы. Золотая колле�
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253475.jpg" />
 </div>
 
 
@@ -278,7 +333,7 @@ Paul Mauriat - Best Of France (1988) [FLAC|Lossless]<Instrumental, Easy Listenin
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252972.jpg" />
 </div>
 
 
@@ -313,7 +368,7 @@ Drayton Farley - Twenty On High (2023) [FLAC|Lossless|WEB-DL|tracks] <Folk, Worl
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249908.jpg" />
 </div>
 
 
@@ -342,7 +397,7 @@ Stormfagel - 3 albums (2005-2010) [FLAC|Lossless] <Neofolk, Martial Industrial, 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_249210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_249210.jpg" />
 </div>
 
 
@@ -377,7 +432,7 @@ David Lynch - 8 albums (1998-2011) [FLAC|Lossless] <Ambient, Alternative Rock, E
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_246615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_246615.jpg" />
 </div>
 
 
@@ -412,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239264.jpg" />
 </div>
 
 
@@ -441,7 +496,7 @@ ulk - Restoration Magic (2022) [FLAC|Lossless|WEB-DL|tracks] <Dungeon Synth>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237108.jpg" />
 </div>
 
 
@@ -470,7 +525,7 @@ VA - Arabic Music Playlist - The Best Arabica Chillout Tunes (2022) [FLAC|Lossle
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236915.jpg" />
 </div>
 
 
@@ -499,7 +554,7 @@ Peso Pluma - Genesis (Génesis) (2023) [FLAC|Lossless|WEB-DL|tracks] <Regional M
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235120.jpg" />
 </div>
 
 
@@ -528,7 +583,7 @@ VA - The Best Christmas Album In The World...Ever! (2020) [FLAC|Lossless|WEB-DL|
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228782.jpg" />
 </div>
 
 
@@ -557,7 +612,7 @@ Yanni - Live at The Acropolis (1994) [APE|Lossless|image + .cue] <New Age>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223407.jpg" />
 </div>
 
 
@@ -586,7 +641,7 @@ Two Steps From Hell - Two Steps From Heaven/SkyWorld (2012) /WEB/ [FLAC (tracks)
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219534.jpg" />
 </div>
 
 
@@ -621,7 +676,7 @@ VA - The Orient Collective: Echoes of the East (2023) [FLAC|Lossless|WEB-DL|trac
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205013.jpg" />
 </div>
 
 
@@ -650,7 +705,7 @@ VA - The Orient Collective: Oriental Expedition (2023) [FLAC|Lossless|WEB-DL|tra
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205011.jpg" />
 </div>
 
 
@@ -679,7 +734,7 @@ VA - The Orient Collective: Mystical Sounds of the East (2023) [FLAC|Lossless|WE
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193920.jpg" />
 </div>
 
 
@@ -708,7 +763,7 @@ VA - The Orient Collective: Mystica (2023) [FLAC|Lossless|WEB-DL|tracks] <World,
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193913.jpg" />
 </div>
 
 
@@ -737,7 +792,7 @@ VA - The Orient Collective: Melodic Ethnic Beats (2023) [FLAC|Lossless|WEB-DL|tr
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180169.jpg" />
 </div>
 
 
@@ -751,64 +806,6 @@ VA - The Orient Collective: Melodic Ethnic Beats (2023) [FLAC|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:638D67D18CE40A7F2589E0DDCE17300908839C31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666184   (180151) от 03.10.2023
-
-VA - The Orient Collective: Vimana (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hansonic - Streets of Khartoum (6:40)
-02. Ibrahim Babayev - Summer Memories (4:32)
-03. DaDa Sound Project - Obuada (6:55)
-04. 2 Sides Of Soul - Oriental Coffee (7:42)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:10:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF685A32DF8AA8E5105DCABEFB069D79EE72DC00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666235   (180112) от 03.10.2023
-
-VA - The Orient Collective: Ethereal Odyssey (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. FIN Project - Vision (JosSync Remix) (6:15)
-02. Ali Termos - Qartaba (5:38)
-03. Tamer ElDerini - Fagr (5:42)
-04. Kakura - Savannah (7:25)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:07:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BCD4FB9AC4E8D48B4ACA98A7AD6C4A6766E99FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

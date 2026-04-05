@@ -1,3 +1,58 @@
+###  Публикация: 1524785   (742356) от 17.01.2022
+
+MovieSherlock 6.3.5 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742356.jpg" />
+</div>
+
+
+###  Подробнее
+
+MovieSherlock - это все-в-одном YouTube-загрузчик и конвертер. Это позволяет вам искать, загружать и конвертировать фильмы YouTube. MovieSherlock позволяет загружать видео быстро, плавно и без потерь качества!
+MovieSherlock - это лучший способ получить видео на ваш Mac.
+MovieSherlock позволяет загружать любое видео с YouTube и конвертировать его на вашем Mac в высококачественное (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.01.2022Разработчик: © 2009-2021 Capibara Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F700AFB2AC3453DD2492F2571C688D7A3563DA6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021073   (742079) от 28.05.2016
+
+Fantastical 2.2.3 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742079.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fantastical 2 — продвинутый календарь-органайзер для Mac OS X
+Fantastical - приложение представляет собой календарь, располагающийся в строке меню, с возможностью добавления событий сопровождаемых звуками и сообщениями, без непосредственного доступа к приложению iCal, что несомненно удобно в процессе ежедневной работы.  Основным отличием от аналогичных программ такого (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 27 мая 2016Разработчик: Flexibits Inc.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский, Испанский, Итальянский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:824FA8C4D4A4BA96C1EAB3F04A51C015BB8A89F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1021255   (742069) от 28.05.2016
 
 Disk Map Analyzer 1.4 [En]
@@ -6,7 +61,7 @@ Disk Map Analyzer 1.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742069.jpg" />
 </div>
 
 
@@ -34,7 +89,7 @@ KeyKey 2.9 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741890.jpg" />
 </div>
 
 
@@ -62,7 +117,7 @@ Adobe Audition CC 2018 v11.1 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741692.jpg" />
 </div>
 
 
@@ -88,7 +143,7 @@ Adobe Muse CC 2018.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741625.jpg" />
 </div>
 
 
@@ -115,7 +170,7 @@ Browser Care 4.0.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741115.jpg" />
 </div>
 
 
@@ -144,7 +199,7 @@ Better Rename 10.17 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741113.jpg" />
 </div>
 
 
@@ -171,7 +226,7 @@ iFFmpeg v6.3.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740708.jpg" />
 </div>
 
 
@@ -197,7 +252,7 @@ DjVu Reader FS 2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740507.jpg" />
 </div>
 
 
@@ -226,7 +281,7 @@ Ableton Live Suite 9.7.2 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740493.jpg" />
 </div>
 
 
@@ -254,7 +309,7 @@ TableEdit Pro 1.3.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740186.jpg" />
 </div>
 
 
@@ -282,7 +337,7 @@ EzeeGD 2.1.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739902.jpg" />
 </div>
 
 
@@ -308,7 +363,7 @@ ShowPass - пароль за звездочками 1.1.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739777.jpg" />
 </div>
 
 
@@ -334,7 +389,7 @@ iSkysoft Data Recovery 4.2.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739560.jpg" />
 </div>
 
 
@@ -360,7 +415,7 @@ Recordia 2.3.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739138.jpg" />
 </div>
 
 
@@ -386,7 +441,7 @@ WinX DVD Ripper for Mac 6.6.2 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739129.jpg" />
 </div>
 
 
@@ -412,7 +467,7 @@ NCH Switch Plus 9.45 [De]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739121.jpg" />
 </div>
 
 
@@ -439,7 +494,7 @@ VisualDiffer 1.8.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739107.jpg" />
 </div>
 
 
@@ -466,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739080.jpg" />
 </div>
 
 
@@ -493,7 +548,7 @@ AnyMP4 Audio Recorder for Mac 1.0.10 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739076.jpg" />
 </div>
 
 
@@ -519,7 +574,7 @@ OmniGraffle Pro 7 v7.19.3 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739069.jpg" />
 </div>
 
 
@@ -545,7 +600,7 @@ Screenshot Editor 2.3.3 fix [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738813.jpg" />
 </div>
 
 
@@ -571,7 +626,7 @@ PDF to Pages Converter 6.2.1 fix [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738808.jpg" />
 </div>
 
 
@@ -597,7 +652,7 @@ PDF to Numbers Converter 6.2.1 fix [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738805.jpg" />
 </div>
 
 
@@ -623,7 +678,7 @@ PDF Converter Master 6.2.1 fix [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738804.jpg" />
 </div>
 
 
@@ -635,58 +690,6 @@ PDF Converter Master, мощный, легкий в использовании. 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED2A5360D9989EC8920BEE27C3FF0137151B76E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526182   (738802) от 23.01.2022
-
-Compress PDF 2.0.0 fix [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738802.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDF-файл может быть очень большим, если он содержит много изображений в оригинальном качестве. Мы хотели бы сохранить документы, такие как брошюра о продукте, руководство пользователя, отчеты, предложения или другие, в виде файла PDF для распространения. Но вы не хотите размещать руководство пользователя объемом 50 МБ в формате PDF на своем веб-сайте или отправлять (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.10.2021Разработчик: Lighten Software Limited.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7034FFA3A2E5196074CAB05AB1AC81B3F73FC987
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526219   (738797) от 23.01.2022
-
-VideoSolo DVD Copy 1.0.18 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738797.jpg" />
-</div>
-
-
-###  Подробнее
-
-VideoSolo DVD Copy — это быстрое и простое в использовании программное обеспечение для копирования DVD, позволяющее копировать DVD-фильмы на DVD в соотношении 1:1, сжимать DVD-9 в DVD-5, копировать DVD в папку DVD или файл образа ISO в идеальном качестве. Помимо функции резервного копирования DVD, он также может записывать локальные папки DVD или файлы образов ISO (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.12.2022Разработчик: © 2022 VideoSoloПоддерживаемая ОС: macOS 10.5+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24DA63644F8BE575CC7949D5F784CD22A4F1F951
 ```
 
 https://mybot314.ru/tekegram_catalog/

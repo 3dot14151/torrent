@@ -1,3 +1,32 @@
+###  Публикация: 1442407   (1036493) от 25.01.2021
+
+Udemy, Maximilian Schwarzmuller | React - The Complete Guide (incl Hooks, React Router, Redux) (2021) PCRec [En /En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036493.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс полностью обновлен до последней версии React и включает в себя React Hooks! Конечно, в будущем он будет обновляться.
+
+О чем этот курс?
+Изучите React или погрузитесь в него глубже. Изучите теорию, решайте задания, практикуйтесь в демонстрационных проектах и ​​создайте одно большое приложение, которое улучшается на протяжении всего курса: The (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглйискийПродолжительность: 38:31:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAE56EA210072F116FCCF811C03867BFF05BCC6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442457   (1036471) от 25.01.2021
 
 Udemy, Alex Cordebard | Ультимативный курс по скульптингу в Blender 2.83 и 2.90 / The Ultimate Blender 3D Sculpting Course (2020) PCRec [EN / EN Sub]
@@ -6,7 +35,7 @@ Udemy, Alex Cordebard | Ультимативный курс по скульпт�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036471.jpg" />
 </div>
 
 
@@ -33,7 +62,7 @@ Udemy, Алекс Маршал | Golang для начинающих (2021) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036464.jpg" />
 </div>
 
 
@@ -62,7 +91,7 @@ John Moncrief | Introduction to Particles in Houdini (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036284.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ Coursera, Indranil Gupta | Cloud Computing Concepts, Part 1-2 (2020) PCRec [En /
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036273.jpg" />
 </div>
 
 
@@ -117,7 +146,7 @@ Jonathan Lampel | Normal Map Modeling for Games (2017) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036241.jpg" />
 </div>
 
 
@@ -143,7 +172,7 @@ Alex Jerjomin | Sculpting a Stylized Axe in ZBrush (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036228.jpg" />
 </div>
 
 
@@ -171,7 +200,7 @@ Patrick Gladys | Creating Game-Ready Vegetation (2019) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036223.jpg" />
 </div>
 
 
@@ -199,7 +228,7 @@ Coding Ninjas | Java Foundation with Data Structures & Algorithms (2020) PCRec [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036207.jpg" />
 </div>
 
 
@@ -226,7 +255,7 @@ Udemy, Chad Darby | Spring & Hibernate for Beginners (includes Spring Boot) (202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036171.jpg" />
 </div>
 
 
@@ -254,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035989.jpg" />
 </div>
 
 
@@ -281,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035986.jpg" />
 </div>
 
 
@@ -307,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035950.jpg" />
 </div>
 
 
@@ -335,7 +364,7 @@ Paris Christou | How to Draw Cartoon Animals (2013) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035947.jpg" />
 </div>
 
 
@@ -361,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035940.jpg" />
 </div>
 
 
@@ -390,7 +419,7 @@ Udemy, Joseph Delgadillo и др. | The Complete Full-Stack JavaScript Course! (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035932.jpg" />
 </div>
 
 
@@ -417,7 +446,7 @@ Convertmonster | Seo-оптимизатор, специалист по рабо�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035930.jpg" />
 </div>
 
 
@@ -444,7 +473,7 @@ CartoonSmart | Tradigital Animation: 2D FX (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035927.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Marc Brunet | Painting Character Portraits (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035915.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035912.jpg" />
 </div>
 
 
@@ -522,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035911.jpg" />
 </div>
 
 
@@ -551,7 +580,7 @@ Aaron Sorkin | Уроки сценарного мастерства с Ааро�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035909.jpg" />
 </div>
 
 
@@ -578,7 +607,7 @@ Marc Brunet | 3D Hand-painted Character For Games (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035902.jpg" />
 </div>
 
 
@@ -606,7 +635,7 @@ Gumroad, Josh Gambrell, Ponte Ryuurui | Дизайн окружения от А 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035901.jpg" />
 </div>
 
 
@@ -633,7 +662,7 @@ Patreon, Ian Hubert | Уроки с сайта Patreon по 3D моделиро�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035899.jpg" />
 </div>
 
 
@@ -660,7 +689,7 @@ Udemy, Dr. Angela Yu | iOS 13 и Swift 5 - Полное руководство �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035890.jpg" />
 </div>
 
 
@@ -672,35 +701,6 @@ Udemy, Dr. Angela Yu | iOS 13 и Swift 5 - Полное руководство �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C05D8D5AF7C11679F5DCAD442B4C4C12C066555
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443061   (1035886) от 27.01.2021
-
-Григoрий Коченoв | Курс графического дизайна: композиция, цвет, типографика (2017) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знание основ графического дизайна сейчас - это не удел дизайнера, а базовые требование рынка. Сегодня важно уметь выражать свои идеи в графике. Понимать типографику, уметь выстраивать композицию. Мы с Вами разберем основы и заложим фундапмент для будущего роста.
-
-Содержание:
-1 Основы композиции(   Читать дальше...   )Жанр: ВидеокурсыПродолжительность: ~06:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51F76B65A26DEFFF20F2DEFC16AEBF7B7F6D7031
 ```
 
 https://mybot314.ru/tekegram_catalog/

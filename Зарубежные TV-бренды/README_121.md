@@ -6,7 +6,7 @@ Animal Planet: Живой или вымерший. Флоридский черн
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63636.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Animal Planet: Дом для рептилий. Агамы Дикого Запа�
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63623.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Animal Planet. Природа Ближнего Востока / Wildest Middle E
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63621.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Animal Planet: Дом для рептилий. Дино-террариум / Sca
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63614.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Animal Planet. Собаковедение: Новые истории / DOGS 101 
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63608.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ BBC Horizon. Какой длины верёвка? / How long is a piece of stri
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63564.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ BBC. Горы - жизнь над облаками / Mountains: Life Above The C
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63556.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Animal Planet: То, что не видно вооруженным глазом 
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63552.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ BBC horizon. Как видеоигры влияют на нашу жизнь? / 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63544.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ BBC. Horizon. Как перестать тревожиться и стать с�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63541.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63534.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ BBC. Вена - столица империи / Vienna: Empire, Dynasty and Drea
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63470.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ BBC. Экспедиция в Бирму / Expedition Burma (2011) BDRemux [H.264
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63452.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ BBC. Эттенборо и морской дракон / Attenborough and the Se
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63449.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ BBC: 80 Лучших садов мира / Around the World in 80 Gardens (2008)
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63436.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ BBC: 80 Чудес света (Вокруг света за 80 сокровищ�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63364.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ BBC. Шедевры мировой архитектуры / Adventures in Archit
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63337.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ BBC: Великий рифт. Дикое сердце Африки / Great Rift:
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63225.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ BBC: Величайшие явления природы / Nature's Great Events 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63137.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ BBC: Атлантида была здесь (Свидетельства Атла
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63105.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ BBC: Вивисекция. Как устроены насекомые / Insect D
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63051.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ BBC: Horizon. В поисках бессмертия / The Immortalist (2016) HD
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62995.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ BBC. Секс и чувственность: искусство модерн / S
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62941.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ BBC: Horizon. Таинственные сигналы из космическо�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62933.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ BBC: Всемирная история живописи / Sister Wendy's Story o
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62922.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ NG. Последствия: Нулевое население / Aftermath: Popul
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62919.jpg" />
 </div>
 
 

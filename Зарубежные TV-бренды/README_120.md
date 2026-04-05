@@ -6,7 +6,7 @@ BBC: Век эгоизма. Часть 4 – Вся власть Хомячка�
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86992.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ NG: Забытый соперник Египта / Egypt's lost rival (2010) IPT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86558.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85393.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ BBC. Horizon: Тайная жизнь собак / The secret life of the dog (2
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85308.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85157.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84473.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ NG: Гибель морского монстра / Death of a Sea Monster (2010)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82450.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82063.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ BBC: Загадки истории. Век полетов: Легенды мир
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82023.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Animal Planet: Нашествие саранчи: Насекомые, сожра
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81688.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ BBC: Век эгоизма. Часть 3 – В твоей голове сиди
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81679.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81669.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81616.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81397.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ NG: Суперсооружения: Мегазаводы. Суперавтомо
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80994.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80218.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ BBC: Величайшие явления природы / Nature's Great Events 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80184.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Одиссея Жака Кусто
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79664.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ National Geographic Special: Суперкошки / National Geographic Special:
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79548.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ NG: Путешествие на край Вселенной / Journey to the Edg
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79212.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Nat Geo Wild: Болотные львы / Swamp Lions (2011) HDTVRip [720p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79153.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Nat Geo Wild: Возвращение дымчатых леопардов / Retur
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76498.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ BBC: Век эгоизма. Часть 2 – Конструирование со
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75683.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63918.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Animal Planet: Заповедная Аляска / Into Alaska (2018) HDTV [H.26
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63671.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Animal Planet: Жуткие, настоящие и странные / Weird, Tru
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63642.jpg" />
 </div>
 
 

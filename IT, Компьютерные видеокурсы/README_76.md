@@ -1,32 +1,3 @@
-###  Публикация: 1567821   (243660) от 04.08.2022
-
-Никита Строков | Адекватный директ (2021) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243660.jpg" />
-</div>
-
-
-###  Подробнее
-
-На курсе я расскажу, как:
-
-Запускать рабочие рекламные кампании за 5-6 дней
-Вести кампании и сокращать цену заявки в 2-5 раз(   Читать дальше...   )Жанр: Яндекс ДиректЯзык озвучки: РусскийПродолжительность: 19:25:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88A988B2DAD2C08DF8D8AD92FEB3B126B77698A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1572911   (238425) от 29.08.2022
 
 Zero To Mastery Academy (ZTM), Aleksa Tamburkovski | Complete Cybersecurity Bootcamp  (2022) WEB-DL [EN]
@@ -35,7 +6,7 @@ Zero To Mastery Academy (ZTM), Aleksa Tamburkovski | Complete Cybersecurity Boot
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238425.jpg" />
 </div>
 
 
@@ -61,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236966.jpg" />
 </div>
 
 
@@ -89,7 +60,7 @@ Cyberband Academy | Полное погружение в No-code (2021) WEB-DL [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236910.jpg" />
 </div>
 
 
@@ -117,7 +88,7 @@ DesignCourse, Gary Simon | Kickstart your UI/UX Design Career (2022) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236838.jpg" />
 </div>
 
 
@@ -146,7 +117,7 @@ OTUS, Сергей Караткевич и др. | SRE практики и ин�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236748.jpg" />
 </div>
 
 
@@ -172,7 +143,7 @@ Udemy, Антон Трунович | Основы информационной �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236608.jpg" />
 </div>
 
 
@@ -198,7 +169,7 @@ Udemy, Andrei Dumitrescu | Linux Administration: The Complete Linux Bootcamp for
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236583.jpg" />
 </div>
 
 
@@ -224,7 +195,7 @@ Udemy, Md. A. Barik | LeetCode in Java: Algorithms Coding Interview Questions (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236313.jpg" />
 </div>
 
 
@@ -250,7 +221,7 @@ Udemy, Aleksey Zhadan, Лев Мотовских | AWS. Обучение раб�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236045.jpg" />
 </div>
 
 
@@ -276,7 +247,7 @@ Udemy, Andrii Polishchuk | React Hooks в Деталях (2021) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236011.jpg" />
 </div>
 
 
@@ -302,7 +273,7 @@ Udemy, Maria Brodskaya | Тестирование ПО для начинающи
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235994.jpg" />
 </div>
 
 
@@ -328,7 +299,7 @@ Udemy, Sergey Dragunov | Android Studio и Firebase - "Доска Объявле
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235953.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ JUG Ru Group | TechTrain 2022 Spring. Фестиваль для разработ
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235580.jpg" />
 </div>
 
 
@@ -380,7 +351,7 @@ Udemy, Миша Пискунов | Андроид приложение от ди
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235512.jpg" />
 </div>
 
 
@@ -409,7 +380,7 @@ JUG Ru Group | Mobius 2022 Spring. Конференция по мобильно�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235468.jpg" />
 </div>
 
 
@@ -437,7 +408,7 @@ Udemy, Evgeny Novikov | Создание фреймворка и автомат�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235395.jpg" />
 </div>
 
 
@@ -463,7 +434,7 @@ Udemy, Bhrugen Patel, Andrei Brizhak | .NET Core Microservices - Полное р
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235291.jpg" />
 </div>
 
 
@@ -490,7 +461,7 @@ Udemy, Oleg Novikov | Сайт на Django 3. Сервис по сбору да�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235273.jpg" />
 </div>
 
 
@@ -516,7 +487,7 @@ Udemy, Дмитрий Читалов | Создаем Telegram бот - мага
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235238.jpg" />
 </div>
 
 
@@ -542,7 +513,7 @@ JUG Ru Group | HolyJS 2022 Spring. Конференция для JavaScript‑р
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235187.jpg" />
 </div>
 
 
@@ -570,7 +541,7 @@ Fulltimegamedev, Thomas Brush | Full Time Game Dev (2020) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235150.jpg" />
 </div>
 
 
@@ -597,7 +568,7 @@ JUG Ru Group | DotNext 2022 Spring. Конференция для .NET‑раз�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235115.jpg" />
 </div>
 
 
@@ -626,7 +597,7 @@ Udemy, John Purcell | Java 11 For Complete Beginners (2020) WEB-DL [EN / EN Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234996.jpg" />
 </div>
 
 
@@ -652,7 +623,7 @@ JUG Ru Group | C++ Russia 2022. Конференция для C++ разрабо
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234985.jpg" />
 </div>
 
 
@@ -678,7 +649,7 @@ Jeff Delaney | Dart 101 (2021) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_234877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_234877.jpg" />
 </div>
 
 
@@ -692,6 +663,34 @@ Jeff Delaney | Dart 101 (2021) WEB-DL [EN]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19259603DC35F68A22B14F8DDDFFA8EAFA0D701B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551462   (234842) от 16.05.2022
+
+Udemy, Anthony Alicea | JavaScript: Understanding the Weird Parts (2022) WEB-DL [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Расширенный курс JavaScript для всех! Scope, closures, prototypes, 'this', построение собственного фреймворка и многое другое.
+Javascript - это язык, который современные разработчики должны знать хорошо. Поистине зная Javascript, вы получите работу и сможете создавать качественные веб-и серверные приложения.
+В этом курсе вы получите глубокое понимание Javascript, (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 12:10:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BFF610166AB4187E6F53278FF6DCFAB0C7A9347
 ```
 
 https://mybot314.ru/tekegram_catalog/

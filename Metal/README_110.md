@@ -6,7 +6,7 @@ Bloodbound - The Tales of Nosferatu: Two Decades of Blood (2004 - 2024) (2024) L
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110034.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Anette Olzon - Rapture (2024) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109898.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Crownshift - Crownshift (2024) [MP3|320 Kbps] <Melodic Death Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109875.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ It Will Last - Mankind (2024) [MP3|320 Kbps] <Progressive Metal, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109732.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Pain - I Am (2024) [MP3|320 Kbps] <Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109502.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Castle Rat - Into The Realm (2024) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109474.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Demon - Invincible (2024) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109449.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Night Hearth - La noche de los sueños perdidos (2024) [MP3|320 Kbps] <Power Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109422.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Combichrist - CMBCRST (2024) [MP3|320 Kbps] <Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109271.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Combichrist - History of Madness (Live at Complex, L.A.) (2016) [MP3|320kbps] <I
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109259.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Domination - Echoes Of Persecution (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109004.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Battle Symphony - The Empire Of God (2024) [MP3|~245 Kbps (V0)] <Symphonic Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108987.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Skeletal Throne - Barbaric Torment (2023) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108979.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Methodica - Hypocricity (2024) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108729.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Kalad - Arkamine (2024) [MP3|320 Kbps] <Modern Metal, Symphonic Metal, Female Vo
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108703.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Hell Riders - Rising Phoenix (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108702.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Rhapsody of Fire - Challenge the Wind (2024) [MP3|320 Kbps] <Symphonic Power Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108659.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Tormentor Bestial - Eternal Nightmare (2024) [MP3|320 Kbps] <Thrash Metal, Heavy
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108653.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Thirsty Zombie - Dead But Still...Drunk!! (2024) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108624.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Evil - Arktogäa (2006) [MP3|~245 Kbps (V0)] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108599.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Dreamcarnation - Dreamcarnation (2024) [MP3|320 Kbps] <Progressive, Symphonic Ro
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108391.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Duality - Elektron (2016) [MP3|320 Kbps] <Death Metal, Progressive Metal, Experi
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108377.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Spleen - Dead Creature (2024) [MP3|320 Kbps] <Progressive Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108370.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Endangered Reign - The Forester Awakens (2024) [MP3|320 Kbps] <Power, Progressiv
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108226.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Escarlathia - Escarlathia (2024) [MP3|320 Kbps] <Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108186.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Haldun Lenger - Chaos War (2024) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108183.jpg" />
 </div>
 
 

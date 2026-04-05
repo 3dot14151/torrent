@@ -1,81 +1,3 @@
-###  Публикация: 910821   (619491) от 21.06.2015
-
-Подмена (Кара небесная) / Switch (1991) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619491.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стив Брукс, сердцеед и соблазнитель женщин, отправляясь на очередную вечеринку, не знал, что погибнет от рук своих любимиц и на следующий день превратится в эффектную блондинку. Теперь, чтобы не попасть в ад, он должен понравиться хотя бы одному человеку…Производство: США, Beco Films, Cinema Plus, Home Box OfficeЖанр: Комедия, ФэнтезиРежиссер: Блейк ЭдвардсАктеры: Эллен Баркин, Джимми Смитс, ДжоБет Уильямс, Лоррейн Бракко, Тони Робертс, Перри Кинг, Брюс Пэйн, Лизетт Энтони, Виктория Махони, Бэзил ХоффманПеревод: Дублированный, многоголосый закадровый х3, авторский х2Язык субтитров: Испанский, английский,
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A570D84CEA797CDE4B88EAE66494E1F5BA86473B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910878   (619404) от 21.06.2015
-
-Kingsman: Секретная служба / Kingsman: The Secret Service (2014) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эггси — молодой парень, который прошел службу в морской пехоте и имеет очень высокий уровень интеллекта. Он мог бы добиться многого, но выбрал другой путь и стал мелким преступником. Однажды он знакомится с Гарри Хартом, которому его отец когда-то спас жизнь. Этот человек решил сделать все возможное, чтобы сделать жизнь Эггси лучше и открыть для него новые возможности. (   Читать дальше...   )Производство: Великобритания / 20th Century Fox Film Corporation, Marv Films, TSG EntertainmentЖанр: Боевик, комедия, криминал, приключенияРежиссер: Мэттью ВонАктеры: Тэрон Эджертон, Колин Фёрт, Сэмюэл Л. Джексон, Марк Стронг, Софи Куксон, Майкл Кейн, София Бутелла, Саманта Янус, Джофф Белл, Марк ХэмиллПеревод: Дублированный (лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Английский, испанский, русский, эстонский, латышский, литовский, украинскийПродолжительность: 02:03:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8BC84203257D9C49B0377B18526E6DFC9A65951
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 803564   (618866) от 10.07.2014
-
-Обжора / L'outremangeur (2003) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618866.jpg" />
-</div>
-
-
-###  Подробнее
-
-160 килограммов веса, упрямство быка и поразительная интуиция делают комиссара Селену грозным защитником закона и порядка на улицах Марселя. Но есть тайный враг, против которого этот гений сыска бессилен - неудержимое чревоугодничество... Расследуя убийство влиятельного судовладельца, Селена влюбляется в Эльзу, юную племянницу убитого. Поняв, что в преступлении повинна (   Читать дальше...   )Производство: Франция, Film Par FilmЖанр: Драма, мелодрама, криминал, детективРежиссер: Тьерри Бинисти/Thierry BinistiАктеры: Эрик Кантона, Рашида Бракни, Каролин Сиоль, Ришар Боренже, Жослин Киврен, Жан-Мишель Нуари, Юбер Сен-Макари, Валери Месса, Люсьен Жан-Батист, Ричард Гуеди, Эрик Аверлан, Эммануэль Бариллей, Арман Бинисти, Жан-Люк Боссо, Микаэль ШишПеревод: Профессиональный (двухголосый, закадровый)Язык субтитров: РусскийПродолжительность: 01:26:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:601E2C34DEE9F9F1E89AA34C975F01489E355C2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1230185   (618796) от 10.06.2018
 
 Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) DVD9
@@ -84,7 +6,7 @@ Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) DVD9
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618796.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618587.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_618534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_618534.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618464.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618460.jpg" />
 </div>
 
 
@@ -214,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618453.jpg" />
 </div>
 
 
@@ -240,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_618183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_618183.jpg" />
 </div>
 
 
@@ -266,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_618176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_618176.jpg" />
 </div>
 
 
@@ -292,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616984.jpg" />
 </div>
 
 
@@ -318,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_616179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_616179.jpg" />
 </div>
 
 
@@ -344,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_616101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_616101.jpg" />
 </div>
 
 
@@ -370,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615036.jpg" />
 </div>
 
 
@@ -396,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_613510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_613510.jpg" />
 </div>
 
 
@@ -422,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613294.jpg" />
 </div>
 
 
@@ -449,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_612763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_612763.jpg" />
 </div>
 
 
@@ -475,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_612703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_612703.jpg" />
 </div>
 
 
@@ -501,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_612702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_612702.jpg" />
 </div>
 
 
@@ -527,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_612041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_612041.jpg" />
 </div>
 
 
@@ -553,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_611898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_611898.jpg" />
 </div>
 
 
@@ -579,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611667.jpg" />
 </div>
 
 
@@ -605,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_611578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_611578.jpg" />
 </div>
 
 
@@ -631,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611524.jpg" />
 </div>
 
 
@@ -657,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611299.jpg" />
 </div>
 
 
@@ -668,6 +590,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85EB1145BA8DE49A1805AA1012F5ACAA7E792754
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 524987   (610649) от 19.07.2012
+
+Напролом / Lockout [UNRATED] (2012) DVD5 [BD -> DVD]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_610649.jpg" />
+</div>
+
+
+###  Подробнее
+
+Орбитальная станция MS1 — крупнейшая космическая тюрьма, где в анабиозе содержатся тысячи опасных преступников. Ходят слухи, что над погруженными в искусственный сон узниками проводятся противозаконные эксперименты. С расследованием на станцию отправлена комиссия во главе с Эмили Уорнок, дочерью президента США.
+Неожиданно ситуация выходит из-под контроля, и вся станция (   Читать дальше...   )Производство: ФранцияЖанр: Фантастика, Боевик, ТриллерРежиссер: Джеймс Мэтер, Стивен Ст. ЛеджерАктеры: Гай Пирс, Мэгги Грэйс, Винсент Риган, Джозеф Гилган, Ленни Джеймс, Петер Стормаре, Джеки Идо, Тим Плестер, Энн-Соленн ХаттеПеревод: Дублированный, Одноголосый закадровый (ZameZ)Язык субтитров: РусскийПродолжительность: 01:31:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 525141   (609237) от 20.07.2012
+
+Переполох в общаге: Выпускной / American High School (2009) DVD5
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_609237.jpg" />
+</div>
+
+
+###  Подробнее
+
+За неделю до выпускного бала в колледже Гвен Адамс вынашивает план, как избавиться от семейных уз её молодого мужа Холдена. Гвен вышла замуж в отместку своей извечной сопернице Хиллари, которая так же пыталась заманить Холдена в свои сети. Потерпев неудачу, Хиллари пытается помешать Гвен стать королевой красоты, не гнушаясь ничем.Жанр: КомедияРежиссер: Шон Патрик КэннонАктеры: Джиллиан Мюррэй, Талан Торрьеро, Обри О’Дэй, Мартин Клеббэ, Никки Шилер Зиринг, Брайан Дролет, Хойт Ричардс, Пэт Янкевич, Джеймс Э. Фоли, Алекс МеррелПеревод: Профессиональный (многоголосый)Язык субтитров: русскийПродолжительность: 01:23:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231168   (608546) от 16.06.2018
+
+Чужой: Завет / Alien: Covenant (2017) DVD5 [Custom]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608546.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время обследования удаленной планеты, расположенной на другой стороне галактики, экипаж колониального корабля «Завет» обнаруживает, что то, что они изначально приняли за неизведанный рай, на самом деле — тёмный и опасный мир. Его единственный житель — синтетический андроид Дэвид, оставшийся в живых после обреченной экспедиционной миссии «Прометей».Производство: США, Великобритания / 20th Century Fox Film Corporation, TSG Entertainment, Scott Free Productions, Brandywine Productions Ltd.Жанр: Ужасы, фантастика, триллерРежиссер: Ридли СкоттАктеры: Майкл Фассбендер, Кэтрин Уотерстон, Билли Крадап, Дэнни МакБрайд, Демиан Бишир, Кармен Эджого, Джусси Смоллетт, Калли Эрнандес, Эми Саймец, Натаниель ДинПеревод: Дублированный (лицензия)Субтитры: Русские, английские, испанские, эстонские, латышские, литовские, украинскиеПродолжительность: 01:57:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:280B6FE0EDE2117844E266BD2EA1753B656F9A21
 ```
 
 https://mybot314.ru/tekegram_catalog/

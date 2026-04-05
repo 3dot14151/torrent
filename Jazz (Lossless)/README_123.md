@@ -6,7 +6,7 @@ Laurindo Almeida & Baden Powell - Brasil Guitar Magic! (1999) [FLAC|Lossless]<Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_643736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_643736.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ Sofia Finnila - Everything I Love (2008) [FLAC|Lossless]<Jazz, Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643703.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ Duke Ellington - Meets Coleman Hawkins And John Coltrane (2011) [FLAC|Lossless]<
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643698.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ Sonny Stitt - Kaleidoscope (1950 - 1952) 1992, Original Jazz Classics [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643388.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Sonny Clark Trio - The 1960 Time Sessions (2018) 2CD, Tompkins Square [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643385.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Django Reinhardt - 1942 - 1943 (1996) Classics [FLAC|Lossless|tracks + .cue] <Sw
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643378.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Greg Abate - Straight Ahead (1993) Candid [FLAC|Lossless|image + .cue] <Post-Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643244.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Kapok - Flatlands (2012) Kytopia [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643112.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Chick Corea - Rendezvous In New York (2003) 2CD, Stretch [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642980.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Marcus Miller - Renaissance (2012) Victor Entertainment [FLAC|Lossless]<Jazz, Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_642759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_642759.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Steve Smith - Viewpoint (2015) [FLAC|Lossless|WEB-DL|tracks] <Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642175.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Michele Hendricks - A Little Bit of Ella (2016) [FLAC|Lossless|WEB-DL|tracks] <V
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642173.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ VA - Jazz: Sexy Saxophones (2015) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641897.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Elvin Jones - Going Home (2005) [FLAC|Lossless]<Jazz, Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641855.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Will Downing - A Dream Fulfilled (2008) [FLAC|Lossless]<Jazz,  Funk, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641852.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Jazzpospolita - Impulse (2012) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_641263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_641263.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Budapest Ragtime Band - Annyi arc Ismeros  (2007) [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641223.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Bobby Short - Loves Cole Porter & Guess Who's in Town (1971, 1987) 2CD, 2001, Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641192.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Joe Wilder - The Pretty Sound & Jazz from 'Peter Gunn' (1959) 2003, Collectables
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641190.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ Artie Shaw and His Orchestra - 22 Original Big Band Hits (1938, 1939) 1987, Hind
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641182.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Terence Blanchard - The Comedian (2017) Blue Note [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641180.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Tommy Dorsey And His Orchestra - Big Band Bash (1935 - 1947) 1990, Giants Of Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641177.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Harry James & His Orchestra - You'll Never Know (1962 - 1969) 1995, Reader's Dig
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641079.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ Steve Lacy - Sortie + Disposability (1965, 1966) 2010, FreeFactory[FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640291.jpg" />
 </div>
 
 
@@ -718,7 +718,7 @@ Carles Denia - El Paradis De Les Paraules (2011) Comboi Records[FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640289.jpg" />
 </div>
 
 
@@ -747,7 +747,7 @@ Jack Teagarden - Father Of Jazz Trombone 1928-1947 (2004) 3CD, Avid Entertainmen
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640288.jpg" />
 </div>
 
 

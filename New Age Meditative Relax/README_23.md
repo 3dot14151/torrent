@@ -1,3 +1,38 @@
+###  Публикация: 208992   (314859) от 01.12.2012
+
+Jesse Cook - 11 albums (1995-2012) [MP3|320 кб/с]<New age, Flamenco, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314859.jpg" />
+</div>
+
+
+###  Подробнее
+
+(2:58) 01. I put a spell on you
+(3:19) 02. Broken Moon
+(3:00) 03. Witching hour
+(2:40) 04. Toybox
+(3:19) 05. Fields of blue
+(2:49) 06. Miles shorter
+(3:27) 07. Gone
+(4:16) 08. Ne me quitte pas
+(3:10) 09. Diminished
+(3:08) 10. The road(   Читать дальше...   )Жанр: New age, Flamenco, InstrumentalПродолжительность: 00:47:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5BCF0E63C3B0BF88930B22BEB2653681D2B62B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1260255   (314222) от 06.11.2018
 
 VA - For Women vol. 1-3 (2014-2016) [MP3|320 Kbps] <Ambient, Electronic, Instrumental, New Age>
@@ -6,7 +41,7 @@ VA - For Women vol. 1-3 (2014-2016) [MP3|320 Kbps] <Ambient, Electronic, Instrum
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314222.jpg" />
 </div>
 
 
@@ -35,7 +70,7 @@ VA - For Men vol. 1-3 (2014-2016) [MP3|320 Kbps] <Chillout, Electronic, Instrume
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314050.jpg" />
 </div>
 
 
@@ -64,7 +99,7 @@ VA - E-Energy vol. 1-16 (2014-2016) [MP3|320 Kbps] <Ambient, Chillout, Instrumen
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311837.jpg" />
 </div>
 
 
@@ -93,7 +128,7 @@ Jeff Smart - Super Moon (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310209.jpg" />
 </div>
 
 
@@ -122,7 +157,7 @@ Carolyn Southworth - By the Sea (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309289.jpg" />
 </div>
 
 
@@ -151,7 +186,7 @@ VA - 50 Awaited Peace of Mind: Music for Meditation (2016) [MP3|320 Kbps] <New A
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308863.jpg" />
 </div>
 
 
@@ -180,7 +215,7 @@ Pachuly & Friends - Collection (3 альбома) (2003-2013) [MP3|320 CBR ~245 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304167.jpg" />
 </div>
 
 
@@ -209,7 +244,7 @@ Tantric Massage Experts - Open New Erotic Feelings of Pleasure and Excitement (2
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304155.jpg" />
 </div>
 
 
@@ -238,7 +273,7 @@ VA - Spa Relaxation Ambient Music, Vol. 2 (2016) [MP3|320 Kbps] <Downtempo, Bale
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302838.jpg" />
 </div>
 
 
@@ -267,7 +302,7 @@ VA - Mystical Travel (2007) [MP3|320 Kbps] <Native american, Ethnic, World>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301377.jpg" />
 </div>
 
 
@@ -296,7 +331,7 @@ Mark Dwane - Astrology (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301079.jpg" />
 </div>
 
 
@@ -325,7 +360,7 @@ Astrocolor - Lit Up - Music for Christmas (2015) [MP3|320 кб/с]<New Age, Easy
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299087.jpg" />
 </div>
 
 
@@ -354,7 +389,7 @@ Llewellyn - Ancient Lands (2015) [MP3|320 кб/с]<New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298919.jpg" />
 </div>
 
 
@@ -383,7 +418,7 @@ VA - Sleep & Massage Music (2019) [MP3|320 Kbps] <New Age, Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298743.jpg" />
 </div>
 
 
@@ -412,7 +447,7 @@ Silent nook - С.О.М.А (2018) [MP3|320 Kbps] <Trip-Hop, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298681.jpg" />
 </div>
 
 
@@ -441,7 +476,7 @@ Sverre Knut Johansen - Antarctica (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298142.jpg" />
 </div>
 
 
@@ -470,7 +505,7 @@ VA - Calming Waterfall for Effective Study (2016) [MP3|320 Kbps] <Downtempo, Chi
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294381.jpg" />
 </div>
 
 
@@ -499,7 +534,7 @@ Fabrice Tonnellier - Chakras Relaxation (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294263.jpg" />
 </div>
 
 
@@ -528,7 +563,7 @@ VA - Ethereal Dreams, Vol. 1 (2015) [MP3|320 кб/с]<New Age, Electronic, Ambie
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293513.jpg" />
 </div>
 
 
@@ -557,7 +592,7 @@ VA - Ethereal Dreams Vol. 2 (2015) [MP3|320 кб/с]<New Age, Electronic, Ambien
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293504.jpg" />
 </div>
 
 
@@ -586,7 +621,7 @@ Llewellyn - Tantric Gold (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293491.jpg" />
 </div>
 
 
@@ -615,7 +650,7 @@ Andreas - Magickal Nights (2011) [MP3|320 кб/с]<New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291342.jpg" />
 </div>
 
 
@@ -644,7 +679,7 @@ Jean-Michel Jarre - Equinoxe Infinity (2018) [MP3|320 Kbps] <Ambient, New-Age, E
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291079.jpg" />
 </div>
 
 
@@ -673,7 +708,7 @@ Gregorian - The Platinum Collection (2017) [MP3|320 Kbps] <New Age, Medieval, Ot
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291022.jpg" />
 </div>
 
 
@@ -702,7 +737,7 @@ Karushanti - Celtic Traces (2017) [MP3|320 Kbps] <New Age, Celtic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289825.jpg" />
 </div>
 
 
@@ -716,39 +751,6 @@ Karushanti - Celtic Traces (2017) [MP3|320 Kbps] <New Age, Celtic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2EFDB2173AE41472B0FA48F2EA9662856037EE38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 379695   (289510) от 08.12.2014
-
-Kenio Fuke - 6 альбомов (2002-2013) [MP3|320 кб/с]<New age, Relax, Nature>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289510.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы:
-
-2002 - Musica, Natureza & Cia
-2010 - Melodias da Natureza, Vol. 2
-2011 - Relaxing Melodies of Nature
-2012 - Piano Impressions, Vol. 1
-2012 - Spirit Of Nature
-2013 - Piano Impressions, Vol. 2Жанр: New age, Relax, NatureПродолжительность: 05:26:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A901E234E9D555F8E4FC0C386DC3D0DC3FF46C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

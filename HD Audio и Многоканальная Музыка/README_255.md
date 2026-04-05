@@ -1,32 +1,3 @@
-###  Публикация: 1813321   (7035) от 18.08.2025
-
-Kai Craig - A Time Once Forgotten (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Namesake (4:57)
-02.  When You Dream (4:11)
-03.  Phantom of the Bopera (4:26)
-04.  Dry Stone (6:08)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27FE01AD6F54C516AECB5827104AB689CF9A50E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1813290   (7034) от 18.08.2025
 
 Aaron Searle - In Idle Hours (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
@@ -35,7 +6,7 @@ Aaron Searle - In Idle Hours (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7034.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ El Jetta - Monkeys Do What They See (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7033.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Byzantine - Studio Albums (8 releases) (2004-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7032.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Caden Morland - World Stays the Same (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7031.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Motiff - Heading for the Weekend (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7030.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Thurisaz - Studio Albums (6 releases) (2004-2020) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7028.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Firstborne - Lucky (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7027.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Harmonic Tension - Roxy Vaine Yin Yang (2025) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7026.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Colorado Jazz Repertory Orchestra - Golden Lady (2025) [FLAC 24/96|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7025.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Raz Louk - Knocked Out In Space (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7023.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Jade Vandal - You Don’t Understand Love (2025) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7019.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Inbar Fridman feat. Katia Toobool, Lior Ozeri & Yogev Gabay - Mercy (2025) [FLAC
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7018.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Rain Of Acid - Studio Albums (2 releases) (2011-2014) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6895.jpg" />
 </div>
 
 
@@ -410,7 +381,7 @@ AmongRuins - Studio Albums (3 releases) (2013-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6893.jpg" />
 </div>
 
 
@@ -438,7 +409,7 @@ Guns•N•Roses - Greatest Hits (2024) Compilation, Unofficial Release [FLAC 2.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6771.jpg" />
 </div>
 
 
@@ -467,7 +438,7 @@ Scar The Martyr - Scar The Martyr (2013) [FLAC 24/96|Lossless|WEB-DL|tracks] <He
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6748.jpg" />
 </div>
 
 
@@ -496,7 +467,7 @@ Kate Vargas - Golden Hour in the House of Lugosi (2025) [FLAC 24/48|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6610.jpg" />
 </div>
 
 
@@ -525,7 +496,7 @@ Dave Limina - Old Piano Blues (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6606.jpg" />
 </div>
 
 
@@ -554,7 +525,7 @@ Lava Saint - Grim Avenues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6597.jpg" />
 </div>
 
 
@@ -583,7 +554,7 @@ Jonathan Kasper - Turn Off the Machine (2025) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6590.jpg" />
 </div>
 
 
@@ -612,7 +583,7 @@ Knox Morgan - Loudspeaker (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6589.jpg" />
 </div>
 
 
@@ -641,7 +612,7 @@ Junior Vic Band - Let the Good Times Roll (2025) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6588.jpg" />
 </div>
 
 
@@ -670,7 +641,7 @@ Aisha Khan - Seven Shades of Blue Aisha Khan & the Rajahs (2025) [FLAC 24/48|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6587.jpg" />
 </div>
 
 
@@ -699,7 +670,7 @@ Last prophets - Time Moved Again (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6586.jpg" />
 </div>
 
 
@@ -728,7 +699,7 @@ Kellen Brixton - Mindstate (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6585.jpg" />
 </div>
 
 
@@ -742,6 +713,35 @@ Kellen Brixton - Mindstate (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A75A9132AAE9C9093C504439642A205170991877
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813776   (6584) от 21.08.2025
+
+Heaven Shall Burn - Studio Albums (11 releases) (1998-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal, Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Heaven Shall Burn - метал-группа из Тюрингии, Германия, образованная в 1996 году.1998 - In Battle... There Is No Law
+2000 - Asunder
+2002 - Whatever It May Take
+2004 - AntigoneЖанр: Melodic Death Metal, MetalcoreПродолжительность: 13:35:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E2A44239342F9A3F054D3F7B44BC05A1FB0357C
 ```
 
 https://mybot314.ru/tekegram_catalog/

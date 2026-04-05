@@ -1,32 +1,3 @@
-###  Публикация: 1666218   (177438) от 07.10.2023
-
-Telex - Telex I-III (2022-2023) [MP3|320 Kbps] <Disco, Synth-pop, House, Techno>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2022 - TELEX EP1
-2022 - TELEX EP2
-2023 - TELEX EP3Жанр: Disco, Synth-pop, House, TechnoПродолжительность: 3 CD, 01:07:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B66296CC0947E27760868E89205615DC62D3C2B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596486   (169169) от 11.12.2022
 
 Cyber Space - Magic Never Ends (2020) [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Synth-pop>
@@ -35,7 +6,7 @@ Cyber Space - Magic Never Ends (2020) [OGG Vorbis|480 Kbps] <Electronic, Italo-D
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169169.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Thermal Noise - 7 Albums (2018-2022) [MP3|320 Kbps] <Synthwave, Retrowave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165942.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ NEONIC - 2 Albums (2021-2022) [MP3|320 Kbps] <Synthwave, Darksynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159041.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - Space Holidays Vol. 11 (2019) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Synth
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159005.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Nina - Control (2020) EP [MP3|320 Kbps] <Synthpop, Synthwave, Retrowave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154578.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ VA - Space Holidays Vol. 10 (2018) 3CD [MP3|320 Kbps] <Spacesynth, Synth-pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147367.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ SZMC - Dark Energy - The Album (2018) [MP3|320 Kbps] <Spacesynth, Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145823.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ BELLATRIX - I Love KOTO - Covers and Remixes (2018) [MP3|320 Kbps] <Spacesynth, 
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145733.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ VA - Space Odyssey: New Year's Voyage 2019 (2018) 2CD [MP3|320 Kbps] <Spacesynth
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145693.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Daylight - 30 (2021) [MP3|320 Kbps] <Spacesynth, Dance-pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143926.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ VA - Space Odyssey. New Year's Voyage 2018 2CD (2017) [MP3|320 Kbps] <Spacesynth
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143751.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ VA - Space Holidays Vol. 13 (2021) 4CD [MP3|320 Kbps] <Synthpop, Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142025.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ VA - Space Holidays Vol. 7 (2015) 3CD [MP3|320 Kbps] <Synthpop, Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140800.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Everdune - Cyborg Nation (2021) [MP3|320 Kbps] <Spacesynth, Synthwave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140682.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Robert Parker - The Singles 2013-2015 (2015) [MP3|320 кб/с] <Synthpop, Synthw
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138649.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137578.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Tears For Fears - Hammersmith Odeon London 1983 (live) (2023) [MP3|320 Kbps] <Ne
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134905.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Knight Wolf 1981 - R.A.G.E. (2023) [MP3|320 Kbps] <Darksynth, Synthwave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126260.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ VA - Extend The 80s Electro (2018) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Synth
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125027.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ VA - Synth Radio Collection (2010-2015) [MP3|320 Kbps] <Electronic, Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123518.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Ray Orion - Sunshine 2024 (2024) [MP3|320 Kbps] <Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123303.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ VA - SpaceSynth.Ru presents: Special New Year's Voyage 2024 (2024) [MP3|320 Kbps
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123268.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ Pet Shop Boys - Format (B-Sides And Bonus Tracks 1996–2009) (2012) [OGG Vorbis
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121306.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ Laserdance - Discovery Trip (1989) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118958.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ Laserdance - Around The Planet (1988) [OGG Vorbis|480 Kbps] <Electronic, Spacesy
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118955.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ Laserdance - Around The Planet (1988) [OGG Vorbis|480 Kbps] <Electronic, Spacesy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D41F526634D89D9132DCE42476A8905107D6FA6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697397   (118929) от 06.02.2024
+
+Laserdance - Technological Mind (1992) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Warriors
+02.  Dead Star
+03.  New Adventure
+04.  Sky Orbit(   Читать дальше...   )Жанр: Electronic, Spacesynth, SynthpopПродолжительность: 00:55:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27C33DAAC8E9AE622427987DD24EEF4CFE79AA02
 ```
 
 https://mybot314.ru/tekegram_catalog/

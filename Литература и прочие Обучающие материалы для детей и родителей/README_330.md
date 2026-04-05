@@ -1,3 +1,56 @@
+###  Публикация: 1423540   (300241) от 13.11.2020
+
+Джилл Барклем | Сказки и истории Ежевичной поляны (2017) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джилл Барклем приглашает вас на Ежевичную поляну! Здесь, на другой стороне ручья, за полем, среди корней и в старых стволах деревьев живут милые мышки, с которыми происходят разные истории.
+Познакомьтесь с их друзьями, забирайтесь с ними в подземные ходы, проплывите на лодке, отправляйтесь в горы, находите таинственные потайные лестницы и весело встречайте праздники!Жанр: Детская литература/Сказки народов мираПеревод: Н. В. ВиноградоваФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCEDB3F0722D311D839D33576267938AE86DC110
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 730963   (300151) от 06.12.2013
+
+Анна Антонова | Бал под пальмами (2007) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Какая девчонка не мечтает попасть на самый настоящий бал? Аня тоже мечтала. Но не просто так – ведь ее танцевальная студия приехала на летние сборы в приморский лагерь. И скоро состоится главное событие смены – знаменитый "Бал под пальмами". Но пригласят на него только лучшие пары. К сожалению, партнер Ани далек от совершенства, а потому ни один танец у них не получается как надо… Девчонка уже почти потеряла надежду выступить на балу, когда в студии появился новый парень. Симпатичный, уверенный в себе, классный танцор! Вот только у него есть своя партнерша. Так что они просто идеальная пара. Или это только так кажется?..Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B0AA15B3AB9A499EB3F274101C9BDA465195375
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 731126   (299969) от 06.12.2013
 
 Л. Воронкова | Личное счастье (1961) [FB2]
@@ -6,7 +59,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299969.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299965.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299956.jpg" />
 </div>
 
 
@@ -89,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299955.jpg" />
 </div>
 
 
@@ -115,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299832.jpg" />
 </div>
 
 
@@ -141,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299687.jpg" />
 </div>
 
 
@@ -167,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299627.jpg" />
 </div>
 
 
@@ -193,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299569.jpg" />
 </div>
 
 
@@ -221,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299462.jpg" />
 </div>
 
 
@@ -247,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299438.jpg" />
 </div>
 
 
@@ -273,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299437.jpg" />
 </div>
 
 
@@ -302,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299432.jpg" />
 </div>
 
 
@@ -329,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299131.jpg" />
 </div>
 
 
@@ -355,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299119.jpg" />
 </div>
 
 
@@ -381,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299078.jpg" />
 </div>
 
 
@@ -407,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298953.jpg" />
 </div>
 
 
@@ -433,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298785.jpg" />
 </div>
 
 
@@ -459,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298723.jpg" />
 </div>
 
 
@@ -487,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298630.jpg" />
 </div>
 
 
@@ -513,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298561.jpg" />
 </div>
 
 
@@ -539,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298544.jpg" />
 </div>
 
 
@@ -565,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298450.jpg" />
 </div>
 
 
@@ -591,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298161.jpg" />
 </div>
 
 
@@ -617,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298159.jpg" />
 </div>
 
 
@@ -628,62 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9526403EB45766FB4FEA8C3C875B59B8DA574E2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078862   (298145) от 02.12.2016
-
-В.А. Хомутов | Рыбаки на Волге (1927) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298145.jpg" />
-</div>
-
-
-###  Подробнее
-
-— А что это значит «ловить на приколе?
-— Это я вам в другой раз расскажу, когда сами поедем ловить язей. А пока я хочу вам вообще рассказать об обстановке, в которой рыбная ловля производится, и как надо добиться успеха.
-— Да, да, Сергей Павлович! —обратился к Зотову Шурик Ильинский. — Вы еще в городе нам
-обещали рассказать, как надо рыбу ловить. Помните, вы нам (   Читать дальше...   )Жанр: Рассказы о рыбаках, Рыболовство любительскоеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AA7E45BBCAB5D58ED37C0F38BE88CD168AC7CDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078857   (298130) от 02.12.2016
-
-Д.И. Тихомиров | Школа грамотности (1887) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга для первоначального обучения русскому и церковно-славянскому чтению, письму и арифметике.
-Предназначается для школ грамотности, для домашнего обучения и для церковно-приходских школ.Жанр: Образование, обучение и развитие детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E10949E5FD048816A471591D366FC6A8A4214D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,297 +1,24 @@
-###  Публикация: 1679926   (134814) от 27.11.2023
+###  Публикация: 593418   (135418) от 23.12.2012
 
-FX Player Pro 3.7.2 Mod by maxi123444 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134814.jpg" />
-</div>
-
-
-###  Подробнее
-
-FX Player Pro - универсальный медиаплеер который станет весьма полезным на любом мобильном устройстве. Поддержка огромного количества форматов аудио и видео (MKV, RM, ACC PLUS, FLAC и прочие), определение субтитров, высокое качество выведения на экран, а так же удобное управление (возможность настройки действий, жестов и так далее присутствует в полном объёме) понравится (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 07.11.2023Разработчик: FIPE LabsПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0B36BF2EE0C4ADB03C0A97B2F9E7FADB0E9B1F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593615   (134813) от 24.12.2012
-
-VA - Зимняя вечеринка RuTV Русская 1 (2012) [MP3|128 кб/с]<Рор, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134813.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Дмитрий Маликов и Жанна Фриске - Падает Снег
-002. Ирина Дубцова и Стас Михайлов - Ты
-003. DJ Smash feat. T-killah & Los Devchatos - Магнит
-004. Artik & Asti feat. Джиган (Geegun) - О Тебе
-005. Вера Брежнева - Бессонница
-006. Юлия Войс - Ненавижу Любя
-007. KReeD - Старлетка
-008. Наталья Гордиенко - Киев-Гоа
-009. Время И Стекло - Гармошка
-010. Bahh Tee - Я НаверноеЖанр: Рор, DanceПродолжительность: 12:14:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FF0D8F64F3B2C7025BAAA95DC7E46131AE11203
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679863   (134812) от 27.11.2023
-
-AlDente Pro fo Mac 1.24 U2B [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134812.jpg" />
-</div>
-
-
-###  Подробнее
-
-Энтузиасты из Австрии создали небольшую, но полезную утилиту под названием AlDente. Она способствует более щадящему и эффективному использованию аккумуляторов любых MacBookТип издания: macOS SoftwareРелиз состоялся: 24.11.2023Разработчик: © 2023 AppHouseKitchenПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73C2F861A881DB58DAD905862BD1DFA19D3D766B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594002   (134811) от 24.12.2012
-
-Big cats wallpaper (24.12.12) [Wallpapers]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134811.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD97BA8C280E313E9D14386B9AD39CF11E5E7E3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679989   (134810) от 27.11.2023
-
-CareUEyes 2.2.10.0 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
+Softany WinCHM Pro 4.31 RePack by loginvovchyk [Русский]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135418.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Если вы проводите перед экраном компьютера по 8-12 часов в день, порой засиживаясь за клавиатурой допоздна, имеет смысл подумать о сохранении зрения. Поможет в этом деле программа CareUEyes.
-CareUEyes служит для изменения цветовой температуры и яркости изображения на экране компьютера, а кроме того способна напомнить пользователю о необходимости сделать перерыв и (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C87F8CF9882890AEED5DFAA507F293C1D0476D32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679882   (134809) от 27.11.2023
-
-Интернет-журнал | Домашняя лаборатория №11 (2023) [DJVU]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134809.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Домашняя лаборатория» - это весьма большой и увлекательный, научно-прикладной и образовательный, но некоммерческий интернет-журнал, созданный группой энтузиастов. Интернет-журнал содержит материалы, найденные в Интернет или написанные для Интернет. Основная тематика статей - то, что можно сделать самому, от садовых поделок до сверхпроводников, но есть и просто полезные (   Читать дальше...   )Жанр: Научно-популярный журналИздательство: Интернет-изданиеФормат: DJVUКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:852450C02EA9648C4B38BF4B8A6A487383B7475D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680066   (134808) от 27.11.2023
-
-Glary Utilities Pro 6.2.0.5 RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Glary Utilities - комплексный набор инструментов для эффективного увеличения производительности компьютера, а также повышения стабильности и защиты системы в целом. С помощью утилиты можно проводить очистку файлов от различного мусора, как например некорректные записи системного реестра и временные файлы Интернета, анализировать использование дискового пространства (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3D05E9FC0BB48396870A9A71FC56F573B49A0FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680055   (134807) от 27.11.2023
-
-Smart Launcher 6.3 build 036 Mod by derrin [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smart Launcher - лаунчер являющийся одним из самых лучших в своём сегменте за счёт качеств, возможностей и функционала, и как следствие, очень популярным у пользователей мобильных устройств, что предпочитают искать и находить альтернативы стандартному и далеко не идеальному варианту. Людям предлагается максимальное удобство управления, что выливается в возможность (   Читать дальше...   )Тип издания: Pro (Mod)Релиз состоялся: 14.11.2023Разработчик: Smart Launcher TeamПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA5B9D08774BACF2C5C4B4F62F6C8AAB7FAD630F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679777   (134806) от 27.11.2023
-
-Великие тайны и мифы XX века / Great Mysteries and Myths of the Twentieth Century (1996) TVRip (26 серий из 26)
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134806.jpg" />
-</div>
-
-
-###  Подробнее
-
-XX-ый век был особенно богат на загадочные события и мифических личностей, чей след в истории не сотрется никогдаПроизводство: Великобритания, Nugus/Martin Productions Ltd.Жанр: документальныйРежиссер: Филип Нагус, Джонатан МартинУчастники: Pierre Bouchardon, Амелия Эрхарт, Фред Хейс, Мата Хари, Арнольд Калле, Georges Ladoux, Чарльз Линдберг мл., Чарльз А. Линдберг, Джим Ловелл, Рудольф МаклеодПродолжительность: серии по ~00:24:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95E639385FEAC7DAA54263A2379AB12B3F4D0BA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679900   (134805) от 27.11.2023
-
-Старшая сестра (1966) DVDRip [H.264/1080p] [handmade upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сироты Лида и Надя долгое время жили на попечении своего дяди, который взял их на воспитание в детский дом. Дядя искренне мечтает о счастливой жизни для племянниц, и девочки, часто наперекор собственной судьбе, следуют его советам. Итак, старшая сестра – Надя – отказывается от своей мечты и делает все, чтобы стать самой юной актрисой, но спустя годы она все равно (   Читать дальше...   )Производство: СССР, МосфильмЖанр: драма, мелодрамаРежиссер: Георгий НатансонАктеры: Татьяна Доронина, Наталья Тенякова, Михаил Жаров, Виталий Соломин, Леонид Куравлёв, Валентина Шарыкина, Евгений Евстигнеев, Олег Басилашвили, Инна Чурикова, Софья ПилявскаяПеревод: не требуется (русский)Субтитры: отсутствуютПродолжительность: 01:36:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C664D57E996A2E13FEC499362C7C85AFD8752535
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593563   (134804) от 24.12.2012
-
-Bob James & Hilary James - Christmas Eyes (2008) [FLAC|Lossless]<Vocal Jazz, Smooth Jazz, Christmas>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_134804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christmas Eyes [03:58]
-02. Winter Wonderland [03:34]
-03. Bells Of Paradise [03:22]
-04. Silent Night [02:57]
-05. Mercy [05:37]
-06. A Star Was His Nightlight [03:56]
-07. On This Day (Personent Hodie) [04:50]
-08. The Little Drummer Boy [02:59]
-09. Ye Shepherds [03:22]
-10. Ballulalow [04:14](   Читать дальше...   )Жанр: Vocal Jazz, Smooth Jazz, ChristmasПродолжительность: 00:51:34
+WinCHM является удобной и мощной утилитой для создания справочных систем. Не обладая особыми знаниями, вы можете создавать профессиональные и хорошо выглядящие HTML-справки (CHM), веб-справки, PDF-инструкции и документы Word. Основные возможности программы: поддержка шаблонов; создание полноценных веб-справок (с содержанием,
+указателем, поиском и закладками); полноценный WYSIWYG-редактор HTML, не требующий
+установки стороннего ПО; редактирование готовых CHM-файлов; импорт HTML-файлов для
+быстрого добавления данных; поддержка содержания с иерархической структурой,
+смены иконок, мультивыбора; визуальный редактор CHM-файлов.
+
+(   Читать дальше...   )Название программы: Softany WinCHM ProЯзык интерфейса: Русский
 
 ## Скачать торент
 ```bash
@@ -303,28 +30,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679916   (134803) от 27.11.2023
+###  Публикация: 593446   (135416) от 23.12.2012
 
-Анна Эрман | Цвет в современном интерьере (2023) WEB-DL [AD] [EN]
+VA - Christmas in St. Moritz (Chilled Tunes For Relaxed X-Mas Days) (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
 
->>Обучающие видеоматериалы
->>Другие видеокурсы
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135416.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Приходилось ли вам чувствовать сомнения, когда вы видели внушительный по размеру веер с цветами для стен? А выбирать между светлым и таинственным темным? Или, может, ну его, и сделать нейтральный бежевый, чтобы точно не ошибиться?!
-
-А как выбрать цвет мебели? Наверное, это возможно, если изучить правила сочетаний оттенков?!
-(   Читать дальше...   )Жанр: Дизайн интерьераЯзык озвучки: РусскийПродолжительность: 02:26:47Реклама: Наложение на видео
+01. Marga Sol - My Dream (Original Mix)
+02. MoVoX - Nice Trip 09 (Original Mix)
+03. Minor Dreamer - D.O.N.T. (Original Mix)
+04. Lazy Hammock - One of Those Days (Original Mix)
+05. Pianochocolate - Zuzu (Original Mix)
+06. Paul Adam - Backwards (Original Mix)
+07. Bodean - Keep On Moving (Original Mix)
+08. Twentyeight - Sunday Morning (Original Version)
+09. Daniel Ray - Debonair (Original Mix)
+10. The Soulful Sun - Loose It (Original Mix)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 01:53:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6821634ADC645DBABDB43DF98D2476E1117BCAD8
+magnet:?xt=urn:btih:272E7BA9B6CB6B0F6E05154AC52A65FAE6A51D79
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -332,30 +65,191 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 592948   (134802) от 24.12.2012
+###  Публикация: 593275   (135415) от 23.12.2012
 
-Downplay - The Human Condition [EP] (2012) [MP3|320 кб/с]<Alt. Rock / Hard Rock>
+Dan Patlansky - Move my Soul (2009) [APE|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jump on
+02. Why?
+03. Big things going down
+04. Insufficient man
+05. Peace of Eden II
+06. Move my soul
+07. You upset me
+08. Come & play
+09. Luka
+10. Lord you are beautiful(   Читать дальше...   )Жанр: BluesПродолжительность: 01:10:14
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593332   (135411) от 23.12.2012
+
+Журнал | EN-Gamer №5 [2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135411.jpg" />
+</div>
+
+
+###  Подробнее
+
+«EN-Gamer» — новый журнал о компьютерных играх. Пятый номер журнала расскажет о фан-сайтах игры "Аssassins Creed" и многое другое.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:455C4C84180141A063A66AE5E5C8596C4EF6877F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592072   (135410) от 23.12.2012
+
+VA - Creative Music Box 6 (2012) [MP3|320 кб/с]<Dub Step/Glitch Hop/Drum'n'Bass/Drum Step/Metal Step>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135410.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Asking Alexandria - A Lesson Never Learned
+2. Bassex - Tinnitus
+3. Butch Clancy - Xlam
+4. Butch Clancy- The Devil's Quid Pro Quo
+5. Cenob1te - Hyperion
+6. Deltron 3030 - Upgrade (Figure Remix)
+7. Demented Dimensions - I Swear to God
+8. Document One feat. Maksim - Kick Snares And Brehs
+9. Dubwoofer - Carol Of The Bass
+10. Eliminate - Devil Theory(   Читать дальше...   )Жанр: Dub Step/Glitch Hop/Drum'n'Bass/Drum Step/Metal StepПродолжительность: 02:18:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34D9A6E0E12F409DF5BC70019504C1BF1BF2A7C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593559   (135408) от 23.12.2012
+
+Chamras Saewataporn - Green the World (2011) [MP3|320 кб/с]<New age, Instrumental, Relax>
+
+>>East Asian Music
+>>Other Asian
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135408.jpg" />
+</div>
+
+
+###  Подробнее
+
+(3:24) 01. Green The World
+(3:50) 02. A place in the heart
+(3:04) 03. The tree of Life new
+(3:35) 04. In the year 2012
+(3:53) 05. The Voice in the Jungle
+(3:15) 06. Secret of Paradise
+(3:08) 07. Forest Home and Sleepy Momo
+(3:48) 08. Thai Rice
+(3:48) 09. The Time Traveler
+(3:21) 10. First time I ever Saw this World(   Читать дальше...   )Жанр: New age, Instrumental, RelaxПродолжительность: 00:46:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AE879427D2F93FD188A0724CFD462938FEA51F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592495   (135407) от 23.12.2012
+
+Поле чудес (21/12/2012) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135407.jpg" />
+</div>
+
+
+###  Подробнее
+
+В эфире с 25 октября 1990 года. Первоначально ведущим был Владислав Листьев, а с 1 ноября 1991 года Леонид Якубович. Каждую пятницу он приглашает игроков в студию... отгадывать слова. Правила игры весьма просты: в трех турах участвуют по три человека в каждом, победители туров соревнуются в финальной игре, и ее победитель, если выиграет суперигру, получает главный приз. Стать участником игры "Поле чудес" очень просто - для этого нужно прислать в редакцию программы какой-нибудь оригинальный кроссворд. В игру играют и взрослые, и дети, пожарные, доярки, милиционеры, учителя, ветераны войны, артисты - все, кто знает русские буквы и слова. В съемках принимают участие игроки со всей России и ближнего Зарубежья. Проект Владислава Листьева. Название "позаимствовано" из сказки о Буратино.Жанр: ТелепередачаПродолжительность: 00:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E05EE687D45A2CD068FA711013A6B465B9E7EA9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592830   (135406) от 23.12.2012
+
+Pulp - Different Class (1995) [MP3|320 кб/с]<BritPop>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135406.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. We'll Be Kings
-2. Furious Again
-3. I Don't Know
-4. The One Who Laughs Last
-5. Seven Year Itch
-6. Charlie Wants To WatchЖанр: Alt. Rock / Hard RockПродолжительность: 00:22:44
+01 - Mis-Shapes
+02 - Pencil Skirt
+03 - Common People
+04 - I Spy
+05 - Disco 2000
+06 - Live Bed Show
+07 - Something Changed
+08 - Sorted for E's & Wizz
+09 - F.E.E.L.I.N.G.C.A.L.L.E.D.L.O.V.E
+10 - Underwear(   Читать дальше...   )Жанр: Brit PopПродолжительность: 00:52:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:208E90B1FF48564A25F660A6802514E85AE9FFF5
+magnet:?xt=urn:btih:DFB7B331C4B9A3385BE8DF411ED59FB1A7EA1B1F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -363,25 +257,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679964   (134801) от 27.11.2023
+###  Публикация: 592888   (135404) от 23.12.2012
 
-Вспомнить / Informacja zwrotna / Feedback (2023) WEB-DLRip (сезон 1, серии 1-5 из 5) ViruseProject [AD]
+Planet X - Quantum (2007) [MP3|320 кб/с]<Progressive Fusion Rock>
 
->>Зарубежные сериалы
->>Сериалы с рекламой
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135404.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сюжет рассказывает о бывшем рок-музыканте, страдающем алкогольной зависимостью, который отправляется в безумное путешествие в самые темные уголки Варшавы и человеческой психики, чтобы найти своего пропавшего сына.Производство: Польша / Opus TV, NetflixЖанр: драма, криминалРежиссер: Лезек ДавидАктеры: Аркадиуш Якубик, Якуб Серенберг, Доминика Беднарчик, Nel Kaczmarek, Пжемыслав Блущ, Юлиуш Хшонстовский, Агата Ватрубска, Kamil Studnicki, Малгожата Хаевская, Анджей Конопка и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:55:00 серияРеклама: Присутствуют видео вставки рекламы
+1. Alien Hip-Hop
+ 2. Desert Girl
+ 3. Matrix Gate
+ 4. The Thinking Stone
+ 5. Space Foam
+ 6. Poland
+ 7. Snuff
+ 8. Kingdom Of Dreams
+ 9. Quantum FactorЖанр: Progressive Fusion RockПродолжительность: 00:50:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4E6E25261DC97AE275E886D89543EA8C5A165A9C
+magnet:?xt=urn:btih:43FF798163B7C3B3F4B16009854F22135D220A0A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -389,25 +291,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679910   (134799) от 27.11.2023
+###  Публикация: 592232   (135403) от 23.12.2012
 
-Зло: Проклятая комната / Великолепный / Glorious (2022) BDRemux [H.264/1080p]
+Xenia - Understand (2012) [H.264/720p] WEBRip
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135403.jpg" />
 </div>
 
 
 ###  Подробнее
 
-После разрыва с любимой Вес со всеми своими нехитрыми пожитками отправляется в путь. В дороге он останавливается в специальном месте для отдыха, с горя напивается, а на следующий день в туалете сталкивается с неведомым. Голос из соседней кабинки представляется божеством и велит парню совершить непотребства с дырой в перегородке, иначе он разрушит весь мир.Производство: США, AMP International, FallBack Plan Productions, Eyevox EntertainmentЖанр: ужасы, комедияРежиссер: Ребека МакКендриАктеры: Райан Квантен, Дж.К. Симмонс, Сильвия Грэйс Крим, Андре Ламар, Торди Кларк, Sarah Clark, Katie BacqueПеревод: Дублированный (Pride Production)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:19:06
+Жанр: Pop, DanceПродолжительность: 00:03:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:543306FD38DAD0A536738A1E5FFD777D4EE3C42F
+magnet:?xt=urn:btih:36D9426D83129B4234424D10CD28090FAF6D54A8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -415,25 +317,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679932   (134797) от 27.11.2023
+###  Публикация: 593311   (135401) от 23.12.2012
 
-SlrLounge | Complete Wedding Photography Training System (2018) PCRec [EN]
+Don Grusin & Bill Sharpe - Trans Atlantica (2012) [FLAC|Lossless]<Smooth Jazz>
 
->>Обучающие видеоматериалы
->>Фотография и Видео (видеокурсы)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135401.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эта система включает в себя  10 ЛЕТ  опыта, из которых на съемки и продюсирование ушло  3 ПОЛНЫХ ГОДА. Включено ВСЕ, чему мы научились из РЕАЛЬНОГО МИРА. Фактически, это та же самая система обучения, которую используют сотрудники Lin & Jirsa.Производство: SlrLoungeЖанр: Свадебная фотографияЯзык озвучки: АнглийскийПродолжительность: 72:19:02
+01. The London Tube
+02. Exotic Boulevard
+03. Down At St Catherine's
+04. War Zone
+05. Chance Encounters
+06. Night Train To Paris
+07. Un Vuelo
+08. Slow Breeze
+09. Mole Trap Cool
+10. After Hours(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:57:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:673AB451E57FA7B8FD38651B006842861D0BC225
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -441,25 +352,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 593658   (134796) от 24.12.2012
+###  Публикация: 592684   (135400) от 23.12.2012
 
-New year wallpapers 2013 (23.12.12) [Wallpapers]
+Последний людоед: Индийский тигр-убийца / The last maneater:  Killer tigers of India (2003) DVDRip
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135400.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия раздач отРазрешение файлов: 1680x1050 - 2560x1920
+На земле есть место, где время не движется. В этом отдалённом уголке Индии люди являются объектом охоты. Здесь живёт хищник, хитрый и расчётливый. Убийца, не боящийся людей. Последний людоед, индийский тигр убийца..Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:45:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C463148CB18B75A53513851325DD55103B40C1FC
+magnet:?xt=urn:btih:82D225A0F1E950D3C5F0E4F78225E330A1D0F572
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -467,25 +378,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640584   (134795) от 27.11.2023
+###  Публикация: 590274   (135397) от 23.12.2012
 
-Возлюбленный язычник / Beloved Infidel (1959) BDRip [H.264] [AVO]
+Noel Quinlan - 7 albums (1991-2004) [MP3|320 кб/с]<New Age, World, Instrumental>
 
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
+>>Other Styles
+>>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135397.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Длительный и бурный роман Шейлы Грэм и известного американского писателя Фрэнсиса Скотта Фицджеральда ("Ночь нежна", "Великий Гэтсби"), имевший место в 30-х годах, послужил темой этой любовной драмы, а за основу сценарист Сай Бартлетт взял автобиографическую книгу Грэм, написанную с помощью Джеролда Фрэнка.Производство: США / Jerry Wald ProductionsЖанр: драма, мелодрамаРежиссер: Генри КингАктеры: Грегори Пек, Дебора Керр, Эдди Альберт, Филип Обер, Герберт Радли, Джон Саттон, Карин Бут, Кен Скотт, Синди Амес, Дон АндерсонПеревод: Авторский, Алексей ЯковлевЯзык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 02:03:02
+(6:50)
+
+(1:30) 01. China Heart
+(4:39) 02. Snowy Mountain
+(6:27) 03. Chongsam
+(4:37) 04. Genghis
+(1:07) 05. Birdman
+(4:45) 06. Sparrows
+(6:01) 07. Mountain Mist
+(5:00) 08. Chungwu Concerto(   Читать дальше...   )Жанр: New Age, World, InstrumentalПродолжительность: 00:54:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6AD7AE22798628D6BD96D7269674E27410B369C2
+magnet:?xt=urn:btih:E23401DB621165DD9C05E42106C3812B14CBDF5C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -493,25 +413,303 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 593214   (134794) от 24.12.2012
+###  Публикация: 593160   (135392) от 23.12.2012
 
-VA-New Age Style - Christmas Chill (2011) [MP3|320 кб/с]<New age, Chillout, Instrumental, Christmas>
+Газета | Компьютер для начинающих №12 [декабрь 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135392.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компьютер для начинающих рассказывает о самых азах работы с компьютером, различными программами, сетью Интернет. В номере: видео на компьютере; что такое кодеки и для чего они требуются; чем смотреть видео; как выбрать монитор и видеокарту.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2070C374CFAB4CACEC216064D389E099F0BD9EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593110   (135391) от 23.12.2012
+
+Журнал | Tattoo Collection №54 (UK) [2012] [PDF] [En]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135391.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Tattoo Collection" является идеальным журналом для тех, кто ищет татуировки или просто хочет увидеть самые последние работы лучших международных мастеров. В журнале представлено более 300 татуировок, которые являются лучшими на момент выхода журнала.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F5F89338544B860A5518F604109F38931ABDDAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593076   (135390) от 23.12.2012
+
+VA - Rocks Off - 16 Tracks Of The Best New Music (2012) [FLAC|Lossless]<Rock>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. King Tuff - Bad Thing [02:21]
+02. The Mountain Goats - Harlem Roulette [03:22]
+03. The Jim Jones Revue - Times Around The Sun [03:41]
+04. The Fresh And Only - Dream Girls [02:51]
+05. John Hiatt - It All Comes Back Someday [03:40]
+06. The Cairo Gang - Now You Are One Of Us [03:39]
+07. Two Gallants - Song Of Songs [02:45]
+08. Martin Rossiter - Sing It Loud [02:25]
+09. Ian Hunter & The Rant Band - Saint [03:35]
+10. The Wooden Sky - Child Of The Valley [03:42](   Читать дальше...   )Жанр: RockПродолжительность: 00:57:45
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593226   (135386) от 23.12.2012
+
+VA - Cafe La Guitarra Vol.1 (La Seleccion Musica Balearica - The Best In Guitar Lounge & Chill Out) (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guenter Haas - Cienfuegos
+02. Jeff Aug - Mountain Pass
+03. Weathertunes - Passion
+04. Marga Sol - Call of an Angel
+05. Taco-Town - El Platano
+06. Anthya - Patience and Love
+07. Fenena Garcia Mijas - Way Beyond
+08. Jeff Aug - Bird Watcher's Dirge
+09. Pnfa - Salt
+10. Xemplify - Sober Eyes(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 00:59:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDFE9BCBFF97553B6883A16B8BA153C110875418
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593276   (135384) от 23.12.2012
+
+Артур Беркут - Рождественская песня (2012) [MP3|320 кб/с]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Рождественская песняЖанр: Heavy MetalПродолжительность: 00:04:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C4A7CE13AF4042CD9E6939C3BF0985F4D6A7685
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593186   (135379) от 23.12.2012
+
+Особо опасны / Savages (2012) [MP3|320 кб/с]<Soundtrack>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Neptune's Net
+02.Cartel Theme
+03.Where I'm Going
+04.Romantic Theme
+05.Legalize It
+06.Mandala (feat. Anoushka Shankar)
+07.Hijack In The Desert
+08.Quien Es El Patron
+09.Romance In Durango
+10.Whipping(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:11:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AAA8D6E96789388F4530E0E633F8916789E9567
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679723   (135375) от 26.11.2023
+
+Memorial Day - Embark Hades (1995) [FLAC|Lossless|tracks] <Gothic, Doom, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carnifex
+02. Phobia
+03. Embark Hades
+04. Salve Caput Cruentatum(   Читать дальше...   )Жанр: Gothic, Doom, Death MetalПродолжительность: 00:53:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:009ED584D7CB230E755BF3EED1DB0B392B97A27A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593020   (135374) от 23.12.2012
+
+Zora Young - 4 Альбома (2000 - 2009) [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135374.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+
+2000 - Learned My Lesson
+2005 - Tore Up from the Floor Up
+2009 - The French Connection
+2009 - SunnylandЖанр: Blues |Продолжительность: 04:22:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679792   (135373) от 26.11.2023
+
+PrintLab Studio 3.0.2 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135373.jpg" />
+</div>
+
+
+###  Подробнее
+
+PrintLab Studio - это легкое и простое в использовании приложение для создания векторных иллюстраций для Mac OS X. PrintLab Studio содержит инструменты, необходимые для создания базовых фигур. Быстро создавайте рисунки и легко меняйте стили.Тип издания: macOS SoftwareРелиз состоялся: 08.05.2018Разработчик: © 2021 Bluetail TeamПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B03E3DFE8545F74AFAF8607801CA5200FDFA8C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 591856   (135372) от 23.12.2012
+
+VA - DubStep Pro V.9 (2012) [MP3|320 кб/с]<DubStep>
 
 >>Неофициальные сборники
->>Прочее (сборники)
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135372.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: New age, Chillout, Instrumental, ChristmasПродолжительность: 03:52:42
+01. Degrees Of Motion & North Base - Shine On (Dubstep Mix)
+02. Other Echoes feat. Julian Huggins - Free Running
+03. Delerium feat. Michael Logen - Days Turn Into Nights (Seven Lions Remix)
+04. Waverokr - Gravity Switch
+05. Dubba Jonny - Smack It!
+06. Molecule - Ghetto Superstar
+07. DKS - Can't Get Enough (Original Mix)
+08. Hardwell feat. Amba Shepherd - Apollo (3rd Prototype Bootleg)
+09. TS7 - Struggle (DJ Q Remix)
+10. Smooth feat. Tasha Baxter - Nowhere(   Читать дальше...   )Жанр: DubStepПродолжительность: 04:26:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:25FD509D450D49B8D49110AFA9A4E363EB10422F
+magnet:?xt=urn:btih:BE01CE8DE485381BFF5BAC1C0EDFCA34F86E334C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -519,112 +717,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680032   (134793) от 27.11.2023
+###  Публикация: 1679846   (135371) от 26.11.2023
 
-Дарья Донцова | Виола Тараканова. В мире преступных страстей (Книга 52) Лобстер для Емели (2023) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134793.jpg" />
-</div>
-
-
-###  Подробнее
-
-Такого невероятного расследования у Виолы Таракановой не было никогда! К ней обратилась Валентина Рыжова с просьбой написать книгу о ее покойном сыне. Вилка сначала отказалась, ведь Арина Виолова никогда не пишет на заказ. Но потом все же ввязалась в эту авантюру. Рыжова недавно похоронила сына, успешного бизнесмена. Его тело нашли в реке, и решили, что Егору просто (   Читать дальше...   )Жанр: Детективы, Иронический детектив, дамский детективный романИздательство: ЭксмоФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC570170B829F7F4F1629B89E7293260987FBF26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593413   (134792) от 24.12.2012
-
-VA - Песни для души (2012) [MP3|256 кб/с]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Руслан Березовский - Ромашка
-02. Сергей Артемьев - Одной тебе
-03. Андрей Рубежов - Красотки-бортпроводницы
-04. Кабриолет - Не ревнуешь
-05. Бумер - Она одна
-06. Алексей Свешников - По снегу
-07. Сергей Сухачев - Первые цветы
-08. Жека - Кони
-09. Михаил Штукин - Любовницы, любовники
-10. Денис Мафик - Миллион разлук(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:12:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C66601CE98C90AC3F9FF02DE50D6517FFEC7888
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679907   (134791) от 27.11.2023
-
-Ю.Н. Калачёв, Д.В. Самохвалов | SimInTech. Основы регулируемого электропривода. Антиучебник (2023) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134791.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современные среды компьютерного моделирования позволяют создать цифровую модель проектируемого устройства и в цифровом пространстве проанализировать его поведение. По результатам этих виртуальных испытании? можно исследовать различные режимы работы элементов системы, искать ошибки в предлагаемой к реализации структуре, оптимизировать алгоритмы управления и даже автоматически (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ДМК-ПрессФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A26DBD07F15237BBC3F5EF7063BDA7F1D70147D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680073   (134789) от 27.11.2023
-
-Wise Registry Cleaner Pro 11.1.2.717 RePack (& portable) by Dodakaedr [Multi/Ru]
+iCompta 6.1.9 [Multi]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135371.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Wise Registry Cleaner - утилита для безопасной чистки реестра Windows. Программа сканирует реестр и ищет в нём некорректную и устаревшую информацию, после удаления которой операционная система работает значительно быстрее. После того, как программа проанализирует проблемы Вашей системы, Вы можете сами просмотреть каждую найденную неполадку и посмотреть её детальное (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+iCompta - простое, но мощное приложение для управления персональным финансами. Программа создана так, чтобы быть максимально простой в использовании, поддерживая множество функций, которые помогут вам отслеживать ваши деньги и начать экономить. Следите за своими доходами и расходами, контролируйте свои счета, оставайтесь в соответствии с вашим бюджетом.Тип издания: macOS SoftwareРелиз состоялся: 24.11.2023Разработчик: © 2006-2022 SAS LyricAppsПоддерживаемая ОС: macOS X 10.13 +Язык интерфейса: Английский, Немецкий, Французский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7C625F6B5F3A252B0FC02FC35961321F2820B07A
+magnet:?xt=urn:btih:8F3D670245E27F469EB3E497A907C7683D6E574B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -632,25 +743,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680038   (134787) от 27.11.2023
+###  Публикация: 592231   (135370) от 23.12.2012
 
-Square Home Launcher 3.0.5 Mod by PieMods [Ru/Multi]
+Plies - Hunna (2012) WEBRip
 
->>Программы, Игры и прочее
->>ПО для Android
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135370.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Square Home - красивый, стильный и функциональный лаунчер для мобильных работающих на Android-е. Им предлагается вариация оболочки выполненной в стиле Metro UI от Windows 10. Это очень понравится всем, кто постоянно использует данную операционную систему на других гаджетах. И считает, что подобная механика удобна и понятна для него и для его работы. Красивое исполнение (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 15.11.2023Разработчик: ChYK the devПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+Жанр: Hip-hopПродолжительность: 00:03:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BF87F8760F7CF492C5B11CA8253706A20A836790
+magnet:?xt=urn:btih:84F3107DC72C81785EC63F27D00C336F9D12268D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -658,51 +769,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 593657   (134786) от 24.12.2012
+###  Публикация: 1679717   (135369) от 26.11.2023
 
-55 HQ Wallpapers (23.12.12) [Wallpapers]
+Журнал | Сваты №21 (255) (ноябрь 2023) [PDF]
 
->>Графика, Арт, Разное
->>Обои для рабочего стола
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135369.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+«Сват плохого не посоветует» — говорят в народе. В каждом номере журнала «Сваты» вы найдете: проверенные советы от читателей, экспертов, юристов, медиков, психологов, кулинарные рецепты, секреты здоровья, помощь в воспитании детей разного возраста, песни, байки, анекдоты. И все это в ярком, красочном оформлении.Жанр: Популярный журналИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F676AFC27C63E1AE65C04BF2E7EEDBF1910FEE6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680039   (134785) от 27.11.2023
-
-WinTools.net Premium 23.12.1 RePack (& portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134785.jpg" />
-</div>
-
-
-###  Подробнее
-
-WinTools.net – набор инструментов для оптимизации операционной системы Windows. В состав программы входят компоненты для полного удаления нежелательных программ и «мертвых» ссылок реестра, а также для контроля процессов, настройки системы, интернет-соединений и интерфейса. Кроме того, имеются утилиты для надежного хранения конфиденциальной информации.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE3D2555E02C6EF20F34F8ACF06D69539F73FC77
+magnet:?xt=urn:btih:AADC770C47D50E9C0F8878186279D5B1B32ADB60
 ```
 
 https://mybot314.ru/tekegram_catalog/

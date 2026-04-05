@@ -1,3 +1,109 @@
+###  Публикация: 1674696   (160838) от 06.11.2023
+
+1Tap Cleaner Pro 4.44 Mod by CMAPTOC [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160838.jpg" />
+</div>
+
+
+###  Подробнее
+
+1Tap Cleaner - это инструмент для очистки Android-устройства, благодаря которому с помощью всего одного прикосновения вы можете очистить кэш, историю журнала вызовов и историю поиска. Несмотря на то, что вы можете "навести полный порядок" всего лишь одним прикосновением, приложение включает в себя гораздо больше опций, которые позволят вам выбрать именно (   Читать дальше...   )Тип издания: Pro (Mod)Релиз состоялся: 19.10.2023Разработчик: Sam LuПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:355D5448AEE461E7BEDE787A222145DC5757F434
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674615   (160836) от 06.11.2023
+
+InShot - Фото и видеоредактор v1.982.1424 Mod by maxi123444 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160836.jpg" />
+</div>
+
+
+###  Подробнее
+
+InShot - Мощный видеоредактор и фоторедактор на русском! Нужно монтировать или отредактировать видео на и фото для Instagram, Whatsapp, Тикток или Youtube? Запишите свою повседневную жизнь с InShot! С иншот, вы можете наложить музыку на видео, обрезка видео, объединить видео, повернуть видео, размытие фона одним нажатием пальца, дополняй видео текстом. Наш редактор (   Читать дальше...   )Тип издания: ProРелиз состоялся: 05.11.2023Разработчик: InShot Video EditorПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F230FA913188E5D23F09DF852CE77066537F0259
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674921   (160537) от 07.11.2023
+
+vpnify - Безлимитный VPN 2.1.5.3 Mod by PieMods [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160537.jpg" />
+</div>
+
+
+###  Подробнее
+
+vpnify: лучший БЕСПЛАТНЫЙ, БЕЗЛИМИТНЫЙ и высокоскоростной VPN-прокси на Android. Это очень надежное приложение с шифрованием военного уровня обеспечит вам безопасную навигацию в общественных, деловых и школьных сетях. Разблокируйте недоступные и цензурированные сайты.Тип издания: PremiumРазработчик: VPNIFYПоддерживаемая ОС: Android 6.0 и вышеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47D768D157E5AC1267CD3935CB69B872FE6F940D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675126   (160427) от 08.11.2023
+
+ImageToolbox 2.4.2 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160427.jpg" />
+</div>
+
+
+###  Подробнее
+
+Image toolbox — это приложение, основанное на современном технологическом стеке с использованием чистой архитектуры. Перечень функций: применение фильтров, обрезка, редактирование EXIF, выбор качества и типа выходного изображения, пакетное редактирование и др.
+
+Сжатие изображений (в т.ч. пакетное), обрезка, наложение фильтров, редактирование EXIF данныхТип издания: FreeРелиз состоялся: 28.10.23Разработчик: Malik MukhametzyanovПоддерживаемая ОС: Android: 5.0 и вышеЯзык интерфейса: Русский, Английский  и другие.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3608A306FADA643AB50248C5912FBBC43A540AB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1675279   (160402) от 08.11.2023
 
 Background Video Recorder Pro v9.3.93 Mod by AppModz [Ru/Multi]
@@ -6,7 +112,7 @@ Background Video Recorder Pro v9.3.93 Mod by AppModz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160402.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ AI Image Enlarger 3.0.4 Mod by TryRoom [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160389.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ VK X 6.6.2_pub [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160211.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ CapCut 9.7.0(9700100) Mod by Alien (ToonXTech) [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160006.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ Recipe finder 1.0.1 [Ru/Multi] (авторская)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159936.jpg" />
 </div>
 
 
@@ -137,7 +243,7 @@ XY VPN - Security Proxy VPN 4.7.305 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159792.jpg" />
 </div>
 
 
@@ -163,7 +269,7 @@ Yoga VPN - безопасный прокси 7.0.530 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159712.jpg" />
 </div>
 
 
@@ -189,7 +295,7 @@ VPN Master -VPN-прокси Hotspot 5.8.008 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159698.jpg" />
 </div>
 
 
@@ -215,7 +321,7 @@ Bottom Quick Settings v6.2.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159574.jpg" />
 </div>
 
 
@@ -242,7 +348,7 @@ MIUI-ify v1.9.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159565.jpg" />
 </div>
 
 
@@ -268,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159561.jpg" />
 </div>
 
 
@@ -294,7 +400,7 @@ Reface v3.26.0 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159535.jpg" />
 </div>
 
 
@@ -320,7 +426,7 @@ IPTV Pro v6.2.5 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159494.jpg" />
 </div>
 
 
@@ -346,7 +452,7 @@ PowerDirector – Video Editor v12.7.0 Mod by 0x7d [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159300.jpg" />
 </div>
 
 
@@ -372,7 +478,7 @@ Enhancer - AI Photo Enhance v1.5.1 Mod by Mixroot [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159279.jpg" />
 </div>
 
 
@@ -398,7 +504,7 @@ Colorfy PLUS - Coloring Book v3.22 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159276.jpg" />
 </div>
 
 
@@ -424,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159271.jpg" />
 </div>
 
 
@@ -450,7 +556,7 @@ Enhancer - AI Photo Enhance v1.5.1 Mod by maxi123444 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159217.jpg" />
 </div>
 
 
@@ -476,7 +582,7 @@ My TTS: Text-to-Speech v1.1.6 [En/Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159156.jpg" />
 </div>
 
 
@@ -502,7 +608,7 @@ Find my kids / Где мои дети v2.6.89-google Mod by Timozhai [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159150.jpg" />
 </div>
 
 
@@ -529,7 +635,7 @@ Filmix v2.1.3 Mod by vadj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159092.jpg" />
 </div>
 
 
@@ -556,7 +662,7 @@ Photo Map v9.04.05 Mod by Timozhai, misuri78 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158907.jpg" />
 </div>
 
 
@@ -567,113 +673,6 @@ Photo Map - это ваша новая персональная интеракт
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55A39ABFE565F76C2599B2553FC212F9BFF4DBE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085779   (155995) от 22.12.2016
-
-Спортсмен PRO. Тренировка 2.18 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155995.jpg" />
-</div>
-
-
-###  Подробнее
-
-Твой персональный фитнес тренер.
-Силовые тренировки:
-• 50 подтягиваний
-• 50 подъемов ног в висе(   Читать дальше...   )Тип издания: Пиратка/UnlockedРелиз состоялся: 16 ноября 2016 гРазработчик: AxiomMobileПоддерживаемая ОС: Android 4.1+Жанр: Здоровье и фитнесЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D553AF496C9EA425BB8EF4BF07214A6727433C6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 800660   (155118) от 22.12.2016
-
-LG Camera PRO v7.1 build 102 [Ru/Multi] - Камера для фото и видео с расширенными возможностями
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155118.jpg" />
-</div>
-
-
-###  Подробнее
-
-LG camera — Камера (фото и видео) с расширенными возможностями. Позволяет гибко настраивать качество видеосъемки. Также есть возможность выбора нестандартного кодека (поддерживается не на всех устройствах).Тип издания: ПираткаРазработчик: RubberBigPepperПоддерживаемая ОС: Android 2.3+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C6013D412C2FA8F41C2A57E1A1474326EC3924A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676622   (155101) от 14.11.2023
-
-VPN Russia - VPN сервера в России 1.183 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155101.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быстрый и бесплатный Vpn Russia позволяет в один клик получить российский IP или разблокировать доступ к закрытым сайтам и приложениям. Безопасное и анонимное подключение к открытым WIFI сетям обеспечивает технология подключения VPN с ключом 2048 бит.Тип издания: ProРазработчик: Local networksПоддерживаемая ОС: Android 4.4 и вышеЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACB0ED89F2F0B2E63B7BD456BA944EC64D084475
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600812   (154627) от 28.12.2022
-
-Кино HD v3.3.1 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154627.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярный клиент онлайн кинотеатра. Множество фильмов, сериалов, трейлеров. Абсолютно бесплатно. Способен искать фильмы и сериалы во множестве источников. Работает весьма быстро. Удобный интерфейс.Тип издания: Mod / PremiumРелиз состоялся: 27.12.2022Разработчик: Aybek_kzПоддерживаемая ОС: Android 8.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65F151A3929A2AD51327FF6689783056B66AEFDC
 ```
 
 https://mybot314.ru/tekegram_catalog/

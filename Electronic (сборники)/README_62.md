@@ -1,3 +1,61 @@
+###  Публикация: 1207869   (780269) от 20.02.2018
+
+VA - Lounge Of Sleep (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780269.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Cayo Largo  -  I Don't Need Your Number (Original Mix)  3:55
+002.  Marga Sol  -  Feelings For Free (Original Mix)  5:06
+003.  Stuce The Sketch feat. Wenawedwa  -  Silver Days (Original Mix)  4:15
+004.  CJ RcM  -  Tidal Bore (Original Mix)  4:38(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 09:13:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F7D952AB3752269B54774B8BB1729C7EC3AB544
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208367   (779992) от 22.02.2018
+
+VA - Empire Records - Reggae (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Francoise Sanders - I Will
+02. Lauren - Painting by Numbers
+03. Emelie Christiansson - Until The Wind Comes Again
+04. Dinah Eastwood - Your Love(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:48:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:052AE254F4088CF3E73CFDD0C8613E76499FCB57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1208502   (779978) от 22.02.2018
 
 VA - Dance Hits  Club Sound (2018) [MP3|320 Kbps] <House, Dance>
@@ -6,7 +64,7 @@ VA - Dance Hits  Club Sound (2018) [MP3|320 Kbps] <House, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779978.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - The Sounds Of The Underground 11 (Compiled and Mixed by Deeper82) (2018) [M
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779688.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Double Environment: Progressive House Garden Music (2018) [MP3|320 Kbps] <P
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779685.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - The Official UK Top 40 Singles Chart 23.02.2018 [MP3|320 Kbps] <Pop, Dance,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779684.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Record Super Chart #525 (2018) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779671.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Vocal Trance Collection Vol.9 (2018) [MP3|320 Kbps] <Vocal Trance, Upliftin
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779655.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Empire Records - Deep Blue (2018) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779530.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - PSY: Megapack Psychodelic Trance (2018) [MP3|320 Kbps] <Psy Trance, Psychod
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779529.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Night Noir Deep House Portrait (2018) [MP3|320 Kbps] <Deep House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779393.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Tropical Vibes vol.2 (2018) [MP3|320 Kbps] <Tropical House, Deep House, Nu 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779309.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Deep House Collection Vol.158 (2018) [MP3|320 Kbps] <Deep House, Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779291.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Club Dance Ambience Vol.136 (2018) [MP3|320 Kbps] <Club House, Vocal House,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779277.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Deep House Collection vol.159 (2018) [MP3|320 Kbps] <Deep House, Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779263.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Melodic Vocal Trance: Beautiful Radio Edit (2018) [MP3|320 Kbps] <Vocal Tra
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779251.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Need For Speed Vol.12 (2018) [MP3|320 Kbps] <House, Hands Up, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779218.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Psychometry: 100 Psy Goa Trance (2018) [MP3|320 Kbps] <Psy, Goa Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779154.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - We Are Trance February (2018) [MP3|320 Kbps] <Uplifting, Progressive Trance
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779149.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Winter Deep House (2018) [MP3|320 Kbps] <Deep House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779145.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Vocal Endless Story (2018) [MP3|320 Kbps] <Energy, Blissful, Uplifting>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779144.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Chill Dance Music (2018) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779119.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Empire Records - Sound Clinic 10 (2017) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778716.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - The Official UK Top 40 Singles Chart 02.03.2018 [MP3|320 Kbps] <Pop, Dance,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778548.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Record Super Chart #526 (2018) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778533.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Tropical Spire Selected House (2016) [MP3|320 кб/с] <House, Progressve, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778400.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Tropical Spire Selected House (2016) [MP3|320 кб/с] <House, Progressve, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02F14DAA10985BD2B5AB7C51CE5F24DD8EA477FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012961   (778399) от 02.05.2016
-
-VA - Elegance (Chillout Moods) (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778399.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. FD Sound - West City [06:30]
-002. Total System - Rcxxix [03:39]
-003. Maxim Fresh - Third Eye [03:56]
-004. Dj Origami - Chill Barcelona [02:35](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 07:04:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1158241CF5193906F51CCBD1AB99AE6650ECEDC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012781   (778397) от 02.05.2016
-
-VA - Sosna Hits 38 (2016) [MP3|320 кб/с] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Van Lectro -  Never Know (Klaas Remix Edit)  3:18
-02. Sam Feldt -  Been A While (Madison Mars Remix)  3:39
-03. Sigala ft. Bryn Christopher -  Sweet Lovin (Extended Mix)  4:56
-04. Klaas ft. Jelle Van Dael -  Far Away (Original Mix)  4:39(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 03:55:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F89D70F1471D5586DE47F42A45EE0EA27C70892
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1543671   (627905) от 12.04.2022
+
+PopDo 2021.2.8 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Утилита PopDo - это удобный список задач для строки меню Mac, отображающий все ваши дела в одном окне. Он поддерживает поиск, фильтрацию и сортировку для быстрого перехода к нужной задаче.Тип издания: macOS SoftwareРелиз состоялся: 11.04.2022Разработчик: © 2020-2021 DS9 Software LtdПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7373B87078378FD9E54FA273B17FF08E5C2D8F9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909484   (627154) от 17.06.2015
+
+Red Giant Shooter Suite 12.7.1 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627154.jpg" />
+</div>
+
+
+###  Подробнее
+
+Red Giant Shooter Suite -  комплект инструментов подготовки и выдачи видеоматериалов для съемки и синхронизации на временной шкале. В состав комплекса Red Giant Shooter Suite входит приложение Red Giant BulletProof, предназначенное для упрощения ежедневных процессов по обработке отснятых видеоматериалов: сортировки, просмотра, ведения каталога, редактирования метаданных, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17 июня 2015Разработчик: Red Giant LLCПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B37576655ADA23A4E10AFEDF122905AEAEB2B92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 909505   (627046) от 17.06.2015
 
 Adobe Dreamweaver CC 2015 (7698) [Multi/Ru]
@@ -6,7 +58,7 @@ Adobe Dreamweaver CC 2015 (7698) [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627046.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ Stellar Drive Clone 3.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626509.jpg" />
 </div>
 
 
@@ -62,7 +114,7 @@ Enfocus PitStop Pro 13 Update 2 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625920.jpg" />
 </div>
 
 
@@ -90,7 +142,7 @@ Stellar Phoenix Video Repair 2.0.0.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625906.jpg" />
 </div>
 
 
@@ -117,7 +169,7 @@ CrossOver 17.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625868.jpg" />
 </div>
 
 
@@ -145,7 +197,7 @@ iToolab SIMUnlocker 2.5.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625778.jpg" />
 </div>
 
 
@@ -172,7 +224,7 @@ Vitamin-R 2 v2.48 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625525.jpg" />
 </div>
 
 
@@ -199,7 +251,7 @@ Frammer X 1.4 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623784.jpg" />
 </div>
 
 
@@ -228,7 +280,7 @@ VueScan Pro 9.5.16 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623184.jpg" />
 </div>
 
 
@@ -254,7 +306,7 @@ Dato 3.3.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622369.jpg" />
 </div>
 
 
@@ -281,7 +333,7 @@ SyncBird Pro 3.7.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622359.jpg" />
 </div>
 
 
@@ -307,7 +359,7 @@ TechSmith Snagit 2021.4.7 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621993.jpg" />
 </div>
 
 
@@ -333,7 +385,7 @@ Instastack for Instagram 1.91 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621657.jpg" />
 </div>
 
 
@@ -362,7 +414,7 @@ LaunchBar 6.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621645.jpg" />
 </div>
 
 
@@ -391,7 +443,7 @@ Video Copilot - Element 3D v2.2 update for Mac OSX [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621274.jpg" />
 </div>
 
 
@@ -417,7 +469,7 @@ Hazel 4.0.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621079.jpg" />
 </div>
 
 
@@ -443,7 +495,7 @@ Ulysses 2.5.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621011.jpg" />
 </div>
 
 
@@ -470,7 +522,7 @@ iExplorer 3.9.11 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618988.jpg" />
 </div>
 
 
@@ -497,7 +549,7 @@ PaintCode for Sketch 1.0.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618727.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ PhpStorm 2016.2 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618524.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Tinderbox 9 v9.2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618474.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ MacAppBlocker 3.1.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618091.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ AKVIS Artwork 8.1 (1708.1069) [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617360.jpg" />
 </div>
 
 
@@ -637,7 +689,7 @@ SSH Tunnel 16.07 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617164.jpg" />
 </div>
 
 
@@ -651,60 +703,6 @@ SSH туннель — это туннель, (   Читать дальше... 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B52BC3A4023FF214C8C36AEFC1D0074CCC6F4CD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146180   (616198) от 28.06.2017
-
-Paste 2.2.3 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Paste — менеджер истории буфера обмена для Mac
-Paste хранит всё, что вы когда-либо копировали в буфер обмена, и позволяет воспользоваться историей копирования, когда она вновь понадобится. Работает – притаившись в фоном режиме системы и, следит за историей скопированных данных. Готов в любой момент предоставить на выбор нужный фрагмент из истории буфера обмена.
- (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27 июня 2017Разработчик: WirelessheadsПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FF37394D08D757D06AE5B1424959289AAA13F4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911620   (615545) от 23.06.2015
-
-ArchiCAD 19 (3003) [INT]
-
->>Программы для macOS
->>CAD, 3D, ПО для специалистов для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производительность ArchiCAD 19 стала еще выше! Больше не надо ждать обновления видов и проекций. В ArchiCAD 19 надежность 64-разрядных систем и многопроцессорные вычисления дополнены первой в индустрии BIM технологией фоновой обработки данных. Молниеносная скорость работы и быстрота обновления видов делают ArchiCAD бесспорным лидером среди всех существующих BIM-решенийТип издания: MacOS X SoftwareРелиз состоялся:  18 июня 2015Разработчик: GRAPHISOFTПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E036D47FB5B149D6B6AA69051F02E136CBDC1005
 ```
 
 https://mybot314.ru/tekegram_catalog/

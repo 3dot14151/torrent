@@ -6,7 +6,7 @@
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207459.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207391.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206807.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NG: Апокалипсис: Первая мировая война (5 серий
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206647.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206572.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ NG. Загадка акул Мауи / Maui Shark Mystery (2022) WEB-DL [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206528.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205978.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ NG: Человек-волк / The Wolfman (2006) HDTVRip [720p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205049.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204335.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204296.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ NG: Безграничный / Без границ: с Крисом Хемсво
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203029.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201678.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ NG. Реальность или фантастика? Бермудский тр�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201195.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ NG. НЛО: Расследование неизвестного / UFOs: Investig
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199545.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ NG: Расследования Авиакатастроф / Mayday / Air Crash I
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197323.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ NG: Владычицы морей / Shark Queens (2022) WEB-DL [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197310.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ NG. Первый император: секреты китайской гроб�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197249.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ NG. Титаник: 20 лет спустя с Джеймсом Кэмероно�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196856.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ NG. Акула против тунца / Shark vs Tuna (2018) WEB-DL [H.264/1080
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196715.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ NG. Затонувшая субмарина фашистов / Nazi Sunken Sub (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196531.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ NG. Арабские Эмираты с высоты птичьего полёт�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196410.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ NG: Расследования Авиакатастроф / Mayday / Air Crash I
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195322.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ NG. Затонувшие сокровища нубийских фараонов 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195075.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ NG. Линии Наски: Раскрытые тайны / Nasca Lines: Unlockin
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195069.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ NG. Путешествия с Гордоном Рамзи / Gordon Ramsay - Unch
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195051.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ NG: Самые опасные животные: От пустыни до сав�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195039.jpg" />
 </div>
 
 

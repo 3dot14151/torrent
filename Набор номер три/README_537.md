@@ -1,3 +1,212 @@
+###  Публикация: 1193045   (262403) от 19.12.2017
+
+Очередное достижение: 100+ TB отданного трафика от Salarmael
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262403.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередное достижение: 100+ TB отданного трафика от Salarmael!!!Уважаемые друзья! - есть повод поздравить нашего товарища-одноклубника, который перешагнул планку более 100 ТB отданного разнообразного контента!!!(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192903   (262382) от 19.12.2017
+
+В Windows 10 нашли опасную уязвимость для кражи паролей
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262382.jpg" />
+</div>
+
+
+###  Подробнее
+
+В менеджере Keeper, предустановленном в операционной системе Windows 10, обнаружили опасную уязвимость, которая позволяет сайтам красть сохраненные пароли пользователей.Внимание на ошибку в тестовой версии обратил специалист Google Тэвис Орманди. Однако позднее, по его словам, пользователи сообщили о наличии недоработки и в релизной версии, пишет издание ARS Technica.В (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190515   (262358) от 19.12.2017
+
+Короткие истории
+
+>>3
+>>96
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262358.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уважаемые одноклубники!
+Команда Клубные Таланты NNM-Club приглашает Вас принять участие в игре "Короткие истории". Предлагаем читателям поделиться своими жизненными наблюдениями посредством нескольких метких фраз.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192910   (262177) от 20.12.2017
+
+Opera Software ASA решила переименоваться в Otello Corporation
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262177.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания также сменит логотип, но пока ещё не разработала его.Норвежская Opera Software ASA, которая появилась после продажи бизнеса по разработке браузера Opera китайскому консорциуму, решила изменить название на Otello Corporation. Об этом сообщает Reuters со ссылкой на уведомление компании на сайте Фондовой биржи Осло.Компания планирует провести ребрендинг, но (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192923   (262164) от 20.12.2017
+
+Выгодный этап «ценовой войны»: операторы начали снижать цены на связь
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262164.jpg" />
+</div>
+
+
+###  Подробнее
+
+18 декабря 2017 года Yota объявила о снижении цен на тарифы в 12 регионах, включая Москву и Московскую область. Это изменение — следствие «ценовой войны» операторов, возобновившейся в ноябре. TJ вспоминает, как компании пришли к новому витку конкуренции, и приводит примеры тарифов из регионов.Что изменилось и почемуВ апреле 2017 года «большая четвёрка» операторов (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193366   (262158) от 20.12.2017
+
+NVIDIA GeForce Desktop 388.71 WHQL + For Notebooks [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262158.jpg" />
+</div>
+
+
+###  Подробнее
+
+NVIDIA GeForce Driver — драйвера для видеокарт производства NVIDIA. Предназначены для видеокарт семейства GeForce, работающих в операционной системе Windows. Унифицированная архитектура драйверов (CUDA) гарантирует прямую и обратную совместимость драйверов с различными поколениями графических процессоров NVIDIA, что упрощает процесс замены видеоподсистемы, так как (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61773C541DD40C919B548E8E0CB442D9DFD857BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193344   (262047) от 21.12.2017
+
+Очередное достижение: 4000 релизов от maykov!!!
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262047.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередное достижение: 4000 релизов от maykov!!!Уважаемые одноклубники , рад сообщить Вам о возможности поздравить нашего товарища с 4000-м релизом!С удовольствием поздравляю активного релизера , участника RG Музыки maykov с этим достижением и выражаем огромную благодарность от имени всех одноклубников и администрации NoNaMe ClubНадеюсь, что вы все также присоединитесь (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192180   (262023) от 21.12.2017
+
+Российских водителей обязали носить ночью за городом светоотражающие жилеты
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262023.jpg" />
+</div>
+
+
+###  Подробнее
+
+Правительство РФ дополнило правила дорожного движения пунктом, обязывающим водителей носить светоотражающие жилеты при остановке вне населенных пунктов в темное время суток или в условиях плохой видимости.«Постановление вступает в силу по истечении 90 дней со дня его официального опубликования», — сказано в документе.В правительстве сообщили, что количество наездов (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193392   (262005) от 21.12.2017
 
 WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2017.12.21 [Ru]
@@ -6,7 +215,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2017.12.21 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262005.jpg" />
 </div>
 
 
@@ -32,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262004.jpg" />
 </div>
 
 
@@ -58,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262002.jpg" />
 </div>
 
 
@@ -84,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261861.jpg" />
 </div>
 
 
@@ -111,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261858.jpg" />
 </div>
 
 
@@ -137,7 +346,7 @@ Avast Premier 17.9.2322 Final [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261850.jpg" />
 </div>
 
 
@@ -163,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261845.jpg" />
 </div>
 
 
@@ -190,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261840.jpg" />
 </div>
 
 
@@ -217,7 +426,7 @@ Acronis True Image 2018 Build 10640  RePack by KpoJIuK  [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261839.jpg" />
 </div>
 
 
@@ -243,7 +452,7 @@ Adobe Photoshop CC 2018 (19.0.1) x86-x64 RePack by D!akov [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261838.jpg" />
 </div>
 
 
@@ -269,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261836.jpg" />
 </div>
 
 
@@ -295,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261684.jpg" />
 </div>
 
 
@@ -321,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261561.jpg" />
 </div>
 
 
@@ -349,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_261379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_261379.jpg" />
 </div>
 
 
@@ -375,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_261369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_261369.jpg" />
 </div>
 
 
@@ -401,7 +610,7 @@ Fallout 2 [Ru] (P/1.02) 1998
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_261367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_261367.jpg" />
 </div>
 
 
@@ -428,7 +637,7 @@ Max Payne 3 (Rip/1.0.0.17) [Ru] 2012 l Audioslave
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_261366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_261366.jpg" />
 </div>
 
 
@@ -456,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261288.jpg" />
 </div>
 
 
@@ -464,221 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 
 Настройка выхода в интернет по IPv6 через туннельного брокера по технологии 6in4Гарантированно работает на "белых" IP, на "серых" - как повезет.
 (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 504986   (261079) от 03.06.2012
-
-Max Payne 3 [Ru] (RePack/1.0.0.17) 2012 | R.G. ReCoding
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261079.jpg" />
-</div>
-
-
-###  Подробнее
-
-После событий Max Payne 2 прошло восемь лет. Макс уже не коп он спившийся, сидящий на обезболивающих безработный. Сломленный. Раздавленный. Без цели. Но, волею случая перебравшись в Бразилию, он поступает на службу в частное охранное агентство и получает задание защищать семью успешного торговца недвижимостью. Вскоре Максу на собственной шкуре предстоит почувствовать: (   Читать дальше...   )Тип издания: RePackРазработчик: Rockstar StudiosЖанр: Action ( Shooter), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B286146F394D6BBCE15D10DDCA01AA9AE25D5A7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 505158   (261072) от 03.06.2012
-
-Microsoft Windows 7 Максимальная SP1 x86/x64 DVD Original WPI 03.06.2012 [Pусский]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 7 Ultimate SP1 Final rtm 6.1 7601.17514.101119-1850 присутствуют все редакции. В системе ничего не удалялось и не изменялось. Сборка проверенная и работает отлично.
-
- За основу были взяты официальные Русские образы (MSDN) 12.05.2011
- ru_windows_7_ultimate_with_sp1_x86_dvd_u_677463.iso
- ru_windows_7_ultimate_with_sp1_x64_dvd_u_677391.isoЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 655252   (260696) от 23.11.2025
-
-Союзмультфильм. Коллекция мультфильмов (1912-2010) DVDRip, SATRip, TVRip, VHSRip [1340 мультфильмов]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260696.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник представляет собой собрание отечественных мультфильмов, большинство из которых от студии Союзмультфильм, но не только.
-В данной коллекции включены мультфильмы как для детей, так и для взрослых.Производство: СССР, Союзмультфильм; И другие...Жанр: Детский, Рисованная анимация, КукольныйРежиссер: Николай Федоров, Борис Дежкин, Владимир Сутеев, Роман Качанов...Продолжительность: 284:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2B69D2D4C3D90518F4BB638844915664A481105
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497404   (260661) от 02.06.2012
-
-Женский доктор (1 - 15 серии из 40) (2012) SATRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: Украина, FILM_UAЖанр: МелодрамаРежиссер: Александр Пархоменко, Антон ГойдаАктеры: Илья Носков, Алена Яковлева, Наталья Казанцева, Олеся Власова, Андрей Финягин, Олег Иваница, Виталина Библив, Сергей Калантай, Андрей ПавленкоПродолжительность: 40 х ~ 00:44:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 504785   (260651) от 02.06.2012
-
-Minecraft (RePack/1.2.5) [Ru/Multi56] 2012 | YaKrevetko
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260651.jpg" />
-</div>
-
-
-###  Подробнее
-
-Minecraft — это строительная игра жанра «песочница», вдохновлённая Infiniminer, Dwarf Fortress и Dungeon Keeper и созданная Маркусом Перссоном, основателем Mojang AB. Игра позволяет игрокам создавать и разрушать различные блоки и использовать предметы в трёхмерной окружающей среде. Игрок управляет персонажем, который может разрушать или устанавливать блоки, формируя фантастические структуры, создания и художественные работы в одиночку или коллективно с другими игроками на различных многопользовательских серверах в разных игровых режимах.Тип издания: RePackЖанр: ПесочницаЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский, Мульти56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:252B4278ED5B479ADABD98ECF6D88855DF5D6349
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 504520   (260642) от 02.06.2012
-
-Batman: Arkham City / Batman: Аркхем Сити + 14 DLC [Ru] (RePack/1.03) 2011 | Fenixx
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Студия Rocksteady — создатели проекта Batman: Arkham Asylum — приглашают игроков вновь окунуться в мрачную и таинственную атмосферу Готэма в игре «Batman: Аркхем Сити».
-Аркхем — район, где бесчинствуют выпущенные из психиатрической клиники и предоставленные сами себе безумцы, матерые преступники и маньяки. Это черное пятно в самом сердце Готэма, отгороженное от окружающего города неприступной стеной. А как известно, где зло — там и Бэтмен! В Аркхеме легендарный Человек-летучая мышь встретится со многими знаменитыми героями и злодеями, а игроки испытают на себе, каково это — быть Темным Рыцарем. (   Читать дальше...   )Тип издания: Repack (Лицензии)Разработчик: Rocksteady StudiosЖанр: Action / 3D / 3rd Person / StealthЯзык озвучки: АнглийскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:197D1C04107D7757B5E6AB586E9496B06BA21336
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 504233   (260371) от 01.06.2012
-
-Batman Arkham City: Game of The Year Edition [XBOX360] (RegionFree) (LT+3.0) (XGD3) [Ru] (2012)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260371.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Batman: Arkham City Game of the Year Edition помимо самой игры и DLC про Харли Квинн в расширенное издание войдут ранее выходившие дополнения (как сюжетные, так и наборы с картами и обликами Бэтмена). Помимо этого новое издание будет содержать анимационный фильм "Бэтмен: Год первый".Тип издания: ЛицензияРазработчик: Rocksteady StudiosЖанр: Action / 3D / 3rd Person / StealthЯзык интерфейса: RUS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:949B35FD00C2F110727703DC217BE113312E8653
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476092   (260361) от 01.06.2012
-
-Советские научно-фантастические фильмы 1923-1991 годов
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260361.jpg" />
-</div>
-
-
-###  Подробнее
-
-Среди великого множества любителей фантастики есть практически субкультурное подразделение обожателей артефакта под названием "Советская фантастика", которая держится особняком от голливудской масскультуры, захватившей все ниши современного кинематографа.Судя по откликам и комментариям в различных темах форума, а так же просьбам в личку, я поняла необходимость и, не побоюсь этого слова, историческую значимость такого явления, как каталогизированный список советской и российской фантастики, нашего культурного наследия, в хронологическом порядке.
-Порывшись на просторах Интернета я не нашла, буквально, ничего подобного, только разрозненная информация и коротенькие списки, основанные исключительно на приоритетах авторов статей, популярности или на соответствиях неким критериям. Непредвзятых списков нет. Поэтому, в очередной раз, я взяла на себя смелость попытаться сотворить что то полезное))). (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

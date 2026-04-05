@@ -1,3 +1,215 @@
+###  Публикация: 1230921   (148991) от 23.12.2018
+
+Wreckfest (2018) [Ru/Multi] (1.233553/dlc) Repack xatab
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148991.jpg" />
+</div>
+
+
+###  Подробнее
+
+Забудьте о правилах! Wreckfest - это полный контакт и никакой пощады! Эпические столкновения, нешуточная борьба до самого финиша и миллион способов гнуть и корежить металл - вот что ждет вас в Wreckfest, новой гоночной игре со сверхреалистичной симуляциейТип издания: RepackРазработчик: BugbearЖанр: Action, Indie, Racing, Simulator, SportsЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F7C9108DA42D6F7740EC871993755B3DC0E4E72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086399   (148988) от 25.12.2016
+
+Microsoft признала агрессивной свою политику обновления до Windows 10
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148988.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Microsoft признались, что обманом вынуждали пользователей устанавливать Windows 10
+С момента официального выхода Windows 10 в адрес компании Microsoft все чаще стала звучать критика за агрессивные меры перевода пользователей операционной системы на новую версию. Компания начала с раздражающих уведомлений с предложением о переходе на новую систему и закончила откровенным (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271491   (148966) от 23.12.2018
+
+WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2018.12.23 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузочный диск на базе Windows 10 и 8 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, антивирусной профилактики и установки ОС Windows.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2E8C4F2A73BAB12DB7519654A5A302996B0C679
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086927   (148930) от 25.12.2016
+
+ACDSee Ultimate 10.2 Build 878 RePack by KpoJIuK [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148930.jpg" />
+</div>
+
+
+###  Подробнее
+
+ACDSee Ultimate 10 сочетает в себе поддержку слоев, поддержку GPU-ускорения обработки изображений, поддержку прозрачности со всеми функциями регулировки изображений из режима редактирования. ACDSee - функциональная программа, рассчитанная как на профессиональных фотографов, так и на любителей. ACDSee позволяет работать с цифровыми фотографиями, RAW-изображениями (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D442A631CC06638CDD952BAEBE2F2DFCB6D28E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244352   (148923) от 23.12.2018
+
+Shadows: Awakening (2018) [Ru/Multi] (1.31/dlc) License GOG
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148923.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shadows: Awakening - это уникальная изометрическая ролевая игра с тактической системой боя в реальном времени и одиночной кампанией. Вы играете за Пожирателя - демона, призванного из Мира теней, чтобы поглотить души давно погибших героев.Вас ждет опасное, но захватывающее приключение, увлекательная сюжетная линия и невероятно красивая графика. Достанет ли вам силы (   Читать дальше...   )Тип издания: LicenseРазработчик: Games FarmЖанр: RPG (Open World), Action, 3rd Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F91956C06B1DE0EDF0B66FF33F3A78D6B4A28D51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519331   (148908) от 23.12.2021
+
+Сабатовский | Davinci resolve с нуля (2021) PCRec
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148908.jpg" />
+</div>
+
+
+###  Подробнее
+
+Освой весь функционал программы с нуля за 3 месяца
+Монтируй, работай с цветом, графикой и саунд-дизайном — в одной программе
+Создай полноценный видеоролик для портфолио
+Перейти в DaVinci, получить комплексные знания о работе в программе.(   Читать дальше...   )Жанр: монтаж, цветПродолжительность: 14:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40B4A8370360E26D4D367EE44CFB36626B784F4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 738900   (148901) от 26.12.2013
+
+Next Car Game (2013) [En] (alpha 0.167610) Repack Cat-a-Cat
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Next Car Game - рабочее название нового рейсинга от студии Bugbear Entertainment. Игра возьмет лучшее от FlatOut и Destruction Derby, предложит онлайн-режим, апгрейд своего транспортного средства, навороченную физику и модель повреждений. В отличие от других рейсингов, машины в Next Car Game - это старые, залатанные и ржавые тачки.Тип издания: Cat-a-CatРазработчик: Bugbear EntertainmentЖанр: Arcade / Racing (Cars)Язык озвучки: -/-Язык субтитров: -/-Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1608E79B6536F88CCC0C3D9EEA82AB95CFC9581A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273471   (148900) от 23.12.2021
+
+Матрица / The Matrix (1999-2003) UHD BDRip [H.265/2160p] [4K, HDR, 10-bit] [Трилогия]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм изображает будущее, в котором реальность, существующая для большинства людей, - есть в действительности симуляция, созданная разумными машинами, чтобы подчинить и усмирить человеческое население, в то время как тепло и электрическая активность их тел используются машинами в качестве источника энергии. Узнав об этом, хакер по кличке Нео оказывается втянут в (   Читать дальше...   )Производство: США, Австралия / Warner Bros., Village Roadshow PicturesЖанр: Боевик, Фантастика, ПриключенияРежиссер: Энди Вачовски, Лана ВачовскиАктеры: Киану Ривз, Лоренс Фишбёрн, Кэрри-Энн Мосс, Хьюго Уивинг, Глория Фостер, Джо Пантольяно, Маркус Чонг, Джулиан Араханга, Мэтт Доран, Белинда МакКлори, Моника Беллуччи, Ламбер Вильсон, Энтони Вон и др.Перевод: Дублированный, авторскийСубтитры: Русские, английские, украинские (2,3 часть)Продолжительность: 02:16:21 + 02:18:18 + 02:09:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65FAF2181D1E2DCE964A7B7D056F496347D974F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1243522   (148899) от 23.12.2018
 
 Танцы (2018) HDTV [H.264/1080i-LQ] (сезон 5, выпуски 1-21 из 21)
@@ -6,7 +218,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148899.jpg" />
 </div>
 
 
@@ -32,7 +244,7 @@ Terminator: Resistance (2019) [Ru/Multi] (1.0.60d/dlc) License GOG (обновл
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148883.jpg" />
 </div>
 
 
@@ -58,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148875.jpg" />
 </div>
 
 
@@ -84,7 +296,7 @@ MAGIX Vegas Pro 14.0 Build 211 RePack by KpoJIuK [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148872.jpg" />
 </div>
 
 
@@ -110,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148870.jpg" />
 </div>
 
 
@@ -136,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148859.jpg" />
 </div>
 
 
@@ -162,7 +374,7 @@ Diablo Dilogy (1996-2001) [Ru/Multi] (3.0.0.0/1.14d) Repack R.G.Catalyst
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148851.jpg" />
 </div>
 
 
@@ -188,7 +400,7 @@ Next Launcher 3.01 [Программа] (Android 2.3.3+) /обновлено 24.
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148845.jpg" />
 </div>
 
 
@@ -217,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148842.jpg" />
 </div>
 
 
@@ -243,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148834.jpg" />
 </div>
 
 
@@ -272,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148741.jpg" />
 </div>
 
 
@@ -298,7 +510,7 @@ Kpoxa Tweaker 1.4 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148679.jpg" />
 </div>
 
 
@@ -327,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148671.jpg" />
 </div>
 
 
@@ -354,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148352.jpg" />
 </div>
 
 
@@ -380,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148211.jpg" />
 </div>
 
 
@@ -406,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148207.jpg" />
 </div>
 
 
@@ -432,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148071.jpg" />
 </div>
 
 
@@ -458,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147971.jpg" />
 </div>
 
 
@@ -469,218 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271468   (147951) от 24.12.2018
-
-MultiBootHDD 2018 23.12.2018 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка на базе конструктора BootHDD by Policai для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных,установки Windows.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CCEB705ECD81A000AA4EAD538A5B7DD75559F4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969100   (147924) от 26.12.2015
-
-Страна ОЗ (2015) WEB-DL [H.264/720p-LQ]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147924.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый год в России — стихия неуправляемая и беспощадная. Именно в это волшебное время непостижимый колорит русской души проявляет себя во всей красе. Пока жители Екатеринбурга готовятся к главному национальному празднику и шинкуют оливье, Ленка Шабадинова спешит до боя курантов принять смену в киоске на улице Торфорезов. Но она даже не подозревает, что новогодняя (   Читать дальше...   )Производство: Россия / Белое ЗеркалоЖанр: КомедияРежиссер: Василий СигаревАктеры: Яна Троянова, Гоша Куценко, Андрей Ильенков, Александр Баширов, Евгений Цыганов, Владимир Симонов, Инна Чурикова, Светлана Камынина, Юлия Снигирь, Алиса ХазановаПеревод: Не требуется (русский) iTunesПродолжительность: 01:39:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4523064577AD0193FDF229CF2DCA1576595D1E06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969216   (147916) от 26.12.2015
-
-Проекты - VideoHive - Christmas Titles 3 - 13795169 [AEP]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147916.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания Новогодних титров.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6878479D02BDB46F1B34527AFFC1842D74E2328
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 66424   (147909) от 24.12.2018
-
-Энциклопедия рыболова: Фидер - это просто (2007) DVDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147909.jpg" />
-</div>
-
-
-###  Подробнее
-
-- Подготовка и сборка снасти
-- Промер глубины
-- Приготовление прикормки
-- Техника ловлиЖанр: Жанр: спорт, рыбалкаРежиссер: Александр МонаковПродолжительность: 02:03:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D331E7F8FBF245844E761C27D2AD8ED5D67E1C2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969309   (147888) от 26.12.2015
-
-ФотоШОУ PRO 8.0 Repack by KaktusTV [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147888.jpg" />
-</div>
-
-
-###  Подробнее
-
-ФотоШОУ PRO - открывает возможности для создания потрясающих фильмов из фотографий и музыки. Создавайте незабываемые слайд-шоу на любые темы: рассказы о путешествиях, праздниках, свадебные фотофильмы, Love Story и т.п. Программа включает сотни комбинаций эффектов анимации, позволяющих оживить любую фотографию. Вам точно не будет скучно... Коллекция элегантных переходов (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D44F6C856D7B726D0420B6DF815814A731B4A96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969320   (147857) от 26.12.2015
-
-Страна ОЗ (2015) WEB-DLRip [H.264]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147857.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый год в России — стихия неуправляемая и беспощадная. Именно в это волшебное время непостижимый колорит русской души проявляет себя во всей красе. Пока жители Екатеринбурга готовятся к главному национальному празднику и шинкуют оливье, Ленка Шабадинова спешит до боя курантов принять смену в киоске на улице Торфорезов. Но она даже не подозревает, что новогодняя (   Читать дальше...   )Производство: Россия / Белое ЗеркалоЖанр: КомедияРежиссер: Василий СигаревАктеры: Яна Троянова, Гоша Куценко, Андрей Ильенков, Александр Баширов, Евгений Цыганов, Владимир Симонов, Инна Чурикова, Светлана Камынина, Юлия Снигирь, Алиса Хазанова, Дарья Екамасова, Евгений РойзманПеревод: Не требуется (русский) iTunesПродолжительность: 01:39:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AF84B31D8D4A7CFCB28C963BF3411F7AFE27003
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609860   (147853) от 24.12.2018
-
-Path of Exile (2013) [Ru/Multi] (3.5.1) License
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147853.jpg" />
-</div>
-
-
-###  Подробнее
-
-Path of Exile - это сетевая ролевая игра активного действия в мрачном колдовском мире Рэкласта. В основу игры легли: мощная бартерная экономика, богатые возможности настройки героев, захватывающие PvP-сражения и гонки за рейтингом. Игра полностью бесплатна. Вам никогда не придется платить за победу.Тип издания: LicenseРазработчик: Grinding Gear GamesЖанр: RPG (Rogue, Action), 3D, Isometric, Online-only, Massively multiplayerЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, ПортугальскийЯзык интерфейса: Русский, Английский, Португальский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49A100F16F026DE12B3DECB09948A56281009DC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969306   (147846) от 26.12.2015
-
-Grand Theft Auto: Vice City (2003) [Ru/Multi] (1.1) Lossless Repack R.G. Origami
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в Город Порока - Vice City, огромный людской муравейник, где есть все: золотые пляжи и зловонные болота, блеск и нищета, дворцы и трущобы. Самый громкий хит года, Vice City позволит вам заглянуть в яркий, полный черного юмора и насилия преступный мир гигантского мегаполиса, чрезвычайно напоминающего Майами. Теперь и у вас есть шанс пройти путь от (   Читать дальше...   )Тип издания: Lossless RepackРазработчик: Rockstar NorthЖанр: Action (Shooter), Arcade, Racing (Cars, Motorcycles), 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A530EB832616AC8FC1AEFB47BC1FCD84A4BA880
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1035106   (629810) от 15.07.2016
+
+Infinium Strike (2016) [Ru/Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629810.jpg" />
+</div>
+
+
+###  Подробнее
+
+Infinium Strike — это космическая стратегия-экшен, в которой вы выполняете роль командира боевой части на ударном авианосце Freedom Strike. Собирая и используя инфиний, живой металл космоса, игроки могут бесконечно «штамповать» мощные турели и смертоносный флот дронов. Операция «Свобода» — тайная военная операция, нацеленная на то, чтобы переломить ход войны с врагами. (   Читать дальше...   )Тип издания: RepackРазработчик: Codex WorldsЖанр: Strategy (Tower Defense), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C4B8ACB6C4100746735D2C87AC78F2AF6881108
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284755   (629319) от 07.04.2019
+
+BANNERMEN (2019) [Ru/Multi] (1.1) License RELOADED
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Примерьте на себя роль падшего лорда, который стремится вновь занять свое место среди сильных мира сего. Путь ваше знамя вселяет страх в противников, когда вы сражаетесь в захватывающих боях, стремясь стать лучшим из лучших.Тип издания: LicenseРазработчик: Pathos InteractiveЖанр: Strategy (RTS), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:724DF2865FCFE0413AB538EE8021E9B26C6DD549
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035758   (625916) от 17.07.2016
 
 Satellite Reign (2015) [Ru/Multi] (1.13.02) Repack Other s
@@ -6,7 +58,7 @@ Satellite Reign (2015) [Ru/Multi] (1.13.02) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625916.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Panzer Tactics HD (2014) [Ru/Multi] (1.0.2) Repack xGhost
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622310.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ Infinium Strike (2016) [Ru/Multi] (1.0.5) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616790.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ Skulls of the Shogun (2013) [Ru/Multi] License FANiSO
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615902.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ Driftland: The Magic Revival (2019) [Ru/Multi] (1.0) License RELOADED
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609792.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ BANNERMEN (2019) [Ru/Multi] (1.1) Repack R.G. Catalyst
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606158.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ Steam Squad (2016) [Ru/En] (1.0) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605925.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ Steam Squad (2016) [Ru/En] (1.0) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605917.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ Halo Wars 2 (2017) [Ru/Multi] (1.0.1130815) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603118.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ Driftland: The Magic Revival (2019) [Ru/Multi] (2.0.112) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600716.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ FTL: Faster Than Light (2012) [Ru/Multi] (1.6.12) License GOG [Advanced Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597368.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ Partisans 1941 / Партизаны 1941 (2020) [Ru/Multi] (1.1.02.5/dlc) Licens
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595879.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ Hegemony III: Clash of the Ancients (2015) [En] (3.3.6.4/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595699.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ The Banner Saga Dilogy (2014-2016) [Ru/Multi] (2.42.50/2.39.03/dlc) Repack R.G. 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594815.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ Ultimate General: Civil War (2017) [Ru/Multi] (1.0.20111) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593722.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ Company of Heroes 2 (2014) [Ru/En] (4.0.0.23166/dlc) Repack =nemos= [Master Coll
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586884.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ Fell Seal: Arbiter's Mark (2019) [Ru/Multi] (1.0.3) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583936.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ Fell Seal: Arbiter's Mark (2019) [Ru/Multi] (1.0.3) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583887.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ Grotesque Tactics: Evil Heroes / Grotesque Tactics: Настоящие него�
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580498.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ Meridian: Squad 22 (2016) [En/Hu] (1.0) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579057.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ Meridian: Squad 22 (2016) [En/Hu] (1.0/dlc) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575712.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ Satellite Reign (2015) [Ru/Multi] (1.13.06) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569965.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ Warhammer 40,000: Mechanicus (2018) [Ru/Multi] (1.2.6) Repack R.G. Catalyst
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566561.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ Warhammer 40,000: Armageddon - Da Orks (2016) [Ru/Multi] (1.0) License SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566411.jpg" />
 </div>
 
 
@@ -619,58 +671,6 @@ Warhammer 40,000: Armageddon: Da Orks - вторая часть в серии в
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE997403D2848B33475882975D72F6E01261C197
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073552   (564659) от 23.07.2017
-
-The Banner Saga 2 (2016) [Ru/Multi] (2.39.03) Repack R.G. Catalyst
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564659.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Banner Saga 2 продолжает события предыдущей части, запоминая принятые игроками в первой части решения. От этого будет зависеть, кто из героев выжил, а кто умер. Сюжет продолжит развивать историю умирающего мира, где остался лишь один бастион надежды, попасть в который очень нелегко. Путь туда заставит принимать сложные лидерские решения и идти на жертвы.Тип издания: RepackРазработчик: StoicЖанр: Strategy (Turn-based), RPGЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D09ED55D9542B1B9745CDC6713EB9D632478B6D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962282   (564638) от 23.07.2017
-
-Hard West (2015) [Ru/Multi] (1.5/dlc) Repack R.G. Catalyst
-
->>След.
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на Дикий Запад – таким вы еще никогда его не видели. Когда трагическая случайность вынуждает человека ступить на путь мести и погрузиться в сверхъестественный хаос, он сделает все, чтобы жестоко покарать всех, кто разрушил его жизнь. Присоединяйтесь к Уоррену на его пути во тьму и постарайтесь выжить в мире, где каждую секунду приходится сталкиваться (   Читать дальше...   )Тип издания: RepackРазработчик: Creative Forge GamesЖанр: Strategy (Turn-based, Tactical), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:565BDCC934ED06F2E5D4CB543B71E470491AD71B
 ```
 
 https://mybot314.ru/tekegram_catalog/

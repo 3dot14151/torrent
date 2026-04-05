@@ -1,3 +1,29 @@
+###  Публикация: 1415652   (376161) от 12.10.2020
+
+Adguard 2.5.0.902 release [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376161.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adguard — это лучший способ избавиться от раздражающей рекламы, защититься от онлайн-слежки и мошеннических сайтов. Adguard – интернет-фильтр для защиты пользователей от опасных веб-сайтов, блокировки всех возможных видов рекламы в Интернете. Программа представляет собой отличное дополнение для вашей основной антивирусной защиты с эффективной блокировкой вредоносных, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.10.2020Разработчик: AdguardПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FC55BAD193E4114ADB9E516F269989D8A425A8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1327574   (374089) от 25.09.2019
 
 Caramba Switcher 2019.09.16 (beta) [Multi/Ru]
@@ -6,7 +32,7 @@ Caramba Switcher 2019.09.16 (beta) [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374089.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ World Clock 1.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373776.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ Entropy 1.6.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373213.jpg" />
 </div>
 
 
@@ -92,7 +118,7 @@ FSMonitor 1.1 (116) [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372542.jpg" />
 </div>
 
 
@@ -121,7 +147,7 @@ Toast Titanium 14.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372058.jpg" />
 </div>
 
 
@@ -147,7 +173,7 @@ Recordam 1.3.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370969.jpg" />
 </div>
 
 
@@ -175,7 +201,7 @@ Mirror for Philips TV 2.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370967.jpg" />
 </div>
 
 
@@ -204,7 +230,7 @@ Mirror for Panasonic TV 3.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370954.jpg" />
 </div>
 
 
@@ -233,7 +259,7 @@ Mirror for Sony TV 2.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370827.jpg" />
 </div>
 
 
@@ -262,7 +288,7 @@ Mirror for Samsung TV 3.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370687.jpg" />
 </div>
 
 
@@ -291,7 +317,7 @@ KCNcrew Pack 10-15-20 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367834.jpg" />
 </div>
 
 
@@ -317,7 +343,7 @@ Disk Expert 2.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366055.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ ActiveDock 1.15 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366016.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ NVidia Web Driver v.346.03.03f02 (2015) [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362351.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ Serial 1.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361204.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ Smart Zipper Pro 3.70 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361193.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ WiFi Explorer 2.0.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360280.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ AppKiller 3.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357030.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ TotalFinder 1.14.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356666.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ Weather Dock 3.7.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355787.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ KCNcrew Pack 09-15-22 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354736.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ Lingon X 6.3.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354418.jpg" />
 </div>
 
 
@@ -617,7 +643,7 @@ TrashMe 2.1.23 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353678.jpg" />
 </div>
 
 
@@ -644,7 +670,7 @@ BestZip 2-Unarchive 7z&rar&zip 1.6.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352198.jpg" />
 </div>
 
 
@@ -670,7 +696,7 @@ Mirror for Sony TV 3.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351999.jpg" />
 </div>
 
 
@@ -684,33 +710,6 @@ Mirror for Sony TV 3.0 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCB187A45BFB211A0B49E1FFDB8C9824334BE459
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256764   (351559) от 23.10.2018
-
-Forecast Bar - Weather + Radar 5.0.1 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Forecast Bar - точный прогноз погоды Forecast.io прямо в строке меню. С красивыми фоновыми изображениями в соответствии с текущими погодными условиями и времени суток, и всё это в простом и понятном интерфейсе.Тип издания: macOS SoftwareРелиз состоялся: 21.10.2018Разработчик: Higher Bar, LLCПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский
-*показания прогноза погоды можно сделать на русском (в настройках программы)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5F0C3C5005B5F6A246CA0EC719BEA8000D6DA7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

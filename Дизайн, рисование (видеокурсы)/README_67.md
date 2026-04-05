@@ -1,3 +1,57 @@
+###  Публикация: 1575953   (204104) от 13.01.2023
+
+Artstation, Tyler Smith | Intro to UE4 lighting Exterior and Interior (2020) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полный разбор создания освещения для внешней и внутренней сцен в UE4. Начнем с показа динамической версии построения сцены при помощи направленного света, объемного тумана по высоте и небесного света. Затем перейдем к настройке сцены при помощи системы запечения освещения UE4 и разбора того, как изменять результаты и находить проблемные места, которые могут возникать (   Читать дальше...   )Производство: ArtstationЖанр: ВидеокурсЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 01:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:455DEC81AEE4E03D9B20172544D868F886DAFE99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604620   (204062) от 14.01.2023
+
+ArtStation, Armored Colony | Sci-Fi Crate - Model & Texture a Game Asset - Full Process (2019) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204062.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе мы создадим Sci-Fi ящик.
+Мы начнем с нуля и сначала создадим высокополигональную модель. После этого мы преобразуем его в оптимизированную игровую сетку и создадим несколько UV. Затем я покажу вам, как создавать удивительные текстуры с помощью Substance Painter и сделаем рендер в Marmoset Toolbag.
+В конце мы сделаем небольшую голографическую анимацию, (   Читать дальше...   )Производство: ArtStationЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 08:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E7C8D53514CC155CBE0A366A6FEF5A696879075
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1604617   (204047) от 14.01.2023
 
 Udemy, Mrawan Hussain | BLENDER: Learn how to create utility knife from A to Z (2023) PCRec [EN]
@@ -6,7 +60,7 @@ Udemy, Mrawan Hussain | BLENDER: Learn how to create utility knife from A to Z (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204047.jpg" />
 </div>
 
 
@@ -34,7 +88,7 @@ Udemy, Victory 3D, Mieszko Lacinski | Create a Prop for VFX Pipeline with Maya, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204017.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ Kimvoronin, Ким Воронин | PowerPoint Ниндзя (2022) WEB-DL [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204007.jpg" />
 </div>
 
 
@@ -89,7 +143,7 @@ School of Motion, Nol Honig | After Effects Kickstart (2022) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204005.jpg" />
 </div>
 
 
@@ -115,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203745.jpg" />
 </div>
 
 
@@ -144,7 +198,7 @@ Pro-Infografika, Ариадна Юсупова, Мурад Юсупов | Про
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203720.jpg" />
 </div>
 
 
@@ -173,7 +227,7 @@ Antipin-STUDIO, Антипин Виталий | Основа основ (про�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203687.jpg" />
 </div>
 
 
@@ -201,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203685.jpg" />
 </div>
 
 
@@ -230,7 +284,7 @@ Teletype, Роман Горелик | Бандл от Науки Дизайна.
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203681.jpg" />
 </div>
 
 
@@ -259,7 +313,7 @@ Rebelway, Saber Jlassi | Рендеринг в Karma в Houdini 19 (2021) WEB-DL
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203655.jpg" />
 </div>
 
 
@@ -285,7 +339,7 @@ Breezzly, Анастасия Свеженцева | Создание экскл�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203650.jpg" />
 </div>
 
 
@@ -312,7 +366,7 @@ Bazanova Art, Ольга Базанова | Гиперреализм (2022) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203581.jpg" />
 </div>
 
 
@@ -341,7 +395,7 @@ FXPHD, Liam Whitehouse | Realtime Cinema Environments in Unreal Engine (2021) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203560.jpg" />
 </div>
 
 
@@ -368,7 +422,7 @@ Kalacheva School, Ирина Климова и др. | Все онлайн ку�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203521.jpg" />
 </div>
 
 
@@ -397,7 +451,7 @@ Kalacheva School, Татьяна Головко | Анималистика в Di
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203495.jpg" />
 </div>
 
 
@@ -426,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203168.jpg" />
 </div>
 
 
@@ -455,7 +509,7 @@ Waqas Qazi | Master DaVinci Resolve NODE TREE. Live Training Session 2 (2020) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203156.jpg" />
 </div>
 
 
@@ -482,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203135.jpg" />
 </div>
 
 
@@ -511,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203121.jpg" />
 </div>
 
 
@@ -540,7 +594,7 @@ Study Kvo, Саня Кво | Курс по веб-дизайну 3.0 (2019) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202740.jpg" />
 </div>
 
 
@@ -569,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201656.jpg" />
 </div>
 
 
@@ -597,7 +651,7 @@ MographPlus, Камиль Хезри | The Ultimate Introduction to Arnold 6 for
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201633.jpg" />
 </div>
 
 
@@ -625,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201630.jpg" />
 </div>
 
 
@@ -653,7 +707,7 @@ Rebelway, Saber Jlassi, Igor Zanic | Ocean rendering using Redshift (2020) WEB-D
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201620.jpg" />
 </div>
 
 
@@ -666,63 +720,6 @@ Rebelway, Saber Jlassi, Igor Zanic | Ocean rendering using Redshift (2020) WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1727D5548DA2340E57EBF3DC5865445293D75D32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617568   (201596) от 07.03.2023
-
-Rebelway, Saber Jlassi | Abstract FX in Houdini Using Karma (2021) WEB-DL [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201596.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом видеоуроке Сабер Джласси исследует несколько продвинутых техник абстрактных эффектов в Houdini с использованием Karma в Houdini 19.
-
-Большинство художников по спецэффектам работают над проектами, включающими взрывы, дым, обломки и тому подобные кадры. Тем не менее, абстрактные эффекты иногда могут быть одними из самых впечатляющих эффектов, даже если они в (   Читать дальше...   )Производство: RebelwayЖанр: 3D ГрафикаЯзык озвучки: Английский, РусскийПродолжительность: 01:12:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B31B720CFFED474646314B11F5C8525EDDEE2495
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618206   (201541) от 10.03.2023
-
-Nexttut Education Pvt.Ltd., Shahzad Ahmad | Houdini for Absolute Beginners (2022) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201541.jpg" />
-</div>
-
-
-###  Подробнее
-
-Здравствуйте, меня зовут Шахзад Ахмад. Я художник Houdini FX. Я увлечен созданием визуальных эффектов (взрывы, дым, огонь, облака, пыль, частицы, магия и т. д.), а также всевозможных разрушений и жидкостей. Я художник-самоучка. И я люблю смотреть научные документальные фильмы и научно-фантастические фильмы!
-
-К концу этого курса:
-- Вы сможете уверенно работать в Houdini.(   Читать дальше...   )Производство: Nexttut Education Pvt.Ltd.Жанр: 3D ГрафикаЯзык озвучки: АнглийскийПродолжительность: 15:55:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6A53BDBDC3E6854BC4ABD7DB4A0A20B9AAEECBC
 ```
 
 https://mybot314.ru/tekegram_catalog/

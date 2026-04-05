@@ -1,133 +1,3 @@
-###  Публикация: 1378960   (842384) от 27.04.2020
-
-Книжная серия | Эксклюзивное чтение на английском языке [15 книг] (2016-2019) [EPUB]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842384.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эксклюзивное чтение на английском языке – лучшие произведения любимых авторов! Среди авторов серии: Чарльз Диккенс, Оскар Уайльд, Джек Лондон, Уильям Теккерей и многие другие! - В каждой книге словарь со всеми словами из произведения. - Грамматические комментарии к сложным конструкциям. - Удобный формат, покоривший миллионы читателей.Жанр: Зарубежная классика, Зарубежная фантастика, Иностранные языкиФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CE21F84A7203A1AF10CCA8DA607C91D429A9C79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230057   (842342) от 05.10.2021
-
-И.Г. Песталоцци | Избранные педагогические произведения [3 тома] (1961-1965) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник избранных педагогических произведений И.Г. Песталоцци включает известные сочинения и ряд ранее не переводившихся на русский язык работ и писем, проливающих яркий свет на жизнь и педагогическое творчество педагога-демократа. Трехтомное издание не может, разумеется, претендовать на полноту. В нем будет дана лишь некоторая, весьма небольшая часть произведений, (   Читать дальше...   )Жанр: История, искусство, педагогикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B0A02AC18268DC7FABABA12477CAABCEE276936
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500295   (842341) от 05.10.2021
-
-В.А. Романюк | Основы радиосвязи (2021) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842341.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебнике изложены механизмы работы систем и устройств радиосвязи. Значительное внимание уделено радиоволнам — их генерированию, излучению, распространению в различных средах, линиях передачи и околоземном пространстве. Приведены основные характеристики и параметры антенн, передатчиков и приемников. Описаны процессы, происходящие в связных радиосистемах: генерирование (   Читать дальше...   )Жанр: РадиосвязьФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50F1435F8308CC8267E0FD52A5E91222288178D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003891   (841696) от 04.04.2016
-
-Пётр I (ред.) | Азбука гражданская (1710) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841696.jpg" />
-</div>
-
-
-###  Подробнее
-
-В релизе представленна знаменитая "Гражданская азбука" с исправлениями Петра I и его собственноручной записью на внутренней стороне верхней крышки переплета: «Сими литеры печатать исторические и манифактурныя книги. А которыя подчернены, техЖанр: АзбукаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4538DA5D2863759BC5F9BAE6AD115C21114A29E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112723   (841639) от 09.03.2017
-
-С. Марвич | Сухой закон в Америке (1929) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841639.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассказано об истории принятия "сухого закона" в США, антиалкогольном законодательстве в Америке, критически рассмотрены его социально-экономические последствия.Жанр: История, политология, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0E17EECEA2C698C803D73F34CDFB41A6CCC1249
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1003382   (841503) от 04.04.2016
 
 А.В. Назаров и др. | Современная телеметрия в теории и на практике (2007) [DJVU]
@@ -136,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841503.jpg" />
 </div>
 
 
@@ -163,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841487.jpg" />
 </div>
 
 
@@ -192,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841434.jpg" />
 </div>
 
 
@@ -220,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841391.jpg" />
 </div>
 
 
@@ -246,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841353.jpg" />
 </div>
 
 
@@ -272,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841339.jpg" />
 </div>
 
 
@@ -298,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841238.jpg" />
 </div>
 
 
@@ -324,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841204.jpg" />
 </div>
 
 
@@ -352,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841117.jpg" />
 </div>
 
 
@@ -378,7 +248,7 @@ ARRL | The ARRL Handbook for Radio Communications (2017) [PDF] [En]
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841111.jpg" />
 </div>
 
 
@@ -404,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841095.jpg" />
 </div>
 
 
@@ -430,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841063.jpg" />
 </div>
 
 
@@ -456,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840988.jpg" />
 </div>
 
 
@@ -482,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840972.jpg" />
 </div>
 
 
@@ -508,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840950.jpg" />
 </div>
 
 
@@ -535,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840855.jpg" />
 </div>
 
 
@@ -561,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840821.jpg" />
 </div>
 
 
@@ -587,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840819.jpg" />
 </div>
 
 
@@ -615,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840814.jpg" />
 </div>
 
 
@@ -643,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840623.jpg" />
 </div>
 
 
@@ -671,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840318.jpg" />
 </div>
 
 
@@ -682,6 +552,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55BA0680C9297388E19D63D4DE877A6C21AE20CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004190   (840190) от 05.04.2016
+
+В. М. Усоскин | Основы кредитного дела (1946) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Содержание настоящего учебника охватывает вопросы, изложенные в программе курса «Организация кредитования и расчётов», утверждённой для кредитно-экономических институтов.
+
+В настоящем учебнике автор поставил своей задачей на основе марксистско-ленинской теории о социалистическом банке и решений партии и правительства по кредитной расчётной работе обобщить многолетний (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43746762362B8CD4B4A033CFA85D3735A0381AE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003920   (840189) от 05.04.2016
+
+В. И. 	Фридберг | Воры и расхитители — враги народа (1933) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840189.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Владельцы капиталов, владельцы земли, владельцы фабрик и заводов представляли и представляют во всех капиталистических государствах ничтожное меньшинство населения, целиком распоряжающееся всем народным трудом, значит, держащее в своем распоряжении угнетение и эксплуатацию всей массы трудящихся, из которой большинство является пролетариатом, наемными рабочими, (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23BBACD779AD66B35A6A12964D2CF829D2B0B7CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004185   (840185) от 05.04.2016
+
+Т. Ф. 	Ильин | Кто такой кулак и почему надо с ним бороться (1930) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840185.jpg" />
+</div>
+
+
+###  Подробнее
+
+"В классовой борьбе не может быть нейтральных. Кто был нейтрален в России к самодержавию, тот молчаливо поддерживал самодержавие" (Ленин).Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B5B0C453FF7AA1FAD516A1B2516DD7ACF645CEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003778   (840089) от 05.04.2016
+
+В.Т. Калугин | Аэрогазодинамика органов управления полетом летательных аппаратов (2004) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изложены результаты исследований различных способов управления аэродинамическими характеристиками ракет, ракетных блоков и космических спускаемых аппаратов. Рассмотрены методы математического и физического моделирования процессов обтекания органов управления полетом. Систематизирован материал по аэродинамическим, струйным, газодинамическим органам управления, позволяющий (   Читать дальше...   )Жанр: Физика, учебная литератураФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79EF6B5899F4487AA9B2A66687D3A4E07C02A161
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004299   (840011) от 05.04.2016
+
+Павел Бурышкин | Москва купеческая (2015) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840011.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Москва купеческая" - это блестящая история российского торгового сословия, составленная выходцем из купеческой среды Павлом Афанасьевичем Бурышкиным. Предприниматель, издатель, общественный и государственный деятель, он не принял Октябрьской революции 1917 года и покинул Россию. Оказавшись в Париже, Бурышкин постепенно отошел от активной общественно-политической (   Читать дальше...   )Жанр: История России, биографии и мемуарыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DF8D61FF65477A5058CA2615A17CE170A220930
 ```
 
 https://mybot314.ru/tekegram_catalog/

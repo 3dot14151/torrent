@@ -1,3 +1,56 @@
+###  Публикация: 246693   (421228) от 19.10.2010
+
+BlackSite Area 51 / Зона 51 [Ru] (RePack/1.2) 2008 | R.G.Spieler
+
+>>След.
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_421228.jpg" />
+</div>
+
+
+###  Подробнее
+
+Штат Невада, маленький городок Рейчел, находящийся в 85 милях к северо-востоку от игорной столицы мира Лас-Вегаса. Ничем не примечательный, за исключением одного «но» неподалеку располагается база, официально принадлежащая военно-воздушным силам США, – Зона 51. Также, по заверениям официальных источников, на базе в основном занимаются разработкой и тестированием новейших военных самолетов. По крайней мере, так думали до сих пор – пока улицы провинциального городка не заполонили орды инопланетных монстров…
+В составе команды бойцов элитного армейского подразделения игрокам предстоит выяснить, что произошло за стенами одного из самых засекреченных объектов на территории США. Blacksite – атмосферный научно-фантастический боевик с захватывающим, нетривиальным сюжетом и массой неожиданностей (автором выступила Сьюзан О’Коннор – сценарист культового Gears of War). На высоте и графическая составляющая – игра задействует высокотехнологичный Unreal Engine 3. Любители разнообразия получат в свое распоряжение шутерный геймплей (   Читать дальше...   )Жанр: Action (Shooter) / 3D / 1st Person
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 395801   (421174) от 03.10.2011
+
+[Update\Crack v1.01] Hard Reset [Multi4/+] 2011 |THETA
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Позволяет поиграть в игру, под названиемЖанр: Action (Shooter) / 3D / 1st Person
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8332CE6F65E382ABB19E16D07A9B27BCF35C0CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 554391   (420901) от 07.10.2012
 
 Torchlight II [En] (RePack/1.12.2.7) 2012 | R.G. Shift
@@ -6,7 +59,7 @@ Torchlight II [En] (RePack/1.12.2.7) 2012 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420901.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ Saints Row: The Third + 19 DLC [Ru/Multi9] (Steam-Rip) 2011 | R.G. Игрома�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_420765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_420765.jpg" />
 </div>
 
 
@@ -63,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420358.jpg" />
 </div>
 
 
@@ -89,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_418999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_418999.jpg" />
 </div>
 
 
@@ -115,7 +168,7 @@ NBA 2K13 [En] (Repack) 2012 l SEYTER
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418515.jpg" />
 </div>
 
 
@@ -141,7 +194,7 @@ The Testament of Sherlock Holmes [Multi] [Crack] 2012 | SKiDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418509.jpg" />
 </div>
 
 
@@ -168,7 +221,7 @@ Spec Ops: The Line + 2 DLC [Ru/En] (Steam-Rip/1.0.6890.0) 2012 l R.G. Игром
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418232.jpg" />
 </div>
 
 
@@ -197,7 +250,7 @@ Spellforce 2: Shadow Wars (2006) [En] (1.02) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418186.jpg" />
 </div>
 
 
@@ -223,7 +276,7 @@ Spellforce 2: Dragon Storm (2007) [Ru/En] (2.01) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418177.jpg" />
 </div>
 
 
@@ -249,7 +302,7 @@ Kingdoms of Amalur: Re-Reckoning (2020) [Ru/Multi] (SC:6813b) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417640.jpg" />
 </div>
 
 
@@ -275,7 +328,7 @@ The Testament of Sherlock Holmes [Ru] (RePack) 2012 l R.G. Repacker's
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415975.jpg" />
 </div>
 
 
@@ -307,7 +360,7 @@ Grand Ages: Medieval (2015) [Ru/Multi] (1.0.3-19962/DLC) Repack R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415127.jpg" />
 </div>
 
 
@@ -333,7 +386,7 @@ Kingdom Two Crowns (2018) [Ru/Multi] (1.0.4/dlc) License PLAZA [Royal Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413921.jpg" />
 </div>
 
 
@@ -359,7 +412,7 @@ Sleeping Dogs [Ru/En] (Steam-Rip/1.5/3 DLC) 2012 | R.G. Игроманы
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_413558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_413558.jpg" />
 </div>
 
 
@@ -386,7 +439,7 @@ The Testament of Sherlock Holmes [Ru/En] (RePack) 2012 l Sash HD
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413406.jpg" />
 </div>
 
 
@@ -418,7 +471,7 @@ Halcyon 6: Starbase Commander (2016) [En] (1.0.0.8) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413293.jpg" />
 </div>
 
 
@@ -444,7 +497,7 @@ Max Payne 3 [Ru/Muli7] (RePack/1.0.0.57) 2012 | R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413216.jpg" />
 </div>
 
 
@@ -470,7 +523,7 @@ Ryse: Son of Rome (2014) [Ru/Multi] (1.0.0.150 Upd2) SteamRip R.G. Origins
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411630.jpg" />
 </div>
 
 
@@ -496,7 +549,7 @@ Krampus (2016) [En] (1.0.0) License PLAZA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411224.jpg" />
 </div>
 
 
@@ -522,7 +575,7 @@ Lithium: Inmate 39 (2016) [Ru/Multi] (1.0) License PLAZA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411082.jpg" />
 </div>
 
 
@@ -548,7 +601,7 @@ Victor Vran (2015) [Ru/Multi] (2.07b.161025/dlc) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410919.jpg" />
 </div>
 
 
@@ -574,7 +627,7 @@ Batman - The Telltale Series (2016) [Ru/Multi] (1.0) License CODEX [Episode 1-3]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410917.jpg" />
 </div>
 
 
@@ -600,7 +653,7 @@ Dreamfall: The Longest Journey / Dreamfall: Бесконечное путеше�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410773.jpg" />
 </div>
 
 
@@ -626,7 +679,7 @@ Blocks That Matter [Ru/Multi3] (RePack/1.1.0.2) 2011 | NSIS
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409367.jpg" />
 </div>
 
 
@@ -639,58 +692,6 @@ Blocks That Matter [Ru/Multi3] (RePack/1.1.0.2) 2011 | NSIS
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D13EA968F3CF444FC018EAA2F019A9D087778FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559174   (409235) от 12.10.2012
-
-Bad Piggies [En] (RePack/1.0.0) 2012 | Repack by R.G. UPG
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_409235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Внешне игра очень смахивает на оригинальную Angry Birds множеством элементов — анимацией, звуковым оформлением и настроением. В новой аркаде Вам необходимо будет собрать из подручных материалов средство для передвижения, на котором «плохие поросята» смогут добраться до заветных звёздочек. Это может быть забавный трехколёсный автомобиль с крыльями, летающий на двух шариках ящик или гибрид велотренажера с дирижаблем.Тип издания: RepackЖанр: Arcade, Logic, PuzzleЯзык озвучки: -/-Язык субтитров: -/-Язык интерфейса: Английский (перевод не требуется)
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066807   (409140) от 27.10.2016
-
-Kyurinaga's Revenge (2016) [Multi] (1.0) License SKIDROW
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kyurinaga’s Revenge является 2D платформером , задача игрока решать множество головоломок и загадок. Место действия Феодальная Япония где главный герой сражается вместе с Broccoli Joe - самурай который поможет в трудную минутку. Игрок когда это необходимо может переключатся между персонажами это необходимо для решения многих задач и является частью геймплея. Так (   Читать дальше...   )Тип издания: LicenseРазработчик: Recotechnology S.L.Жанр: Action, Adventure, PlatformerЯзык субтитров: Английский, Испанский, ЯпонскийЯзык интерфейса: Английский, Испанский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3FE1A99FFD45C1F99B42DC5D8736BB8D8A3F9CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

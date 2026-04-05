@@ -1,81 +1,3 @@
-###  Публикация: 1075058   (320799) от 22.11.2016
-
-Е. А. Ножин | Основы советского ораторского искусства (1973) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга дает систематическое представление о советском ораторском искусстве как прикладной и теоретической дисциплине. В основе ее — учет данных языкознания, философии, логики, психологии, а также анализ ораторской практики выдающихся ораторов.Жанр: История, философия, искусство, психология, филология, риторика, логикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37A68D8B698A71A6011F478213DFF75AD7CB7DC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181936   (320614) от 08.11.2017
-
-П.Д. Волкова | Великие художники: большая книга мастеров и эпох (2017) [PDF, FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга «Великие художники: большая книга мастеров и эпох» объединяет в себе два заключительных тома серии «Мост через бездну» – легендарного цикла лекций Паолы Волковой – и рассказывает нам об эволюции живописи – от заката Ренессанса до наших дней, от идеального образа до сиюминутного впечатления. Паола Дмитриевна приглашает нас в долгое путешествие по мосту над бездной (   Читать дальше...   )Жанр: ИскусствоведениеФормат: PDF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A30D4D9BABD90B2EF2C3CE287E8675E15AE1002
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075493   (320592) от 22.11.2016
-
-Елена Дмитриевна Мелешко | Христианская этика Л.Н. Толстого (2006) [PDF, DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320592.jpg" />
-</div>
-
-
-###  Подробнее
-
-В монографии исследуется этика Л.Н. Толстого как искусство жизни в соответствии с принципами христианского вероучения - любви, непротивления и неделания. По мнению автора, великий писатель видел основу философствования в сознании всеобщего духовного начала - Бога. Религия для Толстого есть первое, аксиоматическое жизнеощущение, в силу чего именно она должна задавать (   Читать дальше...   )Жанр: Этика, философия, монографияФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C007886C170DE04F745373E42037489BA64AB4AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1075497   (320431) от 22.11.2016
 
 К. Маркс, Ф. Энгельс | Манифест коммунистической партии (1950) [PDF]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320431.jpg" />
 </div>
 
 
@@ -112,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319485.jpg" />
 </div>
 
 
@@ -138,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319480.jpg" />
 </div>
 
 
@@ -164,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319339.jpg" />
 </div>
 
 
@@ -190,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319277.jpg" />
 </div>
 
 
@@ -218,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319195.jpg" />
 </div>
 
 
@@ -244,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319125.jpg" />
 </div>
 
 
@@ -270,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318815.jpg" />
 </div>
 
 
@@ -296,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318811.jpg" />
 </div>
 
 
@@ -322,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318202.jpg" />
 </div>
 
 
@@ -351,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317618.jpg" />
 </div>
 
 
@@ -377,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317558.jpg" />
 </div>
 
 
@@ -403,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317306.jpg" />
 </div>
 
 
@@ -429,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316914.jpg" />
 </div>
 
 
@@ -455,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316781.jpg" />
 </div>
 
 
@@ -481,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316774.jpg" />
 </div>
 
 
@@ -507,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316630.jpg" />
 </div>
 
 
@@ -535,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316615.jpg" />
 </div>
 
 
@@ -563,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316595.jpg" />
 </div>
 
 
@@ -591,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316591.jpg" />
 </div>
 
 
@@ -619,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316584.jpg" />
 </div>
 
 
@@ -647,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316388.jpg" />
 </div>
 
 
@@ -673,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316360.jpg" />
 </div>
 
 
@@ -684,6 +606,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47E77A977F92BAC600E27170FF798EE5ED66A507
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076058   (316128) от 24.11.2016
+
+Е. С. Варга | Избранные произведения [3 тома] (1974) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316128.jpg" />
+</div>
+
+
+###  Подробнее
+
+По решению Президиума Академии наук СССР Институт мировой экономики и международных отношений подготовил издание избранных трудов академика Евгения Самойловича Варги — народного комиссара Венгерского Советского правительства в 1919 г., видного деятеля международного коммунистического и рабочего движения, выдающегося ученого-марксиста, с именем которого связан большой (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:193E7233374FDE1D00C5DB5D962605CD99AD24FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075957   (315985) от 24.11.2016
+
+Николай Георгиевич Самсонов | Древнерусский язык (1973) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие "Древнерусский язык" состоит из двух частей. В первой части дается краткая характеристика основных этапов развития языка и письменности восточных славян, во второй - описание основных черт звуковой системы, морфологии и важнейших синтаксических особенностей древнерусского языка.
+В пособии имеются репродукции памятников древнерусской письменности, (   Читать дальше...   )Жанр: Лингвистика, филология, учебное пособиеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D92B244FA4ECBAF70224A91E360F91A5CCD4F783
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 583393   (315486) от 01.12.2012
+
+Николай Шалфеев | Об Уставной книге Разбойного приказа [1868] [PDF] (Раритетное издание)
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уставная книга разбойного приказа - судебное уложение, в основе которого лежит уголовное уложение, составленное около 1555 г., которым должен был руководствоваться Разбойный приказ при решении уголовных дел. В Смутное время деятельность Разбойного приказа прекратилась, новые вопросы не возбуждались и уставная книга поэтому не пополнялась. В 1617 г. была составлена дьяком Корсаковым и подьячим Постниковым новая уставная книга из прежней уставной книги и дополнительных к ней узаконений времен царей Федора Иоанновича и Бориса Годунова. Впоследвии к ней были присоединены вопросы, ответ на которые был дан Уложением 1649 г. Н.П. Шалфеев был одним из немногих детально исследовавших этот письменный памятник права, этот его труд предлагается в раздаче. Большое внимание уделено на время и место ее составления, на систему и источники, из которых она была составлена. Детальному разбору и анализу подверглись многие положения уставной книги. Выяснено значение, которое имело это уложение для Разбойного приказа и подведомственных (   Читать дальше...   )Жанр: Раритеты, Научная литература, История, ПравоведениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9A9C5EA278F4D2712BAA0F570D3912DD98E4F9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

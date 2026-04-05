@@ -6,7 +6,7 @@
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332998.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332996.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332990.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Expression Trip | Хардкорный курс по анимации с пом�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332987.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332912.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ StudyFoto | Красивый портрет «от и до»: съемка и о
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331945.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Highlights School | Цветокоррекция и тонирование в Ph
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330675.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328072.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327193.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327165.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322289.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Lynda.com | Работа с Nikon D3200 и D3300 (2016) HDRip [H.264/720p-LQ]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316379.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316220.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316219.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313197.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ LiveClasses, Антон Мартынов | Мифы и правда об ISO (20
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305787.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ LiveClasses, Антон Мартынов | 20 знаменитых фотогр�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305777.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ LiveClasses, Антон Мартынов | Что такое хорошо и ч�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305771.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ LiveClasses, Антон Мартынов | Логика настроек фот�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305731.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Fstoppers, Patrick Hall, Lee Morris | Введение в видеопродак
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304013.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ LiveClasses, Антон Мартынов | Как снимать натюрмо�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303907.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303901.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ LiveClasses, Антон Мартынов | Как это снято? (2020) PCRe
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303890.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ LiveClasses, Антон Мартынов | Как снимать автопор�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303885.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ LiveClasses, Антон Мартынов | Мужской портрет в ни
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303794.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ LiveClasses, Антон Мартынов | Вспышки (2020) HDTVRip
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303792.jpg" />
 </div>
 
 

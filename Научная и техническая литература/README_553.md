@@ -1,136 +1,3 @@
-###  Публикация: 1431630   (166379) от 14.12.2020
-
-Д.М. Златопольский | Основы программирования на языке Python 2-е изд. (2018) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166379.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет собой учебник по программированию на языке Python. Она написана простым языком, приводятся типичные ошибки начинающих программировать и даётся ряд полезных советов. Рассмотрены основные типовые задачи и методы их решения с подробными комментариями.
-Издание будет полезно школьникам и студентам, а также учителям средних школ и преподавателям вузов (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11E209EE73DC3C280ABF80BCE8D9AE1C138190AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385108   (166372) от 14.12.2020
-
-Книжная серия | Философия на пальцах [22 книги] (2016-2020) [EPUB]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия «Философия на пальцах» представляет собой хрестоматии философов с древнейших времен и до наших дней. Произведения издаются с подробными комментариями, объясняющими сложные философские смыслы и расположенными внутри произведений. Это делает чтение наиболее глубоким и интересным.Жанр: Античная литература, Древневосточная литература, Философия, Психология, ПолитологияФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A0FAB1EA7B4DA92D41DC97C836843C1178C34DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515637   (166337) от 10.12.2021
-
-Стурла Пилског | Penis. Гид по мужскому здоровью от врача-уролога (2021) [FB2]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166337.jpg" />
-</div>
-
-
-###  Подробнее
-
-В легкой и увлекательной форме норвежский уролог Стурла Пилског рассказывает о том, как устроена мочеполовая система у мужчин. Эта книга ответит на самые волнующие вопросы, научит отличать опасные состояния от нормальных и объяснит, что можно сделать, чтобы избавиться от проблем.
-
-На русском языке публикуется впервые.Жанр: Здоровье, Научно-популярная литература, Популярно о медицине, Урология и нефрологияПеревод: Мария ТкаченкоФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:323364D89A12C81055D6039B5F9AEC8C1F63A33C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345636   (166269) от 15.12.2019
-
-И.О. Меттус | Артикли и предлоги английского языка в таблицах (2015) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166269.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное пособие посвящено анализу артиклей и предлогов современного английского языка. Все правила и исключения. закономерности и тонкости формообразования, значения и употребления артиклей и предлогов представлены в виде таблиц, снабжены большим количеством примеров и подробными комментариями. Сравнительный анализ употребления разных артиклей поможет разобраться (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CB48F1765D18F303CC136FE2174A756DCFDC251
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345563   (166254) от 15.12.2019
-
-С.П. Воробьев (ред.). | Инфокоммуникационные сети: энциклопедия [1,3 том] (2019) [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166254.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый том энциклопедии знакомит читателя с классификацией инфокоммуникационных сетей по признаку уровня интеграции телекоммуникационных служб и дает достаточно полную характеристику этих сетей на различных этапах их развития. Впервые в описание системы включен жизненный цикл как объект исследования ее эффективности. Подробно рассмотрены инфокоммуникационные технологии, (   Читать дальше...   )Жанр: Сетевые технологииФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9378B46DCFF346A9388B48CD70D4B787259843B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1345548   (166250) от 15.12.2019
 
 Александр Иванов | Боль в шее. Советы профессионалов (2019) [PDF]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166250.jpg" />
 </div>
 
 
@@ -165,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166184.jpg" />
 </div>
 
 
@@ -191,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166147.jpg" />
 </div>
 
 
@@ -217,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166119.jpg" />
 </div>
 
 
@@ -243,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166104.jpg" />
 </div>
 
 
@@ -269,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166036.jpg" />
 </div>
 
 
@@ -296,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165972.jpg" />
 </div>
 
 
@@ -322,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165944.jpg" />
 </div>
 
 
@@ -350,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165901.jpg" />
 </div>
 
 
@@ -376,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165896.jpg" />
 </div>
 
 
@@ -404,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165895.jpg" />
 </div>
 
 
@@ -430,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165868.jpg" />
 </div>
 
 
@@ -457,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165845.jpg" />
 </div>
 
 
@@ -484,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165842.jpg" />
 </div>
 
 
@@ -511,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165833.jpg" />
 </div>
 
 
@@ -537,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165746.jpg" />
 </div>
 
 
@@ -564,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165745.jpg" />
 </div>
 
 
@@ -590,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165567.jpg" />
 </div>
 
 
@@ -616,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165562.jpg" />
 </div>
 
 
@@ -642,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165557.jpg" />
 </div>
 
 
@@ -668,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165548.jpg" />
 </div>
 
 
@@ -679,6 +546,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8CC896421B8782562CE4E44BACD4C960EE6168E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345739   (165496) от 16.12.2019
+
+В.М. Алексеев | Язык программирования HTML5 (2019) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165496.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебно-методическом пособии излагаются основы языка программирования. Материал, изложенный в учебно-методическом пособии используется при изучении языка HTML5 и PHP изучаемых на старших курсах специализации 10.05.01 «Компьютерная безопасность».Жанр: Компьютерная литератураФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A966E5DFCC0F8EFA9313CB4244ADA66CA775C95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 341154   (165492) от 16.12.2019
+
+В.О. Шпаковский  | Танки. Уникальные и парадоксальные. Иллюстрированная энциклопедия (2007) [DJVU]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Танки, прежде чем принять тот вид, в котором они существуют сейчас, прошли долгий путь развития.  При этом иногда создавались какие-то головоломные конструкции и не замечались очевидные (на взгляд потомков)  решения. Данное издание как раз и посвящено таким экзотическим проектам — их анализу и гипотезам о том, что могло бы быть, если бы мировое танкостроение пошло (   Читать дальше...   )Жанр: Энциклопедия, Военная техникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03207A6906C4EBD7B8FB01F70ED7939D66E57A02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673322   (165290) от 01.11.2023
+
+Дж. Барлтроп, Дж. Койл | Возбуждённые состояния в органической химии (1978) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие по органической фотохимии. Нетрадиционное изложение материала - не по типам реакций, а по реакциям хромофорных (поглощающих) групп.
+Рекомендуется преподавателям и студентам, специалистам в области фотохимии.Жанр: ХимияИздательство: МирФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30900626847B9769C76B77AC82C71240F8909A38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345888   (165165) от 17.12.2019
+
+Майкл Карвер | Битва под Эль-Аламейном. Поражение танковой армии Роммеля в Северной Африке (2003) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165165.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассказывается о событиях Второй мировой войны в Северной Африке близ маленькой железнодорожной станции Эль-Аламейн осенью 1942 года. Автор использует документальные источники: письма Роммеля, телеграммы Гитлера, доклад командования австралийской дивизии о ходе кампании. Детально воссоздана картина боевых действий армий Германии и Британии.Жанр: История, Военная историяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DF4CCE5DB8EAE88DBCCF94F479530FAEDCE26D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432253   (165149) от 16.12.2020
+
+Н.С. Бахвалов и др. | Численные методы (2015) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165149.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классический учебник по численным методам, переработанный с учетом современных тенденций в вычислительных методах. В данном издании устранены неточности и опечатки, имевшиеся в предыдущих изданиях, упрощены некоторые доказательства.
+Для студентов и преподавателей вузов, а также для специалистов, использующих численные методы в своей работе.
+8-ое издание.Жанр: МатематикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC830CB49F4E8131104A0BD84EDB1E23CA27E03B
 ```
 
 https://mybot314.ru/tekegram_catalog/

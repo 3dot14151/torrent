@@ -1,3 +1,30 @@
+###  Публикация: 1821725   (63878) от 03.10.2025
+
+Сергей Есенин | Чёрный человек. Поэмы, проза (2024) [MP3, Станислав Концевич]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: «Всемирная литература».
+Сергей Александрович Есенин (1895–1925) – один из ключевых поэтов своей эпохи. Кажется, еще при жизни поэтические тексты Есенина обрели статус культовых. Его стихи не просто проходят в школах, после чего навсегда забывают, нет – эти стихи давно стали родными для каждого отечественного читателя. В настоящее издание вошли подлинные (   Читать дальше...   )Жанр: Русская литература, классика, поэзия, прозаИздательство: ЭксмоПродолжительность: 07:53:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A598363B8148533DF12A2D861E86E652FC64DD63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 321835   (63836) от 06.03.2024
 
 Эрнст Теодор Амадей Гофман | Песочный человек (2004) [MP3, Олег Фёдоров]
@@ -6,7 +33,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63836.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63763.jpg" />
 </div>
 
 
@@ -62,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63758.jpg" />
 </div>
 
 
@@ -91,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63747.jpg" />
 </div>
 
 
@@ -119,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63660.jpg" />
 </div>
 
 
@@ -147,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63641.jpg" />
 </div>
 
 
@@ -175,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63631.jpg" />
 </div>
 
 
@@ -202,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63630.jpg" />
 </div>
 
 
@@ -230,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63612.jpg" />
 </div>
 
 
@@ -258,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63607.jpg" />
 </div>
 
 
@@ -286,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63586.jpg" />
 </div>
 
 
@@ -314,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63549.jpg" />
 </div>
 
 
@@ -342,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63548.jpg" />
 </div>
 
 
@@ -370,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63532.jpg" />
 </div>
 
 
@@ -399,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63461.jpg" />
 </div>
 
 
@@ -426,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63447.jpg" />
 </div>
 
 
@@ -454,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63444.jpg" />
 </div>
 
 
@@ -480,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63395.jpg" />
 </div>
 
 
@@ -506,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63348.jpg" />
 </div>
 
 
@@ -534,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63346.jpg" />
 </div>
 
 
@@ -562,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63344.jpg" />
 </div>
 
 
@@ -590,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63343.jpg" />
 </div>
 
 
@@ -618,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63341.jpg" />
 </div>
 
 
@@ -646,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63327.jpg" />
 </div>
 
 
@@ -674,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63324.jpg" />
 </div>
 
 
@@ -687,33 +714,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02392ABD57DCCE7ACE7D1888340B2BF5C7C8BBCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 291509   (63321) от 11.03.2024
-
-Михаил Волконский | Тёмные силы (2010) [MP3, Галина Самойлова]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Исторический авантюрный роман.
-Роман «Тёмные силы» написан Михаилом Николаевичем Волконским в 1910 году. Интриги, власть, деньги, любовь, ненависть, дружба – все переплелось в этом увлекательном романе. В отдельном кабинете лучшего петербургского ресторана стоял у окна молодой человек, видимо, в ожидании, стоял, однако, терпеливо, не выказывая никаких (   Читать дальше...   )Жанр: Русская литература, классика, историко–приключенческий романПродолжительность: 07:13:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E449F42B36EC686EDA712D5554A616DA1ACB10A
 ```
 
 https://mybot314.ru/tekegram_catalog/

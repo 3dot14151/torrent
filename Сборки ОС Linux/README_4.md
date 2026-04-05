@@ -6,7 +6,7 @@ Ubuntu KDE Plasma by spb_user 22.04.4 [amd64] 1xDVD (август 2024) [Авт�
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46257.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Ubuntu*Pack 22.04 Unity (сентябрь 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43406.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Ubuntu*Pack 22.04 Budgie (сентябрь 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43397.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ GFI Kerio Control 9.4.4 build 8434 [x86_64] 2xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38540.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ MiniOS (все редакции) v3.3.4 [amd64, i386] 10xCD [RU]
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37423.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ MiniOS (все редакции) v4.1.2 [amd64, i386] 4xDVD [RU]
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24106.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ UALinux CyberPack FaP 22.04 [Multi]
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20745.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Ubuntu*Pack 22.04 Xfce / Xubuntu (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9820.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Ubuntu GamePack 22.04 (июль 2025) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9814.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Ubuntu*Pack 22.04 (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9803.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Ubuntu ServerPack 22.04 (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9800.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Ubuntu*Pack 22.04 MATE (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9798.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Ubuntu*Pack 22.04 GNOME (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9797.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Ubuntu*Pack 22.04 Cinnamon (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9796.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Ubuntu*Pack 22.04 LXqt / Lubuntu (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9793.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Ubuntu*Pack 22.04 LikeWin (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9791.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Ubuntu*Pack 22.04 KDE / Kubuntu (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9787.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Ubuntu*Pack 22.04 DDE (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8733.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Ubuntu*Pack 24.04 LikeWin (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7568.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Ubuntu*Pack 24.04 Xfce / Xubuntu (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7560.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Ubuntu*Pack 24.04 (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7549.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Ubuntu*Pack 24.04 GNOME (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7546.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Ubuntu*Pack 24.04 LXqt / Lubuntu (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7544.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Ubuntu*Pack 24.04 KDE / Kubuntu (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7539.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Ubuntu*Pack 24.04 MATE (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7537.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Ubuntu*Pack 24.04 Cinnamon (июль 2025) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7535.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Howard Rumsey's Lighthouse All-Stars - Volume 6 (1954, 1955) Original Jazz Class
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612897.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Pee Wee Russell Sextet - Complete Live At Bovi's Town Tavern (1964) /2011, Gambi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612895.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Lonnie Smith - Drives (1970) /2009, EMI Music/[FLAC|tracks+.cue]<Jazz, Jazz Fusi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612893.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Illinois Jacquet - The King! (1968) /2000, Prestige/[FLAC|tracks+.cue]<Jazz, Mai
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612812.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Jimmie Lunceford - 1934 - 1935 (1990) Classics [FLAC|Lossless|tracks + .cue] <Sw
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612343.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Blue Mitchell - Blue Soul (1959) Remaster, 2006, JVC[FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612231.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Nat Adderley - Sayin' Somethin' (1966) Remaster, 2012, Warner[FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612224.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Chris Standring - Don't Talk, Dance (2014) [FLAC|Lossless]<Smooth Jazz, Contempo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612085.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Benny Carter - Waltzing The Blues (1930 - 1957) 2007, Basics [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611852.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Bob Mamet Trio - Impromptu (2010) [FLAC|Lossless]<Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_611805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_611805.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Dakh Daughters - Air (2019) [FLAC|Lossless|WEB-DL|tracks] <Cabaret, Jazz, Folk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611756.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Bob Moses - When Elephants Dream of Music (1993) [FLAC|Lossless]<Post-Bop, Progr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_611582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_611582.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Bobby Caldwell - Perfect Island Nights (2005) [FLAC|Lossless]<Smooth Jazz, R&B, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_611457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_611457.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Ted Rosenthal Trio - Rhapsody in Gershwin (2014) Playscape Recordings [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611329.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Steve Lacy Sextet - The Gleam (1986) Silkheart Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611327.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Brook Benton - Songs I Love To Sing (1960) 2003, Universal [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611324.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Harry Allen Quartet featuring Bill Charlap - Blues For Pres And Teddy (2011) Ind
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611317.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Jazzamor - Strange To Be In Paradise (2017) [FLAC|Lossless|WEB-DL|tracks] <Futur
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611201.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Shorty Rogers And His Giants - The Swinging Mr. Rogers (1955) /2012, Atlantic/[F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610980.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Marcel Khalife - Caress (2008) [FLAC|tracks+.cue]<Jazz, Ethnic Jazz, World Fusio
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610977.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Airto Moreira & The Gods Of Jazz - Killer Bees (1993) [FLAC|Lossless]<Fusion, Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_610657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_610657.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Vanessa Bley - Colors (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Piano>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610584.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ McCoy Tyner Trio With Symphony - What The World Needs Now: The Music of Burt Bac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610582.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ Clark Terry - Combo & Sextet: Free And Oozy (1963) 1998, Blue Moon [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610328.jpg" />
 </div>
 
 
@@ -717,7 +717,7 @@ Ron Carter Trio - Cocktails at the Cotton Club (2013) [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610209.jpg" />
 </div>
 
 
@@ -746,7 +746,7 @@ Clare Fischer - First Time Out + Jazz (1961, 1962) 2013, Poll Winners Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609872.jpg" />
 </div>
 
 

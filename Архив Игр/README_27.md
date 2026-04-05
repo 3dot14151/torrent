@@ -1,3 +1,58 @@
+###  Публикация: 341458   (661145) от 25.05.2011
+
+[Repack] DiRT 3 [En] 2011 | R.G. Packers
+
+>>След.
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_661145.jpg" />
+</div>
+
+
+###  Подробнее
+
+DiRT 3 - гоночный автосимулятор от студии Codemasters. Colin McRae: DiRT 3 похвастается более, чем пятью десятками автомобилей разных лет, охватывающих пятьдесят последних лет автоспорта. В игре будут присутствовать знаменитые модели прошлых лет и настоящего времени. В DiRT 3 представлено больше машин, территорий, трасс и соревнований, чем в предыдущих играх серии. Более пяти десятков лучших раллийных автомобилей, участвовавших в гонках за последние пятьдесят лет; вдвое больше треков, чем в проекте 2009 года; соревнования на любой вкус; рейтинги, награды и достижения — в DiRT 3 каждый может стать настоящим профессионалом виртуального ралли и сделать блестящую карьеру гонщика.(   Читать дальше...)Тип издания: RepackЖанр: Racing (Cars) / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 513561   (661016) от 21.06.2012
+
+Magicka. Ну очень эпическая игра / Magicka (RePack/1.4.7.0) [Ru/En] 2011 | VANSIK
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661016.jpg" />
+</div>
+
+
+###  Подробнее
+
+Magicka — сатирическая приключенческая игра, действие которой происходит в богатом фэнтези-мире, придуманном на основе германо-скандинавской мифологии. Игрок возьмет под свой контроль мага из таинственного ордена и отправится в путешествие с целью остановить злого волшебника, превратившего мир в одну большую неразбериху, и чьи злые создания пытаются одержать победу над добрыми жителями этого мира.
+Игроки смогут объединять волшебные элементы, чтобы использовать заклинания, сея хаос и разрушения в сердцах приспешников тьмы. Кроме того, можно сыграть и с друзьями, проходя через жестокие дебри кампании, или же проверить свои навыки создания заклинаний с помощью других режимов игры.
+До четырех игроков могут отправиться в Magicka ради спасения своего мира, используя полностью динамическую систему заклинаний. Приключенческий режим отправит игроков в три разных уровня, в котором им встретятся как пышные леса, так и горные аллеи, ведущие к замороженным залам Горного короля, где нужно будет применить весь свой ум и проворность для того, чтобы победить врага.
+В разблокируемом игровом режиме повышенной сложности игрокам предстоит сражаться с волнами врагов, соревнуясь за первые места в таблице лучших. (   Читать дальше...   )Тип издания: RepackЖанр: Arcade / 3D / IsometricЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:488A2849E89C3370CCA45C3E860AA7FCC67A57CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 511440   (660933) от 21.06.2012
 
 Game of Thrones (RePack/1.0) [En/Ru] 2012 | R.G. ReCoding
@@ -6,7 +61,7 @@ Game of Thrones (RePack/1.0) [En/Ru] 2012 | R.G. ReCoding
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660933.jpg" />
 </div>
 
 
@@ -34,7 +89,7 @@ Vessel (RePack/1.11) [Multi5/+] 2012 l Fenixx
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660927.jpg" />
 </div>
 
 
@@ -63,7 +118,7 @@ Quantum Conundrum (RePack) [En] 2012 | R.G. Recoding
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660380.jpg" />
 </div>
 
 
@@ -89,7 +144,7 @@ Quantum Conundrum (P) [Multi6\-] 2012 | THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660317.jpg" />
 </div>
 
 
@@ -116,7 +171,7 @@ Tom Clancy's Ghost Recon: Future Soldier (RePack/1.0) [Ru/En] 2012 l VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659796.jpg" />
 </div>
 
 
@@ -144,7 +199,7 @@ Tom Clancy's Ghost Recon: Future Soldier (RePack/1.0) [En] 2012 l Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659792.jpg" />
 </div>
 
 
@@ -173,7 +228,7 @@ Tom Clancy's Ghost Recon: Future Soldier (RePack) [Ru/En] 2012 l SHARINGAN
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659788.jpg" />
 </div>
 
 
@@ -201,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658596.jpg" />
 </div>
 
 
@@ -229,7 +284,7 @@ DiRT Коллекция [Ru/En] (RePack) 2007-2011 | shidow
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657782.jpg" />
 </div>
 
 
@@ -255,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657420.jpg" />
 </div>
 
 
@@ -282,7 +337,7 @@ Flower, Sun and Rain [PS3 / PS2 Classics] (2001) [PS3] [NTSC-J] 3.55 [Unofficial
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657357.jpg" />
 </div>
 
 
@@ -308,7 +363,7 @@ theHunter: Call of the Wild (2017) [Ru/Multi] (2204008/dlc) Repack dixen18
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655864.jpg" />
 </div>
 
 
@@ -334,7 +389,7 @@ The Binding of Isaac: The Wrath of the Lamb [En] (Rip/1.3) 2012 | Theta
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655258.jpg" />
 </div>
 
 
@@ -363,7 +418,7 @@ Salvation Prophecy [En] (P) 2012 | THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655164.jpg" />
 </div>
 
 
@@ -391,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655160.jpg" />
 </div>
 
 
@@ -421,7 +476,7 @@ World of Tanks Mods (2015) [Ru] (19.1) Mod Jove [Сборка модов от Jo
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655117.jpg" />
 </div>
 
 
@@ -447,7 +502,7 @@ World of Tanks (2010) [Ru] (0.9.8) License
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655104.jpg" />
 </div>
 
 
@@ -475,7 +530,7 @@ World of Tanks Mods (2015) [Ru] (19.2) Mod Jove [Extended] [Сборка мод�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655092.jpg" />
 </div>
 
 
@@ -501,7 +556,7 @@ Quantum Conundrum (RePack/1.0dc120625) [En] 2012 | VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654587.jpg" />
 </div>
 
 
@@ -527,7 +582,7 @@ Car Mechanic Simulator 2015 (2015) [Ru/En] (1.0.4) Repack by xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654049.jpg" />
 </div>
 
 
@@ -553,7 +608,7 @@ Spec Ops: The Line (RePack) [Ru/En] 2012 | VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653726.jpg" />
 </div>
 
 
@@ -583,7 +638,7 @@ Spec Ops: The Line (RePack) [En] 2012 | VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653724.jpg" />
 </div>
 
 
@@ -613,7 +668,7 @@ Kingdoms of Amalur: Reckoning (RePack/1.0.0.2) [Ru] 2012 l Ininale
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653533.jpg" />
 </div>
 
 
@@ -641,7 +696,7 @@ Spec Ops: The Line (Rip) [Ru/En] 2012 | Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653368.jpg" />
 </div>
 
 
@@ -656,63 +711,6 @@ Spec Ops: The Line — необычный кинематографичный ш�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F2D9463616610A6CCE449E2485B0B20B9EDD92C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515066   (653364) от 28.06.2012
-
-Krater: Collector's Edition [En] (RePack/1.0.4/DLC) 2012 l R.G. Catalyst
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ролевая экшн-игра, шведский ответ знаменитой серии пост-апокалиптических RPG Fallout. Действие игры разворачивается в далеком будущем, в котором Земля стала бесплодной и выжженной пустыней из-за падения метеорита. На месте падения, на территории Швеции, образовалась воронка, где вскоре образовались новые поселения. Также как и все местные обитатели, вы начинаете свой путь здесь, в поисках редких материалов и высокотехнологичных артефактов.
-Разработчики приложили немало усилий, дабы игрок на самом деле проникся фантастическим антуражем погибающей планеты. Эта тема в свое время была отлично обыграна в культовой Fallout 3 и Fallout: New Vegas. Так вот, амбиции Krater совершенно грандиозные - это подвинуть знаменитый Фоллаут с места и занять трон короля жанра постапокалиптических игр. По сюжету Кратера нам предстоит возглавить некую группу вооруженных наймитов, каким со временем предстоит приобрести славу и знаменитость в игровом мире. Длительная и хорошо спланированная сюжетная кампания рассчитана на 12 часов безостановочного прохождения. А если приплюсовать сюда еще и дополнитеьные миссии, то получаются почти сутки реального времени. В вашем распоряжении имеется три разносторонне развитых персонажа, которыми можно командовать по очередности. Благодаря встроенной системе прокачки всякий из бойцов Krater превращается в уникального, неповторимого героя. Подобная специализация окажется просто необходимой в многочисленных боевых столкновениях: снайпер может снять издали наиболее опасного врага, а прокачанный для ближнего боя персонаж раскидает тех, кто помельче и послабее, зачистив, так сказать, территорию. При этом стоит учитывать, что всякое ранение или даже смерть одного из персонажей, существенно меняет игровой сюжет Krater. Любителям коллективного прохождения игр, также будет чем себя развлечь благодаря поддержке мультиплеера.(   Читать дальше...   )Тип издания: RePackРазработчик: FatsharkЖанр: RPG (Rogue/Action) / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8D25E5A226FE5EC99BF3D93881D596941D28ACE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516245   (653231) от 28.06.2012
-
-Spec Ops: The Line (RePack) [Ru/En] 2012 l Seraph1
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Spec Ops: The Line — необычный кинематографичный шутер от третьего лица, который заставит вас вступить в противостояние не только с реальными противниками, но даже с собственными принципами. Приготовьтесь оказаться в мире, где нет места понятию «нравственность» и на каждом шагу приходится выбирать — кому жить, а кому умереть.
-
-Дубай был стер с лица Земли ужасающим катаклизмом. Небывалая песчаная буря превратила некогда роскошный город в руины. И теперь вам в роли капитана отряда Delta Force Мартина Уокера предстоит отправиться на заброшенную территорию, чтобы найти и вернуть домой полковника Джона Конрада.
-
-Примите участие в спецоперации и сразитесь с противниками, которых не пугает даже смерть. Чтобы выжить и добиться успеха, придется использовать различные тактики ведения боя, разнообразную аутентичную военную технику и особенности ландшафта. Уникальная система Dynamic Sand станет вам и надежным союзником, и коварным врагом. Песку все равно, кто прав, а кто виноват, — удачный выстрел может обрушить кремниевые (   Читать дальше...   )Тип издания: RePackРазработчик: Yager DevelopmentЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: Русский (Только видео), АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5827EA0F47F1FC97D6DEFE49214D3BCC8671A369
 ```
 
 https://mybot314.ru/tekegram_catalog/

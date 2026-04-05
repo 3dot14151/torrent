@@ -1,3 +1,111 @@
+###  Публикация: 1591189   (187387) от 17.11.2022
+
+Camera ZOOM FX Premium v6.3.8 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Теперь с полным ручным управлением! Присоединяйтесь к миллионам людей, которые используют Camera ZOOM FX. Здесь вы можете сделать столь многое: съемка движения, стабильная съемка, фотофильтры, коллажи, фотокомпозиция и многое другое:
+  - Полностью ручное управление с использованием Camera API2!
+  - Съемка в RAW (на поддерживаемых устройствах)
+  - Настройка ISO, фокусного (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 12.10.2022Разработчик: androidslideПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1634BFBF980230C0EAEA26225190E1448175415
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591241   (187375) от 17.11.2022
+
+Лупа + фонарик (Magnifier) v2.1.5 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187375.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простая, удобная лупа на App Store – фонарик (светодиод), цифровая лупа и средство для чтения меню в ресторане и этикеток на лекарствах – все в одном. Вы попадали в неудобное положение, когда в ресторане не удается прочесть мелкий шрифт меню? Теперь различить мелкий шрифт вам поможет лучшая лупа с фонариком (светодиодом)! Просто включите лупу и наблюдайте, как она (   Читать дальше...   )Тип издания: ModРелиз состоялся: 11.11.2022Разработчик: RV AppStudiosПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B29A98B9077263DF8BD6CAEF948203B8B82E3C54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582140   (187319) от 19.09.2023
+
+PDF Utils v15.0 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшое приложение для работы с pdf. Слияние. Разделение. Добавление водяного знака. Сжатие. Позволяет работать с парольной защитой. Поддерживает ивлечение изображений. Способно сохранять web-страницы в .pdf.Тип издания: PremiumРелиз состоялся: 10.09.2023Разработчик: shash9989Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82BBDFE8DBF51C9CCBFEBC016DAF7CA1B647C792
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591394   (187156) от 18.11.2022
+
+Shopping List SoftList v2.6.0 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой и удобный список покупок для вашего устройства с множеством полезных дополнительных функций: поддержка нескольких списков покупок, управление изображениями продуктов, распознавание штрихкодов, возможность делиться сформированными списками, синхронизация, хранение истории покупок, формирование отчётов для слежения за ценами.
+Скорость и удобство. Создайте свой (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 05.10.2022Разработчик: Martins SoftwaresПоддерживаемая ОС: Android 5.1+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8D58F722C3D391CC8BFE5594B5D9726AA775085
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1663196   (187060) от 20.09.2023
 
 XY VPN - Security Proxy VPN 4.7.199 Mod by AppModz [En]
@@ -6,7 +114,7 @@ XY VPN - Security Proxy VPN 4.7.199 Mod by AppModz [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_187060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_187060.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_186958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_186958.jpg" />
 </div>
 
 
@@ -58,7 +166,7 @@ ALTLAS: Trails, Maps & Hike 3.3.9 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186819.jpg" />
 </div>
 
 
@@ -84,7 +192,7 @@ Dictionary 15.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186773.jpg" />
 </div>
 
 
@@ -110,7 +218,7 @@ The Clock: Alarm Clock & Timer 8.4.8 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186730.jpg" />
 </div>
 
 
@@ -138,7 +246,7 @@ WiFi Analyzer v4.2 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186702.jpg" />
 </div>
 
 
@@ -164,7 +272,7 @@ FineReader Pro: PDF Scanner v15.2.3.1 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_186627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_186627.jpg" />
 </div>
 
 
@@ -193,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_186304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_186304.jpg" />
 </div>
 
 
@@ -219,7 +327,7 @@ Photo Sherlock v1.107 Mod by Alex.Strannik  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_186233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186233.jpg" />
 </div>
 
 
@@ -245,7 +353,7 @@ YouCut - Видеоредактор v1.592.1175 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186224.jpg" />
 </div>
 
 
@@ -271,7 +379,7 @@ The Wolf v2.0.2 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_185942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_185942.jpg" />
 </div>
 
 
@@ -297,7 +405,7 @@ HandWriter v1.4.7 [Ru/Multi] - Конвертер текста в рукопис
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185925.jpg" />
 </div>
 
 
@@ -323,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185888.jpg" />
 </div>
 
 
@@ -349,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185222.jpg" />
 </div>
 
 
@@ -375,7 +483,7 @@ Ultimate Background Eraser v2.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_184954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184954.jpg" />
 </div>
 
 
@@ -401,7 +509,7 @@ DNS Changer Fast&Secure Surf 1.2.8 Mod by ZackModz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_184486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_184486.jpg" />
 </div>
 
 
@@ -427,7 +535,7 @@ Universal Copy v6.3.5 Мод by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_183842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_183842.jpg" />
 </div>
 
 
@@ -453,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183017.jpg" />
 </div>
 
 
@@ -479,7 +587,7 @@ Space Marshals 3 v1.3.2 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_183013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183013.jpg" />
 </div>
 
 
@@ -505,7 +613,7 @@ Ghosts of War: WW2 Shooting games v0.2.5 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182873.jpg" />
 </div>
 
 
@@ -531,7 +639,7 @@ Head Soccer LaLiga 2021 v6.2.5 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182161.jpg" />
 </div>
 
 
@@ -557,7 +665,7 @@ ImageMeter - photo measure v3.8.8 Mod by KitKat [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182078.jpg" />
 </div>
 
 
@@ -568,110 +676,6 @@ ImageMeter предоставляет инструменты, которые п�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57830580CD8A92396C22B38C8959F7BC0C5D088B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665382   (182062) от 30.09.2023
-
-Радио Онлайн Zaycev.FM v3.1.9 Mod by KitKat [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182062.jpg" />
-</div>
-
-
-###  Подробнее
-
-Zaycev.fm - приложение онлайн радио, которое открывает радио заново!Тип издания: PremiumРелиз состоялся: 22.09.2023Разработчик: Zaycev.NetПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9214D83652E2D1B46A4C5408CE7B9AC9BC408EF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665372   (182017) от 30.09.2023
-
-Научный калькулятор 991 плюс / Scientific Calculator 991 v6.6.3.674 Mod by Timozhai [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Научный калькулятор 300 es plus, 991 ex - калькулятор для студентов и студентов инженерных специальностей. Калькулятор 991 es plus предоставляет мощные функции в реальном калькуляторе 991 ex 300 ex. Это делает продвинутый калькулятор 991 ex самым полезным калькулятором для университета и школы.Тип издания: ProРелиз состоялся: 10.09.2923Разработчик: Tools for studentПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE9AF4A7D2442287CD8EC267B8B577C2B93A11CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427644   (182002) от 29.11.2020
-
-AudioBaby - Детские аудиосказки, музыка, диафильмы v4.8 [Ru]
-
->>Программы, Игры и прочее
->>Всё для детей и родителей для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182002.jpg" />
-</div>
-
-
-###  Подробнее
-
-AudioBaby - Детские аудиосказки, музыка, диафильмы - БОЛЕЕ 3,000 ИЗВЕСТНЫХ ДЕТСКИХ СКАЗОК ДЛЯ ВСЕХ ВОЗРАСТОВ! СОХРАНИТЕ СКАЗКУ И СЛУШАЙТЕ БЕЗ ПОДКЛЮЧЕНИЯ К ИНТЕРНЕТУ.Тип издания: ПираткаРелиз состоялся: 27 апреля 2020 г.Разработчик: KinKin LtdПоддерживаемая ОС: Android 4.0 и вышеЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5009DA1430592F266E5DAFCE04F466B9FA4FDB48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665367   (181978) от 30.09.2023
-
-Узлы 3D / Knots 3D v8.3.7 Paid [Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181978.jpg" />
-</div>
-
-
-###  Подробнее
-
-Завязывайте, развязывайте и вращайте пальцем более 180 узлов в 3D! Наше популярное 3D-приложение Knots 3D позволит вам взглянуть на узлы совершенно по-новому! Берите кусок веревки и развлекайтесь!Тип издания: Paid / FullРелиз состоялся: 29.09.2023Разработчик: Nynix LLCПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31275C7D1B43549385FEB5996790FB824D4962E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

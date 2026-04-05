@@ -1,3 +1,32 @@
+###  Публикация: 1344077   (213737) от 09.12.2019
+
+KillHammer - Время скверны (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пир во время чумы
+02. Путь крови
+03. Демон внутри
+04. Молот возмездия(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:38:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:330B557085DE01BE4C1F36BD268157BB1BDF65E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1513266   (213729) от 05.12.2021
 
 Within Temptation - Shed My Skin (2021) EP [FLAC|Lossless|image + .cue] <Gothic Metal, Symphonic Metal>
@@ -6,7 +35,7 @@ Within Temptation - Shed My Skin (2021) EP [FLAC|Lossless|image + .cue] <Gothic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213729.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213726.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Shores of Null - The Loss of Beauty (2023) [MP3|320 Kbps] <Melodic Black, Doom M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213717.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Skinher - Heartstruck (2023) [MP3|320 Kbps] <Heavy Metalб Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213705.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Heart Line - Back In The Game (2021) [FLAC|Lossless|image + .cue] <Melodic Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213700.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Vanta - Empire On Fire (2023) [MP3|320 Kbps] <Progressive, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213698.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Shores of Null - Quiet Whispers (Unplugged at Traffic Garden) (2021) Live albom 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213694.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213688.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Tania Kikidi - Wings of Freedom (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213685.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Nightwish - Decades: Live in Buenos Aires (2019) Live [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213669.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ A Lily Gray - Sirens (2020) [MP3|320 Kbps] <Alternative Rock, Progressive Rock, 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213662.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Fates Warning - Long Day Good Night (2020) [FLAC|Lossless|image + .cue] <Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213658.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Decadents - Lost in Translation (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213636.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Denis Pauna - Kill 'Em All ZZ Top Style (2023) [FLAC|Lossless|WEB-DL|tracks] <Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213634.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Long Voyage Back - Close to Animal (2002) [FLAC|Lossless|image + .cue] <Gothic, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213632.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Glen Matlock - Consequences Coming (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213600.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213586.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213503.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213502.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213471.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Crematory - Klagebilder (2006) Reissue, 2025, Roar [FLAC 24/44.1|Lossless|WEB-DL
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213467.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Frank Zappa - Halloween 78 (Super Deluxe - Live At The Palladium, NYC - October,
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213454.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213447.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Gary Hughes - Once And Future King: Part I & II (2003) [WavPack|Lossless]<Melodi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213391.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Blind Guardian - A Twist in the Myth (2006) [FLAC|Lossless]<Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213385.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Blind Guardian - A Twist in the Myth (2006) [FLAC|Lossless]<Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDCBF284B29E2A06CE8841D998C3AA4FBAC7FB7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557150   (213369) от 14.06.2022
-
-Lacrimosa - Сollection (1991-2021) 40 CD [FLAC|Lossless|image + .cue] <Gothic Metal, Symphonic Metal, Dark Wave>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213369.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lacrimosa - (с лат. «слёзная») — группа из Швейцарии, лидеры которой — основатель, композитор и вокалист Тило Вольфф и клавишница и вокалистка Анне Нурми. Музыка Lacrimosa довольно разнообразна и выходит за рамки одного жанра, группа работала в разных стилях, но чаще всего в жанре готик-метал.Список альбомов:
-1991 - Angst
-1992 - Einsamkeit
-1993 - Satura(   Читать дальше...   )Жанр: Gothic Metal, Symphonic Metal, Dark WaveПродолжительность: 37:20:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07999261F8543FA17E0921760D9AE0D7CFB12380
 ```
 
 https://mybot314.ru/tekegram_catalog/

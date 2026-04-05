@@ -1,3 +1,32 @@
+###  Публикация: 1648339   (231392) от 23.07.2023
+
+Bosparans Fall - Gotterspiel - Dunkle Zeiten (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro (00:01:36)
+02 - Dunkle Zeiten (00:05:35)
+03 - Bosparans Zinnen (00:03:58)
+04 - Rondra (00:03:38)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:41:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FE6A1412F444B340BDD5A60BCC94938B58C45D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1648437   (231391) от 23.07.2023
 
 Midnite City - In At The Deep End (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -6,7 +35,7 @@ Midnite City - In At The Deep End (2023) Japanese Edition [FLAC|Lossless|image +
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231391.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ King Crimson - Mister Stormy's Monday Selection, Vol. 10 (2023) [MP3|320 Kbps] <
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231389.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Words of Farewell - A Quiet World (2016) [FLAC|Lossless|image + .cue] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231388.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Cruxvae - Birth Of Chaos (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231384.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Painkiller - Pain and Destruction (2023) [MP3|320 Kbps] <Heavy, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231382.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Enslaved - Heimdal (2023) [FLAC|Lossless|image + .cue] <Progressive Metal, Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231381.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ The Residents - 13th Anniversary Show - Live In The USA (1986) Reissue, Remaster
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231379.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ World End Man - Use My Knife (2018) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231376.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Gunner - Sinners (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231373.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ MotorTrinken - Involution (2023) [MP3|320 Kbps] <Heavy Metal/Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231372.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Yskelgroth - Unholy Primitive Nihilism (2010) [FLAC|Lossless|image + .cue] <Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231371.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Sog - Man Demonic (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Speed Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231365.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Whythre - Impregnate My Hate (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231363.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ The Parallax Method - Folie a Trois (2023) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231360.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Viral Tyrant - Vultures Like You (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Sto
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231356.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Witchmaster - Witchmaster (2004) [FLAC|Lossless|image + .cue] <Black, Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231349.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Pride Of Lions - Dream Higher (2023) Japanese Edition [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231346.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ World End Man - Suffer Leader (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231341.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Grip - Solstici (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Stoner Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231331.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Cavalera Conspiracy - 2 Albums (2023) [FLAC|Lossless|WEB-DL|tracks] <Groove Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231324.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_231318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231318.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Velvet Viper - Nothing Compares To Metal (2023) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231311.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Dead or Alive - Let Them Drag My Soul Away Singles, Demos, Sessions And Live Rec
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231299.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ SOG - Man Demonic (2023) [MP3|320 Kbps] <Speed, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231296.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Mark7 - Clockwork Century (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231293.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Mark7 - Clockwork Century (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Pow
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DE14396DBF32BA833C9FD789BB6956DA8D840C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648442   (231292) от 23.07.2023
-
-Renaissance Rock Orchestra - The Ice Age Cometh (2023) [FLAC|Lossless|image + .cue] <Prog Rock, Arena Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In My Loving Arms (5:31)
-02. The Ice Age Cometh (6:59)
-03. Here We Are Again (4:55)
-04. Secrets In The Sand (7:35)(   Читать дальше...   )Жанр: Prog Rock, Arena Rock, Classic RockПродолжительность: 01:05:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B00C0675CE22EA4334631305C25CA49BAFCEC5AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720284.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NG. Бушующие миры: Солнечная буря / Storm Worlds: Cosmi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720052.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BBC. Horizon. Жизнь без старости / Horizon. Don't Grow Old (2010
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719930.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Animal Planet: Cинее царство (Лазурная страна). Цел�
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719889.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Animal Planet: Cинее царство (Лазурная страна). Гиг�
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719879.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ BBC. Horizon. Смертельно опасные ошибки / Horizon. How to
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719875.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ BBC. Horizon. Эволюционируем ли мы сейчас? / BBC. Horizo
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719872.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ BBC. Тигр: Шпион джунглей / Tiger: Spy in the Jungle (2008) HDT
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719722.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ NGW: Африканская кровавая река / Africa's blood river (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719525.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ NGW: Смертельная игра. Великий побег / Deadly game. E
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719523.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ NGW: Переменчивые животные. Свирепые семьи / Mo
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719522.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ NGW. Человек против пумы / Man vs. Puma (2018) HDTV [H.264/1080
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718936.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ NGW: Власть царицы / Regime of the Queen (2018) HDTV [H.264/1080i-LQ
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718821.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718813.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ BBC Earth. Чудо-яйца с Дэвидом Эттенборо / Attenborough
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718724.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ BBC. Кухня против науки. Кулинарный вызов / Chef 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718722.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ NG. Вдоль Великой Китайской стены / Trekking The Great
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718685.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718683.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ BBC. Чудеса живой природы с Дэвидом Аттенборо
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718642.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ NG: Мафия кобры / Cobra Mafia (2014) HDTV [H.264/1080i]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718513.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Discovery: Почему? Вопросы мироздания. Наступит �
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717920.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ BBC: Horizon. Жизнь без старости / Don't Grow Old (2009) HDTVRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717775.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Discovery: Почему? Вопросы мироздания. Существуе
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717767.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ BBC. Horizon. Играя роль Бога / Horizon. Playing God (2012) HDTVRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717761.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ NG. Десятка лучших фотографий National Geographic / Nat G
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717728.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ BBC. Умные обезьяны / Clever Monkeys (2008) HDTVRip [H.264/720p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717627.jpg" />
 </div>
 
 

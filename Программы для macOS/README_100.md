@@ -1,3 +1,56 @@
+###  Публикация: 1172513   (393040) от 08.10.2017
+
+AVITools 3.6.6 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393040.jpg" />
+</div>
+
+
+###  Подробнее
+
+AVItools является частью набора приложений VIDEOtoolbox, используемых для создания и редактирования AVI видео. AVItools в первую очередь предназначена для обработки видео файлов для использования в DVD-плеерах с поддержкой DivX, хотя AVI видео, которые она создает также могут воспроизводиться на оборудовании, как PS3 и Xbox 360. AVItools представляет собой графический (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.10.2017Разработчик: EmmGunnПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:522A3E2B279CF3D27570C6979C5654BD8990AA7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172771   (391957) от 09.10.2017
+
+Priime Styles 1.5 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Применить профессиональные пресеты, созданные и используемые лучшими в мире современными фотографами.
+Priime обладает более чем 100 фотографическими стилям (также известные как предварительные настройки или фильтры), которые создаются в сотрудничестве с ведущими фотографами мира в форме их фотографических стилей. Работает, не требуя каких-либо других программ, чтобы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09 сентября 2017Разработчик: Priime, Inc.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11109F67A1C41C6F623E4F162FEF0A6DB0A9ADB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1173082   (391156) от 10.10.2017
 
 sdspeed 3.2.2 [En]
@@ -6,7 +59,7 @@ sdspeed 3.2.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391156.jpg" />
 </div>
 
 
@@ -35,7 +88,7 @@ Wondershare Data Recovery 6.2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390474.jpg" />
 </div>
 
 
@@ -61,7 +114,7 @@ Wallpaper Wizard 2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390402.jpg" />
 </div>
 
 
@@ -89,7 +142,7 @@ FileMaker Pro 16 Advanced 16.0.3.302 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390359.jpg" />
 </div>
 
 
@@ -118,7 +171,7 @@ PDF Expert 2.2.11 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389645.jpg" />
 </div>
 
 
@@ -147,7 +200,7 @@ KeepVid Pro 6.4.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389626.jpg" />
 </div>
 
 
@@ -173,7 +226,7 @@ Chatty for Facebook 2.3.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388941.jpg" />
 </div>
 
 
@@ -202,7 +255,7 @@ Social Media Lab - Templates 1.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387583.jpg" />
 </div>
 
 
@@ -229,7 +282,7 @@ DiskExpert 2.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387527.jpg" />
 </div>
 
 
@@ -257,7 +310,7 @@ Tap 1.5 11 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387250.jpg" />
 </div>
 
 
@@ -286,7 +339,7 @@ SQLPro for MSSQL - Management studio for SQLServer 1.0.188 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387104.jpg" />
 </div>
 
 
@@ -315,7 +368,7 @@ Desktop Clock 1.8.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386945.jpg" />
 </div>
 
 
@@ -341,7 +394,7 @@ Movavi Screen Capture Pro 5 v5.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385087.jpg" />
 </div>
 
 
@@ -368,7 +421,7 @@ Patterns - The Regex App 1.1.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385029.jpg" />
 </div>
 
 
@@ -397,7 +450,7 @@ Leaf - RSS News Reader 5.1.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384989.jpg" />
 </div>
 
 
@@ -426,7 +479,7 @@ Movavi Video Editor 5 Plus 5.0.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384831.jpg" />
 </div>
 
 
@@ -455,7 +508,7 @@ Wondershare PDF Converter Pro (OCR) 5.1.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384360.jpg" />
 </div>
 
 
@@ -483,7 +536,7 @@ popCalendar 1.8.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383398.jpg" />
 </div>
 
 
@@ -511,7 +564,7 @@ Deskovery3 v3.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382655.jpg" />
 </div>
 
 
@@ -540,7 +593,7 @@ Intaglio 3.9.5 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381772.jpg" />
 </div>
 
 
@@ -566,7 +619,7 @@ DjVuReader EX 1.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381125.jpg" />
 </div>
 
 
@@ -594,7 +647,7 @@ IINA 0.0.14 (build 45) [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380928.jpg" />
 </div>
 
 
@@ -620,7 +673,7 @@ WindowMizer 4.4.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380597.jpg" />
 </div>
 
 
@@ -649,7 +702,7 @@ Studies 1.5.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379629.jpg" />
 </div>
 
 
@@ -662,59 +715,6 @@ Studies - это приложение, чтобы помочь вам освои
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F95911789491EC81FFE36CAA6282CCA7EB615518
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253748   (379627) от 11.10.2018
-
-Dejal Simon 4.3.1 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379627.jpg" />
-</div>
-
-
-###  Подробнее
-
-Simon Monitor проверяет серверы на изменения или неудачи и может уведомить вас по электронной почте, звуковым сигналом, Twitter или другими средствами. Вы можете использовать его для отслеживания обновлений сайтов и для того, чтобы предупредить вас, когда важный сервер выходит из строя или восстанавливает свою работу. Разработано в какао, он является нативным приложение (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.10.2018Разработчик: Dejal Systems, LLCПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Немецкий, Французский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F935C1CE20817BAC947B33527C7B6ECD84FE8E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253905   (379619) от 11.10.2018
-
-JustBroadcaster for Facebook 2.1.1 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379619.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый быстрый путь транслировать с вашего Mac на Facebook.
-Всё что вам нужно - это иметь Facebook-аккаунт.Идеально для тех у кого нет времени вникать в технические детали. Создайте профессиональную трансляцию в считанные минуты.Тип издания: macOS SoftwareРелиз состоялся: 09.10.2018Разработчик: MacBroadcasterПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1370681FB1C94EF51171DC0F18AE74E5496C7CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

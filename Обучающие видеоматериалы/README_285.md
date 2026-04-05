@@ -1,3 +1,32 @@
+###  Публикация: 1694890   (120753) от 27.01.2024
+
+OK English School, Елена Вогнистая | Учебные материалы (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Иностранные языки (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебные материалы, видео, электронные книги, методички, рабочие тетради по всем курсам:
+1) Видео курс English Vocabulary in Use ELEMENTARY — Весь базовый словарь для начинающих.
+2) Видео курс для начинающих: «20 примеров на каждое правило английского языка».
+3) Весь базовый английский в одном уроке (elementary, A1-A2).(   Читать дальше...   )Производство: OK English SchoolЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 44:10:43Реклама: Присутствуют наложения на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11996E925A472A3C05CDC828F1B79B62A185F37D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695067   (120752) от 27.01.2024
 
 Udemy, Илья Зернов | After Effects для монтажера (2023) WEB-DL [AD] [RU]
@@ -6,7 +35,7 @@ Udemy, Илья Зернов | After Effects для монтажера (2023) WE
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120752.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Ardan Labs, Bill Kennedy | Ultimate Go: Software Design with Kubernetes (2023) W
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120724.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ MasterClass, Marques Brownlee | Make Compelling Videos That Go Viral (2022) WEB-
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120714.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ Udemy, Phil Ebiner | Affinity Photo Complete Guide to Photo Editing in Affinity 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120694.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ Coursera, МФТИ | Электричество и магнетизм - част
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120593.jpg" />
 </div>
 
 
@@ -145,7 +174,7 @@ Coursera, МФТИ | Электричество и магнетизм - част
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120588.jpg" />
 </div>
 
 
@@ -171,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120562.jpg" />
 </div>
 
 
@@ -200,7 +229,7 @@ Bazanova Art, Ольга Базанова | Практика художника 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120551.jpg" />
 </div>
 
 
@@ -228,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120540.jpg" />
 </div>
 
 
@@ -255,7 +284,7 @@ Mircourse, Ольга Привалова | Художник-дизайнер и�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120533.jpg" />
 </div>
 
 
@@ -283,7 +312,7 @@ Bazanova Art, Ольга Базанова | Как начать писать м�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120514.jpg" />
 </div>
 
 
@@ -312,7 +341,7 @@ Artefacto school, Любовь Титова | Цветы и стеклянные
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120497.jpg" />
 </div>
 
 
@@ -340,7 +369,7 @@ Blender Market, Ducky 3D | Intro To Motion Graphics (Blender Course) (2023) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120401.jpg" />
 </div>
 
 
@@ -366,7 +395,7 @@ Ripple Training, Steve Martin | DaVinci Resolve 18/18.5 Core Training (2023) WEB
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120218.jpg" />
 </div>
 
 
@@ -392,7 +421,7 @@ Udemy, Daren Perincic | 2024 Blender Beginner Course - Create Cinematic Scenes (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120207.jpg" />
 </div>
 
 
@@ -419,7 +448,7 @@ Solid Factory, Антон Ильин | SolidWorks. Базовый курс (2020
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120204.jpg" />
 </div>
 
 
@@ -445,7 +474,7 @@ Ripple Training, Mark Spencer | Advanced Color Grading in DaVinci Resolve 17/18 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120185.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119720.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ VideoSmile, Дмитрий Кузнецов | Супер Photoshop (2023) WEB-DL
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119589.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119277.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119262.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119256.jpg" />
 </div>
 
 
@@ -611,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119067.jpg" />
 </div>
 
 
@@ -640,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119042.jpg" />
 </div>
 
 
@@ -669,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117521.jpg" />
 </div>
 
 
@@ -680,35 +709,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4B9DCF948E486BAABA621295E9183E683A2F014
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700284   (117255) от 16.02.2024
-
-Елена Реунова, Марина Тушевская | Марафон «Предназначение, деньги и истинные желания. Раскрой свой потенциал» (2023) HDRip [RU]
-
->>Обучающие видеоматериалы
->>Психология и саморазвитие (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117255.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы соединили в этом марафоне все самые важные в жизни запросы.
-- Почему любимое дело не приносит мне хороший доход?
-- Я много работаю, но денег так и нет. Почему нет желаемой суммы?
-- Какие мои истинные желания?(   Читать дальше...   )Жанр: психология, саморазвитиеЯзык озвучки: РусскийПродолжительность: 13:19:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B61A8BCA96BF055C15EDA1D7DA1399631962E116
 ```
 
 https://mybot314.ru/tekegram_catalog/

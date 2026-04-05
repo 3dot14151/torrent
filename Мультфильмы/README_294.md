@@ -1,3 +1,137 @@
+###  Публикация: 1344691   (224581) от 28.11.2021
+
+Возвращение с Олимпа (1969) SATRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вольная вариация по мотивам древнегреческих мифов о Геракле и богах-олимпийцах. Действие перенесено в наши дни.Производство: СССР, СоюзмультфильмЖанр: Рисованная анимация, КороткометражныйРежиссер: Александра Снежко-БлоцкаяСубтитры: отсутствуютПродолжительность: 00:18:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A60404766DFD7EEB8EBFD788EF3A4CB4187F3B99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 387422   (224570) от 28.11.2021
+
+Ох и Ах, Ох и Ах идут в поход (1975 - 1977) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два фильма из серии про весельчака Аха и ворчуна Оха, воспитывающие оптимистическое отношение к жизни и такие качества, как бодрость духа, находчивость и смекалку.Жанр: Детский, мультфильмРежиссер: Юрий ПрытковПродолжительность: Ох и Ах: 00:08:45,
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A1E10B3BB3E29EB3A41B505468402D936DA60DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 299909   (224518) от 28.11.2021
+
+Микрополис (2004) DVD5
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224518.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кто бы мог подумать, что на обыкновенной кухне может поместиться целый город со своими небоскребами, школами, транспортом и маленькими жителями? Этот город называется Микрополис, он настолько мал, что разглядеть его можно только под микроскопом.
+Каждая серия этого необычного мультсериала рассказывает историю дружбы и противоборства на просторах "Великой Кухни" (   Читать дальше...   )Жанр: Детский, Компьютерная анимацияРежиссер: Александр Храмцов, Инна ЕвленниковаВ ролях: Крошка Ми, Микрошка и др.Продолжительность: 01:14:00 ( 7 серий х 10 мин + анонсы)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFF6700F8DBEB88DCDC31F9FA56906D9FD730A88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971262   (224395) от 28.11.2021
+
+В новогоднюю ночь. Сборник мультфильмов (1948-1991) DVDRip [H.264]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы (коллекции, сборники / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224395.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли мультфильмы:
+1. Франтишек
+2. Тигренок на подсолнухе
+3. Новогоднее путешествие(   Читать дальше...   )Производство: СССРЖанр: Рисованная анимация, Кукольный, Детский, СказкаРежиссер: Вадим Курчевский, Леонид Носырев, Петр Носов, Владимир Арбеков, Борис Дежкин, Александра Снежко-Блоцкая, Ольга Ходатаева, Михаил Каменецкий, Вячеслав ШилобреевПродолжительность: 01:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:286AC76D0178561586CE9443B2EC6CE200223522
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 193379   (224292) от 28.11.2021
+
+Сборник мультфильмов. Киевнаучфильм (1963-1994) DVDRip [диск 1]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы (коллекции, сборники / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многие мультфильмы снятые ТО "Киевнаучфильм" стали шедеврами советской анимации и запомнились многим зрителям своим уникальным типом рисовки и юмором, и, не смотря на то, что они были выпущены так давно, они всё ещё являются достойными внимания.Жанр: Детский, Рисованая анимацияПродолжительность: 05:56:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F3A53293177C5558F4C9E88A9114B331BC993DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1268474   (224236) от 12.12.2018
 
 Хроники Рэдволла: Воин Рэдволла, Маттимео, Мартин Воитель - Рэдволл / Redwall (1999-2001) DVDRemux
@@ -6,7 +140,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224236.jpg" />
 </div>
 
 
@@ -33,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223958.jpg" />
 </div>
 
 
@@ -59,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223926.jpg" />
 </div>
 
 
@@ -85,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223842.jpg" />
 </div>
 
 
@@ -111,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223623.jpg" />
 </div>
 
 
@@ -137,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223582.jpg" />
 </div>
 
 
@@ -163,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223492.jpg" />
 </div>
 
 
@@ -189,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223420.jpg" />
 </div>
 
 
@@ -215,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223305.jpg" />
 </div>
 
 
@@ -241,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223161.jpg" />
 </div>
 
 
@@ -267,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223158.jpg" />
 </div>
 
 
@@ -293,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223106.jpg" />
 </div>
 
 
@@ -319,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223096.jpg" />
 </div>
 
 
@@ -345,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223073.jpg" />
 </div>
 
 
@@ -371,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223063.jpg" />
 </div>
 
 
@@ -397,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223062.jpg" />
 </div>
 
 
@@ -423,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223010.jpg" />
 </div>
 
 
@@ -449,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222927.jpg" />
 </div>
 
 
@@ -475,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222518.jpg" />
 </div>
 
 
@@ -501,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222501.jpg" />
 </div>
 
 
@@ -527,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222309.jpg" />
 </div>
 
 
@@ -538,137 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F39B77517E6C0B339B7DEE9C8D1F413AA685004
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269054   (222281) от 13.12.2018
-
-В поисках Дори / Finding Dory (2016) BDRip [H.265/1080p] [10-bit] [Локализованная версия]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дори — синяя доброжелательная рыбка-хирург, страдающая провалами в памяти. Она упорно стремится избавиться от своего недуга и найти свою семью.Производство: США / Pixar Animation Studios,Walt Disney PicturesЖанр: Мультфильм, комедия, приключения, семейныйРежиссер: Эндрю Стэнтон, Энгус МакЛэйнПеревод: Дублированный (Лицензия)Субтитры: Русские, английскиеПродолжительность: 01:37:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8982D3450BC931F603AAFBE22269E98211A312D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513797   (222274) от 30.11.2021
-
-Несправедливость: Боги среди нас / Injustice (2021) UHD BDRemux [H.265/2160p] [4K, HDR10, 10-bit] [MVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222274.jpg" />
-</div>
-
-
-###  Подробнее
-
-В альтернативной вселенной Джокер обманом заставляет Супермена убить Лоис Лейн, что приводит героя в ярость. Теперь остановить его может только Бэтмен и его союзники.Производство: США / Warner Bros, Animation, DC EntertainmentЖанр: Мультфильм, фантастика, фэнтези, боевик, драма, приключенияРежиссер: Мэтт ПитерсАктеры: Джастин Хартли, Энсон Маунт, Лора Бэйли, Зак Каллисон, Брайан Т. Делани, Брэндон Майкл Холл, Эндрю Моргадо, Эдвин Ходж, Оливер Хадсон, Гиллиан ДжейкобсПеревод: Многоголосый профессиональный (HDRezka Studio, NewComers, Flarrow Films)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (Full, SDH),Продолжительность: 01:18:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3B092198267B6653C316C4602046BBC523BB642
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 888800   (222229) от 13.12.2018
-
-Олли и сокровища пиратов / Dive Olly Dive and the Pirate Treasure (2014) WEB-DL [H.264/720p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222229.jpg" />
-</div>
-
-
-###  Подробнее
-
-К подводным лодками Олли и Бэт присоединяется их друг Бобси, который совершенно убежден, что является потомком «Пи-Ратов» — давних искателей легендарного клада.
-Их путешествие за сокровищем наполнено чудесами, приключениями и, конечно, юмором, потому что по пятам за ним следует банда Красных Морских Коньков под предводительством интеллигентной, но крайне опасной (   Читать дальше...   )Производство: СШАЖанр: Приключения, семейныйРежиссер: Уэнди ЛиПеревод: ДублированныйПродолжительность: 01:16:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:064879CD78B9535C89ADC424B527792A482A73E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513768   (221877) от 30.11.2021
-
-Вершина богов / Le sommet des dieux / The Summit of the Gods (2021) WEB-DLRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221877.jpg" />
-</div>
-
-
-###  Подробнее
-
-8 июня 1924 года британские альпинисты Джордж Мэллори и Эндрю Ирвин бесследно исчезли, пытаясь покорить Эверест, а 17 лет спустя японский репортер находит в непальском магазине их фотоаппарат. Он погружается в мир одержимых альпинизмом, пытаясь разгадать тайну исчезновения британцев и, возможно, поставить точку в вопросе первовосхождения.Производство: Люксембург, Франция / Angoa-Agicoa, Auvergne Rhône-Alpes Cinéma, Canal+ frЖанр: мультфильм, биография, драмаРежиссер: Патрик ИмберПеревод: Дублированный (Netflix)Субтитры: Русские (Forced, Full), украинские (Full) (отдельно)Продолжительность: 01:35:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D0EDBA9C3A1ADDEE26F5499DA896EC0BB82115E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513796   (221856) от 30.11.2021
-
-Эллиот / Elliot the Littlest Reindeer (2018) BDRip [H.264/1080p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221856.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знакомьтесь: Эллиот — маленькая лошадка с большой мечтой. Ему так хочется занять место одного из северных оленей в упряжке Санты и дарить детям радость! У него есть всего 3 дня, чтобы доказать окружающим, что он достоин стать одним из них, даже если рогами не вышел! Ведь если чего-то хочешь по-настоящему, то чудеса случаются непременно!Производство: Канада, Awesometown Entertainment,Double Dutch International,Elgin Road ProductionsЖанр: Мультфильм, СемейныйРежиссер: Дженнифер ВесткоттАктеры: Джош Хатчерсон, Морена Баккарин, Джон Клиз, Мартин Шорт, Кристофер Жако, Джин Юн, Джефф Данэм, Саманта Би, Джордж Бьюза, Роберт ТинклерПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:29:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AF0935BBBF0B2E910BAD325F7C0191ADC69C7E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

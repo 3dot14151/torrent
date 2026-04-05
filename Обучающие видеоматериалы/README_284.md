@@ -1,3 +1,32 @@
+###  Публикация: 1693133   (122059) от 19.01.2024
+
+Color school, Анна Давидян | Фотография в интерьере (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотография - козырь, палочка-выручалочка и секретное оружие дизайнера и декоратора. Готовы поспорить, что вы и на 10 процентов не используете все её возможности! Всё узнаете на новом вебинаре "Фотография в интерьере" Анны Давидян - 26 сентября в 19.00 по Московскому времени.
+
+О чём вы узнаете на вебинаре?
+- Почему фотография? Её технические и стилистические (   Читать дальше...   )Производство: Color schoolЖанр: Дизайн интерьераЯзык озвучки: РусскийПродолжительность: 02:32:27Реклама: Наложение на видео, видео вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCA239D5DF9819DD904DBC681444BCBE8A28B527
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693275   (121968) от 20.01.2024
 
 Udemy, Bogdan Stashchuk | Kubernetes - Полный Курс по Kubernetes (2023) WEB-DL [RU]
@@ -6,7 +35,7 @@ Udemy, Bogdan Stashchuk | Kubernetes - Полный Курс по Kubernetes (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121968.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121942.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ Gary Simon | Advanced FrontEnds (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121934.jpg" />
 </div>
 
 
@@ -87,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121921.jpg" />
 </div>
 
 
@@ -116,7 +145,7 @@ lectoroom, Елена Базанова | Подсолнухи акварелью
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121881.jpg" />
 </div>
 
 
@@ -145,7 +174,7 @@ Udemy, D&A Programming | Программирование в Scratch с 6 лет
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121793.jpg" />
 </div>
 
 
@@ -171,7 +200,7 @@ Udemy, Лиана Климович | UI Design с нуля (2023) WEB-DL [AD] [R
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121782.jpg" />
 </div>
 
 
@@ -197,7 +226,7 @@ Stepik, Дмитрий Фокеев | Веб дизайн в Figma с нуля �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121657.jpg" />
 </div>
 
 
@@ -226,7 +255,7 @@ Udemy, Nata Vacheishvili | React Native: Mobile App Development (CLI) [2024] (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121640.jpg" />
 </div>
 
 
@@ -254,7 +283,7 @@ PurpleSchool | Прохождение собеседования (2023) WEB-DL [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121630.jpg" />
 </div>
 
 
@@ -282,7 +311,7 @@ Skillbox, Виктория Вишнякова | Как правильно пит
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121625.jpg" />
 </div>
 
 
@@ -311,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121617.jpg" />
 </div>
 
 
@@ -337,7 +366,7 @@ Udemy, John Smilga | NextJS & OpenAI - 2024 Edition (2023) WEB-DL [EN / EN Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121609.jpg" />
 </div>
 
 
@@ -363,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121604.jpg" />
 </div>
 
 
@@ -389,7 +418,7 @@ Artilike, Жанна Губина | Акварельный видеокурс - 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121565.jpg" />
 </div>
 
 
@@ -418,7 +447,7 @@ Enterclass, Анна Хопта | Белое на белом (2023) WEB-DL [AD] 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121534.jpg" />
 </div>
 
 
@@ -444,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121463.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Udemy, Piotr Jura | Master Nuxt 3 - Full-Stack Complete Guide (2023) WEB-DL [EN 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121367.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ Udemy, Andre LaMothe | Fast and Furious Game Development with JavaScript and AI 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121357.jpg" />
 </div>
 
 
@@ -523,7 +552,7 @@ OTUS , Алексей Кулиничев, Роман Помазанов, Ива�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121241.jpg" />
 </div>
 
 
@@ -552,7 +581,7 @@ Patreon, Timur Shemsedinov | Технологический стек Node.js (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120918.jpg" />
 </div>
 
 
@@ -578,7 +607,7 @@ Udemy, Bogdan Stashchuk | CSS - Полный Курс по CSS (2024) WEB-DL [RU
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120915.jpg" />
 </div>
 
 
@@ -604,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120888.jpg" />
 </div>
 
 
@@ -630,7 +659,7 @@ Udemy, Alexandr Sochirca | Руководство по GitHub Actions (2023) WEB
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120887.jpg" />
 </div>
 
 
@@ -658,7 +687,7 @@ Udemy, David Nixon | Unreal Engine 5: The Intermediate Course (2023) WEB-DL [EN 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120884.jpg" />
 </div>
 
 
@@ -669,35 +698,6 @@ Udemy, David Nixon | Unreal Engine 5: The Intermediate Course (2023) WEB-DL [EN 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E60E206238FD09EE2BACCD1CE0FFE193FD58469
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694890   (120753) от 27.01.2024
-
-OK English School, Елена Вогнистая | Учебные материалы (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Иностранные языки (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120753.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебные материалы, видео, электронные книги, методички, рабочие тетради по всем курсам:
-1) Видео курс English Vocabulary in Use ELEMENTARY — Весь базовый словарь для начинающих.
-2) Видео курс для начинающих: «20 примеров на каждое правило английского языка».
-3) Весь базовый английский в одном уроке (elementary, A1-A2).(   Читать дальше...   )Производство: OK English SchoolЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 44:10:43Реклама: Присутствуют наложения на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11996E925A472A3C05CDC828F1B79B62A185F37D
 ```
 
 https://mybot314.ru/tekegram_catalog/

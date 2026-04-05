@@ -1,3 +1,55 @@
+###  Публикация: 1413224   (407020) от 05.10.2020
+
+Земля монстров / Monsterland (2020) WEB-DLRip [H.264/720p-LQ] (сезон 1, серии 1-8 из 8) OMSKBIRD [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407020.jpg" />
+</div>
+
+
+###  Подробнее
+
+В разных уголках США жители постоянно сталкиваются с разными монстрами, от вампиров до падших ангелов. Эти встречи заставляют местных пересмотреть отношение к собственным сломанным жизням.Производство: США / Annapurna Television, Two & Two PicturesЖанр: Ужасы, фэнтези, триллер, драма, детективРежиссер: Дезире Акхаван, Бабак Анвари, Эгил ЭгилссонАктеры: Кейтлин Девер, Джонатан Такер, Ди Думеби Эгбуфор, Мэйсон Шнейдерман, Тейлор Шиллинг, Роберта Колиндрес, Диего Агирр, Эринн Анова, Адриа Архона, Кэт АсьенцоПеревод: Многоголосый закадровый (OMSKBIRD)Продолжительность: ~00:54:00 серияРеклама: Релиз содержит рекламные видео, аудио вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8162712185FDDE843A0CBD04D118F866ABC31477
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413807   (406804) от 06.10.2020
+
+Стокгольмский синдром / Stockholmsky syndrom (2019) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1-2 из 2) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Защищая дочь, полицейский Виктор Мойжиш применяет табельное оружие и случайно ранит Йиндржиха Озецкого. Суд приговаривает Виктора к тюремному сроку. Спустя несколько лет, Виктор выходит их тюрьмы. Ему предстоит начать жизнь с чистого листа. В это же время, на автостраде в Германии находят Клару Озецкую, пропавшую без вести пять лет назад. Судьбы Йиндрижа и Виктора (   Читать дальше...   )Производство: Чехия / Ceská TelevizeЖанр: драма, криминалРежиссер: Дан СватекАктеры: Дэвид Швеглик, Мартин Фингер, Зузана Маурери, Елизавета Швачко, Войцех Вондрачек, Мартин Пехлат, Michal Capka, Павел Батек, Иван Франек, Sylvie Krupanská и д.р.Перевод: Двуголосый закадровый (ViruseProject)Субтитры: РусскиеПродолжительность: ~01:10:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50F4505B977FBFE59C5DD43E2DF319052042D1E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1414037   (406800) от 06.10.2020
 
 Дамочки-мещанки / Vorstadtweiber (2015) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-10 из 10) ViruseProject [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406800.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406740.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390159.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389464.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386927.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383643.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383521.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383311.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383310.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382671.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382665.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380462.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380312.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377916.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377902.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377901.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377049.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376162.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376013.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375901.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375714.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373916.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373689.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373569.jpg" />
 </div>
 
 
@@ -620,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C78E1346B8DD623941655C871A6415F6F22F9025
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415780   (373532) от 13.10.2020
-
-Хельдт / Heldt (2013) HDTVRip [H.264/720p-LQ] (сезон 1, серии 1-6 из 6) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373532.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детектив-инспектор из Бохума Николас Хельдт без конца что-то жуёт и применяет довольно нестандартные методы расследования. Он едва соблюдает правила и служебные инструкции, но всегда предпринимает максимально рискованные действия. Регулярные дисциплинарные взыскания также мало его волнуют. А то, что говорят и ждут от него блюстители закона в костюмах, его почти не (   Читать дальше...   )Производство: Германия / Sony Pictures Film und Fernseh ProduktionsЖанр: комедия, криминалРежиссер: Хайнц Диц, Хартвиг Шульц, Stefan BühlingАктеры: Кай Шуманн, Янине Кунце, Тимо Диркес, Стеффен Уилл, Ангелика Барч, Юнус Кумартпай, Феликс Фёртлер, Lili Budach, Сабина Пфайфер, Вита Тепел и д.р.Перевод: Двуголосый закадровый (ViruseProject)Субтитры: РусскиеПродолжительность: ~00:45:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F42392957C8A1D64942524F4A8BF6F37D1C2B034
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574343   (372903) от 11.09.2022
-
-Истории ходячих мертвецов / Tales of the Walking Dead (2022) WEBRip [H.264/720p] (сезон 1, серии 1-6 из 6) LakeFilms [AD, PR]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372903.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Истории ходячих мертвецов" - сериал-антология, состоящий из отдельных эпизодов, в которых показаны новые интересные персонажи, их предыстории и несвязанные с основным сериалом события во вселенной "Ходячих мертвецов".Производство: США, AMC StudiosЖанр: ужасы, фэнтези, триллер, драмаРежиссер: Майкл Е. Сатраземис, Рон Андервуд, Дебора КампмейерАктеры: Sarah Graham, Паркер Поузи, Джиллиан Белл, Кевин Л. Джонсон, Керсти Брайан, Мэтт Медрано, Патрик Донохью, Veronica Nia, Амир Барака, William J. SimmonsПеревод: Двуголосый любительский (LakeFilms)Язык озвучки: русскийПродолжительность: ~00:47:00 серияРеклама: присутствуют видео, аудио, текстовые вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0B629CCEA28FCCA7FAAA68FD48E80714C5CC06C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Folder Icon Maker 1.5.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727442.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Corel Painter 2022 v22.1.0.121  [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727394.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Canvas X Draw 7.0.2 fix [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726519.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Lyn 1.8.9 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726361.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ SILKYPIX Developer Studio Pro 11 11.0.3.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724691.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Ultimate Retouch 3.5 - panel for Adobe Photoshop [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723713.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Affinity Publisher 1.8.4 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723062.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Affinity Photo 1.8.4 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722949.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ SkyLab Studio 2.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721071.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ NCH Pixillion Image Converter 8.59 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720642.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Photosign - Batch Watermark 2.1.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718695.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Teorex DupHunter 3.0.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716632.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Pixa 1.1.10 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714336.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Nik Complete 3 Collection by DxO v3.0.8 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710709.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Hot Door CADtools 11 for Adobe Illustrator 11.2.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708847.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ IconKit 10.1.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703935.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Sketches Pro 1.3.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703841.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ IconKit 8.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694545.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ JPEGmini 1.9 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685240.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Analog 2.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684290.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Picture Instruments Fast Resize Pro 2.0.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684230.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Hot Door CADtools 10 for Adobe Illustrator 10.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684044.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ On1 Photo 10.5.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683915.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Autopano Giga 4.4.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682528.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Barcody 3.11 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681097.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ Corel Painter 12 (0.0.502) [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_680223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_680223.jpg" />
 </div>
 
 

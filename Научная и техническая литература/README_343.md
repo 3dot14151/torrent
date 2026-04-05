@@ -1,135 +1,3 @@
-###  Публикация: 927226   (524054) от 14.08.2015
-
-Баранова Н., Шкундич А. | Философия. Быстрая помощь студентам и аспирантам (2015) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание поможет быстро систематизировать полученные знания и подготовиться к экзаменам. Весь материал расположен в хронологическом порядке, удобном для изучения. Пособие содержит материалы по основным разделам философии: предмет, история, проблемы. Справочное пособие будет полезно студентам вузов и других образовательных заведений, а также аспирантам.Жанр: ФилософияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0ACF935A99ABFA889ACA66FD9C49263292CD81C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927715   (524052) от 14.08.2015
-
-Антон Первушин | Грааль и свастика. Религия нацизма (2015) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524052.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассказывается о поисках древней традиции, которая должна была стать основой государственной религии Третьего рейха. Попытка соединить литературные утопии, оккультизм, эзотерику, мифологию и христианство привела к чудовищным последствиям.Жанр: История, ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47F6C4BBA42B2343636224AAC7A4D563D1AD9322
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927725   (524047) от 14.08.2015
-
-Александр Розенберг | Лиссабон: девять кругов ада, Летучий португалец и… портвейн (2014) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524047.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лиссабон… Волшебный хоровод каменных лестниц, фуникулеров, зелени парков, прудов, улиц, вымощенных белой известняковой плиткой, небольших домиков под красными черепичными крышами и величественных дворцов, храмов… Сказочный калейдоскоп мануэлино, азулежу, мирадору под мелодии фаду… Необычная миролюбивая коррида — тоурада…
-Но главное — удивительная аура города… Здесь (   Читать дальше...   )Жанр: История, ПутеводителиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92AE32A7499A5B5ABA81CC2CB7515E579FFE7193
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927658   (524025) от 14.08.2015
-
-Борис Савинков | Воспоминания террориста (2015) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524025.jpg" />
-</div>
-
-
-###  Подробнее
-
-Террорист, обладавший писательским талантом. Он стоял во главе Боевой организации эсеров. На его счету организация громких терактов в России начала XX века. Он был захвачен чекистами в ходе операции «Трест» и «выпал в окно». Свои теракты он и его товарищи проводили, имея английские паспорта. У них всегда было очень много денег. Они держали в напряжении всю страну (   Читать дальше...   )Жанр: Биографии и МемуарыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C645FCE3192E12568776BACA53BE31205ED9E9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927729   (524021) от 14.08.2015
-
-Ольга Афанасьева | Мюнхен: кирхи, пиво, заговоры и безумные короли (2014) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый может найти в Мюнхене то, что искал, и действительность всегда превосходит ожидания. Современный урбанистический стиль пропитан духом средневековой Европы, футбольные клубы и автомобильные концерны гармонично уживаются с аутентичными улочками и готическими соборами…
-Здесь рождались знаменитые оперы и были посеяны страшные зерна Второй мировой войны, короли (   Читать дальше...   )Жанр: История, ПутеводителиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDE89C106FE70AC0B1A45A32B5C063D821F6D9DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927726   (523983) от 14.08.2015
 
 Александр Розенберг | Прага: короли, алхимики, привидения и… пиво! (2014) [FB2]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523983.jpg" />
 </div>
 
 
@@ -164,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523937.jpg" />
 </div>
 
 
@@ -190,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523861.jpg" />
 </div>
 
 
@@ -216,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523860.jpg" />
 </div>
 
 
@@ -242,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523700.jpg" />
 </div>
 
 
@@ -268,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523686.jpg" />
 </div>
 
 
@@ -295,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523666.jpg" />
 </div>
 
 
@@ -321,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523587.jpg" />
 </div>
 
 
@@ -349,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523570.jpg" />
 </div>
 
 
@@ -375,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523554.jpg" />
 </div>
 
 
@@ -401,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523522.jpg" />
 </div>
 
 
@@ -428,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523515.jpg" />
 </div>
 
 
@@ -456,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523465.jpg" />
 </div>
 
 
@@ -484,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523404.jpg" />
 </div>
 
 
@@ -510,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523375.jpg" />
 </div>
 
 
@@ -536,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523374.jpg" />
 </div>
 
 
@@ -562,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523370.jpg" />
 </div>
 
 
@@ -588,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523347.jpg" />
 </div>
 
 
@@ -617,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522915.jpg" />
 </div>
 
 
@@ -646,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522911.jpg" />
 </div>
 
 
@@ -673,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522864.jpg" />
 </div>
 
 
@@ -684,6 +552,140 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF66B0EE3C541AE38162E24390875E8753BD52EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313593   (522807) от 10.07.2019
+
+Александр Бушков | Остров кошмаров. Топоры и стрелы (2019) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга – первая часть трилогии Александра Бушкова «Остров кошмаров», в которой автор описывает самые противоречивые, странные, а порой и очень жестокие моменты из истории Англии.
+
+В 1839 году при раскопках в британском Ромсийском аббатстве обнаружили свинцовый гроб, в каких в те времена простых людей не хоронили, только знатных. Так вот, гроб был пуст. Правда, (   Читать дальше...   )Жанр: Популярно об историиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C33325C3B9FC50916E144032CB856A4C1151CD07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928552   (522493) от 16.08.2015
+
+Николай Якубович | Наша авиация в 1941 году. Причины катастрофы (2015) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522493.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сокрушительный разгром советских ВВС в первые недели Великой Отечественной войны до сих пор остается одной из главных загадок истории. Почему Люфтваффе удалось так быстро завоевать полное господство в воздухе, несмотря на численное превосходство «сталинских соколов»? Что было главной причиной колоссальных потерь нашей авиации – слабая подготовка летного состава, (   Читать дальше...   )Жанр: Военная техникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2DAE12274226D20F0FF28657B6538FF751A953B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928076   (522452) от 16.08.2015
+
+Т.В. Митрошкина | Английские модальные глаголы. Справочник (2012) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522452.jpg" />
+</div>
+
+
+###  Подробнее
+
+Справочник представляет собой практическое руководство по употреблению модальных глаголов в современном английском языке.
+
+Адресован учащимся общеобразовательных школ, лицеев и гимназий, студентам и преподавателям, а также всем желающим правильно употреблять модальные глаголы в своей речи.Жанр: Английский языкФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C96ECC2C74D89A18FBA960A376BAF0159C57242
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928041   (522417) от 16.08.2015
+
+Станислав Могилевский (сост.) | Английский язык. Все неправильные глаголы. Справочное пособие (2014) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга содержит около 160 самых распространенных английских неправильных глаголов. Наглядно показаны основные формы этих глаголов: инфинитив (Infinitive/Present Tense), прошедшее время (Simple Past Tense) и причастие прошедшего времени (Past Participle).Жанр: Английский языкФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53A152B5A4F32A5981FC882F72D4CC967706E5F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928548   (522415) от 16.08.2015
+
+Людмила Петрова | Полный курс итальянского языка (2015) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полный практический курс итальянского языка состоит из 26 насыщенных разнообразным учебным материалом уроков. В начале книги вы найдете вводно-фонетический курс, который поможет освоить правила произношения. Каждый урок содержит грамматический материал, изложенный доступно и с юмором. Затем предлагаются занимательные тексты со словарем, лексико-грамматические и речевые (   Читать дальше...   )Жанр: Итальянский языкФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:813E4D729AFA9F3F5301BFEA2B68056EF2A382CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

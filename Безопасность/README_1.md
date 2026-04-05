@@ -1,3 +1,81 @@
+###  Публикация: 978139   (963175) от 23.01.2016
+
+Universal Virus Sniffer 3.87 Portable [Ru]
+
+>>Безопасность
+>>Разное (остальные программы по безопасности)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963175.jpg" />
+</div>
+
+
+###  Подробнее
+
+Universal Virus Sniffer (uVS) — Программа предназначена для облегчения процесса обнаружения и уничтожения неизвестных вирусов, руткитов и буткитов как непосредственно в зараженном Windows так и для лечения неактивных и удаленных систем с коррекцией реестра. uVS будет Вам полезен в случае если Ваш любимый антивирус не может очистить систему от зловредов. Программа (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73A2DF70F9C6C0CE1DF622A402197C49318C7284
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359789   (962931) от 13.02.2020
+
+Jetico BestCrypt 9.04.0.0 RePack by KpoJIuK [Multi/Ru]
+
+>>Безопасность
+>>Разное (остальные программы по безопасности)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Jetico BestCrypt — программа для автоматического «прозрачного» шифрования всех данных в режиме реального времени, хранящихся на жёстких и съёмных устройствах, посредством сертифицированной криптографической защиты. В случае шифрования системного или загрузочного раздела, BestCrypt Volume не позволит загрузиться системе без ввода необходимого пароля. Программой используются (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CA93298FDE675FAB847F75330E771F1FA68E52D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361177   (956707) от 18.02.2020
+
+Jetico BestCrypt 9.04.0.0 RePack by elchupacabra [Multi/Ru]
+
+>>Безопасность
+>>Разное (остальные программы по безопасности)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956707.jpg" />
+</div>
+
+
+###  Подробнее
+
+Jetico BestCrypt — программа для автоматического «прозрачного» шифрования всех данных в режиме реального времени, хранящихся на жёстких и съёмных устройствах, посредством сертифицированной криптографической защиты. В случае шифрования системного или загрузочного раздела, BestCrypt Volume не позволит загрузиться системе без ввода необходимого пароля. Программой используются (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C65D2DFEBFC67F7C7D9995A772B84714D548C1D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368725   (904545) от 22.03.2020
 
 Elcomsoft Wireless Security Auditor 7.12.538 Professional Edition [Multi/Ru]
@@ -6,7 +84,7 @@ Elcomsoft Wireless Security Auditor 7.12.538 Professional Edition [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904545.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Panda Dome 21.00.00 [Multi/Ru]
 >>Антивирусы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888609.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Password Depot 14.0.5 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888070.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Norton AntiVirus 22.20.2.57 [Ru]
 >>Антивирусы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887929.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Norton 360 22.20.2.57 [Ru]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887920.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Dr.Web Security Space 12.0.4.8300 [Multi/Ru]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874206.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ Norton Security 22.21.8.62 [Ru]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872461.jpg" />
 </div>
 
 
@@ -191,7 +269,7 @@ Ashampoo AntiVirus 2016 1.3.0 [Multi/Ru]
 >>Антивирусы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867326.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ Avast Business Security 17.2.2517 [Multi/Ru]
 >>Антивирусы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851391.jpg" />
 </div>
 
 
@@ -244,7 +322,7 @@ Comodo Uninstaller 2.0.0.3 [En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_822205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822205.jpg" />
 </div>
 
 
@@ -270,7 +348,7 @@ ESET NOD32 Smart Security Premium 15.0.16.0 [Ru]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818909.jpg" />
 </div>
 
 
@@ -297,7 +375,7 @@ Avira Antivirus Pro 2018 15.0.34.17 [Ru/En]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818512.jpg" />
 </div>
 
 
@@ -323,7 +401,7 @@ Microsoft Forefront Threat Management Gateway 2010 [Eng] [Оригинальны
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806457.jpg" />
 </div>
 
 
@@ -349,7 +427,7 @@ Ashampoo Privacy Protector 1.1.3.107 RePack by вовава [Ru/En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796136.jpg" />
 </div>
 
 
@@ -375,7 +453,7 @@ IObit Protected Folder Pro 1.3 [Multi/Ru] (акция Comss)
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789606.jpg" />
 </div>
 
 
@@ -403,7 +481,7 @@ SUPERAntiSpyware Professional 6.0.1258 [En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759373.jpg" />
 </div>
 
 
@@ -429,7 +507,7 @@ Hekasoft PassKeeper 0.23 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751494.jpg" />
 </div>
 
 
@@ -456,7 +534,7 @@ Auslogics Anti-Malware 1.21.0.7 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737760.jpg" />
 </div>
 
 
@@ -482,7 +560,7 @@ Kaspersky 21.5.11.384 Standard (Technical Release) [Ru]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737213.jpg" />
 </div>
 
 
@@ -508,7 +586,7 @@ Zemana AntiMalware Premium 3.2.15 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736540.jpg" />
 </div>
 
 
@@ -534,7 +612,7 @@ Microsoft Forefront Endpoint Protection 2010 4.10.209.0 [Multi/Ru]
 >>Антивирусы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651621.jpg" />
 </div>
 
 
@@ -560,7 +638,7 @@ Microsoft System Center 2012 R2 Endpoint Protection Service Pack 1 (SP1) 4.10.20
 >>Антивирусы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651597.jpg" />
 </div>
 
 
@@ -588,7 +666,7 @@ ZoneAlarm Free Firewall 2019 15.4.260.17960 [En]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636782.jpg" />
 </div>
 
 
@@ -599,86 +677,6 @@ ZoneAlarm Free Firewall - легкий в использовании беспл�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64E4775BB824F5CEF866353D891B27DABCB2C61F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144267   (627008) от 22.06.2017
-
-Spybot - Search & Destroy 2.6.46.0 Portable by PortableApps [Multi/Ru]
-
->>Безопасность
->>Разное (остальные программы по безопасности)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627008.jpg" />
-</div>
-
-
-###  Подробнее
-
-Spybot - Search & Destroy - утилита для поиска и удаления программ-шпионов (spyware), рекламных вставок (adware), программ-похитителей данных (hijackers) и иного вредоносного софта. Spybot - Search & Destroy сканирует жёсткий диск и реестр операционной системы, находя там шпионские модули и вредоносные ключи. База данных приложения постоянно обновляется разработчиками (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A515EA477D9F36189CB8C2F7AF20E3B0D21E8BAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146962   (610713) от 01.07.2017
-
-Comodo Cloud Antivirus 1.12.421630.537 [Multi/Ru]
-
->>Безопасность
->>Антивирусы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610713.jpg" />
-</div>
-
-
-###  Подробнее
-
-Comodo Cloud Antivirus - новый облачный антивирус, который обеспечивает легкую онлайн и оффлайн защиту с использованием проактивных технологий.
-Облачное решение предлагает максимальную защиту и наилучшую производительность при борьбе с угрозами нулевого дня в режиме реального времени.
-Небольшой инсталляционный пакет содержит три важных компонента: облачный антивирус, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DC013352C0F4FB2F56B426073F9AFEB8C39356B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150515   (593925) от 15.07.2017
-
-Junkware Removal Tool 8.1.4 [En]
-
->>Безопасность
->>Разное (остальные программы по безопасности)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593925.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простая и эффективная утилита, предназначенная для сканирования компьютера на наличие вредоносных элементов, таких как рекламное ПО, ненужные панели инструментов и PUPS (потенциально нежелательные программы). Программа уничтожает все их следы с диска компьютера, памяти, автозагрузки, реестра и пр.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB80609B8C19E863E254F0801FFEABBD7F14E092
 ```
 
 https://mybot314.ru/tekegram_catalog/

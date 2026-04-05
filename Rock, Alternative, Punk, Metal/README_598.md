@@ -1,3 +1,32 @@
+###  Публикация: 939383   (475600) от 21.09.2015
+
+Martina Edoff - Unity (2015) [MP3|320 кб/с]<Melodic Hard Rock / Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unity
+02. Never Let You Down
+03. World Has Gone Mad
+04. Spirit Of Light(   Читать дальше...   )Жанр: Melodic Hard Rock / Melodic RockПродолжительность: 00:39:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:270260B4029E41C0D992167B4FA9C650605BEA65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 939443   (475599) от 21.09.2015
 
 Аркаим - Шторм (2015) 2CD [MP3|320 кб/с]<Folk Rock, Rock>
@@ -6,7 +35,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475599.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Shinedown - Threat To Survival (2015) [FLAC|tracks+.cue]<Alternative Metal, Hard
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475587.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Tracktor Bowling - Бесконечность (2015) [FLAC|Lossless|WEB-DL]<Alte
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475489.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Kyle Gass Band - Kyle Gass Band (2013) [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475480.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Young Rebel Set - Crocodile (2013) [FLAC|Lossless|tracks] <Indie, Folk Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475479.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Overtures - Strangers In Paradise (2016) [FLAC|Lossless|image + .cue] <Melodic H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475470.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475380.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Mick Rogers - Sharabang (2013) [MP3|320 Kbps] <Pop Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475348.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Cry Of Dawn - Cry Of Dawn (2016) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475345.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ VА - Quiеrо Сrееdеnсе (2016) [FLAC|Lossless|image + .cue] <Blues Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475343.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ The Osceola Brothers - Out of Nowhere (2016) EP [MP3|320 Kbps] <Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475342.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Rusted - Андергрув (2016) [MP3|320 Kbps] <Alternative Rock, Rap Rock, R
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475335.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Avandra - Descender (2019) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475283.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Shinedown - Threat To Survival (2015) [MP3|320 кб/с]<Alternative Metal, Hard 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475274.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475244.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Capture (ex-Capture the Crown) - Lost Control (2019) [MP3|320 Kbps] <Post-Hardco
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475198.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Shadow of Intent - Melancholy (2019) [MP3|320 Kbps] <Symphonic Deathcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475192.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Sniff 'n' the Tears - 8 Studio Albums (1978-2017) CD [MP3|320 Kbps] <Rock, Pop R
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475189.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Paul Vincent - L.O.V.E. (2015) 4xCD Box Set [MP3|320 Kbps] <Classic Rock, Blues 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475185.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ Tesseract - 5 альбомов, 2 Ep и 7 прочих релизов (2003-2015
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475180.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ Deli Girls - BOSS (2020) [MP3|320 Kbps] <Synth Punk, Digital Hardcore, Electro-I
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475159.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475155.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ My Morning Jacket - The Waterfall II (2020) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475143.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ Opeth - Sorceress (2016) 2 CD Deluxe Edition [FLAC|Lossless|tracks + .cue] <Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475128.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ Pink Floyd - Greatest Songs (1995) Bootleg [MP3|320 кб/с]<Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475061.jpg" />
 </div>
 
 
@@ -713,35 +742,6 @@ Pink Floyd - Greatest Songs (1995) Bootleg [MP3|320 кб/с]<Progressive Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1EC2E63551B1A58229E1F0F9F8EB26AF749CA920
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939315   (475048) от 21.09.2015
-
-Tracktor Bowling - Бесконечность (2015) [MP3|320 кб/с]<Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Смерти Нет
- 02. Вниз или Вверх
- 03. Натрон
- 04. Я Жива(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:54:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ACC7512DE0F41243382E0FCB56EAFFEEB2D4BE5
 ```
 
 https://mybot314.ru/tekegram_catalog/

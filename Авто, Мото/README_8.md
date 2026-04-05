@@ -1,3 +1,87 @@
+###  Публикация: 1394548   (763731) от 05.07.2020
+
+Формула-3. Сезон 2020. 1-й Этап. Гран-при Австрии. Гонка 1 (04.07.2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763731.jpg" />
+</div>
+
+
+###  Подробнее
+
+2-й Чемпионат ФИА Формула-3. Сезон 2020 года
+04 июля 2020, суббота. 11:25 МСК
+1-й Этап. Гран-при Австрии. Шпильберг (Австрия)
+Гонка 1(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:49:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA931F58B793EE59C5E732038355E458B3CC8604
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394576   (763725) от 05.07.2020
+
+Формула-2. Сезон 2020. 1-й Этап. Гран-при Австрии. Гонка 2 (05.07.2020) HDTV [H.264/1080i-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763725.jpg" />
+</div>
+
+
+###  Подробнее
+
+4-й Чемпионат ФИА Формула-2. Сезон 2020 года
+05 июля 2020, воскресенье. 12:10 МСК
+1-й Этап. Гран-при Австрии. Шпильберг (Австрия)
+Гонка 2(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:57:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90C4BBF6CC0354A70E8DBC15F14558B7AD0E54B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394429   (763711) от 05.07.2020
+
+Михаэль Шумахер: Красный барон / Michael Schumacher: The Red Baron (2012) IPTVRip [H.264]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Имя семикратного чемпиона мира, официально провозглашенного величайшим гонщиком "Формулы-1", давно уже стало синонимом скорости, смелости и воли к победе, а он сам – кумиром и примером для подражания мальчишек со всего света.Производство: Worldwide EntertainmentЖанр: Документальный, СпортРежиссер: Peter WarrenПеревод: Одноголосый профессиональный (Igmar)Субтитры: отсутствуютПродолжительность: 00:47:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDC882EB7AB68AA6945599AD988F95536FCA7F5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1394699   (762294) от 06.07.2020
 
 Серия Кубков NASCAR 2020. 16-й Этап. Индианаполис 400. Гонка / NASCAR Cup Series 2020. Round 16. Big Machine Hand Sanitizer 400. Race (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
@@ -6,7 +90,7 @@
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762294.jpg" />
 </div>
 
 
@@ -35,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762292.jpg" />
 </div>
 
 
@@ -64,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762217.jpg" />
 </div>
 
 
@@ -93,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756828.jpg" />
 </div>
 
 
@@ -119,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756706.jpg" />
 </div>
 
 
@@ -147,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752271.jpg" />
 </div>
 
 
@@ -176,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752193.jpg" />
 </div>
 
 
@@ -205,7 +289,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750069.jpg" />
 </div>
 
 
@@ -234,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750068.jpg" />
 </div>
 
 
@@ -263,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750063.jpg" />
 </div>
 
 
@@ -289,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742695.jpg" />
 </div>
 
 
@@ -318,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742636.jpg" />
 </div>
 
 
@@ -347,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740450.jpg" />
 </div>
 
 
@@ -376,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740448.jpg" />
 </div>
 
 
@@ -405,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734763.jpg" />
 </div>
 
 
@@ -431,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732950.jpg" />
 </div>
 
 
@@ -460,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725074.jpg" />
 </div>
 
 
@@ -489,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721292.jpg" />
 </div>
 
 
@@ -518,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716851.jpg" />
 </div>
 
 
@@ -547,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714768.jpg" />
 </div>
 
 
@@ -576,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711479.jpg" />
 </div>
 
 
@@ -605,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711330.jpg" />
 </div>
 
 
@@ -632,7 +716,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711313.jpg" />
 </div>
 
 
@@ -646,93 +730,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2EB8FD98ED3DE4FB0CCA10F160D2AF6A91DBB443
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401281   (711304) от 09.08.2020
-
-Серия Кубков NASCAR 2020. 21-й Этап. Мичиган 400. Гонка 1 / NASCAR Cup Series 2020. Round 21. FireKeepers Casino 400. Race (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711304.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия Кубков NASCAR 2020 года - 72-й сезон профессиональных гонок серийных автомобилей NASCAR (Национальная Ассоциация гонок серийных автомобилей) в США и 49-й сезон Кубка современной эры.
-08 августа 2020 года. Бруклин (штат Мичиган, США).
-21-й Этап. Мичиган 400 (FireKeepers Casino 400)
-Гонка 1(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:56:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5698611AF2317137EB35083E884EFE1CC64D2210
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401221   (710838) от 09.08.2020
-
-Формула Е 2019-2020. 8-й Этап. еПри Берлина II. Гонка / Formula E Championship 2019-2020. Round 08. Berlin E-Prix II. Race (2020) HDTV [H.264/1080i-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710838.jpg" />
-</div>
-
-
-###  Подробнее
-
-6-й сезон Формула Е 2019-2020 года, чемпионат мира среди автомобилей с электроприводом, признанный Международной автомобильной федерацией (FIA) как самый высший класс электрических гоночных автомобилей с открытыми колесами.
-08 августа 2020, суббота. 20:03 МСК
-8-й Этап. еПри Берлина II. Берлин (Германия)
-Кругов:	35(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:01:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0392AF27D3086AA2E8092E9848371C590871EDCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401525   (709398) от 10.08.2020
-
-Серия Кубков NASCAR 2020. 22-й Этап. Мичиган 400. Гонка 2 / NASCAR Cup Series 2020. Round 22. Consumers Energy 400. Race (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709398.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия Кубков NASCAR 2020 года - 72-й сезон профессиональных гонок серийных автомобилей NASCAR (Национальная Ассоциация гонок серийных автомобилей) в США и 49-й сезон Кубка современной эры.
-09 августа 2020 года. Бруклин (штат Мичиган, США).
-22-й Этап. Мичиган 400 (Consumers Energy 400)
-Гонка 2(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:28:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:778F3B7230C562FE9A5C3B0EB116039F5FA9BC9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

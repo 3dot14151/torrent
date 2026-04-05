@@ -1,3 +1,61 @@
+###  Публикация: 1471845   (1014795) от 22.05.2021
+
+Gary Numan - Intruder (2021) [MP3|320 Kbps] <Industrial Rock, Synthpop, Darkwave>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Betrayed [00:04:41]
+02 - The Gift [00:06:07]
+03 - I Am Screaming [00:03:53]
+04 - Intruder [00:04:24](   Читать дальше...   )Жанр: Industrial Rock, Synthpop, DarkwaveПродолжительность: 01:04:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA290E7D16FF15FEE5F0BC76B8F3C19D359C448D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973538   (1014647) от 23.05.2021
+
+Dave Gahan - Hourglass Remixes (2008) [FLAC|Lossless|tracks + .cue] <EBM, Synthpop, Techno, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deeper And Deeper (The Juan MacLean Club Mix) (5:08)
+ 02. Kingdom (Booka Shade Club Remix) (5:36)
+ 03. Love Will Leave (Kap10kurt Mix) (3:43)
+ 04. Use You (Maps Remix) (3:38)(   Читать дальше...   )Жанр: EBM, Synthpop, Techno, MinimalПродолжительность: 00:52:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D692E0696AA594A041F7E591B44C468F039C439
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1472015   (1014513) от 24.05.2021
 
 Temple - The Ashes Belong To You (feat. Grant Bissett) (2021) [MP3|320 Kbps] <Dark Ambient, Drone, Lo-Fi>
@@ -6,7 +64,7 @@ Temple - The Ashes Belong To You (feat. Grant Bissett) (2021) [MP3|320 Kbps] <Da
 >>Ambient, Experimental, Modern Classical
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014513.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Synthwave Dreams, Vol. 16 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014362.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Armada Record Box - REMIXED I (2021) [MP3|320 Kbps] <Deep House, Progressiv
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014166.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Laidback Luke - Tomorrowland Friendship Mix (2021-05-20) [MP3|320 Kbps] <House, 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013867.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Solomun - Nobody Is Not Loved (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, Tech Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013825.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Lårry (Larry) - Nines (2021) Awkwardly Social [FLAC|Lossless|WEB-DL|tracks] <El
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013727.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Maretimo Chillhouse Flight, Vol. 1 - Join This Spheric Lounge Trip (2021) [
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013678.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Penelope Trappes - 5 CD (2017-2021) [FLAC|Lossless|WEB-DL|tracks] <Dark-Ambient,
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013557.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Penelope Trappes - Penelope Three (2021) [MP3|320 Kbps] <Dark Ambient, Shoegaze>
 >>Ambient, Experimental, Modern Classical
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013531.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ GusGus - Mobile Home (2021) [FLAC|Lossless|WEB-DL|tracks] <House, Tech House, Sy
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013227.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Gambusia - Artist Series: Gambusia (2021) Superordinate Dub Waves [FLAC|Lossless
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013066.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Dani Corbalan - Best of Dani Corbalan (2020) [FLAC|Lossless|WEB-DL|tracks] <Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013061.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Fugenn & The White Elephants - Discography 22 Releases (2011-2021) Progressive F
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012889.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Saphileaum - Collection 16 Releases (2016-2021) Controlled Violence, Norite, Sil
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012668.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012665.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Shingo Nakamura - Best of Shingo Nakamura 03 (2019) Mixed [FLAC|Lossless|WEB-DL|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012568.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Steen Thottrup - Diversities (2021) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Ch
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012566.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Shingo Nakamura - Best of Shingo Nakamura 01 (2017) Mixed [FLAC|Lossless|WEB-DL|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012415.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Squarepusher (Tom Jenkinson, Shobaleader One, Duke of Harringay, Chaos A.D.) - D
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012310.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ PROFF - Best of PROFF 01 (2020) Mixed [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012280.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Mystic Diversions - Лучшие хиты (2014) 2016, RDS Records [FLAC|Lossles
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012269.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Bryan Müller (SCNTST, Skee Mask) - Discography 22 Releases (2012-2021) Boysnoiz
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012203.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ subtractiveLAD - Discography 31 Releases (2005-2021) n5MD [FLAC|Lossless|tracks+
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012101.jpg" />
 </div>
 
 
@@ -672,7 +730,7 @@ Miguel Migs - Shaping Visions (2021) [FLAC|Lossless|WEB-DL|tracks] <Deep House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011848.jpg" />
 </div>
 
 
@@ -686,64 +744,6 @@ Miguel Migs - Shaping Visions (2021) [FLAC|Lossless|WEB-DL|tracks] <Deep House, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C534BF69DC2920C7D2135FB32CEB019E5BF3302
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225748   (1011781) от 10.06.2021
-
-Fluxion - Discography 26 Releases (1999-2020) Chain Reaction, Subwax Bcn, Vibrant Music, Echocord [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Minimal, Techno, Dub, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011781.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Prospect I (01:50)
- 02. Prospect II (11:18)
- 03. Oblique (11:47)(   Читать дальше...   )Тип издания: CD, WEB, VinylЖанр: Dub Techno, Minimal, Techno, Dub, Ambient •Продолжительность: 22:52:44 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DDC55F7A41C320D3FDD593A7C2DAE6E10419ADA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476427   (1011682) от 11.06.2021
-
-Spiro And Wix - Save The Robot Two (2001) KPM Music [FLAC|Lossless|tracks+.cue] <Downtempo, Ambient, Trip Hop, Leftfield>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. City Of Souls (A) (04:16)
- 02. City Of Souls (B) (02:12)
- 03. Welcome To Your World (A) (03:09)
- 04. Welcome To Your World (B) (02:56)(   Читать дальше...   )Жанр: Downtempo, Ambient, Trip Hop, LeftfieldПродолжительность: 01:18:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6994A5EAF1C92474E1215C7EFDC81086F10572AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 351213   (152268) от 23.12.2020
+
+Астрид Линдгрен | Собрание сочинений (31 произведение) (1941-1981) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Астрид Линдгрен / Astrid Lindgren, полное Астрид Анна Эмилия Линдгрен (швед. Astrid Anna Emilia Lindgren, урождённая Эрикссон, швед. Ericsson; 14 ноября 1907, Виммербю, Швеция — 28 января 2002, Стокгольм, Швеция) — легендарная шведская писательница, автор ряда всемирно известных книг для детей, в том числе «Карлсон, который живёт на крыше» и «Пеппи Длинный чулок».Астрид (   Читать дальше...   )Жанр: Детская литература, современные сказкиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4923CADAE622273F65BAC68B5E7EE8200DB71D72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347588   (152264) от 23.12.2019
+
+Джефф Кинни | Как в старые добрые времена (2019) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152264.jpg" />
+</div>
+
+
+###  Подробнее
+
+В старые добрые времена жизнь была лучше… Или нет? Это вопрос, которым Грег Хэффли задаётся теперь каждый день. Пока его город устраивает «выходные без гаджетов», а школа отправляет на ферму с суровыми условиями (там нет ни фастфуда, ни видеоигр), Грег отчаянно пытается выжить: ведь он привык к комфорту, современные удобства так облегчают существование! Или всё дело (   Читать дальше...   )Жанр: Приключения для детей и подростковФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C54812B70B865D55B866DB7495244EE14F6C7478
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 367043   (152224) от 21.12.2021
 
 Йозеф Лада | Озорные сказки [1961] [PDF]
@@ -6,7 +58,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152224.jpg" />
 </div>
 
 
@@ -35,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152214.jpg" />
 </div>
 
 
@@ -62,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151981.jpg" />
 </div>
 
 
@@ -89,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151950.jpg" />
 </div>
 
 
@@ -115,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151903.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151895.jpg" />
 </div>
 
 
@@ -169,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151860.jpg" />
 </div>
 
 
@@ -195,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151724.jpg" />
 </div>
 
 
@@ -221,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151699.jpg" />
 </div>
 
 
@@ -247,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151639.jpg" />
 </div>
 
 
@@ -273,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151629.jpg" />
 </div>
 
 
@@ -300,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151559.jpg" />
 </div>
 
 
@@ -327,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151556.jpg" />
 </div>
 
 
@@ -353,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151547.jpg" />
 </div>
 
 
@@ -381,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151464.jpg" />
 </div>
 
 
@@ -407,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151381.jpg" />
 </div>
 
 
@@ -434,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151374.jpg" />
 </div>
 
 
@@ -461,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151266.jpg" />
 </div>
 
 
@@ -488,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151144.jpg" />
 </div>
 
 
@@ -516,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151135.jpg" />
 </div>
 
 
@@ -542,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150989.jpg" />
 </div>
 
 
@@ -568,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150849.jpg" />
 </div>
 
 
@@ -594,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150767.jpg" />
 </div>
 
 
@@ -622,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150489.jpg" />
 </div>
 
 
@@ -634,58 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BF9CF41AFBEADEA209F56C5E1C58338CF780C5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434323   (150483) от 24.12.2020
-
-Эйвинд Даль | Простая электроника для детей. Девять простых проектов с подсветкой, звуками и многое другое (2021) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150483.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга «Простая электроника для детей» — идеальный трамплин для прыжка в мир электроники и схемотехники. Первое, чему вы научитесь, — это читать принципиальные электрические схемы и применять беспаечную макетную плату для сборки схем без паяльника. Затем вы получите огромный практический опыт, собрав девять простых проектов из самых доступных электронных компонентов (   Читать дальше...   )Жанр: Познавательная и развивающая литература для детейПеревод: Ф.Г. ХохловФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63861D6B263C1159EEF7277A3D256F3955A30DA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434316   (150423) от 24.12.2020
-
-Эдуард Шакирьянов | Компьютерное зрение на Python. Первые шаги (2021) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150423.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге изложен учебный курс для школьников, начинающих изучать компьютерное зрение с языком программирования Python и библиотекой OpenCV. Описаны особенности установки языка Python, различных библиотек, в том числе OpenCV, и операционной системы Raspbian. Материалразделен на три отдельные темы: программирование на Python, поиск и выделение цветных объектов на графическом (   Читать дальше...   )Жанр: Познавательная и развивающая литература для детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26C9E4BE2508C84CADC8258717B5D7B5FE7BA444
 ```
 
 https://mybot314.ru/tekegram_catalog/

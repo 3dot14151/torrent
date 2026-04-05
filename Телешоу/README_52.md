@@ -6,7 +6,7 @@
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84451.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84441.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84022.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83823.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83632.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83244.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83206.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83071.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83009.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82906.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Playboy: разденьте девушку / Undress a Woman (10.03.2012) SATRip
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81510.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Playboy: разденьте девушку / Undress a Woman (04.03.2012) SATRip
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80253.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Playboy: разденьте девушку / Undress a Woman (03.03.2012) SATRip
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80046.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79342.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Playboy: разденьте девушку / Undress a Woman (27.02.2012) SATRip
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78851.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Playboy: разденьте девушку / Undress a Woman (26.02.2012) SATRip
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78824.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63392.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58974.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56772.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55754.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48389.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48372.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45006.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44617.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43424.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35906.jpg" />
 </div>
 
 

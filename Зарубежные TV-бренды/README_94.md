@@ -6,7 +6,7 @@ Discovery: Как это сделано ? / How it's made? (2012) SATRip [Сез
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337467.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Discovery: Речные монстры / River monsters (2017) HDTVRip [H.264/72
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336775.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Discovery: Как устроена Вселенная / How the Universe Works (
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336764.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BBC: Поразительные чудеса мира / Weird Wonders of the Wor
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336378.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ BBC: Поразительные чудеса мира / Weird Wonders of the Wor
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336375.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Discovery. Умельцы против апокалипсиса / Masters of Dis
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334533.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ NG: Архитекторы древности / Architects of the Ancient World 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334439.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ NGW: Остров муссонов. Паутина жизни / Island of the Mo
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334437.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ NG: Мегасооружения: музей Лувр Абу Даби / Megastru
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334432.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332858.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332813.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Discovery: Остров с Беаром Гриллсом / The Island with Bear 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332799.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Discovery. Махинаторы (Автодилеры) / Darracq (2014) HDTVRip 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332316.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Discovery. Махинаторы (Автодилеры) / Lincoln Continental (20
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332181.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331714.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ BBC. История Жизни / BBC. Life Story (2014) (1-6 серии из 6) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330096.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Discovery: Разрушители легенд. Незаконченное де�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329244.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Discovery Scienceу: Двойники Земли / Alien Planet Earths (2014) HD
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329187.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Discovery Scienceу: НАСА. Необъяснимые материалы / NAS
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328127.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Discovery Scienceу: НАСА. Необъяснимые материалы / NAS
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328026.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Discovery Scienceу: НАСА. Необъяснимые материалы / NAS
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327315.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ BBC. В поисках Бронте / In Search of the Brontes (2003) VHSRip (с
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326193.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Da Vinci Learning: Эко-2. Дизайн / E2.Design (2006) SATRip (сезон�
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325538.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Discovery: Инородные тела / Body Invaders (2014) HDTVRip (Сери�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324671.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ BBC: Уникальные способности животных / Super Senses
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323255.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Discovery. Дороги России: Трасса Лена (2016) HDTVRip [720p
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323137.jpg" />
 </div>
 
 

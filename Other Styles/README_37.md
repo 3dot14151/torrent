@@ -1,3 +1,61 @@
+###  Публикация: 1116836   (821050) от 21.03.2017
+
+VA - Deep Relaxation and Wellness Playlist (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ying Srisati - Meltwater
+02. Jame Ornlamai - Healing Space
+03. Earth Kunchai - Relax
+04. Wanwisa Yuvaves - Ocean(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:45:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFD9C018940A83677A81DB85DE96588BFB018ACD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116136   (820920) от 21.03.2017
+
+VA - Tuff Turf: The Original Soundtrack (1985) [MP3|320 Kbps] <Pop Rock, Punk>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820920.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Southside Johnny & The Asbury Jukes - Tuff Turf
+2. The Jim Carroll Band - People Who Died
+3. Jack Mack & The Heart Attack - Green Onions
+4. The Jim Carroll Band - Voices(   Читать дальше...   )Жанр: Pop Rock, Punk, OSTПродолжительность: 00:36:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E0C65AE022A32D0C413C8E979FFB3CFF932B302
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1117043   (820916) от 21.03.2017
 
 Alison Krauss - Windy City (2017) Deluxe Edition [FLAC|Lossless|image + .cue] <Country, Bluegrass>
@@ -6,7 +64,7 @@ Alison Krauss - Windy City (2017) Deluxe Edition [FLAC|Lossless|image + .cue] <C
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820916.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Stu Dying - Study World: Relaxing Music and Ocean Waves For Studying (2020) [FLA
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820880.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Gealdýr (Gealdyr) - Sól (Sol) (2019) [FLAC|Lossless|Web-DL|tracks] <Nordic Fol
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820768.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Gealdýr (Gealdyr) - Valravn (2020) Soundtrack [FLAC|Lossless|Web-DL|tracks] <No
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820766.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820415.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ George Winston - Remembrance (A Memorial Benefit) (2001) [MP3|320 кб/с] <Folk
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819657.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819398.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Mark Knopfler & Evelyn Glennie - Altamira (2016) [MP3|320 кб/с] <Soundtrack, 
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819323.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Bruce Kurnow - Peaceful Sunset (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819271.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Jim Brickman - Blessed (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819134.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Danheim - Runagaldr (2018) [FLAC|Lossless|Web-DL|tracks] <Dark Folk, Nordic Folk
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819115.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Canda & Guru Atman - Healing Yoga Mantras (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819093.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Danheim - Hringrás (Hringras) (2019) [FLAC|Lossless|Web-DL|tracks] <Dark Folk, 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818983.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Ramin Djawadi - The Great Wall / Великая стена (Original Soundtrack 
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818944.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Ramin Djawadi - The Great Wall / Великая стена (Original Soundtrack 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818937.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Mezzo Piano - Love Has a Name (2017) [MP3|320 Kbps] <Instrumental, Piano>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818897.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Tommy Emmanuel - The Best Of Tommysongs (2020) [FLAC|24/44.1|Lossless|WEB-DL|tra
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818687.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Monte Wang - The Wandering Accordion (2003) [FLAC|Lossless|tracks] <New Age, Ins
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818019.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Stamatis Spanoudakis - Bathed in the Sun (2016) [FLAC|Lossless|tracks] <New Age,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817949.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Back To Earth - The Book Of Silence (2015) [FLAC|Lossless|tracks] <New Age, Ambi
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817940.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Carlos Garo - Entrance To The Parallel Universe (2015) [MP3|320 кб/с] <New ag
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817933.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Los clasicos argentinos Tango Vol.09: Julio Sosa - El varon del tango (1996
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817746.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - 50 ans de tangos (2002) [MP3|192 кб/с] <Tango>
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817737.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Flaer Smin - 2 альбома (2014-2015) [MP3|320 кб/с] <New Age, Enigmatic,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817595.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Flaer Smin - 2 альбома (2014-2015) [MP3|320 кб/с] <New Age, Enigmatic,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72318EA5D111E35904174FE35DF2C3D211DE108D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197064   (817571) от 06.01.2018
-
-Back to Earth - The Journey to the Inner Island (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age: Relaxation>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Journey to Island B. One
-02. The Journey to Island A. Two
-03. The Journey to Island C. Three
-04. The Journey to Island K. Four(   Читать дальше...   )Жанр: New Age: RelaxationПродолжительность: 01:17:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:677C2A0C389AC8009E370F1298F2395EFF58B6D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196653   (817440) от 06.01.2018
-
-ГештальТ - РекА (2014) OST [MP3|320 Kbps] <Electronic Pop Rock>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ЛунА
-02. КапканЫ
-03. ВеселА
-04. Я рядоМ(   Читать дальше...   )Жанр: Electronic Pop RockПродолжительность: 00:28:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6795E6C5005A672D2896524B71E13FBAFE5AED59
 ```
 
 https://mybot314.ru/tekegram_catalog/

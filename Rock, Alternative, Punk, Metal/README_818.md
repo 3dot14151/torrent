@@ -1,3 +1,32 @@
+###  Публикация: 1537876   (243564) от 19.03.2022
+
+Алексеевская площадь - Оставить след (2020) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ночь
+02. Не забывай
+03. Выше
+04. Всё намного проще(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:51:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B49CAFDF7B5902CD728C97B0AF0D4D9A8AC4367
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626861   (243563) от 16.04.2023
 
 Zeelion - Steel Attack (2005) [APE|Lossless|image + .cue] <Power Metal>
@@ -6,7 +35,7 @@ Zeelion - Steel Attack (2005) [APE|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243563.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Merciless Law - Troops Of Steel (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243554.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Deimos' Dawn - Anthem Of The Lost (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243553.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ First Signal - Face Your Fears (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243547.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ The Neptune Power Federation - Le Demon De L'amour (2022) [FLAC|Lossless|WEB-DL|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_243543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243543.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Rosicrucian - No Cause for Celebration (1994) [FLAC|Lossless|image + .cue] <Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243539.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Ronnie Atkins - Make It Count (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243536.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Disturbed - Down With The Sickness (2001) Single, Promo [FLAC|Lossless|tracks + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243531.jpg" />
 </div>
 
 
@@ -237,7 +266,7 @@ Cerulia - Aurora Skies (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243530.jpg" />
 </div>
 
 
@@ -266,7 +295,7 @@ Reverence - Vengeance Is … LIVE (2018) [FLAC|Lossless|image + .cue] <Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243520.jpg" />
 </div>
 
 
@@ -295,7 +324,7 @@ Sieghetnar - Verfallen & Verendet (2006) [FLAC|Lossless|image + .cue] <Black Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243511.jpg" />
 </div>
 
 
@@ -324,7 +353,7 @@ Fate of Misery - For All, There Exists, Nothing (2022) [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_243506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243506.jpg" />
 </div>
 
 
@@ -353,7 +382,7 @@ Berserkerband - First Blood (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243503.jpg" />
 </div>
 
 
@@ -382,7 +411,7 @@ Wyvern - Radiations (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Heav
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243500.jpg" />
 </div>
 
 
@@ -411,7 +440,7 @@ Aftermath - Remastermath (2021) Compilation [FLAC|Lossless|WEB-DL|tracks] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243497.jpg" />
 </div>
 
 
@@ -440,7 +469,7 @@ Fatal Embrace - Manifestum Infernalis (2023) [FLAC|Lossless|WEB-DL|tracks] <Melo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_243487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243487.jpg" />
 </div>
 
 
@@ -469,7 +498,7 @@ Poços & Nuvens - Província Universo (2001) [FLAC|Lossless|image + .cue] <Symph
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243485.jpg" />
 </div>
 
 
@@ -498,7 +527,7 @@ Alase - A Matter of Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243484.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ Blood God & Debauchery - Demons Of Rock 'n' Roll (2022) 2xCD, Limited Edition [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243472.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ Firpo Chompeavy - Smoking 45 (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243467.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ Red Harvest - Internal Punishment Programs (2004) [APE|Lossless|image + .cue] <I
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243466.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ Good NightOwl - Capital (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243452.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ Fellowship - The Saberlight Chronicles (2022) [FLAC|Lossless|tracks + .cue] <Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243437.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ Ohhms - Rot (2023) [MP3|320 Kbps] <Sludge, Doom, Stoner, Psych>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243422.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ Make Mama Proud - Make Mama Proud II (2022) [MP3|320 Kbps] <Stoner Rock, Heavy P
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243420.jpg" />
 </div>
 
 
@@ -715,35 +744,6 @@ Make Mama Proud - Make Mama Proud II (2022) [MP3|320 Kbps] <Stoner Rock, Heavy P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4780421F802AD50BCB39F490C7B8BB602B7B65F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612923   (243417) от 18.02.2023
-
-Creye - III: Weightless (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glorious (4:07)
-02. Air (3:39)
-03. One Step Away (3:39)
-04. The Game (3:00)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:40:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23093FB4DF3F78DBD4437BB2B49AE581B723CCBF
 ```
 
 https://mybot314.ru/tekegram_catalog/

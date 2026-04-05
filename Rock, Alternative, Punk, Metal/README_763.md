@@ -1,3 +1,32 @@
+###  Публикация: 1423789   (298152) от 14.11.2020
+
+Phog - This World (2020) [FLAC|Lossless|image + .cue] <Progressive Rock, Symphonic Prog, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awakening
+02. Winter Storm
+03. Satellite
+04. Altiplano(   Читать дальше...   )Жанр: Progressive Rock, Symphonic Prog, InstrumentalПродолжительность: 00:42:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FDDEAFC937671764AF13E87BE891982F564CFF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1078789   (298148) от 02.12.2016
 
 Laments Of Silence - System Failure (2016) [MP3|320 Kbps] <Gothic, Melodic Death Metal>
@@ -6,7 +35,7 @@ Laments Of Silence - System Failure (2016) [MP3|320 Kbps] <Gothic, Melodic Death
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298148.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Gno (Gnô) - Sick Princess (2016) [MP3|320 Kbps] <Alternative Metal, Hard Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298147.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ The Wet Fish - Ready To Blow (2020) [MP3|320 Kbps] <Rock & Roll>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298083.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Light Field Reverie - Another World (2020) [MP3|320 Kbps] <Progressive Metal, Do
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298072.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Phil Campbell And The Bastard Sons - The Age Of Absurdity (2018) 2xCD, Jараn 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298070.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Amorphis - His Story - Best Of (2016) [MP3|320 Kbps] <Progressive, Doom, Folk, M
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298053.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Gogol Bordello - Моя Цыганиада (2011) [FLAC|image + .cue]<Gypsy Punk
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297984.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297868.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297605.jpg" />
 </div>
 
 
@@ -268,7 +297,7 @@ Unheilig - Rares Gold (2017) 2CD [FLAC|Lossless|image + .cue] <Gothic Metal, Ind
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297437.jpg" />
 </div>
 
 
@@ -297,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297293.jpg" />
 </div>
 
 
@@ -326,7 +355,7 @@ The Black Noodle Project - Ghosts & Memories (2013) [FLAC|image+.cue]<Progressiv
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297215.jpg" />
 </div>
 
 
@@ -355,7 +384,7 @@ Fish (ex.-Marillion) - Fellini Days (2001)  [FLAC|image + .cue]<Prog Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296989.jpg" />
 </div>
 
 
@@ -384,7 +413,7 @@ Pink Floyd - 1965: Their First Recordings (2015) [MP3|320 кб/с]<Rock, Psyched
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296988.jpg" />
 </div>
 
 
@@ -413,7 +442,7 @@ Pianoбой - Take Off (2015) [MP3|320 кб/с]<Piano Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296980.jpg" />
 </div>
 
 
@@ -442,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296979.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ Helloween - Sweet Seductions (2017) 3CD Compilation [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296945.jpg" />
 </div>
 
 
@@ -500,7 +529,7 @@ Item - Outlife (2009) [FLAC|Lossless|image + .cue] <Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296930.jpg" />
 </div>
 
 
@@ -529,7 +558,7 @@ Giorgio 'Fico' Piazza - Autumn Shades (2018) [FLAC|Lossless|image + .cue] <Progr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296925.jpg" />
 </div>
 
 
@@ -558,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296860.jpg" />
 </div>
 
 
@@ -587,7 +616,7 @@ Elvis Presley - The Real... Elvis Presley At The Movies (2018) 3CD [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296853.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ VA - Охота 89 (2019) [MP3|320 Kbps] <Rock, Indie Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296821.jpg" />
 </div>
 
 
@@ -645,7 +674,7 @@ Airbourne - Boneshaker (2019) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296814.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296801.jpg" />
 </div>
 
 
@@ -703,7 +732,7 @@ Megaherz - Erdwarts (2015) EP [MP3|320 кб/с]<Industrial Metal, NDH>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296800.jpg" />
 </div>
 
 
@@ -717,35 +746,6 @@ Megaherz - Erdwarts (2015) EP [MP3|320 кб/с]<Industrial Metal, NDH>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FB4578ECF406AB28F094A267A9ACAAE7145D380
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334226   (296746) от 28.10.2019
-
-Joe Bonamassa - Live At The Sydney Opera House (2019) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Train (08:25)
-02. Mountain Climbing (06:21)
-03. Drive (07:27)
-04. Love Ain't A Love Song (10:34)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:13:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10C21E38BFC2BB03A0A44F01562EFC3756B5AA67
 ```
 
 https://mybot314.ru/tekegram_catalog/

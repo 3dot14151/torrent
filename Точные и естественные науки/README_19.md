@@ -1,3 +1,81 @@
+###  Публикация: 1050375   (537872) от 08.09.2016
+
+Д. Лукашанец и др. | Самые редкие, красивые и удивительные насекомые мира (2016) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537872.jpg" />
+</div>
+
+
+###  Подробнее
+
+От издателя: Предлагаем вам познакомиться с самыми редкими и красивыми насекомыми нашей планеты. Мир насекомых хранит множество тайн и загадок, он яркий, шумный, пестрый и такой разнообразный. Факты и подробности жизни, семейные устои и брачные танцы, раскраска и маскировка - обо всем этом вы узнаете из нашей книги.Жанр: ЗоологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57B9B3C001456843D66FB8C9A0D73218EF863ED8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239628   (536557) от 06.08.2018
+
+Эдвард Шейнерман | Путеводитель для влюбленных в математику (2018) [FB2]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536557.jpg" />
+</div>
+
+
+###  Подробнее
+
+Принято считать, что математика – наука точная и совершенно скучная, но Эдвард Шейнерман берется доказать обратное. Он утверждает, что математика бывает не менее увлекательной, чем гуманитарные дисциплины. Как объяснить тот факт, что бо́льшая часть окружающих нас чисел начинается на единицу, а тех, что начинаются на девятку, – совсем мало? Каков наилучший путь (   Читать дальше...   )Жанр: Математика, Научно-популярная литератураПеревод: Алексей ОгнёвФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2D6AA722E6EB97FB044EBC24CE101AC3A191F2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050741   (536301) от 09.09.2016
+
+Манфред Шредер | Фракталы, хаос, степенные законы (2005) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основная цель книги — помочь читателю глубже понять, что такое самоподобие — возможно, наиболее важную из встречающихся в природе симметрии, а также продемонстрировать широчайший диапазон применений масштабной инвариантности в физике, химии, биологии, музыке и, в особенности, в изобразительном искусстве. Материал изложен на доступном уровне и снабжен множеством иллюстраций. (   Читать дальше...   )Жанр: математика,научно-популярныеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5DA320EC0E6DC93A71284EC36C500689DA9CEC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1311915   (533962) от 03.07.2019
 
 Э. Катлер, Р. Мак-Шейн | Система быстрого счета по Трахтенбергу (1967) [DJVU]
@@ -6,7 +84,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533962.jpg" />
 </div>
 
 
@@ -34,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533451.jpg" />
 </div>
 
 
@@ -62,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531020.jpg" />
 </div>
 
 
@@ -88,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530787.jpg" />
 </div>
 
 
@@ -114,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530359.jpg" />
 </div>
 
 
@@ -141,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528014.jpg" />
 </div>
 
 
@@ -170,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525967.jpg" />
 </div>
 
 
@@ -196,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524537.jpg" />
 </div>
 
 
@@ -224,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524343.jpg" />
 </div>
 
 
@@ -252,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523587.jpg" />
 </div>
 
 
@@ -280,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523570.jpg" />
 </div>
 
 
@@ -306,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522915.jpg" />
 </div>
 
 
@@ -335,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521102.jpg" />
 </div>
 
 
@@ -364,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520015.jpg" />
 </div>
 
 
@@ -390,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519270.jpg" />
 </div>
 
 
@@ -419,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519028.jpg" />
 </div>
 
 
@@ -447,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518672.jpg" />
 </div>
 
 
@@ -473,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518255.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516267.jpg" />
 </div>
 
 
@@ -530,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514816.jpg" />
 </div>
 
 
@@ -556,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512865.jpg" />
 </div>
 
 
@@ -582,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510696.jpg" />
 </div>
 
 
@@ -608,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509367.jpg" />
 </div>
 
 
@@ -619,84 +697,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17B36C43EB89F9FFD880CD75B68E540A514634B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 204858   (508655) от 23.07.2019
-
-Николай Селиванов | Справочная книга криминалиста (2000) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508655.jpg" />
-</div>
-
-
-###  Подробнее
-
-В предлагаемом вниманию читателей справочнике, подготовленном коллективом ученых НИИ проблем укрепления законности и правопорядка Генеральной прокуратуры РФ, отражено современное состояние криминалистики, показаны возможности применения ее достижений в следственной практике. Описаны современные технико - криминалистические средства и тактические приемы предварительного (   Читать дальше...   )Жанр: Справочная литература, КриминалистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CA03B6D1565B39F48AA98B553E8F5F89DC95FBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538914   (507400) от 25.08.2012
-
-Р. Курант, Д. Гильберт | Методы математической физики (в двух томах) [1933-1945] [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507400.jpg" />
-</div>
-
-
-###  Подробнее
-
-В первом томе (1933 г.) содержатся прекрасные образы применения алгебраических, геометрических и вариационных методов к разрешению фундаментальных проблем анализа. Второй том (1945 г.) содержит систематическую теорию дифференциальных уравнений с частными производными, рассматриваемую с точки зрения математической физики. Перевод с немецкого З. Либина, Б. Лившица, Ю. Рабиновича.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6E821852402F9BBD23FD0256770C41D3A72F8F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538915   (507280) от 25.08.2012
-
-Р. Курант, Д. Гильберт | Курс дифференциального и интегрального исчисления (в двух томах) [1968-1970] [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет собой мастерски написанный крупным математиком курс математического анализа, адресуемый автором «будущим учителям и научным работникам в области математики, физики и других естественных наук, а также инженерам». Первый том был впервые издан на русском языке в 1931 г. Настоящий перевод первого тома содержит: дифференциальное и интегральное исчисление функций одного переменного, очерк теории функций нескольких переменных, дифференциальные уравнения простейших типов колебаний. В него включены многочисленные добавления автора, появившиеся в последующих изданиях на немецком и английском языках, в частности тщательно подобранные и систематизированные упражнения и задачи. Второй том посвящен главным образом дифференциальному и интегральному исчислению функций многих переменных. По сравнению с первым русским изданием, вышедшим в 1931 г., настоящий перевод содержит многочисленные добавления автора , появившиеся в последних изданиях на немецком и английском языках. Книга может служить учебным пособием (   Читать дальше...   )Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E7962C73856B941DB34F047B071FBD6813AD28B
 ```
 
 https://mybot314.ru/tekegram_catalog/

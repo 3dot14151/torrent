@@ -1,136 +1,3 @@
-###  Публикация: 1365249   (931634) от 06.03.2020
-
-С.И. Моногаров | Программирование мехатронных систем. Codesys и Arduino (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931634.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данном учебном пособии обучение предлагается на конкретных примерах на двух платформах: CODESYS и Arduino.
-Рекомендованные к выполнению прикладные программы, как и всё учебное пособие, могут быть использованы как для студентов, на лабораторных и практических занятиях, так и на курсах повышения квалификацииЖанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06677ABC87FBF139C5818B9912A7A22789D2065A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 629653   (931435) от 13.03.2013
-
-О.В. Харитонов | Обмундирование и знаки различия Советской Армии (1918-1958 гг.) [1960] [DJVU]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Справочник представляет описание и изображения формы и знаков различия Советской армии в период с 1918 по 1958 гг.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C368E9FA2D76C74928DBDE1F931CB16FEB5880CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 629682   (931291) от 13.03.2013
-
-Николай Монтеверде | Ботанический атлас. Описание и изображение растений русской флоры (1916) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931291.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Н. А. Монтеверде стала атласом русской флоры. В нее вошли растения, типичные как для европейской части Российской империи, так и для ее окраин, например, Кавказа, Сибири или Туркмении. Книга также дополнена удобным справочно-библиографическим разделом. Николай Августович Монтеверде (1856-1929) - ботаник, окончил курс в Санкт-Петербургском университете, специалист (   Читать дальше...   )Жанр: Раритеты, aтлас, флорaФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A239B1858EE485A9EDACACE51195723F23386AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 629725   (931273) от 13.03.2013
-
-Д.В. Сивухин | Сборник задач по общему курсу физики (в 5 томах, 5-е издание) [2006] [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_931273.jpg" />
-</div>
-
-
-###  Подробнее
-
-В предлагаемом сборнике задач по физике использован опыт преподавания общего курса физики в МГУ, Московском физико-техническом институте и Московском государственном педагогическом институте им. В.И.Ленина. По степени трудности задачи охватывают широкий диапазон: от самых элементарных до задач, стоящих на уровне оригинальных научных исследований, выполнение которых (   Читать дальше...   )Издательство: Физматлит, ЛаньФормат: DJVUКачество: OCR с ошибками
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D32C8E3E9E03402AE5FD55BFB9E82031DF8C94D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985265   (930980) от 14.02.2016
-
-Я. Э. Голосовкер | Достоевский и Кант (1963) [DJVU, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930980.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор предлагаемой вниманию читателя работы ставит новый для литературоведения вопрос - о той роли, которую сыграло для Достоевского при написании романа "Братья Карамазовы" знакомство с трудом Иммануила Канта "Критика чистого разума".
-
-Это - не историко-философское, а написанное как размышление читателя литературоведческое исследование о связи (   Читать дальше...   )Жанр: История, литературоведениеФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F82D7774942E842353959A066C3353373A8C33A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1093891   (930862) от 17.01.2017
 
 Л.-М. Дешан | Истина, или Истинная система (1973) [DJVU, PDF]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930862.jpg" />
 </div>
 
 
@@ -168,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930840.jpg" />
 </div>
 
 
@@ -194,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930739.jpg" />
 </div>
 
 
@@ -220,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930738.jpg" />
 </div>
 
 
@@ -248,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930713.jpg" />
 </div>
 
 
@@ -277,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930706.jpg" />
 </div>
 
 
@@ -303,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930671.jpg" />
 </div>
 
 
@@ -332,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930627.jpg" />
 </div>
 
 
@@ -359,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930610.jpg" />
 </div>
 
 
@@ -385,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930607.jpg" />
 </div>
 
 
@@ -411,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930598.jpg" />
 </div>
 
 
@@ -438,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930587.jpg" />
 </div>
 
 
@@ -464,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930553.jpg" />
 </div>
 
 
@@ -493,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930547.jpg" />
 </div>
 
 
@@ -520,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930464.jpg" />
 </div>
 
 
@@ -546,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930431.jpg" />
 </div>
 
 
@@ -573,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930426.jpg" />
 </div>
 
 
@@ -600,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930422.jpg" />
 </div>
 
 
@@ -626,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930419.jpg" />
 </div>
 
 
@@ -652,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930418.jpg" />
 </div>
 
 
@@ -678,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930407.jpg" />
 </div>
 
 
@@ -689,6 +556,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAF347A2A12660DAEC74C9E4168F2AFDFD4A1744
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365373   (930306) от 07.03.2020
+
+Э.М. Галеев | Оптимизация: Теория, примеры, задачи (2010) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930306.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена важнейшим проблемам оптимизации. Она построена на базе преподавания теории оптамизации на механико-математическом факультете МГУ. В основе ее лежат курсы и спецкурсы, прочитанные Э. М. Галеевым. Рассматриваются фрагменты следующих разделов теории экстремальных задач: линейного и выпуклого программирования, математического программирования, классического (   Читать дальше...   )Жанр: МатематикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B1E632AAE610502496149FA61E564452A85BACC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365422   (930269) от 07.03.2020
+
+Рэнди Хаттер Эпштейн | Возбуждённые: таинственная история эндокринологии (2020) [FB2]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930269.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перепады настроения, метаболизм, поведение, сон, иммунная система, половое созревание и секс – это лишь некоторые из вещей, которые контролируются с помощью гормонов. Вооруженный дозой остроумия и любопытства, медицинский журналист Рэнди Хаттер Эпштейн отправляет нас в полное интриг путешествие по необычайно захватывающей истории этих сильнодействующих химикатов (   Читать дальше...   )Жанр: Популярно о медицине, ЭндокринологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7662BDD8804175EC338CDC1F96CE56F50A476602
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365504   (930258) от 07.03.2020
+
+Л.П. Христорождественская | Изучаем английские артикли / Practise English Articles (2014) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930258.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии систематизированы основные случаи употребления артиклей в английском языке и даны многочисленные упражнения на их закрепление. Оно продолжает серию пособий по наиболее трудным разделам английской грамматики.
+Адресуется старшеклассникам, абитуриентам, студентам-филологам, аспирантам, слушателям различных подготовительных курсов.Жанр: Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A03B802774C23B710E2B3E02ADC6132A5BF1EAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093733   (930232) от 17.01.2017
+
+В. П. Мельников и др. | Информационная безопасность и защита информации (2012) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930232.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлены основные положения, понятия и определения обеспечения информационной безопасности деятельности общества, его различных структурных образований, организационно-правового, технического, методического, программно-аппаратного сопровождения. Особое внимание уделено проблемам методологического обеспечения деятельности как общества, так и конкретных фирм и (   Читать дальше...   )Жанр: Безопасность, информатикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC605C5FA50617550793CCC78A83EF2448AD56AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 755047   (929751) от 09.02.2014
+
+Джон Уорд | Союзная интервенция в Сибири 1918 — 1919 гг. (1923) [DJVU]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929751.jpg" />
+</div>
+
+
+###  Подробнее
+
+Записки начальника английского экспедиционного отряда полковника Джона Уорда. Воспоминания британского офицера о ходе Гражданской войны в Сибири представляют собой ценный исторический документ, написанный очевидцем и непосредственным участником событий, связанных с вооружённой интервенцией иностранных империалистических государств против молодой Советской республики. (   Читать дальше...   )Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A2031967294A72834328F771049256B45008DF7
 ```
 
 https://mybot314.ru/tekegram_catalog/

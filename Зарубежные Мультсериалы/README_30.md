@@ -1,3 +1,56 @@
+###  Публикация: 388631   (453580) от 19.09.2011
+
+Мышиный дом (Серий 26 из 52) / House of Mouse (2001-2002) SATRip
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Микки Маус и его друзья (Дональд, Минни, Дейзи, Гуфи, Плуто и др.) в своём клубе показывают для персонажей из различных диснеевских полнометражек («Аладдин», «Геркулес», «Красавица и чудовище» и т.п.) различные представления и классические мультфильмы Диснея. В промежутках между мультфильмами зрители видят жизнь клуба: Микки помогает гостям решить их проблемы, улаживает конфликты и устраняет неполадки, вызванные Питом, который всеми способами пытается сорвать шоу и добиться закрытия заведения.Жанр: Рисованая анимацияРежиссер: Тони Крэйг, Роберт Ганнавей, Майк МунПерсонажи: Mickey Mouse, Goofy, Mike, Minnie Mouse, Daisy Duck, Donald Duck, Clarabelle Cow, Pete, Gus Goose, Timon и др.Перевод: Дублированный. Серии 1,2,3,6,7 -  без переводаПродолжительность: 26 x ~ 00:21:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 699033   (453195) от 28.09.2013
+
+Маленький принц / Le petit prince (2010) SATRip (1 сезон, 48 эпизодов из ??)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_453195.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам произведения  Антуана де Сент-Экзюпери.
+Маленький Принц путешествует по разным планетам. Его ждут необычные встречиЖанр: мультсериал, приключения, фентезиРежиссер: Пьер-Ален ЧартьерПерсонажи: Гэбриел Бисмут Бьенэмэ, Франк Капиллери, Гийом Гальенн, Брайан Драммонд, Мари Жиллен, Валин ШинейПеревод: ДублированныйПродолжительность: 48 х ~ 00:22:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1060526   (452951) от 08.10.2016
 
 Lego Звездные войны: Хроники Йоды / LEGO STAR WARS: The Yoda Chronicles (2013) WEB-DLRip [H.264] (сезон 1, серии 1-3 из 3) MP4|1024x576]
@@ -6,7 +59,7 @@ Lego Звездные войны: Хроники Йоды / LEGO STAR WARS: The 
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452951.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Lego Звездные войны: Хроники Йоды / LEGO STAR WARS: The 
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452773.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452316.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452300.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451053.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450387.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ Lego Звездные войны: Хроники Йоды / LEGO STAR WARS: The 
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448216.jpg" />
 </div>
 
 
@@ -188,7 +241,7 @@ Lego Звездные войны: Хроники Йоды / LEGO STAR WARS: The 
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448097.jpg" />
 </div>
 
 
@@ -214,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447963.jpg" />
 </div>
 
 
@@ -241,7 +294,7 @@ LEGO Ниндзяго: Мастера кружитцу / LEGO Ninjago: Masters o
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447827.jpg" />
 </div>
 
 
@@ -267,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444104.jpg" />
 </div>
 
 
@@ -294,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444102.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442997.jpg" />
 </div>
 
 
@@ -347,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442346.jpg" />
 </div>
 
 
@@ -373,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438998.jpg" />
 </div>
 
 
@@ -399,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437968.jpg" />
 </div>
 
 
@@ -425,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437166.jpg" />
 </div>
 
 
@@ -452,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437097.jpg" />
 </div>
 
 
@@ -478,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435798.jpg" />
 </div>
 
 
@@ -504,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434011.jpg" />
 </div>
 
 
@@ -530,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431542.jpg" />
 </div>
 
 
@@ -556,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431427.jpg" />
 </div>
 
 
@@ -582,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431367.jpg" />
 </div>
 
 
@@ -608,7 +661,7 @@ LEGO Звездные войны: Хроники Йоды / LEGO Star Wars: The 
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430003.jpg" />
 </div>
 
 
@@ -619,58 +672,6 @@ LEGO Звездные войны: Хроники Йоды / LEGO Star Wars: The 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CB37C5AE53EAC90A6003824F443EE7A5CFE16D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063230   (429995) от 18.10.2016
-
-LEGO Звездные войны: Истории дроидов / LEGO Star Wars: Droid Tales (2015) WEB-DL [H.264/1080p] (Сезон 1, серии 5 из 5)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429995.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главные герои — знакомые всем персонажи далекой-далекой Галактики. В центре сюжета серии — дроиды C-3PO и R2-D2. Находясь в эпицентре легендарных событий, они создали свою версию происходящего и решили поделиться ей с обитателями Вселенной. Дроиды были так увлечены своим рассказом, что не заметили, как таинственный злодей похитил корабль Адмирала Акбара…Производство: США / LucasfilmЖанр: Детский, Приключения, ФантастикаРежиссер: Майкл Хэгнер, Мартин СковПеревод: ДублированныйСубтитры: Английские (вшитые, отключаемые)Продолжительность: 5 серий x 00:23:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8096596E95F293B2AD14CACB7A0745BFBF1791AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063481   (429871) от 18.10.2016
-
-Монстры против Пришельцев / Monsters vs. Aliens (2013) WEB-DL [H.264/720p] (Сезон 1 , серии 52 из 52)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429871.jpg" />
-</div>
-
-
-###  Подробнее
-
-После последней вылазки Монстров, всё тихо и спокойно в зоне 50 с чём-то. До тех пор пока не прибыл пришелец по имени Ковертон. Он впечатляет президента США и обещает мирное сосуществование. Но Монстры, генерал Воякер и президент не догадываются, что Ковертон работает на злую инопланетную организацию, которая хочет захватить Землю.Производство: СШАЖанр: Детский, Приключения, Фантастика, СемейныйРежиссер: Мэтт Энгстром, Сунил Холл, Фред Осмонд, Джим Шуманн, Эдди ТригуеросПеревод: ДублированныйСубтитры: Английские (вшитые, отключаемые)Продолжительность: 00:22:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40CC0866C25606C1168E108A7E8D899053AF887D
 ```
 
 https://mybot314.ru/tekegram_catalog/

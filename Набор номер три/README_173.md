@@ -1,3 +1,159 @@
+###  Публикация: 246450   (807655) от 25.10.2021
+
+Край (2010) DVDRip
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807655.jpg" />
+</div>
+
+
+###  Подробнее
+
+В августе 1945-го в далекий поселок с названием Край с войны возвращается бывший танкист Игнат, чья страсть — паровозы. Он узнает, что на уединенном острове с довоенных времен брошен немецкий паровоз, и принимается его восстанавливать. Но, оказывается, у паровоза уже есть имя — «Густав», и есть хозяйка — Эльза, дочь немецкого инженера, арестованного в начале войны. (   Читать дальше...   )Жанр: ДрамаРежиссер: Алексей УчительАктеры: Владимир Машков, Сергей Гармаш, Владас Багдонас, Александр Баширов, Юлия Пересильд, Анна Уколова, Семен Белоцерковский, Алексей Горбунов, Вячеслав Крикунов, Аньорка ШтрехельФормат: AVIПродолжительность: 02:03:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:797D59A5F322E57ACAA47585ED713B7074FC896C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198264   (807634) от 11.01.2018
+
+Skype 8.13.0.3 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807634.jpg" />
+</div>
+
+
+###  Подробнее
+
+Skype - бесплатная программа для текстового, голосового и видеообщения с друзьями по всему миру. Сеть Skype использует P2P-технологию для соединения с другими пользователями и отличается высоким качеством передачи данных. Помимо превосходного качества звука, Skype предоставляет максимальную конфиденциальность - все общение между клиентами зашифровано и не может быть (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04594F17AE558CDAC337701EA0EC9582874FE5D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198149   (807626) от 11.01.2018
+
+Российские военные сказали Windows «прощай»
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_807626.jpg" />
+</div>
+
+
+###  Подробнее
+
+Минобороны приняло решение перевести все служебные компьютеры на операционную систему Astra Linux. Это полностью отечественная разработка, ее создатель — московская компания «РусБИТех». Сейчас на российских военных компьютерах установлены лицензионные продукты Microsoft. Ранее Astra Linux стала единой операционной системой для военных автоматизированных систем управления. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198426   (807614) от 11.01.2018
+
+Мегрэ на Монмартре / Maigret in Montmartre (2017) HDTVRip [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мегрэ исследует случайные убийства графини и шоу-девушки и обнаруживает тёмную тайну, которая связывает их прошлые жизни в Гранд-отеле в Ницце.Производство: Великобритания / Maigret ProductionsЖанр: Драма, криминал, детективРежиссер: Тадеус О'СалливанАктеры: Роуэн Аткинсон, Марк Хип, Люси Коху, Дуглас Ходж, Себастьян де Соуса, Лоррейн Эшборн, Кэсси Клер, Шон Дингуолл, Лео Стаар, Сара КестелменПеревод: Любительский многоголосый (HDrezka Studio)Субтитры: ОтсутствуютПродолжительность: 01:33:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A5B1952DBE07EEC4D2FC6FF3EB852B9CA4A5FAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198305   (807613) от 11.01.2018
+
+Специалист | Разработчик C++ (2015-2016) PCRec [H.264]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курсы Qt в Центре «Специалист»позволят Вам освоить основы проектирования пользовательского интерфейса, архитектуру и основные принципы библиотеки Qt, механизмы, применяемые при обработке баз данных, получить всестороннее и полное понимание данного продукта как средства создания кросс-платформенных приложений и пользовательских интерфейсов.Жанр: ПрограммированиеПродолжительность: 102:55:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6E5014B49CEBEE9E0D718022308CC315F952393
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117106   (807611) от 11.01.2018
+
+BioShock Remastered Dilogy (2016) [Ru] (1.0.122872/1.0.122864) Repack xatab
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807611.jpg" />
+</div>
+
+
+###  Подробнее
+
+Десять лет — изрядный период даже для истории обычного города, а под водой десятилетие сопоставимо с вечностью. За это время утопический город Восторг обветшал еще больше, а некоторые его районы полностью оказались во власти воды. Однако в нем по-прежнему тлеет жизнь — хищная, агрессивная и всегда готовая к борьбе. Самые жестокие и коварные мутанты до сих пор бродят (   Читать дальше...   )Тип издания: RepackРазработчик: 2K Boston, 2K Australia, Blind Squirrel, Irrational GamesЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2C6970473B67161DA9DD0247D8A2270B9FD33D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198326   (807610) от 11.01.2018
 
 За пределами / The Beyond (2017) WEB-DLRip [H.264/720p-LQ] [MVO] [AD]
@@ -6,7 +162,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807610.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_807577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_807577.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_807429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_807429.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ Microsoft® Windows® 10 Professional VL x86-x64 2004 20H1 RU by OVGorskiy® 05.
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807413.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ Uninstall Tool 3.4.5 Build 5432 Final RePack (& portable) by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807299.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807296.jpg" />
 </div>
 
 
@@ -165,7 +321,7 @@ Opera Developer 38.0.2205.0 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807191.jpg" />
 </div>
 
 
@@ -192,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_807032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_807032.jpg" />
 </div>
 
 
@@ -220,7 +376,7 @@ Opera стала первым браузером со встроенным VPN
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_807026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_807026.jpg" />
 </div>
 
 
@@ -246,7 +402,7 @@ Ubuntu 16.04 LTS Xenial Xerus [i386, amd64] 2xDVD, 2xCD
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807022.jpg" />
 </div>
 
 
@@ -274,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807014.jpg" />
 </div>
 
 
@@ -300,7 +456,7 @@ Minecraft: PlayStation 3 Edition (2013) [PS3] [USA] 3.40 [Cobra ODE / E3 ODE PRO
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807012.jpg" />
 </div>
 
 
@@ -326,7 +482,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4366.1000
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807010.jpg" />
 </div>
 
 
@@ -352,7 +508,7 @@ Heroes of Might and Magic VII / Меч и Магия Герои VII (2015) [Ru/E
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807009.jpg" />
 </div>
 
 
@@ -379,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>11
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807007.jpg" />
 </div>
 
 
@@ -405,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807006.jpg" />
 </div>
 
 
@@ -431,7 +587,7 @@ Microsoft Security Essentials 2.0.719.0 [Русский]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_806858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_806858.jpg" />
 </div>
 
 
@@ -457,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806758.jpg" />
 </div>
 
 
@@ -483,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806757.jpg" />
 </div>
 
 
@@ -509,173 +665,13 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806756.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Дин выбирается из чистилища, но не один. Он отправляется прямиком к Сэму, однако воссоединение семьи проходит не совсем так, как ему представлялось. Сэм бросает все ради того, чтобы быть со своим братом, но расстаться с целой жизнью, что он прожил без Дина, оказывается несколько сложнее, чем он ожидал. Дин и Сэм ищут Кевина, которому удалось сбежать из-под надзора (   Читать дальше...   )Производство: США, CWЖанр: Ужасы, мистика, приключения, драма, комедияРежиссер: Филип Сгриккиа, Джеймс Л. Конуэй, Питер ЭллисАктеры: Джаред Падалеки (Сэм Винчестер), Дженсен Эклс (Дин Винчестер), Джим Бивер, Миша Коллинз, Джеффри Дин Морган, Женевьев Падалеки, Саманта Феррис, Курт Фуллер, Кэти Кэссиди, Лорен Коэн и др.Перевод: Любительский многоголосый закадровый - DreamRecordsПродолжительность: ~ 00:40:00 серия
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119547   (806652) от 28.03.2017
-
-Mozilla Firefox 52.0.2 Final [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806652.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mozilla Firefox - очень быстро работающий браузер, причем быстрота работы заметна не только во время загрузки веб-страниц, но и при поиске в закладках и истории. Сделан он на основе движка Mozilla и позволяет просматривать все веб-страницы в одном многовкладочном окне, а также обладает множеством других полезных опций, включая способность значительного расширения (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB5E446852E01D25366BBA431171EF56719C5561
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119141   (806643) от 28.03.2017
-
-Мираж - Снова вместе (1989) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Disco>
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Млечный путь [4:28]
-02. Где я [4:40]
-03. Море грёз [4:33]
-04. Я не шучу [3:15](   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BE4841B3DD9E405FC339282FF55786A72AB2149
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119035   (806638) от 28.03.2017
-
-Проекты - VideoHive - Backstage Promo - 17258484 [AEP]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания динамичной презентации, состоящей из трех вариантов различной продолжительности.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1E3DADC29E5677B14B51C0A8EF0D9C13795E9A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119599   (806556) от 28.03.2017
-
-Изгой-один: Звёздные войны. Истории / Rogue One: A Star Wars Story (2016) BDRip [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сопротивление собирает отряд для выполнения особой миссии — надо выкрасть чертежи самого совершенного и смертоносного оружия Империи. Возглавляет бойцов неуправляемая и бесстрашная Джин Эрсо, у которой в этом самоубийственном задании есть и личные мотивы. Не всем суждено вернуться домой, но герои готовы к этому, ведь на кону судьба Галактики.Производство: США, Великобритания / Allison Shearmur Productions, Walt Disney Studios Motion PicturesЖанр: фантастика, боевик, приключенияРежиссер: Гарет ЭдвардсАктеры: Фелисити Джонс, Диего Луна, Алан Тьюдик, Донни Йен, Вэнь Цзян, Бен Мендельсон, Форест Уитакер, Риз Ахмед, Мадс Миккельсен, Джимми СмитсПеревод: Дублированный (iTunes)Субтитры: Русские (форсированные, полные),  Английские (Full, SDH)Продолжительность: 02:13:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BA663955FA6883479F0186276F5C4268884CA7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119043   (806553) от 28.03.2017
-
-Пользователи подали в суд на Microsoft из-за Windows 10
-
->>3
->>13
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_806553.jpg" />
-</div>
-
-
-###  Подробнее
-
-В окружной суд США в Чикаго поступил коллективный иск на компанию Microsoft из-за нестабильной работы операционной системы Windows 10.Инициаторами иска стали трое американцев, которые не смогли восстановить ценную информацию после внезапного обновления системы.В жалобе говорится, что Windows 10 является дефектным продуктом, и ее производитель не в состоянии открыто (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119415   (806548) от 28.03.2017
-
-Почему в СССР были запрещены микроволновые печи
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_806548.jpg" />
-</div>
-
-
-###  Подробнее
-
-В СССР в 1976 году микроволновые печи были запрещены из-за их вредного воздействия на здоровье, поскольку в отношении них было проведено множество исследований. Запрет был снят в начале 90-х после Перестройки. Вот некоторые из результатов исследований:
-(   Читать дальше...   )
 
 ## Скачать торент
 ```bash

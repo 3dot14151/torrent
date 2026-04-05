@@ -6,7 +6,7 @@ Deadlight [Ru/En/Multi6] (Repack/1.0.9249.u.1) 2012 | R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975782.jpg" />
 </div>
 
 
@@ -38,7 +38,7 @@ Black Future '88 (2019) [Ru/Multi] (0.45.2) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975100.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Black Future '88 (2019) [Ru/Multi] (0.45.2) License PLAZA [Collector's Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973999.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Assassin's Creed Chronicles: India / Assassin's Creed Chronicles: Индия (20
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972808.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Assassin’s Creed Chronicles: India / Assassin's Creed Chronicles: Индия (
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972803.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Sonic Lost World (2015) [En] (2.0.0/upd1/dlc) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972800.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Goat Simulator (2014) [Ru/Multi] (1.4.52198/dlc) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971582.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ The Escapists: The Walking Dead (2015) [Ru/Multi] (Build 263) Repack R.G. Мех
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971564.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Indivisible (2019) [Ru/Multi] (40093/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970450.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ The Wild Age (2020) [Ru/Multi] (1.02.001) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969294.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Macrotis: A Mother's Journey (2019) [Ru/Multi] (1.3.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968334.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Guns n Zombies (2014) [Ru/Multi] (1.7/dlc) SteamRip Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965252.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Darkout [En] (L/1.0.2) 2013 | FANiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964849.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ The Binding of Isaac: Rebirth (2014) [En] (1.06.0109) SteamRip Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964281.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Generation Streets (2020) [Ru/En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963873.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Assassin’s Creed Chronicles: India / Assassin's Creed Chronicles: Индия (
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961825.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Florence (2020) [Ru/Multi] (1.0.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959069.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Zombie Driver HD [En/Multi6] (Steam-Rip/1.4.23-20983/DLC) 2012 | R.G. Игром
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958422.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Crystal Caves (1991) [En] (1.0.0.28043) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956612.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Deadlight [En/Ru] (RePack/1.0.9249.0) 2012 | R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954691.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Highly Likely (2020) [Ru/En] (1.0/upd1) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953684.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Space Robinson: Hardcore Roguelike Action (2019) [Ru/Multi] (2.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952020.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Deathtrap (2015) [Ru/Multi] (1.0.6) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951981.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Hypersensitive Bob (2016) [En] (1291928) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951704.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Dragon Ball: Xenoverse (2015) [Ru/Multi] (1.08.00/dlc) SteamRip Let'sPlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951661.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ The Binding of Isaac: Afterbirth+ (2017) [En] (1.0/dlc) License TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949918.jpg" />
 </div>
 
 

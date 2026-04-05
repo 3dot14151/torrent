@@ -1,3 +1,32 @@
+###  Публикация: 1577375   (357174) от 18.09.2022
+
+Colour Haze - We Are (2019) remastered version, 2021, Electrohasch [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Stoner, Space Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Are (Remastered) [00:03:23]
+02. The Real (Remastered) [00:08:38]
+03. Life (Remastered) [00:08:44]
+04. Material Drive [00:04:31](   Читать дальше...   )Жанр: Heavy Psych, Stoner, Space RockПродолжительность: 00:45:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F39C9C07830CBDBC18810AB0D5DAB16969F48DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1577304   (357172) от 18.09.2022
 
 Palace - One 4 The Road (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
@@ -6,7 +35,7 @@ Palace - One 4 The Road (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357172.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Vogelfrey - Titanium (2022) [FLAC|Lossless|WEB-DL|tracks] <Neue Deutsche Harte, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357171.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ David Paich - Forgotten Toys (2022) [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357166.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Kruger - Бомба (2022) [MP3|320 Kbps] <Thrash Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357164.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357163.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Starcrawler - 3 Albums, 1 Single (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Alte
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357162.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Graham Bonnet Band - The Book (2016) 2CD [FLAC|Lossless|image + .cue] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357126.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Simple Minds - Acoustic (2016) [FLAC|Lossless|image + .cue] <Post-Punk, Alternat
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357120.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Carpathian - Nothing To Lose (2006) [FLAC|Lossless|tracks + .cue] <Hardcore, Pun
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357051.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Carpathian - Isolation (2008) [FLAC|Lossless|tracks + .cue] <Hardcore, Punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357049.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ VA - Rock Sound: Sound Check No. 129 (2009) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357045.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Deep Sun - Dreamland - Behind The Shades (2022) [FLAC|Lossless|image + .cue] <Sy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357044.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357043.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Dreamtide - Drama Dust Dream (2022) Japanese Edition [FLAC|Lossless|image + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357042.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ House Of Lords - Saints And Sinners (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357039.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Creedence Clearwater Revival - At The Royal Albert Hall (London, UK, April 14, 1
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357038.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ The Black Angels - Wilderness of Mirrors (2022) [FLAC|Lossless|tracks + .cue] <A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357036.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Kula Shaker - 4 Releases (2016-2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357031.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Project NT - Бесы (2016) [FLAC|Lossless|image + .cue] <Experimental, Psyched
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356967.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ VA - Rock Sound: Ones to Watch 2010 Rock Sound 130 (2009) [FLAC|Lossless|tracks 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356918.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Apocalyptica - Metal Classic, Classic Metal (2022) EP [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356875.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ Billy Idol - Essential (2011) Compilation [FLAC|Lossless|tracks + .cue] <Punk-Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356834.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ Pink Floyd - Cre/ation: The Early Years 1967 - 1972 (2016) 2CD [MP3|320 Kbps] <P
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356816.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ Bring Me the Horizon - Suicide Season (2008) [FLAC|Lossless|tracks + .cue] <Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356787.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ Alkonost - Октаграмма (2018) [MP3|320 Kbps] <Folk Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356785.jpg" />
 </div>
 
 
@@ -715,35 +744,6 @@ Alkonost - Октаграмма (2018) [MP3|320 Kbps] <Folk Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F91C93C82BC93C3F2B19D7920726143E2E0B584
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256413   (356784) от 21.10.2018
-
-Чумацький Шлях - Самурай (2015) [MP3|320 Kbps] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Самурай
-02. Не зникає день
-03. Мантра
-04. Хап (кліп)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:30:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F72BFD3FF404BAC0CFA63FC968143A6606469B23
 ```
 
 https://mybot314.ru/tekegram_catalog/

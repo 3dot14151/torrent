@@ -1,3 +1,32 @@
+###  Публикация: 1164568   (436918) от 11.09.2017
+
+Eluveitie - Evocation II – Pantheon (2017) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dureððu
+02. Epona
+03. Svcellos II (Sequel)
+04. Nantosvelta(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:53:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA00EDAC7DA27309EB447A48CA1633F5BD56B9E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 144844   (436640) от 08.10.2009
 
 Diablo Swing Orchestra - Sing-Along Songs for the Damned and Delirious (2009) [FLAC|Lossless]<Avant-garde Metal>
@@ -6,7 +35,7 @@ Diablo Swing Orchestra - Sing-Along Songs for the Damned and Delirious (2009) [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436640.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ Drifter - The Demos 1985 & 1986 (2006) [FLAC|Lossless|image + .cue] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436231.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ Horror on Black Heels - An Empty Throne (2014) [FLAC|Lossless|image + .cue] <Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436229.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ Drifter - Reality Turns to Dust (1988) [FLAC|Lossless|image + .cue] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436228.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ Gwar - Blood Of Gods (2017) [FLAC|Lossless|image + .cue] <Thrash Metal, Hardcore
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436225.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ Lowrider - 2 Albums (2020) [FLAC|Lossless|WEB-DL|tracks] <Desert, Stoner Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436220.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ Paganizer - Beyond The Macabre (2022) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436192.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ Tyrants Of Chaos - Relentless Thirst For Power (2022) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436187.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ Empress - Fateweaver (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436184.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ Michael Schinkel's Eternal Flame - Gravitation (2021) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436180.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ Sinner - Brotherhood (2022) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436179.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ Mama's Boys - Power And Passion (1985) [FLAC|Lossless|image + .cue] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436162.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436160.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ Rebellion - A Tragedy In Steel Part II: Shakespeare's King Lear (2018) [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436158.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436157.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ Burning Witches - Dance With The Devil (2020) Japan [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436156.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ Overland - Scandalous (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, C
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436155.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ Wendy O. Williams - Wow (1984) [FLAC|Lossless]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436099.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ Lillian Axe - From Womb To Tomb (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436049.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ Old Man's Will - Hard Times - Troubled Man (2015) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436016.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ Dead Summer Society - Visions From A Thousand Lives (2012) [FLAC|Lossless|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_436015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436015.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ James LaBrie - 5 Albums (1999 - 2013) Japanese Edition [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435861.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ Paragon Collapse - The Dawning (2018) [FLAC|Lossless|image + .cue] <Melodic Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435854.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ Amorphis - Under The Red Cloud (2015) 2CD Japanese Edition [FLAC|image+.cue]<Pro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435847.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ Sabaton - Live on the Sabaton Cruise 2014 (2015) Japanese Edition 2CD [FLAC|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435837.jpg" />
 </div>
 
 
@@ -713,35 +742,6 @@ CD 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABFFA7FF9189B87EFE080B611765A68F02F4B70B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323543   (435817) от 04.09.2019
-
-Sonata Arctica - Talviyo (2019) Japanese Edition [MP3|320 Kbps] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Message from the Sun
-02. Whirlwind
-03. Cold
-04. Storm the Armada(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:01:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED140349ED4321BAA47D651FB8881B6EC0D19E06
 ```
 
 https://mybot314.ru/tekegram_catalog/

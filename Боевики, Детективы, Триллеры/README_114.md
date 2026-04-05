@@ -1,3 +1,109 @@
+###  Публикация: 1700347   (117288) от 16.02.2024
+
+Мария Орунья | Валентина Редондо и Оливер Гордон (Книга 1). Скрытая бухта (2023) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой лондонец Оливер Гордон получает в наследство колониальный особняк, виллу “Марина” в прибрежном городке Суансес в Кантабрии – области на севере Испании. Во время ремонтных работ в подвале обнаруживается замурованное тельце младенца, а рядом – странный предмет, уродливая статуэтка, изображающая какого-то экзотического идола. Страшная находка словно открывает (   Читать дальше...   )Жанр: Исторический детектив, Полицейский детективПеревод: Марина КетлероваИздательство: Фантом Пресс, МоскваФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E02C1A208050B63443CDAB8594FDEB3DA409463
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700353   (117268) от 16.02.2024
+
+Мария Орунья | Валентина Редондо и Оливер Гордон (Книга 2). Пристанище (2024) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117268.jpg" />
+</div>
+
+
+###  Подробнее
+
+После успеха “Скрытой бухты” Мария Орунья продолжила детективный цикл про инспектора Валентину Редондо и англичанина Оливера Гордона, перебравшегося жить в Кантабрию после личной драмы.
+Действие нового романа снова развивается в окрестностях городка Суансес и виллы “Марина”. Жители еще не оправились от серии убийств, случившихся несколько месяцев назад, как одним (   Читать дальше...   )Жанр: Исторический детектив, Полицейский детективПеревод: Марина КетлероваИздательство: Фантом Пресс, МоскваФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDDB809A07A6362C38B99302B2EDDAEE7777D6D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703974   (114716) от 02.03.2024
+
+Эндрю Тейлор | Королевский порок (2024) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114716.jpg" />
+</div>
+
+
+###  Подробнее
+
+УЖАСНАЯ НАХОДКА. Опасно быть приближенным Карла II: порой один неверный шаг приводит к позору, изгнанию и даже к смерти. За место у трона борются самые высокопоставленные вельможи Англии. И чаша весов может склониться не в пользу лорда Кларендона, когда в колодце его дома находят мертвеца…
+КТО ЖЕ УБИЙЦА? Джеймсу Марвуду, клерку на правительственной службе, поручено (   Читать дальше...   )Жанр: Исторические приключения, Исторический детективПеревод: Анна ОсиповаИздательство: СПб.: Азбука, М.: Азбука-АттикусФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60C247C9B38C5E6B78AC17F3D38070150E2CD016
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704452   (114412) от 04.03.2024
+
+Карен Одден | Вниз по тёмной реке (2023) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лондон, 1878 год. На Темзе совершено загадочное преступление — тело молодой девушки нашли среди лепестков роз в лодке, плывущей вниз по течению. Погибшей оказывается дочь известного судьи, и расследование берет в свои руки старший инспектор Скотленд-Ярда Майкл Корраван. Бывший боксер и портовый рабочий из захудалого лондонского Ист-Энда, Корраван обладает хорошим (   Читать дальше...   )Жанр: Исторический детективПеревод: Виталий ТулаевИздательство: «Омега-Л»: METAMORPHOSESФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEC11E45CE7C6AF648C4B389D6178414671CF9DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1722291   (109852) от 10.05.2024
 
 Кейт Хавари | Путеводитель ботаника по цветам и судьбам (2024) [EPUB]
@@ -6,7 +112,7 @@
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109852.jpg" />
 </div>
 
 
@@ -34,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102507.jpg" />
 </div>
 
 
@@ -60,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101644.jpg" />
 </div>
 
 
@@ -87,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101017.jpg" />
 </div>
 
 
@@ -113,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100996.jpg" />
 </div>
 
 
@@ -139,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91293.jpg" />
 </div>
 
 
@@ -165,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91246.jpg" />
 </div>
 
 
@@ -192,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85411.jpg" />
 </div>
 
 
@@ -220,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85145.jpg" />
 </div>
 
 
@@ -248,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84887.jpg" />
 </div>
 
 
@@ -274,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83481.jpg" />
 </div>
 
 
@@ -301,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83337.jpg" />
 </div>
 
 
@@ -335,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83032.jpg" />
 </div>
 
 
@@ -361,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82768.jpg" />
 </div>
 
 
@@ -387,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63869.jpg" />
 </div>
 
 
@@ -413,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63865.jpg" />
 </div>
 
 
@@ -439,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63864.jpg" />
 </div>
 
 
@@ -465,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63863.jpg" />
 </div>
 
 
@@ -491,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63861.jpg" />
 </div>
 
 
@@ -517,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63858.jpg" />
 </div>
 
 
@@ -543,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63777.jpg" />
 </div>
 
 
@@ -570,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61510.jpg" />
 </div>
 
 
@@ -582,118 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:414B0D44CB90A8920CE5579B94F4E33C23763556
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711971   (61098) от 01.04.2024
-
-Джейми Дей | Соседская вечеринка (2024) [EPUB]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хорошо ли вы знаете своих соседей?
-Жители закрытого элитного района Олтон-роуд живут спокойной жизнью: воспитывают детей, следят за садом и беседуют по душам на уютных домашних посиделках. Но у всего есть последствия…
-
-В ночь ежегодной соседской вечеринки музыку и смех сменяет вой полицейской сирены. Кто-то совершил преступление, и этот кто-то — один из них.(   Читать дальше...   )Жанр: Зарубежные детективы, Современная зарубежная литератураПеревод: Александр КлемешовЯзык: РусскийИздательство: АСТФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F32774ED4615BF966B5905D0EB8D024489E7B44B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711977   (61097) от 01.04.2024
-
-Том Мид | Колесо убийств (2023) [EPUB]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61097.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лондон. 1938 год.
-На колесе обозрения совершено убийство, а единственная подозреваемая — жена жертвы — категорически отрицает свою вину, несмотря на неопровержимые улики против нее.
-
-Эдвард Иббс — молодой адвокат, берется за ее дело. Углубляясь в него, Иббс невольно попадает в темную паутину заговора и убийств. Ведя расследование, Иббс сталкивается с еще двумя совершенно (   Читать дальше...   )Жанр: Зарубежные детективыПеревод: Фельдман Мария АндреевнаЯзык: РусскийИздательство: АСТФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5C8BB012155A3C90DB2EAC8A0950805B2D4C50D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715352   (60070) от 11.04.2024
-
-Ли Чайлд, Эндрю Чайлд | Джек Ричер: Время свободы (2024) [FB2, EPUB, MOBI]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60070.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тихий, скучный городок в штате Колорадо всколыхнула трагедия: погибла женщина. По словам одного уважаемого свидетеля, она сама бросилась под колеса. Однако случайно оказавшийся на месте происшествия бывший военный полицейский Джек Ричер собственными глазами видел, как прохожий, с безучастным видом остановившийся рядом, вдруг толкнул жертву под автобус, затем схватил (   Читать дальше...   )Жанр: Зарубежные детективыИздательство: АзбукаФормат: FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AFF3FBFA8A0D5A5287B97D27EFE25E0432FCFFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727848   (54401) от 04.06.2024
-
-Алекс Михаэлидес | Ярость (2024) [EPUB]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54401.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Всего нас семеро, запертых на острове. И один из нас — убийца…
-На маленьком частном греческом острове бывшая кинозвезда Лана Фаррар, моя старая подруга, приглашает собраться самых близких своих людей. Погода будет идеальной — жаркой и солнечной. Для всех нас это шанс расслабиться и воссоединиться. И, возможно, раскрыть несколько глубоко запрятанных тайн…
-Потому (   Читать дальше...   )Жанр: Триллер, Современная зарубежная литератураПеревод: О. С. АкопянИздательство: ЭксмоФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F2A30AF944364BF6937528DC19E9EB225F7E6B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

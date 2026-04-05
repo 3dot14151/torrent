@@ -1,3 +1,29 @@
+###  Публикация: 504621   (213399) от 12.06.2022
+
+Васса (1983) (2 серии) 2хDVD9
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213399.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом доме детей с юных лет приучали всегда отчетливо говорить «мой»: мой пароход, мой дом, моя фабрика. Здесь считали деньги, нажитые чужим трудом, и за ночь спускали в карты целое состояние; здесь развратничали напропалую и втихомолку шпионили друг за другом; молились и совершали именем господа темные дела. Все было у Вассы — деньги, сила, власть, ум и хватка. (   Читать дальше...   )Жанр: ДрамаРежиссер: Глеб ПанфиловАктеры: Инна Чурикова, Вадим Медведев, Николай Скоробогатов, Ольга Машная, Яна Поплавская, Валентина Якунина, Ваня Панфилов, Валентина Теличкина, Вячеслав Богачёв, Альберт Филозов, Всеволод Соболев, Татьяна Кравченко, Татьяна Калистратова, В. Дудукин, Андрей Мартынов, Е. Пермяков, Г. Писарев, Леонид Плешаков, Л. Татаринов, В. Чернов, Вадим Шилов, П. Гродницкий, В. Демент, (   Читать дальше...   )Субтитры: русские, английские, французские, испанские, итальянские, немецкие, голландскиеПродолжительность: 01:07:20  +  01:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F8E2C8177A747B87EC50A8F6BF317811C0CA9DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 361575   (213115) от 24.06.2022
 
 Выйти замуж за капитана (1985) DVD5
@@ -6,7 +32,7 @@
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213115.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212852.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_202806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_202806.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201615.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_201017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_201017.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199358.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199331.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_194399.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181330.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157106.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150698.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148280.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135809.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_135563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_135563.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_134622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_134622.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128579.jpg" />
 </div>
 
 
@@ -432,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87649.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87006.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75138.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66093.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66074.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65855.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65711.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65536.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65200.jpg" />
 </div>
 
 
@@ -653,33 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A1C85FBAEDBED7EA5A1BD4DBE32A9F7FF05E612
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808898   (64846) от 27.07.2025
-
-Завещание профессора Доуэля (1984) DVD9 [RUSCICO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят по мотивам известного научно-фантастического романа русского писателя Александра Беляева «Голова профессора Доуэля». Много лет крупный ученый пытался решить проблему бессмертия. Он не скрывает от коллег результатов смелых и рискованных экспериментов.
-Но однажды случилось непредвиденное: профессор исчез. В преступных целях результатами научных изысканий (   Читать дальше...   )Производство: СССР, ЛенфильмЖанр: Фантастика, драмаРежиссер: Леонид МенакерАктеры: Олгерт Кродерс, Игорь Васильев, Валентина Титова, Алексей Бобров, Николай Лавров, Александр Пороховщиков, Эрнст Романов, Боб Цымб, Петр Шелохонов, Наталья СайкоСубтитры: русские, английские, французские, немецкие, итальянские, португальские, голландские, иврит, шведскиеПродолжительность: 01:26:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B16B38E9DC922067052E46C102FAF0B8703726A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

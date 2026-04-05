@@ -1,3 +1,134 @@
+###  Публикация: 944191   (442772) от 06.10.2015
+
+Журнал | Прорез №4 (85) (2015) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442772.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Прорез» - самый авторитетный отечественный журнал о ножах, клинковом оружии, инструментах и обо всём, что с ними связано. Даны подробные описания и особенности различных моделей, обзоры новинок и новых технологий, приемы самообороны. «Прорез» - первый журнал о ножах не только в России, но и на всем постсоветском пространстве, продолжает выполнять свою благородную (   Читать дальше...   )Жанр: Журнал о ножах и клинковом оружииФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73A7DD4763ABEB5AC5A16FB95702A86F1DAA6DD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944362   (442771) от 06.10.2015
+
+Журнал | Дарья. Биография №11 (ноябрь 2015) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дарья. Биография - захватывающие и неординарные истории о судьбах известных людей, чьи имена стали легендами.
+Какими на самом деле были эти люди, как добивались успеха и переживали поражения? Кого любили, о чем думали и мечтали? Об их судьбах, порой непростых и трагических, расскажет новый журнал "Дарья. Биография". Каждый месяц вас ждут захватывающие, (   Читать дальше...   )Жанр: Жизнь знаменитых людейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79367461160FB04D61B5E1278A9EFCD338FDAABE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944161   (442765) от 06.10.2015
+
+Журнал | IT Expert №9 (240) (сентябрь-октябрь 2015) [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442765.jpg" />
+</div>
+
+
+###  Подробнее
+
+IT Expert - журнал для профессионалов в области IT. На страницах издания можно узнать новости и статьи о последних технологических разработках, о тестировании новых продуктов, оценку рыночной ситуации в различных сегментах IT-индустрии как в России, так и за рубежом.Жанр: Журнал для профессионалов в области ITФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55D384AF46F448AE5D6989D65143A3140111258D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944192   (442665) от 06.10.2015
+
+Журнал | Прорез №5 (86) (2015) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442665.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Прорез» - самый авторитетный отечественный журнал о ножах, клинковом оружии, инструментах и обо всём, что с ними связано. Даны подробные описания и особенности различных моделей, обзоры новинок и новых технологий, приемы самообороны. «Прорез» - первый журнал о ножах не только в России, но и на всем постсоветском пространстве, продолжает выполнять свою благородную (   Читать дальше...   )Жанр: Журнал о ножах и клинковом оружииФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:850A60E23BEEAB78B46D7D5EF766DA9BBABEB24D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 828016   (442640) от 05.10.2014
+
+Журнал | Chip [Украина] №9 (сентябрь 2014) [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442640.jpg" />
+</div>
+
+
+###  Подробнее
+
+Chip — первый компьютерный журнал в Европе, сейчас издается в 16 странах тиражом более 1 миллиона экземпляров. Журнал Chip — это высочайшее качество в освещении таких тем, как аудио-, видео- и фототехника, компьютеры, программное обеспечение, Интернет, современные технологии телекоммуникаций и развлечений. Работая в тесной связке с редакцией журнала Chip, сайт публикует (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27B92F631C3EAA006B2DB74F17AA0806A252EE95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 706572   (442448) от 03.10.2013
 
 Журнал | XXL №10 [Украина] (октябрь 2013) [PDF]
@@ -6,7 +137,7 @@
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442448.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442418.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442237.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442061.jpg" />
 </div>
 
 
@@ -110,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442049.jpg" />
 </div>
 
 
@@ -136,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441981.jpg" />
 </div>
 
 
@@ -162,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441975.jpg" />
 </div>
 
 
@@ -188,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441897.jpg" />
 </div>
 
 
@@ -214,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441830.jpg" />
 </div>
 
 
@@ -240,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441782.jpg" />
 </div>
 
 
@@ -266,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441526.jpg" />
 </div>
 
 
@@ -292,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441523.jpg" />
 </div>
 
 
@@ -318,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441197.jpg" />
 </div>
 
 
@@ -344,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440704.jpg" />
 </div>
 
 
@@ -370,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440690.jpg" />
 </div>
 
 
@@ -396,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440513.jpg" />
 </div>
 
 
@@ -422,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440512.jpg" />
 </div>
 
 
@@ -448,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440374.jpg" />
 </div>
 
 
@@ -474,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440369.jpg" />
 </div>
 
 
@@ -500,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440084.jpg" />
 </div>
 
 
@@ -526,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439980.jpg" />
 </div>
 
 
@@ -537,136 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B415A1A892EA2C86D0404AECB560700FC44CBDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 706483   (439962) от 04.10.2013
-
-Журнал | Forbes [Россия] №10 (115) (октябрь 2013) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439962.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Forbes" является главным деловым журналом в мире, успех журнал получил благодаря своим дерзким расследованиям в мире бизнеса и справедливым оценкам событий. "Forbes" пишет об историях успеха и поражений предпринимателей, новых идеях для бизнеса и инвестиций, а также публикует ежегодные авторитетные рейтинги.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03D2E109E54946031EB74A358AA42BAE5D972A4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062492   (439943) от 14.10.2016
-
-Журнал | Золотые рецепты наших читателей №19 (173) (октябрь 2016) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярное кулинарное издание, созданное исключительно на основе писем читателей — профессиональных поваров, кондитеров и домашних кулинаров. Все рецепты подкреплены качественными фотографиями блюд и их авторов, что позволяет заранее оценить конечный результат. Часть рецептов опробована на редакционной кухне. Важно, что для публикации редакция отбирает простые, доступные (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DACD96114691134D1767C4562088DB03376A17A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 828591   (439885) от 06.10.2014
-
-Журнал | Men's Health [Россия] №10 (Октябрь 2014) [PDF]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439885.jpg" />
-</div>
-
-
-###  Подробнее
-
-Men’s Health — самый узнаваемый мужской журнальный бренд категории lifestyle. Журнал освещает все стороны жизни мужчины — пишет о здоровье, фитнесе, моде, правильном питании, отношениях, путешествиях, технике, карьере. Это единственное издание, созданное чтобы показать мужчинам, как они могут улучшить свою жизнь. Русскоязычный Men’s Health — самый успешный из международных. (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:157C17382FDD8CC2D43BCF4CD04A4B9106050D3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164670   (439690) от 10.09.2017
-
-Газета | Наша кухня №9 (259) (сентябрь 2017) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439690.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Наша кухня» - журнал о кулинарии. С его помощью можно запросто составить меню на каждый день и для праздничного стола, ведь в нём всё просто и доступно, так как основу каждого номера составляют проверенные читательские рецепты блюд с фотографиями. И тогда приготовление блюд превращается в удовольствие!Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B53FCF8F9A9805A8A3FF83868D9275CF25A15CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248952   (439629) от 21.09.2018
-
-Журнал | Windows IT Pro/RE №9 (сентябрь 2018) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439629.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессиональное издание на русском языке, целиком и полностью посвященное вопросам работы с продуктами семейства Windows и технологиям компании Microsoft. Каждый номер журнала начинается со статей, посвященных одной из самых перспективных на данный момент технологий, оказывающих серьезное влияние на ИТ-отрасль и вызывающих интерес сообщества профессионалов Windows. (   Читать дальше...   )Жанр: Компьютерный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9897EC5C06BC348D46DBF68246A073B7560BA3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

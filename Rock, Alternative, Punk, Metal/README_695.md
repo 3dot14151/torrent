@@ -1,3 +1,32 @@
+###  Публикация: 1328512   (363414) от 30.09.2019
+
+Klone - Le Grand Voyage (2019) [FLAC|Lossless|tracks + .cue] <Progressive Metal, Prog Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yonder
+02. Breach
+03. Sealed
+04. Indelible(   Читать дальше...   )Жанр: Progressive Metal, Prog Rock, Alternative RockПродолжительность: 00:46:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEB81462435A30FD1AAAA6B15A961A3D2C3B0004
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328471   (363399) от 30.09.2019
 
 Павел Пиковский - Впереди Китай (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -6,7 +35,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363399.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363373.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ The Oneira - Injection (2020) [FLAC|Lossless|image + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363342.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Draconian - Sovran (2015) Deluxe Edition [MP3|320 кб/с]<Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363314.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363293.jpg" />
 </div>
 
 
@@ -152,7 +181,7 @@ Mystery - The World Is A Game (2012) [FLAC|Lossless]<Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_363223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_363223.jpg" />
 </div>
 
 
@@ -181,7 +210,7 @@ LosiKenguru - ВЫше норМЫ (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363201.jpg" />
 </div>
 
 
@@ -210,7 +239,7 @@ Crazee Noize - 50 Best of Glam Rock (2011) [MP3|320 Kbps] <Rock, Glam Rock, Hard
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363182.jpg" />
 </div>
 
 
@@ -239,7 +268,7 @@ Star Insight - 2 Albums (2014-2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363173.jpg" />
 </div>
 
 
@@ -268,7 +297,7 @@ Skindred - Volume (2015) [MP3|320 кб/с]<Rapcore, Ragga-Metal, Electronic>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363102.jpg" />
 </div>
 
 
@@ -297,7 +326,7 @@ Def Leppard - Def Leppard (2015) [FLAC|tracks|WEB-DL]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363069.jpg" />
 </div>
 
 
@@ -326,7 +355,7 @@ Spirit Adrift - 4 Albums; 2 Singles (2016-2020) [FLAC|Lossless|WEB-DL|tracks] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363025.jpg" />
 </div>
 
 
@@ -355,7 +384,7 @@ Gary Barden - 9 albums, 10CD (1986-2014) [FLAC|Lossless|image + .cue] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363010.jpg" />
 </div>
 
 
@@ -384,7 +413,7 @@ VA - Dreamboats and Petticoats: 10th Anniversary Collection (2016) [MP3|320 Kbps
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363004.jpg" />
 </div>
 
 
@@ -413,7 +442,7 @@ Sweet & Lynch - Unified (2017) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362990.jpg" />
 </div>
 
 
@@ -442,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362988.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ Bonnie Tyler - Greatest Hits (2001) [APE|Lossless]<Rock, Soft Rock, Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362976.jpg" />
 </div>
 
 
@@ -500,7 +529,7 @@ Fall Out Boy - Make America Psycho Again (2015) [MP3|320 кб/с]<Alternative Ro
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362942.jpg" />
 </div>
 
 
@@ -529,7 +558,7 @@ VA - Best of Glam Rock (2020) [MP3|320 Kbps] <Rock, Glam Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362850.jpg" />
 </div>
 
 
@@ -558,7 +587,7 @@ Bon Jovi - Burning Bridges (2015) Japanese Edition [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362758.jpg" />
 </div>
 
 
@@ -587,7 +616,7 @@ Pearl Jam - Gigaton (2020) [MP3|320 Kbps] <Alternative Rock, Experimental Rock, 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362736.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ Hollywood Undead - Five (2017) [FLAC|Lossless|tracks] <Rapcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362689.jpg" />
 </div>
 
 
@@ -645,7 +674,7 @@ Def Leppard - Def Leppard (2015) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362487.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ Bryan Adams - Bare Bones (2010) [MP3|128-320 kbps]<Rock, Pop Rock, Soft Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362093.jpg" />
 </div>
 
 
@@ -709,7 +738,7 @@ Mindahead - Reflections (2016) [MP3|192 Kbps] <Progressive, Avant-Garde, Melodic
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362032.jpg" />
 </div>
 
 
@@ -723,35 +752,6 @@ Mindahead - Reflections (2016) [MP3|192 Kbps] <Progressive, Avant-Garde, Melodic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88206D4BF73A26288A7F3A70DB77D2FAF0E5299C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071132   (362027) от 09.11.2016
-
-Hteththemeth - Best Worst Case Scenario (2016) [MP3|320 Kbps] <Avant-Garde Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362027.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	The Prophecy
-2.	They Will Not Believe What I Will Say
-3.	Light Lies
-4.	Light Truths(   Читать дальше...   )Жанр: Avant-Garde MetalПродолжительность: 01:13:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD0A671E5EB6ECB8F4AF8EC151DD631F6DF6B4FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

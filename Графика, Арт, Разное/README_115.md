@@ -1,3 +1,29 @@
+###  Публикация: 957965   (325737) от 19.11.2015
+
+Обои - Best Wallpapers Mixed 178 2560x1600 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325737.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивые обои на различные темы для рабочего стола.Формат: JPGРазрешение файлов: 2560x1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F7899B7570B236B5F6A33652C927BE5B351AEAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 958017   (325733) от 19.11.2015
 
 Обои - Сборник обоев. Макро. 2560x1440 - 120 шт [JPG]
@@ -6,7 +32,7 @@
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325733.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325682.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325626.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325614.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325551.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325546.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325541.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325490.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324912.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324777.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324641.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324640.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324626.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323875.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323869.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323777.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323281.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323273.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322132.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321776.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321668.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321510.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321433.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ Wallpapers - Chevrolet Full HD [JPEG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321357.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320784.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0BB9C47351777923D781A05F1015E80675E5D80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075548   (320423) от 22.11.2016
-
-Классическое искусство - The Art of Jim C. Norton [JPG]
-
->>Графика, Арт, Разное
->>Классическое искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320423.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джим Нортон много путешествовал и жил среди людей, населяющих земли Америки, впитывая быт, примечая детали. Среди героев его картин – ковбои и их лошади, а также коренные жители - индейцы. К слову, у Джима Нортона имеется коллекция аутентичных индейских костюмов. Он убеждён, что зарисовки из жизни – это то, что придаёт достоверность и жизненность его картинам. Он (   Читать дальше...   )Формат: JPGРазрешение файлов: от 759x1024 до 6553x4368
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C1E58DDB9249F812EDCE12272FE2219C0A47586
 ```
 
 https://mybot314.ru/tekegram_catalog/

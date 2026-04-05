@@ -6,7 +6,7 @@ RTG. Подземный мир хребта Азиш-Тау (2013) HDTV [H.264/1
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239871.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ RTG. Летний отдых в Анапе (2013) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239603.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239372.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239246.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ RTG. Путешествие к горе Фишт (2013) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239223.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239131.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ RTG. Природный парк «Оленьи Ручьи» (2013) HDTV [H.264/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239064.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ RTG. Озеро Ильмень (2013) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238874.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ RTG. Отдых на Асафовых островах (2013) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238620.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238420.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_238377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238377.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237783.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ RTG. Приокско-террасный заповедник (2014) HDTV [H.264
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237779.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236959.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236937.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ RTG. Малые музеи Петербурга. Игровые автоматы
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236875.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ RTG. Рыбалка на Ейской косе (2011) HDTV [H.264/1080p]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236865.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236604.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236365.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236321.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235845.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ RTG. Мраморный карьер Рускеала (2013) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235837.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ RTG. Остров Пякяха (2016) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235221.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235220.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235172.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ RTG. Отель «Эрмитаж» (2014) HDTV [H.264/1080i]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235149.jpg" />
 </div>
 
 

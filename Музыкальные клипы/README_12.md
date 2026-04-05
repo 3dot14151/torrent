@@ -6,7 +6,7 @@ Marty - Suddenly (2013) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855371.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Chase The Ace - California (2013) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855285.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854167.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Rammstein - Lichtspielhaus (2003) DVDRip [H.264]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848067.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842926.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Supermax - Rhythm Of Live (2010) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842116.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Europa Plus TOP 40 март (2017) WEB-DL [1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840860.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840685.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839910.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ The Pretty Reckless - Only Love Can Save Me Now (2021) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839819.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ AC DC - Through the Mists of Time (2021) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839585.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Nightwish - Nemo (2008) DVDRip [H.264/1080p-LQ] [Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839236.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838986.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Nightwish - Sleeping Sun (2005) DVDRip [H.264/1080p-LQ] [Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837993.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Nightwish - The Islander (2008) DVDRip [H.264/1080p-LQ] [Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837870.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Crematory - Greed (2004) DVDRip [H.264/1080p-LQ] [Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836561.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Crematory - Left The Ground (2006) DVDRip [H.264/1080p-LQ] [Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836559.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Wax Audio (видеография) (2004-2007) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819998.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812889.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Yello - Final Essential Exclusive Limited Edition (2009) DVDRip [H.264]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812614.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810968.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809615.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Chris Isaak - Best of Chris Isaak (2006) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808881.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_807589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807589.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804002.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ Behemoth - Lucifer (Director's Cut) (2011) [H.264/720p] HDTV
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803681.jpg" />
 </div>
 
 

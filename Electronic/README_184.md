@@ -1,3 +1,58 @@
+###  Публикация: 1128402   (727669) от 25.04.2017
+
+VA - Blue Sunset Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Grooveyard - Seven Mile (Blade From Jestofunk Re-Edit)  7:03
+02.  Danny Tylar - Blow  3:12
+03.  Ruadh Munro - Joe Sax  3:11
+04.  The Cabildos - Collection Samba  3:44(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:59:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:117D3C4E881BFDFF67925D48701CC8936D2CFF1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128410   (727668) от 25.04.2017
+
+VA - Mantra House Vol. 1 (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Body Dymension - Shake Your Ass (feat. Alex D.)Жанр: HouseПродолжительность: 01:02:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B737B6F13F1EDCB3175F26855EC16155E02407C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128438   (727663) от 25.04.2017
 
 VA - This Is My Church Vol.4 (The Chill Out Edition) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -6,7 +61,7 @@ VA - This Is My Church Vol.4 (The Chill Out Edition) (2017) [MP3|320 Kbps] <Down
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727663.jpg" />
 </div>
 
 
@@ -35,7 +90,7 @@ VA - La Fete Au Jardin Selection Lounge Vol.5 (2017) [MP3|320 Kbps] <Downtempo, 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727566.jpg" />
 </div>
 
 
@@ -64,7 +119,7 @@ Banco De Gaia - 30 Times Around the Sun (2019) [FLAC|Lossless|WEB-DL|tracks] <Ps
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727543.jpg" />
 </div>
 
 
@@ -93,7 +148,7 @@ VA - Paul Oakenfold - Dreamstate Volume One (Mixed by Paul Oakenfold) (2017) [FL
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727322.jpg" />
 </div>
 
 
@@ -122,7 +177,7 @@ Between Interval - Discography 5 Albums (2005-2017) [FLAC|Lossless|tracks+.cue, 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727314.jpg" />
 </div>
 
 
@@ -151,7 +206,7 @@ VA - Bar & Lounge Music Vol. 2 (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726733.jpg" />
 </div>
 
 
@@ -180,7 +235,7 @@ VA - Chillaxed Hawaii Nights (2016) [MP3|320 кб/с] <Chillout, Downtempo, Loun
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726725.jpg" />
 </div>
 
 
@@ -209,7 +264,7 @@ VA - Ambient Spheres (2016) [MP3|320 кб/с] <Downtempo, Chillout, Electronica>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726722.jpg" />
 </div>
 
 
@@ -238,7 +293,7 @@ VA - Defected In The House Ibiza (2016) [MP3|320 кб/с] <House, Tech House, De
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726712.jpg" />
 </div>
 
 
@@ -267,7 +322,7 @@ VA - Luxury No. 2 (The House Series) (2016) [MP3|320 кб/с] <ChillHouse, Loung
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726705.jpg" />
 </div>
 
 
@@ -294,7 +349,7 @@ Cantoma - Just Landed (2016) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Do
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726684.jpg" />
 </div>
 
 
@@ -323,7 +378,7 @@ JØRD - Live @ Laroc Club Sao Paulo, Brazil (2022-01-30) [MP3|320 Kbps] <Tech Ho
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726666.jpg" />
 </div>
 
 
@@ -352,7 +407,7 @@ VA - Electronic Booster (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726644.jpg" />
 </div>
 
 
@@ -381,7 +436,7 @@ VA - Mainstage Clubbing Anthems Vol 1 (2017) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726641.jpg" />
 </div>
 
 
@@ -410,7 +465,7 @@ VA - Beach Club Miami (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726637.jpg" />
 </div>
 
 
@@ -439,7 +494,7 @@ VA - Dark Uplifting Vol.1 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726635.jpg" />
 </div>
 
 
@@ -468,7 +523,7 @@ Saint Of Sin - Skychild (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726634.jpg" />
 </div>
 
 
@@ -497,7 +552,7 @@ Aly & Fila - Future Sound Of Egypt 493 (Live from Open To Close, Panama Amsterda
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726633.jpg" />
 </div>
 
 
@@ -526,7 +581,7 @@ VA - We Like Running Vol 1 (House & Deep-House Tunes For The Perfect Drill) (201
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726617.jpg" />
 </div>
 
 
@@ -555,7 +610,7 @@ VA - Armada Chill (2016) [MP3|320 кб/с] <Chillout, Lounge, Deep>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726615.jpg" />
 </div>
 
 
@@ -584,7 +639,7 @@ VA - Lounge Escapades (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726569.jpg" />
 </div>
 
 
@@ -613,7 +668,7 @@ VA - Deep Value, Vol. 3 (Mixed by Mihai Popoviciu) (2019) Bondage Music [FLAC|Lo
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726546.jpg" />
 </div>
 
 
@@ -642,7 +697,7 @@ VA - Milchbar - Seaside Season 9 (Compiled by Blank & Jones) (2017) [FLAC|Lossle
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726454.jpg" />
 </div>
 
 
@@ -671,7 +726,7 @@ VA - John Digweed - Re: Structured (Bedrock Records) (2015) Box Set [FLAC|Lossle
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726413.jpg" />
 </div>
 
 
@@ -685,64 +740,6 @@ VA - John Digweed - Re: Structured (Bedrock Records) (2015) Box Set [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB9133C95510996B33B0BC38EF8FC0FC060F23BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128599   (726352) от 26.04.2017
-
-VA - Pure Bliss Vocals - Spring (2017) [FLAC|Lossless|WEB-DL|tracks] <Trance, Vocal Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ana Criado & Alan Morris - Border Line (Radio Edit)  3:15
-02.  Allen Watts & Katty Heath - Break Without The Pain (Radio Edit)  3:23
-03.  Audrey Gallagher & Kaimo K - Lullaby (Radio Edit)  4:02
-04.  Adip Kiyoi & Susie Ledge - Another Chance (Radio Edit)  3:51(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 02:30:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:908A2252CCA18F028D4B3CC4F32A3F72ED0AC46F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128850   (726266) от 26.04.2017
-
-Alphaville - Strange Attractor (2017) [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giants (3:29)
- 02. Marionettes With Halos (4:23)
- 03. House Of Ghosts (5:08)
- 04. Around The Universe (4:01)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 01:03:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CADF5920ABE180E98129A0168B8B8844B39642F
 ```
 
 https://mybot314.ru/tekegram_catalog/

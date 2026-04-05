@@ -1,4 +1,135 @@
 https://t.me/izofen
+###  Публикация: 1863270   (1063815) от 
+
+Москвич, прятавший VPN под половицей, предстанет перед Лефортовским судом
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063815.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сотрудники третьего отделения тайной канцелярии МВД РФ выявили москвича, который прятал VPN под половицей, чтобы смотреть запрещённые аудиовизуальные произведения с зарубежных видеохостингов. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862795   (1063649) от 
+
+Max получил лицензию на защиту конфиденциальной информации
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063649.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мессенджер Max получил лицензии на техническую защиту конфиденциальной информации, а также на разработку соответствующих средств, следует из реестров ФСТЭК России.Эти лицензии в большинстве случаев выдаются бессрочно, такого характера они и у Max. Для российского мессенджера обе выданы 11 марта.Лицензия на защиту информации нужна компаниям, которые имеют - внедряют, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862435   (1063384) от 
+
+Telegram начнет помечать пользователей со сторонними клиентами как небезопасных
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063384.jpg" />
+</div>
+
+
+###  Подробнее
+
+Telegram готовит новое предупреждение для пользователей. В мессенджере появится отметка, если собеседник использует неофициальный клиент. С указанием возможных рисков для безопасности при переписке с таким пользователем.По данным источников, уведомление будет отображаться прямо в профиле аккаунта, под его именем. В тексте предупреждения говорится, что сторонние приложения (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862168   (1063273) от 
+
+Цены на память DDR5 пошли вниз
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063273.jpg" />
+</div>
+
+
+###  Подробнее
+
+На американском рынке зафиксировано заметное снижение цен на DDR5-память после нескольких месяцев роста. По данным мониторинга ритейлеров, в ряде случаев стоимость комплектов снизилась до 100 долларов.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862042   (1062964) от 
+
+Нобелевскую премию по математике пообещали дать программисту, который придумает способ обойти «белые списки»
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062964.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заместитель главы Нобелевского комитета Видкун Квислинг призвал всех программистов мира разработать технологию, позволяющую россиянам получить доступ в Интернет во время ограничений или полного отключения мобильного интернета. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1861529   (1062715) от 
 
 Присяжные признали, что Meta и YouTube обязаны компенсировать ущерб для психики
@@ -7,7 +138,7 @@ https://t.me/izofen
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062715.jpg" />
 </div>
 
 
@@ -33,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062088.jpg" />
 </div>
 
 
@@ -59,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062080.jpg" />
 </div>
 
 
@@ -86,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061897.jpg" />
 </div>
 
 
@@ -113,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061260.jpg" />
 </div>
 
 
@@ -139,7 +270,7 @@ DOOM: The Dark Ages (2025) [Ru/Multi] (Build 20760608/dlc) Repack seleZen [Premi
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060827.jpg" />
 </div>
 
 
@@ -165,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060340.jpg" />
 </div>
 
 
@@ -191,7 +322,7 @@ Enigma - Discography (1990-2008) [mp3|320 kbps]<Enigmatic / New Age>
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060176.jpg" />
 </div>
 
 
@@ -220,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059449.jpg" />
 </div>
 
 
@@ -247,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059400.jpg" />
 </div>
 
 
@@ -273,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059152.jpg" />
 </div>
 
 
@@ -299,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059116.jpg" />
 </div>
 
 
@@ -325,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058778.jpg" />
 </div>
 
 
@@ -352,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057963.jpg" />
 </div>
 
 
@@ -378,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057865.jpg" />
 </div>
 
 
@@ -404,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057797.jpg" />
 </div>
 
 
@@ -430,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057256.jpg" />
 </div>
 
 
@@ -456,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057000.jpg" />
 </div>
 
 
@@ -482,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056907.jpg" />
 </div>
 
 
@@ -508,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056653.jpg" />
 </div>
 
 
@@ -534,145 +665,13 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056165.jpg" />
 </div>
 
 
 ###  Подробнее
 
 На следующей неделе правительство Испании планирует ввести ряд новых правил для работы социальных сетей. Главная цель – взять под контроль происходящие там процессы, чтобы оградить граждан от нелегального контента и разжигания ненависти. А подросткам до 16 лет и вовсе запретят пользоваться соцсетями, для их же блага.Премьер-министр Испании Педро Санчес уже называл (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852172   (1056133) от 09.02.2026
-
-Китайцы против кризиса памяти: CXMT представила модуль DDR5 на 32 ГБ всего за 140 долларов — это вызвало панику на рынке
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пока Samsung и Micron гонятся за сверхприбылями и не спешат увеличивать производство DDR5, китайцы думают о простых пользователях
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 92599   (1056069) от 09.02.2026
-
-Терминатор / The Terminator: Трилогия (1,2,3) 1984-2003 [HD-DVD/BDRemux 1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056069.jpg" />
-</div>
-
-
-###  Подробнее
-
-После ужасной атомной войны, власть на Земле захватили роботы-убийцы. Они несут смерть и полное уничтожение всему живому. Остатки сумевших выжить людей прячутся в подземельях и ведут отчаянную борьбу за выживание. Благодаря своему талантливому лидеру Джону Коннору они приближаются к победе, но чтобы разрушить планы сопротивления, роботы отправляют в прошлое чудовищного (   Читать дальше...   )Час пробил. Скайнет, захвативший власть над планетой дважды посылал в прошлое киборгов-терминаторов, чтобы уничтожить Сару и Джона Конноров, ключевых фигур в борьбе людей и восставших роботов. Обе попытки провалились. На этот раз осечки быть не должно - в наши дни на охоту за выжившим Джоном прибывает киберубийца нового поколения - снабженная неотразимой внешностью (   Читать дальше...   )Жанр: Боевик, Фантастика, триллер, приключенияРежиссер: Джонатан МостоуАктеры: Арнольд Шварценеггер, Ник Сталь, Клер Дэйнс, Кристанна Локен, Дэвид Эндрюс, Марк Фамиглетти, Эрл Боэн, Мойра Харрис, Чоппер Бернет, Кристофер ЛоуфордПеревод: Профессиональный (полное дублирование)Язык субтитров: Русские, английскиеФормат: TSПродолжительность: 01:49:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BE770D55E3F9C0EDCF47DDEAC0959EE8594CEF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852068   (1055673) от 11.02.2026
-
-Windows 10 Pro 22H2 19045.6812 x64 by SanLex [Lightweight] [Ru-En] (2026.02.05) [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка основана на официальном оригинальном образе Windows_10_Pro_edition_22h2_x64 для оптимального и комфортного пользования. Цель проекта — улучшить скорость реагирования, производительность и конфиденциальность Windows. Идеально подходит для повседневного домашнего пользования, игр, графического дизайна и работы тяжёлого характера.
-Удалены, отключены или заблокированы (   Читать дальше...   )Язык интерфейса: Русский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A93B42FF3ED8B1533505422B15420E82D4F08F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851837   (1055476) от 05.02.2026
-
-В Минпросвещения  предложили блокировать сайты с готовыми домашними заданиями и ответами на тесты ЕГЭ и ОГЭ
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055476.jpg" />
-</div>
-
-
-###  Подробнее
-
-Минпросвещения предложило блокировать сайты с готовыми решениями заданий ЕГЭ, олимпиад и учебников, чтобы снизить списывание. Мера очевидно паллиативная, так как существует масса способов получить желаемое через VPN и торрент-трекеры.Само собой, с учетом развития нейросетей и свободного доступа к ответам большинства школьных задач, любые экзамены должны быть очными (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851690   (1055335) от 04.02.2026
-
-Внедрение ИИ назвали главным сдвигом в браузерах со времен появления вкладок
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Google Chrome, Microsoft Edge, Opera и «Яндекс Браузер» вошли в аналитический отчет «Ландшафт ИИ-браузеров 2025», опубликованный AIPort.Международное сообщество проанализировало, как искусственный интеллект трансформирует один из самых привычных цифровых инструментов — веб-браузер.Аналитики отмечают, что за последние 15–20 лет браузеры эволюционировали от простых (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

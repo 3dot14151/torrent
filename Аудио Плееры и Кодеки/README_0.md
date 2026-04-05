@@ -1,3 +1,82 @@
+###  Публикация: 1024866   (713070) от 10.06.2016
+
+Bug head Emperor (Infinity blade) 7.23 Portable [En]
+
+>>Мультимедиа и Графика
+>>Аудио Плееры и Кодеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713070.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главным достоинством цифрового  аудиоплеера Bug head Emperor является потрясающее качество звучания музыки.
+Bug head Emperor поддерживает аудиофайлы 16, 24 и 32 бит, с частотой дискретизации от 44.1kHz и 48kHz до 352.8 и 384.0. Плеер работает с файлами *.cue, поддерживает популярные форматы аудиофайлов: wav, flac, v4a, aac, alac(m4a), wma, mp3, wv, ogg, ape, opus, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:757D7145B0693E7A2D4FEEAB3BA6DAAF036E113E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045546   (557430) от 24.08.2016
+
+Angel's Vox 1.7.8.231 Portable by portable-rus [Ru]
+
+>>Мультимедиа и Графика
+>>Аудио Плееры и Кодеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Angel’s Vox - проигрыватель, разработанный специально для любителей аудиокниг. Это экономит ваше время, помогает выучить новые иностранные языки, имеет много полезных уникальных функций для прослушивания аудиокниг.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06BEDE6E73E8E17F034FF494E12025728C1BB488
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051662   (530092) от 12.09.2016
+
+DSP pack 1.46 (Winamp / Aimp) RePack by elchupacabra [Ru/En]
+
+>>Мультимедиа и Графика
+>>Аудио Плееры и Кодеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530092.jpg" />
+</div>
+
+
+###  Подробнее
+
+DFX Audio Enhancer — звуковой плагин для улучшения звучания плееров AIMP3/4, Winamp. Качество звучания значительно улучшается за счет совершенствования частотных характеристик, для чего и предназначен этот плагин. С помощью DFX Audio Enhancer устраняются два главных недостатка — срез высоких частот и недостаточное разделение стереобазы и ее глубины, а также добавляются (   Читать дальше...   )Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1190BE0F3B0E5869D3CFFE0075CCC8BC91419E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1255015   (369975) от 15.10.2018
 
 Winyl 3.3.1 + Portable [Multi/Ru]
@@ -6,7 +85,7 @@ Winyl 3.3.1 + Portable [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369975.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ FxSound Enhancer 13.025 RePack by elchupacabra [Ru/En]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334042.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315335.jpg" />
 </div>
 
 
@@ -87,7 +166,7 @@ Winamp Pro | Lite 5.666 Build 3516 Final [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284987.jpg" />
 </div>
 
 
@@ -113,7 +192,7 @@ AIMP 5.40.2700 + Portable [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261713.jpg" />
 </div>
 
 
@@ -139,7 +218,7 @@ Spotify 1.2.76.286 Repack & Portable by elchupacabra (x64) [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261541.jpg" />
 </div>
 
 
@@ -166,7 +245,7 @@ FxSound 1.2.3.0 [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_261316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_261316.jpg" />
 </div>
 
 
@@ -192,7 +271,7 @@ AIMP 5.40.2699 RePack (& Portable) by elchupacabra (Extended + Standard) [Multi/
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257795.jpg" />
 </div>
 
 
@@ -218,7 +297,7 @@ AIMP 5.40.2699 + Portable [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256778.jpg" />
 </div>
 
 
@@ -244,7 +323,7 @@ AIMP 5.40.2698 + Portable [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256635.jpg" />
 </div>
 
 
@@ -270,7 +349,7 @@ Spotify 1.2.75.510 Repack & Portable by elchupacabra (x64) [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256320.jpg" />
 </div>
 
 
@@ -297,7 +376,7 @@ Dopamine 3.0.0 [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252330.jpg" />
 </div>
 
 
@@ -323,7 +402,7 @@ Spotify 1.2.75.280 Repack & Portable by elchupacabra (x64) [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250370.jpg" />
 </div>
 
 
@@ -350,7 +429,7 @@ Spotify 1.1.90.859 Portable by JolyAnderson [En/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244518.jpg" />
 </div>
 
 
@@ -377,7 +456,7 @@ Foobar2000 2.25.3 include Portable [En]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230316.jpg" />
 </div>
 
 
@@ -403,7 +482,7 @@ NMP 1.2.5 [Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226610.jpg" />
 </div>
 
 
@@ -429,7 +508,7 @@ Album Player 2.114 Portable [Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201720.jpg" />
 </div>
 
 
@@ -455,7 +534,7 @@ Spotify 1.2.72.438 Repack & Portable by elchupacabra (x64) [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128608.jpg" />
 </div>
 
 
@@ -482,7 +561,7 @@ Strawberry 1.0.23 [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119840.jpg" />
 </div>
 
 
@@ -510,7 +589,7 @@ AIMP 5.40.2696 RePack (& Portable) by elchupacabra (Extended + Standard) [Multi/
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101004.jpg" />
 </div>
 
 
@@ -536,7 +615,7 @@ AIMP 5.40 Build 2696 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100983.jpg" />
 </div>
 
 
@@ -562,7 +641,7 @@ FxSound 1.2.1.0 [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100851.jpg" />
 </div>
 
 
@@ -588,7 +667,7 @@ AIMP 5.40.2696 + Portable [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100768.jpg" />
 </div>
 
 
@@ -599,84 +678,6 @@ AIMP 5.40.2696 + Portable [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB6DDCC17A4A8A696772150378A9A14F6C99A23F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821900   (91209) от 04.10.2025
-
-AIMP 5.40 Build 2695 RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Мультимедиа и Графика
->>Аудио Плееры и Кодеки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91209.jpg" />
-</div>
-
-
-###  Подробнее
-
-AIMP – проигрыватель, включающий в себя множество дополнительных модулей: CD-Ripper, Tag Editor, Audio-player, аудио конвертер, запись аудио и дисков с данными и т.д. Воспроизводит множество аудиоформатов, включая WAV, MP3, MP2, MP1, OGG, WMA, UMX, не нуждаясь в дополнительных кодеках. Имеет стильный многоязычный интерфейс.Язык интерфейса: Русский, белорусский, украинский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A12BE6EBAB869E7CF9359070698B1A720CF48E62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821595   (63964) от 03.10.2025
-
-AIMP 5.40.2695 + Portable [Multi/Ru]
-
->>Мультимедиа и Графика
->>Аудио Плееры и Кодеки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63964.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обновился маленький, качественный, абсолютно бесплатный аудио плеер. Проигрывает большое количество современных популярных форматов. Плеер потребляет самый минимум системных ресурсов, система его просто не замечает, но при этом мгновенно работает с плейлистами и радует своей скоростью работы, даже если сравнивать его с платными аналогичными продуктами. Радует AIMP (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54FFC454DB06F9900ABB1F6EEBB69B4E4BBF1F77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724812   (55763) от 22.05.2024
-
-Spotify Web-Portable by DVLZ 2.3 [Ru/En]
-
->>Мультимедиа и Графика
->>Аудио Плееры и Кодеки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Spotify - клиент для прослушивания музыки на одноимённом стриминговом сервисе.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:644B174C699D7725207291AE4A52EF2B907E9FCD
 ```
 
 https://mybot314.ru/tekegram_catalog/

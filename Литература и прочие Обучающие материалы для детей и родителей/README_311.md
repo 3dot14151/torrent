@@ -1,3 +1,55 @@
+###  Публикация: 725952   (342687) от 23.11.2013
+
+А. Н. Евсеевичева | Большая энциклопедия дошкольника (2007) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342687.jpg" />
+</div>
+
+
+###  Подробнее
+
+О чем бы ни говорилось в "Большой энциклопедии дошкольника" - об исторических событиях или растениях, изобретениях или знаменитых людях, великих географических открытиях или животных, - она обращается к детям, приглашая их к знакомству с таким удивительным миром, как планета Земля. Энциклопедия отличается необыкновенно увлекательной, популярной формой изложения, благодаря разностороннему содержанию, подаче материала в виде небольших текстов, оригинальным иллюстрациям, дизайну. С помощью "Большой энциклопедии дошкольника" ваш ребенок поймет, что обучение может быть легким и приятным, а вы будете уверены, что он готов к школе.Жанр: Дошкольное обучение, энциклопедияПеревод: М. Силина, Т. Горбачева, Е. Литвинович (с итал.)Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1752A8D0A5E2DCC41AF77D8032A2977B859E5505
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073908   (342545) от 17.11.2016
+
+Лев Генденштейн | Алиса в стране математики (1994) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342545.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга построена на занимательных сказочных сюжетах с персонажами всемирно известных сказок Льюиса Кэрролла "Алиса в Стране Чудес" и "Алиса в Зазеркалье" и призвана пробудить у детей интерес к математике, развить творческое воображение и логическое мышление. В книге содержатся также исторические экскурсы, знакомящие с великими математиками и историей (   Читать дальше...   )Жанр: Обучение, развитиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD98EBD5A49CB9BA4363FE42D18C9648A5EEC68D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1073975   (342541) от 17.11.2016
 
 Алгоритм| Серия книг "Подлинная история Руси" 12 книг (2011-2013) [FB2]
@@ -6,7 +58,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342541.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342411.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342379.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342376.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342043.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341931.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341920.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341875.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341436.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341338.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341325.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные материалы для родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341258.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341210.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340968.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340773.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340721.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340718.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340451.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340431.jpg" />
 </div>
 
 
@@ -510,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340410.jpg" />
 </div>
 
 
@@ -537,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340408.jpg" />
 </div>
 
 
@@ -566,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340304.jpg" />
 </div>
 
 
@@ -592,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340288.jpg" />
 </div>
 
 
@@ -618,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340167.jpg" />
 </div>
 
 
@@ -630,62 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3651956144B9A3B2EAF37EB86863CCD10F171B8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 726168   (340012) от 24.11.2013
-
-Аванта+ | Биология [Том 2] (1996) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340012.jpg" />
-</div>
-
-
-###  Подробнее
-
-В томе «Биология» читатель найдёт подробные сведения о царствах живого мира, о разнообразии форм растений, животных, грибов и микроорганизмов. Более двухсот очерков книги рассказывают о конкретных видах и группах живых организмов, их происхождении, жизнедеятельности, поведении и т. д. Значительное внимание в этих очерках уделено истории взаимоотношений человека и живой природы, процессу её познания.
-В разделе «Жизнь», например, содержатся краткие сведения об основных биологических понятиях, законах и процессах (таких, как эволюция, клетка, питание, движение, размножение, законы генетики и др.). Раздел «Выдающиеся биологи» посвящён истории биологии и содержит биографии 19 учёных, сформировавших её как науку — от Гиппократа и Аристотеля до В. Вернадского и Н. Вавилова.
-Книга рассчитана на детей среднего и старшего школьного возраста, их преподавателей и родителей, а также всех тех, кто интересуется биологией. Все вышедшие тома «Энциклопедии для детей» рекомендованы Управлением развития общего среднего образования (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28F2876F751A507CDF28E29643F2B02CF96631A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 726226   (339999) от 24.11.2013
-
-Аванта+ | История России [Том 5] (1996-1997) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга первая "История России и её ближайших соседей" представляет отечественную историю со времён древних славян до XVIII века.
-Вторая книга тома "История России и её ближайших соседей" посвящена отечественной истории XVIII-XIX столетий.
-Третья книга "История России. XX век" рассказывает об отечественной истории XX столетия до начала 90-х гг. включительно.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8493CF1E0B6C9A2D32F2FDF31C84AF7382F55D77
 ```
 
 https://mybot314.ru/tekegram_catalog/

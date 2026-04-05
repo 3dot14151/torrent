@@ -1,3 +1,216 @@
+###  Публикация: 1676620   (153627) от 15.11.2023
+
+«Брат 3» [Финальный трейлер фильма]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153627.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Тамбове живет генеральская дочь, влюблённая в уличного художника, которого не одобряет её отец. У генерала есть брат-близнец, который возглавляет преступную группировку. Два грабителя-неудачника проваливают задание, что запускает вереницу событий, которые изменят жизни и разрушат семьи.
+
+С 23 ноября 2023 года в кинотеатральном прокате в России
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086051   (153620) от 23.12.2016
+
+Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Designer SP2 14.0.7177.5000 VL (x86) RePack by SPecialiST v16.12 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153620.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office 2010 — один из лучших наборов офисных приложений для компьютеров, телефонов и браузеров, включающий функции, на которые можно положиться уже сегодня, и возможности, которые могут потребоваться в будущем. Данный набор приложений позволяет уверенно принять вызов сегодняшней экономической ситуации, не упуская из виду факторы, необходимые для достижения (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:429A1EE2D6AC4607FAD2FDAA8B7D55143F437EB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086118   (153614) от 23.12.2016
+
+Вскрытие Джейн Доу / Демон внутри / The Autopsy Of Jane Doe (2016) WEB-DLRip [H.264]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Патологоанатомы маленького городка получают тело жертвы таинственного убийства — красивой и молодой Джейн Доу без видимой причины смерти. Они пытаются выяснить, кто она и как умерла, обнаруживая все более причудливые подсказки, которые ведут к тайнам её жизни и смерти.Производство: Великобритания | IM Global, Impostor/42Жанр: УжасыРежиссер: Андре ОвредалАктеры: Эмиль Хирш, Брайан Кокс, Офелия Ловибонд, Майкл МакЭлхаттон, Олуэн Катрин Келли, Паркер Сойерс, Джейн Перри, Ив О’ХараПеревод: Профессиональный (многоголосый, закадровый), любительский (одноголосый, закадровый) х2Продолжительность: 01:26:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6E647779E7B41EB0AF9ACE05F97682DFCBDF1E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676856   (153612) от 15.11.2023
+
+Windows 10 x64 Rus by OneSmiLe [19045.3693]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153612.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана из оригинальных образов
+Удалены все модерн приложения.
+Поиск работает (значок скрыт)
+Вырезана телеметрия(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA67CE7384B8237E7C5CA849C2F0238D538518C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085705   (153611) от 23.12.2016
+
+Adobe Photoshop CC 2017.0.1 (20161130.r.29) Portable by XpucT [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153611.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop CC — многофункциональный графический редактор, разработанный и распространяемый фирмой Adobe Systems. В основном работает с растровыми изображениями, однако имеет некоторые векторные инструменты. Продукт является лидером рынка в области коммерческих средств редактирования растровых изображений и наиболее известным продуктом фирмы Adobe.Язык интерфейса: Русский, украинский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52C79B449581909514A977ECE1EC285722071CB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086055   (153607) от 23.12.2016
+
+Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4456.1003 VL (x86) RePack by SPecialiST v16.12 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office 2016 хорошо демонстрирует, как сегодня изменился сам подход к созданию документов и совместной работе с ними. Многие из нас начинают работу на одном компьютере, продолжают её на другом, а демонстрируют на третьем, попутно успевая вносить мелкие правки за ноутбуком, на планшете или даже смартфоне. Поэтому Office 2016 постарались сделать концептуально (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5905D72A9E020A41A0905A7B1C425073CA79B0D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085812   (153604) от 23.12.2016
+
+Новая эра Z / The Girl with All the Gifts (2016) SATRip
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153604.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм снят по книге, ставшей бестселлером британского фантаста Майка Кэри «Дары Пандоры». Апокалипсическое ближайшее будущее. Всю планету поразила грибковая спора, которая обычных людей превращает в плотоядных монстров, готовых поедать себе подобных не зараженных болезнью. Единственный шанс на спасение, отыскать вакцину способную остановить заражение...Производство: США, ВеликобританияЖанр: ужасы, триллер, драмаРежиссер: Колм МакКартиАктеры: Джемма Артертон, Гленн Клоуз, Пэдди Консидайн, Доминик Типпер, Анамария Маринка, Сенниа Нануа, Лобна Фьютерс, Энтони Уэльс, Дэниэл Иган, Фисайо АкинадеПеревод: Дублированный (Кинохит)Субтитры: ОтсутствуютПродолжительность: 01:45:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FA67ED2BDB35597E14909902EDC16B4F2B82534
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086047   (153601) от 23.12.2016
+
+Adobe Master Collection CC 2017 RUS/ENG
+
+>>3
+>>16
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как, надеюсь, вам известно, пакета Adobe Master Collection CC 2017 в природе не существует, компания Adobe его никогда не выпускала. Но, тем не менее, он перед вами! Я очень постарался, чтобы этот пакет появился на свет. Он представляет из себя сборник программ линейки Creative Cloud 2017, объединенных старым добрым инсталлером с возможностью выбора компонентов и (   Читать дальше...   )Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BAF5F4124F6C5F1058DA0DBBAF18FB1F769E9D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1518045   (153521) от 20.12.2021
 
 Госдума приняла закон о Fan ID. С июня 2022 года продавать билеты на спортивные соревнования будут по «паспорту болельщика»
@@ -6,7 +219,7 @@
 >>9
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_153521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_153521.jpg" />
 </div>
 
 
@@ -32,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_153502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_153502.jpg" />
 </div>
 
 
@@ -58,7 +271,7 @@ Mieruko-chan | Девочка, которая видит это | Видящая
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153409.jpg" />
 </div>
 
 
@@ -84,7 +297,7 @@ KMS Tools Portable by Ratiborus 14.12.2021 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153358.jpg" />
 </div>
 
 
@@ -110,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_153187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_153187.jpg" />
 </div>
 
 
@@ -136,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_153152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_153152.jpg" />
 </div>
 
 
@@ -162,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153136.jpg" />
 </div>
 
 
@@ -188,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153073.jpg" />
 </div>
 
 
@@ -215,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153061.jpg" />
 </div>
 
 
@@ -241,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153021.jpg" />
 </div>
 
 
@@ -267,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153016.jpg" />
 </div>
 
 
@@ -293,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152990.jpg" />
 </div>
 
 
@@ -320,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152978.jpg" />
 </div>
 
 
@@ -346,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152893.jpg" />
 </div>
 
 
@@ -372,7 +585,7 @@ Windows 10 Enterprise LTSB 2016 v1607 x64  by Zosma 21.12.2018 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152867.jpg" />
 </div>
 
 
@@ -401,7 +614,7 @@ XaKeR_CD USB Edition Full 13.0/Lite 3.0 (19.12.2018)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152844.jpg" />
 </div>
 
 
@@ -430,7 +643,7 @@ Windows 7 SP1 х86-x64 by g0dl1ke 18.12.15 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152836.jpg" />
 </div>
 
 
@@ -456,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152824.jpg" />
 </div>
 
 
@@ -467,215 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033136   (152793) от 21.12.2018
-
-PayDay 2 (2013) [Ru/En] (1.92.776/dlc) Repack Mizantrop1337 [Ultimate Edition]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152793.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главным действующим лицом нового кооперативного шутера станет хорошо знакомый нам по оригиналу квартет грабителей – Даллас, Хокстон, Вулф и Чейнс. Банда переберется в округ Вашингтон, чтобы совершить доселе невиданные преступления. В PayDay 2 появится «криминальная сеть» CrimeNET. С ее помощью игроки смогут планировать ограбления и похищения, а также совершать тяжкие (   Читать дальше...   )Тип издания: RepackРазработчик: Overkill SoftwareЖанр: Action, Shooter, StealthЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F8FAF81E502DBBBF35DF61009C7464C062717AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149688   (152783) от 21.12.2018
-
-Resident Evil 5 / Biohazard 5 (2009) [Ru/En] (1.1.0/dlc) Repack West4it [Gold Edition]
-
->>3
->>10
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из праха былых конфликтов возникает новый ужас. Корпорация Umbrella и созданный ей смертельный вирус были уничтожены, а останки заключены. Но вскоре появилась новая, еще более опасная угроза. Несколько лет после событий в Раккун-Сити спустя, Крис Редфилд ведет борьбу с бедствием биоорганического оружие по всему миру.Тип издания: RepackРазработчик: CapcomЖанр: Action (Shooter), 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:905BE7D06A30153DF127DDD7CD9B4422AAE08CFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067578   (152769) от 21.12.2018
-
-The Elder Scrolls V: Skyrim (2016) [Ru/En] (1.5.62.0.8) Repack xatab [Special Edition]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152769.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Elder Scrolls V: Skyrim Special Edition - это улучшенное и расширенное переиздание оригинальной The Elder Scrolls V: Skyrim, в котором были добавлены новые враги, снаряжение, локации, персонажи, а также включены все официальные дополнения к игре, вышедшие до момента релиза Special Edition. Кроме того, в Special Edition была переработана графика, добавлены новые (   Читать дальше...   )Тип издания: RepackРазработчик: Bethesda Game StudiosЖанр: RPG, 3D, 1st Person, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98F54DF0979AD52F7953201E1EEB465E145B0045
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346696   (152757) от 22.12.2019
-
-В Европе предсказали раздачу денег всем желающим просто так
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152757.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ближайшие десять лет в мировой экономике станут эпохой «вертолетных денег». Это концепция, которая подразумевает раздачу денег всем желающим просто так. С таким предсказанием выступил директор по управлению инвестициями швейцарского банка Julius Baer Ив Бонзон.В прогнозе о долгосрочных тенденциях на 2020-2029 годы сказано, что на этот шаг центробанки по всему миру, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346725   (152686) от 22.12.2019
-
-Названы обошедшие Россию по количеству допинг-нарушений страны
-
->>3
->>9
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152686.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всемирное антидопинговое агентство (WADA) на своем сайте назвало страны, обошедшие Россию по количеству нарушений в 2017 году.Больше всего спортсменов, нарушивших антидопинговые правила, оказалось у Италии — 171 человек. Второе место заняли французы (128), третье — американцы (103), четвертое — бразильцы (84). Россия в этом списке оказалась на пятом месте (82). Всего (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347024   (152668) от 22.12.2019
-
-Ведьмак / The Witcher (2019) WEBRip [H.265/1080p-LQ] [HDR, 10-bit] (сезон 1, серии 1-8 из 8) Пифагор
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведьмак Геральт, мутант и убийца чудовищ, изо всех сил старается найти свое место в мире, где люди часто оказываются намного хуже монстров.Производство: Польша, США, NetFlix, Pioneer Stilking Films, Platige Image, Sean Daniel CompanyЖанр: фэнтези, боевик, драма, приключенияРежиссер: Алик Сахаров, Шарлотта Брандстром, Алекс Гарсиа ЛопесАктеры: Генри Кавилл, Фрейя Аллан, Джои Бэти, МайАнна Бёринг, Том Кэнтон, Аня Чалотра, Имон Фэррен, Бьерн Хлинур Харальдссон, Адам Леви, Джоди Мэй и др.Перевод: Дублированный (Пифагор)Субтитры: Русские (форс., полные), английские (SDH)Продолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:760985FE14533A110D03F4C2D19ECFD6D2355FC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081449   (152641) от 22.12.2019
-
-Открытие Китая (2016-2019) WEB-DL [H.264/720p-LQ] (серии 1-41 из ??) [Обновляемая]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152641.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Открытие Китая" - это цикл авторских документальных фильмов о Поднебесной. Автор Евгений Колесов – не профессиональный журналист, а бизнесмен.
-Двадцать лет назад, еще студентом, он поехал в Китай учиться, да так там и остался. Основал заграницей успешную консалтинговую фирму, женился на русской девушке, родил четверых детей. А потом как человек творческий (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: Документальный, познавательный, путешествияПродолжительность: ~ 00:26:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04C89E2CBE150269293BAF13F547009C9DD76D34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194460   (152639) от 26.12.2017
-
-Максимальный удар / Maximum Impact (2017) WEB-DL [H.264/1080p-LQ]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Госсекретарь США тайно прибывает на секретный саммит в Москве, чтобы уладить напряженность российско-американских отношений. Однако мир оказывается перед угрозой Третьей мировой войны, когда лидер международной преступной группировки организовывает покушение на госсекретаря и похищает его внучку. ФСБ и ЦРУ объединяются, чтобы спасти человечество... и внучку...Производство: Россия, США | Кинокомпания «Царь», Hollywood StormЖанр: Боевик, комедия.Режиссер: Анджей Бартковяк.Актеры: Александр Невский, Евгений Стычкин, Дэнни Трехо, Кит Пауэрс, Том Арнольд, Марк Дакаскос, Эрик Робертс, Бай Лин, Келли Ху, Полина Буторина, Максим Виторган, Уильям Болдуин, Сергей Астахов, Наталья Губина.Перевод: Дублированный (Мосфильм-Мастер)Субтитры: ОтсутствуютПродолжительность: 01:45:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CACB2DBC71D3801DDA2172F88ADE90A4E1C0C0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

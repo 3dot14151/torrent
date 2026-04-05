@@ -1,81 +1,3 @@
-###  Публикация: 1821884   (91188) от 04.10.2025
-
-Анхель Сола Орбайсета | Создание фронтенд-фреймворка с нуля (2025) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91188.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы используем фронтенд-фреймворки каждый день, но вряд ли действительно понимаем, что происходит там, под капотом. Создание своего фреймворка – отличный способ узнать, как он работает с DOM, генерирует представления страниц, передает данные между компонентами и взаимодействует с операционной системой. Шаг за шагом мы будем создавать собственный фреймворк на JavaScript (   Читать дальше...   )Жанр: ПрограммированиеПеревод: Е.А. МатвеевИздательство: ПитерФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA8EADFFF99D8A34E51C662981311A8857D063C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488480   (90932) от 26.04.2012
-
-А.С. Кудрявцев | Программирование в Delphi. Учебное пособие [2011] [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90932.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии рассматриваются общие характеристики и структура программной системы Delphi, графический интерфейс ее среды программирования, основные конструкции используемого языка программирования и технология программирования.2011Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F35E6AE9DB2FBD922C2665DE9479C8606BD537D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475217   (85141) от 29.03.2012
-
-Махер Али | Программирование для iPhone [2010] [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85141.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга предназначена для профессиональных программистов, желающих создавать приложения для2010Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53DFCC33B6FCB9B3F8B6DF3E83D65302F1648964
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 474021   (84798) от 27.03.2012
 
 Ю.Жуков | Основы веб-хакинга. Нападение и защита [2011] [PDF]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84798.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82767.jpg" />
 </div>
 
 
@@ -141,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81942.jpg" />
 </div>
 
 
@@ -171,7 +93,7 @@ MacDonald | Pro Silverlight 5 in C# [2012] [PDF] [Eng]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80650.jpg" />
 </div>
 
 
@@ -199,7 +121,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63855.jpg" />
 </div>
 
 
@@ -227,7 +149,7 @@ Jonathon Simpson | How JavaScript Works (2024) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63430.jpg" />
 </div>
 
 
@@ -253,7 +175,7 @@ Rob Chapman, Peter Holmes | Observability with Grafana (2024) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63328.jpg" />
 </div>
 
 
@@ -279,7 +201,7 @@ Noel Rappin | Modern CSS with Tailwind (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63326.jpg" />
 </div>
 
 
@@ -305,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62174.jpg" />
 </div>
 
 
@@ -332,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61685.jpg" />
 </div>
 
 
@@ -360,7 +282,7 @@ Min-Yih Hsu | LLVM Techniques, Tips, and Best Practices Clang and Middle-End Lib
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61619.jpg" />
 </div>
 
 
@@ -389,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60741.jpg" />
 </div>
 
 
@@ -415,7 +337,7 @@ Robert C. Martin | Clean Code Collection (2012) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55450.jpg" />
 </div>
 
 
@@ -444,7 +366,7 @@ Zed A. Shaw | Learn More Python 3 the Hard Way: The Next Step for New Python Pro
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54903.jpg" />
 </div>
 
 
@@ -470,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54741.jpg" />
 </div>
 
 
@@ -496,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54723.jpg" />
 </div>
 
 
@@ -523,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54719.jpg" />
 </div>
 
 
@@ -550,7 +472,7 @@ Kyran Dale | Data Visualization with Python and JavaScript (2016) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54714.jpg" />
 </div>
 
 
@@ -577,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54471.jpg" />
 </div>
 
 
@@ -603,7 +525,7 @@ Paul Barry | Head First Python. Second edition (2016) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54447.jpg" />
 </div>
 
 
@@ -629,7 +551,7 @@ Osvaldo Martin | Bayesian Analysis with Python (2016) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54368.jpg" />
 </div>
 
 
@@ -658,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54220.jpg" />
 </div>
 
 
@@ -686,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53805.jpg" />
 </div>
 
 
@@ -699,6 +621,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:970A85A3A427B66C60810BB9E1FD738D9A962006
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729429   (53277) от 15.06.2024
+
+Билл Любанович | FastAPI: веб-разработка на Python (2024) [PDF, EPUB]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53277.jpg" />
+</div>
+
+
+###  Подробнее
+
+FastAPI — относительно новый, но надежный фреймворк с чистым дизайном, использующий преимущества актуальных возможностей Python. Как следует из названия, FastAPI отличается высоким быстродействием и способен конкурировать в этом с аналогичными фреймворками на таких языках, как Golang. Эта практическая книга расскажет разработчикам, знакомым с Python, как FastAPI (   Читать дальше...   )Жанр: ПрограммированиеИздательство: ПитерФормат: PDF, EPUBКачество: Изначально электронное (ebook) (PDF, EPUB), OCR (PDF)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED43AAEF70E8770D7A347A3310C140F5D384886E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821418   (52067) от 02.10.2025
+
+Лили Мара, Джоэл Холмс | Переход на Rust. Рефакторинг исходного кода с других языков (2025) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга научит вас расширять функциональность и повышать производительность приложений за счет поэтапного рефакторинга кодовой базы на язык Rust. Вы узнаете, как использовать Rust для обертывания опасного исходного кода, вызывать стандартные и прикладные библиотеки языка Rust и даже использовать формат байт-кода Wasm для исполнения кода Rust в браузере, а также (   Читать дальше...   )Жанр: ПрограммированиеПеревод: А. В. ЛогуновИздательство: ДМК ПрессФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E73691CD21B7D3161CC95AB8ED3AB70BCDC1F40E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558904   (51879) от 27.06.2024
+
+Книжная серия | Профессиональное программирование [63 книги (+2СD, код, пример)] (2005-2023) [PDF][Обновляемая]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51879.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия "Профессиональное программирование" - незаменимый помощник в изучении современных технологий программирования и выборе оптимальных и эффективных решений при разработке программ. Для квалифицированных разработчиков программного обеспечивания, системных аналитиков, архитекторов проектовЖанр: Компьютерная литератураИздательство: БХВ-ПетербургФормат: PDFКачество: Различное
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B8F70AD38088D42DEFA6149F529383EF8102CE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

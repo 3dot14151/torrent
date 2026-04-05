@@ -1,178 +1,3 @@
-###  Публикация: 650056   (845262) от 29.04.2013
-
-Boney M. - Ultimate 2.0 (2011) [FLAC|Lossless]<Disco, Euro-Pop>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845262.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ultimate 2.0 включает в себя такие композиции как “Daddy Cool,” “Sunny,” “Ma Baker,” “Belfast,” “Rivers of Babylon” “Rasputin,” “Mary’s Boy Child,” и “Gotta Go Home” - все эти синглы  достигли первых мест в  родной для Boney M.  Германии.
-Тогда как второй диск, получивший название: "Boney M. Goes Club," ориентирован на клубных фанатов Boney M. Здесь собраны (   Читать дальше...   )Жанр: Disco, Euro-PopПродолжительность: 01:16:09
-
-01. Barbra Streisand (Mega Mashup-Mix-Medley vs. La Bouche, No Mercy, Chicken Soup) (15:53)
-02. Boney M. (Mega Mashup-Mix-Medley vs. No Mercy, Eruption, La Bouche) (14:44)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002972   (845197) от 02.04.2016
-
-SPC ECO - All We Have Is Now (2016) [FLAC|Lossless|WEB-DL|tracks] <Indie Dream Pop, Shoegaze Electronic, Trip Hop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Troubles Deep
-02. All Gone
-03. All You Need
-04. Slow Down(   Читать дальше...   )Жанр: Indie Dream Pop, Shoegaze Electronic, Trip HopПродолжительность: 00:46:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D441ADE136020F293A1B59ADEA356D98A17EE060
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003026   (845193) от 02.04.2016
-
-Medina - We Survive (2016) [MP3|320 кб/с] <Europop, Dance, Electronic>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Runnin Out Of Love (03:29)
-02. We Survive (03:44)
-03. Someone New (03:59)
-04. Jealousy (03:43)(   Читать дальше...   )Жанр: Europop, Dance, ElectronicПродолжительность: 00:47:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FF89C14CC714ABC81DB5B7A19549E19ACE5F592
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378582   (844802) от 26.04.2020
-
-Charles Aznavour - After love (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson francaise>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844802.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Tu te laisses aller
-02 Les deux guitares
-03 J’ai perdu la tete
-04 Après l’amour(   Читать дальше...   )Жанр: Pop, Chanson francaiseПродолжительность: 00:51:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D447F9C107A7E4DFCE122E43C86E8BDFA9BD2DBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378728   (844634) от 26.04.2020
-
-Григорий Лепс - Честь имею! Разведка боем (Высоцкий) (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я вам мозги не пудрю
-02. Штрафные батальоны
-03. Жил я с матерью и батей
-04. Их восемь, нас двое(   Читать дальше...   )Жанр: PopПродолжительность: 00:28:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D905D43090A89D8BD19441B8D2EE956F1A7D6665
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112190   (844226) от 07.03.2017
-
-Demis Roussos - Complete 28 Original Albums (2016) [FLAC|Lossless|image + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844226.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01 - On the Greek Side Of Mind (1971)
-CD02 - Forever And Ever (1973)
-CD03 - My Only Fascination (1974)
-CD04 - Auf Wiedersehen (1974)Жанр: PopПродолжительность: 27:05:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28B3383117064A315938E15B1CCA22198568B95C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1112474   (843306) от 08.03.2017
 
 Luigi Tenco - Tenco (1966) [APE|Lossless|image + .cue] <Pop>
@@ -181,7 +6,7 @@ Luigi Tenco - Tenco (1966) [APE|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843306.jpg" />
 </div>
 
 
@@ -210,7 +35,7 @@ a-ha - Scoundrel Club (1987) EP, Compilation [FLAC|Lossless|tracks + .cue] <Elec
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843042.jpg" />
 </div>
 
 
@@ -239,7 +64,7 @@ Noémie Wolfs (ex.Hooverphonic) - Lonely Boy’s Paradise (2020) [FLAC|Lossless|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843035.jpg" />
 </div>
 
 
@@ -268,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843034.jpg" />
 </div>
 
 
@@ -297,7 +122,7 @@ Ricchi e Poveri - My Star (2016) [MP3|320 кб/с] <Italo-Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843023.jpg" />
 </div>
 
 
@@ -326,7 +151,7 @@ Akcent - Love The Show (2016) [MP3|320 кб/с] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_843022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_843022.jpg" />
 </div>
 
 
@@ -355,7 +180,7 @@ Noémie Wolfs (ex.Hooverphonic) - Hunt You (2016) [FLAC|Lossless|WEB-DL|tracks] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842976.jpg" />
 </div>
 
 
@@ -384,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842972.jpg" />
 </div>
 
 
@@ -410,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842911.jpg" />
 </div>
 
 
@@ -439,7 +264,7 @@ a-ha - Hunting High And Low (1985) 2015, Rhino, 4CD, 30th Anniversary Edition, D
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842910.jpg" />
 </div>
 
 
@@ -468,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842806.jpg" />
 </div>
 
 
@@ -497,7 +322,7 @@ VA - TechnoBase.FM – Best Of (2021) [MP3|320 Kbps] <Electronic, Dance, Techo>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842707.jpg" />
 </div>
 
 
@@ -526,7 +351,7 @@ VA - 50 Chart Hits Of 2021.3: The Autumn Workout Album (2021) [MP3|320 Kbps] <Ho
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842609.jpg" />
 </div>
 
 
@@ -555,7 +380,7 @@ Adriano Celentano - Grand Collection (2001) [MP3|320 kbps]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842386.jpg" />
 </div>
 
 
@@ -590,7 +415,7 @@ Maggie Reilly - Echoes (1992) [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842092.jpg" />
 </div>
 
 
@@ -619,7 +444,7 @@ Haroula Rose - Here The Blue River (2016) [FLAC|Lossless|tracks] <Pop, Folk>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841895.jpg" />
 </div>
 
 
@@ -648,7 +473,7 @@ Le Voir - Dualities (2016) [MP3|320 кб/с] <80's Retro Pop, Synthpop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841865.jpg" />
 </div>
 
 
@@ -677,7 +502,7 @@ Kim Carnes - Essential (2011) [MP3|320 кб/с] <Pop Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841794.jpg" />
 </div>
 
 
@@ -706,7 +531,7 @@ Saint DX - SDX (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Indie Pop, Chil
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841396.jpg" />
 </div>
 
 
@@ -735,7 +560,7 @@ Saint DX - Unmixtape (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Indie Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841293.jpg" />
 </div>
 
 
@@ -749,6 +574,180 @@ Saint DX - Unmixtape (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Indie Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05F461E9091CF5BFDA1D5B7A769F982553190F33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003703   (841276) от 04.04.2016
+
+F. R. David - серия "Золотые хиты дискотек" (Golden Disco Hits) (2001) compilation [FLAC|Lossless|image + .cue] <pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Words  3:31
+02.  Pick up the phone  3:15
+03.  Givin it up  3:19
+04.  Don`t go  4:35(   Читать дальше...   )Жанр: popПродолжительность: 01:12:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C44AE945FF43D1A9974713F3839E41BD076CFDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379153   (841213) от 28.04.2020
+
+William Hennessey - De pire en pire (2020) [FLAC|Lossless|tracks + .cue] <Indie Pop, Alternative>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Naissance (01:41)
+02. Fous (02:52)
+03. De pire en pire (feat. Mohammed Baazi) (04:20)
+04. Damy (04:31)(   Читать дальше...   )Жанр: Indie Pop, AlternativeПродолжительность: 00:50:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1FAE708C0662789221A0E2CA1C9D023B8A2DC0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379169   (841102) от 28.04.2020
+
+Hayley Williams - Petals for Armor (2020) Scene [FLAC|Lossless|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simmer (04:26)
+02. Leave It Alone (04:05)
+03. Cinnamon (03:32)
+04. Creepin' (02:58)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:55:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE116DE6E79542202499FB9F0989B046EF6974E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379386   (841084) от 28.04.2020
+
+Илья Гусев - Ты помнишь май (2020) [MP3|320 Kbps] <Pop, Neo-Disco>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. До встречи с тобой (4:19)
+02. Кажется (4:25)
+03. Южные ночи (3:05)
+04. Пообещай (4:10)(   Читать дальше...   )Жанр: Pop, Neo-DiscoПродолжительность: 00:40:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59FD0CB19FBFB2F9F64A49CBBF611CEA70613B38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379085   (840968) от 28.04.2020
+
+VA - Classic 80's Pop (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Duran Duran - Hungry Like The Wolf 3:41
+02. New Order - The Perfect Kiss (7" Edit) 4:25
+03. Spandau Ballet - Highly Strung 4:11
+04. A-Ha - Cry Wolf 4:04(   Читать дальше...   )Жанр: PopПродолжительность: 01:53:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4396B1B828799663B7900F3B984F3BBA3F5232E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113019   (840123) от 10.03.2017
+
+Lunch Ladies - Down on Sunset Strip (2017) [MP3|320 Kbps] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunshine (04:23)
+02. You're Not There (03:19)
+03. Love Is Overrated (03:40)
+04. Sad Jeans (03:31)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:24:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:716B333B690A15C5277D15052D6A4697B7E6A021
 ```
 
 https://mybot314.ru/tekegram_catalog/

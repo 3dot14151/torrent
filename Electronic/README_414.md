@@ -1,3 +1,116 @@
+###  Публикация: 1419696   (225886) от 18.11.2020
+
+Lontano Series - Label-Pack 23 releases (2018-2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Minimal, Experimental>
+
+>>Electronic
+>>Label-Packs
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тип издания: WEBЖанр: Ambient, Drone, Minimal, Experimental •Продолжительность: 18:09:42 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B09A7C4391323109746062B51373A67BBA3EA4C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342198   (225867) от 01.12.2019
+
+VA - Retrowave (2014) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 80s Stallone - Beach (L'equipe Du Son Remix) (6:18)
+02. Le Matos - Montrose (5:40)
+03. Makeup and Vanity Set - Praxis (4:49)
+04. Bxentric - Surrender (Original Mix) (6:25)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 01:40:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6B8CDF98CDDE6B4E3E9C7926BF4F35D40AE86C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 851285   (225858) от 20.12.2014
+
+Dissolved - Temporal Breathing (2014) [FLAC|Lossless|WEB-DL|24/41.1]<IDM, Ambient, Experimental, Glitch>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Archispectral (5:36)
+02. Vast Wires (4:50)
+03. Seeing if you remember being (5:26)
+04. Autumn Cylinders (3:39)(   Читать дальше...   )Жанр: IDM, Ambient, Experimental, GlitchПродолжительность: 01:14:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C17713FAA7FA2714BBDDF73267E599F8C937DB10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341358   (225827) от 01.12.2019
+
+Bob Sinclar - III (2006) [MP3|320 Kbps] <House, Disco>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beat Goes On
+02. Kiss My Eyes
+03. If I Was
+04. Musique Is Fantastique(   Читать дальше...   )Жанр: House, DiscoПродолжительность: 01:16:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0893CACD42503B726C29E1CFDDB2BC8A79DC9ECE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342371   (225816) от 01.12.2019
 
 X-Mode - О! Неожиданно! (2008) [FLAC|Lossless|tracks + .cue] <House>
@@ -6,7 +119,7 @@ X-Mode - О! Неожиданно! (2008) [FLAC|Lossless|tracks + .cue] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225816.jpg" />
 </div>
 
 
@@ -35,7 +148,7 @@ VA - Synthwave Dreams, Vol. 5 (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225803.jpg" />
 </div>
 
 
@@ -64,7 +177,7 @@ VA - Ibiza Winter Party 2020 (2019) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225673.jpg" />
 </div>
 
 
@@ -93,7 +206,7 @@ VA - Solarstone Presents Pure Trance 8 (Mixed By Solarstone & Activa) (2019) [MP
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225665.jpg" />
 </div>
 
 
@@ -122,7 +235,7 @@ VA - Gert Records 10 Years Anniversary - (Mixed by Danny Grunow) (2022) [MP3|320
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225636.jpg" />
 </div>
 
 
@@ -151,7 +264,7 @@ VA - Gert Records 10 Years Anniversary - (Mixed by Dimassive) (2022) [MP3|320 Kb
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225604.jpg" />
 </div>
 
 
@@ -180,7 +293,7 @@ Cosmic Gate - Cosmic Gate In Concert (The Classics) (2020-10-17) [MP3|320 Kbps] 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225569.jpg" />
 </div>
 
 
@@ -209,7 +322,7 @@ VA - Uplifting Only Fan Favorites 2018-2019 (Mixed By Ori Uplift) (2019) [MP3|32
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225555.jpg" />
 </div>
 
 
@@ -238,7 +351,7 @@ VA - Trance 2023 Vol. 7 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_225547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_225547.jpg" />
 </div>
 
 
@@ -267,7 +380,7 @@ Exist Strategy - Discography 14 Releases (2012-2019) [FLAC|Lossless|WEB-DL|track
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225463.jpg" />
 </div>
 
 
@@ -295,7 +408,7 @@ Depeche Mode - Ultra (1997) [FLAC|Lossless|tracks + .cue] <Synth-pop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225456.jpg" />
 </div>
 
 
@@ -324,7 +437,7 @@ ForstWölfin (ForstWolfin) - Elation Fungination (2019) [FLAC 2.0|44.1/24|tracks
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225445.jpg" />
 </div>
 
 
@@ -353,7 +466,7 @@ Aly & Fila - It's All About The Melody (2019) [FLAC|Lossless|WEB|tracks] <Trance
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225429.jpg" />
 </div>
 
 
@@ -382,7 +495,7 @@ VA - Созвездие хитов: Synthesizer Hits. Vol. 1 (2006) [FLAC|Lossle
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225357.jpg" />
 </div>
 
 
@@ -411,7 +524,7 @@ Desireless - Voyage, Voyage - Greatest Hits (2003) [OGG Vorbis|480 Kbps] <Electr
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225356.jpg" />
 </div>
 
 
@@ -440,7 +553,7 @@ VA - Total Trance Selections Vol.14 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225234.jpg" />
 </div>
 
 
@@ -469,7 +582,7 @@ VA - Markus Schulz – Global DJ Broadcast (World Tour, SQL Miami) (2018) [MP3|3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225217.jpg" />
 </div>
 
 
@@ -498,7 +611,7 @@ VA - Ori Uplift & Tycoos - Uplifting Only 304 (2018) [MP3|320 Kbps] <Trance, Voc
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225208.jpg" />
 </div>
 
 
@@ -527,7 +640,7 @@ VA - Suanda Music Radio Top 20 (December ) (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225198.jpg" />
 </div>
 
 
@@ -556,7 +669,7 @@ VA - Chill Out Empire (25 Smooth Anthems) Vol. 3 (2018) [MP3|320 Kbps] <Chill Ou
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225109.jpg" />
 </div>
 
 
@@ -585,7 +698,7 @@ VA - Chill Out Empire (25 Smooth Anthems), Vol. 4 (2018) [MP3|320 Kbps] <Chill O
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225018.jpg" />
 </div>
 
 
@@ -614,7 +727,7 @@ Reid Willis - Discography 13 Releases (2007-2020) [FLAC|Lossless|WEB-DL|tracks] 
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224977.jpg" />
 </div>
 
 
@@ -628,120 +741,6 @@ Reid Willis - Discography 13 Releases (2007-2020) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36C3BDC49B01C53C5C751EAD9A9046C9D1D8F5D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268953   (224925) от 12.12.2018
-
-Pete Namlook & Tetsu Inoue (2350 Broadway, Shades Of Orion, 62 Eulengasse, Time²) - Discography (1993-2007) Fax +49-69/450464, Ambient World [FLAC|Lossless|tracks+.cue, tracks] <Ambient ...
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bypass Mood (04:30)
- 02. Free And Flowers (25:01)
- 03. Turn (19:13)
- 04. I've Got Chillness Illness (16:59)Тип издания: CD, WebЖанр: Ambient/ExperimentalПродолжительность: 01:05:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE0AA964379204E680EB4FC4B1AEF40136D45CDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094175   (224905) от 18.11.2020
-
-2814 (２８１４) - Discography 10 Releases (2014-2020) Dream Catalogue [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Downtempo, Vaporwave>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voyage (15:50)
- 02. Embrace (13:58)Тип издания: CD, Web, VinylЖанр: Ambient, Experimental, Downtempo, Vaporwave, Drone •Продолжительность: 09:21:53 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C1926BE65993AB3C12F7F537B12E84CCBB6BB4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650541   (224785) от 03.08.2023
-
-VA - Anniversary Remixes: The Complete Full Length Collection (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scott Cameron - Wheels Stop (Criostasis Remix) [6:51]
-02. Kenny Palmer - Quel'Danas (Paul Skelton Remix) [7:48]
-03. Kenny Palmer - Kirin Tor (Mercurial Virus Remix) [7:15]
-04. DJ Ten - Midnight Oil (Miroslav Vrlik Remix) [5:59](   Читать дальше...   )Жанр: TranceПродолжительность: 03:43:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:440AD5F557E66866A82456B3145A956A450A6ECC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650762   (224759) от 03.08.2023
-
-VA - IBIZA 2023 (Deluxe Version) (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mood 5 & Liana - Good 2 Me (Stardust Dub Mix) [5:54]
-02. Proone - Hold Me Close (Original Mix) [4:10]
-03. Raw Ordio - Love Her (Original Mix) [5:05]
-04. Lukas Steph & August Norr feat. Ruya Fanny - Be Free (Original Mix) [4:38](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 05:14:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18A67E3D2B0BC655B2D93571C4319A4E1D172AFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

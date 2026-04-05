@@ -1,3 +1,55 @@
+###  Публикация: 1495567   (877098) от 14.09.2021
+
+В ночь / Into the Night (2021) WEB-DLRip [H.264/1080p-LQ] (сезон 2, серии 1-6 из 6) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_877098.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ранним утром возникает внезапная аномалия: лучи солнца начинают убивать всё живое на своём пути. Пассажиры и экипаж самолёта, который перед рассветом успел покинуть аэропорт Брюсселя, пытаются убежать от смертоносного солнечного света.Производство: Бельгия / Entre Chien et LoupЖанр: фантастика, триллер, драмаРежиссер: Инти Кальфат, Дирк ВерхейАктеры: Полин Этьен, Лорен Капеллуто, Мехмет Куртулуш, Бабетида Саджо, Ян Бейвут, Ксаверы Шленкер, Винсент Лондез, Регина Биккинина, Альба Гайя Крагеде Беллуджи, Набил Маллат и др.Перевод: Профессиональный двуголосый (ViruseProject)Язык озвучки: Русский, французскийСубтитры: РусскиеПродолжительность: ~00:40:00 серииРеклама: Присутствует видео (бегущая строка)+аудио реклама!!!
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90539192DEB19308EB3AEB2B3A8B88E401DD2E2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328179   (875612) от 15.09.2021
+
+Проповедник / Preacher (2019) WEBRip [H.264/1080p-LQ] (сезон 4, серии 1-10 из 10) LakeFilms [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875612.jpg" />
+</div>
+
+
+###  Подробнее
+
+Священник Джесси Кастер по воле случая стал носителем внутри своего естества странного существа по имени Генезис. Это дитя совокупления ангела и демона представляет собой одновременно чистый идеал и квинтэссенцию света, но также сгусток абсолютного зла. Генезис — единственное существо во Вселенной, которое может встать вровень с Богом, если того пожелает, а его носитель (   Читать дальше...   )Производство: США / Short Drive Entertainment, Point Grey Pictures, Original FilmЖанр: ужасы, фэнтези, драма, детектив, приключенияРежиссер: Майкл Словис, Эван Голдберг, Сет РогенАктеры: Доминик Купер, Джозеф Гилган, Рут Негга, Йен Коллетти, Грэм Мактавиш, Пип Торренс, Ноа Тейлор, Джули Энн Эмери, Малкольм Баррет, Марк ХареликПеревод: Двуголосый любительский (LakeFilms)Язык озвучки: РусскийПродолжительность: ~00:45:00 серияРеклама: присутствуют видео, аудио, текстовые вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EB347FE2EBEB24D3442B72C32BED6CB2915C3A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1232746   (875433) от 15.09.2021
 
 Проповедник / Пастырь / Preacher (2018) WEB-DL [H.264/1080p] (сезон 3, серии 1-10 из 10) OMSKBIRD [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_875433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_875433.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874469.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872156.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869517.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867879.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866081.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863950.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863062.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862968.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861969.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857672.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857668.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854990.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851628.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851497.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851491.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851369.jpg" />
 </div>
 
 
@@ -458,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851278.jpg" />
 </div>
 
 
@@ -486,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847668.jpg" />
 </div>
 
 
@@ -514,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846048.jpg" />
 </div>
 
 
@@ -540,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843922.jpg" />
 </div>
 
 
@@ -566,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843919.jpg" />
 </div>
 
 
@@ -592,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838120.jpg" />
 </div>
 
 
@@ -619,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838111.jpg" />
 </div>
 
 
@@ -630,59 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E359081707C0AB8FF6975A6095FF920C674EA2B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501068   (837987) от 08.10.2021
-
-Дуайт в сияющих доспехах / Dwight in Shining Armor (2020) WEB-DLRip [H.264/720p-LQ] (сезон 4, серии 1-10 из 10) OmskBird [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837987.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подросток по имени Дуайт во время прогулки случайно проваливается в заброшенный тоннель и находит там принцессу-воительницу Гретту, которая спит вот уже тысячу лет. Появление молодого человека разрушает магические чары, и Гретта пробуждается. Вскоре вслед за принцессой возвращается к жизни и придворный маг Болдрик, а вместе с ним и древние злодеи, мечтающие захватить (   Читать дальше...   )Производство: США / BYU TelevisionЖанр: фэнтези, комедия, приключенияРежиссер: Джеффри Дж. Хант, Джеймс Ларкин, Эял ГординАктеры: Слоун Морган Сигел, Кэйтлин Кармайкл, Джоэль МакКрэри, Даниэль Бисутти, Ивэн Хофер, Джошуа Бреслоу, Бонита Фридериси, Марк Фарли, Эбби Кобб, Брайан Льюис и другие.Перевод: Многоголосый закадровый (OmskBird)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: ~00:24:10 серияРеклама: Присутствуют аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4B1DCB51204DBDDCFB44ACFC8ED61109BF8245D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501127   (837985) от 08.10.2021
-
-В расчёте / Breaking Even (2020) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-6 из 6) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой юрист Нора Шахин устраивается на работу в компанию-производитель автомобилей «Линдеманн», чтобы сделать там карьеру. Но вдруг дочь руководителя компании Шарлотта Линдеманн во время тест-драйва беспилотного автомобиля сбивает насмерть велосипедиста. Автомобиль «Линди», престижный проект компании, должен был предотвратить аварию.
-Нора убеждает босса Бенедикта (   Читать дальше...   )Производство: Германия / NEUESUPERЖанр: драма, триллер, детективРежиссер: Борис КунцАктеры: Лаура Берлин, Синье Ирслингер, Lorna Ishema, Марион Миттерхаммер, Юстус фон Донаньи, Irene Della Casa, Ван Лам Виссай, Нисан Арикан, Selman Iyi, Бернд Блёмер и др.Перевод: Профессиональный двуголосый (ViruseProject)Язык озвучки: Русский, немецкийСубтитры: РусскиеПродолжительность: ~00:45:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9AC8CD8B288C6AEDD6562535B8769437E90C82E
 ```
 
 https://mybot314.ru/tekegram_catalog/

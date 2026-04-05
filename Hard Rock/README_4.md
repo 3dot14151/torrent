@@ -1,3 +1,32 @@
+###  Публикация: 987996   (922449) от 19.02.2016
+
+Inglorious - Inglorious (2016) [MP3|320 кб/с] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Until I Die
+02. Breakaway
+03. High Flying Gypsy
+04. Holy Water(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9605B3F210B6B17B4B566DD75ABEF85873DE3734
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366459   (922363) от 12.03.2020
 
 State Cows - 2 альбома (2010-2013) [MP3|320 Kbps] <Westcoast, AOR>
@@ -6,7 +35,7 @@ State Cows - 2 альбома (2010-2013) [MP3|320 Kbps] <Westcoast, AOR>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922363.jpg" />
 </div>
 
 
@@ -34,7 +63,7 @@ Gotthard - #13 (2020) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922036.jpg" />
 </div>
 
 
@@ -63,7 +92,7 @@ Jerry-Kelly - Somebody Else's Dream (1978) [MP3|320 Kbps] <Westcoast, AOR>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920584.jpg" />
 </div>
 
 
@@ -92,7 +121,7 @@ Dakota - 9 альбомов 11CD (1980-2015) [MP3|320 Kbps] <Westcoast, AOR>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920572.jpg" />
 </div>
 
 
@@ -121,7 +150,7 @@ Ice Cold July - There Will Come A Day (1994) [MP3|320 кб/с] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917359.jpg" />
 </div>
 
 
@@ -150,7 +179,7 @@ Gary Moore - Wild Frontier (1987) Remastered, Japanese Edition, 2016 [MP3|320 к
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915249.jpg" />
 </div>
 
 
@@ -179,7 +208,7 @@ Magnum - Sacred Blood 'Divine' Lies (2016) [MP3|320 кб/с] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911477.jpg" />
 </div>
 
 
@@ -208,7 +237,7 @@ Sweet Mary Jane - Winter in Paradise (2017) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910517.jpg" />
 </div>
 
 
@@ -237,7 +266,7 @@ Harem Scarem - Change The World (2020) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909129.jpg" />
 </div>
 
 
@@ -266,7 +295,7 @@ Blackeyed Susan - Electric Rattlebone (1991) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908748.jpg" />
 </div>
 
 
@@ -295,7 +324,7 @@ Def Leppard - The Early Years (2020) 5CD [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907193.jpg" />
 </div>
 
 
@@ -324,7 +353,7 @@ The New Roses - 2 Альбома (2013 - 2016) [MP3|320 кб/с] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906181.jpg" />
 </div>
 
 
@@ -353,7 +382,7 @@ Alcatrazz - The Best of Alcatrazz & Live In the USA (2021) [MP3|320 Kbps] <Hard 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905467.jpg" />
 </div>
 
 
@@ -382,7 +411,7 @@ Legs Diamond - A Diamond Is A Hard Rock (1977) Reissue, 2007, Diamond Records [M
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905134.jpg" />
 </div>
 
 
@@ -411,7 +440,7 @@ Black Star Riders - Heavy Fire (2017) Limited Edition [MP3|320 кб/с]<Hard Roc
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904888.jpg" />
 </div>
 
 
@@ -440,7 +469,7 @@ Deep Purple - Throw My Bones (2020) Single [MP3|320 Kbps] <Hard Rock, Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901639.jpg" />
 </div>
 
 
@@ -466,7 +495,7 @@ The Night Flight Orchestra - Aeromantic (2020) [MP3|320 kbps] <Melodic Hard Rock
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900191.jpg" />
 </div>
 
 
@@ -495,7 +524,7 @@ Epitaph - Outside The Law (1974) Remastered, 2010, MIG [MP3|320 кб/с] <Rock, 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899192.jpg" />
 </div>
 
 
@@ -524,7 +553,7 @@ Iron Giant - Creator of Scars (2008) [MP3|320 Kbps] <Stoner Rock, Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898020.jpg" />
 </div>
 
 
@@ -553,7 +582,7 @@ Black Sabbath - The Ultimate Collection (2017) 2CD [MP3|320 Kbps] <Hard Rock, He
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897309.jpg" />
 </div>
 
 
@@ -582,7 +611,7 @@ Sven Larsson - 2 альбома (2010-2012) [MP3|320 Kbps] <Westcoast, AOR>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895211.jpg" />
 </div>
 
 
@@ -610,7 +639,7 @@ Pages - 2 альбома (1979-1981) [MP3|320 Kbps] <Westcoast, AOR>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895120.jpg" />
 </div>
 
 
@@ -638,7 +667,7 @@ Stranger - Stranger (1982) [MP3|320 кб/с] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894215.jpg" />
 </div>
 
 
@@ -667,7 +696,7 @@ Deep Purple - Time For Bedlam (2017) EP [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892669.jpg" />
 </div>
 
 
@@ -696,7 +725,7 @@ Bonfire - Fistful of Fire (2020) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890007.jpg" />
 </div>
 
 
@@ -710,35 +739,6 @@ Bonfire - Fistful of Fire (2020) [MP3|320 Kbps] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53C9A63E487CC9BA21B3F96C00198E4125385EC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102511   (889459) от 10.02.2017
-
-Ballbreaker - 3 альбома (2000-2009) [MP3|128-320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atom Bomb
-02. Guilty Pleasure
-03. Daddy Long Legs
-04. B Hole Boogie(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:49:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B95E89A5B1E159E913C54390F1F7E8BD2AF82B22
 ```
 
 https://mybot314.ru/tekegram_catalog/

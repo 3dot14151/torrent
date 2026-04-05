@@ -1,3 +1,55 @@
+###  Публикация: 1333069   (306739) от 23.10.2019
+
+Доступен Tor Browser 9.0
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_306739.jpg" />
+</div>
+
+
+###  Подробнее
+
+После пяти месяцев разработки опубликован значительный релиз специализированного браузера Tor Browser 9.0, сосредоточенного на обеспечении анонимности, безопасности и приватности. Весь трафик в Tor Browser направляется только через сеть Tor, а обратиться напрямую через штатное сетевое соединение текущей системы невозможно, что не позволяет отследить реальный IP пользователя (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260983   (306727) от 09.11.2018
+
+mini10PE by niknikto 18.11.9 [Ru][x86] (авторская раздача)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мини загрузочный диск на базе Microsoft Windows 10 Enterprise 2018 LTSC Version 1809 для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления, диагностики компьютера, восстановления файлов.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCC1B253AF26583FBD29E7AB920EC17BEF80D1CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 960606   (306646) от 28.11.2015
 
 Adobe Acrobat Pro DC 2015.009.20079 [Multi/Ru]
@@ -6,7 +58,7 @@ Adobe Acrobat Pro DC 2015.009.20079 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306646.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Ieshua's Live-DVD/USB 2.15 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306645.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306521.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306279.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306108.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305907.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ Linux Mint 17.1 Rebecca (Mate, Cinnamon) [64bit] 2xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305855.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305848.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ Singularity (2010) [Ru/Multi] (1.1.0.49069) SteamRip Let'sPlay
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305846.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ TRON: Evolution: The Video Game / ТРОН: Эволюция [Ru] (L) 2010
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305805.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305791.jpg" />
 </div>
 
 
@@ -299,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_305723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_305723.jpg" />
 </div>
 
 
@@ -325,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_305154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_305154.jpg" />
 </div>
 
 
@@ -352,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_305118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_305118.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_304796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_304796.jpg" />
 </div>
 
 
@@ -408,7 +460,7 @@ Davinci Resolve Studio 14.1.0.018 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304765.jpg" />
 </div>
 
 
@@ -434,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304744.jpg" />
 </div>
 
 
@@ -463,7 +515,7 @@ OriginPro 2016 SR0 b9.3.226 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304573.jpg" />
 </div>
 
 
@@ -489,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304567.jpg" />
 </div>
 
 
@@ -515,7 +567,7 @@ Adobe After Effects CC 2020 17.0.0.555 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304566.jpg" />
 </div>
 
 
@@ -541,7 +593,7 @@ Adobe Acrobat Pro DC 2019.021.20049 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304564.jpg" />
 </div>
 
 
@@ -567,7 +619,7 @@ Serious Sam 3: BFE / Крутой Сэм 3 (2011) [Ru/Multi] (3.0.3.0.233089/dlc
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304563.jpg" />
 </div>
 
 
@@ -593,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304560.jpg" />
 </div>
 
 
@@ -619,7 +671,7 @@ WinSetupFromUSB 1.6 Final [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304559.jpg" />
 </div>
 
 
@@ -630,58 +682,6 @@ WinSetupFromUSB - это утилита для создания загрузоч
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7361126C0031F1137A77D23F542BFE815E29F854
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333294   (304555) от 24.10.2019
-
-Adobe Photoshop CC 2019 20.0.7.28362 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop CC 2019 - новая версия программы для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, коллажирования, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AC2889FD72901A157958E3EBB59AD50DAF8523A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 585132   (304517) от 05.12.2012
-
-Вербо / Verbo (2011) DVDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304517.jpg" />
-</div>
-
-
-###  Подробнее
-
-Недалекое будущее. Люди живут в гигантских мегаполисах, почти не выбираясь с окраин в центр и не интересуясь практически ничем, что выходит за рамки их профессии. Однако бывают и исключения: пятнадцатилетняя Сара не может примириться с рутинной механистичностью окружающего мира. Поиски смысла приводят ее к Лирико, автору странных будоражащих душу граффити, от которого она узнает, что ее реальность — не единственная, а лишь одна из возможных. Так начинаются опасные приключения Сары в таинственном зазеркалье. И ставка в этой новой игре — жизнь девушки…Жанр: Фантастика, ДрамаРежиссер: Эдуардо Чаперо-ДжексонАктеры: Альба Гарсия, Джедже Апали, Мишель Асанте, Виктор Клавихо, Вероника Эчеги, Макарена Гомес, Адам Езерски, Мириам Мартин, Найва НимриПеревод: Любительский (одноголосый)Продолжительность: 01:23:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFE14EDE452993636CD8838130EF73C3F83CDD47
 ```
 
 https://mybot314.ru/tekegram_catalog/

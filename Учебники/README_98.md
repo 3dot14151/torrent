@@ -1,3 +1,56 @@
+###  Публикация: 1428576   (178203) от 04.12.2020
+
+Е.В. Захаров и др. | Уравнения математической физики (2010) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178203.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебнике представлен материал для первоначального изучения уравнений математической физики: даны математические постановки задач для уравнений в частных производных (теплопроводности, Лапласа, волнового); приведены доказательства теорем единственности, существования и устойчивости их решений; описаны методы построения решений.
+Для студентов высших учебных заведений.Жанр: МатематикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6ED25F9371A1D0157008EB20071B3CE35C5F3EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666808   (178199) от 06.10.2023
+
+Ю.Е. Верёвкин | Усилительно-Преобразовательные устройства (1976) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178199.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге дан подробный анализ электрических схем, выполненных на полупроводниковых приборах и электронных лампах. Особое внимание уделено физическим процессам, происходящим в электрических схемах. Приведенный математический аппарат позволяет производить расчеты параметров различных каскадов. Единая методика построения и анализа электрических схем способствует легкому (   Читать дальше...   )Жанр: ЭлектроникаИздательство: СудостроениеФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A66B41601B7B74BA341394359F8B8F4351F108E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1428711   (178162) от 04.12.2020
 
 С.М. Аполлонский и др. | Электрические аппараты управления и автоматики (2019) [PDF]
@@ -6,7 +59,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178162.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178153.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177939.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177847.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177839.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177793.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177787.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177673.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177669.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177595.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177417.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177386.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177376.jpg" />
 </div>
 
 
@@ -347,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177248.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177192.jpg" />
 </div>
 
 
@@ -401,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176600.jpg" />
 </div>
 
 
@@ -427,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176490.jpg" />
 </div>
 
 
@@ -453,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175842.jpg" />
 </div>
 
 
@@ -479,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175832.jpg" />
 </div>
 
 
@@ -505,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175780.jpg" />
 </div>
 
 
@@ -531,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175605.jpg" />
 </div>
 
 
@@ -557,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175465.jpg" />
 </div>
 
 
@@ -584,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175433.jpg" />
 </div>
 
 
@@ -610,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175072.jpg" />
 </div>
 
 
@@ -623,60 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35CFFBE98ABD117809867CF5C4F15991BCC9FF61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595578   (175012) от 06.12.2022
-
-А.В. Усова, А.А. Бобров | Формирование умений и навыков на уроках физики (1988) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175012.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге раскрываются основы методики формирования у школьников учебных умений по физике на различных этапах обучения; дается классификация этих умений.
-Использование материала данного пособия поможет учителю более полно и глубоко осуществлять всестороннее развитие подрастающего поколения.
-Показывая методы формирования обобщенных познавательных и практических умений, (   Читать дальше...   )Жанр: физикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E1CC420B40454D412F9A53B8EBC79FCF63C9BE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595577   (175009) от 06.12.2022
-
-А.Е. Марон, В.Е. Марон | Задания по физике для учащихся 9 класса вечерней (заочной) средней школы (1986) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие содержит задания по физике для самостоятельной работы учащихся IX класса вечерней (заочной) школы. Каждое задание состоит из перечня вопросов программы, указаний к работе с учебником, вариантов зачетных работ, заданий повышенной сложности.Жанр: физикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E16DC0599AC3809092D0706D2163F35AA53046D
 ```
 
 https://mybot314.ru/tekegram_catalog/

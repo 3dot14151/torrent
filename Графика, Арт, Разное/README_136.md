@@ -1,3 +1,29 @@
+###  Публикация: 1604886   (203834) от 19.01.2023
+
+Фотография - ArtStation - Grafit Studio - 850+ Shooter Game Character Reference Pictures [JPG]
+
+>>Графика, Арт, Разное
+>>Современная фотография
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203834.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом выпуске представлено более 850 эталонных изображений в высоком разрешении с позами персонажей шутеров. Это отличный набор для дизайна персонажей, концепт-арта, обложек книг и постеров, а также комиксов. Позы снимаются с использованием вращающейся платформы, которая дает вам полный обзор позы и будет особенно полезна для создания 3D-моделей. Мы также включили (   Читать дальше...   )Формат: JPEGРазрешение файлов: 3648x5472 - 5472x3648
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:791B4AEC746C28FDAA562806E9FAEC17F280C3F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1604906   (203833) от 19.01.2023
 
 Фотография - ArtStation - Grafit Studio - 500+ Vampire Queen Costume Reference Pictures [JPG]
@@ -6,7 +32,7 @@
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203833.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203827.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203818.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203812.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203481.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203379.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203377.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202971.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202631.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202627.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202432.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ Wallpapers - BING Wallpapers (November 2021 - October 2024) [JPG]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202419.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202130.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202037.jpg" />
 </div>
 
 
@@ -380,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201953.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200441.jpg" />
 </div>
 
 
@@ -435,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200145.jpg" />
 </div>
 
 
@@ -461,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199664.jpg" />
 </div>
 
 
@@ -487,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198558.jpg" />
 </div>
 
 
@@ -513,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198544.jpg" />
 </div>
 
 
@@ -539,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198542.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198497.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198482.jpg" />
 </div>
 
 
@@ -617,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198428.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198416.jpg" />
 </div>
 
 
@@ -654,32 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16BA08624E3B089859CF32EEC350EFA4407FC655
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633622   (198316) от 16.05.2023
-
-Иконки - Рrofеssiоn 3D Аvаtаrs [BLEND, PNG, OBJ, PSD]
-
->>Графика, Арт, Разное
->>Иконки и аватарки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аvаtаr Рrofеssiоn 3D Icon Pack - это пакет аватаров премиум-класса, который вы можете использовать для своего дизайна, анимации, веб-дизайна, дизайна UI/UX, презентаций и многого другого.Формат: BLEND, PNG, OBJ, PSDРазрешение файлов: 3000x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D1ED0F08A011709B4178774D53D5E50195AFD4E
 ```
 
 https://mybot314.ru/tekegram_catalog/

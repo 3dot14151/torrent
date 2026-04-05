@@ -1,3 +1,61 @@
+###  Публикация: 1328935   (359061) от 02.10.2019
+
+Gavri - Global Inspiration (2006) [MP3|320 Kbps] <New age, World beat, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Remember The Day (05:22)
+02. Castaway (04:25)
+03. Gatchami (01:52)
+04. Iddy's Song (05:01)(   Читать дальше...   )Жанр: New age, World beat, AmbientПродолжительность: 00:56:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CFDA2FB780309BF3FE73FEE479BC61206680C19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255931   (359026) от 20.10.2018
+
+Classic Rock Orchester London - Classic & pop (1993) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Romance
+    02. Maid of Orleans
+    03. Sonate C- dur Kv 330
+    04. Boat on the River(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 01:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C123FD09CA1AD4F386F16C1BBF38225350E5719F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1071474   (358842) от 10.11.2016
 
 Mick Gordon - DOOM (Original Game Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -6,7 +64,7 @@ Mick Gordon - DOOM (Original Game Soundtrack) (2016) [FLAC|Lossless|WEB-DL|track
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358842.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Two Steps from Hell - Illumina (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358743.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ El Chido - Ghost Recon Wildlands: Corrido - The Sounds of Santa Blanca (2017) Ba
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358511.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Orbital - Pusher / Дилер (2012) [MP3|320 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357789.jpg" />
 </div>
 
 
@@ -128,7 +186,7 @@ VA - Los clasicos argentinos - Tango - Vol.12 - Ruben Juares: El bandoneon que c
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356968.jpg" />
 </div>
 
 
@@ -157,7 +215,7 @@ Hildur Gudnadottir, Rutger Hoedemaekers, Johann Johannsson - Trapped / Капк�
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356732.jpg" />
 </div>
 
 
@@ -186,7 +244,7 @@ Hildur Gudnadottir, Rutger Hoedemaekers, Johann Johannsson - Trapped / Капк�
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356643.jpg" />
 </div>
 
 
@@ -215,7 +273,7 @@ Brian Tyler - The Devil We Know / Дьявол, которого мы знаем
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356642.jpg" />
 </div>
 
 
@@ -244,7 +302,7 @@ Johann Johannsson - Mandy / Менди (Original Motion Picture Soundtrack) (201
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356641.jpg" />
 </div>
 
 
@@ -273,7 +331,7 @@ Brian Tyler & John Carey - Escape Room / Клаустрофобы (Original Moti
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356638.jpg" />
 </div>
 
 
@@ -302,7 +360,7 @@ Brian Tyler - The Devil We Know / Дьявол, которого мы знаем
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356637.jpg" />
 </div>
 
 
@@ -331,7 +389,7 @@ Jуhann Jуhannsson - The Theory of Everything / Вселенная Стивен
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356636.jpg" />
 </div>
 
 
@@ -360,7 +418,7 @@ Hildur Gudnadottir, Johann Johannsson - Mary Magdalene / Мария Магдал
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356632.jpg" />
 </div>
 
 
@@ -389,7 +447,7 @@ Brian Tyler & John Carey - Escape Room / Клаустрофобы (Original Moti
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356631.jpg" />
 </div>
 
 
@@ -418,7 +476,7 @@ Hildur Gudnadottir, Johann Johannsson - Mary Magdalene / Мария Магдал
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356630.jpg" />
 </div>
 
 
@@ -447,7 +505,7 @@ Jennifer Thomas - The Fire Within (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrume
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356560.jpg" />
 </div>
 
 
@@ -476,7 +534,7 @@ Hildur Gudnadottir, Johann Johannsson - Mary Magdalene / Мария Магдал
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356504.jpg" />
 </div>
 
 
@@ -505,7 +563,7 @@ DJ Taz Rashid - A Story of Satori (2015) [MP3|320 Kbps] <New age, World music, A
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356422.jpg" />
 </div>
 
 
@@ -534,7 +592,7 @@ Hildur Gudnadottir - Joker / Джокер (Original Motion Picture Soundtrack) (
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356404.jpg" />
 </div>
 
 
@@ -565,7 +623,7 @@ Hildur Gudnadottir - Joker / Джокер (Original Motion Picture Soundtrack) (
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356306.jpg" />
 </div>
 
 
@@ -594,7 +652,7 @@ Davide Brullo - Life (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano Solo, 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356119.jpg" />
 </div>
 
 
@@ -623,7 +681,7 @@ Hildur Gudnadottir - Joker / Джокер (Original Motion Picture Soundtrack) (
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355959.jpg" />
 </div>
 
 
@@ -652,7 +710,7 @@ Lorne Balfe - Geostorm / Геошторм (Original Motion Picture Soundtrack) (
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355940.jpg" />
 </div>
 
 
@@ -681,7 +739,7 @@ Fridrik Karlsson - Chillout Heaven (2006) [APE|tracks+.cue]<New Age, Chillout, R
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355875.jpg" />
 </div>
 
 
@@ -695,64 +753,6 @@ Fridrik Karlsson - Chillout Heaven (2006) [APE|tracks+.cue]<New Age, Chillout, R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E04C46ECCB286D9C56229842250545559C77B1AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177829   (355783) от 28.10.2017
-
-Lorne Balfe - Geostorm / Геошторм (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nature Warning (03:13)
-02. President Meeting (03:49)
-03. What About Us (02:08)
-04. Hong Kong Falling (03:50)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:52:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD96A44C5406A811EBF29877B4D21D78EEF11DE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 837279   (355751) от 03.11.2014
-
-Estas Tonne - 8 альбомов (2002-2013) [MP3|320 Kbps] <Instrumental, Flamenco>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эстас Тонне - мастер гитары, «гитарист дорог» мира. Его музыка уходит корнями в культуру фламенко и испанской классической гитары, однако вобрала в себя отголоски самых различных стилей, языков и культур. Называя себя современным трубадуром, последние годы он путешествует по миру (от США до Индии, от Мексики до Израиля), давая уличные концерты и выступая на престижных (   Читать дальше...   )Список альбомов:
-2002 - Black and White World (with Michael Shulman)
-2004 - Dragon of Delight, Vol.II
-2008 - 13 Songs of Truth(   Читать дальше...   )Жанр: Instrumental, FlamencoПродолжительность: 08:34:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58E708999D5A6E33604E5A281704F95EFFA2A3CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

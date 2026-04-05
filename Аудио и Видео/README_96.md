@@ -6,7 +6,7 @@
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739562.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739550.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739441.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - Cuts Extraordinaire – Best of Jazzsticks 02 (2017) [AAC|~282 Kbps] <Drum 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739079.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ VA - Cuts Extraordinaire – Best of Jazzsticks 01 (2014) [AAC|~283 Kbps] <Drum 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739078.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ VA - Cuts Extraordinaire – Best of Jazzsticks 03 (2021) [AAC|~290 Kbps] <Drum 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739075.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ VA - Balearic Sunset (The Buddha Ambient Edition), Vol. 1 (2022) [AAC|~279 Kbps]
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738833.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ VA - Lounge & Beauty, vol. 1 (2022) [AAC|~314 Kbps] <Lounge, Chill Out, Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738831.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ VA - Summer in Electro & Swing Jazz (Light Music Selection Night Session) (2018)
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738830.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ VA - Hamburg Orange (Urban Music for Urban People) (2017) [AAC|~317 Kbps] <Loung
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738825.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ VA - Beautiful Vocal Trance, ch. 3 (2019) [AAC|~332 Kbps] <Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738823.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ VA - Beautiful Vocal Trance, ch. 4 (2019) [AAC|~338 Kbps] <Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738821.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ VA - Summer in Electro & Swing Jazz (Light Music Selection) (2018) [AAC|~317 Kbp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738820.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ VA - Beautiful Vocal Trance, Progressive (2020) [AAC|~336 Kbps] <Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738818.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ VA - Beautiful Vocal Trance, ch. 2 (2018) [AAC|~340 Kbps] <Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738817.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ VA - Beautiful Vocal Trance, ch. 5 (2020) [AAC|~337 Kbps] <Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738816.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ VA - London Orange (Urban Music for Urban People) (2016) [AAC|~313 Kbps] <Lounge
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738815.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ VA - Barcelona Orange (Urban Music for Urban People) (2017) [AAC|~339 Kbps] <Lou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738812.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Beautiful Vocal Trance, ch. 7 (2022) [AAC|~326 Kbps] <Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738811.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ VA - Beautiful Vocal Trance, ch. 1 (2017) [AAC|~338 Kbps] <Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738810.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ VA - Beautiful Vocal Trance, ch. 6 (2022) [AAC|~332 Kbps] <Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738789.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ VA - Singing With The Stars, vol. 1 (2020) [AAC|~318 Kbps] <Nu Jazz, Smooth Jazz
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738743.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ VA - Singing With The Stars, vol. 2 (2021) [AAC|~324 Kbps] <Nu Jazz, Smooth Jazz
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738733.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738605.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ VA - Sidewalk Bistro, Vol. 2 (2015) [AAC|~333 Kbps] <Lounge, Chill Out, Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738520.jpg" />
 </div>
 
 
@@ -719,7 +719,7 @@ VA - Sidewalk Bistro, Vol. 3 (2016) [AAC|~328 Kbps] <Lounge, Chill Out, Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738519.jpg" />
 </div>
 
 

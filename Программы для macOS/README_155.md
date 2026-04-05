@@ -1,3 +1,55 @@
+###  Публикация: 1674298   (162480) от 04.11.2023
+
+Timer RH PRO  2.13.0 [En/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Timer RH PRO - утилита для управления собственным временем.Тип издания: macOS SoftwareРелиз состоялся: 02.11.2023Разработчик: © 2014 3bitlabПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:683B6156D98DA0BF91D07AF4D0540DC3EC4118DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674090   (162463) от 04.11.2023
+
+Swift Publisher 5 v.5.6.9 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Swift Publisher - это пакет графических утилит для macOS особенно пригодится тем, кто занимается полиграфией. Swift Publisher предназначен для создания макетов документов, печати листовок, газет, брошюр, буклетов и подобных документов. Swift Publisher работает с шаблонами страниц, благодаря чему пользователь может разместить на них объекты, используемые одновременно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.10.2023Разработчик: © 2003–2022 BeLight Software LtdПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2AAA633B354E86CCAA680A9296F32245F4AF222
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517628   (162443) от 16.12.2021
 
 Dropzone 3 v3.8.2 [En]
@@ -6,7 +58,7 @@ Dropzone 3 v3.8.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162443.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ PhotosBlender 2.0.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162408.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ PatterNodes 2 v2.4.11 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162401.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ Flyingbee PDF to PowerPoint 5.3.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162399.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ Base64 Coder 2.1.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162371.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ Super Photo Upscaler 2.0.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162350.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ VideoProc Vlogger for Mac 1.2 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162278.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ Combo Cleaner Premium 1.3.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162187.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ VSDX Annotator for Mac 1.16.1 U2B [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162143.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ Kiwi for Gmail 2.0.40 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162137.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ Entity Pro 1.5 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162131.jpg" />
 </div>
 
 
@@ -299,7 +351,7 @@ VSD Viewer for Mac 6.16.1 U2B [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162068.jpg" />
 </div>
 
 
@@ -326,7 +378,7 @@ Magnet 2.13.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162035.jpg" />
 </div>
 
 
@@ -352,7 +404,7 @@ PhoneRescue for Android 3.8.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162033.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ Mac FoneTrans for iOS 9.0.60 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161836.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ HitPaw Video Enhancer 1.1.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161819.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ App Cleaner & Uninstaller Pro 8.0.4 U2B [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161637.jpg" />
 </div>
 
 
@@ -458,7 +510,7 @@ Tenorshare iCareFone for WhatsApp Transfer 2.5.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161562.jpg" />
 </div>
 
 
@@ -487,7 +539,7 @@ FabFilter All Plug-Ins v2021.12.09 [U2B] STANDALONE, VST, VST3, DPM, AU [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161531.jpg" />
 </div>
 
 
@@ -513,7 +565,7 @@ PDF Search 13.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161484.jpg" />
 </div>
 
 
@@ -539,7 +591,7 @@ Cardhop 2.2.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161483.jpg" />
 </div>
 
 
@@ -566,7 +618,7 @@ KeyTrails 1.2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161467.jpg" />
 </div>
 
 
@@ -592,7 +644,7 @@ Rogue Amoeba Farrago 2.0.6 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161465.jpg" />
 </div>
 
 
@@ -618,7 +670,7 @@ Report Kit 1.0.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161462.jpg" />
 </div>
 
 
@@ -630,59 +682,6 @@ Report Kit — это независимое программное обеспе
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:690153D28E075C7517EA71DD41DA43E602BD46D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674538   (161461) от 05.11.2023
-
-PatterNodes 3 v.3.2.3 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161461.jpg" />
-</div>
-
-
-###  Подробнее
-
-PatterNodes - хорошо продуманный и настраиваемый инструмент для создания простых и сложных графических узоров, анимаций, градиентов и иллюстраций на основе повторений.
-Для достижения желаемого результата необходимо определить ряд шагов, которые описывают картину. Все используемые элементы или операции представлены в плавающей панели под названием узла, который может (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.11.2023Разработчик: © 2022 lost mindsПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FA940BDB23A146280EBE160C1573B579D8C0FC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599036   (161457) от 21.12.2022
-
-BackStory Wallpapers 2.3.1 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161457.jpg" />
-</div>
-
-
-###  Подробнее
-
-BackStory Wallpapers использует фотографии из вашей библиотеки изображений для создания красивых фонов для вашего рабочего стола. Выберите аранжировку, несколько альбомов и, возможно, фильтр или два. Затем установите таймер и пусть BackStory покажет коллажи из ваших фото.Тип издания: macOS SoftwareРелиз состоялся: 21.10.2022Разработчик: © 2022 Hyckenberg Software Ltd.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский и Шведский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4760C41536323FCF2E6B662FE057D9E51156D17
 ```
 
 https://mybot314.ru/tekegram_catalog/

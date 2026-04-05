@@ -6,7 +6,7 @@ Nicki Parrott - Close To You: Burt Bacharach Song Book (2017) Venus Records [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782130.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Cannonball Aderley - Riverside Profiles 1958 - 1963 (2006) 2CD, Riverside Record
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781955.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Harry James - 1942 (2001) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Ban
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781743.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Archie Shepp - Blase & Live at the Pan-African Festival 1969 (2004) 2CD, Charly 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781083.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Jonah  Jones - 1936 - 1945 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_780915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_780915.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Eddie Bert - Encore (1955) 1993, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780905.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Bud Powell - Live in Lausanne 1962 (2002) Stretch Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780904.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ California Swing Cats - Stealin' Apples (1997) Jazzology Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780903.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Benoit Viellefon & His Orchestra - Mon Amour (2014) JohnJohn Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780902.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Brian Culbertson - Colors Of Love (2018) [FLAC|Lossless|WEB-DL|tracks] <Smooth J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780775.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Leonard   Feather - 1937 - 1945 (1996) Classics [FLAC|Lossless|tracks + .cue] <S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780615.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Enrico Pieranunzi & Art Farmer - Isis (1981) Soul Note [APE|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780614.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ George Masso, Randy Sandke & Ed Polcer - Jazz Live At The Musikhalle: One, Two, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780613.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Billy Eckstine And His Orchestra - Together (1945) [FLAC|Lossless|image + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780610.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Helen Merrill & Gil Evans - Dream Of You (1956) 1988, Emarcy [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780436.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Veronneau - Love & Surrender (2018) Veronneau Music [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780432.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Carmen McRae - Carmen Sings Monk (1988) 2017, Sony Music [FLAC|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780425.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Mose Allison - Ramblin' With Mose (1958) 2005, Original Jazz Classics [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780132.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Billy Childs - Rebirth (2017) Mack Avenue [FLAC|Lossless|tracks + .cue] <Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780131.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ The Charlie Mariano & Jerry Dodgion Sextet - Beauties Of 1918 (1957) 2011, EMI M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780130.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Christine Jensen Jazz Orchestra - Habitat (2013) Justin Time Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780127.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Pharoah Sanders - Izipho Zam: My Gifts (1969) 2006, Bomba Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780126.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Earl Hines - Spontaneous Explorations (1964) 2017, Solid Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780125.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Bernard Primeau Jazz Ensemble - Virage (1997) Swing'in Time Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780124.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Chico Hamilton with Paul Horn (1954, 1956, 1957) 2010, P-Vine Records [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780123.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ Orchestre National de Jazz de Montreal - Christine Jensen: Under the Influence S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780122.jpg" />
 </div>
 
 

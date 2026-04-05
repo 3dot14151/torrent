@@ -6,7 +6,7 @@ Sally Night - Love For Sale (2012) [FLAC|Lossless]<Jazz, Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463032.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ Jacky Terrasson - Take This (2015) /Universal/[FLAC|tracks+.cue]<Contemporary Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463012.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ Herb Alpert - Come Fly With Me (2015) [FLAC|tracks|WEB-DL]<Smooth Jazz, Pop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462998.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ Lena Horne - The Young Star (1941 - 1944) 2002, BMG [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462888.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ VA - Smooth Jazz Hits for Lovers (2012) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462868.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Martin Denny - The Exotic Sounds of Martin Denny (1996) 2CD /Capitol Records/[FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462861.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Rufus Harley - King / Queens (1970) /2013, Warner/[FLAC|tracks+.cue]<Post-Bop, E
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462859.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ June Christy with The Lou Levy Sextet - Impromptu (1977) 1992, Discovery Records
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462767.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Bob Berg - Back Roads (1991) Nippon Columbia [FLAC|Lossless|tracks + .cue] <Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462765.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Tessa Souter - Nights Of Key Largo (2008) Venus Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462750.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Duke Ellington - An Intimate Piano Session (1969 - 1972) 2017, Storyville [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462749.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Alexis Cole & Bucky Pizzarelli - A Beautiful Friendship (2015) [FLAC|image+.cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462727.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Freddie Fox - Limitless (2020) [FLAC|Lossless|image + .cue] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462595.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ T-Square - Yes, No (1988) Sony Music[FLAC|Lossless|tracks + .cue] <Jazz Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462278.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Papik & Le Lune - Liberi (2022) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Pop Jazz, S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461959.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Harry Babasin And Bob Enevoldsen - Jazz In Hollywood (1954, 1955) 1997, Nocturne
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461956.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ V.A. - You're My Everything Endless Love Sweet Tunes Pleasure Playlist (2022) [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461941.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ J.J. Johnson & Nat Adderley - Yokohama Concert (1977) 2CD, 1997, Pablo Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461571.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Marius Neset - Golden Xplosion! (2011) Edition Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461511.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Masabumi Kikuchi Trio - Sunrise (2009) 2012, ECM Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461509.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Opa - Goldenwings (1976) /1996, BMG Ariola/ [FLAC|tracks+.cue]<World Fusion, Eth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460291.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Paul Quinichette - On The Sunny Side (1957) /1996, OJC/ [FLAC|tracks+.cue]<Mains
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460290.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Elvin Jones - In Europe (1991) /2005, Enja/ [FLAC|tracks+.cue]<Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460289.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ Karin & Mike Kelleher - Melange (2015) [FLAC|image+.cue]<Vocal Jazz, Classical>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460288.jpg" />
 </div>
 
 
@@ -713,7 +713,7 @@ VA - Signora Ward Records - Doom Jazz/Dark Jazz/Funeral Jazz vol. 1 (2020) [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460230.jpg" />
 </div>
 
 
@@ -742,7 +742,7 @@ Patti Austin And James Morrison - Ella & Louis (2017) 2CD, ABC Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459927.jpg" />
 </div>
 
 

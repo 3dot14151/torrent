@@ -1,3 +1,55 @@
+###  Публикация: 1511331   (789170) от 20.11.2021
+
+Pronty: Fishy Adventure (2021) [Ru/Multi] (1.0) License CODEX
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pronty: Fishy Adventure - подводная метроидвания, место действия которой происходит в некогда величественном городе Рояла, который теперь переполнен опасными чудищами, глубинными обитателями и морским мусором. Примерьте на себя роль Пронти и его товарища - механического рыбы-копья. Чтобы вдохнуть жизнь в заброшенный город и раскрыть происхождение Пронти, вам придется (   Читать дальше...   )Тип издания: LicenseРазработчик: 18Light Game Ltd., FunZone GamesЖанр: Метроид, Приключения, ПлатформерЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2F0B14DFDF7E1DA466F7A70205175CF47385554
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511355   (789167) от 20.11.2021
+
+UNDEMON (2021) [Multi] (1.0) License PLAZA
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды в мрачный дождливый день молния сильно ударила в ветхое дерево. В результате, появляется призрак девушки... и она страдает, так как ничего не помнит, ни кто она сейчас, ни кем она была при жизни. Отправляйтесь в загадочное приключение.  Ощутите атмосферу 2D-платформеров 90-х!Тип издания: LicenseРазработчик: West SunЖанр: Platformer (2D), Action, AdventureЯзык субтитров: Английский, КорейскийЯзык интерфейса: Английский, Корейский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEA8155E295364099FEDFC3B479357920324E8B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511684   (788716) от 21.11.2021
 
 Marsupilami: Hoobadventure (2021) [Ru/Multi] (1.0rd) License CODEX
@@ -6,7 +58,7 @@ Marsupilami: Hoobadventure (2021) [Ru/Multi] (1.0rd) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788716.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Hextech Mayhem: A League of Legends Story (2021) [Ru/Multi] (1.21.11.19/dlc) Lic
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788715.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Headlander (2016) [Ru/Multi] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786268.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ The Sexy Brutale (2017) [Multi] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785526.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Remnants of Naezith (2018) [Ru/Multi] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783970.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Planetoid Pioneers (2018) [En] (1.0) License PLAZA
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783698.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Pid (2012) [Multi] (18421) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783416.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Aegis Defenders (2018) [En/Jp] (1.0/upd1) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782818.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Hunahpu Quest. Mechanoid (2018) [Ru/En] (1.0/upd1) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780358.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ DYO (2018) [Ru/Multi] (1.0/upd1) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780326.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Little Nightmares (2017) [Ru/Multi] (1.0.43.1/dlc) Repack R.G. Catalyst
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779442.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Little Nightmares (2017) [Ru/Multi] (1.0/dlc) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779428.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Little Nightmares (2017) [Ru/En] (1.0/dlc) Repack xatab
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779026.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Owlboy (2016) [Ru/En/Jp] (1.3.6613.28019) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778588.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Cosmochoria (2015) [En] (1.18.4) Repack ARMENIAC
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773990.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Unruly Heroes (2019) [Ru/Multi] (1.0) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772643.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Unruly Heroes (2019) [Ru/Multi] (1.0) Repack xatab
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772527.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Lost Castle (2016) [Ru/Multi] (1.83) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772510.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ La-Mulana (2012) [Ru/Multi] (1.6.6.1b) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766879.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Save Jesus (2016) [En] (1.0) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766006.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ UNSIGHTED (2021) [Multi] (1.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764954.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Headlander (2016) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764222.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Gigapocalypse (2021) [Multi] (1.9.81) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761529.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Celeste (2018) [Ru/Multi] (1.1.3.0) Repack alivedeath
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757705.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Celeste (2018) [Ru/Multi] (1.1.3.0) Repack alivedeath
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5914942E939A5F829C248445620BCE097CAF84E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137789   (747704) от 10.02.2019
-
-Rise & Shine (2017) [Ru/Multi] (1.0) Repack R.G. Catalyst
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rise & Shine совмещает в себе аркадный шутер с использованием различных пуль для решения всяческий ситуаций, возникших на пути Райса. Райс – паренек, живущий в мире Gamearth, где обитают персонажи классических видеоигр.Тип издания: RepackРазработчик: Super Mega TeamЖанр: Arcade (Platform)Язык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BA1DD3DBDAE545370819BB513D6EF3F0657B2C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216786   (747388) от 01.04.2018
-
-Evil Cogs (2018) [Ru/Multi] (1.0) Repack Other s
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747388.jpg" />
-</div>
-
-
-###  Подробнее
-
-Темная сказка про лучик света. Исследуйте странный и мистический мир. В игре вы берете на себя роль маленького существа, состоящего целиком из света - вы последний луч надежды в окутанном тьмой, умирающем мире. Это приключение в мрачной черно-белой стилистике. Задача игрока добраться до конца уровня живым. Одной из главных особенностей проекта является огромный упор (   Читать дальше...   )Тип издания: RepackРазработчик: Wet FishЖанр: Adventure, Arcade, Action, Puzzle, Casual, 2DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6865B9B2B6B6F4E43FDDE3F383EC19FFA78C2350
 ```
 
 https://mybot314.ru/tekegram_catalog/

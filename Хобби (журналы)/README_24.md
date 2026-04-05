@@ -1,3 +1,29 @@
+###  Публикация: 909521   (627775) от 17.06.2015
+
+Подшивка журналов | Good Woodworking №292, 293 (май, июнь 2015) [PDF] [En]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал, посвященный столярному делу. Обзоры материалов, инструментов и технологий, а также идеи для творчества. Woodworker's Journal - предназначен для читателей-мастеровых любого уровня подготовки: от новичка до профессионального мебельщика, от дачника до мастера краснодеревщика.Жанр: столярное делоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2627A55F31BA0A59728866D8B0D5AD6254F80511
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 909548   (627659) от 17.06.2015
 
 Журнал | Furniture & CabinetMaking №232 (июнь 2015) [PDF] [En]
@@ -6,7 +32,7 @@
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627659.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627632.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626585.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624222.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620241.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618937.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618440.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617396.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617278.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617180.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617009.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617001.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616918.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616879.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616828.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616165.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614650.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614232.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612435.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609011.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608648.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608525.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608517.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608168.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608114.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66BE320952687E06BF9F05740A83647ADF2C1F9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525729   (607328) от 21.07.2012
-
-Журнал | Оружие и охота №7 (июнь) [2012] [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607328.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Оружие и охота" - специализированный журнал об оружии, стрелковых боеприпасах и охоте. издается c 1999 г. Журнал выходит ежемесячно. Это издание широко известны в Украине и за ее пределами, выпускаются массовым тиражом и пользуются устойчивой популярностью и широкой известностью благодаря профессиональному содержанию, интересным концептуальным решениям, прекрасному дизайну и высококачественной полиграфии.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB9907CF1D8CF3E4CFC83984E6A13B706F58A012
 ```
 
 https://mybot314.ru/tekegram_catalog/

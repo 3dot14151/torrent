@@ -1,122 +1,3 @@
-###  Публикация: 1071404   (361701) от 09.11.2016
-
-Cerrone - Red Lips (2016) [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Therapy
-02. Move Me
-03. Illuminate Me
-04. Ain't No Party (Like Monday Night)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:53:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3803E1218A479251AFD52B91748DDC100074C27A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 407642   (360799) от 07.11.2011
-
-Collage - Raccolta Di Successi (1995) [FLAC|Lossless]<Italo-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_360799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Italo-popПродолжительность: 00:42:44
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 407646   (360313) от 07.11.2011
-
-Al Bano & Romina Power - Vincerai (Their Greatest Hits) (1991) [FLAC|Lossless]<Italo-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_360313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vincerai
-02. Tu Soltanto Tu
-03. We'll Live It All Again
-04. Dialogo
-05. Ci Sara
-06. Makassar
-07. Sempre, Sempre
-08. Cara Terra Mia
-09. Il Poeta (Yunus Emre)
-10. Che Angelo Sei(   Читать дальше...   )Жанр: Italo-popПродолжительность: 01:03:52
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328990   (359065) от 02.10.2019
-
-Mozzart - Devil's Randezvous: Greatest Hits & More (2019) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Money (Maxi Version)
-02. Jasmin China Girl (Maxi Version)
-03. Devil's Rendezvous (12" Version)
-04. Malice & Vice (12" Version)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:30:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6376B51BDCC63B9EF1680C255DB895A0A0400238
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1577368   (356664) от 18.09.2022
 
 Savage - Tonight (Expanded Edition) (1984) 2022 Reissue, Remastered, Maschina Records [FLAC|Lossless|tracks + .cue] <Italo-Disco>
@@ -125,7 +6,7 @@ Savage - Tonight (Expanded Edition) (1984) 2022 Reissue, Remastered, Maschina Re
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356664.jpg" />
 </div>
 
 
@@ -154,7 +35,7 @@ Bad Boys Blue - Tears Turning to Ice (2020) [FLAC|Lossless|WEB-DL|tracks] <Euro-
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353110.jpg" />
 </div>
 
 
@@ -183,7 +64,7 @@ Hot Cold - Love Is Like A Game (2019) Compilation, Remastered [FLAC|Lossless|tra
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350146.jpg" />
 </div>
 
 
@@ -212,7 +93,7 @@ Radiorama - Golden Disco Hits (2002) [FLAC|Lossless|image + .cue]<Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349235.jpg" />
 </div>
 
 
@@ -241,7 +122,7 @@ Maxine Nightingale - Lead Me On (2004) [FLAC|Lossless|tracks + .cue] <Rhythm & B
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349104.jpg" />
 </div>
 
 
@@ -270,7 +151,7 @@ Automat - Automat (1978) Les Disques Mube Inc., 2014, Remastered [FLAC|Lossless|
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348001.jpg" />
 </div>
 
 
@@ -299,7 +180,7 @@ Laser Cowboys - Radioactivity (2018) Limited Edition, Remastered [FLAC|Lossless|
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347863.jpg" />
 </div>
 
 
@@ -328,7 +209,7 @@ Adriano Celentano - Unicamentecelentano (2011) [FLAC|Lossless]<Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_342462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_342462.jpg" />
 </div>
 
 
@@ -357,7 +238,7 @@ Mirko Hirsch - Missing Pieces - Return to Neon (2020) Special Edition [FLAC|Loss
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342041.jpg" />
 </div>
 
 
@@ -386,7 +267,7 @@ Interface - Plastic Age (2020) Unofficial [FLAC|Lossless|tracks + .cue] <Synthpo
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339982.jpg" />
 </div>
 
 
@@ -415,7 +296,7 @@ Il Quadro di Troisi - Il Quadro di Troisi (2020) [FLAC|Lossless|WEB-DL|tracks] <
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339980.jpg" />
 </div>
 
 
@@ -444,7 +325,7 @@ Earth, Wind & Fire - Gold (2020) 3xCD [FLAC|Lossless|image + .cue] <Funk, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339708.jpg" />
 </div>
 
 
@@ -473,7 +354,7 @@ Oblivion - Voyage To Discovery (2017) [FLAC|Lossless|WEB-DL|tracks] <Disco, Spac
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338987.jpg" />
 </div>
 
 
@@ -502,7 +383,7 @@ Gianni Morandi - Questa E' La Storia (1994) [FLAC|Lossless]<Italo-pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_338561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_338561.jpg" />
 </div>
 
 
@@ -528,7 +409,7 @@ V.A. - Italo Disco 80's (Best Of Collection) (2016) [FLAC|Lossless|image + .cue]
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336380.jpg" />
 </div>
 
 
@@ -557,7 +438,7 @@ Boney M. - The Magic Of Boney M. (2022) Special Remix Edition [FLAC|Lossless|tra
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330609.jpg" />
 </div>
 
 
@@ -586,7 +467,7 @@ Latin Lover - Casanova Action (2007 (1985-87)) [FLAC|Lossless]<Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_328843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_328843.jpg" />
 </div>
 
 
@@ -621,7 +502,7 @@ Mark Ashley - I Will Not Forget You (2017) [FLAC|Lossless|tracks + .cue] <Euro-D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323617.jpg" />
 </div>
 
 
@@ -650,7 +531,7 @@ Boney M. - Diamonds (2015) 40th Anniversary Edition [FLAC|Lossless]<Disco, Euro 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323178.jpg" />
 </div>
 
 
@@ -679,7 +560,7 @@ Italove - Extended And Remixed (2018) Compilation [FLAC|Lossless|tracks + .cue] 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321266.jpg" />
 </div>
 
 
@@ -708,7 +589,7 @@ VA - Disco 80's Rare & Special Versions Vol. 2 (2016) Compilation [FLAC|Lossless
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320877.jpg" />
 </div>
 
 
@@ -737,7 +618,7 @@ VA - Rare80 Records - Rare80 Volume 1 (2012) 2CD, Unofficial Release [FLAC|Lossl
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317475.jpg" />
 </div>
 
 
@@ -751,6 +632,122 @@ Rare80 Volume 1 CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF887A78FFEC06EBC5BD274598FF37BD4A2D83A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421322   (317474) от 05.11.2020
+
+VA - Rare80 Records - Rare80 Volume 2 (2012) 2CD, Unofficial Release [FLAC|Lossless|image + .cue] <Italo-Disco, New Wave, Synth-pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rare80 Volume 2 CD1
+01. Shanghai - Ballerina (Club Mix)
+02. Andrea - Macho Man (Macho Man Version)
+03. Rewind - Rosalie (Pop & Go) (Extended Version)(   Читать дальше...   )Жанр: Italo-Disco, New Wave, Synth-pop, DiscoПродолжительность: 02:36:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EFFF599D4AAD54D4B729FD873A96691D2AF8AC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182216   (316947) от 10.11.2017
+
+VA - Sunlover Records Compilation Vol.1 - Italo Disco is Back! (2014) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. VHS Dreams - Space Race (5:34)
+02. RetroSynther - Technocity (6:05)
+03. Les Chic Voltage - Disco Gallo 84 (3:21)
+04. Apollo Zapp feat. Reo - Hula Hoop! (3:03)(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 01:40:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE4A0BAF55DA6C43348AA0C4E447B6AADFC6EA98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422038   (313048) от 07.11.2020
+
+VA - Rare80 Records - Rare80 Volume 3 (2013) 2CD, Unofficial Release [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rare80 Volume 3 CD1
+01. Tea Es - Captain Terra X (24 More Hours) (Extended Version)
+02. Les Montes - Night Life (Single Version)
+03. Rewind - Rosalie (Pop & Go!) (Dub Version)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Synth-popПродолжительность: 02:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:063C4C27A44DFDC38B2902FAD9971A6D6B0FBA4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332923   (308789) от 22.10.2019
+
+Blue System - Magic Symphonies (The Very Best Of Blue System) (2009) 3CD, BoxSet, Compilation [FLAC|Lossless|tracks + .cue] <Electronic, Euro-Disco, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/14. Sorry Little Sarah (Long Version) (5:16)
+02/14. My Bed Is Too Big (No Longer Too Big Bed Mix) (5:27)
+03/14. Under My Skin (12'' Version) (5:16)
+04/14. Silent Water (Long Version) (4:51)(   Читать дальше...   )Жанр: Electronic, Euro-Disco, Synthpop |Продолжительность: 01:17:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01C395F5AACF544DD7C6093B410189784C503E17
 ```
 
 https://mybot314.ru/tekegram_catalog/

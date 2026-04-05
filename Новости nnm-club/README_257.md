@@ -1,3 +1,55 @@
+###  Публикация: 1518799   (144144) от 26.12.2021
+
+Дракулов (2021) WEBRip [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российская империя. Юрист Петр Смирнов приезжает в мрачное имение загадочного графа Дракулова, чьи предки родом из далекой Трансильвании, чтобы оформить покупку дома в Москве. Граф замечает фотокарточку невесты Петра, юной Вари, и немедленно срывается проинспектировать свою новую недвижимость… Петр обеспокоен, но его бдительность усыпляют старательные служанки графа. (   Читать дальше...   )Производство: Россия / Central Partnership ProductionsЖанр: комедияРежиссер: Илья КуликовАктеры: Михаил Галустян, Денис Васильев, Татьяна Бабенкова, Алексей Золотовицкий, Надежда Сысоева, Мария Лисовая, Дмитрий Блохин, Роман Попов, Иван Агапов, Александр ЗагоскинПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:26:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABC29E63980429365F67E118675B26902AF08747
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969497   (144071) от 28.12.2015
+
+Марсианин / The Martian (2015) HDRip [H.264]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144071.jpg" />
+</div>
+
+
+###  Подробнее
+
+Марсианская миссия «Арес-3» в процессе работы была вынуждена экстренно покинуть планету из-за надвигающейся песчаной бури. Инженер и биолог Марк Уотни получил повреждение скафандра во время песчаной бури. Сотрудники миссии, посчитав его погибшим, эвакуировались с планеты, оставив Марка одного. Очнувшись, Уотни обнаруживает, что связь с Землёй отсутствует, но при (   Читать дальше...   )Производство: США, ВеликобританияЖанр: Фантастика, приключенияРежиссер: Ридли СкоттАктеры: Мэтт Дэймон, Джессика Честейн, Кристен Уиг, Джефф Дэниелс, Майкл Пенья, Шон Бин, Кейт Мара, Себастьян Стэн, Аксель Хенни, Чиветель ЭджиофорПеревод: Дублированный (iTunes)Язык субтитров: Русский, Украинский, АнглийскийПродолжительность: 02:21:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA18990CC1EAA50C8EDBB2F22E2A31A77532AD98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 969748   (144017) от 28.12.2015
 
 PROMT Professional 11 Build 9.0.556 Home Edition [Ru/En]
@@ -6,7 +58,7 @@ PROMT Professional 11 Build 9.0.556 Home Edition [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144017.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144003.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ F-Secure Freedome VPN 2.30.6180 RePack by elchupacabra [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143976.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143972.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Gothic II: Gold Edition / Готика 2: Золотое издание (2010) [
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143931.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ HITMAN 2 (2018) [Ru/Multi] (2.72.0/dlc) Repack Other s [Gold Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143910.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Sandboxie 3.76 Final [MULTi / Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143711.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ Need for Speed: Underground Dilogy | Дилогия Need for Speed: Underground 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143652.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143577.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ Quantum Break (2016) [Ru/Multi] (1.0.126.0307) Repack R.G. Catalyst [Complete Ed
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143488.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143469.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143067.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ Senyoku no Sigrdrifa | Warlords of Sigrdrifa | Полководцы Сигрдр
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143054.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142926.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142908.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142879.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ Wondershare Filmora Effect Packs 4 RePack by elchupacabra [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142877.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142872.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142717.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142564.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142208.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142107.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ One-Punch Man / Ванпанчмен [2015, TV, 12 из 12 + 1 из 6 SP] HDTV 7
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142030.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ Garmin: Дороги России Топо 6.29 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141769.jpg" />
 </div>
 
 
@@ -624,58 +676,6 @@ Garmin: Дороги России Топо 6.29 [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1126DA7786864E80FEA350A49995D47383E84320
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914132   (141676) от 28.12.2018
-
-Гена-Бетон (2014) WEB-DLRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141676.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журналист попадает в тяжелейшую криминальную ситуацию. Кто-то бы взялся за обрез, а он берется за авторучку и виртуозно выходит из положения, попутно перевернув всю жизнь города…Производство: РоссияЖанр: Криминал, КомедияРежиссер: Роман КачановАктеры: Гоша Куценко, Сергей Перегудов, Ольга Арнтгольц, Алика Смехова, Рената Литвинова, Фёдор Бондарчук, Иван Охлобыстин, Роман Качанов, Ангелина Чернова, Рудольф Фурманов, Сергей Шнуров, Алексей Панин, Константин Юшкевич, Артур ВахаПродолжительность: 01:25:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6700842E6E53120596E747CC89CA8A7BE94FF9DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088048   (141541) от 29.12.2016
-
-WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2016.12.29 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141541.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузочный диск на базе Windows 10 и 8 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, антивирусной профилактики и установки ОС Windows.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E0AB5D9274F488D2131CE3D87CCDBD49F1F9BBD
 ```
 
 https://mybot314.ru/tekegram_catalog/

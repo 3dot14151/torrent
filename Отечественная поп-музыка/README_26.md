@@ -1,32 +1,3 @@
-###  Публикация: 1641590   (196719) от 23.06.2023
-
-Братья Грим - Лететь высоко (2023) [MP3|320 Kbps] <Pop Rock>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196719.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Лететь высоко
-2. Солнце моё
-3. Лелею
-4. Крылья рукава(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:43:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8B1444F57F6C96971D561218FD8CEECA455397A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1641592   (196699) от 23.06.2023
 
 VA - Песни Виктора Резникова (2023) [MP3|320 Kbps] <Pop>
@@ -35,7 +6,7 @@ VA - Песни Виктора Резникова (2023) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196699.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191795.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189326.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Dabro - Юность. Deluxe Version (2020) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_185949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_185949.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Dead Blonde - 3 альбома, 6 синглов (2020-2022) [MP3|320 Kbps] <Pop
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185227.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ ANNA ASTI - Царица (2023) Deluxe Edition [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182951.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181620.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179904.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178293.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178232.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177154.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176638.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175745.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175474.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174943.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ VA - Трибьют «Иванушки International» (2022) [MP3|320 Kbps] <Po
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174941.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174457.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173776.jpg" />
 </div>
 
 
@@ -559,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172439.jpg" />
 </div>
 
 
@@ -588,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172261.jpg" />
 </div>
 
 
@@ -617,7 +588,7 @@ VA - Любовь всегда права (2023) Посвящение Алекс
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172081.jpg" />
 </div>
 
 
@@ -646,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170361.jpg" />
 </div>
 
 
@@ -675,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170222.jpg" />
 </div>
 
 
@@ -704,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170085.jpg" />
 </div>
 
 
@@ -733,7 +704,7 @@ Zivert - В МИРЕ ВЕСЁЛЫХ (2023) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169944.jpg" />
 </div>
 
 
@@ -747,6 +718,35 @@ Zivert - В МИРЕ ВЕСЁЛЫХ (2023) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50A8CD8065A517BBE1D0D4D9819134F08676A148
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430822   (169690) от 11.12.2020
+
+Александр Маршал - Невыдуманные Истории (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169690.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Дуэль
+2. Я Помню Тот День
+3. Роль
+4. Отец(   Читать дальше...   )Жанр: PopПродолжительность: 01:24:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDF855925DA0C733EB603030B2F3F849F985477D
 ```
 
 https://mybot314.ru/tekegram_catalog/

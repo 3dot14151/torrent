@@ -6,7 +6,7 @@ Asura (2017) [En/Ch] (1.0.27251) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765946.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mr Shifty (2017) [Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765942.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Return of the Incredible Machine Contraptions (2000) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764148.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Trackmania Turbo (2016) [Ru/Multi] (2016-03-23_18_29) Repack =nemos=
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764084.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Armored Evolution (2019) [En] (2.0.b) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761579.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Unravel (2016) [Multi] (1.0.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761017.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Panzer Elite Action - Dunes of War (2007) [Ru] (1.44.12) Repack =nemos=
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760595.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Trine (2014) [Ru/Multi] (2.12) Repack R.G. Catalyst [Enchanted Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759371.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Crossing Souls (2018) [Ru/Multi] (1.2.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757675.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Asterix & Obelix XXL Dilogy / Asterix & Obelix XXL 1 & 2  (2004-2005) [Ru/Multi]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756434.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Survive in Space (2016) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755217.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Survive in Space (2016) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755110.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Koihime Enbu (2016) [En/Ja] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755105.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Scrap Garden (2016) [Ru/Multi] (1.1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753206.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ My Memory of Us (2018) [Ru/Multi] (1.13057.1) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751488.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ IS Defense (2016) [En] (1.0 u5/dlc) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751184.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Dragon Ball: Xenoverse (2015) [Ru/Multi] (1.08.00/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749729.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Jump Force (2019) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744836.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Ghrian (2016) [En] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744504.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ JUMP FORCE (2019) [Ru/Multi] (1.00) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743165.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Moto Racing 3D (2018) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743055.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ NARUTO SHIPPUDEN: Ultimate Ninja STORM Legacy (2016-2017) [Ru/En] Rip R.G. Reven
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740669.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Macrotis: A Mother's Journey (2019) [Ru/Multi] (1.0.2) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740018.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Hell Yeah: Wrath of the Dead Rabbit (2012) [Ru/En] (1.0u1) RePack Audioslave
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739539.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ LEGO Harry Potter: Years 5-7 (2012) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738654.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ LEGO Harry Potter: Years 1-4 (2010) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738627.jpg" />
 </div>
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1515967   (53347) от 14.06.2024
+
+Заповедник Брянский лес. В поисках черного аиста (2013) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заповедник «Брянский лес» — уголок нетронутой дикой природы России, где сохранились вековые деревья, где можно встретить редких животных. В непроходимых чащах брянского леса обитают птицы, которых считают почти мифическими. Черных аистов мало кто видел, а орнитологи считают за счастье встречу с этими пернатыми. Для гнездования черные аисты выбирают самые глухие непроходимые (   Читать дальше...   )Производство: Россия, RTG productionЖанр: документальный, познавательный, природа, путешествияРежиссер: Игорь ЧернышовЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:37:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A0B9D2D8BD787FA68AB518B9DEB9C460F7C10C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 660183   (52507) от 22.06.2024
 
 NG: В объективе: Необычное поведение животных / Caught in the Act (2007-2012) HDTVRip [H.264/720p-LQ] (серий 18)
@@ -6,7 +32,7 @@ NG: В объективе: Необычное поведение животны�
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52507.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50871.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50839.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50156.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49864.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49802.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49555.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49367.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49284.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49064.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44990.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42828.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39595.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37801.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37792.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36894.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36881.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36692.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33497.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31560.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29812.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29078.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20567.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18995.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ BBC: Мир природы. Смертоносные змеи Индии / BBC: 
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16455.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ BBC: Мир природы. Смертоносные змеи Индии / BBC: 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50893FB3C4F3C4487D7028C2C6E02BD951EF421C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802295   (14422) от 16.06.2025
-
-Тигр / Tiger (2024) WEB-DL [H.264/1080p] [En / Ru, En Sub]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот фильм приоткрывает завесу тайны над самым почитаемым и харизматичным животным нашей планеты, приглашая зрителей отправиться в путешествие вместе с Амбар, молодой тигрицей, воспитывающей своих тигрят в легендарных лесах Индии. Любопытным, неугомонным и временами немного неуклюжим детенышам есть чему поучиться у своей сообразительной матери, которая сделает все (   Читать дальше...   )Производство: США / Walt Disney Studios Motion Pictures, DisneynatureЖанр: документальный, фауна, природаРежиссер: Марк Линфилд, Justine Allan, Alistair TonesУчастники: Приянка Чопра ДжонасПеревод: ОтсутствуетЯзык озвучки: английскийСубтитры: русские, английскиеПродолжительность: 01:29:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9398E86D02901094D6FDB1F756B78F2E267B5967
 ```
 
 https://mybot314.ru/tekegram_catalog/

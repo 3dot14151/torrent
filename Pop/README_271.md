@@ -1,177 +1,3 @@
-###  Публикация: 1627742   (237102) от 20.04.2023
-
-VA - ZYX Italo Disco New Generation Vol. 6 (2015) 2 CD [OGG Vorbis|480 Kbps] <Italo-Disco, Euro-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Talking Eyes - The Summer Goes (extended version)
-02. M-Tracking - Give Me Your Hand (maxi version)
-03. Clock on 5 - Love Kills (The Mayerling, Part 2)
-04. Digitalo - Love Me Endlessly (extended version)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Synth-popПродолжительность: 02:33:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC91E5B88D92DA4E71843AC022A5BD89426CCBC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627492   (237074) от 20.04.2023
-
-VA - ZYX Italo Disco New Generation Vol. 3 (2013) 2 CD [OGG Vorbis|480 Kbps] <Italo-Disco, Euro-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Savage - Save Me (Vocal Remix)
-02. Joey Mauro - Japan Kiss (Marschall Longdrink Remix)
-03. Tess - Cry Away (Italo Disco Extended Mix)
-04. TQ & Linda Jo Rizzo - Out Of The Shadow (Extended)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Synth-popПродолжительность: 02:32:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ABF91E426086807817FD8310477F2E9C1D4422F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630805   (237067) от 02.05.2023
-
-VA - 12 Inch Maxi Club Disco Funk Vol. 02 (2015) CD, Compilation [MP3|320 Kbps]  <Disco, Italo Disco, New Wave, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rhyze - Rhyze To The Top (Club Mix)
-02. Harvey Mason - Groovin' You (Club Mix)
-03. Hamilton Bohannon - Let's Start The Dance (Club Mix)
-04. Gordon's War - The Rock Is Gonna Get You (Club Mix)(   Читать дальше...   )Жанр: Disco, Italo Disco, New Wave, SynthpopПродолжительность: 02:09:45 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DC8DE283746C175E8B309502DE4A39D5F941647
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630835   (237037) от 02.05.2023
-
-Jessie Ware - That! Feels Good! (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <Pop, Indie Pop, Electronic>
-
->>Pop
->>Pop (Hi-Res)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That! Feels Good!
-02. Free Yourself
-03. Pearls
-04. Hello Love(   Читать дальше...   )Жанр: Pop, Indie Pop, ElectronicПродолжительность: 00:40:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:120F91E21376D462D3C0AD825D2B80C1AE87F52E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031951   (236933) от 06.09.2022
-
-Евгений Осин - Любовное настроение (2003) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. [04:59] Ялта
-02. [03:44] Мальчишка
-03. [03:36] Две девушки
-04. [03:39] 8-е марта(   Читать дальше...   )Жанр: PopПродолжительность: 01:03:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5762BDDA4EDD1EAD98FB9AFE9EDDE8FEBDB5034F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631019   (236862) от 03.05.2023
-
-VA - Soft Rock Sunset Easy Classics (2023) [MP3|320 Kbps] <Pop, Soft Rock, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gerry Rafferty - Right down the Line
-02. Foreigner - That Was Yesterday
-03. Carly Simon - You Belong to Me
-04. Fleetwood Mac - Dreams (2018 Remaster)(   Читать дальше...   )Жанр: Pop, Soft Rock, RockПродолжительность: 03:22:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:039C3DDF0F47CC5564B535BBABB0327FC439E995
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1630800   (236821) от 02.05.2023
 
 VA - 12 Inch Maxi Club Disco Funk Vol. 01 (2015) CD, Compilation [MP3|320 Kbps] <Disco, Italo Disco, New Wave, Synthpop>
@@ -180,7 +6,7 @@ VA - 12 Inch Maxi Club Disco Funk Vol. 01 (2015) CD, Compilation [MP3|320 Kbps] 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236821.jpg" />
 </div>
 
 
@@ -209,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236698.jpg" />
 </div>
 
 
@@ -238,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236671.jpg" />
 </div>
 
 
@@ -267,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236603.jpg" />
 </div>
 
 
@@ -296,7 +122,7 @@ DAKOOKA - СКРЯБІН by Dakooka (2023) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236588.jpg" />
 </div>
 
 
@@ -325,7 +151,7 @@ VA - Soft Rock Sunset Easy Classics (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, S
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236565.jpg" />
 </div>
 
 
@@ -354,7 +180,7 @@ Spooky & Sue - Spooky & Sue (1974) LP [MP3|320 Kbps] <Funk Soul, Disco, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236416.jpg" />
 </div>
 
 
@@ -383,7 +209,7 @@ Bebe Rexha - Bebe (2023) [FLAC|Lossless|WEB-DL|tracks] <Dance-pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236387.jpg" />
 </div>
 
 
@@ -412,7 +238,7 @@ Joy Winter [ex. Lime] - Frantic Romantic (1990) [MP3|320 Kbps] <Electronic, Free
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236357.jpg" />
 </div>
 
 
@@ -441,7 +267,7 @@ Celine Dion - The Colour Of My Love (1993) Reissue, 1995, Epic [OGG Vorbis|480 K
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236324.jpg" />
 </div>
 
 
@@ -470,7 +296,7 @@ Kumano - Kumano (1980) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_236022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236022.jpg" />
 </div>
 
 
@@ -499,7 +325,7 @@ Linda Jo Rizzo - Forever (2023) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235924.jpg" />
 </div>
 
 
@@ -528,7 +354,7 @@ Annette Humpe - Solo (серия "Другие восьмидесятые") (199
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235913.jpg" />
 </div>
 
 
@@ -557,7 +383,7 @@ Chicasss - 2 Albums (1989, 1990) Collection [MP3|320 Kbps] <Pop, Europop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235905.jpg" />
 </div>
 
 
@@ -586,7 +412,7 @@ Marshmello - Mellokillaz (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronique, Dan
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235779.jpg" />
 </div>
 
 
@@ -615,7 +441,7 @@ Meri D. - Follow Me (1985) CD [MP3|320 Kbps] <Electronic, Pop Rock, Synth-pop, D
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235697.jpg" />
 </div>
 
 
@@ -644,7 +470,7 @@ Giorgio Moroder - From Here To Eternity / E=MC2 (1977, 1979) Reissue, Remastered
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235663.jpg" />
 </div>
 
 
@@ -671,7 +497,7 @@ Olivia Newton-John - Just The Two Of Us: The Duets Collection (Vol. 1) (2023) [F
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235615.jpg" />
 </div>
 
 
@@ -700,7 +526,7 @@ Cerrone - A Part of You (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235565.jpg" />
 </div>
 
 
@@ -729,7 +555,7 @@ Ed Sheeran — «-» (Deluxe) (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <Pop, Acoust
 >>Pop (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235403.jpg" />
 </div>
 
 
@@ -743,6 +569,180 @@ Ed Sheeran — «-» (Deluxe) (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <Pop, Acoust
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49633819FAE8FF171A41380B09DD878FEB1A007B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642044   (235195) от 25.06.2023
+
+Katy Perry - One Of The Boys (2008) 15th Anniversary Edition, 2023, Capitol Records [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Of The Boys [00:04:07]
+02. I Kissed A Girl [00:02:59]
+03. Waking Up In Vegas [00:03:19]
+04. Thinking Of You [00:04:06](   Читать дальше...   )Жанр: PopПродолжительность: 00:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCC9F448317C1634AF8530DFCC4331D1CA93B75B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642739   (235144) от 29.06.2023
+
+VA - Happy Vibes 2023 (2023) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. OneRepublic – I Ain't Worried (2:28)
+02. Jonas Brothers – Waffle House (2:25)
+03. Marshmello – Happier (3:34)
+04. Coi Leray – Players (2:19)(   Читать дальше...   )Жанр: PopПродолжительность: 05:25:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48F6E4D2992D89A4BF81B77EDDCF4113F7767B1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632630   (235131) от 11.05.2023
+
+VA - The Universal - 90's Easy (2023) [MP3|320 Kbps] <Pop, Rock, RnB, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blur - The Universal
+02. Seal - Kiss from a Rose
+03. Diddy, Faith Evans, 112 - I'll Be Missing You (feat. Faith Evans & 112)
+04. Duran Duran - Ordinary World(   Читать дальше...   )Жанр: Pop, Rock, RnB, DanceПродолжительность: 03:35:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1DE506E445488F1A9050CD5A3094F1EE00074AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632787   (235103) от 11.05.2023
+
+Belinda Carlisle - Kismet (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Big Love
+02. If U Go
+03. Deeper Into You
+04. I Couldn't Do That To Me(   Читать дальше...   )Жанр: PopПродолжительность: 00:18:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEA51F5B154854D5B8E3EEC5B08603BE86848B7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641641   (235084) от 25.06.2023
+
+VA - Sexy Pride Music 2023 | For Girls Who Want Boys Who Like Boys [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sam Smith - Unholy (2:36)
+02. John Travolta - You're The One That I Want (From “Grease”) (2:49)
+03. Sylvester - You Make Me Feel (Mighty Real) (6:34)
+04. Jennifer Lopez - On The Floor (4:44)(   Читать дальше...   )Жанр: PopПродолжительность: 01:24:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3020BEB309317B3EEAFE1E15A4F8B8345955BFEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576860   (234851) от 16.09.2022
+
+VA - Best 80s Pop 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ABBA - The Winner Takes It All (04:55)
+02. M.C. Hammer - U Can't Touch This (04:17)
+03. Salt-N-Pepa - Push It (04:28)
+04. Cameo - Word Up (04:18)(   Читать дальше...   )Жанр: PopПродолжительность: 01:32:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8025C939DB61502C2E1B4379FA401F42B73144F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

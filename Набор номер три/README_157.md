@@ -1,3 +1,161 @@
+###  Публикация: 1004998   (833675) от 08.04.2016
+
+Garmin: City Navigator Russia NT 2017.10 - Navicom [Ru]
+
+>>3
+>>15
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833675.jpg" />
+</div>
+
+
+###  Подробнее
+
+Карта City Navigator Russia NT предназначена для использования в автомобильных навигаторах Garmin Nuvi последних поколений. Она охватывает почти всю территорию России, а также Украину и Беларусь, но с меньшей детализацией. На карте представлены объекты инфраструктуры, включая их контактные телефоны. Адресный поиск работает практически в любом крупном населённом пункте (   Читать дальше...   )Тип издания: карты заблокированы (таблетки есть в комплекте)Релиз состоялся: апрель 2016Разработчик: Navicom / GarminПоддерживаемая ОС: GarminЯзык интерфейса: РусскийФормат: .IMG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD688411A35BB307284D3DA12324003B87B93779
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004795   (833674) от 08.04.2016
+
+Windows 7 SP1 IE11+ RUS-ENG x86-x64 -8in1- KMS-activation v4 (AIO)
+
+>>3
+>>30
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная сборка является правопреемницей сборки Windows 7 SP1 IE11+ RUS-ENG x86-x64 -8in1- KMS-activation v3 (AIO). Ее отличает от своей предшественницы то, что в текущую сборку включены обновления по состоянию на 5 апреля 2016 года и свежие пакеты .NET Framework и Visual C++ Redistributable. Также, произведена некоторая оптимизация, благодаря чему даже после всех (   Читать дальше...   )Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39A0677D4A40C099E45671952A7D725AE732BE72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 195002   (833558) от 23.04.2010
+
+Как я провёл этим летом (2010) DVDRip [H.264]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начальник полярной станции Сергей и молодой стажер Павел — одни на острове в Северном ледовитом океане. Подходит к концу их вахта. Впервые за много лет Сергей окажется на материке, где его дожидается семья. Окончится летняя практика Павла, а он не испытал и сотой доли тех приключений, на которые рассчитывал, отправляясь в Заполярье.
+
+Единственный канал общения с (   Читать дальше...   )Производство: РоссияЖанр: ДрамаРежиссер: Алексей ПопогребскийАктеры: Григорий Добрыгин, Сергей ПускепалисПродолжительность: 02:04:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 194304   (833556) от 23.04.2010
+
+Return to Mysterious Island 2: Mina's Fate / Возвращение на таинственный остров 2 (2009) [Ru] (1.04) License
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тип издания: LicenseРазработчик: Kheops StudioЖанр: Adventure, QuestЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 311309   (833246) от 20.03.2011
+
+[RePack] Total War: Shogun 2 [Ru] 2011 | R.G.R3PacK
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Середина XVI столетия. Феодальная Япония, некогда находившаяся под властью императора, раздроблена и поделена между множеством враждующих кланов. В роли даймё — лидера одного из них — игроку предстоит воевать, решать разноплановые хозяйственные вопросы и вести тонкую дипломатическую игру, чтобы добиться главной цели: прекратить междоусобные распри и объединить страну под своим началом, став правителем всей Японии.Тип издания: RePackЖанр: Strategy (Real-time / Turn-based) / 3DЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCE855F6D590522DB741766AE117DB4A644123DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 311375   (833240) от 20.03.2011
+
+Битва за Лос-Анджелес / Battle of Los Angeles (2011) HDTVRip [Global Asylum]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833240.jpg" />
+</div>
+
+
+###  Подробнее
+
+В феврале 1942 года американские войска обнаружили неопознаный летающий объект в небе над Лос-Анджелесом. Теперь, почти семьдесят лет спустя, космические захватчики вернулись...Производство: США,Жанр: ФантастикаРежиссер: Марк АткинсАктеры: Кел Митчел, Ниа Пиплз, Брэд Бентон, Джералд Уэбб, Тереза Джун Тао, Тим Эбелл, Дэрин Купер, Мишель Бойд, Стефен БлекхартПеревод: Профессиональный (двухголосый)Продолжительность: 01:26:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D41CFB0C44FE36EDB442043E2392D95ADFB67AE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501279   (833200) от 11.10.2021
 
 Электронную подпись встроят в SIM-карту
@@ -6,7 +164,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833200.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ Samsung извинилась за российское ПО на смартфо�
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833196.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ Myst (2021) [Multi] (1.5.3) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833064.jpg" />
 </div>
 
 
@@ -84,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833062.jpg" />
 </div>
 
 
@@ -110,7 +268,7 @@ DOOM Eternal (2020) [Ru/Multi] (1.0 Вuild 7241573/dlc) License EMPRESS [Deluxe 
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833060.jpg" />
 </div>
 
 
@@ -136,7 +294,7 @@ XYZ School, Алексей Малороссиянов | Unity (2021) PCRec
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833056.jpg" />
 </div>
 
 
@@ -164,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832924.jpg" />
 </div>
 
 
@@ -190,7 +348,7 @@ Windows 10 стала показывать рекламу
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832807.jpg" />
 </div>
 
 
@@ -217,7 +375,7 @@ Advanced SystemCare Pro 10.2.0.725 Final [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832804.jpg" />
 </div>
 
 
@@ -246,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832772.jpg" />
 </div>
 
 
@@ -272,7 +430,7 @@ m0nkrus FAN 5 by Puhpol 13.03.2017 [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832769.jpg" />
 </div>
 
 
@@ -300,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832768.jpg" />
 </div>
 
 
@@ -326,7 +484,7 @@ Adobe InDesign CC 2014 (v10.2.0) x86-x64 RUS/ENG Update 2
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832736.jpg" />
 </div>
 
 
@@ -352,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832539.jpg" />
 </div>
 
 
@@ -378,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>13
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832527.jpg" />
 </div>
 
 
@@ -404,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832522.jpg" />
 </div>
 
 
@@ -434,7 +592,7 @@ Deliver Us The Moon (2019) [Ru/Multi] (1.4.2a-rc-3) Repack xatab
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832519.jpg" />
 </div>
 
 
@@ -460,7 +618,7 @@ A Plague Tale: Innocence (2019) [Ru/Multi] (1.07/dlc) Repack xatab
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832518.jpg" />
 </div>
 
 
@@ -486,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832292.jpg" />
 </div>
 
 
@@ -512,7 +670,7 @@ VA - Радио ULTRA The Best (Vol. 1-17 из 17) (2012 - 2014) + Bonus: Веч
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832235.jpg" />
 </div>
 
 
@@ -532,166 +690,6 @@ Volume 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9496474F35D8EB89FF28B1F70A8B27F6FE2CBD59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 773097   (832228) от 04.04.2014
-
-Cubase LE AI Elements 7.0.6 build 2231 [En]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cubase Elements 7 является отличным выбором для начинающих продюсеров и музыкантов, ищущих полный пакет ПО, который предлагает множество функций прямо из коробки.
-
-Новые микшерные возможности включают MixConsole, масштабируемость, высокое качество звука (96 кГц) и гибкость маршрутизации. Микшер теперь открывается на всю высоту, как и в полной версии Cubase. Новый (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2463837AE3A004D4A57E430A5A54995C761EFDED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 762887   (832226) от 04.04.2014
-
-Кухня (2014) WEB-DLRip (Сезон 3, Серии 1-20 из 20)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой Максим Лавров — выпускник Воронежского кулинарного колледжа — одержим мечтой: стать знаменитым шеф-поваром. Для этого он отправляется в Москву, чтобы устроиться в известнейший и популярный ресторан «Клод Моне», хозяином которого является «звезда» шоу-бизнеса. Шеф-повар ресторана «Клод Моне» — знаменитый на всю Москву Виктор Баринов. Властный, харизматичный, (   Читать дальше...   )Жанр: КомедияРежиссер: Дмитрий ДьяченкоАктеры: Никита Тарасов, Дмитрий Назаров, Марк Богатырев, Дмитрий Нагиев, Юлия Такшина, Елена Подкаминская, Марина Могилевская, Сергей Лавыгин, Виктор Хориняк, Сергей Епишев, Ольга Кузьмина, Екатерина Кузнецова (IV), Михаил Тарабукин, Виктория Лукина, Елена Чернявская, Виталий Щанников, Сергей Беляев, Роман Индык, Евгения ХраповицкаяПродолжительность: 20 x ~ 00:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BF38708FBC01FE5ED3A77EFDE981212F4C8E580
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005502   (832056) от 09.04.2016
-
-Advanced Systemcare Pro 9.2.0.1110 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Advanced SystemCare проставляет собой средство оптимизации работы системы с антишпионом, защитой конфиденциальных данных, средствами для настройки производительности компьютера и очистки системы.
-Мощный инструмент оптимизации исправляет серьезные ошибки в системе, оптимизирует Интернет-соединение и скорость загрузки, в Pro-версии автоматически поддерживает максимальную (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25663E20F01C8B4F1001A98BB99132A5926D519E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005526   (832049) от 09.04.2016
-
-Sticky Password Premium 8.0.7.78 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sticky Password сохраняет и защищает все ваши персональные данные (например, пароли, имена пользователей, номера интернет-пейджеров, контактные данные, номера телефонов и т. д.). Sticky Password связывает пароли и учетные записи с программами Microsoft Windows или веб-страницами, для которых они используются.
-Вся информация в зашифрованном виде хранится в базе паролей, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6536A891621033F2A95E38B5CCF0FD1EEC75D4B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005449   (831950) от 09.04.2016
-
-Выживший / The Revenant (2015) BDRip [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831950.jpg" />
-</div>
-
-
-###  Подробнее
-
-Охотник Хью Гласс серьезно ранен на неизведанных просторах американского Дикого Запада. Товарищ Хью по отряду покорителей новых земель Джон Фицжеральд предательски оставляет его умирать в одиночестве. Теперь у Гласса осталось только одно оружие — его сила воли. Он готов бросить вызов первобытной природе, суровой зиме и враждебным племенам индейцев, только чтобы выжить (   Читать дальше...   )Производство: США / Anonymous Content, Appian Way, New Regency PicturesЖанр: Триллер, Драма, Приключения, ВестернРежиссер: Алехандро Гонсалес Иньярриту / Alejandro Gonzlez IrrituАктеры: Леонардо ДиКаприо, Том Харди, Донал Глисон, Уилл Поултер, Пол Андерсон, Лукас Хаас, Брэд Картер, Кристоффер Йонер, Брендан Флетчер, Хавьер Ботет, Кори Грим, Роберт Молони, Винсент Леклерк, Джошуа Бёрдж, МакКалеб Барнетт, Рэй Чейз, Тимоти Лайл, Эдриан Макморран, Дэйв Бурчилл, Майкл ВилларПеревод: Дублированный, Авторский одноголосыйСубтитры: Русские, английские (форсированные и полные)Продолжительность: 02:36:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9C8019A0F1F16A466216DFE0861370F02537E05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005006   (831944) от 09.04.2016
-
-Crysis (2007) [Ru] (1.2.1) Repack/Mod Agastan [HD Edition]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831944.jpg" />
-</div>
-
-
-###  Подробнее
-
-Люди не раз представляли конец света, приписывая роковую роль палача то наводнению, то страшной болезни, то ядерной войне. На деле все получилось несколько экзотичнее. Рухнувший на один из отдаленных островов астероид оказался огромным космическим кораблем, способным полностью изменить климат Земли.Тип издания: Repack / ModРазработчик: CrytekЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53BC29B9433B2D5BEB06C9F13D3EE0E52B6240EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

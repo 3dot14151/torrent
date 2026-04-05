@@ -1,3 +1,32 @@
+###  Публикация: 1568628   (459941) от 09.08.2022
+
+Sadist - Firescorched (2022) [FLAC|Lossless|image + .cue] <Technical Death Metal, Progressive Metal, Fusion>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Accabadora
+02. Fleshbound
+03. Finger Food
+04. Burial Of A Clown(   Читать дальше...   )Жанр: Technical Death Metal, Progressive Metal, FusionПродолжительность: 00:37:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:430581DF2603CD631A286FA49F13F118610D4843
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1568655   (459939) от 09.08.2022
 
 April Weeps - Outer Calm, Pain Within (2013) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Death Metal, Gothic Metal>
@@ -6,7 +35,7 @@ April Weeps - Outer Calm, Pain Within (2013) [FLAC|Lossless|WEB-DL|tracks] <Symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459939.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Tensile - Regression of Humanity (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459937.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ April Weeps - Cataclastic (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Groove, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459935.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Caught In The Act - Act 1: Relapse Of Reason (1995) Japan [FLAC|Lossless|tracks 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459934.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Debauchery vs. Blood God - Demons Of Rock 'n' Roll (2022) 2xCD [FLAC|Lossless|WE
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459930.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ My Dying Bride - Feel The Misery (2015) [FLAC|Lossless|image+.cue]<Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459901.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Aposento - Retorno a la muerte (2012) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459876.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Bob Dylan - Bob Dylan's Greastest Hits (1967) HDCD, Remastered /2012,Audio Fidel
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459845.jpg" />
 </div>
 
 
@@ -244,7 +273,7 @@ Rammstein - In Amerika (2015) Live from Madison Square Garden [FLAC|tracks|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459707.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ Titanium - Аtоmiс Number 22 (2016) Japanese Еdition [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459706.jpg" />
 </div>
 
 
@@ -302,7 +331,7 @@ The Heretic - Chemistry For The Soul (2002) [APE|Lossless|image + .cue] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459705.jpg" />
 </div>
 
 
@@ -331,7 +360,7 @@ Leverage - Circus Colossus (2009) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459696.jpg" />
 </div>
 
 
@@ -360,7 +389,7 @@ Level 42 - True Colours (1984) [FLAC|Lossless|image + .cue] <Pop Rock, Funk>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459692.jpg" />
 </div>
 
 
@@ -389,7 +418,7 @@ Symphonity - King Of Persia (2016) Jараnеsе Еditiоn [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459691.jpg" />
 </div>
 
 
@@ -418,7 +447,7 @@ Profuna Ocean - In Vacuum (2016) [FLAC|Lossless|image + .cue] <Neo Progressive>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459690.jpg" />
 </div>
 
 
@@ -447,7 +476,7 @@ Janis Joplin - Farewell Song (1982) [FLAC|Lossless|image + .cue] <Blues Rock, Cl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459520.jpg" />
 </div>
 
 
@@ -476,7 +505,7 @@ Sonata Arctica - The Ninth Hour (2016) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459386.jpg" />
 </div>
 
 
@@ -505,7 +534,7 @@ Alkonost - Песни Белой Лилии (2016) [MP3|320 Kbps] <Folk Metal, P
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459373.jpg" />
 </div>
 
 
@@ -534,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459301.jpg" />
 </div>
 
 
@@ -562,7 +591,7 @@ Andrew W.K. - Close Calls With Brick Walls (2006) Japan [FLAC|Lossless|tracks + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459236.jpg" />
 </div>
 
 
@@ -591,7 +620,7 @@ Andrew W.K. - The Wolf (2003) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459234.jpg" />
 </div>
 
 
@@ -620,7 +649,7 @@ Camel - Breathless (1978) Remaster, 1992, Dream [FLAC|Lossless|image + .cue] <Po
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459212.jpg" />
 </div>
 
 
@@ -649,7 +678,7 @@ Camel - Rain Dances (1977) Remaster, 1991, Dream [FLAC|Lossless|image + .cue] <P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459204.jpg" />
 </div>
 
 
@@ -678,7 +707,7 @@ The Union - 3 Albums (2010 - 2013) [FLAC|Lossless|tracks + .cue] <Hard Rock, Blu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459175.jpg" />
 </div>
 
 
@@ -706,7 +735,7 @@ ZZ Top - ZZ Top's First Album (1970) SHM-CD, 2013, Warner Music [FLAC|Lossless|i
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458705.jpg" />
 </div>
 
 
@@ -720,41 +749,6 @@ ZZ Top - ZZ Top's First Album (1970) SHM-CD, 2013, Warner Music [FLAC|Lossless|i
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB1231E20429BB745AF0C32CB586F6BC4CEECB8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550588   (458521) от 22.09.2012
-
-Hostsonaten - Summereve (2011) [MP3|320 кб/с]<Progressive rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458521.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Seasons's Overture (10:51)
-I.  Rite Of Summer
-II. In The Rising Sun
-III. The Last Shades Of Winter
-IV. A Church Beyond The Lake
-V. La Route Pour Finistére
-VI. Springtheme
-2. Glares Of Light (07:25)
-3. Evening Dance  (04:13)
-4. On The Sea (04:20)(   Читать дальше...   )Жанр: Progressive rockПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8458AEB98A4816965D5F6B735F427D12293F0436
 ```
 
 https://mybot314.ru/tekegram_catalog/

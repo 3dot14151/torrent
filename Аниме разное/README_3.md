@@ -1,3 +1,29 @@
+###  Публикация: 553577   (437980) от 30.09.2012
+
+Hotaru no Haka / Grave of the Fireflies /  Могила светлячков [1988] Blu-Ray 1080p raw+rus
+
+>>Аниме разное
+>>Аниме Blu-ray, Remux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437980.jpg" />
+</div>
+
+
+###  Подробнее
+
+Последние дни Второй Мировой войны. Американская авиация бомбит беззащитные японские города. В водоворот людского каждодневного кошмара попадают 14-летнии Сэйта и его сестренка Сэцуко. Понеся самую горькую утрату - потерю близких, они остались совсем одни. Юный мальчик в одночасье становится взрослым, столкнувшись с жестокостью мира. Он осознаёт, что от него зависит (   Читать дальше...   )Жанр: аниме, драма, военныйРежиссер: Исао ТакахатаАктеры: Тсутому Татсуми, Аяно Шираиши, Йошико Синохара, Акеми Ямагучи, Рода Цроситэ, Шеннон Конли, Криспин Фриман, Дэн Грин, Эми Джонс, Джордж ЛиверПеревод: Многоголосый закадровый, Одноголосый закадровыйСубтитры: Английские, Русские (МС Entertainment)Продолжительность: 01:28:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7252359088E10501468185CD6FAC3CF87991AE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249908   (430750) от 25.09.2018
 
 Shiyan Pin Jiating | Семейка Франкенштейн [2018, TV, 11 из 11] WEBRip 720p raw
@@ -6,7 +32,7 @@ Shiyan Pin Jiating | Семейка Франкенштейн [2018, TV, 11 из 
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430750.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Wang Gu Shenhua Zhi Tian Xuan Zhe | Metaman | Метачеловек: избра
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429076.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Wan Jie Xian Zong | Страна десяти тысяч чудес [2018-2019, 
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429074.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Ling Jian Zun | Spirit Sword Sovereign | Владыка духовного ме�
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429058.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422425.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ To Be Heroine | Tu Bian Ying Xiong LEAF | Стать героиней [2018, ONA
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422006.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Senjuushi | The Thousand Noble Musketeers | Тысяча благородных 
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414979.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Gin no Guardian | The Silver Guardian | Серебряный страж [TV1+TV2
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407853.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Akira | Акира [1988, Movie] Blu-Ray 1080p raw+rus
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376066.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ Autumn 2019 Anime Preview | Осень 2019 Превью Аниме [2019, об�
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372136.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ Mo Dao Zu Shi | Grandmaster of Demonic Cultivation | Магистр Дьявол
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367598.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ Crusher Joe: Hyouketsu Kangoku no Wana / Крушила Джо OVA-1 [OVA] [1 э
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364956.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ Crusher Joe: Saishuu Heiki Ash / Крушила Джо OVA-2 [OVA] [1 эп.] [З
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364845.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ Min Diao Ju Yi Wen Lu | Bureau of Paranormal Investigation | Сводки бюр
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348664.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ Japanese Anime Classic Collection / Коллекция классики япон
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333245.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ Kumo no Mukou, Yakusoku no Basho / Beyond the Clouds, The Promised Place / За 
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319521.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ Toki wo Kakeru Shoujo / The Girl Who Leapt Through Time / Девочка, пок
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314740.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ Kari-gurashi no Arietti / The Secret World of Arrietty / Ариэтти из с�
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311950.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ Sound & Fury | Sturgill Simpson Presents Sound & Fury | Звук и ярость
 >>Аниме прочее
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308939.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ No Game No Life Zero | Нет Игры - Нет Жизни: Начало [2017, 
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302749.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ Kimi no Na wa | Your Name | Твоё имя [2016, Movie] UHD BDRemux HEVC 10-bi
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285453.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ Phantom Yuusha Densetsu: Return The Sky | Фантом: Легенда о хра
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283753.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ Soutai Sekai | The Relative Worlds | Относительные миры [2017, 
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270774.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ Kaze no Tani no Nausicaa | Nausicaa from the Valley of the Wind | Навсика
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257521.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ Kaze no Tani no Nausicaa | Nausicaa from the Valley of the Wind | Навсика
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256714.jpg" />
 </div>
 
 
@@ -649,32 +675,6 @@ Kaze no Tani no Nausicaa | Nausicaa from the Valley of the Wind | Навсика
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DC41F167E52B738C35905B24A30D92B13DBEBF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 74033   (254997) от 19.04.2023
-
-Shinseiki Evangelion Gekijouban: Shi to Shinsei | Neon Genesis Evangelion: Death & Rebirth | Евангелион: Смерть и перерождение [1997, Movie] DVD5 480p raw+rus
-
->>Аниме разное
->>Аниме DVD
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254997.jpg" />
-</div>
-
-
-###  Подробнее
-
-Состоящий из двух частей полнометражный фильм является своего рода новым прочтением истории, изложенной в культовом сериале. Первая часть под названием «Смерть» - это повтор основных событий 1-24 серий «Евангелиона», позволяющий глубже проникнуть в истории пилотов и других сотрудников организации NERV. Оформлением для историй является репетиция струнного квартета, (   Читать дальше...   )Жанр: драма, фантастика, мехаРежиссер: Анно ХидэакиЯзык озвучки: Японский и РусскийСубтитры: НетПродолжительность: 1 эп. по 100 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A0BB76FA06A0AD5DF499A8A4B2FF15F7E1FB55C
 ```
 
 https://mybot314.ru/tekegram_catalog/

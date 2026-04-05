@@ -1,3 +1,32 @@
+###  Публикация: 1140820   (238299) от 30.04.2022
+
+Ингви Малмстин/Yngwie J. Malmsteen - Трилогия/Trilogy (1986) Reissue 1988 [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Hard Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238299.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Ты Не Помнишь, Я Никогда Не Забуду (You Don't Remember, I'll Never Forget)
+A2 Лжец (Liar)
+A3 Влюбленная Королева (Queen In Love)
+A4 Плач (Crying)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21C439EF8CBBA8BCAEA6448CF53FD2A93F10D798
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1639342   (238268) от 13.06.2023
 
 Clutch - Studio Albums (16 releases) (1993-2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Stoner Rock>
@@ -6,7 +35,7 @@ Clutch - Studio Albums (16 releases) (1993-2022) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_238268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_238268.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Spandau Ballet - Parade - (1984)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Elect
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238237.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ VA - В Помощь Любителям Грамзаписи. Для Прове�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238228.jpg" />
 </div>
 
 
@@ -91,7 +120,7 @@ VA - Мелодии экрана, 7 серия (1961) [FLAC 1.0|96/24|tracks|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238151.jpg" />
 </div>
 
 
@@ -120,7 +149,7 @@ Carl Perkins/Карл Перкинс - Лучшее из репертуара К
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238121.jpg" />
 </div>
 
 
@@ -149,7 +178,7 @@ Amanda Lear - Sweet Revenge (1978) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Ele
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238010.jpg" />
 </div>
 
 
@@ -178,7 +207,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237946.jpg" />
 </div>
 
 
@@ -207,7 +236,7 @@ Iron Maiden - Дискография (19 albums) (1979 - 2021)  hand made [resto
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237909.jpg" />
 </div>
 
 
@@ -236,7 +265,7 @@ The Beatles - The Beatles Hits (1991) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Bea
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237874.jpg" />
 </div>
 
 
@@ -265,7 +294,7 @@ Baccara - Baccara (1977)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237820.jpg" />
 </div>
 
 
@@ -294,7 +323,7 @@ Rena Rolska/Рена Рольска - Поет Рена Рольска (1970) [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237801.jpg" />
 </div>
 
 
@@ -323,7 +352,7 @@ VA - Убойная Сила. Любимые песни из телесериа�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237777.jpg" />
 </div>
 
 
@@ -352,7 +381,7 @@ VA - XXXL Европейский 5 (2000) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237749.jpg" />
 </div>
 
 
@@ -381,7 +410,7 @@ Poets of the Fall - Дискография (12 releases) (2005 - 2022) hand made
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237707.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ Holy Moses (& Temple Of The Absurd) - Studio Albums (16 releases) (1986-2023) ha
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237690.jpg" />
 </div>
 
 
@@ -440,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237599.jpg" />
 </div>
 
 
@@ -469,7 +498,7 @@ Dee D. Jackson - Thunder & Lightning (1980) [FLAC 2.0|192/24|image + .cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237534.jpg" />
 </div>
 
 
@@ -498,7 +527,7 @@ Dee D. Jackson - Cosmic Curves (1978) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<E
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237451.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ Helloween - Легенды Зарубежного Рока (2000) Compilation, U
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237412.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ VA - Le Canzoni D'Oggi (1987) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Italo Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237374.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ The International Pop Orchectra & Chorus - At Last 26 Non-Stop Hits For Dancing 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237318.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ INXS - Kick (1987) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip]<Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237289.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ Sentenced - Studio Albums (12 releases) (1990-2005) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237261.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ VA - Italian Hit-Parade 2 (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rips] <Italo P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237259.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ Raffaella Carra/Рафаэлла Карра - Поёт Рафаэлла Карр
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237241.jpg" />
 </div>
 
 
@@ -715,35 +744,6 @@ Raffaella Carra/Рафаэлла Карра - Поёт Рафаэлла Карр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6722F60B27957CA21FA8379CC569E108A153B068
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197473   (237227) от 05.05.2022
-
-Kenichi Sonoda & His Dixie Kings - Russian Album (1971) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Dixielend>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Очи чёрные
-02. Вот мчится тройка удалая
-03. Огонёк
-04. Вечерняя песня(   Читать дальше...   )Жанр: Jazz, DixielendПродолжительность: 00:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D36EB545F9F47FB3827664FB49B2429A3BE0DE0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

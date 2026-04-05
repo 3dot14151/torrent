@@ -1,3 +1,29 @@
+###  Публикация: 1853444   (1056460) от 13.02.2026
+
+Heroines Through My Lens (2025) [Multi] (1.0.0) License GOG
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056460.jpg" />
+</div>
+
+
+###  Подробнее
+
+Heroines Through My Lens - это возможность примерить на себя роль Кима Дживу, новичка в студии Lazaworks, чья карьера начинается с хаоса и ответственных заданий. С первого дня ему поручают фотосъемку топовых ютуберов и собственного начальства, что моментально погружает в атмосферу напряженных рабочих будней. Повествование ведется от первого лица, позволяя полностью (   Читать дальше...   )Тип издания: LicenseРазработчик: StorytacoЖанр: Приключенческие игры, Ролевые игры, СимуляторыЯзык озвучки: КорейскийЯзык субтитров: Английский, Индонезийский, Японский, Корейский и другиеЯзык интерфейса: Английский, Индонезийский, Японский, Корейский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A948FF8B6E89172A64E72798BD7C6C5EB3CFD895
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1852555   (1055964) от 08.02.2026
 
 Rising Front (2023) [Ru/Multi] (1.0) Repack FitGirl
@@ -6,7 +32,7 @@ Rising Front (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055964.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Car For Sale Simulator 2023 (2023) [Ru/Multi] (1.2.9) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055276.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055274.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Animal Shelter 2 (2025) [Ru/Multi] (1.1.0/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055138.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Chinese Frontiers (2025) [Ru/Multi] (2.1.1401) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054818.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ WolfQuest (2019) [Ru/Multi] (3.0/dlc) Repack Let'sРlay [Anniversary Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054514.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Snow Plowing Simulator (2024) [Ru/Multi] (1.1) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053921.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ PC Building Simulator 2 (2022) [Ru/Multi] (1.14.02) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053918.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ I Sell Lemonade (2025) [Ru/Multi] (.05) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053495.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Leaf Blower Co. (2025) [Ru/Multi] (2025 NL Dec 17) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053493.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Monster Mop Up (2025) [Ru/Multi] (0.8.417) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053287.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Poly Plaza ULTIMATE (2025) [Ru/Multi] (1.0.13) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053186.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Coastal Kitchen Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053055.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Barbie Horse Trails (2025) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052940.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Office Simulator (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052914.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ House Builder (2021) [Ru/Multi] (20260107/dlc) Repack seleZen [Tiny Houses]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052750.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ WW2 Rebuilder (2023) [Ru/Multi] (20250109/dlc) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051982.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Animal Shelter 2 (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051933.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ AstroPlanet (2025) [Ru/En] (1.2.5) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051932.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ ServiceIT: You can do IT (2024) [Ru/Multi] (1.06) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051754.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ City Transport Simulator: Bus + Tram (2025) [Ru/Multi] (1.4.0/dlc) Repack FitGir
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051621.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Aquarist (2024) [Ru/Multi] (1.0161) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051111.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ ECHELON (1988) [En] (3.40) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050801.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Discounty (2025) [Multi] (1.0.16/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050734.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Potion Craft: Alchemist Simulator (2022) [Ru/Multi] (2.0.2.0) Repack Wanterlude
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049726.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Potion Craft: Alchemist Simulator – проработанный симулят�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C41949143943DA3BFBD7F6E793BB12450A291A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843399   (1049436) от 20.12.2025
-
-PlateUp! (2022) [Ru/Multi] (1.4.1) Repack Pioneer
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049436.jpg" />
-</div>
-
-
-###  Подробнее
-
-PlateUp! - это необычный игровой «винегрет» в духе roguelite, в котором кухонная суматоха и обязанности ресторатора удачно гармонируют со стратегическим планированием и развитием. Вы строите ресторан и управляете им с нуля, выбираете блюда, покупаете и размещаете кухонные приборы, которые, возможно, вам удастся подключить друг к другу для создания масштабных автоматических (   Читать дальше...   )Тип издания: RepackРазработчик: It's happeningЖанр: Экшены, Казуальные игры, Инди, СтратегииЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9B07FE6116A184A1691BD88C4ED82AF0315636E
 ```
 
 https://mybot314.ru/tekegram_catalog/

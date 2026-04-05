@@ -1,84 +1,3 @@
-###  Публикация: 450941   (75508) от 11.02.2012
-
-Уловка .44 / Catch .44 (2011) DVD5
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тес, Доун и Кара — три девушки, зарабатывающие на кусок хлеба в Вегасе. Однажды их жизни круто меняют свой плавный ход, превращаясь в сюжет самой настоящей детективной истории. Это происходит после случайного знакомства Тес со странным незнакомцем по имени Мэл, который предлагает девушкам шанс на лучшую жизнь через совершение «маленького правонарушения».
-
-Не долго (   Читать дальше...   )Производство: Annapurna Productions / Emmett/Furla Films / Benaroya Pictures / Waterfall Media / Sakonnet Capital PartnersЖанр: Триллер, Драма, КриминалРежиссер: Аарон ХарвиАктеры: Форест Уитакер, Брюс Уиллис, Малин Акерман, Никки Рид, Дебора Энн Уолл, Брэд Дуриф, Рейла Афродит, Кевин Бирд, Аманда Босли, Эрик Браун ...Перевод: Многоголосый закадровый, профессиональныйСубтитры: Вшитые отключаемыеЯзык субтитров: русскийПродолжительность: 01:29:45
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 450297   (75338) от 10.02.2012
-
-Супербратья Марио / Super Mario Bros (1993) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два водопроводчика из Бруклина (Хоскинс и Легуизамо) попадают в подземный мир, где живут некие отбросы эволюции, родичи динозавров. Неунывающие американские "Афони" спасают принцессу Дэйзи (Мэтис) и расправляются с жестоким диктатором Купой (Хоппер)...
-Бездна изобретательности и фантазии! Например, "кумбы", неуклюжие симпатяги с крошечными головами. Юмор и безупречный вкус авторов придают этой ленте особый шарм, свойственный cult movies. Остается добавить, что сюжет и герои позаимствованы из популярной компьютерной игры фирмы Нинтендо.Жанр: Фэнтези, КомедияРежиссер: Рокки Мортон /Rocky Morton/, Эннабел Янкел /Annabel Jankel/Актеры: Боб Хоскинс (Bob Hoskins), Джон Легуизамо (John Leguizamo), Деннис Хоппер (Dennis Hopper), Сэмэнта Мэтис (Samantha Mathis), Фишер Стивенс (Fisher Stevens), Файона Шо (Fiona Shaw), Ричард Эдсон (Richard Edson), Дэйна Камински (Dana Kaminski)Перевод: Михалев / Горчаков / Пронин / Многоголосный закадровыйПродолжительность: 01:44:30
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 449938   (75181) от 09.02.2012
-
-Ромовый дневник / The Rum Diary (2011) DVD5
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75181.jpg" />
-</div>
-
-
-###  Подробнее
-
-1960-й год. Талантливый журналист Пол Кэмп, которого достала лживая глянцевая жизнь Нью-Йорка, бросает работу в престижном издании и уезжает в Пуэрто-Рико, где ром льется рекой, где дешево все — машины, яхты, девушки, здесь саму жизнь продают за копейки…Производство: СШАЖанр: Драма, Комедия, ПриключенияРежиссер: Брюс РобинсонАктеры: Джонни Депп, Майкл Рисполи, Аарон Экхарт, Эмбер Хёрд, Джованни Рибизи, Ричард Дженкинс, Амори Ноласко, Маршалл Белл, Билл Смитрович, Джулиан ХоллоуэйПеревод: ДублированныйЯзык субтитров: РусскийПродолжительность: 01:54:43
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 448466   (75107) от 09.02.2012
 
 Идентификация / Identity (2003) DVD5
@@ -87,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75107.jpg" />
 </div>
 
 
@@ -115,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74330.jpg" />
 </div>
 
 
@@ -141,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74144.jpg" />
 </div>
 
 
@@ -167,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_73763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_73763.jpg" />
 </div>
 
 
@@ -193,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64295.jpg" />
 </div>
 
 
@@ -220,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64246.jpg" />
 </div>
 
 
@@ -246,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64210.jpg" />
 </div>
 
 
@@ -274,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64202.jpg" />
 </div>
 
 
@@ -300,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64155.jpg" />
 </div>
 
 
@@ -326,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64101.jpg" />
 </div>
 
 
@@ -352,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64098.jpg" />
 </div>
 
 
@@ -378,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64093.jpg" />
 </div>
 
 
@@ -404,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64090.jpg" />
 </div>
 
 
@@ -432,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63827.jpg" />
 </div>
 
 
@@ -459,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60471.jpg" />
 </div>
 
 
@@ -485,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54615.jpg" />
 </div>
 
 
@@ -511,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49685.jpg" />
 </div>
 
 
@@ -537,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44027.jpg" />
 </div>
 
 
@@ -564,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25179.jpg" />
 </div>
 
 
@@ -590,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5074.jpg" />
 </div>
 
 

@@ -1,3 +1,73 @@
+###  Публикация: 588655   (215690) от 13.12.2012
+
+VA - DJ Beauty - Бигуди (2007) [MP3|320 кб/с]<Electro, Techno, Breakbeat>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beauty & Tapolsky - Rain [04:04]
+02. Finder & Folsky - Smile (Electro Dub Mix) [04:50]
+03. Chumahod - BDG [06:24]
+04. Access Denied - Irish Fary Tales [07:07]
+05. Fon'Enman - Valeri (Original Mix) [07:03]
+06. Max Creative - Mako [05:37]
+07. Reaver & D.Stuff - Mint Fog [07:24]
+08. Antoine Caesar - Losing My Feelings [08:23]
+09. Spartaque - Kira (Original Mix) [05:24]
+10. Reaver & D.Stuff - Milk Rain (Fon'Enman Remix) [06:17](   Читать дальше...   )Жанр: Electro, Techno, BreakbeatПродолжительность: 01:19:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB7D854B6EB064E1C40E08B95A09381944B551D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 588878   (215603) от 13.12.2012
+
+VA - Winter Chillout Lounge (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bay Area - Celtic Trace (Triaphon Trip)
+02. Kosta Rodrigez - Gale in the Waterglass (Long Beach Cut) (feat. Amy)
+03. Cafe Americaine - Kashmir Wanderer (Nylons Cut)
+04. Frank Borell - You Are the One (Far Away Mix) (feat. Oliver)
+05. Manoa - Repeat It in Slow Motion (Trippin Clouds Mix)
+06. Jazz City - City Lights (Midnight Dream Mix)
+07. Noise Boyz - The Girl (Mystic Eyes Mix)
+08. Dreamscape - Electric Emotion (Mystic Steps Mix)
+09. Cocogroove - Tahatika (Ethnic Mix)
+10. Manoa - Feel Free (Electric Feel Mix)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 02:45:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C0AA5C032CCCDDF3CA6A05D74587A93101306EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1270025   (215493) от 17.12.2018
 
 VA - Trance Mix Most Rated (2018) [MP3|320 Kbps] <Trance, Electro>
@@ -6,7 +76,7 @@ VA - Trance Mix Most Rated (2018) [MP3|320 Kbps] <Trance, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215493.jpg" />
 </div>
 
 
@@ -35,7 +105,7 @@ VA - Top50: Tracks Deep House Ver.7 (2018) [MP3|320 Kbps] <House, Deep House, Pr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215484.jpg" />
 </div>
 
 
@@ -64,7 +134,7 @@ VA - TOP Non-Stop 2000-2009 - Dance House Music (2018) [MP3|192-320 Kbps] <Disco
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215370.jpg" />
 </div>
 
 
@@ -93,7 +163,7 @@ VA - Trance Colors 2 (2022) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215354.jpg" />
 </div>
 
 
@@ -122,7 +192,7 @@ VA - Beatport Drum And Bass: Electro Sound Pack #203.2 (2020) [MP3|320 Kbps] <Dr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215006.jpg" />
 </div>
 
 
@@ -151,7 +221,7 @@ VA - Mix Of The Month: Techno & Minimal Selection (2019) [MP3|320 Kbps] <Techno,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214989.jpg" />
 </div>
 
 
@@ -180,7 +250,7 @@ VA - Portal: New Synthwave Music (2019) [MP3|320 Kbps] <Synthwave, Synthspace, E
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214806.jpg" />
 </div>
 
 
@@ -209,7 +279,7 @@ VA - Record Super Chart 616 (2019) [MP3|320 Kbps] <Pop, House, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214785.jpg" />
 </div>
 
 
@@ -238,7 +308,7 @@ VA - Beatport Electro House December Pack #02 (2019) [MP3|320 Kbps] <Electro Hou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214752.jpg" />
 </div>
 
 
@@ -267,7 +337,7 @@ VA - World of Electronic Music Vol.2 (2019) [MP3|320 Kbps] <Synthpop, Futurepop,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214681.jpg" />
 </div>
 
 
@@ -296,7 +366,7 @@ VA - Herbal Ambient Sound (Vol.02) (2021) [MP3|320 Kbps] <Ambient, New Age>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214008.jpg" />
 </div>
 
 
@@ -325,7 +395,7 @@ VA - Beatport Deep House: Sound Pack #380 (2021) [MP3|320 Kbps] <Deep House, Ele
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213991.jpg" />
 </div>
 
 
@@ -354,7 +424,7 @@ VA - Selection Drum Box (2021) [MP3|320 Kbps] <Drum And Bass, Electro Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213958.jpg" />
 </div>
 
 
@@ -383,7 +453,7 @@ VA - Beatport Progressive Trance: Sound Pack #379 (2021) [MP3|320 Kbps] <Trance,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213920.jpg" />
 </div>
 
 
@@ -412,7 +482,7 @@ VA - World of Electronic Music Vol.3 (2019) [MP3|320 Kbps] <Synthpop, Futurepop,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213606.jpg" />
 </div>
 
 
@@ -441,7 +511,7 @@ VA - World of Electronic Music Vol.4 (2019) [MP3|320 Kbps] <Synthpop, Futurepop,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213580.jpg" />
 </div>
 
 
@@ -470,7 +540,7 @@ ReteoX - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Electronic, Vocal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213482.jpg" />
 </div>
 
 
@@ -499,7 +569,7 @@ VA - Trance In Motion Vol.360 (2023) [MP3|320 Kbps|image + .cue] <Trance, Progre
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211631.jpg" />
 </div>
 
 
@@ -528,7 +598,7 @@ VA - Best Of Aly & Fila (Compiled & Mixed by Divine) (2023) [MP3|320 Kbps] <Tran
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211411.jpg" />
 </div>
 
 
@@ -557,7 +627,7 @@ VA - Record Super Chart 17.06.2023 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211183.jpg" />
 </div>
 
 
@@ -586,7 +656,7 @@ VA - Nothing But... Ibiza Summer Trance (Extended Versions) (2023) [MP3|320 Kbps
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210703.jpg" />
 </div>
 
 
@@ -615,7 +685,7 @@ VA - Summer Party 2023 [MP3|320 Kbps] <House, Deep House, Dance, Club>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210358.jpg" />
 </div>
 
 
@@ -644,7 +714,7 @@ VA - DOWN LOW 4 (2023) [MP3|320 Kbps] <G-House, Bass Progressive, Other>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210303.jpg" />
 </div>
 
 
@@ -673,7 +743,7 @@ VA - Summer House Collection (Compiled by ZeByte) (2017) [MP3|320 Kbps] <Tropica
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_210015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210015.jpg" />
 </div>
 
 
@@ -687,64 +757,6 @@ VA - Summer House Collection (Compiled by ZeByte) (2017) [MP3|320 Kbps] <Tropica
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B71B35D8228F0D2463E76CDD493FE4CA996EFCCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645639   (209098) от 12.07.2023
-
-VA - Trance In Motion Vol.362 (2023) [MP3|320 Kbps|image + .cue] <Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John O'Callaghan Official, Tom Colontonio & Sinéad McCarthy - Reality (Extended Mix)
-02. Suncatcher & Exolight & Frank Waanders - Watermelon (Extended Mix)
-03. FAWZY MUSIC & Daniel Kandi & Nick V - Reverie (Extended Mix)
-04. Miditekk Music - Slow The World Down (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:31:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0BDEACA21F8B96AFC20EA8C40E4518B048EE878
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645763   (209077) от 12.07.2023
-
-VA - 60 minutes. Old School Dance Music vol.19 (mixed by Dj V) (2023) [MP3|320 Kbps] <Euro Trance, Progressive Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Ridgewalkers feat. El - Find (Kyau vs. Albert Remix)
-02-Libra pres. Taylor feat. Jan Johnston - Anomaly (Calling Your Name) (Granny's Epicure Remix)
-03-King Of Clubs - Revelation (Atlantic City Remix)
-04-Georgia - Ode To '99(   Читать дальше...   )Жанр: Euro Trance, Progressive Trance, Vocal TranceПродолжительность: 01:00:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C18AC2076CBABC4A153FE38A5B41F48D7BB0CA7
 ```
 
 https://mybot314.ru/tekegram_catalog/

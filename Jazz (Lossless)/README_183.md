@@ -6,7 +6,7 @@ Duke Ellington - Unknown Session (1960) 1991, Columbia[FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440116.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Peggy Lee - Pretty Eyes & Guitars Ala Lee (1960, 1966) 1999, EMI[FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440115.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Bruce Barth - Live At The Village Vanguard (2002) MaxJazz [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440051.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Julian & Roman Wasserfuhr - Landed in Brooklyn (2017) ACT Music [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440048.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Euge Groove - Slow Jams (2019) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440026.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Bill Evans & Jimm Hall - Undercurrent (1962) 1986, Toshiba [FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439896.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Caravan Palace - Chronologic (2019) [FLAC|Lossless|WEB-DL|tracks] <Future Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439849.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Nina Simone - The Colpix Singles (1959 - 1964) 2CD, 2018, Stateside [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439831.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Sidney Bechet - The Best of Sidney Bechet (1939 - 1953) 1994, Blue Note Records 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438633.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Ella Fitzgerald - Oh, Lady, Be Good!: Best of the Gershwin Songbook (1959) 1996,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438542.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Art Blakey & The Jazz Messengers - A Day With Art Blakey, Vol.I (1961) 1987, Int
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438474.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Joey DeFrancesco + The People - Project Freedom (2017) Mack Avenue [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438132.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Freddie Hubbard - The Body & The Soul (1963) 1996, GRP Records [FLAC|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438030.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Arianna Neikrug - Changes (2018) Concord Jazz [FLAC|Lossless|tracks + .cue] <Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438023.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Katica Illenyi & Friends (2017) IKP Music [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438018.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Peggy Lee - Extra Special! & Somethin' Groovy! (1967) 1998, EMI[FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437843.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Mel Torme - Prelude To A Kiss (1958) 1996, Simitar Records[FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437842.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Peggy Lee - These Foolish Things & Other Great Standards (1945) 1995, Hallmark R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437841.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Coleman Hawkins - April In Paris Featuring Body And Soul (1939-1956) 1992, BMG[F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437840.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Peggy Lee - In Love Again! & In The Name Of Love (1964) 1999, EMI[FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437839.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Peggy Lee - Sings For You (1952-1955) 1992, Avid Records[FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437836.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Stan Getz Quartet 1960 - Live In Amsterdam, Dusseldorf & Zurich (1960) Remaster,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437835.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Peggy Lee - Things Are Swingin' & Jump For Joy (1959) 1996, EMI[FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437834.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Artie Shaw - What Is This Thing Called Love (1945, 1946) 1997, President Records
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437833.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Gordon Goodwin's Big Phat Band - Wrap This! - A Big Phat Christmas (2015) [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437832.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Janet Klein And Her Parlor Boys - Whoopee! Hey! Hey! (2010) Coeur De Jeanette Pr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437829.jpg" />
 </div>
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1363840   (879620) от 06.04.2020
+
+SimAirport (2020) [Ru/Multi] (1.0/upd1/dlc) Repack Other s
+
+>>След.
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879620.jpg" />
+</div>
+
+
+###  Подробнее
+
+В SimAirport вам предстоит создать и управлять собственным аэропортом. Международная авиагавань или региональная - решать только вам. Постройте свой терминал, наймите персонал, подписывайте контракты с авиакомпаниями, настройте ежедневное расписание рейсов, настройте доступность запасных ворот, спланируйте и спроектируйте свою инфраструктуру - системы обработки багажа, (   Читать дальше...   )Тип издания: RepackРазработчик: LVGameDev LLCЖанр: Simulator, Strategy, ManageЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FBACFCA0180A052920FAAC49B7A38766C19111F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996616   (878533) от 14.03.2016
 
 Farming Simulator 15 (2014) [Ru/Multi] (1.4.2/dlc) License SKIDROW [Gold Edition]
@@ -6,7 +32,7 @@ Farming Simulator 15 (2014) [Ru/Multi] (1.4.2/dlc) License SKIDROW [Gold Edition
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878533.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ Farming Simulator 15 (2014) [Ru/Multi] (1.4.2.0/dlc) Repack R.G. Механик�
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878430.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Farming Simulator 17 (2016) [Ru] (1.4.2/dlc) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877534.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Farming Simulator 15 (2015) [Ru/Multi] (1.4.2/dlc) Repack xatab [Gold Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876565.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ Emergency Room: Code Red  / Скорая Помощь 3 [Ru] (L) 2001/2005
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870647.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ Professional Farmer 2017 (2016) [En/Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860411.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860107.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ Forestry 2017 - The Simulation (2016) [Ru/Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858623.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ Judgment: Apocalypse Survival Simulation (2018) [Ru/Multi] (1.1.4215/dlc) Repack
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858123.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ Radio Commander (2019) [Ru/Multi] (1.122/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858117.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ Accident (2021) [Ru/Multi] (1.63) License DOGE
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857422.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ SnowRunner (2020) [Ru/Multi] (15.0/dlc) Repack R.G. Механики [Premium Ed
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857409.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ Orwell (2016) [En] (1.1.6254.19879) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849791.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ Spintires: The Original Game (2014) [Ru/Multi] (1.4.5) Repack =nemos=
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847802.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ Tank Mechanic Simulator (2020) [Ru/En] (1.1.0) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844266.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ Bus Driver Simulator 2019 (2019) [Ru/Multi] (5.9/dlc) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842284.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ Serin Fate (2021) [En] (1.0.22) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833206.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ Euro Fishing (2015) [En/Multi] (1.0/upd2) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828207.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ Virtual Rides 3  (2017) [Multi] (1.0.1) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827616.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ Emergency 2017 (2016) [Ru] (3.0.2) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825821.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ Car Mechanic Simulator 2015 (2015) [Ru/Multi] (1.1.1.4/dlc) SteamRip Let'sPlay [
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823963.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ Bus Simulator 16 (2016) [Ru/Multi] (1.0.0.768.7023/dlc) Repack R.G. Механи
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816849.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ Youtubers Life 2 (2021) [Ru/Multi] (1.2.1.3) License DOGE
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813534.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ Train Mechanic Simulator 2017 (2017) [Ru/Multi] (1.0.16) License HI2U
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812556.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ WolfQuest (2015) [En] (2.7.1p3a) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811062.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ WolfQuest — игра-симулятор жизни волка в Зоопар�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F38F4A731D511A2B2B935954CFDEF83225EC69F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120907   (800940) от 01.04.2017
-
-X-Plane 11 (2017) [Ru/Multi] (1.0.110025) License CODEX
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800940.jpg" />
-</div>
-
-
-###  Подробнее
-
-X-Plane 11 является последней версией в тренажере серии полета для систем Windows, Mac и Linux. В этом тренажере, есть целый мир , чтобы обнаружить. Благодаря своей открытой структуре, все пользователи и энтузиасты могут изменить каждую часть и адаптировать ее к своим предпочтениям.11 выпуск X-Plane предлагает гораздо более реалистичный и захватывающий опыт.Тип издания: LicenseРазработчик: Laminar ResearchЖанр: Flight simulatorЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F97808F83061D835CADF93F90393201233804FCA
 ```
 
 https://mybot314.ru/tekegram_catalog/

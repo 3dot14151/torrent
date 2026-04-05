@@ -1,4 +1,56 @@
 https://t.me/izofen
+###  Публикация: 1863248   (1063868) от 
+
+Габриэль и я / Gabriel & Me (2001) DVDRip [АVO]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063868.jpg" />
+</div>
+
+
+###  Подробнее
+
+У 11-летнего Джимми неизлечимо болен отец. Но однажды мальчик сталкивается с ангелом - Габриэлем и решает, что если он научится летать как Габриэль, он сможет спасти своего умирающего отца...Производство: Великобритания / British ScreenЖанр: драмаРежиссер: Юдайан ПрасадАктеры: Иэн Глен, Дэвид Брэдли, Рози Роуэлл, Билли Коннолли, Йен Каллен, Шон Фоли, Тревор Фокс, Брайди Хейлс, Никки ХайерПеревод: Авторский (Сергей Кузнецов)Язык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:23:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F00C40F3C2BC22C5D6269CFC334FED002F731EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862278   (1063476) от 
+
+Мой маленький пони: Дружба - это чудо / My Little Pony: Friendship Is Magic (2010) VHSRip [H.264] (сезон 1, серии 1-22 из 26) NeoVHS (обновляемая)
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главная героиня — единорог по имени Твайлайт Спаркл, ученица Принцессы Селестии, которая всё время сидела за книгами и не желала ни с кем общаться. Видя, как героиня зарылась с головой в учёбу, Принцесса даёт ей задание найти друзей и посылает Твайлайт и её ассистента, дракона по имени Спайк, в Понивилль. Там она встречает разных пони, своих новых друзей: задиристую (   Читать дальше...   )Производство: США, Канада, Филиппины / Allspark Animation, Studio B ProductionsЖанр: мультфильм, мюзикл, детский, фантастика, фэнтези, драма, комедия, приключенияРежиссер: Лорен Фауст, Джейсон Тиссен, Джеймс ВуттонАктеры: Эшли Болл, Табита Сен-Жермен, Тара Стронг, Андреа Либман, Кэти Уэслак, Николь Оливер, Мишель Кребер, Шеннон Чан-Кент, Келли Шеридан, Питер НьюПеревод: Одноголосый любительский (NeoVHS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EE63E3B0ED996BBB4F63874B64AA7FAC001C50A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1859004   (1060967) от 13.03.2026
 
 Лохматый спецназ / Good Boy! (2003) DVDRip [MVO]
@@ -7,7 +59,7 @@ https://t.me/izofen
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060967.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060965.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057156.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055034.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054545.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051223.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050602.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048906.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047850.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046094.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044973.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043575.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041537.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041437.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040469.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040459.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040426.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039630.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036681.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035310.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029996.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027623.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024466.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021747.jpg" />
 </div>
 
 
@@ -618,59 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83B276726A5AACA0B383254EA417D0B7015C1829
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466617   (1018415) от 30.04.2021
-
-Том и Джерри / Tom and Jerry (2021) WEB-DLRip [H.264]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кайла, сотрудница престижного отеля, где обитает мышонок Джерри, рискующий нарушить ход дорогой свадьбы, нанимает уличного кота Тома, чтобы разобраться с наглым грызуном. Но решить эту проблему не так-то просто.Производство: Великобритания, США / Warner Animation Group, Hanna-Barbera Productions, Keylight ProductionsЖанр: Комедия, приключения, семейный, мультфильмРежиссер: Тим СториАктеры: Хлоя Грейс Морец, Майкл Пенья, Джордан Болджер, Роб Делани, Пэтси Ферран, Паллави Шарда, Колин Жост, Соми Гуха, Аджай Чабра, Патрик ПолеттиПеревод: Дублированный (iTunes)Язык озвучки: РусскийСубтитры: Русские (Forced, Full)Продолжительность: 01:41:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8A49D6C00F274E499FA2F402D3BF4B8D9D86836
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466766   (1018253) от 01.05.2021
-
-Бесконечная история / Die unendliche Geschichte (1984) BDRip
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Убегая от школьных хулиганов, 10-летний Бастиан спрятался в старой книжной лавке, где нашел таинственную книгу, изукрашенную орнаментом. Открыв ее, Бастиан попал в призрачный фантастический мир бегающих улиток, летающих собак, бескрылых Драконов Удачи, проказливых эльфов и ходячей каменоломни по имени Камнекус.
-Но волшебной стране Фантазии и ее правительнице, Девочке-Императрице, (   Читать дальше...   )Производство: Германия (ФРГ), США /  Constantin Film, Bavaria Studios, Westdeutscher Rundfunk (WDR)Жанр: фэнтези, драма, приключения, семейныйРежиссер: Вольфганг ПетерсенАктеры: Бэррет Оливер, Джералд МакРэйни, Драм Гаррет, Дэррил Кукси, Николас Гилберт, Томас Хилл, Дип Рой, Тило Прюкнер, Моузес Ганн, Ноа ХэтэуэйПеревод: Многоголосый профессиональныйСубтитры: русские, английские (отдельными файлами)Продолжительность: 01:34:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61C20F43CCB635FA20447FF09B611637C9511B97
 ```
 
 https://mybot314.ru/tekegram_catalog/

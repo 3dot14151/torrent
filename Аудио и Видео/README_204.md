@@ -6,7 +6,7 @@
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351453.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351447.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351371.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351361.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Gorillaz - Song Machine, Season One: Strange Timez (2020) [AAC|~270 Kbps] <Elect
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351359.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351351.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351303.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351283.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351096.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351087.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350673.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349880.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349867.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349838.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349834.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349761.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349746.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349742.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349485.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Act of Creation - The Uncertain Light (2020) [AAC|~335 Kbps] <Melodic Death Meta
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349415.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349410.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349298.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349124.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349094.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347486.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347275.jpg" />
 </div>
 
 

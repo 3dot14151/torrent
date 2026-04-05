@@ -1,177 +1,3 @@
-###  Публикация: 1654776   (204655) от 24.08.2023
-
-Requiem - POPulist Agendas (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tired, Hot and Bothered [00:04:11]
-02. Suddenly I Have A Dreadful Urge To Be Happy [00:03:17]
-03. Things That Mark Twin Didn't Say [00:03:33]
-04. I Can't Help But Feel I'm Starting To Lose The War [00:03:59](   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B87B952E82CC23669A7158E5CD3AAAD1DF816CCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655330   (204574) от 25.08.2023
-
-Руки Вверх! - Здравствуй, это я... (2000) Remastered, 2023, Maschina Records [FLAC|Lossless|image + .cue] <Euro House, Electronic>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ай-яй-яй (3:48)
-02. Он не любит тебя (4:11)
-03. Киска-Любовь (3:48)
-04. Прости (4:07)(   Читать дальше...   )Жанр: Euro House, ElectronicПродолжительность: 00:50:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C321CD26AB1D4208112A1294DA3423065AD7187
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655171   (204533) от 25.08.2023
-
-Goombay Dance Band - Sun Of Jamaica (1980) 3CD, Deluxe Edition, 2023, Aviator-Entertainment [FLAC|Lossless|WEB-DL|tracks] <Electronic, Latin, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-CD-01 - Sun Of Jamaica (Deluxe Edition)
-CD-02 - Sun Of Jamaica (Deluxe Edition)
-CD-03 - Sun Of Jamaica (Deluxe Edition)Жанр: Electronic, Latin, DiscoПродолжительность: 3 CD, 02:08:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B589CB2BB84B5350B536F9E6577DE14D67D4F58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655297   (204485) от 25.08.2023
-
-Supermax - Meets The Almighty (1981) Remastered, 2005, CD-Maximum [FLAC|Lossless|tracks + .cue]<Electronic, Pop, Funk, Reggae>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. As Long As There Is You
-02. Tonight
-03. Hammer
-04. Today I Fall In Love Again(   Читать дальше...   )Жанр: Electronic, Pop, Funk, ReggaeПродолжительность: 01:18:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A4D050E6FDE30DD6ECC6FAFD1605DBE62029CC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655609   (204186) от 27.08.2023
-
-Лариса Черникова - Лучшие песни (2017) Remastered, 2023, United Music Group [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Влюблённый самолёт (Remastered 2023) [00:04:11]
-02. Розовые очки (Ты не приходи) (Remastered 2023) [00:03:54]
-03. Вспоминать и не надо (Remastered 2023) [00:03:45]
-04. Да ты не смейся (Remastered 2023) [00:04:35](   Читать дальше...   )Жанр: PopПродолжительность: 02:24:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E53C0E9919E60C79EC2EFE566510B45ABDBFED29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605370   (203936) от 17.01.2023
-
-VA - Лучшие песни 1969-1980 В.И.А. 70-х Vol.3 (1995) [MP3|320 Kbps] <Ретро> [MP3|320 Kbps] <Ретро>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Веселые ребята - Отчего
-02. Лейся, песня - Песенка про сапожника
-03. Синяя птица - Ты мне не снишься
-04. Весёлые ребята - Алешкина любовь(   Читать дальше...   )Жанр: РетроПродолжительность: 01:00:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A3F158E713FCC8D40375003A5871481612F5E70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1655965   (203927) от 28.08.2023
 
 Italove - Chasing Ghosts (The Second Album) (2023) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
@@ -180,7 +6,7 @@ Italove - Chasing Ghosts (The Second Album) (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203927.jpg" />
 </div>
 
 
@@ -209,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203662.jpg" />
 </div>
 
 
@@ -236,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203520.jpg" />
 </div>
 
 
@@ -265,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203471.jpg" />
 </div>
 
 
@@ -294,7 +120,7 @@ VA - Romantic Collection. More Gold (1998) [OGG Vorbis|480 Kbps] <Rock, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203007.jpg" />
 </div>
 
 
@@ -323,7 +149,7 @@ VA - Best Summer Playlist (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202877.jpg" />
 </div>
 
 
@@ -352,7 +178,7 @@ Demis Roussos - Complete 28 Original Albums (2016) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202656.jpg" />
 </div>
 
 
@@ -381,7 +207,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202622.jpg" />
 </div>
 
 
@@ -410,7 +236,7 @@ VA - 80s Gold (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202560.jpg" />
 </div>
 
 
@@ -439,7 +265,7 @@ Mylene Farmer - L’emprise (2022) [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202554.jpg" />
 </div>
 
 
@@ -468,7 +294,7 @@ Toto Cutugno - Maestro Collection (2012) [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202294.jpg" />
 </div>
 
 
@@ -497,7 +323,7 @@ t.A.T.u. - Dangerous and Moving (2005) Deluxe Remastered Edition, 2025, Universa
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201875.jpg" />
 </div>
 
 
@@ -526,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201660.jpg" />
 </div>
 
 
@@ -555,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201635.jpg" />
 </div>
 
 
@@ -584,7 +410,7 @@ VA – Мамина пластинка 2. Лучшие хиты 70х-80х (2003)
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201614.jpg" />
 </div>
 
 
@@ -613,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201523.jpg" />
 </div>
 
 
@@ -642,7 +468,7 @@ VA - NRJ Hit List (2023) [MP3|320 Kbps] <Europop, Synthpop, Dancehall, Afrobeat>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201372.jpg" />
 </div>
 
 
@@ -671,7 +497,7 @@ VA - Pop Stars (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201330.jpg" />
 </div>
 
 
@@ -700,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201172.jpg" />
 </div>
 
 
@@ -729,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201146.jpg" />
 </div>
 
 
@@ -743,6 +569,183 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B471AD30D58DE992E8E8C7D97D3A66FED0C795B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489422   (200754) от 27.03.2023
+
+Kim Wilde - Pop Don't Stop (Greatest Hits) [2CD] (2021) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Second Time (7' Version)_ (3:47)
+02. Never Trust A Stranger (7' Version)_ (4:06)
+03. Million Miles Away (7' Version)_ (4:13)
+04. Another Step (Closer To You) (7' Version)_ (3:32)(   Читать дальше...   )Жанр: PopПродолжительность: 02:32:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E758976084362D4B595D6F233D086C9211EC06C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623074   (200586) от 31.03.2023
+
+Дискотека Авария - Воля и разум (Cover Ария) (2023) Single [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200586.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Воля и разумЖанр: PopПродолжительность: 00:03:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2CFF7765840B626A80A00A952CDB70A1FC18990
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623620   (200501) от 02.04.2023
+
+Татьяна Анциферова - 4 Альбома (1996 - 2008) [MP3|320 Kbps] <Советская эстрада, Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Узнай меня
+02. Он пришел
+03. Рассвет-закат
+04. Ну чем она лучше?(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 03:58:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0476FC7D5F53B04B33779D43CF752E113A11DA2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 167797   (200331) от 03.04.2023
+
+Руки Вверх - Здравствуй, это я (2000) [FLAC|Lossless] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Ай-яй-яй (3:46)
+02.Он не любит тебя (4:12)
+03.Киска-любовь (3:50)
+04.Прости (4:05)(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:787B38D07AA341E51A1703425862AA283BD11B54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 32056   (200326) от 03.04.2023
+
+Олег Анофриев - Есть только миг... (1995) [APE (image +.cue)] <Pop, Retro>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Это было недавно (из к-ф "Друзья и годы")
+02. Песня из к-ф "Путь к причалу"
+03. Песня из к-ф "Там, где кончается асфальт"
+04. Весенняя песенка(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDE1B46CECBA1A539887084EBB8265D58A5AB661
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531588   (200107) от 08.04.2023
+
+Веселые ребята - Напиши Мне Письмо (2012) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Летайте самолетами Аэрофлота (3:16)
+02. Дальняя песня (3:29)
+03. Дружить нам надо (3:54)
+04. Счастливый случай (3:49)
+05. Проходят годы (3:05)
+06. Утро (1:47)
+07. Золотой ключик (3:16)
+08. Вот и все (5:12)
+09. Напиши мне письмо (3:17)
+10. Тонкий лед (3:13)(   Читать дальше...   )Жанр: PopПродолжительность: 01:03:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:521113C22730B619931A5FAF246F4457012CFA48
 ```
 
 https://mybot314.ru/tekegram_catalog/

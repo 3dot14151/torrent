@@ -1,32 +1,3 @@
-###  Публикация: 1802319   (14412) от 16.06.2025
-
-Smoulder - Times of Obscene Evil and Wild Daring (2019) [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Heavy, Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14412.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Ilian of Garathorm (06:22)
-A2. The Sword Woman (05:29)
-A3. Bastard Steel (06:04)
-B1. Voyage of the Sunchaser (05:57)(   Читать дальше...   )Жанр: Epic Heavy, Doom MetalПродолжительность: 00:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5DC5BD2B2D8E79A0EE47A020B7A2C217A390187
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802287   (14411) от 16.06.2025
 
 Neil Young + Promise of the Real - The Visitor (2017) [FLAC 24/192|Lossless|WEB-DL|tracks] <Country Rock, Roots Rock, Folk Rock>
@@ -35,7 +6,7 @@ Neil Young + Promise of the Real - The Visitor (2017) [FLAC 24/192|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14411.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Girls Aloud - The Girls Aloud Show (Live) (2025) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14407.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Brandee Younger - Gadabout Season (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Co
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14406.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ The Blue Stones - METRO (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14399.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Paul McCartney (Пол Маккартни) - Снова в СССР (1989) [FLAC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14222.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Manowar - Kings of Metal (1988)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Heavy, Pow
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13990.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Joe Bonamassa - Trigger Finger (2025) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13890.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Alestorm - Studio Albums (9 releases) (2008-2025) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13718.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13571.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Sodom - Studio Albums (17 releases) (1986-2025) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13315.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Barbra Streisand - The Secret Of Life: Partners, Volume 2 (2025) [FLAC 24/96|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13279.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ De-Phazz - Luck You! (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu Jazz, Trip
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13278.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Noumenia - Echoes (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Post-Groove Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13265.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Crematory - ...Just Dreaming (1994) Remastered, Reissue, 2025, Roar [FLAC 24/44.
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13263.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Heaven Shall Burn - Heimat (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13260.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Gabrielle De Val - I Am The Hammer (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <H
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13254.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Benson Boone - American Heart (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13253.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Bruce Springsteen - Tracks II: The Lost Albums (2025) [FLAC 24/96, 24/44.1|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13245.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Louis Armstrong - What A Wonderful World (1968) Japan Edition, Limited Edition, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12961.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Killing of a Sacred Deer - A Visage of a Mangled Body (2025) [FLAC 24/44.1|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12950.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Spoon - They Want My Soul (2014) Reissue, Deluxe More Soul Edition, 2024, Matado
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12946.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ Culture Kultur - Time (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Synthpop, Futu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12943.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ Muse - The 2nd Law (2012) Reissue, 2015, Warner Records [FLAC 24/96|Lossless|WEB
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12941.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ Cerrone & Christine and the Queens - Catching feelings (2025) EP [FLAC 24/44.1|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12568.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ Pop Evil - Studio Albums (8 releases) (2009-2025) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12565.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ Pop Evil — американская рок-группа, основанная 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EF4F3DB26B4C3F7460DBC43AABCE3E7E42683BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641923   (12546) от 04.07.2025
+
+Coheed And Cambria - Studio Albums (11 releases) (2002-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12546.jpg" />
+</div>
+
+
+###  Подробнее
+
+Coheed And Cambria — американская прогрессив рок (нью-прог) команда со всех уголков штата Нью-Йорк, США. Группа образовалась в 1995 году, под именем Beautiful Loser, с 1996 года стали называться Shabutie, с 2001 года называются Coheed And Cambria. Пишут композиции по мотивам историй, написанных фронтменом группы Клаудио Санчесом, и с 2006 года издающихся в виде комиксов.2002 - The Second Stage Turbine Blade
+2003 - In Keeping Secrets Of Silent Earth: 3
+2005 - Good Apollo, I'm Burning Star IV, Volume One: From Fear Through the Eyes of Madness
+2007 - Good Apollo, I'm Burning Star IV, Volume Two: No World for TomorrowЖанр: Progressive RockПродолжительность: 11:29:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24D85613A83D7B137D82F85CDED1252C4737C551
 ```
 
 https://mybot314.ru/tekegram_catalog/

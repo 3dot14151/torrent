@@ -1,3 +1,29 @@
+###  Публикация: 1289929   (681672) от 18.03.2019
+
+Temp Monitor 1.2.4 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Temp Monitor - это незаметный инструмент, который будет предупреждать вас о перегреве вашего Mac. В комплекте идет отличная утилита, чтобы помочь вам записывать все показания, когда процессор выходит за пределы температуры, которая может быть опасна для вашего Mac.Тип издания: macOS SoftwareРелиз состоялся: 17.03.2019Разработчик: VIMI StudiosПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Французский, Немецкий, Вьетнамский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D40652C6AE2F1FD2CB14844CB7239CD761DA22D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 508366   (680589) от 09.06.2012
 
 Moom 3 [Eng]
@@ -6,7 +32,7 @@ Moom 3 [Eng]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_680589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_680589.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ BetterZip 4.2.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680212.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Command-Tab Plus 1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677150.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ Dropzone 3 v3.6.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677001.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ Hide My IP 6.2.40 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676341.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ CCleaner Pro 1.13.442 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676102.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ XCap 1.2.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672897.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ Syncios Data Transfer 1.2.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672649.jpg" />
 </div>
 
 
@@ -222,7 +248,7 @@ Command Center 1.0.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672162.jpg" />
 </div>
 
 
@@ -251,7 +277,7 @@ Code Collector Pro 1.7.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671141.jpg" />
 </div>
 
 
@@ -278,7 +304,7 @@ TinkerTool System 4.11 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670828.jpg" />
 </div>
 
 
@@ -305,7 +331,7 @@ DoYourData Super Eraser for Mac 5.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670498.jpg" />
 </div>
 
 
@@ -333,7 +359,7 @@ App Pier 1.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669397.jpg" />
 </div>
 
 
@@ -361,7 +387,7 @@ ColoFolXS 2.1.1 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667900.jpg" />
 </div>
 
 
@@ -390,7 +416,7 @@ DiskWarrior (Standalone) 5.1 + Bootable 5.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667054.jpg" />
 </div>
 
 
@@ -418,7 +444,7 @@ Mic Drop 1.4.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666817.jpg" />
 </div>
 
 
@@ -444,7 +470,7 @@ SimBooster Premiun 2 2.9.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666777.jpg" />
 </div>
 
 
@@ -472,7 +498,7 @@ KCNcrew Pack 03-15-22 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666761.jpg" />
 </div>
 
 
@@ -498,7 +524,7 @@ Paste 2.2.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664321.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Simple Screen Shade 1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662459.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ Endurance 3.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662302.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ Forecast Bar 1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662155.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ Cocktail Big Sur Edition 14.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660268.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ TangerineWallpaper 1.4 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660254.jpg" />
 </div>
 
 
@@ -661,7 +687,7 @@ MenuBar Stats 3 v3.8.6 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655030.jpg" />
 </div>
 
 
@@ -674,33 +700,6 @@ MenuBar Stats - системный монитор, очистка памяти �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BAED40BA509D93460414EA930B6B8DA73F83DD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140799   (654867) от 07.06.2017
-
-StatsBar 2.5 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654867.jpg" />
-</div>
-
-
-###  Подробнее
-
-StatsBar - системный монитор для процессора, памяти, дискового пространства, сети и батареи.
-StatsBar - небольшое, легкое и симпатичное приложение для получения системной информации в процессе работы компьютера, а точнее: загрузки CPU, использования памяти, информация о сетевом соединении и пропускной способности, а так же мощности и здоровья батареи (только для (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: ноябрь 2016Разработчик: FIPLAB LtdПоддерживаемая ОС: MacOS X 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6F772BB25B3B50B1543B003159373A8E71687CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

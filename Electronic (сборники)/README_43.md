@@ -1,3 +1,61 @@
+###  Публикация: 1379518   (839575) от 29.04.2020
+
+VA - Jump Urban: Hard Dub Party (2020) [MP3|320 Kbps] <Hard Dance, Hardstyle>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839575.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Hard5hooterz - Next Termination
+002. Ophidian - Bring On The Orchestra
+003. Repix - Lost
+004. The Style Creators - Feel Alive(   Читать дальше...   )Жанр: Hard Dance, HardstyleПродолжительность: 07:26:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:758E1339BAD581D244D79F3B6568304649F41F4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379521   (839565) от 29.04.2020
+
+VA - Beatport Chillout: Electro Sound Pack #70 (2020) [MP3|320 Kbps] <Chillout, Ambient, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839565.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Pearldiver - Hold 'em Down
+002. Absentune - Todo Sigue
+003. Marcelo Berges - Montañas
+004. Giovanni Lucchetti - Su Tramont(   Читать дальше...   )Жанр: Chillout, Ambient, LoungeПродолжительность: 07:43:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAFBFFF7142A3215F0A6AE663CF4DC6C671D89C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1379526   (839559) от 29.04.2020
 
 VA - Ice Cream (2020) [MP3|320 Kbps] <Dance, Pop, Electro, Deep House>
@@ -6,7 +64,7 @@ VA - Ice Cream (2020) [MP3|320 Kbps] <Dance, Pop, Electro, Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839559.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Beatport Electro House: Sound Pack #72 (2020) [MP3|320 Kbps] <Progressive H
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839455.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Beatport Tech House: Electro Sound Pack #71 (2020) [MP3|320 Kbps] <Tech Hou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839454.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Крутые пушки Осень 2021 [MP3|320 Kbps] <Club, Dance, Other>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839219.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Welcome House Atomic (2016) [MP3|160-320 кб/с] <Progressive, Club, House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838622.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Goa Session by X-Noize (2016) [MP3|320 кб/с] <Trance, Progressive Trance
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838528.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Trance Maniacs Party: Melody Of Heartbeat #161 (2016) [MP3|320 кб/с] <Tr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838523.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Deeper Than Deep: A Brilliant Selection of Soulful Deep House Grooves (2016
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838522.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Miami The Warm Up (2016) [MP3|320 кб/с] <Trance, Uplifting Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838521.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Innocent Magic Future Spring (2016) [MP3|320 кб/с] <Trance, Progressive 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838520.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Dancehall Summer Beach (2021) [MP3|320 Kbps] <Dancehall, Riddim, Latin, Reg
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838233.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Beatport Electo House: Sound Pack #354 (2021) [MP3|320 Kbps] <Electro House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838231.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Beatport Drum And Bass: Electro Sound Pack #353 (2021) [MP3|320 Kbps] <Drum
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838127.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Beatport Deep House: Electro Sound Pack #352 (2021) [MP3|320 Kbps] <Deep Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838126.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - EDM Nation: October Dance Mixes (2021) [MP3|320 Kbps] <EDM, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838125.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Happy Nation: Clubbing Deep House (2021) [MP3|320 Kbps] <Deep House, Electr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838117.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Miraflores Deep House Assembly (2017) [MP3|320 Kbps] <Deep House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836813.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Empire Records - Golden Drum 2 (2017) [MP3|320 Kbps] <Dubstep, Drum & Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836710.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Symptoms Of The Reality: Freestyle Synthpop (2020) [MP3|320 Kbps] <Synthpop
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836521.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Beatport Trance: Electro Sound Pack #74 (2020) [MP3|320 Kbps] <Trance, Prog
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836107.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Yoga Springtime Relaxation: Best of Chillout and Beach Cafe Music (2017) [M
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835304.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA -  Motown In the Mix (Classic Mixes) Vol.6 (2021) [MP3|320 Kbps] <Electronic,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835197.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Record Super Chart 09.10.2021 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835124.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - The Ambient Atmosphere: Relax Musical Collection (2021) [MP3|320 Kbps] <Amb
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835116.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - The Ambient Atmosphere: Relax Musical Collection (2021) [MP3|320 Kbps] <Amb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F03A4662FB6ABAF883EFBF788F5D8A0D21DC0B82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380336   (835047) от 02.05.2020
-
-VA - Beatport Techno Electronic: Sound Pack #73 (2020) [MP3|320 Kbps] <Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835047.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fishela - Techno (Original Mix)
-002. Emir Hazir - White
-003. Dmitry Hertz - Unity Sound (Original Mix)
-004. Max Chizhov - Jungle Reload(   Читать дальше...   )Жанр: TechnoПродолжительность: 11:56:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E15DDFCD5E95C4278843A86A7AC4B733BD4FFA3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380331   (835011) от 02.05.2020
-
-VA - Gold Clubbing Trance (2020) [MP3|320 Kbps] <Uplifting, Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835011.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hydroxide And Trhip - A Dead Dreamer
-002. Sam Jones - Because Of You
-003. Giuseppe Ottavian - Only A Heartbeat Away
-004. Relais - Freedom (Original Mix)(   Читать дальше...   )Жанр: Uplifting, Progressive TranceПродолжительность: 12:43:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56A22C1AE509B58ACD77A9A98344506CB64FE353
 ```
 
 https://mybot314.ru/tekegram_catalog/

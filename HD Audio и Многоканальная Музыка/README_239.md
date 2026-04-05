@@ -1,32 +1,3 @@
-###  Публикация: 1773048   (31050) от 13.01.2025
-
-The Last Sentinel - Riftborn (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ignite the Night (3:58)
-02.  Fire in my Veins (3:33)
-03.  Eletric Pulse (3:22)
-04.  Ride or Die (3:29)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F7BCB2A56FB6B58944115DA670AD4DF554401FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1772989   (31043) от 13.01.2025
 
 Judas Priest - Sad Wings of Destiny (1976) Remaster, 2025, Exciter Records [FLAC 24/96|Lossless|WEB-DL|tracks] <Metal, Heavy Metal, Hard Rock>
@@ -35,7 +6,7 @@ Judas Priest - Sad Wings of Destiny (1976) Remaster, 2025, Exciter Records [FLAC
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31043.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - Romantic Collection. Italia '2000 (2000) Compilation, Unofficial Release [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30992.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ The Smoothies - The Sound of 70s (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30932.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Carl Allen - Tippin' (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30848.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Nikki Jones Band - Battle Me Up (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30847.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Allison Miller & One O'Clock Lab Band - Big & Lovely (2025) [FLAC 24/96|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30844.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Zed Charles - Hear My Word (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30842.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ From. ____ - Coffee for two (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30840.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Sangin Nam - Timeless Blues (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30839.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ David Rose - Songs for You (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Vocal J
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30834.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Monk Rules the Rhino - Fuzzy Unicorn (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30833.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ David Rose - The Night Is Ours - David Rose - The Night Is Ours (2025) [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30824.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ HammerFall (& Cans) - Studio Albums (20 releases) (1997-2024) hand made [restore
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30568.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Sybreed - Studio Albums (4 releases) (2004-2012) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30322.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Dream Express - Дрийм Экспресс (1979) [FLAC 2.0|192/24|image +.cue|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30315.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Grave Digger (Hellryder; Steelhammer; The Fyredogs) - Studio Albums (27 releases
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30139.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Brad Goode - Polytonal Big Band: The Snake Charmer (2025) [FLAC 24/96|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30112.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ David Rodgers - Home (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30111.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Andrea Longato - Thinking Heart (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30110.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Evan Oberla - Canal Street Revolution (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30109.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Davy Mooney & Ko Omura - The Word (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30108.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ Alex McLaughlin - A Brand New State (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30107.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ D. Heywood - Winelight (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30106.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ Fabienne Ambuehl - Thrive (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contempora
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30105.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ Gmusic YA - Musica Jazz (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30104.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ Gmusic YA - Musica Jazz (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12807BC19A474DC769966F7FE7706E8106B7C8E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774742   (30103) от 22.01.2025
+
+Javier Rojo - Música Para Amansar Fieras (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Black, White and Colours (6:00)
+02.  Late April (2:23)
+03.  Lonely Night (7:11)
+04.  Riba (6:56)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:56:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9008660D3F797EBD4F7CA4723AAAD8EA6D28D84D
 ```
 
 https://mybot314.ru/tekegram_catalog/

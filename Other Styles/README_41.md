@@ -1,3 +1,61 @@
+###  Публикация: 1199039   (802813) от 14.01.2018
+
+David Arkenstone - Deep Sleep (2017) [MP3|320 Kbps] <New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Breathe (10:50)
+02.  Lightdancer (10:12)
+03.  Deep Blue (9:53)
+04.  Floating (10:08)(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 02:45:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05A861CF123BBA58EE8B00ECC252D42EBFDE8DB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199178   (802713) от 14.01.2018
+
+Padma Previ - Divine Visions (2007) [FLAC|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sa Nah Piteva (6:48)
+02. Gayatri Mantra (6:45)
+03. Om Namah Shivaya (8:48)
+04. Mandu Samanavarcasa (6:53)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB44DDE609B07F66D0B50079EB6BC44FD0C759F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198731   (802711) от 14.01.2018
 
 Mike Lazarev - Dislodged (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Modern Classical>
@@ -6,7 +64,7 @@ Mike Lazarev - Dislodged (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, M
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802711.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Jonny Greenwood - Phantom Thread / Призрачная нить (2018) Soundtra
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802705.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802379.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Harry Gregson-Williams - Live by Night / Закон ночи (Original Motion Pi
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802092.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Harry Gregson-Williams - Live by Night / Закон ночи (Original Motion Pi
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802049.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Ryan Farish - United (2017) [MP3|320 Kbps] <Electronic, Downtempo, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802005.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Harp Twins (Camille and Kennerly) - 3 альбома (2013 - 2015) [MP3|320 кб
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801981.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Cerrone - Brigade Mondaine: Original Soundtracks (1978-1980) 2014, Because Music
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801967.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Ghost in the Shell / Призрак в доспехах (Music Inspired by 
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801881.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Ghost in the Shell / Призрак в доспехах (Music Inspired by 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801797.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Padma Previ - Goddess Chants (2008) [FLAC|Lossless|image + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801773.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Padma Previ - Saraswati (2012) [FLAC|Lossless|image + .cue] <Meditative, Mantras
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801720.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ New Sun Pops Orchestra - Guitar Mood (1976) 2 Альбома, LP [FLAC|Lossless|
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801690.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ LEYA - Flood Dream (2020) [FLAC|Lossless|tracks + .cue] <Avant - Folk, Chamber M
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801687.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801678.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - From Russia With Song: 20 Greatest Russian Hits (2000) [MP3|320 Kbps] <Pop,
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801195.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Terry Lee Nichols & Rebekah Eden - We Have Only Come to Dream (2018) [MP3|320 Kb
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801093.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Jon Thebur - Sansula (2017) [MP3|320 Kbps] <New age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801080.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Sax Project - Saxo and Movies (2011) 3CD [MP3|320 Kbps] <Easy Listening, Sax>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801041.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Eguana & Qeight - The Book of Changes (2021) [MP3|320 Kbps] <Electronic, Downtem
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800976.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Alex Lucas & Olan Mill - Tramuntana (2016) [MP3|320 Kbps] <New Age, Instrumental
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800615.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Mogwai - Kin (2018) Original Motion Picture Soundtrack [FLAC|Lossless|tracks + .
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800573.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Nick Cave & Warren Ellis - Hell or High Water / Любой ценой (Original 
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800552.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800551.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C97F49CC7D9D89EC37415D8A18C1000FA899438
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121596   (800506) от 02.04.2017
-
-Mars Lasar - Utopia (2017) [MP3|320 Kbps] <New Age, Ambient, Chillout>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beyond Utopia
-02. As It Should Be
-03. Cosmopolitan Skies
-04. Magnetism(   Читать дальше...   )Жанр: New Age, Ambient, ChilloutПродолжительность: 00:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3E9901E9BA12A02E943C462313974BEF4EF18F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120726   (800503) от 02.04.2017
-
-Раймонд Паулс - Музыка из кинофильма 'Двойной капкан' (1986) [MP3|320 Kbps] <Pop, Instrumental>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мотто
-02. Танец в баре
-03. Танец с накидкой
-04. Вдвоём(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 00:33:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDFBE0B6BC1923465DC191C5557EA5C02073315B
 ```
 
 https://mybot314.ru/tekegram_catalog/

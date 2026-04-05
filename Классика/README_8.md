@@ -1,3 +1,32 @@
+###  Публикация: 994055   (893904) от 06.03.2016
+
+Tessarini Consort: Joza Caras (conductor), Lisa Rautenberg (violin), Jaroslaw Lis - Carlo Tessarini LA STRAVAGANZA (2004) [FLAC|Lossless|tracks + .cue] <Classical, Baroque>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  I. Overture: Allegro assai (2:24)
+02.  I. Overture: Largo Sempre Piano (3:05)
+03.  I. Overture: Presto (2:31)
+04.  II. Concerto con Violino Obbligato: Vivace (4:37)(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 01:13:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:648D844DE8A2EE8AF13C35673156E4AE7D47A941
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993984   (893858) от 06.03.2016
 
 Magdalena Kozena & Mahler Chamber Orchestra with Marc Minkowski - French Arias (2003) [APE|Lossless|image + .cue] <Classical, Opera>
@@ -6,7 +35,7 @@ Magdalena Kozena & Mahler Chamber Orchestra with Marc Minkowski - French Arias (
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893858.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Netrebko, Quasthoff, Terfel, Garanca, Pape. - The Mozart Album (2006) [FLAC|Loss
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893820.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Dvorak - Rusalka (Fleming, Czech Philharmonic Orchestra, dir.Mackerras) (1998) 3
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893796.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Alfred Schnittke - Quasi una sonata, Moz-Art a la Haydn, Suite in the Old Style 
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893443.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Saint-Saens - Carnival of the Animals, Danse macabre, Symphony 3 (Ormandy, Entre
 >>Концерты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893368.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Queenz Of Piano - Queenz Of Piano (2020) [FLAC|24/44.1|Lossless|WEB-DL|tracks] <
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893350.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ VA - 101 Classical Greats (1998) 5CD [FLAC|Lossless|tracks] <Classical, Baroque,
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893308.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Andre Rieu - Romantic Moments II (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891851.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Andre Rieu - Happy Days (2019) [FLAC|Lossless|WEB-DL|tracks] <Classical, Classic
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891772.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Leonid Kogan & Alexander Ivanov-Kramskoy - F.Gragnani, N.Paganini & M.Giuliani (
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891522.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Wiener Philharmoniker - Herbert Von Karajan - Dvorak - Symphonie # 9; Smetana - 
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891457.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Magdalena Kozena - Enchantment (2006) 2 CD [FLAC|Lossless|image + .cue] <Classic
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891449.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Magdalena Kozena, La Cetra, Andrea Marcon - Monteverdi (2016) [FLAC 2.0|96/24|Lo
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891223.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891056.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Wolfgang Amadeus Mozart - Piano Concertos Nos. 23 & 19 (1976) 2012, Deutsche Gra
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891040.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Gustav Mahler - Symphony No. 5 - Berliner Philharmoniker & Claudio Abbado (1993)
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891036.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Orpheus Chamber Orchestra  - Dvorak : Serenades Opp. 22 & 44 (1985) [FLAC|Lossle
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889800.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889745.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ VA - Ballet Masterpieces: The World's Favorite Ballets and Ballet Suites (2009) 
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889080.jpg" />
 </div>
 
 
@@ -558,7 +587,7 @@ Daniel Behle - George Petrou Gluck: Opera Arias (2014) [FLAC|Lossless|image + .c
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888404.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ Heifetz Jascha - Adagios (2002) [FLAC|Lossless|image + .cue] <Classical, violin>
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888083.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ Wolfgang Amadeus Mozart - The Violin Concertos (1999) [FLAC|Lossless|image + .cu
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887867.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ Fabio Biondi, Europa Galante - Vivaldi - La Stravaganza (2011) [MP3|320 кб/с]
 >>Концерты
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887778.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Полные собрания сочинений
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887421.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ Library Tapes - Escapism (2016) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical,
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886364.jpg" />
 </div>
 
 
@@ -715,35 +744,6 @@ Library Tapes - Escapism (2016) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D97082076B840997CCB13BD3277D4429F5D30F3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995105   (886328) от 10.03.2016
-
-Ferenc Liszt - Complete Symphonic Poems - Arpad Joo (1994) [FLAC|Lossless|tracks+.cue] <Orchestral>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886328.jpg" />
-</div>
-
-
-###  Подробнее
-
-Zwei Episoden aus Lenaus Faust / Два эпизода из "Фауста" Ленау (1857-1866)
-1. I. Der nächtliche Zug / Ночное шествие (15:15)
-2.II. Der Tanz in der Dorfschenke (Erster Mephisto-Walzer) / Танец в деревенском кабачке (Мефисто-вальс № 1) (11:54)
-3. Zweiter Mephisto-Walzer / Мефисто-вальс № 2 (1880-1881) (11:41)(   Читать дальше...   )Жанр: OrchestralПродолжительность: 04:57:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C81158DF3CCBBC1AE0EBB16571E5378EF3B5BEA1
 ```
 
 https://mybot314.ru/tekegram_catalog/

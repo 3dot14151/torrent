@@ -1,3 +1,55 @@
+###  Публикация: 1425404   (222595) от 20.11.2020
+
+Ирина Травина | Детская энциклопедия РОСМЭН. Насекомые (2014) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222595.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге рассказывается о самом многочисленном и самом разнообразном классе живых существ - насекомых. Сегодня число их видов перевалило за один миллион. Они повсюду: на земле, в почве, в воздухе и в воде. Вы узнаете о строении и поведении насекомых, их приспособлениях к тем или иным условиям существования, способах маскировки, о роли в природе и жизни человека (   Читать дальше...   )Жанр: Энциклопедия/Познавательная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C9EAB114F4B01FC6E484E44FF5F76DAE20EFC89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 736981   (222553) от 21.12.2013
+
+Борис Шатилов | День Файзуллы (1928) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для детей среднего возраста, 9-14 летФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:337C07D045541D4A1952A3A2829B3566A38F3B69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 736982   (222503) от 21.12.2013
 
 Борис Шатилов | Джалиль-Непокупай (1929) [DJVU]
@@ -6,7 +58,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222503.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222497.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222474.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222462.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222431.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222430.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222427.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222420.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222391.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222389.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222370.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222360.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222355.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222338.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222331.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222330.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222315.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222304.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222277.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222257.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222252.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222224.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222217.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222212.jpg" />
 </div>
 
 
@@ -620,59 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82FE280345824A7B334E66578C20AF5FBB8BC457
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 737003   (222210) от 21.12.2013
-
-Н. Дмитриева | Кот и Туська (1928) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222210.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для дошкольного возраста.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B2303894FA462CFDD81460511D2789A21B45608
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965974   (222182) от 16.12.2015
-
-Книжная серия | Научно-популярная библиотека школьника [12 книг] (1985-1995) [FB2, PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Химический язык насекомых.
-В жизни насекомых чрезвычайно большую роль играют запахи. Общаясь между собой при помощи пахучих молекул-феромонов, шестиногие «рассказывают» об источнике пищи, образуют брачные пары, охраняют свое жилище, метят «владения». О том, как ученые разгадали тайну химического языка насекомых, синтезировали феромоны в лабораториях и разработали (   Читать дальше...   )Жанр: Детская образовательная литератураФормат: FB2, PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7A0743A7A3BA87DF0CEC5AD2739ED1CD310B96D
 ```
 
 https://mybot314.ru/tekegram_catalog/

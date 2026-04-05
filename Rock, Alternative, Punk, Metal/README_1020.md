@@ -1,3 +1,32 @@
+###  Публикация: 1667404   (177021) от 08.10.2023
+
+Saltatio Mortis - Sturm Aufs Paradies (2011) [FLAC|Lossless|image + .cue] <Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Habgier Und Tod
+02. Hochzeitstanz
+03. Ode An Die Feindschaft
+04. Eulenspiegel(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A06896B3EA4B479C9F4A32BA366B821CF293FFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1667448   (177017) от 08.10.2023
 
 Court of Beasts - 4 Albums (2019-2023) [FLAC|Lossless|WEB-DL|tracks] <Sludgy Doom Metal>
@@ -6,7 +35,7 @@ Court of Beasts - 4 Albums (2019-2023) [FLAC|Lossless|WEB-DL|tracks] <Sludgy Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177017.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Poisonblack - Of Rust And Bones (2010) [FLAC|Lossless|image + .cue] <Gothic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176989.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ dрянь - Стадии тоски (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176952.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Wynter Kills - The Hand of the Wicked One (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176920.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176918.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176914.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Arduinna’s Dawn - Reflections (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176912.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Withering Night - Lies and Corruption (2010) (Reissue-2012) [WavPack|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176910.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ Xantotol - Liber Diabolus: 1991-1996 (2004) [WavPack|Lossless|image + .cue] <Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176907.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ Virgin Steele - Life Among the Ruins (1993) Remastered 2CD, 2012, Steamhammer [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176902.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ Behold! The Monolith - 3 Albums (2012-2022) [FLAC|Lossless|WEB-DL|tracks] <Stone
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176895.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ High Command - Eclipse of the Dual Moons (2022) [FLAC|Lossless|WEB-DL|tracks] <T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176887.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ Vambier - Prost Mortem (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176883.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ Stormwind - Resurrection (2020) Remastered [FLAC|Lossless|WEB-DL|tracks] <Neocla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176881.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ Aittala - 6 Albums (1993-2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176879.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ Towards the Sun - Коллекция [4 Albums] (2021-2022) [FLAC|Lossless|WEB-D
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176874.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ Virgin Steele - Age of Consent (1988) Remastered 2CD, 2011, Steamhammer [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176871.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ Gentlemans Pistols - Hustler's Row (2015) [FLAC|Lossless|image + .cue] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176864.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ The New Roses - One More For The Road (2017) [FLAC|Lossless|image + .cue] <Garag
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176860.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ Majestic - Monument (2020) [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176856.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ Wage War - The Stripped Sessions (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176849.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ Strider - Into Glory Stride (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176846.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176839.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ Midnight Road - Ready for the Fight (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176832.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ Nurcry - Alma Libre (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176766.jpg" />
 </div>
 
 
@@ -713,35 +742,6 @@ Nurcry - Alma Libre (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2963E31B2791372B9BD205D3B4CFC4CFE800B4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667236   (176762) от 08.10.2023
-
-Dream Theater - Lost Not Forgotten Archives: The Making Of Scenes From A Memory - The Sessions (1999) (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Regression (Acoustic Guitar Outtake & Alternate Vocal Take) [00:02:02]
-02. Overture 1928 (Live Alternate Take) [00:03:43]
-03. Strange Déjà Vu (Writing, Basic Tracks & Vocals) [00:05:01]
-04. Fatal Tragedy (Writing, Basic Tracks & Vocals) [00:04:00](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:16:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5D6755D97D883FDDEC653F28BF6EC8775CA5A13
 ```
 
 https://mybot314.ru/tekegram_catalog/

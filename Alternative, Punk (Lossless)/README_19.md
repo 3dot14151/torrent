@@ -6,7 +6,7 @@ Incubus - 8 (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Alt.Rock, Alt. Metal>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731051.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Talos - Far Out Dust (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731044.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Liza Anne - Fine But Dying (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731038.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Phoebe Bridgers - Stranger In The Alps (2017) Deluxe Edition, 2018, Dead Oceans 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730984.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Marilyn Manson - Lest We Forget (The Best Of) (2004) Japanese Edition [FLAC|Loss
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730682.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Foxwarren - Foxwarren (2018) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Fo
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730097.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Au Pairs - Sense And Sensuality (1982) Remaster, 2002, Castle Music [FLAC|Lossle
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730086.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Golden Daze - Simpatico (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Psyched
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728972.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Young Hunting - True Believers (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728971.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ HOMESHAKE - Helium (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728968.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Said the Whale - Cascadia (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Indi
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728901.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Sigur Ros - Kveikur (2013) Japanese Edition [FLAC|Lossless]<Post-Rock, Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_728357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_728357.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Nirvana - 7 альбомов (1989-2005) Japanese SHM-CDs 2008 [APE|Lossless|ima
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728317.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Eddie Vedder - Earthling (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727813.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Iggy Pop - 3 альбома (1988 - 1993) [FLAC|Lossless]<Alternative Rock, Punk
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_726925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_726925.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Gorillaz - Humanz (2017) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726260.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ P J Harvey & John Parish - A Woman A Man Walked By (2009) [FLAC|Lossless]<Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_726220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_726220.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Low Roar - Once in a Long, Long While... (2017) [FLAC|Lossless|tracks + .cue] <I
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726074.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Kaleo - A/B (2016) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie, Blues
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726039.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Blink-182 - 24 Альбома (1994 - 2011) Дискография [FLAC|Lossles
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_725425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_725425.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Telekinesis - Effluxion (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724999.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Anemone - Beat My Distance (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724919.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Julia Jacklin - Crushing (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724910.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Strand of Oaks - Eraserland (2019) [FLAC|Lossless|tracks + .cue] <Rock, Folk Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724787.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ Porn - 4 альбома (2004 - 2011) [FLAC|Lossless|image + .cue] <Industrial, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723826.jpg" />
 </div>
 
 
@@ -725,7 +725,7 @@ PJ Harvey - 5 альбомов (1995-2007) [FLAC|Lossless]<Alternative Rock, Ind
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_723757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_723757.jpg" />
 </div>
 
 

@@ -1,3 +1,134 @@
+###  Публикация: 1517457   (162695) от 15.12.2021
+
+Феи: Легенда о чудовище / Tinker Bell and the Legend of the NeverBeast (2014) BDRip [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162695.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анимационная сказка расскажет удивительную историю о веселой и талантливой фее Фауне, которая убеждена в том, что о книге нельзя судить по ее обложке, впрочем, как и о животном по его клыкам, поэтому она дружит с таинственным существом громадных размеров из Нетландии по прозвищу Чудовище.
+В это время группа волшебных фей разведки не настолько уверены в этом страшном (   Читать дальше...   )Производство: США / DisneyToon Studios, Prana StudiosЖанр: мультфильм, фэнтези, приключенияРежиссер: Стив ЛотерПеревод: ДублированныйСубтитры: Русские, английские (full, SDH)Продолжительность: 01:16:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C6A05782AE237B1355D1910B5EAA7D42C3EC162
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517418   (162628) от 15.12.2021
+
+Семейка Аддамс: Горящий тур / The Addams Family 2 (2021) WEB-DL [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162628.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что делать, если в доме поселилось настоящее исчадие ада, а именно два подростка? Срочно планировать самый жуткий отпуск! Мартиша, Гомес, Уэнсдей, Пагсли и дядя Фестер загружаются в семейный походный катафалк, чтобы отправиться навстречу новым приключениям и чудаковатым друзьям, от которых волосы встанут дыбом. В этой поездке семейка Аддамс сплотится намертво! Если, (   Читать дальше...   )Производство: Великобритания, Канада, США / BRON Studios, BermanBraunЖанр: мультфильм, ужасы, фэнтези, комедия, приключения, семейныйРежиссер: Грег Тирнан, Конрад ВернонПеревод: Дублированный, двухголосый любительский (Pazl Voice)Субтитры: русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:32:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C38B24BAC1F46FFC82DC9EA09E5CE0782813F06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517468   (162596) от 15.12.2021
+
+Митчеллы против машин / The Mitchells vs the Machines (2021) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девушка-подросток Кэти Митчелл всегда считала, что родители не понимают её увлечений — делать странные фильмы про всё вокруг, в том числе про мопса-полицейского с семейным питомцем в главной роли. Поэтому когда она поступила в киношколу на другом конце страны, счастью не было предела. Кэти не могла дождаться, когда же она наконец сядет в самолёт и полетит к понимающим (   Читать дальше...   )Производство: США, Канада, Гонконг / Sony Pictures Animation, Lord Miller, Columbia PicturesЖанр: Мультфильм, фантастика, комедия, приключения, семейныйРежиссер: Майкл Рианда, Джефф РоуАктеры: Эбби Джейкобсон, Дэнни Макбрайд, Майя Рудольф, Майкл Рианда, Эрик Андре, Оливия Колман, Фред Армисен, Бек Беннетт, Крисси Тиган, Джон ЛеджендПеревод: Профессиональный (дублированный) ПифагорСубтитры: Русские (Forced, Full), Украинские (Forced, Full), Английские (Forced, SDH)Продолжительность: 01:49:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21A6BDDD9D8E6C5DCDD136D61EBBD5C8A4E8C7A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517417   (162575) от 15.12.2021
+
+Семейка Аддамс: Горящий тур / The Addams Family 2 (2021) WEB-DL [H.265/2160p] [4K, HDR10, 10-bit]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162575.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что делать, если в доме поселилось настоящее исчадие ада, а именно два подростка? Срочно планировать самый жуткий отпуск! Мартиша, Гомес, Уэнсдей, Пагсли и дядя Фестер загружаются в семейный походный катафалк, чтобы отправиться навстречу новым приключениям и чудаковатым друзьям, от которых волосы встанут дыбом. В этой поездке семейка Аддамс сплотится намертво! Если, (   Читать дальше...   )Производство: США, Канада /  BRON Studios, BermanBraun, Bron CreativeЖанр: Мультфильм, ужасы, фэнтези, комедия, приключения, семейныйРежиссер: Грег Тирнан, Конрад Вернон, Лаура БруссоАктеры: Оскар Айзек, Шарлиз Терон, Хлоя Грейс Морец, Джейвон Уолтон, Ник Кролл, Снуп Догг, Бетт Мидлер, Конрад Вернон, Билл Хейдер, Уоллес ШоунПеревод: Дублированный (iTunes)Язык озвучки: Русский, английскийСубтитры: Русский (Forced, Full), английский (Full, SDH)Продолжительность: 01:32:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1DA9DAA360E416E9660BC391C39DAEE3A953150
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341053   (162348) от 19.12.2022
+
+Ничуть не страшно (1981) WEB-DLRip [H.264]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два брата отправляются в ночное путешествие за цветами для подарка своей маме. Их пытаются напугать три Страха, но мальчики смело преодолевают все препятствия, и тогда Страхи решают помочь им вернуться обратно.Производство: СССР, СоюзмультфильмЖанр: Рисованная анимация, Детский, МультфильмРежиссер: Леонид КаюковСубтитры: отсутствуютПродолжительность: 00:10:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8C55CC7C2528A123443249403D31D4E46B2998C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1577828   (162254) от 19.12.2022
 
 Рик и Морти / Rick and Morty (2022) WEB-DL [H.264/1080p] (сезон 6, серии 10 из 10) HDrezka, Audiodrome
@@ -6,7 +137,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162254.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162007.jpg" />
 </div>
 
 
@@ -59,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161974.jpg" />
 </div>
 
 
@@ -85,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161970.jpg" />
 </div>
 
 
@@ -111,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161927.jpg" />
 </div>
 
 
@@ -137,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161880.jpg" />
 </div>
 
 
@@ -163,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161860.jpg" />
 </div>
 
 
@@ -189,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161766.jpg" />
 </div>
 
 
@@ -215,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161742.jpg" />
 </div>
 
 
@@ -241,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161659.jpg" />
 </div>
 
 
@@ -267,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161614.jpg" />
 </div>
 
 
@@ -293,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161581.jpg" />
 </div>
 
 
@@ -321,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161525.jpg" />
 </div>
 
 
@@ -347,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161516.jpg" />
 </div>
 
 
@@ -373,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161485.jpg" />
 </div>
 
 
@@ -399,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161435.jpg" />
 </div>
 
 
@@ -425,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161399.jpg" />
 </div>
 
 
@@ -451,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161376.jpg" />
 </div>
 
 
@@ -477,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161351.jpg" />
 </div>
 
 
@@ -503,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161320.jpg" />
 </div>
 
 
@@ -529,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161281.jpg" />
 </div>
 
 
@@ -540,137 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D84A082133BB806052B44AEC467FB7D03BA601A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598850   (161229) от 21.12.2022
-
-Алиса и пекарня чудес / Alice's Wonderland Bakery (2022) SATRip (сезон 1, серии 1-20 из 20)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алиса, правнучка оригинальной Алисы и подающая надежды молодая пекарь в пекарне "Зачарованная страна чудес", где угощения объединяют новое поколение персонажей.Производство: Сша, Disney Junior, Disney Television Animation, Wild CanaryЖанр: комедия, музыкальный, фэнтези, короткометражныйРежиссер: Нэйтан Чю, Arielle Yett, Steven Umbleby.Перевод: ДублированныйСубтитры: отсутствуютПродолжительность: ~00:11:45 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8DFFC5FF5FC2E94A1C7472A40480C8CE006F384
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674327   (161203) от 05.11.2023
-
-Мальчик из Неаполя (1958) DVDRip [H.264/1080p] [Handmade Upscale AI]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161203.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мальчик-сирота Чиччо помогает Голубой Фее починить и отдать детям волшебный глобус, несмотря на все препятствия, устроенные ведьмой.Производство: СССР, СоюзМультфильмЖанр: рисованная анимация, детский, сказкаРежиссер: Иван АксенчукАктеры: Александра Бабаева, Сергей Мартинсон, Маргарита Корабельникова, Георгий ВицинСубтитры: нетПродолжительность: 00:19:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BF112F080FBFA55B5DFAF572DC740E19B8C572D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433279   (161081) от 20.12.2020
-
-38 попугаев (1976-1991) DVDRip [H.264] [EN / Ru, En sub] [PR]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161081.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веселые истории о забавных приключениях четырех друзей — болтливой Мартышки, застенчивого Слоненка, разумного Попугая и задумчивого Удава.
-Данная версия предназначена для детей, изучающих английский язык.Производство: СССР / СоюзмультфильмЖанр: Кукольный, Детский, ОбучающийРежиссер: Иван УфимцевЯзык озвучки: АнглийскийСубтитры: русские, английскиеПродолжительность: 01:16:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A87D246871A85F2E00D72DB5C350F8464D25E2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479585   (161069) от 21.12.2022
-
-Дружные мопсы / Puppy Dog Pals (2020) SATRip (Сезон 4, серий 1-16 из 16)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161069.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весёлым братьям-мопсам Бинго и Ролли никогда не сидится на месте. Каждый день они выдумывают новые игры и развлечения, путешествуют по всему миру, узнают много нового и интересного о культуре и традиция разных стран. Но как бы далеко щенки не отправились, они всегда возвращаются домой к своему любимому хозяину — изобретателю Бобу и лучшим друзьям: кошке Шипе и роботу-собаке (   Читать дальше...   )Производство: США, Индия / Disney Junior, Disney Television Animation, Wild CanaryЖанр: Компьютерная анимацияРежиссер: Дон Маккиннон, Тревор Уолл, Стефани АрнеттПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: ~00:11:45 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BBE95223194395D3ECD037FC7D8DA1C7A028AD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674371   (161036) от 05.11.2023
-
-Бум / Boom (2022) WEBRip [H.264/2160p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пара птиц пытается спасти свои яйца от извержения вулкана.Производство: Франция, École des Nouvelles ImagesЖанр: короткометражный, рисованная анимацияРежиссер: Gabriel Augerai, Romain Augier, Laurie Pereira de Figueiredo, Charles Di Cicco, Yannick JacquinПеревод: Не требуется (нет диалогов и озвученных комментариев)Субтитры: отсутствуютПродолжительность: 00:06:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEC4BFE1633683143574F6DBF12174808F056041
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1261039   (303106) от 11.11.2018
+
+David Garrett - Unlimited: Greatest Hits (Deluxe Version, Digipak) (2018) [FLAC|Lossless|image + .cue] <Classical, Crossover, Modern Classic>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smooth Criminal (3:08)
+02. He's A Pirate (3:03)
+03. Leningrad (4:40)
+04. Walk This Way (2:48)(   Читать дальше...   )Жанр: Classical, Crossover, Modern ClassicФормат: FLAC (*.flac)Продолжительность: 02:14:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:880CD09798CFC2C13680E2451AE25D30BF8E892A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 960542   (302748) от 30.11.2015
 
 Бетховен - Гении классической музыки (2011) [FLAC|image+.cue]<Classical>
@@ -6,7 +35,7 @@
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302748.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302713.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Carlo Bergonzi - Carlo Bergonzi - Grandi Voci (1958-1967) 1994 Decca Records [FL
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302629.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Handel;  Academy of St. Martin in the Fields Chorus, Sir Neville Marriner - Mess
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302462.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Johann Sebastian Bach MUnchener Bach-Chor, Munchener Bach-Orchester, Karl Richte
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302406.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Simon Rattle & Berliner Philharmoniker - Чайковский: Щелкунчи�
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302182.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ Antonio Vivaldi / Il giardino armonico - Le quattro stagion / The Four Seasons /
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302124.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ New London Chorale - Songs from the Heart (2008) [FLAC|Lossless|image + .cue] <C
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301356.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ New London Chorale - It's For You (1999) [FLAC|Lossless|image + .cue] <Сrossove
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301353.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ Various Composers - Music Prague Cathedral (2007) [FLAC|Lossless]<Classical, Bar
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301225.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ Liszt - Symphonic Poems - Michael Halasz (Vol.2) (1992) [FLAC|Lossless]<Classica
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301140.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ Chopin, Liszt - Piano Concertos (Martha Argerich & London Symphony Orchestra) (1
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301134.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ The Piano Guys - Limitless (2018) [MP3|320 Kbps] <Neoclassical>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300883.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ VA - 100 Christmas Masterworks (2018) [MP3|320 Kbps] <Classical>
 >>Классика (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300748.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ Wayne Gratz - 16 альбомов (1989 - 2011) [MP3|192-320 кб/с]<Instrument
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300610.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ Handel - Messiah (highlights) (1967) 1997 EMI Classics [FLAC|Lossless|image + .c
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300010.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ Bizet; Academy of St Martin in the Fields, Sir Neville Marriner - Symphony in C 
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299835.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ Naoko Yoshino - Baroque Harp (1998) Philips Classics 1999 [FLAC|Lossless|image +
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299685.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ Wiener Volksopern Orchester, dirigent Hans Hagen. - Strausswaltzer (~1967) [FLAC
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298902.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ Beethoven - Piano Concerto no.5, Sonatas Op.13, Pathetique Sonata Op.90 (Friedri
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298802.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ Berlioz - Symphonie Fantastique (Jos van Immerseel & Anima Eterna Brugge) (2013)
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298794.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ Tchaikovsky; Emil Gilels, David Oistrakh, Zubin Mehta, Eugene Ormandy - Piano Co
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297814.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ Boccherini - Symphonies op.35, 41 & 42 (Academy for Early Music Berlin) (2003) [
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296985.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ Monteverdi - L'incoronazione di Poppea (Nikolaus Harnoncourt & Concentus musicus
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296981.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ Florian Christl - Episodes (2020) [FLAC|Lossless|WEB-DL|tracks] <Modern Classica
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295444.jpg" />
 </div>
 
 
@@ -713,35 +742,6 @@ Florian Christl - Episodes (2020) [FLAC|Lossless|WEB-DL|tracks] <Modern Classica
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A57FAF7E2EC421EF29E75E04E8000E43A0DD7C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962068   (295187) от 04.12.2015
-
-Joseph-Guy Ropartz - Symphonies Nos 2 & 5 (Sebastian Lang-Lessing & Orchestre Symphonique de Nancy) (2006) [FLAC|Lossless]<Classical, Romantic Period, Orchestral, 20th Century Period, Sy ...
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295187.jpg" />
-</div>
-
-
-###  Подробнее
-
-Symphony No. 2 in F Minor
-01. Adagio molto - Allegro (13:43)
-02. Molto vivace (05:42)
-03. Adagio (07:49)(   Читать дальше...   )Жанр: Classical, Romantic Period, Orchestral, 20th Century Period, SymphonyПродолжительность: 01:06:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9672723CBF96365989C5D195DF8D70C7F9029E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

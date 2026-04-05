@@ -1,3 +1,81 @@
+###  Публикация: 1770787   (32107) от 03.01.2025
+
+Slay the Princess (2023) [Ru/Multi] (build 16887603) Repack seleZen [The Pristine Cut]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы идете по лесной тропе, и в конце этой тропы стоит хижина. А в подвале этой хижины находится Принцесса. Ты здесь, чтобы убить ее. Если вы этого не сделаете, это будет конец света. Она сделает все, что в ее силах, чтобы остановить вас. Она очарует, и она солжет, и она пообещает тебе мир, и если ты позволишь ей, она убьет тебя дюжину раз. Вы не можете позволить этому (   Читать дальше...   )Тип издания: RepackРазработчик: Black Tabby GamesЖанр: Приключенческие игры, Инди, Ролевые игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13BADD3A17E1ED57F351FC537C086636E2AF8C92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770800   (32092) от 03.01.2025
+
+Nelly Cootalot: The Fowl Fleet (2016) [Multi] (1.07) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32092.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nelly Cootalot: The Fowl Fleet - приключенческий квест, в котором вы возьмете управление отважной пираткой Нелли Куталот. Ей предстоит сразиться с опаснейшим корсаром по прозвищу Барон Широкобородый. На своем пути девушка встретит харизматичных героев, одним из которых окажется Том Бейкер. Отыщите сокровища Семи морей и в одиночку дайте отпор армии пиратов!Тип издания: LicenseРазработчик: Alasdair Beckett-King, Application Systems HeidelbergЖанр: Приключенческие игры, ИндиЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F82ABB3792A091191631E643E7F80EB28064216
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770717   (32087) от 03.01.2025
+
+Slay the Princess - The Pristine Cut (2023) [Ru/Multi] (Build 16887603) Repack Let'sРlay [Digital Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Slay the Princess — это психологический хоррор с выбором действий, ручной рисовкой и эмоционально насыщенным повествованием. Игра относится к жанрам «симулятор свиданий» и «визуальная новелла», а также включает в себя элементы ролевой игры. Ты стоишь на лесной тропе. В конце этой тропы избушка. В подвале избушки сидит Принцесса. Твоя задача - покончить с ней.Тип издания: RepackРазработчик: Black Tabby GamesЖанр: Приключенческие игры, Инди, Ролевые игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F256B0986AFBE86B7644C414F2DAEBE250D98B0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1770805   (32082) от 03.01.2025
 
 Nelly Cootalot: Spoonbeaks Ahoy! HD (2019) [Multi] (1.01) License GOG
@@ -6,7 +84,7 @@ Nelly Cootalot: Spoonbeaks Ahoy! HD (2019) [Multi] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32082.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Limoria (2025) [Ru/Multi] (build 16883517) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32043.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Joyville 2 (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32040.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Locked In Mind (2023) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32035.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ The Dark Eye: Chains of Satinav (2012) [Ru/Mullti] (3.0.351.5498) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32016.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Sam & Max: The Devil's Playhouse (2024) [Ru/Multi] (1.6.0/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31947.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Go Home Annie (2024) [Ru/Multi] (1.0.23) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31942.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ The House of Da Vinci 2 (2020) [Ru/Multi] (Build 6381373) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31910.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ The House of Da Vinci (2017) [Ru/Multi] (Build 5703690) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31901.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ The House of Da Vinci 3 (2022) [Ru/Multi] (Build 10591427) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31900.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Satellite Odyssey: Prologue (2024) [Ru/En] (1.0.1.2) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31826.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Everybody's Gone to the Rapture (2016) [Ru/Multi] (1.01 Build 1197371) Repack Le
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31816.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ DREAMERS (2024) [Ru/Multi] (1.0/dlc) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31782.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Joyville 2 (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31747.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Conscript (2024) [Ru/Multi] (107/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31729.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Never Alone / Kisima Ingitchuna (2014) [Ru/Multi] (build 16726002) Repack dixen1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31728.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Night Shift Nurses (2024) [Multi] (1.0.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31697.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Night Shift Nurses (2024) [Multi] (1.0.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31687.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Milo and the Magpies (2021) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31671.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Nine Sols (2024) [Ru/Multi] (202501031718.687084df.0) Repack Wagner
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31627.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Cartier 06 (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31608.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Thank Goodness You're Here! (2024) [Ru/Multi] (1.6.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31493.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Discolored 2 (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31404.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Discolored 2 (2025) [Ru/Multi] (1.0) Repack seleZen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1074A1CF90483651A9301F340C7E69B0587C41FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772267   (31378) от 10.01.2025
-
-Duke Grabowski, Mighty Swashbuckler (2016) [Ru/Multi] (Build 1374323) Repack Let'sРlay
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31378.jpg" />
-</div>
-
-
-###  Подробнее
-
-Duke Grabowski, Mighty Swashbuckler - это рисованный приключенческий квест про пиратов в духе классических The Curse of Monkey Island и Ghost Pirates of Vooju Island. Может ли самый грубый пират Азарббина стать благородным сорвиголовой? Дюк Грабовски - громила пират, который имеет доброе сердце, но привыкший решать все проблемы при помощи кулаков. Он отчаянно хочет (   Читать дальше...   )Тип издания: RepackРазработчик: Venture Moon IndustriesЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, НемецкийЯзык интерфейса: Русский, Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:698E668921D94D8FE35421D7B4E7CA232A14F9EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772493   (31328) от 11.01.2025
-
-The Inn-Sanity (2024) [Ru/Multi] (build 16843098) Repack seleZen
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31328.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы прибываете в роскошный отель, чтобы остановиться там на одну ночь. За это время город превращается в логово чудовищ, а гостиница становится тюрьмой для её постояльцев. Объявлен карантин, а жители отеля начали обращаться в обезумевших монстров. Это чужеродное воздействие преследует и вас. Чтобы выжить в наступающем апокалипсисе и не сойти с ума, вы должны понять, (   Читать дальше...   )Тип издания: RepackРазработчик: Steppe Hare StudioЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Китайский (упрощенный)Язык интерфейса: Русский, Английский, Китайский (упрощенный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17FA3EEA85D902E9043790E1744BE7A584E1BAD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772634   (31306) от 11.01.2025
-
-The Rise of the Golden Idol (2024) [Ru/Multi] (1.2.0/dlc) Repack Let'sРlay
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31306.jpg" />
-</div>
-
-
-###  Подробнее
-
-Идол появляется снова 300 лет спустя. За три столетия, прошедшие после бесславной гибели Cloudsleys, легенда о Golden Idol почти позабылась. Теперь о нём говорят лишь редко и шёпотом, как о некоем непристойном мифе. Однако есть те, кто намерен изменить ситуацию. Добро пожаловать в 70-е - эпоху крови и диско. The Rise of the Golden Idol рассказывает историю упорного (   Читать дальше...   )Тип издания: RepackРазработчик: Color Gray GamesЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FE1121A3B4748C7AE6AC0E1CA1EBE8E66FBE63F
 ```
 
 https://mybot314.ru/tekegram_catalog/

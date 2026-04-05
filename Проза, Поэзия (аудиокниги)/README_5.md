@@ -1,3 +1,57 @@
+###  Публикация: 1461993   (1021451) от 12.04.2021
+
+Григорий Бакланов | Навеки - девятнадцатилетние (2011) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021451.jpg" />
+</div>
+
+
+###  Подробнее
+
+Г.Я.Бакланов - известный русский писатель, по сценариям которого были сняты популярные фильмы "Познавая белый свет", "Был месяц май".
+Судьба простого человека на фронте - главная тема произведений о войне, написанных автором, воевавшим в годы Великой Отечественной войны. Бакланов пишет о войне просто, хорошо зная фронтовую жизнь изнутри. В "Июле (   Читать дальше...   )Жанр: ПовестьПродолжительность: 08:33:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECCDE64BB2F7EFEFE3DC3E04382689B0061FEF55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 129976   (1021360) от 12.04.2021
+
+Артур Хейли | Аэропорт (2008) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021360.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Аэропорт" – роман-бестселлер Артура Хейли, вышедший в 1968 году. Вымышленный город, где находится крупнейший аэропорт, неожиданно накрывает снежный буран, поэтому все службы работают в экстренном режиме.
+На сотрудников аэропорта обрушивается одна проблема за другой, начиная от сгинувшей непонятно где машины с продуктами до страшной аварии на борту одного (   Читать дальше...   )Жанр: Современная зарубежная проза, триллерПродолжительность: 17:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29A59AB59A3EF2A03CBDED627AE004D628B569A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 194681   (1021351) от 12.04.2021
 
 Георгий Данелия | Безбилетный пассажир (2007) [MP3, Александр Адабашьян]
@@ -6,7 +60,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021351.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021102.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021004.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020896.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020866.jpg" />
 </div>
 
 
@@ -137,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020502.jpg" />
 </div>
 
 
@@ -163,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020379.jpg" />
 </div>
 
 
@@ -189,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020062.jpg" />
 </div>
 
 
@@ -217,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020051.jpg" />
 </div>
 
 
@@ -244,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020005.jpg" />
 </div>
 
 
@@ -270,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019979.jpg" />
 </div>
 
 
@@ -296,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019818.jpg" />
 </div>
 
 
@@ -322,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019649.jpg" />
 </div>
 
 
@@ -348,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019634.jpg" />
 </div>
 
 
@@ -374,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018985.jpg" />
 </div>
 
 
@@ -400,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018981.jpg" />
 </div>
 
 
@@ -426,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018975.jpg" />
 </div>
 
 
@@ -455,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018968.jpg" />
 </div>
 
 
@@ -484,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018967.jpg" />
 </div>
 
 
@@ -513,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018832.jpg" />
 </div>
 
 
@@ -539,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018814.jpg" />
 </div>
 
 
@@ -565,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018452.jpg" />
 </div>
 
 
@@ -591,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017931.jpg" />
 </div>
 
 
@@ -619,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017571.jpg" />
 </div>
 
 
@@ -630,58 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18BC6A169FF370528A532CF8A5A7D61F5FA0289D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456763   (1017497) от 05.05.2021
-
-Валерий Жмак | Летчик Девятаев. Из фашистского ада – в небо! (2021) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017497.jpg" />
-</div>
-
-
-###  Подробнее
-
-Февраль 1945 года. Лётчику, старшему лейтенанту Михаилу Девятаеву, находящемуся в плену, грозит смерть в немецком лагере Заксенхаузен. Он неоднократно пытался бежать, но каждый раз неудачно. Случайно ему удается сменить статус смертника на статус штрафника, после чего он попадает в концлагерь на острове Узедом в Балтийском море. Именно там фашисты ведут секретные (   Читать дальше...   )Жанр: ДрамаПродолжительность: 05:51:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:382DCB4D0391D75A2E8B9E9D4AA4AF46422D8A54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467965   (1017401) от 06.05.2021
-
-Иван Лукаш | Заветный перстень [сборник] (2021) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017401.jpg" />
-</div>
-
-
-###  Подробнее
-
-В наши дни ни у кого не вызывает сомнения насколько важно знать историю своей страны. Все мы с большим или меньшим успехом изучали основные исторические события в школе, но положа руку на сердце, сухие памятные даты, часто улетучивались из головы уже на следующий день после сдачи зачета или экзамена. Миниатюры Ивана Лукаша доказывают нам, что совсем необязательно (   Читать дальше...   )Жанр: Русская классикаПродолжительность: 02:43:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7C2518344B74323D79C3E6B49D2C20941F32A64
 ```
 
 https://mybot314.ru/tekegram_catalog/

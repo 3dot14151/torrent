@@ -1,3 +1,161 @@
+###  Публикация: 953115   (979777) от 08.01.2016
+
+Эш против Зловещих мертвецов / Ash vs Evil Dead (2015) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-10 из 10) (NewStudio)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979777.jpg" />
+</div>
+
+
+###  Подробнее
+
+Последние тридцать лет Эш старательно избегал всего, что связано с воспоминаниями о зловещих мертвецах, но когда очередное нашествие дедайтов грозит уничтожить всё население планеты, Эш становится единственным шансом человечества на спасение.Производство: СШАЖанр: ужасы, боевик, комедияРежиссер: Сэм Рэйми, Майкл Дж. Бассетт, Майкл Херст, Дэвид Фрэйзи, Тони Тилс, Рик ДжейкобсонАктеры: Брюс Кэмпбелл, Джилл Мари Джонс, Люси Лоулесс, Рэй Сантьяго, Дэна ДеЛоренцо, Хемки Мадера, Бен Френшам, Фил Пелетон, Дэмиен Гарви, Бриджит Хоффман и др.Перевод: Профессиональный многоголосый закадровый - NewStudio (ненормативная лексика)Формат: MKVПродолжительность: ~00:30:00 серия (00:43:49 первая серия)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E0E46F2D36D505F1B550C73E9A397B2A35C3DAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973019   (979774) от 08.01.2016
+
+Ужастики / Goosebumps (2015) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979774.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зак переезжает с родителями в провинциальный городок, где знакомится с очаровательной соседкой Ханной. Он узнает, что ее отец — Роберт Стайн, знаменитый писатель, автор популярной серии триллеров для подростков «Ужастики», у которого есть мрачная тайна. Стайн — пленник собственных историй: монстры из его произведений вполне реальны, и он пишет свои книги для того, (   Читать дальше...   )Производство: США, Австралия,  Columbia Pictures, LStar Capital, Original Film, Scholastic Entertainment, Sony Pictures Animation, Sony Pictures Entertainment (SPE), Village Roadshow PicturesЖанр: Фэнтези, Комедия, ПриключенияРежиссер: Роб ЛеттерманАктеры: Дилан Миннетт, Одейя Раш, Эми Райан, Райан Ли, Джиллиан Белл, Джек Блэк, Кен Марино, Холстон Сейдж, Стивен Крюгер, Кит А. Болден, Аманда Ланд, Тимоти С. Саймонс, Каран Сони, Р.Л. Стайн, Калеб Эмери, Габриэла Фрайле, Нэйт Андраде, Шелдон Браун, Мелисса Брюэр, Маршалл ЧокаПеревод: Дублированный (iTunes)Язык субтитров: Английский (Full)Продолжительность: 01:43:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:534450923FA4FF71448A3D2B2E3EE96C87113D27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906235   (979773) от 08.01.2016
+
+XCOM: Long War (2013) [Ru/Multi] (1.0) Mod JohnnyLump&Amineri [PreInstall]
+
+>>3
+>>25
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979773.jpg" />
+</div>
+
+
+###  Подробнее
+
+XCOM: Long War - модификация, которая делает из оригинальной игры хардкорный проект, бросающий серьезный вызов игроку. Если по нраву жесткая война, выиграть которую можно только вникнув во все аспекты игры, вдумчиво подбирая бойцов и их экипировку, а цель - победить в тяжелых и напряженных боях, то XCOM: Long War - для вас.Тип издания: ModРазработчик: JohnnyLump, Amineri, XMarksTheSpot, Ellatan & CoЖанр: Тактическая стратегия (Real-time, Turn-based)Язык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский, Английский, Испанский, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:923D48D177C6B3343631A3E86C954032E5580A09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355649   (979632) от 29.01.2020
+
+В России могут ввести наказание за скрученный пробег автомобилей
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979632.jpg" />
+</div>
+
+
+###  Подробнее
+
+В России предложили штрафовать на 1 млн рублей за скручивание пробега у машин
+Глава ассоциации "Российские автомобильные дилеры" Олег Моисеев выступил с инициативой ввести штрафы за скрутку пробега у подержанных машин: физических лиц, попавшихся на таком бизнесе, предлагают наказывать суммой в 300 тыс. рублей, а юридических - в 1 млн рублей. Обсуждение (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355608   (979611) от 29.01.2020
+
+Роспотребнадзор опубликовал памятку, как обезопасить себя от коронавирусной инфекции
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979611.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специалисты Роспотребнадзора подготовили пакет мер для того, чтобы предотвратить распространение нового коронавируса на территории РФ. Главный санитарный врач страны разработал постановление, которое определяет основной перечень соответствующих мероприятий. Оно опубликовано на официальном сайте ведомства.В сообщении уточняется, что «Мероприятия по недопущению распространения (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356137   (979605) от 29.01.2020
+
+Windows 10 Pro 1909 b18363.592 x64 by SanLex (edition 2020-01-28) [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979605.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на официальном оригинал образе Win10_1909_Russian_x64.
+Отключена/изолирована вся глобальная телеметрия, рекламные модули, и всё что влияет на приватность пользователя (в пределах возможного). Оптимизирована общая производительность Windows (фишка by SanLex). Добавлены накопительные обновления исправления/безопасность. В остальном ничего не добавлялось, (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23BB84017B6484DE4BB49B351BEBD7CD30D45155
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355526   (979593) от 29.01.2020
 
 Windows 7 не может умереть. От Microsoft требуют дать ОС вторую жизнь
@@ -6,7 +164,7 @@ Windows 7 не может умереть. От Microsoft требуют дать
 >>17
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979593.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979589.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ Crysis Wars Dream GOLD Edition [Ru/En] (RePack) 2008 | R.G. DreamLair.Net
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_979551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_979551.jpg" />
 </div>
 
 
@@ -84,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_979521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_979521.jpg" />
 </div>
 
 
@@ -116,7 +274,7 @@ No One Lives Forever Anthology / Антология No One Lives Forever (2000-2
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979439.jpg" />
 </div>
 
 
@@ -144,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979368.jpg" />
 </div>
 
 
@@ -170,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978931.jpg" />
 </div>
 
 
@@ -196,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978810.jpg" />
 </div>
 
 
@@ -222,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978648.jpg" />
 </div>
 
 
@@ -250,7 +408,7 @@ Call of Cthulhu: Dark Corners of the Earth (2006) [Ru/Multi] (1.0) Repack R.G. C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978638.jpg" />
 </div>
 
 
@@ -276,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978634.jpg" />
 </div>
 
 
@@ -302,7 +460,7 @@ Punch Club (2016) [Ru/Multi] (1.0) Unofficial ALiAS
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978632.jpg" />
 </div>
 
 
@@ -328,7 +486,7 @@ Teleport Pro 1.72 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978630.jpg" />
 </div>
 
 
@@ -354,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978627.jpg" />
 </div>
 
 
@@ -380,7 +538,7 @@ Microsoft Flight Simulator 2004: A Century of Flight 9.1 [Ru/En] (L) 2003
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978625.jpg" />
 </div>
 
 
@@ -408,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978540.jpg" />
 </div>
 
 
@@ -434,7 +592,7 @@ Faust: The Seven Games of the Soul / Фауст: Семь ловушек для 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978494.jpg" />
 </div>
 
 
@@ -460,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978483.jpg" />
 </div>
 
 
@@ -486,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978459.jpg" />
 </div>
 
 
@@ -512,7 +670,7 @@ Kali Linux 2020.1 (ex. BackTrack) [Аудит безопасности, хаки
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978447.jpg" />
 </div>
 
 
@@ -523,164 +681,6 @@ Kali Linux 2020.1 (ex. BackTrack) [Аудит безопасности, хаки
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B31E907437C0AF79E3B9E904A5EBB018E998AE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356355   (978438) от 30.01.2020
-
-Гив ми либерти / Give Me Liberty (2019) WEB-DL [H.264/1080p-LQ]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978438.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о трех поколениях русской эмиграции, о мелких аферистах и обаятельных маргиналах, которые оказываются в одном микроавтобусе по дороге на шумные поминки.Производство: США / Give Me Liberty, Flux Capacitor Studios, The Space ProgramЖанр: КомедияРежиссер: Кирилл МихановскийАктеры: Лорен Спенсер, Крис Галуст, Максим Стоянов, Дарья Екамасова, Зоя Махлина, Дороти Рейнольдс, Шерил Симс-Дэниэлс, Стив Волски, Мишель Каспар, Бен ДерфельПеревод: Не требуется (iTunes)Язык озвучки: Русский, английскийСубтитры: Русские (на английскую речь)Продолжительность: 01:50:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82B315A243EF62DAEF82992B78A94A9C9F260B97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351340   (978437) от 30.01.2020
-
-MInstAll v.09.01.2020 By Andreyonohov & Leha342 [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978437.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед Вами обновленный 09 Января 2020 года полюбившийся многим пользователям сборник последних версий самых часто используемых в работе программ от Андрея Онохова. Теперь в новой, более простой и удобной оболочке MInstAll - это новый мастер установки приложений, упрощенный аналог WPI. Данный MInstAll имеет самый оптимальный состав софта для установки на чистые системы. (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA894CBC94ED94DA5B0A3B82683973E39E3AB134
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087914   (978436) от 30.01.2020
-
-Локализация названий иностранных фильмов, как и зачем?
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978436.jpg" />
-</div>
-
-
-###  Подробнее
-
-
-Как часто плакат с названием фильма заставляет Вас не только остановиться, но и в недоумении почесать затылок? Переводя названия зарубежных картин на русский, прокатчики и дистрибьюторы не перестают удивлять познаниями в области иностранных языков, чувством вкуса, остроумием и логикой. «Добро пожаловать в ПОП», «Сен-Лоран. Стиль – это я», «Чем дальше в лес…», да и чего греха таить – «Интерстеллар»… Давайте попробуем разобраться с историей отечественной локализации, мировыми трендами и обратимся к опыту профессионалов.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 398147   (978364) от 16.01.2012
-
-Убежище / Sanctuary (2011) WEB-DLRip [4 сезон, полностью] Gravi-TV
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Убежище повествует о истории доктора Хелен Магнус, которая разыскивает разного рода чудовищных созданий (также известных как "абнормалы"). Некоторых из них нужно держать в заперти ради защиты людей, а некоторых - защищать от самих людей. В этом ей помогают её коллега доктор Уилл Зиммерман, бесстрашная и порой безрассудная дочь Эшли, черезчур разговорчивый (   Читать дальше...   )Жанр: ФантастикаРежиссер: Мартин Вуд / Martin WoodАктеры: Аманда Таппинг, Робин Данн, Кристофер Хейердал, Леа Кейрнс, Миранда Фригон, Лаура Меннелл, Райан Роббинс, Питер ДеЛуис.Перевод: Двуголосый закадровый, любительскийОзвучка: Alex White & Irene BlackФормат: AVIПродолжительность: ~ 00:45:00 серия
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 269985   (978354) от 16.01.2012
-
-Все турниры UFC 1-142
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978354.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изначально UFC задумывалась создателями как одноразовый турнир, позволяющий определить самое эффективное боевое искусство и напоминала ранние бразильские состязания по Вале Тудо. Успех первого турнира, состоявшегося в Денвере в 1993 году, стал причиной проведения новых состязаний, однако, под давлением властей, компании пришлось внести значительные изменения в правила, (   Читать дальше...   )Жанр: Телепередача, Спорт
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 437435   (978351) от 16.01.2012
-
-Adobe Acrobat X Professional v.10.1.2 DVD [RUS / ENG]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_978351.jpg" />
-</div>
-
-
-###  Подробнее
-
-Идеальный инструмент для технических и маркетинговых специалистов.Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

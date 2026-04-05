@@ -1,136 +1,3 @@
-###  Публикация: 1142882   (269054) от 03.12.2018
-
-Книжная серия | Мировая электроника [22 +5 CD] (2000-2016) [PDF.DJVU] [Обновляемая]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книги серии «Мировая электроника» представляют собой справочные пособия по микроконтроллерам: интересные и актуальные издания, многие из которых до сих пор единичные в своем роде и пользуются спросом у специалистов, студентов и преподавателей разных направлений и специальностей.Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB99C0AB4CD0F40BA9C017A76C28B883A629DB0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338618   (269002) от 16.11.2019
-
-К. Каутский | Возникновение рабочего класса (1923) [DJVU, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярный исторический очерк об истории возникновения рабочего класса - со времен Римской империи и до позднего средневековья, когда начали образовываться современная буржуазия и пролетариат...Жанр: История, политология, социология, публицистикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3401C599F253766A855389D5B85342FFEF7CDE99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338623   (268995) от 16.11.2019
-
-Н. А. Константинов (ред.) | Очерки по истории педагогики. Сборник статей (1952) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268995.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемые читателям «Очерки по истории педагогики» являются книгой справочно-обзорного характера. В первой части «Очерков» освещается история педагогики и школы до Великой Октябрьской социалистической революции. Вторая часть посвящена истории педагогики и школы со времени Великого Октября до наших дней.
-
-Главное место в очерках занимает история марксистско-ленинской (   Читать дальше...   )Жанр: История, социология, психология, педагогика, искусство, публицистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0998B13C7B8CB9FF90F3413D57FCF90FC33318A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338620   (268840) от 16.11.2019
-
-К. С. Бакрадзе | Логика (1951) [DJVU, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Логика — наука о законах и формах правильного мышления. Таково общее определение логики, освященное традицией. Это определение может быть и правильным и ложным, смотря по тому, какое содержание вкладываем мы в это определение. В этом определении мы пользуемся такими понятиями, как «закон», «форма», «правильное», «мышление », которые могут быть понимаемы — и на самом (   Читать дальше...   )Жанр: История, науковедение, философия, логикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D7BB53DC95231848D65EFB116A0CC38CD2CBB38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190000   (268648) от 08.12.2017
-
-Сергей Реутов (сост.) | Самые жуткие и мистические места на планете и тайны их жителей (2017) [FB2]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268648.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему человек боится проклятия? Что собой представляет сам феномен проклятия и почему, как бы страшно ни было входить в заброшенное здание, человек все равно заходит туда? Почему нас так привлекает неведомое? Возможно, ответ на эти вопросы надо искать не извне – в самих проклятых городах и домах, – а внутри, в потаенных участках сознания?
-• Проклятые мосты и дороги (   Читать дальше...   )Жанр: Научно-популярная литература, Таинственные явления, Мистические тайныФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:330C044F6416B33ADC1EFC9C8853E408B930D04A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1266887   (268418) от 04.12.2018
 
 Г. С. Зайдель, М. М. Цвибак | Классовый враг на историческом фронте [Тарле и Платонов и их «школы»] (1931) [PDF]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268418.jpg" />
 </div>
 
 
@@ -165,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268312.jpg" />
 </div>
 
 
@@ -192,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268193.jpg" />
 </div>
 
 
@@ -218,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268043.jpg" />
 </div>
 
 
@@ -246,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267984.jpg" />
 </div>
 
 
@@ -272,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267959.jpg" />
 </div>
 
 
@@ -298,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267876.jpg" />
 </div>
 
 
@@ -324,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267869.jpg" />
 </div>
 
 
@@ -351,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267677.jpg" />
 </div>
 
 
@@ -378,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267667.jpg" />
 </div>
 
 
@@ -406,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267654.jpg" />
 </div>
 
 
@@ -432,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267577.jpg" />
 </div>
 
 
@@ -458,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267568.jpg" />
 </div>
 
 
@@ -484,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266946.jpg" />
 </div>
 
 
@@ -512,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266945.jpg" />
 </div>
 
 
@@ -538,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266863.jpg" />
 </div>
 
 
@@ -566,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266842.jpg" />
 </div>
 
 
@@ -592,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266833.jpg" />
 </div>
 
 
@@ -619,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266671.jpg" />
 </div>
 
 
@@ -645,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266163.jpg" />
 </div>
 
 
@@ -671,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266150.jpg" />
 </div>
 
 
@@ -682,6 +549,136 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49603453F6FAE5E6F6994EA7203A7072F425ECF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339368   (266148) от 19.11.2019
+
+П. М. Керженцев | Принципы организации (1968) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266148.jpg" />
+</div>
+
+
+###  Подробнее
+
+В однотомнике избранных произведений Платона Михайловича Керженцева, посвященных научной организации труда и управления, помещено с некоторыми сокращениями пять работ: «Принципы организации», «НОТ — научная организация труда», «Борьба за время», «Памятка организатора», «Организуй самого себя!».Жанр: История, психология, социология, искусство, публицистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:587DA078EFA035D4982E8973DA69DDDE4DCBC3D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339422   (266079) от 19.11.2019
+
+М.Д. Моисеев | Английская лексика. Правильный выбор слова (1996) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266079.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель этого учебного пособия состоит в том, чтобы на основе конкретного материала помочь учащимся увеличить свой словарный запас и одновременно научить их самостоятельно ориентироваться в очень обширной английской лексике, то есть правильно определять основной смысл изучаемого слова и его характерные отличия от других схожих (синонимических) слов. Пособие предназначено (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2292BE02D4BDB35C6A8ECEFE3F5B7F545E2F0F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339363   (266068) от 19.11.2019
+
+Ж. Г. Тард | Законы подражания (2011) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классический труд основателя социальной психологии Г. Тарда посвящен социально-коммуникативной деятельности индивидов в форме подражания (имитации), которая выступает как основа развития общества. Под процессом подражания понимается элементарное копирование и повторение одними людьми поведения других. Процессы копирования и повторения касаются существующих практик, (   Читать дальше...   )Жанр: История, психология, социологияФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A19B4C66C4DD5CB1453DCEA1C6443F8A98231029
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339454   (266066) от 19.11.2019
+
+Дженнифер Даудна, Сэмюэль Стернберг | Трещина в мироздании (2019) [FB2]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дженнифер Даудна – одна из ведущих современных генетиков, под ее руководством была разработана технология редактирования генома CRISPR – самый дешевый, но при этом самый точный и мощный способ манипуляций с ДНК. Но довольно быстро стало понятно, что этот метод, позволяющий прицельно изменять ДНК живого организма, – очень рискованная технология, которую уже называют (   Читать дальше...   )Жанр: Научная литература, Биология, биофизика, биохимияПеревод: Светлана ЯстребоваФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B08E92C10B921CE3CF9EC17FC9BEF2F31DC5CB67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339426   (266019) от 19.11.2019
+
+А.Н. Драгункин | СуперРуководство для умных лентяев. Английский язык: пособие для взрослых (2008) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это - переиздание самой первой книги известного петербургского филолога Александра Драгункина. "СуперРуководство" вышло в 1998 году, было моментально распродано и стало библиографической редкостью. Экспериментальный курс английского языка для широкого круга лиц, желающих научиться говорить по-английски и понимать английскую речь в кратчайший срокЖанр: Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B67CC9AB97470503C055AAF06CD772379EBEC66
 ```
 
 https://mybot314.ru/tekegram_catalog/

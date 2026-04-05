@@ -1,134 +1,3 @@
-###  Публикация: 1587879   (191754) от 03.11.2022
-
-Э.И.Крупицкий | Слесарное дело (1976) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие по специальной технологии для подготовки слесарей различных специальностей в профтехучилищах.  Учебный материал разбит на дозы информации, предусматривается система вопросов и заданий. Может быть использовано рабочими и мастерами металлообрабатывающих профессий.Жанр: учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06E5999D803EECC4BC8E7CF3E1FBC810A338E05A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587882   (191752) от 03.11.2022
-
-М.А.Сергеев | Справочник слесаря-сборщика (1967) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191752.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Справочник слесаря-сборщика» содержит все основные сведения, необходимые сборщику машин и приборов.
-Материалы справочника даны в виде таблиц с иллюстрациями, ука­зывающими наиболее рациональные методы и приемы выполнения сборочных, контрольных и других вспомогательных операций, к которым приходится прибегать при сборке. Справочник предназначен для слесарей-сборщиков, (   Читать дальше...   )Жанр: учебное пособие, справочникФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22F8FB0BB07C16E6F7F0577C4372421483ECDF2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658007   (191702) от 06.09.2023
-
-Меган Миллер | Minecraft от А до Я. Неофициальная иллюстрированная энциклопедия (2022) [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иллюстрированная энциклопедия для игроков Minecraft, одной из самых популярных компьютерных игр последних лет. От Меган Миллер, автора бестселлера «Все секреты Minecraft». Это руководство станет отличным помощником в постижении тайн игры. С его помощью вы достигнете небывалых успехов! Информация внутри отсортирована по алфавиту, поэтому можно с легкостью отыскать (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: М.А. РайтманИздательство: Бомбора, ЭксмоФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4574CC468795F57D01EAEA56E2FB31DC7A04626
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588401   (191595) от 04.11.2022
-
-Анастасия Архипова, Екатерина Неклюдова | Эпоха сериалов. Как шедевры малого экрана изменили наш мир (2020) [EPUB]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Культурологов Анастасию Архипову и Екатерину Неклюдову объединяют не только профессиональные интересы и давняя дружба, но и любовь к сериалам. Этот своеобразный маркер нашего времени невозможно обойти вниманием. Телевизионные саги не только развлекают зрителя. Они порождают любопытнейшее явление под названием фэндом. Группы людей, объединенные общими интересами, (   Читать дальше...   )Жанр: Культурология, кинематограф, театрФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:025311D30B153291C20263397C27C1CF17D8392F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658192   (191582) от 07.09.2023
-
-В. С. Пантюшин | Лабораторные работы по электротехнике (1977) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191582.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге приведены общие рекомендации и программы подготовки и осуществления экспериментальных исследований электротехнических устройств, изучаемых студентами неэлектротехнических специальностей в курсе «Электротехника».Жанр: ЭлектротехникаИздательство: Высшая школаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9979E66D8D426FAEE262E7C21805C181C6E0C1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1658314   (191571) от 07.09.2023
 
 В.В. Чернявская (Добровольская) | Финский язык. Рабочая тетрадь №1 (2017) [PDF]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191571.jpg" />
 </div>
 
 
@@ -166,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191553.jpg" />
 </div>
 
 
@@ -193,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191551.jpg" />
 </div>
 
 
@@ -219,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191536.jpg" />
 </div>
 
 
@@ -245,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191346.jpg" />
 </div>
 
 
@@ -272,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191257.jpg" />
 </div>
 
 
@@ -298,7 +167,7 @@ Donald Knuth и др. | Concrete Mathematics: A Foundation for Computer Science 
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191230.jpg" />
 </div>
 
 
@@ -325,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191022.jpg" />
 </div>
 
 
@@ -351,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190919.jpg" />
 </div>
 
 
@@ -377,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190840.jpg" />
 </div>
 
 
@@ -405,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190822.jpg" />
 </div>
 
 
@@ -431,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190786.jpg" />
 </div>
 
 
@@ -457,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190549.jpg" />
 </div>
 
 
@@ -483,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190531.jpg" />
 </div>
 
 
@@ -509,7 +378,7 @@ Farzin Asadi | Анализ и симуляция электрических ц�
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190523.jpg" />
 </div>
 
 
@@ -538,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190520.jpg" />
 </div>
 
 
@@ -564,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190514.jpg" />
 </div>
 
 
@@ -590,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190472.jpg" />
 </div>
 
 
@@ -616,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190398.jpg" />
 </div>
 
 
@@ -643,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190339.jpg" />
 </div>
 
 
@@ -669,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190327.jpg" />
 </div>
 
 
@@ -681,6 +550,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14FD5B9507CD249A40B34C005B4F601E57DCF750
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 813252   (190322) от 10.09.2023
+
+Ю.А. Быстров, И.Г. Мироненко | Электронные цепи и устройства (1989) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190322.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассмотрены вопросы теории и расчета электронных цепей, анализ электрических сигналов и их взаимодействия с линейными, нелинейными и параметрическими цепями, усилители и устройства импульсной техники, генераторы непрерывных, модулированных и импульсных напряжений, устройства на элементах цифровой вычислительной техники.Издательство: Высшая школаФормат: PDFКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDCCD72D2CF5AFA600DF90BACDA07E6DF2F79119
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589414   (190310) от 09.11.2022
+
+В.С. Владимиров | Уравнения математической физики (1988) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190310.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основная особенность курса - широкое использование концепции обобщенного решения краевых задач классической математической физики. Поэтому в книге содержится специальная глава, посвященная теории обобщенных функций. Излагается теория интегральных уравнений, теория сферических функций, теория функций Бесселя, операционное исчисление обобщенных функций. Настоящее издание (   Читать дальше...   )Жанр: МатематикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18F30241A77999276B0CA198775F5B0B7E69FE02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589301   (190289) от 09.11.2022
+
+С.Л. Соболев | Уравнения математической физики (1954) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190289.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третье издание учебника по уравнениям математической физики.
+Эта книга составлена в результате переработки курса лекций, читанного автором в Московском государственном университете имени М. В. Ломоносова. Поэтому автор сохранил за отдельными лекциями их название. Этим объясняется и подбор материала, который был ограничен в объеме количеством лекционных часов.Жанр: МатематикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D41ACF88F8F97F754EC7D2B4EAE771BAEE7A6AED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657750   (190275) от 10.09.2023
+
+И.Ф. Акулич и др. | Математика. Полная энциклопедия (2020) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Без математики невозможно ни освоение космоса, ни создание роботов. Математика – точная наука, не терпящая ошибок. Ее законы легли в основу всех изобретений. Материал книги позволит как проверить свои знания, так и узнать новое.
+Математика в последние годы стала одной из самых востребованных тем, а математическое образование - одним из самых престижных. Это фундаментальное (   Читать дальше...   )Жанр: МатематикаИздательство: РосмэнФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F4FDD234778AD98CECDECA358D40F73C0EABE35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589353   (190224) от 09.11.2022
+
+А.Г. Чертов | Единицы физических величин (1977) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190224.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии в соответствии с современным состоянием метрологии в систематическом виде изложено построение систем единиц СИ и СГС, рассмотрены внесистемные единицы, а также дана классификация единиц физических величин. Изложение материала в пособии соответствует курсу общей физики, изучаемому в вузах Книга может быть полезна для преподавателей и инженеров.Жанр: ФизикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B07F041DA4D283C4D769B74400C8768F9F19AAB
 ```
 
 https://mybot314.ru/tekegram_catalog/

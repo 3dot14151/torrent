@@ -1,3 +1,55 @@
+###  Публикация: 1404827   (486761) от 28.08.2020
+
+Hotspot Shield VPN Business 9.8.7 RePack by epxilion90 & Hss721 [x64] [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486761.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hotspot Shield VPN - самое полное решение проблем безопасности в интернете. Защищает ваши сессии в веб-браузере, обнаруживает и блокирует вредоносное ПО, сохраняет конфиденциальность, обеспечивает доступ к заблокированным сайтам. Hotspot Shield делает безопасным просмотр веб-страниц, защищая ваше (проводное или беспроводное) соединение дома и в общественных местах. (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD58A1B50C752EDE8AB133E069C146F702280A7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319261   (486338) от 10.08.2019
+
+Знакомьтесь, Ибалы (2017) WEB-DLRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главная героиня повествования – молодая девушка, происходящая родом из типичного горного аула. Ее зовут Ибалы и у нее есть слегка неадекватный молодой человек. Устав от тяготящих ее взаимоотношений со странноватым типом, Ибалы решает перебраться в Астану. В столице девушка всерьез намеревается учиться. Но освоиться в большом шумном городе скромной провинциалке не (   Читать дальше...   )Производство: КазахстанЖанр: КомедияРежиссер: Кальменов ДарханбекАктеры: Макулбек Арна, Исембаев Саят, Молдахан Нурканат, Мамреев Спандияр, Алайдарова Сапара, Асадов ЗакирЯзык озвучки: русский, казахскийСубтитры: русские (hardsub на казахскую речь)Продолжительность: 01:31:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C32D5EDE7C54D6AECEB4163F50CBC5B96CFF76D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1318942   (486318) от 10.08.2019
 
 Полярный / Polar (2019) WEB-DLRip [H.265/720p-LQ] [10-bit] [PR]
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486318.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486223.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ VA - Beautiful Rock Ballads Vol.22 (Compiled by Виктор31Rus) (2017) [MP3|3
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485547.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ Heroes of Might & Magic III / Герои Меча и магии 3 (2015) [Ru] (1
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485387.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ Destroy Windows 10 Spying 1.5 Build 423 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485143.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ Total War ATTILA (2015) [Ru/Multi] (1.4.0/dlc) SteamRip Let'sРlay
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485108.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ VA - Vocal Dubstep Vol.1-14 (Обновляемая) (2013-2015) [MP3|128-320 к
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485101.jpg" />
 </div>
 
 
@@ -195,7 +247,7 @@ multiboot usb(hdd) v.5 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485077.jpg" />
 </div>
 
 
@@ -221,7 +273,7 @@ cFosSpeed 10.20 Build 2282 Final RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485072.jpg" />
 </div>
 
 
@@ -247,7 +299,7 @@ The Saboteur (2009) [Ru/Multi] (1.3hotfix) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485069.jpg" />
 </div>
 
 
@@ -273,7 +325,7 @@ The Uncertain (2016) [Ru/Multi] (1.0) Repack Other s [Episode 1 - The Last Quiet
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485061.jpg" />
 </div>
 
 
@@ -299,7 +351,7 @@ Middle-earth Shadow of Mordor / Средиземье Тени Мордора (20
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485051.jpg" />
 </div>
 
 
@@ -325,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484277.jpg" />
 </div>
 
 
@@ -353,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484139.jpg" />
 </div>
 
 
@@ -379,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484133.jpg" />
 </div>
 
 
@@ -408,7 +460,7 @@ GoldenDict  + словари 1.41 (09.2012) <Ru>
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484131.jpg" />
 </div>
 
 
@@ -434,7 +486,7 @@ Warcraft III: Reforged (2022) [Ru/Multi] (1.32.10.18820) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483954.jpg" />
 </div>
 
 
@@ -460,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_483754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_483754.jpg" />
 </div>
 
 
@@ -486,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483627.jpg" />
 </div>
 
 
@@ -512,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_483604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_483604.jpg" />
 </div>
 
 
@@ -538,7 +590,7 @@ Kerish Doctor 2018 4.70 RePack (& Portable) by 9649 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483579.jpg" />
 </div>
 
 
@@ -564,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_483503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_483503.jpg" />
 </div>
 
 
@@ -591,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483492.jpg" />
 </div>
 
 
@@ -617,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483475.jpg" />
 </div>
 
 
@@ -628,58 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAECDE0F409E9B54DC2B2E1F1F4D3E8E82B24D02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938065   (483175) от 17.09.2015
-
-Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.4753.1001 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Office 2013 SP1 – лучший пакет прикладных программы для работы с документами различных типов. В его состав входят лучшие средства для развития бизнеса, а также для достижения максимального комфорта в процессе учебы, ведения домашних финансов и прочего. Будь то сфера бизнеса или домашние условия - не важно, Office 2013 просто обязан быть установлен на компьютере (   Читать дальше...   )Язык интерфейса: Русский / Английский / Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F981F3AE197389EF22CD3AC63D63F4365C6DB5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056002   (482959) от 24.09.2016
-
-Hotspot Shield Elite 6.20.6 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hotspot Shield VPN – самое полное решение проблем безопасности в Интернет. Защищает ваши сессии в веб-браузере, обнаруживает и блокирует вредоносное ПО, сохраняет конфиденциальность, обеспечивает доступ к заблокированным сайтам. Hotspot Shield делает безопасным просмотр веб-страниц, защищая ваше (проводное или беспроводное) соединение дома и в общественных местах. (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC873D40CB360E4594A55D964C04A91186907B4E
 ```
 
 https://mybot314.ru/tekegram_catalog/

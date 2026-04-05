@@ -6,7 +6,7 @@ Discovery. Инженерия невозможного / Impossible Engineering 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309702.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NGW: Каждый тигр на счету / Counting Tigers (2019) HDTVRip [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309311.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NG. Солнечный фараон Египта: тайны и сокровищ
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309118.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309108.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NG. Осушить океан / Drain the Oceans (2018) WEB-DL [H.264/1080p] (1 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308809.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ BBC: Мир природы. Водопад Виктория / Natural World. Vic
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308553.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Discovery. На краю Аляски  / Edge of Alaska (2014) HDTVRip (1-8 се
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308473.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ BBC. Эти удивительные хищники / Incredible Predators (2016
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308131.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ NGW: Африканская суперзмея / Africa's Super Snake (2017) HDT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307504.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ History Channel. Скрытые следы: Первая мировая войн
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307111.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ History Channel: Скрытые следы / Hidden Traces (2014-2016) HDTVRip [
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306731.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Discovery. Дороги России: Трасса Колыма (2016) HDTVRip [
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306324.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ NG. Скрытые тайны городов: Баку / Hidden Cities Revealed:
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305345.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ NGW:Дикая Ботсвана: Братство львов / Wild Botswana: Li
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303268.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ BBC. Наша Первая мировая / Our World War (2014) HDTVRip [H.264/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303259.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ NGW: Тайна Морского Дьявола / Manta Mystery (2011) HDTV [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303149.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ NG. Экспедиция на Марс / Expedition Mars (2016) TVRip [H.264]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302068.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ BBC: Новая Европа с Майклом Пэйлином / Michael Palin'
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300972.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Discovery. Северная Америка / North America (2013) BDRemux [H.264
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300968.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ History channel: Вселенная / The Universe (2007) BDRemux [H.264/1080p] 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300946.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ BBC: Супердостижения Земли / Supersized Earth (2012) HDTV [H
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300886.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300751.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300051.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ NG. Чудо-юдо динозавры / Bizarre Dinosaurs / Weirdest Dinosaurs 
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299910.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Discovery Scienceу: НАСА. Необъяснимые материалы / NAS
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299711.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ NG: Первый великий побег / The First Great Escape (2014) DVB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298671.jpg" />
 </div>
 
 

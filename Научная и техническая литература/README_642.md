@@ -1,136 +1,3 @@
-###  Публикация: 1787931   (23210) от 28.03.2025
-
-В.В. Прасолов, Ю.П. Соловьев | Эллиптические функции и алгебраические уравнения (1997) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23210.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет собой вводный курс в теорию эллиптических функций и эллиптических кривых.
-Основные вопросы, рассматриваемые в книге - это геометрия кубических кривых, эллиптические функции и их свойства, эллиптические интегралы, теоремы сложения эллиптических функций и интегралов, теоремы Абеля о лемнискате, теорема Морделла, тэта-функции, кривые Серре. И приводится (   Читать дальше...   )Жанр: МатематикаИздательство: ФакториалФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A20CC414C0A8C19CACAC122AB717534F63381A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787932   (23209) от 28.03.2025
-
-А.А. Ярославцев | Сборник задач и упражнений по аналитической химии (1979) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23209.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет собой сборник систематически подобранных задач и упражнений (около 1500) по основным разделам курса аналитической химии. Каждому разделу предшествует небольшое теоретическое введение и решение типовых задач. Третье издание вышло в 1973 г.Жанр: ХимияИздательство: Высшая школаФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47B0EE250DEE98B2F5AB9A7E8BB7D4180A036377
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788270   (23120) от 29.03.2025
-
-В.В. Буканов | Цветные камни. Энциклопедия (2008) [PDF, DJVU]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга зарекомендовала себя как один из лучших справочников о цветных камнях. Её первый вариант в виде «Геммологического словаря» вышел в 2001 году, затем в 2006 году в Праге напечатано её расширенное и прекрасно иллюстрированное английское издание. На конкурсах Российского минералогического общества, обе книги отмечены дипломами. В данный вариант энциклопедии, (   Читать дальше...   )Жанр: Минералогия. Геммология. Энциклопедия. Учебная литература.Издательство: Гранит, ПрагаФормат: PDF, DJVUКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8113BDF526D2353C5D7D819FF1859E381CFD2413
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788341   (23103) от 29.03.2025
-
-Л.М. Брагина (отв. ред.) | Книга в культуре Возрождения (2002) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23103.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эпоха Возрождения - время информационной революции, связанной с изобретением и широким распространением книгопечатания как нового средства коммуникации, выполняющего различные функции в общественной, политической, религиозной и культурной жизни Европы XV - начала XVII в. В статьях сборника рассматриваются: специфика содержания и оформления различных типов печатных (   Читать дальше...   )Жанр: ИсторияИздательство: НаукаФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D9C14ABBC0F4E5263A77CDA40434125301BD233
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788288   (23101) от 29.03.2025
-
-М. эль-Массарини, В.С. Сегаль | Арабско-русский словарь сирийского диалекта (1978) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23101.jpg" />
-</div>
-
-
-###  Подробнее
-
-Арабско-русский словарь сирийского диалекта
-(Эль-Массарани Мохамед, Сегаль Владимир Соломонович )
- включает около 12 тыс. слов сирийского диалекта. В словаре даны распространенные словосочетания и широко употребительные выражения, специфичные для сирийского диалекта. Слова и фразеология даны в арабской графике и латинской транскрипции. Заглавные слова расположены (   Читать дальше...   )Жанр: Арабский языкИздательство: Русский языкФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A154CDAA8B14E28730857002EFD7BDDABAA6C518
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1787533   (23074) от 30.03.2025
 
 Александр Бебрис | Английский с нуля. Выучить может каждый! Практический самоучитель (2025) [PDF]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23074.jpg" />
 </div>
 
 
@@ -165,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23028.jpg" />
 </div>
 
 
@@ -193,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22995.jpg" />
 </div>
 
 
@@ -219,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22842.jpg" />
 </div>
 
 
@@ -245,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22776.jpg" />
 </div>
 
 
@@ -271,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22709.jpg" />
 </div>
 
 
@@ -297,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22603.jpg" />
 </div>
 
 
@@ -323,7 +190,7 @@ F. Klein | Elementary Mathematics from a Higher Standpoint [3 книги] (2016)
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22484.jpg" />
 </div>
 
 
@@ -349,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22414.jpg" />
 </div>
 
 
@@ -375,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22357.jpg" />
 </div>
 
 
@@ -401,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22202.jpg" />
 </div>
 
 
@@ -428,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22201.jpg" />
 </div>
 
 
@@ -455,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22142.jpg" />
 </div>
 
 
@@ -481,7 +348,7 @@ Michel Lauricella | MORPHO - Anatomy for Artists - Books 1 - 10 [10 книг] (2
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22093.jpg" />
 </div>
 
 
@@ -507,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22083.jpg" />
 </div>
 
 
@@ -533,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22077.jpg" />
 </div>
 
 
@@ -559,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22070.jpg" />
 </div>
 
 
@@ -586,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22055.jpg" />
 </div>
 
 
@@ -613,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22049.jpg" />
 </div>
 
 
@@ -639,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22044.jpg" />
 </div>
 
 
@@ -666,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21961.jpg" />
 </div>
 
 
@@ -677,6 +544,140 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FF9F91F491AE0B0C48CF7743FB471E61B2EBED1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790413   (21957) от 09.04.2025
+
+Книжная серия | Библиотека сборника "Математика" [95 книг из 97] (1959 - 1975) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книги серии содержат подбор статей иностранных математиков. Тематика книг содержат как элементы школьного курса математики повышенной сложности, так и статьи основных разделов высшей математики: линейной алгебры, математического анализа, комбинаторной математики, теории чисел и другое.
+Книги будет полезны широкому кругу читателей и аспирантов высших учебных заведений.Жанр: МатематикаИздательство: МирФормат: PDF, DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AF604F75661B5F750D31BA9013B7D1FE7AA90D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790498   (21935) от 09.04.2025
+
+Н.С. Кошляков | Основные дифференциальные уравнения математической физики (1936) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21935.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящая книга представляет собою извлечения из лекций, читаемых мною в Ленинградском государственном университете и в Ленинградском электротехническом институте им. В. И. Ульянова (Ленина). В виду невозможности издать свои лекции полностью, я был принужден опустить целый ряд отделов: так, например, решение задачи Dirichlet по способу арифметических средних, основы (   Читать дальше...   )Жанр: МатематикаИздательство: Главная редакция общетехнической литературыФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:554265A4FD6AA4366B044C7AEA0C3273060ED494
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790494   (21933) от 09.04.2025
+
+Н.С. Кошляков, Э.Б. Глинер, М.М. Смирнов | Уравнения в частных производных математической физики (1970) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21933.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вывод основных уравнений математической физики (например, уравнение колебаний струны, мембраны, уравнения гидродинамики и звуковых волн и т. д. ); приводится классификация уравнений первого и второго порядка; а также рассматривается: применение метода характеристик к изучению малых колебаний струны; продольные колебания стержня; уравнения гиперболического типа с (   Читать дальше...   )Жанр: МатематикаИздательство: Высшая школаФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15998C679E3733336B3D8E4154CB9E656AC0B0C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790545   (21889) от 10.04.2025
+
+Кирилл Шатилов | Как сказать по-британски. Британский сленг в миниатюрах (2022) [PDF, FB2, EPUB] [RU, EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21889.jpg" />
+</div>
+
+
+###  Подробнее
+
+И смех, и грех — так можно коротко охарактеризовать британский сленг. Вместе с тем, в нём таится много интересного из истории и культуры, попавших на Британские острова народов. Перед вами одна из редких отечественных книг, рассматривающая британский сленг с разных сторон и в сочных примерах. Предназначена для широкого круга читателей, знакомых с английским языком. (   Читать дальше...   )Жанр: Языкознание. Английский язык.Издательство: Издательские решения в системе RideroФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ABFFA9E109EB3DE1C887C808638DE288206663B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790560   (21884) от 10.04.2025
+
+О.А. Астафьева, И.А. Башкирова, Т.А. Колоскова | Секреты современной русской орфографии (2023) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21884.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебно-методическое пособие включает таблицы, алгоритмы и схемы по тем вопросам орфографии, которые, по наблюдениям авторов, вызывают наибольшее затруднение при выработке навыков грамотного письма.
+
+Весь теоретический материал изложен в табличной форме. Таблицы располагаются в соответствии с распределением языкового материала по блокам.
+(   Читать дальше...   )Жанр: Учебно-методическое пособиеИздательство: РИО ГГТУФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D65F5DB98C9E7C10B4165E0FCD69DB6E220A611B
 ```
 
 https://mybot314.ru/tekegram_catalog/

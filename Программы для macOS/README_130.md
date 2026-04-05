@@ -1,3 +1,56 @@
+###  Публикация: 1649003   (230741) от 25.07.2023
+
+Task Office 8.15 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подключите все свои календари к Task Office. Двусторонняя синхронизация работает с Apple iCal, Google Calendar, Exchange, Yahoo, Outlook и другими. После того как вы настроите соединение, все будет обновляться автоматически.Тип издания: macOS SoftwareРелиз состоялся: 24.07.2023Разработчик: © 2015 – 2023 by DK ConsultingПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:137F0C6A6FFFE776278AFBF1A629D65D4FAA7EEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648713   (230732) от 24.07.2023
+
+LaunchControl 2.4 U2B [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230732.jpg" />
+</div>
+
+
+###  Подробнее
+
+LaunchControl — это полнофункциональный графический интерфейс запуска, позволяющий создавать, управлять и отлаживать системные и пользовательские службы на вашем Mac.
+С LaunchControl вы сразу видите все службы и их соответствующий статус. Недействительные службы выделяются, и предоставляется описание проблемы. Вы можете включить или отключить услуги одним щелчком (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.05.2023Разработчик: © 2009–2022 soma-zoneПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AACDD0EF6E78E5A64D17A368C8DF574EC6EF6084
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1648633   (230722) от 24.07.2023
 
 OS Cleaner Pro - Disk Cleaner 10.2.60 [En]
@@ -6,7 +59,7 @@ OS Cleaner Pro - Disk Cleaner 10.2.60 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230722.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230624.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ Murus Pro Suite 1.4.22 (include Vallum 3.3.2) [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230020.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ FoneDog iOS Unlocker 1.0.22 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229992.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ Mirror for Smart TV apps by AirBeamTV 20191127 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_229936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229936.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ Export Calendars Pro 1.10 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_229865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229865.jpg" />
 </div>
 
 
@@ -168,7 +221,7 @@ Exporter for Contacts 1.13 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229814.jpg" />
 </div>
 
 
@@ -194,7 +247,7 @@ Banktivity 7 v7.5.3 fix [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229337.jpg" />
 </div>
 
 
@@ -222,7 +275,7 @@ Scudo 1.0 beta 10 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229274.jpg" />
 </div>
 
 
@@ -248,7 +301,7 @@ QuartzCode 1.67.1 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229267.jpg" />
 </div>
 
 
@@ -274,7 +327,7 @@ Pastebot 2.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229258.jpg" />
 </div>
 
 
@@ -301,7 +354,7 @@ RAR Extractor - The Unarchiver 8.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229168.jpg" />
 </div>
 
 
@@ -327,7 +380,7 @@ Family Tree Maker 2019 v24.0.1.252 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228970.jpg" />
 </div>
 
 
@@ -353,7 +406,7 @@ DjVu To PDF Converter 2.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228964.jpg" />
 </div>
 
 
@@ -381,7 +434,7 @@ Aquarium 4K – Live Wallpaper 1.0.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_228946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228946.jpg" />
 </div>
 
 
@@ -407,7 +460,7 @@ Password Vault Manager Enterprise 6.1.0.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228416.jpg" />
 </div>
 
 
@@ -433,7 +486,7 @@ Jaksta Screen Recorder 1.0.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228193.jpg" />
 </div>
 
 
@@ -462,7 +515,7 @@ Jaksta Music Recorder (Miner) 1.3.7 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228133.jpg" />
 </div>
 
 
@@ -491,7 +544,7 @@ Photoflow - for Instagram 1.2.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227947.jpg" />
 </div>
 
 
@@ -518,7 +571,7 @@ Jaksta Video Converter 2.0.7 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227906.jpg" />
 </div>
 
 
@@ -547,7 +600,7 @@ Omni Remover 4.0.6 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227854.jpg" />
 </div>
 
 
@@ -573,7 +626,7 @@ Omni Downloader 1.4.4 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227840.jpg" />
 </div>
 
 
@@ -599,7 +652,7 @@ Jaksta Media Recorder 1.4.6 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227776.jpg" />
 </div>
 
 
@@ -626,7 +679,7 @@ Radio Silence 3.0 beta [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227487.jpg" />
 </div>
 
 
@@ -638,58 +691,6 @@ Radio Silence 3.0 beta [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F1183960BE945385671A40993D26515E1596A73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424495   (227456) от 17.11.2020
-
-Scapple 1.4 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Scapple — это простой в использовании инструмент для быстрой фиксации и связи между собой ваших идей. Нельзя сказать, что это очередной MindMap-генератор, скорее это свободный текстовый редактор, позволяющий размещать заметки где угодно на странице и соединять их между собой используя линии или стрелки. Если вы когда-нибудь исписывали листы короткими заметками и (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.11.2020Разработчик: Literature & Latte LtdПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AEF708D83AB409C367B712A3E70E3B2F985B7C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650403   (226481) от 01.08.2023
-
-Screens 4 v.4.12.11 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_226481.jpg" />
-</div>
-
-
-###  Подробнее
-
-Находясь на другом конце страны, города или офиса, удобно создать быстрое подключение и решить задачу на другом компьютере, помочь друзьям и сотрудникам с вопросами настройки, установки приложений и помощи в различных вопросах. Screens 4 является приложением от команды Edovia, представленное в 2011 году. Клиент для Mac доступен как на сайте Edovia, так и Mac App (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.07.2023Разработчик: © 2023 Edovia Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF43B4DA158D6D33BB44A0CDA4B1E4CAA9A2F614
 ```
 
 https://mybot314.ru/tekegram_catalog/

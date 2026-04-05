@@ -1,3 +1,83 @@
+###  Публикация: 602520   (997357) от 13.01.2013
+
+Опасные связи / Dangerous Liaisons (2012) BDRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интерпретация романа де Лакло "Опасные связи", где действие перенесено в 30-е годы XX столетия. Женщина встречает в Шанхае своего бывшего любовника и завлекает его в интригу, цель которой - соблазнить, а затем бросить молодую невинную девушку. Но ее плану угрожает то, что обольститель и жертва полюбили друг друга...Жанр: Драма, Мелодрама, ДетективРежиссер: Джин-хо УрПродюсер: Вэй Минг Чен, Ксиа ШанАктеры: Чжан Цзыи, Чан Дон Гон, Сесилия Чунг, Шоун Доу, Лиза Лу, Дэн Тонг ХаньПеревод: Одноголосый закадровыйПродолжительность: 01:51:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB5F1C77277E4C97DAE2143F8E713AD063F03C0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605314   (994776) от 22.01.2013
+
+Ассасины / Tong que tai (2012) HDRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лин Цзю (Лиу Ифей) и Му Шун (Тамаки Хироши) были еще детьми, когда их пленили какие-то люди, со временем превратившие их в профессиональных убийц. Спустя годы их выпускают в большой мир с единственной целью – убить самого могущественного человека в Китае, Цао Цао (Чоу Юн-Фат). Лин Цзю становится его наложницей, а Му Шун, превращенный в евнуха, оказывается при дворе номинального императора (Алек Су), который на деле ничего не решает. Но даже находясь рядом с ним, убить Цао Цао не так-то просто.Жанр: Драма, ИсторическийРежиссер: Чжао ЛиншанАктеры: Чоу Юн-Фат, Яу Самчи, Алек Су, Яо Лу, Лиу ИфейПеревод: Любительский двуголосый, закадровыйПродолжительность: 01:47:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49AF580B2DA5E0F577092EE65041DA589978A1C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607498   (992718) от 26.01.2013
+
+Проклятие 2 / Ju-On. The Grudge 2 (2003) DVDRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992718.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проклятье, рожденное разъяренным разумом умирающего человека, не может сгинуть бесследно. Образ невинно загубленной души вновь и вновь является каждому, кто пытается постичь тайны ее страшной судьбы, замораживая кровь в жилах несчастных, ледяным ужасом неизбежного.
+
+Спустя некоторое время после необъяснимых событий в проклятом доме, где разыгравшаяся много лет назад (   Читать дальше...   )Жанр: УжасыРежиссер: Такаши Шимицу/Takashi ShimizuАктеры: Норико Сакаи, Тихару Нияма, Кей Хория, Юи Итикава, Аюму Саито, Эми Ямамото, Эрика КуроишиПеревод: Многоголосый закадровыйЯзык субтитров: нетПродолжительность: 01:28:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:584EE51162505B5E3969673604CAE940DCD1BAE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 607440   (992670) от 26.01.2013
 
 Проклятие / Ju-on (2000) DVDRip
@@ -6,7 +86,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992670.jpg" />
 </div>
 
 
@@ -34,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992179.jpg" />
 </div>
 
 
@@ -60,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991868.jpg" />
 </div>
 
 
@@ -86,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989495.jpg" />
 </div>
 
 
@@ -112,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987949.jpg" />
 </div>
 
 
@@ -138,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987947.jpg" />
 </div>
 
 
@@ -164,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984863.jpg" />
 </div>
 
 
@@ -190,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984840.jpg" />
 </div>
 
 
@@ -217,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984764.jpg" />
 </div>
 
 
@@ -243,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984213.jpg" />
 </div>
 
 
@@ -269,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983366.jpg" />
 </div>
 
 
@@ -295,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983005.jpg" />
 </div>
 
 
@@ -321,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982797.jpg" />
 </div>
 
 
@@ -347,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982690.jpg" />
 </div>
 
 
@@ -373,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982571.jpg" />
 </div>
 
 
@@ -402,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982284.jpg" />
 </div>
 
 
@@ -428,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982216.jpg" />
 </div>
 
 
@@ -454,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981476.jpg" />
 </div>
 
 
@@ -480,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980498.jpg" />
 </div>
 
 
@@ -506,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978054.jpg" />
 </div>
 
 
@@ -532,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977937.jpg" />
 </div>
 
 
@@ -558,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974516.jpg" />
 </div>
 
 
@@ -584,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971885.jpg" />
 </div>
 
 
@@ -595,85 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E57C988A43DCABE6CAC84FA34D19A6DD6C34097A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357879   (971731) от 05.02.2020
-
-Чертог Югири в Пятом Квартале / Gobancho Yugiriro / May Love Be Restored (1980) DVDRip [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971731.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ещё одна экранизация одноименного романа Цутому Минаками (Мидзуками). Йюко и Сэйдзюн выросли в глухой деревне, они дружили с детства и поклялись пожениться, когда вырастут. Но прошли годы и Сэйдзюн был отправлен на обучение в монастырь, а Йюко начала работать в веселом квартале Киото, чтобы спасти свою семью от нищеты. Очередной раз мы возвращаемся к событиям 2 июля (   Читать дальше...   )Производство: Япония / Shochiku Films Ltd.Жанр: ДрамаРежиссер: Сигэюки ЯманэАктеры: Кэйко Мацудзака, Эйдзи Окуда, Тадаси Ёкоути, Дзюн Фубуки, Тосиэ Нэгиси, Минако Мидзусима, Кэйко Усами Аои Накадзима, Дзюнкити Оримото, Ёси КатоПеревод: Одноголосый любительский (Олег Воротилин по субтитрам дед_сто_лет©)Субтитры: отсутствуютПродолжительность: 02:09:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23EE42C996489340FFCD00852B70A604D1FD18BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358077   (970463) от 06.02.2020
-
-37 секунд / 37 sekanzu / 37 Seconds (2019) WEB-DLRip [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970463.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юма — молодая японка с ДЦП. Она изо всех сил пытается выстроить нормальную жизнь, разрываясь между своими семейными обязательствами и мечтой стать автором комиксов-манга. Фильм "37 секунд" был показан на 69-м Берлинском международном кинофестивале и получил приз зрительских симпатий и награду Art Cinema в разделе "Панорама" фестиваля.Производство: Япония, Knockonwood, Hikari FilmsЖанр: ДрамаРежиссер: Киёка МиядзакиАктеры: Макико Ватанабэ, Минори Хагивара, Сидзука Исибаси, Сёхэй Уно, Киёхико Сибукава, Юка Итая, Сюнсукэ Дайто, Мэи Каяма, Мисудзу Канно, Эйта ОкуноПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:55:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9757667F2215EE2076F80ABAAC1FB260171DA229
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 827479   (970274) от 06.02.2020
-
-Вечный ноль / Eien no 0 / The Eternal Zero (2013) DVDRip [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970274.jpg" />
-</div>
-
-
-###  Подробнее
-
-По одноименному роману Наоки Хякуто, опубликованному в 2006 году и проданному тиражом в более 1 млн. копий.
-Молодой Кентаро проваливает свой экзамен на право заниматься адвокатской практикой и не знает, что делать дальше. Его старшая сестра Кейко является свободной писательницей. Вместе они начинают искать информацию о своем дедушке Кюзо, который погиб во время Второй (   Читать дальше...   )Производство: Япония / Toho Company, Amuse, Amuse Soft EntertainmentЖанр: боевик, драма, детектив, военныйРежиссер: Такаси ЯмадзакиАктеры: Мин Танака, Харума Миура, Мао Иноэ, Исао Натсуяги, Шота Сометани, Дзюнити Окада, Микидзиро Хира, Кадзуэ Фукииси, Хирофуми АрайПеревод: Любительский одноголосый (den904)Продолжительность: 02:23:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FB123B059C41CCE36993D2121B2C0E4DCF85CE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 913680   (600772) от 30.06.2015
+
+Астрал 3 / Insidious: Chapter 3 (2015) WEBRip [H.264/1080p-LQ] [Line]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600772.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о том, как одаренный экстрасенс Элис Рейнер неохотно соглашается использовать свои способности для установления связи с мертвыми, чтобы помочь девочке-подростку, которая стала мишенью для опасной сверхъестественной сущности.Производство: Канада, США / Automatik Entertainment, Blumhouse Productions, Entertainment OneЖанр: УжасыРежиссер: Ли УоннеллАктеры: Стефани Скотт, Дермот Малруни, Энгус Сэмпсон, Ли Уоннелл, Лин Шэй, Тейт Берни, Майкл Рид МакКей, Стив Култер, Хейли КийокоПеревод: Дублированный (чистый звук)Субтитры: Вшитые неотключаемыеЯзык субтитров: КитайскиеПродолжительность: 01:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A584C805DE3E6FE950ADF0F76E3DA393B5E4B8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298600   (600655) от 30.04.2019
+
+Робот 2.0 / 2.0 (2018) WEBRip [MVO] [AD]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600655.jpg" />
+</div>
+
+
+###  Подробнее
+
+Миру угрожает монструозный крылатый злодей, покусившийся на самое святое, что есть у человечества — мобильные телефоны. Бессовестное чудовище в прямом смысле слова подчиняет себе устройства и создаёт из них могучую армию, способную трансформироваться во что угодно. Так и проиграли бы люди этот неравный бой, если бы не другое важное изобретение — робот Читти.Производство: ИндияЖанр: Фантастика, Боевик, ТриллерРежиссер: С. ШанкарАктеры: Раджиникант, Акшай Кумар, Эми Джексон, Адиль Хуссэйн, Суданшу Пандей, Kalabhavan Shajohn, Анант Нараян Махадеван, Майилсами, Ishari Ganesh, Кайзаад КотвальПеревод: Любительский (двухголосный) - КолобокСубтитры: Китайские, английские,  не отключаемыеПродолжительность: 02:23:21Реклама: Присутствуют вставки видео голосовой и текстовой рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93950A5FC252CF2ACFD2DE923004F3133D5E3522
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1073249   (600650) от 30.04.2019
 
 Transport Fever (2016) [Ru/Multi] (1.0.18381) Repack R.G. Catalyst
@@ -6,7 +58,7 @@ Transport Fever (2016) [Ru/Multi] (1.0.18381) Repack R.G. Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600650.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Call of Duty: Black Ops 2 (2012) [En] (Multiplayer Only/39.1337.4/DLC 1-3) Rip S
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599942.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ Tor Browser Bundle 7.0.2 Final [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599553.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ Darksiders (2016) [Ru/Multi] (1.0.2679/u12) Repack =nemos= [Warmastered Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599542.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_599284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_599284.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599233.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599232.jpg" />
 </div>
 
 
@@ -194,7 +246,7 @@ The Bat! Professional 7.2 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599004.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ Adobe Muse CC 2015.2.1.21 RePack by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599001.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ Adobe Photoshop Lightroom CC 2015.6.1 RePack by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598989.jpg" />
 </div>
 
 
@@ -273,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598986.jpg" />
 </div>
 
 
@@ -299,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_598286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_598286.jpg" />
 </div>
 
 
@@ -325,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597709.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ Final Cut Pro X 10.4.3 [Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597608.jpg" />
 </div>
 
 
@@ -379,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597603.jpg" />
 </div>
 
 
@@ -405,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_597541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_597541.jpg" />
 </div>
 
 
@@ -431,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597367.jpg" />
 </div>
 
 
@@ -457,7 +509,7 @@ Call of Duty 4 - Modern Warfare (2007) [Ru] (1.8) Repack bizon_75 [Multiplayer O
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597363.jpg" />
 </div>
 
 
@@ -483,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597311.jpg" />
 </div>
 
 
@@ -509,7 +561,7 @@ Phoning Home (2017) [Ru/Multi] (1.4.1) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597187.jpg" />
 </div>
 
 
@@ -535,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596994.jpg" />
 </div>
 
 
@@ -561,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596300.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ KMSAuto Net 2016 1.5.1 Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596114.jpg" />
 </div>
 
 
@@ -613,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_596102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_596102.jpg" />
 </div>
 
 
@@ -624,58 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232843   (596020) от 26.06.2018
-
-Comodo Internet Security Premium 11.0.0.6606 Final [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Comodo Internet Security - бесплатное комплексное решение безопасности. Включает антивирус и антишпион, фаервол с контент-фильтром, проактивную защиту HIPS, виртуальную среду - песочницу. Защищает от вирусов, интернет-атак и вредоносных веб-сайтов. Comodo Internet Security предлагает всестороннюю, комплексную защиту от внутренних и внешних угроз - новых и еще неизвестных. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57A9218EB709A07C1C2D3F8A8872821FAFB34F47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 888002   (596014) от 26.06.2018
-
-Молчание ягнят / The Silence of the Lambs (1991) BDRip [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Психопат похищает и убивает молодых женщин по всему Среднему Западу Америки. ФБР, уверенное в том, что все преступления совершены одним и тем же человеком, поручает агенту Клариссе Стерлинг встретиться с заключенным-маньяком, который мог бы объяснить следствию психологические мотивы серийного убийцы и тем самым вывести на его след. Заключенный, доктор психиатрии (   Читать дальше...   )Производство: США / Orion Pictures Corporation, Strong Heart/Demme ProductionЖанр: Триллер, Криминал, Детектив, ДрамаРежиссер: Джонатан ДеммеАктеры: Джоди Фостер, Энтони Хопкинс, Скотт Гленн, Тед Левайн, Брук Смит, Энтони Хилд, Кейси Леммонс, Дайан Бэйкер, Фрэнки Фэйзон, Дэн БатлерПеревод: Дублированный, Многоголосый закадровый, Двухголосый закадровый, Одноголосый закадровыйЯзык субтитров: Русский, АнглийскийПродолжительность: 01:58:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D24F55DD7245E40876F9964EA80FD27680E8292
 ```
 
 https://mybot314.ru/tekegram_catalog/

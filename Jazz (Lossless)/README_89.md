@@ -6,7 +6,7 @@ Benny Goodman - Yale University Archives, Vol. 2 (1957 - 1964) 2CD, 2009, Nimbus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758785.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Vula Viel - Do Not Be Afraid (2019) [FLAC|Lossless|Web-DL|tracks] <Jazz, World M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758738.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Bud Freeman - 1945 - 1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758232.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Pony Poindexter - Pony's Express (1962) 2016, Sony Music [FLAC|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758231.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Jimmy Scott - The Source (1970) [FLAC|Lossless]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_757951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757951.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ Bobby Hutcherson - In The Vanguard (1987) Landmark[FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757743.jpg" />
 </div>
 
 
@@ -184,7 +184,7 @@ Paul Motian, Bill Frisell, Joe Lovando - I Have The Room Above Her (2005) [APE|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757732.jpg" />
 </div>
 
 
@@ -213,7 +213,7 @@ Spyro Gyra - Morning Dance (Japan Edition) (1984) [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757559.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Bill Evans Trio - Waltz For Debby 1961 (2019) Jazz Images [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757199.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Art Tatum - Piano Starts Here: Live at the Shrine (1933, 1949) 2008, Sony [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757100.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Count Basie - The Complete Clef / Verve Count Basie Fifties Studio Recordings (1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756889.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Paul Jeffrey - Watershed (1971) 2017, Solid Records [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756743.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Bobbi Humphrey - Dig This! (1972) Remaster, 2014, Universal[FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756035.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Jean-Luc Ponty - Aurora (1976) [APE|Lossless|image + .cue] <Jazz, Jazz-Rock, Fus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756034.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Herbie Hancock - Feets Don't Fail Me Now (1979) [APE|Lossless|image + .cue] <Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756030.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Jeff Lorber - Flipside (2005) [APE|Lossless|image + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755930.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ The Vanguard Jazz Orchestra - Overtime: Music Of Bob Brookmeyer (2014) Planet Ar
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755306.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Count Basie and His Orchestra - Warm Breeze (1981) 1998, Original Jazz Classics 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755304.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Shigeharu Mukai & Astrud Gilberto - So & So: Mukai Meets Gilberto (1982) 1985, D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755302.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Laura Ellis - Femme Fatale (2011) Vintage Voice Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755299.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Eve St. Jones - French Cafe (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Easy
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755288.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ VA - Classic Savoy Be-Bop Sessions (1945 - 1949) 10CD, 2016, Mosaic Records [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755065.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Kenny Burrell - Bluesin' Around (1961, 1962) 2017, Sony Music [FLAC|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754852.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Chiara Civello - Canzoni (2014) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754775.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ VA - Swingers (2CD) (1997) [FLAC|Lossless|tracks + .cue] <Jazz, Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754014.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Dakota Staton - Isn't This A Lovely Day (1995) Muse Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753828.jpg" />
 </div>
 
 

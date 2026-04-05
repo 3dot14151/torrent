@@ -1,3 +1,57 @@
+###  Публикация: 911315   (618161) от 22.06.2015
+
+Максим Горький | 9-е января. Макар Чудра (1941) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618161.jpg" />
+</div>
+
+
+###  Подробнее
+
+...Толпа напоминала темный вал океана, едва разбуженный первым порывом бури, она текла вперед медленно; серые лица людей были подобны мутно-пенному гребню волны.
+Глаза блестели возбужденно, но люди смотрели друг на друга, точно не веря своему решению, удивляясь сами себе. Слова кружились над толпой, как маленькие серые птицы.
+Говорили негромко, серьезно, как бы оправдываясь (   Читать дальше...   )Жанр: Детская прозаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:959389FAF348E14C8B21B3E7346DD5C5EAF9EE05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911447   (618036) от 22.06.2015
+
+Михаил Зощенко | Приключения обезьянки (1990) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618036.jpg" />
+</div>
+
+
+###  Подробнее
+
+В одном городе на юге был зоологический сад. Небольшой зоологический сад, в котором находились - один тигр, два крокодила, три змеи, зебра, страус и одна обезьянка, или, попросту говоря, мартышка. И, конечно, разная мелочь - птички, рыбки, лягушки и прочая незначительная чепуха из мира животных. В начале войны, когда фашисты бомбили этот город, одна бом­ба попала (   Читать дальше...   )Жанр: Детская литература, РассказыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB929A063C8B0205B990D861BBA0A3E023D95FEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 911299   (618024) от 22.06.2015
 
 Нейл Грант | Древние египтяне (1998) [PDF]
@@ -6,7 +60,7 @@
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618024.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617916.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617499.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617462.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617408.jpg" />
 </div>
 
 
@@ -139,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617405.jpg" />
 </div>
 
 
@@ -165,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617404.jpg" />
 </div>
 
 
@@ -191,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617401.jpg" />
 </div>
 
 
@@ -217,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617394.jpg" />
 </div>
 
 
@@ -243,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617292.jpg" />
 </div>
 
 
@@ -269,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617276.jpg" />
 </div>
 
 
@@ -295,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617266.jpg" />
 </div>
 
 
@@ -321,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617170.jpg" />
 </div>
 
 
@@ -349,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616788.jpg" />
 </div>
 
 
@@ -375,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616663.jpg" />
 </div>
 
 
@@ -401,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616387.jpg" />
 </div>
 
 
@@ -427,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616376.jpg" />
 </div>
 
 
@@ -454,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616352.jpg" />
 </div>
 
 
@@ -480,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616347.jpg" />
 </div>
 
 
@@ -507,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616321.jpg" />
 </div>
 
 
@@ -533,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616307.jpg" />
 </div>
 
 
@@ -562,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616160.jpg" />
 </div>
 
 
@@ -588,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616056.jpg" />
 </div>
 
 
@@ -614,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615804.jpg" />
 </div>
 
 
@@ -627,59 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6811664BACD42C0AC3CDE8CD0A7FF21C9C785D6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037119   (615749) от 23.07.2016
-
-В. Бычко | Весна идёт (1960) [PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стихотворения для дошкольного возраста.Жанр: Стихи для детейФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7136BB0959196864B747C897E982FCE519234614
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037275   (615739) от 23.07.2016
-
-Эмилиян Станев и др. | Хлопотливая Мецана (1964) [PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615739.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник сказок болгарских авторов с иллюстрациями Вадима Лазаркевича.
-Вадим Вадимович Лазаркевич (28 февраля 1895, Белая Церковь, Киевская губерния Российская империя — 18 февраля 1963, София, Болгария) — русский и болгарский художник, график, иллюстратор. Один из самых популярных иллюстраторов детских книг в Болгарии.Жанр: СказкаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69F0816A9BFF67C629A36D2BF3432F86101A9504
 ```
 
 https://mybot314.ru/tekegram_catalog/

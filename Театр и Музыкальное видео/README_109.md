@@ -6,7 +6,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272327.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272273.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Sting - Live At The Olympia Paris (2017) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271999.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Eric Clapton - Live at Montreux 1986 (2006) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271830.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Accept - Symphonic Terror: Live at Wacken 2017 (2018) 2xDVD5 [custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271812.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Adriano Celentano - Adriano Live Il Concerto Arena di Verona - Rock Economy (201
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271645.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271428.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Def Leppard - Visualize, Video Archive (2001) DVD9
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271125.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270329.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269953.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269940.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269833.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Slayer: The Repentless Killogy (2019) HDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269570.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Beth Hart - Live At The Royal Albert Hall (2018) DVD5 [custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269093.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269038.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Extreme - Take Us Alive (2009) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268732.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Bad Company - In Concert. Merchants of Cool (2005) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268700.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268541.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268352.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ The Rolling Stones - Voodoo Lounge Uncut 1994 (2018) 2xDVD5 [custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268346.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268340.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268119.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267786.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267629.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Bill Frisell / Solos - The Jazz Sessions (2008) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267605.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267537.jpg" />
 </div>
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 1465122   (240341) от 25.04.2021
+
+Bomber Goggles - Gyreland (2018) [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Land of Plastic 05:18
+02. The Gyre 05:41
+03. Building 05:23
+04. Telepathy 04:31(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:00:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5878C050BB1109DE7ADAF85EF332BA587EF65A41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1634260   (240338) от 19.05.2023
 
 Dave Matthews Band - Walk Around The Moon (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Jam>
@@ -6,7 +35,7 @@ Dave Matthews Band - Walk Around The Moon (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240338.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Lost Tribes Of The Moon - Chapter II: Tales of Strife, Destiny, and Despair (202
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240337.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Lonewolf - Division Hades (2020) 2xCD [MP3|320 Kbps] <Heavy Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240333.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Blood Red Throne - Imperial Congregation (2021) [FLAC|Lossless|image + .cue] <De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240329.jpg" />
 </div>
 
 
@@ -123,7 +152,7 @@ Weapon - New Clear Power (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240327.jpg" />
 </div>
 
 
@@ -152,7 +181,7 @@ Capra - In Transmission (2021) [FLAC|Lossless|WEB-DL|tracks] <Chaotic Hardcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240326.jpg" />
 </div>
 
 
@@ -181,7 +210,7 @@ Crucifliction - Heresy (2013) 2022, Re-recording and Re-imagining [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240319.jpg" />
 </div>
 
 
@@ -210,7 +239,7 @@ Power Quest - Master Of Illusion (2008) Japanese Edition [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240318.jpg" />
 </div>
 
 
@@ -239,7 +268,7 @@ Roadwolf - Midnight Lightning (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240317.jpg" />
 </div>
 
 
@@ -268,7 +297,7 @@ Svalbard - When I Die, Will I Get Better? (2020) [FLAC|Lossless|WEB-DL|tracks] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240315.jpg" />
 </div>
 
 
@@ -297,7 +326,7 @@ Roobanok - Космос умеет прощать (2023) [FLAC|Lossless|WEB-DL|t
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240313.jpg" />
 </div>
 
 
@@ -326,7 +355,7 @@ Luminous Vault - Animate the Emptiness (2022) [FLAC|Lossless|WEB-DL|tracks] <Ind
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240312.jpg" />
 </div>
 
 
@@ -355,7 +384,7 @@ Marko Hietala - Pyre Of The Black Heart (2020) Japanese Edition [FLAC|Lossless|i
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240311.jpg" />
 </div>
 
 
@@ -384,7 +413,7 @@ The Used - Toxic Positivity (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240310.jpg" />
 </div>
 
 
@@ -413,7 +442,7 @@ Teenage Slaves Of Satan - Poison Moon (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240305.jpg" />
 </div>
 
 
@@ -442,7 +471,7 @@ Stormburst - III (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240301.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ Primal Fear - I Will Be Gone (2021) EP [FLAC|Lossless|image + .cue] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240296.jpg" />
 </div>
 
 
@@ -500,7 +529,7 @@ Yuri Gagarin - The Outskirts Of Reality (2020) [FLAC|Lossless|tracks + .cue] <Ps
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240290.jpg" />
 </div>
 
 
@@ -529,7 +558,7 @@ House of Shakira - XIT (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240288.jpg" />
 </div>
 
 
@@ -558,7 +587,7 @@ Power Quest - Sixth Dimension (2017) Japanese Edition [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240287.jpg" />
 </div>
 
 
@@ -587,7 +616,7 @@ Hollywood Vampires - Live In Rio (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240282.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ Saxon - More Inspirations (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240276.jpg" />
 </div>
 
 
@@ -645,7 +674,7 @@ Carla Riehl - Heroes (1991) [FLAC|Lossless|image + .cue] <Soft Rock, Lite AOR, C
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240275.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ The Cross - Act II: Walls of the Forgotten (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240271.jpg" />
 </div>
 
 
@@ -703,7 +732,7 @@ Just Before Dawn - An Army at Dawn (2020) [MP3|320 Kbps] <Old School Death Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240270.jpg" />
 </div>
 
 
@@ -717,35 +746,6 @@ Just Before Dawn - An Army at Dawn (2020) [MP3|320 Kbps] <Old School Death Metal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69861605E6703C237EEA3EB349F386F6615BCB0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465173   (240265) от 25.04.2021
-
-Evergrey - Escape Of The Phoenix (2021) [FLAC|Lossless|image + .cue] <Progressive Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forever Outsider (4:09)
-02. Where August Mourn (5:32)
-03. Stories (6:41)
-04. A Dandelion Cipher (4:34)(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:58:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D308F45D207914F3C51BD87152FC4CF8EB32F15F
 ```
 
 https://mybot314.ru/tekegram_catalog/

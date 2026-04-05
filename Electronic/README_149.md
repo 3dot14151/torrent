@@ -1,3 +1,61 @@
+###  Публикация: 1389949   (783672) от 13.06.2020
+
+VA - Goa, Vol.72 (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783672.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Morrisound - Sound of Peace (6:21)
+2. Flowjob - Beatpolar (7:32)
+3. Microlin - What I Really Need (8:29)
+4. Inner State - Zero Point (Trycerapt Remix) (7:44)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 02:21:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D57F844D2E44C24A3DADC1C420044D263540056
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389943   (783669) от 13.06.2020
+
+VA - Mat Zo Presents: 20 Years Of Anjunabeats (2020) 3CD, DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Electronic, Progressive House, Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783669.jpg" />
+</div>
+
+
+###  Подробнее
+
+25. Michael Cassette – Zeppelin (extended mix) (08:37)
+26. Signalrunners – Meet Me In Montauk (extended mix) (09:20)
+27. Myon & Shane 54 – Not A Lot Left (extended mix) (08:19)
+28. Andy Moor – Fake Awake (Ecomix remix) (08:40)(   Читать дальше...   )Жанр: Electronic, Progressive House, Trance |Продолжительность: 01:36:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B33D4CD76BBD4A6B714C948D5739B4E1E1B0AF75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1390012   (783649) от 13.06.2020
 
 Boris Brejcha - Chameleon (Live Stream Part 1) (2020) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Minimal>
@@ -6,7 +64,7 @@ Boris Brejcha - Chameleon (Live Stream Part 1) (2020) [FLAC|Lossless|WEB-DL|trac
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783649.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Le Son Dancefloor (2009) [FLAC|Lossless|tracks] <House, Electro, Europop>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783551.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Beats For Life Vol.1 (20 Big Room Monsters) (2018) [MP3|320 Kbps] <House, B
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783549.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - The Sound Of Trance Vol.08 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783547.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Tech Trance Essentials Vol.11 (2018) [MP3|320 Kbps] <Trance, Tech Trance, U
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783546.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Deep House Architects Vol.8 (2018) [MP3|320 Kbps] <Deep House, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783545.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - House Goes 80's Vol. 3 (2009) [FLAC|Lossless|tracks] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783543.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ David Vendetta - Rendez-Vous (2008) 2CD, Limited Edition [MP3|320 Kbps] <Progres
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783539.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Nothing But... Progressive Selections Vol.01 (2018) [MP3|320 Kbps] <Progres
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783533.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ David Vendetta - Rendez-Vous (2008) 2CD, Limited Edition [FLAC|Lossless|image + 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783524.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Don Diablo - Future (2018) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783519.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Sasha Malkovich - Practical Levitation (2018) [MP3|320 Kbps] <Balearic, Downtemp
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783517.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Nothing But... Total Trance Selections Vol.01 (2018) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783510.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - A New Year Of Vocal House Vol.2 (2018) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783508.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Blank & Jones - Morning Of The Earth | My Island (2018) EP [FLAC|Lossless|WEB-DL
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783491.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Uplifting Trance (2018) [MP3|320 Kbps] <Uplifting Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783485.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Robert Rich - The Biode (2018) [FLAC|24/96|Lossless|WEB-DL|tracks] <Ambient>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783460.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - EDM (2018) [MP3|320 Kbps] <Progressive House, Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783434.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Grum - Deep State Deluxe (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Progr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783402.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Synth Dimension - Dreams Of Electronic Mind (2013) Full Edition [FLAC|Lossless|W
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783398.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Sunset Surfing Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|trac
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783361.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - On the Beach Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783358.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Russian Trance 2020 [FLAC|Lossless|WEB-DL|tracks] <Trance, Uplifting Trance
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783356.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Tell - August EP (2014) House Running [FLAC|Lossless|WEB-DL|tracks] <Deep House,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783253.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Tell - August EP (2014) House Running [FLAC|Lossless|WEB-DL|tracks] <Deep House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7458B5B073E8B531E27DB1B708A28E1C69E41CBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205910   (783251) от 11.02.2018
-
-VA - Carnaval House (2018) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  RezaKarami  -  My Bass Friend (Original Mix)  4:58
-02.  High One  -  Low Kiss (MKVG Remix)  4:30
-03.  MikeSelf  -  Candy War (Extended Mix)  8:22
-04.  Mack Jack  -  Aruba (Instrumental Mix)  4:56(   Читать дальше...   )Жанр: HouseПродолжительность: 03:31:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5872F5DB2BFD571E1E864A0352F93D4FDB0D4F4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205689   (783247) от 11.02.2018
-
-VA - Ultra Tone Essentials Vol.2 (2018) [MP3|320 Kbps] <Deep House, Afro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Genvee & Faith Feloque  -  Dream In Neon Shades (Original Mix)  6:00
-02.  Genvee & Faith Feloque  -  All Inside (Original Mix)  4:48
-03.  Rona Ray & V.Underground  -  Your Friend (Original Mix)  6:48
-04.  Keenan & V.Underground  -  Spellbound (Vuky J's Soulful Vocal Mix)  7:06(   Читать дальше...   )Жанр: Deep House, Afro HouseПродолжительность: 02:00:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8CF6DA4AE769A327CAAAB31CA4E8359D3AA203F
 ```
 
 https://mybot314.ru/tekegram_catalog/

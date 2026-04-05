@@ -1,3 +1,112 @@
+###  Публикация: 1769255   (32808) от 27.12.2024
+
+Электробезопасность. Тесты v3.1 Mod by 0x7d [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все сборники соответствуют сборникам Ростехнадзора. Приложение позволяет пройти тестирование по актуальным на данный момент категориям:
+- II группа по электробезопасности до и выше 1000 В
+- III группа по электробезопасности до и выше 1000 В
+- IV группа по электробезопасности до и выше 1000 В(   Читать дальше...   )Тип издания: AdFreeРелиз состоялся: 26.12.2024Разработчик: Понасенков ВиталийПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EC4CDDDD6C51C6C0CEF19E2A55903551A02E4C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769324   (32717) от 28.12.2024
+
+Young Detective: The Mutation v1.2.22 [En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32717.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой детектив: Мутация - это напряженная игра-головоломка, в которой игроки берут на себя роль отважного молодого детектива. Ваша миссия - проникнуть в темный и жуткий дом серийного убийцы, чтобы раскрыть правду об ужасных убийствах и секретах, связанных с темным, потусторонним царством. Игра предлагает захватывающий опыт, сочетающий в себе детективную работу, (   Читать дальше...   )Тип издания: ModРелиз состоялся: 24 дек. 2024 г.Разработчик: BamgruПоддерживаемая ОС: Android 6.0+Жанр: PuzzleЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD7C5D6636B15A12B02BB32ED9139ADB5C8FEF7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769588   (32615) от 29.12.2024
+
+TikTok Private Plus (PayBack Edition) v37.9.16 Mod by TikTok Updates + Plugin Update [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32615.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом Моде можно выкладывать видео для РФ.
+TikTok - социальное приложение для тех кто предпочитает визуальный контакт, более оригинальный контент, творчество и всё прочее, чего зачастую не хватает в стандартных проектах для общения между людьми. Здесь делается упор на ролики и трансляции. Набор инструментов поможет отредактировать и подправить исходный материал, (   Читать дальше...   )Тип издания: ModРелиз состоялся: 28.12.2024Разработчик: TikTok Pte. Ltd.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4987C79B1B6622C24FD3F41678275E6B68C6EFBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769608   (32597) от 29.12.2024
+
+Рунические формулы v6.3.1 Mod by 0x7d [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32597.jpg" />
+</div>
+
+
+###  Подробнее
+
+Древние знаки, которые подарили скандинавские Боги, способны не только предсказывать будущее или заглядывать в прошлое, но также, исцелять, помогать и разрушать. Для каждого из действий существует своя формулировка, отчасти уникальная. В этом приложении вы найдете наиболее известные и не только рунические формулы, которые помогут вам исполнить задуманное.
+Используйте (   Читать дальше...   )Тип издания: FullРелиз состоялся: 28.12.2024Разработчик: EvansirПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8F1B62DFDA9F643F1D4F49A69B922A58EDC8D51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1753976   (32543) от 30.12.2024
 
 Промбезопасность. Тесты v3.5.2 Mod by 0x7d [Ru]
@@ -6,7 +115,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32543.jpg" />
 </div>
 
 
@@ -32,7 +141,7 @@ ASR Voice Recorder v539 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32503.jpg" />
 </div>
 
 
@@ -58,7 +167,7 @@ Panels - панель быстрого доступа v1.476 Mod by KirIif' [Ru/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32413.jpg" />
 </div>
 
 
@@ -84,7 +193,7 @@ All Language Translate App v3.4 Premium Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32236.jpg" />
 </div>
 
 
@@ -111,7 +220,7 @@ Talking Translator / Говорящий переводчик v2.7.5 Mod by Alex.
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32233.jpg" />
 </div>
 
 
@@ -137,7 +246,7 @@ Alias v1.5.9 Mod by Dymonyxx [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32219.jpg" />
 </div>
 
 
@@ -166,7 +275,7 @@ Bananastreet: Deep House & EDM v4.1.60 Mod by 0x7d [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32189.jpg" />
 </div>
 
 
@@ -193,7 +302,7 @@ Slaughter: The Lost Outpost v1.42 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32153.jpg" />
 </div>
 
 
@@ -219,7 +328,7 @@ Niffelheim v1.6.15 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32146.jpg" />
 </div>
 
 
@@ -245,7 +354,7 @@ Ugly v1.1.1 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32119.jpg" />
 </div>
 
 
@@ -273,7 +382,7 @@ PicsMaster AI Photo Editor Pro v2.0.4 Mod by TRUMods [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32112.jpg" />
 </div>
 
 
@@ -299,7 +408,7 @@ DRAGON QUEST BUILDERS v1.1.1 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32108.jpg" />
 </div>
 
 
@@ -325,7 +434,7 @@ Time and Memo / Время и Памятка v0.8.95 Mod by Alex.Strannik [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32074.jpg" />
 </div>
 
 
@@ -351,7 +460,7 @@ Umagic AI / ИИ Рисует v1.7.2 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32047.jpg" />
 </div>
 
 
@@ -377,7 +486,7 @@ AIDA64 2.05 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32044.jpg" />
 </div>
 
 
@@ -403,7 +512,7 @@ Icewind Dale Enhanced Edition v2.6.6.12 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32039.jpg" />
 </div>
 
 
@@ -431,7 +540,7 @@ UniMote - Универсальный Пульт для ТВ v1.7.0 Mod by Balata
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32033.jpg" />
 </div>
 
 
@@ -457,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32006.jpg" />
 </div>
 
 
@@ -484,7 +593,7 @@ Textra SMS v4.78 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32000.jpg" />
 </div>
 
 
@@ -510,7 +619,7 @@ Graph Messenger (Telegraph) vT11.5.3 - P11.16.2 Mod by NNN x RBMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31948.jpg" />
 </div>
 
 
@@ -538,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31911.jpg" />
 </div>
 
 
@@ -564,7 +673,7 @@ MiHome v10.0.706 Mod by Vevs [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31824.jpg" />
 </div>
 
 
@@ -578,112 +687,6 @@ MiHome v10.0.706 Mod by Vevs [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F954C340DF6327367CDF6D0C167A256BCD14CB52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771455   (31799) от 06.01.2025
-
-Fully Fluent - Learn Languages / Бегло - Изучайте языки v2.5.4 Mod by misuri78 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31799.jpg" />
-</div>
-
-
-###  Подробнее
-
-🌟 Станьте бегло говорящим быстро с Бегло! 🌟
-Представьте, как вы говорите как носитель языка на работе 💼 или во время путешествий ✈️. Представьте, какие двери это откроет 🚪, какие связи вы сможете установить! 🤝
-Бегло поможет вам овладеть английским, испанским, французским, хинди, португальским, китайским (мандарин) (   Читать дальше...   )Тип издания: FullРелиз состоялся: 06.01.2025Разработчик: Fully FluentПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91A4ACEAE6D39BD2CBA1420D33FFD4F3F9F9735B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771611   (31727) от 07.01.2025
-
-Здоровая шея  v1.1.6 Mod by 0x7d [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31727.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оздоравливающий комплекс, содержащий упражнения для шеи за 30 дней, с помощью которого вы избавитесь от хронической головной боли и головокружений, а также чувства напряжения и скованности в шейно-воротниковой зоне. Приложение поможет восстановить здоровый мышечный тонус, стимулировать кровообращение, а также улучшить нервную и мышечную подвижность верхних отделов (   Читать дальше...   )Тип издания: ModРелиз состоялся: 06.01.2025Разработчик: mEL StudioПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0D1678405FDA01E6D646EA1BC8261145E5714E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715330   (31663) от 08.01.2025
-
-Smart AudioBook Player Pro v11.1.9 (A8.0+) Mod by 0x7d [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31663.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа разработана специально для проигрывания аудиокниг. Предполагается, что у Вас есть аудиокниги и Вы их уже скопировали на телефон. Воспроизведение форматов: opus, mp3, m4a, m4b, awb, ogg, wma (можно слушать книги, конвертированные для Nokia).Тип издания: FullРелиз состоялся: 07.01.2025Разработчик: Александр КравченкоПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FD7116E2FFEDA2E86E1001326B5B3BB1453C2AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771849   (31641) от 08.01.2025
-
-Filmora - Редактор видео с AI v14.4.01 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31641.jpg" />
-</div>
-
-
-###  Подробнее
-
-Filmora - программа для редактирования видеозаписей теперь доступна в вашем мобильном телефоне. Совершенно бесплатная, без водяных знаков и ограничений по времени. С Filmora видеозаписи создаются очень быстро и легко. Мощный инструмент содержит все функции редактирования, которыми оснащены профессиональные студии. С помощью Filmora можно создавать забавные видеоролики (   Читать дальше...   )Тип издания: Pro / ExtraModРелиз состоялся: 07.01.2025Разработчик: FilmoraGo StudioПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:811A9BEA3019CDDC44278B66EE84FF31FB84BA2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

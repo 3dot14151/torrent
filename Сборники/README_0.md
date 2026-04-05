@@ -1,3 +1,81 @@
+###  Публикация: 1468188   (1017199) от 07.05.2021
+
+Сборник - Summerana - Collection Pack [ATN, PNG, ABR, JPG, PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Summerana - это виртуальная академия, сообщество и журнал для творческих людей, где вы можете научиться фотографии, маркетингу, редактированию Lightroom и Photoshop и многому другому, подготовленным мной и более чем 20 инструкторами.Формат: ATN, PNG, ABR, JPG, PSD
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CB9B3D728BA841F99E490FB40EE3FA76B1EB6CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485518   (1005268) от 26.07.2021
+
+Сборник - Creative Fabrica - Rolled Paper Flower Templates SVG Cut [AI, EPS, SVG, PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шаблоны цветов из свернутой бумаги в формате SVG, Оригами.Формат: AI, EPS, SVG, PNG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96DAF63EE2F92C12B83444BBA40A52BC80EB6635
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486418   (1004842) от 30.07.2021
+
+Сборник - Romantic Flowers Bundle - 25 Premium Graphics [JPEG, PNG, AI, SVG]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Романтический букет цветов Розы, ромашки, подсолнухи - все, что душе угодно. Этот набор дает вам красивый букет в один клик, поэтому вам не нужно возиться с выбором отдельных цветов. Связка цветов идеально подойдет, чтобы украсить ваш дом или отправить задумчивые цветы в подарок любимому человеку. Этот великолепный букет цветов вызовет улыбку на всех лицах в их особенный (   Читать дальше...   )Формат: JPEG, PNG, AI, SVG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95415CCF6900CD8B335240B8D579D6C46580E8F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1349863   (1003675) от 04.01.2020
 
 Сборник - Creative Fabrica - 2020 Calendar Overlay Templates PSD SVG [PSD, SVG, PNG, EPS]
@@ -6,7 +84,7 @@
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003675.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001711.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991688.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989675.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983310.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981702.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979676.jpg" />
 </div>
 
 
@@ -191,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978009.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966865.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963739.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960619.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959681.jpg" />
 </div>
 
 
@@ -322,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946245.jpg" />
 </div>
 
 
@@ -350,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932821.jpg" />
 </div>
 
 
@@ -376,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931200.jpg" />
 </div>
 
 
@@ -402,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920973.jpg" />
 </div>
 
 
@@ -429,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906952.jpg" />
 </div>
 
 
@@ -455,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896967.jpg" />
 </div>
 
 
@@ -481,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895790.jpg" />
 </div>
 
 
@@ -507,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893381.jpg" />
 </div>
 
 
@@ -533,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875765.jpg" />
 </div>
 
 
@@ -559,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_874136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874136.jpg" />
 </div>
 
 
@@ -585,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872420.jpg" />
 </div>
 
 
@@ -596,84 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7320A9A116D913857095B15AB20E1FB093DABD94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 766282   (870606) от 14.03.2014
-
-Сборник - Брендинг 8 / Branding 8 [JPEG,PSD,PNG,EPS]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870606.jpg" />
-</div>
-
-
-###  Подробнее
-
-БрендингФормат: JPEG,PSD,PNG,EPSРазрешение файлов: 3000х2100
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75761657AA72D5112842C1E2380750AEE66CF927
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375224   (866938) от 13.04.2020
-
-Сборник - MightyDeals - Scandi Patterns Collection [PNG, PSD, AI]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесшовные геометрические узоры в векторе и растре. Бесплатно для личного и коммерческого использования!Разработчик: Nikita LyubimovФормат: PNG, PSD, AIРазрешение файлов: 8334 x 8334
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2579FDFDFF755CD94531476535EA4F14A3012FB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 770302   (850765) от 25.03.2014
-
-Сборник - Пасха 2014-2 / Easter 2014-2 [JPEG,EPS,AI]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850765.jpg" />
-</div>
-
-
-###  Подробнее
-
-ПасхаФормат: JPEG,EPS,AIРазрешение файлов: 5000x3700
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F931F56495FBF8A4E27F618979CC97887CBA3C70
 ```
 
 https://mybot314.ru/tekegram_catalog/

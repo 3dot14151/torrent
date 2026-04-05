@@ -1,3 +1,133 @@
+###  Публикация: 1458706   (1023639) от 30.03.2021
+
+Семейка Крудс: Новоселье / The Croods: A New Age (2020) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Такие харизматичные герои как члены клана Крудс просто не в силах усидеть на месте. Они смело идут навстречу самым головокружительным приключениям и готовы ответить непредсказуемостью и находчивостью на любой вызов судьбы.Производство: США / DreamWorks AnimationЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Джоэль КроуфордПеревод: Дублированный (Лицензия), Многоголосый профессиональный (HDRezka Studio)Субтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD0F474BC1528EC82D8AD16BBAD1596D5C8B3DB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458705   (1023634) от 30.03.2021
+
+Семейка Крудс: Новоселье / The Croods: A New Age (2020) BDRip [H.264/720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023634.jpg" />
+</div>
+
+
+###  Подробнее
+
+Такие харизматичные герои как члены клана Крудс просто не в силах усидеть на месте. Они смело идут навстречу самым головокружительным приключениям и готовы ответить непредсказуемостью и находчивостью на любой вызов судьбы.Производство: США / DreamWorks AnimationЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Джоэль КроуфордПеревод: Дублированный (Лицензия), Многоголосый профессиональный (HDRezka Studio)Субтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53726B38384B399CCCE5877A1762979BA1A294BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458703   (1023624) от 30.03.2021
+
+Семейка Крудс: Новоселье / The Croods: A New Age (2020) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Такие харизматичные герои как члены клана Крудс просто не в силах усидеть на месте. Они смело идут навстречу самым головокружительным приключениям и готовы ответить непредсказуемостью и находчивостью на любой вызов судьбы.Производство: США / DreamWorks AnimationЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Джоэль КроуфордПеревод: Дублированный (Лицензия), Многоголосый профессиональный (HDRezka Studio)Субтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2694AFAD931298CEC451B12AF78C976A846CC94D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459155   (1023451) от 31.03.2021
+
+Одна волчья зима / Alone a wolf's winter (2020) WEBRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023451.jpg" />
+</div>
+
+
+###  Подробнее
+
+В заснеженных горах Аляски молодой волк несправедливо изгнан из своей стаи. Во время своего изгнания он столкнулся с суровостью жизни в одиночестве. В конце концов ему придется подвергнуть себя опасности, чтобы спасти свою стаю.Производство: Франция / ESMAЖанр: Короткометражный, рисованная анимацияРежиссер: Rebecca Belle, Gaël Bourdeu, Victor DumurПеревод: Не требуется (нет диалогов и озвученных комментариев)Субтитры: ОтсутствуютПродолжительность: 00:06:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:016D06E1207065C7619332476F453347A45C0605
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459156   (1023447) от 31.03.2021
+
+Одна волчья зима / Alone a wolf's winter (2020) WEBRip [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023447.jpg" />
+</div>
+
+
+###  Подробнее
+
+В заснеженных горах Аляски молодой волк несправедливо изгнан из своей стаи. Во время своего изгнания он столкнулся с суровостью жизни в одиночестве. В конце концов ему придется подвергнуть себя опасности, чтобы спасти свою стаю.Производство: Франция / ESMAЖанр: Короткометражный, рисованная анимацияРежиссер: Rebecca Belle, Gaël Bourdeu, Victor DumurПеревод: Не требуется (нет диалогов и озвученных комментариев)Субтитры: ОтсутствуютПродолжительность: 00:06:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D55304D993A15BFB9401B1443222F23120AD360E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1458983   (1023430) от 31.03.2021
 
 Панда и Крош / Panda and Krash (2021) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-52 из 52)
@@ -6,7 +136,7 @@
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023430.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023366.jpg" />
 </div>
 
 
@@ -60,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023346.jpg" />
 </div>
 
 
@@ -88,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023298.jpg" />
 </div>
 
 
@@ -114,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023278.jpg" />
 </div>
 
 
@@ -140,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023266.jpg" />
 </div>
 
 
@@ -166,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023259.jpg" />
 </div>
 
 
@@ -192,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023230.jpg" />
 </div>
 
 
@@ -218,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023227.jpg" />
 </div>
 
 
@@ -244,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023223.jpg" />
 </div>
 
 
@@ -270,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023127.jpg" />
 </div>
 
 
@@ -296,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023111.jpg" />
 </div>
 
 
@@ -322,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023103.jpg" />
 </div>
 
 
@@ -349,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023098.jpg" />
 </div>
 
 
@@ -375,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023050.jpg" />
 </div>
 
 
@@ -401,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022848.jpg" />
 </div>
 
 
@@ -427,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022721.jpg" />
 </div>
 
 
@@ -453,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022580.jpg" />
 </div>
 
 
@@ -479,7 +609,7 @@ DOTA: Кровь дракона / Dota: Dragon's Blood (2021) WEB-DLRip [H.264/7
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022563.jpg" />
 </div>
 
 
@@ -505,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022422.jpg" />
 </div>
 
 
@@ -531,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022403.jpg" />
 </div>
 
 
@@ -542,137 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECC3C092BA881AE2B6ACB427D57E573ACE8553C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460802   (1022402) от 06.04.2021
-
-Вперёд / Onward (2020) DVD5 [Custom]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022402.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда-то давно в сказочном мире царила магия, но после открытия электричества маги стали не нужны, и развитие пошло по техногенному пути. Теперь эльфы, тролли, гоблины, мантикоры, феи, кентавры и единороги летают на самолетах, пользуются автомобилями и мобильниками и ведут в целом прозаичную жизнь.
-Братья-эльфы Иэн и Барли Лайтфуты воспитывались одной мамой, потому (   Читать дальше...   )Производство: США / Walt Disney Pictures, Pixar Animation StudiosЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Дэн СкэнлонПеревод: Дублированный (iTunes)Субтитры: Русские, английскиеПродолжительность: 01:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DAB9629F13913F4E4F2ACDDA966FC7586665F33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460927   (1022230) от 07.04.2021
-
-Душа / Soul (2020) DVD5 [Custom]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уже немолодой школьный учитель музыки Джо Гарднер всю жизнь мечтал выступать на сцене в составе джазового ансамбля. Однажды он успешно проходит прослушивание у известной клубной певицы и, возвращаясь домой вне себя от счастья, падает в люк и умирает. Теперь у Джо одна дорога — в Великое После, но он сбегает с идущего в вечность эскалатора и случайно попадает в Великое (   Читать дальше...   )Производство: США / Walt Disney Pictures, Pixar Animation StudiosЖанр: Мультфильм, фэнтези, комедия, приключения, семейный, музыкаРежиссер: Пит Доктер, Кемп ПауэрсАктеры: Джейми Фокс, Тина Фей, Грэм Нортон, Рэйчел Хаус, Анджела Бассетт, Алиси Брага, Ричард Айоади, Филисия Рашад, Доннел Роулингс, Амир-Халиб ТомпсонПеревод: Дублированный (iTunes)Субтитры: Русские, английскиеПродолжительность: 01:36:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DC292493DCC74BD80C823A2A0126B1A35372EDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460625   (1022229) от 07.04.2021
-
-Душа / Soul (2020) BDRip [H.264/720p] [PR]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Школьный учитель музыки Джо Гарднер умер. Но поскольку незадолго до смерти он отыграл концерт своей мечты и получил предложение играть в крутейшем джаз-бэнде на постоянной основе, Джо с таким положением дел категорически не согласен. Чудом и настырностью он сбегает с травелатора, ведущего прямиком в Великое После, в Великое Перед – дивное местечко, где взращиваются (   Читать дальше...   )Производство: США, Walt Disney Pictures, Pixar Animation StudiosЖанр: Мультфильм, фэнтези, комедия, семейный, музыка, полнометражныйРежиссер: Пит Доктер, Кемп ПауэрсАктеры: Джейми Фокс, Тина Фей, Филисия Рашад, Давид Диггс, Анджела Бассетт, Грэм Нортон, Рэйчел Хаус, Алиси Брага, Ричард Айоади, Доннел Роулингс, Амир-Халиб Томпсон, Марго Холл, Сакина Джэффри, Фортун ФеймстерПеревод: Дублированный (iTunes), многоголосый закадровый (HDRezka Studio)Язык озвучки: Русский, украинский, английскийСубтитры: русские, английские, украинские, французские, немецкиеПродолжительность: 01:40:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:692C3E2CB00FD18E212D28132AA147747C8BD7B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460831   (1022193) от 07.04.2021
-
-Душа / Soul (2020) BDRemux [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уже немолодой школьный учитель музыки Джо Гарднер всю жизнь мечтал выступать на сцене в составе джазового ансамбля. Однажды он успешно проходит прослушивание у известной клубной певицы и, возвращаясь домой вне себя от счастья, падает в люк и умирает. Теперь у Джо одна дорога — в Великое После, но он сбегает с идущего в вечность эскалатора и случайно попадает в Великое (   Читать дальше...   )Производство: США / Walt Disney Pictures, Pixar Animation StudiosЖанр: Мультфильм, фэнтези, комедия, приключения, семейный, музыкаРежиссер: Пит Доктер, Кемп ПауэрсАктеры: Джейми Фокс, Тина Фей, Грэм Нортон, Рэйчел Хаус, Анджела Бассетт, Алиси Брага, Ричард Айоади, Филисия Рашад, Доннел Роулингс, Амир-Халиб ТомпсонПеревод: Дублированный, Профессиональный (многоголосый закадровый)Субтитры: Русские (Forced, Full) Украинские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:40:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89050D3705850BFFF65871928C3A66CC6A5A5E77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460921   (1022151) от 07.04.2021
-
-Пчелка Майя: Медовый движ / Maya the Bee 3: The Golden Orb (2021) WEB-DLRip [MVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда упрямая пчелка Майя и ее лучший друг Вилли спасают принцессу-муравьишку, начинается сказочное и опасное приключение, которое приведет их в необычные новые миры и проверит их дружбу на прочность.Производство: Германия, Австралия, Studio 100 Media, Studio B Animation, Flying Bark ProductionsЖанр: ПриключенияРежиссер: Ноэль КлириАктеры: Бенсон Джек Энтони, Фрэнсис Берри, Кристофер Карисиу, Джастин Кларк, Ноэль Клири, Каллэн Колли, Дэвид Коллинз, Том Коссетини, Шэйн Дандас, Джимми Джеймс ИтонПеревод: Многоголосый любительский (MUZOBOZ)Субтитры: отсутствуютПродолжительность: 01:28:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22DBF7E1A3847476E9686427C54C2CB5FE8B46E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

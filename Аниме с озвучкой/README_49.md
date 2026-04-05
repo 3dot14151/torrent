@@ -1,3 +1,133 @@
+###  Публикация: 1173698   (142990) от 28.12.2017
+
+Kino no Tabi: The Beautiful World / Kino’s Journey -the Beautiful World- / Путешествие Кино: Прекрасный Мир [2017, TV, 12 ep] WEB-DL 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142990.jpg" />
+</div>
+
+
+###  Подробнее
+
+Захватывающий мир, полный путешествий, приключений и новых знакомств ждёт вас в этом аниме! Юная девушка в детстве осталась без отчего дома и попала на воспитание к таинственной женщине, которая умеет ловко обращаться с оружием. Научившись всему, что полезно для самостоятельной жизни, девушка решила отправиться в путешествие. У неё было множество навыков, но для (   Читать дальше...   )Жанр: приключения, драма, повседневностьРежиссер: Тагути ТомохисаЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6057850A07C2A67026D94CA78216472BEB30E26A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172926   (142974) от 28.12.2017
+
+Dies Irae / Судный День [2017, TV, 11 ep + SP] WEB-DL 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142974.jpg" />
+</div>
+
+
+###  Подробнее
+
+1-го мая 1945 года в Берлине, когда Красная армия водружала Советский флаг над Рейхстагом, несколько нацистских офицеров совершали ритуал. Для них массовые убийства на улицах города не что иное, как идеальная ритуальная жертва, чтобы воскресить тёмный Орден 13 копьеносцев - группу сверх людей, чьё возвращение приведёт к уничтожению мира. Спустя годы никто так и не (   Читать дальше...   )Производство: Информационные ссылки:Жанр: приключения, мистикаРежиссер: Кудо СусумуЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 11 эпизодов и спешл по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DB89365163536CE81A940324115BAC6245ED244
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173696   (142949) от 28.12.2017
+
+Kekkai Sensen & Beyond / Стражи Барьера и Загранье [ТВ-2] [2017, TV, 12 ep] WEB-DL 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Привычная жизнь жителей Нью-Йорка завершилась в одно мгновение, а точнее за одну ночь. Нью-Йорк прекратил своё существование, и на его месте оказался мрачный город, покрытый туманом. Имя ему "Жребий Иерусалима”. Новый город связывает известную нам реальность, в которой живут обыкновенные люди, с незнакомым фантастическим миром, где обитают существа, которых (   Читать дальше...   )Жанр: приключения, фэнтези, комедия, сёнэнРежиссер: Такаянаги СигэхитоЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C4A343CAEB5E73C77E49ABFE62C8D2F981B1C5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435519   (142903) от 28.12.2020
+
+Mob Psycho 100 | Моб Психо 100 [2016, TV, 12 эп.] BDRip 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142903.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сигэо Кагэяма по прозвищу «Моб» – школьник, которому тяжело выражать свои чувства. Ещё он могущественный экстрасенс. Моб хочет жить обычной жизнью и подавляет свои сверхъестественные силы, но когда уровень накопленного стресса переваливает за 100%, с ним происходит нечто ужасное. Его окружают экстрасенсы-самозванцы, злые духи, таинственные организации. Что решит (   Читать дальше...   )Производство: Япония, BONES / ボンズЖанр: приключения, экшн, комедия, сверхъестественное, сёнэнРежиссер: Татикава ЮдзуруОзвучка: Crunchyroll (многоголосая, закадровая)Субтитры: полные/надписиПродолжительность: 12 эп, ~24 мин. серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:650502686C23BCD2894ADE626FC2470ADEB54301
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949175   (142056) от 29.12.2015
+
+Owari no Seraph: Nagoya Kessen Hen / Seraph of the End: Battle in Nagoya / Последний Серафим [ТВ-2] [2015, TV, 12 ep] HDTV 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142056.jpg" />
+</div>
+
+
+###  Подробнее
+
+На развалинах цивилизации кипит война старых и новых хозяев Земли. После таинственной эпидемии, выкосившей человечество, вампиры Японии во главе с королевой Крул Цепеш вышли из подполья, подчиняя людские анклавы и укрепляя свою кормовую базу. Сопротивление ночным кровососам возглавила Имперская армия, чьи лучшие бойцы составили отряд Лунных Демонов. Именно туда попал (   Читать дальше...   )Жанр: приключения, мистикаРежиссер: Токудо ДайсукэПеревод: Nesitach & Stan WarHammerСубтитры: ASS, Встроенные, Полные | НадписиФормат: MKVПродолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:489AE113229E2C0481945A286DA82DDC15EE6C5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1173829   (141486) от 29.12.2017
 
 Two Car / Двое за Рулем [2017, TV, 12 ep] WEB-DL 720p Raw+Rus
@@ -6,7 +136,7 @@ Two Car / Двое за Рулем [2017, TV, 12 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141486.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ Koe de Oshigoto! The Animation / Работа для голоса [2010, OVA, 2 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140944.jpg" />
 </div>
 
 
@@ -60,7 +190,7 @@ Mahouka Koukou no Rettousei: Raihousha Hen / The Irregular at Magic High School:
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140005.jpg" />
 </div>
 
 
@@ -86,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140000.jpg" />
 </div>
 
 
@@ -112,7 +242,7 @@ Eiga Daisuki Pompo-san | Pompo: The Cinephile | Киноманка Помпо [2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139928.jpg" />
 </div>
 
 
@@ -138,7 +268,7 @@ Masamune-kun no Revenge R | Masamune-kun's Revenge R | Месть Масамун
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139799.jpg" />
 </div>
 
 
@@ -164,7 +294,7 @@ Bungou Stray Dogs / Бродячие псы литературы [2016, TV, 24 e
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139594.jpg" />
 </div>
 
 
@@ -190,7 +320,7 @@ UQ Holder! Mahou Sensei Negima! 2 / Владелец вечности! Волш�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139263.jpg" />
 </div>
 
 
@@ -216,7 +346,7 @@ Kobayashi-san Chi no Maidragon S | Miss Kobayashi's Dragon Maid S | Кобаяс
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138574.jpg" />
 </div>
 
 
@@ -242,7 +372,7 @@ Santa Company / Компания Санты [2014, Movie] BDRip 720 10-bit Raw+R
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138553.jpg" />
 </div>
 
 
@@ -268,7 +398,7 @@ Bokutachi wa Benkyou ga Dekinai [TV-2] | Мы не можем учиться! [�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138511.jpg" />
 </div>
 
 
@@ -294,7 +424,7 @@ Tenchi Muyou! Ryououki | Tenchi Muyo! Ryo-Ohki | Тэнти - лишний! Рё
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137775.jpg" />
 </div>
 
 
@@ -321,7 +451,7 @@ Kimi to, Nami ni Noretara | Ride Your Wave | На твоей волне [2019, M
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137767.jpg" />
 </div>
 
 
@@ -347,7 +477,7 @@ Mob Psycho 100 II | Моб Психо 100 II [2019, TV, 13 эп.] BDRip 1080p ru
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137761.jpg" />
 </div>
 
 
@@ -373,7 +503,7 @@ Himouto! Umaru-chan R / Двуличная сестрёнка Умару [ТВ-2
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137453.jpg" />
 </div>
 
 
@@ -399,7 +529,7 @@ Kujira no Kora wa Sajou ni Utau / Children of the Whales / Поющие в Пе�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137359.jpg" />
 </div>
 
 
@@ -425,7 +555,7 @@ Valkyrie Drive: Mermaid / Сила Валькирии: Русалочка [2015,
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137314.jpg" />
 </div>
 
 
@@ -451,7 +581,7 @@ Ajin 2 (2016) / Полулюди [ТВ-2] [2016, TV, 13 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137208.jpg" />
 </div>
 
 
@@ -477,7 +607,7 @@ Houseki no Kuni / Land of the Lustrous / Сказания о самоцвета�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137168.jpg" />
 </div>
 
 
@@ -503,7 +633,7 @@ Sin: Nanatsu no Taizai | Seven Mortal Sins | Прегрешение: Семь с
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137158.jpg" />
 </div>
 
 
@@ -530,7 +660,7 @@ Imouto sae Ireba Ii / A Sister's All You Need / Сестра - всё, что т
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137155.jpg" />
 </div>
 
 
@@ -541,136 +671,6 @@ Imouto sae Ireba Ii / A Sister's All You Need / Сестра - всё, что т
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C243D9B3C213485AFD5C279EA7CBE2FB2ED38F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173695   (137138) от 31.12.2017
-
-Code:Realize Sousei no Himegimi / Код: Осознание [2017, TV, 12 ep] WEB-DL 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137138.jpg" />
-</div>
-
-
-###  Подробнее
-
-В запертом и заброшенном особняке, в пустынном месте живёт… Нет, не страшное привидение, а всего лишь девочка по имени Кардия. Но причину, по которой ей приходится жить в таком жутком месте, как раз можно назвать страшной. Дело в том, что в крови Кардии течёт настоящий яд! И всё, чего она касается, либо гниёт, либо плавится. Поэтому девочка пообещала своему отцу, (   Читать дальше...   )Жанр: фэнтези, романтика, сёдзёРежиссер: Ямамото ХидэёЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2B4F25AF1BE7C642E336D61726E755A6BC67418
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348909   (137099) от 31.12.2019
-
-Grenadier: Hohoemi no Senshi | Grenadier The Beautiful Warrior | Гренадер [2004, TV] DVDRip 480p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Идет Великая Японская Гражданская Война. Благородный самурай Ядзиро Торадзима попадает в окружение вражеских воинов, но ему на помощь приходит жизнерадостная Русюна Тэндо: девушка спасает мечника при помощи чарующей улыбки и крупнокалиберного револьвера! Миссия Русюны заключается в том, чтобы прекратить братоубийственную войну. Заручившись поддержкой Ядзиро, она (   Читать дальше...   )Производство: Япония. Group TAC, Studio LiveЖанр: приключения, комедия, эттиРежиссер: Кодзина ХиросиЯзык озвучки: Японский, русский, английскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин. + 5 SP по 1 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8298FCAD35090071EF50BC9F4A7584C7ACD4E61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331378   (137085) от 31.12.2019
-
-Shokugeki no Souma: Shin no Sara / Food Wars! The Fourth Plate / Кулинарные поединки Сомы [ТВ-4] [2019, TV, 12 ep] WEB-DL 1080p Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137085.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юкихира Сома возвращается на наши экраны! Ещё в школе этот парень уже распланировал свою жизнь. Он буквально спал и видел, как маленький ресторанчик, в котором работают он и его отец, переходит к нему по наследству. Но не тут то было, его папа уезжает в путешествие, а самого Юкихиру отправляет в знаменитую кулинарную академию Тоцуки. Здесь самоуверенному Соме приходится (   Читать дальше...   )Жанр: комедияРежиссер: Ёнэтани ЁситомоЯзык озвучки: Японский и РусскийСубтитры: ASS, Встроенные, НадписиФормат: MKVПродолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A596E4233A82C22A19446BC58DF1E706D50FF6CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583749   (137005) от 31.12.2022
-
-Chainsaw Man | Человек-бензопила [2022, TV, 12 из 12] WEBRip 720p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137005.jpg" />
-</div>
-
-
-###  Подробнее
-
-У Дэндзи есть мечта — жить мирной и счастливой жизнью, проводя время с любимой девушкой. Однако суровая реальность в лице некоего якудзы заставляет парня вернуться с небес на землю, ведь он вынужден убивать демонов, чтобы расплатиться с необъятными долгами покойного отца. Вместе со своим дьявольским питомцем Почитой, которого использует в качестве оружия, Дэндзи (   Читать дальше...   )Производство: студия MAPPA (Токио)Жанр: приключения, боевик, драмаРежиссер: Накаяма РюЯзык озвучки: Русский любительский двухголосый (Субтитры: Русские (Надписи (по умолчанию); Katsura; SovetRomantica; RikuSempai; Crunchyroll)Продолжительность: 12 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9585581C71E4947111D6D7E19FC5BB22A905615
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431750   (136561) от 31.12.2020
-
-Golden Kamuy (2020) / Золотое божество [ТВ-3] [2020, TV, 12 ep] WEB-DL 1080p Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136561.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Его сердце совершенно не боится смерти, и в этом его сила». Эта история про Саити Сугимото, которого прозвали «Бессмертным». Он прошел русско-японскую войну и выжил. На его теле множество шрамов, а на его памяти много ситуаций, в которых нормальный человек не смог бы уцелеть. Из-за своего вспыльчивого характера сейчас он простой бродяга без гроша в кармане. Но однажды (   Читать дальше...   )Жанр: приключенияРежиссер: Намба ХитосиЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86A5504FCA8F6B87AEAEA00D0DAB8BB85A5999BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

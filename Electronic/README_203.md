@@ -1,3 +1,64 @@
+###  Публикация: 505237   (686268) от 07.06.2012
+
+Ghosting Season - The Very Last Of The Saints (2012) [MP3|320 кб/с]<Deep House, Ambient, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Deep House, Ambient, ElectronicПродолжительность: 01:03:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46A8350D325D953B52E998091A37DA51FDD1F3BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 506572   (686130) от 07.06.2012
+
+VA - Club Session Pres. Ibiza Beach Clubbing 2012 (2012) [MP3|320 кб/с]<House, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Micah The Violinist - Sunshine of Ibiza - Les Schmitz and Alex Del Amo Remix (6:48)
+02. D-Wave - Calinda - Menini & Viani Remix (7:30)
+03. Jochen Pash - Voyage - Dj PP Remix (7:30)
+04. Coqui Selection - Push Me! - Original Mix (6:54)
+05. Drumcomplex - Insomniac - Original Mix (8:34)
+06. Alex Del Amo - We Are Family - DJ PP Remix (7:21)
+07. Haroun Hickman - Lets Be Free - David Amo & Julio Navas Remix (6:16)
+08. Funkagenda - Antidote - Sonny Wharton Remix (6:25)
+09. Andy Vajna - Sensations - Javi Del Valle Remix (7:07)
+10. Jesse Voorn - Pop - Midnite Sleaze Remix (6:35)(   Читать дальше...   )2012Жанр: House, Club HouseПродолжительность: 02:16:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF44F666753EAE3A201E72D1DBC2EC687F271E08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 897577   (685647) от 13.05.2015
 
 Fourth Dimension - Harmonia (2015) [FLAC|Lossless|WEB-DL]<Psybient, Downtempo, Ambient>
@@ -6,7 +67,7 @@ Fourth Dimension - Harmonia (2015) [FLAC|Lossless|WEB-DL]<Psybient, Downtempo, A
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685647.jpg" />
 </div>
 
 
@@ -35,7 +96,7 @@ VA - Hipster Lounge (Deluxe Lounge and Del Mar Music Only) (2015) [MP3|320 кб/
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685639.jpg" />
 </div>
 
 
@@ -57,6 +118,41 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 335334   (685624) от 11.05.2011
+
+VA - Souvenir Rec Pres: In The City (2011) [SOUVENIRCD 003|MP3|320 kbps]<Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_685624.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ruede Hagelstein And Naneci - Demon (Short Version)
+2. Sante Feat. Meggy - Rescue Me (Original Mix)
+3. Nico - Wicked Games (Original Mix)
+4. Re.You - Dance (Original Mix)
+5. &ME - Just For This (Original Mix)
+6. Tiefschwarz Feat. Jaw - Stuck In My Head (Original Mix)
+7. Adam Port - You Better (Original Mix)
+8. Ahmet Sisman - After Rain Comes Sun (Original Mix)
+9. Rampa - Wrong (Original Mix)
+10. Onno - Jazz (Original Mix)(   Читать дальше...)Жанр: Tech HouseПродолжительность: 05:10:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B65877A3187D1D7BA9EE0B4CE3537FCCA667D2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 897656   (685453) от 13.05.2015
 
 Aes Dana feat. MikTek - Alkaline (2015) [FLAC|Lossless|WEB-DL|24Bit]<Psybient, Downtempo, IDM, Ambient>
@@ -65,7 +161,7 @@ Aes Dana feat. MikTek - Alkaline (2015) [FLAC|Lossless|WEB-DL|24Bit]<Psybient, D
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685453.jpg" />
 </div>
 
 
@@ -93,7 +189,7 @@ VA - Spring Tube Journey. UK (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685306.jpg" />
 </div>
 
 
@@ -122,7 +218,7 @@ VA - Dirty Club Grooves 2018 [MP3|320 Kbps] <Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685305.jpg" />
 </div>
 
 
@@ -151,7 +247,7 @@ VA - The Real Silent Mode (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685301.jpg" />
 </div>
 
 
@@ -180,7 +276,7 @@ VA - Total Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685215.jpg" />
 </div>
 
 
@@ -209,7 +305,7 @@ VA - Lunch Break Vol.1 (Chilling Dining Music) (2017) [MP3|320 Kbps] <Downtempo,
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685214.jpg" />
 </div>
 
 
@@ -238,7 +334,7 @@ VA - Exotic Liquors Lounge Edition (2017) [MP3|320 Kbps] <Downtempo, Chillout, L
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685213.jpg" />
 </div>
 
 
@@ -267,7 +363,7 @@ VA - Ibiza-Unique Presents Fairy Tails Vol.2 (Mixed by Nightmosphere) (2017) [MP
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685086.jpg" />
 </div>
 
 
@@ -296,7 +392,7 @@ VA - Big Room EDM Anthems 2k17 (2017) [MP3|320 Kbps] <Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685082.jpg" />
 </div>
 
 
@@ -325,7 +421,7 @@ Aly & Fila - Future Sound Of Egypt 496 (2017) [MP3|320 Kbps] <Trance,Uplifting T
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685072.jpg" />
 </div>
 
 
@@ -354,7 +450,7 @@ VA - Ibiza Lounge Funk House Music 2017, Vol. 01 [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684986.jpg" />
 </div>
 
 
@@ -383,7 +479,7 @@ VA - Just Motivated Vol.1 (Pure Sport & Fitness Music) (2017) [MP3|320 Kbps] <Ho
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684978.jpg" />
 </div>
 
 
@@ -412,7 +508,7 @@ VA - Lounge Radio Deluxe, Vol. 1 (2016) [MP3|320 кб/с] <Downtempo, Lounge, Ch
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684543.jpg" />
 </div>
 
 
@@ -441,7 +537,7 @@ Nick Warren & Guy Mantzur - Sad Robot (Remixes) (2016) [FLAC|Lossless|WEB-DL|tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684540.jpg" />
 </div>
 
 
@@ -469,7 +565,7 @@ Cantoma - Cantoma (2015) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Lounge, D
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684427.jpg" />
 </div>
 
 
@@ -498,7 +594,7 @@ VA - Ibiza Underground 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Te
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684410.jpg" />
 </div>
 
 
@@ -527,7 +623,7 @@ VA - Miami 2019 (2019) [MP3|320 Kbps] <Tech House, Deep Tech, House, Techno>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684336.jpg" />
 </div>
 
 
@@ -556,7 +652,7 @@ VA - I Love Trance Ocean (2019) [MP3|320 Kbps] <Trance, UpliftingTrance, Progres
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684332.jpg" />
 </div>
 
 
@@ -585,7 +681,7 @@ VA - Discover Trance 3 (2020) [FLAC|Lossless|WEB-DL|tracks] <Trance, Uplifting T
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684278.jpg" />
 </div>
 
 
@@ -614,7 +710,7 @@ Midnight Danger - Chapter 2: Endless Nightmare (2020) [FLAC|Lossless|WEB-DL|trac
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684269.jpg" />
 </div>
 
 
@@ -643,7 +739,7 @@ VA - I Love Hard Trance (2019) [MP3|320 Kbps] <Trance, PSY-Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684231.jpg" />
 </div>
 
 
@@ -657,99 +753,6 @@ VA - I Love Hard Trance (2019) [MP3|320 Kbps] <Trance, PSY-Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2DF1D3F44B5E803A6E68C8EA5D54E8A869AF321
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289735   (684132) от 17.03.2019
-
-VA - Arabian Nights (2019) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Deep-house, Downtempo, Electronica>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elias Fassos & RisK (Gr) - Sunset in Ayia Napa
-02. Stanisha - Emina
-03. Nikos Kaponis - Gypsy Day
-04. Arona - Shawq(   Читать дальше...   )Жанр: Lounge, Deep-house, Downtempo, ElectronicaПродолжительность: 01:31:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:828D78666F674B3B6A016FB7D9E552823FF839EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 507489   (683689) от 08.06.2012
-
-Alex Niggemann - Paranoid Funk (2012) [MP3|320 кб/с]<Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Wait (Extended Mix) (07:53)
-02.Street Therapy (09:37)
-03.Curious (07:21)
-04.Lovers feat. John Rydell (04:34)
-05.That Is...!? (Vinyl Cut) (07:38)
-06. Come Into My World (Vinyl Cut) (06:01)
-07.Parentless Child (Vinyl Cut) (06:32)
-08.Back 2 Basics feat. Benji (Vinyl Cut) (06:55)
-09.The Sweetest Thing feat. Daniel Solar (Vinyl Cut) (07:01)
-10.I Don't Care (Ride Mix Vinyl Cut) (06:21)(   Читать дальше...   )2012Жанр: Tech House, Deep HouseПродолжительность: 01:23:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A5C98D0A0A59773F88800B17E134065A131DF7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222690   (683124) от 30.04.2018
-
-Moonbootica - Future (2018) [FLAC|Lossless|WEB-DL|tracks] <Club House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moonbootica & BONDI - Lost & Found (4:28)
-02. Moonbootica & Jack Beauregard - Covered in Gold (6:12)
-03. Moonbootica & BONDI - Trippin' (4:17)
-04. Moonbootica feat. Nneka - Do Not Do Me (Like Dis) (4:11)(   Читать дальше...   )Жанр: Club HouseПродолжительность: 01:08:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E3511CFF0448D16A3D68EF49B24BBB551CF03E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

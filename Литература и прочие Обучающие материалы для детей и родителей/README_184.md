@@ -1,3 +1,56 @@
+###  Публикация: 903610   (657569) от 31.05.2015
+
+Хлое Райдер | Принцессы пони. Приключения в волшебной стране [5 книг] (2015) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657569.jpg" />
+</div>
+
+
+###  Подробнее
+
+Секрет для пони.
+Привет! Меня зовут Пиппа, и я люблю лошадей. Я просила маму купить мне пони, но оказалось, что это невозможно. Зато теперь я познакомилась с самыми настоящими волшебными пони и меня ждут удивительные приключения! На Дне сбора урожая мне предстоит не только помочь королевской семье пони, но и распутать одно чрезвычайно важное дело, ведь на празднике (   Читать дальше...   )Жанр: Фантастика, приключенияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D585F9A0BB2084DF885CDF25EF3BBA57633C53B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539608   (657278) от 26.03.2022
+
+Лисса Леменкюлер | Снежик, или Чудо в переулке Синичек (2022) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657278.jpg" />
+</div>
+
+
+###  Подробнее
+
+Существуют ли волшебные существа? Девятилетний Оле, например, читал о снежном человеке. Но он и не подозревал, что может однажды столкнуться с таким чудом… Пока к нему в комнату порывом ветра не занесло Снежика! Ох, как же пушистик любит поесть: со стола тут же исчез папин кофе, а из холодильника – весь сыр. И всё же Снежик очень смешной и классный. Оле даже взял (   Читать дальше...   )Жанр: Детская литература, Фантастика, ПриключенияПеревод: Ксения ЧесноковаФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28859E5929714E5A04485271B57AE88CDD6E07DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1539700   (657263) от 26.03.2022
 
 Антон Залыгин | Почемучкины книжки. Каких размеров Вселенная? (2018) [PDF]
@@ -6,7 +59,7 @@
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657263.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657217.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657214.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657067.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656888.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656880.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656773.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656685.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656560.jpg" />
 </div>
 
 
@@ -246,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656557.jpg" />
 </div>
 
 
@@ -272,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656430.jpg" />
 </div>
 
 
@@ -298,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656382.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656300.jpg" />
 </div>
 
 
@@ -350,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656158.jpg" />
 </div>
 
 
@@ -376,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656122.jpg" />
 </div>
 
 
@@ -403,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655695.jpg" />
 </div>
 
 
@@ -429,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655681.jpg" />
 </div>
 
 
@@ -456,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655580.jpg" />
 </div>
 
 
@@ -482,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655233.jpg" />
 </div>
 
 
@@ -508,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655021.jpg" />
 </div>
 
 
@@ -535,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654967.jpg" />
 </div>
 
 
@@ -562,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654688.jpg" />
 </div>
 
 
@@ -589,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654465.jpg" />
 </div>
 
 
@@ -615,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654374.jpg" />
 </div>
 
 
@@ -627,59 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54F7BE7492451B74886AD21C53A04F7C39C0D65E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 344301   (654241) от 31.05.2011
-
-Майн Рид | Собрание сочинений в шести томах [1956-1958] [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Среди книг для детей и подростков большое место занимает литература приключений и путешествий. Смелые и закаленные люди, о которых она рассказывает, становятся любимцами молодого читателя. К числу славных создателей романа приключений и путешествий принадлежит и Томас Майн Рид.
-Антикварное издание, с иллюстрациями. В 6-томник вошли все лучшие произведения Майна Рида.Жанр: Детская литература, приключенияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA3F83EA12063BC8A72A38DE744D8F40CB08AC3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904491   (654122) от 03.06.2015
-
-Михаил Зощенко | Рассказы (2015) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Путь от «взрослой» к литературе для ребёнка проходили многие писатели. Взрослый писатель Михаил Зощенко (1894–1958) тоже занял своё особое место в детской литературе. В 1937–1945 годах он писал для детей. Неповторимый юмор и назидательность, соединившиеся в его рассказах, полюбили дети. Рассказы М. Зощенко с удовольствием читают и сегодня. Вероятно, у писателя получилось (   Читать дальше...   )Жанр: Детская проза, Советская классическая прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABDA30F850E0790FFBE4C4FCD0A40848C87B7AF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1566190   (484554) от 28.07.2022
+
+The Xebellian Triangle - At The Banks Of The Rubicon (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Spawn Of Ungoliant (00:03:27)
+02 - This Cursed Lineage (00:04:07)
+03 - Dracarys (00:07:26)
+04 - Confirmed (00:02:29)(   Читать дальше...   )Жанр: Symphonic, Melodic Death MetalПродолжительность: 00:34:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA913E386C45AD84EE7900CDE1F7F9F7C7B156D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1566406   (484552) от 28.07.2022
 
 Municipal Waste - Electrified Brain (2022) [FLAC|Lossless|image + .cue] <Thrash Metal>
@@ -6,7 +35,7 @@ Municipal Waste - Electrified Brain (2022) [FLAC|Lossless|image + .cue] <Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484552.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Dark Funeral - 5 Albums, 1 EP (1994-2009) 7CD, Limited Edition, Reissue 2013 [FL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484519.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Jack White - Entering Heaven Alive (2022) [FLAC|Lossless|tracks + .cue] <Alterna
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484518.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Anthrax - XL (MCMLXXXI - MMXXII) (2022) 2xCD, Live [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484422.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Intelligent Music Project VII - Unconditioned (2022) [FLAC|Lossless|WEB-DL|track
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484421.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Nopresion - Sobre Fosas Y Vampiros (1995) [FLAC|Lossless|image + .cue] <Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484267.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Aspid - Babel (2002) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484261.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Mob Rules - Beast Reborn (2018) 2CD, Limited Edition [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484193.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Primal Fear - Apocalypse (2018) Japan [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484106.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Veonity - Into The Void (2016) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484100.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ David Wallimann (Glass Hammer) - Evolving Seeds Of Glory (2016) [FLAC|Lossless|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484095.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Oceans of Noise (feat. Sertab Erener) - Oceans of Noise (2018) EP [MP3|320 Kbps]
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484089.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Simon and Garfunkel - Bridge Over Troubled Water (1970) 1999, Columbia [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484070.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Claret Ash - The Cleansing (2015) [MP3|320 кб/с]<Atmospheric Black Metal, Pro
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484065.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Omnium Gatherum - The Burning Cold (2018) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483981.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483854.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483834.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Veladelyra - Золото погибших кораблей (2020) [FLAC|Lossl
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483686.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Devon Murray - Dedicated, Resistant, Minute. (2020) [MP3|320 Kbps] <Progressive 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483683.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Laaz Rockit (Lääz Rockit) - No Stranger To Danger (1985) Reissue, Remastered, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483681.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Manticora - To Live to Kill to Live (2020) [MP3|320 Kbps] <Progressive Power Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483679.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Luna's Call - 2 Albums (2016-2020) [MP3|320 Kbps] <Progressive Metal, Death Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483677.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Motorpsycho - The All Is One (2020) [MP3|320 Kbps] <Psychedelic Rock, Alternativ
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483676.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Point North - Brand New Vision (2020) [FLAC|Lossless|tracks] <Alternative, Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483548.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Laaz Rockit (Lääz Rockit) - Know Your Enemy (1987) Reissue, Remastered, 2009, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483534.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Laaz Rockit (Lääz Rockit) - Know Your Enemy (1987) Reissue, Remastered, 2009, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3521F624FAFB4473B67ED9A2454775C9C34A541
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056024   (483445) от 24.09.2016
-
-Mike Oldfield - Discovery (Deluxe Edition) (2016) Remastered 2CD[FLAC|Lossless|image + .cue] <Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mike Oldfield - To France (Remastered 2015 / The 1984 Suite Version) (04:47)
-02. Mike Oldfield - The Lake (Remastered 2015 / The 1984 Suite Version) (13:43)
-03. Mike Oldfield - The Killing Fields (Remastered 2015 / The 1984 Suite Version) (02:44)
-04. Mike Oldfield - Etude (Remastered 2015 / The 1984 Suite Version) (04:38)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:38:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FABA601DAC73E9EE028960A2ABF42A8346B0EF90
 ```
 
 https://mybot314.ru/tekegram_catalog/

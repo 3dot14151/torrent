@@ -1,3 +1,32 @@
+###  Публикация: 1252552   (409423) от 05.10.2018
+
+Симптом - Hereditatem (vol. 2) (2018) [MP3|320 Kbps] <Gothic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409423.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Князь тишины (Nautilus Pompilius cover)
+2. Мой рок-н-ролл (Би-2 cover) feat. Лия Каргина (Sara)
+3. Моряк (Агата Кристи cover)
+4. Try (acoustic) bonusЖанр: Gothic Hard RockПродолжительность: 00:15:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F433E5364E094FCB83B2C19073B8F8296733B26E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1252352   (409422) от 05.10.2018
 
 Euphoreon - Ends of the Earth (2018) Japan [FLAC|Lossless|image + .cue] <Melodic Death Metal>
@@ -6,7 +35,7 @@ Euphoreon - Ends of the Earth (2018) Japan [FLAC|Lossless|image + .cue] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409422.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Ulytau - Jumyr Kylysh (2006) [MP3|320 кб/с]<Ethno-Rock, Folk, Instrumental>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409352.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Redemption - Long Night's Journey Into Day (2018) Limited Edition [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409315.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Phideaux - Infernal (2018) 2CD [FLAC|Lossless|tracks + .cue] <Prog Rock, Symphon
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409312.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Paul McCartney - New (2013) [FLAC 2.0 96/24 |tracks (WEB-DL)]<Rock>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409301.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Avenged Sevenfold - The Stage (2016) [MP3|320 Kbps] <Heavy Metal, NWOAHM>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409270.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409253.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Leech - For Better or for Worse (2018) [FLAC|Lossless|tracks + .cue] <Post Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409210.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Axxis - Monster Hero (2018) [MP3|320 Kbps] <Melodic Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409191.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409181.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Behemoth - I Loved You At Your Darkest (2018) [MP3|320 Kbps] <Black Metal, Death
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409090.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ John Lennon - Imagine (2018) The Ultimate Collection  [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408997.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Pappo's Blues - Caso Cerrado (1995) Volumen 8 [MP3|320 Kbps] <Hard Rock, Blues R
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408882.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ The Strypes - Little Victories (2015) [FLAC|Lossless|image + .cue] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408878.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Braindown - A World To Forget (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408871.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Consumption - Necrotic Lust (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408870.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Commoner - I (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408869.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Versa - A Voyage / A Destination (2022) [MP3|320 Kbps] <Progressive Rock, Crosso
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408868.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ The Laser's Edge - PROG presents- The Laser's Edge Group (2022) [FLAC|Lossless|W
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408866.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Corrupt Soul - Ancient Psychophony (2022) Compilation [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408865.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Feather Mountain - To Exit a Maelstrom (2022) [MP3|320 Kbps] <Progressive Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408864.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Trial (swe) - Feed the Fire (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408859.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Hiss Golden Messenger - Hallelujah Anyhow (2017) [FLAC|Lossless|tracks + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408854.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Klaatu - Klaatu / Hope (1976-77) Reissue, 2000, BGO Records [MP3|320 Kbps] <Art,
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408847.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Figure Of Speechless - Tunnel at the End of the Light (2022) [FLAC 2.0|44/24|WEB
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408816.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Figure Of Speechless - Tunnel at the End of the Light (2022) [FLAC 2.0|44/24|WEB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15FA5148E8ABEAA65A411478854F8876B4389C0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573765   (408814) от 02.09.2022
-
-Mike Tramp - For Første Gang For Altid (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Det Jeg Var (5:14)
-02. Vejkort (4:23)
-03. For Første Gang For Altid (4:50)
-04. Jeg Holder Fast (5:05)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BC329BB992FCF8743F6D456F36DDE5276B79117
 ```
 
 https://mybot314.ru/tekegram_catalog/

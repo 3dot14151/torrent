@@ -1,3 +1,61 @@
+###  Публикация: 1245264   (474217) от 05.09.2018
+
+Kwartz - Body Sedation (2018) Horo [FLAC|Lossless|WEB-DL|tracks] <Techno, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Over A Sign Recognition (04:38)
+ 02. Body Sedation (06:08)
+ 03. Frame Dislocation (04:11)
+ 04. Beyond Belief (05:41)(   Читать дальше...   )Жанр: Techno, ExperimentalПродолжительность: 00:30:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BA49CB8F9DFD66AB57FC44B457B48E5C025BBD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245344   (474096) от 05.09.2018
+
+Magnifik - Romantik (2018) [FLAC|Lossless|WEB-DL|tracks] <House, Nu Disco, Soulful>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Any Given Sunday (feat. Andrea Kirwin) (05:05)
+02. Hold On (feat. Mondecreen) (05:02)
+03. Count To Ten (feat. Andrea Kirwin) (04:59)
+04. Keep Pressin' On (feat. Mondecreen) (04:24)(   Читать дальше...   )Жанр: House, Nu Disco, SoulfulПродолжительность: 00:52:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D9E112B950F756603223589EB0F7ED73DFF981E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1320247   (473277) от 17.08.2019
 
 VA - Go Sports! Vol. 1 Maximum Level Workout Sounds (2019) 2CD [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House, Dance>
@@ -6,7 +64,7 @@ VA - Go Sports! Vol. 1 Maximum Level Workout Sounds (2019) 2CD [FLAC|Lossless|WE
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473277.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Paradis - Recto Verso (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Disco>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473044.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ David Guetta - Nothing but the Beat 2.0 (2012) [FLAC|Lossless]<House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471510.jpg" />
 </div>
 
 
@@ -98,7 +156,7 @@ U96 & Wolfgang Flur - Transhuman (2020) [FLAC|Lossless|WEB-DL|tracks] <EDM, Elec
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470846.jpg" />
 </div>
 
 
@@ -127,7 +185,7 @@ Yotto - Hyperfall (2018) Anjunadeep [FLAC|Lossless|WEB-DL|tracks] <Progressive H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469892.jpg" />
 </div>
 
 
@@ -156,7 +214,7 @@ VA - Ibiza 2016 Closing Party (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468828.jpg" />
 </div>
 
 
@@ -185,7 +243,7 @@ VA - Robot Says Y (2020) What Robot Says [FLAC|Lossless|tracks|Vinyl] <Tech Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468602.jpg" />
 </div>
 
 
@@ -214,7 +272,7 @@ VA - Hello Strange Story Series #1-#8 (2016-2020) hello▼strange [FLAC|Lossless
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468271.jpg" />
 </div>
 
 
@@ -243,7 +301,7 @@ Robin Schulz - SUGAR (2015) [FLAC|Lossless|WEB-DL]<Dance, House, Deep House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466730.jpg" />
 </div>
 
 
@@ -272,7 +330,7 @@ VA - Oh my God,... It's Electro House volume 2 (mixed by Sebastian Gnewkow) (200
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466437.jpg" />
 </div>
 
 
@@ -301,7 +359,7 @@ VA - Summer Sampler (2022) [FLAC|Lossless|WEB-DL|tracks] <Pure Progressive House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466015.jpg" />
 </div>
 
 
@@ -327,7 +385,7 @@ VA - Body Language, Vol. 20 (Mixed & Compiled by Emanuel Satie) (2018) [FLAC|Los
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465676.jpg" />
 </div>
 
 
@@ -356,7 +414,7 @@ Shinichi Atobe - Discography 7 Releases (2001-2018) DDS, Jadac Recordings [FLAC|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465671.jpg" />
 </div>
 
 
@@ -385,7 +443,7 @@ Modd - Guron (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463651.jpg" />
 </div>
 
 
@@ -414,7 +472,7 @@ VA - Funky House Classics (2018) 4CD [FLAC|Lossless|image + .cue] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463615.jpg" />
 </div>
 
 
@@ -443,7 +501,7 @@ Daft Punk - Alive 2007 (2007) [FLAC|Lossless|tracks] <French House, House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463353.jpg" />
 </div>
 
 
@@ -472,7 +530,7 @@ VA - Melodica Electronica Vol.1 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462106.jpg" />
 </div>
 
 
@@ -501,7 +559,7 @@ Dwson - A Tape For You (2022) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462088.jpg" />
 </div>
 
 
@@ -530,7 +588,7 @@ DJ Aligator - Kiss My B-ass (2009) [FLAC|Lossless]<House, Euro House, Trance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460162.jpg" />
 </div>
 
 
@@ -564,7 +622,7 @@ VA - Songspire Summer of Love 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <EDM, Pr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459924.jpg" />
 </div>
 
 
@@ -593,7 +651,7 @@ Deadmau5 - Album Title Goes Here (2CD) (2012) [FLAC|Lossless]<Progressive House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459515.jpg" />
 </div>
 
 
@@ -627,7 +685,7 @@ The Ananda Project - Fire Flower (2007) [FLAC|Lossless|tracks + .cue] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459240.jpg" />
 </div>
 
 
@@ -656,7 +714,7 @@ Audio Bullys - 3 Albums (2002-2010) Discography [FLAC|Lossless|tracks + .cue] <E
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459208.jpg" />
 </div>
 
 
@@ -685,7 +743,7 @@ Tender H - Distance (2019) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Deep
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459082.jpg" />
 </div>
 
 
@@ -699,64 +757,6 @@ Tender H - Distance (2019) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Deep
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B4EB32AD143146F0F9349FF7E9F20E13A8C4A44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569110   (455799) от 11.08.2022
-
-Ben Haydie - Molecules (2022) [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House, Melodic House & Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arrive (3:28)
- 02. Stains (4:50)
- 03. Bullets (5:11)
- 04. We Collide (5:30)(   Читать дальше...   )Жанр: Deep Progressive House, Melodic House & TechnoПродолжительность: 00:47:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9025D63E032FAF3AE41D2DCF22D902BD09F68E4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247204   (454944) от 14.09.2018
-
-Francisco Aguado - Infinite love (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep Techno, Downtempo, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aimless Dreams (6:14)
- 02. Sea of Clouds (8:18)
- 03. Waves of Hope (6:16)
- 04. Return of the Essence (6:58)(   Читать дальше...   )Жанр: Deep Techno, Downtempo, MinimalПродолжительность: 00:52:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41287D230DE3A4151ED0F60DE43F8D39916E7884
 ```
 
 https://mybot314.ru/tekegram_catalog/

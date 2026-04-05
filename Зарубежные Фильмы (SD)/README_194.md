@@ -1,55 +1,3 @@
-###  Публикация: 1200239   (796255) от 20.01.2018
-
-Мечтатель / Dreamer: Inspired by a True Story (2005) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796255.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на реальных событиях. Отец и дочь — две одинокие души, живущие под одной крышей. Несмотря на глубокую привязанность, на самом деле они очень далеки от взаимопонимания. Но всё меняется, когда маленькая Кейл просит отца вылечить любимую лошадь. Это становится точкой отсчёта в новой истории любви и привязанности, новой жизни новой семьи и настоящей дружбы...Производство: США / DreamWorks SKG, Hyde Park Entertainment, S.K.G. Productions LLC, Tollin/Robbins Productions, Brass Hat FilmsЖанр: Драма, СемейныйРежиссер: Джон ГэйтинсАктеры: Курт Рассел, Дакота Фаннинг, Крис Кристофферсон, Элизабет Шу, Дэвид Морс, Фредди Родригес, Луис Гусман, Одед Фер, Кен ХовардПеревод: Многоголосый закадровыйСубтитры: Русские, английскиеПродолжительность: 01:45:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0099A9E3F2A0C771199B1E213158A89E3523A372
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200165   (796072) от 20.01.2018
-
-Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда штаб-квартиры секретной службы Kingsman уничтожены, и весь мир оказался в заложниках у неизвестных, британские суперагенты обнаруживают, что в один день вместе с их организацией была еще создана американская разведка — Statesman. Теперь эти две элитные спецслужбы должны объединиться и бросить вызов общему безжалостному врагу, чтобы спасти мир, то есть заняться (   Читать дальше...   )Производство: Великобритания, США / 20th Century Fox Film Corporation, Marv Films, Shangri-La EntertainmentЖанр: Боевик, Комедия, ПриключенияРежиссер: Мэттью ВонАктеры: Тэрон Эджертон, Колин Фёрт, Марк Стронг, Джулианна Мур, Холли Берри, Педро Паскаль, Ченнинг Татум, Джефф Бриджес, Эдвард Холкрофт, Ханна АльстрёмПеревод: Дублированный (BD EUR)Субтитры: Русские (отдельным файлом)Продолжительность: 02:21:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0D29B9AED374FD2DCFBECF5B80A2486541BA56E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1508958   (796024) от 10.11.2021
 
 Узники страны призраков / Prisoners of the Ghostland (2021) BDRip [H.265]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796024.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796019.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795998.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795955.jpg" />
 </div>
 
 
@@ -162,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795943.jpg" />
 </div>
 
 
@@ -188,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795938.jpg" />
 </div>
 
 
@@ -214,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795890.jpg" />
 </div>
 
 
@@ -240,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795850.jpg" />
 </div>
 
 
@@ -266,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795833.jpg" />
 </div>
 
 
@@ -292,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795817.jpg" />
 </div>
 
 
@@ -318,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795598.jpg" />
 </div>
 
 
@@ -344,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795584.jpg" />
 </div>
 
 
@@ -370,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795469.jpg" />
 </div>
 
 
@@ -397,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795371.jpg" />
 </div>
 
 
@@ -423,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795365.jpg" />
 </div>
 
 
@@ -449,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795352.jpg" />
 </div>
 
 
@@ -475,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795341.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795340.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795313.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795290.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795246.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795213.jpg" />
 </div>
 
 
@@ -633,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795206.jpg" />
 </div>
 
 
@@ -659,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795157.jpg" />
 </div>
 
 
@@ -670,6 +618,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED7CD5CF16B55C6B0A51843987AA7F5500B6F6F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386394   (795085) от 28.05.2020
+
+Настоящие боссы / Гламурные боссы / Like a Boss (2020) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795085.jpg" />
+</div>
+
+
+###  Подробнее
+
+Будучи лучшими подругами ещё с колледжа, Миа и Мел управляют небольшой косметической компанией, которую создали с нуля. Девушки всё делают вместе и даже живут в одном доме. Их бизнес находится на грани разорения, когда подруги получают предложение, от которого невозможно отказаться — титан отрасли Клэр Луна предлагает оплатить их долги в обмен на долю в компании. (   Читать дальше...   )Производство: США / Artists First, Paramount PicturesЖанр: КомедияРежиссер: Мигель АртетаАктеры: Роуз Бирн, Тиффани Хэддиш, Сальма Хайек, Билли Портер, Дженнифер Кулидж, Эри Грейнор, Каран Сони, Райан Хансен, Джессика Ст. Клер, Джейкоб ЛатиморПеревод: Дублированный (iTunes)Субтитры: Русские, английские (отдельно)Продолжительность: 01:23:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8AB2B5F57A51303132E469640B5D96F0BD9F678
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507580   (794846) от 12.11.2021
+
+Песня соловьев / Воробьиная песня / Avaze gonjeshk-ha / The Song of Sparrows (2008) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Карим работает на страусиной ферме близ Тегерана. Он ведёт довольно простую жизнь со своей семьёй в небольшом доме, пока однажды один из страусов не убегает. Карима обвиняют в потере и увольняют с фермы. Вскоре после этого он едет в город, чтобы починить слуховой аппарат своей старшей дочери, где его по ошибке принимают за таксиста. Так начинается его новая профессия: (   Читать дальше...   )Производство: Иран / Majid Majidi Film Production (I) (II)Жанр: Драма, семейный, неореализмРежиссер: Маджид МаджидиАктеры: Мухаммад Амир Наджи, Мэриам Акбари, Камран Деган, Hossein Aghazi, Schabnam Akhlaghi, Нешат Назари, Hassan Rezaee, Ponya SalehiПеревод: Одноголосый любительский (viktor_2838)Субтитры: русские, английскиеПродолжительность: 01:37:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E08DFCBE25574F6F96B1E3B7C4BEB5505FC139E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,160 @@
+###  Публикация: 1114332   (829231) от 16.03.2017
+
+Минздрав выступил за жесткое регулирование электронных сигарет
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829231.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Минздраве заявили, что контроль за оборотом электронных сигарет не должен быть более мягким, чем за обычными. Об этом во вторник, 14 марта, РИА Новости сообщил официальный представитель ведомства Олег Салагай.«Мы не считаем, что электронные сигареты должны регулироваться более мягко. Они должны регулироваться так же, как регулируются обычные сигареты», — сказал (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 880714   (829135) от 22.03.2015
+
+Promt Professional 10 Build 9.0.526 Final Portable by Sitego + Словари [Ru/En]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829135.jpg" />
+</div>
+
+
+###  Подробнее
+
+PROMT Professional 10 – бизнес-решение с максимальными возможностями для управления переводом. PROMT Professional способен быстро и качественно перевести документ, текст с интернет-сайта или сообщение, а также создать и объединить корпоративные базы переведенных текстов, что весьма удобно при работе с типовыми документами, такими как, например, договоры или инструкции. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAF0446A2B435AAB08D91BB2325C1DEF7E983E15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 880742   (829126) от 22.03.2015
+
+Autodesk AutoCAD 2016 Version M.49.0.0 [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829126.jpg" />
+</div>
+
+
+###  Подробнее
+
+AutoCAD 2016 – это больше, чем проектирование. Придавайте форму окружающему вас миру с помощью мощных Интернет-ориентированных инструментов AutoCAD – САПР, которая разработана компанией Autodesk. Продукт позволяет создавать впечатляющие 3D-проекты, с высокой скоростью выпускать рабочую документацию и совместно работать в облаке. Доступ к проектам возможен не только (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B2C8FD3F621116CCCCACB9A03499363FC38558F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114725   (829106) от 16.03.2017
+
+Need for Speed - Hot Pursuit 2010 (2010) [Ru] [macOS WineSkin]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829106.jpg" />
+</div>
+
+
+###  Подробнее
+
+PC-версия новой игры популярной мультиплатформенной серии Need for Speed, которая отличается от предшественниц переработанной игровой концепцией.
+Need for Speed Hot Pursuit создана студией Criterion Games — авторами легендарной гоночной серии Burnout. Признанные новаторы вновь изменяют основы жанра и представляют проект, который объединяет игроков и предлагает им (   Читать дальше...   )Тип издания: macOS WineSkinРазработчик: Criterion GamesПоддерживаемая ОС: 10.11+Жанр: Arcade / Racing (Cars) / 3DЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6475E9BEC79944E23BF22861077EED9071F30BCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115066   (829104) от 16.03.2017
+
+Just Cause 3 (2015) [Ru/En] (1.05/dlc) Repack xatab
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829104.jpg" />
+</div>
+
+
+###  Подробнее
+
+В игре Just Cause 3 – средиземноморская республика Медичи находится под контролем жестокого генерала Ди Равелло. Встречайте Рико Родригеза, чья миссия заключается в свержении генерала любыми доступными способами.В вашем полном распоряжении более 1000 квадратных километров территории, включая воздушное пространство и морское дно, а также огромный запас оружия, гаджетов (   Читать дальше...   )Тип издания: RepackРазработчик: Avalanche StudiosЖанр: Action (Shooter), Racing, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43C1FB4DC844A90A9C7EBD184B1521AAB2FB56C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380699   (829050) от 05.05.2020
+
+Virgin Galactic объявила о первом испытании нового космолета в небе над Нью-Мексико
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829050.jpg" />
+</div>
+
+
+###  Подробнее
+
+Unity серии SpaceShipTwo отделился от самолета-разгонщика Eve на высоте 15,2 км и совершил планирующий полет, приземлившись в космопорте.Компания Virgin Galactic британского миллиардера Ричарда Брэнсона в пятницу провела первое летное испытание в небе над штатом Нью-Мексико космолета Unity серии SpaceShipTwo. Об этом говорится в сообщении, размещенном на сайте Virgin (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1381028   (829041) от 05.05.2020
 
 Total Commander 9.51 64bit 32bit VIM 39 Matros portable [Ru]
@@ -6,7 +163,7 @@ Total Commander 9.51 64bit 32bit VIM 39 Matros portable [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829041.jpg" />
 </div>
 
 
@@ -34,7 +191,7 @@ Navitel / Навител Навигатор v9.13.41 WinCE [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828947.jpg" />
 </div>
 
 
@@ -60,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828945.jpg" />
 </div>
 
 
@@ -86,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828942.jpg" />
 </div>
 
 
@@ -112,7 +269,7 @@ Call of Duty: Modern Warfare 2 - Campaign Remastered (2020) [Ru/Multi] (1.1.1.12
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828940.jpg" />
 </div>
 
 
@@ -138,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>12
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828939.jpg" />
 </div>
 
 
@@ -167,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828521.jpg" />
 </div>
 
 
@@ -193,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>11
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828515.jpg" />
 </div>
 
 
@@ -219,7 +376,7 @@ Microsoft Windows 7 RUS-ENG x86-x64 -18in1- Activated (AIO)
 >>95
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828330.jpg" />
 </div>
 
 
@@ -245,7 +402,7 @@ foobar2000 1.3.10 Stable Portable by LUR (08.04.16) [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828096.jpg" />
 </div>
 
 
@@ -271,7 +428,7 @@ Adobe After Effects CC 2015 (v13.7.1) RUS/ENG Update 4
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828092.jpg" />
 </div>
 
 
@@ -297,7 +454,7 @@ History Channel: Проклятие острова Оук / The Curse of Oak Isl
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828091.jpg" />
 </div>
 
 
@@ -324,7 +481,7 @@ Adobe InDesign CC 2015 (v11.3.0) x86-x64 RUS/ENG Update 5
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828090.jpg" />
 </div>
 
 
@@ -350,7 +507,7 @@ BELOFF 2016.4 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828084.jpg" />
 </div>
 
 
@@ -376,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828083.jpg" />
 </div>
 
 
@@ -402,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>17
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828082.jpg" />
 </div>
 
 
@@ -428,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827863.jpg" />
 </div>
 
 
@@ -454,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827786.jpg" />
 </div>
 
 
@@ -480,7 +637,7 @@ NVIDIA программно «похоронила» более двадцати
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827746.jpg" />
 </div>
 
 
@@ -506,7 +663,7 @@ HUD АнтиРадар – Россия v51.0 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827744.jpg" />
 </div>
 
 
@@ -519,163 +676,6 @@ HeadUp Display (HUD) - это возможность использовать в
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9D6DF8F0CF89AE491A7061B2E2DF555EB48D79D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502172   (827742) от 14.10.2021
-
-ESET NOD32 Antivirus / Smart Security 8.0.319.1 RePack by KpoJIuK (2021.10.12) [Ru/En]
-
->>3
->>13
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827742.jpg" />
-</div>
-
-
-###  Подробнее
-
-ESET NOD32 8 - гарантирует вашему компьютеру высокий уровень антивирусной безопасности. Простой и надежный вариант для базовой защиты ПК от вирусов, червей, троянских программ, шпионского, рекламного и потенциально опасного ПО, руткитов и фишинг-атак.
-ESET Smart Security 8 - поможет сделать работу в интернете максимально защищенной и безопасной. Надежное распознавание (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A2657B3042835546F9B4EBCC5F319878333F4D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115215   (827538) от 17.03.2017
-
-Зеленый змий. Тысячелетняя война (2015) SATRip
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827538.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сегодня считается, что Россия страна пьющая, населению длительное время внушалась мысль о том, что пьянство - это старинная русская традиция, но так ли это на самом деле? На этот вопрос попытались ответить авторы фильма, взглянув на проблему распития спиртных напитков через призму истории России.Телекомпания: Россия, ООО «АстраАрт»Жанр: Документальный, история, исследованиеРежиссер: Егор ЖенинПродолжительность: 00:51:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27FA70FDEBBE1E54E53C7FB3D755030AD0345DFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114620   (827527) от 17.03.2017
-
-Российский аналог Alibaba начнут создавать в мае 2017
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827527.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заместитель министра экономического развития Олег Фомичев рассказал, что в мае начнется создание национального торгового интернет-агрегатора по примеру знаменитой китайской площадки Alibaba.Но российской площадке, которая будет создана на платформе Сбербанка, продавцы смогут предлагать свои товары как россиянам, так и зарубежным покупателям.В данный момент создается (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380973   (827477) от 06.05.2020
-
-Ученые создали необычный двигатель, который сможет разгонять ракеты непрерывными взрывами
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда ученых из Университета Центральной Флориды впервые испытала экспериментальный ракетный двигатель PDE, который, по их мнению, может изменить подход к запуску космических аппаратов. Результаты исследований были опубликованы в журнале Combustion and Flame.Идея детонационного двигателя (PDE) была предложена выдающимся советским физиком, академиком Я. Б. Зельдовичем (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 632072   (827449) от 23.03.2015
-
-Топтуны [1-24 серии из 24] (2013) SATRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827449.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Детектив, криминальный фильмРежиссер: Сергей Векслер, Сергей АртимовичАктеры: Денис Никифоров, Анна Носатова, Андрей Негривода, Дарья Шиханова, Ксения Иванова, Владимир Яковлев, Сослан Фидаров, Елена Мольченко (Фатюшина), Сергей Векслер, Евгений Леонов-Гладышев, Александра Афанасьева-Шевчук, Анна Банщикова, Егор Баринов, Луиза-Габриэла Бровина, Александр Рапопорт, Татьяна Косач-Брындина, Алексей Секирин, Бесо Гатаев, Евгений Ермаков, Алена (   Читать дальше...   )Перевод: Оригинал (Русский)Субтитры: ОтсутствуютПродолжительность: 24 х ~ 00:44:00 серия
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115301   (827422) от 17.03.2017
-
-PC Building Simulator (2016) [En] (5.5.1) Repack Other s
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Реалистичный симулятор компьютерного мастера, посвященный самостоятельной сборке ПК. По словам создателя PC Building Simulator, в игре представлены точные размеры 3D-моделей комплектующих, а также все соответствующие для них слоты — как в реальной жизни. Игрокам предлагается устанавливать процессор, графику, "оперативку" и SSD-накопители, наносить термопасту, (   Читать дальше...   )Тип издания: RepackРазработчик: McINTYREЖанр: Simulator, 3D, IndieЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E060C1D384FBBE87D2F4762BA912D08EE6D0ED9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,84 +1,3 @@
-###  Публикация: 1430551   (170352) от 10.12.2020
-
-А.О. Матюшин | Программирование микроконтроллеров: стратегия и тактика (2017) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170352.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена программированию встраиваемых систем с применением микроконтроллеров. Материал книги сгруппирован в соответствии со стандартными этапами разработки любого программного обеспечения: анализом требований, проектированием, кодированием, отладкой и тестированием.
-Издание проиллюстрировано примерами на С и анализом получаемого в результате компиляции машинного (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A5E6346BD02C3098DBF8B5B782A53F6919D0248
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596443   (169428) от 10.12.2022
-
-Герберт Шилдт | Java. Полное руководство, 12-е издание (2023) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169428.jpg" />
-</div>
-
-
-###  Подробнее
-
-В полностью обновленном с учетом версии Java SE 17 издании объясняется, как разрабатывать, компилировать, отлаживать и запускать программы на Java. Автор многочисленных бестселлеров по программированию Герберт Шилдт охватывает весь язык Java, включая его синтаксис, ключевые слова и фундаментальные принципы программирования. Вы также найдете здесь информацию об основных (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C0F352C3D1453983FE6E347D8E6A42AF90DFB3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672466   (169033) от 28.10.2023
-
-Vaskaran Sarcar | Simple and Efficient Programming with C#, 2nd Edition (2022) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169033.jpg" />
-</div>
-
-
-###  Подробнее
-
-Примените навыки и подходы к программированию для создания реального приложения на C# 11 с использованием последних редакций Visual Studio, C# и Microsoft .NET.
-
-Первая часть начинается с подробного обсуждения полиморфизма. Во второй части вы изучите шесть принципов проектирования, включая принципы SOLID и DRY. В третьей части вы познакомитесь с методами создания (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Apress BerkeleyФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90F0F177F7BD675CA48B5DA99526EB020A5C294F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1672379   (168942) от 28.10.2023
 
 Juntao Qiu | Test-Driven Development with React and TypeScript, 2nd Edition (2023) [PDF][EN]
@@ -87,7 +6,7 @@ Juntao Qiu | Test-Driven Development with React and TypeScript, 2nd Edition (202
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168942.jpg" />
 </div>
 
 
@@ -113,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168817.jpg" />
 </div>
 
 
@@ -139,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168741.jpg" />
 </div>
 
 
@@ -165,7 +84,7 @@ Pablo David Garaguso | Vue.js 3 Design Patterns and Best Practices (2023) [PDF][
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168618.jpg" />
 </div>
 
 
@@ -193,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168525.jpg" />
 </div>
 
 
@@ -220,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168524.jpg" />
 </div>
 
 
@@ -246,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167332.jpg" />
 </div>
 
 
@@ -272,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167045.jpg" />
 </div>
 
 
@@ -298,7 +217,7 @@ Daniel Kusswurm | Modern X86 Assembly Language Programming, 3rd Edition (2023) [
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166901.jpg" />
 </div>
 
 
@@ -324,7 +243,7 @@ Marco Secchi | Multiplayer Game Development with Unreal Engine 5 (2023) [PDF][EN
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166819.jpg" />
 </div>
 
 
@@ -350,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166356.jpg" />
 </div>
 
 
@@ -378,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166343.jpg" />
 </div>
 
 
@@ -404,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165648.jpg" />
 </div>
 
 
@@ -430,7 +349,7 @@ Hans-Georg Schumann | Python für Kids: Programmieren lernen ohne Vorkenntnisse 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165628.jpg" />
 </div>
 
 
@@ -456,7 +375,7 @@ Mark Simon | Leveling Up with SQL (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164813.jpg" />
 </div>
 
 
@@ -482,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164632.jpg" />
 </div>
 
 
@@ -510,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163797.jpg" />
 </div>
 
 
@@ -536,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163494.jpg" />
 </div>
 
 
@@ -563,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163270.jpg" />
 </div>
 
 
@@ -590,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163242.jpg" />
 </div>
 
 
@@ -616,7 +535,7 @@ Olatunde Adedeji | Full-Stack Flask and React (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163015.jpg" />
 </div>
 
 
@@ -642,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162373.jpg" />
 </div>
 
 
@@ -669,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161588.jpg" />
 </div>
 
 
@@ -682,6 +601,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92A74D85F3D5EB4CC3D92A59FABCED76ADB1D26B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628437   (161577) от 04.11.2023
+
+Сборник | Ассемблер. Низкоуровневое программирование, реверсинг [532 книги] (1978-2022) [PDF, DJVU, TXT, DOC, FB2] [EN, RU]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Язык ассемблера (англ. assembly language) — машинно-ориентированный язык программирования низкого уровня. Представляет собой систему обозначений, используемую для представления в удобно читаемой форме программ, записанных в машинном коде. Его команды прямо соответствуют отдельным командам машины или их последовательностям. Является существенно платформо-зависимым: (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: Английский, русскийИздательство: РазличныеФормат: PDF, DJVU, TXT, DOC, FB2Качество: Изначально электронное (ebook), обработанный скан, OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F89B3630D5F5A649226C100AE6B0D78C75A9130A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517835   (161529) от 17.12.2021
+
+Рик Гринвальд, Дэвид Крейнс | Oracle. Справочник (2005) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Oracle появилась четверть века назад и по сей день остается ведущей СУБД масштаба предприятия. Oracle – сложная система, предлагающая несметное множество продуктов, языков и инструментов. Следующие один за другим обновления, релизы и выпуски делают все более сложной задачу пользователя, стремящегося справиться с могучим потоком часто меняющейся информации об этой (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: П.ШерФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2A74F827C17640EA841DCB0FE3D44D306322526
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517933   (161441) от 17.12.2021
+
+Д.-П. Мусумеси, М. Лукидес | Настройка производительности UNIX-систем (2003) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга Настройка производительности UNIX-систем отвечает на два важнейших вопроса: как добиться максимального эффекта без покупки дополнительного оборудования и в каких случаях его все же стоит приобрести (больше памяти, более быстрые диски, процессор Руководство системного администратора по Unix.Жанр: Компьютерная литератураПеревод: Ю.КуниверФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F65C601DF5ED92F7A1A1CDE9F1D3699339CB9DC7
 ```
 
 https://mybot314.ru/tekegram_catalog/

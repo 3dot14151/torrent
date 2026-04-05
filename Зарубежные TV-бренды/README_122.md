@@ -6,7 +6,7 @@ BBC Earth. 8 дней до Луны и обратно / 8 days to the Moon and b
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62891.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BBC: Доминик Монаган и дикие существа / Wild Things 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62816.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BBC: Гении современного мира / Genius Of The Modern World (
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62809.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BBC: Гении древнего мира / Genius Ancient World (2015) WEB-DL [
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62789.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ BBC: Дикая Патагония / Wild Patagonia (2015) HDTVRip [H.264/720p] 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62788.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ BBC. Порядок и хаос. Силы, которые управляют В�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62713.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ BBC: Какого пола твой мозг? / Is Your Brain Male Or Female? (2
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62692.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ BBC: История мира с Эндрю Марром / Andrew Marr's History 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62680.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ PBS. Экспедиция со Стивом Бакшоллом / Expedition with
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62582.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ BBC: Дуб - искусство выживания / Oak Tree: Nature's Greates
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62497.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ BBC: Доминик Монаган и дикие существа / Wild Things 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62481.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ BBC: Город под водой. Павлопетри / City Beneath the Waves
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62475.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ BBC: Исаак Ньютон: Последний чародей (Последн�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62421.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ BBC: Дикая природа Новой Зеландии / Wild New Zealand (N
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62410.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Discovery: Экспедиция в Арктику / Expedition to the Edge (2020
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62371.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ BBC: Духи ягуара / Spirits of the Jaguar (1996) DVDRemux (серии 1
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62369.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ BBC: Есть, голодать, жить дольше / Eat, Fast and Live Long
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62364.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ NG: Путешествие на край Вселенной / Journey to the Edg
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62354.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ BBC: Живой мир / BBC: Natural World (2009-2014) HDTV [H.264/1080i-LQ] (7
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62190.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ BBC: Мир природы - Горы тропических дождей / Natu
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61737.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ BBC: Мир природы. Исландия: Дикая жизнь / Natural Wo
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61640.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ BBC: Мир природы. Ошибки природы / Natural World. Natures
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61563.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ BBC: По странам и континентам. Дикая Австрала�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61562.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ BBC: Невидимые миры / Richard Hammond's Invisible Worlds (2010) BDR
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61556.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ BBC: Поразительные чудеса мира / Weird Wonders of the Wor
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61319.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ BBC: Дикая Патагония / Wild Patagonia (2015) BDRemux [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61318.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199757.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199698.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199697.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199692.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198965.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198850.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198353.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198238.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198177.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197823.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196374.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196291.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196178.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196176.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_189889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189889.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_189857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189857.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_189829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189829.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_189007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189007.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_189001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189001.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_188999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_188999.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179519.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177879.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173084.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165757.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164035.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы DC Comics
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163907.jpg" />
 </div>
 
 

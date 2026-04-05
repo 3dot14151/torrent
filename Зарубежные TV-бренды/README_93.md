@@ -6,7 +6,7 @@ NG: Топ 10 Мегамонстры / Top 10 Biggest Beasts Ever (2015) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341948.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Discovery. Путешествие в неизвестность с Эдом Ст
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341796.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Discovery: Путешествие в неизвестность с Эдом Ст
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341688.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341638.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ NG: От колыбели до могилы / Cradle to Grave (2016) HDTV [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341631.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Discovery: Через червоточину с Морганом Фримено�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341626.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ BBC: Подземная одиссея / Ancient Invisible Cities (2018) DVB (с
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341002.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ NG. Первая мировая война: тоннели смерти / WWI: T
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340902.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ NGW. Дикая природа Коста-Рики / Wild Costa Rica (2000) HDTV
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340900.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ NGW. Самая большая в мире белая акула / World's Bigge
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340847.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ NG. Львиное королевство / Lion Kingdom (2017) WEB-DL [H.264/10
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340788.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ NGW. Дикие животные 24 часа / Wild 24 (2016) HDTVRip [H.264/108
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340726.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340519.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ BBC: Дикая природа Новой Зеландии / Wild New Zealand (N
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340511.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Discovery: Оружие, которое изменило мир. РПГ / Weapon
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340217.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Discovery. Дороги России: Трасса Байкал (2016) HDTVRip [
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340085.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Discovery: Наука сексуальной привлекательности 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339769.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Discovery. Прирожденные короли / Brothers in Blood: The Lions 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339701.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Discovery. Прирожденные короли / Brothers in Blood: The Lions 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339589.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PBS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339395.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ NG: Внутри колец Сатурна / Mission Saturn (2017) TVRip [H.264]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339393.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Discovery: Разрушители легенд. Стрелки-профи / Myth
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339354.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ NGW: Птица-динозавр / Dino-Bird (2017) HDTV [H.264/1080i]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338697.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Animal Planet. Чернобыль - Жизнь в смертельной зон�
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338467.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ NGW: Гонка жизни / Race of Life (2015) HDTVRip [H.264/1080p-LQ] (Се�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338207.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337617.jpg" />
 </div>
 
 

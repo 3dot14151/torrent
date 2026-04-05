@@ -1,3 +1,211 @@
+###  Публикация: 1240665   (523398) от 13.08.2018
+
+Какую силу нужно приложить, чтобы Земля прекратила вращаться?
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_523398.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Если использовать, например, двигатели космических кораблей, как много времени это займет? И каковы будут последствия для планеты, в частности для погоды и приливов?»1. Это прекрасный вопрос для тех, кто любит считать. Все, что нам нужно, это несколько основных понятий из области физики. Некоторые числа я округлил.Масса Земли (М) равна 6 х 10^22 кг, а ее радиус (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153995   (523384) от 13.08.2018
+
+От этого песок становится красным / It Stains the Sands Red (2016) WEB-DL [H.264/1080p-LQ] [AVO]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523384.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молли со своим парнем пытается сбежать от зомби-апокалипсиса, где-то на краю пустыни их ждёт самолёт. Но вот незадача — машина ломается, а по дороге их догоняет одинокий, но очень упорный зомби.Производство: США, Digital Interference Productions, Grasswood MediaЖанр: Ужасы, Триллер, ДрамаРежиссер: Колин МиниханАктеры: Бриттани Аллен, Хуан Ридингер, Мервин Мондесер, Кристофер Хиггинс, Эндрю Сапэнз, Майкл Филиппович, Нико Дэвид, Дилан Плэйфейр, Стив ДжадкинсПеревод: Одноголосый закадровый, А.Важенин (BadBajo)Субтитры: Английские (отключаемые)Продолжительность: 01:32:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F33D3D2B61B7231D76874505FDD8E3609140575
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514720   (523312) от 26.06.2022
+
+Игра моей судьбы / Kaderimin Oyunu (2021-2022) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1-26 из 26) SesDizi
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523312.jpg" />
+</div>
+
+
+###  Подробнее
+
+Асие 32-летняя молодая женщина, мать двоих детей. В юности она встретила Джемаля, они влюбились друг в друга и тайно женились. Спустя годы Джемаль заводит интрижку с Хелин Демирхан и когда выясняется, что она беременна, он выбирает её и богатую жизнь. Асие приходится одной справляться с двумя детьми. В её жизни появляется Махир, который вырос в пристройке особняка (   Читать дальше...   )Производство: Турция / NGMЖанр: драмаРежиссер: Эмре КабакусакАктеры: Ойкю Караель, Акын Акынёзю, Сарп Апак, Мерич Арал, Ешим Гюль, Эсра Дерманджиоглу, Мюфит Каяджан, Ираз Акчам, Улку Дуру, Каан Чакыр, Онур Бильге, Айча Коптур и др.Перевод: Двуголосый любительский (SesDizi)Язык озвучки: Русский, турецкийПродолжительность: ~02:13:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C697736938BA563C50FABC64526C05C4B429FD71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226159   (523294) от 26.06.2022
+
+FAR: Lone Sails (2018) [Ru/Multi] (1.3/dlc) Repack Other s
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523294.jpg" />
+</div>
+
+
+###  Подробнее
+
+FAR: Lone Sails – это приключенческая игра про путешествие на корабле. Ваш корабль уникален тем, что движется по высушенному морскому дну по следам некогда процветающей цивилизации. Вам нужно продолжать движение, даже несмотря на ряд препятствий на вашем пути и трудные погодные условия. Куда заведет вас ваше приключение? Неужели вы – единственный выживший?Тип издания: RepackРазработчик: OkomotiveЖанр: Adventure, ArcadeЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6F8CED82F7705693790ACE3003071FD894D0CF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927702   (523195) от 15.08.2015
+
+Астрономы обнаружили редкую планету, находящуюся в благоприятной зоне двойной звездной системы
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_523195.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа астрономов, в состав которой вошли астрономы из университета Сан-Франциско (San Francisco State University), обнаружила еще одну из чрезвычайно редких планет, планету, которая вращается по орбите, проходящей по благоприятной для жизни зоне системы, в состав которой входят две звезды. На редкость таких планет указывает то, что планета Kepler-453b является всего (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928015   (523074) от 15.08.2015
+
+Машины-монстры: Samsung PM1633a - SSD-диск, имеющий самую большую емкость на сегодняшний день
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_523074.jpg" />
+</div>
+
+
+###  Подробнее
+
+На саммите Flash Memory Summit, посвященном технологиям флэш-памяти, компания Samsung представила вниманию общественности то, что является SSD-диском, имеющим самую большую емкость на сегодняшний день. Удивительно то, что специалистам компании удалось затолкать в 2.5-дюймовый корпус SSD-диска PM1633a чипов флэш-памяти почти на 16 терабайт, в то время, как обычные жесткие диски, выпускаемые компаниями Seagate и Western Digital, имеют максимальную емкость в 8-10 терабайт.(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928087   (522998) от 15.08.2015
+
+DriverPack Solution Online 16.5.0 Portable [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522998.jpg" />
+</div>
+
+
+###  Подробнее
+
+DriverPack Solution Online - облегченная версия самого мощного менеджера установки драйверов, автоматически сканирует оборудование компьютера и предлагает скачать из Интернета неустановленные или устаревшие драйвера и программное обеспечение. Быстро, качественно и абсолютно бесплатно!Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6E0B8D1204BEBB1220A6EBBE87968B5B78C0B8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927684   (522994) от 15.08.2015
+
+Lenovo отличилась снова: bloatware оказалось встроенным в BIOS ноутбуков компании
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_522994.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Lenovo снова оказалась в центре скандала, связанного с модификацией операционной системы на ноутбуках, которые производит и продаёт эта компания. В прошлый раз выяснилось, что их OEM-операционка включала установленную рекламную программу Superfish, отличившуюся навязчивым поведением и полным пренебрежением к безопасности. На этот раз всё гораздо хуже – пользователя (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927967   (522988) от 15.08.2015
 
 Metal Gear Solid V: Ground Zeroes (2014) [Ru/Multi] (1.005) Repack =nemos=
@@ -6,7 +214,7 @@ Metal Gear Solid V: Ground Zeroes (2014) [Ru/Multi] (1.005) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522988.jpg" />
 </div>
 
 
@@ -32,7 +240,7 @@ Heroes of Might & Magic III / Меч и Магия. Герои III. Возрож
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522986.jpg" />
 </div>
 
 
@@ -58,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_522983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_522983.jpg" />
 </div>
 
 
@@ -84,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_522981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_522981.jpg" />
 </div>
 
 
@@ -110,7 +318,7 @@ KMSAuto Net 2015 1.3.8 Portable [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522980.jpg" />
 </div>
 
 
@@ -138,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_522720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_522720.jpg" />
 </div>
 
 
@@ -164,7 +372,7 @@ The Elder Scrolls V: Skyrim (2016) [Ru/Multi] (1.5.80.0.8) Repack R.G. Catalyst 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522683.jpg" />
 </div>
 
 
@@ -190,7 +398,7 @@ UpdatePack 8.1 для интеграции обновлений в образ Wi
 >>17
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522682.jpg" />
 </div>
 
 
@@ -216,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522617.jpg" />
 </div>
 
 
@@ -242,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_522572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_522572.jpg" />
 </div>
 
 
@@ -268,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_522412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_522412.jpg" />
 </div>
 
 
@@ -294,7 +502,7 @@ WebForMySelf | Фреймворк CakePHP: с Нуля до Гуру (2015) PCRe
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522224.jpg" />
 </div>
 
 
@@ -320,7 +528,7 @@ Microsoft Office 2013 SP1 Standard 15.0.4745.1000 (x86) RePack by KpoJIuK [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522218.jpg" />
 </div>
 
 
@@ -346,7 +554,7 @@ Microsoft Office 2016 v15.13.1 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522217.jpg" />
 </div>
 
 
@@ -375,7 +583,7 @@ WinBoot-установщик для Windows 7 (x86-x64) adguard (v15.08.15) [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522215.jpg" />
 </div>
 
 
@@ -402,7 +610,7 @@ Novicorp Remove Windows 10 Spying Features 1.2.0000 Portable [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522213.jpg" />
 </div>
 
 
@@ -429,7 +637,7 @@ Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.4745.
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522211.jpg" />
 </div>
 
 
@@ -455,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522210.jpg" />
 </div>
 
 
@@ -466,219 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE2CDE46C345EE8FD8749F69687FC292D1537E8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 789027   (522209) от 16.08.2015
-
-The Incredible Adventures of Van Helsing II / Van Helsing 2: Смерти вопреки (2014) [Ru/Multi] (1.3.4/dlc) SteamRip Let'sРlay
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522209.jpg" />
-</div>
-
-
-###  Подробнее
-
-Могучий и таинственный Ван Хельсинг возвращается во второй части своих приключений. Вы думаете, что уже достаточно изучили закоулки Старой Борговии? Но судьба готовит новый поворот и заносит нашего героя еще глубже в богом забытые районы готического города. Забудьте о всех своих былых свершениях и подвигах — здесь, посреди темного карнавала, наводненного ужасами (   Читать дальше...   )Тип издания: SteamRipРазработчик: Neocore GamesЖанр: RPG (Rogue/Action) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский, Итальянский, Испанский, Венгерский, Польский, ПортугальскийЯзык интерфейса: Русский, Английский, Немецкий, Французский, Итальянский, Испанский, Венгерский, Польский, Португальский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93FCAC6DAA74C8D253B7C70B9B077EFBC0082272
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928392   (522207) от 16.08.2015
-
-Battlefield Hardline (2015) [Ru/En] (1.07.15.00/dlc) Repack R.G. Механики [Digital Deluxe Edition]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кто давно мечтает попробовать себя в роли мафиози или полицейского, сможет воплотить мечту в жизнь в Battlefield™ Hardline. Игроков ждут непревзойденные сетевые режимы Battlefield и захватывающий сюжет в сеттинге, напоминающем о современных криминальных драмах. Battlefield™ Hardline станет вашим новым полем криминальных разборок.Тип издания: RepackРазработчик: Visceral Games и EA DICEЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E63123CAF618567BC96B529A050C846DE52CA8B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928241   (522206) от 16.08.2015
-
-OS X 10.10.5 Installer USB for Win (14F27)
-
->>3
->>13
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522206.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раздача предназначена для создания установочной флешки OS X 10.10.5 с использованием ресурсов ОС Windows.
-Для создания образа установщика применена программа инсталлятора Install OS X Yosemite.app из AppStore.
-В качестве бутлоадера использована UniBeast 5.2.0
-Программа MultiBeast 7.4.1 для установки драйверов и загрузчика в комплекте раздачи.(   Читать дальше...   )Язык интерфейса: Русский/Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60780B8E1AE80A791285374D78EF583922197B4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928441   (522205) от 16.08.2015
-
-Сборка iGO Primo 9.6.29.483387 [Ru/Multi] - программа автонавигации
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522205.jpg" />
-</div>
-
-
-###  Подробнее
-
-iGo Primo - программа спутниковой GPS-навигации, которая создаётся компанией NNG (ранее — Nav’N'Go) из Венгрии. На рынке доступны версии под Windows CE, Windows Mobile, Apple iOS и, с недавнего времени, под Android. В программе используется картография HERE, Navteq, TomTom, а также локальных разработчиков. iGO предлагает высококачественные (offline) карты для удобной (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 31.01.2015Разработчик: NNGПоддерживаемая ОС: Android 2.2+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:979638C65B9378EAA1279D6EF9A77AADF51B9CEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313228   (521973) от 11.07.2019
-
-Debian GNU/Linux 10.0 + nonfree Buster [amd64] 4xDVD
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521973.jpg" />
-</div>
-
-
-###  Подробнее
-
-После двух лет разработки состоялся релиз Debian GNU/Linux 10.0 (Buster), доступный для десяти официально поддерживаемых архитектур: Intel IA-32/x86 (i686), AMD64 / x86-64, ARM EABI (armel), 64-bit ARM (arm64), ARMv7 (armhf), MIPS (mips, mipsel, mips64el), PowerPC 64 (ppc64el) и IBM System z (s390x). Обновления для Debian 10 будут выпускаться в течение 5 лет.
-
-В (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5FEB5211830F781B34640FA03E2647B61C4EA01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313883   (521955) от 11.07.2019
-
-Total War: THREE KINGDOMS (2019) [Ru/En] (1.1.0/dlc) License CODEX
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Total War: THREE KINGDOMS — эта игра из популярнейшей стратегической серии посвящена легендарному военному конфликту в древнем Китае. Вас ждет эпоха легендарных героев и традиционное для Total War сочетание эпических сражений в реальном времени и глубоко проработанной пошаговой кампании.Тип издания: LicenseРазработчик: CREATIVE ASSEMBLY, Feral Interactive (Mac), Feral Interactive (Linux)Жанр: Strategy (RTS, TBS), 3DЯзык озвучки: Русский (отдельно), АнглийскийЯзык субтитров: Русский (отдельно), АнглийскийЯзык интерфейса: Русский (отдельно), Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6E8F92C265AAA67E900BBAEEBFD15DA86E7E5EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313868   (521948) от 11.07.2019
-
-Office Tab Enterprise 14.00 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521948.jpg" />
-</div>
-
-
-###  Подробнее
-
-Office Tab Enterprise новая версия небольшой, но очень полезной утилиты. Принцип работы Office Tab относительно прост, но от этого не менее эффективен – окна открытых документов отображаются в интерфейсе офисных приложений, как вкладки открытых страниц в современных браузерах. Утилита Office Tab устраняет один из немногих недостатков пакета Microsoft Office – отсутствие (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EABD04C4CDEE0A81065AE34E5766A3B3579FB6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313876   (521947) от 11.07.2019
-
-Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.11727.20244 (2019.07) RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Office 2019 — новый офисный пакет от корпорации Microsoft, который включает в себя не только передовые функции, которые помогают пользователям работать максимально продуктивно, но и эффективные решения для управления, а также более более комплексный подход к безопасности. По традиции в его состав входят такие приложения как Word, Excel, Outlook, PowerPoint, SharePoint (   Читать дальше...   )Язык интерфейса: русский, английский, украинский + языковые пакеты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C4DE2886A2E61B062D2869134FA66F256FBCE1D
 ```
 
 https://mybot314.ru/tekegram_catalog/

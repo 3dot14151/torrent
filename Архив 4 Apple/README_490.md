@@ -6,7 +6,7 @@ Hookshot 1.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245874.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SponsorBlock for YouTube 5.1.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245869.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ FoneDog iOS Unlocker 1.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245856.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Exposure Software Eye Candy 7 v7.2.3.182 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245855.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ IconShop - Making Icons Easily 1.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245853.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ EagleFiler 1.9.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245848.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Things 3 v.3.17.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245842.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Exposure X7 Bundle v7.1.0.78 [EN]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245839.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Dash 6.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245828.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ OmniOutliner Pro 5 v5.8.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245821.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Mirror for Toshiba TV 1.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245813.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ PullTube 1.6.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245799.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ EdgeView 2 v2.916 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245790.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Serial Box & SerialSeeker 2023 - 04 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245784.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ OmniFocus Pro 3 v3.11.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245781.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ RAW Power 3.4.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245779.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Sensei 1.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245760.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Corporate Packs for Pages 3.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245758.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ IconFly 3.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245754.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ ImageRanger Pro Edition 1.9.1.1841 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245750.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ aText 2.40.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245739.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Memory PLUS 2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245712.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Sublime Text Dev Build 4131 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245703.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ System Dashboard 4.5.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245690.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Invisible 2.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245662.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Deckset 2.0.23 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245661.jpg" />
 </div>
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1817642   (3217) от 12.09.2025
+
+Antivirus Removal Tool 2025.8 [Multi/Ru]
+
+>>Безопасность
+>>Разное (остальные программы по безопасности)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Antivirus Removal Tool - портативный набор официальных утилит для удаления антивирусных программ. Сборник включает удобную графическую оболочку, которая автоматически определяет установленный антивирус и предлагает запустить соответствующую утилиту удаления.
+С помощью графической оболочки можно выбрать и запустить нужную утилиту удаления или просканировать систему (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:345C151E887AD6BEA71F8BAF1BB5D2B3B1DFA0A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1818161   (2829) от 14.09.2025
 
 Auslogics Anti-Malware Pro 1.23.0.2 [Multi/Ru]
@@ -6,7 +33,7 @@ Auslogics Anti-Malware Pro 1.23.0.2 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2829.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ MinerSearch 1.4.8.1 Portable [Ru/En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1077.jpg" />
 </div>
 
 

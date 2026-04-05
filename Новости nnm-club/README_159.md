@@ -1,3 +1,56 @@
+###  Публикация: 541487   (498852) от 02.09.2012
+
+Clover 2.0.136.0 [Русский]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498852.jpg" />
+</div>
+
+
+###  Подробнее
+
+Clover 2 – если вам нравится Google Chrome и его схема управления вкладками, то данная бесплатная утилита, то, что вам нужно! Программа реализует абсолютно идентичную схему управления окнами в стиле Google Chrome, в среде Windows, тем самым повышая общую производительность труда.Название программы: CloverЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 542119   (498839) от 02.09.2012
+
+Sleeping Dogs - Limited Edition [Ru] (Repack/1.5/12 DLC) 2012 | R.G. World Games
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498839.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sleeping Dogs рассказывает историю детектива Вэй Шена, который был внедрен в один из преступных синдикатов гонконгской Триады. Ему предстоит сделать все возможное, чтобы остаться незамеченным и выжить, постоянно совершая моральный выбор.
+В Sleeping Dogs вас ждут погони, перестрелки и сражения с использованием различных боевых стилей, а также множество миссий и свобода выбора.(   Читать дальше...   )Тип издания: RepackЖанр: Action, Open worldЯзык озвучки: Английский, КитайскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C03E1DB13D8EF9B59EDB087B958CF3044CF8666
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 537190   (498779) от 02.09.2012
 
 Sleeping Dogs - Limited Edition [Ru] (Repack/1.5) 2012 | Scorp1oN
@@ -6,7 +59,7 @@ Sleeping Dogs - Limited Edition [Ru] (Repack/1.5) 2012 | Scorp1oN
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498779.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498706.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ Unreal Tournament III / Unreal Tournament 3 [Multi4/+] (RePack) 2007 | PUNISHER
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498697.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_498377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_498377.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ Linux Mint 19.2 Tina (XFCE, Mate, Cinnamon) [32bit, 64bit] 6xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498320.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ Windows 8.1 (x86/x64) 40in1 +/- Office 2016 SmokieBlahBlah 22.07.19 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498319.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_498113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_498113.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498109.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ Microsoft Office 2016 Professional Plus Preview 16.0.4229.1023 (x86-x64) by Rati
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498105.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_498102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_498102.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ Warhammer 40,000: Regicide (2015) [Ru/Multi] (1.0) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498093.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497971.jpg" />
 </div>
 
 
@@ -323,7 +376,7 @@ Photo Editor v7.8 Pro [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497405.jpg" />
 </div>
 
 
@@ -349,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497340.jpg" />
 </div>
 
 
@@ -375,7 +428,7 @@ Hard Disk Sentinel Pro 4.60 Build 7377 Final Portable by PortableWares [Multi/Ru
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497003.jpg" />
 </div>
 
 
@@ -401,7 +454,7 @@ AdGuard 5.4.425.2526 [Multi/Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496861.jpg" />
 </div>
 
 
@@ -428,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_496568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_496568.jpg" />
 </div>
 
 
@@ -454,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496522.jpg" />
 </div>
 
 
@@ -480,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496254.jpg" />
 </div>
 
 
@@ -506,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_495915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_495915.jpg" />
 </div>
 
 
@@ -532,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495815.jpg" />
 </div>
 
 
@@ -558,7 +611,7 @@ VMware Workstation 12 Pro 12.5.0 build 4352439 RePack by KpoJIuK [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495665.jpg" />
 </div>
 
 
@@ -584,7 +637,7 @@ ProDAD Mercalli V2 Plugin 2.0.126.1 Tech. r79 (x64) [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495662.jpg" />
 </div>
 
 
@@ -610,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495660.jpg" />
 </div>
 
 
@@ -621,58 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CBCAFF9F40FA1B35289187B5AB2FF6F72B8D145
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 724490   (495657) от 18.09.2016
-
-Подшивка журналов | Монеты и купюры мира №1-158 (2013-2016) [PDF] [Обновляемая]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495657.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал поможет пополнить коллекцию купюрами пяти континентов, позволит заглянуть в историю народов мира, расшифрует денежные изображения и символы. Коллекция редких купюр и монет, является дополнением журнала, позволит подержать в руках купюры разных стран.Жанр: Нумизматика, бонистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED6CE6B907B79B1DF9AD7089F7748540C4E0D773
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053451   (495636) от 18.09.2016
-
-Алиса в Зазеркалье / Alice Through the Looking Glass (2016) WEB-DL [H.264/1080p-LQ] [Line]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495636.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этот раз главной героине предстоит отправиться в путешествие во времени, полное неожиданностей и ярких открытий, чтобы спасти своего друга, Безумного Шляпника...Производство: США, Великобритания, Legend3D, Roth Films, Team Todd, Tim Burton Productions, Walt Disney PicturesЖанр: Фэнтези, Приключения, СемейныйРежиссер: Джеймс БобинАктеры: Миа Васиковска, Джонни Депп, Хелена Бонем Картер, Энн Хэтэуэй, Саша Барон Коэн, Рис Иванс, Мэтт Лукас, Линдси ДунканПеревод: Дублированный (Чистый звук)Продолжительность: 01:52:59Реклама: Присутствуют аудио и видео вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2617C7B7199818CB911B49CAC85EB741DD0C9717
 ```
 
 https://mybot314.ru/tekegram_catalog/

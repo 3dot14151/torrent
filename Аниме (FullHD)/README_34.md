@@ -6,7 +6,7 @@ Tsugu Tsugumomo | Цугумомо [ТВ-2] [2020, TV, 12 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433615.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Uchuu Senkan Yamato Fukkatsu-hen | Space Battleship Yamato: Resurrection | Ко�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433287.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Saint Seiya Omega | Рыцари Зодиака (ТВ-2) [2012, TV, 97 эп.] We
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433280.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Soredemo Sekai wa Utsukushii | SoreSeka | The World Is Still Beautiful | И вс
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432870.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Bokura no Nanokakan Sensou | Seven Days War | Наша семидневная в
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431824.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Uchuu no Kishi Tekkaman Blade II | Star Knight Tekkaman Blade II | Space Knight 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431823.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Hataage! Kemono Michi | Rise Up! Animal Road | За дело! "Звериная 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431822.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Shinchou Yuusha: Kono Yuusha ga Ore Tueee Kuse ni Shinchou Sugiru | Этот г�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431719.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Uchuu no Kishi Tekkaman Blade | Star Knight Tekkaman Blade | Space Knight Tekkam
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431651.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Toaru Kagaku no Accelerator | A Certain Scientific Accelerator | Некий на
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431647.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Psycho-Pass 3: First Inspector | Психопаспорт 3: Первый инс
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431638.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Magia Record: Mahou Shoujo Madoka Magica Gaiden | Magia Record: Puella Magi Mado
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431544.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Yatogame-chan Kansatsu Nikki Nisatsume | Заметки Ятогамэ [ТВ-2] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429619.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Shaman King | Шаман Кинг [2001, TV, 64 эп.] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429394.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ TV Yarou Nanana: Kaibutsu Kraken o Oe! | Wacky TV Nanana: Hunt the Legendary Kra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429209.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Little Witch Academia: Mahou Shikake no Parade | Little Witch Academia: The Ench
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428821.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Sankarea | Санка Рэа [2012, TV 12 эп. + 1 SP + OVA 2 эп.] BDrip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428094.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Fushigi no Umi no Nadia / Nadia Secret of Blue Water / Надя с загадо�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427796.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Go!Go!575 | Давай-давай! 5-7-5 [2014, TV, 4 + 1] BDrip 1080p Hi10p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426088.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Zetsuen no Tempest: The Civilization Blaster | Буря Потерь [2012, TV, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423651.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Rifle is Beautiful | Chidori RSC | Винтовка прекрасна [2019, TV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420448.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Saint Seiya: The Lost Canvas - Meiou Shinwa | Рыцари Зодиака: Ут�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420224.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Sirius the Jaeger | Сириус-егерь [2018, TV, 12 эп.] BDRip 1080p HEV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420223.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Made in Abyss: Fukaki Tamashii no Reimei | Made in Abyss: Dawn of the Deep Soul 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420078.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Owari no Seraph | Seraph of the End | Последний Серафим [2015, T
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420047.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Mitsuwano [2014, OVA] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420040.jpg" />
 </div>
 
 

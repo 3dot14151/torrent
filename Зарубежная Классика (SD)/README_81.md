@@ -1,3 +1,55 @@
+###  Публикация: 1169847   (394719) от 06.10.2017
+
+Не трогай белую женщину / Touche pas a la femme blanche (1974) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394719.jpg" />
+</div>
+
+
+###  Подробнее
+
+Финансовые верхи молодой Америки решают разом покончить с индейцами, которые, по их мнению, тормозят развитие американской экономики. Они подкупают генерала армии, и тот призывает знаменитого полковника Кастера, самодовольного фанатика-расиста, возглавить победоносную кампанию против индейцев…Производство: Франция, Италия / Films 66, Laser Production, Mara Films, Produzioni Europee Associati (PEA)Жанр: Комедия, ВестернРежиссер: Марко ФеррериАктеры: Катрин Денёв, Марчелло Мастроянни, Мишель Пикколи, Филипп Нуаре, Уго Тоньяцци, Ален Кюни, Серж Реджани, Дарри Коул, Моник Шометт, Даниэле Дублино, Анри Пикколи, Паоло ВилладжоПеревод: Профессиональный (двуголосый закадровый)Субтитры: РусскиеПродолжительность: 01:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB61B5F779A4C37E6AC6A968F4C33FDB785C81CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 714623   (394705) от 28.10.2013
+
+Франсуа Первый / Франциск I / Francois Premier / Francois 1er (1937) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394705.jpg" />
+</div>
+
+
+###  Подробнее
+
+Накануне ярмарочного спектакля под названием «Франциск I и Прекрасная Ферроньерка», в котором ему предстоит заменить заболевшего тенора, Онорен чувствует жестокий мандраж. Чтобы придать Онорену уверенности, другой ярмарочный артист — фокусник Калиостро — гипнотизирует его и отправляет в прошлое на встречу с реальными персонажами пьесы. Едва Онорен прибывает в таверну (   Читать дальше...   )Производство: ФранцияЖанр: КомедияРежиссер: Кристиан-Жак / Christian-JaqueАктеры: Фернандель / Fernandel ... Honorin, Мона Гойя / Mona Goya ... Elsa et Madeleine Ferron, Александр Рино / Alexandre Rignault ... Henri VIII, Анри Боск / Henri Bosc ... Luigi Cascaroni et Jean Ferron, Аим Симон-Жиро/ Aime Simon-Girard ... Francois Premier, Алис Тиссо / Alice Tissot ... Madame Cascaroni et Dame, Alfredine Шарль Лемонтье / Charles Lemontier ... La Palisse, (   Читать дальше...   )Перевод: Одноголосый закадровыйПродолжительность: 01:28:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D361BB941A066AD4FB23C2054699DE33F1448FD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 568284   (394628) от 31.10.2012
 
 Смерть среди айсбергов / Orca, the Killer Whale (1977) [H.264] DVDRip
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394628.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394594.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393822.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391771.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390892.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390646.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390419.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390231.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389633.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389347.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389343.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387112.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387074.jpg" />
 </div>
 
 
@@ -352,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386792.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386484.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385605.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385163.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385091.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384341.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383924.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383586.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383022.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382795.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382683.jpg" />
 </div>
 
 
@@ -624,60 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D739E8F3F5801AD848841ACBE549B6E5BF3F6A0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 572572   (382586) от 09.11.2012
-
-Империя Солнца / Empire of the Sun (1987) [H.264] BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382586.jpg" />
-</div>
-
-
-###  Подробнее
-
-1941 год, Вторая Мировая война. Юный англичанин Джим Грэхем живет в богатой семье в Китае. Японцы вторглись в Шанхай, Джим теряется в толпе и остается без родителей в захваченном городе. Во время скитаний находит друга Бэйзи, с которым попадает в лагерь заключенных.
-
-Среди болезни и нехватки пищи, Джим борется за выживание, вынося предательства и оскорбления… Нити, связывающие его с детством, ослабевают, но Джим пытается сохранить дух и достоинство. Япония капитулировала. Перенеся все ужасы войны, превратившись из счастливого ребенка в измученного подростка, он, наконец, встречается со своими родителями.Жанр: Драма, Военный, БиографияРежиссер: Стивен СпилбергАктеры: Кристиан Бэйл, Джон Малкович, Миранда Ричардсон, Найджел Хэверс, Джо Пантольяно, Лесли Филлипс, Масато Ибу, Эмили Ричард, Руперт Фрейзер, Питер Гэйл, Такаторо Катаока, Бен Стиллер, Дэвид Найдорф, Ральф Сеймур, Роберт Стивенс, Чжай Найшэ, Гуц Исимацу, Эмма Пайпер, Джеймс Уолкер, Анна Тернер, Энн Кастл, Ральф Майкл, Сибил Маас, Эрик Флинн...Перевод: ДублированныйЯзык субтитров: Русские, АнглийскиеПродолжительность: 02:32:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2F5E84DCEFD5273D9297E1CACA89509AE81DA55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064497   (382208) от 31.10.2016
-
-Носферату, симфония ужаса / Nosferatu, eine Symphonie des Grauens (1922) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382208.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой клерк Хуттер из Бремена первой трети XIX века отправляется за тридевять земель, в карпатские леса, к инфернальному графу Орлоку, владельцу замка, решившему перебраться в крупный город. Гость выясняет, что Орлок, известный и как Носферату - вампир, и от его заражающего укуса Хуттера спасает лишь супруга Элен, сверхъестественно сильно влюблённая в скромного (   Читать дальше...   )Производство: Германия / Jofa-Atelier Berlin-Johannisthal, Prana-Film GmbHЖанр: Ужасы, ФэнтезиРежиссер: Фридрих Вильгельм МурнауАктеры: Макс Шрек, Густав фон Вангенхайм, Грета Шрёдер, Георг Г. Шнель, Рут Ландшорфф, Густав Ботц, Александр Гранах, Карл Этлингер, Вольфганг ХайнцПеревод: НемойЯзык субтитров: Русский, АнглийскийПродолжительность: 01:35:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FA999A0852120CB728905FBCDE0A331691D5357
 ```
 
 https://mybot314.ru/tekegram_catalog/

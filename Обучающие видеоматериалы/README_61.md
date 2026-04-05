@@ -1,3 +1,29 @@
+###  Публикация: 1488758   (1001422) от 13.08.2021
+
+Side FX, Kai Stavginski | Houdini 16.5 Masterclass Fur & Hair Grooming Toolset (2017) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001422.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот мастер-класc покажет вам новые функции управления поведением волос и шерсти в Houdini 16.5. Сначала я покажу функции по отдельности, а затем использую их все вместе на примере проекта с мокрой шерстью. Шерсть будет вести себя в соответствии со скоростью из FLIP симуляции. Также вы увидите работу со связыванием атрибутов в симуляции и изменения генерации шерсти (   Читать дальше...   )Производство: Side FXЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FED7E757D9BDB2076067A7969B0CF159234768F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1488994   (1001419) от 13.08.2021
 
 Side FX, Ryan Goldade | Houdini 16 Flip Fluids (2017) PCRec [En, Ru]
@@ -6,7 +32,7 @@ Side FX, Ryan Goldade | Houdini 16 Flip Fluids (2017) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001419.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ Side FX, Jeff Wagner | Character FX & Cloth in Houdini 17 (2019) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001416.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ ENTAGMA, Manuel Casasola | Creating Geometry With VEX (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001409.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Redmadrobot | Практический онлайн-курс «Дизайн мо
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001387.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001385.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001378.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001363.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ Archicad-Master | Новые возможности разверток в ArchiC
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001343.jpg" />
 </div>
 
 
@@ -225,7 +251,7 @@ Bestmarketing, Андрей Чепик | Как с нуля открыть св�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001324.jpg" />
 </div>
 
 
@@ -254,7 +280,7 @@ Hookah.school | Курс профессионального кальянщика
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001125.jpg" />
 </div>
 
 
@@ -283,7 +309,7 @@ Udemy, Code Warriors | Learn Flutter and Dart to create Android and IOS apps (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001112.jpg" />
 </div>
 
 
@@ -310,7 +336,7 @@ Yagla | SEO 4.0 (2021) PCRec [AD]
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001076.jpg" />
 </div>
 
 
@@ -339,7 +365,7 @@ Skypro, Марк Сысоев, Санжар Ессенгараев | Excel дл�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001069.jpg" />
 </div>
 
 
@@ -368,7 +394,7 @@ Lynda.com | JavaScript: Область видимости / JavaScript: Scope (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001012.jpg" />
 </div>
 
 
@@ -394,7 +420,7 @@ Lynda.com | JavaScript: Классы / JavaScript: Classes (2018) PCRec [H.264/7
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000995.jpg" />
 </div>
 
 
@@ -420,7 +446,7 @@ Udemy.com | Architectural Design & Animation in Blender (2019) PCRec [H.264/720p
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000983.jpg" />
 </div>
 
 
@@ -446,7 +472,7 @@ Udemy.com | Concept Art Masterclass. Create Conceptual Art from Scratch (2019) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000974.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Udemy.com | Concept Art Essentials. Digital Painting From Scratch (2019) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000963.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ imoib | Обеспечение безопасности ПДн при их об�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000803.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998453.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997660.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997640.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996814.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996589.jpg" />
 </div>
 
 
@@ -668,7 +694,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994970.jpg" />
 </div>
 
 
@@ -682,36 +708,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0468C5322776D17079173511C9891B135A91E6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606400   (994710) от 22.01.2013
-
-Ника Андреева | На старт, внимание...резюме! [2006] [FB2]
-
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994710.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассказывается о приемах построения успешной карьеры, начиная с этапа составления резюме. Способы поиска работы, планирование первых шагов, приобретение минимального опыта, ресурсы молодого специалиста, его востребованность в компаниях, возможность получения грантов и стипендий - вся эта практическая информация поможет правильно ориентироваться на рынке труда, выбирать вакансии, продумывать стратегию общения с кадровыми агентствами и подготавливаться к переговорам с работодателем.
-
-В книге пять глав, каждая из которых содержит примеры и способы действия на конкретном этапе поиска работы.
-
-Книга адресована вчерашним студентам и молодым специалистам.Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41880868381D69BCBEA58BB8AAA7324112685C88
 ```
 
 https://mybot314.ru/tekegram_catalog/

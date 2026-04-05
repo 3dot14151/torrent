@@ -1,3 +1,58 @@
+###  Публикация: 1031149   (1029267) от 24.02.2021
+
+Tosca - Discography 33 Releases (1995-2018) Studio !K7, G-Stone [FLAC|Lossless|tracks+.cue, tracks] <Trip Hop, Dub, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Supersunday (Megablast Remix) (07:45)Тип издания: CD, WebЖанр: Trip Hop, Dub, Downtempo, Soul-Jazz, Lounge •Продолжительность: 23:43:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76E874544FDAE644ACD8E7B23050BBF28E4134CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113947   (1029262) от 24.02.2021
+
+Germind - Discography 46 Releases (2012-2021) Plexus Music, Cosmicleaf Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Progressive Trance, Downtempo, Goa Trance>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Photons Memories (05:53)
+ 02. The Circle Of Sansara (07:51)
+ 03. Subway Of The Future (06:29)
+ 04. Ether Dunes (06:48)(   Читать дальше...   )Жанр: Psybient, Ambient, Progressive Trance, Breaks, Downtempo, Goa Trance •Продолжительность: 35:18:18 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8299FCE6FBF82BBAE8AC5749AC1C8B2ADDACDE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1450313   (1029203) от 25.02.2021
 
 Ilkae - Questionable Casino (2021) Eerik Inpuj Sound [FLAC|Lossless|WEB-DL|tracks] <IDM, Glitch, Experimental>
@@ -6,7 +61,7 @@ Ilkae - Questionable Casino (2021) Eerik Inpuj Sound [FLAC|Lossless|WEB-DL|track
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029203.jpg" />
 </div>
 
 
@@ -35,7 +90,7 @@ Anthéne (Anthene) - The Slow Wave (2021) Giraffe Tapes [FLAC|Lossless|WEB-DL|tr
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029197.jpg" />
 </div>
 
 
@@ -64,7 +119,7 @@ VA - Space Fly, Vol. 1: A Magic Chill Trip Presented by Frank Borell (2009) [FLA
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029190.jpg" />
 </div>
 
 
@@ -93,7 +148,7 @@ Subchord - Label Pack 4 Releases (2018-2021) [FLAC|Lossless|WEB-DL|tracks] <Dub 
 >>Label-Packs
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029187.jpg" />
 </div>
 
 
@@ -122,7 +177,7 @@ Tim Koch (10:32, Thug) - Discography 16 Releases (1999-2021) [FLAC|Lossless|trac
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029157.jpg" />
 </div>
 
 
@@ -151,7 +206,7 @@ Mirage Of Deep - The Best Of Mirage Of Deep (2023) [MP3|320 Kbps] <Balearic, Dow
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029092.jpg" />
 </div>
 
 
@@ -180,7 +235,7 @@ Septabeat & Sofi Mari - Sundance EP (2020) [FLAC|Lossless|WEB-DL|tracks] <Drum &
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029050.jpg" />
 </div>
 
 
@@ -209,7 +264,7 @@ Kas - Like Sunlit Threads (2021) Ilian Tape [FLAC|Lossless|WEB-DL|tracks] <Ambie
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029049.jpg" />
 </div>
 
 
@@ -238,7 +293,7 @@ Damirat - Pixcurve (2020) dingn\dents [FLAC|Lossless|WEB-DL|tracks] <IDM, Experi
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029047.jpg" />
 </div>
 
 
@@ -267,7 +322,7 @@ Nu:Tone - Little Spaces (2021) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029041.jpg" />
 </div>
 
 
@@ -296,7 +351,7 @@ Andrew Bayer - Discography 60 Releases (2006-2021) Anjunabeats [FLAC|Lossless|tr
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028983.jpg" />
 </div>
 
 
@@ -325,7 +380,7 @@ Mouse On Mars - Discography 31 Releases (1994-2021) [FLAC|Lossless|tracks+.cue, 
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028968.jpg" />
 </div>
 
 
@@ -354,7 +409,7 @@ Nu:Tone - 5 альбомов (2005; 2007; 2011; 2014; 2021) [FLAC|Lossless]<Drum
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028955.jpg" />
 </div>
 
 
@@ -383,7 +438,7 @@ Comaduster | Underfelt - Discography 21 Releases (2009-2020) Tympanik Audio | Fi
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028953.jpg" />
 </div>
 
 
@@ -410,7 +465,7 @@ Warmth - Discography 31 Releases (2013-2021) Rohs! Records, Etoka Records, Archi
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028947.jpg" />
 </div>
 
 
@@ -439,7 +494,7 @@ Profondo Delle Tenebre - Exoterica (2020) [FLAC|Lossless|WEB-DL|tracks] <Darksyn
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028904.jpg" />
 </div>
 
 
@@ -468,7 +523,7 @@ Aligning Minds (Daniel A. Merrill, A Path Untold) - Collection 4 Releases (2011-
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028705.jpg" />
 </div>
 
 
@@ -497,7 +552,7 @@ Taavi Laatsit (Galaktlan, Kulgurid, Vonsuck, Uni) - Discography 14 Releases (199
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028693.jpg" />
 </div>
 
 
@@ -526,7 +581,7 @@ Tsirohm - Dream Conexion (2021) [FLAC|Lossless|WEB-DL|tracks] <Psytrance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028691.jpg" />
 </div>
 
 
@@ -555,7 +610,7 @@ Derrick & Tonika - Discography 25 Releases (2009-2021) Fokuz Recordings, Shimbal
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028680.jpg" />
 </div>
 
 
@@ -582,7 +637,7 @@ Blanck Mass - Discography 13 Releases (2011-2021) Sacred Bones Records [FLAC|Los
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028641.jpg" />
 </div>
 
 
@@ -611,7 +666,7 @@ Krusseldorf - Discography 12 Releases (2007-2020) Iboga Records, Beats & Pieces 
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028640.jpg" />
 </div>
 
 
@@ -640,7 +695,7 @@ Displacer (Michael A. Morton) - Discography 25 Releases (2003-2017) [FLAC|Lossle
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028614.jpg" />
 </div>
 
 
@@ -669,7 +724,7 @@ Marconi Union - Discography 23 Releases (2003-2020) Just Music [FLAC|Lossless|tr
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028597.jpg" />
 </div>
 
 
@@ -680,64 +735,6 @@ Marconi Union - Discography 23 Releases (2003-2020) Just Music [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5B1A86A4213CB6F91AE8029EE269303FB949CAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451252   (1028561) от 01.03.2021
-
-VA - XLR8R+027 (2020) XLR8R+ [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Dub>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exael - L-theanine (04:27)
- 02. Pontiac Streator x DJ Dre - Rain Pod (05:36)
- 03. Opheliaxz - Dripped Honey (06:22)
- 04. Autobouncer620 x Monkey20 - Brek (Zoner Why) (03:26)(   Читать дальше...   )Жанр: IDM, Ambient, DubПродолжительность: 00:29:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF47C8661F00010323616922708B7A46B62B7447
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451317   (1028559) от 01.03.2021
-
-VA - Paerels (2017) Nous'klaer Audio [FLAC|Lossless|WEB-DL|tracks] <Electro, Ambient, Leftfield, IDM, Tech House, Acid>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. upsammy - Wish I Could Still.. (03:10)
- 02. Oceanic - Drums (Instrumental) (06:22)
- 03. Vtothed - Okay (Livecut) (05:39)
- 04. Melatonin Man - Garrol (07:26)(   Читать дальше...   )Жанр: Electro, Ambient, Leftfield, IDM, Tech House, AcidПродолжительность: 01:20:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01E110516BD33FD93816A524B9A0848F9279E529
 ```
 
 https://mybot314.ru/tekegram_catalog/

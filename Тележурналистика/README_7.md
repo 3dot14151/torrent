@@ -1,3 +1,29 @@
+###  Публикация: 978339   (963722) от 23.01.2016
+
+Смех сквозь слёзы (2016) HDTVRip [720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они бегут от войны и невыносимых условий жизни. Долгий и опасный путь в Европу преодолён – вот только уверенности в завтрашнем дне и поводов для веселья у беженцев нет. Но сегодня они смеются – в лагерь для мигрантов приехали клоуны…  Дурар Афанди из Сирии улыбается – впервые за очень долгое время. Преодолев отчаяние и страх, она вместе с маленькой дочерью пересекла (   Читать дальше...   )Телекомпания: RTДЖанр: ДокументальныйРежиссер: Егор Зимин, Александр ЛуценкоПродолжительность: 00:26:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7861EA6CF40EBD73321989F46F04223D9506A206
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978392   (963721) от 23.01.2016
 
 Центральное телевидение (23.01.2016) SATRip
@@ -6,7 +32,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963721.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963565.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963429.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963182.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963043.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962627.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962518.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962421.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962298.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961250.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961195.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960084.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960082.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959974.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959855.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959703.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959663.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959486.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958590.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958588.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958586.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958585.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958582.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958579.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958573.jpg" />
 </div>
 
 
@@ -648,32 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DF4E5C517DBFE345BF804FAA59A8BDB8DF95DD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 855005   (958473) от 04.01.2015
-
-Остров Крым. Дежавю (2014) WEB-DL [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958473.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Ситуация на Острове и вокруг него становится неуправляемой. Советскому Союзу достаточно пошевелить пальцем, чтобы присоединить вас к себе. Остров находится в естественной сфере советского влияния. Просоветские и панруситские настроения на Острове - это единственная реальность... Близится день, когда СССР поглотит Остров», - писал Василий Аксенов в романе «Остров (   Читать дальше...   )Жанр: ДокументальныйСубтитры: отсутствуютПродолжительность: 00:30:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58210C04078E4A53BBB243963B52419974605817
 ```
 
 https://mybot314.ru/tekegram_catalog/

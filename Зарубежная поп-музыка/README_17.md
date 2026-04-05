@@ -6,7 +6,7 @@
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794890.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Legends: Ministry Of Sound (2017) [MP3|320 Kbps] <Pop, Pop Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794830.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Zucchero - Black Cat (2016) [MP3|320 кб/с] <Pop, Rock, Folk, Blues>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794496.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Beautiful POP Ballads (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794438.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Eleven - 11 (2012) [MP3|320 Kbps] <Dance, Synthpop, Electro>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794065.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Mylene Farmer  - Rolling Stone (2018) Single [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793809.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Apollonia 6 - Apollonia 6 (1984) Reissue CD, 1990, Warner Bros. Records [MP3|320
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793552.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ VA - New Pop Top Hits 2020 [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793467.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Thomas Anders - Pures Leben (2017) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793147.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ VA - DMC - Cool Grooves 61 (2020) [MP3|320 Kbps] < Electronic, Hip Hop, Funk>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792637.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ VA - Summer Hits of the 10s (2020) [MP3|320 Kbps] <Pop, Lyrics>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792628.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ VA - Айсберг 5. Международный (2001) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792527.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Icehouse - 9 Studio Albums (1981-1995) Collection [MP3|320 Kbps] <Electronic, Po
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792520.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - Clubfete 90er: 60 Club & Party Hits Of The 90's Vol.2 (2020) [MP3|320 Kbps]
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792466.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Levante - Nel Caos di stanze stupefacenti (2017) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792450.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ The Chainsmokers - Memories...Do Not Open (2017) [MP3|320 Kbps] <Pop, Indie Pop,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792405.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ VA - Dance Room Party 2019-Essential Anthems / Electronic & Dance Music Hits (20
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791705.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Craig David - The Time Is Now (2018) [MP3|320 Kbps] <Pop, R&B>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791628.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ VA - DMC Dance Mixes 254 (2020) [MP3|320 Kbps] <Electronic, Funk / Soul, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791330.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ VA - DMC Dance Extra Mixes 150 (2020) [MP3|320 Kbps] <Electronic, Funk / Soul, P
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791307.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ VA - DMC Dance Mixes 255 (2020) [MP3|320 Kbps] <Electronic, Funk / Soul, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791293.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Britney Spears - Glory (2020) Explicit [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790039.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ VA - Party Dance Vibes (2019) [MP3|320 Kbps] <Euro Dance, Pop Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789489.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ VA - Dance Club 2019.01 [Explicit] (2019) [MP3|320 Kbps] <Pop, House, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789484.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ VA - VA - Eurodance Party 2019 (2019) [MP3|320 Kbps] <Euro Dance, Pop Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789045.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Justin Timberlake - Man of the Woods (2018) [MP3|320 Kbps] <Pop, R&B>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789022.jpg" />
 </div>
 
 

@@ -1,3 +1,61 @@
+###  Публикация: 984165   (718718) от 05.08.2020
+
+Spatialize - Discography 9 Releases (2004-2020) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Downtempo, Dub, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scarlet Sundown (06:31)
+ 02. Fluid Blue (05:11)
+ 03. Clarity (Original Version) (06:10)
+ 04. Praise (04:07)(   Читать дальше...   )Тип издания: WEBЖанр: Psychill, Downtempo, Dub, Ambient •Продолжительность: 06:09:35 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A355761571A799DDCEC088ED6D4AF51BC811731
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129852   (718709) от 30.04.2017
+
+Sverre Knut Johansen - Contact (2017) [MP3|320 Kbps] <Electronic, Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Contact 4:18
+02 Hope 4:43
+03 Journey Through Space 6:44
+04 Apocalypse 6:44(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 01:02:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD441574E24BB018995CC754FCFEAFD0226B96D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129947   (718432) от 30.04.2017
 
 VA - Mysteries of Psytrance Vol. 6 (Compiled By Ovnimoon)(2017) [FLAC|Lossless|tracks] <Psy-Trance, Goa-Trance>
@@ -6,7 +64,7 @@ VA - Mysteries of Psytrance Vol. 6 (Compiled By Ovnimoon)(2017) [FLAC|Lossless|t
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718432.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Crush House Dreamin (2016) [MP3|320 кб/с] <Dance, Electro House, Progres
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718160.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Nørbak (Norbak) - Macula (2017) Warok Music [FLAC|Lossless|WEB-DL|tracks] <Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717674.jpg" />
 </div>
 
 
@@ -91,7 +149,7 @@ VA - Alter Ego Trance Vol. 22 (Compiled & Mixed By Jonas Hornblad) - (2018) [MP3
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717673.jpg" />
 </div>
 
 
@@ -120,7 +178,7 @@ Bradley Sean Alexander - Lowered Expectations (2018) Polar Sea Recordings [FLAC|
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717670.jpg" />
 </div>
 
 
@@ -148,7 +206,7 @@ VA - Aly & Fila - Future Sound of Egypt 543 (2018) [MP3|320 Kbps] <Trance,Uplift
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717667.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ Erik K Skodvin & Rauelsson - A Score For Darling (2018) Sonic Pieces [FLAC|Lossl
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717665.jpg" />
 </div>
 
 
@@ -206,7 +264,7 @@ Plu-Ton - Wings of Liberty (2018) OLD SQL Recordings [FLAC|Lossless|WEB-DL|track
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717518.jpg" />
 </div>
 
 
@@ -235,7 +293,7 @@ VA - Nitrous Oxide - Avalon (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717064.jpg" />
 </div>
 
 
@@ -264,7 +322,7 @@ VA - Parlay - Winter Edition: Mixed by Sofa King (2019) [FLAC|Lossless|WEB-DL|tr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716945.jpg" />
 </div>
 
 
@@ -293,7 +351,7 @@ VA - Driftmoon - Remember the Night (Live at Epic Prague, December 2018) (2019) 
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716939.jpg" />
 </div>
 
 
@@ -322,7 +380,7 @@ Renton - Be Youself [Summer 2018 Mix] (2018) [FLAC|Lossless|WEB-DL|image + .cue]
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716756.jpg" />
 </div>
 
 
@@ -351,7 +409,7 @@ Astral Waves - Genesis (2017) [MP3|320 Kbps] <Experimental Electronic, Downtempo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716647.jpg" />
 </div>
 
 
@@ -380,7 +438,7 @@ Zentriert ins Antlitz (E.M.I.T.R, Innovation Reality) - Discography 16 Releases 
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716571.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ Frecvens - A New Day (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716418.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ CHVRCHES - 4 Альбома, 3 EP, 3 Сингла (2013-2018) [MP3|320 kbps]<Syn
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716360.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ VA - Buddha-Bar - Clubbing (In Deep Session With DJ Ravin) (2017) [FLAC|Lossless
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716247.jpg" />
 </div>
 
 
@@ -496,7 +554,7 @@ Quirke - Whities 015 (2018) Whities [FLAC|Lossless|WEB-DL|tracks] <Techno, Illbi
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715858.jpg" />
 </div>
 
 
@@ -524,7 +582,7 @@ VA - Markus Schulz - Global DJ Broadcast: Top 20 April (2018) [MP3|320 Kbps] <Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715857.jpg" />
 </div>
 
 
@@ -553,7 +611,7 @@ Simon Cummings - 間 (2018) Crónica [FLAC|Lossless|WEB-DL|tracks] <Abstract, Ex
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715856.jpg" />
 </div>
 
 
@@ -582,7 +640,7 @@ VA - Markus Schulz & Dennis Sheperd - Global DJ Broadcast (2018) [MP3|320 Kbps] 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715855.jpg" />
 </div>
 
 
@@ -611,7 +669,7 @@ Thyladomid - Interstellar Destiny (2015) Diynamic Music [FLAC|Lossless|tracks+.c
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715850.jpg" />
 </div>
 
 
@@ -640,7 +698,7 @@ VA - Black Hole Trance Music 04 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715847.jpg" />
 </div>
 
 
@@ -669,7 +727,7 @@ VA - After Work Chillout Vol.1 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715846.jpg" />
 </div>
 
 
@@ -683,62 +741,6 @@ VA - After Work Chillout Vol.1 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8D66DDAA8977BA316281F31E2A99CEEAEFA2A76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024195   (715834) от 09.06.2016
-
-Meteora - Gradients II Westerlies (2016) [MP3|320 кб/с] <Electronic, Spacesynth, Synthpop>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cyclone Belt
-02. Twisting Monster
-03. Westerlies
-04. Cataclysm(   Читать дальше...   )Жанр: Electronic, Spacesynth, SynthpopПродолжительность: 01:08:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57BB58EA58471BAD1A79B1025EE0B4E35605670A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025836   (715753) от 01.05.2017
-
-Label Pack - Rielism - 45 Releases (2015-2017) [MP3|320 кб/с] <Trance>
-
->>Electronic
->>Label-Packs
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. GoRiel (07:01)
-02. GoRiel (JOC deconstruction) (05:50)Жанр: TranceПродолжительность: 05:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8326881C29A15EA88D3CCF64C2533C4BCD85077
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47795.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47792.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47782.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47779.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47769.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47764.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47762.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47761.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47695.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47694.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47604.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47535.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Linkin Park: Дорога к революции (Живой концерт в М
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47522.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Whitesnake - Live In The Still Of The Night (2006) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47513.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ VA / A Tribute To Stevie Ray Vaughan (1996) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47500.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ W.A.S.P. / 1993 - First Blood... Last Visions... (2007) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47485.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47483.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Black Sabbath and Blue Oyster Cult - Black and Blue (2004) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47416.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Black Sabbath - Live... Gathered In Their Masses (2013) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47412.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ AC/DC - No Bull (Live Plaza De Toros De Las Ventas, Madrid) 1996/2008 DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47409.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ AC/DC (ACDC) - Family Jewels (2005) 2xDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47408.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Black Sabbath - The Last Supper '99  (2015) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47406.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47386.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Beth Hart / Live at Paradiso (2005) DVD9 <Blues rock, Jazz fusion, Soul>
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47314.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ BBC - Top Of The Pops [1967-2004] (2005) DVD9
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47308.jpg" />
 </div>
 
 
@@ -710,7 +710,7 @@ Jeff Lynne's ELO - Wembley Or Bust (2017) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47279.jpg" />
 </div>
 
 

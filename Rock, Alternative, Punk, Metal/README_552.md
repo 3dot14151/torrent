@@ -1,3 +1,87 @@
+###  Публикация: 143040   (523131) от 15.08.2015
+
+Linkin Park - Chiba City Japan Live (2009) [MP3|320 kb/s]<Alt.Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_523131.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Alt.RockПродолжительность: 01:30:36
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313760   (522961) от 10.07.2019
+
+Stigmata - Калейдоскоп (2019) [FLAC|Lossless|WEB-DL|tracks] <Acoustic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Истории (3:14)
+ 02. Цунами (4:22)
+ 03. До девятой ступени (4:23)
+ 04. Сожжённый дотла (4:11)(   Читать дальше...   )Жанр: Acoustic RockПродолжительность: 00:31:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E012CAF505DD6FF6A58B525F2246D14B16DE7C76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240948   (522895) от 14.08.2018
+
+Dead Man's Whiskey - Under the Gun (2017) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522895.jpg" />
+</div>
+
+
+###  Подробнее
+
+◈ 01 - Live, Loud And Ready (00:05:03)
+◈ 02 - This Fight (00:03:43)
+◈ 03 - My Year (00:05:23)
+◈ 04 - Hoe Street (00:05:12)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F170CCC513C678B71A185657F87C8683933A42D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1240905   (522840) от 14.08.2018
 
 Sonata Arctica - The Harvests 2007-2017 (2018) Japanese Edition, 2CD [FLAC|Lossless|image + .cue] <Power Metal>
@@ -6,7 +90,7 @@ Sonata Arctica - The Harvests 2007-2017 (2018) Japanese Edition, 2CD [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522840.jpg" />
 </div>
 
 
@@ -35,7 +119,7 @@ Green Altar - Green Altar (2022) [MP3|320 Kbps] <Stoner Rock, Sludge, Doom Metal
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522790.jpg" />
 </div>
 
 
@@ -64,7 +148,7 @@ Bongskrap - Bong Voyage (2022) [MP3|320 Kbps] <Stoner Rock, Doom Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522789.jpg" />
 </div>
 
 
@@ -93,7 +177,7 @@ Shrooms Circle - The Constant Descent (2022) [MP3|320 Kbps] <Stoner Rock, Doom M
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522788.jpg" />
 </div>
 
 
@@ -122,7 +206,7 @@ Hush - The Pornography of Ruin (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522787.jpg" />
 </div>
 
 
@@ -151,7 +235,7 @@ Horned Wolf - Become Like They Are (2022) [MP3|320 Kbps] <Sludge Rock, Doom Meta
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522784.jpg" />
 </div>
 
 
@@ -180,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522776.jpg" />
 </div>
 
 
@@ -209,7 +293,7 @@ Mark Edwards - Land Of The Living (1986) 2xCD, Reissue, Remastered, 2021, Melodi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522774.jpg" />
 </div>
 
 
@@ -238,7 +322,7 @@ Our Dying World - Hymns Of Blinding Darkness (2022) [FLAC|Lossless|WEB-DL|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522772.jpg" />
 </div>
 
 
@@ -267,7 +351,7 @@ Issin - Rock’N’Rave (2022) [MP3|320 Kbps] <Alternative Metal, Ravecore, Post
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522719.jpg" />
 </div>
 
 
@@ -296,7 +380,7 @@ Our Dying World - 2 Albums (2019-2022) [MP3|320 Kbps] <Symphonic, Thrash, Death 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522717.jpg" />
 </div>
 
 
@@ -325,7 +409,7 @@ Enchantment - Cold Soul Embrace (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Death, Do
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522711.jpg" />
 </div>
 
 
@@ -354,7 +438,7 @@ Vuur - In This Moment We Are Free - Cities (2017) Japanese Edition [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522707.jpg" />
 </div>
 
 
@@ -383,7 +467,7 @@ Dorian Shroom - Nothing Is Sacred (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522691.jpg" />
 </div>
 
 
@@ -412,7 +496,7 @@ VA - 100 Hits - The Best Soft Rock Album (2018) 5CD [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522665.jpg" />
 </div>
 
 
@@ -444,7 +528,7 @@ VA - 100 Hits - The Best Rock 'n' Roll Album (2018) Box Set, 5CD [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522663.jpg" />
 </div>
 
 
@@ -473,7 +557,7 @@ The Big Deal - First Bite (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522658.jpg" />
 </div>
 
 
@@ -502,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522588.jpg" />
 </div>
 
 
@@ -531,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522587.jpg" />
 </div>
 
 
@@ -560,7 +644,7 @@ Alda - Passage (2015) [MP3|320 кб/с]<Atmospheric Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522576.jpg" />
 </div>
 
 
@@ -589,7 +673,7 @@ The Nerves - Jack Lee - Plimsous - Les Genies Du Rock - West Coast Pop (1994) [M
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522553.jpg" />
 </div>
 
 
@@ -618,7 +702,7 @@ Jimmy Barnes - Best Of The Soul Years (2015) [MP3|320 кб/с]<Rock, Soul, Blues
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522542.jpg" />
 </div>
 
 
@@ -647,7 +731,7 @@ Tito & Tarantula - Tarantism (1997) Remastered /2015/ [MP3|320 кб/с]<Rock, Bl
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522526.jpg" />
 </div>
 
 
@@ -661,93 +745,6 @@ Tito & Tarantula - Tarantism (1997) Remastered /2015/ [MP3|320 кб/с]<Rock, Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B115E107350F4CA39193A19B9708D0C5B6BA58A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928415   (522524) от 16.08.2015
-
-The Doors - Weird Scenes Inside The Gold Mine (1972) 2CD/2014,Elektra/[FLAC|image + .cue]<Psychedelic Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Break On Through (To The Other Side) [2:28]
-02. Strange Days [3:07]
-03. Shaman's Blues [4:48]
-04. Love Street [2:50](   Читать дальше...   )Жанр: Psychedelic Rock, Blues RockПродолжительность: 01:39:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF7795505CEEF19C9CD3A6F4C7EDCCECDF45024A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928103   (522517) от 16.08.2015
-
-Revolution Saints - Revolution Saints (2015) [FLAC|image + .cue]<Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back On My Trail
-02. Turn Back Time
-03. You're Not Alone
-04. Locked Out Of Paradise(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:08:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D4860CBF52C8C1B56BFFE7BEB5A656BFFA56BBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927992   (522514) от 16.08.2015
-
-Celldweller - End Of An Empire (Chapter 04: Death) (2015) [FLAC|Lossless]<Industrial, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Faction 10  00:44
-02 - New Elysium  06:53
-03 - Precious One  06:49
-06 - New Elysium (Zardonic Remix)  05:06(   Читать дальше...   )Жанр: Industrial Metal, ElectronicПродолжительность: 01:20:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA847F05C963A10703A75894B0408481CA27CEFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

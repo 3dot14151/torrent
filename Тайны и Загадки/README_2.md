@@ -6,7 +6,7 @@
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358765.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358760.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356129.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345283.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345116.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337617.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317024.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309108.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294518.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281922.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_270125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_270125.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263551.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262863.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ NG: Секретные материалы древности: Расшифров
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260008.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257206.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251547.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237875.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_229953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229953.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223524.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223506.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223452.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217738.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209593.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208694.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208643.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208464.jpg" />
 </div>
 
 

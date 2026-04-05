@@ -1,3 +1,61 @@
+###  Публикация: 1663452   (186750) от 21.09.2023
+
+Елена Якимова | Практикум Цвет (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186750.jpg" />
+</div>
+
+
+###  Подробнее
+
+Друзья, вы давно просили меня провести мастер-класс или курс по замешиванию оттенков и работе с цветом.
+Я долго думала над форматом этого обучения, информации очень много, а еще нужны задания и обратная связь, без этого качественной проработки темы не получится. В общем, думала я, думала и, наконец, придумала!
+
+Приглашаю вас на трехнедельный практикум “ЦВЕТ”, это (   Читать дальше...   )Жанр: РисованиеЯзык озвучки: РусскийПродолжительность: 07:53:11Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:610672CDAEA0AFCD966FEA75C4D3B990E83207C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663461   (186729) от 21.09.2023
+
+GreyscaleGorilla, Zach Corzine | Next Level Mograph Procedural Systems in C4D (2023) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186729.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заставьте вашего клиента сказать «ВАУ!» Изучите новые мощные методы Mograph, которые сделают каждый создаваемый вами проект еще более удивительным.
+
+Да, это верно. Cinema 4D может это сделать.
+(   Читать дальше...   )Производство: GreyscaleGorillaЖанр: 3D ГрафикаЯзык озвучки: АнглийскийПродолжительность: 03:07:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33C7CF57128AC9EDA01835B636ED81F7BF1E48B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1663460   (186711) от 21.09.2023
 
 Udemy, Larno Visser | Adobe Firefly Master Class - The Next Step in Generative AI (2023) WEB-DL [AD] [EN]
@@ -6,7 +64,7 @@ Udemy, Larno Visser | Adobe Firefly Master Class - The Next Step in Generative A
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186711.jpg" />
 </div>
 
 
@@ -32,7 +90,7 @@ FILM EDITING PRO | Color Grading 101 in DaVinci Resolve (2023) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186633.jpg" />
 </div>
 
 
@@ -58,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186586.jpg" />
 </div>
 
 
@@ -84,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186585.jpg" />
 </div>
 
 
@@ -110,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186581.jpg" />
 </div>
 
 
@@ -136,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186579.jpg" />
 </div>
 
 
@@ -163,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186574.jpg" />
 </div>
 
 
@@ -192,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186549.jpg" />
 </div>
 
 
@@ -221,7 +279,7 @@ The Gnomon Workshop, Alasgar Hasanov’s | Introduction to Pyro FX in Houdini �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_186405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186405.jpg" />
 </div>
 
 
@@ -247,7 +305,7 @@ The Gnomon Workshop, Alasgar Hasanov’s | Introduction to Pyro FX in Houdini �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186387.jpg" />
 </div>
 
 
@@ -273,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_186263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186263.jpg" />
 </div>
 
 
@@ -299,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186262.jpg" />
 </div>
 
 
@@ -326,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186256.jpg" />
 </div>
 
 
@@ -352,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186250.jpg" />
 </div>
 
 
@@ -378,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_186248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186248.jpg" />
 </div>
 
 
@@ -405,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_186240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186240.jpg" />
 </div>
 
 
@@ -431,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_186234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186234.jpg" />
 </div>
 
 
@@ -457,7 +515,7 @@ Robby Branham | Creating Volumetric Effects with Houdini (2019) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_186213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186213.jpg" />
 </div>
 
 
@@ -483,7 +541,7 @@ The Gnomon Workshop, Timucin Ozger | Controlled Building Demolition FX in Houdin
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_186196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186196.jpg" />
 </div>
 
 
@@ -509,7 +567,7 @@ The Gnomon Workshop, Simon Littlejohn | Creating an FX Production Shot in Houdin
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_186187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186187.jpg" />
 </div>
 
 
@@ -536,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_186171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186171.jpg" />
 </div>
 
 
@@ -562,7 +620,7 @@ Udemy, Maamir Houssam Eddine | 3d visualization , 3ds max, V-ray, Ps: 3D render 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185808.jpg" />
 </div>
 
 
@@ -591,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185748.jpg" />
 </div>
 
 
@@ -620,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185711.jpg" />
 </div>
 
 
@@ -632,59 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66121BA976DBCFCE911E5D5A7C99897D62B7CB17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388694   (185704) от 25.11.2020
-
-Creative Shrimp | 50 адских ошибок в 3D моделировании в Blender 2.8 / 50 Modeling Issues From Hell in Blender 2.8 (2020) PCRec [RU, EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это руководство по исправлению 50+ наиболее распространенных, а также некоторых диких и редких проблем 3D-моделирования в Blender.
-3D-моделирование - это трудно, существует так много нюансов из-за которых что-то может пойти не так. Даже если вы чувствуете себя более или менее комфортно с 3D-моделированием в Blender, всегда есть много вещей, которые могут испортить (   Читать дальше...   )Производство: Creative ShrimpЖанр: 3D моделированиеЯзык озвучки: Русский, АнглийскийСубтитры: АнглийскиеПродолжительность: 07:58:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:297978D2F1144E14FAE1F23D281DFA5B14B3A0FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426698   (185699) от 25.11.2020
-
-Yiihuu, Hooman Raad | The Dwarf Warrior: 3D Character Creation For Game / Воин гном: создание 3D игрового персонажа [En] (2019) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185699.jpg" />
-</div>
-
-
-###  Подробнее
-
-По ходу курса вы шаг за шагом будете создавать персонажа-воина для продакшена. Вы узнаете, как начать и спланировать проект, познакомитесь с методами моделирования волос, оружия и одежды для игр. В Unreal Engine 4 вы научитесь наносить реалистичный материал на персонажа, а также узнаете множество трюков для низко- и высокополигонального моделирования и текстурирования (   Читать дальше...   )Производство: YiihuuЖанр: 3D-графикаЯзык озвучки: АнглийскийПродолжительность: 62:21:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D48211A12BA0CA9F01D683A60341B67C39E3FD4B
 ```
 
 https://mybot314.ru/tekegram_catalog/

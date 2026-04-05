@@ -1,3 +1,58 @@
+###  Публикация: 1399216   (733690) от 30.07.2020
+
+JetBrains PhpStorm 2020.1 [En]
+
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733690.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhpStorm – это интегрированная среда разработки на PHP с интеллектуальным редактором, которая глубоко понимает код,
+поддерживает PHP 7.2,7.1,7.0, 5.6, 5.5, 5.4 и 5.3 для современных и классических проектов, обеспечивает лучшее в индустрии автодополнение кода, рефакторинги, предотвращение ошибок налету и поддерживает смешивание языков.
+Сотни инспекций заботятся о (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.05.2020Разработчик: JetBrainsПоддерживаемая ОС: macOS 10.13 или более поздняя версияЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8244C0C72392BED5A182EE5252FD598DCF73B717
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399585   (732912) от 01.08.2020
+
+Native Instruments Reaktor 6 v6.4.0 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_732912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основным отличием версии 6 модульного виртуального инструмента Reaktor от предыдущих версий является использование новой технология Reaktor Core Technology, позволяющей визуальное создание собственных модулей.
+В NI REAKTOR 6 реализовано множество новых возможностей и улучшений. 23 качественно новых инструмента REAKTOR позволяют создать бесчисленное множество ни на (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.07.2020Разработчик: Native InstrumentsПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00973525B0ACD0D392B2D229BBE826D9D6CF1280
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283881   (732147) от 18.02.2019
 
 Bookends 13.2 [En]
@@ -6,7 +61,7 @@ Bookends 13.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732147.jpg" />
 </div>
 
 
@@ -34,7 +89,7 @@ iSoftPhone Pro 4.2.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732143.jpg" />
 </div>
 
 
@@ -62,7 +117,7 @@ TagNotate 1.4.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732100.jpg" />
 </div>
 
 
@@ -89,7 +144,7 @@ SkyLab Studio 2.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732082.jpg" />
 </div>
 
 
@@ -118,7 +173,7 @@ TunesKit iBook Copy 2.1.2 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732070.jpg" />
 </div>
 
 
@@ -147,7 +202,7 @@ Postico 1.5.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732063.jpg" />
 </div>
 
 
@@ -176,7 +231,7 @@ Image Vectorizer 1.6 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731967.jpg" />
 </div>
 
 
@@ -202,7 +257,7 @@ PaintCode for Sketch 1.0.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731903.jpg" />
 </div>
 
 
@@ -231,7 +286,7 @@ Developer Font Tool 10.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731887.jpg" />
 </div>
 
 
@@ -260,7 +315,7 @@ ApolloOne - Photo Video Viewer 2.3.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731712.jpg" />
 </div>
 
 
@@ -286,7 +341,7 @@ Resolume Arena 5 v5.1.4 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731362.jpg" />
 </div>
 
 
@@ -313,7 +368,7 @@ Command-Tab Plus 1.88 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730871.jpg" />
 </div>
 
 
@@ -339,7 +394,7 @@ Silverstack Lab 6.4.10 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730855.jpg" />
 </div>
 
 
@@ -365,7 +420,7 @@ Sandvox 2.10.6 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730669.jpg" />
 </div>
 
 
@@ -393,7 +448,7 @@ Barcode Maker 2.23 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730620.jpg" />
 </div>
 
 
@@ -419,7 +474,7 @@ Cyberduck 5.4.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730612.jpg" />
 </div>
 
 
@@ -447,7 +502,7 @@ Stellar Partition Manager 3.0.0.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730426.jpg" />
 </div>
 
 
@@ -475,7 +530,7 @@ Sketch 3.8.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730351.jpg" />
 </div>
 
 
@@ -502,7 +557,7 @@ OCRKit 19.2.15 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730092.jpg" />
 </div>
 
 
@@ -528,7 +583,7 @@ Keytty 1.2.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730091.jpg" />
 </div>
 
 
@@ -555,7 +610,7 @@ Seasonality Core 2.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730061.jpg" />
 </div>
 
 
@@ -581,7 +636,7 @@ Tyme2 v1.7.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730032.jpg" />
 </div>
 
 
@@ -609,7 +664,7 @@ LiveGrade Pro 4.4.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730017.jpg" />
 </div>
 
 
@@ -636,7 +691,7 @@ Remixvideo v1.1.4 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729853.jpg" />
 </div>
 
 
@@ -647,60 +702,6 @@ Remixvideo v1.1.4 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31AC071B4BF4DC2026603266EE882D5BD90743DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530172   (729688) от 10.02.2022
-
-iZotope Plugins Bundle [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Объедините микширование и мастеринг в один взаимосвязанный рабочий процесс, используя самые передовые инструменты: Ozone 9, Neutron 3, Neoverb, Nectar 3, Tonal Balance Control 2 и другие плагины из комплекта, взаимодействующие друг с другом для максимально продуктивной работы.Тип издания: macOS SoftwareРелиз состоялся: 19.01.2022Разработчик: iZotope Inc.Поддерживаемая ОС: OS X 10.11.6 (El Capitan) и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98DC7E495890278E511A1CC96A1B9B19C8796C6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284169   (729457) от 20.02.2019
-
-Lingon X 6.6.1 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lingon X позволяет визуально создавать файлы автозагрузки, которые используются для запуска приложений и скриптов автоматически при загрузке macOS. Список всех программ выносится в таблицу, где его удобно редактировать. Тут же отображается статус каждой программы: чем она занимается, работает ли в данный момент и т.п.
-
-Всю конфигурацию можно проводить и вручную, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.02.2019Разработчик: Peter Borg Apps ABПоддерживаемая ОС: macOS 10.13 или вышеЯзык интерфейса: Английскийлийский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:830F998D0F79F0A09E703B210B055B571A5668CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

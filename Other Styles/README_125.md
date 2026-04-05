@@ -1,3 +1,61 @@
+###  Публикация: 1072121   (352175) от 13.11.2016
+
+Jim Brickman - Hope (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winter Morning [00:02:43]
+02. Sundown [00:04:07]
+03. Distant Rain [00:04:58]
+04. Daydream [00:03:47](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:54:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1266580C7D3640168124D4CE496EFE823BECC418
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329606   (352131) от 05.10.2019
+
+Reuel - Transformation (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Broken
+02. Electric Sky
+03. Regal Havana
+04. Earth Addictions(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:34:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13C4212CF20C69A5A22F19AB4C2A900A328DF755
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072076   (352004) от 13.11.2016
 
 Johann Johannsson - Arrival / Прибытие (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
@@ -6,7 +64,7 @@ Johann Johannsson - Arrival / Прибытие (Original Motion Picture Soundtra
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352004.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ L'Orchestra Cinematique, British Academy Players - Stranger Things / Очень 
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352003.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351861.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Johann Johannsson - Arrival / Прибытие (Original Motion Picture Soundtra
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351835.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Johann Johannsson - Arrival / Прибытие (Complete Motion Picture Soundtra
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351831.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Johann Johannsson - Arrival / Прибытие (Complete Motion Picture Soundtra
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351715.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Steve Orchard - Theory of Communion (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351518.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Ryan Judd - An Open Sky (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumen
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349925.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Autumn Breeze Vol. 2 - Chill Sounds for Relaxing Moments (2018) [MP3|320 Kb
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349759.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Ajeet Kaur - Haseya (2016) [FLAC|Lossless|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349715.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ L'Orchestra Cinematique, British Academy Players - Stranger Things / Очень 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349599.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Yarek - Noc Na Zamku (2008) [FLAC|image+.cue]<Electronic, Ambient>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349558.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Enigma - The Fall Of A Rebel Angel (2016) [FLAC|Lossless|image + .cue] <New Age,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349469.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Anima - Sacred Alliance (2015) [MP3|320 кб/с]<New Age, Electronic, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349436.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Jean Michel Jarre - Chronology (1993) Remastered / 2015, Sony Music /[FLAC|track
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349156.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Thomas Newman - Spectre (Original Motion Picture Soundtrack) (2015) [MP3|320 к�
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349149.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Cuban Divas (2017) [MP3|320 Kbps] <World, Latin>
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349061.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Fernando Velazquez - A Monster Call / Голос монстра (2016) [MP3|320 
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348804.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348244.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ TagTräumer (TagTraumer) - Zuviel ist nicht genug (2001) Remaster, 2018, West 7 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348057.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Paul Mauriat - Sayonara Concert (2003) [OGG Vorbis|484 Kbps] <Pop, Classical, St
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347762.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Hans Zimmer, Rupert Gregson-Williams - The Crown / Корона: Season One (Sou
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347512.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Marcin Patrzalek - Hush (2016) [MP3|320 Kbps] <Acoustic Guitar, Instrumental>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347401.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Hans Zimmer, Rupert Gregson-Williams - The Crown / Корона: Season One (Sou
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347394.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Hans Zimmer, Rupert Gregson-Williams - The Crown / Корона: Season One (Sou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F0CB3F8BC99C50ACD27AC90A91B1C3D457ADFC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073347   (347267) от 15.11.2016
-
-Ennio Morricone - Morricone 60 (2016) [MP3|320 Kbps] <Instrumental, Classical, Soundtrack>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gabriel's Oboe (The Mission)
-02. Falls (The Mission)
-03. On Earth As It Is In Heaven (The Mission)
-04. The Man With The Harmonica (Once Upon A Time In The West)(   Читать дальше...   )Жанр: Instrumental, Classical, SoundtrackПродолжительность: 01:13:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01C69C932FC8BEF3198C547DE38B3FAE7570C439
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179212   (346575) от 01.11.2017
-
-Kyle Dixon & Michael Stein - Stranger Things 2 / Очень странные дела 2 (A Netflix Original Series Soundtrack) (2017) Deluxe Edition [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turn On the Lights (01:44)
-02. Sick of Cow (04:03)
-03. Power Maintenance (01:31)
-04. Roars From the Lab (02:33)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:02:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60EB9CC09C2071991A6AF0ABF16EC259C9F3B2DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

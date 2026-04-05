@@ -1,133 +1,3 @@
-###  Публикация: 1601126   (151875) от 30.12.2022
-
-Л.С. Атанасян, М.М. Цаленко | Задачник-практикум по геометрии (1994) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Задачник-практикум соответствует программе по геометрии для физико-математических факультетов педагогических институтов. Он содержит задачи по разделам: «Геометрические построения на плоскости», «Методы изображений» и «Дифференциальная геометрия и топология». Задачник ориентирован на учебные пособия Атанасяна Л.С., Базылева В.Т. «Геометрия» ч. I, ч. II, и призван (   Читать дальше...   )Жанр: МатематикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6C8A0FFDD48C5AFCCD65F6A32DCEF777413EDBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347469   (151801) от 23.12.2019
-
-Е.А. Хомутникова, Ю.С. Боровых | Англо-русский словарь фразеологизмов с компонентом-зоонимом (2019) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фразеологизмы с компонентом-зоонимом являются одной из древнейших форм языковой номинации. Данные единицы имеют национально-культурную специфику, отражают культурные особенности, менталитет народа, что позволяет получить определенные сведения о носителях языка. Словарь содержит 500 английских номинативных фразеологизмов с компонентом-зоонимом и их русских соответствий. (   Читать дальше...   )Жанр: СловарьФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBD0A1271C3E5C784EFE3AAEDE8CC6EB0FF55179
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086291   (151783) от 24.12.2016
-
-Марина Раевская, Анна Ковригина | Базовый курс испанского языка (+ CD) (2016) [PDF, MP3]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151783.jpg" />
-</div>
-
-
-###  Подробнее
-
-От издателя: Базовый курс предназначен для широкой публики и, в частности, для студентов высших учебных заведений. Курс будет полезен в первую очередь тем, кто желает получить в короткий срок качественные базовые знания испанской грамматики и навыки устной и письменной речи. Внутри вы найдете интересные тексты, диалоги и упражнения, а также большой объем страноведческой (   Читать дальше...   )Жанр: Испанский языкФормат: PDF, MP3
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BB0BDC6B9D4BE70F44FD54490666326873771AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588978   (151778) от 14.12.2012
-
-О.А. Адамайтис,  М.С. Сысоева | Русская керамика XVIII-XIX  начала века [1976] [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151778.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это каталог русской керамики в собрании Загорского историко-художественного музея-заповедника. В основу коллекции керамики музея легло собрание Троице-Сергиевского монастыря. Каталог хорошо иллюстрирован и снабжен подробными описаниями.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:149D88AA72F58D2369043625897385FA79C4C27C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194965   (151757) от 27.12.2017
-
-М.П. Батура и др. | Теория электрических цепей (2015) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151757.jpg" />
-</div>
-
-
-###  Подробнее
-
-Теория электрических цепей как наука посвящена решению задач анализа и синтеза электрических цепей, схем и устройств и является важнейшим инструментом, широко используемым в электротехнике и радиоэлектронике. К электрическим цепям относятся технические устройства самого разнообразного назначения. Там, где речь идет об электрическом токе или электрическом напряжении, (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3F74A722DBCC64D7253DB9AFCDB0F269A6FE77A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347426   (151749) от 23.12.2019
 
 А.С. Кутузов | Введение в функциональный анализ (2020) [PDF, DJVU]
@@ -136,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151749.jpg" />
 </div>
 
 
@@ -162,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151730.jpg" />
 </div>
 
 
@@ -188,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151712.jpg" />
 </div>
 
 
@@ -214,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151653.jpg" />
 </div>
 
 
@@ -240,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151560.jpg" />
 </div>
 
 
@@ -266,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151542.jpg" />
 </div>
 
 
@@ -292,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151521.jpg" />
 </div>
 
 
@@ -318,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151470.jpg" />
 </div>
 
 
@@ -344,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151440.jpg" />
 </div>
 
 
@@ -370,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151415.jpg" />
 </div>
 
 
@@ -397,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151302.jpg" />
 </div>
 
 
@@ -425,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151248.jpg" />
 </div>
 
 
@@ -453,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151196.jpg" />
 </div>
 
 
@@ -479,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151107.jpg" />
 </div>
 
 
@@ -505,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151090.jpg" />
 </div>
 
 
@@ -533,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151011.jpg" />
 </div>
 
 
@@ -559,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150907.jpg" />
 </div>
 
 
@@ -587,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150856.jpg" />
 </div>
 
 
@@ -613,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150842.jpg" />
 </div>
 
 
@@ -639,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150747.jpg" />
 </div>
 
 
@@ -666,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150498.jpg" />
 </div>
 
 
@@ -677,6 +547,136 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF578B983B2998EAE02286DB7D1441054A367C15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968763   (150492) от 25.12.2015
+
+Сергей Матвеев | Для тех, кому некогда, но срочно надо (2014) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пособие по английскому языку предназначено для тех, кому при затрате минимума усилий нужно получить реальный результат. Уникальная авторская методика – и она действительно работает! Даётся базовый объём грамматики и лексики английского языка, что позволяет в кратчайшие сроки приобрести самые необходимые знания. Пособие будет полезно всем, кто стремится овладеть английским (   Читать дальше...   )Жанр: Английский языкФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B2894579FF5C325C04EAF68475A9AB30E7BD826
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519103   (150470) от 22.12.2021
+
+Джонатан Б. Лосос | Удивительная эволюция. Биологическая история Земли в невероятных превращениях и мутациях организмов (2020) [FB2]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга изменит ваш образ мыслей и представления об эволюции и естественном отборе. Вы удивитесь тому, как знания об эволюционных изменениях могут помочь защитить экосистему, обеспечить наши запасы продовольствия и бороться с вредными вирусами и бактериями. Автор познакомит вас с мировыми исследованиями, которые проливают свет на самые тайные загадки жизни на Земле. (   Читать дальше...   )Жанр: Научно-популярная литература, Общая биологияПеревод: Т. Л. ПлатоноваФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63ED219018347875BB87C9D58367A65E56AB147F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677706   (150418) от 18.11.2023
+
+Серия книг | Измерения в электронике (1981 - 1986) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия книг по измерениям в электронике от издательства "Радио и связь".Жанр: ЭлектроникаИздательство: Радио и связьФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6475D5A51E094F5F227F82BB63C8B5B18030CB8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968627   (150385) от 25.12.2015
+
+Эдуард Макаревич | Интимные тайны Советского Союза (2007) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150385.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге Эдуарда Федоровича Макаревича рассказывается об интимной сфере жизни советских людей, которая долгие годы не предавалась огласке. Вопреки известному утверждению о том, что в Советском Союзе секса нет, автор доказывает обратное: сексуальная жизнь советского человека была не менее насыщенной, чем на Западе. В СССР существовали и свои секс-символы, такие, как (   Читать дальше...   )Жанр: История культурыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3D14A33A1FAC6546DC1C8A78BD0392548B78A30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677541   (150365) от 18.11.2023
+
+В.А. Сафонов, М.А. Чоба | Коррозия и защита металлов (2023) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены вопросы, связанные с использованием электрохимических и физико-химических подходов к описанию механизма коррозионных процессов, которые реализуются на металлах и сплавах в местах их контакта с жидкими ион-проводящими средами. Изложены основы линейной и циклической вольтамперометрии и принципы конструирования и работы приборов для коррозионно-электрохимических (   Читать дальше...   )Жанр: МатериаловедениеИздательство: Инфра-инженерияФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7795A28963956CDB93D224D680A41DD6FEB2B026
 ```
 
 https://mybot314.ru/tekegram_catalog/

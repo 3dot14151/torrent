@@ -1,3 +1,136 @@
+###  Публикация: 1632939   (234665) от 13.05.2023
+
+Большое кино Клиффорда / Clifford's Really Big Movie (2004) WEBRip [H.265/1080p-LQ] [10-bit] [AVO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клиффорд и его друзья отправляются в большое путешествие через всю страну, чтобы выиграть главный приз соревнования талантов Тамми Ямми. Вместе с новыми друзьями, включая высоко летающего хорька Шеклфорда и чихуахуа Родриго и Дороти, первую корову сцены. Этот забавный зверинец несомненно будет победителем и доставит всем зрителям массу веселья и положительных эмоций.Производство: США / Big Red Dog Productions, Scholastic Productions, Mike Young Productions, Public Broadcasting Service (PBS)Жанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Роберт С. Рамирез, Стив ТренбертАктеры: Джон Риттер, Уэйн Брэди, Грэй Гриффин, Дженна Элфман, Джон Гудман, Джесс Харнелл, Кел Митчелл, Джадж Райнхолд, Кэт Суси, Кри СаммерПеревод: Авторский (Антон Карповский)Язык озвучки: Русский, АнглийскийСубтитры: АнглийскиеПродолжительность: 01:14:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E91B3EE13D69DA7664110F3014C753A9F1C039EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567832   (234656) от 17.09.2022
+
+Харли Квинн / Harley Quinn (2022) WEB-DL [H.264/1080p] (сезон 3, серии 1-10 из 10) Red Head Sound
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234656.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Харли Квинн» - американский анимационный супергеройский веб-сериал для взрослой аудитории в жанре чёрной комедии об одноимённом персонаже DC Comics, созданном Полом Дини и Брюсом Тиммом. Джастин Халпернruen, Патрик Шумакер и Дин Лори выступают сценаристами и исполнительными продюсерами. Сериал рассказывает о злоключениях Харли Квинн после её расставания с Джокером. (   Читать дальше...   )Производство: США / DC Entertainment, Ehsugadee, Warner Bros. Animation, Yes, Norman ProductionsЖанр: мультфильм, фантастика, фэнтези, боевик, комедия, криминал, детектив, приключенияРежиссер: Сесилия Аранович, Мэтт Гарофало, Фрэнк МариноПеревод: дублированный (Red Head Sound) (ненормативная лексика)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: ~00:23:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6246BB4489F2163E9D1094E5467905B7963E46A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297474   (234650) от 17.09.2022
+
+Гарри Бардин. Лучшие мультфильмы: Серый волк энд Красная Шапочка, Летучий корабль, Адажио, Чуча, Выкрутасы (1979-2000) DVDRip [H.264]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы (коллекции, сборники / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234650.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гарри Бардин – известный советский и российский аниматор. Лауреат Каннского фестиваля за лучший короткометражный мультфильм («Выкрутасы»). Четырехкратный обладатель премии «Ника» за анимационные проекты «Чуча», «Чуча 3», «Адажио», «Серый волк энд Красная шапочка».
+В сборник вошли мультфильмы:
+1. Серый волк энд Красная Шапочка
+2. Летучий корабль(   Читать дальше...   )Производство: СССР,  РоссияЖанр: Рисованная анимация, КукольныйРежиссер: Гарри БардинСубтитры: отсутствуютПродолжительность: 00:09:41+00:09:48+00:17:46+00:25:40+00:24:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A996A7A00DACF924F8044E99205DEC190E57692C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 54969   (234634) от 17.09.2022
+
+Храбрый портняжка (1964) TVRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234634.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация сказки братьев Гримм. Герой мультика юный портной, которому наскучила спокойная жизнь. Влекомый юношеской жаждой приключений, он отправляется на подвиги. Ему предстоит встретиться и с братьями великанами, и с подлым королем.Производство: СССР, СоюзмультфильмЖанр: детский, рисованная анимация, сказкаРежиссер: Зинаида Брумберг, Валентина БрумбергАктеры: Сергей Цейц, Олег Анофриев, Алексей Консовский, Георгий Вицин и др.Субтитры: ОтсутствуютПродолжительность: 00:29:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40CA38129C8875B848EFA192D79E6640D71F2A41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577012   (234626) от 17.09.2022
+
+Коллекция мультфильмов DisneyToon Studios (1990 - 2014) / DisneyToon Studios Cartoon Сollection (1990 - 2014) BDRip, DVDRip, WEB-DLRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы (коллекции, сборники / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234626.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция мультфильмов киностудииПроизводство: США, Канада, Австралия, Тайвань, Гонконг, Франция, Япония, Китай / Walt DisneyЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Боб Хэчкок, Кевин Лима, Дуглас МакКарти, Стив Тренберт и др.Перевод: дублированныйСубтитры: отсутствуютПродолжительность: 01:16:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD2265CE51436B1B4A801EADD3771072FE4466B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 976108   (234585) от 17.09.2022
 
 Вверх ногами, или Где-то в том лесу. Сборник мультфильмов (2015) DVDRip
@@ -6,7 +139,7 @@
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234585.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234567.jpg" />
 </div>
 
 
@@ -60,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234399.jpg" />
 </div>
 
 
@@ -86,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234337.jpg" />
 </div>
 
 
@@ -112,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234327.jpg" />
 </div>
 
 
@@ -138,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234310.jpg" />
 </div>
 
 
@@ -165,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234304.jpg" />
 </div>
 
 
@@ -191,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234282.jpg" />
 </div>
 
 
@@ -217,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234268.jpg" />
 </div>
 
 
@@ -243,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234239.jpg" />
 </div>
 
 
@@ -269,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234198.jpg" />
 </div>
 
 
@@ -295,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234179.jpg" />
 </div>
 
 
@@ -321,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234103.jpg" />
 </div>
 
 
@@ -347,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233913.jpg" />
 </div>
 
 
@@ -373,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233808.jpg" />
 </div>
 
 
@@ -399,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233725.jpg" />
 </div>
 
 
@@ -426,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233706.jpg" />
 </div>
 
 
@@ -452,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233595.jpg" />
 </div>
 
 
@@ -478,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233588.jpg" />
 </div>
 
 
@@ -504,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233561.jpg" />
 </div>
 
 
@@ -530,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233449.jpg" />
 </div>
 
 
@@ -542,136 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C7316DC918E0AAE367E3EE438A1438D44792378
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553229   (233321) от 24.05.2022
-
-Любовь, смерть и роботы / Love, Death & Robots (2022) WEBRip (сезон 3, серии 1-9 из 9) HDRezka Studio
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект Любовь, смерть и роботы - это отдельный вид искусства. Сериал представляет собой великолепную смесь историй, представленных в совершенно различных жанрах. Здесь вас ожидает столкновение с классическими элементами научной фантастики, необычным юмором, удивительным фэнтезийным миром и по-настоящему пробирающим до мурашек ужасом. Каждый из персонажей в проекте (   Читать дальше...   )Производство: США / Blur Studio, NetflixЖанр: мультфильм, ужасы, фантастика, фэнтези, комедия, боевик, криминал, для взрослыхРежиссер: Тим МиллерАктеры: Нолан Норт, Мэттью Кинг, Джош Бренер, Генри Даутуэйт, Грэхэм Хэмилто, Эмили О’Брайэн, Хелен Сэдлер, Илэйн ТанПеревод: Многоголосый профессиональный (HDRezka Studio)Язык озвучки: РусскийСубтитры: Русские (форсированные hardsub)Продолжительность: ~00:06:00 - 00:21:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DE3095CDEC351F7EDA67929902C0F9B2E4C867F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571848   (233162) от 25.09.2022
-
-Харли Квинн / Harley Quinn (2022) WEBRip [H.264/720p-LQ] (сезон 3, серия 1-10 из 10) Jaskier
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Беспредел и безумие продолжаются в третьем сезоне этого резкого и шумного анимационного комедийного сериала для взрослых. Харли Квинн и Ядовитый Плющ возвращаются в Готэм в качестве новой влиятельной пары злодеев DC. Вместе со своей разношерстной командой — Королем Акулой, Глиняным Лицом и Растением Фрэнком — «Харливи» стремится стать лучшей версией себя, одновременно (   Читать дальше...   )Производство: США, DC Entertainment, Ehsugadee, Warner Bros. Animation, Yes, Norman ProductionsЖанр: мультфильм для взрослых, фантастика, фэнтези, боевик, комедия, криминал, детектив, приключенияРежиссер: Сесилия Аранович, Мэтт Гарофало, Фрэнк МариноПеревод: Многоголосый профессиональный (Jaskier) - присутствует ненормативная лексика.Субтитры: отсутствуютПродолжительность: ~00:23:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95E90DECAF36DB608E9460CC622EA47C77F7FE1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578799   (233101) от 25.09.2022
-
-DOTA: Кровь дракона / Dota: Dragon's Blood (2022) WEB-DL [H.264/1080p] (сезон 3, серии 1-8 из 8) HDrezka Studio, LostFilm
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233101.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прославленный драконий рыцарь Дэвион посвятил жизнь борьбе с бедами мира. После встречи с могущественным древним эльдвурмом и с благородной принцессой Мираной, у которой есть своя тайная миссия, Дэвион оказывается в эпицентре событий куда более масштабных, чем он мог себе представить.Производство: США /  Netflix Animation, ValveЖанр: мультфильм, фэнтези, боевикРежиссер: Пак Со-ён, Пан Ю-вон, Seung Woo HanПеревод: Профессиональный многоголосый (HDrezka Studio, LostFilm)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full, SDH), Иврит, УкраинскиеПродолжительность: ~00:26:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6911948A316809A0DCFC6EF8F914CACD7076B2FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553483   (232984) от 26.05.2022
-
-Я краснею / Turning Red (2022) BDRemux [H.264/1080p] [MVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232984.jpg" />
-</div>
-
-
-###  Подробнее
-
-Торонто, 2002 год. Активная и неунывающая 13-летняя Мэйлинь всеми силами пытается быть первой во всём, чтобы угодить строгой гиперопекающей матери. Семья девочки живёт при храме и поклоняется Богине-прародительнице. Одним прекрасным утром Мэйлинь просыпается и вместо привычного отражения в зеркале видит красную панду — теперь, когда она волнуется, злится или испытывает (   Читать дальше...   )Производство: США / Pixar Animation Studios, DisneyЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Доми ШиАктеры: Розали Чян, Сандра О, Ава Морс, Пак Хе-ин, Майтреи Рамакришнан, Орион Ли, Вай Чин Хо, Тристан Аллерик Чен, Лори Тан Чинн, Mia TaganoПеревод: Многоголосый профессиональный (Jaskier, TVShows)Субтитры: Русские (FOCS), Английские (Full, SDH)Продолжительность: 01:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B3665ACCCE1DB267579AB6BE5325D791DA81CE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 529375   (232904) от 26.09.2022
-
-Непослушный котенок (1953) DVDRip [H.264] [Реставрация "Крупный план"]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232904.jpg" />
-</div>
-
-
-###  Подробнее
-
-Котенок не послушался хозяйку, ушел в лес и, конечно, был наказан. Потому что заблудился, промок под дождем, натерпелся страху. Но с помощью добрых лесных зверушек все же вернулся домой и обещал больше никогда-никогда...Производство: СССР, СоюзмультфильмЖанр: детский, рисованная анимацияРежиссер: Мстислав ПащенкоАктеры: Татьяна Барышева, Маргарита Докторова, Мария Яроцкая, Юлия Юльская, Владимир Ратомский, Виктория ИвановаСубтитры: ОтсутствуютПродолжительность: 00:10:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3A00951E2F06AC870F33FF8D7BEF3B6D5EEB231
 ```
 
 https://mybot314.ru/tekegram_catalog/

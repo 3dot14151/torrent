@@ -7,7 +7,7 @@ Scarface: The World Is Yours (2006) [Ru] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1063108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063108.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ World War Z: Aftermath (2021) [Ru/Multi] (10.03.2026/dlc) Repack Let'sРlay [Del
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1063078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063078.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Tom Clancy's Ghost Recon: Wildlands (2017) [Ru/Multi] (4792145/dlc) Repack dixen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062967.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Tomb Raider I-III Remastered Starring Lara Croft (2024) [Ru/Multi] (Build 223150
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062273.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Gotham Knights (2022) [Ru/Multi] (Build 21284365/dlc) Repack HardwareMining [Del
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062272.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Alan Wake Remastered (2021) [Ru/En] (1.33/dlc) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062095.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Assassin's Creed Mirage (2023) [Ru/Multi] (1.1.1/dlc) Repack seleZen [Master Ass
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061851.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Assassin's Creed Mirage (2023) [Ru/Multi] (1.1.1/dlc) Repack HardwareMining [Mas
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061052.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Tomb Raider: Underworld (2008) [Multi] (1.1) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060859.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Tomb Raider: Anniversary (2007) [Multi] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060834.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Tomb Raider: Legend (2006) [Multi] (1.2) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060793.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Shadow of the Tomb Raider (2018) [Ru/En] (1.0.1.1/dlc) Repack Wanterlude [Defini
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060432.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ L.A.Noire (2011) [Ru/Multi] (1.3.2675.1/dlc) Scene SKIDROW [The Complete Edition
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060303.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Max Payne 2: The Fall of Max Payne (2003) [En] (1.01) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060215.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Resident Evil 4 Remake (2023) [Ru/Multi] (Build 22154679/dlc) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060084.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Assassin's Creed Mirage (2023) [Ru/Multi] (1.1.1/dlc) Repack Other s [Master Ass
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059991.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Wicked Seed (2026) [En] (Build 21603000) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1059975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1059975.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Star Wars Jedi: Survivor (2023) [Ru/Multi] (Build 15643690/dlc) Repack HardwareM
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1059959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1059959.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ The Punisher (2005) [En] (1.0) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1059957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1059957.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Max Payne (2001) [En] (1.05) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1059944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1059944.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Alan Wake Remastered (2021) [Ru/En] (1.33/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1059943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1059943.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Echoes of the End (2025) [Ru/Multi] (2.04) Repack HardwareMining [Enhanced Editi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1059942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1059942.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ World War Z: Aftermath (2021) [Ru/Multi] (2.44/dlc) Repack Other s [Deluxe Editi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059881.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Fear The Timeloop (2026) [Ru/Multi] (1.0.3) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059879.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Yakuza Kiwami (2019) [Ru/Multi] (2.13) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059356.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Catwoman (2004) [En] (1.0) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059332.jpg" />
 </div>
 
 

@@ -1,3 +1,55 @@
+###  Публикация: 1638479   (197258) от 09.06.2023
+
+Loop8: Summer of Gods (2023) [Multi] (1.0.2/dlc) Scene Tenoke
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197258.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой оригинальной ролевой игре о взрослении вы окунетесь в жизнь Нини - подростка, который только что прибыл на Землю, в причудливый японский городок Асихара. На дворе август 1983 года. Исследуйте городок, подружитесь с жителями и бейтесь с кегаями в пошаговых сражениях. Их исход зависит от отношений, которые вы построите, и решений, которые вы примете. У Нини (   Читать дальше...   )Тип издания: SceneРазработчик: Marvelous Inc.Жанр: Ролевые игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Немецкий, Французский, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:883BFB08D4D915AD37C7E2F3B74BCE259450D6B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640049   (196935) от 16.06.2023
+
+Mask of the Rose (2023) [En] (1.2.664) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196935.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mask of the Rose - это увлекательная визуальная новелла в жанре симулятора свиданий с необычным и многогранным игровым процессом. История берет начало в альтернативной версии викторианского Лондона, который по неизвестной причине ушел глубоко под Темзу, куда не пробиваются солнечные лучи. Королева Виктория ни разу не покидала свой дворец, поэтому страной правят загадочные (   Читать дальше...   )Тип издания: LicenseРазработчик: Failbetter GamesЖанр: Ролевые игрыЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59200F4FE0C287E614CC4CA7C56EB61F45D7B4A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1641197   (196807) от 21.06.2023
 
 Hand of Doom (2023) [En] (1.0.0) Scene Tenoke
@@ -6,7 +58,7 @@ Hand of Doom (2023) [En] (1.0.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196807.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Tales of Vogar - Lost Descendants (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196768.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Spriters, Hopes Blooming Dawn (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196691.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ A Long Journey to an Uncertain End (2023) [Multi] (1.0.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196294.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ FRONT MISSION 1st: Remake (2023) [Multi] (2.01) Scene FairLight
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196203.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Styx: Master of Shadows (2014) [Ru/Multi] (1.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196018.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Ravenbound (2023) [Ru/Multi] (1.1/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196015.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Atelier Marie Remake: The Alchemist of Salburg (2023) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195658.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ The Rule of Land: Pioneers (2023) [Multi] (1.0.1) Scene Skidrow
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195395.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Phoenix Point (2020) [Ru/Multi] (1.20.1/dlc) Repack dixen18 [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195345.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ REMEDIUM: Sentinels (2023) [Ru/Multi] (11729250) Scene Skidrow
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195307.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Mythora / Изгнанник. Лезвие Смерти (2004) [Ru] (1.0) Licens
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195091.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ The Witcher 3: Wild Hunt / Ведьмак 3: Дикая Охота (2015) [Ru/Mu
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194894.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Oceanhorn 2: Knights of the Lost Realm / Оушенхорн 2: Рыцари за
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194707.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Adore (2023) [Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194662.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Stillborn Slayer (2023) [Ru/En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194658.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Wo Long: Fallen Dynasty (2023) [Ru/Multi] (1.10/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194599.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Mato Anomalies (2023) [Multi] (1.0/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194512.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Ash of Gods: The Way (2023) [Ru/Multi] (1.10.4)  License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194450.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ The Dragoness: Command of the Flame (2023) [Ru/Multi] (1.12) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194346.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Yakuza: Like a Dragon (2020) [Ru/Multi] (1.009/dlc) License GOG [Hero Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194315.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194244.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Dungeon 100 (2023) [Ru/Multi] (1.03) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193777.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Shining Resonance Refrain (2018) [Multi] (1.00.1618) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193742.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Shining Resonance Refrain - это ролевая игра в жанре экш�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88E3EEAEF4CC57AF987B68DECAB7543D8709A2A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657519   (192472) от 03.09.2023
-
-Starfield (2023) [Multi] (1.7.23.0/dlc) Repack DjDI [Premium Edition]
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Starfield - первая более чем за 25 лет новая игровая вселенная от Bethesda Game Studios, авторов The Elder Scrolls V: Skyrim и Fallout 4. В этой космической ролевой игре вы сможете создать любого персонажа и исследовать вселенную так, как вам этого хочется. Раскройте величайшую тайну человечества. В 2330 году люди осваивают планеты за пределами Солнечной системы. (   Читать дальше...   )Тип издания: RepackРазработчик: Bethesda Game StudiosЖанр: Action, RPGЯзык озвучки: Английский, Немецкий, Испанский, Японский и другиеЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B551DA421222C619383A66F3A2755C4E6D8F14C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657725   (191994) от 05.09.2023
-
-Tenebris Pictura (2023) [Ru/Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191994.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследования, охота за призраками и головоломки викторианской эпохи. Ультрателесный приключенческий экшен «Тенебрис Пиктура» от создателей Megaton Rainfall. Вы играете за исследователя паранормальных явлений викторианской эпохи, который обладает экстрасенсорными способностями и прибывает на туманный и запутанный остров, наполненный тайнами. Старый друг приглашает (   Читать дальше...   )Тип издания: SceneРазработчик: Pentadimensional Games SLЖанр: Экшены, Приключенческие игрыЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBB0A5F08CCFE26A4CAEB10B425D1393BCD8F76B
 ```
 
 https://mybot314.ru/tekegram_catalog/

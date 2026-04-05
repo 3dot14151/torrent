@@ -1,57 +1,3 @@
-###  Публикация: 1214029   (766558) от 19.03.2018
-
-Сильнейший удар: Бой до смерти / Shootfighter: Fight to the Death (1992) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два друга, ученики мастера Шинго, приехали на подпольный турнир бойцов, поединки которого ведутся до смертельного исхода.
-Драматически складывается не только ход турнира, но и взаимоотношения друзей. Но на ринг выходит мастер Шинго…Производство: США / ANA ProductionsЖанр: БоевикРежиссер: Патрик АланАктеры: Боло Йенг, Мэриам д’Або, Уильям Забка, Майкл Бернардо, Сигал Дайэмант, Мартин Коув, Эдвард Альберт, Джеймс Пак, Лэнг Юнг, Сагив ДайамантПеревод: Профессиональный (двуголосый закадровый), авторскийСубтитры: ОтсутствуютПродолжительность: 01:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26D055A09AC30C2E3F06134BCD0C7D42DE65D0A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214030   (766555) от 19.03.2018
-
-Сильнейший удар 2 / Shootfighter II (1996) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сын Лу Роулинса, полицейского из Сан-Франциско, погиб в Майами от рук организатора поединков насмерть — кровавого развлечения местных мафиози. Отец поклялся отомстить бандитам и раздавить всю группировку, прекратив, таким образом, чудовищные схватки современных гладиаторов.
-Он собирает свою команду бойцов, во главе которой становится учитель восточных единоборств, (   Читать дальше...   )Производство: США / ANA ProductionsЖанр: БоевикРежиссер: Пол ЗиллерАктеры: Боло Йенг, Уильям Забка, Майкл Бернардо, Чейз Рэндольф, Бретт Бакстер Кларк, Кристи Эйзенберг, Джо Сон, Хорхе Хиль, Марк Маколей, В. Пол БодиПеревод: Профессиональный (многоголосый закадровый), авторскийСубтитры: ОтсутствуютПродолжительность: 01:30:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADE23602759C32691D0AA88F4917BAE943BBF3B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214026   (766521) от 19.03.2018
 
 Короче / Downsizing (2017) BDRip [MVO]
@@ -60,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766521.jpg" />
 </div>
 
 
@@ -86,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766492.jpg" />
 </div>
 
 
@@ -112,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766486.jpg" />
 </div>
 
 
@@ -138,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766477.jpg" />
 </div>
 
 
@@ -164,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766127.jpg" />
 </div>
 
 
@@ -190,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766089.jpg" />
 </div>
 
 
@@ -216,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765944.jpg" />
 </div>
 
 
@@ -242,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765938.jpg" />
 </div>
 
 
@@ -268,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765931.jpg" />
 </div>
 
 
@@ -294,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765923.jpg" />
 </div>
 
 
@@ -320,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765914.jpg" />
 </div>
 
 
@@ -346,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765896.jpg" />
 </div>
 
 
@@ -372,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765872.jpg" />
 </div>
 
 
@@ -398,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765835.jpg" />
 </div>
 
 
@@ -425,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765828.jpg" />
 </div>
 
 
@@ -451,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765793.jpg" />
 </div>
 
 
@@ -477,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765785.jpg" />
 </div>
 
 
@@ -503,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765676.jpg" />
 </div>
 
 
@@ -529,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765632.jpg" />
 </div>
 
 
@@ -555,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765631.jpg" />
 </div>
 
 
@@ -581,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765630.jpg" />
 </div>
 
 
@@ -607,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765629.jpg" />
 </div>
 
 
@@ -633,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765411.jpg" />
 </div>
 
 
@@ -659,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765325.jpg" />
 </div>
 
 
@@ -670,6 +616,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42762DABEA08741E92D3208FD7E3D53EF0E4FCC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279205   (765318) от 30.01.2019
+
+Анон / Anon (2018) BDRip [RUS Transfer]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Идеальное общество будущего: режим тотального надзора, отсутствие личной жизни, приватных территорий и гражданских прав. Казалось бы, в полностью контролируемом государстве нет места ошибкам и правонарушениям. Но однажды детектив Сол Фриленд знакомится с девушкой, которая не числится в базах данных. Перед копом приоткрывается дверь преступного мира новой эры…Производство: Германия, США, K5 Film, K5 International, K5 Media GroupЖанр: Фантастика, Триллер, Криминал, ДетективРежиссер: Эндрю НикколАктеры: Клайв Оуэн, Аманда Сайфред, Колм Фиор, Соня Уолгер, Марк О`Брайэн, Джо Пинг, Иддо Голдберг, Себастьян Пижотт, Рэйчел Робертс (I), Этан ТаваресПеревод: Дублированный (Лицензия)Субтитры: ОтсутствуютПродолжительность: 01:39:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B108CEB07817F971F7024EAC112C5EB44A2CE71B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126016   (765290) от 18.04.2017
+
+Забирай своё сам / Выбирай свое сам / You Bury Your Own (2015) HDTVRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уилла, Джон и Эйден Райаны - не образцовая семья. Их прошлое покрыто тёмными тайнами. Уилла пытается вырваться из порочного круга, но когда умирает Эйден, она вынуждена объединиться с Джоном, чтобы найти, кому их брат мог перейти дорогу.Производство: СШАЖанр: ТриллерРежиссер: Роберт УилсонАктеры: Дэн Эбельс, Франсуа Баттисте, Пеппер Бинкли, Джереми Дэвидсон, Кристиан Фрэзиер, Джон Гловер, Сальваторе Инзерилло, Джон Манчини, Марк МарголисПеревод: Многоголосый закадровый, профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:29:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D57E40867B9A4CC275B28544ECF8DA40D2051088
 ```
 
 https://mybot314.ru/tekegram_catalog/

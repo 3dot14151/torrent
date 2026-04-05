@@ -1,3 +1,119 @@
+###  Публикация: 1306098   (555823) от 03.06.2019
+
+VA - Super Strong Summer Deep House Tunes Top 100 (2019) [MP3|320 Kbps] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555823.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Hacer Hould - Backdoor 4:10
+002. Grupps - Welcome 4:10
+003. Gino Patricio - Cooper 4:12
+004. Gilbert Nouls - Medford 4:10(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 07:00:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F3439C31898A125452333DD0142CF0D92AC53C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306112   (555814) от 03.06.2019
+
+VA - Ibiza 2019 Borderline Audio (2019) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adam Sleyer - Drumatic (Original Mix)
+02. Carlo L - Corridor (Original Mix)
+03. Aka R - Storm Is Raging (Original Mix)
+04. Audio Sonus - Deep State (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 03:25:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D180BF9DA7ED71A9F765F4C669A893C08991B45E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306320   (555812) от 03.06.2019
+
+VA - On Air Deep & Soulful House Tunes (2019) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tom Novy - Closer to You (Paul Harris Remix)
+02. Armin Prayd - I Need Your Lovin (Space Terrasse Remake)
+03. Pesos - D'isco (Miqro Deep Mix)
+04. Joey Chicago - Always(   Читать дальше...   )Жанр: HouseПродолжительность: 03:07:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A22ACDFB245F34AC7861569A3F034605E4731E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306162   (555804) от 03.06.2019
+
+VA - Trance Euphoria Vol.4 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  TrancEye  -  When The Sun Goes Down (Radio Cut)
+02.  DJ Dean & K.Blank feat. Elaine Winter  -  Flashback (Rene Ablaze and Jam da Bass Radio Edit)
+03.  Arcania  -  This Means War (Radio Edit)
+04.  Jay & Symon  -  Aerify (Radio Edit)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:16:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88D26ED15F5BAB5E468103048AF00B38B0095053
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1306867   (555488) от 06.06.2019
 
 Robag Wruhme - Venq Tolep (2019) Pampa Records [FLAC|Lossless|WEB-DL|tracks] <Tech House, Minimal, House>
@@ -6,7 +122,7 @@ Robag Wruhme - Venq Tolep (2019) Pampa Records [FLAC|Lossless|WEB-DL|tracks] <Te
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555488.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Live @ quantumVALLEY, EDC Las Vegas (2019-05-18)[MP3|320 Kbps] <Trance>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555483.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Black Swan - Discography 12 Releases (2010-2019) Ethereal Symphony, Swan Plague 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555455.jpg" />
 </div>
 
 
@@ -90,7 +206,7 @@ VA - Live @ Liberation V2, Fabric London, United Kingdom 2019-05-04 [MP3|320 Kbp
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555375.jpg" />
 </div>
 
 
@@ -119,7 +235,7 @@ S.P.Y - Dubplate Style (2019) [MP3|320 Kbps] <Drum & Bass, Liquid Funk>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555356.jpg" />
 </div>
 
 
@@ -148,7 +264,7 @@ Avicii - TIM (2019) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555346.jpg" />
 </div>
 
 
@@ -177,7 +293,7 @@ The Chemical Brothers - No Geography (2019) Japanese Edition [MP3|320 Kbps] <Bre
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555331.jpg" />
 </div>
 
 
@@ -206,7 +322,7 @@ Ripperton - Contrails (2019) ESP Institute [FLAC|Lossless|WEB-DL|tracks] <Ambien
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555251.jpg" />
 </div>
 
 
@@ -235,7 +351,7 @@ Black Lung - The Great Manipulator (2019) Metropolis [FLAC|Lossless|WEB-DL|track
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555239.jpg" />
 </div>
 
 
@@ -264,7 +380,7 @@ Tom Adams - Particles (2019) Moderna Records [FLAC|Lossless|WEB-DL|tracks] <Mode
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555228.jpg" />
 </div>
 
 
@@ -293,7 +409,7 @@ Planet Supreme - Planet Supreme (2019) Ant-Zen [FLAC|Lossless|WEB-DL|tracks] <Am
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555216.jpg" />
 </div>
 
 
@@ -322,7 +438,7 @@ Miromiro (Microstatic, Punchaface) - Discography 5 Releases (2015-2019) Ngirungi
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555089.jpg" />
 </div>
 
 
@@ -351,7 +467,7 @@ Flying Cobra - Data (2019) Space Of Variants [FLAC|Lossless|WEB-DL|tracks] <Dub 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555079.jpg" />
 </div>
 
 
@@ -380,7 +496,7 @@ VA - Deep House Summer (2019) [MP3|320 Kbps] <House, Deep House, Progressive>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555072.jpg" />
 </div>
 
 
@@ -409,7 +525,7 @@ VA - Ibiza House Top 100 (2019) [MP3|320 Kbps] <House, Progressive House, Club H
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555071.jpg" />
 </div>
 
 
@@ -438,7 +554,7 @@ ScAnDroid Experiment's - Musica Adumbrari (2019) авторская раздач
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555020.jpg" />
 </div>
 
 
@@ -467,7 +583,7 @@ VA - Spiritual Chillout (2004) Compilation [FLAC|Lossless|tracks + .cue] <Downte
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554925.jpg" />
 </div>
 
 
@@ -496,7 +612,7 @@ VA - Sick Music 2018 (2018) Hospital Records [FLAC|Lossless|tracks+.cue] <Drum n
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554839.jpg" />
 </div>
 
 
@@ -525,7 +641,7 @@ Autism - Interval (2016) Segment [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Ex
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554764.jpg" />
 </div>
 
 
@@ -554,7 +670,7 @@ Yura Yura - 2 Albums (2013-2016) Hands Productions [FLAC|Lossless|tracks+.cue] <
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554753.jpg" />
 </div>
 
 
@@ -583,7 +699,7 @@ Aurelie - Desde Que Naci (2003) Swim ~ [FLAC|Lossless|WEB-DL|tracks] <Ambient, A
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554530.jpg" />
 </div>
 
 
@@ -612,7 +728,7 @@ VA - Deep House Party 2018 (Summer Vibes) [FLAC|Lossless|WEB-DL|tracks] <House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554257.jpg" />
 </div>
 
 
@@ -626,122 +742,6 @@ VA - Deep House Party 2018 (Summer Vibes) [FLAC|Lossless|WEB-DL|tracks] <House, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A79189B88E75B95255C418F18946BBE3CBBA5264
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308298   (554204) от 13.06.2019
-
-VA - Mykonos Sunsets (The Chill Out Beach Edition) (2019) [MP3|320 Kbps] <Easy Listening, Relax, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steen Thottrup;Denver Knoesen - A Silhouette Of You (Remastered) 5:01
-02. Mikis Theodorakis;Francesco Diaz - Remembering Zorbas (Original Mix) 5:08
-03. Dharma Frequency - Oriental Pleasure (Original Mix) 3:54
-04. Kuba - We Can Still Learn (Original Mix) 4:49(   Читать дальше...   )Жанр: Easy Listening, Relax, DowntempoПродолжительность: 01:58:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE1C58461208C21DC26BFCC922D3597C8BDB599E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308271   (554152) от 13.06.2019
-
-r.roo - mirroor (2019) Someone Records [FLAC 2.0|48/24|tracks|WEB-DL] <IDM, Techno, Downtempo, Experimental>
-
->>Electronic
->>Experimental, Industrial (Hi-Res)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. where we are (04:32)
-02. huh, Im so broken (04:54)
-03. Airship, yeah! (10:39)
-04. mountains scream (10:56)(   Читать дальше...   )Жанр: IDM, Techno, Downtempo, ExperimentalПродолжительность: 01:11:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18FF481C2642FEAC0A09C3653B1FCE65EE232E83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236726   (554055) от 19.07.2018
-
-Northern Lite - Old School Baby (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm So Glad (New Club Mix) (5:11)
- 02. Trusting Blind (New Club Mix) (5:37)
- 03. No Escape (New Club Mix) (5:27)
- 04. Reach the Sun (New Club Mix) (5:20)(   Читать дальше...   )Жанр: Electronic, SynthwaveПродолжительность: 00:29:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66C8B85B49DC393E2C7A739D91FA101B9E27EFFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236744   (554022) от 19.07.2018
-
-VA - Space Holidays Vol. 7 (2015) [FLAC|Lossless|WEB-DL|tracks] <Synth-pop, Spacesynth>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laserwave - Nightexpress (Snowy Christmas) (4:35)
-02. Holomatrix - A Star Was Born (4:44)
-03. Ernesto - Laser Coaster (4:38)
-04. Xain - Oneironauts (4:38)(   Читать дальше...   )Жанр: Synth-pop, SpacesynthПродолжительность: 02:58:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8929B40F7EC2830487F5D7A58153B754CA70379A
 ```
 
 https://mybot314.ru/tekegram_catalog/

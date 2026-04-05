@@ -1,3 +1,55 @@
+###  Публикация: 1669407   (172724) от 16.10.2023
+
+Valor & Victory (2021) [Ru/Multi] (1.07.06/dlc) Scene Skidrow
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172724.jpg" />
+</div>
+
+
+###  Подробнее
+
+Valor & Victory - это быстрая, легкая в изучении игра времен Второй мировой войны. Базируется на оригинальной настольной игре Valor & Victory. 19 сценариев, основанные на реальных исторических событиях, происходящие после высадки в Нормандии в 1944 году, ставят перед вами различные задачи: уничтожить врага, захватить объекты или вывести определенные отряды (   Читать дальше...   )Тип издания: SceneРазработчик: YobowargamesЖанр: Indie, StrategyЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC09B030CF5EECA99DB95361E4F72B4574123109
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670600   (171816) от 21.10.2023
+
+Hexarchy (2023) [Ru/Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hexarchy - стратегическая игра в быстром темпе. Сложные последовательности решений многочасовых пошаговых игр объединены в интенсивную игру длительностью один час. Игрокам предстоит строить города, возводить чудеса света, исследовать мир и завоёвывать его. Hexarchy предлагает систему одновременных ходов, делающую матчи ещё динамичней, а также однопользовательский (   Читать дальше...   )Тип издания: SceneРазработчик: Main Tank SoftwareЖанр: Indie, Simulation, StrategyЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABDA78301A9AAFF04FB218D6FD3F68F391AD2870
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1667376   (171301) от 24.10.2023
 
 Shadow Gambit: The Cursed Crew (2023) [Ru/Multi] (1.1.28r39001f) Scene Rune
@@ -6,7 +58,7 @@ Shadow Gambit: The Cursed Crew (2023) [Ru/Multi] (1.1.28r39001f) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171301.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Shadow Tactics: Blades of the Shogun - Aiko's Choice (2021) [Ru/Multi] (3.2.25.F
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168879.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Shadow Tactics: Blades of the Shogun - Aiko's Choice (2021) [Ru/Multi] (3.2.25.f
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168838.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Phoenix Point (2019) [Ru/Multi] (1.0.54518) Repack R.G. Механики
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167677.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Rogue Lords (2021) [Ru/Multi] (1.1.00/dlc) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167222.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Fantasy General II (2): Invasion (2019) [Ru/Multi] (01.02.12913.01/dlc) License 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161814.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Order of Battle: World War II (2) (2015) [Ru/Multi] (10.0.6.01/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161809.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Everyone Must Die: A Western Standoff (2023) [En] (1.0.1) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160754.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Nantucket (2018) [En] (1.4.1/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159983.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Worms Reloaded (2010) [Ru/En] (1.0.0.478/dlc) Repack Mizantrop1337 [Game of the 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151240.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Warhammer 40,000: Dawn of War II Chaos Rising (2009-2010) [Ru/Multi] (2.6.0.1024
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151020.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Tooth and Tail (2017) [Ru/Multi] (1.8.1.0) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150054.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Worms Revolution (2012) [Ru/En] (1.0.140/dlc) Repack Mizantrop1337 [Gold Edition
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149064.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Elven Legacy / Кодекс войны: Высшая раса (2009) [En] (1.0.9
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141977.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Tooth and Tail (2017) [Multi] (1.1.0.2) License PLAZA [Season 2]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139752.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Shadow Tactics: Blades of the Shogun (2016) [Ru/Multi] ( 2.2.10.f) License PROPH
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138374.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Shadow Tactics: Blades of the Shogun (2016) [Ru/Multi] (2.2.10.f) Repack R.G. Ca
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138328.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Helldorado (2009) [Multi] (2.00) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137521.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Last Train Home (2023) [Ru/Multi] (1.0.1) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133999.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Aliens: Dark Descent (2023) [Ru/Multi] (98246/dlc) Repack Decepticon
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128063.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Showgunners (2023) [Ru/Multi] (1.1.2_58602/dlc) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125558.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Field of Glory II (2) (2017) [Multi] (1.6.10/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122690.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Shadow Gambit: The Cursed Crew (2023) [Ru/Multi] (1.2.133.f.r40893/dlc) License 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121972.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Cliff Empire (2019) [Ru/Multi] (1.34) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121644.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Cliff Empire - небольшая экономическая стратегия.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B7330378C41C90AAFEFC4B57E0B6A3C5B158FB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698934   (118200) от 11.02.2024
-
-Master of Magic (2022) [Multi] (1.09.13/dlc) Scene Rune
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ремейк некогда классического проекта, который в свое время привлек внимание большого количества людей. Пользователям, как и прежде, предстоит пойти продолжительный путь по территории сразу двух соседних миров - Аркануса и Миррора, чтобы столкнуться с сильнейшими чародеями за звание сильнейшего. Всего на выбор предлагается 14 разных волшебников со своими уникальными (   Читать дальше...   )Тип издания: SceneРазработчик: MuHa Games, Eerie Forest StudioЖанр: Стратегия, Пошаговая, ФэнтeзиЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45ACD6EAB64FF588E72935823E7FDE9EB809AA21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699761   (117731) от 14.02.2024
-
-Europa Universalis IV (4) (2013) [Multi] (1.36.2/dlc) Scene Rune
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117731.jpg" />
-</div>
-
-
-###  Подробнее
-
-Europa Universalis IV – продолжение знаменитой серии стратегий от Paradox Interactive. В этой части серьезно улучшена карта, которая теперь сделана полностью в 3D, усовершенствована торговая система, добавлено больше гибкости в развитии государства, а также переделан интерфейс. Кроме этого Europa Universalis IV содержит больше исторических событий, земель и личностей, (   Читать дальше...   )Тип издания: SceneРазработчик: Paradox Development Studio, Paradox TintoЖанр: Симуляторы, СтратегииЯзык субтитров: Английский, Немецкий, Французский, ИспанскийЯзык интерфейса: Английский, Немецкий, Французский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82371F00E93C908591A0E1A750C04F3DCE0F6D4B
 ```
 
 https://mybot314.ru/tekegram_catalog/

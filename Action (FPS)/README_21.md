@@ -1,3 +1,55 @@
+###  Публикация: 1309101   (552682) от 17.06.2019
+
+S.T.A.L.K.E.R.: Clear Sky / S.T.A.L.K.E.R.: Чистое небо (2008) [Ru/Multi] (1.5.10) Steam-Rip ORiGiNS
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552682.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет «S.T.A.L.K.E.R.: Чистое Небо» переносит игроков за год до событий оригинальной игры S.T.A.L.K.E.R. в 2011 год. Группа сталкеров впервые подобралась к самому сердцу Зоны - Чернобыльской АЭС, спровоцировав катаклизм, который едва не привел к катастрофе. Грандиозный Выброс аномальной энергии изменяет Зону. Проверенных и относительно безопасных дорог больше нет. (   Читать дальше...   )Тип издания: Steam-RipРазработчик: GSC Game WorldЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, Украинский, Английский, Немецкий и другиеЯзык субтитров: Русский, Украинский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Украинский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD23EA2A0EAE59F2582646FDCA2E91A44FDB3E39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136361   (551705) от 18.06.2019
+
+Call of Juarez: Gunslinger (2013) [Ru/Multi] (1.0.5/dlc) Repack Other s
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551705.jpg" />
+</div>
+
+
+###  Подробнее
+
+Call of Juarez The Gunslinger перенесет вас на просторы легендарного Дикого Запада - место, где царит неповторимая атмосфера беззакония и жестокости. Вживайтесь в роль безжалостного охотника за головами, отыщите и пристрелите самых отъявленных негодяев. Вам предстоит побывать в грязных салунах, золотых шахтах и многих других местах, где могут укрываться бандиты. (   Читать дальше...   )Тип издания: RepackРазработчик: TechlandЖанр: Adventure, Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABD5A488D57156CA0C229729DDC62298469B3841
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1136519   (551702) от 18.06.2019
 
 Call of Juarez: The Cartel (2011) [Ru/Multi] (1.1.12) Rip Other s
@@ -6,7 +58,7 @@ Call of Juarez: The Cartel (2011) [Ru/Multi] (1.1.12) Rip Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551702.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ S.T.A.L.K.E.R.: Call of Pripyat / S.T.A.L.K.E.R.: Зов Припяти (2009) [
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551701.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ Phantaruk (2016) [Ru/Multi] (1.4.1) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549795.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ Before Nightfall (2018) [Ru/En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546915.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ Frontlines: Fuel of War (2008) [Ru/En] (1.3.0) Rip R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543967.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ Hotel 19-95 (2017) [En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542362.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ Redneck Rampage Collection (1997) [En] (1.01/1.0/1.01/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542086.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ Painkiller: Redemption / Painkiller: Искупление (2011) [Ru/En] (1.05f)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540418.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ Starship Troopers / Звездный десант [Ru] (RePack) 2005 | PUNISHER
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540286.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ Ziggurat (2014) [Ru/Multi] (31.07.2017) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538476.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ Battlezone: Combat Commander (2018) [En/Ge/Fr] (2.0.180) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538195.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ Inner Chains (2017) [Ru/Multi] (2.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534733.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ Star Wars: Jedi Knight 2 - Jedi Outcast (2002) [Ru/En] (1.04) Rip R.G. Меха�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534688.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ Star Wars: Republic Commando (2005) [Ru/En] (1.0) Rip R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534683.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ Star Wars: Jedi Knight - Jedi Academy (2003) [Ru/En] (1.01) Rip R.G. Механ�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534677.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ Star Wars: Battlefront 2 (2005) [En] (1.1) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534673.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ Slime Rancher (2017) [Ru/Multi] (1.0.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533032.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ Titanfall 2 (2016) [Ru] (2.0.7.0) Rip Other s [Digital Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532887.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ Dusk (2018) [En] (1.0) License SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530348.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ Descent - Silence of Mind (2017) [En] (1.0) License SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529355.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ Requiem: Avenging Angel (1999) [Ru/En] (1.3) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528770.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ Turok 2: Seeds of Evil - Remastered (2017) [Multi] (1.5.6/upd4) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528316.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ Metro Redux Dilogy (2014) [Ru/Multi] (1.0.0.3/1.0.0.3) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527699.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ Space Hulk: Deathwing (2016) [Multi] (1.74) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_526814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526814.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ Space Hulk: Deathwing – игра в жанре шутер от первого 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71044CB6BD7299E1EF1325C486EF864035A9C504
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927587   (523773) от 14.08.2015
-
-Battlefield Hardline (2015) [Ru/Multi] (1.07.15.00) License CPY
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Battlefield Hardline – это знаменитые сетевые режимы Battlefield и "захватывающая" сюжетная кампания в жанре криминального боевика. Мир, где копы противостоят бандитам. Можно грабить инкассаторские грузовики или спасать заложников. По какую сторону закона хотите вершить свои дела вы?Тип издания: ЛицензияРазработчик: Visceral GamesЖанр: Action / 3D / 1st PersonЯзык озвучки: Русский, Английский, Французский, Итальянский, Немецкий, Испанский, Бразильский, Корейский, Китайский, Чешский, Японский, ПольскийЯзык субтитров: Русский, Английский, Французский, Итальянский, Немецкий, Испанский, Бразильский, Корейский, Китайский, Чешский, Японский, ПольскийЯзык интерфейса: Русский, Английский, Французский, Итальянский, Немецкий, Испанский, Бразильский, Корейский, Китайский, Чешский, Японский, Польский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:384EF53BB015812E75CE9BD3715C51EFD61356F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 534174   (520860) от 12.08.2012
-
-Hexen и Hexen: Deathkings of the Dark Citadel [En] (RePack/1.01) 1995 | RG games/Pilotus
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520860.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тип издания: RePackРазработчик: Raven SoftwareЖанр: Шутер от первого лицаЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

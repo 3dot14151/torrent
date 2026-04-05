@@ -1,3 +1,31 @@
+###  Публикация: 1205629   (783452) от 10.02.2018
+
+TripMode 2.1.1 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783452.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мобильный интернет имеет свойство быстро заканчиваться, и часто это происходит нелепо: macOS установит обновления, Transmission загрузит новые сериалы, iCloud синхронизирует пару сотен мегабайт фотографий и вот уже месячного лимита как не бывало.
+
+Самостоятельно отслеживать запущенный приложения нереально, по этому лучше получить эту задачу специальной утилите. TripMode (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.02.2018Разработчик: TripModeПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0DEF7A75C351B6FC4FCAF84BB49C1FC5E2E98D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1390994   (781927) от 18.06.2020
 
 Fileloupe - Media Browser 1.7.3 [En]
@@ -6,7 +34,7 @@ Fileloupe - Media Browser 1.7.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781927.jpg" />
 </div>
 
 
@@ -33,7 +61,7 @@ Living Weather & Wallpapers HD 4.4.4 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781426.jpg" />
 </div>
 
 
@@ -59,7 +87,7 @@ Malwarebytes for Mac Premium 3.2.35 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781212.jpg" />
 </div>
 
 
@@ -87,7 +115,7 @@ RoboDB MySQL Database Manager 1.0.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779959.jpg" />
 </div>
 
 
@@ -113,7 +141,7 @@ Yummy FTP Alias 2.2.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778367.jpg" />
 </div>
 
 
@@ -139,7 +167,7 @@ Digital Clock 3D 1.1.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777781.jpg" />
 </div>
 
 
@@ -165,7 +193,7 @@ Forecast 2.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776930.jpg" />
 </div>
 
 
@@ -194,7 +222,7 @@ App Uninstaller 4.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776509.jpg" />
 </div>
 
 
@@ -220,7 +248,7 @@ PhoneExpander 1.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776371.jpg" />
 </div>
 
 
@@ -248,7 +276,7 @@ Mojave Cache Cleaner 12.0.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774225.jpg" />
 </div>
 
 
@@ -276,7 +304,7 @@ Aquarium 4K - Live Wallpaper 1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774217.jpg" />
 </div>
 
 
@@ -302,7 +330,7 @@ Jetico BestCrypt 2.0.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774050.jpg" />
 </div>
 
 
@@ -328,7 +356,7 @@ Cabinet - Quick access for your photos 1.0.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772981.jpg" />
 </div>
 
 
@@ -357,7 +385,7 @@ iStatistica 1.2.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771482.jpg" />
 </div>
 
 
@@ -386,7 +414,7 @@ Tooth Fairy 2.6.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770687.jpg" />
 </div>
 
 
@@ -413,7 +441,7 @@ OS X Server 4.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769596.jpg" />
 </div>
 
 
@@ -441,7 +469,7 @@ iClipboard 6.0.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769539.jpg" />
 </div>
 
 
@@ -470,7 +498,7 @@ Periscope Pro 3.2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769532.jpg" />
 </div>
 
 
@@ -499,7 +527,7 @@ Wondershare Dr.Fone for iOS 7.0.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769438.jpg" />
 </div>
 
 
@@ -526,7 +554,7 @@ UninstallPKG 1.1.7 (build 1343) [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769370.jpg" />
 </div>
 
 
@@ -554,7 +582,7 @@ Dr. Cleaner Pro 1.1.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768681.jpg" />
 </div>
 
 
@@ -582,7 +610,7 @@ Trim Enabler Pro 3.6.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767893.jpg" />
 </div>
 
 
@@ -608,7 +636,7 @@ WindowMizer 5 v5.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767842.jpg" />
 </div>
 
 
@@ -637,7 +665,7 @@ Yummy FTP Pro 2.0.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765714.jpg" />
 </div>
 
 
@@ -663,7 +691,7 @@ TunesKit iPhone Data Recovery 2.2.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765326.jpg" />
 </div>
 
 
@@ -676,33 +704,6 @@ TunesKit iPhone Data Recovery 2.2.0 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2898B4C52B91B7C76DB50A69500E3C7FB596C88F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126719   (764616) от 19.04.2017
-
-Lingon X 4.3.8 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764616.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lingon X  - автоматический запуск приложений и сценариев
-Lingon позволяет визуально создавать файлы автозагрузки, которые используются для запуска приложений и скриптов автоматически при загрузке Mac OS X. Список всех программ выносится в таблицу, где его удобно редактировать. Тут же отображается статус каждой программы: чем она занимается, работает ли в данный момент (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: апрель 2017Разработчик: Peter Borg Apps ABПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Русский, Английский, Немецкий  и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED6BB1C154BC303740F7D11DE220FB7593A56B49
 ```
 
 https://mybot314.ru/tekegram_catalog/

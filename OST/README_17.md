@@ -1,32 +1,3 @@
-###  Публикация: 1168914   (401216) от 29.09.2017
-
-Two Steps From Hell - Unleashed (2017) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unleashed (feat. Merethe Soltvedt) [05:25]
-02. One Above All (feat. C.C. White & Felicia Farerre) [03:49]
-03. Impossible (feat. Merethe Soltvedt) [08:55]
-04. Rune (feat. Uyanga Bold) [03:34](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 03:56:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3DCD735EA65BD086F5C246400152F1B9EDE0E92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1170586   (399290) от 01.10.2017
 
 VA - Pulp Fiction (Collector's Edition) (2002) [MP3|320 Kbps] <Soundtrack>
@@ -35,7 +6,7 @@ VA - Pulp Fiction (Collector's Edition) (2002) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399290.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - Men in Black (1997) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398628.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Danny Elfman - Men In Black (1997) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397697.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ VA - Music In Love, Movie Collection Vol. 1 (2017) [MP3|320 Kbps] <Soundtrack, E
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397682.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Randy Newman - Maverick (1995) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396779.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ David Arnold - Stargate (The Deluxe Edition) (2006) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396734.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Joel Goldsmith - Stargate: Atlantis (2005) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396680.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Nino Rota & Carmine Coppola - The Godfather Trilogy I - II - III: 30th Anniversa
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396560.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Harald Kloser - The Day After Tomorrow (2004) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395754.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ VA - La Femme Nikita (TV Series) (1998) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395703.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Thomas Newman - The Shawshank Redemption (1994) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395697.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Kristofer Maddigan - Cuphead - Original Soundtrack (2017) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392902.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Neil Davidge - Halo 4. Original Soundtrack (Special Digital Edition) (2012) [MP3
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391533.jpg" />
 </div>
 
 
@@ -418,7 +389,7 @@ Lorne Balfe - Assassin's Creed 3 (2012) [MP3|320 кб/с]<Game OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390696.jpg" />
 </div>
 
 
@@ -453,7 +424,7 @@ Need for Speed Most Wanted  (2012) [MP3|320 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390602.jpg" />
 </div>
 
 
@@ -488,7 +459,7 @@ Carter Burwell - Seven Psychopaths (Семь психопатов) (2012) [MP3|3
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389891.jpg" />
 </div>
 
 
@@ -517,7 +488,7 @@ Carpenter Brut - Blood Machines / Кровь машин (Original Motion Picture
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383305.jpg" />
 </div>
 
 
@@ -546,7 +517,7 @@ Gianni Marchetti - Le Notti Porno Nel Mondo N. 2 (Original Motion Picture Soundt
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380281.jpg" />
 </div>
 
 
@@ -575,7 +546,7 @@ Ramin Djawadi - Westworld / Мир Дикого Запада: Season 1 (Selectio
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377887.jpg" />
 </div>
 
 
@@ -604,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377656.jpg" />
 </div>
 
 
@@ -639,7 +610,7 @@ Paul Haslinger - Halt and Catch Fire (2016) [MP3|320 Kbps] <Soundtrack, Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376456.jpg" />
 </div>
 
 
@@ -668,7 +639,7 @@ Hans Zimmer - Themyscira (From Wonder Woman 1984: Original Soundtrack) (2020) [M
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376341.jpg" />
 </div>
 
 
@@ -694,7 +665,7 @@ Howard Drossin & RZA - Человек с железными кулаками (20
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375454.jpg" />
 </div>
 
 
@@ -724,7 +695,7 @@ James Newton Howard - Fantastic Beasts and Where to Find Them / Фантасти
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373682.jpg" />
 </div>
 
 
@@ -753,7 +724,7 @@ Hans Zimmer - Eclipse (From Dune: Original Motion Picture Soundtrack) [Trailer V
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371566.jpg" />
 </div>
 
 
@@ -764,6 +735,35 @@ Hans Zimmer - Eclipse (From Dune: Original Motion Picture Soundtrack) [Trailer V
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:795F54AB66CD149E53EEBD9FED64F05053E76019
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 252174   (370985) от 01.11.2010
+
+VA - Музыка Экрана. Коллекция Ридерз Дайджест (2008) 3CD [MP3|320 kbps] <Soundtrack, Classical>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник популярных мелодий из кинофильмов несомненно украсит ваш досуг. Поможет насладиться мелодиями и песнями в исполнении лучших современных оркестров и музыкантов, окунуться в атмосферу приятных воспоминаний о любимых фильмах, и вновь пережить самые волнующие моменты. CD 1 - Незабываемые 60-70-е; CD 2 - Мелодии любви; CD 3 - Шедевры кинематографа.01. из к/ф "Афера"
+02. из к/ф "Выпускник"
+03. из м/ф "Розовая пантера"
+04. из к/ф "Бонни и Клайд"(   Читать дальше...   )Жанр: Soundtrack, ClassicalПродолжительность: 03:24:46
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

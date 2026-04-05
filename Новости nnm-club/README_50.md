@@ -1,3 +1,29 @@
+###  Публикация: 1360374   (884550) от 03.04.2020
+
+Нам надо серьезно поговорить (2020) WEB-DLRip (выпуски 1-9 из ??) (обновляемая)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884550.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Нам надо серьезно поговорить» — это шоу, созданное в уникальном формате, которого еще не было на российском телевидении. По словам создателей передачи, это смесь стендапа и социального реалити. Героями шоу становятся настоящие влюбленные пары, которые испытывают знакомые многим россиянам проблемы в отношениях. По словам Юлии Ахмедовой, она станет неким проводником (   Читать дальше...   )Производство: Россия / Comedy Club ProductionЖанр: ТВ-шоу, юморСубтитры: ОтсутствуютПродолжительность: ~00:23:00 выпуск
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A89660E45B14985920D0E6668C56AC20DF3ED7DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493731   (884034) от 10.09.2021
 
 Госорганы стали чаще обращаться к «Яндексу» с целью раскрытия личных данных пользователей
@@ -6,7 +32,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884034.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ The Medium (2021) [Ru/Multi] (1.0.184) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883569.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883564.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883264.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ EZ CD Audio Converter 9.1.1.1 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883139.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ Boku no Hero Academia (2019) | My Hero Academia Season 4 | Моя геройск
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883042.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Windows 10 1909 (18363.753) x64 Home + Pro + Enterprise (3in1) by Brux v.03.2020
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883038.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883009.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882990.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882886.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882685.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ South Park: The Stick of Truth [XBOX360] [RUS] [PAL] [LT+1.9] (XGD2 / 16537) (20
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882673.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ Highlights School | Цветокоррекция и тонирование в Ph
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882194.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ Highlights School | Секреты творческой фотографии (20
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882193.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ Bleach / Блич (2004, TV, 366 + 2 OVA + 4 Movies) DVDRip/HDTVRip/BDRip 480/72
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882190.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881338.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ MInstAll v.02.04.2020 By Andreyonohov & Leha342 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881322.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881296.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_880690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_880690.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880675.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880671.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_880585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_880585.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880499.jpg" />
 </div>
 
 
@@ -617,7 +643,7 @@ Manjaro Linux 16.02(03) (Arch + LXQt, Cinnamon) [i386, x86-64] 3xDVD, 1xCD
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880301.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ Abelssoft SSD Fresh Plus 2021 10.05 Portable by zeka.k [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880266.jpg" />
 </div>
 
 
@@ -654,32 +680,6 @@ Abelssoft SSD Fresh - если вы счастливый обладатель SS
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D8DF401901AAB6B03A489347F117FAEA9D78372
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996132   (880265) от 13.03.2016
-
-Pinnacle Studio Ultimate 19.1.3 + Bonus Content [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880265.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеоредактор Pinnacle Studio 19 Ultimate очень популярен среди пользователей, которые занимаются созданием и редактированием видеоконтента. Представляем обновленную версию этой программы от мирового лидера в сфере профессиональных видео- и аудиотехнологий - компании Corel. Скорость просчета в новой версии возросла до 10-ти раз благодаря обновленному «движку» и поддержке (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FDE1FD564A2D9754517A8BA4492DE53DE3A026E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,134 @@
+###  Публикация: 979639   (957189) от 28.01.2016
+
+Четвертый протокол / The Fourth Protocol (1987) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957189.jpg" />
+</div>
+
+
+###  Подробнее
+
+Название фильма связано с секретным соглашением между ядерными державами, предусматривающим отказ от попыток тайного провоза ядерных взрывных устройств на чужую территорию.
+Британский контрразведчик Джон Престон обнаруживает в багаже человека, убитого в стычке с таможенной службой, детали, очевидно, предназначенные для сборки атомного взрывного устройства. Начальство (   Читать дальше...   )Производство: Великобритания, Rank Film DistributorsЖанр: ТриллерРежиссер: Джон МаккензиАктеры: Майкл Кейн, Пирс Броснан, Нед Битти, Джоанна Кэссиди, Джулиан Гловер, Майкл Гоф, Рэй МакЭнэлли, Иэн Ричардсон, Антон Роджерс, Кэролайн БлэкистонПеревод: Многоголосый закадровыйПродолжительность: 01:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:473207094A2980C7296E9D0EA3242EA2EDECB734
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980106   (956901) от 28.01.2016
+
+Долина ультрамегер / Beneath the Valley of the Ultra-Vixens (1979) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все жители маленького американского городка только и думают о сексе. Самой ненасытной из всех является мулатка Лавония, что приводит к целой серии гротескных эротических эпизодов.Производство: США / RM Films InternationalЖанр: Комедия, ЭротикаРежиссер: Расс МайерАктеры: Киттен Нативидад, Энн Мари, Кен Керр, Джун Мак, Патрик Райт, Генри Роулэнд, Роберт Э. Пирсон, Майкл Финн, Шэрон Хилл, Дон СкарбороПеревод: Одноголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:32:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D961CC2060804021263201D95B2985F391EE8D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361145   (956841) от 18.02.2020
+
+Студенческие каникулы / Fraternity Vacation (1985) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956841.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первокурсник юридического колледжа Уэнделл скромен и неловок. Поэтому отношения с девушками у него не складываются никак. Папа Уэнделла не выдерживает и финансирует поездку сына и его двух старших товарищей Мамочку и Джо на курорт. «Ветераны любовного фронта» должны ему помочь, тем более, что есть ради чего стараться. В Палм Спрингсе они встречают конкурирующую компанию (   Читать дальше...   )Производство: США / New World PicturesЖанр: КомедияРежиссер: Джеймс ФроулиАктеры: Стивен Джеффрис, Шири Дж. Уилсон, Кэмерон Дай, Ли МакКлоски, Тим Роббинс, Мэтт МакКой, Аманда Бирз, Джон Вернон, Нита Талбот, Барбара Крэмптон, Кэтлин КинмонтПеревод: Двуголосый профессиональный, одноголосый профессиональныйСубтитры: АнглийскиеПродолжительность: 01:34:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16953B65E174614CC3F22D71AC47AB5D25892730
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361235   (956774) от 18.02.2020
+
+Под водой! / Underwater! (1955) HDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956774.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два друга-аквалангиста, Ричард и Доминик, осуществляя погружение в Карибском море, обнаруживают на дне испанское судно 17-го века. Вернувшись в город они нанимают яхту и, прихватив с собой подруг Терезу и Глорию, отправляются в опасное путешествие, на поиски сокровищ затонувшего галеона.Производство: США / RKO Radio Pictures Inc.Жанр: Драма, ПриключенияРежиссер: Джон СтёрджесАктеры: Джейн Расселл, Гилберт Роланд, Ричард Иган, Лори Нельсон, Роберт Кит, Джозеф Каллейа, Юджин Иглесиас, Рик Роман, Дамасо Перез Прадо, Дэн БернадуччиПеревод: Одноголосый любительский (Andi999)Субтитры: ОтсутствуютПродолжительность: 01:39:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1BFC4762FA4A50618B4E4834C695E7E7E62092A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 749363   (954847) от 25.01.2014
+
+Хранитель пламени / Keeper of the Flame (1942) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954847.jpg" />
+</div>
+
+
+###  Подробнее
+
+В автокатастрофе погиб национальный герой Роберт Форрест, и вся Америка погрузилась в траур. Из Европы возвращается его горячий поклонник журналист Стив О`Мэлли, с намерением написать биографию этого великого человека, однако вскоре он приходит к убеждению, что вдова Кристин Форрест скрывает какую-то тайну…Жанр: Драма, ДетективРежиссер: Джордж КьюкорАктеры: Спенсер Трэйси, Кэтрин Хепберн, Ричард Хорф, Маргарет Вичерли, Форрест Такер, Фрэнк Крэвен, Стефен МакНалли, Перси Килбрайд, Одри Кристи, Дэррил ХикманПеревод: Одноголосый закадровыйПродолжительность: 01:40:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4C068A0696EA2D137B4FDCB57BE900EFCC0120C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 749355   (954845) от 25.01.2014
 
 Хранитель пламени / Keeper of the Flame (1942) DVDRip
@@ -6,7 +137,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954845.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954740.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954253.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954134.jpg" />
 </div>
 
 
@@ -110,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954061.jpg" />
 </div>
 
 
@@ -136,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953645.jpg" />
 </div>
 
 
@@ -163,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952713.jpg" />
 </div>
 
 
@@ -189,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952613.jpg" />
 </div>
 
 
@@ -215,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952137.jpg" />
 </div>
 
 
@@ -242,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951980.jpg" />
 </div>
 
 
@@ -269,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951976.jpg" />
 </div>
 
 
@@ -295,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951788.jpg" />
 </div>
 
 
@@ -321,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951357.jpg" />
 </div>
 
 
@@ -347,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951342.jpg" />
 </div>
 
 
@@ -373,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951196.jpg" />
 </div>
 
 
@@ -399,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950795.jpg" />
 </div>
 
 
@@ -426,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950721.jpg" />
 </div>
 
 
@@ -453,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950327.jpg" />
 </div>
 
 
@@ -479,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950308.jpg" />
 </div>
 
 
@@ -505,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950287.jpg" />
 </div>
 
 
@@ -531,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950080.jpg" />
 </div>
 
 
@@ -542,136 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C41519E276EAAF60DB68A702AEFAE17CE26BA61F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 858155   (948536) от 11.01.2015
-
-Без единой улики / Without A Clue (1988) HDTVRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948536.jpg" />
-</div>
-
-
-###  Подробнее
-
-По сюжету этого фильма — никакого Шерлока Холмса нет, преступления раскрывает сам доктор Ватсон. Рассказы о Шерлоке Холмсе он пишет, чтобы его приняли преподавать в институт, считая, что там не одобрят его дедуктивное хобби. Должность Ватсон так и не получает, но Холмс становится невероятно популярен, и Ватсона просят предъявить героя. Для исполнения роли сыщика (   Читать дальше...   )Жанр: Комедия, ДетективРежиссер: Том ЭберхардтАктеры: Бен Кингсли , Майкл Кэйн , Джеффри Джонс , Лизетт Энтони , Пол Фримен , Пат Кин , Тим КилликПеревод: Дублированный, Двухголосый, МногоголосыйПродолжительность: 01:46:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6BF88D83F22691D3C42B07BF11654329703009C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982237   (948262) от 03.02.2016
-
-Смерть зимой / Dead of Winter (1987) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948262.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая нью-йоркская актриса Кэти получает приглашение на пробы, что вполне может стать шансом ее жизни. Она попадает в заснеженный викторианский особняк в Канаде, в котором живут двое мужчин. Начинаются странные вещи — отключается телефон, машина не заводится. Кэти в ловушке, и все превращается в игру интриг и черного кошмара.Производство: СШАЖанр: Ужасы, Триллер, ДрамаРежиссер: Артур ПеннАктеры: Мэри Стинберген, Родди МакДауэлл, Ян Рубес, Уильям Расс, Кен Поуг, Уэйн Робсон, Марк Мэлоун, Майкл Коупмен, Сэм Малкин, Памела МоллерПеревод: Профессиональный (многоголосый закадровый) ТВ3, Профессиональный (многоголосый закадровый) ОРТ, Профессиональный (двухголосый закадровый) НТВ+, Авторский (одноголосый закадровый) А. МихалевЯзык субтитров: АнглийскийПродолжительность: 01:40:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FD90A982F90448E769E7B51E0DB5E214D02AFC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362598   (948072) от 24.02.2020
-
-Одинокий рейнджер / The Lone Ranger (1956) WEB-DLRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джон Рейд, Техасский рейнджер, единственный среди друзей чудом выживший в жестокой засаде, брошен умирать в пустыне. Но случайно оказавшийся неподалеку индеец своими заговорами и травами выхаживает раненого, после чего тот становится ярым мстителем для убийц своих товарищей.Производство: США / Wrather Productions Inc.Жанр: Боевик, Драма, Приключения, ВестернРежиссер: Стюарт ХейслерАктеры: Клейтон Мур, Джей Сильверхилс, Лайл Беттгер, Бонита Грэнвилл, Перри Лопес, Роберт Дж. Уилки, Джон Пиккард, Беверли Уошберн, Майкл Ансара, Фрэнк ДеКова, Чарльз Мередит, Мики Симпсон, Зон Мюррэй, Лэйн ЧандлерПеревод: Дублированный, многоголосый профессиональныйСубтитры: Русские (Forced, Full), английскиеПродолжительность: 01:26:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDD52D9EC2ED8F5A83B6C55A1487A3EE2ABA6C0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981940   (947904) от 03.02.2016
-
-Французские секс-убийства / Casa d'appuntamento (1972) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947904.jpg" />
-</div>
-
-
-###  Подробнее
-
-В одном из парижских борделей убивают проститутку и подозрение закономерно падает на последнего ее клиента, психически нестабильного вора-домушника Антуана. Полиция вскоре хватает преступника, а суд признает его виновным, приговаривая к смертной казни. В своем последнем слове Антуан кричит, что невиновен, и проклинает всех, кто был замешан в его поимке, обещая им (   Читать дальше...   )Производство: Италия, Германия (ФРГ) / Costantino International Films, Gopa-FilmЖанр: Ужасы, ТриллерРежиссер: Фердинандо МеригиАктеры: Анита Экберг, Розальба Нери, Эвелин Крафт, Говард Вернон, Пьетро Мартелланца, Барбара Буше, Роберт Сакки, Ева Астор, Ренато Романо, Рольф ЭденПеревод: Одноголосый закадровыйПродолжительность: 01:21:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FC0C793656BCB040454CC82E7C0C7E72F168C78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362465   (947664) от 24.02.2020
-
-Беги, дева, беги / Die Jungfrauen von Bumshausen / Run Virginia Run (1970) DVDRip [VO] [PR]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947664.jpg" />
-</div>
-
-
-###  Подробнее
-
-Городок Фоклерхаузен, каких много, с одним очень важным исключением — женщины здесь, по большей части, молоды, а мужья у них стары и всё же им удается заделывать детей. В чем их секрет? Такая удивительная потомственность называется Ферном, особым юго-западным ветром…Производство: Германия (ФРГ), Romano filmЖанр: КомедияРежиссер: Ханс БиллианАктеры: Joav Jasinski, Maria Brockerhoff, Хельга Тёлле, Михаэлла Мартин, Реджина Уолтер, Ингрид Симон, Christine Kuon, Карин Глиер, Астрид Бонер, Kurt GroßkurthПеревод: Одноголосый любительскийСубтитры: ОтсутствуютПродолжительность: 01:29:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31605AF577C35BF1197233A2C5157BA139006A95
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,133 +1,3 @@
-###  Публикация: 1839584   (1046591) от 29.11.2025
-
-А.Р. Апресян | История и теория современного искусства от Британского авангарда до Бэнкси [конспект лекций] (2022) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046591.jpg" />
-</div>
-
-
-###  Подробнее
-
-В декабре 2019 года на ярмарке «Арт-Базель» в Майами галерея Perrotin представила работу итальянского художника Маурицио Каттелана «Комедиант», которая моментально прославилась на весь мир. Обычный банан, приклеенный к стене куском армированного скотча, был оценен в 120 тысяч долларов и в считанные часы сделался наиболее обсуждаемым и цитируемым арт-объектом года. (   Читать дальше...   )Жанр: Искусствоведение, учебное пособиеИздательство: Teach-In. Лекции ученых МГУФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B89B7874936489CB3CD54ACAB3BCF2D416A77FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839581   (1046590) от 29.11.2025
-
-О.М. Седых | Культурная антропология [конспект лекций] (2023) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046590.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс посвящен актуальным проблемам современной культурной антропологии. Особое внимание уделяется истории антропологической теории в свете истории культуры и философской мысли. Рассматриваются такие концепции, как: морфология сказки Проппа, теория архетипов Юнга, мономиф в "Тысячеликом герое" Кэмпбелла и "Звездных войнах" Лукаса, и многие другие. (   Читать дальше...   )Жанр: Антропология, культурология, учебное пособиеИздательство: Teach-In. Лекции ученых МГУФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB081BF39202B878653801CD8837E7897757D78E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838951   (1046586) от 29.11.2025
-
-А.С. Ахматов (ред.) | Физика (1965) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет собой перевод изданных в США в 1960 г. `Учебника по физике` и `Руководства по лабораторным работам` для средних школ. `Учебник` и `Руководство` созданы большим коллективом физиков - педагогов средней и высшей школы - по инициативе Массачусетского технологического института под общим руководством Комитета содействия изучению физики. Эта книга охватывает (   Читать дальше...   )Жанр: ФизикаИздательство: НаукаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B086C429CFCD86A5DBC0498D4F9D73854FB2C2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839414   (1046562) от 28.11.2025
-
-Проект Архангел | Виды дронов. Устройство. Сборка (2024) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046562.jpg" />
-</div>
-
-
-###  Подробнее
-
-FPV-дроны широко используются как украинские, так и российские войска. Эти беспилотные летательные аппараты имеют многочисленные преимущества перед обычными квадрокоптерами, поэтому инженеры смогли адаптировать их для использования в качестве оружия. На фронте FPV-дроны становятся все популярнее. Понятно, что такие беспилотники, оснащенные функцией под названием (   Читать дальше...   )Жанр: Методическая литература, учебное пособиеИздательство: СамиздатФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13693E95E784F60B4970BCC8CD61392E2333569F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839431   (1046557) от 28.11.2025
-
-М.И. Свидерская | Пространственные искусства в западноевропейской культуре Нового времени [конспект лекций] (2021) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046557.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный курс посвящен изучению основных тенденций в живописи, скульптуре и архитектуре Нового времени, включая зарождение новых техник и подходов к искусству. Описываются ключевые стили, такие как барокко, классицизм, академизм и т.д., и их влияние на художественное творчество. Рассматривается связь искусства с общественными, религиозными и политическими процессами (   Читать дальше...   )Жанр: Искусствоведение, учебное пособиеИздательство: Teach-In. Лекции ученых МГУФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81D5C30BF7291F0C2BD43E9BA168F40BACF81371
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1839447   (1046551) от 29.11.2025
 
 Ф.И. Гиренок | Философия русского искусства [конспект лекций] (2022) [PDF]
@@ -136,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046551.jpg" />
 </div>
 
 
@@ -162,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046477.jpg" />
 </div>
 
 
@@ -189,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046191.jpg" />
 </div>
 
 
@@ -216,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046183.jpg" />
 </div>
 
 
@@ -242,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046182.jpg" />
 </div>
 
 
@@ -268,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046096.jpg" />
 </div>
 
 
@@ -294,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046092.jpg" />
 </div>
 
 
@@ -320,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045723.jpg" />
 </div>
 
 
@@ -346,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045473.jpg" />
 </div>
 
 
@@ -372,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045380.jpg" />
 </div>
 
 
@@ -398,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045362.jpg" />
 </div>
 
 
@@ -424,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045191.jpg" />
 </div>
 
 
@@ -450,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045179.jpg" />
 </div>
 
 
@@ -476,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045156.jpg" />
 </div>
 
 
@@ -502,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045137.jpg" />
 </div>
 
 
@@ -530,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045135.jpg" />
 </div>
 
 
@@ -557,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045020.jpg" />
 </div>
 
 
@@ -583,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045019.jpg" />
 </div>
 
 
@@ -609,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044909.jpg" />
 </div>
 
 
@@ -635,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044848.jpg" />
 </div>
 
 
@@ -662,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044701.jpg" />
 </div>
 
 
@@ -675,6 +545,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2FD9039B8EA6FB3A48CC763FA3A89DA72EC2A4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605862   (1044687) от 19.01.2023
+
+Михаил Афанасьевич Булгаков | Мастер и Маргарита. Книга для чтения на английском языке (2020) [PDF, FB2, EPUB, MOBI] [En]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044687.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман, написанный в течение одного из самых мрачных десятилетий двадцатого века, отражает сложную историческую эпоху и настроения советского общества тех времен. Бог и дьявол, добро и зло, творчество и гибель – в романе множество сюжетных линий, противоречивых героев, поступки которых неоднозначны и вызывают у читателя и грусть, и смех, и желание открывать роман (   Читать дальше...   )Жанр: литература 20 века, советская литератураПеревод: Хью Аплин (с русского языка)Язык: АнглийскийФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:854BCEDF85BC1C7A7D45F1F3CF3BAC7C2AFC2094
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605939   (1044604) от 20.01.2023
+
+А.И.Бугаёв и др. | Тесты: Физика (1993) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044604.jpg" />
+</div>
+
+
+###  Подробнее
+
+Задания для проверки знаний, умений и навыков выпускников общеобразовательных школ, лицеев и гимназий.
+Тестовая проверка знаний выпускников школ, лицеев и гимназий по физике предусматривает решение задач и упражнений, ответы на вопросы трех уровней сложности по всем разделам физики, что составляет базовый уровень подготовки старшеклассников, предусмотренный действующими (   Читать дальше...   )Жанр: физика, задачникФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:973DC9799D276BC2E92C62E39C25B4C725722126
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606270   (1044524) от 21.01.2023
+
+А.А. Самарский | Задачи и упражнения по численным методам (2000) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044524.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие поддерживает курс по численным методам, который читается в вузах с повышенной математической подготовкой. Задачи и упражнения охватывают все основные разделы численного анализа: интерполирование функций, численное интефирование, прямые и итерационные методы линейной алгебры, спектральные задачи, системы нелинейных уравнений, задачи минимизации функций, (   Читать дальше...   )Жанр: МатематикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FC32D5335E3C90A664AC7AD74843E0828B54E72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606268   (1044523) от 21.01.2023
+
+С.Н. Калмыков и др. | Основы радиохимии и радиоэкологии (2022) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044523.jpg" />
+</div>
+
+
+###  Подробнее
+
+Включает в себя следующие лекции: Введение в радиоактивность. Взаимодействие излучения с веществом. Детектирование излучений. Дозиметрия. Радиационная безопасность. Изотопный обмен. Изотопные эффекты. Метод радиоактивных индикаторов. Применение МРИ. Химия горячих атомов. Активационный анализ. Меченые соединения. Основные понятия. Меченые соединения. Методы получения. (   Читать дальше...   )Жанр: Физика, химияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B90BB8911DD9F47181E75EE026D8E719B75D8C8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606274   (1044522) от 21.01.2023
+
+А.А. Самарский | Численные методы математической физики (2000) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044522.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга является учебным пособием по численным методам решения задач математической физики, предназначенным для студентов вузов, специализирующихся в области физики и прикладной математики. Излагаются основы теории разностных схем и метода конечных элементов, принципы построения и исследования вычислительных алгоритмов решения задач математической физики. Рассматриваются (   Читать дальше...   )Жанр: МатематикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1908877D630DE94CCA96426A0932E44705584DF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

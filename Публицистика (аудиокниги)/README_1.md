@@ -1,3 +1,134 @@
+###  Публикация: 289081   (1021977) от 08.04.2021
+
+Виктор Суворов | Сборник произведений (1968-1995) [MP3]
+
+>>След.
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021977.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: историко-документальная проза
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EFD76A4D3605A2BA793DDCB5BCAE8FE7E1C3545
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461401   (1021894) от 09.04.2021
+
+Ричард Докинз | Слепой часовщик. Как эволюция доказывает отсутствие замысла во Вселенной (2021) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как работает естественный отбор? Является ли он достаточным объяснением сложности живых организмов? Возможно ли, чтобы слепая, неуправляемая сила создала столь сложные устройства, как человеческий глаз или эхолокационный аппарат у летучих мышей? Еще Дарвин убедительно ответил на эти вопросы, а наука с каждым новым десятилетием предоставляет все больше доказательств (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 16:36:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A7F96F7E3EACC9AB6C27413D32A13A511255B6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462706   (1021009) от 15.04.2021
+
+Петр Шарый | Внутри меня и вне меня два мира (2021) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021009.jpg" />
+</div>
+
+
+###  Подробнее
+
+В нынешнее время книг, статей, публикаций на тему, раскрывающую тайны жизни человека, можно найти достаточно много, но вот о внутреннем мире человека, особенно о главном его содержимом, душе, о тайнах ее духовной жизни — нужно еще и потрудиться. Большинство таких работ описывают предназначение души, связь ее с телом, ее энергетической составляющей, дальнейшее ее (   Читать дальше...   )Жанр: ПублицистикаПродолжительность: 07:56:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83CF596C8E8F90685B9E34883B826B49FB7FB01C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464557   (1019753) от 22.04.2021
+
+Уильям Ирвин | Радость жизни. Философия стоицизма для XXI века (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019753.jpg" />
+</div>
+
+
+###  Подробнее
+
+В XXI веке античный стоицизм переживает новое рождение. Уильям Ирвин рассуждает о красоте стоической философии, ее теории и о том, как применять ее в современных реалиях. Радость достижима – все дело в практике и правильном мышлении.
+Уильям Ирвин – профессор философии в государственном университете братьев Райт.Жанр: Публицистика, ФилософияПродолжительность: 07:36:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C5CF56682AF5CC28879BC9E7EB4EB0E444FF62D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478879   (1009983) от 21.06.2021
+
+Умберто Эко | С окраин империи. Хроники нового средневековья (2021) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009983.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этих ярких эссе, написанных в период с 1973 по 1976 годы, Умберто Эко исследует американскую культуру, её основные особенности и её влияние как на культуры ближайших стран-соседей, так и на европейскую культурную матрицу. Музеи и картинные галереи, города-призраки и парки развлечений, мистические пророчества и средневековые знания, пространство рекламы и кинематографа, (   Читать дальше...   )Жанр: Зарубежная публицистикаПродолжительность: 13:30:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF51ED13F179E719EB4EBF8AF9ED29A263967BDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1479244   (1009689) от 23.06.2021
 
 Марта Петерсон | Вдова-шпионка. Как работа в ЦРУ привела меня из джунглей Лаоса в московскую тюрьму (2020) [MP3]
@@ -6,7 +137,7 @@
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009689.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008846.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007251.jpg" />
 </div>
 
 
@@ -86,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007132.jpg" />
 </div>
 
 
@@ -112,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006243.jpg" />
 </div>
 
 
@@ -138,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005593.jpg" />
 </div>
 
 
@@ -166,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004319.jpg" />
 </div>
 
 
@@ -194,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003325.jpg" />
 </div>
 
 
@@ -222,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003200.jpg" />
 </div>
 
 
@@ -248,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001553.jpg" />
 </div>
 
 
@@ -274,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999234.jpg" />
 </div>
 
 
@@ -300,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981952.jpg" />
 </div>
 
 
@@ -326,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974279.jpg" />
 </div>
 
 
@@ -352,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971809.jpg" />
 </div>
 
 
@@ -378,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971798.jpg" />
 </div>
 
 
@@ -404,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968526.jpg" />
 </div>
 
 
@@ -432,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965117.jpg" />
 </div>
 
 
@@ -458,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963144.jpg" />
 </div>
 
 
@@ -484,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961851.jpg" />
 </div>
 
 
@@ -510,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960426.jpg" />
 </div>
 
 
@@ -536,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951483.jpg" />
 </div>
 
 
@@ -547,139 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4F3E45CDF201610197C5086FC8005D32D958901
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981629   (951310) от 01.02.2016
-
-Александр Верещагин | По Маньчжурии (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Александр Васильевич Верещагин служил в начале ХХ века на Дальнем Востоке, изучал нравы и обычаи китайцев и собирал восточные редкости.
-"По Маньчжурии" – книга воспоминаний Верещагина о путешествии по северо-востоку Китая 1900 - 1901 гг..
-Александр Васильевич Верещагин (10 [22] мая 1850 — 28 января [10 февраля] 1909) — русский генерал-лейтенант (02.12.1908), (   Читать дальше...   )Жанр: МемуарыПродолжительность: 06:17:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75341BBD687C736CA515D01047E4562B5813C3FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361954   (950921) от 22.02.2020
-
-Ирина Горюнова | Армянский дневник. Цавд танем (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950921.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот дневник не путеводитель по Армении, не описание достопримечательностей, кухни и традиций, а внутреннее осмысление великой страны, наследницы древнего Урарту, восприятие необычное, в котором лиричность и трагизм переплетаются воедино, в многоголосую симфонию, звучащую среди скал, ущелий и древних храмов. Это путешествие неожиданно привело автора не только к восхищению (   Читать дальше...   )Жанр: Публицистика, МемуарыПродолжительность: 05:14:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B5392C57947C57238F68C73091B72F2A4ED9C1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982356   (948272) от 03.02.2016
-
-Александр Верещагин | В Китае (2013) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948272.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1900 году Александр Верещагин получил назначение на Дальний Восток, а в 1901-1902 годах совершил несколько поездок по китайским провинциям, посетил Харбин, Порт-Артур, Мукден, Пекин. По материалам этих путешествий и была написана книга «В Китае». Не только страсть к путешествию влекла Верещагина, он стремился «пожить с китайцами и поближе познакомиться с ними». (   Читать дальше...   )Жанр: ПутешествияПродолжительность: 04:54:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0405BF65F43FB2270F3261C71A9E5D9995E82CB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362597   (947987) от 24.02.2020
-
-Алексей Колобродов | Захар (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947987.jpg" />
-</div>
-
-
-###  Подробнее
-
-Имя писателя Захара Прилепина впервые прозвучало в 2005 году, когда вышел его первый роман «Патологии» о чеченской войне.
-За эти десять лет он написал ещё несколько романов, каждый из которых становился символом времени и поколения, успел получить главные литературные премии, вёл авторские программы на ТВ и радио и публиковал статьи в газетах с миллионными тиражами, (   Читать дальше...   )Жанр: ПублицистикаПродолжительность: 16:29:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30450E8C11DEC802393B9C34F719010A7E0A5C51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983083   (945270) от 05.02.2016
-
-Эдуард Володарский | Вольф Мессинг. Видевший сквозь время (2008) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга «Вольф Мессинг: Видевший сквозь время» — это видение Володарским известнейшего человека 20 века. Он был известен благодаря своим удивительным способностям — мог читать мысли, предсказывать судьбы, знать наперед ход истории. Именно Мессинг предрек Гитлеру гибель в том случае, если он направится на восток. Он же, еще в 1942 предрек дату окончания войны.Жанр: Публицистика,биография,прозаПродолжительность: 09:17:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F7BBDDA22DC0592908306DDE8CA52D1A6A57F9E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1035360   (620303) от 20.07.2016
+
+2001 год: Космическая одиссея / 2001: A Space Odyssey (1968) BDRip [H.264/720p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620303.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Космическая одиссея 2001 года" - плод совместного творчества известного британского кинорежиссера Стэнли Кубрика и не менее известного британского писателя-фантаста сэра Артура Кларка, несомненно, является лучшим англо-американским научно-фантастическим фильмом 20 века. Безукоризненное мастерство Кубрика и философская глубина идей Кларка позволили миру (   Читать дальше...   )Производство: Великобритания, США (кинокомпания: «Metro-Goldwyn-Mayer», «Stanley Kubrick Productions»Жанр: Фантастика, Приключения, ДрамаРежиссер: Стэнли КубрикАктеры: Кир Дулли, Гари Локвуд, Уильям Сильвестер, Дэниэл Риктер и др.Перевод: Многоголосый закадровыйЯзык субтитров: Русский, украинский, английскийПродолжительность: 02:28:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DCA12C622A78CE58F4BA89029647CA4A94C148F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265500   (619936) от 12.04.2019
+
+Darksiders III / Darksiders 3 (2018) [Ru/Multi] (1.4/dlc) License CODEX
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619936.jpg" />
+</div>
+
+
+###  Подробнее
+
+Darksiders III — долгожданная третья глава популярной серии Darksiders. В Darksiders III вы вернетесь на мертвую Землю в роли ЯРОСТИ, которая намерена найти и уничтожить Семь смертных грехов.Тип издания: LicenseРазработчик: Gunfire GamesЖанр: Action, RPG 3rd Person, 3DЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0135E43250861557A521D006E6A4DBCC39C08AC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1295114   (619929) от 12.04.2019
 
 Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.11425.20204 (2019.04) RePack by KpoJIuK [Multi/Ru]
@@ -6,7 +58,7 @@ Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.1
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619929.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4639.1000 VL (x86)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619922.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ S.T.A.L.K.E.R.: Clear Sky / S.T.A.L.K.E.R.: Чистое Небо (2008) [Ru/Ua]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619920.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619919.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ S.T.A.L.K.E.R.: Call of Pripyat / S.T.A.L.K.E.R.: Зов Припяти (2009) [
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619916.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Adobe Photoshop CC 2015 (20150529.r.88) Portable by PortableWares (21.06.2015) [
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619269.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619196.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Microsoft Office 2010 Standard 14.0.7151.5001 SP2 (x86) RePack by KpoJIuK [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619189.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619186.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619184.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Media Player Classic HomeCinema 1.5.2.3245 [Многоязычный] [Обно�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_619012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_619012.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Wii Play: Motion [Wii] [NTSC] [Eng/Esp] (2011)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619008.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_619003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_619003.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_618834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_618834.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ Rise of Nations (2014) [Ru/En] (1.05) Repack xGhost [Extended Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618558.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618512.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ Adobe After Effects CC 2019 (16.1.0.204) Portable by XpucT [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618261.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618257.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ Test Drive Unlimited 2 (2011) [Ru] (034.16/dlc) Repack xatab [Complete Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618255.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ Adobe Photoshop CC 2019 (20.0.4.26077) Portable by XpucT [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618253.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618246.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_618151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_618151.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_617806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_617806.jpg" />
 </div>
 
 
@@ -605,66 +657,13 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_617746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_617746.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Министерство связи и массовых коммуникаций предложило ограничить показателем в 20% иностранное владение точками, которые обеспечивают обмен трафиком между операторами связи в России, сообщает RNS.В документе указывается, что под ограничения могут попасть в том числе иностранные граждане, граждане России, имеющие гражданство другого государства.Юридическим лицам и (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911003   (617445) от 22.06.2015
-
-Маркина удивил ответ главы NASA о высадке американцев на Луну
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_617445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Официальный представитель Следственного комитета России (СКР) Владимир Маркин заявил, что его удивила серьезная реакция директора NASA Чарльза Болдена на предложение провести совместное расследование по поводу пропавших доказательств высадки американцев на Луну.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 63492   (617339) от 22.06.2015
-
-Обыкновенный фашизм (1965) DVDRip (части 1-2 из 2)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_617339.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитый документальный фильм Михаила Ромма о немецком фашизме, о становлении Третьего рейха, фильм-размышление, фильм-разговор со зрителем при помощи кинодокументов, старых картин - игровых и неигровых, разговор о том, как и почему в середине XX века возникло это уродливое, чудовищнейшее и позорнейшее явление, какими способами фашизм растлевал человеческие души, (   Читать дальше...   )Производство: СССР, к/ст МосфильмЖанр: документальный, хроника, военный, историяРежиссер: Михаил Ромм, и он же о съёмках фильма "Обыкновенный фашизм"Участники: Михаил Ромм, Марлен Дитрих, Йозеф Геббельс, Адольф Гитлер, Герман Геринг, Иосиф Сталин, Дзюкити УноЯзык озвучки: Русский (комментирует Михаил Ромм)Продолжительность: 02:10:05 (2 части 01:08:01 и 01:02:05)
 
 ## Скачать торент
 ```bash

@@ -1,3 +1,61 @@
+###  Публикация: 1565204   (494674) от 23.07.2022
+
+Hatriot - The Vale Of Shadows (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Horns & Halos
+02. The Hate Inside
+03. Forceful Balance
+04. Verminious And Vile(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:42:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:562BC0C2DA6A2A18797DEFFDE51F49D2A8A87277
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565094   (494662) от 23.07.2022
+
+Nicolas Cage Fighter - The Bones That Grew from Pain (2022) [MP3|320 Kbps] <Hardcore Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grey Eye (3:22)
+02. Shrine of Wire (3:08)
+03. Coughing Nails (3:01)
+04. Static Abyss (3:47)(   Читать дальше...   )Жанр: Hardcore MetalПродолжительность: 00:36:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B46D89F40076B8A4E0CC82C49D159F1F4DF29D78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565087   (494661) от 23.07.2022
 
 Nebula - Transmission From Mothership Earth (2022) [MP3|320 Kbps] <Heavy Rock, Stoner, Psych>
@@ -6,7 +64,7 @@ Nebula - Transmission From Mothership Earth (2022) [MP3|320 Kbps] <Heavy Rock, S
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494661.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ God Is An Astronaut - Дискография (2002 - 2010) [MP3|320 kbps]<Post-R
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494543.jpg" />
 </div>
 
 
@@ -61,7 +119,7 @@ Demonica - Demonstrous (2010) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494471.jpg" />
 </div>
 
 
@@ -90,7 +148,7 @@ Cold Truth - Cold Truth (2003) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494424.jpg" />
 </div>
 
 
@@ -119,7 +177,7 @@ Slipknot - We Are Not Your Kind (2019) [MP3|320 Kbps] <Nu-Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494397.jpg" />
 </div>
 
 
@@ -148,7 +206,7 @@ Smokie - Uncovered Too (2001) [APE|Lossless|image + .cue] <Pop-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494342.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ ReinXeed - 8 альбомов (2008-2013) Japanese Edition [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494327.jpg" />
 </div>
 
 
@@ -203,7 +261,7 @@ Stereophonics - Keep The Village Alive (Deluxe) (2015) [FLAC|Lossless|WEB-DL]<In
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494271.jpg" />
 </div>
 
 
@@ -232,7 +290,7 @@ Abbi Walker - Feisty (2015) [MP3|320 кб/с]<Country Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494160.jpg" />
 </div>
 
 
@@ -261,7 +319,7 @@ Cry Of Love - 2 Albums (1992, 1997) [FLAC|Lossless|tracks + .cue] <Hard Rock, Bl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494105.jpg" />
 </div>
 
 
@@ -288,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494104.jpg" />
 </div>
 
 
@@ -317,7 +375,7 @@ Slayer - Repentless (2015) Limited Box Set Edition 2CD [FLAC|image+.cue]<Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494035.jpg" />
 </div>
 
 
@@ -346,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494014.jpg" />
 </div>
 
 
@@ -379,7 +437,7 @@ Chris Robinson Brotherhood - Barefoot In The Head (2017) [FLAC|Lossless|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493711.jpg" />
 </div>
 
 
@@ -408,7 +466,7 @@ Dark Angel - Time Does Not Heal (1991) Reissue, 1999, Century Media [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493703.jpg" />
 </div>
 
 
@@ -429,35 +487,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243189   (493675) от 26.08.2018
-
-Сплин - Встречная полоса (2018) [FLAC|Lossless|tracks + .cue] <Rock, Alternative, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Встречная полоса
-02. На утро
-03. Чей-то ребёнок
-04. Испанская инквизиция(   Читать дальше...   )Жанр: Rock, Alternative, Indie RockПродолжительность: 00:35:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:457C1F71C63F5F3F6265C545BD558A1C8BC32F95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 542871   (493596) от 06.09.2012
 
 Адамант - Кровь рассвета (2010) [APE|lossless] <Heavy Metal>
@@ -466,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493596.jpg" />
 </div>
 
 
@@ -501,7 +530,7 @@ Thank You Scientist - Maps of Non-Existent Places (2012) [FLAC|Lossless]<Crossov
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493592.jpg" />
 </div>
 
 
@@ -536,7 +565,7 @@ Sitting Bull - Trip Away (1971) Reissue, 2002, Long Hair [MP3|320 Kbps] <Rock, K
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493567.jpg" />
 </div>
 
 
@@ -565,7 +594,7 @@ Deep Purple - Johnny's Band (2017) EP [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493548.jpg" />
 </div>
 
 
@@ -594,7 +623,7 @@ Belfegor - The Kingdom of Glacial Palaces (2000) [FLAC|Lossless|image + .cue] <B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493352.jpg" />
 </div>
 
 
@@ -623,7 +652,7 @@ Monolithe - Okta Khora (2020) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493350.jpg" />
 </div>
 
 
@@ -652,7 +681,7 @@ Reece - Resilient Heart (2018) [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493349.jpg" />
 </div>
 
 
@@ -681,7 +710,7 @@ David Reece - Cacophony Of Souls (2020) [FLAC|Lossless|image + .cue] <Hard'n'Hea
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493341.jpg" />
 </div>
 
 
@@ -710,7 +739,7 @@ VA - Black Night - Deep Purple Tribute According To New York (1996 (Reissue 2010
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493263.jpg" />
 </div>
 
 
@@ -726,41 +755,6 @@ VA - Black Night - Deep Purple Tribute According To New York (1996 (Reissue 2010
 08. Joe Lynn Turner - Stormbringer [04:06]
 09. Joe Lynn Turner - Speed King [03:29]
 10. Cory Glover - Burn [06:32](   Читать дальше...   )Жанр: Rock, Hard Rock, Blues RockПродолжительность: 00:54:45
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543898   (493259) от 06.09.2012
-
-Dying Fetus - Reign Supreme (2012) [APE|Lossless]<Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Invert the Idols (2:05)
-02. Subjected to a Beating (4:53)
-03. Second Skin (4:42)
-04. From Womb to Waste (4:57)
-05. Dissidence (3:28)
-06. In the Trenches (3:44)
-07. Devout Atrocity (4:28)
-08. Revisionist Past (3:57)
-09. The Blood of Power (5:23)
-10.  Dead Whores Love to Fuck (Bonus) (0:50)Жанр: Death MetalПродолжительность: 00:38:27
 
 ## Скачать торент
 ```bash

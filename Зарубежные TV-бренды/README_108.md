@@ -6,7 +6,7 @@
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206051.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206023.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205978.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Discovery. Отравление в Солсбери / Secrets of the Salisbury P
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205839.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205760.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205471.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ NG: Человек-волк / The Wolfman (2006) HDTVRip [720p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205049.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204799.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204335.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204296.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ BBC: Дикая Патагония / Wild Patagonia (2015) BDRip [H.264/720p] (�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203941.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203763.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ NG: Безграничный / Без границ: с Крисом Хемсво
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_203029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203029.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202578.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202522.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201678.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ NG: Чудо-юдо динозавры / Bizarre Dinos (2009) WEB-DL [H.264/1080
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201313.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201308.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ NG. Реальность или фантастика? Бермудский тр�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201195.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Discovery. Виагра: маленькая голубая таблетка, и�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_200994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_200994.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ History Channel: Тетрис: Из России с любовью / TETRIS. Fro
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200524.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ History Channel: Древние пришельцы / Ancient Aliens (2022) WEB-D
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199921.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199595.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ NG. НЛО: Расследование неизвестного / UFOs: Investig
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199545.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Discovery: Как устроена Вселенная / How the Universe Works (
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199490.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199466.jpg" />
 </div>
 
 

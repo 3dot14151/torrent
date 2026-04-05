@@ -1,3 +1,32 @@
+###  Публикация: 1815030   (5505) от 28.08.2025
+
+Salvo/Сальво - Solo Tu/Только Ты (1981) [FLAC 2.0|24/96|image +.cue|Vinyl-Rip] <Electronic, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5505.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Только Ты • Solo Tu
+A2 Я Свободен • I'm Free
+A3 Романтический сон • Sogno Romantico
+A4 Люби Меня • Innamorati(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:40:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD18AB015953071D46F25E3695D4443CE68F306E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1707627   (5373) от 29.08.2025
 
 Vicious Rumors - Studio Albums (10 releases) (1994-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal, Groove Metal>
@@ -6,7 +35,7 @@ Vicious Rumors - Studio Albums (10 releases) (1994-2025) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5373.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Chuck Schuldiner (Death; Control Denied; Voodoocult; Naphobia) - Studio Albums (
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5233.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Huntress - Studio Albums (4 releases) (2010-2015) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4788.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Evocatus - Studio Albums (4 releases) (2014-2025) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4771.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Insania (a.k.a. Insania Stockholm) - Studio Albums (6 releases) (1999-2025) hand
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4658.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ TesseracT (& Daniel Tompkins) - Studio Albums (7 releases) (2011-2023) hand made
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4395.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Violator - Studio Albums (6 releases) (2004-2025) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4317.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Primal Fear (& Ralf Scheepers) - Studio Albums (19 releases) (1998-2025) hand ma
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4300.jpg" />
 </div>
 
 
@@ -239,7 +268,7 @@ Pantera (Damageplan; Rebel Meets Rebel) - Studio Albums (12 releases) (1983-2006
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3663.jpg" />
 </div>
 
 
@@ -268,7 +297,7 @@ Green Carnation - Studio Albums (7 releases) (2000-2025) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3598.jpg" />
 </div>
 
 
@@ -297,7 +326,7 @@ Isle Of Man - Isle Of Man (1986) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip <Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3554.jpg" />
 </div>
 
 
@@ -326,7 +355,7 @@ Skyharbor - Studio Albums (3 releases) (2012-2018) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3551.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ In Mourning - Studio Albums (9 releases) (2008-2025) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3486.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Orchestra Electrecord + Grupul vocal «Cantabile» - Non Stop Dancing I (1971) [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3456.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Antimatter - Studio Albums (11 releases) (2001-2025) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3201.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Hypermass - Studio Albums (3 releases) (2015-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3125.jpg" />
 </div>
 
 
@@ -469,7 +498,7 @@ Demon Hunter - Studio Albums (13 releases) (2002-2025) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2667.jpg" />
 </div>
 
 
@@ -498,7 +527,7 @@ Caliban - Studio Albums (16 releases) (1998-2025) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2609.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ Tonix - Santo Domingo (1977) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Folk,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2608.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ Taetre - Studio Albums (3 releases) (1997-2002) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2606.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ Katya Filipova - Катя Филипова (1977) [FLAC 2.0|24/96|image +.cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2469.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ Dagoba - Studio Albums (10 releases) (2001-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2451.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ Fear My Thoughts - Studio Albums (6 releases) (2001-2008) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2144.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ Karel Vacek - Zustan Tu S Nami Muziko Ceska - Pisnicky Karla Vacka (1974) [FLAC 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2141.jpg" />
 </div>
 
 
@@ -700,7 +729,7 @@ Paradise Lost - Studio Albums (18 releases) (1990-2025) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2110.jpg" />
 </div>
 
 
@@ -714,35 +743,6 @@ Paradise Lost  — метал-группа из Великобритании, о
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BA298A1C235004C788CBF26E74AC348E715FC56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749442   (2007) от 19.09.2025
-
-I Prevail - Studio Albums (5 releases) (2014-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Post-hardcore, Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2007.jpg" />
-</div>
-
-
-###  Подробнее
-
-I Prevail — американская метал-группа, созданная в Саутфилд, штат Мичиган, в 2014 году.2014 - Heart Vs. Mind (EP)
-2016 - Lifelines
-2019 - Trauma
-2022 - True Power(   Читать дальше...   )Жанр: Post-hardcore, MetalcoreПродолжительность: 03:30:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DB6C047AEBE1A3FEA74794078084A9B767B0ECC
 ```
 
 https://mybot314.ru/tekegram_catalog/

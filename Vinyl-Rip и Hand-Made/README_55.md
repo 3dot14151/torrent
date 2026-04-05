@@ -1,3 +1,30 @@
+###  Публикация: 1667818   (176139) от 09.10.2023
+
+Psygnosis - AAliens (2015) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Industrial, Progressive Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176139.jpg" />
+</div>
+
+
+###  Подробнее
+
+A - FIIIX 3.0
+B - Man Ov SteelЖанр: Industrial, Progressive Death MetalПродолжительность: 00:21:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ECD61F490627987AC99F4D9587F97C78D9D5D4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595313   (176126) от 04.12.2022
 
 Nuclear Assault - Studio Albums (6 releases) (1986 - 2005) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Thrash Metal>
@@ -6,7 +33,7 @@ Nuclear Assault - Studio Albums (6 releases) (1986 - 2005) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176126.jpg" />
 </div>
 
 
@@ -35,7 +62,7 @@ Joe Lynn Turner - Studio Albums (11 releases) (1985 - 2022) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176042.jpg" />
 </div>
 
 
@@ -64,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175880.jpg" />
 </div>
 
 
@@ -93,7 +120,7 @@ Puhdys - Puhdys 11: Computer-Karriere (1983) [FLAC 2.0|192/24|image +.cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175788.jpg" />
 </div>
 
 
@@ -122,7 +149,7 @@ Behind the Scenery - Studio Albums (3 releases) (1997-2004) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175410.jpg" />
 </div>
 
 
@@ -150,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174595.jpg" />
 </div>
 
 
@@ -179,7 +206,7 @@ VA - Ленинградский Рок-клуб (1988) Записи 1986 - 1987 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174233.jpg" />
 </div>
 
 
@@ -208,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173820.jpg" />
 </div>
 
 
@@ -237,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173817.jpg" />
 </div>
 
 
@@ -266,7 +293,7 @@ Creedence Clearwater Revival - 1968-1969 (1978) 2LP [FLAC 2.0|192/24|image + .cu
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173783.jpg" />
 </div>
 
 
@@ -295,7 +322,7 @@ Seal - Studio Albums (10 releases) (1991-2017) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173410.jpg" />
 </div>
 
 
@@ -324,7 +351,7 @@ Eucharist - Studio Albums (3 releases) (1993-2022) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173246.jpg" />
 </div>
 
 
@@ -353,7 +380,7 @@ Noumena - Studio Albums (6 releases) (2002-2020) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173223.jpg" />
 </div>
 
 
@@ -382,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173165.jpg" />
 </div>
 
 
@@ -409,7 +436,7 @@ Bullet - Studio Albums (6 releases) (2006-2018) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173020.jpg" />
 </div>
 
 
@@ -438,7 +465,7 @@ VA - Машина Времени / Самоцветы - Песни Из Кино
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172981.jpg" />
 </div>
 
 
@@ -467,7 +494,7 @@ Isengard - Høstmørke (1995) [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Folk M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172878.jpg" />
 </div>
 
 
@@ -496,7 +523,7 @@ Sieges Even - Steps (1990)  [FLAC|24/192|image + .cue|Vinyl-Rip]<Progressive Thr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172684.jpg" />
 </div>
 
 
@@ -525,7 +552,7 @@ Isengard - Traditional Doom Cult (2016) EP [FLAC|24/192|tracks|Vinyl-Rip] <Black
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172683.jpg" />
 </div>
 
 
@@ -552,7 +579,7 @@ Isengard - Vårjevndøgn (2012) Compilation, Peaceville [FLAC|24/192|image + .cu
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172682.jpg" />
 </div>
 
 
@@ -581,7 +608,7 @@ Sieges Even - Life Cycle (1988) Reissue, 2022, Golden Core [FLAC|24/192|image + 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172673.jpg" />
 </div>
 
 
@@ -610,7 +637,7 @@ Babe Corner - Crybaby  [FLAC 24/48|Lossless|tracks] hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172644.jpg" />
 </div>
 
 
@@ -639,7 +666,7 @@ Ronnie Atkins (Pretty Maids) - Studio Albums (4 releases) (2021-2023) hand made 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172602.jpg" />
 </div>
 
 
@@ -668,7 +695,7 @@ Guns N' Roses - Studio Albums (4 releases) (1991-2023) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172592.jpg" />
 </div>
 
 
@@ -697,7 +724,7 @@ Romy - Mid Air (2023) [FLAC|Lossless|tracks] hand made [restored, declipped] <Ho
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172323.jpg" />
 </div>
 
 
@@ -711,35 +738,6 @@ Romy - Mid Air (2023) [FLAC|Lossless|tracks] hand made [restored, declipped] <Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5A29B53BACA6D81B5E0D1A6CAA16759F87F2DF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326146   (172211) от 19.10.2023
-
-Yujiro Mabuchi '68 All Stars - Minatomachi Blues. Crown Golden Series, Tenor Saxophone (1969) [FLAC 2.0|48/24|image +.cue|Vinyl-Rip] <Jazz, Pop, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172211.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Toki Ni Wa Haha No Nai Ko No Yoni
- A2 Yoake No Scat
- A3 Nanairo No Shiawase
- A4 Kaze(   Читать дальше...   )Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:34:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5EBCC0B5A046021743BEE380E142C16DDD2F538
 ```
 
 https://mybot314.ru/tekegram_catalog/

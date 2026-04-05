@@ -1,3 +1,137 @@
+###  Публикация: 1483658   (1006572) от 15.07.2021
+
+Boys Be... | Мальчишки есть мальчишки [2000, TV, 13 + 1] DVDRip 720p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006572.jpg" />
+</div>
+
+
+###  Подробнее
+
+В каждой любовной истории есть две стороны. Как водится, одну сторону представляют девочки, другую — мальчики. И, конечно же, ни одна любовная история не обходится без своих героев, от чьего лица ведётся рассказ. «Мальчишки есть мальчишки» повествует о том, как на самом деле выглядят отношения двух влюблённых с точки зрения одной из сторон — парней.
+Три забавных (   Читать дальше...   )Производство: Hal Film Maker / ハルフィルムメーカーЖанр: романтика, комедия, повседневностьРежиссер: Симода МасамиПеревод: KoKoRo FansubsЯзык озвучки: японский, русскийСубтитры: русскиеПродолжительность: 13 эп. по 25 мин. + 1 спешиал на 7 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:749FCA9BD3B5393274B326848D284730423BE43E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484576   (1005975) от 20.07.2021
+
+Ore dake Haireru Kakushi Dungeon | The Hidden Dungeon Only I Can Enter | Сильнейший герой, обученный в тайном подземелье [2021, TV, 12 из 12] BDRip 1080p HEVC 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Среди множества подземелий существуют особые, «скрытые» подземелья. Единицы попадали и выходили оттуда живыми, и в слухах об опасностях и сокровищах, что там хранятся, уже не поймёшь, где правда, а где — вымысел. Но именно такое подземелье находит Нуар Стардия, выходец из семьи бедного баронета. Так и начались его приключения.
+© crunchyrollПроизводство: Студия Okuruto Noboru / オクルトノボルЖанр: приключения, комедия, фэнтези, эттиРежиссер: Ониси КэнтаЯзык озвучки: Японский и русскийСубтитры: Русские, ASS, Полные+надписи (Crunchyroll)Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:715D0C1C1F4448B5FD923529167BB248B6B906B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483751   (1004661) от 31.07.2021
+
+Kamisama ni Natta hi | The Day I Became a God | День, когда я стала богом [2020, TV, 12 из 12] BDRip 1080p HEVC 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004661.jpg" />
+</div>
+
+
+###  Подробнее
+
+В день, когда она стала богом… Был предрешён конец света. Для Тайё Наруками наступили последние летние каникулы в старшей школе. Он учится дни напролет, готовясь к скорому поступлению в университет… Но однажды перед ним, откуда ни возьмись, появляется Хина и заявляет, что она богиня знаний. «Конец света наступит через тридцать дней», — предрекает она. Наруками, конечно, (   Читать дальше...   )Производство: Студия P.A. Works / ピーエーワークスЖанр: повседневность, романтика, драмаРежиссер: Асай ЁсиюкиСубтитры: Русские, ASS, Полные+надписи (Wakanim - andromeda88)Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6C36689B169D242D851CAB538E54CE3DF8AD643
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486927   (1004252) от 02.08.2021
+
+Ima, Soko ni Iru Boku | Now and Then, Here and There | Здесь и сейчас [1999, TV, 13 из 13] DVDRip 576p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004252.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сю - обычный японский парень, он всегда бодр, оптимистичен и решителен. Однажды он увидел загадочную девушку, сидящую на высокой трубе и любующуюся закатом. Он лишь успел узнать, что её зовут Лала-ру, как на них напали неизвестные. Сю хотел спасти новую знакомую, но в результате они оба были перенесены в странный пустынный мир. Сю вскоре сталкивается с истинными (   Читать дальше...   )Производство: AICЖанр: приключения, драма, фэнтезиРежиссер: Дайти АкитароПеревод: TenkoseЯзык озвучки: японский, русскийСубтитры: русскиеПродолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEC7A0F45F0C3AF5B1166214F8DFC41570053C28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486859   (1004248) от 02.08.2021
+
+Baki | Баки (ONA-1) [2018, Web, 26 эп.] WEBRip 720p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой, Баки Ханма, тренируется с большим упором для того, чтобы превзойти своего отца, Юджиро Ханма, самого сильного бойца в мире. Пятеро из самых жестоких и брутальных в мире смертников объединяются, что бы встретиться с Баки. Их главная задача - почувствовать вкус поражения, в надежде, что Баки сможет сокрушить и полностью раздавить их. В этом сумасшествии (   Читать дальше...   )Производство: Япония, TMS EntertainmentЖанр: Боевые искусства, спортРежиссер: Хирано ТосикиВ ролях: Симадзаки Нобунага, Оцука Акио, Суго Такаюки, Симада Бин, Кояма Рикия, Эгути ТакуяЯзык озвучки: Японский; Русский
+- любительский многоголосый Kansai (серии 01-25)
+- любительский одноголосный закадровый JAM (серии 01-26))Субтитры: Русские (перевёл Виталий Тарасов)Продолжительность: 26 серий по ~23 минуты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F323AA4136E8381FB7DD485154A9CEF1AC44C14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350081   (1003634) от 04.01.2020
 
 Hikari to Mizu no Daphne | Daphne in the Brilliant Blue | Дафна: Тайна сияющих вод [2004, TV, 24 эп. + 2 SP] DVDRip 480p raw+rus
@@ -6,7 +140,7 @@ Hikari to Mizu no Daphne | Daphne in the Brilliant Blue | Дафна: Тайна
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003634.jpg" />
 </div>
 
 
@@ -32,7 +166,7 @@ Zoku Natsume Yuujinchou | Тетрадь дружбы Нацумэ [ТВ-2] [200
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003510.jpg" />
 </div>
 
 
@@ -58,7 +192,7 @@ Mushishi Tokubetsu Hen: Hihamu Kage | Мастер Муси: Тень, погл�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003509.jpg" />
 </div>
 
 
@@ -85,7 +219,7 @@ Tales of Vesperia: The First Strike | Сказания Весперии: Пер�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001102.jpg" />
 </div>
 
 
@@ -111,7 +245,7 @@ Psycho-Pass 3: First Inspector | Психопаспорт 3: Первый инс
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001077.jpg" />
 </div>
 
 
@@ -137,7 +271,7 @@ Kumo no Mukou, Yakusoku no Basho / The Place Promised in Our Early Days / Beyond
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999206.jpg" />
 </div>
 
 
@@ -163,7 +297,7 @@ Ergo Proxy / Эрго прокси [2006, TV, 23 из 23] HDTVrip 720p raw + rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996554.jpg" />
 </div>
 
 
@@ -193,7 +327,7 @@ Blade | Блэйд [2011, TV, 12] BDRip 720p raw+rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991250.jpg" />
 </div>
 
 
@@ -219,7 +353,7 @@ Nazo no Kanojo X / Mysterious Girlfriend X / Загадочная девушка
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987957.jpg" />
 </div>
 
 
@@ -247,7 +381,7 @@ Gokukoku no Brynhildr / Brynhildr in the Darkness / Брюнхильда во т
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984366.jpg" />
 </div>
 
 
@@ -274,7 +408,7 @@ Overlord II | Повелитель [ТВ-2] [2018, TV, 13 ep] BDRip 1080p raw+ru
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984294.jpg" />
 </div>
 
 
@@ -300,7 +434,7 @@ Kaze no tani no Naushika / Nausicaa from the Valley of the Wind / Навсика
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982610.jpg" />
 </div>
 
 
@@ -326,7 +460,7 @@ Yuru Yuri 2 / Yuruyuri 2 / Cвободу Лесбиянкам 2 [2012, TV, 12] H
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979731.jpg" />
 </div>
 
 
@@ -354,7 +488,7 @@ Burn Up | Burn Up! | Разгон! [1991, OVA] DVDRip 480p raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979603.jpg" />
 </div>
 
 
@@ -380,7 +514,7 @@ Burn Up W | Burn-Up W - On the Case & In your Face | Разгон! Дубль-в
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979601.jpg" />
 </div>
 
 
@@ -406,7 +540,7 @@ Burn Up Scramble | Burn Up Scramble | Спецотряд Burn Up [2004, TV] DVDR
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979599.jpg" />
 </div>
 
 
@@ -432,7 +566,7 @@ Ansatsu Kyoushitsu / Assassination Classroom / Класс убийц [ТВ-1] [2
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972799.jpg" />
 </div>
 
 
@@ -458,7 +592,7 @@ Teizokurei Daydream | Ghost Talker's Daydream | Мечты вульгарног�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968331.jpg" />
 </div>
 
 
@@ -485,7 +619,7 @@ Bougyaku Sareta Tamashii no Jukyou | Corpse Party: Tortured Souls | Вечери
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966920.jpg" />
 </div>
 
 
@@ -512,7 +646,7 @@ Heisei Tanuki Gassen Ponpoko | Pom Poko | Помпоко: Война танук�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965824.jpg" />
 </div>
 
 
@@ -538,7 +672,7 @@ Shoujo Shuumatsu Ryokou | Girls' Last Tour | Девушки в Последне�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965822.jpg" />
 </div>
 
 
@@ -550,138 +684,6 @@ Shoujo Shuumatsu Ryokou | Girls' Last Tour | Девушки в Последне�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B724F92F2528E5144BD5B1B59E7906669E1ABC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359052   (965821) от 10.02.2020
-
-Kill la Kill | Убей или Умри [2011, TV, 24 ep + SP] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965821.jpg" />
-</div>
-
-
-###  Подробнее
-
-События происходят в школе, управляемой с помощью грубой силы президентом студенческого совета Сацуки Кирюин. Появление новой ученицы Рюко Матой, владеющей мечом в виде половинки гигантских ножниц, потрясает основы жизни школы. Рюко занята поисками таинственного убийцы её отца. Но на её пути становятся члены студенческого совета. К счастью, Рюко находит необычную (   Читать дальше...   )Производство: Trigger, ЯпонияЖанр: Приключения, Комедия, Фэнтези, ЭттиРежиссер: Имаиси ХироюкиОзвучка: Одноголосая, Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 25 Эпизодов по 23 Мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FD282DBB0D930E780671627E5C0BF770EE49C35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358967   (965819) от 10.02.2020
-
-Mirai Nikki | The Future Diary | Дневник Будущего [2011, TV, 26 ep + OVA] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй класс средней школы: у Юкитэру Амано вечные проблемы в общении со сверстниками, а потому, считая себя сторонним наблюдателем, он записывает всё, что видит, в дневник на мобильный.
-Терзаемый одиночеством, Амано начинает выдумывать разные вещи, как, например, воображаемого друга по имени Деус Экс Машина, который несомненно является повелителем времени и пространства. (   Читать дальше...   )Производство: Asread, ЯпонияЖанр: Триллер, Мистика, ДрамаРежиссер: Хосода НаотоОзвучка: Двухголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 26 Эпизодов по 23 Мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF331DEC29706CCB55863C8EDF90FCF07F103473
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959300   (965240) от 21.01.2016
-
-Gochuumon wa Usagi Desuka? / Кролика заказывали? [TV-2] [2015, TV, 12] HDTV 720p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965240.jpg" />
-</div>
-
-
-###  Подробнее
-
-В преддверие поступления в старшую школу, новоявленная старшеклассница по имени Кокоа Хото решила начать жить самостоятельно и с чистого листа и переехала в небольшой но уютный город. Чистые улицы, доброжелательные жители, ну что может быть лучше для начала новой жизни дебюта старшеклассницы? Так думала Кокоа отправляясь на встречу со своими домовладельцами, но заплутав (   Читать дальше...   )Производство: Япония, Cinema Citrus, White FoxЖанр: Комедия, ПовседневностьРежиссер: Хасимото ХироюкиПродолжительность: 12 серий по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EBCA2BA23BBEE2DFB59100FD4220B31FC00DF7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359893   (962793) от 13.02.2020
-
-Cross Ange: Tenshi to Ryuu no Rondo | Cross Ange: Rondo of Angel and Dragon | Крест Анжи. Танец Ангела с Драконом [2014, TV, 25 ep] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962793.jpg" />
-</div>
-
-
-###  Подробнее
-
-Человечество изобрело особую технологию, называемую «маной», по своим свойствам похожую на магию. С её помощью на Земле удалось создать идеальный мир без войн, голода, экологических проблем и насилия — утопическое государство, империю Мисуруги. При этом в мире существуют «нормы» — люди, не способные использовать ману и разрушающие её действие. Нормами могут быть (   Читать дальше...   )Производство: Sunrise, ЯпонияЖанр: Приключения, Фантастика, МехаРежиссер: Асино ЁсихаруОзвучка: Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 25 Эпизодов по 23 Мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8657996F28792A1BD71892CFC2A507D93852A749
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360022   (961638) от 14.02.2020
-
-Netoge no Yome wa Onnanoko ja Nai to Omotta? | And You Thought There Is Never a Girl Online? | А ты Думал, что Твоя Жена в Онлайн Игре на Самом Деле не Девушка? [2016, TV, 12 ep] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хидэки Нишимура — обычный школьник, долгое время играющий в MMORPG-игру под названием «Легендарный век». Однажды в игре он влюбился в девушку, но в ответ на признание узнал... что в реальной жизни это — взрослый мужчина! В шоке от такого, он твёрдо решил больше никогда не позволять себе романтических чувств в игровом мире.
-Однако через некоторое время, встретив в (   Читать дальше...   )Производство: Project No.9, ЯпонияЖанр: Комедия, РомантикаРежиссер: Янаги СинсукэОзвучка: Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 12 Эпизодов по 24 Мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D6E1A73A2B3F1F6BC8DB80123674BC87DA4D863
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ BBC. Человеческая Вселенная / Human Universe (2014) BDRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629324.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Viasat History: Карты убийства / Murder Maps (2015) SATRip [H.264] 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629146.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Discovery: Необъяснимое. Специальные материалы /
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628433.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NG. Тайны древности. Секретный код соборов / An
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_628420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_628420.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ NG. Войны насекомых / Insect Wars (2005) HDTVRip [H.264/720p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628404.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ History Channel. Кто на самом деле открыл Америку / W
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628282.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Discovery. НАСА: необъяснимые материалы. Лунные �
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628272.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628186.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Animal Planet. Сурикаты / The Meerkats (2008) BDRip [H.264/720p]
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_628185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_628185.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ NGW: Крупные рыбы Зэба: нашествие акул-молото�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628077.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ NGW: Империя гризли / Grizzly Empire (2015) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628065.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Viasat History: Запретная история / Forbidden History (2013 - 20
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628041.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627939.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Discovery. А ты бы выжил? / So You Think You'd Survive? (2014) HDTVRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627929.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Discovery. А ты бы выжил? / So You Think You'd Survive? (2014) HDTV [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627770.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ NG: Неизвестная планета Земля / One Strange Rock (2018) W
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627677.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ NG. Шершни из ада / Hornets from hell (2002) DVDRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627462.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Discovery: Легенда о золоте крокодилов / The Legend of C
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626915.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ NG: С точки зрения науки. Тайна возникновения
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626591.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ NGW: Прекрасная Америка: На границе с дикой пр
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626330.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ NGW: Дикая природа Шотландии: Высокогорье / Wild
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626175.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ NGW: Прекрасная Америка: На границе с дикой пр
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626165.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ NGW: Дикая природа Ирана / Iran's Wild Side (2018) HDTV [H.264/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625808.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ NG. Осушить Титаник / Drain the Titanic (2015) HDTVRip [H.264/720p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625423.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ BBC: Армада. Неизвестная история (12 дней чтобы
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625365.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ BBC: Жизнь с холодной кровью / Life in Cold Blood (2006) DVD
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_625294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_625294.jpg" />
 </div>
 
 

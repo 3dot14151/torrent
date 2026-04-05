@@ -1,3 +1,81 @@
+###  Публикация: 298614   (882635) от 20.02.2011
+
+Закусочная на колесах / Kuai can che / Wheels on Meals (1984) DVDRip [H.264]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882635.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два энергичных китайца организовали в Барселоне передвижную харчевню. Их желтый фургончик дарит людям вкусную еду и очаровательный китайско-испанский сервис. Но однажды всю их выручку похищает хитрая синьорита Сильвия. Масса самых забавных ситуаций, сумасшедшие гонки на автокухне, виртуозные сцены рукопашных поединков и, как всегда, полный задора и отточенности в (   Читать дальше...   )Производство: Гонконг / Golden Harvest Company, LaurenfilmЖанр: Боевик, Мелодрама, Комедия, КриминалРежиссер: Саммо ХунАктеры: Джеки Чан, Юэнь Бяо, Саммо Хунг Кам-Бо, Бенни Уркидез, Кит Витали, Херб Эдельман, Лола Форнер, Ампаро Морено, Хосе Санчо, Монтсеррат Хулио, Сюзана Сентис, Луис ПаленсуэлаПеревод: Многоголосый закадровый профессиональный, Авторский х2Язык субтитров: РусскиеПродолжительность: 01:44:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB57BA956FE0B5288CC7EA57BF81DFD6DF42D726
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495192   (882303) от 11.09.2021
+
+Любовь как букет цветов / Hanataba mitaina koi o shita / I Fell in Love Like a Flower Bouquet / We Made a Beautiful Bouquet (2021) HDRip [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882303.jpg" />
+</div>
+
+
+###  Подробнее
+
+22-летние студенты Муги Яманэ (Суда Масаки) и Хатия Кину (Аримура Касуми) встретились случайно, когда опоздали на последний поезд на одной из станций. Они влюбились друг в друга с первого взгляда, окончили колледж и начали жить вместе, работая по совместительству. Однако, когда Муги устроился на работу, и ритм жизни изменился, их чувства подверглись испытаниям.Производство: Япония, Tokyo Theatres, Little MoreЖанр: МелодрамаРежиссер: Нобухиро ДоиАктеры: Кэйко Тода, Каору Кобаяси, Каната Хосода, Джо Одагири, Рё Ивамацу, Кая Киёхара, Мамору ОсииПеревод: Двуголосый любительский (АрхиAsia)Субтитры: Русские, английские - отдельными файламиПродолжительность: 02:03:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E34D193232E23D22A70F729C92B8877BBD0A51D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373382   (879921) от 06.04.2020
+
+Ужасающая одержимость / Mayaku baishun G-men: Kyofu no niku jigoku / The Horrible Obsessions (1972) WEB-DLRip [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879921.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая девушка выбрасывается из окна пятого этажа. В ее крови обнаружены наркотики. Агент по борьбе с наркотиками Кикути (Сонни Тиба) отправляется на Окинаву провести расследование. Прибыв на место, Кикути выясняет, что местных наркоторговцев подмяли под себя бандиты из Токио, но и они всего лишь марионетки и за ними стоит более крупная рыба.Производство: Япония / Toei CompanyЖанр: КриминалРежиссер: Син ТакакуваАктеры: Сонни Тиба, Цунэхико Ватасэ, Мицуко Аои, Митсуи Хорикоши, Риэ Ёкояма, Акико Мори, Мититаро Мидзусима, Эйдзи Го, Хайме Кубо, Рокко ТораПеревод: Одноголосый любительский (Виктор Береговых)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:28:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C3B370D9850062E881A30A9FA7BE1F53BEC0344
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 295778   (879122) от 22.02.2011
 
 2046 / 2046 (2004) DVDRip [H.264]
@@ -6,7 +84,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879122.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878931.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878086.jpg" />
 </div>
 
 
@@ -86,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876576.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876563.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875820.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872860.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872451.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872340.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872201.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870598.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870509.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869788.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ J2: J Возмездие / J2: J Retribusi (2021) WEB-DLRip [AVO]
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869656.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868833.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868616.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867681.jpg" />
 </div>
 
 
@@ -452,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867275.jpg" />
 </div>
 
 
@@ -478,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867192.jpg" />
 </div>
 
 
@@ -504,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867106.jpg" />
 </div>
 
 
@@ -530,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866948.jpg" />
 </div>
 
 
@@ -556,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866111.jpg" />
 </div>
 
 
@@ -582,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865625.jpg" />
 </div>
 
 
@@ -593,84 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5472110A1AB7A8EC74653110631DE8C4F734A48F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375546   (865612) от 14.04.2020
-
-Прошлой зимой, прощание с тобой / Kyonen no fuyu, kimi to wakare / Last Winter, We Parted (2018) HDRip [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865612.jpg" />
-</div>
-
-
-###  Подробнее
-
-Писатель Кёсукэ Якумото для своей следующей книги берётся за расследование дела об убийстве и поджоге, где главным подозреваемым является модный фотограф. Тот прославился серией снимков бабочек, но затем впал в творческий кризис и пытался сделать фотографии умирающей женщины, охваченной огнем.Производство: Япония / C&I EntertainmentЖанр: Драма, детектив, криминалРежиссер: Томоюки ТакимотоАктеры: Таканори Ивата, Мидзуки Ямамото, Такуми Саито, Рэина Асами, Кадзуки Китамура, Кахо ЦутимураПеревод: Двуголосый любительский (Karipso и Адриан)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:58:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DC7E382B400624F139B1EC5F635BC28EBD87038
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375542   (865610) от 14.04.2020
-
-Сегодня в романтическом кинотеатре / Kon'ya, romansu gekijo de / Tonight, at the Movies (2018) HDRip [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пожилой мужчина по имени Кэндзи лежит в больнице и читает медсестре сценарий фильма, который начал писать ещё в молодости. Когда-то давно он работал помощником режиссера и любил захаживать в местный кинотеатр, где смотрел старые чёрно-белые фильмы. Увидев ленту под названием «Принцесса-пацанка и весёлые зверушки», парень безнадёжно влюбился в главную героиню, и с (   Читать дальше...   )Производство: Япония / Filmmakers, Fuji Television Network Inc., Horipro Inc.Жанр: Мелодрама, фэнтезиРежиссер: Хидэки ТакэутиАктеры: Харука Аясэ, Кэнтаро Сакагути, Акира Эмото, Цубаса Хонда, Анна Исибаси, Го Като, Кадзуки Китамура, Акиёси Накао, Токума Нисиока, Мицухиро ТадаПеревод: Двуголосый любительский (RusFilm)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:48:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67E988A904E63AB482D94C832CA0A58C2E7EBBD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375474   (865494) от 14.04.2020
-
-Тайны гостевого дома / Qie xiao jin jia de lu guan / Secrets in the Hot Spring (2018) HDRip [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865494.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трое не особо дружных одноклассников отправляются на каникулы в старый отель, которым заведует бабушка одного из них. Отель мало того, что выглядит жутко, так там еще слышатся страшные звуки, и бабушка, кажется, тоже выжила из ума. Каникулы намечаются интересные.Производство: Тайвань, Third Man Entertainment, Huace Pictures, Arrow Cinematic GroupЖанр: Комедия, ужасыРежиссер: Линь ГуаньхуэйАктеры: Чжан Тинху, Син Хом, Линь Хе-Сюан, Мими Чу, Чин Чи, Лау Ка-Ин, Чиу Кай Вэй, Ко Шуяо, Си Цу, Джада ЧаПеревод: Двуголосый любительский (Asian Miracle Group)Субтитры: Английские, немецкие, китайские, японские - отдельными файламиПродолжительность: 01:48:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18AE5D482E70F0F6B6AE7C5F91CE3F922B476BEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,135 +1,3 @@
-###  Публикация: 1674694   (160804) от 06.11.2023
-
-В.С. Миронов | Традиции школы живописи художественно-промышленной aкадемии им. А.Л. Штиглица (2009) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Задача этого альбома — познакомить читателя с достижениями кафедры общей живописи прославленного учебного заведения, каким является Санкт-Петербургская Государственная художественно-­промышленная Академия им. А.Л. Штиглица.
-
-За почти 60 лет своего существования кафедра освоила различные методики преподавания, накопила богатый изобразительный материал, создала по-настоящему (   Читать дальше...   )Жанр: Искусство, ЖивописьИздательство: Лики РоссииФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:734C0399BEE553A4E5ED6807490D3FEF34E8B8FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674695   (160783) от 06.11.2023
-
-В.В. Пугин | Традиции школы рисования художественно-промышленной академии им. А.Л. Штиглица (2009) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современные тенденции в художественно-промышленном образовании - компьютеризация художественного процесса - ослабляют внимание студентов к академическому рисунку. И этот альбом призван поддержать исторически сложившуюся нормативность обучения базовой дисциплине. Он может служить учебным пособием в системе отечественного профессионального образования, представляя (   Читать дальше...   )Жанр: Искусство, РисованиеИздательство: Лики РоссииФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E731A5EE5B733711B0A3DF24226F3D989786AEDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674932   (160643) от 07.11.2023
-
-В.И. Гольданский | Физическая химия позитрона и позитрония (1968) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160643.jpg" />
-</div>
-
-
-###  Подробнее
-
-Монография посвящена одному из важных разделов современной ядерной химии - использованию аннигиляции позитронов для исследования физических и химических свойств вещества. Описываются общие свойства позитронов, картина их замедления в веществе, процессы образования и гибели простейшего водородоподобного "атома" - позитрония. Анализируются пути использования (   Читать дальше...   )Жанр: ХимияИздательство: НаукаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C48BBC761CC49F6CFA5C04A5C70E5443469E0533
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674827   (160606) от 07.11.2023
-
-Ю.Л. Ильин | Тепловозы серий  ТЭЗ и ТЭ7 (2009) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160606.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тепловозы ТЭЗ были самой многочисленной серией дизельных локомотивов на железных дорогах СССР. Они сыграли решающую роль в переходе железных дорог страны с паровой на тепловозную тягу. Само их появление предопределило дальнейшее развитие отечественного тепловозостроения. Указанные причины дают достаточно оснований для того, чтобы посвятить этой серии, а также пассажирскому (   Читать дальше...   )Жанр: история техникиИздательство: ИД "Ноосфера СПб"Формат: PDFКачество: Обработанный скан + OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EE96C279ED448B3F06A62FA19B9E398C0082D60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674825   (160602) от 07.11.2023
-
-Ю.Л. Ильин, С.В. Критский | Тепловозы М62 (2010) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160602.jpg" />
-</div>
-
-
-###  Подробнее
-
-Локомотивы серии М62 получили широкое распространение на железных дорогах Северного полушария: от Кубы до Кореи, включая Восточную Европу и республики бывшего СССР. Их эксплуатация началась еще в 1964 г. и продолжается по настоящее время. Вместе с тем история появления машин этой серии, а также их эксплуатация на просторах бывшего СССР освещены еще явно недостаточно. (   Читать дальше...   )Жанр: история техникиЯзык: Русский, АнглийскийИздательство: ИД "Ноосфера СПб"Формат: PDFКачество: Обработанный скан + OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83C08428FD2169C705EBF3D54D46B01543D70F91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674924   (160598) от 07.11.2023
 
 Е. Ким | Мезонные атомы и ядерная структура (1975) [PDF]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160598.jpg" />
 </div>
 
 
@@ -164,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160558.jpg" />
 </div>
 
 
@@ -190,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160554.jpg" />
 </div>
 
 
@@ -216,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160527.jpg" />
 </div>
 
 
@@ -243,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160387.jpg" />
 </div>
 
 
@@ -270,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160382.jpg" />
 </div>
 
 
@@ -297,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160375.jpg" />
 </div>
 
 
@@ -323,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160360.jpg" />
 </div>
 
 
@@ -350,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160153.jpg" />
 </div>
 
 
@@ -376,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160123.jpg" />
 </div>
 
 
@@ -402,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160107.jpg" />
 </div>
 
 
@@ -429,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159994.jpg" />
 </div>
 
 
@@ -456,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159985.jpg" />
 </div>
 
 
@@ -482,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159842.jpg" />
 </div>
 
 
@@ -509,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159728.jpg" />
 </div>
 
 
@@ -535,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159589.jpg" />
 </div>
 
 
@@ -561,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159548.jpg" />
 </div>
 
 
@@ -587,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159547.jpg" />
 </div>
 
 
@@ -614,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159526.jpg" />
 </div>
 
 
@@ -640,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159514.jpg" />
 </div>
 
 
@@ -666,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159498.jpg" />
 </div>
 
 
@@ -677,6 +545,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F4C0E07269488D98D9246C43B2D0873247DD2AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599976   (159228) от 25.12.2022
+
+Майк Доу | Независимый мозг (2022) [FB2]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159228.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаете ли вы, что в медицинской среде существует термин "засахаренный мозг"? Да-да, он меньше по объему, у него хуже проводимость сигнальных путей, а еще он значительно менее функционален.
+
+Вот лишь некоторые последствия избытка сахара в рационе:
+- неврозы и психозы;(   Читать дальше...   )Жанр: Популярная анатомия и физиологияПеревод: А. ЩербинаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85B1DFDF874EE4F0C7CF3EB162841ACDBE8716D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599973   (159212) от 25.12.2022
+
+О. Абакумов | Мне только спросить. Как болеть и лечиться правильно (2023) [EPUB]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор книги Олег Абакумов, известный врач-терапевт, топовый блогер. Вы узнаете всё о симптомах и причинах самых распространенных заболеваний - от ОРВИ до гипотиреоза, болезней сердца, почек, и др., а также о подходе к лечению болезней с точки зрения доказательной медицины. В книге даны подробные списки анализов и обследований для всех возрастов. Перечислены бесполезные (   Читать дальше...   )Жанр: Популярная анатомия и физиологияФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2A754C02B0D685F4673E38A8891FFEDBCAC0BE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675846   (159090) от 11.11.2023
+
+С. А. Матвеев | Английский с нуля (2023) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159090.jpg" />
+</div>
+
+
+###  Подробнее
+
+В самоучителе использована специальная методика для начинающих изучение английского языка с нуля. Материал подается от простого к сложному, от глагола to be до условного наклонения. Грамматические темы чередуются с лексическими, развивающими речевые навыки. Постепенно формируются умения задавать вопросы и отвечать на них, рассказывать о себе и знакомых людях, обсуждать (   Читать дальше...   )Жанр: Учебная литератураИздательство: Издательство АСТФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78FBBFC1B58583315C0D390EC47881D731FCBAF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676084   (159013) от 12.11.2023
+
+F. Kroger / Ф. Крёгер | Chemistry of Imperfect Crystals / Химия несовершенных кристаллов (1964) [En] [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159013.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фундаментальный труд по физической химии несовершенных кристаллов, имеющий большое значение, в частности, для развития химии полупроводников и разработки научных основ приготовления полупроводниковых и других материалов, используемых в современной электронике. Сочетание высокого теоретического уровня с прекрасной систематизацией материала и доступностью изложения (   Читать дальше...   )Жанр: ХимияЯзык: АнглийскийИздательство: North-Holland Publishing CompanyФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D99532F91D6C44346FCD96E633D3BFCFCA3F830
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676087   (158993) от 12.11.2023
+
+Ф. Крёгер | Химия несовершенных кристаллов (1969) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фундаментальный труд по физической химии несовершенных кристаллов, имеющий большое значение, в частности, для развития химии полупроводников и разработки научных основ приготовления полупроводниковых и других материалов, используемых в современной электронике. Сочетание высокого теоретического уровня с прекрасной систематизацией материала и доступностью изложения (   Читать дальше...   )Жанр: ХимияИздательство: МирФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8C4FA8E147A726CC49EA2525825E74F903276E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

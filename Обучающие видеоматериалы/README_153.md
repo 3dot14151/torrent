@@ -1,3 +1,32 @@
+###  Публикация: 1494544   (420568) от 27.08.2022
+
+Вердикт Максим | Тотальный игнор. Концентрат (2021) WEB-DL [AD]
+
+>>Обучающие видеоматериалы
+>>Психология и саморазвитие (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420568.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полный список тем:
+
+- 10 эффектов тотального ИГНОРА
+- Что именно чувствует девушка в тотальном игноре? Новые НЮАНСЫ.(   Читать дальше...   )Жанр: Психология отношенийПродолжительность: 01:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3AC667B1601E279C4575BF33C411969E17D17BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494547   (420563) от 27.08.2022
 
 Вердикт Максим | Взлом женской симпатии (2021) WEB-DL
@@ -6,7 +35,7 @@
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420563.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Linux Academy | Внедрение полного конвейера CI/CD (2020
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420022.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420018.jpg" />
 </div>
 
 
@@ -92,7 +121,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420010.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419774.jpg" />
 </div>
 
 
@@ -145,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_419009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_419009.jpg" />
 </div>
 
 
@@ -171,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418899.jpg" />
 </div>
 
 
@@ -198,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418013.jpg" />
 </div>
 
 
@@ -227,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417738.jpg" />
 </div>
 
 
@@ -254,7 +283,7 @@ Gumroad, Pierrick Picaut | Багровый Ронин: Создание пер�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417645.jpg" />
 </div>
 
 
@@ -280,7 +309,7 @@ OTUS | PHP-разработчик. Часть 4 из 5 (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417641.jpg" />
 </div>
 
 
@@ -306,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417638.jpg" />
 </div>
 
 
@@ -334,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416822.jpg" />
 </div>
 
 
@@ -361,7 +390,7 @@ Udemy, Hussein Daher | Bug Bounty - An Advanced Guide to Finding Good Bugs (2022
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416511.jpg" />
 </div>
 
 
@@ -388,7 +417,7 @@ Cbtnuggets, Palo Alto | Networks Certified Network Security Engineer (PCNSE) (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416507.jpg" />
 </div>
 
 
@@ -416,7 +445,7 @@ Artstation Masterclasses, Mathew O | Render and Presentation Techniques (2018) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416496.jpg" />
 </div>
 
 
@@ -444,7 +473,7 @@ Sean Fagan | The  Heavy Bag Blueprint (2015) WEBRip [H.264/720p] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416167.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416061.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ BodyRock | Beginner Challenge (2016) WEBRip [H.264/1080p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416011.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ ProfIT | Docker (2019) PCRec [H.264/1080p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415909.jpg" />
 </div>
 
 
@@ -552,7 +581,7 @@ Udemy | Git: Полный курс для начинающих и не толь�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415896.jpg" />
 </div>
 
 
@@ -578,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415307.jpg" />
 </div>
 
 
@@ -604,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415306.jpg" />
 </div>
 
 
@@ -633,7 +662,7 @@ ProfIT| Введение в фреймворк Codeception (2019) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414195.jpg" />
 </div>
 
 
@@ -659,7 +688,7 @@ ProfIT | Про TDD, BDD и вот это всё (2019) PCRec [H.264/1080p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414051.jpg" />
 </div>
 
 
@@ -670,32 +699,6 @@ ProfIT | Про TDD, BDD и вот это всё (2019) PCRec [H.264/1080p-LQ]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:741613292C6DDCE0C4455BF5CD08ECA2A1F3B801
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325367   (414042) от 14.09.2019
-
-ProfIT | MySQL 8 (2019) PCRec [H.264/720p-LQ]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414042.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семинар посвящен не так давно вышедшей новой, восьмой версии популярнейшей базы данных MySQL. Что же так сильно изменилось, что потребовалось столь "круто" менять номер версии? Об это узнаете на вебинаре!Производство: ProfITЖанр: Базы данных, MysqlПродолжительность: 01:13:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97577F9716E5300EA4CC75F920DB2C8C6584A27E
 ```
 
 https://mybot314.ru/tekegram_catalog/

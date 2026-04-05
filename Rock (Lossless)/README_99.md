@@ -1,3 +1,117 @@
+###  Публикация: 1325540   (412102) от 15.09.2019
+
+Dan McCafferty (Ex. Nazareth) - Last Testament (2019) [FLAC|Lossless|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You and Me
+02. Why
+03. Looking Back
+04. Tell Me(   Читать дальше...   )Жанр: RockПродолжительность: 01:06:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D37D287001F9BC69F1CD2BB8AD98541B61D83554
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413064   (412020) от 02.10.2020
+
+Marco Bernard and Kimmo Porsti (The Samurai Of Prog ) - Gulliver (2020) [FLAC|Lossless|image + .cue] <Progressive Rock, Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture XI
+02. Lilliput Suite
+03. The Giants
+04. The Land Of The Fools(   Читать дальше...   )Жанр: Progressive Rock, Symphonic RockПродолжительность: 01:02:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8027E031047C0CD6C896774A61DCFD4D9C33547
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413019   (412019) от 02.10.2020
+
+Marco Bernard and Kimmo Porsti (The Samurai Of Prog) - La Tierra (2020) [FLAC|Lossless|image + .cue] <Progressive Rock, Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vuelo Sagrado
+02. El Error
+03. Voz De Estrella Que Muere
+04. Ansia De Sonar(   Читать дальше...   )Жанр: Progressive Rock, Symphonic RockПродолжительность: 01:09:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C44DB830777FAE1B01B8828980E3C778F5F6186F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413035   (411924) от 02.10.2020
+
+The Samurai Of Prog - The Demise Of The Third King's Empire (2020) [FLAC|Lossless|image + .cue] <Progressive Rock, Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Book Of Knowledge (02:02)
+02. The Demise Of The Third King's Empire (57:10)Жанр: Progressive Rock, Symphonic RockПродолжительность: 00:59:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49F593118E8717D7CD8B21044815DB4E2E52DC7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1413140   (411742) от 02.10.2020
 
 Elvis Presley - Elvis His First Christmas Album Now in Stereo (2020) New Mono to Stereo Mixes [FLAC|Lossless|WEB-DL|tracks + .cue] <Rock & Roll>
@@ -6,7 +120,7 @@ Elvis Presley - Elvis His First Christmas Album Now in Stereo (2020) New Mono to
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411742.jpg" />
 </div>
 
 
@@ -35,7 +149,7 @@ Roger Waters - Us + Them (2020) Live [FLAC|Lossless|WEB-DL|tracks + .cue] <Progr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411730.jpg" />
 </div>
 
 
@@ -64,7 +178,7 @@ Leo Sayer - Restless Years (2015) [FLAC|Lossless]<Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411386.jpg" />
 </div>
 
 
@@ -93,7 +207,7 @@ Bayside - Acoustic Volume 2 (2018) [FLAC|Lossless|tracks + .cue] <Punk Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411302.jpg" />
 </div>
 
 
@@ -122,7 +236,7 @@ Eloy - The Vision, The Sword & The Pyre (Part I) (2017) [FLAC|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410502.jpg" />
 </div>
 
 
@@ -151,7 +265,7 @@ Soft Machine - Bundles (1975) Remastered And Expanded Edition, 2022, 2CD [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410483.jpg" />
 </div>
 
 
@@ -180,7 +294,7 @@ Suzi Quatro - Legend: The Best Of (2017) [FLAC|Lossless|WEB-DL|tracks] <Rock, Ha
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410346.jpg" />
 </div>
 
 
@@ -209,7 +323,7 @@ Theo - Figureheads (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410111.jpg" />
 </div>
 
 
@@ -238,7 +352,7 @@ Kraan - Sandglass (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410108.jpg" />
 </div>
 
 
@@ -267,7 +381,7 @@ The Archipelago - Mind And Failure (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410106.jpg" />
 </div>
 
 
@@ -296,7 +410,7 @@ Fish On Friday - Black Rain (2020) [FLAC|Lossless|tracks + .cue] <Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410005.jpg" />
 </div>
 
 
@@ -325,7 +439,7 @@ Cairo - Say (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409910.jpg" />
 </div>
 
 
@@ -354,7 +468,7 @@ National Health - 7 альбомов (1978-2009) 9 CD, Дискография [W
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409754.jpg" />
 </div>
 
 
@@ -383,7 +497,7 @@ Queen + Adam Lambert - Live Around The World (2020) [FLAC|Lossless|WEB-DL|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409676.jpg" />
 </div>
 
 
@@ -412,7 +526,7 @@ Status Quo - Aquostic II That's A Fact! (2016) 2CD Deluxe Edition [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409624.jpg" />
 </div>
 
 
@@ -441,7 +555,7 @@ Phideaux - Infernal (2018) 2CD [FLAC|Lossless|tracks + .cue] <Prog Rock, Symphon
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409312.jpg" />
 </div>
 
 
@@ -470,7 +584,7 @@ The Laser's Edge - PROG presents- The Laser's Edge Group (2022) [FLAC|Lossless|W
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408866.jpg" />
 </div>
 
 
@@ -499,7 +613,7 @@ Hiss Golden Messenger - Hallelujah Anyhow (2017) [FLAC|Lossless|tracks + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408854.jpg" />
 </div>
 
 
@@ -528,7 +642,7 @@ The Alan Parsons Project - Tales of Mystery and Imagination (1976) Japanese Edit
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408791.jpg" />
 </div>
 
 
@@ -557,7 +671,7 @@ The Doors - The Singles (2017) 2CD + Blu-ray, Blu-ray Audio, Deluxe Edition Box 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408642.jpg" />
 </div>
 
 
@@ -586,7 +700,7 @@ Timelight - Selah! (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408543.jpg" />
 </div>
 
 
@@ -615,7 +729,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408538.jpg" />
 </div>
 
 
@@ -629,122 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:469090EC38D0B7712C38E47050D484CBDEA0C0F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413548   (408207) от 04.10.2020
-
-VA - I Love Rock'n'Roll! (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dire Straits - Money For Nothing (Edit) (04:04)
-02. Lynyrd Skynyrd - Simple Man (05:59)
-03. Kiss - Rock And Roll All Nite (02:46)
-04. Billy Idol - Rebel Yell (Edit) (03:46)(   Читать дальше...   )Жанр: RockПродолжительность: 02:16:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E66CA458EC01BAA9C8BF21B62216CCE38F33A84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252698   (407983) от 06.10.2018
-
-Steve Perry (Ex. Journey) - Traces (2018) [FLAC|Lossless|WEB-DL|tracks] <Soft Rock, Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Erasin'
-02. We're Still Here
-03. Most Of All
-04. No More Cryin'(   Читать дальше...   )Жанр: Soft Rock, Melodic RockПродолжительность: 00:40:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F036D38FAE470B73342BE7080E89A15E5ED92CA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252845   (407902) от 06.10.2018
-
-Tom Petty - An American Treasure (2018) 4CD Box Set, Compilation [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You and Me (Clubhouse Version, 2007) - Tom Petty & The Heartbreakers (3:13)
- 02. Have Love Will Travel - Tom Petty & The Heartbreakers (4:05)
- 03. Money Becomes King - Tom Petty & The Heartbreakers (5:11)
- 04. Bus to Tampa Bay (Outtake, 2011) - Tom Petty & The Heartbreakers (2:56)(   Читать дальше...   )Жанр: RockПродолжительность: 04:05:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D091FCA564D085E90373F0C7E96ECD7935AB3D8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252850   (407803) от 06.10.2018
-
-John Lennon - Imagine (1971) 2018, 2CD, Reissue, Remastered, Calderstone Productions Limited [FLAC|Lossless|image + .cue] <Pop Rock, Art Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407803.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
- 01. Imagine (3:06)
- 02. Crippled Inside (3:51)
- 03. Jealous Guy (4:14)(   Читать дальше...   )Жанр: Pop Rock, Art RockПродолжительность: CD1 - 01:00:49 + CD2 - 01:13:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62CB21CF9843A4A9BF4DF522F912E81DB88E263E
 ```
 
 https://mybot314.ru/tekegram_catalog/

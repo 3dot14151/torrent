@@ -1,3 +1,57 @@
+###  Публикация: 1837763   (257682) от 18.11.2025
+
+Е.В. Тимофеева | Математика. 5–6 классы [2-e издание] (2025) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257682.jpg" />
+</div>
+
+
+###  Подробнее
+
+Надоело искать в учебниках нужную информацию в море формул и теорем? Вас спасет книга, в которой изложены алгоритмы решения типовых задач по математике, изучаемых в 5 и 6 классах.
+
+Перед алгоритмом приводится только важная теория по теме с необходимыми правилами и формулами. Сам алгоритм поделен на четкие шаги, следуя которым можно справиться с любой задачей по математике. (   Читать дальше...   )Жанр: Обучение и развитие детей, Школьные учебники по математикеИздательство: ЭксмоФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A39A66A35738701B8B61DFEE78C6608B283DF5A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837792   (257659) от 19.11.2025
+
+Д.А. Соловков | ЕГЭ по химии. Задания высокого уровня сложности. 8–11 классы (2021) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257659.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данное пособие, посвященное заданиям высокого уровня сложности, поможет учащимся подготовиться к выполнению части 2 любого варианта ЕГЭ по химии. В пособие включены все типы заданий, которые могут встретиться ученику на экзамене. Изложен теоретический материал, рассматривается решение наиболее типичных примеров с подробным объяснением к каждому заданию, приводятся (   Читать дальше...   )Жанр: Учебное пособиеИздательство: ВАКОФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:400F9241F1BE4868B7B0DDC4EF91769ABCD459BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 500706   (257477) от 24.05.2012
 
 Григорий Адамов | Тайна двух океанов [1984] [FB2]
@@ -6,7 +60,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257477.jpg" />
 </div>
 
 
@@ -35,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257307.jpg" />
 </div>
 
 
@@ -61,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257018.jpg" />
 </div>
 
 
@@ -93,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256950.jpg" />
 </div>
 
 
@@ -119,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256945.jpg" />
 </div>
 
 
@@ -148,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256932.jpg" />
 </div>
 
 
@@ -174,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256906.jpg" />
 </div>
 
 
@@ -201,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256879.jpg" />
 </div>
 
 
@@ -230,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256338.jpg" />
 </div>
 
 
@@ -263,7 +317,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256329.jpg" />
 </div>
 
 
@@ -291,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255728.jpg" />
 </div>
 
 
@@ -319,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255019.jpg" />
 </div>
 
 
@@ -346,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254980.jpg" />
 </div>
 
 
@@ -374,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254366.jpg" />
 </div>
 
 
@@ -402,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254354.jpg" />
 </div>
 
 
@@ -428,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254352.jpg" />
 </div>
 
 
@@ -454,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254015.jpg" />
 </div>
 
 
@@ -482,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253830.jpg" />
 </div>
 
 
@@ -508,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253827.jpg" />
 </div>
 
 
@@ -535,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253781.jpg" />
 </div>
 
 
@@ -561,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253733.jpg" />
 </div>
 
 
@@ -587,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253724.jpg" />
 </div>
 
 
@@ -617,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252766.jpg" />
 </div>
 
 
@@ -645,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252700.jpg" />
 </div>
 
 
@@ -657,58 +711,6 @@ The Best. Children - интересная серия для детей. Публ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF5A374E46E2DC2AA10B52A4820C8F7DA006DA3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496005   (252397) от 13.05.2012
-
-Журнал | Между нами, мамочками №4 [2012] [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Журналы для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252397.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Между нами, мамочками» — ежемесячный интерактивный журнал «от читателей и для читателей». Он дает возможность молодым и опытным мамам обмениваться знаниями в области ухода и воспитания детей, задавать вопросы и помогать друг другу полезными советами. Кроме того, на страницах журнала родители имеют возможность получить консультации высококвалифицированных специалистов — врачей, педагогов, психологов и т. д. — которые ответят на их вопросы касательно детских болезней и способов их лечения, а также профессиональных советов по уходу и воспитанию крохи.2012      Формат: PDF    
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0CB4FDA4C33A192F43A87E97E21EBBDD32F3072
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496003   (252390) от 13.05.2012
-
-Журнал | Между нами, мамочками №5 [2012] [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Журналы для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252390.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Между нами, мамочками» — ежемесячный интерактивный журнал «от читателей и для читателей». Он дает возможность молодым и опытным мамам обмениваться знаниями в области ухода и воспитания детей, задавать вопросы и помогать друг другу полезными советами. Кроме того, на страницах журнала родители имеют возможность получить консультации высококвалифицированных специалистов — врачей, педагогов, психологов и т. д. — которые ответят на их вопросы касательно детских болезней и способов их лечения, а также профессиональных советов по уходу и воспитанию крохи.2012      Формат: PDF    
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08A85A20D1E3C89BFD325FE5994BB84EF507FCDC
 ```
 
 https://mybot314.ru/tekegram_catalog/

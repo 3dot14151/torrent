@@ -1,3 +1,29 @@
+###  Публикация: 1787872   (23337) от 27.03.2025
+
+Зина Шамоян | Выход из детских травм (2022) WEBRip [RU]
+
+>>Обучающие видеоматериалы
+>>Психология и саморазвитие (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23337.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курсы представляют собой программы по работе с детскими травмами, блоками и сценариями, которые могут мешать достижению финансового благополучия, личностного роста и отношений. Техники помогают освободиться от негативных влияний прошлого, а подкасты предлагают глубокие размышления и практики для изменения мышления и поведения.Жанр: обучающий курсЯзык озвучки: РусскийПродолжительность: 05:45:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F359A000D36D806D97446A8D51C86284080DFAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1787847   (23326) от 27.03.2025
 
 Зина Шамоян | 15 вебинаров Закрытого клуба (2022) WEBRip [RU]
@@ -6,7 +32,7 @@
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23326.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23309.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23302.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23231.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23141.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23127.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22697.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ PluralSight | Cisco CCNA Security Introduction to Network Security (2014) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22551.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22442.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ ProfIT | XDebug: полезное расширение для каждого р�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22422.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22338.jpg" />
 </div>
 
 
@@ -302,7 +328,7 @@ Zerocoder, Вадим Михалев | Зерокодер мобильных п�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22237.jpg" />
 </div>
 
 
@@ -331,7 +357,7 @@ Zerocoder | Станьте профессиональным зерокодеро
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22236.jpg" />
 </div>
 
 
@@ -359,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22235.jpg" />
 </div>
 
 
@@ -388,7 +414,7 @@ Zerocoder, Кирилл Пшинник, Мария Размазина и д.р. 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22234.jpg" />
 </div>
 
 
@@ -414,7 +440,7 @@ Zerocoder, Вадим Михалев | Зерокодер на Bubble (2020) WEB
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21893.jpg" />
 </div>
 
 
@@ -443,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21786.jpg" />
 </div>
 
 
@@ -472,7 +498,7 @@ Stepik, Дмитрий Фокеев | Полный курс по React JS (Redux
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21394.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ Udemy, Антон Ларичев | Docker + Ansible - с нуля, деплой 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21076.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20952.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ George Vondriska | Создайте станцию для беспроводно
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20526.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ PurpleSchool, Антон Ларичев, Сергей Краснолобов | R
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20350.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ Udemy, Christ Raharja | Cloning Yourself with AI: Create AI Version of Yourself 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20337.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ Udemy, 3D Tudor, Vladan Trhlik | Blender Geometry Nodes - Boats (2025) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20313.jpg" />
 </div>
 
 
@@ -657,7 +683,7 @@ Blender Studio, Simon Thommes | Stylized Rendering with Brushstrokes (2024) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20215.jpg" />
 </div>
 
 
@@ -670,34 +696,6 @@ Blender Studio, Simon Thommes | Stylized Rendering with Brushstrokes (2024) PCRe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4F1945C7D9D64EAC84219C7993C6A7F5CF9F46B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793826   (20213) от 26.04.2025
-
-Udemy, Hamood Mehmood | Beginner Car Rigging & Animation in Blender (2025) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Независимо от того, являетесь ли вы новичком в 3D или хотите усовершенствовать свои навыки, этот курс проведет вас через весь процесс — от создания окружения до передовых методов анимации.
-Мы начнем с создания полностью процедурной дорожной системы (да, совершенно бесплатно!), а затем перейдем к созданию насыщенного и захватывающего окружения.
-Затем вы создадите (   Читать дальше...   )Производство: UdemyЖанр: 3D моделирование, Риггинг, АнимацияЯзык озвучки: АнглийскийПродолжительность: 01:18:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FCE1A6B590D41EC064B1FAEADAA16D189D0D3BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1414233   (387578) от 07.10.2020
+
+Эврика / Eureka / Yurika (2000) HDTVRip [Rus Sub]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ о нескольких отверженных: шофере автобуса, подозреваемом в совершении преступления, двух детях-сиротах, их кузене - случайном студенте. Судьба, однажды случайно соединившая героев в одной точке, сводит их вновь.Производство: Япония, DENTSU Music And Entertainment, Imagica Corp., J WorksЖанр: ДрамаРежиссер: Синдзи АоямаАктеры: Кодзи Якусё, Аои Миядзаки, Масару Миядзаки, Ёитиро Сайто, Саюри Кокусё, Кэн Мицуиси, Го Ридзю, Ютака Мацусигэ, Сансэй Сиоми, Кимиэ СингёдзиПеревод: ОтсутствуетСубтитры: Русские (arexibo) - отдельным файломПродолжительность: 03:37:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B26C55553CA9DC499E87A706B032D6D4A6A0940
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574321   (387455) от 04.09.2022
+
+Над обрывом / Xuan ya zhi shang / Cliff Walkers (2021) BDRip [H.264] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387455.jpg" />
+</div>
+
+
+###  Подробнее
+
+1930-е. Марионеточное государство Маньчжоу-го. Четыре коммунистических агента, прошедших подготовку в Советском Союзе, готовят спецоперацию. Они высаживаются в заснеженном лесу и разделяются по двое: первая группа обнаруживает, что их предали, и, убив шпионов, пускается в бега; вторая же попадает в сети правительственных агентов, даже об этом не догадываясь. Теперь (   Читать дальше...   )Производство: Китай, China Film Co., Ltd., Emperor Motion Pictures, Huaxia Film DistributionЖанр: драма, триллерРежиссер: Имоу ЧжанАктеры: Чжан И, Хэвэй Юй, Цинь Хайлу, Явэнь Чжу, Лю Хаоцюнь, Ни Дахун, Ли Найвэнь, Юй Айлэй, Цзяинь Лэй, Ша ИПеревод: любительский многоголосый (Head Pack Films)Субтитры: английскиеПродолжительность: 02:00:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8070BFF9F6558CF38F9D3D6C05802B8529DB7973
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1066557   (387252) от 29.10.2016
 
 Орёл Тихого океана / Taiheiyo no washi (1953) DVDRip [VO]
@@ -6,7 +58,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387252.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386590.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385915.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385164.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385084.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385012.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383756.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383522.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382204.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382060.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381297.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381033.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377095.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376913.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375470.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375193.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374793.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374791.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374407.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373204.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372921.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372712.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372413.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372316.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92D5F7C546FA28CB2A7F1DDBE0F1603D1251E93B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 721078   (372193) от 11.11.2013
-
-Пом Пом наносит ответный удар / Shuang long tu zhu / Pom Pom Strikes Back (1986) DVDRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полицейские Джон и Ричард по-прежнему слывут самыми безалаберными детективами в своем отделе, но начальник верит, что для этих двоих еще не все потеряно и поручает им охранять девчушку-свидетельницу по делу об ограблении на 80 миллионов. Намаявшись с отелями, напарники поселяют ее в своей квартире, пока жена Ричарда отсутствует…Производство: ГонконгЖанр: Комедия, БоевикРежиссер: Йип Винг ЧоАктеры: Джон Шам, Ричард Нг, Динни Йип, Майкл Чан, Мэй Ло, Билли Чинг, Ву Ма, Деннис Чан, Зебра Пан, Йип Винг-Чо, Коби Вонг, Ма Чао, Нг Мин-Кан, Стэнли Фунг, Филлип Чан, Фунг Кин-МанПеревод: Одноголосый закадровыйПродолжительность: 01:25:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BEDC464B9986B38B93308DABDC690991CEDCEBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415934   (371574) от 14.10.2020
-
-Полночная закусочная (Ночной ресторан) / Shinya shokudo / Midnight Diner (2014) BDRip [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371574.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Полночная закусочная" открывается ровно в полночь и работает до 7 утра. Здесь нет меню, но хозяин ресторана, он же повар, может приготовить почти любое блюдо, которое закажет его гость. А гости сюда приходят абсолютно разные. В фильме "Ночной ресторан" вы увидите три истории: о "меркантильной" женщине, бросившей молодого любовника, (   Читать дальше...   )Производство: Япония, Shogakukan, Kinoshita Komuten, Toei CompanyЖанр: Драма, комедияРежиссер: Дзёдзи МацуокаАктеры: Каору Кобаяси, Саки Такаока, Токио Эмото, Хироюки Мотои, Акира Сагара, Микако Табэ, Киёхико Сибукава, Мицуки Танимура, Ёсиюки Морисита, Макото АрикаваПеревод: Одноголосый любительский (Павел Тимонин aka 3df)Субтитры: Английские - отдельным файломПродолжительность: 01:59:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3826B416866513B3672EC37DEBF08159861FEEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

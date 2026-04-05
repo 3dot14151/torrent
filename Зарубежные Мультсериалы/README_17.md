@@ -1,3 +1,55 @@
+###  Публикация: 1385163   (736029) от 25.07.2020
+
+Дрожащая правда / The Shivering Truth (2020) WEB-DL  [H.264/1080p-LQ] (сезон 2, серии 1-6 из 6) NewStation
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736029.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Дрожащая правда» - это реактивная миниатюрная кассетная бомба до боли безудержных дневных кошмаров, истекающих оранжевой слизью логики сновидений. Ряд малосвязанных эмоциональных притч об историях внутри рассказов, которые выползли из глубочайших пещер вашего подсознания и стали милейшими мультяшками в зашлёпывающей покадровой съёмке, - иными словами, это правда.Производство: США, Adult SwimЖанр: Для взрослых, черная комедия, ужасыРежиссер: Вернон ЧатманПеревод: Многоголосый профессиональный (NewStation) Присутствует ненормативная лексика!Субтитры: английскиеПродолжительность: ~00:11:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9A24A6756F7DAC8379DC784A06B0B2D848A4D4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524781   (734890) от 01.02.2022
+
+Шоу Патрика Стара / The Patrick Star Show (2021) WEBRip [H.264/1080p] (сезон 1, серии 3 из 7)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734890.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Патрика наконец-то есть свой самостоятельный сериал, что не удивительно, ведь он был рождён звездой! Как и вся его не менее звездная семья: папаша-весельчак Сесил, мать Банни с танцующей татуировкой на спине, ворчливый дедуля Стар и восьмилетняя сестра Сквидина — надежда семьи и продюсер звездного шоу Патрика. В полном соответствии с последними модными тенденциями (   Читать дальше...   )Производство: США, Nickelodeon Animation Studios, United Plankton PicturesЖанр: Мультфильм, фэнтези, комедия, семейныйРежиссер: Шерм Коэн, Дэйв КаннингэмАктеры: Билл Фагербакки, Дэна Снайдер, Кри Саммер, Джилл Тэлли, Томас Ф. Уилсон, Том Кенни, Ди Брэдли Бейкер, Мистер Лоуренс, Роджер Бампасс, Кейт ХиггинсПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: ~00:21:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFFFB797CB29E79085D559963BCE972F6605F214
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 649216   (733109) от 24.05.2014
 
 Монстры против Пришельцев / Monsters vs. Aliens (2013) WEB-DLRip (серия 1-52 из 52)
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733109.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_732252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_732252.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731856.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731298.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_731231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_731231.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730852.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730836.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730429.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729085.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728396.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728094.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727520.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725675.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722965.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722962.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722350.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722221.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719330.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719300.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718922.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718817.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718812.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718678.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718673.jpg" />
 </div>
 
 
@@ -618,58 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0725A29D718C944CF1D6FAB1344D2C7148E25815
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285518   (718587) от 27.02.2019
-
-Даллас и Робо / Dallas & Robo (2018) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-8 из 8) NewStation
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дерзкая космическая дальнобойщица Даллас и самопровозглашённый воин-поэт Робо, должны обходить байкеров-каннибалов, траки конкурентов и торговые автоматы с буррито, пытаясь выгадать лишний бакс в этом захудалом мире межпланетного сговора на торгах.Производство: СШАЖанр: Комедия, Приключения, фантастикаРежиссер: Джон Сина, Кэт Деннингс, Стивен Рут, Тим Блейк Нельсон, Дэна Снайдер, Милана Вайнтруб, Джанкарло Эспозито, Джейн ЛинчПеревод: Двуголосый закадровый, любительский (NewStation)Субтитры: нетПродолжительность: ~00:22:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BDB19A8BA399869484BC05656DF31C9CC793FEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276631   (718382) от 27.02.2019
-
-Шахерезада. Нерассказанные истории / Sherazade: The Untold Stories (2017-2019) WEB-DLRip [H.264/720p-LQ] (сезон 1, серии 1-26 из 26) [Обновляемая]
-
->>След.
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718382.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отважная девушка Шахерезада должна помочь своему другу принцу Кариму вернуться на его законный трон. Карим был свергнут своим братом и с помощью злых заклинаний превращен в синего монстра. Шахерезада и ее преданный друг вынуждены покинуть Золотой Город, чтобы найти волшебное средство — Древо Жизни, которое помогло бы принцу вновь стать человеком. Путешествие друзей (   Читать дальше...   )Производство: Австралия, Германия, ИндияЖанр: Приключенческий мультсериалРежиссер: Джоди Гэннон, Стив Бристов, Люк ДжуревисиусАктеры: Юлия Довганишина, Григорий Сиятвинда, Сергей Смирнов, Александр Зачиняев, Татьяна Шитова...Персонажи: Шахерезада, Принц Карим, Джинн Халил, Аладдин, Синдбад, Али-Баба...Перевод: Русский / Дублированный / CLS MЕDIAСубтитры: ОтсутствуютПродолжительность: ~00:24:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C47641167767AEF85507355ACD72A02E7FD56C1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

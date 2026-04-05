@@ -1,3 +1,58 @@
+###  Публикация: 1181592   (323722) от 07.11.2017
+
+Газета | Тайны ХХ века. Спецвыпуск №5. Секретные архивы (2017) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы сморите очередной номер нового издания «Секретные архивы".
+Редакция подготовила для вас захватывающие сюжеты о людях и событиях, до недавнего времени известных только узкому кругу лиц. В основе всех статей - документы, с которых лишь несколько лет назад был снят гриф "секретно" - деятельность спецслужб, тайны жизни и смерти людей, вершивших судьбы (   Читать дальше...   )Жанр: Популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12034026CF235E75075BA9C32A74F089DAFD2124
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075556   (321284) от 22.11.2016
+
+Газета | Обереги для счастья в новом году №16 (120) (2016) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вас преследуют неудачи? Нет денег? Муж изменяет? Хотите найти новых друзей?
+Об этом и многом другом на страницах газеты.
+Сканирование и обработка Алёнка 007.Жанр: Магия, приворот, заговор, эзотерикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88D08DA4154633607A80FEE0460C6C5E534590E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1075579   (321164) от 22.11.2016
 
 Газета | Столетник №22 (2016) [PDF]
@@ -6,7 +61,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321164.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321081.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321012.jpg" />
 </div>
 
 
@@ -84,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320589.jpg" />
 </div>
 
 
@@ -110,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_319412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_319412.jpg" />
 </div>
 
 
@@ -137,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319274.jpg" />
 </div>
 
 
@@ -163,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318790.jpg" />
 </div>
 
 
@@ -189,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318617.jpg" />
 </div>
 
 
@@ -215,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318538.jpg" />
 </div>
 
 
@@ -241,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317885.jpg" />
 </div>
 
 
@@ -267,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317724.jpg" />
 </div>
 
 
@@ -293,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317161.jpg" />
 </div>
 
 
@@ -319,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317143.jpg" />
 </div>
 
 
@@ -345,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317067.jpg" />
 </div>
 
 
@@ -371,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315827.jpg" />
 </div>
 
 
@@ -397,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315789.jpg" />
 </div>
 
 
@@ -423,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315100.jpg" />
 </div>
 
 
@@ -449,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314960.jpg" />
 </div>
 
 
@@ -475,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314959.jpg" />
 </div>
 
 
@@ -501,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314848.jpg" />
 </div>
 
 
@@ -527,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314843.jpg" />
 </div>
 
 
@@ -553,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314724.jpg" />
 </div>
 
 
@@ -579,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314577.jpg" />
 </div>
 
 
@@ -605,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314413.jpg" />
 </div>
 
 
@@ -616,61 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87A24C7DA75946E053E9ED4C86EFCBD25C3153A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332349   (313991) от 20.10.2019
-
-Андрей Сазонов | Кожа: мифы и правда о самом большом органе (2019) [MP3]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наша кожа – самый большой по площади и массе орган нашего тела, которому мы либо уделяем чрезмерное внимание, либо не уделяем его совсем. Она всегда перед нашими глазами, со своими морщинками, рубчиками, прыщиками, но, как правило, знаем мы о работе и роли нашей кожи очень мало.
-
-Сегодня нас преследует огромное количество рекламы косметических средств для кожи, массажи (   Читать дальше...   )Жанр: Анатомия и физиология, Здоровье, Научно-популярная литература, Популярно о медицинеПродолжительность: 08:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECFB626204736A98513D7FA219C9A3B271575FD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583427   (313356) от 02.12.2012
-
-Журнал | АиФ. Спецвыпуск. Вопросы и ответы № 21 [2012] [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313356.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый, 2013 год совсем близко. Согласно китайскому календарю, он пройдет под знаком черной водяной Змеи. Что принесет он каждому из нас? Об этом рассказывают разные гороскопы - традиционный зодиакальный, новомодный китайский, а также редкие гороскопы друидов и славян. Все они собраны в этом спецвыпуске "АиФ". Предсказания разделены на четыре раздела: "Здоровье", "Личная жизнь", "Работа" и "Деньги". А в восточном гороскопе вы найдете предсказания по каждой из этих составляющих в отдельности. Это значит, что гороскоп от "АиФ" будет полезен для вас в течение 2013 года.
-Пусть год Змеи будет для вас успешным!Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFEBB868538B0AE9CC72675BE06D5B0A97DED2DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

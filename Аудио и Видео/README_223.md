@@ -6,7 +6,7 @@
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277638.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277631.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277623.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277063.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277062.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276818.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276500.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276486.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276456.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276452.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276421.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276108.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275733.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275580.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275534.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275501.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275428.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275228.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275184.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275173.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275167.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275153.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275137.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275065.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275058.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274532.jpg" />
 </div>
 
 

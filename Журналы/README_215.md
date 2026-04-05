@@ -1,3 +1,108 @@
+###  Публикация: 507076   (685852) от 07.06.2012
+
+Журнал | Знание-сила №6 [июнь 2012] [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685852.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Знание-сила» мыслит себя как «мост между наукой и обществом». Основной своей задачей он видит разговор с думающими людьми всех возрастов и специальностей о новых тенденциях в науке и обществе, о связях между разными областями науки и мысли и главное – выявления человеческого смысла всякого знания. Журнал «Знание-сила» был основан в январе 1926 года.июнь 2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD579B0EA5AA543432E150837A4CC1634A2FFF3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 507178   (685851) от 07.06.2012
+
+Журнал | Сервисный центр №4 [2012] [DJVU]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сервисный центр призван ликвидировать существующий "информационный голод" у специалистов ремонтных служб вычислительных центров, специалистов АСУ предприятий и организаций России. Благодаря журналу, Вы познакомитесь с современными методиками и методами диагностирования и ремонта сложной вычислительной техники и оргтехники. С помощью журнала Вы сможете изучить принципы построения и работу сложных устройств вычислительной техники, схемотехнику системных плат, мониторов, различного вида принтеров, устройств внешней памяти, UPS, блоков питания, устройств копировальной техники различного типа. В справочном разделе Вы найдете информацию по современной электронной элементной базе применяемой в современных устройствах. Опытные специалисты смогут расширить свой кругозор и углубить свои знания по многим вопросам. Один из разделов журнала будет знакомить Вас с современными сетевыми технологиями, с принципами организации, работы, эксплуатации и диагностирования современных компьютерных сетей. Вы познакомитесь с (   Читать дальше...   )2012Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00410D453FDA532BD7AD191DF859DCE2E0FFC516
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 507169   (685675) от 07.06.2012
+
+Журнал | Digital Photo №6 [июнь 2012] [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685675.jpg" />
+</div>
+
+
+###  Подробнее
+
+Digital Photo - лучший российский ежемесячный журнал о цифровой фотографии и фототехнике. Издание отличается европейским уровнем подачи материалов и уникальными материалами на основе собственных тестов. Журнал ориентирован как на новичков, только открывающих для себя удивительный мир цифровой фотографии, так и на опытных фотолюбителей.2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDFE0A81765E3B1CB3DDBCC3FA120664431637C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 507311   (685285) от 07.06.2012
+
+Подшивка журналов | Солдат удачи + спецвыпуски [все 177 номеров] [1994-2009] [PDF]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685285.jpg" />
+</div>
+
+
+###  Подробнее
+
+В журнале «Солдат удачи» вы сможете ознакомиться с откровениями сотрудников спецслужб и спецподразделений России, США и других стран, с рассказами профессиональных солдат, руководителей служб безопасности и охраны, экспертов и разработчиков оружия и спец средств, авантюристов и искателей приключений.
+Журнал для тех, чья профессия защищать. К сожалению после 2009 (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABC240097DE9E232BCF7C0816835151BFAF03490
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222396   (685169) от 29.04.2018
 
 Газета | 1000 секретов [Украина] №8 (апрель 2018) [PDF]
@@ -6,7 +111,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685169.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685163.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685161.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685131.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685078.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684983.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684866.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684861.jpg" />
 </div>
 
 
@@ -214,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684849.jpg" />
 </div>
 
 
@@ -240,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684811.jpg" />
 </div>
 
 
@@ -266,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684609.jpg" />
 </div>
 
 
@@ -292,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684549.jpg" />
 </div>
 
 
@@ -318,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684532.jpg" />
 </div>
 
 
@@ -345,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684414.jpg" />
 </div>
 
 
@@ -371,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684373.jpg" />
 </div>
 
 
@@ -397,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684370.jpg" />
 </div>
 
 
@@ -423,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684329.jpg" />
 </div>
 
 
@@ -449,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684326.jpg" />
 </div>
 
 
@@ -475,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684239.jpg" />
 </div>
 
 
@@ -502,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684238.jpg" />
 </div>
 
 
@@ -528,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684227.jpg" />
 </div>
 
 
@@ -554,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684223.jpg" />
 </div>
 
 
@@ -565,110 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE4344D9CE659DB2BF35FE80CE055E4F91100954
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535555   (684217) от 07.03.2022
-
-Журнал | Practical Electronics №4 (2022) [PDF][En]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Английский журнал по электронике для радиолюбителей. С апреля 2019 года выходит под новым названием - Practical Electronics. В каждом номере публикуются конструкции для повторения различного уровня сложности с описанием, схемами, печатными платами и прошивками для микроконтроллеровЖанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0CD3E6070D18AC09AFAA01E86675C16005F7801
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029221   (684193) от 25.06.2016
-
-Журнал | Журнал сетевых решений LAN №6 (230) (июнь 2016) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание для специалистов по проектированию, установке, эксплуатации и модернизации информационных систем о компьютерных сетях, системах передачи данных, управления сетями, средствах связи, системах безопасности разного уровня. Тематика охватывает весь круг вопросов, связанных с корпоративными сетями, их сопряжением с общедоступными сетями, вычислительной и телекоммуникационной (   Читать дальше...   )Жанр: Компьютерный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC1C7D1F22CD1AB88E0C38B2B75AEA18447B3DCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289920   (684127) от 17.03.2019
-
-Журнал | Вязание ваше хобби. Приложение к журналу №4 Модная весна 2019 (2019) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684127.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Вязание - ваше хобби» - ежемесячный журнал по вязанию на спицах и крючком. В каждом номере суперхиты вязаной моды для каждого сезона - самых модных, самых элегантных, самых экстравагантных, из новых видов пряжи, с эксклюзивным декором. Наряду со сложными в исполнении моделями, требующими мастерства и терпения, есть модели для начинающих рукодельниц.Жанр: вязаниеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9968F4720DDEEE090245E29F6A96C43CD493A95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289923   (684121) от 17.03.2019
-
-Журнал | Sandra вязание №1 (2019) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал по вязанию спицами и крючком представляет коллекцию современного женского трикотажа. Нежные женственные кофточки. Однотонные пуловеры из яркой пряжи с ажурными узорами. Молодежные модели из меланжевой пряжи. Теплые жилеты для прохладных весенних дней. Кофточки простого исполнения с оригинальными фасонами. Ажурные платья и платья белого цвета для романтичных (   Читать дальше...   )Жанр: вязаниеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2A8A56885E97091169460A8C6A4CA20CB4E5819
 ```
 
 https://mybot314.ru/tekegram_catalog/

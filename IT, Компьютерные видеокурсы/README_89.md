@@ -1,31 +1,3 @@
-###  Публикация: 1662907   (187238) от 19.09.2023
-
-Udemy, Andrei Dumitrescu | OpenAI API with Python Bootcamp: ChatGPT API, GPT-4, DALL·E (2023) WEB-DL [AD] [RU / EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187238.jpg" />
-</div>
-
-
-###  Подробнее
-
-***Полностью обновлено для последней версии API OpenAI, включая API ChatGPT, выпущенной в марте 2023 года. ***
-Добро пожаловать на лучший ресурс для изучения API OpenAI с Python и интеграции новейших моделей OpenAI в ваши приложения.
-Этот API OpenAI с Python Bootcamp охватывает все модели, выпущенные OpenAI, имеющие API, включая GPT-3 (Davinci), ChatGPT (gpt-3.5-turbo), (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: Русский, АнглийскийПродолжительность: 09:12:58Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D00A7F2B0D274B5539A07610C54E732B97307634
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1662887   (187226) от 19.09.2023
 
 Rebrain, Fevlake | NGINX онлайн-практикум (2023) WEB-DL [AD] [RU]
@@ -34,7 +6,7 @@ Rebrain, Fevlake | NGINX онлайн-практикум (2023) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187226.jpg" />
 </div>
 
 
@@ -61,7 +33,7 @@ Udemy, Alpha Omondi Ogilo | MERN Invoice Web App with Docker,NGINX and ReduxTool
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187005.jpg" />
 </div>
 
 
@@ -88,7 +60,7 @@ Udemy, Bogdan Stashchuk | Python - Полный Курс по Python, Django, Da
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186900.jpg" />
 </div>
 
 
@@ -115,7 +87,7 @@ Udemy, Eincode by Filip Jerga, Filip Jerga | Svelte and Firebase: The Full Cours
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186768.jpg" />
 </div>
 
 
@@ -142,7 +114,7 @@ Traversymedia | MERN From Scratch (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186725.jpg" />
 </div>
 
 
@@ -168,7 +140,7 @@ Deworker Pro, Дмитрий Елисеев | Доменная модель и E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_186704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186704.jpg" />
 </div>
 
 
@@ -194,7 +166,7 @@ Deworker Pro, Дмитрий Елисеев | Техзадание и дизай
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186700.jpg" />
 </div>
 
 
@@ -220,7 +192,7 @@ Deworker Pro, Дмитрий Елисеев | Практический рефа�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_186687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186687.jpg" />
 </div>
 
 
@@ -248,7 +220,7 @@ Deworker Pro, Дмитрий Елисеев | Модульное разделе�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_186669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186669.jpg" />
 </div>
 
 
@@ -274,7 +246,7 @@ Deworker Pro, Дмитрий Елисеев | Устройство HTTP-фрей
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_186658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186658.jpg" />
 </div>
 
 
@@ -300,7 +272,7 @@ Deworker Pro, Дмитрий Елисеев | Использование HTTP з
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_186628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186628.jpg" />
 </div>
 
 
@@ -326,7 +298,7 @@ Thinknetica Pro, Алексей Наумов | Под капотом Ruby on Rai
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186529.jpg" />
 </div>
 
 
@@ -355,7 +327,7 @@ Slurm (Слёрм), Егор Лукьянов, Александр Вагнер |
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186496.jpg" />
 </div>
 
 
@@ -384,7 +356,7 @@ Anthony GG | Full Time Go Dev (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186343.jpg" />
 </div>
 
 
@@ -412,7 +384,7 @@ Udemy, Nikita Sergeev | Управление проектами: полное п
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186341.jpg" />
 </div>
 
 
@@ -440,7 +412,7 @@ Systems.Education, babok-school.ru, Дарья Колесова, Анна Вич
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186320.jpg" />
 </div>
 
 
@@ -469,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186317.jpg" />
 </div>
 
 
@@ -496,7 +468,7 @@ Systems.Education, babok-school.ru, Зоя Степчева, Анна Вичуг
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186312.jpg" />
 </div>
 
 
@@ -522,7 +494,7 @@ JUG Ru Group | DotNext 2023. Конференция для .NET‑разрабо
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186184.jpg" />
 </div>
 
 
@@ -548,7 +520,7 @@ JUG Ru Group | DevOops 2023. Конференция по инженерным р
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186174.jpg" />
 </div>
 
 
@@ -574,7 +546,7 @@ Udemy, Василий Швалев | Ultimate QGIS: с нуля до экспе�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186172.jpg" />
 </div>
 
 
@@ -603,7 +575,7 @@ Thinknetica Pro, Кирилл Храпков  | Проектирование Б�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186142.jpg" />
 </div>
 
 
@@ -631,7 +603,7 @@ Udemy, Martin Yanev | ChatGPT Software Mastery: Build, Deploy & Sell AI Apps (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185767.jpg" />
 </div>
 
 
@@ -657,7 +629,7 @@ Udemy, Dharmanandana Reddy Pothula | Advanced Ethical Hacking : Mastery AI & Cha
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185709.jpg" />
 </div>
 
 
@@ -686,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185696.jpg" />
 </div>
 
 
@@ -700,6 +672,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE4072367B8F2E1592D6828E485D01D9591C44FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592155   (184879) от 20.11.2022
+
+Udemy, Sergey Dragunov | Room Persistance Librar - Приложение ShoppingList на Котлин (2022) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184879.jpg" />
+</div>
+
+
+###  Подробнее
+
+На данном курсе мы изучим подробно работу с библиотекой Room persistance library для работы с базой данных SQLite. Для того что бы уроки были более понятными и интересными, проще усвоились мы будем изучать данную тему на создание полностью законченного приложения "Список покупок и Блокнот", а именно у нас будет два в одном. В процессе создания мы не только (   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 14:57:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85B72D5013C3277DF6772599DD0B3C37E28EE3A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

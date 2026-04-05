@@ -6,7 +6,7 @@ BusyCal 2023.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175395.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Allavsoft Video Downloader Converter 3.25.9.8679  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175390.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Hazel 5.2.2 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175387.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Bartender 5 v.5.0.39 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175364.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Topaz Video AI for Mac 3.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175333.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Posterino 3 v3.9.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175324.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ PhotoSweeper X 3.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175320.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Valentina Studio Pro 10.5.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175312.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ VideoDuke 1.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175308.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Rogue Amoeba Farrago 1.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175291.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Motion 5.6.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175284.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Xmas snow 1.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175263.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Exposure Software Blow Up 3 v3.1.4.360 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175252.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Bootstrap Studio 5.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175232.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Fission 2.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175228.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Morph Age 5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175225.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ App Cleaner & Uninstaller Pro 8.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175220.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Whisk 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175212.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Vidmore Player 1.0.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175209.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ CrossOver 23.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175205.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Exposure Software Snap Art 4 v4.1.3.351 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175200.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ Vidmore Video Converter 2.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175194.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ AYVY 1.7.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175162.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Dark Reader for Safari 1.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175152.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Adobe InCopy 2021 v16.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175131.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Zoc Terminal 8.01.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175096.jpg" />
 </div>
 
 

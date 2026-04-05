@@ -1,3 +1,32 @@
+###  Публикация: 1188535   (272430) от 04.12.2017
+
+Jag Panzer - The Deviant Chord (2017) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Born of the Flame
+02. Far Beyond All Fear
+03. The Deviant Chord
+04. Blacklist(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F1A0477A8722F580B86E0CBDA20BC5682657353
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1188544   (272386) от 04.12.2017
 
 Excalion - Dream Alive (2017) [FLAC|Lossless|image + .cue] <Power Metal>
@@ -6,7 +35,7 @@ Excalion - Dream Alive (2017) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272386.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Ellipsis - From Beyond Thematics (2004) [FLAC|Lossless|image + .cue] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272385.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Drugger - Dementia (1996) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272384.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Chroming Rose - The Gift (1999) 2CD [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272382.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Elegy - Manifestation Of Fear (1998) [FLAC|Lossless|image + .cue] <Progressive P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272380.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Coven - Blessed Is The Black (1987) [FLAC|Lossless|image + .cue] <Power Metal, T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272377.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Celtic Frost - Into the Pandemonium (1987) Remastered, 2017 [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272375.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Kadavar - Kadavar (2012) [FLAC|Lossless|image + .cue] <Stoner Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272372.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Kadavar - Berlin (2015) [FLAC|Lossless|image + .cue] <Stoner Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272371.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Nargaroth - Era of Threnody (2017) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272367.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ King Crimson - Teatro Toniola, Mestre Venice, Italy (1995) 2010 [FLAC|Lossless|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272325.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Celtic Frost - Vanity / Nemesis (1990) Remastered, 2017 [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272305.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Celtic Frost - To Mega Therion (1985) Remastered, 2017 [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272302.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Celtic Frost - Morbid Tales (1984) Remastered, 2017 [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272301.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Orden Ogan - Gunmen (2017) Japan [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272299.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Banshee - Take 'Em By Storm (1993) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272298.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Almanac - Kingslayer (2017) Limited Edition [FLAC|Lossless|image + .cue] <Sympho
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272295.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272226.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ FireForce - Annihilate the Evil (2017) [FLAC|Lossless|image + .cue] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272118.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ APG - This Brutal Addiction (2007) [FLAC|Lossless|tracks + .cue] <Hard Rock, Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272111.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Green Carnation - 5 Albums, 1 Live, 1 EP (2000-2006) 10 CD [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272059.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ The Matrixx - Сингл (2018) Single [MP3|320 Kbps] <Neo-Post-Gothic, Alternat
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272052.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ Emigrate - A Million Degrees (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternative M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272048.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ VA - Улица Свободных - Тараканы! (2018) Parts 1 & 2 [MP3|3
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272034.jpg" />
 </div>
 
 
@@ -700,7 +729,7 @@ BrainStorm - Closer to You (2018) EP [MP3|320 Kbps] <Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271986.jpg" />
 </div>
 
 
@@ -714,32 +743,6 @@ BrainStorm - Closer to You (2018) EP [MP3|320 Kbps] <Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C685E4CDF7D8426C5E4166450A208BAB10733DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 347148   (271962) от 30.11.2018
-
-Sphinx - 4 альбома (2003-2010) [MP3|320 kbps]<Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271962.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Symphonic Power Metal
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:522FA10F3FF293DF5686A114B8A6EC8A5F3F2608
 ```
 
 https://mybot314.ru/tekegram_catalog/

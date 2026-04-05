@@ -1,3 +1,29 @@
+###  Публикация: 992962   (896775) от 04.03.2016
+
+Lynda.com | Основные принципы дизайна логотипа (2013) PCRec [H.264/720p]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Избежать ошибок, улучшить процесс проектирования, реагировать на требовательных клиентов, и решать творческие задачи, которые участвуют в создании логотипа. В этом курсе Von Glitschka показывает вам, как заботиться о мелочах, как контракты, а также о важнейших решениях дизайна, участвующие в построении пакета бренда. Научитесь определять ожидания вашего клиента до (   Читать дальше...   )Жанр: Веб-дизайнПродолжительность: 02:45:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3197626D4B94E017EB6FBCDDBD123B4C031044A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370475   (896380) от 27.03.2020
 
 Udemy | Архитектурный дизайн и анимация в Blender 2.8 / Architectural Design & Animation in Blender 2.8x (2020) PCRec [H.264/720p-LQ] [EN]
@@ -6,7 +32,7 @@ Udemy | Архитектурный дизайн и анимация в Blender 2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896380.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ BeFiT | Intensity Fitness Series (2017) HDTVRip [H.264/720p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895681.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Rohan Dalvi | Shader building in Houdini (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895321.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895281.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895238.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ Traanan | Обучение трейдингу На NYSE/NASDAQ/AMEX GT Capital (
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895174.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ pennystock.ru | Курс по торговле - PUMP AND DUMP (2014) PCRec [H.2
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895131.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ Udemy | Улучшение вашего рабочего процесса с Gul
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895126.jpg" />
 </div>
 
 
@@ -224,7 +250,7 @@ Udemy, Центр digital-профессий ITtensive | Основы прогр
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895106.jpg" />
 </div>
 
 
@@ -251,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895105.jpg" />
 </div>
 
 
@@ -280,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895069.jpg" />
 </div>
 
 
@@ -309,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894926.jpg" />
 </div>
 
 
@@ -338,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893551.jpg" />
 </div>
 
 
@@ -367,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893393.jpg" />
 </div>
 
 
@@ -394,7 +420,7 @@ CG Cookie | Понимание данных Blender / Understanding Blender Data
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893359.jpg" />
 </div>
 
 
@@ -421,7 +447,7 @@ CG Cookie | Производственный дизайн в Blender 2.8 и  Eev
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893296.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ CG Cookie | Основы анимации в Blender 2.8 / Fundamentals of Anima
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893232.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ Pluralsight.com | JavaScript Promises и Асинхронное программ
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893230.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893154.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893149.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893007.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892184.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891865.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ CG Cookie | Анимация пламени с помощью Grease Pencil в B
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891609.jpg" />
 </div>
 
 
@@ -663,7 +689,7 @@ CG Cookie | Создание и анимация низкополигональ�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891586.jpg" />
 </div>
 
 
@@ -675,32 +701,6 @@ CG Cookie | Создание и анимация низкополигональ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25AE9FEED62426276D1C7C0C3F57DAD4E9E1B46C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371314   (891497) от 30.03.2020
-
-OTUS | РНР для начинающих программистов (2020) PCRec [H.264/1080p-LQ]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891497.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все необходимые знания и навыки для курса "Backend-разработчик на PHP"Производство: Александр ПряхинЖанр: Программирование, РНРПродолжительность: 04:16:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F250682CB4B3FB088344B30F23D0118D7C0A8573
 ```
 
 https://mybot314.ru/tekegram_catalog/

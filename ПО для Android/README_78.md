@@ -1,3 +1,108 @@
+###  Публикация: 1644706   (209709) от 06.07.2023
+
+Energy Ring: Universal Edition ER_UNI_FREE_4.5 Mod by youarefinished [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Energy Ring - ещё один проект по персонализации, что предназначен только для определённых моделей мобильных гаджетов. А всё из-за того, что в данном случае пользователи смогут добавить информационное кольцо вокруг фронтальной камеры на устройства на которых экран занимает максимально количество пространства панели. Таким образом объектив окружён сенсорной поверхностью, (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 22.06.2023Разработчик: IJPПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20B28A1F80B8C594D1C96FF3E6643B7B6C7E8231
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644741   (209654) от 06.07.2023
+
+AOA: Always on Display 5.7.1 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209654.jpg" />
+</div>
+
+
+###  Подробнее
+
+AOA: Always on Display - проект по персонализации, что предлагает пользователям существенно расширить возможности их мобильного гаджета и при этом сделать его ещё более стильным и радующим глаз. Данная программа включает постоянно отображаемый экран на который могут выводиться полезная информация, уведомления и так далее. При этом вся структура подвержена контролю (   Читать дальше...   )Тип издания: ProРелиз состоялся: 06.07.2023Разработчик: newGen MobileПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8EFD82209EC6A7EBBD9147CE6FA3105D6D4AB95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644871   (209491) от 07.07.2023
+
+Блокировщик Камеры и Микрофона 1.10.2 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Блокировщик Камеры и Микрофона предоставляет два уровня защиты:
+Базовый уровень, при котором пароль не задействован. Усиленный уровень, при котором пароль заблокирован (например, в Режиме Местоположения камера/микрофон блокируются в случае, если местоположение устройства не может быть определено.Тип издания: ModРелиз состоялся: 22.11.2020Разработчик: GuardevПоддерживаемая ОС: 5.0+Язык интерфейса: Русский, английский и др
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F027640E4B97D5D09079261A344CE22AED924BAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645428   (209437) от 09.07.2023
+
+PlayerPro Music Player 5.34 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209437.jpg" />
+</div>
+
+
+###  Подробнее
+
+PlayerPro Music Player - аудиоплеер, что предоставляет пользователям доступ к многим функциям, что понравятся меломанам. Тут не только удобный поиск по всему разнообразию, интуитивное управление, а так же симпатичный внешний вид оболочки, но и многочисленные настройки, эквалайзер, система создания плейлистов и многое другое. Поклонники нестандартных проектов по достоинству (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 02.07.2023Разработчик: BlastOn SAПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D7FD2AE299BF252C6C696925F2709F5655CB5B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1603520   (209431) от 21.01.2023
 
 Bazaart: Photo Editor & Graphic Design v1.20.0 [Ru/Multi]
@@ -6,7 +111,7 @@ Bazaart: Photo Editor & Graphic Design v1.20.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209431.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ Beelinguapp 2.936 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209379.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209251.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ DjVu Reader & Viewer (читалка) 1.0.81 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209211.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209194.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ Human Anatomy Atlas 2023 v2023.0.09 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209040.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ Daylio - Mood Tracker / Дневник - Трекер Настроения v1.53
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208943.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208835.jpg" />
 </div>
 
 
@@ -214,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208809.jpg" />
 </div>
 
 
@@ -240,7 +345,7 @@ VPN service - VPN Beaver Proxy 2.31 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208725.jpg" />
 </div>
 
 
@@ -268,7 +373,7 @@ VPN RedCat 1.0.16 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208692.jpg" />
 </div>
 
 
@@ -296,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208665.jpg" />
 </div>
 
 
@@ -324,7 +429,7 @@ Videoleap by Lightricks 1.6.4 Mod by ImanAlien, 0x7d [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208342.jpg" />
 </div>
 
 
@@ -350,7 +455,7 @@ Alight Motion 5.0.94.103891 Mod by t1n0r, Alexey070315 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208315.jpg" />
 </div>
 
 
@@ -376,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208306.jpg" />
 </div>
 
 
@@ -402,7 +507,7 @@ Idea Share / Передача файлов WiFi v1.3.14 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208224.jpg" />
 </div>
 
 
@@ -428,7 +533,7 @@ Projectivy Launcher 4.34 Mod by TryRoom [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208210.jpg" />
 </div>
 
 
@@ -454,7 +559,7 @@ SmartDriver: АнтиРадар ГИБДД v1.14.6.36587 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208161.jpg" />
 </div>
 
 
@@ -483,7 +588,7 @@ exFAT/NTFS for USB by Paragon 3.6.0.1 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208145.jpg" />
 </div>
 
 
@@ -511,7 +616,7 @@ XFolder File Manager / XFolder - Файловый менеджер 1.4.5.1 Mod b
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208143.jpg" />
 </div>
 
 
@@ -537,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208127.jpg" />
 </div>
 
 
@@ -564,7 +669,7 @@ Pawxy: Fast VPN & Browser 1.4.3 Mod by ANiK555 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208056.jpg" />
 </div>
 
 
@@ -575,110 +680,6 @@ Pawxy: Fast VPN & Browser 1.4.3 Mod by ANiK555 [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DBF52887E83602DC8D2A4C515A87E3F078CB264
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649006   (208005) от 25.07.2023
-
-Always on Edge 8.0.1 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Always On Edge - отличный проект для персонализации рабочего стола мобильного устройства. Точнее для улучшения восприятия самого экрана. Особенно в момент когда он выключен. Проект запускает две синхронно перемещающиеся линии по его краю. Различные настройки, возможности, выбор параметров и всё прочее помогает найти оптимальный вариант. Что в любом случае порадует (   Читать дальше...   )Тип издания: ProРелиз состоялся: 20.07.2023Разработчик: Alrbea Ent.Поддерживаемая ОС: Android 8.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:160A8F519992D86C832452D03A465D0EF85E7F75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648884   (207948) от 25.07.2023
-
-Total Commander 3.42d Mod by cvvar00 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207948.jpg" />
-</div>
-
-
-###  Подробнее
-
-Total Commander - Android-версия культового файлового менеджера ставшего идеальным выбором для всех пользователей предпочитающих минималистично-скромный стиль, а так же феноменально богатый набор возможностей и функционала. Который подойдёт и для повседневного использования среднестатистического человека и для профессионала в одной из сфер деятельности. Да и большинство (   Читать дальше...   )Тип издания: ModРелиз состоялся: 29.05.2023Разработчик: C. GhislerПоддерживаемая ОС: Android 2.2+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C7415546D33E1D7A72EEE4DE85E7FD75F4F5ADE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649215   (207893) от 26.07.2023
-
-Радио онлайн - PCRADIO 2.7.0.4 Mod by DATV 74 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207893.jpg" />
-</div>
-
-
-###  Подробнее
-
-Радио онлайн - PCRADIO - отличный проект, что благодаря своим качествам завоевал весьма впечатляющих размеров аудиторию пользователей. Им предлагается удобная и функциональная платформа для поиска и прослушивания радиостанций и всего прочего потокового аудиоконтента. Порадует и серьёзная экономия трафика. Это обеспечивает совершенно невысокий уровень потребления (   Читать дальше...   )Тип издания: ModРелиз состоялся: 12.07.2023Разработчик: PCRADIOПоддерживаемая ОС: Android TV 6.0+Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBA735701C3A875036D610CCBF5903F6259604C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649349   (207856) от 27.07.2023
-
-Долги и Займы: записная книжка 4.6 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207856.jpg" />
-</div>
-
-
-###  Подробнее
-
-Долги и Займы - Android приложение для ведения учета личного денежного оборота. В утилиту можно вносить имена людей, которые занимали или предоставляли финансовые средства.Релиз состоялся: 26.07.2023Разработчик: FingerDev StudioПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A95838A6D8926E5669B7E3515F1454222AD22B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

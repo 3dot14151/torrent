@@ -1,3 +1,29 @@
+###  Публикация: 1329602   (352117) от 05.10.2019
+
+Джунгли 3D: Волшебство другого мира / The Jungle 3d: Magic Of Another World (2012) BDRemux [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джунгли Коста-Рики по праву считаются самыми зелеными в Центральной Америке. Эта страна буквально погружена в эти тропические леса, которые поражают своей богатой флорой и фауной. Этот документальный фильм поможет вам оказаться в этом раю, не выходя из дома.Производство: Германия, KSMЖанр: Документальный, природа, флора, фаунаРежиссер: Аттила ТенкиПеревод: Одноголосый закадровый, профессиональныйСубтитры: РусскиеПродолжительность: 00:58:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FD771C6554641F2B7C06642E63C9F2938D55534
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329589   (352114) от 05.10.2019
 
 Коралловый риф 3D: Подводный мир Египта / Adventure coral reef 3D: Under the sea of Egypt (2012) BDRemux [H.264/1080p]
@@ -6,7 +32,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352114.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351237.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349998.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ NHK. Мир живой природы VI / Nature Wonder Land VI (2012) HDTVRip 
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349584.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349089.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347920.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347915.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347713.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347621.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ NHK. Мир живой природы VI / Nature Wonder Land VI (2012) HDTVRip 
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344910.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344544.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344314.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343626.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343528.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343395.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343394.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343309.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343303.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343135.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343127.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342940.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ NHK. Мир живой природы VI / Nature Wonder Land VI (2012) HDTVRip 
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342627.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ NHK. Мир живой природы VI / Nature Wonder Land VI (2012) HDTVRip 
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342622.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341151.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341011.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6CED2CFEFC67D0066951A547A741639209A3CA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578841   (340970) от 25.09.2022
-
-Масаи-Мара / Maasai Mara (2020) WEBRip [H.264/720p] (серии 1-2 из 2)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340970.jpg" />
-</div>
-
-
-###  Подробнее
-
-Масаи-Мара – заповедник на юго-западе Кении, в округе Нарок. Является северным продолжением национального парка Серенгети. Заповедник назван в честь племени масаи – традиционного населения региона и реки Мара, которая разделяет его. Масаи-Мара знаменит своими редкими животными и ежегодной миграцией гну, проходящей в сентябре и октябре. В парке Кении Масаи-Мара живут (   Читать дальше...   )Производство: Франция, Sintaxis FilmsЖанр: документальный, природа, флора, фаунаРежиссер: Адам Скотт КеннедиПеревод: одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: 2x ~00:50:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CFB1FE6D9008B6FC652C325BE7C8C2EE08026C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

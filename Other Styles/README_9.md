@@ -1,3 +1,73 @@
+###  Публикация: 602633   (996683) от 16.01.2013
+
+Давид Тухманов - Марши для духового оркестра (2006) [MP3|320 кб/с]<Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Старый марш - 03:43
+02. Марш чемпионов - 04:18
+03. Марш - Кавалерия - 03:04
+04. Марш - Эскорт - 01:42
+05. Марш - Павел - 01:26
+06. Марш - Петр - 01:06
+07. Марш - Суворов - 01:00
+08. Марш - 1812 год - 01:10
+09. Церемониальный марш - 04:26
+10. Марш - Парад - 02:23(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:40:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AAA8487D4DFF33C85C743CA79DB5F44C3C410F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604184   (996457) от 17.01.2013
+
+Охотники на гангстеров / Gangster Squad (2013) [MP3|320 кб/с]<soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. His Name Is Mickey Cohen [2:25]
+02. Welcome To Los Angeles [3:13]
+03. He Can't Have You [1:39]
+04. War For the Soul of LA [2:48]
+05. There Goes Our Ride [1:14]
+06. You Can't Shoot Me [3:52]
+07. Always Knew I'd Die In Burbank [2:30]
+08. You're Talking to God [0:51]
+09. The Bug [2:18]
+10. Hot Potato With a Grenade [3:19](   Читать дальше...   )Жанр: soundtrackПродолжительность: 01:00:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A842014C6474F6CB6C04AF42BC844DB77B92F55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 604547   (996063) от 18.01.2013
 
 Chris Spheeris - Greatest Hits (2CD) (2009) [MP3|320 кб/с]<New Age, Instrumental>
@@ -6,7 +76,7 @@ Chris Spheeris - Greatest Hits (2CD) (2009) [MP3|320 кб/с]<New Age, Instrumen
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996063.jpg" />
 </div>
 
 
@@ -41,7 +111,7 @@ Morning Stars - Only Instrumental (2011) [MP3|320 кб/с]<New age, Native ameri
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995224.jpg" />
 </div>
 
 
@@ -76,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995040.jpg" />
 </div>
 
 
@@ -111,7 +181,7 @@ VA - Союз нерушимый... - Песни и танцы народов С
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994701.jpg" />
 </div>
 
 
@@ -140,7 +210,7 @@ V.A. - Chill n' Brazil (2008) [FLAC|Lossless]<Bossa, Chillout, Lounge>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993423.jpg" />
 </div>
 
 
@@ -175,7 +245,7 @@ Evgeny Grinko - Naive Album (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992632.jpg" />
 </div>
 
 
@@ -204,7 +274,7 @@ VA - Country Legends (12CD) (2005) [MP3|320 кб/с]<Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992170.jpg" />
 </div>
 
 
@@ -239,7 +309,7 @@ Chakra's Dream - 27 albums (2002 - 2009) [MP3|128-320 кб/с]<New age, Meditati
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990753.jpg" />
 </div>
 
 
@@ -274,7 +344,7 @@ Leonard Cohen - Popular Problems (2014) [FLAC|Lossless]<Contemporary folk, Soft 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990691.jpg" />
 </div>
 
 
@@ -303,7 +373,7 @@ VA - Angel Prayer (2012) [MP3|320 кб/с]<New age, Celtic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990575.jpg" />
 </div>
 
 
@@ -338,7 +408,7 @@ Snatam Kaur - Liberation's Door (2009) [MP3|320 kbps]<mantra, spiritual, meditat
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990210.jpg" />
 </div>
 
 
@@ -372,7 +442,7 @@ VA - Romantic Instrumentals. Candle In The Wind (2CD) (1998) [MP3|320 кб/с]<I
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990195.jpg" />
 </div>
 
 
@@ -407,7 +477,7 @@ Atom Music Audio - Wild Planet (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989888.jpg" />
 </div>
 
 
@@ -436,7 +506,7 @@ Atom Music Audio - Sinner: Antihero Themes (2019) [MP3|320 Kbps] <Soundtrack, In
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989883.jpg" />
 </div>
 
 
@@ -465,7 +535,7 @@ Atom Music Audio - Spirit (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989850.jpg" />
 </div>
 
 
@@ -494,7 +564,7 @@ Atom Music Audio - Thunderbolt (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989837.jpg" />
 </div>
 
 
@@ -523,7 +593,7 @@ Atom Music Audio feat. Alexa Ray - From the Ashes (2019) [MP3|320 Kbps] <Soundtr
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989829.jpg" />
 </div>
 
 
@@ -552,7 +622,7 @@ Atom Music Audio - Abyss (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic O
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989774.jpg" />
 </div>
 
 
@@ -581,7 +651,7 @@ Deus Ex: Human Revolution (by Michael McCann) (2011) [FLAC|Lossless]<OST>
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989619.jpg" />
 </div>
 
 
@@ -616,7 +686,7 @@ Quincy Jones / Ray Brown Orchestra - Music From The Adventurers /OST/ (1970) [MP
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989392.jpg" />
 </div>
 
 
@@ -650,7 +720,7 @@ Andrea Bocelli - Passione (2013) [FLAC (tracks+.cue)|Lossless]<Vocal, Ballad>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989089.jpg" />
 </div>
 
 
@@ -685,7 +755,7 @@ Akira Kosemura - Buddhists (2016) 1631 Recordings [FLAC|Lossless|WEB-DL|tracks] 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989001.jpg" />
 </div>
 
 
@@ -714,7 +784,7 @@ David Nevue - Awakenings: The Best of David Nevue 2001-2010 (2012) [FLAC|Lossles
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988580.jpg" />
 </div>
 
 
@@ -743,7 +813,7 @@ David Nevue - Whisperings: The Best of David Nevue 1985-2000 (2001) [FLAC|Lossle
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988576.jpg" />
 </div>
 
 
@@ -757,61 +827,6 @@ David Nevue - Whisperings: The Best of David Nevue 1985-2000 (2001) [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAABA327964EFDEC96CF65AE875874624031605E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 163621   (988284) от 05.01.2010
-
-Enya - дискография (7CD) (1988-2005) [WavPack (image+.cue)|Lossless] <New Age, Celtic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: New Age, CelticПродолжительность: 00:45:35
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 658858   (987773) от 22.01.2020
-
-Gipsy Kings - Volare: The Very Best Of The Gipsy Kings (1999) [FLAC|Lossless] <Flamenco, Latin>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Volare (Nel Blu Di Pinto Di Blu) - 3:39
-02. Bamboleo - 3:24
-03. Djobi Djoba - 3:25
-04. Bem, Bem, Maria - 3:04(   Читать дальше...   )Жанр: Flamenco, LatinПродолжительность: 00:75:40 + 00:75:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04360229AA315A5F9C118B9BB139F777306E0B8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

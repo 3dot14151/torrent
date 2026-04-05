@@ -1,4 +1,88 @@
 https://t.me/izofen
+###  Публикация: 1862649   (1063306) от 
+
+М.Г. Привес, Н.К. Лысенков, В.И. Бушкович | Анатомия человека (2006) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063306.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед Вами фундаментальный учебник для студентов медицинских вузов, выдержавший множество переизданий. В нем представлены всеобъемлющие сведения по функциональной анатомии человека. Приведены общие данные о строении тела человека, детально рассмотрены опорно-двигательный аппарат, внутренние органы, нервная система и органы чувств. Книга содержит иллюстрации, которые (   Читать дальше...   )Жанр: Научная, учебная литератураИздательство: СПбМАПОФормат: PDF, DJVUКачество: Обработанный скан, Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8D0E4856ABAA122DCDE1CB4915D8E31969DB67C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862266   (1063217) от 
+
+Дуг Лоу | Электроника все в одном для чайников (2026) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотите разобраться в электронике и создавать свои устройства, но боитесь сложностей?
+Эта книга объясняет все доступным языком — от базовых компонентов до Arduino и Raspberry Pi.
+8 полноценных учебников в одном томе.
+(   Читать дальше...   )Жанр: ЭлектроникаИздательство: Эксмо, БОМБОРАФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C85B26E2850EA73FEC39973BF168AA896F87459D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862325   (1063198) от 
+
+Владимир Рюмин | Занимательная электротехника. Опыты и простые устройства своими руками. Лучшие советские учебники (2025) [FB2, RTF, EPUB, MOBI]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Владимир Рюмин — известный популяризатор науки — объясняет электричество просто и увлекательно. В книге — десятки демонстраций и сборок: от электрофора до простейшего электромотора, телеграфа и домашних сигнализаций — вы увидите электротехнику в действии.
+
+- Как обнаружить электрический заряд и собрать простой электроскоп?
+(   Читать дальше...   )Жанр: ЭлектроникаИздательство: ЭксмоФормат: FB2, RTF, EPUB, MOBIКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE5CF65284131396CED5AF14D7F2999D35AF7C56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1861716   (1062788) от 
 
 М.С. Мирзоев, А.Э. Сатторов | Математическая машина Тьюринга и вычислительная сложность. Учебное пособие (2020) [PDF]
@@ -7,7 +91,7 @@ https://t.me/izofen
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062788.jpg" />
 </div>
 
 
@@ -34,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062782.jpg" />
 </div>
 
 
@@ -61,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061298.jpg" />
 </div>
 
 
@@ -87,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061297.jpg" />
 </div>
 
 
@@ -113,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061296.jpg" />
 </div>
 
 
@@ -140,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060819.jpg" />
 </div>
 
 
@@ -166,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060447.jpg" />
 </div>
 
 
@@ -193,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060349.jpg" />
 </div>
 
 
@@ -219,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060318.jpg" />
 </div>
 
 
@@ -245,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060316.jpg" />
 </div>
 
 
@@ -271,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060314.jpg" />
 </div>
 
 
@@ -297,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060254.jpg" />
 </div>
 
 
@@ -324,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060114.jpg" />
 </div>
 
 
@@ -351,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060113.jpg" />
 </div>
 
 
@@ -377,7 +461,7 @@ Jean-Louis FANCHON | Guide de Mécanique (2019) [PDF] [FR]
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058908.jpg" />
 </div>
 
 
@@ -406,7 +490,7 @@ Jean COURBON, Jean-Noel THEILLOUT | Résistance des Matériaux - Formulaire (201
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058797.jpg" />
 </div>
 
 
@@ -435,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058607.jpg" />
 </div>
 
 
@@ -461,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058606.jpg" />
 </div>
 
 
@@ -488,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058605.jpg" />
 </div>
 
 
@@ -514,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058407.jpg" />
 </div>
 
 
@@ -542,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058405.jpg" />
 </div>
 
 
@@ -568,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058404.jpg" />
 </div>
 
 
@@ -594,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058036.jpg" />
 </div>
 
 
@@ -605,86 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80A343E812CD1EBFFBEC87ADB5613F17083A4300
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854633   (1057743) от 19.02.2026
-
-А.И. Островский | Начертательная геометрия в популярном изложении (1953) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057743.jpg" />
-</div>
-
-
-###  Подробнее
-
-Материал книги рассчитан на учащихся строительных техникумов и ВУЗов.Жанр: Технические наукиИздательство: Государственное издательство технико-теоретической литературыФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E057CCCB345D9A7DA9DD87D3092A4AA3794D8765
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854636   (1057742) от 19.02.2026
-
-В.О. Гордон | Курс начертательной геометрии (1988) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Широко известное и очень популярное учебное пособие по начертательной геометрии. Соответствует программе, утвержденной Минвузом СССР для машиностроительных и приборостроительных специальностей втузов.
-
-В новом издании принята современная система обозначений, добавлен раздел «Начертательная геометрия и машинная графика».Жанр: Технические наукиИздательство: НаукаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16ECB8F2192A5C421CA46C34DBEBB045795157EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854641   (1057741) от 19.02.2026
-
-В.О. Гордон | Сборник задач по курсу начертательной геометрии (1971) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057741.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборнике подобраны задачи по начертательной геометрии применительно к программе для машиностроительных, приборостроительных и механико-технологических специальностей втузов. Сборник может служить учебным пособием для студентов всех форм обучения, особенно заочной, и будет очень полезен изучающим курс в их самостоятельной работе. В задачнике показан процесс решения (   Читать дальше...   )Жанр: Технические наукиИздательство: НаукаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10E34419A80E0971BCF475F7F3F63F0037C4D69F
 ```
 
 https://mybot314.ru/tekegram_catalog/

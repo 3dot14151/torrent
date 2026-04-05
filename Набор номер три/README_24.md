@@ -1,3 +1,162 @@
+###  Публикация: 1450539   (1028787) от 27.02.2021
+
+Менеджер паролей LastPass содержит целых семь трекеров
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028787.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немецкий исследователь безопасности Майк Кукетц (Mike Kuketz) рекомендовал пользователям Android-устройств отказаться от менеджера паролей LastPass, поскольку в нем содержится целых семь трекеров. Однако, по словам производителя, пользователи могут отключить их, если захотят.Кукетц обнаружил трекеры, готовя отчет для некоммерческой организации Exodus. Согласно отчету, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450420   (1028779) от 27.02.2021
+
+В России может появиться идентификация пользователей по номерам телефонов
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Россвязь хочет идентифицировать пользователей интернет-сервисов и виртуальной телефонии с помощью системы сопоставления телефонного номера и доменного имени. Исследовательскую работу о возможности внедрения такой схемы в России за 32,7 млн руб. проведет подконтрольный Россвязи ЦНИИС, обнаружил “Ъ” на портале госзакупок. Итоги тендера подведены 19 февраля. ЦНИИС должен (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450003   (1028753) от 27.02.2021
+
+Огонь  (2020) WEBRip [H.264/1080p-LQ]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Героическая история о пожарных и спасателях. То, что обычно называют подвигом, для них — привычные будни, если только можно привыкнуть к смертельной опасности и предельному риску. Когда людям, попавшим в беду, кажется, что помощи ждать неоткуда, на выручку приходят спасатели, чтобы встать на пути беспощадной стихии.Производство: Россия, Студия ТритэЖанр: Драма, приключенияРежиссер: Алексей НужныйАктеры: Константин Хабенский, Иван Янковский, Стася Милославская, Антон Богданов, Виктор Добронравов, Роман Курцын, Тихон Жизневский, Ирина Горбачева, Евгения Дмитриева, Юрий КузнецовПеревод: Не требуется (русский)Субтитры: отсутствуютПродолжительность: 02:11:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F3519214FAF67A5D6CE127346D00632C28EDD84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414284   (1028752) от 27.02.2021
+
+Baldur's Gate III (3) (2020) [Ru/Multi] (4.1.99.0983) Repack xatab [Early Access]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Соберите отряд и вернитесь в Забытые Королевства. Вас ждет история о дружбе и предательстве, выживании и самопожертвовании, о сладком зове абсолютной власти. Ваш мозг стал вместилищем для личинки иллитида, и она пробуждает в вас таинственные, пугающие способности. Сопротивляйтесь паразиту и обратите тьму против себя самой – или же безоглядно отдайтесь злу и станьте (   Читать дальше...   )Тип издания: RepackРазработчик: Larian StudiosЖанр: Приключенческие игры, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECFE468B9E34CA9B746ADE9C416EEE8B55AA8C5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450639   (1028584) от 28.02.2021
+
+ФНС будет хранить ваши чеки. Чем это чревато?
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028584.jpg" />
+</div>
+
+
+###  Подробнее
+
+ФНС объявила о создании нового сервиса. Теперь чеки будут храниться в вашем электронном кабинете. Налоговики говорят, что это сделает жизнь россиян удобнее. Но эксперты задаются вопросом: не собирается ли государство выводить серые зарплаты из тени?Что произошло?ФНС планирует собирать чеки о ваших транзакциях. Сервис заработает в начале марта, тестовая версия уже (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 717280   (1028583) от 28.02.2021
+
+Компьютерная графика - Экспериментальные фантазии [JPG]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028583.jpg" />
+</div>
+
+
+###  Подробнее
+
+-Э,слыш,художник что ле?
+-А чо,меня нарисуешь?
+-о хюдожник,а ито у тибиа акварэль да?
+-рисуешь...Я тоже в детстве стихи писал...матерные...(   Читать дальше...   )Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B87F1FEAF495A0A5907EC78050686F15326E2B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1450361   (1028578) от 28.02.2021
 
 Земфира - бордерлайн (2021) [MP3|320 Kbps] <Rock>
@@ -6,7 +165,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028578.jpg" />
 </div>
 
 
@@ -35,7 +194,7 @@ Hearts of Iron IV / Hearts of Iron 4 (2016) [Ru/En] (1.10.4/dlc) Repack xatab [L
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028572.jpg" />
 </div>
 
 
@@ -61,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028571.jpg" />
 </div>
 
 
@@ -90,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028433.jpg" />
 </div>
 
 
@@ -116,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028428.jpg" />
 </div>
 
 
@@ -142,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028404.jpg" />
 </div>
 
 
@@ -169,7 +328,7 @@ BELOFF 2021.02 (Авторская раздача)
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1028396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1028396.jpg" />
 </div>
 
 
@@ -195,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028392.jpg" />
 </div>
 
 
@@ -221,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028151.jpg" />
 </div>
 
 
@@ -247,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028127.jpg" />
 </div>
 
 
@@ -273,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028109.jpg" />
 </div>
 
 
@@ -299,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028105.jpg" />
 </div>
 
 
@@ -325,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027997.jpg" />
 </div>
 
 
@@ -351,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027994.jpg" />
 </div>
 
 
@@ -377,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027972.jpg" />
 </div>
 
 
@@ -403,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027970.jpg" />
 </div>
 
 
@@ -430,7 +589,7 @@ Navitel / Навител: Официальные карты релиза Q3 2020
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027969.jpg" />
 </div>
 
 
@@ -459,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027968.jpg" />
 </div>
 
 
@@ -485,7 +644,7 @@ Google взяла на себя обязательство прекратить 
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027835.jpg" />
 </div>
 
 
@@ -511,173 +670,13 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027808.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Воистину, нет пределов человеческой фантазии – а при наличии инженерного образования и подходящих инструментов любая идея получает шанс быть воплощенной в жизнь. Автор YouYube-канала The Q задумался, сколько проблем доставляет людям перемещение по снегу и, особенно, по льду – и придумал радикальное решение. Он собрал необычный ледовый велосипед, но вместо мягких (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 146232   (1027785) от 05.03.2021
-
-Shpongle - Discography 31 Releases (1998-2021) Twisted Records [FLAC|Lossless|tracks+.cue, tracks]<Psychill, Tribal, Downtempo, Ambient, Psy-Trance>
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ineffable Mysteries (10:14)
- 02. Beija Flor (06:12)
- 03. Dorset Perception (08:13)
- 04. Periscopes Of Consciousness (03:27)(   Читать дальше...   )Тип издания: CD, Web, Vinyl •Жанр: Psychill, Tribal, Downtempo, Ambient, Psy-Trance •Продолжительность: 28:54:11 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9851E4DF95CF377E305CDF2532D970C6FE7C7BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344590   (1027782) от 05.03.2021
-
-Transport Fever 2 (2019) [Ru/Multi] (31994) License GOG
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027782.jpg" />
-</div>
-
-
-###  Подробнее
-
-Transport Fever 2 – классический симулятор транспорта, продолжающий традиции серии, в котором вам предстоит построить собственную транспортную бизнес-империю. Откройте для себя совершенно новый мир, управляя транспортными маршрутами на суше, воде и в воздухе. Добейтесь прогресса, и путь к успеху гарантирован.Тип издания: LicenseРазработчик: Urban GamesЖанр: Simulator, StrategyЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53AA52DDCD7B2C4AD6C3CFD3E5EE936BC3ED1046
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278796   (1027781) от 05.03.2021
-
-Microsoft Office Word 2007 SP3 Standard 12.0.6798.5000 Portable by Spirit Summer [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из всего пакета офисных программ Microsoft — Office Word является одной из самых популярных и полезных. Word 2007 – это надежный и проверенный временем редактор, обладающий отличным функциональным наполнением для создания и редактирования текстовых документов.
-Несмотря на относительно давний срок его выпуска, софт по-прежнему популярен среди пользователей. Простой (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E6DF6A7CCF4DE3110CB804D4EB178C68B10B93B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444447   (1027780) от 05.03.2021
-
-Отпуск (2021) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-19 из 19 + Фильм о сериале)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027780.jpg" />
-</div>
-
-
-###  Подробнее
-
-Геленджик. Семья северян в одиннадцатый раз приезжает отдыхать в гестхаус к семье южан. Саша - старший сын северян, хочет сделать предложение Люсе - дочери южан, с которой он дружит с детства. Но Саша еще не знает, что у нее есть парень. Сашина мама Лариса, устав от выходок непутевого мужа Севы, решает развестись. У Севы есть время до конца отпуска, чтобы сохранить (   Читать дальше...   )Производство: Россия / 123 Продакшн, Телеканал ТНТЖанр: комедияРежиссер: Александр БойковАктеры: Демис Карибидис, Павел Майков, Юлия Подозерова, Кузьма Сапрыкин, Татьяна Догилева, Катрин Асси, Валентина Карнаухова, Арарат Кещян, Альбина Кабалина, Сергей Епишев и др.Продолжительность: ~00:29:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECD141D8B45A40DFAC36677EAEC2D3E6D768DBD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452044   (1027638) от 06.03.2021
-
-Учёные открыли новую элементарную частицу
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российские ученые из МФТИ, МИФИ и ФИАН, работающие в составе международной коллаборации CMS (англ. Compact Muon Solenoid) на Большом адронном коллайдере в ЦЕРН, объявили об обнаружении новой элементарной частицы. Впервые открыто орбитальное возбуждение (резонанс) Ξb(6100)– прелестно-странного бариона. Оно распадается на основное состояние Ξb– («кси бэ минус (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451915   (1027630) от 06.03.2021
-
-Jeep  готов отказаться от бренда Cherokee
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027630.jpg" />
-</div>
-
-
-###  Подробнее
-
-Руководство группы компаний Stellantis заявило о готовности убрать слово «Cherokee» из названия ряда моделей Jeep после недавней критики со стороны вождя североамериканского племени индейцев чероки. Как сообщает The Wall Street Journal, в настоящее время Stellantis ведет переговоры с племенем чероки в штате Оклахома по поводу использования слова «Cherokee» в названии (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

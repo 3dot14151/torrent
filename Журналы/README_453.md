@@ -1,3 +1,134 @@
+###  Публикация: 1083752   (273567) от 16.12.2016
+
+Газета | Сам себе лекарь. Спецвыпуск №6 (22) (2016) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чем заменить дорогое лекарство дешевым, но не менее эффективным при бессоннице и неврозах.
+Сканирование и обработка Алёнка 007.Жанр: Домоводство, здоровьеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F39A39C6BBF3B265B882CEFE90A2B538B3C0C3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188843   (273525) от 03.12.2017
+
+Журнал | Дачный ежедневник. Спецвыпуск "Хвойные растения" (2017) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Замечали, как легко дышится в сосновом или любом другом хвойном лесу? Гораздо легче, чем в городе. И это не просто ощущения, а настоящее действие фитонцидов, которые содержатся в хвое. Именно они борются с болезнетворными бактериями, оздоравливая наш организм.Для нервной системы тоже полезные прогулки в хвойных лесах – благодаря им нормализуется давление, исчезает (   Читать дальше...   )Жанр: Садоводство, растениеводство, огородничестваФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14898C89C737C9B21CD4DBCCF71B6D402BAE83A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188789   (273524) от 03.12.2017
+
+Журнал | Журнал мод №610 (2017) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273524.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал по вязанию крючком и спицами представляет коллекцию эксклюзивной женской одежды. Элегантные и женственные модели юбок, жакетов, кардиганов, платьев. Все они созданы с использованием интересных конструкторских решений и техник вязания, грамотного сочетания цветов и мотивов, современной пряжи различной фактуры.Жанр: ВязаниеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B5D2B32BC0A84CF5392A3FDC59C6A92EC86BE00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188743   (273521) от 03.12.2017
+
+Журнал | Журнал мод №609 (2017) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273521.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал по вязанию крючком и спицами представляет коллекцию эксклюзивной женской одежды. Элегантные и женственные модели юбок, жакетов, кардиганов, платьев. Все они созданы с использованием интересных конструкторских решений и техник вязания, грамотного сочетания цветов и мотивов, современной пряжи различной фактуры.Жанр: ВязаниеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71DFE7D7CE4297144D3E37A0D26CDE646AC60473
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188793   (273513) от 03.12.2017
+
+Журнал | Журнал мод №611 (2017) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал по вязанию крючком и спицами представляет коллекцию эксклюзивной женской одежды. Элегантные и женственные модели юбок, жакетов, кардиганов, платьев. Все они созданы с использованием интересных конструкторских решений и техник вязания, грамотного сочетания цветов и мотивов, современной пряжи различной фактуры.Жанр: ВязаниеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59444D9BA5E323BFB6B7EBB3C80F8110D23E46E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1188817   (273446) от 03.12.2017
 
 Журнал | Вязание ваше хобби №12 (2017) [PDF]
@@ -6,7 +137,7 @@
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273446.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273437.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273373.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273188.jpg" />
 </div>
 
 
@@ -113,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273085.jpg" />
 </div>
 
 
@@ -139,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272631.jpg" />
 </div>
 
 
@@ -165,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272579.jpg" />
 </div>
 
 
@@ -192,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272568.jpg" />
 </div>
 
 
@@ -218,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272566.jpg" />
 </div>
 
 
@@ -244,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272477.jpg" />
 </div>
 
 
@@ -270,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272464.jpg" />
 </div>
 
 
@@ -297,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272400.jpg" />
 </div>
 
 
@@ -324,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272381.jpg" />
 </div>
 
 
@@ -350,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272374.jpg" />
 </div>
 
 
@@ -376,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272373.jpg" />
 </div>
 
 
@@ -402,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272369.jpg" />
 </div>
 
 
@@ -428,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272368.jpg" />
 </div>
 
 
@@ -454,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272339.jpg" />
 </div>
 
 
@@ -483,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272313.jpg" />
 </div>
 
 
@@ -510,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272306.jpg" />
 </div>
 
 
@@ -536,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272297.jpg" />
 </div>
 
 
@@ -547,136 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:905139606BA882E1E2DD993CE3CA8DCE6EB73D05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188954   (272293) от 04.12.2017
-
-Журнал | Уютная квартира №9 (сентябрь 2017) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272293.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уютная квартира - это, прежде всего практические советы и рекомендации по благоустройству и реконструкции вашей квартиры, лучшие примеры дизайна и планировки, комфорт на каждый день, приятные мелочи, цветы в доме, элементы декора.Жанр: Дизайн интерьеровФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:700B330C3B9CF01476DB41130035F27C26A8FB31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189134   (272290) от 04.12.2017
-
-Журнал | Уютная квартира №10-11 (октябрь-ноябрь 2017) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272290.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уютная квартира - это, прежде всего практические советы и рекомендации по благоустройству и реконструкции вашей квартиры, лучшие примеры дизайна и планировки, комфорт на каждый день, приятные мелочи, цветы в доме, элементы декора.Жанр: Дизайн интерьеровФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:637A541371B053CB95E840CC21003F72A880D17B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188957   (272289) от 04.12.2017
-
-Журнал | Наша Психология №6 (106) (ноябрь-декабрь 2017) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272289.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание предлагает своим читателям материалы, которые опираются исключительно на практическую психологию. Здесь вы найдёте советы на все случаи жизни. Ведущие эксперты в области психологии и психотерапии рассказывают о том, как добиться успеха, правильно построить взаимоотношения с друзьями, коллегами, родственниками и с самим собой. Что такое практическая психология, (   Читать дальше...   )Жанр: ПсихологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22CDE712AE66F2380285DFF554C5F97390DDBBA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084057   (272243) от 17.12.2016
-
-Журнал | Вокруг света №12 (декабрь 2016) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272243.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал публикует новые взгляды на известные исторические события, рассказы о знаменитых людях и их судьбах, информацию о новых научных открытиях и технических достижениях. Он был основан в Санкт-Петербурге в 1861 году и с того времени практически без перерывов издаётся на протяжении уже полутора веков. За это время журнал прошел несколько этапов от географического (   Читать дальше...   )Жанр: Научно-популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A778866DB57721424550571F0F2C7619963701C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084181   (272236) от 17.12.2016
-
-Журнал | Гастрономъ. Спецвыпуск №1. Любимые блюда из курицы (ноябрь 2016) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем вашему вниманию первый выпуск специального приложения к журналу «Гастрономъ» - «Любимые блюда из курицы». Это поистине народное издание - в нем вы найдете самые лучшие, проверенные временем и любимые многими поколениями рецепты: котлета по-киевски, сациви, курица, запеченная в духовке на бутылке. Мы расскажем вам, какие блюда лучше готовить из бедрышек, (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA6083CDEC75EA7F103675E453A608B5B992D319
 ```
 
 https://mybot314.ru/tekegram_catalog/

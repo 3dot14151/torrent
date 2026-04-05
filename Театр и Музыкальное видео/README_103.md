@@ -6,7 +6,7 @@ Alice Cooper: Theatre of Death - Live At Hammersmith (2009) [1080i] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308831.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308776.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Muse - Live in Rome (The Unsustainable Tour) (2013) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308752.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Adriano Celentano - Greatest Video. Vol.1 (2010) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308315.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307911.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Lindsey Stirling - Song of the Caged Bird (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307902.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ The Best of...(vol.3) (2011) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307582.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307322.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Peter Gabriel / Secret World Live (1993/2012) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_307199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_307199.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Linkin Park / Road to Revolution - Live at Milton Keynes (2008) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_307195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_307195.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Steven Wilson - Home Invasion: In Concert at the Royal Albert Hall (2018) 2xDVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307108.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Metallica - Live Shit: Binge & Purge (San Diego 1992 & Seattle 1989) (2002) DVDR
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306842.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306082.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Slim - Шлягер (2012) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305745.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Rob Orlemans & Half Past Midnight - Open The Cage (2007) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305413.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Scorpions - Moment of Glory (Live with the Berlin Philharmonic Orchestra) (2000/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304794.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304276.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ The Rolling Stones: Sweet Summer Sun - Hyde Park Live (2013) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304202.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303769.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Cesaria Evora - Live D'amor (2004) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303342.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302639.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Joe Bonamassa - Live at the Greek Theatre '2015 (2016) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302413.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Ritchie Blackmore’s Rainbow: Memories in Rock – Live in Germany (2016)  BDRi
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302216.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ The Rolling Stones: Havana Moon (2016) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302184.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Ritchie Blackmore’s Rainbow: Memories in Rock – Live in Germany (2016)  BDRi
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302159.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302092.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ HERETIC GODS - Ragnarok vV.1.10.35 [Ru/Multi] (Original + Mod)
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923575.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Progressbar95 v0.500 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920569.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ LEGO Star Wars Microfighters v1.0.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920298.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Star Wars: Rivals v6.0.2 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920141.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ PC Creator - PC Building Simulator v1.0.57 + Mod [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920137.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Star Wars: Knights of the Old Republic (KOTOR) + Mod v1.0.7 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919785.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Hungry Shark VR v1.0 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918629.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ LIMBO v1.18 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915212.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Very Little Nightmares 1.1.4 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910134.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Fallout Shelter 1.10 + Mod [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886853.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884263.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882248.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Chess King - Шахматные курсы v 0.9.6 - 0.9.7 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875984.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Door Kickers: Action Squad 1.0.32 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_874128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874128.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ American & British Academy. ABA English [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854981.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Dino Puzzle v2.7.3 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846391.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Om Nom Run / Ам Ням Погоня v1.07 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846383.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Ultimate Mortal Kombat 3 1.0.0 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846329.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840532.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Sonic 3D Blast, Sonic And Knuckles, Sonic The Hedgehog, Sonic The Hedgehog 2, So
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840409.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Contra - Hard Corps 1.0.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837614.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Mind Games Pro / Игры ума v2.5.4 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837600.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Cogs 1.1 build 1452656928 [En/Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837483.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Turbo Grannies  1.1.3 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837296.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824312.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Perfect Angle v1.6 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818720.jpg" />
 </div>
 
 

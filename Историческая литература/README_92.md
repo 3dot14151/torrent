@@ -1,29 +1,3 @@
-###  Публикация: 970800   (139590) от 31.12.2015
-
-В. Н. Брюшинкин, В. С. Попова (ред.) | Неокантианство в России: Александр Иванович Введенский, Иван Иванович Лапшин (2013) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139590.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена двум университетским философам Санкт-Петербурга, основателю критической традиции в русской философии — А. И. Введенскому (1856—1925) и его последователю — И. И. Лапшину (1870—1952). Критицизм, внутренняя последовательность, логичность на фоне обращенности к проблемам образования — именно эти специфические черты неокантианства (как они представлены (   Читать дальше...   )Жанр: Биографии и Мемуары, ФилософияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DF56C0B1C39EE29857CDB225D5A2D926429A6FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970819   (139566) от 31.12.2015
 
 О. А. Жукова, В. К. Кантор (ред.) | Петр Бернгардович Струве (2012) [DJVU]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139566.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139356.jpg" />
 </div>
 
 
@@ -86,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139289.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139279.jpg" />
 </div>
 
 
@@ -139,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139249.jpg" />
 </div>
 
 
@@ -165,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139120.jpg" />
 </div>
 
 
@@ -191,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139089.jpg" />
 </div>
 
 
@@ -217,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138689.jpg" />
 </div>
 
 
@@ -243,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137109.jpg" />
 </div>
 
 
@@ -270,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134700.jpg" />
 </div>
 
 
@@ -296,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132652.jpg" />
 </div>
 
 
@@ -322,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131395.jpg" />
 </div>
 
 
@@ -349,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131388.jpg" />
 </div>
 
 
@@ -376,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128153.jpg" />
 </div>
 
 
@@ -402,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121759.jpg" />
 </div>
 
 
@@ -428,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121758.jpg" />
 </div>
 
 
@@ -454,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119995.jpg" />
 </div>
 
 
@@ -480,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117864.jpg" />
 </div>
 
 
@@ -506,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117861.jpg" />
 </div>
 
 
@@ -532,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117854.jpg" />
 </div>
 
 
@@ -559,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117745.jpg" />
 </div>
 
 
@@ -586,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117311.jpg" />
 </div>
 
 
@@ -613,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112440.jpg" />
 </div>
 
 
@@ -639,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109851.jpg" />
 </div>
 
 
@@ -666,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106130.jpg" />
 </div>
 
 
@@ -677,6 +651,33 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:289DAB9114517A830B13EB4EEA385C0C710332C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739352   (106113) от 27.07.2024
+
+И.Э. Фишер | Сибирская история с самого открытия Сибири до завоевания сей земли российским оружием (1774) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сибирская история с самого открытия Сибири до завоевания сей земли российским оружием, сочиненная на немецком языке и в собрании академическом, читанная членом С-Петербургской академии и профессором древностей и истории, также членом исторического Геттингенского собрания И. Е. Фишером.(1697-1771).
+Иоган Эбергарт – уроженец Вюртемберга, где получил образование и стал (   Читать дальше...   )Жанр: историческое исследованиеПеревод: В.И. ЛебедевЯзык: Русский (дореформенный)Издательство: Санкт-Петербург: При Императорской Академии наукФормат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A261D1D068E0DDF33ED6DDC13C22B2FFF2CEB7D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

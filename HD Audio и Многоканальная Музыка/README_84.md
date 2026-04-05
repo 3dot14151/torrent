@@ -1,32 +1,3 @@
-###  Публикация: 1823936   (126075) от 13.10.2025
-
-Callenish Circle - Studio Albums (5 releases) (1996-2005) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Callenish Circle - метал-группа из Нидерландов, существовавшая с 1992 по 2007 годы1996 - Drift Of Empathy
-2000 - Graceful... Yet Forbidding
-2002 - Flesh_Power_Dominion
-2003 - My Passion, Your PainЖанр: Melodic Death MetalПродолжительность: 04:23:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E204AD3D49AC80699CD216EAB7D77693C1DF9AE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823933   (126074) от 13.10.2025
 
 Tony Bennett - Just One Of Those Things (1969) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Jazz>
@@ -35,7 +6,7 @@ Tony Bennett - Just One Of Those Things (1969) [FLAC 2.0|192/24|image +.cue|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126074.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Loredana Groza - Buna Seara, Iubito! (1988) [FLAC 2.0|192/24|image +.cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125889.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Greyhaven - Keep It Quiet (2025) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Chaot
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125888.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Testament - Para Bellum (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125784.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Till Lindemann - Entre dos tierras (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125755.jpg" />
 </div>
 
 
@@ -177,7 +148,7 @@ Charred Walls Of The Damned - Studio Albums (3 releases) (2010-2016) hand made [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125707.jpg" />
 </div>
 
 
@@ -205,7 +176,7 @@ All India Radio - Diamonds in the Dark (2023) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125478.jpg" />
 </div>
 
 
@@ -234,7 +205,7 @@ Mildreda - Blue-Devilled (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <EBM, Dark
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125460.jpg" />
 </div>
 
 
@@ -263,7 +234,7 @@ Dissection - Studio Albums (3 releases) (1993-2006) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125459.jpg" />
 </div>
 
 
@@ -291,7 +262,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125431.jpg" />
 </div>
 
 
@@ -320,7 +291,7 @@ Gods of Gaia - As Daylight Dies (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Sy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125430.jpg" />
 </div>
 
 
@@ -349,7 +320,7 @@ Never Elected - Turbulent (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125410.jpg" />
 </div>
 
 
@@ -378,7 +349,7 @@ Jerusalem - Stygn (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125304.jpg" />
 </div>
 
 
@@ -407,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125291.jpg" />
 </div>
 
 
@@ -435,7 +406,7 @@ Queen Kona - All Hail (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125289.jpg" />
 </div>
 
 
@@ -464,7 +435,7 @@ Aeviterne - The Ailing Facade (2022) [FLAC|24/192|image + .cue|Vinyl-Rip] <Exper
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125286.jpg" />
 </div>
 
 
@@ -493,7 +464,7 @@ Dominum - Hey Living People (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125282.jpg" />
 </div>
 
 
@@ -522,7 +493,7 @@ Deathstars - Studio Albums (5 releases) (2002-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125045.jpg" />
 </div>
 
 
@@ -551,7 +522,7 @@ Soft Jazz Mood - Smooth Jazz Music Ensemble - Coffee in The Garden Smooth Jazz B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125023.jpg" />
 </div>
 
 
@@ -580,7 +551,7 @@ Lord Of The Lost - Weapons Of Mass Seduction (2023) Cover Version [FLAC 24/44.1|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125014.jpg" />
 </div>
 
 
@@ -609,7 +580,7 @@ Wayne Pretorius - Introduction to Wayne P (2023) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125005.jpg" />
 </div>
 
 
@@ -638,7 +609,7 @@ Jayson Tipp - Table For One (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125002.jpg" />
 </div>
 
 
@@ -667,7 +638,7 @@ VA - Smooth Jazz Christmas Serenade (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124886.jpg" />
 </div>
 
 
@@ -696,7 +667,7 @@ Nuclear Power Trio - Wet Ass Plutonium (2023) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124866.jpg" />
 </div>
 
 
@@ -725,7 +696,7 @@ Dark Lunacy - Studio Albums (7 releases) (1998-2016) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124859.jpg" />
 </div>
 
 
@@ -739,6 +710,35 @@ Dark Lunacy - итальянская мелодик-дэт-метал групп
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0F1A42C588792ABC38E3E14E8875D21EF7B94E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688905   (124858) от 31.12.2023
+
+Youth Pastor - Songs To Fuck and Kill Yourself To (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Brutal Punk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robin Williams Hang In There Poster [00:04:13]
+02. Casey Anthony Fan Club Merch [00:03:33]
+03. Worms Worms Worms (all the boys have had a taste) [00:03:13]
+04. Chester Bennington Copy Catter [00:04:36](   Читать дальше...   )Жанр: Brutal Punk MetalПродолжительность: 00:26:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F50CB587BD0B3E3529641E329C98611523CB8DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

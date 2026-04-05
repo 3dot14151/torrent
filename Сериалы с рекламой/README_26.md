@@ -1,3 +1,56 @@
+###  Публикация: 1419751   (337410) от 29.10.2020
+
+Майбергер. В голове преступника / Meiberger - Im Kopf des Taters (2018) HDTV [H.264/1080p-LQ] (сезон 1, серии 1-8 из 8) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Томас Майбергер работает судебным психологом в Зальцбурге. Его работа заключается в раскрытии преступлений, которые невозможно понять с помощью простых улик и недостаточных доказательств. Если правоохранительная система, как правило в лице прокурора Барбары Симмы и комиссара Непомука «Непо» Вальнера, не знает, что делать, она обращается к Майбергеру. В работе ему (   Читать дальше...   )Производство: Австрия / Mona Film Produktion, Servus TVЖанр: криминал, детективРежиссер: Маркус Ульбрихт, Солин Юсеф, Питер БауманнАктеры: Фриц Карл, Корнелиус Обонья, Ульрике С. Чарре, Jaschka Lämmert, Franz Josef Danner, Lino Gaier, Райнер Эггер, Хильде Далик, Отто Шенк ,Таня Рауниг и д.р.Перевод: Двуголосый закадровый (ViruseProject)Субтитры: РусскиеПродолжительность: ~00:45:00 серияРеклама: Присутствуют аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35463A805DB0485331FE69EE9D8B87DAF716279A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419620   (337238) от 29.10.2020
+
+Алекс Уго / Alex Hugo (2014-2017) WEB-DLRip [H.264/1080p-LQ] (сезон 1-3, серии 1-8 из 8) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Адаптация единственного романа американского поэта Ричарда Хьюго / Richard Hugo "Смерть и прекрасная жизнь / Death and the Good Life" (1981).
+Алекс Юго, бывший марсельский полицейский, решил покинуть город насилия, которому устал противостоять, и, движимый жаждой свободы, поселился в горной деревне, где устроился в местной жандармерии и наслаждался покоем, (   Читать дальше...   )Производство: Франция / France 2 (FR2)Жанр: драма, криминал, детектив, приключенияРежиссер: Пьер Изуар, Оливье Ланглуа, Muriel AubinАктеры: Самюэль Ле Бьян, Лионель Астье, Майкл Фетусси, Фабьен Баиарди, Мэрилин Канто, Каролин Баер, Gilles Spadari, Луиза Шпиндель, Франк Адриен, Фридерик Ашар и д.р.Перевод: Двуголосый закадровый (ViruseProject)Субтитры: РусскиеПродолжительность: ~01:30:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E05F5C3EAB630930447E5A7AA0B5C348CD9D2DA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1419622   (337234) от 29.10.2020
 
 Алекс Уго / Alex Hugo (2014-2017) WEB-DLRip (сезон 1-3, серии 1-8 из 8) ViruseProject [AD]
@@ -6,7 +59,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337234.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335335.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335321.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333664.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333657.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333264.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332536.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332479.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322375.jpg" />
 </div>
 
 
@@ -241,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322015.jpg" />
 </div>
 
 
@@ -267,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321895.jpg" />
 </div>
 
 
@@ -293,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321892.jpg" />
 </div>
 
 
@@ -319,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321888.jpg" />
 </div>
 
 
@@ -345,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321543.jpg" />
 </div>
 
 
@@ -373,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320762.jpg" />
 </div>
 
 
@@ -399,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319797.jpg" />
 </div>
 
 
@@ -425,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319701.jpg" />
 </div>
 
 
@@ -451,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319612.jpg" />
 </div>
 
 
@@ -477,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319550.jpg" />
 </div>
 
 
@@ -503,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319547.jpg" />
 </div>
 
 
@@ -529,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319538.jpg" />
 </div>
 
 
@@ -555,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318067.jpg" />
 </div>
 
 
@@ -581,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317938.jpg" />
 </div>
 
 
@@ -607,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317404.jpg" />
 </div>
 
 
@@ -618,59 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A87FC20C4533272A7FD7FB2FF27803C2213313F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421671   (317294) от 05.11.2020
-
-Лесные разбойники / The Flemish Bandits (2018) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1-10 из 10) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317294.jpg" />
-</div>
-
-
-###  Подробнее
-
-1787 год, после неудачной службы в австрийской армии Ян де Лихт решает вернуться в родной город Алста, который, к удивлению героя, существенно изменился. На месте его любимой деревни оказался лагерь французской армии, которая изгнала местных жителей вместе с семьей Яна в близлежащие леса. У него не осталось иного выбора, кроме как примкнуть к банде грабителей, возглавляемой (   Читать дальше...   )Производство: Бельгия / Menuet Producties, ProximusЖанр: драма, детектив, приключения, историяРежиссер: Maarten Moerkerke, Робин Пронт, Питер Ван ХесАктеры: Маттео Симони, Стеф Артс, Джероен Персеваль, Дирк Руфтхуфт, Том Ван Дик, Anne-Laure Vandeputte, Шарлотта Тиммерс, Анемон Валки, Рик Уиллемс, Ману Керстинг и д.р.Перевод: Двуголосый закадровый (ViruseProject)Субтитры: РусскиеПродолжительность: ~00:45:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10B27FC00B12207991B9DEEBB56223F4979EE64F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582003   (316430) от 12.10.2022
-
-Монтеросси / Monterossi - La serie (2022) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1-6 из 6) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Карло Монтеросси (Фабрицио Бентивольо), знаменитый и талантливый сценарист очень популярного ТВ-шоу. Одним поздним вечером Монтеросси, попивая в одиночестве любимый дорогущий виски, открывает дверь доставщику, который тычет ему в лицо дулом пистолета… А спасает его от смерти всё тот же бокал любимого виски.
-Теперь Монтеросси решает вести своё расследование параллельно (   Читать дальше...   )Производство: Италия / Amazon Studios, PalomarЖанр: триллер, криминалРежиссер: Роан ДжонсонАктеры: Фабрицио Бентивольо, Диего Рибон, Luca Nucera, Донателла Финокьяро, Мартина Саммарко, Silvia Briozzo, Марина Оккьонеро, Мария Пайато, Карла Синьорис, Джузеппе Ипполити и др.Перевод: Двуголосый профессиональный (ViruseProject)Язык озвучки: Русский, итальянскийСубтитры: Русские, английскиеПродолжительность: ~00:45:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D4BB8E6B08449B0BE3E99C8C3B782FCD369CEB1
 ```
 
 https://mybot314.ru/tekegram_catalog/

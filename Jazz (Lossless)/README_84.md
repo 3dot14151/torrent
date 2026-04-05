@@ -6,7 +6,7 @@ Archie Shepp Quartet feat. Annette Lowman - Lover Man (1988) Remaster, 2015, Sol
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771728.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ The Oscar Peterson Trio - The Music From Fiorello! 1960 (1994) Verve [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771640.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Ken Navarro - Unbreakable Heart (2015) [FLAC|Lossless|tracks] <Contemporary Smoo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771592.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ George Benson - 33 альбома (1966 - 2015) [FLAC|Lossless]<Jazz, Bop, Fusio
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771422.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ Oscar Peterson - The Will To Swing 1949-1971 (1991) 2CD, Verve [FLAC|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770690.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Tom Grant - Mystified (1976) Remaster, 2015, Solid Records[FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770525.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Masabumi Kikuchi, Gary Peacock, Paul Motian - Tethered Moon (1991) Remaster, 201
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769700.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Stefano Bollani - Live From Mars (2016) Casa Del Jazz[FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769690.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Duke Ellington - Second Sacred Concert 1974 (2000) ADA Sound [APE|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769394.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Duke Ellington - The Great Duke Ellington 1959 (2000) ORO [APE|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769250.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Jae Sinnett's Zero To 60 Quartet - Just When You Thought... (2020) Self-Released
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768997.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Sinne Eeg & The Danish Radio Big Band - We've Just Begun (2020) Stunt Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768949.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Club Des Belugas - Nine (2016) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Broken Be
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768733.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Sam Rivers Trio - Emanation 1971 (2019) NoBusiness Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768610.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ George Mraz - Morava (2001) Milestone Records [FLAC|Lossless|tracks + .cue] <Eth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768607.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ The Three Sounds - Six Classic Albums, Vol.2 (1958 - 1962) 4CD, 2014, Real Gone 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768198.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Carlo Actis Dato Quartet - Enna Milonga (2000) BAJ Records [APE|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768135.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Johnny Griffin - Bush Dance (1978 / 1983) 2004, Galaxy [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768131.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Corey King - Lashes (2016) [FLAC|Lossless|tracks + .cue] <Fusion, Vocal, Rock>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768122.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Arthur Doyle & Sunny Murray - Live at Glenn Miller Cafe (2000) Ayler Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768114.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Norman Brown - Let It Go (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz, Fusi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767997.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Scott Bradlee's Postmodern Jukebox - 33 Resolutions Per Minute (2017) [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767932.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Michael Franks - Collection 1975 - 1987 (2012) Light Mellow [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767884.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Candy Dulfer - Together (2017) [FLAC|Lossless|image + .cue] <Jazz, Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767883.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Louis Hayes And The Cannonball Adderley Legacy Band - Live at Cory Weeds' Cellar
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767793.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Olivia Trummer Trio - Westwind (2008) Neuklang [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767772.jpg" />
 </div>
 
 

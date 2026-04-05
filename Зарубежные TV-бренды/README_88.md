@@ -6,7 +6,7 @@ BBC. Тайны взросления / The Secret Life of Growing Up (2016) DVB 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386973.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Discovery. Торговцы космосом (космические дилер�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386793.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NG. Экстремальный Китай. Горы Сыгунян / Extreme Chi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385441.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ GoPro HD: Dreams with Kelia Moniz - Roxy Wahine Classic 2011 (Music from SKY) [1
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385060.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Discovery: 100 величайших гаджетов со Стивеном Фр�
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385054.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ NG. Линии Наска: Древние тайны / Nasca Lines. Ancient Secr
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383558.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ NG. Черные фараоны: империя золота / Black Pharaohs of
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383450.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383020.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ NGW: Замбези / The Zambezi (2010) HDTVRip [H.264/720p-LQ] (эпизоды
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383014.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Discovery. Дикие эксперименты Адама Сэвиджа / Savag
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382631.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ History Channel: Библия - Секретные материалы / Bible Se
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382526.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Animal Planet: Океанариум / The Aquarium (2019) HDTV [H.264/1080i] (э
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382518.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Discovery. Дороги России: Трасса А-161: Саянский пе
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382340.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ PBS. Nova. Тайна кода майя / Cracking the Maya Code (2008) SATRip
 >>PBS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381237.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ BBC: Что такое красота? / What is beauty? (2009) DVBRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380619.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Animal Planet: Expedition Mungo / Экспедиция Мунго (2017) HDTVRip
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380508.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ NGW: В неизвестность с Джеком Рэнделлом / Out Ther
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380500.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380499.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380244.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380238.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ BBC. Британские времена года / The Great British Year (2013
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380224.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380126.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379981.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ BBC: Битва экзопланет / Battle of the exoplanets (2018) IPTVRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378358.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378105.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Discovery: Я - это зло (сезон 1, 12 серий из 12) / Discovery.
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378101.jpg" />
 </div>
 
 

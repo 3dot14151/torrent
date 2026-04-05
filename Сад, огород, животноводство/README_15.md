@@ -1,29 +1,3 @@
-###  Публикация: 496270   (252698) от 13.05.2012
-
-В.П.Шматов | Благоустройство приусадебных участков [1986] [PDF]
-
->>Разное (категория книг)
->>Сад, огород, животноводство
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252698.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге даны оригинальные архитектурно-планировочные решения приусадебных и садовых участков. Приведены конструкции различных надворных построек и сооружений. Рассчитана на широкий круг читателей - владельцев индивидуальных домов, дач, садовых и огородных участков.Планировка и проектирование приусадебного участка (План участка; Проектирование); Ограждение участка (Столбы; Деревянные заборы; Ограда из проволочной сетки; Комбинированные ограды); Ворота и калитки; Дорожки; Бордюры; Дворовые лестницы и подпорные стенки; Внутренние дворики (Ограждение; Мощение; Декоративное оформление; Освещение; Оборудование); Осушение участка; Декоративные водоемы и бассейны; Колодцы; Оборудование для полива; Озеленение участка (Палисадники; Вертикальное озеленение; Газоны и лужайки; Цветники; Озеленение водоемов); Надворные постойки и сооружения (Гараж; Помещение для скота и птицы; Бани; Летний душ; Дворовые туалеты; Оборудование места для компоста; Оборудование места для кострища; Парники и теплицы; Летняя кухня; Дворовые камины); Технология выполнения отдельных видов работ (Фундаменты; Бетонные работы; Антисептирование).1986Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E3F9E2C4F563B2DD1EC802B0DCD99C4DA9BB938
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 492131   (248002) от 05.05.2012
 
 А.М.Андреев | Советы Максимыча. Т.1. Освоение и обустройство садовых участков [1993] [DJVU]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248002.jpg" />
 </div>
 
 
@@ -60,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233557.jpg" />
 </div>
 
 
@@ -87,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233510.jpg" />
 </div>
 
 
@@ -113,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229096.jpg" />
 </div>
 
 
@@ -139,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228739.jpg" />
 </div>
 
 
@@ -165,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227168.jpg" />
 </div>
 
 
@@ -191,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223495.jpg" />
 </div>
 
 
@@ -219,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218499.jpg" />
 </div>
 
 
@@ -246,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217108.jpg" />
 </div>
 
 
@@ -272,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215248.jpg" />
 </div>
 
 
@@ -298,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215242.jpg" />
 </div>
 
 
@@ -324,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215221.jpg" />
 </div>
 
 
@@ -350,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214159.jpg" />
 </div>
 
 
@@ -377,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213641.jpg" />
 </div>
 
 
@@ -403,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_212198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_212198.jpg" />
 </div>
 
 
@@ -429,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197704.jpg" />
 </div>
 
 
@@ -456,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193660.jpg" />
 </div>
 
 
@@ -483,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191286.jpg" />
 </div>
 
 
@@ -509,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189898.jpg" />
 </div>
 
 
@@ -537,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189084.jpg" />
 </div>
 
 
@@ -563,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189047.jpg" />
 </div>
 
 
@@ -589,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188663.jpg" />
 </div>
 
 
@@ -615,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185030.jpg" />
 </div>
 
 
@@ -641,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180625.jpg" />
 </div>
 
 
@@ -667,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180546.jpg" />
 </div>
 
 
@@ -678,6 +652,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1338A87E005CD96805FA3D60E49830997CEB20B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428422   (179828) от 02.12.2020
+
+Елизавета Смирнова | Куры яичных и мясных пород. Руководство для начинающих фермеров по содержанию и уходу (2020) [EPUB]
+
+>>Разное (категория книг)
+>>Сад, огород, животноводство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга для тех, кто хочет обеспечить свою семью натуральными мясом и яйцами, а в перспективе организовать ферму по производству экологически чистых продуктов на продажу. Благодаря этой книге даже новички смогут разобраться с основами птицеводства и вырастить без потерь кур яичных и мясных пород. В книге подробно описаны особенности размножения, принципы естественной (   Читать дальше...   )Жанр: Домашнее хозяйство, ЖивотноводствоФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE32DA6D0E6C1BFF239BD236D5BD49098537B74E
 ```
 
 https://mybot314.ru/tekegram_catalog/

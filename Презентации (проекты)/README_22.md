@@ -1,3 +1,111 @@
+###  Публикация: 787707   (736006) от 18.05.2014
+
+VideoHive - Hip Hop Fashion - 4816256 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736006.jpg" />
+</div>
+
+
+###  Подробнее
+
+От автора:
+Проект "Хип-хоп мода" может быть использован в большом количестве мест, как программы показа моды, корпоративных презентаций, спортивных программ, свадебных роликов, телеканалов и других мероприятий. Также это может быть использование в рекламных роликах, и личное домашнее видео.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58528973E8CEBA7B3EE0968931C7359A2F3380EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 788048   (735514) от 19.05.2014
+
+VideoHive - TV show or Awards Show Package - 4020914 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_735514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пак проектов для церемонии награждения.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B247CFAE24C83F738A51B1FA10F7C408A6D9C41B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 788070   (735513) от 19.05.2014
+
+VideoHive - TV show or Awards Show Package part.2 - 4361634 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пак проектов для церемонии награждения. Часть 2.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DA9B9323EA3974C1F82498A7126C29E0B2F76C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 788300   (735038) от 20.05.2014
+
+Pond5 - Fashion Star Form - 35756008 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735038.jpg" />
+</div>
+
+
+###  Подробнее
+
+Динамичный красочный проект с переходами через волны частиц.
+
+Возможности:
+- After Effects CS5.5 CS6 and above compatible;(   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FE5245417D3948EABD579DE57ED331ACC254440
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 789001   (733624) от 23.05.2014
 
 VideoHive – SEO. Internet Marketing. Web Promotion Pack - 7209231 [AEP]
@@ -6,7 +114,7 @@ VideoHive – SEO. Internet Marketing. Web Promotion Pack - 7209231 [AEP]
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733624.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732420.jpg" />
 </div>
 
 
@@ -60,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731531.jpg" />
 </div>
 
 
@@ -86,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731427.jpg" />
 </div>
 
 
@@ -112,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731306.jpg" />
 </div>
 
 
@@ -138,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730555.jpg" />
 </div>
 
 
@@ -164,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730433.jpg" />
 </div>
 
 
@@ -190,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730367.jpg" />
 </div>
 
 
@@ -217,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730267.jpg" />
 </div>
 
 
@@ -243,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729581.jpg" />
 </div>
 
 
@@ -271,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729580.jpg" />
 </div>
 
 
@@ -297,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729577.jpg" />
 </div>
 
 
@@ -323,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727355.jpg" />
 </div>
 
 
@@ -350,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726768.jpg" />
 </div>
 
 
@@ -376,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726058.jpg" />
 </div>
 
 
@@ -402,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725752.jpg" />
 </div>
 
 
@@ -428,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725732.jpg" />
 </div>
 
 
@@ -455,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725347.jpg" />
 </div>
 
 
@@ -481,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724891.jpg" />
 </div>
 
 
@@ -508,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_724191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724191.jpg" />
 </div>
 
 
@@ -534,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723846.jpg" />
 </div>
 
 
@@ -560,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723720.jpg" />
 </div>
 
 
@@ -572,111 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C9F19D26F5B875CCD87434C375F8CEEBB04B309
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 668633   (723174) от 15.06.2013
-
-Проекты - VideoHive - Paint Me a Dream [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723174.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания презентации фото искусства.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F8241DAA35280C6462AA4814C0B56E51FF8191F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 891936   (723138) от 24.04.2015
-
-Проекты - VideoHive - Inspired For Adventure - 11073175 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Inspired For Adventure - After Effects CS5 - CC 2014 проект. Разрешение проекта: FullHD 1920x1080. Легко настроить. Требуется плагин Trapcode Particular v2.1.0.! Видео обучение включено. Интригующая и завораживающая анимация, где пелена слетает с вашего логотипа в виде маленьких частей и частиц. Работает с графикой или текстом! Так что вы можете сделать анимацию (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E13D35739260201CFC3D3414FD7CED5987B7900
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218507   (722927) от 09.04.2018
-
-Проекты - VideoHive - Fashion Promo - 21486918 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722927.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Fashion Promo» - это анимированное слайд-шоу, которое можно использовать в качестве коммерческой рекламы на канале YouTube, Instagram.
-Добавьте свои изображения и текст, выберите цвет, добавьте ссылки и визуализируйте.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC55DD546A8A0D619ED6C95FADC9A35DA538A422
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285225   (722313) от 25.02.2019
-
-Проекты - VideoHive - Fashion Opener - 23344394 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722313.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fashion Opener - это стильный шаблон After Effects, со смелой текстовой анимацией и модными переходми. С данным проектом, вы можете показать свои новые продукты, портфолио, модные фотографии, или использовать в качестве вступления к своим телешоу, рекламным роликам, рекламным акциям.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C5BB8908BA2AB7D9BB229692EE641C7B4645363
 ```
 
 https://mybot314.ru/tekegram_catalog/

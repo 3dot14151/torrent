@@ -1,3 +1,32 @@
+###  Публикация: 1230056   (618678) от 10.06.2018
+
+Алексей Гайдин | Работа со вспышками. Практика (2018) PCRec [H.264/1080p-LQ]
+
+>>Обучающие видеоматериалы
+>>Фотография и Видео (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618678.jpg" />
+</div>
+
+
+###  Подробнее
+
+Более 30 приёмов съёмки с искусственным светом.
+Выжимаем локации до дна!
+Зачастую, самая большая головная боль на съемке –– это идеи.
+Уже 10-й раз видишь примерно одну и ту же съемочную площадку, примерно один и тот же свет на улице. Локациями никого не удивишь, поэтому возникает вопрос: как снимать в них интересно и разнообразно? Не просто отражать свет от стеночки (   Читать дальше...   )Жанр: Съемка фотоПродолжительность: 02:49:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF720462E59EF2B9679B00699633045D615A7258
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036432   (618523) от 21.07.2016
 
 Михаил Русаков | Коллекция VIP-видеоуроков (2015) PCRec [H.264/720p]
@@ -6,7 +35,7 @@
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618523.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617575.jpg" />
 </div>
 
 
@@ -62,7 +91,7 @@ lectoroom, Елена Базанова | Этюд с гортензией акв
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617202.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615991.jpg" />
 </div>
 
 
@@ -116,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614889.jpg" />
 </div>
 
 
@@ -145,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614876.jpg" />
 </div>
 
 
@@ -171,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614474.jpg" />
 </div>
 
 
@@ -198,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_614376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_614376.jpg" />
 </div>
 
 
@@ -224,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614316.jpg" />
 </div>
 
 
@@ -250,7 +279,7 @@ Jillian Michaels | Hot Body, Healthy Mommy (2016) HDTVRip [H.264/720p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614314.jpg" />
 </div>
 
 
@@ -276,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613840.jpg" />
 </div>
 
 
@@ -303,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613833.jpg" />
 </div>
 
 
@@ -331,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613831.jpg" />
 </div>
 
 
@@ -360,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613664.jpg" />
 </div>
 
 
@@ -389,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613569.jpg" />
 </div>
 
 
@@ -415,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613565.jpg" />
 </div>
 
 
@@ -443,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613183.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ Scott Deardorff | Креативные техники художественно
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612118.jpg" />
 </div>
 
 
@@ -498,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612103.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ google | Сборник видеоуроков по Python [2006-2008] [EN] CamR
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611935.jpg" />
 </div>
 
 
@@ -553,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611531.jpg" />
 </div>
 
 
@@ -582,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610995.jpg" />
 </div>
 
 
@@ -610,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610176.jpg" />
 </div>
 
 
@@ -636,7 +665,7 @@ Udemy | Фундаментальный курс по основам C# .NET (201
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609801.jpg" />
 </div>
 
 
@@ -662,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609255.jpg" />
 </div>
 
 
@@ -676,32 +705,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADCECECB1F9A0ED675E73C76FD21157C83986727
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912823   (608328) от 27.06.2015
-
-Ellery Connell | Модо 701 Базовый тренинг/ Modo 701 Essential Training (2013) PCRec [H.264]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608328.jpg" />
-</div>
-
-
-###  Подробнее
-
-В то время как дизайнеры используют Modo уже несколько лет, он так и не прижился с VFX-художниками или аниматорами. Однако, когда Foundry и Luxology объединили свои силы, Modo 701 родился заного и стал использоваться как конечное решение для 3D-моделирования и рендеринга. Из этого курса вы узнаете, как использовать Modo 701 и предварить ваш 3D-проект в жизнь с аниматором (   Читать дальше...   )Производство: Lynda.comЖанр: 3D-графикаПродолжительность: 05:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A34EA16F54FB2E6D73E2A54EE41C87F1A769715B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,57 @@
+###  Публикация: 1428665   (179360) от 03.12.2020
+
+Анна Зенькова | Григорий без отчества Бабочкин (2020) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Григорий Бабочкин и Герман Сто… нет, Герман Бабочкин и Григорий Столяров. Два совершенно непохожих подростка. Один мечтает стать хоккеистом, идёт к этому семимильными шагами, попутно становясь любимцем всех вокруг. Другой – объект всеобщих насмешек, но при этом как будто… бесстрашный? безрассудный?
+Две противоположности сходятся, открывают друг в друге что-то, чего (   Читать дальше...   )Жанр: Проза для детей, Повести и рассказы, Книги для подростковФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D27FA71CB554F6D2615555BCF0BA11871E43DB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428671   (179345) от 03.12.2020
+
+Памела Трэверс | Мэри Поппинс с Вишневой улицы (2020) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179345.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитая сказочная повесть английской писательницы П.Л. Трэверс о необыкновенной няне Мэри Поппинс, которая появляется неизвестно откуда вместе с восточным ветром и исчезает, когда ей заблагорассудится. Ее любят дети во всех странах мира. И неудивительно! Ведь она понимает язык зверей и птиц, знает, как клеят на небо звезды, и может даже взлететь под потолок.
+В (   Читать дальше...   )Жанр: Повести и рассказы, Приключения для детей, СказкиФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C1F515366E09D55ADCA78BE32E158ADD4580E7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1428667   (179338) от 03.12.2020
 
 Софья Ремез | Заметки Гоши Куницына, ученика 4 «А» класса (2020) [EPUB]
@@ -6,7 +60,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179338.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179292.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179277.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179262.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179251.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179189.jpg" />
 </div>
 
 
@@ -167,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178910.jpg" />
 </div>
 
 
@@ -194,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178872.jpg" />
 </div>
 
 
@@ -220,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178866.jpg" />
 </div>
 
 
@@ -246,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178855.jpg" />
 </div>
 
 
@@ -272,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178821.jpg" />
 </div>
 
 
@@ -298,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178789.jpg" />
 </div>
 
 
@@ -326,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178607.jpg" />
 </div>
 
 
@@ -352,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178485.jpg" />
 </div>
 
 
@@ -378,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178268.jpg" />
 </div>
 
 
@@ -404,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178189.jpg" />
 </div>
 
 
@@ -430,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178138.jpg" />
 </div>
 
 
@@ -458,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178044.jpg" />
 </div>
 
 
@@ -484,7 +538,7 @@ Disney | Дамбо. Раскраска (2009) [JPEG]
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177994.jpg" />
 </div>
 
 
@@ -510,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177967.jpg" />
 </div>
 
 
@@ -536,7 +590,7 @@ Disney | Король лев. Раскраска (2008) [JPEG]
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177905.jpg" />
 </div>
 
 
@@ -562,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177897.jpg" />
 </div>
 
 
@@ -589,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177828.jpg" />
 </div>
 
 
@@ -615,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177786.jpg" />
 </div>
 
 
@@ -628,60 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2486F4B7BABC1FCD7862D1894AB6DDC8D2DBB2FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593964   (177633) от 01.12.2022
-
-Светлана Ашикова | Изобразительное искусство. Чистая линия. 1 класс. Художественные прописи. Часть 1 (2023) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Изобразительное искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тренировочные упражнения художественных прописей "Чистая линия" (в 2 частях) помогут детям отработать различные приемы рисования, овладеть первоначальной художественной грамотой. Они направлены на закрепление навыков владения графитным карандашом при рисовании точек, линий, штрихов, тонировке фона и т.д.
-Задания прописей развивают не только мелкую моторику (   Читать дальше...   )Жанр: книга-тренажерФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02506E15185E7CF5821C1D1D167590D8A16BFF98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429229   (177562) от 05.12.2020
-
-Оксана Пойда | Чудесные поделки. Мастерим вместе с детьми (2013) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Настольные игры и Поделки
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177562.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удивительно, сколь далеко может шагнуть ребёнок в своём развитии, всего лишь занимаясь декоративно-прикладным творчеством – рисуя, конструируя из бумаги, ракушек, ткани и других подручных материалов. В книге Оксана Пойда рассказывает о том, что можно создать из пластилина, картона, бумаги и ракушек, как рисовать клеем и зубной пастой.
-Каждая поделка снабжена пошаговыми (   Читать дальше...   )Жанр: Детские поделки/Досуг/ТворчествоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D142322FB9EE788CA667D4077CAF8E316203074
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1837327   (256787) от 15.11.2025
+
+DE-EXIT - Eternal Matters (2023) [Ru/Multi] (1.0.23.1) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256787.jpg" />
+</div>
+
+
+###  Подробнее
+
+DE-EXIT - Eternal Matters - приключение, в котором предстоит исследовать потусторонний мир, пытаясь раскрыть тайны утерянной памяти. Игра наполнена юмором и мистикой. Графический стиль представлен необычным воксельным дизайном. Управлять протагонистом потребуется от третьего лица. Иногда игра может менять перспективу, переворачивая геймплей с ног на голову. Вместе (   Читать дальше...   )Тип издания: LicenseРазработчик: SandBloom StudioЖанр: Экшены, Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:271A8611309A88E104F522884DD5F4DF55FC267D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837368   (256766) от 16.11.2025
+
+Agatha Christie - Death on the Nile / Агата Кристи - Смерть на Ниле (2025) [Ru/Multi] (1.2.0) Repack seleZen
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256766.jpg" />
+</div>
+
+
+###  Подробнее
+
+В игре «Смерть на Ниле» мирный круиз по Нилу прерывается из-за ужасного преступления. К счастью, на борту находится знаменитый детектив Эркюль Пуаро. Тем временем другой детектив выслеживает убийцу, следы которого тянутся из Лондона на Майорку, затем в Нью-Йорк и, наконец, тоже ведут в Египет. Два расследования пересекаются в Абу-Симбеле, где непохожим друг на друга (   Читать дальше...   )Тип издания: RepackРазработчик: Microids Studio LyonЖанр: Приключенческие игрыЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79911EB3E3626FB3807AA422C15ED14C2CB898DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837384   (256755) от 16.11.2025
+
+Sushi Ben (2025) [Ru/Multi] (1.5.250918.5) Repack FitGirl [VR]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256755.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в Котобуки‑таун - уютное приморское местечко, которое бездушные дельцы из большого города покоряют участок за участком. Это ещё и твой новый дом. Сумеешь ли ты сплотить местных и спасти их любимый суши‑бар? Вдохновленная повседневными аниме, Sushi Ben - это добрая, смешная и взрывная сюжетная приключенческая игра о том, как найти себя (   Читать дальше...   )Тип издания: RepackРазработчик: Big Brane Studios, Inc.Жанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Японский, Французский и другиеЯзык интерфейса: Русский, Английский, Японский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A6CE2E634EA48430DB67A21EE9E4BB4AF59FFF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1837390   (256745) от 16.11.2025
 
 Knock On The Window (2025) [Ru/Multi] (1.0) Repack FitGirl
@@ -6,7 +84,7 @@ Knock On The Window (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256745.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Conquests of Camelot: The Search for the Grail, Conquests of the Longbow: The Le
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256641.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Lumo (2016) [Ru/Multi] (2.4.0.6) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256638.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ The Stillness of the Wind (2019) [Ru/Multi] (1.1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256617.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Venba (2023) [En] (2025.10.06) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255904.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Sarah 2 - Das Geheimnis der Einhornfohlen / Девочка и единорог (
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255620.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Road 96: Mile 0 (2023) [Ru/Multi] (Build 10917954) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255496.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Sherlock Holmes The Awakened (2023) [Multi] (10918242) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255250.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Sherlock Holmes The Awakened (2023) [Multi] (10918242/dlc) Repack DjDI [Premium 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255151.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Deliver Us The Moon (2019) [Ru/Multi] (1.4.5a-rc-1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255117.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ New Tales from the Borderlands (2022) [Multi] (10415597/dlc) Repack DjDI [Deluxe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254972.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ The Unbeatable Path (2023) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254942.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ I Know This Place..? (chapter I) (2023) [Ru/En] (1.0) Scene Darksiders
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254648.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Project Nightmares Case 36: Henrietta Kedward (2021) [Ru/Multi] (1.06) License G
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254626.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Between (2023) [Ru/En] (1.1.3.200423) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254623.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Bramble: The Mountain King (2023) [Ru/Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254616.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Chernobyl: Origins (2023) [Ru/Multi] (Build 10809098/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254599.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Sherlock Holmes The Awakened (2023) [Ru/Multi] (2204_1.1/dlc) License GOG [Premi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254522.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Serial Cleaners (2022) [Ru/Multi] (1.2.3404/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254461.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Lost in Darklight (2023) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254387.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Paradise Killer (2020) [En] (1.3.0) License GOG [Perfect 25 Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253094.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Creepy Tale Collection (2020-2024) [Ru/Multi] (1.0.2d/1.0.1d/1.1/1.0.8) Repack N
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_253079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253079.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Bye Sweet Carole (2025) [Ru/Multi] (1.0.6) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252537.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Bye Sweet Carole (2025) [Ru/Multi] (1.0.6) Repack Let'sРlay
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A09A443B7495088987D8F867255A7C84D715200
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836187   (252470) от 09.11.2025
-
-Star Crafter (2025) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра про выживание в космосе с крафтом, добычей ресурсов, постройкой баз и звездных систем. Стройте ракеты, чтобы создавать планеты и Кольца Дайсона, добывайте ресурсы и создавайте сложные материалы, занимайтесь терраформированием, балансируйте энергопотребление, выращивайте еду и многое другое, чтобы превратить звездную систему во что-то прекрасное.Тип издания: RepackРазработчик: Tbjbu2Жанр: Экшены, Приключенческие игры, Казуальные игры, Инди, СимуляторыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB2BA101318ADDEDFC9335D4FE081703771AE0D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836119   (252286) от 08.11.2025
-
-Machinika Museum (2021) [Ru/Multi] (1.22051101) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследователь? Если вам нравится решать хитроумные задачи и открывать запертые двери, эта работа для вас. Machinika Museum предлагает исследовать особое место. В далеком будущем технические артефакты инопланетных цивилизаций встречаются буквально на каждом шагу, особенно в музее, посвященном их изучению. Ваша задача – получать подобные устройства и придумывать способы (   Читать дальше...   )Тип издания: LicenseРазработчик: Littlefield StudioЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:448167CACE4EFD7258CC0755AC9A25A7D79201CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609568   (252113) от 21.05.2023
-
-The Quarry (2022) [Ru/Multi] (Build 11105655/dlc) Repack Other s [Deluxe Edition]
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252113.jpg" />
-</div>
-
-
-###  Подробнее
-
-После заката солнца в последний день летнего лагеря вожатые «Хэкеттс Куори» устраивают вечеринку. Никаких детей. Никаких взрослых. Никаких правил. Но события быстро принимают зловещий оборот. Их беззаботные планы нарушают мрачные охотники, перепачканные в крови, и куда более жуткие создания — и ночь веселья становится ночью ужасов. Дружеские перепалки и флирт уступают (   Читать дальше...   )Тип издания: RepackРазработчик: Supermassive GamesЖанр: Adventure (Horror), Interactive Movie, QTEЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1928C22940FEFB02FBB0B46A154EB5199D34F2CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

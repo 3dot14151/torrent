@@ -6,7 +6,7 @@ Tape Five - Bossa For A Coup (2014) Reloaded, Remastered [FLAC|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623795.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Anthony Davis - Of Blues And Dreams (1978) Sackville[FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622852.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ The Carla Bley Band - Musique Mecanique (1978) 1979, ECM Records[FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622825.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Ina Forsman - Ina Forsman (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues, Jazz, Ret
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622759.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Nubiyan Twist - Jungle Run (2019) [FLAC|Lossless|tracks + .cue] <Jazz, Funk, Afr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622508.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ The Pentagon - The Pentagon (1976) /2015, Universal/[FLAC|tracks+.cue]<Jazz, Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622389.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Larry Young - Of Love And Peace (1966) /2014, Universal/[FLAC|tracks+.cue]<Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622388.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Sonny Rollins - Freedom Suite (1958) /2008, Concord/[FLAC|tracks+.cue]<Jazz, Har
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622386.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Norah Jones - Begin Again (2019) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622374.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Anthony Wilson - Goat Hill Junket (1998) Mama Foundation [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622372.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Mario Biondi - Beyond (2015) /[FLAC|tracks|WEB-DL]<Funk, Soul, Disco>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622022.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Stephane Grappelli - Jazz Collection (1973, 1974, 1989) 1989, Object Enterprises
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621172.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Blue Mitchel - Blue Mitchel (1971) 2014, Boplicity Records [FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620971.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Andre Hodeir - Essais Par Le Jazz Groupe De Paris (1949 - 1954) 2017, Sony Music
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620970.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Anthony Wilson - Campo Belo (2010) Goat Hill Recordings [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620772.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Bridges with Seamus Blake - Continuum (2019) [FLAC|Lossless|tracks + .cue] <Cont
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620771.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Tim Weisberg - Naked Eyes (1994) Fahrenheit Records [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620770.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Anne Paceo - Bright Shadows (2019) [FLAC|Lossless|tracks + .cue] <Contemporary J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620768.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Gary McFarland Sextet - Point Of Departure (1963) /1998, Impulse!/[FLAC|tracks+.
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620678.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Ester Rada - I Wish (2015) [FLAC|image+.cue]<Ethno Jazz, Funk, Soul, Rock>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620527.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ David Benoit ft. Jane Monheit - 2 In Love (2015) [FLAC|tracks|WEB-DL]<Smooth Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620367.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Gregoire Maret - Gregoire Maret (2012) M.A.T. [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620100.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Don Byron - Love, Peace And Soul (2012) Savoy Jazz [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620099.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Modern Jazz Quartet - Longing For The Continent (1985) Remaster, 1989, LRC LTD [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620096.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Michal Urbaniak - Manhattan Man (1992) [FLAC|Lossless|tracks + .cue] <Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619998.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Keith Jarrett - Standards, Vol. 1 (1983) Remaster, 1985, ECM Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619994.jpg" />
 </div>
 
 

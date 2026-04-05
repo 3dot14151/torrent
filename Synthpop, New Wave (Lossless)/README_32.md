@@ -1,32 +1,3 @@
-###  Публикация: 1792804   (20687) от 21.04.2025
-
-Erasure - Don't Say You Love Me (2005) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Say You Love Me  (Jeremy Wheatley Single Mix) [00:03:45]
-02. Lie to Me [00:02:58]
-03. Don't Say You Love Me  (Mark Moore & Eon Vox Remix) [00:05:38]
-04. Don't Say You Love Me  (ATOC's Rock 'N 'Ravin' Vocal Remix) [00:07:05](   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:31:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAC1124DDC48D96D6113C6491DBEEEFD981E3701
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1792929   (20678) от 21.04.2025
 
 Erasure - Make Me Smile (Come Up and See Me) (2003) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
@@ -35,7 +6,7 @@ Erasure - Make Me Smile (Come Up and See Me) (2003) [FLAC|Lossless|WEB-DL|tracks
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20678.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Devoid - Devoid (2025) [MP3|320Kbps] <EBM, Synthpop, Futurepop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17667.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Sparks - MAD! (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Synth-pop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17247.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16737.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Earmake - Cosmic Hero 4 (2025) [FLAC|Lossless|WEB-DL|tracks] <RetroWave, Synthpo
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16523.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Magic Finger Project - The All Time Greatest Synthesizer Hits Now And Forever, V
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13991.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ ExoMight - Removal (2025) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12971.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Depeche Mode - Black Celebration (1986) 1st German Press [APE|Lossless|image + .
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9760.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Yello - Baby (1991) 1st German Press [APE|Lossless|image + .cue] <SynthPop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9751.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ VA - Spacedance Vol. 7 (2025) [FLAC|Lossless|WEB-DL|tracks] <Spacedance, Spacesy
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7483.jpg" />
 </div>
 
 

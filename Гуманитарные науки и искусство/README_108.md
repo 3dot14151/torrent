@@ -1,83 +1,3 @@
-###  Публикация: 1430341   (174264) от 09.12.2020
-
-Венди Тейт | Цветочные акварели Венди Тейт. Как создавать воздушные и эффектные работы (2020) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акварелистка Венди Тейт, посвятившая всю жизнь изобразительному искусству, делится секретами работы с цветом, тоном и светом, а также дает подробную информацию о том, как делать тональные наброски, создавать картины по фотографиям и гармонично подбирать цвета.
-В отличие от большинства ботанических иллюстраторов, Тейт сразу приступает к картине и пишет ее кистью. (   Читать дальше...   )Жанр: Изобразительное искусство, СамоучителиПеревод: Анна АвдееваФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B9CAEF53CEC932F5C745357A5AA2120598C96C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670346   (172039) от 20.10.2023
-
-Светлана Гурьянова | В начале было кофе. Лингвомифы, речевые «ошибки» и другие поводы поломать копья в спорах о русском языке (2023) [EPUB]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172039.jpg" />
-</div>
-
-
-###  Подробнее
-
-Светлана Гурьянова, филолог, преподаватель русского языка и автор блога istoki_slova, в своей книге развенчивает главные мифы о русском языке и выводит на чистую воду всех, кто придумывает о нем небылицы. А еще дает множество контраргументов, которые усмирят даже самых яростных граммар-наци!Жанр: Научно-популярная литература, Русский язык, ЯзыкознаниеИздательство: Бомбора, ЭксмоФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C31385BBE0F6A85B875566DC52C5F7AF40251229
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670496   (171857) от 21.10.2023
-
-Готтфрид Баммес | Изображение животных (2011) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171857.jpg" />
-</div>
-
-
-###  Подробнее
-
-Давно не издававшееся на каком-либо языке, пособие по анатомии профессора Готтфрида Баммеса "Изображение животных" (Gottfried Bammes "Tiere zeichnen") впервые напечатано на русском языке. Издание полностью копирует своего немецкого предшественника, от иллюстраций до обложки. Единственное отличие - текст на русском языке.
-Для профессиональных художников (   Читать дальше...   )Жанр: РисованиеПеревод: Балаева С.В.Язык: русскийИздательство: ДитонФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9566F7819AECB49C311107E8F22AE4E3A542A50B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1430393   (170873) от 10.12.2020
 
 Д.С. Садынский | Социальная жизнь людей [введение в марксистскую социологию] (1923) [DJVU, PDF]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170873.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170797.jpg" />
 </div>
 
 
@@ -138,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170366.jpg" />
 </div>
 
 
@@ -164,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169710.jpg" />
 </div>
 
 
@@ -190,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168883.jpg" />
 </div>
 
 
@@ -216,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168593.jpg" />
 </div>
 
 
@@ -242,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168232.jpg" />
 </div>
 
 
@@ -268,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167755.jpg" />
 </div>
 
 
@@ -294,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167620.jpg" />
 </div>
 
 
@@ -320,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167233.jpg" />
 </div>
 
 
@@ -346,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166372.jpg" />
 </div>
 
 
@@ -372,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165745.jpg" />
 </div>
 
 
@@ -398,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165067.jpg" />
 </div>
 
 
@@ -425,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164822.jpg" />
 </div>
 
 
@@ -451,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164334.jpg" />
 </div>
 
 
@@ -477,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164196.jpg" />
 </div>
 
 
@@ -505,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163608.jpg" />
 </div>
 
 
@@ -531,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163550.jpg" />
 </div>
 
 
@@ -557,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163530.jpg" />
 </div>
 
 
@@ -583,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163525.jpg" />
 </div>
 
 
@@ -610,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163515.jpg" />
 </div>
 
 
@@ -636,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163465.jpg" />
 </div>
 
 
@@ -662,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163410.jpg" />
 </div>
 
 
@@ -674,6 +594,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A610B34CDADF24BB113E1737621EC94164B49FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346500   (163326) от 19.12.2019
+
+Егор Матита | Портреты карандашом. Техники достижения фотореализма (2019) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор книги – талантливый художник-график Егор Анцупов, архитектор по образованию, а также основатель студии рисования Matita.
+В этой книге вы не увидите академических схем или анатомических выдержек о подробном изучении построения человеческого лица. Книга максимально простая, для людей, которые не обладают продвинутыми знаниями об устройстве человеческого тела (   Читать дальше...   )Жанр: Изобразительное искусствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:964F076F4F3CA1445526F51743F5B23145ADCC73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346522   (163311) от 19.12.2019
+
+Ричард Уильямс | Аниматор: набор для выживания. Секреты и методы создания анимации, 3D-графики и компьютерных игр (2019) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163311.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анимация – одна из самых популярных областей кинематографа, которая развивается каждый день. Буквально вчера Уолт Дисней оживил нарисованного от руки мультяшного Микки Мауса, а сегодня работники студии «Пиксар» с помощью компьютерной анимации прорисовывают ворсинки на свитере Мистера Фантастика из «Фантастической семейки»! Как индустрия пришла к этому? Какие навыки (   Читать дальше...   )Жанр: Изобразительное искусство, кинематографФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAB0BD6E889C9E8C7226F952A2562DB7D0637E57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432773   (162610) от 18.12.2020
+
+Книжная серия | Великие идеи [22 книги] (2015-2020) [EPUB]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия «Великие идеи» представляет собой библиотеку выдающихся образцов человеческой мысли. Это подборка знаменитых произведений мыслителей всех времен и народов. Это главные произведения философов с древнейших времен: от Конфуция и Платона до Фрейда и Ницше. Произведения, которые просто необходимо иметь в своей библиотеке как студентам, так и всем образованным и (   Читать дальше...   )Жанр: Философия, Античная литература, Литература XVIII-XIX в.вФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02A61879848AFEF73C849951C1B4B6E747CDDDB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ VA - Global Lounge Masters, Vol. 2 (2021) [AAC|~318 Kbps] <Lounge, Downtempo, Ch
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830941.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Global Lounge Masters, Vol. 3 (2021) [AAC|~327 Kbps] <Lounge, Downtempo, Ch
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830940.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Chill out Magnifique, Vol. 1 (2019) [AAC|~318 Kbps] <Lounge, Downtempo, Chi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830939.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Röyksopp - Junior (2009) [AAC|~349 Kbps] <Electronic, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830938.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Chillax (Smooth Chill-Out Sounds For Pure Relaxing), Vol. 2 (2021) [AAC|~31
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830937.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Buddhatronic - the Compilation, Vol. 2 (2017) [AAC|~307 Kbps] <Downtempo, L
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830936.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Buddhatronic - the Compilation, Vol. 3 (2018) [AAC|~320 Kbps] <Downtempo, L
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830935.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Dark the Suns - Suru Raivosi Sydämeni Pimeydessä (2021) [AAC|~339 Kbps] <Melod
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830934.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Blueberry Café, Vol. 1 (2013) [AAC|~333 Kbps] <Downtempo, House, Jazzy>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830933.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Chillhop Guitar - Spring from the soul (2021) [AAC|~295 Kbps] <Chill Out, Smooth
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830932.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Luxury Lounge Sunset, Vol. 1 (2021) [AAC|~325 Kbps] <Lounge, Chill Out, Dow
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830931.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Magic Island of Chill Out, Vol. 2 (2021) [AAC|~322 Kbps] <Lo-Fi, Lounge, Ch
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830930.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Fireplace Chill, Vol. 7 (2021) [AAC|~321 Kbps] <Lounge, Chill Out, Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830929.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Electronic Lounge Collection, Vol. 2 (2021) [AAC|~314 Kbps] <Electronic, Do
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830928.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - The Lounge Chill Out Chapter, Vol. 1 (2021) [AAC|~315 Kbps] <Chill Out, Lou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830927.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Blueberry Café, Vol. 8 (2021) [AAC|~316 Kbps] <Downtempo, House, Jazzy>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830926.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Beautiful Metamorphosis, Vol. 2 (2021) [AAC|~306 Kbps] <Downtempo, Lounge, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830925.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830873.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ VA - Chilled Trance (2021) [AAC|~337 Kbps] <Chill Out, Downtempo, Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830844.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ VA - Global Lounge Masters, Vol. 1 (2021) [AAC|~314 Kbps] <Lounge, Downtempo, Ch
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830843.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ VA - Spiritual Spa, Vol. 2 (2021) [AAC|~322 Kbps] <Downtempo, Balearic, Chill Ou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830842.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ VA - Vanilla Kiss (Beautiful Lounge Collection), Vol. 3 (2021) [AAC|~310 Kbps] <
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830841.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ VA - Luxury Lounge Sunset, Vol. 2 (2021) [AAC|~330 Kbps] <Lounge, Chill Out, Dow
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830840.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ VA - Smooth Espresso Bar, Vol. 1 (2021) [AAC|~318 Kbps] <Lounge, Chill Out>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830839.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Röyksopp - Senior (2010) [AAC|~306 Kbps] <Electronic, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830838.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ VA - Smooth Jazz n Chill (2016) [AAC|~336 Kbps] <Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830837.jpg" />
 </div>
 
 

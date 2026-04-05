@@ -1,3 +1,32 @@
+###  Публикация: 947911   (376875) от 23.10.2015
+
+Гавриил и Татьяна Ждановы | Здравый Квас (2013) CamRip
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шаг за шагом мы научим Вас, как самим приготовить у себя дома бездрожжевые квасные напитки!
+
+В данном курсе Гаврила и Татьяна Ждановы передают знания, наработанные ими за много лет. Благодаря этому вам не придётся заниматься поиском необходимых ответов на возникающие вопросы о приготовлении домашних квасов, ведь все ответы находятся здесь – в одном видеокурсе!
+(   Читать дальше...   )Жанр: КвасПродолжительность: 01:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15B5C41AA82F14C2C6A6CDF393A1D90D580FD55F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 948027   (376720) от 23.10.2015
 
 Зинаида Руденко | Энциклопедия Пищевых Заблуждений (2015) CamRip [H.264]
@@ -6,7 +35,7 @@
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376720.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ FructCode, Sergei Nikonov | Курс HTML/CSS - Интерактивный ку�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376480.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ ITVDN | Сборник бесплатных вебинаров (2014 - 2015) PCR
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376405.jpg" />
 </div>
 
 
@@ -87,7 +116,7 @@ Hai Phan | 3d Character Art for Games Volume 1-6 (2013) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375892.jpg" />
 </div>
 
 
@@ -113,7 +142,7 @@ FrontendConf 2020 | Профессиональная конференция фр
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375761.jpg" />
 </div>
 
 
@@ -142,7 +171,7 @@ Side FX, Moeen Sayed | VEX isn't scary (2020) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375035.jpg" />
 </div>
 
 
@@ -168,7 +197,7 @@ Oleg Lav | Бесплатная антивирусная программа Pand
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374756.jpg" />
 </div>
 
 
@@ -194,7 +223,7 @@ CGMA, Patrick Yeung | Character Creation for Games (2021) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374681.jpg" />
 </div>
 
 
@@ -220,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374641.jpg" />
 </div>
 
 
@@ -249,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374598.jpg" />
 </div>
 
 
@@ -277,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374490.jpg" />
 </div>
 
 
@@ -306,7 +335,7 @@ Foxford | Английский - Стань сильнее. Pre-Intermediate (A2
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373983.jpg" />
 </div>
 
 
@@ -332,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373981.jpg" />
 </div>
 
 
@@ -358,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373911.jpg" />
 </div>
 
 
@@ -384,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373780.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373526.jpg" />
 </div>
 
 
@@ -437,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373522.jpg" />
 </div>
 
 
@@ -466,7 +495,7 @@ Blender Market, Josh Gambrell, Ponte Ryuurui | The Blender Bros Hard Surface Gam
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372315.jpg" />
 </div>
 
 
@@ -495,7 +524,7 @@ Udemy, Dmitrii Fokeev | Теория дизайна - для веб дизайн
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372313.jpg" />
 </div>
 
 
@@ -523,7 +552,7 @@ Embacy | Курс вёрстки на Webflow (2022) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372312.jpg" />
 </div>
 
 
@@ -552,7 +581,7 @@ Udemy, Drozdov Sergey | Робот для торговли криптовалю�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372311.jpg" />
 </div>
 
 
@@ -578,7 +607,7 @@ Udemy, Dmitrii Fokeev | Курс по Adobe Photoshop 2021 - (продвинут
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372310.jpg" />
 </div>
 
 
@@ -604,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371429.jpg" />
 </div>
 
 
@@ -631,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371403.jpg" />
 </div>
 
 
@@ -660,7 +689,7 @@ Udemy | Создание и дизайн современного дома в Bl
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371309.jpg" />
 </div>
 
 
@@ -671,32 +700,6 @@ Udemy | Создание и дизайн современного дома в Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:449EEEDE794447BDC5BAE4D367234C3370B2157B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415980   (371296) от 14.10.2020
-
-software-testing.ru | Организация функционального тестирования (2018) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371296.jpg" />
-</div>
-
-
-###  Подробнее
-
-Можно ли представить себе хорошего линуксового системного администратора, который не знает общую теорию операционных систем и сетей, не подозревает о существовании Windows и MacOS, не умеет пользоваться для настройки системы консолью так же хорошо, как графической оболочкой? Можно ли считать хорошим инженером-строителем человека, который не владеет сопроматом, не (   Читать дальше...   )Жанр: ТестированиеПродолжительность: 07:15:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CFCB73C40DAD0F1096933C6C3339DAD0FBA7DE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

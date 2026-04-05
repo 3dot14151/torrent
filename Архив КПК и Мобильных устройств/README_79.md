@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348833.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Table Tennis Touch v2.0.1102.1 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348832.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Droplets 2.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_347984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_347984.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Slender Man Chapter 2: Survive v1.05 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346714.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346685.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Slender: The Corridors v1.02 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346621.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Reckless Racing 1.0.0 [3D] [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_345663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_345663.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ QuickSave v2.3.2 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345609.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Talon for Twitter 5.5.5 + Patched + Mod [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345550.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344543.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Ninja Turtles Street Showdown v1.2 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344260.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ The Lion King Immortality v1.4 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344156.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Clone Camera 2.0 Full v2.2 [Ru/En]  - Приложение для клониро
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343828.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Mortal Kombat Quadrilogy 1.2 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343819.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ LEGO® Creationary [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_343314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_343314.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ City Navigator North America NT 2014.30 [Карта] (Garmin)
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342564.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342552.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Chester Cheetah Adventure 1.2 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342147.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_342103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_342103.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Weaponlord 1.2 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342000.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341930.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Donald Duck in Maui Mallard v1.2 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341791.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Hotel Transylvania 2 v1.1.32 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341685.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Word Surf v2.9.1 [Ru/Multi] - Игра в слова & Кроссворд
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341642.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Tiki Towers 1.2.6 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_340785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_340785.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Private Place Secret SMS CALLS 2.3.3.15.B70 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340362.jpg" />
 </div>
 
 

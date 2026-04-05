@@ -1,3 +1,134 @@
+###  Публикация: 1843892   (1049697) от 22.12.2025
+
+Леди со странным вкусом и безумный герцог | Akujiki Reijou to Kyouketsu Koushaku | Pass the Monster Meat, Milady! [2025, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049697.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как известно, благородным леди присущи утончённые вкусы. Но у Мельфьеры Маршалрейд они... слегка необычные. Дело в том, что девушка обожает монстров, много про них знает и даже научилась безопасно их готовить. Но в королевстве такое мясо считается грязным, и к подобным кулинарным изыскам относятся предвзято.
+Отыскать в высшем свете таких же гурманов нелегко, а потому (   Читать дальше...   )Производство: Япония / Студия Asahi ProductionЖанр: Романтика, фэнтезиРежиссер: Такэда МуцумиЯзык озвучки: Русский (AniLiberty); ЯпонскийСубтитры: Русские (хардсаб на надписи), (софтсаб полные)Продолжительность: 12 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F886CE3DB61803C78361BC063080C91EFBAC8F91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843549   (1049324) от 20.12.2025
+
+Хоримия [ТВ-2] | Хоримия: Кусочек | Horimiya: Piece | Horimiya: The Missing Pieces [2023, TV, 13 из 13] BDRip 1080p HEVC 10-bit Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049324.jpg" />
+</div>
+
+
+###  Подробнее
+
+У каждого есть сторона, которую не хочется показывать другим. И не всегда то, каким человек кажется со стороны, отражает его истинную сущность. Популярная, но холодная красавица может вдруг оказаться заботливой и внимательной сестрой, а нелюдимый хулиган с татуировками и пирсингом — добрым и отзывчивым парнем. Познакомившись поближе, наши герои Хори и Миямура узнали (   Читать дальше...   )Производство: Япония / Студия CloverWorksЖанр: комедия, романтика, повседневность, школа, сёненРежиссер: Исихама МасасиЯзык озвучки: Русский (Crunchyroll, AniLibria, AniBaza, AniPlague, Dream Cast, youmiteru, Amazing Dubbing, AniDub Online, AniJoy, SHIZA Project, Youkai Studio, КОМНАТА ДИДИ), ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 13 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:258778B260A4926904FD27ABDAC45B2D56997EF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842810   (1048817) от 17.12.2025
+
+Gekijouban Slayers | Slayers: The Motion Picture | Рубаки на большом экране [1995, Movie] WEBRip 720p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048817.jpg" />
+</div>
+
+
+###  Подробнее
+
+Попытки отомстить Лине Инверс кончаются неудачно. Всегда. К сожалению для бандитов, не все об этом знают. Работники ножа и топора, получив пинков от Лины, наняли Нагу Серпент для попытки отомстить. Две девушки встретились, вежливо поговорили (в процессе было сожжено примерно половина местного леса) и решили - мир, дружба, долой бандитов! В результате лихих людей (   Читать дальше...   )Производство: Япония, J.C.StaffЖанр: приключения, комедия, фэнтезиРежиссер: Ватанабэ ХиросиЯзык озвучки: Русский закадровый (Panda_Ksyao, ~Maria Van Gerad~, Morello, Kaize, Mondi, Ellen, Cruel, SnagVoice, Eliza)Продолжительность: 60 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B382CB66374FEBDF8E5CB9079A225600DDA1501C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842813   (1048816) от 17.12.2025
+
+Slayers Special | Slayers: The Book of Spells | Особые Рубаки [1996, OVA, 3 эп.] WEBRip 720p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048816.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этих трёх историях Лина Инверс и Нага Серпент берутся за различную работу ради лёгких денег, еды или своих жизней. В первом эпизоде они противостоят магу-лунатику, который намеревается использовать Лину для создания устрашающего монстра, использующего магию. Во втором эпизоде парочку нанимает чрезмерно заботливая мать, чтобы они помогли её сыну, молодому человеку, (   Читать дальше...   )Производство: Япония, J.C.StaffЖанр: приключения, комедия, фэнтезиРежиссер: Ватанабэ ХиросиЯзык озвучки: Русский закадровый (Panda_Ksyao, Kaize, Ellen, Cruel, Eliza, ~Maria Van Gerad~, Mondi)Продолжительность: OVA, 3 серии по 30 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2F6442CD08662E5256D98D9A52517DDE2F1AAB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842812   (1048815) от 17.12.2025
+
+Slayers Return | Возвращение Рубак [1996, Movie] WEBRip 720p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048815.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как-то раз Лина Инверс и Нага Серпент обедали в таверне. Девушки что-то не поделили, скорее всего, еду, и от таверны остались рожки да ножки. Но нет худа без добра! Вместо того, чтобы выплачивать немаленький штраф, девушки решили взять задание у Селины, дочери старейшины деревни Биаз. Дело в том, что деревню с некоторых пор захватили демоны. Ещё Селина что-то намекнула (   Читать дальше...   )Производство: Япония, J.C.StaffЖанр: приключения, комедия, фэнтезиРежиссер: Ватанабэ ХиросиЯзык озвучки: Русский закадровый (Panda_Ksyao, Kaize, Ellen, Cruel, Eliza, ~Maria Van Gerad~, Mondi, Scriptorem)Продолжительность: 60 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4AF6A9D2CFDF4D514710AB4D71298973C613238
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1842811   (1048814) от 17.12.2025
 
 Slayers Great | Великие Рубаки [1997, Movie] WEBRip 720p rus
@@ -6,7 +137,7 @@ Slayers Great | Великие Рубаки [1997, Movie] WEBRip 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048814.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ Jungle Taitei: Yuuki ga Mirai o Kaeru | Jungle Emperor: Courage Changes the Futu
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048345.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ Jungle Taitei | Jungle Emperor Leo | Император джунглей [1997, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048344.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ Jungle Taitei | Jungle Emperor | Император джунглей [1989, TV, 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048343.jpg" />
 </div>
 
 
@@ -110,7 +241,7 @@ Gokukoku no Brynhildr | Brynhildr in the Darkness | Брунгильда во т
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047837.jpg" />
 </div>
 
 
@@ -136,7 +267,7 @@ Gekijouban Chainsaw Man: Reze Hen | Chainsaw Man the Movie: Reze Arc | Чело�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047835.jpg" />
 </div>
 
 
@@ -162,7 +293,7 @@ Gekijouban Chainsaw Man: Reze Hen / Chainsaw Man the Movie: Reze Arc / Чело�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047833.jpg" />
 </div>
 
 
@@ -188,7 +319,7 @@ Gekijouban Chainsaw Man: Reze Hen / Chainsaw Man the Movie: Reze Arc / Чело�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047827.jpg" />
 </div>
 
 
@@ -214,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047641.jpg" />
 </div>
 
 
@@ -241,7 +372,7 @@ Tenchi Souzou Design-bu | Heaven's Design Team | Небесный отдел д�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047280.jpg" />
 </div>
 
 
@@ -267,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046691.jpg" />
 </div>
 
 
@@ -294,7 +425,7 @@ Do It Yourself!! | Сделай сама! [2022, TV, 12 из 12] WEBRip 1080p ru
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046294.jpg" />
 </div>
 
 
@@ -320,7 +451,7 @@ Peter Grill to Kenja no Jikan: Super Extra | Пётр Гриль и время �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046291.jpg" />
 </div>
 
 
@@ -347,7 +478,7 @@ Koi wa Sekai Seifuku no Ato de | Love After World Domination | Любовь по
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046177.jpg" />
 </div>
 
 
@@ -374,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045613.jpg" />
 </div>
 
 
@@ -401,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045453.jpg" />
 </div>
 
 
@@ -428,7 +559,7 @@ Date a Bullet | Рандеву с пулей [2020, Movie, 2 из 2] BDRip 1080p
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044399.jpg" />
 </div>
 
 
@@ -454,7 +585,7 @@ Date a Live IV | Рандеву с жизнью [ТВ-4] [2022, TV, 12 из 12] 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044390.jpg" />
 </div>
 
 
@@ -482,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044010.jpg" />
 </div>
 
 
@@ -511,7 +642,7 @@ Honzuki no Gekokujou: Shisho ni Naru Tame ni wa Shudan o Erande Iraremasen (2022
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043838.jpg" />
 </div>
 
 
@@ -537,7 +668,7 @@ Amagi Brilliant Park | Великолепный парк Амаги [2014, TV, 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043220.jpg" />
 </div>
 
 
@@ -548,142 +679,6 @@ Amagi Brilliant Park | Великолепный парк Амаги [2014, TV, 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD2801D3171082DDDDE978A8F268044878190685
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414839   (1042913) от 01.01.2021
-
-Крылатые воины Сигрдривы [ТВ-1] | Senyoku no Sigrdrifa [2020, TV, 12 из 12] WEB-DL 1080p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Соскучились по "боевым кукурузникам" с вайфу-валькириями, прикрываемых современным вооружением от легкой пехоты до ядерного оружия и баллистических ракет (действие происходит в 2025 году)? Тогда это аниме для Вас!
-На Земле появились таинственные столпы, несущие угрозу всему живому. Бог, назвавший себя Одином, протянул беззащитному человечеству руку помощи: (   Читать дальше...   )Производство: Япония, студия A-1 PicturesЖанр: боевик, приключенияРежиссер: Токуда ХиротакаЯзык озвучки: Русский закадровый (Wakanim.tv)Субтитры: Русские надписи (неотключаемые), Русский (внешние)Продолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA2891F11B5ED866AFC4B9267167913A4F9BC515
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413630   (1042912) от 01.01.2021
-
-Букет Штурмовых Лилий [ТВ-1] | Assault Lily BOUQUET | Штурмовая Лилия: Букет [2020, TV, 12 из 12] WEB-DL 1080p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042912.jpg" />
-</div>
-
-
-###  Подробнее
-
-Колготочки, юбочки, ножки, ой о чем это я, аниме же про спасение Мира!
-Земля, недалёкое будущее. Человечество оказывается на грани вымирания из-за появления загадочных форм жизни, «Исполинов». Дабы противостоять им, человечество объединило свои усилия и разработало CHARM — оружие, сочетающее в себе научные достижения и силу волшебства, или «маги». В целях воспитания (   Читать дальше...   )Производство: Япония, студия ShaftЖанр: приключенияРежиссер: Саэки СёдзиЯзык озвучки: Русский закадровый (Wakanim.tv)Субтитры: Русские надписи (неотключаемые), Русский (внешние)Продолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1823C2A9C402C0400F2695B03F10C8B0AB57639
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436870   (1042633) от 02.01.2021
-
-Tenchi Muyou! Bangaihen: Galaxy Police Mihoshi Space Adventure | Тэнти - лишний! Миссия Михоси [1994, OVA, 1 эп.] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта овашка откроет Вам чудесный и удивительный мир размышлений Михоши. Она думает! И какие умозаключения она делает! Это рассказ Михоши о ее самом знаменитом задании в Галактической полиции, в который постоянно против ее воли влезают все персонажи тенчей вместе и по очереди…
-Как пародия, эта серия удалась, т.к. тут присутствуют действительно глупые шутки, которые (   Читать дальше...   )Производство: Япония,Жанр: приключения, комедия, махо-сёдзёРежиссер: Одзава КадзухироПеревод: русские субтитрыЯзык озвучки: Японский и русский
-Многоголосая, студияПродолжительность: 30 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA232EAFEC44C409AD498C3A04511E64E8D56761
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436883   (1042632) от 02.01.2021
-
-Blade and Soul / Клинок и душа [2014, TV, 12 ep] BDRip 1080p Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042632.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда-то в этом мире распахнулись Темные Врата, откуда хлынули орды демонов. Небеса не остались в стороне, демонов победили, а Врата были запечатаны четырьмя Великими Мастерами. Столетия спустя отступница Цинь Валайлу подняла мятеж, чтобы сокрушить печати, но была уничтожена объединенной мощью Мастеров. Шли века, рождались и уходили народы, память о древних битвах (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Такэути ХиросиЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 13 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:053CAA73EFF622854C49C31C6C66CF615F959EA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436910   (1042372) от 03.01.2021
-
-Fuuka / Фуука [2017, TV, 12 ep] BDRip 1080p Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой и застенчивый Ю Харуна недавно переехал в новый город. После переезда он оказался буквально затянут в Твиттер, в котором юноша начал делиться разными мелочами из своей жизни.
-
-Однажды, на уткнувшегося носом в свой телефон и обновлявшего ленту новостей Ю случайно налетает девушка по имени Фука Акицуки. В результате происходит неловкий случай: девушка по ошибке (   Читать дальше...   )Жанр: романтика, музыкальныйРежиссер: Кусакава КэйдзоЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADE316596CB576A382A95BAE6B5AF84662DC8C03
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1510788   (1029204) от 02.04.2023
+
+Ruined King: A League of Legends Story (2021) [Ru/Multi] (60323/dlc) License GOG [Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029204.jpg" />
+</div>
+
+
+###  Подробнее
+
+Соберите отряд чемпионов из League of Legends, исследуйте Билджвотер и отправьтесь на Сумрачные острова, чтобы раскрыть тайны смертельно опасного черного тумана. Игра разработана студией Airship Syndicate, создавшей Battle Chasers и Darksiders, и оформлена знаменитым художником комиксов Джо Мадурейра в его стиле. Ruined King: A League of Legends Story – первый проект (   Читать дальше...   )Тип издания: LicenseРазработчик: Airship SyndicateЖанр: Ролевая игра, Пошаговая, ФэнтезиЯзык озвучки: Русский, Английский, Немецкий, Турецкий и другиеЯзык субтитров: Русский, Английский, Немецкий, Турецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Турецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:999D6AFAC3365A595A8AF2F95C17F87C6A0A6854
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451106   (1028577) от 28.02.2021
+
+The Witcher 2: Assassins of Kings / Ведьмак 2: Убийцы королей (2011) [Ru/Multi] (3.5.0.26a/dlc) Repack West4it [Enhanced Edition / Расширенное Издание]
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вам предстоит попробовать себя в роли ведьмака Геральта из Ривии, профессионального убийцы монстров. Очутившись в эпицентре политического хаоса, Геральту удается остановить Великого магистра Ордена Пылающей Розы. Вскоре после этого на короля Фольтеста покушается таинственный убийца, очень похожий на ведьмака. Геральту удается спасти короля и он становится его телохранителем.Тип издания: RepackРазработчик: CD PROJEKT REDЖанр: Adventure, RPG, 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9A993B78C0F6A178DA3AD7DF7257ACE1609ABC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1454010   (1026469) от 13.03.2021
 
 Dead Age 2 (2021) [Ru/Multi] (1.0.0) Repack SpaceX
@@ -6,7 +58,7 @@ Dead Age 2 (2021) [Ru/Multi] (1.0.0) Repack SpaceX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026469.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Vampire: The Masquerade - Coteries of New York (2019) [Ru/Multi] (1.0.9) Repack 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026299.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Atelier Ryza: Ever Darkness & the Secret Hideout (2019) [Multi] (1.08/dlc) Repac
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026293.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Nioh 2 (2021) [Ru/Multi] (1.26.00/dlc) Repack xatab [The Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026278.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Dungeon Defenders: Awakened (2020) [Ru/Multi] (1.3.0.23136) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025697.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Loop Hero (2021) [Ru/Multi] (1.012) Repack SpaceX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024817.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ Kingdom Hearts III (3) and Re Mind (2021) [Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023356.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ Cyberpunk 2077 (2020) [Ru/Multi] (1.2) Repack SpaceX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023046.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ Loop Hero (2021) [Ru/Multi] (1.0.12) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022030.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ Warhammer: Chaosbane (2019) [Ru/Multi] (1.16-20.12.11/dlc) License GOG [Slayer E
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021652.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ Demon Skin (2021) [Ru/Multi] (0.9031) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021062.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ The Elder Scrolls IV: Oblivion (2007) [En] (1.2.0416 CS/dlc) License GOG [Game o
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020184.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ The Incredible Adventures of Van Helsing: Final Cut (2015) [Ru/Multi] (1.1.0b) L
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016623.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ Nox Archaist (2021) [En] (1.1.4e) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014417.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ Ark of Artemis (2021) [Multi] (1.0) License DARKSiDERS
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014276.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ Chrono Trigger (2018) [En] (1.0) License TiNYiSO [Limited Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013447.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ Mistover (2019) [Multi] (1.0.9a/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013445.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ Yakuza: Like a Dragon (2020) [Ru/Multi] (1.0/dlc) License EMPRESS [Legendary Her
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013417.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ Mount & Blade: Warband / Mount & Blade. Эпоха турниров (2010) [Ru/M
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013093.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ Edge of Eternity (2021) [Ru/Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011877.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ Demons Age (2017) [Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011574.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ Icewind Dale: Enhanced Edition (2014) [Ru/Multi] (2.6.6.0/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011031.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ Breath of Fire IV (4) (2003) [En] (1.0) License DEViANCE
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010923.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ Breath of Fire IV (4) (2003) [Ru/En] (1.0) Repack R.G. Revenants
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010915.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ Breath of Fire IV (4) (2003) [Ru/En] (1.0) Repack R.G. Revenants
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F0016A517C648A40AB7D25EFD61CBCB90307A54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478131   (1010408) от 18.06.2021
-
-Breath of Fire IV (2003) [Ru/En] (1.0) Repack Other s
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010408.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нина, принцесса Виндии, и Крэй, вождь клана людей-котов Уорен, отправились на поиски родственников Крэя, которые пропали при загадочных обстоятельствах во время дипломатической миссии. По пути в ближайший город на них нападает дракон и разбивает их транспортное средство. Крэй остается его охранять, пока Нина возвращается домой за новыми деталями. По пути она находит (   Читать дальше...   )Тип издания: RepackРазработчик: CAPCOM Co., Ltd.Жанр: Adventure, Role-Playing (RPG)Язык озвучки: Японский (intro)Язык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E78594089D6C3341E421976410FDE986F2DA21D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187706   (1010051) от 20.06.2021
-
-Arx Fatalis (2002) [Ru/Multi] (1.22) License GOG
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир Аркс во власти хаоса – жестокая нескончаемая война почти уничтожила его. Солнце давно покинуло этот мир, и он погрузился во тьму, а населению пришлось переселиться в подземелья. Но со временем еды и воды становится все меньше, и война начинает разгораться с новой силой – каждая раса борется за свое выживание. Погрузитесь в царство кошмара, где только ваша отвага (   Читать дальше...   )Тип издания: LicenseРазработчик: Arkane StudiosЖанр: Ролевая игра, Приключение, ФэнтезиЯзык озвучки: Русский, Английский, Немецкий, Испанский и другиеЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A77C28BD0C6E15159413A3B13A38F525C41D771E
 ```
 
 https://mybot314.ru/tekegram_catalog/

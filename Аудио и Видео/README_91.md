@@ -6,7 +6,7 @@ VA - Travel & Living Lounge, Vol. 2 (2016) [AAC|~327 Kbps] <Lounge, Chill Out, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750002.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Travel & Living Lounge, Vol. 5 (2020) [AAC|~325 Kbps] <Lounge, Chill Out, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750000.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Travel & Living Lounge, Vol. 4 (2019) [AAC|~319 Kbps] <Lounge, Chill Out, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749998.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Travel & Living Lounge, Vol. 6 (2021) [AAC|~328 Kbps] <Lounge, Chill Out, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749997.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Winter Lofi Chill (2022) [AAC|~305 Kbps] <Lo-Fi, Lounge, Chill Out>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749996.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Travel & Living Lounge, Vol. 1 (2014) [AAC|~323 Kbps] <Lounge, Chill Out, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749994.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Michel Le Fleur - Isla Del Mar (Ibiza Sunset) (2022) [AAC|~342 Kbps] <Lo-Fi, Lou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749990.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Joe Bonamassa - Time Clocks (2021) [AAC|~351 Kbps] <Rock, Blues>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_749901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749901.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749849.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Ennio Morricone - Ennio Morricone Remixes (2021 Remastered Version) (2021) [AAC|
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749796.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749700.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749692.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749486.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749216.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749215.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749153.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748741.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748531.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748522.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ VA - Deep Voyage 3 (2021) [AAC|~321 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748485.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ VA - Deep Voyage 1 (2019) [AAC|~326 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748484.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ VA - Bar Lounge Costes, Vol. 3 (2020) [AAC|~321 Kbps] <Lounge, Chill Out, Smooth
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748483.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ VA - Bar Lounge Costes, Vol. 2 (2019) [AAC|~299 Kbps] <Lounge, Chill Out, Smooth
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748482.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ VA - Bar Lounge Costes, Vol. 4 (2021) [AAC|~319 Kbps] <Lounge, Chill Out, Smooth
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748481.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ VA - Delicious Chill: Urban Chillout Music (2022) [AAC|~315 Kbps] <Lounge, Chill
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748480.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Scott Bradlee's Postmodern Jukebox - Jazz Me Outside, Pt. 2 (2018) [AAC|~323 Kbp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748479.jpg" />
 </div>
 
 

@@ -1,3 +1,58 @@
+###  Публикация: 389053   (457724) от 17.09.2011
+
+О.Катаргина (сост.) | Серия нотных сборников «Фортепианная техника в удовольствие» (2006) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Прочие материалы для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457724.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия сборников «Фортепианная техника в удовольствие» предлагает этюды и пьесы, написанные композиторами разных стран и эпох.
+Произведения, в которых представлены практически все виды техники, помогут начинающим музыкантам лучше овладеть пианистическими навыками.
+Яркий, выразительный образ пьес, характерные названия позволят юным исполнителям с удовольствием освоить (   Читать дальше...   )Жанр: Ноты для ДМШ (фортепиано)Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46DDBAE382056C8D6182C09233A77D6520F23779
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408276   (457678) от 11.09.2020
+
+Евгения Френкель | Общая химия. Самоучитель (2017) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457678.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самоучитель основан на методике, которую автор с успехом использует более 20 лет. С помощью этой методики множество школьников смогли поступить на химические факультеты и в медицинские вузы. Самоучитель особенно полезен ученикам 11 класса, которые повторяют общую химию, а также тем, кто готовится к ЕГЭ по химии и хочет получить отличную оценку на экзаменах.
+Встретившись (   Читать дальше...   )Жанр: Обучение/РазвитиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88070BCBA22D9392513C1E88A04C742A43EDD0AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1568839   (457623) от 10.08.2022
 
 Н.Толстая (ред.) | Сказки народов Индии (1976) [PDF]
@@ -6,7 +61,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457623.jpg" />
 </div>
 
 
@@ -35,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457498.jpg" />
 </div>
 
 
@@ -62,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457431.jpg" />
 </div>
 
 
@@ -89,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457277.jpg" />
 </div>
 
 
@@ -115,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457186.jpg" />
 </div>
 
 
@@ -141,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные материалы для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457184.jpg" />
 </div>
 
 
@@ -170,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457140.jpg" />
 </div>
 
 
@@ -199,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457138.jpg" />
 </div>
 
 
@@ -225,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456757.jpg" />
 </div>
 
 
@@ -254,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456686.jpg" />
 </div>
 
 
@@ -280,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456225.jpg" />
 </div>
 
 
@@ -306,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456124.jpg" />
 </div>
 
 
@@ -332,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456123.jpg" />
 </div>
 
 
@@ -359,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456118.jpg" />
 </div>
 
 
@@ -385,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456101.jpg" />
 </div>
 
 
@@ -411,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456099.jpg" />
 </div>
 
 
@@ -437,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456093.jpg" />
 </div>
 
 
@@ -466,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456087.jpg" />
 </div>
 
 
@@ -495,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456086.jpg" />
 </div>
 
 
@@ -521,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456085.jpg" />
 </div>
 
 
@@ -547,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456084.jpg" />
 </div>
 
 
@@ -574,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456018.jpg" />
 </div>
 
 
@@ -601,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456007.jpg" />
 </div>
 
 
@@ -627,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455910.jpg" />
 </div>
 
 
@@ -638,60 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4210312CA702F382DE2DFBA91732DB8568BD4054
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408549   (455904) от 12.09.2020
-
-Татьяна Корнева, Олег Корнев | Первая энциклопедия школьника (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455904.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая энциклопедия школьника - источник самой важной информации а самых интересных фактов обо всем на свете для любого ученика начальных классов!
-Космос и живой мир, история письменности и культура, наука и техника — обо всем этом и о многом другом ученик начальных классов сможет прочитать на страницах этой энциклопедии. Тексты написаны для детей педагогом начальной (   Читать дальше...   )Жанр: Энциклопедия/Познавательная литература/Развлечения для детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D804229342C8F2502146F0E6B45F63D635EDD251
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569095   (455818) от 11.08.2022
-
-Александр Яковлев | Первый конь (1926) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455818.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник добрых рассказов из повседневной жизни детей и курьёзов связанных с ними.
-Для детей младшего школьного возраста. Иллюстрации К.Кузнецова.Жанр: РассказФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F57553A23346A870231590F5133E76D6F959765
 ```
 
 https://mybot314.ru/tekegram_catalog/

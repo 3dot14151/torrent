@@ -6,7 +6,7 @@ Pelican - Ataraxia/Taraxis (2012) [MP3|320 кб/с]<Instrumental Sludge / Post-M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99270.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Volkerball - Weichen Und Zunder (2012) [MP3|224 кб/с]<Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99256.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ Gaia Epicus - Dark Secrets (2012) [MP3|320 кб/с]<Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99203.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Rise To Fall - Defying The Gods (2012) [MP3|320 кб/с]<Modern Melodic Death Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99199.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Canvas Solaris - Irradiance (2010) [MP3|320 кб/с]<Instrumental Progressive Te
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99173.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Blotted Science - 2 Albums (2007 - 2011) [MP3|320 кб/с]<Instrumental/Progress
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99078.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Tyrant Of Death - Re Connect (2012) [MP3|320 кб/с]<Math Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99031.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Job For A Cowboy - Demonocracy (2012) [MP3|320 кб/с]<Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99029.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Black Sheep Wall - No Matter Where It Ends (2012) [MP3|320 кб/с]<Sludge Post-
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98771.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Antropofagus - Architecture Of Lust (2012) [MP3|320 кб/с]<Brutal Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98700.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Dimension Act - Manifestation Of Progress (2012) [MP3|320 кб/с]<Progressive M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98600.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Solitude - Tied To The Anchor (2012) [MP3|256 кб/с]<Melodic Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98596.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Hopelezz - Black Souls Arrive (2012) [MP3|320 кб/с]<Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98584.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ New Eden - Solving for X (2012) [MP3|320 кб/с]< Progressive Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98482.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Begging For Incest - Orgasmic Selfmutilation (2012) [MP3|320 кб/с]<Brutal Dea
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98466.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Bejelit - Emerge (2012) [MP3|320 кб/с]<Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98382.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ The Aether Tree - Esperanza (2011) [MP3|320 кб/с]<Avant-Garde Metal / World J
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98288.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Obsidian Gate - Colossal Christhunt (2001) [MP3|320 кб/с]<Symphonic Black Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97727.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Vespera - Desert Of The Real (2011) [MP3|320 кб/с]<Gothic / Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97724.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ OverMaster - Madness Of War (2010) [MP3|320 кб/с]<Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97435.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Sleipnir - Bloodbrothers (2010) [MP3|320 кб/с]<Epic Viking Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97425.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Crossover - Pythagorized (2011) [MP3|320 кб/с]<Industrial/Sympho Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97423.jpg" />
 </div>
 
 
@@ -735,7 +735,7 @@ Cynic - The Portal Tapes (Compilation) (2012) [MP3|320 кб/с]<Progressive Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97372.jpg" />
 </div>
 
 
@@ -770,7 +770,7 @@ Municipal Waste - The Fatal Feast (2012) [MP3|320 кб/с]<Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97247.jpg" />
 </div>
 
 
@@ -805,7 +805,7 @@ Opera Diabolicus - 1614 (2012) [MP3|320 кб/с]<Symphonic Metal, Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97009.jpg" />
 </div>
 
 
@@ -838,7 +838,7 @@ Mortad - The Myth Of Purity (2012) [MP3|320 кб/с]<Melodic Death Metal / Thras
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96945.jpg" />
 </div>
 
 

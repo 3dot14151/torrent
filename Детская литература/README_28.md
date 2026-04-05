@@ -1,32 +1,3 @@
-###  Публикация: 1367412   (917317) от 15.03.2020
-
-Диана Уинн Джонс | Дом за порогом. Время призраков (2019) [FB2, EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Завораживающе глубокие, умные, искрящиеся юмором и изумляющие лихими сюжетными поворотами удивительные сказки Дианы Уинн Джонс покорили миллионы читателей по всему миру.
-В настоящее издание вошли сразу две истории, которые не оставят равнодушными ни давних поклонников творчества писательницы, ни тех, кто впервые встречается с ее волшебными мирами.
-
-Роман «Дом за (   Читать дальше...   )Жанр: Зарубежная фантастика для детей, ФэнтезиПеревод: Анастасия БродоцкаяФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFC0106172468A275F46235BF96939E8CF235F8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 865071   (917273) от 31.01.2015
 
 Отфрид Пройслер | Лесной разбойник (2006) [FB2]
@@ -35,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917273.jpg" />
 </div>
 
 
@@ -61,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917260.jpg" />
 </div>
 
 
@@ -87,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917257.jpg" />
 </div>
 
 
@@ -114,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917148.jpg" />
 </div>
 
 
@@ -140,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915911.jpg" />
 </div>
 
 
@@ -167,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915907.jpg" />
 </div>
 
 
@@ -194,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915754.jpg" />
 </div>
 
 
@@ -220,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915684.jpg" />
 </div>
 
 
@@ -246,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915629.jpg" />
 </div>
 
 
@@ -272,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915539.jpg" />
 </div>
 
 
@@ -301,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_915500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_915500.jpg" />
 </div>
 
 
@@ -327,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915482.jpg" />
 </div>
 
 
@@ -353,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915257.jpg" />
 </div>
 
 
@@ -380,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915097.jpg" />
 </div>
 
 
@@ -406,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914455.jpg" />
 </div>
 
 
@@ -434,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914287.jpg" />
 </div>
 
 
@@ -460,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914095.jpg" />
 </div>
 
 
@@ -486,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913806.jpg" />
 </div>
 
 
@@ -513,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913729.jpg" />
 </div>
 
 
@@ -539,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912664.jpg" />
 </div>
 
 
@@ -565,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912578.jpg" />
 </div>
 
 
@@ -592,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912576.jpg" />
 </div>
 
 
@@ -618,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912506.jpg" />
 </div>
 
 
@@ -645,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912491.jpg" />
 </div>
 
 
@@ -671,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912414.jpg" />
 </div>
 
 
@@ -684,6 +655,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F8FDFEFA9BB77ED533C62BB2EDECFF1601D0760
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368029   (912404) от 18.03.2020
+
+Протоиерей Пётр Поляков | К Отечеству Небесному (2013) [DJVU, PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Душеполезные беседы и рассказы из жизни святых в пересказе для детей.Жанр: ПравославиеФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8810C13BBE528D7949DE8D4A21D43375C94EF3D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 717240   (391665) от 31.10.2013
+
+Браво - Bravo (1987) Finland [FLAC 2.0 24/192|Image (Vinyl-Rip)] <Rock'n'Roll, Beat, Rockabilly>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа была основана в 1983 году гитаристом Евгением Хавтаном и ударником Павлом Кузиным, покинувшими группу «Постскриптум» из-за стилевых разногласий. Вокалисткой нового коллектива стала Жанна Агузарова, известная под псевдонимом Иванна Андерс. К группе присоединились саксофонист Александр Степаненко и басист Андрей Конусов. Дебютный концерт «Браво» 18 марта 1984 (   Читать дальше...   )A1.  Кошки (Koshki)  :: 02:50
+A2.  Медицинский Институт (Meditsinskij Institut)  :: 02:36
+A3.  Верю Я (Verju Ja)  :: 03:03
+A4.  Ленинградский Рок-Н-Ролл (Leningradskij RockNroll)  :: 02:26(   Читать дальше...   )Жанр: Rock'n'Roll, Beat, RockabillyФормат: Vinyl, LP, AlbumПродолжительность: 00:27:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A015A8DC2FDC08ED779210622225416EDA39B69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1326269   (385110) от 20.09.2019
 
 Yujiro Mabuchi '68 All Stars - Okizari Ni Shita Kanashimi Wa / Soshun No Minato (1973) [FLAC 2.0|48/24|image +.cue|Vinyl-Rip] <Jazz, Pop, Easy Listening>
@@ -6,7 +35,7 @@ Yujiro Mabuchi '68 All Stars - Okizari Ni Shita Kanashimi Wa / Soshun No Minato 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385110.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384781.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384428.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384349.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Folk Rock Collection 1965 - 1975 (2022) Compilation, Unofficial Release [FL
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383653.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - Рок-панорама-87 (1988) 3LP [FLAC 2.0|96/24|image +.cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383165.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380449.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ VA - Бумер - 2 (2006) [FLAC 2.0 16/44,1|image+.cue (MC-Rip)]<Original Sound
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379261.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ VA - Шедевры инструментальной музыки части 1 -
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378990.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378154.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Johann Sebastian Bach–Piano concertos: BWV1061,BWV1060,BWV1062 Zoltan Kocsis, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375650.jpg" />
 </div>
 
 
@@ -326,7 +355,7 @@ Dan Spătaru/Дан Спатару – Песни Из Кинофильма «П
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375376.jpg" />
 </div>
 
 
@@ -355,7 +384,7 @@ This Mortal Coil - It'll End In Tears (1984) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374956.jpg" />
 </div>
 
 
@@ -381,7 +410,7 @@ The Doors - The Doors (1967) Reissue /1980, Warner Pioneer / [FLAC 2.0 24/96|ima
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374861.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ Rockets - Pi 3,14 (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Space Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371810.jpg" />
 </div>
 
 
@@ -439,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371435.jpg" />
 </div>
 
 
@@ -468,7 +497,7 @@ Modern Talking - The 1-st Album (1985) [FLAC 2.0 24/96|Lossless|tracks|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370157.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ Teruo Yoda & Dreamy Mood Orchestra - The Enchanted (1967) [FLAC 2.0|44,1/16|trac
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368157.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ Yujiro Mabuchi '68 All Stars - Attractive Tenor-Sax Mood Best 16 (1973) [FLAC 2.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368012.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ Jive Bunny And The Mastermixers - два магнитоальбома (1989,1990
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367881.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ The Prodigy - No Tourists (2018) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Drum & Bass,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367684.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ Teddy Ikeya Quintet - Dream (1967) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367505.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ Judas Priest - British Steel (1980) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip]  <He
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365728.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ Santana - Santana III (1971) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Psychedelic
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364973.jpg" />
 </div>
 
 
@@ -700,7 +729,7 @@ Joe Hunter/Джо Хантер - Поет Джо Хантер (1974) [FLAC 1.0|9
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364260.jpg" />
 </div>
 
 
@@ -714,35 +743,6 @@ Joe Hunter/Джо Хантер - Поет Джо Хантер (1974) [FLAC 1.0|9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4CC52CC861C73F32509F20ABB73900DBBBF8C18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328431   (363130) от 30.09.2019
-
-Toshiro Ito & '68 All Stars - Romantic Guitar Mood Best 16 (1973) [FLAC 2.0|44,1/16|image +.cue|Vinyl-Ri] <Pop, Jazz, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hadakano Venus
-02. Nagisa Nite
-03. Kuchibeni Enka
-04. Kimi Ga Utsukushisugite(   Читать дальше...   )Жанр: Pop, Jazz, Easy ListeningПродолжительность: Pop, Jazz, Easy Listening
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E139619DF26ECD6CDD4BF3E1E4CAC694A8526B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

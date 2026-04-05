@@ -6,7 +6,7 @@ Two Worlds 2 / Два Мира 2 (2011) (Ru/Multi) (1.3.7) License PROPHET [Velv
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754347.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Council (2018) [Ru] (0.9.1.5452) Repack alivedeath [Episode 1]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754279.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Baldur's Gate (2012) [Multi] (1.0.2014) License PROPHET [Enhanced Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754247.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Kingdom Come: Deliverance (2018) [Ru/Multi] (1.4/dlc) License PLAZA [HD Texture 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750729.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Kingdom Come: Deliverance (2018) [Ru/Multi] (1.4) License CODEX [patch]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750725.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Darkest of Days / Самый чёрный день [Ru/En] (RePack/1.05) 2009 | 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748320.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Lumo (2016) [Ru/Multi] (1.05.18) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747960.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Fallout 2 (1998) [En/Cz] (1.02d) Repack
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747026.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Dying Light: The Following (2016) [Ru/En] (1.16/dlc) Repack xatab [Enhanced Edit
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745769.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Torchlight II (2012) [Ru/Multi6] (1.25.9.5) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744425.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Brunswick Zone Cosmic Bowling [Wii] [NTSC] [English] (2010)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744266.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Fullmetal Alchemist: Daughter of the Dusk [Японский] (2009) [Wii] [NTSC]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744206.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Pathfinder: Kingmaker (2018) [Ru/Multi] (1.2.3/dlc) Repack R.G. Catalyst [Imperi
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743160.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Mordheim: City of the Damned (2015) [Ru/Multi] (1.2.4.6/dlc) License ALI213
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741495.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Outlast (2013) [Ru/Multi] (1.0.12046.0/dlc) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740040.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Rock of Ages 3: Make & Break (2020) [Ru/Multi] (94922) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736488.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Dishonored (2013) [Ru/En] (1.4/4dlc) Repack R.G. Механики [Game of the Y
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734484.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ King's Bounty Anthology / Антология King's Bounty (2008-2012) [Ru/En] S
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734044.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Dead Effect 2 (2016) [Ru/En] (1.0.3 Hotfix) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732292.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Resident Evil Revelations 2 (2015) [Ru/En] (5.0/dlc) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731464.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Hand Of Fate (2015) [Ru/Multi] (1.3.10/dlc) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731276.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Wolfenstein: The New Order (2014) [Ru/En] (1.0.0.2/upd1) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730237.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Planetbase (2015) [Ru/Multi] (1.1.3) Unofficial
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728068.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_728051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_728051.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ The Incredible Adventures of Van Helsing: Final Cut (2015) [Ru/Multi] (1.0.8) Li
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728017.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Youtubers Life (2016) [Ru/Multi] (0.7.8) Repack Devastator24 [Early Access]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726871.jpg" />
 </div>
 
 

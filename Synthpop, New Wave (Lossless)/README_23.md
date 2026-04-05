@@ -1,32 +1,3 @@
-###  Публикация: 1590710   (188520) от 15.11.2022
-
-Moxy The Band - Dream Feeling (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Female Vocal>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pawns (2:58)
-02. You Feel It Too (4:01)
-03. The Cost (3:15)
-04. Live Without (3:44)(   Читать дальше...   )Жанр: Synthpop, Synthwave, Female VocalПродолжительность: 00:39:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:064615E02B54FA37A56E50FA22DA14BBBC7C7050
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1590858   (187550) от 17.11.2022
 
 Groove Master Juno - The Last Prism (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Alternative>
@@ -35,7 +6,7 @@ Groove Master Juno - The Last Prism (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthp
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187550.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ We Are Magonia - Triangle Unicode (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwav
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183863.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Gunship - Unicorn (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, R
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183077.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Carrellee - Scale Of Dreams (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182473.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Neon Nox - Payback (2022) [FLAC|Lossless|WEB-DL|tracks] <Retrowave, Synthwave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179903.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Lone Runner - Memories of 2082 (2022) [FLAC|Lossless|WEB-DL|tracks] <Retrowave, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179865.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Makeup and Vanity Set - FM (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Dark
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179621.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Dimi Kaye - The Neon Shredder (2023) [FLAC|Lossless|WEB-DL|tracks] <Retrowave, S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179615.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ New Arcades - Leave Something Behind (2023) [FLAC|Lossless|WEB-DL|tracks] <Synth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179584.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Eleventyseven - Gloom & Bloom (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock, Po
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177578.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Acryl Madness - Afterlife (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Darks
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177350.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Depeche Mode - Delta Machine | The 12" Singles (2023) [FLAC|Lossless|WEB-DL|trac
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_177218.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Mirrors Of Mind - Тишина Становится Тобой (2022) [FLAC|Loss
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176162.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175515.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Reflection - Alpha et Omega (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175307.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Cicero - Future Boy (1992) Expanded Edition, 2023, SFE [FLAC|Lossless|WEB-DL|tra
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174044.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ VA - Spacedance, Vol. 5 (2023) [FLAC|Lossless|WEB-DL|tracks] <Spacedance, Spaces
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173883.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Kanga - Under Glass (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Industrial, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173199.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Volkor X - The Loop (2023) [FLAC|Lossless|WEB-DL|tracks] <Darksynth>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172116.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Pet Shop Boys - Relentless (1993) Remaster, 2023, Rhino [FLAC|Lossless|WEB-DL|tr
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172113.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Lost Engineer - Antigravity (2023) [FLAC|Lossless|WEB-DL|tracks] <Retrowave, Syn
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172105.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ OMD (Orchestral Manoeuvres In The Dark) - Bauhaus Staircase (2023) [FLAC 24/44.1
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169933.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ Malik Djoudi - UN (2017) Wagram Music & Cinq 7 [FLAC|Lossless|WEB-DL|tracks] <Fr
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168213.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ Thermal Noise - Legends (2022) [FLAC|Lossless|WEB-DL|tracks] <Electro>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165082.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ Siouxsie And The Banshees - Once Upon A Time/The Singles (1981) Remaster, 1992, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163548.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ Siouxsie And The Banshees - Once Upon A Time/The Singles (1981) Remaster, 1992, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3694C4FA0F112320775D160952279714EF07B1C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674222   (162328) от 04.11.2023
+
+††† (Crosses) - Goodnight, God Bless, I Love U, Delete (2023) [FLAC|Lossless|tracks + .cue] <Synthpop, Experimental, Electronic Rock>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pleasure (04:16)
+02. Invisible Hand (03:54)
+03. Found (03:25)
+04. Light as a Feather (03:09)(   Читать дальше...   )Жанр: Synthpop, Experimental, Electronic RockПродолжительность: 00:49:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:389CC70E4A9E1D10F7A92D47394756AF33874D35
 ```
 
 https://mybot314.ru/tekegram_catalog/

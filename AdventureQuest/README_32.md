@@ -1,3 +1,81 @@
+###  Публикация: 1229768   (622611) от 08.06.2018
+
+Detective Gallo (2018) [Ru/Multi] (1.0) Repack Covfefe
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622611.jpg" />
+</div>
+
+
+###  Подробнее
+
+Detective Gallo – юмористическая нуар point&click адвенчура, героем которой является пернатый ворчливый приватный детектив, расследующий весьма странное дело. Тьма окутала город и под покровом ночи пять экзотических растений стали жертвами трагического события. Нет никаких сомнений – это серийное убийство растений. Но город не особо потрясло это происшествие, (   Читать дальше...   )Тип издания: RepackРазработчик: Footprints GamesЖанр: Приключение, Квест, ДетективЯзык озвучки: Английский, ИтальянскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:601CD6D7E803B876D980ABFB2306EBE9D6266BF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204840   (622277) от 08.06.2018
+
+Finding Paradise (2017) [Ru/Multi] (1.2) License PLAZA
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622277.jpg" />
+</div>
+
+
+###  Подробнее
+
+Finding Paradise — игра, рассказывающая историю о двух врачах, проходящих через воспоминания умирающих людей, чтобы выполнить их последнее желание...Тип издания: LicenseРазработчик: Freebird GamesЖанр: Adventure, RPGЯзык субтитров: Русский, Английский, Украинский, Испанский и другиеЯзык интерфейса: Русский, Английский, Украинский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A90AE6B87292FB08FEF0904F99CE745B866098B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295090   (621850) от 11.04.2019
+
+Dance of Death: Du Lac & Fey (2019) [En] (1.0) Repack R.G. Catalyst
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621850.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dance of Death: Du Lac & Fey - это приключенческая история, события которого разворачиваются в викторианском Лондоне 1888 года. Город терроризирует Джек-потрошитель, и на след печально известного убийцы выходит никто иной как бессмертный герой сэр Ланселот ОзерныйТип издания: RepackРазработчик: Salix Games Ltd, Tea Clipper GamesЖанр: Adventure, Detective, Point & ClickЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:969821AA261B991743A937A336F043C4909A7AEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1295251   (621849) от 11.04.2019
 
 Phoenix Wright: Ace Attorney Trilogy (2019) [En/Jp] (1.0) License CODEX
@@ -6,7 +84,7 @@ Phoenix Wright: Ace Attorney Trilogy (2019) [En/Jp] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621849.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ The Assembly (2016) [En/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620579.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ The Assembly (2016) [Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620416.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Silence: The Whispered World 2 (2016) [Ru/Multi] (1.2.2a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619296.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Virginia (2016) [Ru/Multi] (1.02a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617583.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Desire (2016) [Ru/Multi] (1.0.3) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616872.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Bohemian Killing (2016) [En/Pl] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616798.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ Firewatch (2016) [Ru/Multi] (1.1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615996.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ Curious Cases (2019) [Ru/Multi] (1.0/upd1) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614824.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ Curious Cases (2019) [Ru/Multi] (1.0/upd1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614821.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ No70 Eye of Basir (2017) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614136.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ No70: Eye of Basir (2017) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614132.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ Golem (2018) [Ru/Multi] (1.0.1.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613556.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ Shelter 2 (2015) [Ru/Multi] (1.0/dlc) License GOG [Special Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613014.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ Firewatch (2016) [Ru/Multi] (1.1.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612546.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ Machinarium / Машинариум (2009) [Ru/Multi] (1.0.0.1) SteamRip Let'sPla
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612537.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ The Way (2016) [Ru/Multi] (1.07b) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612071.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ Post Mortem (2003) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610894.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ Please (2017) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610708.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ FRAMED Collection (2018) [Multi] (1.0.16#456) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610353.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ Tales from the Borderlands (2014) [En] (1.0.0.1) License CODEX [Episode 1-3: Zer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610171.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ LEGO The Incredibles (2018) [Ru/Multi] (1.0.0/dlc) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608302.jpg" />
 </div>
 
 
@@ -580,7 +658,7 @@ Lucius II: The Prophecy (2015) [Ru/En] (1.0.150601.b) Repack xGhost
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608211.jpg" />
 </div>
 
 
@@ -591,85 +669,6 @@ Lucius II: The Prophecy является продолжением приключ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:574FC4C60C12FAB836E7547428A580860DF51832
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038217   (607786) от 27.07.2016
-
-Minecraft: Story Mode (2015) [Ru/Multi] (1.0.0.1) License RELOADED [Episodes 1-7]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607786.jpg" />
-</div>
-
-
-###  Подробнее
-
-Minecraft: Story Mode предлагает отправиться в популярный мир, но уже в виде сюжетного приключения. Проект является не аддоном, а отдельной игрой, где сюжет, как и в других играх Telltale Games, развивается в зависимости от принимаемых игроком решений.
-Сюжет Minecraft: Story Mode, как сейчас принято, поделен на несколько эпизодов, составляющих первый сезон. Протагонистом (   Читать дальше...   )Тип издания: LicenseРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FE21C714D291ECF152E8418A3A7CC79F7FAE9C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147698   (607270) от 03.07.2017
-
-The Talos Principle (2014) [Ru/Multi] (1.0.301136/dlc) SteamRip Let'sPlay [Gold Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607270.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Talos Principle - это философская головоломка с видом от первого лица от студии Croteam, создателей легендарной серии Serious Sam, написанная в соавторстве с Томом Жубертом (FTL, The Swapper) и Йонасом Киратзесом (The Sea Will Claim Everything). Словно пробудившись от глубокого сна, вы оказываетесь в странном, диковинном мире, полном древних руин и сложных машин.Тип издания: SteamRipРазработчик: CroteamЖанр: Adventure (Puzzle), 3D, 1st PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B31881D525BB42C9DFD252210107C88197D69CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297397   (604039) от 22.04.2019
-
-Clocker (2019) [Ru/Multi] (1.1.0) License HI2U
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604039.jpg" />
-</div>
-
-
-###  Подробнее
-
-Clocker - игра-головоломка о ВРЕМЕНИ. В этой игре повествуется история между отцом и дочерью, используя технику двойных главных героев. Управляйте двумя отдельными персонажами по одному, и вы будете постепенно разгадаете головоломки, продвигаясь по временной шкале и находя приключения. В игре представлены уникальные временные механизмы, художественный рисованный (   Читать дальше...   )Тип издания: LicenseРазработчик: Wild Kid GamesЖанр: Adventure, Puzzle, RPG, 2DЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9A7629704A55FFB698171F14AB7AE3FDA4B3557
 ```
 
 https://mybot314.ru/tekegram_catalog/

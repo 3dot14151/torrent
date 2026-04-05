@@ -1,3 +1,55 @@
+###  Публикация: 1772145   (31456) от 09.01.2025
+
+О.С. Габриелян, И.Г. Остроумов, С.А. Сладков | Химия. Учебник для 10 класса (базовый уровень) (2023) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник является первой частью линии учебников по химии базового уровня О.С. Габриеляна, И.Г. Остроумова и С.А. Сладкова для средней школы. Он знакомит старшеклассников с богатым миром органических веществ и реализует идею взаимосвязи химического строения этих веществ с их свойствами и применением.Жанр: УчебникЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C4F1266AC62B2065D31A1BF9B58907C78270B1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771976   (31280) от 11.01.2025
+
+В.А. Белоногов, Г.У. Белоногова | Физическая химия. 10-11 класс (2021) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31280.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный элективный курс рассчитан на учащихся 10–11 классов технологического и естественно-научного профилей обучения. Курс рассчитан на 34/68 часов (1 или 2 часа в неделю) и нацелен не только на профессиональное самоопределение старшеклассников, но также на углубление и обобщение знаний о химическом процессе, в частности о термодинамике, кинетике, состоянии равновесия (   Читать дальше...   )Жанр: Учебное пособиеЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4A58D2FADEDF398D169CDC977F61C7562A2129F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1772462   (31258) от 11.01.2025
 
 О.С. Габриелян, И.Г. Остроумов, С.А. Сладков | Химия. Учебник для 10 класса (углублённый уровень) (2022) [PDF]
@@ -6,7 +58,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31258.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30949.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30858.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30857.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30853.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30648.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30547.jpg" />
 </div>
 
 
@@ -195,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30540.jpg" />
 </div>
 
 
@@ -223,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30529.jpg" />
 </div>
 
 
@@ -250,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30511.jpg" />
 </div>
 
 
@@ -276,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30335.jpg" />
 </div>
 
 
@@ -304,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30334.jpg" />
 </div>
 
 
@@ -332,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30209.jpg" />
 </div>
 
 
@@ -358,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30203.jpg" />
 </div>
 
 
@@ -384,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30025.jpg" />
 </div>
 
 
@@ -412,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30022.jpg" />
 </div>
 
 
@@ -438,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30019.jpg" />
 </div>
 
 
@@ -464,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30017.jpg" />
 </div>
 
 
@@ -490,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30015.jpg" />
 </div>
 
 
@@ -516,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29936.jpg" />
 </div>
 
 
@@ -542,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29933.jpg" />
 </div>
 
 
@@ -568,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29921.jpg" />
 </div>
 
 
@@ -594,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29920.jpg" />
 </div>
 
 
@@ -622,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29918.jpg" />
 </div>
 
 
@@ -635,58 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AED7FBE390C35C8408A1B4C35A416917835C6EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775299   (29691) от 26.01.2025
-
-И.Г. Семакин, Т.Ю. Шеина, Л.В. Шестакова | Информатика. Учебник для 10 класса. Углублённый уровень (в 2 частях, часть 1) (2022) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29691.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник предназначен для изучения информатики на углублённом уровне в 10 классах общеобразовательных организаций. Содержание опирается на изученный в 7–9 классах курс информатики для основной школы. Рассматриваются теоретические основы информатики, аппаратное и программное обеспечение компьютера, современные информационные и коммуникационные технологии.Жанр: УчебникЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5558C8CB8AF878CEE4981C7A01E1E12FCE28B35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775591   (29598) от 27.01.2025
-
-В.Г. Дмитриева | Большая книга головоломок, логических игр, загадок для самых умных малышей (2009) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29598.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой красочной книге для вашего малыша представлены разнообразные ребусы, лабиринты, логические игры, кроссворды, загадки. 100 часов гарантированной занятости вашего ребенка. В издании полный и доступный сборник развивающих заданий. Вошедшие в нее игры и головоломки помогают развить нестандартность мышления и способность решать самые разнообразные задачи. Книга (   Читать дальше...   )Жанр: книги для детей, головоломкиИздательство: АСТ, АстрельФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F02B16A0C398D978DCCF53519B1EA06B3614DC75
 ```
 
 https://mybot314.ru/tekegram_catalog/

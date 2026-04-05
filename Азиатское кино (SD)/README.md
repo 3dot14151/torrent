@@ -1,4 +1,82 @@
 https://t.me/izofen
+###  Публикация: 1863071   (1063814) от 
+
+Аэропорт / Daikuko (2013) BDRip [H.264] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из-за плохой погоды пассажирский самолёт вместо Токио приземляется в небольшом городке, аэропорт которого редко принимает большой поток пассажиров. Работница аэропорта Окоучи должна следить за комфортом пассажиров, пока рейс не отправится дальше. На борту самолёта оказывается многочисленная семья, возвращающаяся с похорон. За время вынужденной остановки члены семейства (   Читать дальше...   )Производство: Япония / Kadokawa Pictures, WoWow Inc.Жанр: комедияРежиссер: Коки МитаниАктеры: Саяка Аоки, Тосики Аята, Сосукэ Икэмацу, Анна Исибаси, Тэруюки Кагава, Дзэн Кадзихара, Мисудзу Канно, Масахиро КомотоПеревод: любительский одноголосый (Бондарик)Язык озвучки: русский, японскийСубтитры: русские (Бондарик), английскиеПродолжительность: 01:40:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA0EC27950C6966264707EE0CB163F78215BEC91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863191   (1063780) от 
+
+Последний пропущенный звонок / Chakushin ari final (2006) BDRip [H.264] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063780.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старший класс, доведший одноклассницу до самоубийства постоянными издевательствами, отправляется на экскурсию в Южную Корею. Ещё на пароме одна из девушек получает от самой себя странный звонок и жуткую фотографию, которые датируются завтрашним днём, а вскоре после прибытия погибает ужасной смертью. Остальные члены класса начинают получать одинаковые SMS-ки: «Если (   Читать дальше...   )Производство: Япония / CJ Entertainment, Dentsu, J Dream, Kadokawa PicturesЖанр: ужасыРежиссер: Манабу АсоАктеры: Маки Хорикита, Мэиса Куроки, Чан Гын-сок, Эрика Асакура, Ю Камиваки, Риэ Цунэёси, Ариса Наито, Ракуто ТотихараПеревод: профессиональный двухголосый, авторский (Гранкин)Язык озвучки: русский, японскийСубтитры: английскиеПродолжительность: 01:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A5F409AC7BBCAAF0F130760C90099D6A2C14E2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862399   (1063160) от 
+
+Охота за тенью / Bu feng zhui ying / The Shadow's Edge (2025) HDRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Макао. Банда воров проникает в банковское хранилище богатого бизнесмена и крадёт ключ к криптокошельку с 10 миллиардами гонконгских долларов. Уходя от преследования, грабители ловко обманывают полицию и даже их передовую ИИ-систему видеонаблюдения. Расследование заходит в тупик, начальнику полиции не остаётся ничего другого, кроме как привлечь уже отошедшего от дел (   Читать дальше...   )Производство: Китай, Гонконг / Beijing New United Films, China ChenxiangЖанр: боевик, криминал, детективРежиссер: Ларри ЯнАктеры: Джеки Чан, Чжан Цзыфэн, Тони Люн Ка-Фай, Цы Ша, Ван Цзыи, Чжоу Чжэнцзе, Лан Юэтин, Вэнь Цзюньхуэй, Линь Цюнань, Ван ЧжэньвэйПеревод: Дублированный (Нарышкин)Язык озвучки: РусскийСубтитры: Русские (forced, full) - отдельноПродолжительность: 02:21:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B706E9425A84D3B2E3531E15007D151E6EA3AB34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1861355   (1062544) от 
 
 Рождённый вором / Вор в законе / Zong heng si hai / Once a Thief (1991) BDRip [H.264]
@@ -7,7 +85,7 @@ https://t.me/izofen
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062544.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059393.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058513.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058469.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058294.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058293.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057955.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057811.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057620.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057550.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057468.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056443.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056066.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054710.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052716.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052507.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052333.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050736.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050359.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049815.jpg" />
 </div>
 
 
@@ -527,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049526.jpg" />
 </div>
 
 
@@ -553,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047362.jpg" />
 </div>
 
 
@@ -579,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046896.jpg" />
 </div>
 
 
@@ -590,84 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78A43B1EF163443E97EC7A7CC6814C88F6E6FC63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601813   (1046340) от 02.01.2023
-
-Одна секунда / Yi miao zhong / One Second (2020) BDRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046340.jpg" />
-</div>
-
-
-###  Подробнее
-
-Китай периода культурной революции. Беглому заключённому трудового лагеря позарез нужно посмотреть кинохронику №22, которую показывают перед картиной «Героические сыновья и дочери», но одну бобину крадёт местная сирота. Отбирая друг у друга контейнер с плёнкой, оба прибывают в городок, где население очень жаждет показа киноленты, но вот незадача — одна из коробок (   Читать дальше...   )Производство: Китай / Huanxi Media Group, Edko FilmsЖанр: драма, историяРежиссер: Чжан ИмоуАктеры: Чжан И, Лю Хаоцюнь, Фань Вэй, Юй Айлэй, Чжан Шаобо, Ли Янь, Юй Ян, Лю Юньлун, Чан Хайцзюнь, Цао ЖуйПеревод: Дублированный (Zone Vision)Язык озвучки: русский, китайский (отдельным файлом)Субтитры: русские, английские - отдельными файламиПродолжительность: 01:42:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBBCF22DBF552E3AB98967412F940085951D092F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602325   (1046083) от 05.01.2023
-
-Заклятье: 13-й этаж / Pengabdi Setan 2: Communion (2022) WEB-DLRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046083.jpg" />
-</div>
-
-
-###  Подробнее
-
-1984 год. Спасшись от последователей сатанинского культа, семейство Сувоно переехало из деревни в Джакарту и поселилось в социальном многоэтажном доме, одиноко стоящем на пустыре. Жизнь идёт своим чередом: Рини решает отдохнуть от заботы о младших братьях и поехать учиться, Тони пытается подружиться с местной красавицей, Бонди с друзьями находит недалеко от дома (   Читать дальше...   )Производство: Индонезия / Brown Entertainment, Come and See Pictures, Legacy Pictures, Rapi Films, Sky FilmsЖанр: ужасыРежиссер: Джоко АнварАктеры: Тара Басро, Энди Арфиан, Насар Аннус, Бронт Паларэ, Рату Фелиша, Журди Праната, Эги Федли, Музакки Рамдан, Фатих Унру, Икбал СинчанПеревод: Многоголосый профессиональный (ОKKO)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:59:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B230726792101CEEF7081D7F3411DF0370A73415
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602605   (1045988) от 06.01.2023
-
-Киллер-хранитель / Киллер: Девчонка должна умереть / Deo killeo: jukeodo doeneun ai / The Killer (2022) BDRip [H.264]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045988.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправляясь с подругой в отпуск на остров Чеджу, жена просит И-гана на время их отсутствия присмотреть за 17-летней дочерью подруги Юн-джи. Мужчина не восторге от такой перспективы, поэтому с облегчением разрешает той переночевать у одноклассницы. Но в эту же ночь девушка находит неприятности, И-гану приходится спасать её от местных криминальных элементов, а те в (   Читать дальше...   )Производство: Южная Корея / AscendioЖанр: боевик, криминалРежиссер: Чхве Джэ-хунАктеры: Чан Хёк, Ли Со-ён, Ли Сын-джун, Брюс Хан, Ли Чхэ-ён, Пан Ын-джон, Чхве Ги-соп, Чха Тхэ-хён, Сон Хён-джу, Щин Сын-хванПеревод: Дублированный (Lucky Production)Язык озвучки: РусскийСубтитры: Русские, Английские (SDH)Продолжительность: 01:35:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3CF115019E3E12E350D2E4FCD048B8675B34204
 ```
 
 https://mybot314.ru/tekegram_catalog/

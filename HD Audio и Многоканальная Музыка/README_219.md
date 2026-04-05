@@ -1,30 +1,3 @@
-###  Публикация: 1728586   (54044) от 07.06.2024
-
-David Crosby - If I Could Only Remember My Name (1971) 50th Anniversary Edition, Remaster, 2021, Rhino Records [FLAC 24/96|Lossless|WEB-DL|tracks] <Folk Rock, Country Rock, Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Riff 1 (Demo) (2021 Remaster) [00:02:22]
-02. Tamalpais High (At About 3)Жанр: Folk Rock, Country Rock, Classic RockПродолжительность: 2CD, 01:35:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F480E04175EB9444159870F070662C01A581CC54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 845295   (53891) от 09.06.2024
 
 Pickwick Top Of The Poppers - Discoteque Hits (1975) [FLAC 2.0|24/192 (Vinyl Rip)]<Pop (Sound-Alike)>
@@ -33,7 +6,7 @@ Pickwick Top Of The Poppers - Discoteque Hits (1975) [FLAC 2.0|24/192 (Vinyl Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53891.jpg" />
 </div>
 
 
@@ -62,7 +35,7 @@ Elvis Presley - Masters of Rock Presents Elvis Presley (2024) 2024 Remastered [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53838.jpg" />
 </div>
 
 
@@ -91,7 +64,7 @@ Jeff Healey - Road House (The Lost Soundtrack) (2024) [FLAC 24/96|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53729.jpg" />
 </div>
 
 
@@ -120,7 +93,7 @@ Dying Fetus - Reign Supreme (2012)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Brutal 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53723.jpg" />
 </div>
 
 
@@ -149,7 +122,7 @@ Johannes Brahms, Seiji Ozawa, Boston Symphony Orchestra - Symphony No.1 (1977) S
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53668.jpg" />
 </div>
 
 
@@ -178,7 +151,7 @@ Grand Slam - Wheel Of Fortune (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53621.jpg" />
 </div>
 
 
@@ -207,7 +180,7 @@ Ablaze My Sorrow - Studio Albums (7 releases) (1996-2023) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53614.jpg" />
 </div>
 
 
@@ -237,7 +210,7 @@ Bon Jovi (Jon Bon Jovi; Richie Sambora) - Studio Albums (26 releases) (1984-2024
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53554.jpg" />
 </div>
 
 
@@ -267,7 +240,7 @@ Moby - always centered at night (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Do
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53393.jpg" />
 </div>
 
 
@@ -296,7 +269,7 @@ David Bowie - Rock 'n' Roll Star! (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53301.jpg" />
 </div>
 
 
@@ -325,7 +298,7 @@ Lindsey Stirling - Duality (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53297.jpg" />
 </div>
 
 
@@ -354,7 +327,7 @@ Seal - Seal (1994) Deluxe Edition, 2024, Warner Records Inc.[FLAC 24/44.1|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53202.jpg" />
 </div>
 
 
@@ -383,7 +356,7 @@ Fire From The Gods - Soul Revolution - The Collabs (2022) Deluxe, 2024, Better N
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53101.jpg" />
 </div>
 
 
@@ -412,7 +385,7 @@ Bob Dylan - Good As I Been To You (1992) SACD, Reissue, Remastered, 2024, Mobile
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53089.jpg" />
 </div>
 
 
@@ -441,7 +414,7 @@ Michael Jackson - Thriller (1982) SACD, Reissue, Remastered, 2022, Mobile Fideli
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53029.jpg" />
 </div>
 
 
@@ -470,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53004.jpg" />
 </div>
 
 
@@ -496,7 +469,7 @@ Riff Kitten - Chaos Parade (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53001.jpg" />
 </div>
 
 
@@ -525,7 +498,7 @@ Connolly Hayes - Remember Me (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52995.jpg" />
 </div>
 
 
@@ -554,7 +527,7 @@ Sparks - No. 1 In Heaven (1979) 45th Anniversary Edition, 2024, Lil Beethoven Re
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52980.jpg" />
 </div>
 
 
@@ -583,7 +556,7 @@ Atom Smith - Playing with Fire (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Elect
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52977.jpg" />
 </div>
 
 
@@ -612,7 +585,7 @@ VA - Золотые хиты ХХ века 1 (2003) Unofficial Release [FLAC 2.0
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52920.jpg" />
 </div>
 
 
@@ -641,7 +614,7 @@ Charles Wagner - Chucktallica (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52811.jpg" />
 </div>
 
 
@@ -670,7 +643,7 @@ Hugo Kant - Beyond the Tracks (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Trip
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52808.jpg" />
 </div>
 
 
@@ -699,7 +672,7 @@ Hugo Kant - Far From Home (2020) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Downtemp
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52807.jpg" />
 </div>
 
 
@@ -728,7 +701,7 @@ Taylor Swift - The Tortured Poets Department: The Anthology (2024) [FLAC 24/48|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52806.jpg" />
 </div>
 
 
@@ -742,6 +715,35 @@ Taylor Swift - The Tortured Poets Department: The Anthology (2024) [FLAC 24/48|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0017769819D40A4857F0A941353382ABCF87E3FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731218   (52768) от 19.06.2024
+
+Foreigner & Styx - Renegades & Juke Box Heroes - Live (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feels Like The First Time (Live) [00:05:10]
+02. Cold As Ice (Live) [00:05:36]
+03. Waiting For A Girl Like You (Live) [00:05:40]
+04. Urgent (Live) [00:07:43](   Читать дальше...   )Жанр: RockПродолжительность: 01:15:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5335A764F6A18E26CA50BF4427C0493BC2056E1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

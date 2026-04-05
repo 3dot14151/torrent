@@ -1,3 +1,135 @@
+###  Публикация: 1847039   (1051737) от 10.01.2026
+
+Зверополис / Zootopia (2016) BDRemux [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051737.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в Зверополис — современный город, населенный самыми разными животными, от огромных слонов до крошечных мышек. Зверополис разделен на районы, полностью повторяющие естественную среду обитания разных жителей — здесь есть и элитный район Площадь Сахары и неприветливый Тундратаун. В этом городе появляется новый офицер полиции, жизнерадостная зайчиха (   Читать дальше...   )Производство: США / Walt Disney Animation Studios, Walt Disney PicturesЖанр: мультфильм, боевик, комедия, криминал, приключения, семейныйРежиссер: Байрон Ховард, Рич Мур, Джаред БушПеревод: дублированныйЯзык озвучки: русский, английскийЯзык субтитров: русские, английские (full, SDH)Качество: BDRemuxПродолжительность: 01:48:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7B2B570E376D33F0742F126D3BC5C2E5E11FDD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846437   (1051697) от 08.01.2026
+
+Холодное сердце / Frozen (2013) UHD BDRip [AV1/2160p] [4K, HDR, 10-bit]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051697.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда сбывается древнее предсказание, и королевство погружается в объятия вечной зимы, трое бесстрашных героев — принцесса Анна, отважный Кристофф и его верный олень Свен — отправляются в горы, чтобы найти сестру Анны Эльзу, которая может снять со страны ледяное заклятие.Производство: США / Walt Disney Animation Studios, Walt Disney PicturesЖанр: комедияРежиссер: Крис Бак, Дженнифер ЛиАктеры: Кристен Белл, Идина Мензел, Джонатан Грофф, Джош Гэд, Сантино Фонтана, Алан Тьюдик, Киран Хайндс, Крис Уильямс, Стивен Дж. Андерсон, Майа Уилсон и др.Перевод: Дублированный, АвторскийЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAE7DF73130608903F7209423B95B61DAB117AED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846769   (1051620) от 09.01.2026
+
+Удивительно Странный Мир Гамбола / The Wonderfully Weird World of Gumball (2025) WEBRip [H.265/1080p-LQ] (сезон 2, серии 1-10 из 20) Содерлинг (обновляемая)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051620.jpg" />
+</div>
+
+
+###  Подробнее
+
+С возвращением в Элмор — город, где законы реальности не работают, а семейная жизнь далека от обычной! Гамбол Уоттерсон снова в деле: то сражается с зловещей фастфуд-империей, то отбивается от влюблённого в его маму искусственного интеллекта, то мешает Банане Джо надеть штаны. Его верные спутники — брат Дарвин, сестра Анаис и весь безумный город. С ещё более дикими (   Читать дальше...   )Производство: США, Великобритания / Hanna-Barbera Studios Europe, Warner Bros. AnimationЖанр: Мультфильм, приключения, комедия, фэнтезиРежиссер: Люк АлленАктеры: Алкео Тиле, Хиро Хантер, Тереза Галлахер, Дэн Расселл, Кинза Сайед ХанПеревод: Одноголосый (Содерлинг)Язык озвучки: Русский, английскийСубтитры: Русские (Gidralom Отсутствуют в 3-10 сериях, Кисломульт), английские (Full, SDH)Продолжительность: ~00:12:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09FD8715C01C350EDC3584B5945E01B33B836A4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846722   (1051619) от 09.01.2026
+
+Пиноккио / Pinocchio (1940) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051619.jpg" />
+</div>
+
+
+###  Подробнее
+
+Голубая фея оживила куклу-марионетку, но чтобы стать настоящим человеком, герою надо в добрых делах проявить свою храбрость и честность. И вот длинноносый непоседа и его совестливый друг сверчок Джимини Крикет отправляются навстречу самым невероятным приключениям.
+
+Они встретят злого кукольника Стромболи, заглянут на обманчивый Остров удовольствий, где непослушных (   Читать дальше...   )Производство: США / Walt Disney ProductionsЖанр: мультфильм, фэнтези, драма, семейный, музыкаРежиссер: Норман Фергюсон, Т. Хи, Уилфред Джексон, Джек Кинни, Хэмилтон Ласк, Билл Робертс, Бен ШарпстинАктеры: Мэл Бланк, Дон Броди, Стюарт Бьюкэнэн, Уолтер Кэтлетт, Мэрион Дарлингтон, Фрэнки Дарро, Мэри Дэйли, Клифф Эдвардс, Дики Джонс, Чарльз ДжуделсПеревод: Дублированный (Невафильм)Субтитры: русские (forced, full), английскиеПродолжительность: 01:27:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0B1DF89BD242F1AD4B162F958318DA028C2E5B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 81545   (1051541) от 09.01.2026
+
+Кот Леопольд (1975-1987) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051541.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярный мультсериал о добродушном и разумном коте Леопольде, который из фильма в фильм призывает шкодливых мышат "жить дружно", а те искренне просят прощения, но к следующей серии благополучно забывают об этом и с удовольствием продолжают проказничать.Производство: СССР, Союзмультфильм, ТО «Экран»Жанр: мультфильм, детскийРежиссер: Анатолий РезниковАктеры: Кот Леопольд & МышиСубтитры: отсутствуютПродолжительность: 01:33:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09F8C7A10DBA8E3B30842195BAF8397C303864DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1846425   (1051454) от 08.01.2026
 
 Сборник мультфильмов студии «Анимос» (1998-2022) DVDRip, WEBRip
@@ -6,7 +138,7 @@
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051454.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051444.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051441.jpg" />
 </div>
 
 
@@ -85,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051358.jpg" />
 </div>
 
 
@@ -111,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051314.jpg" />
 </div>
 
 
@@ -137,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051267.jpg" />
 </div>
 
 
@@ -163,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051257.jpg" />
 </div>
 
 
@@ -189,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051235.jpg" />
 </div>
 
 
@@ -215,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051234.jpg" />
 </div>
 
 
@@ -241,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051181.jpg" />
 </div>
 
 
@@ -267,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051166.jpg" />
 </div>
 
 
@@ -293,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051165.jpg" />
 </div>
 
 
@@ -319,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051164.jpg" />
 </div>
 
 
@@ -345,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051163.jpg" />
 </div>
 
 
@@ -371,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051060.jpg" />
 </div>
 
 
@@ -397,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051059.jpg" />
 </div>
 
 
@@ -423,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050972.jpg" />
 </div>
 
 
@@ -449,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050947.jpg" />
 </div>
 
 
@@ -475,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050901.jpg" />
 </div>
 
 
@@ -501,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050900.jpg" />
 </div>
 
 
@@ -527,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050899.jpg" />
 </div>
 
 
@@ -538,138 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B39F9E538C79AE7CFDE0C9DDAC24A3AD25EA144
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845758   (1050898) от 03.01.2026
-
-Феи: Загадка пиратского острова / The Pirate Fairy (2014) WEB-DL [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050898.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о Зарине, смышленой и амбициозной фее, собирающей пыльцу растений. Все начинается с того, что она похищает волшебную пыльцу фей…Производство: США, Индия / Walt Disney Pictures, DisneyToon Studios, Prana StudiosЖанр: мультфильм, фэнтези, детский, приключенияРежиссер: Пегги ХолмсАктеры: Кристина Хендрикс, Мэй Уитман, Том Хиддлстон, Памела Адлон, Анджела Бэртис, Меган Хилти, Люси Лью, Рэйвен, Джим Каммингс, Кевин Майкл РичардсонПеревод: дублированный (Невафильм)Язык озвучки: русский, английскийСубтитры: русскиеПродолжительность: 01:15:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CA01CD0D13BE8363405C8C6231634ABADD1D884
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845759   (1050897) от 03.01.2026
-
-Феи: Легенда о чудовище / Tinker Bell and the Legend of the NeverBeast (2014) WEB-DL [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050897.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анимационная сказка расскажет удивительную историю о веселой и талантливой фее Фауне, которая убеждена в том, что о книге нельзя судить по ее обложке, впрочем, как и о животном по его клыкам, поэтому она дружит с таинственным существом громадных размеров из Нетландии по прозвищу Чудовище.
-
-В это время группа волшебных фей разведки не настолько уверены в этом страшном (   Читать дальше...   )Производство: США, Индия / Walt Disney Pictures, DisneyToon Studios, Prana StudiosЖанр: мультфильм, фэнтези, приключения, семейныйРежиссер: Стив ЛотерАктеры: Джиннифер Гудвин, Мэй Уитман, Розарио Доусон, Люси Лью, Рэйвен, Меган Хилти, Памела Адлон, Данай Гурира, Хлоя Беннет, Томас ЛеннонПеревод: дублированный (Невафильм)Язык озвучки: русский, английскийСубтитры: русскиеПродолжительность: 01:13:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:209BBA07FBDD9CC5C5EB0E580A853016F2EB611D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845765   (1050889) от 
-
-Губка Боб: В поисках квадратных штанов / The SpongeBob Movie: Search for SquarePants (2025) WEBRip [MVO] [AD]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Губка Боб отправляется вместе с Патриком в самые глубины океана, чтобы встретиться с призраком Летучего Голландца. На пути его ждут захватывающие испытания, загадочные морские тайны и новые открытия в подводном мире. Тем временем мистер Крабс и Сквидвард идут по следу Губки Боба и пытаются его спасти.Производство: США, Nickelodeon Animation Studios, Nickelodeon Movies, Paramount AnimationЖанр: Мультфильм, фэнтези, комедия, приключения, семейный, полнометражныйРежиссер: Дерек ДраймонАктеры: Том Кенни, Клэнси Браун, Роджер Бампасс, Билл Фагербек, Кэролин Лоуренс, Мистер Лоуренс, Джордж Лопес, Айс Спайс, Артуро Кастро, Шерри КолаПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:22:42Реклама: Присутствуют видеовставки и логотип
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71573620BE61608FDA650A81C5501250B470B260
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845794   (1050852) от 03.01.2026
-
-Крот / Krtek / Der Maulwurf (1957 - 1998) 8xDVD5 (43 серии)
-
->>Мультфильмы
->>Зарубежные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детский мультфильм о приключениях маленького крота и его друзей.Производство: Чехословакия, Krátký Film PrahaЖанр: мультфильмРежиссер: Зденек Милер / Zdeněk MilerСубтитры: отсутствуютПродолжительность: 00:44:20 + 00:43:28 + 00:44:39 + 00:45:47 + 00:56:35 + 00:55:56 + 00:56:05 + 01:01:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD2F700CD067E8FF2CFCD7035E038C502AF81D3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845620   (1050791) от 02.01.2026
-
-Монстры на каникулах 2 / Hotel Transylvania 2 (2015) BDRip 3D [H.264/1080p] [Горизонтальная анаморфная стереопара]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050791.jpg" />
-</div>
-
-
-###  Подробнее
-
-Граф Дракула выдает свою очаровательную дочь замуж за парня из мира людей, и у молодой «смешанной» пары рождается сын. Станет ли этот ребенок человеком или вампиром?Производство: США, Канада / Columbia Pictures, LStar Capital, Sony Pictures AnimationЖанр: мультфильм, фэнтези, комедия, семейныйРежиссер: Генндий ТартаковскийАктеры: Адам Сэндлер, Энди Сэмберг, Селена Гомес, Кевин Джеймс, Стив БушемиПеревод: дублированныйСубтитры: русские (forced, full), английские (full, SDH)Продолжительность: 01:29:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:497B7C7F8FF61F1C220E1F7D3CFE58F8F83CD478
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 416545   (323858) от 28.11.2011
+
+V.A. - Rock Hearts Collection (2011) (4CD Box Set) [FLAC|Lossless]<Rock ballads>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ten Years After - I'd love to change the world
+ 02. Deep Purple - Lalena
+ 03. Whitesnake - Is this love
+ 04. Jethro Tull - Bouree(   Читать дальше...   )Жанр: Rock ballads |Продолжительность: 01:08:17
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1181479   (323822) от 07.11.2017
 
 Arturius - Arturius (2017) [FLAC|Lossless|image + .cue] <Symphonic Progressive Metal>
@@ -6,7 +35,7 @@ Arturius - Arturius (2017) [FLAC|Lossless|image + .cue] <Symphonic Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323822.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Savage Messiah - Hands of Fate (2017) Japanese Edition [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323740.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Enslaved - E (2017) [FLAC|Lossless|image + .cue] <Progressive Viking Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323727.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Serenity - Lionheart (2017) Japanese Limited Edition [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323723.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ John Mellencamp - The Best That I Could Do 1978-1988 (1997)[FLAC|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323708.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ AC/DC - POWER UP (2020) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323699.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323632.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Cannibal Corpse - Red Before Black (2017) Limited Edition [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323621.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Armed For Apocalypse - Ritual Violence (2022) [FLAC|Lossless|WEB-DL|tracks] <Slu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323598.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Resist The Ocean - 3 Albums (2016-2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323596.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ The Killerhertz - Starburst (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323594.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ A Sight in Veracity - Eternity Past (2022) Extended Edition [FLAC|Lossless|WEB-D
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323592.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323588.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Sky Pig - It Thrives in Darkness (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, S
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323586.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Reverend Mother - Damned Blessing (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323585.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Never Back Down - Downfall (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323584.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Backman Johanson And The Others - At Last (2018) Japanese Edition [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323577.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Bobby Kimball - We're Not In Kansas Anymore (2016) [FLAC|Lossless|image + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323576.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323575.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Ellefson-Soto - Vacation In The Underworld (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323573.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Bronson - Live Fast Die Hard (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hardc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323571.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Sundrifter - Visitations (2018) [FLAC|Lossless|tracks + .cue] <Stoner Rock, Psyc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323545.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ VA - Dr. Demento Covered in Punk (2018) 2CD [FLAC|Lossless|tracks + .cue] <Punk,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323544.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ The Ocean - Phanerozoic I: Palaeozoic (2018) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323537.jpg" />
 </div>
 
 
@@ -703,7 +732,7 @@ The Kooks - Let's Go Sunshine (2018) [FLAC|Lossless|tracks + .cue] <Pop Rock, Br
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323532.jpg" />
 </div>
 
 
@@ -717,35 +746,6 @@ The Kooks - Let's Go Sunshine (2018) [FLAC|Lossless|tracks + .cue] <Pop Rock, Br
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FBF5E22464ECA9A6D04C96B03A9698DCD12FF12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181430   (323495) от 07.11.2017
-
-Status Quo - Collected (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323495.jpg" />
-</div>
-
-
-###  Подробнее
-
-СD1
-01.  Pictures Of Matchstick Men  3:11
-02.  Black Veils Of Melancholy  3:14
-03.  Ice In The Sun  2:13(   Читать дальше...   )Жанр: RockПродолжительность: 01:16:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FDD6A38F41059FBB4E14022FEE8C48446320E8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

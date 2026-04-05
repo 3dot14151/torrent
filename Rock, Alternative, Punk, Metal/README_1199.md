@@ -1,3 +1,32 @@
+###  Публикация: 1770270   (100552) от 31.12.2024
+
+Among These Ashes - Embers of Elysium (2024) [FLAC|Lossless|WEB-DL|tracks] <Power, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Embers of Elysium [00:02:14]
+02. Serpents Among Rats [00:04:37]
+03. Faceless War Machines [00:05:00]
+04. Of One Blood [00:04:08](   Читать дальше...   )Жанр: Power, Thrash MetalПродолжительность: 01:05:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6E66D3745C59893CDD5FA5840001985A75F0BD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1770307   (100546) от 31.12.2024
 
 One Day Remains - One Day Remains (Revisited) (2024) [FLAC|Lossless|WEB-DL|tracks] <Post-Grunge, Alternative Metal, Hard Rock>
@@ -6,7 +35,7 @@ One Day Remains - One Day Remains (Revisited) (2024) [FLAC|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100546.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Dominum - The Dead Don't Die (2024) 2CD [FLAC|Lossless|WEB-DL|tracks] <Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100542.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100538.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Alter Ego - By Any Means Necessary (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard-Ro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100528.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Adamantine - Chaos Genesis (2012) [MP3|320 кб/с]<Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100404.jpg" />
 </div>
 
 
@@ -157,7 +186,7 @@ Godgory - Resurrection (1999) [MP3|320 кб/с]<Doom Death>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100213.jpg" />
 </div>
 
 
@@ -183,7 +212,7 @@ Occultation - Three And Seven (2012) [MP3|258-279 kbps]<Psychedelic Progressive 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100063.jpg" />
 </div>
 
 
@@ -211,7 +240,7 @@ Pigs - You Ruin Everything (2012) [MP3|320 кб/с]<Stoner Noise Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100024.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Dotma - Sleep Paralyses (2011) [MP3|320 кб/с]<Power Metal, Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100013.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ Nevergreen - Karmageddon (2012) [MP3|320 кб/с]<Doom Metal, Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99907.jpg" />
 </div>
 
 
@@ -308,7 +337,7 @@ Tomorrow We Hunt - Bitter Words (2012) [MP3|320 кб/с]<Melodic Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99869.jpg" />
 </div>
 
 
@@ -343,7 +372,7 @@ Mickey Hart Band - Mysterium Tremendum (2012) [MP3|320 кб/с]<Psychedelic Prog
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99760.jpg" />
 </div>
 
 
@@ -378,7 +407,7 @@ Working For A Nuclear Free City - Jojo Burger Tempest (2010) [MP3|320 кб/с]<S
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99720.jpg" />
 </div>
 
 
@@ -404,7 +433,7 @@ Geordie - Unreleased Tapes (2005)[APE|lossless] <Classic Rock / Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_99670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_99670.jpg" />
 </div>
 
 
@@ -434,7 +463,7 @@ Ceremonial Perfection - Alone In The End (2010) [MP3|320 кб/с]<Melodic Death 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99584.jpg" />
 </div>
 
 
@@ -468,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99499.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ Amongst The Deceit - Tribulations Of Man (2011) [MP3|320 кб/с]<Brutal Death>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99491.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ Robert Lamm - Living Proof (2012) [APE|Lossless]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_99375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_99375.jpg" />
 </div>
 
 
@@ -560,7 +589,7 @@ Pelican - Ataraxia/Taraxis (2012) [MP3|320 кб/с]<Instrumental Sludge / Post-M
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99270.jpg" />
 </div>
 
 
@@ -589,7 +618,7 @@ Volkerball - Weichen Und Zunder (2012) [MP3|224 кб/с]<Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99256.jpg" />
 </div>
 
 
@@ -624,7 +653,7 @@ Gaia Epicus - Dark Secrets (2012) [MP3|320 кб/с]<Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99203.jpg" />
 </div>
 
 
@@ -659,7 +688,7 @@ Rise To Fall - Defying The Gods (2012) [MP3|320 кб/с]<Modern Melodic Death Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99199.jpg" />
 </div>
 
 
@@ -694,7 +723,7 @@ Canvas Solaris - Irradiance (2010) [MP3|320 кб/с]<Instrumental Progressive Te
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99173.jpg" />
 </div>
 
 
@@ -721,7 +750,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_99107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_99107.jpg" />
 </div>
 
 
@@ -756,7 +785,7 @@ Blotted Science - 2 Albums (2007 - 2011) [MP3|320 кб/с]<Instrumental/Progress
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99078.jpg" />
 </div>
 
 
@@ -773,41 +802,6 @@ Blotted Science - 2 Albums (2007 - 2011) [MP3|320 кб/с]<Instrumental/Progress
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BF582C42533626C232D03331F27C66D909BDEF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480256   (99031) от 08.04.2012
-
-Tyrant Of Death - Re Connect (2012) [MP3|320 кб/с]<Math Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Enigma Equation (1:11)
-02 - Transmogrification (3:07)
-03 - R3 C0NN3C7 (4:22)
-04 - LicK The FrEqUeNcY))) (6:00)
-05 - Poisoned Wine--____ (4:47)
-06 - Fibers Of Destruction (4:38)
-07 - Because Death Is Not Ready Yet (4:52)
-08 - Materialised Ignorance (3:51)
-09 - Narrowlength Reality (4:41)
-10 - Hell Is Here (Ektomorf Cover) (3:21)(   Читать дальше...   )2012Жанр: Industrial / Math Metal / DjentПродолжительность: 00:48:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78AFDA66A43A3654F579E8F1BE72D1BA31FDC5D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

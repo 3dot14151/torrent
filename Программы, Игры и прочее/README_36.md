@@ -1,3 +1,107 @@
+###  Публикация: 1068038   (1001331) от 13.08.2021
+
+Audio MP3 Cutter Mix Converter v1.90 Pro [Ru/Multi] - обрезка и конвертация музыкальных файлов
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Audio MP3 Cutter Mix Converter – качественное приложение, с помощью которого вы сможете быстро и довольно просто обрезать или конвертировать музыку. Причём делать это можно будет без каких либо трудностей, так что вам обязательно стоит ознакомиться с данным приложением. Именно поэтому огромное количество пользователей по всему миру стали использовать это приложение.Тип издания: Пиратка (PRO feature unlocked)Релиз состоялся: 13.08.2021Разработчик: AppzCloud TechnologiesПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0DD83A60A3E01DCEDB72D161AB0E57A882E54CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352295   (1001260) от 13.01.2020
+
+Human: Fall Flat v1.0 build 34 [Ru/En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001260.jpg" />
+</div>
+
+
+###  Подробнее
+
+Human: Fall Flat 2019 – в этой игре вы будете управлять маленьким человечком, который мягко говоря плохо стоит на ногах, но очень любит находить выход из необычный мест. Помните только одно! что бы выполнить задание нужно внимательно осмотреть все во круг и как говорится "на войне все методы хороши" помните об этом :ВТип издания: Mod (Premium с отвязанными гуглсервисами)Релиз состоялся: 26 июня 2019 годаРазработчик: 505 Games SrlПоддерживаемая ОС: Android 5.0+Жанр: ГоловоломкиЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:439CF6EADDE777140C570CD4B4D15261A4165AAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352253   (1001220) от 13.01.2020
+
+Geometry Dash v2.111 [En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001220.jpg" />
+</div>
+
+
+###  Подробнее
+
+Geometry Dash – веселый платформер на Андроид, в котором вам нужно прыгать и летать через различные опасности. Эта простая игра в одно качание с множеством уровней, которые будут развлекать вас множество часов. Вас порадует незабываемая динамика игры, и очень привлекательный геймплей.Тип издания: Мод Unlocked (Открыты все скины)Релиз состоялся: 25 мая 2014 годаРазработчик: RobTop GamesПоддерживаемая ОС: Android 4.0+Жанр: АркадыЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE3B33ED67E0E2B6565C46AC3E6E3C10B20EDE43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352578   (1000984) от 14.01.2020
+
+The Room (2012) v1.07 [En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000984.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Room – квестовая головоломка, в которой вам надо внимательно исследовать комнату, в которой вы находитесь и рассмотреть все предметы, которыми и с которыми можно взаимодействовать! Каждый предмет может хранить в себе новую тайну, и эти загадки могут накапливаться, пока вы не найдете то, что начнет распутывать этот клубок тайн. Удивительно, но даже в одной комнате (   Читать дальше...   )Тип издания: Premium (Лицензия из Google Play)Релиз состоялся: 12 сентября 2012 годаРазработчик: Fireproof GamesПоддерживаемая ОС: Android 2.2+Жанр: ГоловоломкиЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D790145CC99EE752142662B7BCA287058DAA8DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1352537   (1000973) от 14.01.2020
 
 VK Coffee v8.00 Beta [Ru/En]
@@ -6,7 +110,7 @@ VK Coffee v8.00 Beta [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000973.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Need for Speed: Hot Pursuit v2.0.18 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000947.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ GRID Autosport v1.6RC9 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000945.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Return To Castle Wolfenstein (RTCW) v2.1.5 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000933.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Empire Warriors Premium: Tactical TD Game v2.1.5 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000810.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Private Browser - Fast VPN Incognito Browser 3.4 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000797.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ GFX Tool for PUBG 8.8 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000767.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Alien Shooter 2 - The Legend 2.2.5 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000764.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ WorkAudioBook v4.4.3 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000761.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Minecraft: Story Mode 1.37 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000755.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Need for Speed No Limits VR v1.0.2 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000747.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Need for Speed: Most Wanted v1.3.128 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000734.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ S.T.A.L.K.E.R. 1.0 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993030.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ MPC MACHINE - Sampling Drum Machine Beat Maker 1.36 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992619.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Cheat Engine 1.0 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992449.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Call of Duty: Black Ops Zombies 1.0.11 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992386.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ Calendar+ 1.08.58 (Paid) [Ru/Multi] - Календарь
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992311.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ Angry Birds Rio 2.6.13 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991812.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ Angry Birds Space 2.2.14 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991809.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ Angry Birds Seasons 6.6.2 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991806.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ Angry Birds Star Wars 1.5.13 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991801.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ Angry Birds Star Wars II 1.9.25 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991696.jpg" />
 </div>
 
 
@@ -565,110 +669,6 @@ Angry Birds Star Wars II – продолжение отличной игры о
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16044292F421640CD81DA41893AED80D4003D3F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353510   (991685) от 18.01.2020
-
-Angry Birds Stella 1.1.4 [Ru/En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991685.jpg" />
-</div>
-
-
-###  Подробнее
-
-Angry Birds Stella - Продолжение увлекательной серии игр на андроид от компании Rovio – Angry Birds. На этот раз разработчик решил порадовать нас новыми персонажами и новыми возможностями геймплея. У Стеллы и ее друзей есть сверх способности, которых никогда не было у персонажей данной серии игр. Главная героиня умеет отталкиваться от блоков, Лука воспроизводит громкую (   Читать дальше...   )Тип издания: Mod Unlocked + Не имеет страницы в Google PlayРелиз состоялся: 24.04.2015Разработчик: Rovio Entertainment CorporationПоддерживаемая ОС: Android 2.3+Жанр: АркадыЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AD86741E6CA59D08609865AF99F74694A78A26D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353355   (991684) от 18.01.2020
-
-Angry Birds Classic 8.0.3 [Ru/En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Angry Birds на Андроид – ваша задача помочь птицам Angry отомстить жадным свиньям, которые украли их яйца. Используйте уникальные способности каждой из птиц, для разрушения крепости свиней. В основе геймплея Angry Birds, особенностью является сложная физика. Каждый из 195 уровней требуется логика, умения и силы, чтобы полностью разрушить крепость!Тип издания: Оригинал из Google PlayРелиз состоялся: 10.05.2019Разработчик: Rovio Entertainment CorporationПоддерживаемая ОС: Android 4.1+Жанр: АркадыЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F57E2399D2B3B83DC00B52D28F67ACF660094D6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353587   (990604) от 19.01.2020
-
-Game Dev Tycoon 1.4.7 [Ru/En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Game Dev Tycoon - экономический симулятор в котором вам предстоит основать и развивать собственную студию разработки игр в условиях 80-х годов. Для начала вам конечно же необходимо выпустить несколько игровых хитов, при этом жанра вы сможете выбрать самостоятельно, после успешного выпуска вы сможете потратить первый гонорар на развитие своего предприятия, купить (   Читать дальше...   )Тип издания: Оригинал (Разорвана связь с Google Play)Релиз состоялся: 28.11.2018Разработчик: Greenheart GamesПоддерживаемая ОС: Android 4.1+Жанр: Стратегии, симуляторыЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A493412D5387A806617F76949F3D2A584C16BF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353779   (990538) от 19.01.2020
-
-Adobe Photoshop Touch 2.0.0 Mod by Normik [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990538.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop Touch на Андроид – скачайте и установите программу, и вперед фантазировать, создавать и комбинировать изображения, применяя профессиональные эффекты. Не забудьте поделиться с друзьями и с семьей через Facebook и еще много чего интересного.Тип издания: Пиратка (Mod: поддерживает Android 10)Релиз состоялся: 04.01.2020Разработчик: AdobeПоддерживаемая ОС: Android 3.1+Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F01516B35C300CC47B146638F7821D9F22396ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

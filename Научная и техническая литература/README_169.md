@@ -1,133 +1,3 @@
-###  Публикация: 1204492   (784613) от 06.02.2018
-
-С.Н. Рязанский | Удивительная Земля (2018) [PDF]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами уникальный фотоальбом с редкими кадрами съемки Земли прямо с борта Международной космической станции, созданный действующим космонавтом, героем России, ученым и просто увлеченным человеком Сергеем Рязанским. Вулканы и острова, реки и ночные города, горы и поля… Таких кадров вы не увидите из иллюминатора самолета. Наша Земля предстанет перед вами в необычном (   Читать дальше...   )Жанр: География и науки о ЗемлеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C215D6358BE55E1B54604A573826E1887DDEE2B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389386   (784513) от 10.06.2020
-
-Олег Фейгин | Удивительная космонавтика. Маленькие рассказы о тайнах, загадках и открытиях на пути в большой космос (2018) [EPUB]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784513.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассказывается о малоизвестных страницах покорения космоса. Приводится антология таинственных случаев в истории космонавтики. Обсуждаются интересные научные гипотезы и факты. Рассматриваются мифы и легенды, возникшие вокруг космических экспедиций. Обсуждаются перспективы дальнейшего освоения Солнечной системы и полетов к звездам.Жанр: Научно-популярная литератураФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:689DE949A1E3E295154FE5023D7260942F6524C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389409   (784510) от 10.06.2020
-
-Гельмут Шибель | Война на Востоке. Дневник командира моторизованной роты. 1941—1945 (2019) [EPUB]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784510.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гельмут Шибель, командир роты в составе 13-й танковой дивизии вермахта, описывает путь, пройденный им по дорогам Второй мировой войны. Это рассказ о тяжелых боях на Восточном фронте, о суровых солдатских буднях, о том, как сражались и погибали фронтовики. Его дневник – свидетельство солдата, испытавшего на себе ужасы страшной войны, но не утратившего человеческое (   Читать дальше...   )Жанр: Биографии и мемуары, Военная историяПеревод: Сергей ЧупровФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB803C1F49731CD83AED584E3BFE6B488A9D5770
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389406   (784506) от 10.06.2020
-
-Эрих Куби | Русские в Берлине. Сражения за столицу Третьего рейха и оккупация. 1945 (2018) [EPUB]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эрих Куби – известный немецкий публицист, участник Второй мировой войны – анализирует военную и политическую обстановку, сложившуюся на международной арене весной 1945 г., в преддверии Битвы за Берлин. Описывает процесс падения столицы Третьего рейха и последствия этих событий для Германии и всей Европы. Во время Второй мировой войны Куби служил в вермахте, воевал (   Читать дальше...   )Жанр: Биографии и мемуары, Военная историяФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4B6462A52F7502AA3BBE7856B3712BE1D8F9020
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389412   (784494) от 10.06.2020
-
-Эйке Миддельдорф | Русская военная кампания. Опыт Второй мировой войны. 1941–1945 (2018) [EPUB]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784494.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немецкий военный историк, офицер вермахта и генерал-майор бундесвера Эйке Миддельдорф анализирует особенности ведения боевых действий немецкой и советской армиями в 1941–1945 гг., организацию и вооружение основных родов войск воюющих сторон и тактику подразделений и частей. Книгу характеризует полнота систематизированных и обобщенных фактов, благодаря чему она отвечает (   Читать дальше...   )Жанр: Биографии и мемуары, Военная историяПеревод: Сергей ЧупровФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2A3CB5123F55856F1C9CF1FF5B4910EAE33150B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204430   (784375) от 07.02.2018
 
 Д. Мануильский и др. | Будем зорки и бдительны: Сборник статей и материалов (1937) [PDF]
@@ -136,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784375.jpg" />
 </div>
 
 
@@ -162,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784356.jpg" />
 </div>
 
 
@@ -188,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784334.jpg" />
 </div>
 
 
@@ -216,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784328.jpg" />
 </div>
 
 
@@ -245,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784324.jpg" />
 </div>
 
 
@@ -271,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784323.jpg" />
 </div>
 
 
@@ -297,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784309.jpg" />
 </div>
 
 
@@ -323,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784295.jpg" />
 </div>
 
 
@@ -349,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784230.jpg" />
 </div>
 
 
@@ -375,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784205.jpg" />
 </div>
 
 
@@ -401,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784188.jpg" />
 </div>
 
 
@@ -428,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784105.jpg" />
 </div>
 
 
@@ -456,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784099.jpg" />
 </div>
 
 
@@ -483,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784095.jpg" />
 </div>
 
 
@@ -511,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783985.jpg" />
 </div>
 
 
@@ -537,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783904.jpg" />
 </div>
 
 
@@ -563,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783901.jpg" />
 </div>
 
 
@@ -589,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783844.jpg" />
 </div>
 
 
@@ -615,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783790.jpg" />
 </div>
 
 
@@ -643,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783724.jpg" />
 </div>
 
 
@@ -669,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783661.jpg" />
 </div>
 
 
@@ -680,6 +550,140 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18E6B15271BEB9A95465D0ECB1FED621AB2D1BF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390054   (783655) от 13.06.2020
+
+Анатолий Терещенко | Щит и меч «майора Зорича» (2017) [FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783655.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Александра Белова (Йоганна Вайса) — главного героя фильма «Щит и меч» и одноименного роман был прототип — легендарный советский разведчик полковник Александр Святогоров, он же «майор Зорич». Вот только совершенные Йоганном Вайсом подвиги были вымышленными. Т. к. подробности проведенных «майором Зоричем» операций в то время все еще оставались секретными.
+В 1941 (   Читать дальше...   )Жанр: Биографии и мемуары, Военное дело, СпецслужбыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DF4D57664247D238DFAF1632115BB1E180C228A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390078   (783653) от 13.06.2020
+
+Гарланд Новак | Генные манипуляции: теория заговора (2017) [EPUB]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783653.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многие никогда не слышали о традиционных формах скрещивания и даже не подозревают о том, что каждый день едят фрукты и овощи, полученные путём гибридизации. Реальность нашей современной продовольственной системы такова, что довольно сложно определить, где заканчивается природа и начинается наука.
+Эта книга – повествование о спорах, мифах и правде вокруг трансгенных (   Читать дальше...   )Жанр: Научно-популярная литератураПеревод: Алена ВиролайненФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4A2BAD07C9A856844FD78CB8361715B307384B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388371   (783637) от 13.06.2020
+
+В.В. Шилкин, В.И. Филимонов | Анатомия по Пирогову. Том 1. Верхняя конечность. Нижняя конечность (2011) [DJVU]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783637.jpg" />
+</div>
+
+
+###  Подробнее
+
+Атлас «Анатомия по Пирогову» продолжает традиции и идеи Николая Ивановича Пирогова, принесшие мировую известность автору и славу русской анатомической школе, и знаменует появление синтетической анатомии применительно к нуждам практической медицины. В Атласе классическая анатомия тесно переплетена с топографической анатомией и анатомией распилов, лежащих в основе (   Читать дальше...   )Жанр: АнатомияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21B2443E9B0A3218DF917538DE6E9CB151EA97F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390001   (783622) от 13.06.2020
+
+И.П. Тагиль | Немецкий язык. Тематический справочник (2015) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Справочник представляет собой подробный подбор лексического материала по многим темам как из повседневной жизни, так и в области устной и письменной речи. Он предназначен для широкого круга лиц, изучающих или совершенствующих немецкий язык.
+Практическую помощь данный справочник принесет студентам языковых и других вузов, а так же преподавателям при подготовке к занятиям, (   Читать дальше...   )Жанр: Справочник, Иностранные языки, НемецкийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:037099FA0B42CD424E2D40331BE72CD4773578D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389971   (783598) от 13.06.2020
+
+Ананий Левитин, Мария Левитина | Алгоритмические головоломки (2018) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга является уникальной коллекцией 150 головоломок, каждая из которых снабжена указанием и решением. Задачи сгруппированы в зависимости от уровня сложности. Издание дополнено двумя обучающими разделами по стратегиям разработки и анализа алгоритмов.
+В настоящее время алгоритмические головоломки часто используются на собеседованиях при приеме на работу. Они призваны (   Читать дальше...   )Жанр: Научно-популярная литератураФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:721EEE64D33C8AC607807596C4163E613C412987
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 728227   (317136) от 29.11.2013
+
+Джилл Бейли, Тони Седдон | Доисторический мир. Оксфордская библиотека (1995) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это одна из книг серии "Оксфордская библиотека". Прекрасно иллюстрированный самыми лучшими художниками, "Доисторический мир" познакомит вас с захватывающей историей жизни на Земле - с момента её зарождения и до появления человека.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27A6EDAB4D6F93412C3408D60E30E3799AEB3B74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 727634   (317043) от 29.11.2013
+
+Дмитрий Емец | Муравьиный лабиринт [ШНыр V] (2013) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317043.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда Зеленому Лабиринту, сердцу Школы Ныряльщиков, что-то угрожает, он непостижимо изменяется и выбирает себе хранителя. Отныне только этот страж способен отыскать проход к главному артефакту ШНыра. Гай, предводитель ведьмарей, нашел способ одержать окончательную победу над шнырами. Все, что нужно для осуществления его плана, – получить один из цветов Зеленого Лабиринта и золотую пчелу. Причем владелец должен отдать пчелу добровольно. Но самое главное: необходимо захватить хранителя, кем бы он ни был.
+Гавр находит уникальную живую закладку, у Рины и Гамова крупные неприятности, а у Макара появляется крайне опасная подруга, с которой, возможно, ему совсем не стоило бы связываться.Жанр: Детская фантастика, Боевое фэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68396A8F65ED980B677E89D403EE75312720611C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 727980   (317034) от 29.11.2013
 
 В. Д. Голубчикова , Г. Е. Константинов  | История освоения Севера в биографиях знаменитых людей (2001) [PDF]
@@ -6,7 +59,7 @@
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317034.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316918.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316902.jpg" />
 </div>
 
 
@@ -90,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316621.jpg" />
 </div>
 
 
@@ -117,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316322.jpg" />
 </div>
 
 
@@ -144,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315973.jpg" />
 </div>
 
 
@@ -171,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315663.jpg" />
 </div>
 
 
@@ -200,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315516.jpg" />
 </div>
 
 
@@ -226,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315465.jpg" />
 </div>
 
 
@@ -254,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315229.jpg" />
 </div>
 
 
@@ -283,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315037.jpg" />
 </div>
 
 
@@ -311,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314944.jpg" />
 </div>
 
 
@@ -338,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314937.jpg" />
 </div>
 
 
@@ -366,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314933.jpg" />
 </div>
 
 
@@ -393,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314932.jpg" />
 </div>
 
 
@@ -419,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314931.jpg" />
 </div>
 
 
@@ -446,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314844.jpg" />
 </div>
 
 
@@ -474,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314834.jpg" />
 </div>
 
 
@@ -500,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314830.jpg" />
 </div>
 
 
@@ -528,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314819.jpg" />
 </div>
 
 
@@ -562,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314815.jpg" />
 </div>
 
 
@@ -588,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314809.jpg" />
 </div>
 
 
@@ -616,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314794.jpg" />
 </div>
 
 
@@ -642,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314711.jpg" />
 </div>
 
 
@@ -653,60 +706,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:315496011077FED54267F0D486191441507AB5DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 728774   (314672) от 30.11.2013
-
-П. Клушанцев | Станция Луна. Рассказы об астрономии (1974) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вместе с автором книги читатель совершает увлекательное путешествие на загадочную планету Луна и становится настоящим луножителем. Книга также рассказывает об освоении Луны человеком и автоматическими станциями.
-
-Павел Клушанцев (25.02.1910 - 27.04.1999) - один из немногих (если не единственный) отечественных режиссёров, за которыми на Западе закрепилась репутация именно режиссёра-фантаста. Он первым попытался совместить два киножанра - научно-популярное кино и научную фантастику, в результате чего в кино появилось принципиально новое направление - научно-фантастический киноочерк (или популярно-фантастический фильм), к сожалению так и не нашедший в нашем кинематографе последователей. Подвижник, фантазёр, прикладной киноучёный, увлекающийся человек, изобретатель и потрясающий профессионал.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94CE8670F178A9A78EB27D808DE9C02F04B7EA64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 728815   (314655) от 30.11.2013
-
-И.А. Витвер | Экономическая география зарубежных стран. Учебник для 9 класса средней школы (1953) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Витвер – один из основателей современной научной школы социально-экономической географии зарубежного мира и страноведения., родоначальник и признанный глава географической латиноамериканистики, французоведения и германистики. Внес большой вклад в школьную географию как автор известного учебника «Экономическая география зарубежных стран» (16 изданий в 1935-1955 гг.)Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75D149E93F59845355745505CDF4AA39D524CEC8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 968813   (149925) от 25.12.2015
+
+Adguard 6.0.146.791 RC [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149925.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adguard - одно из известных приложений разработчика программных продуктов компании Инсофт, предназначенное для блокирования рекламных баннеров и всплывающих окон при работе в сети Интернет. Данная утилита поддерживает фильтрацию при работе с такими браузерами, как Internet Explorer, Google Chrome, Mozilla Firefox, Safari, Opera, Maxthon, Avant Browser, Netscape Navigator, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F790AB26DC4C82C5AAE331E57D15763148712D06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968831   (149856) от 25.12.2015
+
+IP-TV Player 0.28.1.8842 Final [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149856.jpg" />
+</div>
+
+
+###  Подробнее
+
+IP-TV Player - это высококачественный проигрыватель для вещания эфирных каналов IP-телевидения. Индивидуальные настройки для каналов, возможность записи потока в файл. Поддерживаются телепрограммы в формате JTV, планировщик записи/просмотра, фоновая запись.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1393C899EC56A81D9B0155149638C4F5962129DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 969019   (149813) от 25.12.2015
 
 TeamViewer 11.0.53254 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -6,7 +58,7 @@ TeamViewer 11.0.53254 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149813.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Adobe Photoshop Lightroom 6.3 RePack by D!akov (24.12.2015) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149781.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ PROMT Professional 11 Build 9.0.556 DC 20.11.2015 + Dictionaries Collection [Ru/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149758.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ W.D.I | Веб-дизайн Интенсив (2015) PCRec [H.264]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149733.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149003.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ Wreckfest (2018) [Ru/Multi] (1.233553/dlc) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148991.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2018.12.23 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148966.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ ACDSee Ultimate 10.2 Build 878 RePack by KpoJIuK [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148930.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ Shadows: Awakening (2018) [Ru/Multi] (1.31/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148923.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148908.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ Next Car Game (2013) [En] (alpha 0.167610) Repack Cat-a-Cat
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148901.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148899.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148875.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148870.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ Kpoxa Tweaker 1.4 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148679.jpg" />
 </div>
 
 
@@ -405,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148671.jpg" />
 </div>
 
 
@@ -432,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148352.jpg" />
 </div>
 
 
@@ -458,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148211.jpg" />
 </div>
 
 
@@ -484,7 +536,7 @@ MultiBootHDD 2018 23.12.2018 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147951.jpg" />
 </div>
 
 
@@ -510,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147916.jpg" />
 </div>
 
 
@@ -537,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147909.jpg" />
 </div>
 
 
@@ -566,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147888.jpg" />
 </div>
 
 
@@ -592,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147721.jpg" />
 </div>
 
 
@@ -618,7 +670,7 @@ VA - Trance In Motion: Sensual Breath 001 - 105 (2012 - 2013) [MP3|320 кб/с]<
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147279.jpg" />
 </div>
 
 
@@ -629,61 +681,6 @@ VA - Trance In Motion: Sensual Breath 001 - 105 (2012 - 2013) [MP3|320 кб/с]<
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F3ACB3DE6C82D9B09FA2A57C18439DAD1429BA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 406992   (147278) от 26.12.2016
-
-George Michael - 78 Albums (1984-2014) 89 CD [MP3|192 - 320 kbps]<Pop, Dance, Soul>
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. White Light (4:35)
-02. Song to the Siren (3:33)
-03. White Light (Voodoo Sonics Remix) (6:58)
-04. White Light (Kinky Roland Remix) (6:47)Жанр: Pop, Dance, SoulПродолжительность: 57:58:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4A8DD4692A207F2BA550659F85CC383ED80E9FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086976   (147250) от 26.12.2016
-
-Microsoft Windows 10 Enterprise Insider Preview Redstone 2 Build 10.0.14997.1001 (x64) [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая сборка Windows 10 Creators Update была "слита" неизвестными в сеть 25 декабря сего года. Сборка не выпускалась в рамках инсайдерской программы, по сущности является внутренним ISO образом, который просочился в интернет. В отличие от Insider Preview, она поставляется с большим количеством изменений, которые не были официально объявлены Microsoft.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0172522302261D4479D7B812049CFA7502CB6F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

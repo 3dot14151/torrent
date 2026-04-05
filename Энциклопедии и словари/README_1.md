@@ -1,29 +1,3 @@
-###  Публикация: 1380588   (1045020) от 16.01.2023
-
-Михаил Вишневский | Всё о грибах. Популярная энциклопедия (2019) [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга "Всё о грибах" является результатом более чем двадцатилетней научной, просветительской, лекционной и литературной деятельности известного миколога и популяризатора науки Михаила Вишневского. Ориентированное в первую очередь на грибников, издание содержит увлекательную информацию о происхождении грибов и их устройстве, грибах-помощниках и грибах-вредителях, (   Читать дальше...   )Жанр: Энциклопедия, МикологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D612832E7DF4F066658B85BC6B1F01AAF610C01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 967592   (1045019) от 16.01.2023
 
 А. Поленов | Большая энциклопедия грибника. Собираем и готовим (2014) [PDF]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045019.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039689.jpg" />
 </div>
 
 
@@ -84,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034755.jpg" />
 </div>
 
 
@@ -110,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028314.jpg" />
 </div>
 
 
@@ -136,7 +110,7 @@ Mig Jimenez | Энциклопедия бронетехники. Техники 
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026518.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018343.jpg" />
 </div>
 
 
@@ -192,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018022.jpg" />
 </div>
 
 
@@ -219,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017027.jpg" />
 </div>
 
 
@@ -246,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011228.jpg" />
 </div>
 
 
@@ -272,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010558.jpg" />
 </div>
 
 
@@ -298,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008067.jpg" />
 </div>
 
 
@@ -324,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004786.jpg" />
 </div>
 
 
@@ -350,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003433.jpg" />
 </div>
 
 
@@ -376,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003188.jpg" />
 </div>
 
 
@@ -402,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997117.jpg" />
 </div>
 
 
@@ -429,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988805.jpg" />
 </div>
 
 
@@ -455,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986878.jpg" />
 </div>
 
 
@@ -481,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985745.jpg" />
 </div>
 
 
@@ -507,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980423.jpg" />
 </div>
 
 
@@ -534,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974794.jpg" />
 </div>
 
 
@@ -560,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968519.jpg" />
 </div>
 
 
@@ -586,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968428.jpg" />
 </div>
 
 
@@ -612,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954439.jpg" />
 </div>
 
 
@@ -638,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949119.jpg" />
 </div>
 
 
@@ -664,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948112.jpg" />
 </div>
 
 
@@ -675,6 +649,34 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9062D47DB5D222B80917B12915E718F0C0B8FAB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363483   (942064) от 28.02.2020
+
+Татьяна Нестерюк | Кожа и мех. Шитье и ремонт. Самое полное и понятное пошаговое руководство для начинающих. Новейшая энциклопедия (2019) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942064.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кожа и мех в современном гардеробе занимают большое место, и зачастую возникает необходимость в мелком ремонте шубы или кожаной сумочки. А с модой на кожаные и меховые аксессуары и даже украшения хочется найти воплощение собственным идеям и фантазиям. Но как трудно решиться, ведь это кажется таким трудным и недоступным делом.
+
+Новая книга серии «Новейшая энциклопедия (   Читать дальше...   )Жанр: Рукоделие и ремеслаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E4E8EFE191E33A7CEC63A1BAADF06766AC8FB5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,133 @@
+###  Публикация: 911535   (616313) от 23.06.2015
+
+Газета | Сезон у дачи №12 (188) (Июнь 2015) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616313.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для садоводов. Множество практических советов и рекомендаций специалистов, овощеводов-любителей помогут вам в выращивании и получении гарантированного и высокого урожая. Очень много интересной и полезной информации.Жанр: Дача, сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10D2D4E412CD92F095521C684AF690C564EB30D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911534   (616309) от 23.06.2015
+
+Газета | Сезон у дачи. Спецвыпуск №8 (89) (Июнь 2015) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616309.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал о садоводстве, огородничестве, цветоводстве. Очень много интересной и полезной информации. В спецвыпусках журнала "Сезон у дачи" обсуждаются самые востребованные темы среди читателей журнала, вопросы по которым они задают авторам журнала.Жанр: Дача, сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BA4A91BD22523134D3CFA72AC15D8B3222593CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146260   (616206) от 28.06.2017
+
+Журнал | Железный мир №3 (2017) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616206.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Железный мир» - ведущее профессиональное издание, посвященное силовым видам спорта. Он отражает события, происходящие в мире бодибилдинга, пауэрлифтинга, армрестлинга, серии «Стронгмен». Много материалов посвящено методикам построения тренировочного процесса и спортивного питания, советам профессиональных спортсменов. Представлены информация о соревнованиях (   Читать дальше...   )Жанр: Мужской журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6D03662526860BB4BF88BDE2B2F0DDAEA01DFFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911710   (616167) от 23.06.2015
+
+Журнал | Народный лекарь. Спецвыпуск №135 (2015) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый номер журнала расскажет Вам о лечении какого-либо распространенного заболевания. Лучшие рецепты читателей с комментариями специалистов.Жанр: Нетрадиционная медицинаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:467639A46D17D6930ADFE3A6B9978ABB18296E7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911539   (616165) от 23.06.2015
+
+Журнал | МАСТЕРРУЖЬЁ №6 (июнь 2015) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для тех, для кого оружие не пустой звук в жизни. А также для тех кто только начал интересоваться им. Все о любом оружии, охоте, коллекционировании и многом другом.Жанр: Научно-популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A51984E27E3DCF120BD6424DA65464D626F5D403
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1146261   (616093) от 28.06.2017
 
 Журнал | Железный мир №5-6 (2017) [PDF]
@@ -6,7 +136,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616093.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616078.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616074.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616068.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616061.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615940.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615932.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615858.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615708.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615707.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615706.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615705.jpg" />
 </div>
 
 
@@ -319,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615678.jpg" />
 </div>
 
 
@@ -345,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615666.jpg" />
 </div>
 
 
@@ -371,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615665.jpg" />
 </div>
 
 
@@ -397,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615664.jpg" />
 </div>
 
 
@@ -423,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615663.jpg" />
 </div>
 
 
@@ -449,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615593.jpg" />
 </div>
 
 
@@ -475,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615592.jpg" />
 </div>
 
 
@@ -501,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615590.jpg" />
 </div>
 
 
@@ -527,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615589.jpg" />
 </div>
 
 
@@ -538,136 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:780BC492269715121100C834E62EC0FCDF672B95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037237   (615587) от 23.07.2016
-
-Журнал | Хозяин № 3 (934) (март 2016) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современный «Хозяин» — это современный массовый научно-производственный журнал с многотысячной читательской аудиторией, ведь его выписывают белорусы уже в четвертом поколении. «Хозяин» — это отвечающее требованиям времени полноцветное печатное издание на 48 страницах, выходящее тиражом около 35 тысяч экземпляров. Нас читают не только в Беларуси, но и в России, Украине, (   Читать дальше...   )Жанр: Сад, огород, цветы, дизайн участка, урожайФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99BECF27C3AD1D6D9194AF54FC742BAAE2B06967
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 804288   (615572) от 12.07.2014
-
-Журнал | Золотые рецепты наших читателей №13 (113) (июль 2014) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярное кулинарное издание, созданное исключительно на основе писем читателей — профессиональных поваров, кондитеров и домашних кулинаров. Все рецепты подкреплены качественными фотографиями блюд и их авторов, что позволяет заранее оценить конечный результат. Часть рецептов опробована на редакционной кухне. Важно, что для публикации редакция отбирает простые, доступные (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFBBAC476DF0C84C751C302F528B336A1AD2C260
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037064   (615479) от 23.07.2016
-
-Журнал | Народный лекарь. Спецвыпуск №159 (2016) [DJVU]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615479.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заболевания, которые вызываются присутствием паразита, его жизнедеятельностью, называют паразитозами. По данным Всемирной организации здравоохранения (ВОЗ), из 50 млн человек, ежегодно умирающих в мире, более чем у 16 млн причиной смерти служат инфекционные и паразитарные заболевания. До сих пор этот класс болезней занимает ведущее положение среди причин смертей (   Читать дальше...   )Жанр: МедицинаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A210109B279CE6077D9A0848A965AF6D62878C43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037118   (615472) от 23.07.2016
-
-Подшивка журнала | Кухня. Лучшие рецепты [43 журнала] (2003-2012) [PDF, DJVU]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучшие и разнообразные рецепты от читателей журнала Кухня.Жанр: КулинарияФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A504D1737BAE1013A2889BABD85F76FE246FD027
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 804299   (615437) от 12.07.2014
-
-Журнал | CQ Amateur Radio №7 (июль 2014) [PDF] [En]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615437.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американский журнал, посвященный радиосвязи на КВ и УКВ. В каждом номере описания различной аппаратуры, радиолюбителские конструкции и антенны, результаты различных соревнований по радиосвязи на КВ и УКВ и самая последняя DX-info.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35B3D193E8763D83934EAFC10E30406E12C9B63F
 ```
 
 https://mybot314.ru/tekegram_catalog/

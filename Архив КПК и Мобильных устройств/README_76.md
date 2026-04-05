@@ -6,7 +6,7 @@ ArtRage v1.3.15 [Ru/En] - рисование красками на Android
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367383.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Hangouts 5.1.105976615 [Ru] - Мессенджер от Google
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367206.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Z.O.N.A Project X v1.03.02b  full [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367199.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Cryten 10.5.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367191.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Blippar 1.8.14 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366671.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Hardware Info 4.2.6 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365813.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Alien Rescue Episode 1 v1.2.2 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_365684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_365684.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ System Info Droid 1.3.10 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365626.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Ringtone MP3 maker Premium 1.13 [En] - Cоздай собственный рин
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365500.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Sixaxis Enabler 1.1.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365492.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ GLTools (Chainfire3D) 1.98 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365487.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_365343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_365343.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Dead Effect v1.2.1 + Mod Money [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365331.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Vuze Torrent Downloader 1.9.1 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365330.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Durak-elite 6.5 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365321.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Assassin's Creed 3  (2012) <Ru/En>
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_365138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_365138.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_365123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_365123.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Injustice: Gods Among Us v2.6.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364940.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ EA SPORTS™ UFC v1.6.847112 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364823.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ SimCity BuildIt v1.7.8.34921 + Mod Money [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364732.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Paranormal Escape 2 v1.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363312.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Outside World 1.4.2 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363308.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_362778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_362778.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Nihilumbra v2.4 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362750.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Hero Siege v2.0.4 + Mod  [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362612.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Digital Clock Widget Xperia 3.8.0.96 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362491.jpg" />
 </div>
 
 

@@ -1,3 +1,56 @@
+###  Публикация: 1160728   (471120) от 26.08.2017
+
+Тетрадь смерти / Death Note (2017) WEBRip [H.264/720p-LQ] [MVO] [AD]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Способный студент Лайт находит загадочную тетрадь смерти, которая может убить любого, чье имя в нее вписать. Парень решает начать миссию по очистке улиц от преступников. Вскоре студент-линчеватель обнаруживает, что его преследует известный профайлер ФБР, скрывающийся под псевдонимом L.Производство: США, Lin Pictures, Vertigo EntertainmentЖанр: Ужасы, Фэнтези, Боевик, ТриллерРежиссер: Адам ВингардАктеры: Маргарет Куэлли, Лейкит Стэнфилд, Уиллем Дефо, Нат Вулф, Шей Уигэм, Маси Ока, Майкл Шамус Уайлз, Пол МакДжиллион, Олена Медвид, Лия ЛамПеревод: Многоголосый закадровый (MUZOBOZ)Субтитры: отсутствуютПродолжительность: 01:41:26Реклама: присутствуют аудио и видео вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E826170C38D48901F02D20DF5741BD2045A00F2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547729   (471081) от 16.09.2012
+
+Black Mesa [Ru/En/Multi7] (Lossless RePack/1.0) 2012 | =Чувак=
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471081.jpg" />
+</div>
+
+
+###  Подробнее
+
+Black Mesa («Чёрная Меза», ранее известная как Black Mesa: Source) — ремейк культовой компьютерной игры Half-Life 1998 года на движке Source. Представляет собой модификацию для игры Half-Life 2.
+Разработчики намерены воссоздать оригинальную вселенную Half-Life, используя расширенные возможности движка Source, переработать все текстуры, модели и уровни, создать реалистичный геймплей. В игре не будет нового оружия, однако они решили добавить к защитному костюму H.E.V функцию «спринт». Также создатели модификации заявили, что собираются сделать полностью синхронную сюжетную линию, лишь несколько изменив её, не нарушая баланса. Также в игру планируют ввести достижения.(   Читать дальше...   )Тип издания: Lossless RepackРазработчик: LeakFreeЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский, Итальянский, Испанский, Норвежский, Немецкий, Финский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91C648E793C36CC8B71A584A7F0BA67B79A7302C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 386761   (471030) от 11.09.2011
 
 Shadow of The Colossus [Ru] (P/Emul) 2006/2010 | Fenixx
@@ -6,7 +59,7 @@ Shadow of The Colossus [Ru] (P/Emul) 2006/2010 | Fenixx
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471030.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ Borderlands 2 [Region Free/ENG] (XGD3) (LT+ 3.0)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470910.jpg" />
 </div>
 
 
@@ -61,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470654.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ Aldnoah.Zero | Альдной.Зеро [TV-1][2014, TV, 12 эп.] HDTV 720p raw
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470541.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ Sandboxie 5.04 Final [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470442.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ EmEditor Professional 15.3.1 Final + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470377.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ Acronis True Image 2016 19.0.5634 BootCD [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470350.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ Train Fever (2014) [Ru/En] (build 6219) Repack by leve1ord
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470340.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470339.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ VueScan Pro 9.5.26 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470330.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ Europa Universalis IV: Common sense (2015) [Ru/Multi] (1.13.1/dlc) Repack Доб
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470328.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ BloodRayne (2002) [Ru/Multi] (1.00.50) Repack Raf-9600
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470014.jpg" />
 </div>
 
 
@@ -322,7 +375,7 @@ Linux Mint 21.0 Vanessa (XFCE, Mate, Cinnamon) [64bit] 3xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469761.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ Weird West (2022) [Ru/Multi] (1.03D.7507 A/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469737.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_469466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_469466.jpg" />
 </div>
 
 
@@ -400,7 +453,7 @@ Spectrasonics - Omnisphere 2.5.0d VSTi, STANDALONE, AAX (x64) + Libraries [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469295.jpg" />
 </div>
 
 
@@ -426,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468977.jpg" />
 </div>
 
 
@@ -452,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468820.jpg" />
 </div>
 
 
@@ -478,7 +531,7 @@ Age of Wonders: Planetfall (2019) [Ru/Multi] (1.005.36738/dlc) License CODEX [Pr
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468619.jpg" />
 </div>
 
 
@@ -504,7 +557,7 @@ Call of Duty: Modern Warfare 2 (2009) [Ru] (1.2.208/dlc/mp) Rip CoD - MW2
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468616.jpg" />
 </div>
 
 
@@ -530,7 +583,7 @@ Slimjet 11.0.7.0 + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468331.jpg" />
 </div>
 
 
@@ -556,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_468263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_468263.jpg" />
 </div>
 
 
@@ -587,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_468228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_468228.jpg" />
 </div>
 
 
@@ -614,7 +667,7 @@ Destroy Windows 10 Spying 1.5 Build 448 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468193.jpg" />
 </div>
 
 
@@ -625,63 +678,6 @@ Destroy Windows 10 Spying 1.5 Build 448 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:622BA114E2147D7AB1956831C79735A07DD45EC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940231   (468181) от 24.09.2015
-
-FIFA 16 (2015) [PS3] [EUR] 4.21 [Cobra ODE / E3 ODE PRO] [Unofficial] [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468181.jpg" />
-</div>
-
-
-###  Подробнее
-
-FIFA 16 – это инновации во всем. Вас ждет сбалансированный, реалистичный и захватывающий футбол. Играйте в своем стиле и соревнуйтесь на новом уровне. Вы получите уверенность в защите, возьмете контроль над центром поля и сможете создать еще больше фантастических моментов.
-
-FIFA 16 – играйте красиво!
-(   Читать дальше...   )Тип издания: UnofficialРазработчик: EA SportsЖанр: Sports / SimulationЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F0CCE8628D8CCC3C5C90E26790555951E31276F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 403930   (468173) от 24.09.2015
-
-Алекс Мэй | Секс. Практический опыт [2011] [MP3]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_468173.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта система, с которой вам предстоит познакомиться – является результатом 20-летнего практического опыта Алекса Мэя, а также содержит в себе все самое лучшее и действенное из того гигантского объема материалов по сексуальному мастерству, которые существуют сегодня на рынке.
-
-Прослушав этот короткий курс вы сэкономите себе массу времени. Всё самое ценное, чем могли (   Читать дальше...   )Жанр: Психология, Медицина (сексология), Аудиокниги
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

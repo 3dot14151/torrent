@@ -6,7 +6,7 @@ Beat Hazard 2 (2019) [Ru/Multi] (1.10) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914972.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Kynseed (2018) [En] (0.4.3.5248) License GOG [Early Access]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914923.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Ocean's Heart (2021) [Ru/Multi] (1.0.2) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914910.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ The Punisher / Каратель [Ru/En] (RePack) 2005 | R.G. Catalyst - Old Game
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911577.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ The Walking Dead: Michonne Episode 1 (2016) [Ru/Multi] (1.4.3) Repack bosenok
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911065.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Overland (2019) [Ru/Multi] (770) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909951.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Psychonauts 2 (2021) [Multi] (1.0) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909867.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Saints Row 2 (2009) [Ru/Multi] (1.0) SteamRip R.G. Origins
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909406.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Kill Them All (L) [En] 2011
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908976.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Terraforming Mars (2018) [Multi] (1.3000.1.11322/dlc) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908153.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Firewatch (2016) [Ru/En] (1.0/upd8) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907318.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Homeworld Remastered Collection (2015) [Ru/Multi] (1.30) Repack R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905534.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Shadow Warrior 2 (2016) [Ru/Multi] (1.1.9.0/dlc) SteamRip Let'sPlay [Deluxe Edit
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904250.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Downfall: Redux (2016) [En] (1.0.3) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903556.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Star Renegades (2020) [Ru/Multi] (1.4.1.3) License GOG [Deluxe Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903463.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ The Slormancer (2021) [Multi] (0.2.152) License GOG [Early Access]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903336.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ How To Survive: Third Person Standalone (2015) [Ru/En] (1.0/upd2) Repack SEYTER
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901909.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Townscaper (2021) [Ru/Multi] (1.0) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901815.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Astellia (2020) [Ru] (09.03.20) License (обновляемая)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901566.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Max Payne 3 [Ru/En/Multi8] (Repack/1.0.0.113) 2012 l a1chem1st
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901450.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Lethis - Path of Progress (2015) [Ru/Multi] (1.3.1) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900285.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Deponia Doomsday (2016) [Ru/Multi] (1.0) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900268.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Deponia Doomsday (2016) [Ru/Multi] (1.0) Repack bosenok
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898596.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Painkiller: Resurrection / Painkiller: Воскрешение [Ru] (RePack) 2010
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898512.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ We Are The Dwarves (2016) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898471.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Transistor (2014) [Ru/Multi] (1.42591) Repack R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897005.jpg" />
 </div>
 
 

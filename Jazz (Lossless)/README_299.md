@@ -6,7 +6,7 @@ Thomas Anders - Songs Forever (2006) Remastered, 2023, Craft Recordings [FLAC 24
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129958.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Amy Winehouse - Stronger Than Me (2003) Remastered, 2023, UMC [FLAC|Lossless|WEB
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129807.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Buddy Rich - Milestones Of A Jazz Legend (1946 - 1962) 10CD, 2020, The Intense M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129755.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Lennie Tristano - Personal Recordings (1946 - 1970) 6CD, 2021, Mosaic Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129546.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Duke Ellington - Duke Ellington And His Famous Orchestra (1990) [FLAC|Lossless]<
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129234.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Brian Culbertson - The Trilogy, Pt. 2: Blue (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129189.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Count Basie and His Small Groups - The Fives (1936—1942) (1996) [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129145.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Pat Martino - Comin' And Goin': Exit & The Return (1976, 1987) 2CD, 1999, 32 Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129114.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ VA - Gorgeous Relaxing Jazzy Instrumentals in Lounge Style (2023) [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128714.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ VA - Best Emotional Sax Colletion (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128703.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ VA - Chilly Ambient Smooth Operator Jazz Lounge Playlist (2023) [FLAC|Lossless|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128694.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ McCoy Tyner - The Impulse Albums Collection (1961 - 1964) 4CD, 2022, Enlightenme
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128689.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Ramsey Lewis - The Beatles Songbook: The Saturday Salon Series, Vol. 1 (2022) St
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128688.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ VA - Sister Bossa Vol. 11 (Cool Jazzy Cuts With A Brazilian Flavour) (2023) [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128681.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ VA - Jazz Hop #1 (Relaxing Lo-fi Jazzy Chill) (2023) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128678.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Lisa Hilton - Paradise Cove (2022) Ruby Slippers Productions [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128558.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Terri Lyne Carrington - Money Jungle: Provocative In Blue (2013) Concord Jazz [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128554.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Jessica Williams - Arrival (1994) Jazz Focus [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128550.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Tim (Thomas) Hardin Trio - Light Intelligence Series 1 (1992) Golden Penguin [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128377.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ The Thomas Hardin Trio - Clasicos a ritmo de Jazz (1998) GyC Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128374.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Jessica Williams - This Side Up (2002) MaxJazz [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128354.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Thomas Hardin Trio - Jazz de kiku Beethoven (2003) Victor Entertainment [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128245.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ VA - Smooth Jazz Beats & Modern Fusion (2023) [FLAC|Lossless|WEB-DL|tracks] <Smo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128239.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ VA - Electro Swing Back to Old School Volume 2 (Jazzy Electro and Vintage Swing 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128233.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ Jessica Williams - Live At Yoshi's, Vol. 2 (2005) MaxJazz [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128224.jpg" />
 </div>
 
 
@@ -743,7 +743,7 @@ Phil Woods - The Rev & I (1998) Blue Note [FLAC|Lossless|tracks + .cue] <Bop, Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128218.jpg" />
 </div>
 
 

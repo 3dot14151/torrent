@@ -1,3 +1,135 @@
+###  Публикация: 472714   (84215) от 24.03.2012
+
+Bascom AVR 2.0.7.1 [Английский и Русский]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bascom-AVR - программная среда для создания исполняемого кода микроконтроллеров семейства AVR на языке высокого уровня близкого к стандартному Бейсику.
+В состав Bascom входят следующие компоненты разработки:
+компилятор Basic-подобного языка для AVR
+текстовый редактор с подсветкой синтаксиса
+отладчик-симулятор
+эмулятор терминала
+контекстная информационно-справочная система
+утилиты загрузки аппаратных эмуляторов и программаторов.Название программы: Bascom AVRЯзык интерфейса: Английский и Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472028   (84014) от 23.03.2012
+
+CodeVisionAVR V2.05.3 [Английский]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84014.jpg" />
+</div>
+
+
+###  Подробнее
+
+CodeVisionAVR - представляет собой  простую в использовании интегрированную среду разработки программного обеспечения для микроконтроллеров семейства Atmel AVR.
+Она обеспечивает расширенную поддержку устройств AVR и создает компактный и эффективный код
+CodeVisionAVR включает в себя следующие компоненты:
+- Компилятор языка Си для AVR;
+- Компилятор языка ассемблер для AVR;
+- Генератор начального кода программы, позволяющего произвести инициализацию периферийных устройств;
+- Модуль взаимодействия с отладочной платой STK-500;
+- Модуль взаимодействия с программатором;
+- Терминал.
+(   Читать дальше...   )Название программы: CodeVisionAVRЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468629   (83194) от 19.03.2012
+
+GeoVision DVR & NVR System v8.5.0.0 (Russian) [Русский]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83194.jpg" />
+</div>
+
+
+###  Подробнее
+
+Построенная на основе всеобъемлющего, легко интегрируемого аппаратного обеспечения и разнообразных, современных технологий, система безопасности GeoVision является основой для создания оптимального видеомониторинга и многофукциональной аналитической обработки полученных материалов, а также глобального контроля и управления разветвленной системой безопасности, способной удовлетворить самые высокие требования. Систему GeoVision легко обновить и расширить её фукциональные возможности, а также она может быть адаптирована и полностью интегрирована с такими приложениями и аппаратным обеспечением как:
+1. POS/ ATM/ EAS – видеоконтроль за кассовыми операциями, транзакциями банкоматов, противокражное оборудование
+2. Система контроля доступа, автоматизация зданий
+3. Система распознавания автомобильных номеров для организации пропускного режима на стоянках и повышения соблюдения правил дорожного движения на автомагистралях и улицах города.
+4. Интеграция с мегапиксильными IP камерами для получения более четкого изображения (   Читать дальше...   )Название программы: GeoVision DVR & NVR SystemЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470336   (83164) от 19.03.2012
+
+Microsoft Windows Dancer + Windows XP Media Center Edition 2005 Screensavers [Eng] 5.1.2600.2580 [Английский]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разное (прочее ПО)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это многим знакомые танцоры из официальной релиза Windows XP Media Center Edition 2005. В то время они были доступны лишь там, но теперь их можно поставить на любую модификацию XP, Vista и 7. На рабочем столе во время проигрывания музыки из плееров или браузеров появляется танцор, который танцует под эту музыку. В связи с тем, что попытка скачивания танцоров через микрософт потерпела неудачу, в данной раздаче есть абсолютно все они (всех размеров):
+Amanda, Arkantos, Ben, Boo Who?, Chanel, Cobey, Daniel, Evan & Michele, Exile, Hawk, Jade Dragon, Jarvis, Jen & Dave, Jerome, Josh, Kenny, Kris the Holiday Elf, Master Sho-Yu, Nickole & Marcelo, Seth, Shermin, Taryn, Wade + ко всем еще вложен Scooby-Doo =)
+
+Также в раздачу включены 5 красивых скринсейверов из того же Windows XP Media Center Edition:
+Aquarium, Da Vinci, Space, Nature и My Pictures
+
+Установка:
+1) Запустить WindowsDancerSetup.exe и выполнить установку.
+2) После зайти в папку Dancers, выбрать нужный размер танцоров и запустить соответствующий (   Читать дальше...   )Название программы: Microsoft Windows Dancer + Windows XP Media Center Edition 2005 ScreensaversЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 464936   (81545) от 11.03.2012
 
 Borland InterBase 7.5.1 SP1 [English]
@@ -6,7 +138,7 @@ Borland InterBase 7.5.1 SP1 [English]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81545.jpg" />
 </div>
 
 
@@ -36,7 +168,7 @@ Oracle Database 11g Release 2 11.2.0.3 [ENG]
 >>Серверное ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81344.jpg" />
 </div>
 
 
@@ -62,7 +194,7 @@ Simatic Step 7 v5.5 SP2 (Multi)
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79907.jpg" />
 </div>
 
 
@@ -90,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79901.jpg" />
 </div>
 
 
@@ -120,7 +252,7 @@ Simatic WinCC v7.0 SP3 (Multi)
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79296.jpg" />
 </div>
 
 
@@ -151,7 +283,7 @@ Text Editor Pro 32.1.1 + Portable + Bonus [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67359.jpg" />
 </div>
 
 
@@ -177,7 +309,7 @@ QIAGEN CLC Genomics Workbench 25.0.2 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63928.jpg" />
 </div>
 
 
@@ -203,7 +335,7 @@ Hiren’s BootCD PE x64 v1.0.8 (5 March 2024) [En]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63774.jpg" />
 </div>
 
 
@@ -229,7 +361,7 @@ BricsCAD Ultimate 24.2.03 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62503.jpg" />
 </div>
 
 
@@ -255,7 +387,7 @@ Interbase 2020 Update 5 14.5.0.864 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61856.jpg" />
 </div>
 
 
@@ -281,7 +413,7 @@ DATAKIT CrossManager 2024.2 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60645.jpg" />
 </div>
 
 
@@ -308,7 +440,7 @@ Windows Images Date Selector (WIDS) 1.0.0.4 Portable by Adler [Ru/En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59409.jpg" />
 </div>
 
 
@@ -334,7 +466,7 @@ FPS Monitor 5472 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59373.jpg" />
 </div>
 
 
@@ -362,7 +494,7 @@ Java SE Development Kit 22.0.1 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59229.jpg" />
 </div>
 
 
@@ -389,7 +521,7 @@ Java SE Development Kit 21.0.3 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59208.jpg" />
 </div>
 
 
@@ -416,7 +548,7 @@ Java SE Development Kit 17.0.11 LTS [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59182.jpg" />
 </div>
 
 
@@ -443,7 +575,7 @@ Bizagi Modeler 4.0.0.128 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58913.jpg" />
 </div>
 
 
@@ -471,7 +603,7 @@ SysAdmin Software Portable v.0.6.5.0 by rezorustavi (Update 21.04.2024) [Ru] (а
 >>WPI
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58315.jpg" />
 </div>
 
 
@@ -497,7 +629,7 @@ NonCompressibleFiles 4.71 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57311.jpg" />
 </div>
 
 
@@ -524,7 +656,7 @@ Nox App Player 7.0.6.0007 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57258.jpg" />
 </div>
 
 
@@ -550,7 +682,7 @@ Freeplane 1.11.14 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55916.jpg" />
 </div>
 
 
@@ -576,7 +708,7 @@ Microsoft Edge WebView2 Runtime 1.3.187.37 [Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55051.jpg" />
 </div>
 
 
@@ -588,113 +720,6 @@ Microsoft Edge WebView2 Runtime 1.3.187.37 [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A94263248BDBB6DC54D85051F002542E8A37FE84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726624   (55003) от 29.05.2024
-
-Microsoft .NET 7.0.20 Runtime [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55003.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакеты .NET Runtime и .NET Desktop Runtime содержат все необходимые компоненты для разработки и запуска приложений, разработанных в среде Microsoft .NET Core.
-С помощью среды разработки .NET, можно создавать различные приложения, включая веб-приложения и игры. Такие приложения могут быть разработаны для всех распространённых платформ: Windows, Android, iOS, MacOS (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21CB75B3F344F3AFD71AFB97835023646E52FF87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726820   (54935) от 30.05.2024
-
-Realtek Ethernet Driver 1168.018 | 10.71 [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>Драйверы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54935.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сетевые драйверы Realtek предназначены для корректного определения сетевой карты, ее правильной работы с операционной системой и программами, а также обеспечения совместимости с другим оборудованием. Программное обеспечение Realtek Ethernet Family Controller Software содержит все необходимые драйверы и компоненты, необходимые для правильной работы сетевой карты. (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A99CA105B05A78A7DE5507ADB7D152A463D6EF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723700   (53911) от 09.06.2024
-
-VMware Workstation Player 17.5.2 Build 23775571 Free [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53911.jpg" />
-</div>
-
-
-###  Подробнее
-
-VMware Workstation Player (ранее VMware Player) - виртуальная система для запуска нескольких операционных систем одновременно на вашем компьютере.
-Благодаря интуитивно понятному интерфейсу, VMware Workstation Player позволяет легко установить и попробовать Windows 10 и другие версии, Chrome OS или последние сборки Linux, создавать изолированные виртуальные машины (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16A3E43D3DBCA75C8B88CC7F30DE6F7010E4AA22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729338   (53771) от 10.06.2024
-
-Resource Tuner Business 2.24 Portable by FC Portables [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Resource Tuner - это программа для просмотра, редактирования, замены и извлечения ресурсов исполняемых файлов, т.е. всех тех элементов, которые образуют визуальный графический интерфейс приложений, работающих под Windows: иконки, строчки, изображения, звуки, диалоги, меню и многое другое.
-Программа позволяет вносить изменения во внешний вид приложений, не вмешиваясь (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CCC10105FA6CDD9F8E462AB7BDE6852DD835C7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

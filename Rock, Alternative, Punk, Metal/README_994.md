@@ -1,3 +1,32 @@
+###  Публикация: 1662877   (187175) от 20.09.2023
+
+The Pulse Theory - Coming Back Home (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Seconds Before the Storm
+02 - Memories Divine
+03 - The Vanquished the Victor
+04 - The Far Beyond(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:46:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7B9D8CB08286ED1CCAE001DDB7FEA2699E9B024
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1591360   (187173) от 18.11.2022
 
 КИНОХРОНИКА - Только сны (2022) [MP3|320 Kbps] <Rock>
@@ -6,7 +35,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187173.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Filter - The Algorithm (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Alt. Met
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187171.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Soffía Björg - Soffía Björg (2017) [MP3|320 Kbps] <Alternative Rock, America
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187137.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Cannibal Corpse - Chaos Horrific (2023) [MP3|320 Kbps] <Brutal Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187134.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Freternia - The Final Stand (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187124.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ LOUNA - Рубикон (2022) [MP3|320 Kbps] <Alternative>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187113.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ LOUNA - Рубикон (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187109.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Slade - The No.1's (2023) [MP3|320 Kbps] <Glam Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187089.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186989.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Bad Company - Bad Company (1974) Remastered /1994, Swan Song/ [FLAC|Lossless]<Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_186975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_186975.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186939.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Andysoul - 08535510n (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186936.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Dominus - The First 9 (1996) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186935.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Pagan Sword - Enter the Mountain (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Folk M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186933.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Repus Tuto Matos - МЫ(НЕ)МЫ (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Indus
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186929.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Riot City - Electric Elite (2022) [FLAC|Lossless|image + .cue] <Heavy, Speed Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186927.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Candlemass - Green Valley (Live in Lockdown, July 3rd 2020) (2021)  [FLAC 2.0|44
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186925.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Threshold - Dividing Lines (2022) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186915.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186897.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Palace Of Black - Palace Of Black (2002) 2003 CD-Maximum [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186896.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Aortha - Monolit (2023) [FLAC|Lossless|WEB-DL|tracks] <power-metal, thrash-metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186892.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Vision Master - Sceptre (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186889.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Gravestone - Creating A Monster (1986) 2005 Reissue, Remastered [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186887.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186878.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ The Promise Of Plague - Let Those Unjust Creatures Be Burnt (2023) [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186875.jpg" />
 </div>
 
 
@@ -713,35 +742,6 @@ The Promise Of Plague - Let Those Unjust Creatures Be Burnt (2023) [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82A205F4E68602C67E0D92BF3D5561A408BEBC8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663368   (186872) от 21.09.2023
-
-Sekta Core - Sinfonia del Caos (2023) [FLAC|Lossless|WEB-DL|tracks] <ska punk, gypsy punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Symphony Of Chaos [00:02:36]
-02. No Te Rindas [00:02:52]
-03. Zombies [00:02:25]
-04. Toro [00:03:40](   Читать дальше...   )Жанр: ska punk, gypsy punkПродолжительность: 00:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00541D126A4633B4F1080D8D392D9EA2F798809C
 ```
 
 https://mybot314.ru/tekegram_catalog/

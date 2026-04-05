@@ -1,174 +1,3 @@
-###  Публикация: 986008   (932474) от 13.02.2016
-
-Ирина Климова - Я так устала ждать.. (1998) [MP3|320 кб/с] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я так устала ждать...
-02. Детский сон
-03. Ветер любви
-04. Далеко(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB3CEE83B1963325EC6742045A3C635C2D6B5E42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093836   (932366) от 16.01.2017
-
-VA - The Disco Sessions (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932366.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Discotron - Disco Power (Original Mix) 04:49
-02. Audio Jacker - You Say (Original Mix) 06:17
-03. Boogie Freaks - The Mean Green (Original Mix) 07:02
-04. Discotron - I Got This (Original Mix) 06:13(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:11:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD95F75A2DE4F71C38F1899CC5E4E520E76A6F84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093880   (932272) от 16.01.2017
-
-Red Box - The Circle & The Square (1986) Reissue, 2008, Cherry Pop [APE|Lossless|image + .cue] <Alternative Pop, New Wave, World Music>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932272.jpg" />
-</div>
-
-
-###  Подробнее
-
-На мой взгляд (и не только) шедевр 80-ых во многом опередивший своё время и, возможно поэтому, недостаточно оцененный современниками.01. For America
-02. Heart Of The Sun
-03. Billy's Line
-04. Bantu(   Читать дальше...   )Жанр: Alternative Pop, New Wave, Choral, Orchestral, Art Rock, World MusicПродолжительность: 01:13:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BBC1C8608F6F00960313B1202057FAADD2B5CAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365190   (932238) от 06.03.2020
-
-Наталья Подольская - Плачь (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932238.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Феникс
-2. Сильная слабая
-3. Плачь
-4. Ни много, ни мало(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68F7A000073D6A3C1ACC5C4DC71EB7D7D42821D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365189   (932115) от 06.03.2020
-
-Филипп Киркоров - Романы, Часть 1 (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932115.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Романы
-2. Это была любовь
-3. Любимые люди
-4. Улети(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D609EB6848F9619BB688D0FDD9719E1F7032108
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 629864   (931274) от 13.03.2013
-
-Justin Timberlake - The 20/20 Experience (Deluxe Edition) (2013) [FLAC (tracks+cue)|Lossless]<Pop, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931274.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, R&BПродолжительность: 01:19:26
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 986352   (930872) от 14.02.2016
 
 Whitney - The Greatest Hits (2000) 2CD [FLAC|Lossless|tracks + .cue] <Soul, Disco, RnB/Swing>
@@ -177,7 +6,7 @@ Whitney - The Greatest Hits (2000) 2CD [FLAC|Lossless|tracks + .cue] <Soul, Disc
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930872.jpg" />
 </div>
 
 
@@ -206,7 +35,7 @@ Vengaboys - The Platinum Album (2000) [MP3|320 кб/с] <Europop, Euro House, Ba
 >>Eurodance, Euro-House, Technopop
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930711.jpg" />
 </div>
 
 
@@ -235,7 +64,7 @@ VA - The Best Of The 80's Volume II (1998) [FLAC|Lossless|tracks + .cue] <Pop Ro
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930626.jpg" />
 </div>
 
 
@@ -264,7 +93,7 @@ Linda Jo Rizzo - Fly Me High (The Album) (2015) [MP3|320 Kbps] <Italo-Disco, Eur
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930619.jpg" />
 </div>
 
 
@@ -293,7 +122,7 @@ Dreamcatcher (드림캐쳐) - Dystopia : The Tree of Language (2020) [FLAC|Lossl
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930571.jpg" />
 </div>
 
 
@@ -322,7 +151,7 @@ VA - BRAVO Hits 92 (2016) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930555.jpg" />
 </div>
 
 
@@ -351,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930394.jpg" />
 </div>
 
 
@@ -380,7 +209,7 @@ George Michael - Older (1996) [FLAC|Lossless|image + .cue] <Electronic, Jazz, Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930392.jpg" />
 </div>
 
 
@@ -409,7 +238,7 @@ A-ha - Greatest Hits: Japanese Single Collection (2020) [FLAC|Lossless|image + .
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930162.jpg" />
 </div>
 
 
@@ -438,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929805.jpg" />
 </div>
 
 
@@ -467,7 +296,7 @@ Afric Simone - 6 Albums (1974-1990) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Di
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929043.jpg" />
 </div>
 
 
@@ -496,7 +325,7 @@ VA - Radio 538 Hitzone 76 (2016) [FLAC|Lossless|image + .cue] <Top 40, Pop, Rock
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929031.jpg" />
 </div>
 
 
@@ -525,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929016.jpg" />
 </div>
 
 
@@ -554,7 +383,7 @@ VA - Italo Disco Vol. 2 (2017) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928935.jpg" />
 </div>
 
 
@@ -583,7 +412,7 @@ VA - Italo Disco (2017) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928930.jpg" />
 </div>
 
 
@@ -612,7 +441,7 @@ VA - MegaHits 2016 (2015) [FLAC|Lossless|image + .cue] <Top 40, Pop, Electronic>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928878.jpg" />
 </div>
 
 
@@ -641,7 +470,7 @@ VA - Новые хиты (Зима 2019) (2019) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928817.jpg" />
 </div>
 
 
@@ -670,7 +499,7 @@ VA - KuschelRock: Lovesongs Of The 90's (2016) Special Edition [FLAC|Lossless|WE
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928788.jpg" />
 </div>
 
 
@@ -699,7 +528,7 @@ Bad Boys Blue - Bad Boys Best (2007) [FLAC|Lossless|image + .cue]<Synth-pop, Dis
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927918.jpg" />
 </div>
 
 
@@ -728,7 +557,7 @@ Animal Collective - Painting With (2016) [MP3|320 кб/с] <Psychedelic pop, Ind
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927805.jpg" />
 </div>
 
 
@@ -742,6 +571,177 @@ Animal Collective - Painting With (2016) [MP3|320 кб/с] <Psychedelic pop, Ind
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F7B224475E34C1232CB23C6C915C832497F1535
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095030   (927560) от 19.01.2017
+
+Руки Вверх! - Забери ключи (2017) Single [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Забери ключиЖанр: PopПродолжительность: 00:03:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FEDE1A14B22EAAAE90EBFAD73869FF8946D613E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987347   (927545) от 16.02.2016
+
+Иванушки International - Конечно Он (1996) [FLAC|Lossless|image + .cue] <Pop, Europop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	Тучи 04:11
+02. 	Этажи 04:01
+03. 	Вселенная 03:42
+04. 	Малина 04:09(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:48:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E261D4240B135A66977031AFF5CC69736B2231E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987260   (927453) от 16.02.2016
+
+Валерий Ободзинский - Всё сбудется. Избранное (2003) [FLAC|Lossless|image + .cue] <Советская эстрада, Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Эти глаза напротив (3:33)
+02. Девушка (3:45)
+03. Настоящая любовь (3:01)
+04. Встреча (3:09)(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:13:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BED94E266801A5D5EC53BE23BC445B27FACBC19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489250   (927116) от 15.08.2021
+
+EMIN - LOVE IS (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927116.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Таял
+2. Кругами
+3. Не было меня
+4. Love Is(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:174BB26462EA0034E74543F267FDAEAF1422CF54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095174   (926044) от 20.01.2017
+
+Тати - Драма (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро
+02. Голубые бабочки
+03. Связки металлических ключей
+04. Другой(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F4C3EE4A78805604D35F23460BED1F48E8B7981
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366083   (925742) от 10.03.2020
+
+VA - I Love German Pop (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925742.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Mokaby, Natha Lee - Diese Liebe (Radio Edit)
+2. Brian Ferris - Halt deine Fresse und tanz! (Party Mix Radio Edit)
+3. Boerney - Weißt Du noch gestern
+4. Freitagsauto - Mulinello(   Читать дальше...   )Жанр: PopПродолжительность: 01:54:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:002D32582ADC030C52F775C3C29580E088570AC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

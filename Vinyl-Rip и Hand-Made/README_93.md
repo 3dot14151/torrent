@@ -1,3 +1,32 @@
+###  Публикация: 1590988   (51693) от 28.06.2024
+
+Lamb of God (ex-Burn The Priest) - Studio Albums (12 releases) (1999-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove Metal/Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lamb of God — американская грув-метал-группа, образовавшаяся в 1994 году в Ричмонде, штат Вирджиния, изначально известная как Burn the Priest, но изменившая название после выпуска дебютного альбома в 1999 году. Коллектив считается лидером новой волны американского хэви-метала.1999 - Burn The Priest
+2000 - New American Gospel
+2003 - As The Palaces Burn
+2004 - Ashes of the WakeЖанр: Groove Metal/MetalcoreПродолжительность: 10:16:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84DCB4B26807F062F94437F5BE11D25F6C86356E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1733489   (51618) от 29.06.2024
 
 Rhapsody Of Fire - Studio Albums (16 releases) (1997-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Power Metal>
@@ -6,7 +35,7 @@ Rhapsody Of Fire - Studio Albums (16 releases) (1997-2024) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51618.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Eagles - Eagles Live (1980) Japanese Edition [FLAC|24/96|image + .cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51584.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ The Grass Roots - Lovin' Things (1969) [FLAC 2.0|24/192|image+.cue|Vinyl Rip] <P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51396.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Bee Gees - 4 Альбома (1968-1980) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50260.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ VA - В стиле Шансон от Arhangel Music (2024) [FLAC 2.0|44.1/16|Los
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50117.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ Deep Purple - Studio Albums (13 releases) (1984-2024) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49139.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ Kiss - Studio Albums (5 releases) (1992-2013) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48971.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ Imagine Dragons - Studio Albums (6 releases) (2012-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48884.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ Powerwolf - Studio Albums (11 releases) (2005-2024) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48685.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48429.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ Iced Earth - Studio Albums (16 releases) (1990-2017) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48267.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ VA - Остров Сокровищ. По Другому! от Arhangel Music (20
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47898.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ The Winery Dogs - Studio Albums (4 releases) (2014-2023) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47438.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ Social Distortion (Social D; SxDx) - Studio Albums (3 releases) (1996-2011) hand
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47335.jpg" />
 </div>
 
 
@@ -408,7 +437,7 @@ VA - Одинокий пастух. Два Альбома (1998, 2001) [FLAC 2.0
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46712.jpg" />
 </div>
 
 
@@ -434,7 +463,7 @@ VA - MTV Hits vol. 23 (1994) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46488.jpg" />
 </div>
 
 
@@ -463,7 +492,7 @@ Dark The Suns - Studio Albums (6 releases) (2007-2023) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46196.jpg" />
 </div>
 
 
@@ -492,7 +521,7 @@ Revolution Renaissance - Studio Albums (3 releases) (2008-2010) hand made [resto
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46183.jpg" />
 </div>
 
 
@@ -520,7 +549,7 @@ Timo Tolkki's Avalon - Studio Albums (4 releases) (2013-2021) hand made [restore
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46176.jpg" />
 </div>
 
 
@@ -549,7 +578,7 @@ Rose Royce - Jump Street (1981) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Disco, F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46076.jpg" />
 </div>
 
 
@@ -578,7 +607,7 @@ Ansamble «Vitamiin» - Ансамбль «Витамин II» (1984) [FLAC 2.0|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46070.jpg" />
 </div>
 
 
@@ -607,7 +636,7 @@ The Dark Element (Anette Olzon, Jani Liimatainen) - Studio Albums (3 releases) (
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45242.jpg" />
 </div>
 
 
@@ -635,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45039.jpg" />
 </div>
 
 
@@ -661,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44760.jpg" />
 </div>
 
 
@@ -690,7 +719,7 @@ VA - Romantic Collection Ретро (1999) [FLAC 2.0|48/24|image +.cue|MC-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44419.jpg" />
 </div>
 
 
@@ -704,32 +733,6 @@ A3 Л. Утесов – Московские Окна(   Читать дальш
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77AB372A6A44E0C752A935ADD592B244EA89D09B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747785   (44407) от 06.09.2024
-
-Linkin Park - The Emptiness Machine (2024) hand made [restored, declipped] [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Emptiness Machine (3:10)Жанр: Alternative RockПродолжительность: 00:03:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBA5FA3F4E1D0CA4038B22A343D7E9D74A12B01E
 ```
 
 https://mybot314.ru/tekegram_catalog/

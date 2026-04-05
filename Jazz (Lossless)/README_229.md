@@ -6,7 +6,7 @@ Kurt Maloo vs. Double - Loopy Avenue (2007) [FLAC|Lossless|image + .cue] <Jazz-P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276319.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Barney Wilen & Mal Waldron - Movie Themes from France (1990) Timeless Records [W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276198.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Marcus Printup - Young Bloods (2015) SteepleChase [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276160.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Candy Dulfer - Top 40 Candy Dulfer: Her Ultimate Top 40 Collection (2018) 2CD [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276130.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Tommy Dorsey & Frank Sinatra - Together 1939-1940 (1991) Jazz Archives [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276123.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Savoy Jazz Sampler, Vol. 1 (1946-1959) 1992, Savoy[FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276105.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ The Charles Mingus Octet & The Jimmy Knepper Quintet - Debuts Rarities Vol. 1 (1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276087.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Bunny Berigan And His Boys - 1935 - 1936 (1993) Classics [FLAC|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275230.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ John Coltrane -  More Coltrane For Lovers (2005) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275217.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Clarence Penn - Play-Penn 2001 (2009) Criss Cross Jazz [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275033.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ A NYC Tribute feat. Jimmy Cobb & Randy Brecker - Monk (2012) Jazz'n'Arts Records
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275032.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Jeff Ray - The Walkup (2003) HiPNOTIC Records [FLAC|Lossless|image + .cue] <Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275031.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Yoshiro Okazaki & Jay Thomas Quintet - Soul Summit!: Live at Mr.Kenny's (2014) C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275029.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Jay Thomas / Gary Smulyan - Lowdown Hoedown (2016) CUG Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275028.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Benny Carter - Four Classic Albums Plus 1958 - 1960 (2012) 2CD, Avid Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275026.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Paul Desmond Quartet - First Place Again (2005) [FLAC|Lossless|tracks + .cue] <J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274998.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Stan Kenton - Kenton's West Side Story (1961) 1994, Capitol Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274997.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Carl Allen - The Pursuer (1994) Atlantic Recording Corporation[FLAC|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274994.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ The Zawinul Syndicate - Lost Tribes (1992) Sony[FLAC|Lossless|tracks + .cue] <Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274986.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Jody Mayfield - Soul Sanctuary (2019) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274885.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ The Modern Jazz Quartet - Under The Jasmin Tree / Space (2010) [FLAC|Lossless]<J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274790.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Herbie Hancock - Watermelon Man The Ultimate Hancock! 2CD (2010) [FLAC|Lossless]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274769.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Various Artists - Verve & Blue Note Today 2017 (2017) [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274574.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ Bunny Berigan - 1936 - 1937 (1994) Classics [FLAC|Lossless|tracks + .cue] <Swing
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274213.jpg" />
 </div>
 
 
@@ -713,7 +713,7 @@ Le Tout-puissant orchestre Poly-rythmo (T.P. Orchestre Poly-Rythmo) - Madjafalao
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273783.jpg" />
 </div>
 
 
@@ -742,7 +742,7 @@ Robin Eubanks & Steve Turre - Dedication (1989) JMT [FLAC|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273767.jpg" />
 </div>
 
 

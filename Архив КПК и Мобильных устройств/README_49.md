@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605370.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Prehistoric Mystery 3.5.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605283.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605275.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605271.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605204.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605201.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605200.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Ringdroid / Обрезать песню 2.7.3 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605128.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605113.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ NoRoot Data Firewall 3.3.2 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605020.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605017.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Diaro - личный дневник 3.8.8 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605013.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ QuickPic 4.5.2 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605010.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ Heroes of SoulCraft - MOBA v1.1.1 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605005.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604958.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604938.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ DRAGON QUEST VI 1.0.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604936.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Temple Run 2 1.15.1 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604929.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Future Tanks: Танки Онлайн 1.45 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604862.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Battlefield Combat Nova Nation vBFI.1.0.9 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604860.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604856.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ GMD GestureControl root [HD]  8.1.0 - Управляем жестами почт
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604792.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604779.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604104.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602515.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601558.jpg" />
 </div>
 
 

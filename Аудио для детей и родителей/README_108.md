@@ -1,3 +1,29 @@
+###  Публикация: 471833   (83715) от 22.03.2012
+
+Владислав Крапивин | Белый шарик Матроса Вильсона (2012) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пятая повесть из знаменитого цикла "В глубине Великого Кристалла" — история преданной дружбы Стасика, которого прозвали Матросом Вильсоном, и Белого шарика, маленькой звезды, которая научилась превращаться в мальчика. Верные друзья преодолевают вместе не одну опасность. Владея обыкновенным "звездным" умением творить чудеса и помогать тем, кто (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 07:57:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12D24C0226E4D5D33EBBF7C1509288C25635537B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 470646   (83064) от 19.03.2012
 
 VA - Дружба начинается с улыбки (1991) [MP3|320 кб/с]<Детские песенки>
@@ -6,7 +32,7 @@ VA - Дружба начинается с улыбки (1991) [MP3|320 кб/с]<
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83064.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ VA - СОЮЗ Детский (2012) [MP3|256 кб/с]<Детские песен�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82730.jpg" />
 </div>
 
 
@@ -64,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82081.jpg" />
 </div>
 
 
@@ -92,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81881.jpg" />
 </div>
 
 
@@ -120,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81481.jpg" />
 </div>
 
 
@@ -149,7 +175,7 @@ VA - Fisher-Price. Tender Lullabies (2005) [MP3|320 кб/с]<Музыка для
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78548.jpg" />
 </div>
 
 
@@ -178,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78506.jpg" />
 </div>
 
 
@@ -207,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76705.jpg" />
 </div>
 
 
@@ -233,7 +259,7 @@ VA - К 80-ти летию В. Шаинского. Когда мои друзь�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76315.jpg" />
 </div>
 
 
@@ -262,7 +288,7 @@ Anthony Miles - Mother & Baby (2001) [MP3|320 kbps]<Музыка для дете
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75900.jpg" />
 </div>
 
 
@@ -289,7 +315,7 @@ Anthony Miles - Music For Children (1995) [MP3|320 kbps]<Музыка для д�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75867.jpg" />
 </div>
 
 
@@ -316,7 +342,7 @@ VA - Мультконцерт. Антология Детского Шлягер�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75549.jpg" />
 </div>
 
 
@@ -342,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75530.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74449.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74405.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ VA - Зимняя сказка: Лучшие детские песенки (2012
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_73871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_73871.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_73522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_73522.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_73036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_73036.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ Raimond Lap – Baby Christmas (2004) [MP3|172-195 kbps]<Музыка для д�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_73000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_73000.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_72942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_72942.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ Raimond Lap – Lovely Baby Mozart (2005) [MP3|256 kbps]<Классическа�
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_72908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_72908.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_72409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_72409.jpg" />
 </div>
 
 
@@ -618,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_72142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_72142.jpg" />
 </div>
 
 
@@ -646,7 +672,7 @@ Libera - The Christmas Album (2011) [MP3|320 kbps]<Детские песни, Х
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_72138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_72138.jpg" />
 </div>
 
 
@@ -675,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_72132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_72132.jpg" />
 </div>
 
 
@@ -689,32 +715,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4A7E96B90A9A9C64882E2B118623805A7BFF58F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770667   (71976) от 02.01.2025
-
-Агнеш Балинт | Гном Гномыч и Изюмка [MP3, А.Кузнецов]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71976.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Гном Гномыч и Изюмка" - сказка. И главный герой ее - поросенок. Но если грустных поросят на свете сколько угодно, веселых, как известно, трое, то поросенок по имени Изюмка - единственный, да еще голодный, одинокий и усталый. И все же счастливая поросячья звездочка недаром привела его к порогу уютного домика-тыквы, где живет мудрый и тоже одинокий Гном (   Читать дальше...   )Жанр: СказкаИздательство: Росмэн-АудиоПродолжительность: 01:24:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78A7848B21CAEED9ADEC51965ED9C638BFDE43EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

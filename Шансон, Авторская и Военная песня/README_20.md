@@ -1,3 +1,29 @@
+###  Публикация: 79251   (681828) от 26.06.2016
+
+Владимир Высоцкий - Концерт в НИКФИ (1968) [FLAC]<Авторская песня>
+
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_681828.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Выступление В. Высоцкого в Научно-Исследовательском Кино-Фото Институте (НИКФИ) в Москве состоялось 26 января 1968 года. По свидетельству звукорежисера А. Самоварова, в первые же секунды концерта лопнули две струны на гитаре. Пока искали замену, около 40 минут, В. Высоцкий рассказывал публике о своей работе в театре, кино, отвечал на вопросы. Поэтому вторую (   Читать дальше...   )Жанр: Авторская песняПродолжительность: 53:49
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 79420   (681770) от 26.06.2016
 
 Владимир Высоцкий - Нью-Йоркский концерт (1979) [FLAC]<Авторская песня>
@@ -6,7 +32,7 @@
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_681770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_681770.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_681769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_681769.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680350.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680348.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_679910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_679910.jpg" />
 </div>
 
 
@@ -145,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_679909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_679909.jpg" />
 </div>
 
 
@@ -174,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_679907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_679907.jpg" />
 </div>
 
 
@@ -203,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_679895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_679895.jpg" />
 </div>
 
 
@@ -232,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678599.jpg" />
 </div>
 
 
@@ -261,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678049.jpg" />
 </div>
 
 
@@ -290,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676665.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676265.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ BOGA - Dolia Vorovskaya. Russian Songs (1997) [FLAC|Lossless|image + .cue] <Ша
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674898.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_674419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674419.jpg" />
 </div>
 
 
@@ -406,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673422.jpg" />
 </div>
 
 
@@ -435,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672554.jpg" />
 </div>
 
 
@@ -464,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672329.jpg" />
 </div>
 
 
@@ -493,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672283.jpg" />
 </div>
 
 
@@ -522,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672282.jpg" />
 </div>
 
 
@@ -551,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672131.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672081.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672071.jpg" />
 </div>
 
 
@@ -644,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_671886.jpg" />
 </div>
 
 
@@ -679,7 +705,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671034.jpg" />
 </div>
 
 
@@ -708,7 +734,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670499.jpg" />
 </div>
 
 
@@ -722,35 +748,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:003CE56A2679DFB08F250337B84A07A9F62354FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030823   (670469) от 02.07.2016
-
-Владимир Двинской - Надо жить (2014) [FLAC|Lossless|image + .cue] <Chanson>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Как-то не верится (4:04)
-02. А до зимы далеко (3:58)
-03. Не плачь апрель (4:18)
-04. Что имеем не храним (3:54)(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:48:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35CEB4D4E2ABCCC19A3FDD1FA3F632C3A23C37D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

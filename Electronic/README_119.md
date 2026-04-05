@@ -1,3 +1,61 @@
+###  Публикация: 1118266   (813492) от 25.03.2017
+
+VA - The Sweetest Taboo, Vol. 4 (20 Lounge Negligees) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. PP 1 - House [00:05:27]
+02. James Walden - Europa [00:04:49]
+03. Lu & Zana - Universal Love [00:03:41]
+04. Magic Mike - Gb [00:03:34](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:22:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E971B717FCE73978847DF4BD6D95D852091560A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118347   (813191) от 25.03.2017
+
+Lemongrass - Orion (2017) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mystery Sky (5:10)
+ 02. Kyoto Garden (5:45)
+ 03. Sur la mer (4:31)
+ 04. Sunset Glow (4:39)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:11:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4C41CBDA8877120330FCC92ADF51F862CD630F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008902   (812176) от 20.04.2016
 
 Yuriy From Russia - Distant Love (2016) [MP3|320 кб/с] <Progressive House>
@@ -6,7 +64,7 @@ Yuriy From Russia - Distant Love (2016) [MP3|320 кб/с] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812176.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - The Best Of Silent Shore Records 2017 (2018) [MP3|320 Kbps] <Trance, Progre
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812137.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Dark Sessions 043 (Mixed by Chris Hampshire) (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812136.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Drumcell - Collection 7 Releases (2012-2016) CLR, Droid Recordings [FLAC|Lossles
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812135.jpg" />
 </div>
 
 
@@ -121,7 +179,7 @@ VA - Spring Tube Vocal Themes, Vol.12 (2017) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812134.jpg" />
 </div>
 
 
@@ -150,7 +208,7 @@ VA - Best Of Trancer 2017 (Mixed by Nick Turner) (2018) [MP3|320 Kbps] <Trance, 
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812132.jpg" />
 </div>
 
 
@@ -179,7 +237,7 @@ Luke Terry - Supersonic (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812131.jpg" />
 </div>
 
 
@@ -208,7 +266,7 @@ VA - The Best Of Levitated Music 2017 (2018) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812130.jpg" />
 </div>
 
 
@@ -237,7 +295,7 @@ VA - Trance Classics Collection (2021) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812105.jpg" />
 </div>
 
 
@@ -266,7 +324,7 @@ Aurora B.Polaris - Nostalgia (2017) [MP3|320 Kbps] <Chillstep, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812027.jpg" />
 </div>
 
 
@@ -295,7 +353,7 @@ VA - Inner Balance: Chillout Your Soul 5 (2018) [MP3|320 Kbps] <Downtempo, Chill
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812023.jpg" />
 </div>
 
 
@@ -324,7 +382,7 @@ VA - Lounge Cocktails Vol.3 (Delicious Grooves For Cafe Bar And Hotel Suites) (2
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812022.jpg" />
 </div>
 
 
@@ -353,7 +411,7 @@ VA - Miroslav Vrlik - Best Of 2017 (2018) [MP3|320 Kbps] <Trance, Progressive Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812021.jpg" />
 </div>
 
 
@@ -382,7 +440,7 @@ VA - Magic Of Trance (Mixed by Dr.Gri) (2018) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812019.jpg" />
 </div>
 
 
@@ -411,7 +469,7 @@ Oliver Schories - Fields Without Fences (2015) [FLAC|Lossless|WEB-DL|tracks] <Te
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811788.jpg" />
 </div>
 
 
@@ -440,7 +498,7 @@ ATB - Trilogy (2007) 2CD [FLAC|Lossless|tracks + .cue] <Breakbeat, Trance, Euro 
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811785.jpg" />
 </div>
 
 
@@ -469,7 +527,7 @@ VA - High Class Tech House Music Nonstop (2018) [MP3|320 Kbps] <Minimal, Tech Ho
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811777.jpg" />
 </div>
 
 
@@ -498,7 +556,7 @@ VA - Drum & Bass Annual 2018 Sampler (Viper Presents) (2018) [MP3|320 Kbps] <Dru
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811774.jpg" />
 </div>
 
 
@@ -527,7 +585,7 @@ ScAnDroid Experiment's - The Geometry of Life (2018) Авторская разд
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811751.jpg" />
 </div>
 
 
@@ -556,7 +614,7 @@ VA - Extreme Sports Music Vol 4 (2020) [MP3|320 Kbps] <Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811723.jpg" />
 </div>
 
 
@@ -585,7 +643,7 @@ VA - Space Holidays vol.8 (2016) 3CD [MP3|320 Kbps] <Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811613.jpg" />
 </div>
 
 
@@ -614,7 +672,7 @@ VA - Happy Moments Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|track
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811582.jpg" />
 </div>
 
 
@@ -643,7 +701,7 @@ VA - Essential Lounge & Chillout Erotic Music (2020) [MP3|320 Kbps] <Lounge, Dow
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811579.jpg" />
 </div>
 
 
@@ -672,7 +730,7 @@ VA - Progressive Fullon Trance 2020 Top 40 Chart Hits, Vol. 3 DJ Mix 3Hr (2020) 
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811578.jpg" />
 </div>
 
 
@@ -686,64 +744,6 @@ VA - Progressive Fullon Trance 2020 Top 40 Chart Hits, Vol. 3 DJ Mix 3Hr (2020) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87E9112CD6BB0EA29CC2F2027072104CB2080FC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383459   (811576) от 15.05.2020
-
-Moby - All Visible Objects (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811576.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Morningside
-2. My Only Love
-3. Refuge
-4. One Last Time(   Читать дальше...   )Жанр: Electronic, DowntempoПродолжительность: 01:12:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45DF55518D8F5C17A894CD357D75D870597C33DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383444   (811573) от 15.05.2020
-
-Moby - All Visible Objects (2020) [MP3|320 Kbps] <Electronic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811573.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Morningside
-2. My Only Love
-3. Refuge
-4. One Last Time(   Читать дальше...   )Жанр: Electronic, DowntempoПродолжительность: 01:12:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7E37090F06265537BBF4E2443E645D1EDB82AAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

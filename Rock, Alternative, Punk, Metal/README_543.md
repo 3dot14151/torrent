@@ -1,3 +1,120 @@
+###  Публикация: 532885   (534781) от 09.08.2012
+
+745 - 745 (2009) [MP3|256кб/с] <Rapcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RapcoreПродолжительность: 00:50:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB656EFC891AA010E58D6674AE9DC34A89CFD810
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050838   (534662) от 10.09.2016
+
+Rev Theory - The Revelation (2016) [MP3|320 Kbps] <Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guns
+02. We Own The Night
+03. Red Light Queen
+04. Piece Of Me(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:36:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41B016F76EBA9989276EE1564123A9E0760E404D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051284   (534653) от 10.09.2016
+
+Собаки Качалова - Блюз для тех, кто не спит (2016) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Блюз для тех, кто не спит
+02. Алиса - блюз или блюз, написанный в погоне за белым кроликом
+03. Блюз делающих селфи
+04. У моря (почти блюз)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EEDA956E4F18A2A0B8BFA3FB5847C7158AE0E0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 532926   (534627) от 09.08.2012
+
+Время жатвы - Время жатвы (2012) [MP3|320 кб/с]<Symphonic Metal, Female Vocalists>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534627.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Время жатвы (03:56)
+2.Mater Dolorosa (04:07)
+3.С гор текут облака (05:12)
+4.Восхождение к истокам (04:08)
+5.Вороны (10:11)
+6.Новый мир (03:53)
+7.Создатель боли (05:00)
+8.Outro(Aeternum vale) (04:51)Жанр: Symphonic MetalПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73EA1DFAB6325D0EC2426A6E1F952152F6AF190E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1312394   (534495) от 03.07.2019
 
 Glenn Tipton - Baptizm Of Fire (1997) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
@@ -6,7 +123,7 @@ Glenn Tipton - Baptizm Of Fire (1997) Japan [FLAC|Lossless|image + .cue] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534495.jpg" />
 </div>
 
 
@@ -35,7 +152,7 @@ Unloved - Heartbreak (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Indie Pop
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534490.jpg" />
 </div>
 
 
@@ -64,7 +181,7 @@ PIG - Candy (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Industrial, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534397.jpg" />
 </div>
 
 
@@ -93,7 +210,7 @@ Savoy Brown - City Night (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534392.jpg" />
 </div>
 
 
@@ -122,7 +239,7 @@ The Beatles - Live At The Hollywood Bowl (2016) [FLAC|Lossless|image + .cue] <Cl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534376.jpg" />
 </div>
 
 
@@ -151,7 +268,7 @@ VA - Absolute Rock Ballads Classics (2001) 2CD [MP3|320 Kbps] <Rock, Hard Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534368.jpg" />
 </div>
 
 
@@ -180,7 +297,7 @@ Elton John - Greatest Hits (1974) Club Edition /1992, Polydor/ [FLAC|Lossless]<P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534217.jpg" />
 </div>
 
 
@@ -209,7 +326,7 @@ Mick Jagger - Wandering Spirit (1993) Reissue, 2019, Polydor Records [MP3|320 Kb
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534196.jpg" />
 </div>
 
 
@@ -238,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534019.jpg" />
 </div>
 
 
@@ -273,7 +390,7 @@ Doug Brons - Pull (2021) [FLAC|Lossless|image + .cue] <AOR, Westcoast>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533761.jpg" />
 </div>
 
 
@@ -302,7 +419,7 @@ Hate Eternal - Upon Desolate Sands (2018) [FLAC|Lossless|WEB-DL|tracks] <Death m
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533758.jpg" />
 </div>
 
 
@@ -331,7 +448,7 @@ M.ill.ion - Back on Track (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533755.jpg" />
 </div>
 
 
@@ -360,7 +477,7 @@ Moratory - The Old Tower Burns (2021) [FLAC|Lossless|image + .cue] <Thrash, Punk
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533649.jpg" />
 </div>
 
 
@@ -389,7 +506,7 @@ Rian - Out Of The Darkness (2017) [FLAC|Lossless|image + .cue] <Melodic Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533646.jpg" />
 </div>
 
 
@@ -418,7 +535,7 @@ Jeff Scott Soto - Complicated (2022) Japanese Edition [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533643.jpg" />
 </div>
 
 
@@ -447,7 +564,7 @@ Cult Cinema - Iscariot (2011) [FLAC|Lossless|WEB-DL|tracks] <Crust, Hardcore, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533625.jpg" />
 </div>
 
 
@@ -476,7 +593,7 @@ Saor - Roots (2013) [FLAC|Lossless|image + .cue] <Atmospheric Folk, Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533620.jpg" />
 </div>
 
 
@@ -505,7 +622,7 @@ Odyssey - Odyssey (1999) EP [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533619.jpg" />
 </div>
 
 
@@ -533,7 +650,7 @@ Vanden Plas - The Seraphic Clockwork (2010) Japanese Edition [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533615.jpg" />
 </div>
 
 
@@ -562,7 +679,7 @@ Vanden Plas - The Seraphic Live Works (2017) [FLAC|Lossless|image + .cue] <Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533609.jpg" />
 </div>
 
 
@@ -591,7 +708,7 @@ Seventh Wave - Things To Come (1974) Remastered /2005, Air Mail Archive/ [FLAC|i
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533571.jpg" />
 </div>
 
 
@@ -620,7 +737,7 @@ Seventh Wave - Psi-Fi (1975) Remastered /2005, Air Mail Archive/ [FLAC|image+.cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533566.jpg" />
 </div>
 
 
@@ -634,122 +751,6 @@ Seventh Wave - Psi-Fi (1975) Remastered /2005, Air Mail Archive/ [FLAC|image+.cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:011A23326CD821DFA37111E81C632DC23E7AD223
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926409   (533562) от 10.08.2015
-
-Heavenside - A Long Way To The Stopline (2015) [MP3|320 кб/с]<Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533562.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Похоже, действительно лебединая песня может стать самым интересным открытием года. Лучший Gothic Metal последних нескольких лет: группу HEAVENSIDE и их прощальный альбом "A Long Way To The Stopline". Тульский проект, который построил на своих плечах Михаил Гуз, бывший гитарист группы FORGIVE-ME-NOT, автор песен группы DARK PRINCESS и многих других (   Читать дальше...   )01. Behind The Mirror
-02. A Reason To Fly
-03. The Ghost
-04. Sinnersaint(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:00:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12A872699D8E8A7B729D09840D07CB4F1E2D0511
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155494   (533529) от 03.08.2017
-
-Dan Swano - Moontower (1998) [FLAC|Lossless|image + .cue] <Progressive Metal, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533529.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sun of the Night (5:15)
-2. Patchworks (4:59)
-3. Uncreation (5:41)
-4. Add Reality (6:17)(   Читать дальше...   )Жанр: Progressive Metal, Death MetalПродолжительность: 00:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:961FA9E06BC9153FF39AAAC0666B01BA4C7F83D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239869   (533361) от 08.08.2018
-
-Nocturnal Rites - Shadowland (2002) Japan [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Eyes of the Dead
-02.Shadowland
-03.Invincible
-04.Revelation(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:50:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42F535A5E785628647667486DDFEE8476A514D68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240013   (533360) от 08.08.2018
-
-Jerry Harrison - Casual Gods (1988) [FLAC|Lossless|image + .cue] <Indie, Post-Rock, Post-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533360.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Rev It Up (04:12)
-2. Song Of Angels (03:37)
-3. Man With A Gun (04:39)
-4. Let It Come Down (04:54)(   Читать дальше...   )Жанр: Indie, Post-Rock, Post-PunkПродолжительность: 00:55:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5850007DF0C85A415DF03F5C9D3D33A069527EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

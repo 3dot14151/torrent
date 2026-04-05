@@ -1,3 +1,148 @@
+###  Публикация: 1379295   (840969) от 28.04.2020
+
+Axel Rudi Pell - Sign Of The Times (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Black Serenade (Intro)
+02. Gunfire
+03. Bad Reputation
+04. Sign Of The Times(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:54:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D612A1E08AFB0BA41738F4A131598C25BB012752
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379303   (840857) от 28.04.2020
+
+Led Zeppelin ‎ - Mothership (2007) 2015, Warner Music [FLAC|Lossless|image + .cue] <Psychedelic Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Song Remains the Same (5:31)
+02. Over the Hills and Far Away (4:51)
+03. D’yer Mak’er (4:23)
+04. No Quarter (7:03)(   Читать дальше...   )Жанр: Psychedelic Rock, Hard RockПродолжительность: 02:16:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAD895483C5B83EF4985302B425C3356D1BDBE06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 878558   (840722) от 16.03.2015
+
+Keep of Kalessin - Epistemology (2015) [FLAC|Lossless]<Melodic Black / Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840722.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cosmic Revelation (Intro) 01:13
+2. The Spiritual Relief 09:53
+3. Dark Divinity 07:31
+4. The Grand Design 07:36(   Читать дальше...   )Жанр: Melodic Black / Death MetalПродолжительность: 00:52:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4947E00B4F4A99E7146B7DD1CCE2ED262DC14189
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 878796   (840602) от 16.03.2015
+
+Toto - XIV (2015) [FLAC|Lossless]<Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Running Out Of Time
+02. Burn
+03. Holy War
+04. 21St Century Blues(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:56:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15CE7859200F67828C6AAA0C54D42AB9F2D4EA45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004257   (840310) от 05.04.2016
+
+Confined By Yesterday - Blackmirrors (2016) [MP3|320 кб/с]<Deathcore, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840310.jpg" />
+</div>
+
+
+###  Подробнее
+
+[05:06] 01. The Hunt Is On
+[03:56] 02. Parting
+[04:24] 03. Three Words
+[04:45] 04. Redemption(   Читать дальше...   )Жанр: Deathcore, MetalcoreПродолжительность: 00:50:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0D80C2025B0C631BC5B337DB4CF6C46982AC58E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004239   (840309) от 05.04.2016
 
 Condition Critical - Extermination Plan (2016) [MP3|320 кб/с] <Thrash Metal>
@@ -6,7 +151,7 @@ Condition Critical - Extermination Plan (2016) [MP3|320 кб/с] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840309.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Novembre - Ursa (2016) [MP3|320 кб/с] <Progressive Metal, Doom-Death Metal, D
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840202.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ The Steepwater Band - Shake Your Faith (2016) [MP3|320 кб/с] <Southern Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840200.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840186.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ KharmaGuess - Burn Your Own Church (2015) [MP3|320 Kbps] <Electronic, Metalcore,
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840118.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Bloodbound - War Of Dragons (2017) 2CD, Limited Edition [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840096.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Marc Quee - Better Late Than Never (2017) [FLAC|Lossless|tracks + .cue] <Melodic
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840022.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ VA - Nuggets (Original Artyfacts From The First Psychedelic Era 1965-1968) (1998
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840013.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Blood Red Throne - Imperial Congregation (2021) [FLAC|Lossless|tracks] <Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839944.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Drakkar - Chaos Lord (2021) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839943.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Mind Furniture - An Illustrated Map of the Heart (2021) [FLAC|Lossless|WEB-DL|tr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839939.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ Empire - The Best Of Empire (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839937.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ Katatonia - Mnemosynean (2021) 2xCD [FLAC|Lossless|tracks + .cue] <Doom Metal, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839935.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ Bush - Black And White Rainbows (2017) [FLAC|Lossless|tracks + .cue] <Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839875.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ Robert Palmer - Riptide (1985) Reissue, 2021, Universal Music Group [MP3|320 Kbp
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839822.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ Gus G. - Quantum Leap (2021) [MP3|320 Kbps] <Hard Rock, Heavy Metal, Guitar Inst
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839821.jpg" />
 </div>
 
 
@@ -471,7 +616,7 @@ Nookie - Живы! (2013) [MP3|320 кб/с]<Alternative rock, pop rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839743.jpg" />
 </div>
 
 
@@ -506,7 +651,7 @@ Asking Alexandria - See What's On The Inside (2021) [FLAC|Lossless|tracks + .cue
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839702.jpg" />
 </div>
 
 
@@ -535,7 +680,7 @@ Rockin'1000 - That's Live - Live in Cesena 2016 (2017) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839653.jpg" />
 </div>
 
 
@@ -564,7 +709,7 @@ Deep Purple - All I Got Is You (2017) EP [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839648.jpg" />
 </div>
 
 
@@ -593,7 +738,7 @@ Joe Satriani - Unstoppable Momentum (2013) [MP3|320 кб/с]<Instrumental-Rock, 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839507.jpg" />
 </div>
 
 
@@ -607,151 +752,6 @@ Joe Satriani - Unstoppable Momentum (2013) [MP3|320 кб/с]<Instrumental-Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35EEB80B119A63B6CC3386D99877C7B454B7310B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915039   (839443) от 29.04.2020
-
-The Last Days - When The Tomorrow Is A Grey Day (2010) [FLAC|Lossless]<Shoegaze, Post Black Metal, Post Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When The Tomorrow Is A Grey Day (03:16)
-02. Make The Change...Are Your Last Days (08:58)
-03. The Time Will Never Come Back (09:04)
-04. Soul Of City (09:16)(   Читать дальше...   )Жанр: Shoegaze, Post Black Metal, Post RockПродолжительность: 00:37:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACEA0CCF10FF6D3A13B417F622FC3253CFD33F2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112962   (839402) от 10.03.2017
-
-7Б - Солнцу решать (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839402.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Солнцу решать
-2. Душа моя
-3. Белые ночи
-4. Дети Вавилона(   Читать дальше...   )Жанр: RockПродолжительность: 01:00:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22615722C046BD413796779D036E505C5F1F088F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 309968   (839377) от 17.03.2011
-
-FireForce - March On (2011) [MP3|320 kbps]<Power metal / Heavy metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839377.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Coastal Battery 04:17
-2. The Only Way 04:59
-3. Firestorm 04:02
-4. Horus (Bringer Of Order) 04:26
-5. 1302 - Battle For Freedom 05:15
-6. Moonlight Lady 04:27
-7. Annihilation 04:37
-8. Fly Arrow Fly (Crécy 1346) 03:31
-9. Mona Lisa 03:47
-10. Hold Your Ground 04:04(   Читать дальше...)Жанр: Power metal / Heavy metalПродолжительность: 00:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C85C722121621E8A66FB9E7E1F2CEB6BB1E2E20B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 309850   (839255) от 17.03.2011
-
-Slade - The Live Anthology 1972 - 1982, 2CD (2009) [MP3|320 kbps]<Glam Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839255.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Glam Rock, Hard RockПродолжительность: 02:25:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DB653C8EDA50603A1A46A442F939E2CFA66F5B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 309817   (839100) от 17.03.2011
-
-Slade - Singles Collection, 3CD (2003) [MP3|320 kbps]<Glam Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Glam Rock, Hard RockПродолжительность: 02:14:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B612DB8ABDB1C4647C47A66543612D4A375D9B05
 ```
 
 https://mybot314.ru/tekegram_catalog/

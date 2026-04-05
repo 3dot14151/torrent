@@ -6,7 +6,7 @@ AC/DC (ACDC) - Family Jewels (2005) 2xDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47408.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Black Sabbath - The Last Supper '99  (2015) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47406.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Beth Hart / Live at Paradiso (2005) DVD9 <Blues rock, Jazz fusion, Soul>
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47314.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47306.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Jeff Lynne's ELO - Wembley Or Bust (2017) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47279.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Chickenfoot - Get Your Buzz On Live (2010) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47188.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Def Leppard - Historia: In the Round In Your Face (2001) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47182.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Depeche Mode - Live In Berlin (2014) 2хDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47089.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Lady GaGa Presents: The Monster Ball Tour at Madison Square Garden (2011) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47068.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Paul McCartney - The McCartney Years (2007) 3xDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46996.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46986.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Jimmy Page & Robert Plant - No Quarter [Unledded] DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46984.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Carlos Santana present Blues At Montreux  B.Gay, C.C.Brown,B Parker (2004) 3xDVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46978.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ THe Who - The Kids Are Alright (2004) [DTS|1510 Kbps] <Rock>
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46976.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Vaya Con Dios - the ultimate collection (2006) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46961.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Deep Purple - Perfect Strangers Live 1984 (2013) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46883.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Deep Purple: Live In California 1974 (2005) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46880.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Metallica - Live Shit: Binge & Purge (San Diego 1992 & Seattle 1989) (2002) (2xD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46786.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Eurythmics Ultimate Collection  (2005) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46685.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Dire Straits - Rockpalast (1979) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46684.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Metallica - Quebec Magnetic (2012) DVD9+DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46678.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ METALLICA  -  Cunning stunts (live at Texas, 1997) DVD9+DVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46669.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Judas Priest - Screaming for Vengeance (Special 30TH Anniversary Edition) (Bonus
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46653.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Cinderella - In Concert: (1991) Remastered Edition! (2011) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46652.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ Grand Funk & Mark Farner (2005) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46651.jpg" />
 </div>
 
 
@@ -725,7 +725,7 @@ Styx -Counght In The Akt- 1984 (2007) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46641.jpg" />
 </div>
 
 

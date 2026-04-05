@@ -1,3 +1,113 @@
+###  Публикация: 1332156   (316253) от 19.10.2019
+
+Наталья Андреева | Ад под ключ (2019) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тринадцатый роман цикла о сыщике Леонидове.
+
+О героях нашего времени спорят много. А есть ли они вообще? Что тут сказать? Какое время, такие и герои: неоднозначные. Алексею Леонидову предстоит сделать непростой выбор. Дмитрий Сажин, конечно, герой. Создал с нуля финансовую империю, разорился, получив срок, но в тюрьме не сломался, хотя она изменила его не в лучшую (   Читать дальше...   )Жанр: Современные детективыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D88EAE5A11275CCCACAEA505205CFF5A28201B46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182743   (314745) от 11.11.2017
+
+Федерико Аксат | Последний шанс (2017) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неизлечимо больной бизнесмен Тед Маккей собирается застрелиться, когда к нему является незнакомец с заманчивым предложением: если Тед убьет двоих – преступника, скрывающегося от правосудия, и невинного человека, который сам хочет расстаться с жизнью, – тогда взамен такой же киллер-самоубийца убьет его самого. Семья Теда будет горевать, но избежит позора…
+Соглашаясь, (   Читать дальше...   )Жанр: Зарубежные детективы, ТриллерыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:988EA042A7C29B35C24265A3CBE698EC2DCED216
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182785   (314631) от 11.11.2017
+
+Себастьян Фитцек | Посылка (2017) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314631.jpg" />
+</div>
+
+
+###  Подробнее
+
+После изнасилования в гостиничном номере, где останавливалась во время научной конференции, врач-психиатр Эмма Штайн больше не выходит из дома. Она единственная из нескольких жертв маньяка-психопата осталась в живых и боится, что преступник снова настигнет ее, чтобы завершить свое страшное дело. Доведенная до паранойи, в безопасности Эмма чувствует себя только в (   Читать дальше...   )Жанр: Зарубежные детективы, ТриллерыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52C9C0AD7F87B9B5D79957D632FB9D2D6B64FD50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955686   (314029) от 25.11.2015
+
+Стивен Кинг | Кто нашел, берет себе (2015) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314029.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй роман цикла «Трилогия Билла Ходжеса».
+«Просыпайся, гений» – с этих слов начинается новый потрясающий роман Стивена Кинга, книга о силе Слова, в какой-то степени продолжающая историю, которую писатель начал в романе «Мистер Мерседес», и в то же время перекликающаяся с одним из лучших его произведений – «Мизери».
+
+Гений – писатель Ротстайн, прежде бунтарь, а (   Читать дальше...   )Жанр: Современные детективы, Полицейские детективы, Зарубежные детективыПеревод: Виктор ВеберФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6D73EFB6F1B55144578FA83DCD5B383783B866D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1332407   (313987) от 20.10.2019
 
 Николай Леонов, Алексей Макеев | Похищенному верить [сборник] (2018) [FB2]
@@ -6,7 +116,7 @@
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313987.jpg" />
 </div>
 
 
@@ -32,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313968.jpg" />
 </div>
 
 
@@ -58,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313698.jpg" />
 </div>
 
 
@@ -84,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313696.jpg" />
 </div>
 
 
@@ -110,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312403.jpg" />
 </div>
 
 
@@ -138,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312402.jpg" />
 </div>
 
 
@@ -166,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312036.jpg" />
 </div>
 
 
@@ -192,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311915.jpg" />
 </div>
 
 
@@ -219,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311840.jpg" />
 </div>
 
 
@@ -245,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311677.jpg" />
 </div>
 
 
@@ -271,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311635.jpg" />
 </div>
 
 
@@ -297,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311520.jpg" />
 </div>
 
 
@@ -323,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311453.jpg" />
 </div>
 
 
@@ -350,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311303.jpg" />
 </div>
 
 
@@ -376,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311298.jpg" />
 </div>
 
 
@@ -405,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310092.jpg" />
 </div>
 
 
@@ -431,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310004.jpg" />
 </div>
 
 
@@ -457,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309945.jpg" />
 </div>
 
 
@@ -483,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309835.jpg" />
 </div>
 
 
@@ -512,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309833.jpg" />
 </div>
 
 
@@ -540,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309828.jpg" />
 </div>
 
 
@@ -566,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309818.jpg" />
 </div>
 
 
@@ -578,111 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F419A199EAFB47DCE5A9FDF2270696B6D4202BC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960334   (309287) от 27.11.2015
-
-Франк Тилье | Головоломка (2015) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309287.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новом триллере Франка Тилье «Головоломка» герои Илан и Зоэ, профессиональные охотники за сокровищами, внедряются в таинственную игру, где главный приз составляет триста тысяч евро, а цена ее – человеческая жизнь. Правила игры им неизвестны, они знают лишь ее название: «Паранойя». В горах на территории заброшенной психиатрической лечебницы восемь участников должны (   Читать дальше...   )Жанр: Триллеры, Зарубежные детективыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F02C7CAFFE6A4D744B5240B39FF93FEE8F8FC019
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960315   (309283) от 27.11.2015
-
-Татьяна Полякова | Коллекционер пороков и страстей (2015) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309283.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девушка, Джокер, Поэт и Воин – наша маленькая компания занимается расследованием преступлений.
-К нам часто обращаются люди, разочарованные работой полиции. Так произошло и на этот раз. Месяц назад расстреляли семью известного художника и коллекционера Натана Лотмана. Выжить удалось лишь внучке Надежде. Теперь мы дружно ломаем голову: кто и за что так жестоко расправился (   Читать дальше...   )Жанр: ДетективыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C1CB2682B225FE8E694B2913FC3501E2D8F4082
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077165   (308607) от 27.11.2016
-
-Иван Любенко | Черновик беса (2016) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308607.jpg" />
-</div>
-
-
-###  Подробнее
-
-В конце июня 1913 года Клим Пантелеевич Ардашев получает приглашение от старого друга погостить в его имении на Черноморском побережье. Заметные нотки беспокойства в письме заставляют адвоката не откладывать поездку. Уже находясь в Сочи, а потом и в Тифлисе, он становится свидетелем череды таинственных преступлений… А всё началось со случайно взорвавшейся керосиновой (   Читать дальше...   )Жанр: Исторические детективы, Полицейские детективыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96FC77D612A5EC885A95EC07EA050C98D7237C4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422479   (308427) от 09.11.2020
-
-Джек Кетчам | Девушка напротив (2017) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308427.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лето 1958 года. Эпоха Холодной войны. Америка живет на грани между постоянным страхом и сытым обывательским умиротворением. Во время ловли раков подросток Дэви Моран знакомится со своей новой соседкой Мэг Лафлин, которая после трагической гибели родителей вместе с сестрой Сьюзен переехала жить к своей тёте Рут Чандлер. То, что могло бы стать трогательной историей (   Читать дальше...   )Жанр: Детектив, Триллер, Про маньяковФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A6637824D31051C3BFF309D813F7F3559898CED
 ```
 
 https://mybot314.ru/tekegram_catalog/

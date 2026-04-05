@@ -6,7 +6,7 @@ DipTrace 5.1.0 + 3D Models [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36286.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34981.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ LiraLand ЛИРА-САПР + САПФИР 2024 R2.3 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32574.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Altair PollEx 2025.0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30118.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Altair PSIM 2025.0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30117.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23808.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Ashampoo 3D CAD Professional 12.0.0 Portable by FC Portables [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20441.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ ZWCAD 2026 SP0 Professional [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17712.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Plexim Plecs 4.9.5 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17686.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Graebert ARES Mechanical 2026.1 [Multi]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16778.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ ZWCAD MFG 2026 SP0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15650.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ ZW3D 2026 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15392.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Proteus Professional 9.0 SP2 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13515.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ KiCad 9.0.3 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11561.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Keysight Advanced Design System 2026 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9342.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Graebert ARES Commander 2026.1 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8998.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ ARES Electrical 2026.1 [Multi]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8992.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ ProfiCAD 13.1.7 [Multi]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5266.jpg" />
 </div>
 
 
@@ -466,60 +466,6 @@ ProfiCAD - программа, которая будет очень полезн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:500FAF6679897D349C57C968EF8051A6185BC310
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817443   (3526) от 10.09.2025
-
-Archicad 28.3.0 Build 6003 [Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3526.jpg" />
-</div>
-
-
-###  Подробнее
-
-ArchiCAD - это мощное приложение моделирования, которое позволяет архитекторам более эффективно проектировать здания с использованием технологии Virtual Building. ArchiCAD позволяет архитекторам сконцентрироваться именно на проектировании, выполняя эту работу самостоятельно или в коллективе, обмениваясь при этом данными с консультантами и специалистами в других областях.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC2A03A40F17FBA0847B64906D7CA4439E880573
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820818   (93) от 29.09.2025
-
-Red Cad App 3.24.3.0 [Multi]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_93.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предварительные знания не требуются; всего 5 шагов отделяют вас от профессионального CAD-проектирования. - Это RED CAD APP.
-RED CAD сочетает интуитивное управление с практичным использованием, обеспечивая профессиональные результаты.
-Благодаря интерфейсу PDF, DWG и DXF проблемы с совместимостью остались в прошлом! Выберите мастер импорта, вставьте план фона, измерьте (   Читать дальше...   )Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04A3FD86D17C17FC2F6EEB92765201A1D5263506
 ```
 
 https://mybot314.ru/tekegram_catalog/

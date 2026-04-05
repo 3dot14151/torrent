@@ -1,3 +1,32 @@
+###  Публикация: 1778020   (28284) от 08.02.2025
+
+Network for Everyone (NFE, N4E) | Внедрение Cisco SD-WAN (Viptela). Базовый курс (2024) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кому подойдёт этот курс:Системные инженеры
+Системные архитекторы
+Администраторы, ответственные за эксплуатацию и развитие сети WANЧему вы научитесь:Понимать логику работы решения Cisco SD-WAN
+Внедрять контроллеры vManage, vSmart и vBond(   Читать дальше...   )Производство: Network for Everyone (NFE, N4E)Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 10:35:18Реклама: Присутствуют сторонние вставки и наложения
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE3003B117E7F483147DD547F0A60A6802827352
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1778527   (28269) от 08.02.2025
 
 Светлана Яковлева | Итальянская паста (2023) WEB-DL [RU]
@@ -6,7 +35,7 @@
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28269.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ OK English School, Елена Вогнистая | Начинающим. МЕГ�
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28116.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ PurpleSchool, Антон Ларичев, Дмитрий Мозулёв | Сов�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28092.jpg" />
 </div>
 
 
@@ -89,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28054.jpg" />
 </div>
 
 
@@ -118,7 +147,7 @@ Andrew Perkins | Build a CMS in Symfony 2 (2014) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28021.jpg" />
 </div>
 
 
@@ -144,7 +173,7 @@ Annie Leibovitz | Annie Leibovitz Teaches Photography (2017) WEB-DL [RU]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27998.jpg" />
 </div>
 
 
@@ -170,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27948.jpg" />
 </div>
 
 
@@ -198,7 +227,7 @@ Product University, Дмитрий Жечков, Артем Новиков | Сu
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27909.jpg" />
 </div>
 
 
@@ -227,7 +256,7 @@ Udemy, Евгений Курилов | Premiere pro для фрилансера 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27908.jpg" />
 </div>
 
 
@@ -255,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27886.jpg" />
 </div>
 
 
@@ -284,7 +313,7 @@ Skillbox, Наталья Бондаренко, Юрий Новожилов | Л�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27868.jpg" />
 </div>
 
 
@@ -311,7 +340,7 @@ Microarch, Кирилл Ветчинкин | Микросервисная арх
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27797.jpg" />
 </div>
 
 
@@ -340,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27761.jpg" />
 </div>
 
 
@@ -366,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27753.jpg" />
 </div>
 
 
@@ -393,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27747.jpg" />
 </div>
 
 
@@ -419,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27740.jpg" />
 </div>
 
 
@@ -445,7 +474,7 @@ Convert Monster | Яндекс.Метрика (2014) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27705.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ D-Link | Видеоматериалы про основы сетевых тех�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27704.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ Dartware | Многопоточность в C++ (2018) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27701.jpg" />
 </div>
 
 
@@ -523,7 +552,7 @@ Frontendblok, Анна Блок | «Продвинутый курс по вёр�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27675.jpg" />
 </div>
 
 
@@ -549,7 +578,7 @@ Deworker Pro, Дмитрий Елисеев | Большой стрим про S
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27664.jpg" />
 </div>
 
 
@@ -576,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27662.jpg" />
 </div>
 
 
@@ -602,7 +631,7 @@ Deworker Pro, Дмитрий Елисеев | Способы ускорения 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27659.jpg" />
 </div>
 
 
@@ -628,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27655.jpg" />
 </div>
 
 
@@ -654,7 +683,7 @@ PurpleSchool, Антон Ларичев, Игорь Матюшкин | Осно�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27651.jpg" />
 </div>
 
 
@@ -665,32 +694,6 @@ PurpleSchool, Антон Ларичев, Игорь Матюшкин | Осно�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2559F3760FDDC3B07C2D5F71A485DF6FE1E22FE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779752   (27647) от 14.02.2025
-
-Rebrain, Денис Сальников | RabbitMQ (2024) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27647.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс "RabbitMQ" от Rebrain состоит из 11 модулей, охватывающих все аспекты работы с RabbitMQ: начиная с основ AMQP, управления очередями и маршрутизацией и заканчивая продвинутыми темами, такими как Dead letter exchange, RPC, TLS, кластеризация, плагины, производительность и мониторинг. Программа курса предназначена для DevOps-инженеров, системных администраторов, (   Читать дальше...   )Производство: RebrainЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 18:41:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9275A300B515FCDC24AF948D9540052EE255A709
 ```
 
 https://mybot314.ru/tekegram_catalog/

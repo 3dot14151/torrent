@@ -1,3 +1,81 @@
+###  Публикация: 1736672   (50166) от 13.07.2024
+
+Eternal Escape: castle of shadows (2024) [Ru/Multi] (1.0) Scene TiNYiSO
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50166.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это игра-головоломка с легкой атмосферой, размещена в маноре вампира, вдохновленная опытом игры в "Castlevania series" и объединенная с пониманием и размышлением о культуре вампиров. Всё начинается с того, что вы лишились памяти и теперь отчаянно пытаетесь отыскать выход из замка. Сила страшной магии заключила замок в страшный бесконечный цикл. Максимально (   Читать дальше...   )Тип издания: SceneРазработчик: RobotЖанр: Приключенческие игры, Ролевые игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24FF2B3390D02F8E5A4304DC666339B8BC3C30AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736986   (50088) от 14.07.2024
+
+HEIRS / Наследники (2024) [Ru/En] (Build 14928619) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50088.jpg" />
+</div>
+
+
+###  Подробнее
+
+Heirs – на самом деле наследство может быть разным, и не всегда оно может оказаться приятным, не так ли? Так откройте же для себя двери удивительного мира, в котором оживает прошлое и с каждым новым шагом вас ждет нечто совершенно новое. Чего же вы ждете? Как насчет сочетания оригинально сюжета, атмосферы и конечно же силы земли?Тип издания: RepackРазработчик: TEStudioЖанр: Приключенческие игры, СимуляторыЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86F307349D4FF4512424FAB04994AA236160A4E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736982   (50027) от 14.07.2024
+
+HEIRS / Наследники (2024) [Ru/En] (Build 14928619) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50027.jpg" />
+</div>
+
+
+###  Подробнее
+
+Heirs – на самом деле наследство может быть разным, и не всегда оно может оказаться приятным, не так ли? Так откройте же для себя двери удивительного мира, в котором оживает прошлое и с каждым новым шагом вас ждет нечто совершенно новое. Чего же вы ждете? Как насчет сочетания оригинально сюжета, атмосферы и конечно же силы земли?Тип издания: SceneРазработчик: TEStudioЖанр: Приключенческие игры, СимуляторыЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B3CB9B3DBFC7DD4CDB08BEF7EA02A97B9E6CAF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1657430   (49990) от 15.07.2024
 
 Daymare: 1994 Sandcastle (2023) [Ru/Multi] (1.2) License GOG
@@ -6,7 +84,7 @@ Daymare: 1994 Sandcastle (2023) [Ru/Multi] (1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49990.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ The Last Alchemist (2024) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49976.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Madhouse Madness: Streamer's Fate (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49965.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ KAKU: Ancient Seal (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49903.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Layers of Fear (2023) [Ru/Multi] (1.6.1/dlc) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49888.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Layers of Fear 2 (2019) [Ru/Multi] (1.00) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49865.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ KAKU: Ancient Seal (2024) [Ru/Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49863.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Yuppie Psycho (2019) [Ru/Multi] (2.7.5) License GOG [Executive Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49840.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Antichamber (2013) [Ru/En] (build 296940) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49830.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Supernatural (2024) [Ru/Multi] (1.2.1) Scene FAiRLIGHT
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49695.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Amber Alert (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49693.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Grouls (2024) [En] (0.5) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49643.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Nobody Wants to Die (2024) [Ru/Multi] (1.0.1.0.46.065) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49476.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Suzerain (2020) [En] (3.0.9/dlc) Scene Tenoke [Supporter Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49460.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Nobody Wants to Die (2024) [Ru/Multi] (1.0.1.0.46.065) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49421.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Under The Waves (2023) [Ru/Multi] (01.09) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49416.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Apollo Justice: Ace Attorney Trilogy (2024) [Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49390.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Agatha Christie: Evil Under the Sun / Агата Кристи: Зло под С�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49388.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Until Then (2024) [Multi] (1.2) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49308.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Crow Country (2024) [Multi] (20240525) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49253.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Blacksad: Under the Skin (2019) [Ru/Multi] (20270705) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49142.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Ducky: The Brave (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49128.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ The Dawning Clocks of Time: Remake (2024) [En] (1.0.0.0701.12) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49094.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ The Dawning Clocks of Time Remake – ремейк инди-игры, перен
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B7F8933BAFB78C378B10CA6A1BD3AE29918E07C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738572   (49093) от 23.07.2024
-
-SCHiM (2024) [Ru/Multi] (1.0) Repack dixen18
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шхим - это дух, сущность любого объекта, вещи или живого существа. У всего в мире есть свой шхим, и его ни в коем случае нельзя отделять! К несчастью, именно это произошло с твоим шхимом. Сможешь ли добраться до него, пока не станет слишком поздно?Тип издания: RepackРазработчик: Ewoud van der Werf, Nils SlijkermanЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55C5E350C43E334F57FA7060EA8A4727CA545AD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738518   (49074) от 23.07.2024
-
-ReThink 5 (2024) [En] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49074.jpg" />
-</div>
-
-
-###  Подробнее
-
-В ReThink 5 вы окажетесь в футуристическом мире, где свет и цвет - ваши главные инструменты. Управляя лазерами, вы будете распутывать хитросплетения головоломок от первого лица. Каждая загадка - это вызов вашей сообразительности, а спокойная атмосфера игры позволит сосредоточиться на решении даже самых сложных задач.Тип издания: RepackРазработчик: YaekoЖанр: Logic, PuzzleЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9126E3B9D70A64CD99314BF00130349F6D2D5EDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738852   (48927) от 25.07.2024
-
-Nobody Wants to Die (2024) [Ru/Multi] (1.0.1.0.46.065) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nobody Wants to Die с головой окунает вас в Нью-Йорк будущего, где смерть - пережиток прошлого. Сейчас 2329 год, и Большое Яблоко - это огромный мегаполис, стоящий на краю пропасти. Бессмертие стало реальностью, но за него приходится платить. Добро пожаловать в мир, где все поставлено на карту. Вы становитесь на место детектива Джеймса Карры. Он опытный следователь (   Читать дальше...   )Тип издания: LicenseРазработчик: Critical Hit GamesЖанр: Приключение, Ролевые игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54EA9AA81242A0CC7C38DA4CA25A8B7A11859073
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,83 @@
+###  Публикация: 1848997   (1053166) от 20.01.2026
+
+Дмитрий Мамин-Сибиряк | Песня мистера Каль (2026) [MP3, Александр Васильев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053166.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Театр у вас дома.
+Дмитрий Наркисович Мамин-Сибиряк (1852–1912) – русский писатель.
+Произведения писателя посвящены описанию уральских промышленников, горных рабочих. Детям многих поколений Дмитрий Наркисович известен как замечательный сказочник. В его историях оживают детские игрушки и разговаривают различные растения, бродят водяные и спорят буквы, а (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:30:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C714FF0CBF959A621E37A6B926EE8AE824AB786
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848097   (1052769) от 17.01.2026
+
+Николай Васильевич Гоголь, Федор Михайлович Достоевский, Антон Павлович Чехов и др. | Рождественская шкатулка. Рассказы русских классиков (2025) [MP3, Александр Васильев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052769.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уникальный сборник собрал лучшие рождественские и новогодние рассказы величайших отечественных писателей: Н. В. Гоголя, Н. С. Лескова, Ф. М. Достоевского, А. И. Куприна, В. В. Розанова, М. М. Зощенко, А. П. Чехова, В. А. Никифорова-Волгина. В произведениях соединяются традиционное христианство и народный фольклор, Истории призывают нас к любви и милосердию, к тому, (   Читать дальше...   )Жанр: КлассикаИздательство: ЭксмоПродолжительность: 06:17:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1D32B1B7092D11FC5FA50A4D7125DF5CDA50FD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848090   (1052596) от 16.01.2026
+
+Брет Гарт | Маленький старатель и другие рассказы (2016) [MP3, Александр Котов, Александр Клюквин]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перу Брета Гарта принадлежат роман «Гэбриел Конрой», ряд повестей, оригинальные стихотворения, популярные в свое время литературные пародии (на Диккенса, Виктора Гюго и др.) и даже пьеса, написанная в соавторстве с Марком Твеном. Однако наибольшую популярность ему принесли рассказы, а в рассказах — образы простых людей Дикого Запада.Жанр: Зарубежная классикаИздательство: СОЮЗПродолжительность: 03:55:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A5E838AEEF1E749B4C2FD820981E940EDA1C651
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1848093   (1052590) от 16.01.2026
 
 Николай Лейкин | На побывке (2025) [MP3, Геннадий Постригайло]
@@ -6,7 +86,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052590.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052586.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052522.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052458.jpg" />
 </div>
 
 
@@ -110,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052313.jpg" />
 </div>
 
 
@@ -138,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052171.jpg" />
 </div>
 
 
@@ -165,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052116.jpg" />
 </div>
 
 
@@ -191,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052097.jpg" />
 </div>
 
 
@@ -217,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052060.jpg" />
 </div>
 
 
@@ -243,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051801.jpg" />
 </div>
 
 
@@ -269,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051509.jpg" />
 </div>
 
 
@@ -295,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051487.jpg" />
 </div>
 
 
@@ -321,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051483.jpg" />
 </div>
 
 
@@ -347,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051425.jpg" />
 </div>
 
 
@@ -374,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051424.jpg" />
 </div>
 
 
@@ -400,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051416.jpg" />
 </div>
 
 
@@ -426,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051415.jpg" />
 </div>
 
 
@@ -452,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051294.jpg" />
 </div>
 
 
@@ -478,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050474.jpg" />
 </div>
 
 
@@ -506,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049147.jpg" />
 </div>
 
 
@@ -532,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048831.jpg" />
 </div>
 
 
@@ -559,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048770.jpg" />
 </div>
 
 
@@ -588,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048755.jpg" />
 </div>
 
 
@@ -601,89 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:982DBD01F521C2FF74E2326CAC848CBA249E430A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842295   (1048639) от 15.12.2025
-
-Анатолий Рыбаков | Тяжёлый песок (2025) [MP3, Александр Клюквин]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: «Великая Отечественная война (ИД СОЮЗ)».
-«Тяжёлый песок» одно из самых значительных произведений Анатолия Наумовича Рыбакова (1911–1998). Роман в свое время отказались публиковать «Новый мир» и «Дружба народов» и лишь редактор журнала «Октябрь» – Анатолий Ананьев решился напечатать роман на страницах своего журнала. А в 1979 году «Тяжелый песок» вышел (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 12:35:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E964C03EB2BAB4495047E6D4BA9085E4F0ABF163
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841645   (1048359) от 14.12.2025
-
-Бенедикт Спиноза | Этика (2025) [MP3, Артем Пахомов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048359.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Этика» Спинозы – это строгая логика, глубина мысли и большое влияние на великие умы прошлого.
-Познайте идеи, которые формировали культуру и науку нескольких столетий!
-Характерной чертой трактатов Спинозы является строгая последовательность мысли и четкая организация текста. Идеи Спинозы, особенно его центрального произведения, «Этики», оказали мощное воздействие (   Читать дальше...   )Жанр: Вопросы бытия, Зарубежная классика, Классическая проза, Онтология, Философские концепцииИздательство: Аудиокниги (АСТ)Продолжительность: 11:23:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34C9DE258E5546365F5DE4834FB0A7FAF7F8610E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841643   (1048082) от 12.12.2025
-
-Лев Толстой | Хаджи-Мурат (2025) [MP3, Денис Борисов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048082.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герой повести Хаджи-Мурат — реальное историческое лицо. Он перешел на сторону русских в Кавказской войне. Автора привлекала сила духа и жизнелюбие этого человека, поставленного в тяжелейшие условия.
-Писатель мастерски создал достоверный, точный портрет Хаджи-Мурата, ибо он владел пониманием «человека вообще».
-Творчество Льва Толстого оказало огромное влияние на развитие (   Читать дальше...   )Жанр: Русская литература, Классика, Драма, Проза, Реализм, ВоенноеИздательство: ЛитРесПродолжительность: 04:16:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B55CFD6F56D440D9A242ACA037B5B9D417C76A67
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,125 @@
+###  Публикация: 567679   (396148) от 30.10.2012
+
+VA - Halloween Nights (2012) [MP3|320 кб/с]<Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396148.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Calippo - Halloween - Original Mix (6:38)
+2. Dinka - Here I Am - Original Mix (6:36)
+3. Ad Brown - Good Feeling - Chris Reece Remix (6:06)
+4. George F. Zimmer - Progressive Nights - Original Mix (6:41)
+5. Johnson & Haske vs. Jerome Isma-Ae feat. Mo Morsy - Too Bad to Forgive - Original Mix (8:07)
+6. Leventina - Right or Wrong - Original Mix (6:22)
+7. Dave202 - Vintage - Original Mix (6:37)
+8. Helvetic Nerds - Herodes - Original Mix (6:06)
+9. Jidax - Thunder - Original Mix (5:53)
+10. Hailing Jordan - Rat - Original Mix (5:58)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:09:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C418E338B44248E0092814744884AAF041B313BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171528   (395816) от 05.10.2017
+
+VA - Autumn Chill: Ecliptic (2017) [MP3|320 Kbps] <Downtempo, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Kasstedy - Comedown (Original Mix)  5:45
+02.  Seven24 - Believe In A Better Future (feat. Soty) (Original Mix)  5:45
+03.  Alexander Volosnikov - Ancient Shores (Original Mix)  5:09
+04.  Soty - The Assent (Original Mix)  3:46(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 01:40:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1519C7542C6FB5163EF19263505DAF780F545A37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171557   (395811) от 05.10.2017
+
+VA - Embassy Of Lounge Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Life Audience - All Day (Original Mix)  5:56
+02.  Xemplify - Metamorphosis (Original Mix)  6:44
+03.  Krystian Shek - Memories (Original Mix)  4:02
+04.  Ambient North - Dark Keys (Original Mix)  3:48(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:52:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBE6EC50D8EA616B5019B373C4BE0CA8FDE85266
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171573   (395765) от 05.10.2017
+
+VA - Amsterdam Coffeeshop Chillout Vol.12 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Deep House>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Soulful-Cafe - Reach For Me (Radio Version)  3:13
+02.  Dreadboxx - Todo Nascido  3:50
+03.  Soulful-Cafe - I Wish That I Could (Radio Version)  3:24
+04.  Tedjep Soulful House - No One Is Giving You Guarantee  4:37(   Читать дальше...   )Жанр: Downtempo, Chillout, Deep HouseПродолжительность: 01:29:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:789CC08369747F9941C2E9D419442AB025F1D985
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1171611   (395751) от 05.10.2017
 
 VA - Aly & Fila - Future Sound Of Egypt 516 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
@@ -6,7 +128,7 @@ VA - Aly & Fila - Future Sound Of Egypt 516 (2017) [MP3|320 Kbps] <Trance,Uplift
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395751.jpg" />
 </div>
 
 
@@ -35,7 +157,7 @@ VA - Cafe Arabia (2017) [MP3|320 Kbps] <Lo-Fi, Ethnic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395749.jpg" />
 </div>
 
 
@@ -64,7 +186,7 @@ VA - Autumn Chill: Ecliptic (2017) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Chi
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395707.jpg" />
 </div>
 
 
@@ -93,7 +215,7 @@ VA - Ethno Chill Out Vol.1(2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395706.jpg" />
 </div>
 
 
@@ -122,7 +244,7 @@ Diary of Dreams - Hell in Eden (2017) [MP3|320 Kbps] <Darkwave, Gothic Rock>
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395528.jpg" />
 </div>
 
 
@@ -151,7 +273,7 @@ VA - New York Disco House Grooves Vol.1: Manhattan Night Club Selection (2012) [
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395085.jpg" />
 </div>
 
 
@@ -186,7 +308,7 @@ VA - Markus Schulz - Global DJ Broadcast (Watch the World Deluxe Special) (2017)
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394897.jpg" />
 </div>
 
 
@@ -215,7 +337,7 @@ VA - Macarize Autumn Essentials (2017) [MP3|320 Kbps] <Progressive Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394850.jpg" />
 </div>
 
 
@@ -244,7 +366,7 @@ Fad Gadget - 4 Albums (1980 - 1984) Reissue CD, Mute, 1991 [MP3|320 Kbps] <Elect
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394838.jpg" />
 </div>
 
 
@@ -273,7 +395,7 @@ Yotto - North (EP) - 2017 [MP3|320 Kbps] <Tech House, Progressive>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394778.jpg" />
 </div>
 
 
@@ -302,7 +424,7 @@ VA - I Love Chill Vol.2 (Finest Ambient Lounge And Chillout Music) (2017) [MP3|3
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394777.jpg" />
 </div>
 
 
@@ -331,7 +453,7 @@ VA - Tiesto Club Life Vol.5 China (2017) [MP3|320 Kbps] <House, Big Room, Electr
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394715.jpg" />
 </div>
 
 
@@ -360,7 +482,7 @@ VA - Synth Love Affair Vol. 1 (2016) [FLAC|Lossless|WEB-DL|tracks] <Dreamwave, S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394670.jpg" />
 </div>
 
 
@@ -389,7 +511,7 @@ AstroPilot - Thirty Three (2017) [MP3|320 Kbps] <Psychedelic, Progressive Trance
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393974.jpg" />
 </div>
 
 
@@ -418,7 +540,7 @@ VA - Art Of More (Mixed By Ismix) - 2013 [MP3|320 кб/с]<Tech House, Deep Hous
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393963.jpg" />
 </div>
 
 
@@ -447,7 +569,7 @@ Saltillo - Monocyte (2012) [FLAC|Lossless]<Downtempo, Trip-Hop, Noise>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393956.jpg" />
 </div>
 
 
@@ -482,7 +604,7 @@ Depeche Mode - Cover Me (Remixes) (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393779.jpg" />
 </div>
 
 
@@ -511,7 +633,7 @@ VA - Deep Flavors (2017) [MP3|320 Kbps] <House, Tech House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392092.jpg" />
 </div>
 
 
@@ -540,7 +662,7 @@ VA - New York Fashion House (A Finest House Selection) (2017) [MP3|320 Kbps] <Ho
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392090.jpg" />
 </div>
 
 
@@ -569,7 +691,7 @@ VA - 5 Years of Saturate Audio (Mixed by Basil O'glue & Styller) (2017) [MP3|320
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392065.jpg" />
 </div>
 
 
@@ -598,7 +720,7 @@ Sander van Doorn pres. Purple Haze - SPECTRVM (2017) [MP3|320 Kbps] <House, Prog
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392037.jpg" />
 </div>
 
 
@@ -627,7 +749,7 @@ VA - Acoustic Chillout Session (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391373.jpg" />
 </div>
 
 
@@ -641,122 +763,6 @@ VA - Acoustic Chillout Session (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFA85427F25D87666234AEA63391BAADE8047CB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173097   (391360) от 10.10.2017
-
-VA - Ahmed Romel - Orchestrance 213 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night Sky Feat. Sonia Suvagau - To Be Who We Truly Are (Afternova Remix)
-02. Saints And Sinners - Peace (Breakfast Remix)
-03. Amine Maxwell - Aspen (Alexey Ryasnyansky Remix)
-04. Sepehr Nazari Presents Hypersia & Sebastian Montano - Legends (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:00:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8274B4495FC750391D8E57D18AE7C88E0C1B895
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173165   (391352) от 10.10.2017
-
-VA - Best Of Electronic Music (2017) [MP3|320 Kbps] <Downtempo, Chillout, Electronic>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sonic Scope - Kryshen (Original Mix)  7:15
-02.  LasImagenes - Anna (Original Mix)  3:12
-03.  Sebastian Strzesniewski - Islas Santanilla (Original Mix)  4:47
-04.  Dmitry Lee'O - In Blue (Original Mix)  2:17(   Читать дальше...   )Жанр: Downtempo, Chillout, ElectronicПродолжительность: 01:28:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6969C82C5DE3C474DCA6242AA59A36D31803CEA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172907   (391300) от 10.10.2017
-
-VA - Kamasutra Tantra Music, Vol 5: Sounds of Love (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391300.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sanjay Farrell - Spirit Of Bali 05:14
-02. Jagdish Kay - Goa Sunrise 05:08
-03. Chanda Day - Positive Energy 05:32
-04. Laxmi Baan - Body And Spirit 06:20(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:47:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:936BAF8E067AF1C048C181C544A5F0B26104913E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173070   (391289) от 10.10.2017
-
-VA - Underground Trance (2017) [FLAC|Lossless|tracks] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Farcoste – I Feel You In Thousand Kilometres (06:22)
-02. Skyrend – Magic Moon (05:02)
-03. Bekar-B – Birth To Sky (05:47)
-04. Owl Stone – Breath On Water (07:07)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:58:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5C4832E7B6AE3D6DAC871A56A10C9EA87B515CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

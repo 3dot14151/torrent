@@ -1,83 +1,3 @@
-###  Публикация: 1652528   (194417) от 11.08.2023
-
-Кэти Танимура | SQL для анализа данных (2024) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194417.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказывается о возможностях SQL применительно к анализу данных. Сравниваются различные типы баз данных, описаны методы подготовки данных для анализа. Рассказано о типах данных, структуре SQL-запросов, профилировнии, структурировании и очистке данных. Описаны методы анализа временных рядов, трендов, приведены примеры анализа данных с учетом сезонности. Отдельные (   Читать дальше...   )Жанр: ПрограммированиеПеревод: Игорь ДонченкоИздательство: БХВ-ПетербургФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D78974150451FA1CA71D00A68FD13927D9FE8D6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654155   (194138) от 19.08.2023
-
-Gregory Walters | Python GUI Programming with PAGE (2023) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта всеобъемлющая книга - ваш путеводитель от установки дизайнера PAGE до освоения создания сложных графических интерфейсов.
-
-В книге рассматривается широкий спектр вопросов, начиная от создания внешних интерфейсов для баз данных SQLite (и других баз данных) и заканчивая использованием виджета Canvas для рисования фигур и текста. В книге рассматриваются различные (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: BPB OnlineФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1F84DF5354D4A642935390EFCA2A041C4E9DF44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653910   (194110) от 18.08.2023
-
-Леонард Апельцин | Data Science в действии (2023) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194110.jpg" />
-</div>
-
-
-###  Подробнее
-
-В проектах обработки и анализа данных много движущихся частей, и требуются практика и знания, чтобы создать гармоничную комбинацию кода, алгоритмов, наборов данных, форматов и визуальных представлений. Эта уникальная книга содержит описание пяти практических проектов, включая отслеживание вспышек заболеваний по заголовкам новостей, анализ социальных сетей и поиск (   Читать дальше...   )Жанр: ПрограммированиеИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4652149268276289817EDA2E162DECEC8E13F852
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1654159   (194045) от 19.08.2023
 
 Einar Ingebrigtsen | Metaprogramming in C# (2023) [PDF][EN]
@@ -86,7 +6,7 @@ Einar Ingebrigtsen | Metaprogramming in C# (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194045.jpg" />
 </div>
 
 
@@ -114,7 +34,7 @@ Elías F. Combarro, Samuel González-Castillo | A Practical Guide to Quantum Mac
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193665.jpg" />
 </div>
 
 
@@ -140,7 +60,7 @@ Fedor G. Pikus | Hands-On Design Patterns with C++, 2nd Edition (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193659.jpg" />
 </div>
 
 
@@ -166,7 +86,7 @@ Ajay Reddy Yeruva, Vivek Basavegowda Ramu | End-to-End Observability with Grafan
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193654.jpg" />
 </div>
 
 
@@ -192,7 +112,7 @@ Carlos Santana Roldan | React 18 Design Patterns and Best Practices, 4th Edition
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193650.jpg" />
 </div>
 
 
@@ -218,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193484.jpg" />
 </div>
 
 
@@ -244,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193087.jpg" />
 </div>
 
 
@@ -271,7 +191,7 @@ Pinakin Ashok Chaubal | Mastering MEAN Stack (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193057.jpg" />
 </div>
 
 
@@ -297,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193056.jpg" />
 </div>
 
 
@@ -323,7 +243,7 @@ Vishwanathan Narayanan | SQL and NoSQL Interview Questions (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192964.jpg" />
 </div>
 
 
@@ -349,7 +269,7 @@ Dr. Harsh Bhasin | Data Structures with Python (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192932.jpg" />
 </div>
 
 
@@ -375,7 +295,7 @@ Bernhard Steppan | Getting Started With Java Using Eclipse (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192926.jpg" />
 </div>
 
 
@@ -402,7 +322,7 @@ Shalabh Aggarwal | Flask Framework Cookbook, 3rd Edition (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192896.jpg" />
 </div>
 
 
@@ -429,7 +349,7 @@ Hairizuan Bin Noorazman | Golang for Jobseekers (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192893.jpg" />
 </div>
 
 
@@ -455,7 +375,7 @@ Greg L. Turnquist | Learning Spring Boot 3.0, 3rd Edition (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192816.jpg" />
 </div>
 
 
@@ -481,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192502.jpg" />
 </div>
 
 
@@ -507,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191738.jpg" />
 </div>
 
 
@@ -533,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191206.jpg" />
 </div>
 
 
@@ -559,7 +479,7 @@ Rohan Banerjee | Hands-on TinyML (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190480.jpg" />
 </div>
 
 
@@ -587,7 +507,7 @@ Justin Jenkins | MongoDB for Jobseekers (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190449.jpg" />
 </div>
 
 
@@ -613,7 +533,7 @@ David Gonzalez | PostgreSQL for Jobseekers (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190295.jpg" />
 </div>
 
 
@@ -639,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190279.jpg" />
 </div>
 
 
@@ -665,7 +585,7 @@ Ryan Lambie (Editor) | Game Dev Cookbook / Кулинарная книга ра�
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_190152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_190152.jpg" />
 </div>
 
 
@@ -677,6 +597,86 @@ Ryan Lambie (Editor) | Game Dev Cookbook / Кулинарная книга ра�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7B3753475117FF2CCAC9383C1BAB746A1AC7747
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589331   (190139) от 09.11.2022
+
+Alex Martelli и др. | Python в двух словах:/ Python in a Nutshell, 4-е издание (2022) [EPUB] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_190139.jpg" />
+</div>
+
+
+###  Подробнее
+
+Недавно Python был признан самым популярным языком программирования на сегодняшний день в индексе TIOBE благодаря его широкой применимости для проектирования и создания прототипов, тестирования, развертывания и обслуживания. С помощью этого обновленного четвертого издания вы узнаете, как извлечь максимальную пользу из Python, независимо от того, являетесь ли вы профессиональным (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2392AD076B3706026C52AC6B18230F22C10F6901
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659148   (190037) от 11.09.2023
+
+Hem Dutt | Full Stack iOS Development with Swift and Vapor (2023) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190037.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для того чтобы приступить к разработке iOS с полным стеком, в начале книги необходимо установить инструментарий Vapor Toolbox и Xcode. Благодаря практическому подходу книга поможет вам разобраться в тонкостях маршрутизации, реализации мер безопасности, бесшовной интеграции данных, эффективного управления данными и генерации JSON-ответов на стороне сервера. По мере (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: BPB OnlineФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7C56A80EB78EB113DB8B26C1A0BBCF5ED5C42AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659158   (189923) от 11.09.2023
+
+Ted Hagos | Beginning Kotlin (2022) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189923.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга знакомит с навыками и приемами программирования на языке Kotlin, необходимыми для создания приложений. Вы узнаете, как перенести свои навыки программирования на Java в Kotlin.
+
+Книга начинается с краткого обзора языка Kotlin и постепенно переходит к более подробному изучению языка в последующих главах. Вы изучите такие основы Kotlin, как дженерики, функциональное (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Apress BerkeleyФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72AF315FDFD85FB5350AC3F56777E2275B6B8BA4
 ```
 
 https://mybot314.ru/tekegram_catalog/

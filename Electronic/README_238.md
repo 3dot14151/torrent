@@ -1,3 +1,119 @@
+###  Публикация: 1544920   (613167) от 20.04.2022
+
+Death Loves Veronica - Lucid Dreams (2020) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Gothic, Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - I Came Here for You (00:04:38)
+02 - Stay (00:03:36)
+03 - Alone (00:03:37)
+04 - Blood King (00:02:37)(   Читать дальше...   )Жанр: Darkwave, Gothic, IndustrialПродолжительность: 00:39:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:807EFAB68C60E81232D004D49435F0E568E844D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146799   (613075) от 30.06.2017
+
+VA - Sunrise Mood Vol.7 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Diventa Project - The Sun Goes Down (Original Mix)  3:37
+02.  Van - Carnaval (Original Mix)  5:36
+03.  Lazy Hammock - We Want Peace (Original Mix)  4:31
+04.  Lemongrass - Deep River (Original Mix)  6:29(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:33:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8A550FCFB24BB26BAC507CAC0DC5C4CACD51858
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146906   (613073) от 30.06.2017
+
+VA - Dont Worry Be Sexy Vol.2: 20 Deep-House Flavors (2017) [MP3|320 Kbps] <Funky, Club House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mark From London - Midsummer Nights - Original Mix
+02. Vivid Sun - Vivid Sun - Alexis Cyprus Mix
+03. Yovann Blue - Feel so High - Original Mix
+04. Patrik Ford - Oklahoma - Original Mix(   Читать дальше...   )Жанр: Funky, Club House, Deep HouseПродолжительность: 01:13:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B17C12C524DAC2BCC6CA5C5204A4506A9BE33AFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146946   (613071) от 30.06.2017
+
+VA - We Love Deep-House B*tches Vol.4 (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Viktor Astoria - This Is 4 You - Original Mix
+02. Patrik Ford - Oklahoma - Original Mix
+03. Alfred Greytto - April - Sound of Deep Mix
+04. Yovann Blue - Feel so High - Original Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:51:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88ED3E7DEF18C8055CCB89ECAB40BBE3A96F8755
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1545354   (613021) от 20.04.2022
 
 WineSmoke - DreamPop (2021) [MP3|320 Kbps] <Synthpop, Electropop>
@@ -6,7 +122,7 @@ WineSmoke - DreamPop (2021) [MP3|320 Kbps] <Synthpop, Electropop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613021.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Sensual Mood Lounge Vol.8 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Loung
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612965.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Dense - Splendensity, Vol. 1 (2015) [MP3|320 кб/с]<Ambient, PsyChill, Downtem
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612902.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Martin Stig Andersen - Discography 4 Releases (2004-2011) Usagi [FLAC|Lossless|W
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612341.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Yarn - Undiscovered Places (2018) [MP3|320 Kbps] <Ambient, Psychill, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612340.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Techno Club Vol.54 - (Mixed By Talla 2XLC & Neelix) (2018) [MP3|~ 247-252] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612332.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Dinka - Hotel Summerville (2010) [FLAC|Lossless|WEB-DL|tracks] <Progressive Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612136.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ aus - Discography 10 Releases (2004-2013) [FLAC|Lossless|tracks+.cue] <IDM, Down
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612124.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - AWRY003 (2018) AWRY [FLAC|Lossless|WEB-DL|tracks] <Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611941.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - Clubparty (2019) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611845.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - Solo Vol.I (Mixed by Simon Patterson) (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611842.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Jens Buchert - Aurora Electronica (2019) Elbroar [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611830.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Grasscut - Unearth (2012) [MP3|320 кб/с]<House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611812.jpg" />
 </div>
 
 
@@ -389,7 +505,7 @@ VA - 55 Top Lounge Songs (2012) [MP3|320 кб/с]<Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611572.jpg" />
 </div>
 
 
@@ -424,7 +540,7 @@ Death Loves Veronica - Chemical (2021) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, 
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611238.jpg" />
 </div>
 
 
@@ -453,7 +569,7 @@ VA - Ori Uplift & Delta IV - Uplifting Only 279 (2018) [MP3|320 Kbps] <Trance,Up
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610586.jpg" />
 </div>
 
 
@@ -482,7 +598,7 @@ VA - Markus Schulz - Global DJ Broadcast Top 20 June (2018) [MP3|320 Kbps] <Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610585.jpg" />
 </div>
 
 
@@ -511,7 +627,7 @@ VA - Markus Schulz & Anske - Global DJ Broadcast (2018) [MP3|320 Kbps] <Trance>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610583.jpg" />
 </div>
 
 
@@ -540,7 +656,7 @@ Dance With The Dead - Near Dark (2014) [MP3|320 кб/с]<Electronic, Retro Wave,
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610497.jpg" />
 </div>
 
 
@@ -569,7 +685,7 @@ Headstrong feat. Tiff Lacey - The Truth: 2019 Remake (2019) [FLAC|Lossless|track
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610323.jpg" />
 </div>
 
 
@@ -598,7 +714,7 @@ VA - It's Simple: This Is 100 Deep House Tracks of 2019! (2019) [MP3|320 Kbps] <
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610321.jpg" />
 </div>
 
 
@@ -627,7 +743,7 @@ VA - Paradise Lovers.St Valentines Day Edition (2016) [MP3|320 Kbps] <Downtempo,
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610316.jpg" />
 </div>
 
 
@@ -641,122 +757,6 @@ VA - Paradise Lovers.St Valentines Day Edition (2016) [MP3|320 Kbps] <Downtempo,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1743C6629BAB1F935F7F8546C6B6144E0898D654
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037859   (610313) от 26.07.2016
-
-VA - Vocal Anthems Ibiza (2016) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whiteout -  Washed Away (feat Vika - Original Mix) 5:16
-02. Ruta & Lucid Blue -  Like A Dream (Original Mix) 4:24
-03. Roman Messer -  Imagination (feat Ange - Denis Airwave Remix) 6:30
-04. Adagio Sensus & Ellie Lawson -  Easy For You (Frainbreeze Remix) 6:11(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:58:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92A3E10946E03B931722B8A0D2FFEC2EB01BDDC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037982   (610311) от 26.07.2016
-
-VA - Re:Commended - Deep House Edition, Vol.7 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Badetasche - Chillin Groove (Stefan Lindenthal Remix) [05:48]
-02. Soundsome - Intentional Delay (Original Mix) [07:38]
-03. Die Hoehenregler - Lust (Original Mix) [07:25]
-04. Pyroclastiq - Bruma (Original Mix) [06:38](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:08:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE1FD5609ED60275C64F859C88CEE9F4B888EB9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296527   (610248) от 18.04.2019
-
-VA - Synthwave, Vol. 3 (2016) [MP3|320 Kbps] <Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nina - My Mistake (4:04)
-02. Le Matos - The Kid (6:00)
-03. Das Mortal - Hotline Miami II (3:47)
-04. Germany Germany - With You (feat. Kotomi) (4:16)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 01:32:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BD5B0A92E62170B5AF01D10F0F075F1E633EEAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296533   (610226) от 18.04.2019
-
-VA - Synthwave, Vol. 4 (2016) [MP3|320 Kbps] <Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LGHTNNG - Desert King (3:58)
-02. Neon Nox - Checkpoint (feat. Rebecka Stragefors) (5:25)
-03. Sellorekt / LA Dreams - Remnants (3:51)
-04. NINA - Beyond Memory (3:35)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 01:00:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E5A94C72FF45BD732868EEC69F37463E7D52C97
 ```
 
 https://mybot314.ru/tekegram_catalog/

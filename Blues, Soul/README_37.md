@@ -6,7 +6,7 @@ Jeff Liberman - Celebrate The Day (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151604.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ William Gard Gaffney - You Can't Take it With You (2025) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151039.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Habaka - Heritage Blue (2016) [MP3|320 Kbps] <Blues, Jazz>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150371.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Ana Gazzola - Brazilian Blues (2018) [MP3|320 Kbps] <Vocal Jazz, Soul, Blues, Bo
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149896.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Innes Sibun - Anthology (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149765.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Vargas Blues Band - Vargas Blues Band & Company (2012) [MP3|320 кб/с]<Blues R
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148766.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Doug Westberg - I Get The Blues (2020) [MP3|320 Kbps] <Blues Rock , Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148367.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Joe Bonamassa - Merry Christmas Blues (2016) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146730.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Levi De Ville - Outtakes Series (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146701.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Ronnie Earl & The Broadcasters - Rise Up (2020) [MP3|320 Kbps] <Blues, Electric 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145656.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Michael Osborn and the Drivers - The Glamorous Life (2010) [MP3|320 Kbps] <West 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145146.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Stavros Papadopoulos - Rare Tracks (Freerock Sessions) (2020) [MP3|320 Kbps] <Bl
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144459.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Jimi Hendrix - Blues (1994) Remaster 2010 [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140844.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Gary Moore - All The Best (2012) [MP3|320 кб/с]<Blues-Rock, Hard Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136397.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ E. C. Scott - 4 Альбома (1995 - 2003) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_135678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135678.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Shirley Johnson - 2 альбома (2002, 2009) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_135428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135428.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Zora Young - 4 Альбома (2000 - 2009) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_135374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135374.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Robin Rogers - 2 альбома (2008, 2010) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134862.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Deitra Farr - 2 Альбома (1997, 2005) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134778.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Zola Moon - 7 Альбомов (1995 - 2010) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133138.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Fiona Boyes - 7 Альбомов (2000 - 2011) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132146.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Cafe R&B - 4 Альбома (1998 - 2012) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131568.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Jools Holland & His Rhythm & Blues Orchestra -  3 Albums (2010-2012)  [MP3|320 �
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130922.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ Joe Bonamassa - Merry Christmas, Baby (2023) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127998.jpg" />
 </div>
 
 
@@ -734,7 +734,7 @@ Livin' Blues, Nicko Christiansen - Back on track (2023) [MP3|320 Kbps] <Blues, R
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127402.jpg" />
 </div>
 
 
@@ -763,7 +763,7 @@ Chris Rea - Tennis (1980) Reissue, 1991 [OGG Vorbis|480 Kbps] <Soft Rock, Rock, 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125606.jpg" />
 </div>
 
 

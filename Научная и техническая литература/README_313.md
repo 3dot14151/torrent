@@ -1,134 +1,3 @@
-###  Публикация: 1302866   (575874) от 19.05.2019
-
-Robin Torres-Gouzerh | Practice Makes Perfect: Intermediate English Grammar for ESL Learners (2019) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575874.jpg" />
-</div>
-
-
-###  Подробнее
-
-Получите экспертные инструкции и практику, необходимые для перехода на новый уровень владения английским языком!
-Данная книга помогает поднять ваши знания грамматики английского языка на более высокий уровень и дает уверенность в том, что вы можете говорить и писать на своем новом языке. Эта доступная рабочая тетрадь знакомит вас с грамматикой, используя лаконичный (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:861E2EEFC7A132342864ABF78DCF6113600EADAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151069   (575797) от 17.07.2017
-
-В.П. Боровиков | Популярное введение в современный анализ данных в системе Statistica (2013) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга открывает широкому кругу читателей современный анализ данных в программе Statistica. Statistica (производитель StatSoft, USA) занимает лидирующее положение среди программ анализа данных и имеет сотни тысяч зарегистрированных пользователей в России и мире. На простых, ясных примерах популярно описаны современные методы анализа данных – визуальный анализ и графическое (   Читать дальше...   )Жанр: Прикладная математикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2552A84D2FF96921188A48BE95A589F48E83FD7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151075   (575698) от 17.07.2017
-
-Н. Сердцева (сост.) | Энциклопедия быстрых знаний. Астрономия. Для тех, кто хочет все успеть (2015) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Астрономия - наука наблюдательных, и если вы просто разглядываете светящиеся точки в небе, пытаясь объединить их в созвездия, вы уже занимаетесь астрономией. Эта книга знакомит читателя с основами одной из древнейших наук и помогает легко сориентироваться в базовых понятиях астрономии, узнать о происхождении вселенной, открытиях великих астрономов, разобраться в (   Читать дальше...   )Жанр: Физические науки, астрономияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C35CFF620FCEF49A2050B1F8A6000FF39994D233
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151223   (575685) от 17.07.2017
-
-Александр Мясников | Руководство по пользованию медициной (2017) [FB2]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575685.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая книга доктора Мясникова – совершенно особенная. Она поднимает и решает главный вопрос для каждого, кто сталкивался с проблемами здоровья: своего или своих близких. В нашей медицине отсутствует единообразие в обследовании и диагностике, широко распространена приверженность устаревшим методам лечения. Кроме того, со страниц и экранов безудержным потоком льется (   Читать дальше...   )Жанр: Здоровье, РуководстваФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:547AF3850443155CD90D956FF0FAFD521AFA8B6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302977   (575650) от 19.05.2019
-
-Г.В. Пранцова , Е.С. Романичева | Современные стратегии чтения. Теория и практика. Смысловое чтение и работа с текстом (2015) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575650.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге изложена система необходимых знаний и практических умений в области чтения и письма для дальнейшей успешной учебной и профессиональной деятельности. Описаны различные стратегии текстовой деятельности и предложены разнообразные тексты, в процессе работы с которыми можно освоить современные стратегии чтения и понимания научных, учебных и художественных текстов. (   Читать дальше...   )Жанр: Педагогика, Учебники и пособия для вузов, ЯзыкознаниеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC2B1F8A9A470EEF2D8181A7F804AAC1F03CE54F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 921483   (575470) от 25.07.2015
 
 Леонид Анцелиович | Русские крылья Америки. «Громовержцы» Северского и Картвели (2015) [FB2]
@@ -137,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575470.jpg" />
 </div>
 
 
@@ -164,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575308.jpg" />
 </div>
 
 
@@ -190,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574797.jpg" />
 </div>
 
 
@@ -216,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574502.jpg" />
 </div>
 
 
@@ -242,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574499.jpg" />
 </div>
 
 
@@ -268,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574404.jpg" />
 </div>
 
 
@@ -294,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574346.jpg" />
 </div>
 
 
@@ -320,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574340.jpg" />
 </div>
 
 
@@ -347,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574315.jpg" />
 </div>
 
 
@@ -374,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574203.jpg" />
 </div>
 
 
@@ -400,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574199.jpg" />
 </div>
 
 
@@ -427,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574156.jpg" />
 </div>
 
 
@@ -453,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574155.jpg" />
 </div>
 
 
@@ -479,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574150.jpg" />
 </div>
 
 
@@ -505,7 +374,7 @@ Bill Mascull | Business Vocabulary in Use (2018, 3rd Edition) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574143.jpg" />
 </div>
 
 
@@ -532,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574140.jpg" />
 </div>
 
 
@@ -558,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574139.jpg" />
 </div>
 
 
@@ -584,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573939.jpg" />
 </div>
 
 
@@ -611,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573756.jpg" />
 </div>
 
 
@@ -637,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573750.jpg" />
 </div>
 
 
@@ -664,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573091.jpg" />
 </div>
 
 
@@ -675,6 +544,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59390A63EBEDCF5DFA703F1C71A19BD94E9CEF85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042993   (572982) от 16.08.2016
+
+Ф. Меринг | От утопии к науке (1924) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572982.jpg" />
+</div>
+
+
+###  Подробнее
+
+Здесь, в одном томе мы из четырех томов "Истории Германской Со­циал-демократии" Меринга собрали наиболее существенное, касающееся социалистических учений и движений ХІХ-го века, полагая, что эти выборки из капитального труда Меринга явятся "превосходным пособием для тех, кто не может обращаться к специальным работам по истории классовой борьбы и социалистических (   Читать дальше...   )Жанр: История, политология, науковедение, философияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2973A335EA4D5C7D6D002CAD65C478D3344A06EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042812   (572981) от 16.08.2016
+
+Ф. Дингельштедт | Диалектический материализм в теории и на практике (1925) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярные очерки диалектики и материализма, как основ коммунизма.Жанр: История, политология, науковедение, философия, психологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05ABAC93B20A5FE8BC4B9E42BB413C229521A171
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043242   (572979) от 16.08.2016
+
+Я. А. Пилецкий | Две теории империализма (1924) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572979.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящей работе я хотел установить, на основании анализа "Финансового Капитала" Гильфердинга, что он заключает в себе длинный ряд противоречий и неясностей. Его отправные позиции не дают возможности проникнуть вглубь современного капитализма и понять органические причины, ведущие капитализм к крушению. "Финансовый Капитал" целиком отражает (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0782FD617D5183C95A606795EA4E83F6B21883CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043251   (572977) от 16.08.2016
+
+С. Ю. Семковский | Диалектический материализм и принцип относительности (1926) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572977.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вопрос о взаимоотношении между диалектическим материализмом и теорией относительности является одной из основных спорных проблем, вставших в нашу эпоху перед исследователями - марксистами в области философии.
+
+Вопросу этому был посвящен выпущенный нашим Издательством в прошлом году дискуссионный сборник «Теория относительности и материализм», в состав которого вошли (   Читать дальше...   )Жанр: История, философия, науковедение, физика, естествознаниеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:279884F0E03662B1D3D962AAC85067F9DD1A3FEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302282   (572854) от 21.05.2019
+
+С.Н. Ткаченко и др. | Ак-Монайский узел. Боевые действия в Юго-Восточном Крыму в годы Великой Отечественной войны (2019) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572854.jpg" />
+</div>
+
+
+###  Подробнее
+
+В коллективной монографии крымских историков впервые в отечественной практике подробно изучены боевые действия на Ак-Монайском перешейке и в Юго-Восточном Крыму в 1941-1942 и 1944 гг.; сделан анализ сил и средств противостоящих сторон, получила отражение проблема влияния природно-географических условий этой части Крыма. Созданы предпосылки для написания целостной (   Читать дальше...   )Жанр: ИсторияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D502DD31468D6016B849EE9B2AFB696181A3E46
 ```
 
 https://mybot314.ru/tekegram_catalog/

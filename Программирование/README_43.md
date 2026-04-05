@@ -1,81 +1,3 @@
-###  Публикация: 1620711   (200940) от 21.03.2023
-
-Blaine Bateman | The Pandas Workshop (2022) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга научит вас более продуктивно работать с данными и генерировать реальные бизнес-понятия для принятия решений. Вас проведут через реальные проблемы науки о данных и покажут, как применять ключевые методы в контексте реалистичных примеров и упражнений. Увлекательные задания помогут вам применить свои новые навыки таким образом, чтобы подготовиться к реальным (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA8B27250F6082F7C3566F92D9B12A13308ABF13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620790   (200894) от 22.03.2023
-
-Шоу Энтони | Внутри CPython: гид по интерпретатору Python (2023) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200894.jpg" />
-</div>
-
-
-###  Подробнее
-
-CPython, самая популярная реализация Python, абстрагируется от сложностей ОС и предоставляет платформу для создания масштабируемых и высокопроизводительных приложений. Каждому python-разработчику на какой-то стадии необходимо будет узнать, как работает CPython. Это позволит в полной мере использовать его мощь и оптимизировать приложения. Вы разберетесь с основными (   Читать дальше...   )Жанр: ПрограммированиеПеревод: Е. МатвеевФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F871CF6C147E0B7522379DFB4BC51E2EF2FE21F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621480   (200819) от 26.03.2023
-
-Victor G Brusca | Advanced Unity Game Development (2022) [PDF][EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начните свой путь в разработке игр на Unity с подробного обзора полной, профессионально созданной игры с использованием Unity, C# и Visual Studio. Приобретите бесценный опыт работы со структурой кода, структурой проекта, централизацией данных о состоянии игры, контролируемой инициализацией компонентов сценария, искусственным интеллектом противников, несколькими источниками (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDE5B3FD00DD0E8B3613112497CA0691A5DCEADB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1621706   (200705) от 26.03.2023
 
 Michele Riva | Real-World Next.js (2022) [PDF] [EN]
@@ -84,7 +6,7 @@ Michele Riva | Real-World Next.js (2022) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200705.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ Joseph Hocking | Unity in Action, 3rd Edition (2022) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200704.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ Machine Minds AI | Building Javascript Apps with Chat GPT (2023) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200522.jpg" />
 </div>
 
 
@@ -164,7 +86,7 @@ Maya Shavin | Frontend Development Projects with Vue.js 3 (2023) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200330.jpg" />
 </div>
 
 
@@ -190,7 +112,7 @@ Dr. Deepali R Vora и др. | Python Machine Learning Projects (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200176.jpg" />
 </div>
 
 
@@ -216,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200170.jpg" />
 </div>
 
 
@@ -242,7 +164,7 @@ Victor Hugo Garcia | Getting Started with Angular: Create and Deploy Angular App
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200144.jpg" />
 </div>
 
 
@@ -270,7 +192,7 @@ Ashwin Pajankar | Python Unit Test Automation, 2nd Edition (2021) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200138.jpg" />
 </div>
 
 
@@ -296,7 +218,7 @@ Stephen Chin и др. | DevOps Tools for Java Developers (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200129.jpg" />
 </div>
 
 
@@ -322,7 +244,7 @@ Maximilian Schwarzmuller | React Key Concepts: Consolidate your knowledge of Rea
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200127.jpg" />
 </div>
 
 
@@ -350,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200058.jpg" />
 </div>
 
 
@@ -376,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_199960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_199960.jpg" />
 </div>
 
 
@@ -402,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199897.jpg" />
 </div>
 
 
@@ -428,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_199773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_199773.jpg" />
 </div>
 
 
@@ -454,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199742.jpg" />
 </div>
 
 
@@ -480,7 +402,7 @@ Aristeidis Bampakos | Learning Angular: A no-nonsense guide to building web appl
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199687.jpg" />
 </div>
 
 
@@ -506,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199623.jpg" />
 </div>
 
 
@@ -532,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199576.jpg" />
 </div>
 
 
@@ -558,7 +480,7 @@ Jimmy Engström | Web Development with Blazor: A practical guide to build intera
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199569.jpg" />
 </div>
 
 
@@ -584,7 +506,7 @@ Malhar Lathkar | High-Performance Web Apps with FastAPI (2023) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199499.jpg" />
 </div>
 
 
@@ -610,7 +532,7 @@ Trevoir Williams | Microservices Design Patterns in .NET: Making sense of micros
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199400.jpg" />
 </div>
 
 
@@ -637,7 +559,7 @@ Carl-Hugo Marcotte | An Atypical ASP.NET Core 6 Design Patterns Guide: A SOLID a
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199398.jpg" />
 </div>
 
 
@@ -663,7 +585,7 @@ Valerio De Sanctis | ASP.NET Core 6 and Angular: Full-stack web development with
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199386.jpg" />
 </div>
 
 
@@ -674,6 +596,86 @@ Valerio De Sanctis | ASP.NET Core 6 and Angular: Full-stack web development with
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9D37564DF0FD86970A609702331A66498A805BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628421   (199383) от 23.04.2023
+
+Slobodan Dmitrović | Modern C++ for Absolute Beginners: A Friendly Introduction to the C++ Programming Language and C++11 to C++23 Standards. 2-nd Edition (2023) [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199383.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучите язык программирования C++ в структурированной, понятной и дружественной манере. Эта книга обучает основам современного языка программирования C++, стандартной библиотеке C++ и современным стандартам C++, включая C++23. Предыдущий опыт программирования не требуется.
+C++ - это язык, не похожий ни на один другой, удивительный по своей сложности, но при этом (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B5E581CAC4FD31ED3A92449737A9DA8433BC831
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628787   (199352) от 25.04.2023
+
+Andreas Wittig | Amazon Web Services in Action, Third Edition: An in-depth guide to AWS (2023) [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199352.jpg" />
+</div>
+
+
+###  Подробнее
+
+Освойте основные передовые методы развертывания и управления приложениями на Amazon Web Services. В этом обновленном бестселлере собраны методы построения высокодоступных и масштабируемых архитектур и автоматизации развертывания с помощью Infrastructure as Code.
+Используйте глобально распределенные центры обработки данных для запуска виртуальных машин с помощью EC2 (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCF5204FFA2D15A2C326236AE1E28E64F26666D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628827   (199316) от 24.04.2023
+
+Дж. Гай Дэвидсон, и др. | Красивый C++: 30 главных правил чистого, безопасного и быстрого кода (2023) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Написание качественного кода на C++ не должно быть трудной задачей. Если разработчик будет следовать рекомендациям, приведенным в C++ Core Guidelines, то он будет писать исключительно надежные, эффективные и прекрасно работающие программы на C++. Но руководство настолько переполнено советами, что порой трудно понять, с чего начать. Начните с «Красивого C++»! Опытные (   Читать дальше...   )Жанр: ПрограммированиеПеревод: Л. КиселеваФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CC9011010113C039657405D2E8E83A42BC1A066
 ```
 
 https://mybot314.ru/tekegram_catalog/

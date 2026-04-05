@@ -6,7 +6,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358345.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Kelly Clarkson - Catch My Breath (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358335.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Nelly Furtado - Spirit Indestructible (2012) [H.264/1080p]  WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358229.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Alloise - Love me or leave me (2012) [H.264/1080p]  HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358221.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Robbie Williams - Candy (2012) [1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358213.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Pitbull - Get It Started ft. Shakira (2012) [H.264/1080p]  WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358211.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Celebrating Jon Lord. Live at The Royal Albert Hall (2014) 2хDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358124.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ No Doubt - Push And Shove ft. Busy Signal, Major Lazer (2012) [H.264/1080p] HDTV
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358056.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Kelly Rowland - ICE (Explicit) ft. Lil Wayne (2012)  [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358052.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Madonna - Turn Up The Radio (Explicit) (2012)  [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358044.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358040.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358038.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Jennifer Lopez - Goin' In ft. Flo Rida (2012) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358028.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Tiesto x Melanie Iglesias - Sounds Of The Night (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357663.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357632.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Metallica и Симфонический оркестр Сан-Франциско
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357552.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357517.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357513.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357402.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ LOBODA - 40 ГРАДУСОВ (Нравится) (2012) [H.264/1080p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357396.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Money Trump - Boss In My City (Uncensored) (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357388.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Tarja Turunen - Act 1 (2012) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_357004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_357004.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356891.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356675.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356558.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Gregorian - Live! Masters of Chant  Final Chapter Tour (2016) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356382.jpg" />
 </div>
 
 

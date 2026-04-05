@@ -1,3 +1,133 @@
+###  Публикация: 1611582   (207581) от 12.02.2023
+
+Велма / Velma (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-10 из 10) RuDub
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207581.jpg" />
+</div>
+
+
+###  Подробнее
+
+О жизни главной умницы корпорации «Тайна» Велмы Динкли до её встречи со Скуби и компанией.Производство: США / Warner Bros. AnimationЖанр: мультфильм, комедия, криминал, детектив, приключенияРежиссер: Энн Уокер Фаррелл, Meg Waldow, Cal RamseyПеревод: Многоголосый профессиональный (RuDub)Язык озвучки: Русский, АнглийскийСубтитры: АнглийскиеПродолжительность: ~00:27:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:536E1413DD301B28501FBBBFAE26E1AC135B5FFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497124   (207554) от 20.09.2022
+
+Лис и пес (Дилогия) / The Fox and the Hound (Diology) (1981, 2006) [H.264] BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы (коллекции, сборники / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тод и Коппер все еще как ниточка и иголочка, но когда у Коппера появляется шанс попасть в супер группу, их дружба подвергается испытанию.Жанр: мультфильм, приключения, семейныйРежиссер: Джим КаммерудАктеры: Йон Бобо, Харрисон Фан, Патрик Суэйзи, Риба МакИнтайр, Роб Полсен, Вики Лоуренс, Джим Каммингс, Джефф Фоксворти, Кэт Сауси, Стивен РутПеревод: ДублированныйСубтитры: Русские, английскиеПродолжительность: 01:09:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:063C905C0E3D2CC42F877A534672632473CA9CF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611928   (207501) от 13.02.2023
+
+Кот в сапогах 2: Последнее желание / Puss in Boots: The Last Wish (2022) BDRip [H.264/720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207501.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кот в сапогах потратил восемь из девяти отпущенных ему жизней и теперь отправляется в новое приключение, чтобы отыскать мифическое Последнее желание и восстановить свои жизни.Производство: США / DreamWorks AnimationЖанр: мультфильм, комедия, приключенияРежиссер: Джоэль Кроуфорд, Хануэль МеркадоПеревод: дублированный (Red Head Sound), профессиональный многоголосый (Jaskier, TVShows)Субтитры: русские (full), английские (full)Продолжительность: 01:42:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3696822CE3F36A2E5D2EFDB6C7A24CCAC315153
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650466   (207486) от 01.08.2023
+
+День рождения бабушки (1981) WEBRip [H.264/1080p-LQ] [handmade]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207486.jpg" />
+</div>
+
+
+###  Подробнее
+
+В бабушкин день рождения ее внук со своим верным псом пытаются придумать – что ей подарить?Производство: СССР / СоюзмультфильмЖанр: мультфильм, короткометражкаРежиссер: Владимир АрбековСубтитры: ОтсутствуютПродолжительность: 00:10:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA7F958D528BAB4405FBB1050E6479BDD104FCAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249453   (207455) от 24.09.2022
+
+Тобот / Tobot (2010) WEB-DL [H.264/720p] (сезоны 3-4, серии 44 из 44)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207455.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тоботы — южнокорейский мультсериал производства Young Toys и Retrobot, созданный в 2010 году. Расследуя цепочку загадочных автокатастроф, доктор Франклин Чар угнан преступниками. Этот инцидент активизирует его творение под названием «Тобот», автомобили, которые превращаются в роботов с помощью специального ключа, называемого «Tokey». Первые два Тобота доктора Чара, (   Читать дальше...   )Производство: Южная Корея, студии Young Toys и RetrobotЖанр: Приключения, ФентезиРежиссер: Дал ЛиПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: ~00:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E87CD62A4B9437B304C64FD4EAC73FD06369D7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1422969   (207436) от 24.09.2022
 
 Трансформеры: война за кибертрон / Transformers: War for Cybertron (2020) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-6 из 6) [EN/Ru Sub]
@@ -6,7 +136,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207436.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207433.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207430.jpg" />
 </div>
 
 
@@ -87,7 +217,7 @@ LEGO Ниндзяго: Мастера кружитцу / LEGO Ninjago: Secrets o
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207410.jpg" />
 </div>
 
 
@@ -114,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207326.jpg" />
 </div>
 
 
@@ -140,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207310.jpg" />
 </div>
 
 
@@ -167,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207293.jpg" />
 </div>
 
 
@@ -193,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207223.jpg" />
 </div>
 
 
@@ -219,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207222.jpg" />
 </div>
 
 
@@ -245,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207220.jpg" />
 </div>
 
 
@@ -271,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207218.jpg" />
 </div>
 
 
@@ -297,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207203.jpg" />
 </div>
 
 
@@ -323,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207149.jpg" />
 </div>
 
 
@@ -349,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207086.jpg" />
 </div>
 
 
@@ -375,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207065.jpg" />
 </div>
 
 
@@ -401,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207045.jpg" />
 </div>
 
 
@@ -427,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207024.jpg" />
 </div>
 
 
@@ -453,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206984.jpg" />
 </div>
 
 
@@ -479,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206924.jpg" />
 </div>
 
 
@@ -505,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206900.jpg" />
 </div>
 
 
@@ -532,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206883.jpg" />
 </div>
 
 
@@ -543,136 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D4C38539C28F486F38BBA63982E6EDF8DEE9DBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651626   (206880) от 07.08.2023
-
-Любимые сказки. Сборник мультфильмов. Выпуск 8 (1953-1991) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник всеми нами любимых советских мультипликационных фильмов. Не одно поколение людей воспиталось на той доброй и душевной атмосфере, которую нам подарили великие советские мультрежиссёры. Эти шедевры с удовольствием будут смотреть малыши, а так же их родители, вспоминая своё далёкое детство.Производство: CCCP, Союзмультфильм, ТО ЭкранЖанр: рисованная анимация, кукольный, детскийРежиссер: Владимир Дегтярёв, Роман Давыдов, Вячеслав Котёночкин, Иван Аксенчук, Виктор Громов, Иван Иванов-Вано, Леонид Носырев, Александра Снежко-Блоцкая, Майя Мирошкина, Леонид Шварцман, Иосиф Доукша, Майя Бузинова, Владимир Арбеков, Владимир Попов, Владимир ПекарьСубтитры: ОтсутствуетПродолжительность: ~12:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98F6FCB394442E44044B61D4D93E48CF4A2EB685
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651515   (206876) от 07.08.2023
-
-Обитель зла: Остров смерти / Resident Evil: Death Island (2023) BDRip [H.264/1080p] [UKR, EN / UKR, EN Sub]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206876.jpg" />
-</div>
-
-
-###  Подробнее
-
-Агент Министерства обороны Леон С. Кеннеди отправляется на задание по спасению доктора Антонио Тейлора от похитителей, но таинственная женщина мешает его преследованию. Тем временем агент B.S.A.A. Крис Редфилд расследует вспышку зомби в Сан-Франциско, причину которой не удается установить. Единственное, что объединяет жертв, это то, что все они недавно посещали остров (   Читать дальше...   )Производство: Япония / Capcom Company, TMS EntertainmentЖанр: мультфильм, ужасы, боевикРежиссер: Эйитиро ХасумиАктеры: Мэттью Мерсер, Николь Томпкинс, Кевин Дорман, Стефани Паниселло, Эрин Кэхилл, Салли Саффиоти, Даман Миллс, Люсьен Додж, Кристина Валенсуэла, Фрэнк ТодароПеревод: Многоголосый профессиональныйЯзык озвучки: украинский, английскийСубтитры: украинские (forced, full), английские (SDH)Продолжительность: 01:30:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F1E1D789C3F3BA5063A9389A4E439056F2FE181
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651573   (206858) от 07.08.2023
-
-Любимые сказки. Сборник мультфильмов. Выпуск 6 (1946-1993) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206858.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник всеми нами любимых советских мультипликационных фильмов. Не одно поколение людей воспиталось на той доброй и душевной атмосфере, которую нам подарили великие советские мультрежиссёры. Эти шедевры с удовольствием будут смотреть малыши, а так же их родители, вспоминая своё далёкое детство.Производство: СССР, Союзмультфильм, ТО Экран, КиевнаучфильмЖанр: рисованная анимация, кукольный, детскийРежиссер: Иван Иванов-Вано, Галина Баринова, Анатолий Солин, Александр Иванов (II), Леонид Зарубин, Алла Грачёва, Лидия Сурикова, Александр Татарский, Давид Черкасский, Ольга Розовская, Владимир Полковников, Мстислав ПащенкоСубтитры: ОтсутствуютПродолжительность: ~12:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34F91B6F77077188D362E351EAACA9A66DD053CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 866894   (206852) от 01.10.2022
-
-Семейка монстров / The Boxtrolls (2014) Blu-ray 3D [1080p] [3D/2D]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ему не повезло родиться в роскошном замке. Вместе с семейкой забавных монстров юноша поселился прямо под мостовой. Изысканные костюмы ему заменила обычная коробка. Зато каждую ночь он мог разгуливать по темным улицам в поисках новых приключений. Но однажды он встретил очаровательную девчушку из высшего общества — и мир вокруг изменился навсегда.Производство: США, Laika EntertainmentЖанр: Фэнтези, Комедия, СемейныйРежиссер: Грэхэм Эннэйбл, Энтони СтаккиАктеры: Кирилл Туранский, Даниил Эльдаров, Александр Гаврилин, Владимир АнтиповПеревод: Дублированный (Лицензия Blu-ray CEE)Субтитры: Вшитые отключаемыеЯзык субтитров: Английский, болгарский, хорватский, эстонский, иврит, латвийский, литовский, русский, словенский, украинскийПродолжительность: 01:36:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A6C7AF6563769245757AA2453C831D623F482D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 409380   (206826) от 01.10.2022
-
-Снегурочка (1952) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Снегурочка – дочь Деда Мороза и красавицы Весны. Ее ледяное сердце еще никогда не ведало простых человеческих радостей, никогда не знало любви. Лишь дар матери-Весны открыл девушке богатство окружающего мира, растопил сердце холодной красавицы — но погубил ее.Производство: СССР, СоюзмультфильмЖанр: детский, рисованная анимацияРежиссер: Иван Иванов-Вано, Александра Снежко-БлоцкаяАктеры: Вениамин Шевцов, Леонид Ктиторов, Вероника Борисенко, Ирина МасленниковаСубтитры: ОтсутствуютПродолжительность: 01:04:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DFE4FBD2633E1B12E6C5200F33EFFCBFD1CF662
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 1420253   (333885) от 31.10.2020
+
+Алексей Иванов | Быть Ивановым. Пятнадцать лет диалога с читателями (2020) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот сборник – результат 15-летнего диалога писателя Алексея Иванова со своими читателями. Вначале это была переписка в вопросах и ответах, затем она переросла сетевой формат и превратилась в многосторонний анализ нашей жизни и процессов, происходящих в политике, экономике, публицистике, культуре и писательском ремесле.
+Один из самых известных и ярких прозаиков нашего (   Читать дальше...   )Жанр: ПублицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B2178F691E86C16EF1BA5623B42972831A9AF14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1420375   (333825) от 31.10.2020
 
 Валерий Шамбаров | Непобедимый Суворов. Измаил, Альпы и другие славные сражения (2020) [PDF]
@@ -6,7 +33,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333825.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333758.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332983.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332930.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332573.jpg" />
 </div>
 
 
@@ -136,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332489.jpg" />
 </div>
 
 
@@ -162,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331192.jpg" />
 </div>
 
 
@@ -189,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331049.jpg" />
 </div>
 
 
@@ -215,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330172.jpg" />
 </div>
 
 
@@ -241,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329358.jpg" />
 </div>
 
 
@@ -267,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329322.jpg" />
 </div>
 
 
@@ -294,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329246.jpg" />
 </div>
 
 
@@ -321,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328254.jpg" />
 </div>
 
 
@@ -347,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327496.jpg" />
 </div>
 
 
@@ -373,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326654.jpg" />
 </div>
 
 
@@ -399,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325537.jpg" />
 </div>
 
 
@@ -425,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324991.jpg" />
 </div>
 
 
@@ -451,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323725.jpg" />
 </div>
 
 
@@ -478,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323510.jpg" />
 </div>
 
 
@@ -504,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323506.jpg" />
 </div>
 
 
@@ -530,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323503.jpg" />
 </div>
 
 
@@ -556,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323181.jpg" />
 </div>
 
 
@@ -582,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322030.jpg" />
 </div>
 
 
@@ -608,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322016.jpg" />
 </div>
 
 
@@ -634,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321907.jpg" />
 </div>
 
 
@@ -645,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A08525743B36E3C2669EC8D2C0A783D1056C9B4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958927   (321864) от 22.11.2015
-
-Ричард МакГрегор | Партия. Тайный мир коммунистических властителей Китая (2011) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многое известно о том, как Китай превратился из нищей страны в экономическую сверхдержаву. Но о главном творце этого превращения - Коммунистической партии - информации почти нет. Ее руководство одержимо секретностью, неподотчетно никому, кроме себя самого, и яростно охраняет свои кадры от нападок извне. Ричард МакГрегор, экс-глава пекинского бюро лондонской Financial (   Читать дальше...   )Жанр: ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F60CA2A490B3F43B775E2553949FCD46F4C72449
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1512609   (221539) от 30.11.2021
+
+Северный бастион / BAC Nord (2020) WEB-DLRip [DVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221539.jpg" />
+</div>
+
+
+###  Подробнее
+
+2012 год. Северные кварталы Марселя возглавляют списки территорий с наивысшим уровнем преступности. Начальство вечно подстегивает северный участок улучшать показатели. В опасных кварталах группе полицейских иногда приходится адаптироваться к ситуации и пересекать черту. До тех пор, пока правосудие не оборачивается против них самих.Производство: Франция / Chi-Fou-Mi ProductionsStudio, CanalFrance 2 CinémaЖанр: Боевик, триллер, криминалРежиссер: Седрик ЖименесАктеры: Жиль Леллуш, Франсуа Сивиль, Карим Леклу, Адель Экзаркопулос, Кенза Форта, Идир Азугли, Сириль Леконт, Микаэль Абитбуль, Жан-Ив Бертело, Жак КонтаПеревод: Любительский двухголосый (Pazl Voice)Субтитры: Русские, украинские, английские (отдельно)Продолжительность: 01:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:257F432303AEE97C67BCA2CC07284F73B8062FEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944727   (221366) от 16.12.2015
+
+SOMA (2015) [Ru/Multi] (1.10) SteamRip Let'sРlay
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221366.jpg" />
+</div>
+
+
+###  Подробнее
+
+SOMA - это научно-фантастический ужастик от студии Frictional Games, создателей игры "Amnesia: Призрак прошлого". Вас ждёт пугающая история, ставящая непростые вопросы - что такое сознание, личность и что значит быть человеком. Радио молчит, еда на исходе, а роботы возомнили себя людьми. Путешествуя по подводной станции "Пафос II", которая долгое (   Читать дальше...   )Тип издания: SteamRipРазработчик: Frictional GamesЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский, Итальянский, ИспанскийЯзык интерфейса: Русский, Английский, Немецкий, Французский, Итальянский, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D25009F1E559F0658D8546BA5FB79F34CC6D9D1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 459463   (221251) от 20.11.2020
 
 Шапито-шоу: Любовь и дружба / Уважение и сотрудничество (2011) Blu-ray [MPEG-2/1080i]
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221251.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220949.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220920.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220494.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220317.jpg" />
 </div>
 
 
@@ -148,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220164.jpg" />
 </div>
 
 
@@ -174,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220137.jpg" />
 </div>
 
 
@@ -200,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220059.jpg" />
 </div>
 
 
@@ -226,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219989.jpg" />
 </div>
 
 
@@ -253,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219982.jpg" />
 </div>
 
 
@@ -279,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219788.jpg" />
 </div>
 
 
@@ -305,7 +357,7 @@ Windows 7 SP1 52in1 (x86/x64) +/- Office 2019 by Eagle123 (10.2022) [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219776.jpg" />
 </div>
 
 
@@ -331,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219736.jpg" />
 </div>
 
 
@@ -357,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219652.jpg" />
 </div>
 
 
@@ -383,7 +435,7 @@ qBittorrent 3.3.10 Stable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219647.jpg" />
 </div>
 
 
@@ -409,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219579.jpg" />
 </div>
 
 
@@ -435,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219497.jpg" />
 </div>
 
 
@@ -461,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219347.jpg" />
 </div>
 
 
@@ -487,7 +539,7 @@ Viber 5.4.0 Portable by vitalijtuz [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219343.jpg" />
 </div>
 
 
@@ -513,7 +565,7 @@ City Navigator Russia NT 2016.30 Navicom [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219337.jpg" />
 </div>
 
 
@@ -539,7 +591,7 @@ Stronghold Kingdoms: World 4 (2012) [Ru/En] (2.0.30.7) License
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219327.jpg" />
 </div>
 
 
@@ -565,7 +617,7 @@ Final Fantasy VI (2015) [Ru/Multi] (1.0) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219277.jpg" />
 </div>
 
 
@@ -591,7 +643,7 @@ Far Cry 3 Deluxe Edition [Ru/En] (RePack/1.02) 2012 | R.G. Shift
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219242.jpg" />
 </div>
 
 
@@ -619,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219232.jpg" />
 </div>
 
 
@@ -630,58 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526463   (219198) от 11.12.2012
-
-Михаил Русаков | Создание и раскрутка сайта от А до Я [2010] [unpacked]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как создать профессиональный сайт? Как разместить его в Интернете? Как раскрутить сайт и поднять его посещаемость? Данный видеокурс  подробно отвечает на все эти вопроса. 246 уроков общей продолжительностью более 50-ти часов обучающего видео сделают из Вас настоящего профессионала, который способен создать практически любой сайт (как минимум, 99% сайтов, которые Вы видите в Интернете).Жанр: Создание сайта, Веб-дизайнФормат: unpackedПродолжительность: 50:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BD56A2B49ACE227A1DFDBB48391433AC1108F30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266964   (218483) от 15.12.2018
-
-Летящие сквозь ночь / Nightflyers (2018) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-10 из 10) OMSKBIRD [AD]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218483.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о группе исследователей, которые отправляются на далекую планету, чтобы найти загадочное существо, но в пути сталкиваются с другими опасностями.Производство: США / Gaeta / Rosenzweig Films, HypnoticЖанр: ужасы, фантастикаРежиссер: Эндрю МакКарти, Майк Кэхилл, Мэгги КилиАктеры: Оуэн Мэкен, Дэвид Аджала, Джоди Смит, Энгус Сэмпсон, Сэм Страйк, Майя Эшет, Брайан Ф. О’Бирн, Гретхен Мол, Филлип Риз и др.Перевод: Многоголосый закадровый, профессиональный | OMSKBIRDСубтитры: английскиеПродолжительность: ~00:44:00 серия (00:58:20 - первая серия)Реклама: присутствуют аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D60F420CB47E14CC421A5257AF5C49C9565A82A
 ```
 
 https://mybot314.ru/tekegram_catalog/

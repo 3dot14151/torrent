@@ -1,3 +1,133 @@
+###  Публикация: 1784206   (25013) от 11.03.2025
+
+Муфаса: Король Лев / Mufasa: The Lion King (2024) WEB-DL [H.265/2160p] [4K, SDR, 10-bit]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25013.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осиротевший Муфаса знакомится с наследником королевских кровей по имени Така. Вместе они отправляются в судьбоносное опасное путешествие, которое проверит их дружбу на прочность.Производство: США, Канада / Walt Disney Pictures, Québec Production Services Tax Credit, Walt Disney Animation StudiosЖанр: мультфильм, мюзикл, фэнтези, драма, приключения, семейныйРежиссер: Джош КулиАктеры: Аарон Пьер, Дональд Гловер, Келвин Харрисон мл., Тиффани Бун, Кагисо Ледига, Престон Найман, Блу Айви Картер, Джон Кани, Мадс Миккельсен, Сет Роген, Билли Айкнер, Тандиве Ньютон, Ленни Джеймс, Аника Нони Роуз, Кит ДэвидПеревод: Дублированный, МногоголосыйЯзык озвучки: Русский, АнглийскийСубтитры: Русские (2x Forced, Full, SDH), английские (Full, SDH)Продолжительность: 01:57:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EF325B05BA366AA42D4D195D72CDD78FA209E30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784488   (24983) от 11.03.2025
+
+Храбрый заяц. Сборник мультфильмов (1949-1969) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы (коллекции, сборники / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник отечественных мультфильмов: (Храбрый заяц, Чужой голос, В некотором царстве, Гуси-лебеди, Лесной концерт, Времена года.)Производство: СССР / СоюзмультфильмЖанр: мультфильм, детский, короткометражка, музыкаРежиссер: Иван Иванов-Вано, Александра Снежко-Блоцкая, Юрий НорштейнАктеры: Георгий Вицин, Лена Алёшина, Виктор Коваль, Владимир Володин, Вера Попова, Георгий Милляр, Ефим Нейд, Николай Литвинов, Серафим Аникеев,  Вера Орлова и др.Субтитры: отсутствуютПродолжительность: 01:32:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5830E289B03E06EF4580409EB641B1441BB6CEAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784350   (24918) от 12.03.2025
+
+Чебурашка и крокодил Гена. Сборник мультфильмов (1969-1983) BDRip [AV1/1080p] [handmade upscale AI]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы (коллекции, сборники / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24918.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крокодил Гена работал в зоопарке... крокодилом, а по вечерам очень тосковал от одиночества, пока не дал объявление о том, что ищет друзей. И друзья появились - девочка с собачкой и Чебурашка - неизвестное науке создание, но зато доброе и милое. И вскоре начались у них удивительные приключeния, о которых поведал в своей сказке замечательный детский писатель Эдуард (   Читать дальше...   )Производство: СССР, СоюзмультфильмЖанр: мультфильм, кукольный, короткометражный, детскийРежиссер: Роман КачановАктеры: Василий Ливанов Клара Румянова Владимир Раутбарт Владимир Кенигсон Тамара ДмитриеваСубтитры: отсутствуютПродолжительность: 01:16:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAE4C930D5F127D237B36E7371A480C92A4C658F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785161   (24670) от 14.03.2025
+
+Мифы древней Греции. Сборник мультфильмов (1971-1996) TVRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы (коллекции, сборники / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24670.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это коллекция фильмов разных режиссеров и разных лет, но связанных одной темой. Разные художественные решения, разные приёмы мультипликации. Но все талантливые, все входят в золотой фонд отечественной анимации. Для любителей и знатоков будут настоящим пополнением своих коллекций!Производство: СССР / СоюзмультфильмЖанр: рисованная анимация, для взрослых, короткометражныйРежиссер: Фёдор Хитрук, Анатолий Петров (III), Александра Снежко-БлоцкаяСубтитры: отсутствуютПродолжительность: ~ 00:10:01 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89C151736DC7F6C5C5BE4DF55DDFA5DCE32DBDB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656310   (24603) от 15.03.2025
+
+Волшебник изумрудного города (1974) BDRemux [H.264/1080p] (серии 1-10 из 10)
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24603.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультфильм о приключениях девочки Элли её песика Тотошки, которые из-за злобной Гингемы оказались в Волшебной стране, где их ожидали невероятные приключения. Чтобы вернуться домой им надо найти волшебника Изумрудного города, но в этот город ведет только одна дорога, которая вымощена желтыми кирпичами и проходит она через лес, в котором обитают саблезубые тигры и (   Читать дальше...   )Производство: СССР «ТО Экран»Жанр: мультфильм, короткометражка, мюзикл, фэнтези, приключенияРежиссер: Кирилл МалянтовичАктеры: Клара Румянова, Роман Ткачук, Гарри Бардин, Антонина Кончакова, Вера Васильева, Эмилия Мильтон, Роман Филиппов, Рина Зеленая, Зинаида Нарышкина, Г. ВласоваСубтитры: нетПродолжительность: 03:11:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E282449F8CEE7BC36A04F73ACF7A19082CFC850A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1778678   (24555) от 16.03.2025
 
 Неуязвимый / Invincible (2025) WEB-DLRip [H.264/720p-LQ] (сезон 3, серии 1-8 из 8) LostFilm
@@ -6,7 +136,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24555.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24507.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24466.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24442.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24417.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24290.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24282.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24279.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24258.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24246.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24139.jpg" />
 </div>
 
 
@@ -293,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24063.jpg" />
 </div>
 
 
@@ -320,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24047.jpg" />
 </div>
 
 
@@ -347,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23905.jpg" />
 </div>
 
 
@@ -374,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23797.jpg" />
 </div>
 
 
@@ -400,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23779.jpg" />
 </div>
 
 
@@ -427,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23753.jpg" />
 </div>
 
 
@@ -453,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23747.jpg" />
 </div>
 
 
@@ -480,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23694.jpg" />
 </div>
 
 
@@ -506,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23658.jpg" />
 </div>
 
 
@@ -532,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23417.jpg" />
 </div>
 
 
@@ -543,138 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36D826951934AAB25B9882DFD3CEC9AC850532BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787791   (23321) от 27.03.2025
-
-Спасение пингвина / Penguin Rescue (2018) WEB-DL [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Межгалактические исследователи космоса прибывают на Землю, где знакомятся с пингвинами и изучают Арктику.Команда космических исследователей не только изучает другие планеты, но и помогает их жителям, попавшим в беду. На этот раз помощь нужна пингвину Адели, отбившемуся от своих сородичей. Эту важную и опасную миссию доверяют талантливым новичкам Нику и Сэмми. Сев (   Читать дальше...   )Производство: США / WOWNow EntertainmentЖанр: мультфильмРежиссер: Эван ТрэмелАктеры: КейДжей Шрок, Сара ТейлорПеревод: Дублированный (официальный)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D2E53237C00401BB0C5451E3B06D2A6DD450B2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787685   (23116) от 29.03.2025
-
-Муфаса: Король Лев / Mufasa: The Lion King (2024) BDRemux [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23116.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осиротевший Муфаса знакомится с наследником королевских кровей по имени Така. Вместе они отправляются в судьбоносное опасное путешествие, которое проверит их дружбу на прочность.Производство: США, Канада / Walt Disney Pictures, Québec Production Services Tax Credit, Walt Disney Animation StudiosЖанр: Мультфильм, мюзикл, драма, приключения, семейный, фэнтезиРежиссер: Барри ДженкинсАктеры: Аарон Пьер, Дональд Гловер, Келвин Харрисон мл., Тиффани Бун, Кагисо Ледига, Престон Найман, Блу Айви Картер, Джон Кани, Мадс Миккельсен, Сет Роген, Билли АйкнерПеревод: Дублированный, Профессиональный многоголосыйЯзык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские(Forced, Full, SDH), Английские (Full, SDH)Продолжительность: 01:58:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C150C1FFC99C7A5C5717A6910C3965411C150C5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788035   (23114) от 29.03.2025
-
-Тачки / Cars (2006) WEB-DLRip [AV1/2160p] [Open Matte] [4K, HDR, 10-bit] [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неукротимый в своем желании всегда и во всем побеждать гоночный автомобиль «Молния» Маккуин вдруг обнаруживает, что сбился с пути и застрял в маленьком захолустном городке Радиатор-Спрингс, что находится где-то на трассе 66 в Калифорнии.
-
-Участвуя в гонках на Кубок Поршня, где ему противостояли два очень опытных соперника, Маккуин совершенно не ожидал, что отныне (   Читать дальше...   )Производство: США / Pixar Animation Studios, Walt Disney PicturesЖанр: мультфильм, комедия, приключения, семейный, спортРежиссер: Джон Лассетер, Джо РэнфтАктеры: Оуэн Уилсон, Пол Ньюман, Бонни Хант, Ларри-кабельщик, Чич Марин, Тони Шэлуб, Гуидо Куарони, Дженифер Льюис, Пол Дули, Майкл УоллисПеревод: Дублированный (Невафильм)Язык озвучки: Русский, АнглийскийСубтитры: русские (forced, full), английскиеПродолжительность: 01:57:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BA61ADD131DF82E5EA544F9908D1A5DA36D6269
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788295   (23040) от 30.03.2025
-
-Приключения капитана Врунгеля (1976-1979) DVDRip [H.265/1080p] [hand made Upscale AI]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23040.jpg" />
-</div>
-
-
-###  Подробнее
-
-Христофору Бонифатьевичу Врунгелю, известному мореходу, профессору навигации, приходит приглашение участвовать в международной парусной регате. Специально для соревнований помощник Врунгеля — матрос Лом — построил яхту «Победа», но во время отплытия две первые буквы её названия отпали с кормовой доски, и она получила название «Беда». И на этой яхте Врунгелю и его (   Читать дальше...   )Производство: СССР, КиевнаучфильмЖанр: рисованная анимация, минисериал, приключения, музыкальныйРежиссер: Давид ЧеркасскийАктеры: Зиновий Гердт, Георгий Кишко, Семён Фарада, Эдуард Назаров, Евгений Паперный, Григорий Шпигель, Вениамин СмеховСубтитры: русские, английские, французские, испанские, итальянские, немецкиеПродолжительность: 02:08:06 (01:08:20 + 00:59:46)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAE49EF4BAABB7FACCB9320340DFEA768CAF3A23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788360   (23021) от 30.03.2025
-
-Пес в сапогах (1981) HDTV [H.264/1080i]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой гасконский пес не успел приехать в Париж, как сразу подрался с кошками кардинала, подружился с лучшими собаками короля и влюбился в симпатичную болонку. Теперь его ждет такое количество проблем, что неизвестно, сможет ли он хотя бы остаться в живых.Производство: СССР / СоюзмультфильмЖанр: рисованная анимация, мультфильм, короткометражка, мюзиклРежиссер: Ефим ГамбургАктеры: Николай Караченцов, Ирина Муравьёва, Валентин Гафт, Юрий Волынцев, Александр Ширвиндт, Евгений Весник, Лев Дуров, Василий Ливанов, Всеволод Ларионов, Григорий Шпигель и другиеСубтитры: русскиеПродолжительность: 00:19:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CBA537191AA627C716F4F01B088F6F10BD13811
 ```
 
 https://mybot314.ru/tekegram_catalog/

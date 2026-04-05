@@ -6,7 +6,7 @@ Heaven and Hell - Radio City Music Hall Live! (2007/2011) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846379.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846330.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846053.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845011.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844825.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Annihilator - Triple Threat (2017) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844591.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844380.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844122.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843315.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842940.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842904.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Annihilator - Triple Threat (2017)  BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842829.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_842684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_842684.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842672.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842263.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841604.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Silvesterkonzert / New Year's Eve Concert (2015) [H.264/1080i-LQ] <сlassical>
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841597.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841497.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841356.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840695.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840687.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840684.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Disco Дача. Весенний концерт (2013.05.01) HDTV [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839499.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Madonna: Rebel Heart Tour Showtime (09.12.2016) WEB-DL [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837827.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ Leonard Cohen: Songs from the Road (2010) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837383.jpg" />
 </div>
 
 
@@ -719,7 +719,7 @@ Whitesnake - Made In Japan (2013) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835653.jpg" />
 </div>
 
 

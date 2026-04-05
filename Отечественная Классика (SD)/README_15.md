@@ -1,3 +1,55 @@
+###  Публикация: 197961   (814279) от 04.05.2010
+
+Помни имя свое / Zapamietaj imie swoje (1974) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814279.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основу фильма положена реальная, полная драматизма история русской матери, разлученной в Освенциме со своим малышом. Пройдя через все муки фашистского ада, она наконец находит сына, которого спасла польская женщина.Производство: СССР, Польша / Мосфильм,  Zespol Filmowy "Iluzjon"Жанр: драма, военныйРежиссер: Сергей КолосовАктеры: Людмила Касаткина, Людмила Иванова, Тадеуш Боровский, Рышарда Ханин, Владислав Астахов, Лилия Давидович, Владимир Ивашов, Леон Немчик, Любовь Соколова, Павел ВинникПродолжительность: 01:36:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:332E133DA44433007CAE2D23DA30BA9F29B1DFD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 654774   (813568) от 16.05.2013
+
+Государственный преступник (1964) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813568.jpg" />
+</div>
+
+
+###  Подробнее
+
+После упорных поисков работникам органов безопасности удается найти и обезвредить опасного государственного преступника, повинного в гибели сотен людей в годы Великой Отечественной войны.Жанр: Детектив, ДрамаРежиссер: Николай РозанцевАктеры: Алина Покровская, Александр Демьяненко, Сергей Лукьянов, Павел Кадочников, Клара Лучко, Олег Жаков, Бруно Фрейндлих, Евгений БарковПродолжительность: 01:30:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D31DC1FFF4D13EB65E23E5F400746460B513E31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 276725   (813005) от 31.03.2011
 
 Карнавальная ночь (1956) DVDRip
@@ -6,7 +58,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813005.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812761.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811590.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811529.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809554.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809369.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808318.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805689.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805669.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804985.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804944.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804675.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804012.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802872.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801409.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799760.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799429.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799299.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798895.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797858.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797740.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797099.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796496.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796140.jpg" />
 </div>
 
 
@@ -623,60 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D9D0A0D8784392A8C0091E79B4D9BF5A25D4FB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200257   (795527) от 21.01.2018
-
-Гамлет (1964) WEBRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795527.jpg" />
-</div>
-
-
-###  Подробнее
-
-По одноименной трагедии Уильяма Шекспира (пер. Бориса Пастернака).
-Фильм этот — попытка современного прочтения шекспировской трагедии. За всю историю Эльсинора, мрачного замка, хранящего тайну не одного преступления, Гамлет, быть может, первый человек, который без прежней легкости и уверенности в своей правоте берется за оружие, чтобы отомстить. Он — первый мыслитель (   Читать дальше...   )Производство: СССР, ЛенфильмЖанр: Драма, ЭкранизацияРежиссер: Григорий КозинцевАктеры: Иннокентий Смоктуновский, Михаил Названов, Эльза Радзиня, Юрий Толубеев, Анастасия Вертинская, Вадим Медведев, Владимир Эренберг и др.Субтитры: Русские, Английские, ФранцузскиеПродолжительность: 01:11:39 + 01:11:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:314D48783D076843A5CD7518DDDCD7135F8C0B01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197540   (795477) от 21.01.2018
-
-Олеся (1970) DVBRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795477.jpg" />
-</div>
-
-
-###  Подробнее
-
-По одноименной повести Александра Куприна.
-Трагическая история любви русского интеллигента и неграмотной девушки, обладающей, тем не менее, необычными способностями.Производство: СССР, киностудия: "им. А.Довженко"Жанр: ДрамаРежиссер: Борис ИвченкоАктеры: Людмила Чурсина, Геннадий Воропаев, Борислав Брондуков, Анатолий Барчук, Мария Капнист, Владимир Волков и др.Продолжительность: 01:20:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0C8B98E5FDF97A346F219B600C537031B41A716
 ```
 
 https://mybot314.ru/tekegram_catalog/

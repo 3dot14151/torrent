@@ -1,29 +1,3 @@
-###  Публикация: 927172   (523897) от 14.08.2015
-
-SynforgeTutorials | Basic Java, Java Swing (2013) PCRec [H.264/720p] [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523897.jpg" />
-</div>
-
-
-###  Подробнее
-
-Туториал по Java от простого парня который решил немного покодить. Показано как можно создавать графические интерфейсы на основе Swing. Больше добавить к описанию нечего. Смотрите, комментируйте.Производство: SynforgeTutorialsЖанр: JavaПродолжительность: 06:06:29.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48CC3CEC47BD54005CCC4E837B149DC5C9533FCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927176   (523865) от 14.08.2015
 
 Lineware | Учебное руководство по Java / Java Tutorial (2013) PCRec [H.264/720p-LQ] [EN]
@@ -32,7 +6,7 @@ Lineware | Учебное руководство по Java / Java Tutorial (2013
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523865.jpg" />
 </div>
 
 
@@ -59,7 +33,7 @@ PSD2HTML | Воркшоп по вёрстке адаптивной веб-стр
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523776.jpg" />
 </div>
 
 
@@ -87,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522991.jpg" />
 </div>
 
 
@@ -114,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522627.jpg" />
 </div>
 
 
@@ -142,7 +116,7 @@ Master-CSS | Вёрстка шаблона Л.Е.В (2015) PCRec [H.264/720p]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522271.jpg" />
 </div>
 
 
@@ -168,7 +142,7 @@ Veeam Academy, Дмитрий Шалымов | С#/NET- разработчик (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521806.jpg" />
 </div>
 
 
@@ -197,7 +171,7 @@ Geekbrains | Objective C. Уровень 2 Профессиональная ра
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521248.jpg" />
 </div>
 
 
@@ -223,7 +197,7 @@ Pluralsight | CheckPoint Certified Security Administrator: Backup and Updating (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519359.jpg" />
 </div>
 
 
@@ -249,7 +223,7 @@ Keith Barker | Check Point CCSA GAiA (2013) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518345.jpg" />
 </div>
 
 
@@ -275,7 +249,7 @@ ITVDN | Видео курс C++ Starter (2018) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517810.jpg" />
 </div>
 
 
@@ -301,7 +275,7 @@ Udemy | Kickstart ur Network Security Career: Checkpoint CCSA Course (2015) PCRe
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517253.jpg" />
 </div>
 
 
@@ -327,7 +301,7 @@ Cybrary, Robert Smith и др. | Become a SOC Analyst - Level 1 (2020) PCRec [EN
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516588.jpg" />
 </div>
 
 
@@ -353,7 +327,7 @@ SmartMe | Thinking in Angular: про что не знает 80% AngularJS ра�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514745.jpg" />
 </div>
 
 
@@ -379,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514648.jpg" />
 </div>
 
 
@@ -405,7 +379,7 @@ Geekbrains | Node.js Серверное программирование на Ja
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514642.jpg" />
 </div>
 
 
@@ -431,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514635.jpg" />
 </div>
 
 
@@ -458,7 +432,7 @@ Udemy, Angela Yu | 100 Days of Code - The Complete Python Pro Bootcamp (2021) PC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_514344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514344.jpg" />
 </div>
 
 
@@ -487,7 +461,7 @@ PluralSight | Check Point Certified Security Administrator Install & Deploy (201
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513655.jpg" />
 </div>
 
 
@@ -513,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513228.jpg" />
 </div>
 
 
@@ -539,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513217.jpg" />
 </div>
 
 
@@ -565,7 +539,7 @@ Udemy | Spring и Hibernate для новичков [включая Spring Boot]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512544.jpg" />
 </div>
 
 
@@ -594,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510628.jpg" />
 </div>
 
 
@@ -620,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510617.jpg" />
 </div>
 
 
@@ -646,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509806.jpg" />
 </div>
 
 
@@ -672,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509481.jpg" />
 </div>
 
 
@@ -686,6 +660,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C29550F2D221ABA4E0C17034918514F68102194
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932559   (508916) от 29.08.2015
+
+Школа современных технологий | Среда знаний. Яндекс. Минусинск (2015) PCRec [H.264]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поисковые системы постоянно работают над повышением качества выдачи и, стремясь снизить искусственное влияние на нее со стороны сеошников, ужесточают требования к ссылочной массе и снижают влияние ссылок вообще, одновременно работая над усилением влияния внутренних показателей сайта. По заявлению специалистов Яндекса в определении релевантности сайта участвуют, кроме (   Читать дальше...   )Жанр: SEOПродолжительность: 01:23:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D1EC96F38F0B849DD80BAFBA5AEA6341FD6D8A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

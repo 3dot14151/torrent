@@ -6,7 +6,7 @@
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135787.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135772.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135767.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135548.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135501.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135492.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Berlitz | Японский язык. Базовый курс+Study guide "Langua
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135490.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134419.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134399.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Berlitz | Французский язык. Базовый курс [2006] [MP3+P
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134354.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Moore Martin | Oxford Grammar for Schools 1. Audio 2 (2014) [MP3] [EN]
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109140.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106932.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Dr. Paul Pimsleur | Иврит по методике Д-ра Пимслера (�
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89959.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Moore Martin | Oxford Grammar for Schools 1. Audio 3 (2014) [MP3] [EN]
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55724.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Moore Martin | Oxford Grammar for Schools 1. Audio 1 (2014) [MP3] [EN]
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55714.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Rachel Smith | American English Pronunciation. Audio (2015) [MP3, Rachel Smith] 
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54891.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50469.jpg" />
 </div>
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 957017   (327375) от 17.11.2015
+
+Сергей Есенин | Собрание сочинений (2014) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327375.jpg" />
+</div>
+
+
+###  Подробнее
+
+Послушайте стихи Сергея Есенина в проникновенном исполнении Александра Злищева. И даже если вы не любите поэзию, мы уверены, вы пересмотрите свою позицию.Жанр: Поэзия, аудиокнигаПродолжительность: 02:29:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB631336681318E12EB5C7C49B16EF3DA705F996
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 415150   (326727) от 25.11.2011
 
 Михаил Булгаков | Собачье сердце (2005) [MP3, Владимир Самойлов]
@@ -6,7 +32,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326727.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326615.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326576.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326553.jpg" />
 </div>
 
 
@@ -117,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325917.jpg" />
 </div>
 
 
@@ -145,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325890.jpg" />
 </div>
 
 
@@ -173,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325646.jpg" />
 </div>
 
 
@@ -201,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325590.jpg" />
 </div>
 
 
@@ -227,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323860.jpg" />
 </div>
 
 
@@ -254,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323630.jpg" />
 </div>
 
 
@@ -281,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323582.jpg" />
 </div>
 
 
@@ -307,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323579.jpg" />
 </div>
 
 
@@ -333,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323474.jpg" />
 </div>
 
 
@@ -359,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323437.jpg" />
 </div>
 
 
@@ -387,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323355.jpg" />
 </div>
 
 
@@ -414,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323296.jpg" />
 </div>
 
 
@@ -440,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323173.jpg" />
 </div>
 
 
@@ -466,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321355.jpg" />
 </div>
 
 
@@ -492,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321170.jpg" />
 </div>
 
 
@@ -518,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320992.jpg" />
 </div>
 
 
@@ -544,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320803.jpg" />
 </div>
 
 
@@ -570,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320802.jpg" />
 </div>
 
 
@@ -596,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319121.jpg" />
 </div>
 
 
@@ -622,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318671.jpg" />
 </div>
 
 
@@ -650,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316936.jpg" />
 </div>
 
 
@@ -661,32 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C6212784988D9E8D326A995D6CF91DB501DBAC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583037   (316452) от 12.10.2022
-
-Джеймс Джойс | Улисс (2022) [MP3, Михаил Росляков]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316452.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джеймс Джойс (1882—1941) – великий ирландский писатель, классик и одновременно разрушитель классики с ее канонами; человек, которому более, чем кому-либо, обязаны своим рождением новые литературные школы и направления XX века. Роман «Улисс» (1922) – главное произведение писателя, определившее пути развития искусства прозы и не раз признанное лучшим, значительнейшим (   Читать дальше...   )Жанр: Зарубежная проза, Классика, РоманПеревод: Виктор Хинкис, Сергей ХоружийПродолжительность: 42:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A69DD0AA3D692FF7E3232E5AD77599306C6BC59
 ```
 
 https://mybot314.ru/tekegram_catalog/

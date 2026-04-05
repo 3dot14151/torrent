@@ -1,3 +1,31 @@
+###  Публикация: 1579785   (207091) от 28.09.2022
+
+Дмитрий Курилов | Corona Render (2022) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторский курс Дмитрия Курилова по Corona Render:Lighting
+Materials
+ModelingЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 10:21:35Реклама: Присутствуют наложения на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:380FB44A8FBDEE804E22F38F17288D3219300D35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1579789   (207072) от 28.09.2022
 
 Liveclasses, Андрей Журавлев | Adobe Photoshop: все форматы файлов (2022) WEB-DL [AD] [RU]
@@ -6,7 +34,7 @@ Liveclasses, Андрей Журавлев | Adobe Photoshop: все форма�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207072.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207064.jpg" />
 </div>
 
 
@@ -63,7 +91,7 @@ Liveclasses, Анатолий Ясинский | Субкультуры и ко�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207044.jpg" />
 </div>
 
 
@@ -89,7 +117,7 @@ Profbuh8.ru, Елена Грянина | ЗУП 3.1 кадровый и зарп
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207039.jpg" />
 </div>
 
 
@@ -118,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206992.jpg" />
 </div>
 
 
@@ -147,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206951.jpg" />
 </div>
 
 
@@ -176,7 +204,7 @@ Udemy, Maximilian Schwarzmüller, Manuel Lorenz | 100 Days Of Code - 2021 Web De
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206863.jpg" />
 </div>
 
 
@@ -205,7 +233,7 @@ Stephane Maarek | Ultimate AWS Certified Cloud Practitioner - 2023 (2023) WEBRip
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206766.jpg" />
 </div>
 
 
@@ -234,7 +262,7 @@ Flipped Normals, Nexttut, Abraham Leal | Complete Guide to Marmoset Toolbag 4 (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206671.jpg" />
 </div>
 
 
@@ -262,7 +290,7 @@ Udemy, Maximilian Schwarzmüller | Angular - The Complete Guide (2022 Edition) (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206659.jpg" />
 </div>
 
 
@@ -290,7 +318,7 @@ Gumroad, Mohammad Fakhri | Texturing And Shading Realistic Skin In Maya Mari And
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206625.jpg" />
 </div>
 
 
@@ -316,7 +344,7 @@ Infostart, Николай Бондаренко | Базовый курс по р
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206618.jpg" />
 </div>
 
 
@@ -345,7 +373,7 @@ Scott Duffy | AZ-104 Microsoft Azure Administrator Exam Prep (2021) WEBRip [EN /
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206608.jpg" />
 </div>
 
 
@@ -373,7 +401,7 @@ Thinknetica Pro, Максим Данилов | Возможности Django Adm
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206552.jpg" />
 </div>
 
 
@@ -402,7 +430,7 @@ Artstation, Florian Neumann |  Stylized Game Character (2022) PCRec [Tutorial] [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206543.jpg" />
 </div>
 
 
@@ -428,7 +456,7 @@ Udemy, Eric Roby | FastAPI - The Complete Course (Beginner + Advanced) (2022) WE
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206537.jpg" />
 </div>
 
 
@@ -454,7 +482,7 @@ Udemy, Catalin Stefan | Complete FastAPI masterclass from scratch (2022) WEB-DL 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206533.jpg" />
 </div>
 
 
@@ -480,7 +508,7 @@ Udemy, Ashutosh Pawar | Django 4 Masterclass 2022: From Development To Deploymen
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206437.jpg" />
 </div>
 
 
@@ -508,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206426.jpg" />
 </div>
 
 
@@ -537,7 +565,7 @@ Udemy, Imran Teli | DevOps Beginners to Advanced | Decoding DevOps with Projects
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206410.jpg" />
 </div>
 
 
@@ -563,7 +591,7 @@ Udemy, StudyEasy Organisation, Chaand Sheikh | Full Stack Java-разработ�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206385.jpg" />
 </div>
 
 
@@ -589,7 +617,7 @@ Udemy, Bo Andersen | Complete Guide to Elasticsearch (2022) WEB-DL [EN / EN Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205985.jpg" />
 </div>
 
 
@@ -615,7 +643,7 @@ CodeWithMosh, Mosh Hamedani | The Ultimate C++ Series (2022) WEB-DL [Part 1-3] [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205826.jpg" />
 </div>
 
 
@@ -644,7 +672,7 @@ Lectoroom, Елена Базанова | Зимний этюд акварель�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205811.jpg" />
 </div>
 
 
@@ -671,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205743.jpg" />
 </div>
 
 
@@ -685,34 +713,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D05CCBD978B23523554934AC2E0491333D288B92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567930   (205579) от 05.08.2022
-
-Udemy, Victory 3D, Corazon Bryant | Female Game Character Creation in Blender Complete Worklow (2021) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205579.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе, мы создадим игрового персонажа полностью в Blender.
-Я также покажу вам, как создать сексуальное платье, туфли, ожерелье и другие аксессуары, чтобы наш персонаж был готов к балу.
-Что касается волос, я покажу вам, как создать систему частиц, а затем использовать их для карточек волос. Карточки для волос - очень важная часть процесса создания игры, и на (   Читать дальше...   )Производство: UdemyЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 40:12:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D0A6D14408B1CEF59344AC73547414DBECE5A3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

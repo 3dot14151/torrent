@@ -6,7 +6,7 @@ Jormungand: Perfect Order / Ёрмунганд [ТВ-2] [2012, TV, 12 эп.] BDr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345274.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Bungou Stray Dogs 3 / Великий из бродячих псов [ТВ-3] [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345263.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Jormungand / Ёрмунганд [ТВ-1] [2012, TV, 12 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345125.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Pupipoo! | Пупипо! [2013, TV, 15 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343439.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Fumikiri Jikan | Crossing Time | Железнодорожный переезд [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343438.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Busou Shoujo Machiavellianism | Armed Girl's Machiavellism | Тирания во
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343125.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Mahou Shoujo Site | Magical Girl Site | Сайт Девочек-Волшебни
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343124.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Fate/Grand Order: Moonlight/Lostroom | Судьба/Великая Кампан�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342935.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Princess Principal | Принцесса-шпионка | Подручные пр
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342913.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Inou-Battle wa Nichijou-kei no Naka de | Inou Battle | Inou Battle Within Everyd
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341794.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Ixion Saga: Dimension Transfer | ИКСИОН САГА: Пространстве
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341432.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Lost Song | Потерянная песня [2018, ONA, 12 эп.] BDrip 1080p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341074.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Sora Yori mo Tooi Basho | A Place Further Than the Universe | Место за п
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340907.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Guskou Budori no Denki (2012) / The Life of Guskou Budori / Житие Гуск�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_340429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_340429.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Laidbackers | Расслабонщицы [2019, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339848.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Darwin's Game | Игра Дарвина [2020, TV, 11 из 11] BDRip 1080p 10-bi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339716.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Hana to Alice: Satsujin Jiken | The Case of Hana & Alice | Хана и Алис�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339360.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Kimagure Orange Road OVA | Capricious Orange Road OVA | Капризы Апел�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338971.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Sora o Miageru Shoujo no Hitomi ni Utsuru Sekai | Мунто [ТВ] [2009, TV, 9
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338885.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Kimagure Orange Road | Capricious Orange Road | Капризы Апельсин�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338866.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Kimagure Orange Road: Ano Hi ni Kaeritai | Capricious Orange Road: I Want to Ret
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338865.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Nyan Koi! / Nyankoi! / Кошачьи Прихоти! [2009, TV, 12 серий] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338856.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Tenjoubito to Akutobito Saigo no Tatakai | Мунто (фильм) | После�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338745.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Shijou Saikyou no Daimaou, Murabito A ni Tensei Suru | The Greatest Demon Lord I
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338744.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Yuusha, Yamemasu | I'm Quitting Heroing | Перестану быть герое
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338737.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Nekopara: Koneko no Hi no Yakusoku | Кошачий рай: Обещания к�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336317.jpg" />
 </div>
 
 

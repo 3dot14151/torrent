@@ -1,137 +1,3 @@
-###  Публикация: 625347   (163428) от 17.12.2020
-
-Яков Перельман | сборник в 54 книгах [1919-2010] [FB2, DJVU, PDF]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Люди делятся не только на мужчин и женщин. Существуют еще два лагеря: "физики" и "лирики".
-Яков Перельман - просто удивительный человек, благодаря которому уже несколько поколений открывают для себя увлекательный мир точных наук, мир "физиков", мир, рождающий академиков и двигающий прогресс.
-Яков Перельман - это Пушкин, Моцарт, Дали (   Читать дальше...   )Формат: FB2, DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:440E299E6954CC8272B245B21F44E8DFD5AC63C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346489   (163410) от 19.12.2019
-
-Эндрю Лумис | Рисование фигуры (2017) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эндрю Лумис (1892–1959), один из выдающихся художников-иллюстраторов Америки, а также один из лучших преподавателей рисунка и живописи, подробно освещает основы графического искусства.
-Отобрав все самое ценное из своего огромного творческого и педагогического опыта, Эндрю Лумис создал пособия, которые сохраняют актуальность на протяжении многих десятилетий и сами (   Читать дальше...   )Жанр: Изобразительное искусствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A610B34CDADF24BB113E1737621EC94164B49FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346275   (163380) от 19.12.2019
-
-Наша Уинтерс, Джесс Келли | Тело может! Как контролировать, лечить и предотвращать рак (2020) [PDF]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163380.jpg" />
-</div>
-
-
-###  Подробнее
-
-Снова и снова подтверждается, что развитие рака связано с диетой и образом жизни. По какой причине современная онкология так часто это игнорирует? Почему все свои силы врачи бросают на уничтожение опухоли, а не на то, что ее вызвало? Организм человека – удивительная система, которая чутко реагирует на все, что с ним происходит. И рак – это его крик о помощи, сигнал, (   Читать дальше...   )Жанр: МедицинаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D099DA02D0FB67D04F720BF9BF2D740237C14064
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673802   (163351) от 03.11.2023
-
-О.С. Зайцев | Химическая термодинамика к курсу общей химии (1973) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163351.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современная общая и неорганическая химия быстро превращается из описательной науки в количественную. Почти полное отсутствие знаний по высшей математике у студентов первого курса крайне затрудняет введение в программу новых важнейших разделов химии, в том числе и термодинамики. В книге без применения высшей математики в простой форме изложены элементарные основы (   Читать дальше...   )Жанр: ХимияИздательство: Издательство Московского университетаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B277D78E99D719FC3922BD4743B44A902F16B7BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346500   (163326) от 19.12.2019
-
-Егор Матита | Портреты карандашом. Техники достижения фотореализма (2019) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163326.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор книги – талантливый художник-график Егор Анцупов, архитектор по образованию, а также основатель студии рисования Matita.
-В этой книге вы не увидите академических схем или анатомических выдержек о подробном изучении построения человеческого лица. Книга максимально простая, для людей, которые не обладают продвинутыми знаниями об устройстве человеческого тела (   Читать дальше...   )Жанр: Изобразительное искусствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:964F076F4F3CA1445526F51743F5B23145ADCC73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1346522   (163311) от 19.12.2019
 
 Ричард Уильямс | Аниматор: набор для выживания. Секреты и методы создания анимации, 3D-графики и компьютерных игр (2019) [PDF]
@@ -140,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163311.jpg" />
 </div>
 
 
@@ -166,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163293.jpg" />
 </div>
 
 
@@ -192,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163260.jpg" />
 </div>
 
 
@@ -218,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163247.jpg" />
 </div>
 
 
@@ -246,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163106.jpg" />
 </div>
 
 
@@ -273,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163058.jpg" />
 </div>
 
 
@@ -299,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163037.jpg" />
 </div>
 
 
@@ -326,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162982.jpg" />
 </div>
 
 
@@ -352,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162979.jpg" />
 </div>
 
 
@@ -378,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162974.jpg" />
 </div>
 
 
@@ -404,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162962.jpg" />
 </div>
 
 
@@ -430,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162931.jpg" />
 </div>
 
 
@@ -456,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162864.jpg" />
 </div>
 
 
@@ -482,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162802.jpg" />
 </div>
 
 
@@ -508,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162748.jpg" />
 </div>
 
 
@@ -534,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162610.jpg" />
 </div>
 
 
@@ -560,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162536.jpg" />
 </div>
 
 
@@ -586,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162372.jpg" />
 </div>
 
 
@@ -612,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162364.jpg" />
 </div>
 
 
@@ -638,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162340.jpg" />
 </div>
 
 
@@ -664,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162252.jpg" />
 </div>
 
 
@@ -675,6 +541,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B1DED25076EAACAAACD0A569272A55424E342A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674285   (162246) от 04.11.2023
+
+Г. Аттура | Магнитные усилители (1963) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162246.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге в доступной форме изложены основы теории современных магнитных усилителей. Внимание главным образом уделено двум основным типам магнитных усилителей - дросселю насыщения и усилителю с самонасыщением. Рассмотрены одно- и двухполупериодные, одно- и двухтактные магнитные усилители, а также комбинированные магнитно-полупроводниковые усилители.
+Излагаются преимущественно (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: ГосэнергоиздатФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F856DD1F07A79754A0A6507C08F7B675B28AC055
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674295   (162215) от 04.11.2023
+
+Г.Ф. Сторм | Магнитные усилители (1957) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Задача настоящей книги - разъяснить основные принципы работы магнитных усилителей и показать наиболее важные области их применения. Книга предназначена для инженеров-электриков и студентов старших курсов электротехнических специальностей.Жанр: ЭлектротехникаИздательство: Издательство иностранной литературыФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23B0F2386AB6054C4A22DC215D4456830228B538
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674311   (162166) от 04.11.2023
+
+С. Лошаков | Периферийные устройства вычислительной техники (2022) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162166.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии подробно описаны виды, классификации и особенности различных периферийных устройств. Периферийное устройство — это часть технического обеспечения, конструктивно отделенная от основного блока вычислительной системы. В издании приводятся описание интерфейсов и классификация запоминающих устройств; затронуты оптические технологии. Отдельные разделы (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: НОУ "Интуит"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F033FE7B1BD86ABB896D9D5930D37BB4376E06D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674180   (162108) от 04.11.2023
+
+А.С. Кравчук и др. | Язык С++. Объектно-ориентированное программирование. Библиотека STL (2023) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассматриваются классы, различные аспекты работы с ними. Подробно рассматривается механизм наследования, использования виртуальных функций, а также абстрактных классов. Даются основы построения диаграмм классов, использования лямбда-функций и обработки исключительных ситуаций. Обширный раздел посвящен описанию основ работы с STL: рассмотрены некоторые контейнеры (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: БГУФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A9AFF3919AACDED161FA37BE48601C63C72E3EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433172   (161999) от 19.12.2020
+
+С.П. Копысов и др. | Масштабируемые вычисления для гетерогенных платформ (2020) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие представляет собой введение в методы построения и программной реализации параллельных численных алгоритмов на гетерогенных вычислительных платформ. Основной ее целью является научить читателя самостоятельно разрабатывать максимально эффективные алгоритмы и программы для современных компьютеров.
+Учебное пособие содержит описание основ параллельных (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3682AF52A21FAF249B5864112004BCE45CA12E0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

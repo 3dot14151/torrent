@@ -1,83 +1,3 @@
-###  Публикация: 1346877   (154831) от 21.12.2019
-
-Алексей Федяров | Невиновные под следствием. Инструкция по защите своих прав (2020) [FB2]
-
->>След.
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как вести себя на допросе, что делать, если вам подбросили что-то запрещенное, как обжаловать несправедливый приговор, какие российские правозащитные организации могут помочь и как обращаться в Европейский суд по правам человека? Алексей Федяров, глава правового департамента фонда "Русь сидящая", объясняет, как действовать тем, кто стал жертвой несправедливости. (   Читать дальше...   )Жанр: ПравоФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F012D4DBB81D89532A0803A42EFBEBA321556D75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085162   (154813) от 23.12.2016
-
-Ю. Г. Гайдуков | Что такое сознание (1962) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Велико могущество человеческого разума! Присмотритесь к вещам, среди которых мы живем. Почти все они — воплощение труда и мысли человека, его творческой воли. Наша одежда, дома, фабрики и заводы с их машинами, железные дороги, автомобили и самолеты, телеграф, телефон, радио — все это сделано человеком.
-
-Люди вывели новые замечательные сорта растений, улучшили породы (   Читать дальше...   )Жанр: История, философия, психология, науковедениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6CF59CCE86284432E384FCE0459B43143280C4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084655   (154799) от 23.12.2016
-
-Г. Л. Кабаев | Что такое способ производства (1961) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эксплуататоры целые тысячелетия сидели на шее народа. Понятно, что они стремились всячески принизить значение труда, материального производства в жизни общества, а значит и роль трудящихся масс. Эксплуататоры считали и считают труд уделом рабов, «быдла», «голытьбы», «черной кости». Но подобные взгляды не мешали им присваивать львиную долю плодов презираемого ими (   Читать дальше...   )Жанр: История, политология, экономика, философияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AD956AB4B85119711E56CC21656A4CC141DE4D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 152673   (154626) от 19.12.2021
 
 Барбара Минто | Золотые правила Гарварда и McKinsey. Правила магической пирамиды для делового письма [2004] [DOC]
@@ -86,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154626.jpg" />
 </div>
 
 
@@ -112,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154599.jpg" />
 </div>
 
 
@@ -138,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154404.jpg" />
 </div>
 
 
@@ -164,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154361.jpg" />
 </div>
 
 
@@ -190,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154359.jpg" />
 </div>
 
 
@@ -216,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154332.jpg" />
 </div>
 
 
@@ -244,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153652.jpg" />
 </div>
 
 
@@ -270,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153644.jpg" />
 </div>
 
 
@@ -296,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153639.jpg" />
 </div>
 
 
@@ -324,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152527.jpg" />
 </div>
 
 
@@ -350,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152410.jpg" />
 </div>
 
 
@@ -376,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152272.jpg" />
 </div>
 
 
@@ -402,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152204.jpg" />
 </div>
 
 
@@ -428,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152183.jpg" />
 </div>
 
 
@@ -455,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151897.jpg" />
 </div>
 
 
@@ -481,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151778.jpg" />
 </div>
 
 
@@ -507,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151302.jpg" />
 </div>
 
 
@@ -535,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149497.jpg" />
 </div>
 
 
@@ -564,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149372.jpg" />
 </div>
 
 
@@ -591,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149329.jpg" />
 </div>
 
 
@@ -617,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149305.jpg" />
 </div>
 
 
@@ -643,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149202.jpg" />
 </div>
 
 
@@ -671,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147773.jpg" />
 </div>
 
 
@@ -682,6 +602,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6429BAB0AD760BDE4B032677D2A4249835BB8660
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969595   (147682) от 27.12.2015
+
+В. С. Нечаева | Ранний Достоевский 1821-1849 (1979) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147682.jpg" />
+</div>
+
+
+###  Подробнее
+
+В публикуемом исследовании рассматриваются некоторые спорные или малоизученные, но имеющие принципиальное значение факты и события жизни и творчества Достоевского с 1821 по 1849 г.
+Значительное место в книге о раннем творчестве Ф. М. Достоевского отводится его брату — М. М. Достоевскому.
+Устанавливается принадлежность писателю нескольких новых страниц текста.Жанр: Литературоведение, монографияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:894D68D10BCE8A948076C067FA155972A5AF96F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969408   (147669) от 27.12.2015
+
+А. В. Никольский (ред.) | Борьба коммунистов против идеологии троцкизма (1973) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147669.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборнике статей видных партийных и научных работников ряда коммунистических и рабочих партий разоблачаются реакционная сущность и взгляды современного троцкизма, подрывная деятельность его организаций.Жанр: История, политологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9F731513EC1FA700BA68D9A70622227E1FCF3F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969592   (147654) от 27.12.2015
+
+Л. Сараскина | Фёдор Достоевский. Одоление демонов (1996) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147654.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Трудно было быть более в гибели, но работа меня вынесла…» Литературное признание Достоевского, воспринятое им со всей страстностью, со всем присущим ему фанатизмом и нарушением чувства меры, в конечном счёте спасло его — дало силы выжить, не затерявшись в трагическом хаосе бытия, высвободило энергию сопротивления житейским невзгодам и страшным ударам судьбы, помогло (   Читать дальше...   )Жанр: Литературоведение, монографияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4C84B3629263D08279F76655723D81074185CB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

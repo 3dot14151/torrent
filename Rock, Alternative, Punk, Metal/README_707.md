@@ -1,3 +1,32 @@
+###  Публикация: 1418097   (351488) от 23.10.2020
+
+Hexx - Entangled In Sin (2020) [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Watching Me Burn (4:33)
+02. Entangled in Sin (3:24)
+03. Vultures Gather Round (3:28)
+04. Beautiful Lies (5:06)(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:55:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08C7C6912D84807EF4735D92923F8976EA6142EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1179213   (351274) от 30.10.2017
 
 Impalers - The Celestial Dictator (2017) [MP3|320 Kbps] <Thrash Metal>
@@ -6,7 +35,7 @@ Impalers - The Celestial Dictator (2017) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351274.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Cannibal Corpse - Red Before Black (2017) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351266.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351244.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351238.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Leaves' Eyes - The Last Viking (2020) 2xCD [FLAC|Lossless|WEB-DL|tracks] <Sympho
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351225.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Nothing But Thieves - Collection 6 Albums (2014-2020) [FLAC|Lossless|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351107.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Bring Me the Horizon - Post Human: Survival Horror (2020) [MP3|320 Kbps] <Post-H
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351088.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350938.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Karla - Karla (1990) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350846.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350793.jpg" />
 </div>
 
 
@@ -302,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350736.jpg" />
 </div>
 
 
@@ -333,7 +362,7 @@ Brett Ellis - 3 Альбома (2007-2012) [FLAC|Lossless]<Classic Rock, Blues R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_350602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_350602.jpg" />
 </div>
 
 
@@ -368,7 +397,7 @@ Snakadaktal - Snakadaktal [EP] (2011) [MP3|320 кб/с]<indie, alternative>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350591.jpg" />
 </div>
 
 
@@ -399,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350404.jpg" />
 </div>
 
 
@@ -428,7 +457,7 @@ Aegeon - Nocturnal Glorification (2014) [FLAC|Lossless|image + .cue] <Black Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350403.jpg" />
 </div>
 
 
@@ -457,7 +486,7 @@ High Grind - The Loud Bong Chronicles (2022) [MP3|320 Kbps] <Heavy Psych, Stoner
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350402.jpg" />
 </div>
 
 
@@ -486,7 +515,7 @@ Spectrum Mortis - Bit Meseri -The Incantation (2022) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350401.jpg" />
 </div>
 
 
@@ -515,7 +544,7 @@ Osculant Brutality - The Ides (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350400.jpg" />
 </div>
 
 
@@ -544,7 +573,7 @@ The Mighty Wraith - Elegies (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350399.jpg" />
 </div>
 
 
@@ -573,7 +602,7 @@ Massface - 3 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350398.jpg" />
 </div>
 
 
@@ -602,7 +631,7 @@ Aeternia - The Quest (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350397.jpg" />
 </div>
 
 
@@ -631,7 +660,7 @@ Scarlean - 3 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Prog
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350396.jpg" />
 </div>
 
 
@@ -660,7 +689,7 @@ Adventure - Tales Of Belle Part 2 - Unveiled By Fire (2022) [MP3|320 Kbps] <Prog
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350394.jpg" />
 </div>
 
 
@@ -690,7 +719,7 @@ Hellcord - Digital Murder (2022) [MP3|320 Kbps] <Melodic Death Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350393.jpg" />
 </div>
 
 
@@ -719,7 +748,7 @@ Mobius - Le Ne Merd Irni (2022) [MP3|320 Kbps] <Progressive Rock, Art Rock, Fema
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350392.jpg" />
 </div>
 
 
@@ -733,35 +762,6 @@ Mobius - Le Ne Merd Irni (2022) [MP3|320 Kbps] <Progressive Rock, Art Rock, Fema
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF3932E400B3869DDAA2860265CBE65DD8ED8816
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329603   (350391) от 06.10.2019
-
-7th Circle - Collective Minds (2000) [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Collective Minds
-02. Broken Jar
-03. Silent Sentence
-04. Black Feathers(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0383F7FD58CCC770D1CC546B2FED50E7745ABD84
 ```
 
 https://mybot314.ru/tekegram_catalog/

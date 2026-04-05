@@ -1,3 +1,107 @@
+###  Публикация: 1857317   (1059478) от 05.03.2026
+
+Журнал | Овочi та фрукти / Овощи и фрукты №2 (176) (февраль 2026) [PDF] [UKR]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059478.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для фермерів, дачників і городників, які хочуть не тільки отримати прекрасний урожай, але використовувати вирощування овочів і фруктів для отримання доходу. У журналі - інформація про сортовому розмаїтті овочевих і плодово-ягідних культур, світові тенденції розвитку, сучасні технології вирощування, зберігання і переробки овочів і фруктів, рекомендації по вибору (   Читать дальше...   )Жанр: Сад, огородЯзык: УкраинскийИздательство: ТОВ "КВП Дельта-Агро"Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80C162D26023857E860533C32E0970D5F8C1338E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857316   (1059477) от 05.03.2026
+
+Журнал | Овочi та фрукти / Овощи и фрукты №1 (175) (январь 2026) [PDF] [UKR]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для фермерів, дачників і городників, які хочуть не тільки отримати прекрасний урожай, але використовувати вирощування овочів і фруктів для отримання доходу. У журналі - інформація про сортовому розмаїтті овочевих і плодово-ягідних культур, світові тенденції розвитку, сучасні технології вирощування, зберігання і переробки овочів і фруктів, рекомендації по вибору (   Читать дальше...   )Жанр: Сад, огородЯзык: УкраинскийИздательство: ТОВ "КВП Дельта-Агро"Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60CB0EEC27CE91E8A01264C541780C5A4A4CB8F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857311   (1059476) от 05.03.2026
+
+Газета | Загадки истории №10 (2026) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059476.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны журналистами, писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!Жанр: Научно-популярный, историяИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F814C4F35075BFAAF6893AC63D715106AA0FC5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856993   (1059440) от 03.03.2026
+
+Журнал | Военно-исторический журнал №3 (791) (март 2026) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059440.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Военно-исторический журнал» Министерства обороны Российской Федерации освещает актуальные проблемы отечественной и зарубежной военной истории; военную политику Российского государства на всех этапах его становления и развития; проблемы военного строительства; исторический опыт обеспечения национальной безопасности; историю развития военной науки и техники; деятельность (   Читать дальше...   )Жанр: Военно-исторический журналИздательство: Редакционно-издательский центр МО РФФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8D1C3AAF1AF61EA0700E7FFDE49D4C0B4D33FFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856990   (1059439) от 03.03.2026
 
 Журнал | Наука и техника №3 (30) (март 2026) [PDF]
@@ -6,7 +110,7 @@
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059439.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059435.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059434.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059433.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059427.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059426.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059364.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059363.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059362.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059180.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059169.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059146.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059132.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059131.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059114.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059057.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058966.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058949.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058947.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058913.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058867.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058822.jpg" />
 </div>
 
 
@@ -566,110 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6630D95C08AB1DD865422AF4F864C475A518931
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855688   (1058755) от 26.02.2026
-
-Журнал | Render Magazine №2 (февраль 2026) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058755.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Render Magazine» - Журнал посвящен компьютерной графике, секретам, обучению и новинкам индустрии. В нем нас ждут подборки лучших по мнению редакции 2D и 3D работ, отобранных Администраторами галерей, так же нас ожидают самые яркие новости и подборка лучших работ форумного раздела. Присутствуют и эксклюзивные переводы, а так же интервью с крупными отечественными (   Читать дальше...   )Жанр: Графика и моделированиеИздательство: Render MagazineФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC51BBD43BCB1B3B5ED66036263E80AF7514D81F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855686   (1058754) от 26.02.2026
-
-Журнал | Тайны ХХ века №8 (1205) (февраль 2026) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058754.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Тайны XX века» - еженедельное издание, рассказывающее о загадочных силах природы, истории великих изобретений и жизни необыкновенных людей. Поиски сокровищ, исчезнувших без следа кораблей и самолетов, интервью с экстрасенсами и рассказы очевидцев о встречах с внеземным разумом. Каждую неделю на страницах вас ждут новые загадки мироздания и новые потрясающие открытия.Жанр: ИсторияИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9B548C7742EE6E4ABC2F6D8CBD488C1ABB2B2E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855685   (1058753) от 26.02.2026
-
-Журнал | Тайны ХХ века №7 (1204) (февраль 2026) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058753.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Тайны XX века» - еженедельное издание, рассказывающее о загадочных силах природы, истории великих изобретений и жизни необыкновенных людей. Поиски сокровищ, исчезнувших без следа кораблей и самолетов, интервью с экстрасенсами и рассказы очевидцев о встречах с внеземным разумом. Каждую неделю на страницах вас ждут новые загадки мироздания и новые потрясающие открытия.Жанр: ИсторияИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:181C22B4C27444BEE9A1D441965705AECE0F5EF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855683   (1058752) от 26.02.2026
-
-Журнал | Тайны ХХ века №6 (1203) (февраль 2026) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058752.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Тайны XX века» - еженедельное издание, рассказывающее о загадочных силах природы, истории великих изобретений и жизни необыкновенных людей. Поиски сокровищ, исчезнувших без следа кораблей и самолетов, интервью с экстрасенсами и рассказы очевидцев о встречах с внеземным разумом. Каждую неделю на страницах вас ждут новые загадки мироздания и новые потрясающие открытия.Жанр: ИсторияИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20FD182E7A781D2BA8B10BF1F5D0BDA95946844C
 ```
 
 https://mybot314.ru/tekegram_catalog/

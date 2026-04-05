@@ -1,3 +1,119 @@
+###  Публикация: 1070877   (364674) от 08.11.2016
+
+VA - Additional Deephouse (2016) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simplex Sensus - Right Behind (07:14)
+02. Flash Is Fast - Clean Your Desk (07:11)
+03. Circuito Zeta - Step Down (07:18)
+04. Dan Rubell - My Love (DJ Fopp Mix) (06:12)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:17:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25D3DAF2E48E121FC596477D62433EA7CC629E9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070761   (364673) от 08.11.2016
+
+VA - Sense Of Deephouse (2016) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lab of Music - The Fall (5:30)
+02. Simplex Sensus - Rhyme Master (6:16)
+03. H.a.n.t. - You Give Me (5:12)
+04. Chiffre 100 - Backshore (6:49)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6ED13B19DC4BCD755695D9153D122EF5F1BE568
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070755   (364670) от 08.11.2016
+
+VA - Amsterdam Dance Essentials 2016: Deep House (2016) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KIWAMU - Life Style (Original Mix) (6:36)
+02. Tim Bell - Oceans (Original Mix) (6:10)
+03. Daemon Carter - Panorax (Original Mix) (5:26)
+04. Vinicius Valis - Dark Basement (Original Mix) (5:40)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:38:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F72B4101B4846D35E0735CF2BEB2E4E6A5997DC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070715   (364668) от 08.11.2016
+
+VA - Deephouse After Dusk (2016) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diazar - Frequencies (5:07)
+02. Spiced Boogie - Lifestyle (5:40)
+03. Didier Beydts - Sheridan (6:28)
+04. Starbud - Need You (6:24)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:32:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2DF165FA0745CF7A911F488CD37553FE46AB443
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1070835   (364663) от 08.11.2016
 
 VA - Deep House Republic (2016) [MP3|320 Kbps] <Deep House>
@@ -6,7 +122,7 @@ VA - Deep House Republic (2016) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364663.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Sensual Beach Lounge Vol. 2 (2016) [MP3|320 Kbps] <Chillwave, Downtempo, Lo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364661.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Uplifting Only - Orchestral Trance - Year Mix 2015 (Mixed by Ori Uplift) (2
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364467.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Armin van Buuren - Club Embrace (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Prog
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364409.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Dubstepin' (2016) [MP3|320 Kbps] <Dirty Dubstep, Trap, Grime>
 >>Dubstep, Future Garage, Bass Music, UK Garage
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364399.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Progressive House Autumn Essentials (2018) [MP3|320 Kbps] <Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364361.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Toolroom Amsterdam 2018 (2018) [MP3|320 Kbps] <House, Tech House, Deep Hous
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364273.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Heart of Goa v.4 (Compiled & Mixed by Ovnimoon) (2016) [FLAC|Lossless|WEB-D
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364191.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Psyclon Nine - Less To Heaven (2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial M
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364186.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Abbsynth - Space Wanderer (2010) [OGG Vorbis|484 Kbps] <Electronic, Synth-pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364162.jpg" />
 </div>
 
 
@@ -294,7 +410,7 @@ DEADLIFE - The Order of Chaos (2018) NRW Records [FLAC|Lossless|WEB-DL|tracks] <
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364149.jpg" />
 </div>
 
 
@@ -323,7 +439,7 @@ VA - Deep & Uplifting: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364118.jpg" />
 </div>
 
 
@@ -352,7 +468,7 @@ Neurotech - 2 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial Elect
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364034.jpg" />
 </div>
 
 
@@ -381,7 +497,7 @@ VA - Markus Schulz - We Are the Light (2018)(2CD) [FLAC|Lossless|WEB-DL|tracks] 
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363967.jpg" />
 </div>
 
 
@@ -410,7 +526,7 @@ Tricky (Adrian Thaws) - 11 Albums (2008-2022) [FLAC|Lossless|WEB-DL|tracks] <Tri
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363859.jpg" />
 </div>
 
 
@@ -439,7 +555,7 @@ VA - Ministry of Sound: DJ Mag Top 100 Djs (2012) [MP3|256 кб/с]<House, Elect
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363747.jpg" />
 </div>
 
 
@@ -474,7 +590,7 @@ VA - Chilling On The Couch 02 LP (2015) [MP3|320 кб/с]<Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363659.jpg" />
 </div>
 
 
@@ -503,7 +619,7 @@ VA - Discover Dark 200 (Compiled & Mixed By Zach Zlov) (2019) [FLAC|Lossless|WEB
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363601.jpg" />
 </div>
 
 
@@ -532,7 +648,7 @@ Nicholson - Glorious (2019) [FLAC|Lossless|WEB|tracks|image] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363598.jpg" />
 </div>
 
 
@@ -561,7 +677,7 @@ VA - Dantze: Sunburn Compilation (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363579.jpg" />
 </div>
 
 
@@ -589,7 +705,7 @@ VA - Sexy Girls Lounge Vol 1 (2015) [MP3|320 кб/с]<Lounge, Chill Out, Easy Li
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363479.jpg" />
 </div>
 
 
@@ -618,7 +734,7 @@ AaRON - We Cut the Night (2015) [FLAC|tracks+.cue]<Electronic, Pop Rock, Synthpo
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363301.jpg" />
 </div>
 
 
@@ -632,128 +748,6 @@ AaRON - We Cut the Night (2015) [FLAC|tracks+.cue]<Electronic, Pop Rock, Synthpo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B94B5420DE1E3274E476AF3DBE1B297773E9830C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576731   (362870) от 17.11.2012
-
-Eurythmics - Peace - (1999) /BMG Japan, Remastered 2005/ [FLAC|Lossless]<Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_362870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 17 Again (4:57)
-02. I Saved The World Today (4:53)
-03. Power To The Meek (3:32)
-04. Beautiful Child (3:29)
-05. Anything But Strong (5:03)
-06. Peace Is Just A Word (5:58)
-07. I've Tried Everything (4:18)
-08. I Want It All (3:33)
-09. My True Love (4:44)
-10. Forever (4:11)(   Читать дальше...   )Жанр: Synth-popПродолжительность: 01:03:33
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417091   (362856) от 18.10.2020
-
-VA - Black Hole Trance Music 10-20 (2020) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dennis Sheperd & Sunlounger - I Can Feel (extended mix) 05:17
-02. Boris Foong & Blu Eyes - I Wish (extended mix) 05:19
-03. Johan Gielen - Balearic Reflection (extended mix) 05:39
-04. Leon Bolier - Kronos (extended mix) 05:59(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:45:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7D90A57BB659B6CD9E7094B5AF475CF12F63F85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417035   (362846) от 18.10.2020
-
-The Midnight - Horror Show (2020) EP [MP3|320 Kbps] <Synthwave, New Retrowave, Synthpop, Electronic>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 The Stranger [00:01:41]
-02 Ghost In Your Stereo [00:04:08]
-03 Neon Meduza [00:05:05]
-04 Devil Make A Deal [00:04:55](   Читать дальше...   )Жанр: Synthwave, New Retrowave, Synthpop, ElectronicПродолжительность: 00:23:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFD0B408160CDF0BA07EC748A74C22F4EF74B9F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416950   (362837) от 18.10.2020
-
-Chronovalve - Light (2020) Home Normal [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Minimal>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362837.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Watching Over You (05:39)
-2. So Sunny Out (05:41)
-3. If There Ever Was (06:04)
-4. Breathing Space (05:20)(   Читать дальше...   )Жанр: Ambient, Drone, MinimalПродолжительность: 00:46:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C8BB5EF50257BE409D2B883C7903DB7F4EC6716
 ```
 
 https://mybot314.ru/tekegram_catalog/

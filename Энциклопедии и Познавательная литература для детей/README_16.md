@@ -1,3 +1,30 @@
+###  Публикация: 1372925   (883493) от 04.04.2020
+
+Фил Найт | Продавец обуви. Как я создал Nike. Версия для детей и подростков (2020) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883493.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мировой бестселлер впервые в изложении для детей и подростков!
+Когда-то молодой, неудержимый, только что окончивший школу Фил Найт занял у отца 50 долларов, чтобы открыть собственную компанию с одной простой идеей: импортировать недорогую и качественную обувь из Японии. За первый год продаж с фургона Найт заработал 8 тысяч долларов и основал компанию Nike. Сегодня (   Читать дальше...   )Жанр: Познавательная и развивающая литература для детейПеревод: А.С. ГоряиноваФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEFC3E785759E44EE0517FEA667EFB5EFE2D0EED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1372921   (883396) от 04.04.2020
 
 Алексей Марков | Хулиганская экономика. Финансовые рынки для хулиганов и их родителей (2019) [EPUB]
@@ -6,7 +33,7 @@
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883396.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883391.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883142.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_881091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_881091.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879086.jpg" />
 </div>
 
 
@@ -137,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878364.jpg" />
 </div>
 
 
@@ -163,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878354.jpg" />
 </div>
 
 
@@ -189,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878264.jpg" />
 </div>
 
 
@@ -216,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866384.jpg" />
 </div>
 
 
@@ -243,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864514.jpg" />
 </div>
 
 
@@ -269,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862668.jpg" />
 </div>
 
 
@@ -296,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862407.jpg" />
 </div>
 
 
@@ -322,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859079.jpg" />
 </div>
 
 
@@ -348,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858890.jpg" />
 </div>
 
 
@@ -374,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858862.jpg" />
 </div>
 
 
@@ -401,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853269.jpg" />
 </div>
 
 
@@ -427,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848052.jpg" />
 </div>
 
 
@@ -453,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838186.jpg" />
 </div>
 
 
@@ -479,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837764.jpg" />
 </div>
 
 
@@ -505,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836429.jpg" />
 </div>
 
 
@@ -531,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830533.jpg" />
 </div>
 
 
@@ -557,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827685.jpg" />
 </div>
 
 
@@ -585,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824999.jpg" />
 </div>
 
 
@@ -611,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816627.jpg" />
 </div>
 
 
@@ -639,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810419.jpg" />
 </div>
 
 
@@ -651,32 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40887CE54FADCD04C6618502A31EB35A5AB63C6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383398   (809556) от 16.05.2020
-
-Эстелла Лонгфилд | 365 крутых экспериментов (2019) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга не оставит равнодушным ни одного ребенка, интересующегося всем на свете. Его ждут 365 захватывающих экспериментов в самых разных областях науки. Оборудование и материалы - не проблема: для проведения опытов понадобятся самые простые вещи. Для того чтобы проделать все эксперименты один за другим, юному естествоиспытателю понадобится целый год.Жанр: Познавательная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A58276E923C1E0D63C51B20F137CC60E382D4A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

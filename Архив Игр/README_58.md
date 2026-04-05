@@ -1,3 +1,56 @@
+###  Публикация: 717905   (389960) от 02.11.2013
+
+Call of Juarez: Gunslinger (2013) [Ru/Multi] (1.03) License PROPHET
+
+>>След.
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Call of Juarez The Gunslinger перенесет вас на просторы легендарного Дикого Запада - место, где царит неповторимая атмосфера беззакония и жестокости. Вживайтесь в роль безжалостного охотника за головами, отыщите и пристрелите самых отъявленных негодяев. Вам предстоит побывать в грязных салунах, золотых шахтах и многих других местах, где могут укрываться бандиты. (   Читать дальше...   )Тип издания: ЛицензияРазработчик: TechlandЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Испанский, Итальянский, Французский, Немецкий, Польский, Бразильский, ЯпонскийЯзык интерфейса: Русский, Английский, Испанский, Итальянский, Французский, Немецкий, Польский, Бразильский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D93C6CAD1DDB864A372B86682FFF4A77BC7A9495
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570462   (389904) от 05.11.2012
+
+007 Legends [Ru] (RePack) 2012 l R.G. Repackers
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот секретный агент вооружен и чрезвычайно опасен. Он – единственная защита демократии от преступных синдикатов и свихнувшихся лидеров развивающихся стран. У него самые красивые напарницы и самые смертоносные изобретения, когда-либо созданные в лабораториях Mi6. Его зовут Бонд. Джеймс Бонд. И только он сможет выполнить задания, которые изменят мир.
+    Новая игра 007 Legends позволит всем поклонникам Бонда пережить самые значимые моменты его карьеры. Сюжет игры строится на шести голливудских блокбастерах о приключениях самого популярного в мире секретного агента, включая новый фильм «007: Координаты «Скайфолл». Воспользуйтесь уникальным шпионским снаряжением, устройтесь за рулем навороченных автомобилей и разрушьте коварные замыслы врагов с помощью внушительного арсенала различного оружия. Враги умеют убивать, но с вами им не сравниться; вас ждут боевые навыки и приемы, головокружительные спецэффекты… и конечно, красавицы, ставшие визитной карточкой Агента 007!(   Читать дальше...   )Тип издания: RePackЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6324B69AF13CBBF950993D753DDD14A325FE25D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 570684   (389875) от 05.11.2012
 
 Tales Of Xillia 2 [PS3] [Jap] [NTCS-J] (2012)
@@ -6,7 +59,7 @@ Tales Of Xillia 2 [PS3] [Jap] [NTCS-J] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389875.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389739.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ Deponia 2: Chaos on Deponia [En] (L/1.1.2.2271) 2012 | THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388999.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ Grand Theft Auto: San Andreas / Multiplayer [Ru] (RePack) 2005 | D.S
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388821.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ CheMax Rus (2013) [Ru] (13.9) Cheats CheMax Team
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388164.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ Transcripted [En/Multi5] (P) 2012 l THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387063.jpg" />
 </div>
 
 
@@ -171,7 +224,7 @@ Teardown (2022) [En] (1.1.0) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387039.jpg" />
 </div>
 
 
@@ -197,7 +250,7 @@ Painkiller Hell & Damnation [Ru] (Steam-Rip/Update 1) 2012 l R.G. GameWorks
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_386767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_386767.jpg" />
 </div>
 
 
@@ -223,7 +276,7 @@ Zombasite (2016) [En] (1.006) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386342.jpg" />
 </div>
 
 
@@ -249,7 +302,7 @@ Renowned Explorers: International Society (2015) [En] (401/dlc) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386106.jpg" />
 </div>
 
 
@@ -275,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_385764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_385764.jpg" />
 </div>
 
 
@@ -303,7 +356,7 @@ Call of Duty: Ghosts (2013) [En] (1.0) License RELOADED
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385396.jpg" />
 </div>
 
 
@@ -329,7 +382,7 @@ King's Bounty: Warriors of the North [Ru/En] (RePack/1.3.1) 2012 | R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384920.jpg" />
 </div>
 
 
@@ -366,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384791.jpg" />
 </div>
 
 
@@ -392,7 +445,7 @@ FIFA Manager 13 [En] (RePack/1.0) 2012 l R.G Repacker's
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384677.jpg" />
 </div>
 
 
@@ -418,7 +471,7 @@ Sonic Mania (2017) [Multi] (1.03) Repack R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384407.jpg" />
 </div>
 
 
@@ -444,7 +497,7 @@ Homeworld: Deserts of Kharak (2016) [Ru/Multi] (1.2.1/dlc) License PROPHET
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384165.jpg" />
 </div>
 
 
@@ -470,7 +523,7 @@ Worms Revolution [Multi8/+] (Repack/1.0.61.0/3 DLC) 2012 | R.G. Origami
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382762.jpg" />
 </div>
 
 
@@ -498,7 +551,7 @@ Deadlight [Ru/En] (RePack/1.0.9249.0) 2012 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382596.jpg" />
 </div>
 
 
@@ -530,7 +583,7 @@ Vampyr (2018) [Ru/Multi] (1.0/u3/dlc) Repack R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381130.jpg" />
 </div>
 
 
@@ -556,7 +609,7 @@ Tomb Raider [PS3] [EUR] [RUSSOUND] [4.30] [Cobra ODE / E3 ODE PRO ISO] (2013)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381036.jpg" />
 </div>
 
 
@@ -582,7 +635,7 @@ L.A. Noire (2011) [Ru/Multi] (1.3.2617/dlc) Repack Other s [Complete Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380323.jpg" />
 </div>
 
 
@@ -608,7 +661,7 @@ I Am Alive [Ru/En] (RePack/1.0) 2012 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379819.jpg" />
 </div>
 
 
@@ -634,7 +687,7 @@ Sine Mora [En/Multi6] (L) 2012 l SKIDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379696.jpg" />
 </div>
 
 
@@ -653,58 +706,6 @@ Sine Mora [En/Multi6] (L) 2012 l SKIDROW
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A8A925F33D832E6C62D6FB9DF101E35F1281B06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012866   (379565) от 01.11.2016
-
-Endless Legend (2014) [Ru/Multi] (1.5.1.s3/dlc) Repack R.G. Catalyst
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еще один рассвет - и впереди еще один день, полный забот. Нужно вырастить пищу, построить здания, заняться науками и магией, сделать еще один шаг к процветанию вашей цивилизации. И как можно быстрее, ведь вы пишете историю своей планеты в нелегкое время - после необъяснимого апокалипсиса и самой суровой зимы, которую когда-либо переживало человечество.Тип издания: RepackРазработчик: Amplitude StudiosЖанр: Strategy (Turn-based, Grand strategy), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FD21E0E6A562076E4BA0198B7E256C58AA398A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068687   (379561) от 01.11.2016
-
-The Elder Scrolls V: Skyrim (2016) [Ru/Multi] (1.1.47.0.8) Repack R.G. Catalyst [Special Edition]
-
->>След.
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379561.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Elder Scrolls V: Skyrim Special Edition - это улучшенное и расширенное переиздание оригинальной The Elder Scrolls V: Skyrim, в котором были добавлены новые враги, снаряжение, локации, персонажи, а также включены все официальные дополнения к игре, вышедшие до момента релиза Special Edition.Тип издания: RepackРазработчик: Bethesda Game StudiosЖанр: RPG, 3D, 1st Person, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80057F5902B5A3C42AFF5A0C59DD1E9F40DB5FAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

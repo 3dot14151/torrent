@@ -1,177 +1,3 @@
-###  Публикация: 1453040   (1027220) от 09.03.2021
-
-Aleph - Black Out (1988) Expanded Edition [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Eurobeat>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big Brother (Extended Mix) (6:39)
-02. Fly to Me (D.J. Version) (7:15)
-03. Check It Up (Re-Edit) (6:54)
-04. Just for Love (12'' Version) (6:12)(   Читать дальше...   )Жанр: Italo-Disco, EurobeatПродолжительность: 02:24:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0B403654C0953B9FA00588E3DC1CD1E5B73B72B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453035   (1027218) от 09.03.2021
-
-Amadeus Liszt - La Donna (Original Mike Mareen Master Tape Series) (2019) Expanded Edition [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Dance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Donna (Crazy Disco Version) (6:26)
-02. La Donna (4:46)
-03. Only Time (4:08)
-04. La Donna (Playback with Jingles) (4:46)(   Читать дальше...   )Жанр: Italo-Disco, DanceПродолжительность: 00:29:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E91BB36A08ADC84D391BCFE8C91936FD4BFE0850
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453033   (1027212) от 09.03.2021
-
-Amadeus Liszt - Win the Race (1987) Singles Collection [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Dance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Win the Race (4:05)
-02. La Donna (4:49)
-03. The Devil Wins (3:06)
-04. Sprint (2:25)(   Читать дальше...   )Жанр: Italo-Disco, DanceПродолжительность: 00:38:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:987F4D2433E2ABE46109D5F41D1D0DB16D958C18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453077   (1027209) от 09.03.2021
-
-Lida - Музло из гаражей (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Али Ули (feat. S3RL) [02:58]
-02 - Анапа (feat. DK) [03:45]
-03 - Герда [02:49]
-04 - Евробит (feat. GSPD) [02:45](   Читать дальше...   )Жанр: PopПродолжительность: 00:28:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A68C73B9E4DAD27ED4E6014E6B4A62F12CB1A1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453163   (1027186) от 09.03.2021
-
-Lana Del Rey - Chemtrails Over the Country Club (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027186.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. White Dress
-2. Chemtrails Over The Country Club
-3. Tulsa Jesus Freak
-4. Let Me Love You Like A Woman(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3AE5674C7F4D29256A907C9D4713EDAC0AF0BCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453167   (1027180) от 09.03.2021
-
-Lana Del Rey - Chemtrails Over The Country Club (2021) [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. White Dress [00:05:33]
-02. Chemtrails Over The Country Club [00:04:31]
-03. Tulsa Jesus Freak [00:03:35]
-04. Let Me Love You Like A Woman [00:03:20](   Читать дальше...   )Жанр: PopПродолжительность: 00:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62AA95887E026D359C3FF6FC254F67AFAB884F45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1453209   (1027101) от 10.03.2021
 
 VA - soulmates (2021) Explicit [MP3|320 Kbps] <Pop>
@@ -180,7 +6,7 @@ VA - soulmates (2021) Explicit [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027101.jpg" />
 </div>
 
 
@@ -209,7 +35,7 @@ Joe Yellow - I'm Your Lover (1988) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027085.jpg" />
 </div>
 
 
@@ -238,7 +64,7 @@ Caravelli - Rainbow & Tenderly (2016) 2xCD, Compilation (1984, 1988) [FLAC|Lossl
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027071.jpg" />
 </div>
 
 
@@ -267,7 +93,7 @@ Selena Gomez - Revelacion (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027062.jpg" />
 </div>
 
 
@@ -296,7 +122,7 @@ Imperio - Best of Imperio (2020) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Dream
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027045.jpg" />
 </div>
 
 
@@ -325,7 +151,7 @@ Michael Bedford - When Angels Talk (2017) [FLAC|Lossless|WEB-DL|tracks] <Electro
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026926.jpg" />
 </div>
 
 
@@ -354,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026919.jpg" />
 </div>
 
 
@@ -383,7 +209,7 @@ VA - Я - голос ваш (2021) Трибьют Анны Ахматовой [M
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026918.jpg" />
 </div>
 
 
@@ -412,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026763.jpg" />
 </div>
 
 
@@ -441,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026597.jpg" />
 </div>
 
 
@@ -470,7 +296,7 @@ VA - Spring Acoustic Music (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026428.jpg" />
 </div>
 
 
@@ -499,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026379.jpg" />
 </div>
 
 
@@ -528,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026350.jpg" />
 </div>
 
 
@@ -557,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026138.jpg" />
 </div>
 
 
@@ -586,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026132.jpg" />
 </div>
 
 
@@ -615,7 +441,7 @@ VA - Pop Classics (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026123.jpg" />
 </div>
 
 
@@ -644,7 +470,7 @@ Natasha St-Pier - Дискография (11 альбомов) (1996-2018) [FLAC
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026046.jpg" />
 </div>
 
 
@@ -670,7 +496,7 @@ David Deyl - 5 Albums, 17 Single's (2009-2020) [MP3|320 Kbps] <Pop, Classical cr
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025988.jpg" />
 </div>
 
 
@@ -699,7 +525,7 @@ Roosevelt - Polydans (2021) [FLAC|Lossless|tracks + .cue] <Pop, Electronic>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025987.jpg" />
 </div>
 
 
@@ -728,7 +554,7 @@ Silent Circle - Всё Золото Мира (2000) Compilation, Unofficial Rele
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025954.jpg" />
 </div>
 
 
@@ -742,6 +568,180 @@ Silent Circle - Всё Золото Мира (2000) Compilation, Unofficial Rele
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE836B472FB38FB307FA94DAB81E99F95D742F42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454972   (1025939) от 17.03.2021
+
+Joy - Joy (Все золото мира) (2000) Unofficial Compilation МЕККОФОН Russia [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Touch By Touch '2001 Featuring – Area 51 3:38
+02. Touch By Touch '98 (Extended Rap Rmx) 5:20
+03. Felicidad (Single Version)	3:55
+04. Hello (Extended Version)	5:33(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FDDC91732BD69D6ABE5E6C7508E3AACF1555EFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455123   (1025814) от 18.03.2021
+
+Doves - The Universal Want (2020) Japan / Bonus Tracks [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carousels (04:51)
+02. I Will Not Hide (04:15)
+03. Broken Eyes (04:15)
+04. For Tomorrow (05:28)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:58:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7660710B4E67EE6548F5777F3380579E0BB3A59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455592   (1025664) от 19.03.2021
+
+Андрей Яшин - От А до Я (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Инструментал #1 (3:52)
+02. Лето улетело (5:08)
+03. Снова ветер и дождь (4:52)
+04. Забудь (5:39)(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF88692AC5E2E6DD520F2377FD9367E56651D874
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455320   (1025627) от 19.03.2021
+
+Чё Те Надо? - Где найти мужчину? (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Где найти мужчину? (3:10)
+02. Она работает на скорой врачом (3:31)
+03. Чайничек (2:56)
+04. Снег летит (3:15)(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33F4981B6ECEF39599F795BF0FA508111D9BBC2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455580   (1025622) от 19.03.2021
+
+Roosevelt - Collection 6 Releases (2013-2021) [FLAC|Lossless|tracks + .cue, tracks] <EDM, Indie Pop, Nu Disco, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Easy Way Out (4:35)
+02. Strangers (3:41)
+03. Feels Right (4:35)
+04. Closer to My Heart (4:44)(   Читать дальше...   )Жанр: EDM, Indie Pop, Nu Disco, Synthpop |Продолжительность: 00:41:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14A6BD97B7D3CD3E2DD7C6DF4D662839E9C7B085
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455430   (1025608) от 19.03.2021
+
+Мари Краймбрери - Нас узнает весь мир (Part 1) (2021) Deluxe Edition [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025608.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ты меня не забудешь (Intro)
+2. Ты меня не забудешь
+3. Иди танцуй (Intro)
+4. Иди танцуй(   Читать дальше...   )Жанр: PopПродолжительность: 00:31:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C38DD130159267AF558AA31AA3A5ECCA935CF436
 ```
 
 https://mybot314.ru/tekegram_catalog/

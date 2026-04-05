@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1862612   (1063327) от 
+
+Шон О’Коннелл | Брюс Уиллис. Жизнь и творчество Крепкого орешка (2026) [PDF, FB2, EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063327.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он вошёл в историю кино босиком по битому стеклу и навсегда изменил жанр боевика.
+От сомнений и проб в Нью-Йорке до статуса живой легенды.
+От ролей, которые ему отказывались давать, до ролей, которые писались для него.
+Брюс Уиллис не просто актёр – это феномен. Он говорит одно, а глаза показывают другое: за ухмылкой – усталость, за крутизной – боль, а за молчанием (   Читать дальше...   )Жанр: Биографии и мемуарыПеревод: Антон РытвинИздательство: БомбораФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B2FECFDDD92FDF993BE9D117F91CE969C45819F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1861260   (1062606) от 
 
 Мартин Джеймс | The Prodigy. Мы живём ритмом. История группы из первых уст (2026) [PDF]
@@ -7,7 +36,7 @@ https://t.me/izofen
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062606.jpg" />
 </div>
 
 
@@ -34,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062487.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062039.jpg" />
 </div>
 
 
@@ -88,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060550.jpg" />
 </div>
 
 
@@ -117,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060198.jpg" />
 </div>
 
 
@@ -143,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060196.jpg" />
 </div>
 
 
@@ -169,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057475.jpg" />
 </div>
 
 
@@ -195,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057449.jpg" />
 </div>
 
 
@@ -221,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057426.jpg" />
 </div>
 
 
@@ -247,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057252.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057163.jpg" />
 </div>
 
 
@@ -299,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057092.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057090.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057080.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056912.jpg" />
 </div>
 
 
@@ -406,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056895.jpg" />
 </div>
 
 
@@ -432,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056286.jpg" />
 </div>
 
 
@@ -458,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054694.jpg" />
 </div>
 
 
@@ -486,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054084.jpg" />
 </div>
 
 
@@ -512,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054046.jpg" />
 </div>
 
 
@@ -538,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052808.jpg" />
 </div>
 
 
@@ -564,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052806.jpg" />
 </div>
 
 
@@ -590,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052771.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052367.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052286.jpg" />
 </div>
 
 
@@ -653,32 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:379FC99809ED4F25FBE2BF0582D7332565C7DF96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847265   (1051873) от 11.01.2026
-
-Мишель Фуко | Осторожно: безумие! О карательной психиатрии и обычных людях (2024) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051873.jpg" />
-</div>
-
-
-###  Подробнее
-
-В начале 1960-х годов Мишель Фуко задался вопросом: кто такие безумные и как менялось отношение к ним на протяжении всей истории. Итогом этих размышлений стал фундаментальный труд по истории психиатрии и легкие подозрения автора в том, что наука об умалишенных всегда была на службе государства. А если так, то можно ли называть ее наукой? На протяжении всей истории (   Читать дальше...   )Жанр: ПублицистикаИздательство: М., АлисторусФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A2A32644C3699E65F14C5829D487F46BAA86E87
 ```
 
 https://mybot314.ru/tekegram_catalog/

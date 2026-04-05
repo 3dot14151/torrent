@@ -1,135 +1,3 @@
-###  Публикация: 1469834   (1016071) от 14.05.2021
-
-Хаим Шапира | Восемь этюдов о бесконечности. Математическое приключение (2021) [FB2]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016071.jpg" />
-</div>
-
-
-###  Подробнее
-
-Математические формулы – такое же чудо, как и гениальные произведения великих композиторов и писателей, утверждает автор нескольких бестселлеров, математик и философ Хаим Шапира. Всем, кто желает расширить свой кругозор, он предлагает познакомиться с математическими теориями, касающимися самой красивой из концепций, когда-либо созданных человечеством, – концепцией (   Читать дальше...   )Жанр: Математика, Научно-популярная литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CF10A349B2A114B60309EFE98AA11B305390362
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 39284   (1016016) от 14.05.2021
-
-Деревянные конструкции и дома [3 книги] [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016016.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Атлас деревянных конструкций.pdf
-2.Деревянные конструкции.pdf
-3.Строительство деревянного дома.pdf
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46FA8CDE411894159A9B6E2543249E06AFFD7860
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470202   (1015941) от 15.05.2021
-
-Менно Схилтхёйзен | Дарвин в городе: как эволюция продолжается в городских джунглях (2021) [FB2]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015941.jpg" />
-</div>
-
-
-###  Подробнее
-
-Голуби, белки, жуки, одуванчики – на первый взгляд городские флора и фауна довольно скучны. Но чтобы природа заиграла новыми красками, не обязательно идти в зоопарк или включать телевизор. Надо просто знать, куда смотреть и чему удивляться. В этой книге нидерландский эволюционный биолог Менно Схилтхёйзен собрал поразительные примеры того, как от жизни в городе меняются (   Читать дальше...   )Жанр: Естествознание, Научно-популярная литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85D388334E374397CE126882C651D04E2DA6C70C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470452   (1015766) от 16.05.2021
-
-Юрий Селезнев | Русские князья при дворе ханов Золотой Орды (2017) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015766.jpg" />
-</div>
-
-
-###  Подробнее
-
-В середине XIII века Русь оказалась в тяжелейшей зависимости от Монгольской империи, а затем, после ее распада, от Джучиева Улуса, или — как это государство стали называть значительно позже, когда оно уже исчезло с политической карты, — Золотой Орды. Русские князья вынуждены были время от времени, по нескольку раз за правление, ездить на поклон к ханам Джучиева Улуса, (   Читать дальше...   )Жанр: ИсторияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0ECF56BEE959EEBE648BDB9FC5F07349D8C17B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470435   (1015746) от 16.05.2021
-
-Людмила Ивонина | Герцог Мальборо. Человек, полководец, политик (2019) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015746.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герой этой книги — прославленный английский полководец и политик герцог Джон Мальборо. Он был едва ли не самым известным человеком в Европе начала века Просвещения, а его мнение - едва ли не самым влиятельным. Таланты военачальника сочетались в нем с изворотливостью дипломата и ловкостью придворного. С Мальборо считались европейские монархи, а некоторые из них вынуждены (   Читать дальше...   )Жанр: Биографии и Мемуары, ИсторияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42C74C304450D22277E0D7673EF31112400EBCD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1470286   (1015422) от 18.05.2021
 
 Сборник | Собрание книг по древнегреческому языку [976+] (1664-2021) [DJVU, PDF, FB2, EPUB, MOBI, DOC, TXT, MP3] [RU, EN, GRC, LA, DE, FR, ES, IT]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015422.jpg" />
 </div>
 
 
@@ -164,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015406.jpg" />
 </div>
 
 
@@ -190,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015237.jpg" />
 </div>
 
 
@@ -216,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015113.jpg" />
 </div>
 
 
@@ -242,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015086.jpg" />
 </div>
 
 
@@ -268,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015055.jpg" />
 </div>
 
 
@@ -295,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014654.jpg" />
 </div>
 
 
@@ -321,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014623.jpg" />
 </div>
 
 
@@ -347,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014596.jpg" />
 </div>
 
 
@@ -375,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014594.jpg" />
 </div>
 
 
@@ -401,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014575.jpg" />
 </div>
 
 
@@ -428,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014446.jpg" />
 </div>
 
 
@@ -457,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014355.jpg" />
 </div>
 
 
@@ -484,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014323.jpg" />
 </div>
 
 
@@ -510,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014281.jpg" />
 </div>
 
 
@@ -539,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014196.jpg" />
 </div>
 
 
@@ -566,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014168.jpg" />
 </div>
 
 
@@ -592,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014156.jpg" />
 </div>
 
 
@@ -618,7 +486,7 @@ C.Н. Кривошапко, В.А. Копнов | Сопротивление м�
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013964.jpg" />
 </div>
 
 
@@ -644,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013663.jpg" />
 </div>
 
 
@@ -671,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013659.jpg" />
 </div>
 
 
@@ -682,6 +550,140 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB690F7903C717D41E149BB0CFB4C553A180DFBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473541   (1013658) от 29.05.2021
+
+Джеймс Скотт | Против зерна. Глубинная история древнейших государств (2021) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013658.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почему люди отказались от охоты и собирательства ради оседлой жизни в сообществах, которые были основаны на зерновых культурах и животноводстве и управлялись предшественниками нынешних государств? Большинство из нас уверено, что одомашнивание растений и животных позволило людям окончательно перейти к оседлости и основать жившие сельским хозяйством деревни, города (   Читать дальше...   )Жанр: Всемирная историяПеревод: Ирина ТроцукФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5FBEECC0C74EEA0AC8CB558309D60E90D5A3868
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473626   (1013519) от 30.05.2021
+
+Матвей Бронштейн | Солнечное вещество и другие повести, а также Жизнь и судьба Матвея Бронштейна и Лидии Чуковской [сборник] (2018) [FB2]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013519.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первая часть книги – легендарные работы выдающегося советского физика Матвея Бронштейна (1906–1938). Увлекательно и доступно он рассказывает о том, почему гелий, являющийся компонентом многих земных минералов, найден был вовсе не на Земле, а на Солнце и какие фантастические изобретения были созданы на пути к ""солнечному веществу"". Как совершенно (   Читать дальше...   )Жанр: Научно-популярная литература, Физика, Биографии и МемуарыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9590AFA95EE09846BC6EA42BDB9FDC015A42233
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473731   (1013487) от 30.05.2021
+
+Николай Стяжин | ВСД, панические атаки, неврозы: как сохранить здоровье в современном мире (2021) [FB2]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013487.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга поможет вам лучше узнать себя, научиться отделять важное от второстепенного и бороться со своими недостатками. Разумеется, это не пособие по самолечению и не суперуниверсальная панацея от всех невротических расстройств. Это просто полезная книга, которая поможет вам жить спокойнее и понимать – что к чему, зачем и почему.
+
+Но будьте осторожны – в процессе (   Читать дальше...   )Жанр: Неврология, Популярно о медицине, ПсихотерапияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F10FB116E6F4C092DA5E9F6A77BAA91D0D26757
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473822   (1013455) от 30.05.2021
+
+Ю.Л. Хотунцев (ред.) | Электротехника [2 части] (2020) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013455.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как учебный предмет электротехника занимает значительное место в подготовке учителей физики и технологии. Предлагаемое учебное пособие написано в соответствии с действующей программой по курсу «Электротехника». Оно знакомит будущих учителей с электрическими линейными и нелинейными цепями и приборами. Описаны принципы действия, конструктивные особенности и характеристики (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE7ABFD9E4E4BED96D23DC7E4AFAB5B0F645A87B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473974   (1013359) от 31.05.2021
+
+Виктория Салтыкова | История тебя. Восстанови родословную с XVII века (2021) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013359.jpg" />
+</div>
+
+
+###  Подробнее
+
+История рода – это знакомство с собой. За именами и датами наших предков, отголосками их прошлого, о котором многие из нас ничего не знают, стоят целые судьбы с большими и маленькими событиями, которые сложились в пазл нашей собственной жизни.
+
+Эта книга станет вашим помощником в исследовании родословной. Вместе с вами мы проложим маршрут от старенького документа (   Читать дальше...   )Жанр: История, Генеалогия, Научно-популярная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3953B00B0FB9F9C0AA23291726855DF94C20FF7F
 ```
 
 https://mybot314.ru/tekegram_catalog/

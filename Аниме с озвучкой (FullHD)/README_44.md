@@ -1,3 +1,107 @@
+###  Публикация: 1790539   (13622) от 24.06.2025
+
+Это путешествие | Zatsu Tabi: That's Journey [2025, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тика Судзугамори — талантливая, но разочарованная в себе мангака, чьи работы раз за разом наталкиваются на холодное равнодушие издателей. Вместо того чтобы продолжать бороться в одиночестве, она решает превратить свою жизнь в открытую книгу, запустив необычный проект: путешествие по Японии, где каждое новое направление выбирают её подписчики в социальных сетях. Спонтанность (   Читать дальше...   )Производство: Япония / Студия Makaria, LuminasЖанр: Приключения, повседневностьРежиссер: Ватанабэ МасахаруЯзык озвучки: Русский (VF-Studio); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные) (Crunchyroll)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC63A80003CB8AFA8BC6CA4710664E3381326FE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790419   (13545) от 25.06.2025
+
+Прячься, Макина! | Kakushite! Makina-san!! | Makina-san's a Love Bot?! [2025, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>След.
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13545.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды вечером в квартире нелюдимого техногика Эиты Акуцу появляется жизнерадостная и популярная девчонка Макина Агацума. Счастью парня, который тайно мечтал о Макине, нет предела, но когда она раздевается перед ним, он с изумлением видит, что у неё механическое тело. Оказывается, Макина — робот, созданный для интимной близости, но лишённый доступа к любой информации (   Читать дальше...   )Производство: Япония / Студия WolfsbaneЖанр: Этти, комедия, романтика, фантастикаРежиссер: Нисида МасаёсиЯзык озвучки: Русский (Dream Cast), (SHIZA Project); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные) (Maxu6a) (AI + редактура)Продолжительность: 12 серий по 14 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3651C791F17DD561318D47E3D7826851BE1BF92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789597   (13544) от 25.06.2025
+
+Haite Kudasai, Takamine-san | Please Put Them On, Takamine-san | Пожалуйста, оденьтесь, Такаминэ [2025, TV, 12 из 12] HDTV 1080p Raw+Rus
+
+>>След.
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Таканэ Такаминэ — звезда школы, она получает хорошие оценки, занимается спортом и даже становится президентом студенческого совета в первый год обучения в старшей школе. Но у Такаминэ есть секрет — она обладает способностью «Вечная дорога девственницы». Способность позволяет ей переделывать совершённые действия и добиваться иного результата. Чтобы активировать способность, (   Читать дальше...   )Производство: Япония, студия Liden FilmsЖанр: комедия, романтика, эттиРежиссер: Макино ТомоэЯзык озвучки: Русский закадровый (Dream Cast), (Дубляжная), (SHIZA Project)Субтитры: Русские надписи, русские (софтсаб), Multi-3Продолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53E35594243BEED0DF19F4DFFBD877A7C89FFE0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790225   (13541) от 25.06.2025
+
+Chotto dake Ai ga Omoi Dark Elf ga Isekai kara Oikakete Kita | Yandere Dark Elf | Слегка настойчивая тёмная эльфийка последовала за мной из другого мира [2025, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>След.
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13541.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды юноша по имени Хината Сунохара попал в другой мир и стал там героем. Объединившись с тёмной эльфийкой Мариябелль, получеловеком Мэй и священницей Сесиль, Хината успешно победил короля демонов. Исполнив свою миссию, Хината вернулся в родной мир к привычной жизни... но уже через месяц Мариябелль пожаловала к нему домой. Зачем? Чтобы выйти за него замуж! В общую (   Читать дальше...   )Производство: Япония, студия EliasЖанр: комедия, фэнтези, эттиРежиссер: Токоро ТосикацуЯзык озвучки: Русский закадровый (Dream Cast), (AniStar), дубляж (Deep)Субтитры: Русские надписи, русские (софтсаб), Multi-5Продолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C76B0400F5934D6393EF38E99EE8832D0C68F820
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1790569   (13469) от 25.06.2025
 
 Непостижимая Ахарэн [ТВ-2] | Aharen-san wa Hakarenai Season 2 [2025, TV, 12 из 12] WEBRip 1080p Raw+Rus
@@ -6,7 +110,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13469.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13431.jpg" />
 </div>
 
 
@@ -60,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13419.jpg" />
 </div>
 
 
@@ -86,7 +190,7 @@ Ballpark de Tsukamaete! | Catch Me at the Ballpark! | Ловец бейсбол�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13287.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ Apocalypse Hotel | Апокалипсис: Отель [2025, TV, 12 из 12 эп
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13196.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13121.jpg" />
 </div>
 
 
@@ -165,7 +269,7 @@ Ninja to Koroshiya no Futarigurashi | NinKoro | Ниндзя и ассасин �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13091.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ Tian Guan Ci Fu | Heaven Official's Blessing | Благословение неб
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12814.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12757.jpg" />
 </div>
 
 
@@ -244,7 +348,7 @@ Jibaku Shounen Hanako-kun 2 | Toilet-bound Hanako-kun 2 Season 2 | Туалет�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12578.jpg" />
 </div>
 
 
@@ -270,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12502.jpg" />
 </div>
 
 
@@ -298,7 +402,7 @@ Sentai Dai Shikkaku 2 | Go! Go! Loser Ranger! 2 | Боевой отряд «По
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12375.jpg" />
 </div>
 
 
@@ -326,7 +430,7 @@ Megami no Cafe Terrace II | The Cafe Terrace and Its Goddesses II | Богини
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11806.jpg" />
 </div>
 
 
@@ -352,7 +456,7 @@ Kaijuu 8-gou Movie | Kaiju No. 8: Mission Recon | Кайдзю № 8: Мисси
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11634.jpg" />
 </div>
 
 
@@ -379,7 +483,7 @@ Barakamon | Баракамон [2014, TV, 12 из 12 эп.] BDRip 1080p HEVC 10-
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11323.jpg" />
 </div>
 
 
@@ -405,7 +509,7 @@ Megami-ryou no Ryoubo-kun | Mother of the Goddess Dormitory | Комендант
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11098.jpg" />
 </div>
 
 
@@ -432,7 +536,7 @@ Kaze no Na wa Amnesia | A Wind Named Amnesia | Ветер амнезии [1990, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11097.jpg" />
 </div>
 
 
@@ -458,7 +562,7 @@ Hazure Skill "Kinomi Master": Skill no Mi (Tabetara Shinu) o Mugen ni Taberareru
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11065.jpg" />
 </div>
 
 
@@ -484,7 +588,7 @@ D.Gray-man | Ди.Грэй-мен | Ди Грэй-мен [2006, TV, 103 из 103
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10376.jpg" />
 </div>
 
 
@@ -510,7 +614,7 @@ Nihon e Youkoso Elf-san. | Welcome to Japan, Ms. Elf! | Добро пожало�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9989.jpg" />
 </div>
 
 
@@ -536,7 +640,7 @@ Kaifuku Jutsushi no Yarinaoshi | Redo of Healer | Маг-целитель: Но�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9888.jpg" />
 </div>
 
 
@@ -562,7 +666,7 @@ Deca-Dence | Decadence | Декаданс | Дека-Данс [2020, TV, 12 из
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9827.jpg" />
 </div>
 
 
@@ -573,111 +677,6 @@ Deca-Dence | Decadence | Декаданс | Дека-Данс [2020, TV, 12 из
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C926CBF7FAEF4FF6ECB29568448FB9F52B67F2B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730833   (9022) от 07.08.2025
-
-Beyblade Burst QuadDrive | Beyblade Burst Dynamite Battle | Бейблэйд Взрыв — Динамитная Битва [2021, ONA, 30 из 52 эп.] WebRip 1080p raw+eng+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9022.jpg" />
-</div>
-
-
-###  Подробнее
-
-Белл Дайкокутен – настоящий Король Демонов, которого опасаются мирные жители. Люди наслышаны о его злодеяниях, но можно ли верить многочисленным легендам? У ворот Макаи когда-то было сражение, доказавшее непобедимость Белла, причем последний не намерен останавливаться и объявляет войну всем Блейдерам. Какой финал желает увидеть Король Демонов? В параллельной вселенной (   Читать дальше...   )Производство: OLMЖанр: приключенияРежиссер: Акияма КацухитоПеревод: HnYОзвучка: OriginalЯзык озвучки: Японский, Английский и РусскийСубтитры: АнглийскиеПродолжительность: 52 эп. по 15 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:283FAE5AFA3F0C1F352A8822D09A5311288E3CAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346342   (7955) от 14.08.2025
-
-Kanashimi no Belladonna | Belladonna of Sadness | Печальная Белладонна [1973, Movie] BDRip HEVC 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7955.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сельской глубинке средневековой Франции двое влюблённых крестьян, Жан и Жанна, направляются к местному господину за разрешением на брак. Однако налог на венчание резко возрос, жених заплатить не в состоянии, и потому первая брачная ночь с невестой достаётся господину и его свите. Почувствовав себя брошенной Богом, девушка обращается к нечистой силе. Так начинается (   Читать дальше...   )Производство: Япония. Mushi ProductionЖанр: драма, романтика, эротикаРежиссер: Ямамото ЭйитиЯзык озвучки: Японский и русский (DobrySkazochnik (Артём Федько))Субтитры: Английские, русскиеПродолжительность: 89 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCA4FE850BF4685C15651B1515AA744EDCBE4D98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812650   (7756) от 15.08.2025
-
-Akira | Акира [1988, Movie] WEBRip 2160p/4K raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спустя 31 год после Третьей мировой войны и ядерной бомбардировки столицы Японии, воссоздан новый город - Нью-Токио. Внешне все под контролем, однако страна теперь напоминает профашистское государство, жесточайшим образом подавляющее попытки мятежа. В исследовательских центрах проводятся парапсихологические опыты над людьми для разработки совершенного вида оружия. (   Читать дальше...   )Производство: Япония / Akira Committee Company Ltd., Akira Studio, TMS EntertainmentЖанр: аниме, мультфильм, фантастика, боевик, триллер, детективРежиссер: Кацухиро ОтомоПеревод: Дублированный (Студийная Банда, Reanimedia)Язык озвучки: Русский, японскийСубтитры: РусскиеПродолжительность: 02:05:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:398B15EACFAE38F38A491354F4B8F2B6649B87F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737209   (5285) от 30.08.2025
-
-Юный лорд — мастер побега | Неуловимый самурай | Nige Jouzu no Wakagimi | The Elusive Samurai [2024, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5285.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быть потомком рода Камакура и будущим сёгуном и так непросто, но ещё сложнее, когда ты ко всему прочему не особо-то любишь сражаться. Тогда у тебя остаётся лишь два варианта: либо терпеть, либо просто сбегать с тренировок! И наш герой — Ходзё Токиюки — выбирает второе, ведь он — настоящий мастер побега.
-Но вот спокойным денькам приходит конец. Сёгунат Камакура оказывается (   Читать дальше...   )Производство: Япония / Студия CloverWorksЖанр: Комедия, приключения, сёненРежиссер: Ямадзаки ЮтаЯзык озвучки: Русский (AniLibria.TV); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C7BA7DDF0FB87CB23DAD3BB78D007F1DE5F5D3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

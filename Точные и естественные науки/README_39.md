@@ -1,3 +1,82 @@
+###  Публикация: 1785354   (69378) от 15.03.2025
+
+П. Хоначка, Дж. Сомеро | Биохимическая адаптация (1988) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69378.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге авторов из США описаны биохимические механизмы адаптации к различным условиям существования. Особое внимание уделено адаптации к физической нагрузке, высокой температуре, холоду, недостаточности кислорода. Для биохимиков и физиологов, а также специалистов медиков, занимающихся спортивной медициной и изучением стрессовых воздействий на организм.Жанр: БиохимияИздательство: МирФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:575CDD9319993B68CDE298CCC88E3D304FF531D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786928   (68889) от 23.03.2025
+
+П.У. Эткинс | Физическая химия [2 книги] (1980) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга является монографией учебного характера по физической химии, в которой излагаются практически все важные вопросы этой области химии, начиная с основ термодинамики и кончая квантовой теорией строения молекул и физическими методами его исследования.
+Имя автора хорошо знакомо советскому читателю по другим его трудам (Спектры ЭПР и строение неорганических радикалов. (   Читать дальше...   )Жанр: ХимияИздательство: МирФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88D738FC5290E8F8AAD3ED7E12CB5F2693DA300E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794268   (67355) от 28.04.2025
+
+Ф. Клейн | Неевклидова геометрия (1936) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67355.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вниманию читателя предлагается книга известного немецкого математика Ф.Клейна. В первой части подробно изложены основы проективной геометрии и теория проективных преобразований, необходимые для понимания дальнейших разделов книги. Далее показано, каким образом в проективную геометрию могут быть внесены понятия евклидовой геометрии; описываются соотношения, связывающие (   Читать дальше...   )Жанр: МатематикаИздательство: Объединённое научно-техническое издательство НКТП СССРФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D669AB209B516BC5572DF791D2AAB20D7891BFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1794266   (67352) от 28.04.2025
 
 Ф. Клейн | Высшая геометрия (1939) [PDF]
@@ -6,7 +85,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67352.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64852.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63208.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59697.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58540.jpg" />
 </div>
 
 
@@ -136,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55741.jpg" />
 </div>
 
 
@@ -162,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55511.jpg" />
 </div>
 
 
@@ -188,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55510.jpg" />
 </div>
 
 
@@ -214,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55314.jpg" />
 </div>
 
 
@@ -240,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55115.jpg" />
 </div>
 
 
@@ -266,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55108.jpg" />
 </div>
 
 
@@ -292,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54768.jpg" />
 </div>
 
 
@@ -318,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54766.jpg" />
 </div>
 
 
@@ -344,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54764.jpg" />
 </div>
 
 
@@ -370,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53449.jpg" />
 </div>
 
 
@@ -396,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52307.jpg" />
 </div>
 
 
@@ -422,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51267.jpg" />
 </div>
 
 
@@ -448,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50988.jpg" />
 </div>
 
 
@@ -474,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50956.jpg" />
 </div>
 
 
@@ -500,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50555.jpg" />
 </div>
 
 
@@ -526,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50549.jpg" />
 </div>
 
 
@@ -552,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50406.jpg" />
 </div>
 
 
@@ -578,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50350.jpg" />
 </div>
 
 
@@ -589,85 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABB6CF4D343814AC511C3531307BB2B85594C141
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736064   (50334) от 11.07.2024
-
-Б.В. Иоффе | Рефрактометрические методы химии (1974) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50334.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет собой наиболее полную в мировой литературе сводку приложений рефрактометрии в различных областях химии и важнейших методов измерения показателей преломления с подробными указаниями по технике эксперимента.
-Монография предназначается для химиков-исследователей всех специальностей, а также для сотрудников производственных лабораторий химической, (   Читать дальше...   )Жанр: ХимияИздательство: ХимияФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BD1452CD71698AA8262C2B17D4B0766210DF9B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736062   (50333) от 11.07.2024
-
-Б.В. Иоффе | Руководство по рефрактометрии для химиков (1956) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50333.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга содержит изложение основ теории и устройства различных типов рефрактометров предельного угла полного внутреннего отражения. Дается подробное описание ряда новых конструкций, главным образом отечественных. Особое внимание уделяется технике измерений и проверке приборов. Рассматриваются применения рефрактометрии в различных областях химии и в техническом анализе. (   Читать дальше...   )Жанр: ХимияИздательство: Издательство Ленинградского университетаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54A54991F63940A7EF332D5C442B07C44A2EA3F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738009   (49395) от 20.07.2024
-
-Ч.Г. Эдвардс, Д.Э. Пенни | Дифференциальные уравнения и краевые задачи: Моделирование и вычисление с помощью Mathematica, Maple и MATLAB (2008) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный учебник представляет собой весьма полный современный вводный курс обыкновенных дифференциальных уравнений. Довольно подробно освещены все темы, затрагиваемые в классических вводных курсах, включая применение матричных методов, операционного исчисления, степенных рядов и рядов Фурье. Не обойдены вниманием и современные исследования в области дифференциальных (   Читать дальше...   )Жанр: МатематикаИздательство: ВильямсФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8B93D2DF709942277220C76570B16FFDEEF3453
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1564135   (501731) от 17.07.2022
+
+Quiet Confusion - Magella (2022) [MP3|320 Kbps] <Heavy Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Long Wave
+02 Plastic Man
+03 Lady In Blue
+04 Wastin' Time(   Читать дальше...   )Жанр: Heavy Stoner RockПродолжительность: 00:35:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71FBE3481476A86F8269BC3B20F47E77D25A958D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564141   (501730) от 17.07.2022
+
+Volt Ritual - Volt Ritual (2022) [MP3|320 Kbps] <Heavy Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Approaching Jupiter
+02 Moon Sabbath
+03 Teufel Tanner
+04 War In The Sun(   Читать дальше...   )Жанр: Heavy Stoner RockПродолжительность: 00:32:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78527C4A5D122A9897920CE51237E679B4973129
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564172   (501727) от 17.07.2022
 
 Quiet Confusion - Magella (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Stoner Rock>
@@ -6,7 +64,7 @@ Quiet Confusion - Magella (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Ston
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501727.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Palace - One 4 The Road (2022) [MP3|320 Kbps] <Melodic Rock, AOR>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501726.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Paralyzed - Heavy Road (2022) [MP3|263-290 kbps VBR] <Heavy Stoner Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501725.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Silent Monolith - Empty Kingdom (2022) [MP3|320 Kbps] <Heavy Stoner Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501724.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Graveshadow - The Uncertain Hour (2022) [MP3|320 Kbps] <Symphonic Metal, Female 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501722.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Sons of Arrakis - Volume I (2022) [MP3|320 Kbps] <Heavy Stoner Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501721.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Fellowship - The Saberlight Chronicles (2022) [MP3|320 Kbps] <Symphonic Power Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501677.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Alestorm - Seventh Rum Of A Seventh Rum (2022) [FLAC|Lossless|image + .cue] <Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501675.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Fallen Sanctuary - Terranova (2022) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501674.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Midnight Road - Ready For The Fight (2022) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501666.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501662.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Big Story - Beast (2022) [MP3|320 Kbps] <Alternative-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501660.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ BloYaTop - Why Waltz (2012) [FLAC|Lossless]<Blues Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501618.jpg" />
 </div>
 
 
@@ -389,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501569.jpg" />
 </div>
 
 
@@ -418,7 +476,7 @@ Heretic - A Time Of Crisis (2012) [FLAC|Lossless]<Power Metal/Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501501.jpg" />
 </div>
 
 
@@ -453,7 +511,7 @@ Aimee Mann - Charmer (2012) [FLAC|Lossless]<Indie/Rock/Folk>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501499.jpg" />
 </div>
 
 
@@ -488,7 +546,7 @@ Yeasayer - Fragrant World (2012) [FLAC|Lossless]<Indie/Experimental/Psychedelic>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501425.jpg" />
 </div>
 
 
@@ -523,7 +581,7 @@ The Flower Kings - Banks of Eden (2012) [FLAC|Lossless]<Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501423.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ Dinosaur Jr. - I Bet On Sky (2012) [FLAC|Lossless]<Alternative Rock / Indie>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501419.jpg" />
 </div>
 
 
@@ -589,7 +647,7 @@ The Searchers - Les Genies du Rock - Sweets For My Sweet (1995) [MP3|320 кб/с
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501337.jpg" />
 </div>
 
 
@@ -618,7 +676,7 @@ The Darkness - Hot Cakes (Deluxe Edition) (2012) [FLAC|Lossless]<Hard Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501314.jpg" />
 </div>
 
 
@@ -653,7 +711,7 @@ The Brian Jonestown Massacre - Aufheben (2012) [FLAC|Lossless]<Indie Rock / Psyc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501239.jpg" />
 </div>
 
 
@@ -688,7 +746,7 @@ Grave Digger - Clash Of The Gods (2012) [MP3|320 Kbps] <Heavy Metal, Power Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501234.jpg" />
 </div>
 
 
@@ -717,7 +775,7 @@ Mark Knopfler - BBC Sessions (2019) Unofficial Release [FLAC|Lossless|image + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501212.jpg" />
 </div>
 
 
@@ -731,70 +789,6 @@ Mark Knopfler - BBC Sessions (2019) Unofficial Release [FLAC|Lossless|image + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3D04D1C7E9242290FC99FC7BE2005E77658D88A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934369   (501160) от 06.09.2015
-
-Бранимир - Семь чудес (2015) [MP3|320 кб/с]<Acoustic Rock, Chanson>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Довольно жёсткая энергичная работа, знакомящая слушателя с жизнью российской глубинки. Или, если точнее – с жизнью людей, живущих вдали от столиц, на периферии. Тексты многих вошедших в «Семь Чудес» песен построены на противопоставлении чёрного и белого. Простой человек со своими проблемами, со своими положительными и отрицательными чертами – вот главный герой «Семи (   Читать дальше...   )01. Intro
-02. Мрачные посёлки средней полосы
-03. Леший
-04. Пацан (Гришка Тишин - 2)(   Читать дальше...   )Жанр: Acoustic Rock, ChansonПродолжительность: 00:41:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E5E09F61506DDA269DFF696C2ADE4424F4A481D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540723   (501141) от 31.08.2012
-
-Ensiferum - Unsung Heroes (2012) [FLAC|Lossless]<Viking Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Symbols (1:51)
-02. In My Sword I Trust (5:20)
-03. Unsung Heroes (5:55)
-04. Burning Leaves (6:04)
-05. Celestial Bond (4:15)
-06. Retribution Shall Be Mine (4:27)
-07. Star Queen (Celestial Bond Part II) (5:55)
-08. Pohjola (6:05)
-09. Last Breath (4:30)
-10. Passion Proof Power (17:01)(   Читать дальше...   )Жанр: Viking Folk MetalПродолжительность: 01:05:09
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

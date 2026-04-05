@@ -1,3 +1,55 @@
+###  Публикация: 1508145   (797836) от 07.11.2021
+
+Vampire: The Masquerade - Shadows of New York (2020) [En] (1.0.1) License GOG [Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797836.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ты никто. Изгой в своей вампирской секте. Политический заключенный, не представляющий особой ценности. Иммигрантка, которая так и не нашла своих корней в городе иммигрантов. Заядлый курильщик, чье любимое занятие - безучастно смотреть на улицу из окон закусочной в 4 утра. Ощущение опускания внизу живота говорит вам, что вы обречены, и искаженные голоса из теней, (   Читать дальше...   )Тип издания: LicenseРазработчик: Draw DistanceЖанр: Визуальная новелла, Ролевая играЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:795EB5F31667E9F1232D2538C2C8D6F8010416D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508367   (797264) от 08.11.2021
+
+Vigil: The Longest Night (2020) [Ru/Multi] (2021.11.01/dlc) License PLAZA
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vigil: The Longest Night - это 2D-платформер с боевой составляющей, требующей точности действий и хороших навыков, и сильным сюжетом. Черпая вдохновение в Salt and Sanctuary и Castlevania, игра Vigil: The Longest Night стремится бросить игрокам вызов своей сложностью и одновременно завлечь их историей, полной зловещих ужасов. (   Читать дальше...   )Тип издания: LicenseРазработчик: Glass Heart GamesЖанр: RPG, Action, Adventure, PlatformerЯзык субтитров: Русский, Английский, Немецкий, Японский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFFA007D6C420A69156B92A23FBEB78D9D633BD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1508369   (797186) от 08.11.2021
 
 The Legend of Tianding (2021) [Ru/Multi] (1.0) License CODEX
@@ -6,7 +58,7 @@ The Legend of Tianding (2021) [Ru/Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797186.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Arcania: Fall of Setarrif / Аркания: Падение Сетаррифа (2
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797085.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ The Elder Scrolls III: Morrowind (2002) [Ru] (1.6.1820/dlc) License [Game of the
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797064.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Hyperdevotion Noire: Goddess Black Heart (2016) [En/Jp] (1.0/dlc) License HI2U
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796605.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Celestian Tales: Realms Beyond (2020) [En] (1.0.14) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796491.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795820.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Tale of Wuxia (2016) [En/Multi] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795815.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ King's Bounty: Armored Princess / King's Bounty: Принцесса в досп�
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795294.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Shadows: Awakening (2018) [Ru/Multi] (1.31/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794695.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Yaga (2021) [Ru/Multi] (1.3.23/dlc) License GOG [Armful Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794525.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Krai Mira: Extended Cut (2017) [Ru/Multi] (1.0) License SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794138.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ King's Bounty: The Legend / King's Bounty: Легенда о рыцаре (2008)
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793654.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Warhammer: Chaosbane (2019) [Ru/Multi] (28.05.2020/dlc) Repack xatab [Deluxe Edi
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792281.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Wasteland 2: Director's Cut (2014) [Ru/Multi] (1.0/upd3/dlc) Repack Other s [Dig
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791995.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Zwei: The Arges Adventure (2018) [En/Jp] (1.0.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791940.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ LEGRAND LEGACY: Tale of the Fatebounds (2018) [En/Ch] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791936.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Battle Chasers: Nightwar (2017) [Ru/Multi] (23636) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791935.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Dragon's Dogma: Dark Arisen (2016) [En] (1.0.0.18) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791471.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Divinity: Original Sin (2014) [Ru/En] (2.0.119.430/dlc) Repack R.G. Механи
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790786.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ STAR OCEAN - THE LAST HOPE - 4K & Full HD Remaster (2017) [Multi] (1.0) License 
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790238.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Anachronox (2001) [En] (1.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789627.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Tales of Vesperia (2019) [Ru/Multi] (1.0/dlc) License CODEX [Definitive Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789614.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Titan Quest (2006) [Ru] (1.20) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789145.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Guild of Dungeoneering (2015) [Multi] (1.0UE/dlc) License PLAZA [Ultimate Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788768.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Guild of Dungeoneering Ultimate Edition - это полностью перест
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0681E5AC7C54168ADDB08459B5A5783BCFA50825
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511554   (788730) от 21.11.2021
-
-Ruined King: A League of Legends Story (2021) [Ru/Multi] (57824) License FAIRLIGHT
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788730.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дайте отпор Погибели - Соберите отряд чемпионов из League of Legends, исследуйте Билджвотер и отправьтесь на Сумрачные острова, чтобы раскрыть тайны смертельно опасного черного тумана в этой захватывающей пошаговой ролевой игре. Игра разработана студией Airship Syndicate, создавшей Battle Chasers и Darksiders, и оформлена знаменитым художником комиксов Джо Мадурейра (   Читать дальше...   )Тип издания: LicenseРазработчик: Airship SyndicateЖанр: RPGЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8CA4059E46AC2750047C42C5CBDF2FC7D2D4B06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511367   (788723) от 21.11.2021
-
-Dungeon No Dungeon (2021) [Multi] (2.0) License PLAZA
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788723.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хардкорное исследование подземелий с пошаговым боем и возможностью прокачки героев - то, что Вас ожидает в Dungeon No Dungeon. Сюжета, как такового - нет, есть депрессивная полуразрушенная деревня, куда стягиваются разномастные герои в поисках приключений. Игровой процесс представляет собой сочетание тактического боя и перемещений по карте в виде настолки.Тип издания: LicenseРазработчик: 302 StudioЖанр: Приключенческие игры, Казуальные игры, Инди, Ролевые игры, СтратегииЯзык субтитров: Английский, КитайскийЯзык интерфейса: Английский, Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9265A8C8247799C3F063F14295B98D9C06CBF10
 ```
 
 https://mybot314.ru/tekegram_catalog/

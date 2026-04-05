@@ -1,3 +1,61 @@
+###  Публикация: 1364875   (933564) от 05.03.2020
+
+VA - Bang! (2020) [MP3|320 Kbps] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Andy Sto - My Mind [02:58]
+02.  Neironic - Voice of Reason [04:23]
+03.  Fruitful - Give It Away [04:53]
+04.  Black Depth - New Leap [05:52](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:45:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C1CA85EB33FAA26D91DD0405AF03F40AF612D92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364884   (933424) от 05.03.2020
+
+VA - Dark Tunes 2020 [MP3|320 Kbps] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Malvine - Dance Of Lost Feelings [04:08]
+02.  Vyacheslav Sankov - Revival, Pt.2 [05:28]
+03.  LexXxare - Miracle Of The Day [02:21]
+04.  V.S.D - Move Fast [03:53](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:47:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69E5547DDB0ACDCDD225751B8E0F3F602485D37C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364880   (933415) от 05.03.2020
 
 VA - Dark Archive (2020) [MP3|320 Kbps] <Techno>
@@ -6,7 +64,7 @@ VA - Dark Archive (2020) [MP3|320 Kbps] <Techno>
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933415.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Chillout And Lounge Ibiza Style (2016) [MP3|320 кб/с] <Downtempo, Chillo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932581.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Blank & Jones and Mark Reeder  ‎ - Reordered (2009) [FLAC|Lossless|tracks + .c
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932572.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Wind in the Field (Downtempo Series)  Vol.003 (2017) [MP3|320 Kbps] <Chillo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932499.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Total Trance Selections Vol.01 (2016) [MP3|320 Kbps] <Trance, Uplifting Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932492.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Ministry Of Sound: Chilled House Session (2016) [MP3|320 кб/с] <Afro Hou
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932463.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Total Trance Selections  Vol.02 (2017) [MP3|320 Kbps] <Trance, Uplifting Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932431.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Clinique Sampler, Pt. 230 (2020) [MP3|320 Kbps] <House, Progressive House, 
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932345.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - EDM Big Room Partytime, Vol. 7 (2020) [MP3|320 Kbps] <House, Big Room, Danc
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932343.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Future Punk, Vol. 6 (2020) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932342.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Urban Sports Music, Vol. 2 (2019) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932336.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Urban Sports Music, Vol. 4 (2019) [MP3|320 Kbps] <House, Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932249.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Afro Tribal House 7 (2020) [MP3|320 Kbps] <House, Afro House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932244.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Trance Inside, Vol. 4 (2020) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932240.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Lemna - Storytelling #1 - Reminiscences Of Inner Scenery (2020) Horo [FLAC|Lossl
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932236.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Let It Lounge, Vol. 1 (2020) [MP3|320 Kbps] <Downtempo, Chillout, Relax, Lo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932234.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Trip to Munich Lounge: Chillout Your Mind (2020) [MP3|320 Kbps] <Downtempo,
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932227.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Dance With The Dead - The Shape (2016) [MP3|320 кб/с] <Synthwave, Synthpop, N
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931923.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Xabec - Collection 6 Releases (2001-2020) Hands Productions [FLAC|Lossless|track
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931812.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Amelia Arsenic (ex Angelspit) - Discography 5 Releases (2015-2020) [MP3|320 Kbps
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931807.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Multiplexing Variations (2019) Fantasy Enhancing [FLAC|Lossless|WEB-DL|trac
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930893.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Sven Laux - Alliteration (2017) Archipel [FLAC|Lossless|WEB-DL|tracks] <Ambient,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930856.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Urban Sports Music, Vol. 5 (2020) [MP3|320 Kbps] <House, Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930797.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Toolroom Miami 2020 [MP3|320 Kbps] <House, Tech House, Progressive House, D
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930681.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Toolroom Miami 2020 [MP3|320 Kbps] <House, Tech House, Progressive House, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85A65295B354DB4B95B0CEEEBB6EBC49AF54643C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365352   (930562) от 07.03.2020
-
-VA - Pesticides (2020) [MP3|320 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. RAV - Arab Drum [03:40]
-02. X Company - Labyrinth [03:41]
-03. Andy Sto - Melody Power [06:25]
-04. Black Depth - Alien Signal [04:26](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:48:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C84CF6FE18FD1681FEED827D221B7E8B8ED773A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365350   (930545) от 07.03.2020
-
-VA - Miami 2020 Drum & Bass (2020) [MP3|320 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrey Aryutkin - Motion [05:06]
-02. Cubsonic - Love Me [04:04]
-03. Aerom - Birds [04:20]
-04. Grynia - Winter Cover [07:35](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:24:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B47E69BE6C3629B0318B120FE8AB87413F01636
 ```
 
 https://mybot314.ru/tekegram_catalog/

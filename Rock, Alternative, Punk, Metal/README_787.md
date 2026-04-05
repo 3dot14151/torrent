@@ -1,3 +1,32 @@
+###  Публикация: 1267547   (265798) от 07.12.2018
+
+Domain - Our Kingdom (1988) Reissue, 2000, Humbucker Music [MP3|320 Kbps] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265798.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Lost In The City
+2. The Run
+3. We Got Love
+4. Sign From Your Heart(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:44:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9268496D97EF47CC389B9984509F8CE7B647EF8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1267695   (265729) от 07.12.2018
 
 Magic Dance - New Eyes (2018) [MP3|320 Kbps] <Melodic Hard Rock, AOR>
@@ -6,7 +35,7 @@ Magic Dance - New Eyes (2018) [MP3|320 Kbps] <Melodic Hard Rock, AOR>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265729.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Mustasch - Killing It For Life (2019) [MP3|320 Kbps] <Heavy Metal, Stoner Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265358.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Last Autumn's Dream - 18 Альбомов Collection (2003-2018) 19CD [FLAC|Loss
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265337.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Lindemann - F&M: Frau Und Mann (2019) [FLAC|Lossless|tracks] <Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265304.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Lindemann - F&M Frau Und Mann (Deluxe Edition) (2019) [MP3|320 Kbps] <Industrial
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265257.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Morbid Angel - Kingdoms Disdained (2017) Limited Edition [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265231.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265146.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Brutto - Live Minsk - Arena 08.03.2017 (2017) [MP3|320 Kbps] <Punk Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265143.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265112.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ U2 - U218 Singles (Vol.1,2) (2006) Deluxe Version [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265091.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Limp Bizkit - Collected (2008) Compilation [FLAC|Lossless|tracks + .cue] <Nu Met
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264886.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ W.E.T. - 4 Альбома Collection (2009-2018) 5 CD [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264672.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264666.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Beck ‎ - Hyperspace (2019) [FLAC|Lossless|tracks] <Indie Rock, Alternative Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264636.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Chris Rea - Dancing With Strangers (1987) 2CD, Deluxe Edition, Reissue, 2019, Ma
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264629.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Peter Gabriel - Flotsam And Jetsam (2019) [FLAC|24/48|Lossless|WEB-DL|tracks] <P
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264575.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264543.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Speed Limit - Anywhere We Dare (2017) [FLAC|Lossless|image + .cue] <Heavy Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264519.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Terra Lightfoot - New Mistakes (2017) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264515.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ My Vitriol - The Secret Sessions (2016) [FLAC|Lossless|tracks] <Alternative Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264513.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264509.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ AC/DC - Greatest Hell's Hits (2009) [FLAC|Lossless]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264501.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264470.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Stand Atlantic - Skinny Dipping (2018) [FLAC|Lossless|tracks + .cue] <Pop-Punk, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264433.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264405.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC032D2515268905577F1AD6687C752652AF1341
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969630   (264373) от 27.12.2015
-
-Стимфония - Герда (2015) [MP3|320 кб/с] <Steampunk, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Сопливая песня
-02.  Упыри
-03.  Герда
-04.  Вий(   Читать дальше...   )Жанр: Steampunk, RockПродолжительность: 00:33:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA1FD6C0DAC056070199D2D1D894A9B9DB87EF3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

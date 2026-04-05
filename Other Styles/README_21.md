@@ -1,3 +1,61 @@
+###  Публикация: 1094421   (929378) от 18.01.2017
+
+Kathryn Kaye - Reflected in a Flowing Stream (207) [MP3|320 Kbps] <Celtic New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 -  A Lark in the Last Light of Day [00:04:46]
+02 -  As Seasons Change [00:04:19]
+03 -  Procession of Moon and Stars [00:05:42]
+04 -  The Stillness Before Dawn [00:05:42](   Читать дальше...   )Жанр: Celtic New AgeПродолжительность: 00:55:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BDBD563BD8B24A2E44BDABF941FDE2C6F2A4124
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986657   (929076) от 15.02.2016
+
+Amrit Kirtan - Sacred Circle (2006) 2007 [FLAC|Lossless|image + .cue] <New Age, Meditative, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aas Guray Nameh (Mangalacharan Mantra)  07:55
+02. Gobindah, Gobindah, Gobindah, Haray, Haray  11:06
+03. Waah Yantee  11:04
+04. Guru Ram Das Miracle Mantra  11:06(   Читать дальше...   )Жанр: New Age, Meditative, WorldПродолжительность: 01:02:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB998291D9398C0CEF65D3A2B3B1FA73FCB90167
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1094237   (929052) от 18.01.2017
 
 Aenigmatica - Enigmatic (2016) [MP3|320 Kbps] <New Age, Downtempo, Ambient>
@@ -6,7 +64,7 @@ Aenigmatica - Enigmatic (2016) [MP3|320 Kbps] <New Age, Downtempo, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929052.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Max Arnald - Piano Covers 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Moder
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929006.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Janis Joplin - Janis Little Girl Blue (Original Motion Picture Soundtrack) (2016
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928891.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Quentin Tarantino's The Hateful Eight / Омерзительная вось
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928767.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Johnny Cash - Sings The Songs That Made Him Famous (1958) [FLAC 2.0 24/96|tracks
 >>Folk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926551.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Liquid Mind - Liquid Mind XI. Deep Sleep (2016) [MP3|320 кб/с] <New Age, Ambi
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926043.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Nick Skachkov - Baba Yaga: Terror of the Dark Forest / Яга. Кошмар тё
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925662.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Nick Skachkov - Baba Yaga: Terror of the Dark Forest / Яга. Кошмар тё
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925636.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Louis Landon - Provocative Piano (2021) [FLAC|Lossless|WEB-DL|tracks] <Instrumen
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925382.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Messiah Project - (2 альбома) (2012-2013) [MP3|320 кб/с]<Enigmatic,New
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924753.jpg" />
 </div>
 
 
@@ -302,7 +360,7 @@ VA - Star Wars Headspace (2016) [MP3|320 кб/с] <Electronic, Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924325.jpg" />
 </div>
 
 
@@ -331,7 +389,7 @@ Metal Fortress (Mike Morasky) - Team Fortress 2 Final Remix (2020) [MP3|320 кб
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924012.jpg" />
 </div>
 
 
@@ -360,7 +418,7 @@ Various Artists - Mulheres Apaixonadas, Vol. 1 (2003) [FLAC|Lossless|tracks + .c
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923894.jpg" />
 </div>
 
 
@@ -389,7 +447,7 @@ Head Splitter - Cyberpunk 2077 Fanmade Soundtrack (2019) [FLAC|Lossless|tracks] 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923564.jpg" />
 </div>
 
 
@@ -418,7 +476,7 @@ Head Splitter - Cyberpunk 2077 Fanmade Soundtrack (2019) [MP3|320 кб/с] <Soun
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923562.jpg" />
 </div>
 
 
@@ -447,7 +505,7 @@ African Head Charge - Songs Of Praise (1990) [MP3|320 кб/с] <Reggae, Dub>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922789.jpg" />
 </div>
 
 
@@ -476,7 +534,7 @@ Mars Lasar - Jazz from Mars (2016) [MP3|320 кб/с] <New Age, Ambient, Electron
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922733.jpg" />
 </div>
 
 
@@ -505,7 +563,7 @@ Nick Ingman & Prague Philarmonia - Classic Love At The Movies (1999) S&V #10/200
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922637.jpg" />
 </div>
 
 
@@ -534,7 +592,7 @@ Aldo Shllaku - Triumph (Original Motion Picture Soundtrack) (2019) [MP3|320 кб
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922336.jpg" />
 </div>
 
 
@@ -563,7 +621,7 @@ Andrew Swarbrick - The Runaways (Original Motion Picture Score) (2020) [FLAC|Los
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922335.jpg" />
 </div>
 
 
@@ -592,7 +650,7 @@ Aldo Shllaku - Triumph (Original Motion Picture Soundtrack) (2019) [FLAC|Lossles
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922331.jpg" />
 </div>
 
 
@@ -621,7 +679,7 @@ Voidoid - The Greatest Movie Anthems of All Time (2018) [FLAC|Lossless|WEB-DL|tr
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922250.jpg" />
 </div>
 
 
@@ -650,7 +708,7 @@ Andrew Swarbrick - The Runaways (Original Motion Picture Score) (2020) [MP3|320 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922247.jpg" />
 </div>
 
 
@@ -679,7 +737,7 @@ Benjamin Wallfisch - The Invisible Man / Человек-невидимка (Orig
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922242.jpg" />
 </div>
 
 
@@ -693,64 +751,6 @@ Benjamin Wallfisch - The Invisible Man / Человек-невидимка (Orig
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2886131B078C56912139153582BBE1D9AF109798
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366623   (922236) от 12.03.2020
-
-Игорь Вдовин - Вторжение (Оригинальный Саундтрек) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922236.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:54| 01. Интро
-|01:33| 02. Лаборатория ВКС
-|00:55| 03. Эксцесс в лаборатории
-|00:40| 04. Папа беги(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:02:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D443E8F13FDC5A330878B497B07E4816E666FFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366602   (922234) от 12.03.2020
-
-Voidoid - The Greatest Movie Anthems of All Time (2018) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922234.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:18| 01. Aquaman
-|02:34| 02. Ant-Man and the Wasp
-|01:31| 03. Deadpool 2
-|02:02| 04. Incredibles 2(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:45:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F63F9ADFA0404E980F5FDEE1B0D348E630C4344
 ```
 
 https://mybot314.ru/tekegram_catalog/

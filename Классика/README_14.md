@@ -1,3 +1,32 @@
+###  Публикация: 1002305   (848604) от 31.03.2016
+
+Elina Garanca - Elina (2013) [FLAC|Lossless|image + .cue] <Classical, Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Seguidilla - Carmen (Bizet)  4:40
+02.  Chanson - Carmen (Bizet)  4:44
+03.  Habanera - Carmen (Bizet)  4:41
+04.  Flower Duet - Lakme (Delibes)  5:06(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 00:56:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66244D046611927183743C95808B4D4AD3BB8797
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002124   (848600) от 31.03.2016
 
 Schnittke, Stravinsky - Piano music (Boris Berman) (1991) [FLAC|Lossless|tracks] <Classical, Piano>
@@ -6,7 +35,7 @@ Schnittke, Stravinsky - Piano music (Boris Berman) (1991) [FLAC|Lossless|tracks]
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848600.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Viktor Merzhanov - Russian Piano School (1995) [FLAC|Lossless|tracks] <Classical
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848595.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Frederic Chopin - The Complete Works (2008) 16CD, Compilation [FLAC|Lossless|ima
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848529.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - Masters of Classical Music (2008) 10CD [FLAC|Lossless]<Classic>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847916.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ Sophie Hutchings - Scattered On The Wind (2020) [FLAC 2.0|96/24|tracks|WEB-DL] <
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846532.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ Julian Perkins - Smith & Handel: Works for Harpsichord (2015) [FLAC|96/24|Lossle
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846515.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ Joseph Haydn - The Seven Last Words of Christ on the Cross (Alexei Lubimov) (201
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846514.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ Prokofiev, Shostakovich - Cello Concertos (Isserlis, Frankfurt Radio Symphony Or
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846507.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ Franz Schubert - Complete Symphonies (Les Musiciens du Louvre, Grenoble, Marc Mi
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846504.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ Antonio Vivaldi - 4 Seasons of Love (Il Tempio Armonico) (2010) [FLAC 2.0|96/24|
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846425.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ Luciano Sgrizzi, Pietro Domenico Paradisi - Huit Sonates pour clavecin (1997) [F
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843311.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ Aldo Ciccolini - Beethoven: Les 32 Sonates pour piano  (2007) 10 CD, Box Set [FL
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843016.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ Choeur des Moines de l’Abbaye bénédictine de Saint-Benoît-du-Lac, Le - Medi
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843002.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ Bela Bartok - Contrasts, Rhapsody No. 1, Mikrokosmos (excerpts) (Bartok, Szigeti
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841693.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ Gilels - Schubert: Sonata In D, D. 850 Op. 53, Liszt: Sonata In B Minor (1993) C
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841602.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841598.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ Musica Per Liuto Italiana - Italian lute Music - Italienische Lautenmusik (1999)
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839905.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ Consortium Classicum, Claudius Tanski - Ignaz Moscheles:  Il Virtuoso, Vol. 2 (1
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839904.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ Simone Kermes - Love (2016) [FLAC|Lossless|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839893.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ VA - Rainy Autumn Classical (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839823.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ Boismortier - Motets avec symphonies (1991) 2004,  Accord [FLAC|Lossless|image +
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839779.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ Dvorak / Дворжак - Symphonies nos. 8 & 9 "From the New World" (Sawallisch
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838049.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ Harriet Krijgh - Elegy (2015) [FLAC|Lossless|tracks] <Classical>
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837927.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ Dvorak / Дворжак - Violin Concerto, Cello Concerto (Ricci, Nelsova, Sussk
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837839.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ Dvorak / Дворжак - Violin Concerto, Cello Concerto (Ricci, Nelsova, Sussk
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836423.jpg" />
 </div>
 
 
@@ -713,35 +742,6 @@ Violin Concerto in A minor, op. 53
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F0B92B02B4628614A278816D18C75FC68581C5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004539   (836417) от 07.04.2016
-
-Dvorak / Дворжак - Symphonies nos. 8 & 9 "From the New World" (Sawallisch - Philadelphia Orchestra) (2012) [MP3|320 кб/с] <Classical, Concerto>
-
->>Классика
->>Оркестровая
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836417.jpg" />
-</div>
-
-
-###  Подробнее
-
-Symphony no. 8 in G major, op. 88
-01 (1) Allegro con brio
-02 (2) Adagio
-03 (3) Allegretto grazioso(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 01:18:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DCCDD97291008A8DCC3D758A0151961817954D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

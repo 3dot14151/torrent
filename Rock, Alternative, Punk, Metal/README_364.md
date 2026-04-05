@@ -1,3 +1,154 @@
+###  Публикация: 325251   (728042) от 19.04.2011
+
+Ленинград - Не вошедшее (2011) [MP3|192-320 kbps]<Ska>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Антинародная (03:11)
+02. Горький сон (01:05)
+03. И больше никого (feat. Мадонна) (03:03)
+04. Из Росиии... (02:53)
+05. Ленинград для детей (02:05)
+06. Не может быть (02:17)
+07. Нет, и ещё раз нет XX PREMAS (02:50)
+08. От души (feat. Вася Обломов) (03:27)
+09. Песня счастья (02:21)
+10. Такая крутая (metal) (02:19)(   Читать дальше...   )2011Жанр: SkaПродолжительность: 00:33:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:833A8C1542CE765BE29ED0F9944EE6E1490C714A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478349   (728002) от 02.06.2016
+
+Чёрный Кофе - Дискография (14 CD) (1984-2009) [FLAC|Lossless]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728002.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Чёрный Кофе» по праву считается одним из апологетов рок-музыки в нашей стране. Впервые появившись на сцене в начале восьмидесятых годов, коллектив с честью преодолел все преграды, воздвигнутые существовавшей идеологической системой на пути только зарождавшейся «тяжелой» культуры и вошел в золотую летопись отечественного рока. История «Чёрного Кофе» началась в далекие (   Читать дальше...   )01. Страна (3:38)
+02. Дама пик (3:52)
+03. Мгновения часы (3:46)
+04. Расскажи (3:24)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 11:14:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:338FF7DAC4694F139A2798743E612C4AFB525B48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022758   (727852) от 03.06.2016
+
+Paradox - Pangea (2016) [MP3|320 кб/с] <Thrash Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apophis
+02. Raptor
+03. The Raging Planet
+04. Ballot or Bullet(   Читать дальше...   )Жанр: Thrash Metal, Power MetalПродолжительность: 00:59:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F768E58FB37B64A29D951F2AB107FBC8A4834762
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530367   (727813) от 12.02.2022
+
+Eddie Vedder - Earthling (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Invincible (4:47)
+ 02. Power of Right (3:34)
+ 03. Long Way (4:45)
+ 04. Brother the Cloud (4:22)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:48:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26077D15F85683E2E7A0A1DB44BDA55573DD00DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022979   (727778) от 03.06.2016
+
+Stranded By Choice - Hellroaring (2016) [MP3|320 кб/с] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fire (3:34)
+02. Black Seed (5:26)
+03. Resisting (3:40)
+04. The Voice That Only I Hear (3:49)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:746EC230BBE7D4AC622D5E8EEE39E33B8F4A996D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022973   (727769) от 03.06.2016
 
 First Signal - One Step Over The Line (2016) [MP3|320 кб/с] <Melodic Hard Rock>
@@ -6,7 +157,7 @@ First Signal - One Step Over The Line (2016) [MP3|320 кб/с] <Melodic Hard Roc
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727769.jpg" />
 </div>
 
 
@@ -35,7 +186,7 @@ Paul Simon - Stranger To Stranger (2016) Deluxe [FLAC|Lossless|image + .cue] <Fo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727681.jpg" />
 </div>
 
 
@@ -64,7 +215,7 @@ Avril Lavigne - Head Above Water (2019) Japan Edition [FLAC|Lossless|tracks + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727648.jpg" />
 </div>
 
 
@@ -93,7 +244,7 @@ Elvis Presley, Jerry Lee Lewis, Fats Domino, Little Richard - Heroes Of Rock 'N'
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727580.jpg" />
 </div>
 
 
@@ -122,7 +273,7 @@ Sailing To Nowhere - Lost in Time (2017) [MP3|320 Kbps] <Melodic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727557.jpg" />
 </div>
 
 
@@ -151,7 +302,7 @@ Trance - The Loser Strikes Back (2017) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727551.jpg" />
 </div>
 
 
@@ -180,7 +331,7 @@ Slash - Conspiracy Series Volume 1 (2019) Compilation [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727541.jpg" />
 </div>
 
 
@@ -209,7 +360,7 @@ Chris Norman - Romantic Collection (1999) [FLAC|Lossless|tracks] <Pop-Rock, Soft
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727483.jpg" />
 </div>
 
 
@@ -238,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727478.jpg" />
 </div>
 
 
@@ -265,7 +416,7 @@ Volbeat - Boogie - Seal the Deal & Let's (2016) Deluxe Edition [MP3|320 кб/с]
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727470.jpg" />
 </div>
 
 
@@ -294,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727443.jpg" />
 </div>
 
 
@@ -323,7 +474,7 @@ Sheryl Crow - Be Myself (2017) Target Exclusive Version [FLAC|Lossless|tracks + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727437.jpg" />
 </div>
 
 
@@ -352,7 +503,7 @@ Fleetwood Mac - Tango In The Night (1987) Remaster 2017 (3CD) [FLAC|Lossless] <R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727327.jpg" />
 </div>
 
 
@@ -381,7 +532,7 @@ Procol Harum - Novum (2017) [FLAC|Lossless|image + .cue] <Progressive Rock, Art 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727313.jpg" />
 </div>
 
 
@@ -410,7 +561,7 @@ Wicked Minds (Electric Swan) - 6 альбомов (2004 - 2012) [APE|FLAC|Lossle
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727247.jpg" />
 </div>
 
 
@@ -439,7 +590,7 @@ Dark Funeral - Where Shadows Forever Reign (2016) [MP3|320 кб/с] <Black Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727230.jpg" />
 </div>
 
 
@@ -468,7 +619,7 @@ Fleetwood Mac - Tango In The Night (1987) Remaster 2017 (3CD) [MP3|320 kbps] <Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727207.jpg" />
 </div>
 
 
@@ -497,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727032.jpg" />
 </div>
 
 
@@ -526,7 +677,7 @@ Iggy Pop - 3 альбома (1988 - 1993) [FLAC|Lossless]<Alternative Rock, Punk
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_726925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_726925.jpg" />
 </div>
 
 
@@ -555,7 +706,7 @@ Ourlives - Den Of Lions (2014) [MP3|320 кб/с] <Rock, Indie Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726728.jpg" />
 </div>
 
 
@@ -584,7 +735,7 @@ Hillbilly Hellcats - Rev it up with Taz (2000) [MP3|320 кб/с] <Rockabilly, Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726724.jpg" />
 </div>
 
 
@@ -598,151 +749,6 @@ Hillbilly Hellcats - Rev it up with Taz (2000) [MP3|320 кб/с] <Rockabilly, Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0696B8742D3BB5B717E949D67F8054700373711E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023175   (726718) от 04.06.2016
-
-Rohand - Everything Is Gone (2016) [MP3|320 кб/с] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (1:07)
-02. Black Rain (6:05)
-03. Everything Is Gone (6:40)
-04. Enviousness (4:43)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0361F45BB58788FD769A7265ED70104AD741E9B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023011   (726716) от 04.06.2016
-
-Owenstone - Owenstone (2014) [MP3|192 кб/с] <Alternative, Indie>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726716.jpg" />
-</div>
-
-
-###  Подробнее
-
-1․ Intro (Bang the Violins)
-2․ The Next Day We Get Paid
-3․ This Face
-4․ Summer Lane (feat. Mick Smiley)(   Читать дальше...   )Жанр: Alternative, IndieПродолжительность: 00։39։23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC29B5E8C850B1F078F97DAB791E18E65F963608
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023110   (726713) от 04.06.2016
-
-Beth Lee and the Breakups - Keep Your Mouth Shut (2016) [MP3|320 кб/с] <Rockabilly>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Only a Dream (02:05)
-02. Bellville County Line (02:53)
-03. Keep Your Mouth Shut (03:39)
-04. Bad Elevator (02:56)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C54160A7B4834BF05E7E277855C73A0463A02D3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128684   (726647) от 26.04.2017
-
-Order From Chaos - Dawn Bringer (1995) [FLAC|Lossless|image + .cue] <Black, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Labyrinthine Whispers (06:39)
-02. Ophiuchus Rex (He Who Plays with the Serpents) (02:24)
-03. War and Pain (Voivod Cover) (04:29)
-04. Tenebrae/The Sign Draconis (Conqueror of Fear; II, III) (05:11)(   Читать дальше...   )Жанр: Black, Death MetalПродолжительность: 00:40:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE369F92148A134710DF8F88B648D605593FB14A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284688   (726580) от 23.02.2019
-
-Disavowed & Nocturnal Silence - Plateau (1998) [FLAC|Lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sengaia (4:24)
- 02. Uncle Less (3:24)
- 03. Lionel (4:37)
- 04. Braindead (4:29)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:28:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:142DE572BE41F505C209E8D0A11DB7CC747B2FC6
 ```
 
 https://mybot314.ru/tekegram_catalog/

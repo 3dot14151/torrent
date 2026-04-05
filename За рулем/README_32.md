@@ -1,3 +1,30 @@
+###  Публикация: 1638984   (211681) от 12.06.2023
+
+Discovery: Махинаторы / Wheeler Dealers (2020-2021) WEBRip [H.264/1080p] (сезон 16, серии 1-16 из 16)
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет программы — покупка, реставрирование и перепродажа с выгодой, классического автомобиля (обычно авто конца 70-х, 80-х годов). Бюджет всегда ограничен, к примеру, в первом сезоне он составлял 1000 , во 2-м — 2000 , в 3-м — 3000 . Иногда Майк добивается разрешения продюсера на увеличение суммы для покупки эксклюзивных и редких авто.
+Майк покупает машину, передаёт (   Читать дальше...   )Производство: Великобритания, AttaBoy for Discovery ChannelЖанр: телепередача, автомобилиУчастники: Майк Брюэр, Paul Brackley, Ant AnsteadПеревод: Одноголосый профессиональныйЯзык озвучки: РусскийПродолжительность: ~00:44:00 каждая серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD1410E7493B041573D595C9D0509130EF939748
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1638942   (211622) от 12.06.2023
 
 Discovery: Махинаторы / Wheeler Dealers (2023) WEBRip [H.264/1080p] (сезон 18, серии 1-10 из 10) [AD]
@@ -6,7 +33,7 @@ Discovery: Махинаторы / Wheeler Dealers (2023) WEBRip [H.264/1080p] (�
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211622.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210645.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210631.jpg" />
 </div>
 
 
@@ -88,7 +115,7 @@ History Channel. Детейлинг по-американски / Dirty Old Cars
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209449.jpg" />
 </div>
 
 
@@ -114,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209384.jpg" />
 </div>
 
 
@@ -140,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207635.jpg" />
 </div>
 
 
@@ -166,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206430.jpg" />
 </div>
 
 
@@ -195,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205358.jpg" />
 </div>
 
 
@@ -224,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204263.jpg" />
 </div>
 
 
@@ -253,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204144.jpg" />
 </div>
 
 
@@ -279,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203744.jpg" />
 </div>
 
 
@@ -305,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202429.jpg" />
 </div>
 
 
@@ -334,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202158.jpg" />
 </div>
 
 
@@ -362,7 +389,7 @@ GAC GS8: преимуществ и недостатки кроссовера и�
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202123.jpg" />
 </div>
 
 
@@ -391,7 +418,7 @@ Discovery: Быстрые и громкие / Fast N' Loud (2012-2020) HDTVRip [
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198077.jpg" />
 </div>
 
 
@@ -417,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197328.jpg" />
 </div>
 
 
@@ -443,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197322.jpg" />
 </div>
 
 
@@ -469,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196604.jpg" />
 </div>
 
 
@@ -495,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196488.jpg" />
 </div>
 
 
@@ -521,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196405.jpg" />
 </div>
 
 
@@ -547,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195101.jpg" />
 </div>
 
 
@@ -573,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193103.jpg" />
 </div>
 
 
@@ -602,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193058.jpg" />
 </div>
 
 
@@ -629,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192983.jpg" />
 </div>
 
 
@@ -657,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192743.jpg" />
 </div>
 
 
@@ -670,32 +697,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D12E3D70F569F58D88C091B661400FFD9C9D25E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588572   (191421) от 05.11.2022
-
-Минтранс (05.11.2022) SATRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа посвящена всем видам транспорта и тому, как ими пользоваться. От полезных лайфхаков до информации, которая поможет сохранить вам жизнь. Обо всем расскажет самый известный автожурналист России, экс-редактор легендарного журнала «За рулем» и основатель гоночной команды «ГАЗ Рейд Спорт» Вячеслав Субботин.Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:47:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8897A230A406E62D23BD072F5F5C3D5EFCE3E74D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1347873   (147608) от 25.12.2019
+
+Coherence Pro 2.0.3 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Coherence Pro позволяет вам легко превратить любой веб-сайт в мощное приложение на вашем Mac. Используя переработанный инструмент создания, вы можете быстро создавать приложение с помощью встроенной функции или использовать один из нескольких новых режимов приложений для дальнейшего расширения возможностей.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: BZG Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D39F2BB3E6475514C57F5D56A04BA46C92464CB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678211   (147549) от 20.11.2023
+
+Mac FoneLab for iOS 10.2.30 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Mac FoneLab для iOS для восстановления данных Mac iPhone, восстановление системы Mac iOS, резервное копирование и восстановление данных Mac iOS. Передача Mac WhatsApp для iOS в комплекте.Тип издания: macOS SoftwareРелиз состоялся: 01.11.2023Разработчик: © 2023 FoneLab Studio.Поддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E85506F6A7FB4C42D3ECE2165A085DAAEF75FBE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1678080   (147535) от 20.11.2023
 
 Mirror for Samsung TV 3.8.5 [En]
@@ -6,7 +58,7 @@ Mirror for Samsung TV 3.8.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147535.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ Energiza Pro for Mac 1.3.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147518.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ Mac FoneLab FoneEraser for iOS 1.0.20 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147513.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ Mirror for LG TV 3.8.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147497.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ Tipard Blu-ray Player for Mac 6.2.60 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147490.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ Apeaksoft iPhone Transfer 2.0.68 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147482.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ iBoostUp Premium 9.8.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147340.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ Keyboard Maestro 11.0.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147170.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ Mac FoneLab iOS Unlocker  1.0.56 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147130.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ PDF Checkpoint 1.9.11 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146851.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ WebVideoHunter Pro 6.2.1 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146713.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ ClamXav v2.11 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146673.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ iLock 3.2.0 [Mulri/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146653.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ uDesktop NEXT - vast wallpaper collection 3.2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146609.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ Cisco AnyConnect Secure Mobility Client for Mac 4.10.04071 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146608.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ AnyMP4 PDF Converter for Mac 3.2.12 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146398.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ Integrity Plus 12.8.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146301.jpg" />
 </div>
 
 
@@ -457,7 +509,7 @@ Print to PDF Pro for Mac 4.2.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146092.jpg" />
 </div>
 
 
@@ -483,7 +535,7 @@ TunesKit Screen Recorder 2.5.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146008.jpg" />
 </div>
 
 
@@ -509,7 +561,7 @@ Blocs 5.1.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145999.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ AnyMP4 Mac Blu-ray Player for Mac 6.3.66 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145828.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ Planetside Terragen for Mac 4 v.4.7.15 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145786.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ Geekbench 6 v.6.2.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145636.jpg" />
 </div>
 
 
@@ -616,7 +668,7 @@ NCH WavePad Audio Editor Pro 17.92 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145632.jpg" />
 </div>
 
 
@@ -627,59 +679,6 @@ NCH WavePad Audio Editor Pro 17.92 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:287BC43348D7DDE9F3726283C747EC267E0F64D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678505   (145384) от 21.11.2023
-
-Vidmore Player 1.0.58 [Multi]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145384.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всестороннее воспроизведение мультимедийных файлов.
-Vidmore Player - универсальный медиаплеер, который не только поддерживает воспроизведение фильмов Blu-ray и DVD, но также поддерживает все распространенные форматы видео и аудио файлов, такие как MP4, MOV, AVI, WMV, MPEG, 3GP, M2TS, MP3, WMA, AAC и др.Тип издания: macOS SoftwareРелиз состоялся: 09.11.2023Разработчик: © 2023 VidmoreПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A744975E4D645C211204A7A4938579EBE8C3502C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348330   (145155) от 27.12.2019
-
-Icons8 5.7.2 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Icons8 позволяет пользователям искать иконки и вставить непосредственно в Photoshop, Xcode, или любой другой программы.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Icons8 LLC.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37CE534881EAC874DE105A35DAADFD58E99C1EBF
 ```
 
 https://mybot314.ru/tekegram_catalog/

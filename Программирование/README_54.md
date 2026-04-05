@@ -1,86 +1,3 @@
-###  Публикация: 1347652   (138532) от 30.12.2019
-
-Илья Кантор | Современный учебник JavaScript [3 книги] (2019) [PDF, EPUB]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138532.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами учебник по JavaScript, начиная с основ, включающий в себя много тонкостей и фишек JavaScript/DOM
-
-Оффлайн версия учебника, предназначенная для людей у которых например, отсутствует интернет или для чтения с мобильных устройств.Жанр: Программирование, JavaScriptФормат: PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBDF6022EEAFC744FC8517A55728B03A6C1536B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088492   (137429) от 31.12.2016
-
-Хорхе Паласиос | Unity 5.x. Программирование искусственного интеллекта в играх (2017) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игровой движок Unity 5 включает в себя множество инструментов, помогающих разработчикам создавать потрясающие игры, снабженные мощным искусственным интеллектом. Эти инструменты вместе с прикладным программным интерфейсом Unity и встроенными средствами открывают безграничные возможности для создания собственных игровых миров и персонажей. Данная книга охватывает как (   Читать дальше...   )Жанр: Искусственный интелект. Экспертные системыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CF79F9820EA64F9A9584AEDBD92C384D955BEC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825415   (136983) от 17.10.2025
-
-Джон Хортон | Создаем игры и изучаем C++ [3-е издание] (2025) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136983.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мечтаете создавать игры, но не знаете, с чего начать? Книга «Создаем игры и изучаем C++» станет вашим проводником в мире игровой разработки!
-
-Это издание было адаптировано под Visual Studio 2022, C++20 и библиотеку SFML, оно предлагает уникальный подход: вы не только освоите язык C++ с нуля, но и примените знания на практике, создав четыре игры в разных жанрах.
-(   Читать дальше...   )Жанр: ПрограммированиеПеревод: А. ЛаринИздательство: ПитерФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E7AAB1E35EFE9D01BB613FF5DF1D197AA9441DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1824688   (136959) от 15.10.2025
 
 Владислав Светлаков | Архитектура бэкенда. API для надежных корпоративных приложений (2026) [PDF]
@@ -89,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136959.jpg" />
 </div>
 
 
@@ -115,7 +32,7 @@ Tim Peters | Practical Python Backend Programming [Build Flask and FastAPI appli
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136945.jpg" />
 </div>
 
 
@@ -141,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136901.jpg" />
 </div>
 
 
@@ -167,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135594.jpg" />
 </div>
 
 
@@ -193,7 +110,7 @@ Bruce M. Van Horn II, Quan Nguyen | Hands-On Application Development with PyChar
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135153.jpg" />
 </div>
 
 
@@ -219,7 +136,7 @@ Brij Kishore Pandey, Emily Ro Schoof | Building ETL Pipelines with Python (2023)
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134743.jpg" />
 </div>
 
 
@@ -245,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134431.jpg" />
 </div>
 
 
@@ -271,7 +188,7 @@ James Reinders, Ben Ashbaugh | Data Parallel C++, 2nd Edition (2023) [PDF, EPUB]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134171.jpg" />
 </div>
 
 
@@ -297,7 +214,7 @@ Maximiliano Contieri | Clean Code Cookbook (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134131.jpg" />
 </div>
 
 
@@ -323,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133870.jpg" />
 </div>
 
 
@@ -350,7 +267,7 @@ Oswald Campesato | Python for Absolute Beginners (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132509.jpg" />
 </div>
 
 
@@ -376,7 +293,7 @@ Vinci J Rufus | Building Micro Frontends with React 18 (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132504.jpg" />
 </div>
 
 
@@ -402,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131964.jpg" />
 </div>
 
 
@@ -431,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131776.jpg" />
 </div>
 
 
@@ -457,7 +374,7 @@ Ivor Horton, Peter Van Weert | Beginning C++23, 7th ed. Edition (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130802.jpg" />
 </div>
 
 
@@ -485,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130201.jpg" />
 </div>
 
 
@@ -511,7 +428,7 @@ James Gough, Daniel Bryant, Matthew Auburn | Mastering API Architecture (2022) [
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129989.jpg" />
 </div>
 
 
@@ -537,7 +454,7 @@ Josh Steele, Renan Dias | Real-World iOS by Tutorials (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129955.jpg" />
 </div>
 
 
@@ -564,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129631.jpg" />
 </div>
 
 
@@ -590,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128299.jpg" />
 </div>
 
 
@@ -616,7 +533,7 @@ Deven Joshi | Building Cross-Platform Apps with Flutter and Dart (2023) [PDF][EN
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127689.jpg" />
 </div>
 
 
@@ -642,7 +559,7 @@ Harsh Bhasin PhD | Python Programming Using Problem Solving (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127664.jpg" />
 </div>
 
 
@@ -668,7 +585,7 @@ Aditya Iyengar | Build Your Own Web Framework in Elixir (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127499.jpg" />
 </div>
 
 
@@ -679,6 +596,86 @@ Aditya Iyengar | Build Your Own Web Framework in Elixir (2023) [PDF][EN]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A867F35A439AF024A542163128B279D267AEDAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684817   (127457) от 17.12.2023
+
+Colleen M. Farrelly, Yae Ulrich Gaba | The Shape of Data (2023) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга о машинном обучении освещает многие алгоритмы с геометрической точки зрения и знакомит с инструментами сетевой науки, метрической геометрии и топологического анализа данных на основе их практического применения.
+
+Обширная подборка примеров из разных сфер, а также мягкое объяснение математических основ десятков алгоритмов позволяют всесторонне и в то же (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: No Starch PressФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65DE10B342BDB7FE12A69865E433295B5C48425B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684940   (127449) от 17.12.2023
+
+Elizabeth Noble | Pro T-SQL 2022, 2nd Edition (2023) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127449.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это практическая книга, которая на примерах и с помощью понятных объяснений научит вас писать лучший T-SQL. Новым в этом издании является освещение оптимизации Parameter Sensitive Plan (PSP), Azure Synapse Link для аналитики в реальном времени, интеграции с S3-совместимым объектным хранилищем и таблиц SQL Ledger на основе блокчейна. Вы научитесь улучшать дизайн T-SQL, (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Apress BerkeleyФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E70C177BE6BC94D9CF5DBF9B181B49E266C3ED79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685601   (127135) от 19.12.2023
+
+Дэвид Хьеррумгор | Apache Pulsar в действии (2023) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127135.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга научит вас создавать масштабируемые системы потокового обмена сообщениями с использованием Pulsar. Вы начнете с быстрого ознакомления с корпоративными системами обмена сообщениями и откроете для себя уникальные преимущества Pulsar. Следуя четким описаниям и выполняя практические примеры, вы будете использовать фреймворк Pulsar Functions для разработки приложения (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: А.В. СнастинаИздательство: ДМК-ПрессФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F25390DEA1E02D3B431441F9266634E7BA045DBC
 ```
 
 https://mybot314.ru/tekegram_catalog/

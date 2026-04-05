@@ -1,81 +1,3 @@
-###  Публикация: 505194   (260975) от 03.06.2012
-
-Книжная серия | История Востока в 6 томах [2002-2008] [DJVU, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260975.jpg" />
-</div>
-
-
-###  Подробнее
-
-История Востока в 6 томах - фундаментальный шеститомный труд по истории Востока с древнейших время до наших дней.2002-2008Жанр: ИсторияФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:432F23BD3C3BF545ABA317DBEA95E9C749514FC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838646   (260596) от 23.11.2025
-
-Майкл Рабигер | Режиссура документального кино (2006) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260596.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга «Режиссура документального кино» Майкла Рабигера рассказывает о главных принципах работы режиссера документалиста. Книга затрагивает все стадии производства — от подготовки к съемкам до процесса монтажа. Вы узнаете о том, как возникает и разрабатывается идея документального фильма, как формируется съемочная группа и как работает режиссер во время съемок. Автор (   Читать дальше...   )Жанр: Образование, искусство, кинорежиссураИздательство: ГИТРФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90DA1F830DD1C552656DCA05074EAF32F3647D5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 502248   (258950) от 27.05.2012
-
-Петр Гнедич | История искусств с древнейших времен [1885] [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258950.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее издание представляет собой первую попытку дать на русском языке в живом и сжатом изложении картину общего хода развития искусств с древнейших времен до начала ХХ века. Все книги, изданные в России до тех пор, являлись переводом иностранных трудов скорее справочного характера. Автор настоящего издания стремился представить доступное изложение, его труд нельзя (   Читать дальше...   )Жанр: Раритеты, история, искусствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56490C124812ADF4715271CD7F04012F47CF1814
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 502257   (258816) от 27.05.2012
 
 Жан Мески | Замки [2003] [PDF]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258816.jpg" />
 </div>
 
 
@@ -112,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258640.jpg" />
 </div>
 
 
@@ -138,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257898.jpg" />
 </div>
 
 
@@ -164,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257694.jpg" />
 </div>
 
 
@@ -190,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257656.jpg" />
 </div>
 
 
@@ -217,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256933.jpg" />
 </div>
 
 
@@ -245,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256793.jpg" />
 </div>
 
 
@@ -272,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255730.jpg" />
 </div>
 
 
@@ -298,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254985.jpg" />
 </div>
 
 
@@ -324,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254044.jpg" />
 </div>
 
 
@@ -350,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254040.jpg" />
 </div>
 
 
@@ -379,7 +301,7 @@ Michael Dobrzycki | Искусство рисования драконов, ми
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250266.jpg" />
 </div>
 
 
@@ -405,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248882.jpg" />
 </div>
 
 
@@ -433,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248537.jpg" />
 </div>
 
 
@@ -459,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248210.jpg" />
 </div>
 
 
@@ -485,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247771.jpg" />
 </div>
 
 
@@ -511,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244923.jpg" />
 </div>
 
 
@@ -537,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244253.jpg" />
 </div>
 
 
@@ -563,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244204.jpg" />
 </div>
 
 
@@ -591,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244073.jpg" />
 </div>
 
 
@@ -619,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244029.jpg" />
 </div>
 
 
@@ -647,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243986.jpg" />
 </div>
 
 
@@ -673,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243951.jpg" />
 </div>
 
 
@@ -686,6 +608,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD2C9D0A46BDA1AC8C195F25A4E21FF09E83F47B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073078   (243917) от 19.11.2016
+
+О. М. Бескин | Кулацкая художественная литература и оппортунистическая критика (1931) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Статьи этой книжки объединены общей литературно-политической задачей: разоблачить кулацкие тенденции в художественной литературе. Написаны они в разное время. Первая, под названием «Россеяне», была опубликована мною в переодической печати в 1928 г. С тех пор имел место целый ряд «вылазок» правооппортунистической критики и анализируемых мною писателей как в связи (   Читать дальше...   )Жанр: История, политология, литературоведение, поэзия, философия, искусствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F582AA0E77F7C0047D78E4153FFEA23BFC97808C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073091   (243891) от 19.11.2016
+
+М. Ф. Быкова | Гегелевское понимание мышления (1990) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243891.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге предпринята попытка провести целостный критический анализ «Философии духа» и других текстов Гегеля сквозь призму понятия мышления. Предлагается общая схема, позволяющая вычленить и систематизированно представить основные взаимосвязанные смысловые характеристики гегелевского понимания мышления в их реальном проблемном содержании. Представлены новейшие результаты (   Читать дальше...   )Жанр: История, философияФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6302C1A81D34FE2753CE75264BAC5C5D2BA955D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074644   (243878) от 19.11.2016
+
+А.П. Каждан | История византийской литературы [2 книги] (2002 - 2012) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243878.jpg" />
+</div>
+
+
+###  Подробнее
+
+В релизе представлены две книги по "Истории византийской литературы", которые будут интересны для воспитанников и студентов духовных академий, студентов и аспирантов богословских и гуманитарных вузов и факультетов, специалистов по истории и культуре Византии, агиологии, общей церковной истории, всеобщей истории, филологов-литературоведов.Жанр: История; КультуроведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DBF11318333EBB4DD1DA8FC90876AA929AD00EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

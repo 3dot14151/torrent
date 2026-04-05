@@ -1,3 +1,57 @@
+###  Публикация: 1671401   (171359) от 24.10.2023
+
+Серия книг | Теоретические основы технической кибернетики (1965 - 1997) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171359.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия книг по теоретическим основам технической кибернетики от издательства "Наука".Жанр: Технические наукиИздательство: НаукаФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5AA012044B3F1FC4BCA5D6374CD326A9C307E70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672857   (167135) от 30.10.2023
+
+В.В. Дружинин | Магнитные свойства электротехнической стали (1974) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167135.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге приводится систематическое описание магнитных н электрических свойств кремнистой стали, широко применяемой в хозяйстве; рассматриваются методы магнитных измерений магнитомягких сплавов; дается краткое изложение теории ферромагнетизма.
+Проведен сравнительный анализ характеристик различных сталей, условий эксплуатации.
+Книга рассчитана на инженерно-технических (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: ЭнергияФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C0221E87897257D2AE4EEA50AEC442529BD5C44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516261   (166739) от 10.12.2021
 
 П.П. Серебреницкий | Краткий справочник технолога-машиностроителя (2007) [PDF]
@@ -6,7 +60,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166739.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166437.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166397.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164700.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162536.jpg" />
 </div>
 
 
@@ -138,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162246.jpg" />
 </div>
 
 
@@ -165,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162215.jpg" />
 </div>
 
 
@@ -191,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161356.jpg" />
 </div>
 
 
@@ -217,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161339.jpg" />
 </div>
 
 
@@ -244,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161336.jpg" />
 </div>
 
 
@@ -271,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161285.jpg" />
 </div>
 
 
@@ -297,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161127.jpg" />
 </div>
 
 
@@ -323,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161019.jpg" />
 </div>
 
 
@@ -349,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160969.jpg" />
 </div>
 
 
@@ -375,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160842.jpg" />
 </div>
 
 
@@ -402,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160807.jpg" />
 </div>
 
 
@@ -428,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160606.jpg" />
 </div>
 
 
@@ -454,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160602.jpg" />
 </div>
 
 
@@ -480,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160554.jpg" />
 </div>
 
 
@@ -506,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160527.jpg" />
 </div>
 
 
@@ -533,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160382.jpg" />
 </div>
 
 
@@ -560,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159728.jpg" />
 </div>
 
 
@@ -586,7 +640,7 @@ Windell Oskay, Eric Schlaepfer / Уинделл Оскей, Эрик Шлепф�
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158853.jpg" />
 </div>
 
 
@@ -613,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158236.jpg" />
 </div>
 
 
@@ -624,60 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEC94D7C9BF4B9D777B49945270E27DA2376BF0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193924   (158105) от 23.12.2017
-
-М. Гвоздек | Справочник по технике для видеонаблюдения. Планирование, проектирование, монтаж (2010) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158105.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящем справочнике в доступной форме дается описание уже принятых или только входящих в оборот понятий из сферы охранных систем и техники слежения. Представлено подробное толкование более 900 понятий и терминов.
-Весьма полезными окажутся и ссылки, которые даются в наиболее обширных статьях. Приведены также значимые для данной отрасли сведения по компьютерным (   Читать дальше...   )Жанр: Охранные системы, безопасностьФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95E9F32F6507CB99A8B4F895AECCDE5DCD253C0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676386   (156898) от 13.11.2023
-
-М. Габлер, Й. Гашковец, Е. Томанек | Магнитные усилители (1961) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156898.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге в доступной форме изложены принципы действия магнитных усилителей, приведены их схемы включения и характеристики для различных условий работы. Изложены также методы проектирования и расчета магнитных усилителей, вопросы рационального выбора магнитных материалов и рассмотрены различные практические применения магнитных усилителей.
-Книга предназначена для инженеров (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: Советское радиоФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E2D97CF9372051727A3BC283052032FDD545565
 ```
 
 https://mybot314.ru/tekegram_catalog/

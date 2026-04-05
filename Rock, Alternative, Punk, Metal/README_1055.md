@@ -1,3 +1,31 @@
+###  Публикация: 1432606   (163279) от 18.12.2020
+
+Shattered Hope - Vespers (2020) [FLAC|Lossless|image + .cue] <Atmospheric Doom Metal, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Cold Blood
+02. Verge
+03. ΣυριγμόςЖанр: Atmospheric Doom Metal, Death MetalПродолжительность: 01:03:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A34B8C79C15B271EFAAE42ED350502740CCD3711
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1432515   (163275) от 18.12.2020
 
 Return To Void - Infinite Silence (2020) [MP3|320 Kbps] <Heavy-Metal, Progressive-Metal>
@@ -6,7 +34,7 @@ Return To Void - Infinite Silence (2020) [MP3|320 Kbps] <Heavy-Metal, Progressiv
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163275.jpg" />
 </div>
 
 
@@ -35,7 +63,7 @@ Kansas - Another Fork in the Road: 50 Years of Kansas (2022) 3xCD [MP3|320 Kbps]
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163250.jpg" />
 </div>
 
 
@@ -64,7 +92,7 @@ Savatage / Trans-Siberian Orchestra - 30 albums, 2 Box-sets, 71CD (1983-2016) [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163248.jpg" />
 </div>
 
 
@@ -93,7 +121,7 @@ Seether - Disclaimer (2022) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Post-G
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163245.jpg" />
 </div>
 
 
@@ -122,7 +150,7 @@ Big J - Above (2020) [MP3|320 Kbps] <Atmospheric Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163244.jpg" />
 </div>
 
 
@@ -151,7 +179,7 @@ George Lynch and Jeff Pilson - Heavy Hitters (2020) [MP3|320 Kbps] <Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163220.jpg" />
 </div>
 
 
@@ -180,7 +208,7 @@ Iced Earth - Iced Earth (1990) 30th Anniversary Edition, 2020 [FLAC|Lossless|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163211.jpg" />
 </div>
 
 
@@ -209,7 +237,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163210.jpg" />
 </div>
 
 
@@ -238,7 +266,7 @@ TrineATX - Haunt Me Slowly (2020) [MP3|320 Kbps] <Alternative Metal, Modern Hard
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163178.jpg" />
 </div>
 
 
@@ -267,7 +295,7 @@ Messenger - In To Win (2020) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163175.jpg" />
 </div>
 
 
@@ -296,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163150.jpg" />
 </div>
 
 
@@ -325,7 +353,7 @@ Cancer Bats - You'll Never Break Us (2020) Separation Sessions, Vol. 1 [FLAC|Los
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163138.jpg" />
 </div>
 
 
@@ -354,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163132.jpg" />
 </div>
 
 
@@ -383,7 +411,7 @@ Majestica - A Christmas Carol (2020) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163130.jpg" />
 </div>
 
 
@@ -412,7 +440,7 @@ A Sound of Thunder - Parallel Eternity (2020) [MP3|320 Kbps] <Symphonic-Power-He
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163120.jpg" />
 </div>
 
 
@@ -441,7 +469,7 @@ Till Lindemann - Zunge (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, n
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163064.jpg" />
 </div>
 
 
@@ -470,7 +498,7 @@ Bring Me the Horizon - Live at the Royal Albert Hall (2020) [FLAC|Lossless|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163059.jpg" />
 </div>
 
 
@@ -499,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163051.jpg" />
 </div>
 
 
@@ -528,7 +556,7 @@ Dire Straits - Live 1978 - 1992 (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163025.jpg" />
 </div>
 
 
@@ -554,7 +582,7 @@ ADX - Etranges Visions (2021) [WavPack|Lossless|image + .cue] <Heavy Metal, Spee
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162981.jpg" />
 </div>
 
 
@@ -583,7 +611,7 @@ Paul McCartney - McCartney III (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162907.jpg" />
 </div>
 
 
@@ -612,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162901.jpg" />
 </div>
 
 
@@ -641,7 +669,7 @@ Sweet - Isolation Boulevard (2020) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162885.jpg" />
 </div>
 
 
@@ -670,7 +698,7 @@ VA - Anthologie Du Twist Francais 1961-1962 (2017) 3CD [MP3|320 Kbps] <Rock, Pop
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162869.jpg" />
 </div>
 
 
@@ -699,7 +727,7 @@ Beartooth - Aggressive (2016) Remixed, Remastered, 2020, Red Bull Records [MP3|3
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162852.jpg" />
 </div>
 
 
@@ -713,35 +741,6 @@ Beartooth - Aggressive (2016) Remixed, Remastered, 2020, Red Bull Records [MP3|3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B57822C8D72DC2109FC92B6DB425F1AC9202C7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1517379   (162830) от 15.12.2021
-
-Chris Norman - Just A Man (2021) [FLAC|Lossless|image + .cue] <Pop-Rock, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Streets Of Manhattan
-02. All Because Of You
-03. Give Us A Smile
-04. Just A Man(   Читать дальше...   )Жанр: Pop-Rock, Soft RockПродолжительность: 00:50:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07E37C84C894F673B8B86D7B5CF1F88BE29E4D3A
 ```
 
 https://mybot314.ru/tekegram_catalog/

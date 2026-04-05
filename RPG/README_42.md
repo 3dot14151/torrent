@@ -1,3 +1,55 @@
+###  Публикация: 1667374   (176408) от 08.10.2023
+
+Disgaea 7: Vows of the Virtueless (2023) [Multi] (1.0/dlc) Scene Rune [Ultimate Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176408.jpg" />
+</div>
+
+
+###  Подробнее
+
+Присоединяйтесь к главному герою Фудзи, чтобы принять участие в приключении Disgaea, которое станет еще масштабнее и лучше, чем когда-либо прежде! Погрузитесь в демоническое царство Хиномото, где нет кодекса бусидо, а есть кодекс разрушения Хиномото! В Хиномото, состоящем из множества миров, обитает множество демонов, каждый из которых имеет свои собственные убеждения. (   Читать дальше...   )Тип издания: SceneРазработчик: Nippon Ichi Software, Inc.Жанр: Экшены, Приключенческие игры, Ролевые игры, СтратегииЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Японский, Французский, Корейский и другиеЯзык интерфейса: Английский, Японский, Французский, Корейский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D267BF2AAD6A9DA457953645577BAFF8B6E6FF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429539   (176157) от 06.12.2020
+
+The Surge (2017) [Ru/Multi] (55623) License GOG [Augmented Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176157.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Surge - киберпанковая RPG от немецкой студии Deck13 Interactive, известной по игре Lords of the Fallen. Добро пожаловать в CREO – корпорацию, которая спасает мир! Отныне вы в числе ее сотрудников. И в первый же день случается катастрофа. Сознание ускользает, вы проваливаетесь в темноту. Придя в себя, вы обнаружите, что экипированы высокотехнологичным экзоскелетом, (   Читать дальше...   )Тип издания: LicenseРазработчик: Deck13Жанр: Экшн, Ролевая игра, ФантастикаЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F05BF7C35C63F1E28AABBB9B0C28C04596DF47C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595376   (175226) от 05.12.2022
 
 Pentiment (2022) [Multi] (1.0.1212) License Razor1911
@@ -6,7 +58,7 @@ Pentiment (2022) [Multi] (1.0.1212) License Razor1911
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175226.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Assassin's Creed: Valhalla (2020) [Ru/Multi] (1.7.0/dlc) Repack Decepticon [Comp
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174866.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Silent Hope (2023) [Multi] (1.0/dlc) Scene Tenoke [Digital Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174338.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ The Lamplighters League (2023) [Ru/Multi] (1.1.3-65316/dlc) Repack DjDI [Deluxe 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173532.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Baldur's Gate III (3) (2020) [Ru/Multi] (4.1.1.6946847/dlc) Repack Wanterlude [D
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173450.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Cat Quest III (3) (2024) [Ru/Multi] (1.4.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173437.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Blade of Immortality (2023) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173273.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Asterigos: Curse of the Stars (2022) [Ru/Multi] (01.08.0000/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173267.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ LIVE A LIVE (2023) [Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172924.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Vosphia (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172909.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Lost Eidolons (2022) [Ru/Multi] (3_29/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172153.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Grom: Terror in Tibet (2003) [Ru/En] (1.02.252) Unofficial Русский про
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171973.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ Space Wreck (2023) [En] (1.3.24) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171814.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ Arcatera: The Dark Brotherhood (2000) [En] (1.2) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171485.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ The Dungeon Of Naheulbeuk: The Amulet Of Chaos (2020) [Ru/Multi] (1.4.51.41549/d
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170801.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ Agarest: Generations of War 2 (2015) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170202.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ Ashen (2019) [Ru/Multi] (1.0.2/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169976.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ The Legend of Heroes: Trails in the Sky: Second Chapter (2015) [En] (2019.12.08)
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169905.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ Sands of Aura (2023) [En] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168647.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ The Unliving - Founder's Pack (2023) [Ru/Multi] (1.0.2892023_1631) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168607.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ Ashen (2019) [Ru/Multi] (1.0.2/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166018.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ Gamedec (2021) [Ru/Multi] (1.7.1.r70100/dlc) License GOG [Digital Deluxe Edition
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165389.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ Oaken (2023) [Multi] (1.1.2/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164759.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ Pool of Radiance: Ruins of Myth Drannor (2001) [Ru] (1.4) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163723.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ Pool of Radiance: Ruins of Myth Drannor - современная реинкар�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:415C23DA4CE236E04E3E1EAE96B9D42E18E2222B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628182   (162675) от 03.11.2023
-
-The Mageseeker: A League of Legends Story (2023) [Ru/Multi] (1.0.1hf/dlc) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162675.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Mageseeker: A League of Legends Story - ролевое приключение, события которого переносят игроков во вселенную Лиги Легенд. Вместе с протагонистом и его друзьями предстоит исследовать королевство Демасия. Под предлогом защиты обычных людей охотники на магов выходят на тропу войны, искореняя всех, кто имеет хотя бы минимальные магические способности. Главным героем (   Читать дальше...   )Тип издания: LicenseРазработчик: Digital SunЖанр: Экшны, Ролевая игра, ФэнтeзиЯзык озвучки: Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11D5C668BE679BF5E2124228913558F4F9502AE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554158   (162225) от 18.10.2025
-
-Cardaclysm: Shards of the Four (2020) [Ru/Multi] (1.1.2.6_fix) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы — тёмный маг, которому не следовало связываться со слишком могущественными заклинаниями. Но вы, конечно, всё равно рискнули. На этот раз дела пошли совсем скверно: из-за вас в мир явились Четыре всадника Апокалипсиса и их приспешники! Блестящий результат, что и говорить… Итак, поторопитесь: используйте волшебные карты, чтобы отправить эту великолепную четвёрку (   Читать дальше...   )Тип издания: LicenseРазработчик: Elder GamesЖанр: Ролевая игра, СтратегияЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AFBDF5B73684841B58D8F813BB77566C1CE8648
 ```
 
 https://mybot314.ru/tekegram_catalog/

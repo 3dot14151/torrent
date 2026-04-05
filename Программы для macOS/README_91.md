@@ -1,3 +1,55 @@
+###  Публикация: 1162352   (458878) от 01.09.2017
+
+IINA 0.0.12 [Multi/Ru]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный проигрыватель с открытым исходным кодом и современным дизайном, который способен удовлетворить даже самых требовательных пользователей и стать полноценной заменой VLC. Старый добрый VLC хоть и вполне справляется со своими задачами, но в последних версиях macOS выглядит уже откровенно устаревшим. В этом плане у IINA есть сразу несколько преимуществ: проигрыватель (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.07.2017Разработчик: Collider LIПоддерживаемая ОС: OS X 10.10 or later (macOS 10.12 recommended)Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2112CA445E3003E092E60ADFC72B1D2AD0D5C6F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060169   (457401) от 06.10.2016
+
+CrossFTP Enterprise 1.97.8 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457401.jpg" />
+</div>
+
+
+###  Подробнее
+
+CrossFTP - простой FTP-клиент с поддержкой протоколов: Amazon S3, FTP, SFTP, FXP, WebDAV и облачные хранилища. Приложение использует стандартный интерфейс, с делением основного окна программы на две части. Программа имеет мульти вкладки, которые упрощают навигацию. В целом, функционал CrossFTP не сильно отличается от функционала аналогичных программ. Вы сможете просматривать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.09.2016Разработчик: CrossFTP SoftwareПоддерживаемая ОС: macOS 10.7 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70C1127775895F5EF07A181F2BD7B240465B7F5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 941981   (457290) от 29.09.2015
 
 Data Rescue 4.2.1 [En]
@@ -6,7 +58,7 @@ Data Rescue 4.2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457290.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ DxO Optics Pro 7.5.4 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456934.jpg" />
 </div>
 
 
@@ -62,7 +114,7 @@ Tyme 2 v1.5.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455193.jpg" />
 </div>
 
 
@@ -89,7 +141,7 @@ TotalSpaces 2 2.4.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455043.jpg" />
 </div>
 
 
@@ -115,7 +167,7 @@ Noiseless CK (Pro) 1.3.2 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454724.jpg" />
 </div>
 
 
@@ -142,7 +194,7 @@ X Lossless Decoder 20161007 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452765.jpg" />
 </div>
 
 
@@ -171,7 +223,7 @@ FreeMemory Pro 1.7 [Eng]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_452439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_452439.jpg" />
 </div>
 
 
@@ -203,7 +255,7 @@ Fenêtre 0.6.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451380.jpg" />
 </div>
 
 
@@ -232,7 +284,7 @@ Triumph 2.5.9 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450776.jpg" />
 </div>
 
 
@@ -260,7 +312,7 @@ Deep Freeze 6.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450364.jpg" />
 </div>
 
 
@@ -286,7 +338,7 @@ Forecast Bar 2.7.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449154.jpg" />
 </div>
 
 
@@ -316,7 +368,7 @@ Kardnote - Daily Note-Taking with Markdown 1.0.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449005.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ Image-Line FL Studio Producer Edition 20.0.4.57 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448067.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ Icons8 5.7.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445235.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ BitMedic® Pro Antivirus 2.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444672.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ Command-Tab Plus 1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444278.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ Goldfish Professional 4.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444264.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ DayLite 6.0.7 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444251.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ Video Editor Enhancer 1.0.29 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444245.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ Amarra Luxe 4.0.295 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443477.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ TouchCopy 16.40 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443275.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ HardwareGrowler 2.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_443272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443272.jpg" />
 </div>
 
 
@@ -615,7 +667,7 @@ Video Plus 1.2.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_442393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442393.jpg" />
 </div>
 
 
@@ -641,7 +693,7 @@ Fantastical 2 - Calendar and Reminders 2.2.5 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441961.jpg" />
 </div>
 
 
@@ -653,63 +705,6 @@ Fantastical - приложение представляет собой кале
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0389F6289CD5789272D2908DDC0DF6E111CEB811
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062364   (441957) от 13.10.2016
-
-Mountain Duck 1.5.8 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mountain Duck позволяет монтировать любой удаленный FTP, SFTP, WebDAV, Azure Cloud Storage, S3, Google Cloud Storage, Google Drive и OpenStack Swift как локальный диск в Finder.
-
-В приложении реализована поддержка всех основных протоколов для подключения к любому серверу. Открывайте файлы на удаленном сервере любым приложением и работайте как на локальном томе, а (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 07 октября 2016Разработчик: iterate GmbHПоддерживаемая ОС: OS X 10.8.3 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:646F4FE30BAA81517EA69B995AE432B8294CACAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164137   (441843) от 09.09.2017
-
-Kardnote - Daily Note-Taking with Markdown 1.0.7 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_441843.jpg" />
-</div>
-
-
-###  Подробнее
-
-Организуйте свои заметки в карточках
-Kardnote стремится предоставить ежедневный инструмент для заметок с силой Markdown. Тем не менее, Markdown не является обязательным. У Kardnote есть интуитивно понятный режим редактирования текста. В этом режиме вам даже не нужно знать, что такое Markdown.
-
-WonderPen поддерживает переключение режима редактора между Markdown или (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.08.2017Разработчик: EDGENIUS PTY LIMITEDПоддерживаемая ОС: OS X 10.11 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39205857C6FD3E48DE7AA07A867FCCAA8479F68A
 ```
 
 https://mybot314.ru/tekegram_catalog/

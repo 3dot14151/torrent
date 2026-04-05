@@ -1,3 +1,29 @@
+###  Публикация: 953763   (346338) от 05.11.2015
+
+Казанова / Casanova (2015) WEBRip [H.264/2160p-LQ] [En]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изгнанный из своей любимой Венеции , Джакомо Казанова бежит в Париж на заре эпохи Просвещения, в надежде оставить свою репутацию плейбоя позади него. Но старые привычки умирают тяжело, и искушение везде, так Казанова находит множество новых возможностей ... и неприятности.Производство: США, Amazon Studios, ElectusЖанр: ДрамаРежиссер: Жан-Пьер ЖёнеАктеры: Диего Луна, Бояна Новакович, Бен Дэниелс, Амелия Кларксон, Лор Марсак, Миранда Ричардсон, Пол Рис, Эд Бирч, Сара Винтер, Френсис МаджиПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 00:54:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5392875B169D0EAA08437139F2D55D778FFFF08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953881   (346088) от 05.11.2015
 
 Человек-муравей / Ant-Man  (2015) WEBRip [H.264/1080p-LQ] [EN]
@@ -6,7 +32,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346088.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345521.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345194.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344735.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344487.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343386.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342933.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342924.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342664.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341828.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341671.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341620.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339280.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338337.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338336.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338239.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337024.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335994.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334941.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334769.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334116.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334058.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332404.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330972.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326524.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4358D1B43018CC5B5DD2690B02F3F5D07540830E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957609   (326463) от 18.11.2015
-
-Прогулка по Миссисипи / Mississippi Grind  (2015) BDRip [H.264/1080p] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326463.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм расскажет о стареющем картежнике, который вместе с молодым коллегой путешествует по югу Америки.Производство: США, Electric City Entertainment, Gowanus Projections, Sycamore Pictures and Story Ink.Жанр: драмаРежиссер: Анна Боден , Райан ФлекАктеры: Бен Мендельсон, Райан Рейнольдс, Ивонн Ландри, Энтони Ховард, Джэйсон Уорнер Смит, Керри Кехилл, Джейн МакНейлл, Джейсон Шаффетт, П.Дж. Маршалл, Стефани Онор, Тери Уайбл, Хантер БуркПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:49:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:051FD6567FAC9A51332E6F88596740C4EDC51446
 ```
 
 https://mybot314.ru/tekegram_catalog/

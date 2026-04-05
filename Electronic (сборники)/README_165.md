@@ -1,3 +1,67 @@
+###  Публикация: 579873   (343201) от 25.11.2012
+
+VA - Creative Music Box 5 (2012) [MP3|320 кб/с]<Dub Step/Drum'n'Bass/Drumstep/Heavy Electro/Glitchhop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343201.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Adroa - Six Four
+2. Ady - Ai (CruciA Remix)
+3. Back From The Future - Wide Awake
+4. Bare - Bass Star
+5. Bold Equation - Born Killer (Bass Machines Remix)
+6. Bombs Away feat. The Twins - Party Bass (Calvertron Remix)
+7. Bullwack - Captain Planet
+8. Calyx feat. Teebee vs. Beardyman - You'll Never Take Me Alive
+9. Crucia feat. Do Or Die - Yandere Lovin
+10. Eliminate - Damnation(   Читать дальше...   )Жанр: Dub Step/Drum'n'Bass/Drumstep/Heavy Electro/GlitchhopПродолжительность: 02:14:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEA96D95C6EDE99EA9EA092252B3027AFE0B10B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179980   (342798) от 03.11.2017
+
+VA - Sinemotion 150 Extended Ambient Mix (2017) [MP3|320 Kbps] <Ambient, Downtrmpo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342798.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Custom 7 - Breath Unwind
+002. James Butler - Dinner in Milano
+003. Miper - Hide (Original Mix)
+004. Alexander S. Karlov - Sex With Yoga Girl(   Читать дальше...   )Жанр: Ambient, DowntrmpoПродолжительность: 11:48:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E932D62583D6B2B2007F238244811564847EDAD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 954316   (342396) от 07.11.2015
 
 VA - Vocal Hits Velvet Grooves Volume Sex! (2015) [MP3|320 кб/с]<Ambient,Downtempo, Lounge, Electronic>
@@ -6,7 +70,7 @@ VA - Vocal Hits Velvet Grooves Volume Sex! (2015) [MP3|320 кб/с]<Ambient,Down
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342396.jpg" />
 </div>
 
 
@@ -35,7 +99,7 @@ VA - Extra House: Bonus [01] (2015) [MP3|320 кб/с]<House, Deep House, Club Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342293.jpg" />
 </div>
 
 
@@ -64,7 +128,7 @@ VA - Clubsolute 2016.01 (2015) [MP3|320 кб/с]<House, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341885.jpg" />
 </div>
 
 
@@ -93,7 +157,7 @@ VA - In Da Club Vol.67 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341391.jpg" />
 </div>
 
 
@@ -128,7 +192,7 @@ VA - Jungle Sound Party (2019) [MP3|320 Kbps] <Jungle, Bass, DnB>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341318.jpg" />
 </div>
 
 
@@ -157,7 +221,7 @@ VA - Autumn Electro Dance Session (2019) [MP3|320 Kbps] <Dance, Electro, Dance H
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341293.jpg" />
 </div>
 
 
@@ -186,7 +250,7 @@ VA - Intermission: Chill House Music (2019) [MP3|320 Kbps] <Chill House, Deep Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341288.jpg" />
 </div>
 
 
@@ -215,7 +279,7 @@ VA - Record Super Chart 559 (2018) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341202.jpg" />
 </div>
 
 
@@ -244,7 +308,7 @@ VA - Клубные Новинки Vol.185 (2012) [MP3|320 кб/с]<Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341107.jpg" />
 </div>
 
 
@@ -279,7 +343,7 @@ Dj Parafich [Based on the LAOS project] - Vocal Drum And Base Romantica (2012) [
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340819.jpg" />
 </div>
 
 
@@ -314,7 +378,7 @@ VA - DubStep Pro V.6 (2012) [MP3|320 кб/с]<Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340624.jpg" />
 </div>
 
 
@@ -349,7 +413,7 @@ VA - DubStep Pro V.5 (2012) [MP3|320 кб/с]<Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340621.jpg" />
 </div>
 
 
@@ -384,7 +448,7 @@ VA - Dance Generation: Soulfull Party (2019) [MP3|320 Kbps] <Eurodance, Club, Po
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340616.jpg" />
 </div>
 
 
@@ -413,7 +477,7 @@ VA - Maxweb Dance (2016) [MP3|320 Kbps] <Dance, Break Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340560.jpg" />
 </div>
 
 
@@ -442,7 +506,7 @@ VA - EDM Top 50 [Compiled by Zebyte] (2016) [MP3|320 Kbps] <EDM>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340367.jpg" />
 </div>
 
 
@@ -471,7 +535,7 @@ VA - Deep House Collection Vol.189 (2018) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340183.jpg" />
 </div>
 
 
@@ -500,7 +564,7 @@ VA - Bassleader (07.11.2015) [MP3|320 кб/с]<Techno, Hardstyle>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340103.jpg" />
 </div>
 
 
@@ -529,7 +593,7 @@ VA - Resident Advisor Top 50 Charted Tracks October (2015) [MP3|320 кб/с]<Ele
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340097.jpg" />
 </div>
 
 
@@ -558,7 +622,7 @@ VA - 150 Dubstep Miscellany (2017) [MP3|320 Kbps] <Dubstep, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340023.jpg" />
 </div>
 
 
@@ -587,7 +651,7 @@ VA - Beatport Top 100 Deep House October (2015) [MP3|320 кб/с]<Deep House, Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339960.jpg" />
 </div>
 
 
@@ -616,7 +680,7 @@ VA - Sojuz Techno & Trance vol. 4 (1996) [MP3|112-320 кб/с]<Electronic, Hard 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339957.jpg" />
 </div>
 
 
@@ -645,7 +709,7 @@ VA - Beatport Indie Dance / Nu Disco Top 100 October (2015) [MP3|320 кб/с]<In
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339956.jpg" />
 </div>
 
 
@@ -674,7 +738,7 @@ VA - Beat, Bass, Melody (mixed by Dj V) (2020) [MP3|320 Kbps] <Bass House, Club 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339865.jpg" />
 </div>
 
 
@@ -703,7 +767,7 @@ VA - Record Super Chart 24.09.2022 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338569.jpg" />
 </div>
 
 
@@ -717,76 +781,6 @@ VA - Record Super Chart 24.09.2022 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A88C42A17C6FEEBCC24280398B54BF0FC49D4CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 581678   (338256) от 27.11.2012
-
-MiaS - Dubstep music (2012) [MP3|320 кб/с]<Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.MiaS - Club dubstep
- 02.MiaS - Progressive dub
- 03.MiaS - Underground Dubstep
- 04.MiaS - Aggro Dubstep
- 05.MiaS - Drum dubstep
- 06.MiaS - Dance dance
- 07.MiaS - On the floor
- 08.MiaS - PokemoN dubstep
- 09.MiaS - Clock attack
- 10.MiaS - Atmosphere dubЖанр: DubstepПродолжительность: 00:29:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2F250123FAE5248293D1414164C910363D52214
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 581713   (338164) от 27.11.2012
-
-VA - Chilling With the Stars: The Ultimate Chillout and Lounge Collection (2012) [MP3|320 кб/с]<Electronic, Chillout, Lo-Fi, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338164.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Urban Lounge - Chilling With the Stars - Crusin' Kandi Mix (5:13)
-2. Perelandra - Moon Over the City (4:39)
-3. Wonderphazz - City Lights - Soul 2 Sax Mix (5:07)
-4. Soulfuel - Midnight Serenade - Chatroom Chillout Mix (5:26)
-5. Guru Sax - People Can't Stop Chillin (5:58)
-6. Cape Town Chillerz - Sky in Your Eyes - Sunset Campari Chillout Hotel Bar Mix (5:32)
-7. Deja 7 - One More Night - Summer Night Chill Mix (4:23)
-8. Fireflies - Lonely - Ocean Eyes Mix (4:54)
-9. Noisy Blue - Great Gig in the Sky - Moon Floyd Beach Mix (5:29)
-10. Sevastopol - Stars - Retro Chill Under the Sun Mix (5:48)(   Читать дальше...   )Жанр: Electronic, Chillout, Lo-Fi, LoungeПродолжительность: 02;51:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C94655A7FB06D320034A7441FAF4E344D5842ACB
 ```
 
 https://mybot314.ru/tekegram_catalog/

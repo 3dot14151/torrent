@@ -1,138 +1,3 @@
-###  Публикация: 983221   (945391) от 05.02.2016
-
-Николай Лузан | СМЕРШ. Без легенд и мифов (2015) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вниманию читателей предлагается новая книга Николая Лузана, ветерана органов безопасности, лауреата многих литературных премий. В 13 художественно-документальных очерках и рассказах освещена деятельность отечественной военной контрразведки Смерш с апреля 1943-го по 1946 год.
-
-В книге использован богатый фактический материал из центрального архива ФСБ РФ.Жанр: История, CпецслужбыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1170060C9800E4E650023A9481BEB3B581A84E38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983109   (945385) от 05.02.2016
-
-Г.С. Остапенко | Усилительные устройства (1989) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945385.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приведены основные параметры и характеристики усилительных устройств, принципы их работы и методика расчета. Рассмотрены одно- и двухтактные усилительные каскады и усилители с обратными связями, а также вопросы их устойчивости. Описаны усилители, реализуемые по интегральной технологии. Изложены особенности устройств аналоговой обработки сигналов на основе операционных (   Читать дальше...   )Жанр: ЭлектроникаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBFCEB5A080C5092D144EA074CB7B28BE990E162
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982511   (945325) от 05.02.2016
-
-Л.В. Кондратенко | Дефекты хлебных изделий (2006) [DOC]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945325.jpg" />
-</div>
-
-
-###  Подробнее
-
-В методическом пособии «Дефекты хлебных изделий» представлены наиболее часто встречающиеся дефекты хлебных изделий, возникающие в процессе производства, хранения или транспортировки. Для сравнения в пособии показаны также образцы хлебобулочных изделий хорошего и отличного качества. Альбом содержит 99 цветных одиночных и групповых фотоиллюстраций образцов хлебных (   Читать дальше...   )Жанр: Хлебопечение, кулинарияФормат: DOC
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3BDA71C2180E9897895FC690F5EE923336968E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983225   (945316) от 05.02.2016
-
-Николай Лузан | СМЕРШ. Один в поле воин (2015) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор рассматривает период с ноября 1941 по октябрь 1943 г. и рассказывает о деятельности отечественной военной контрразведки, в частности особых отделов НКВД СССР - ГУКР Смерш НКО СССР.
-В основе книги лежит одна из наиболее значимых разведывательных операций советской контрразведки по агентурному проникновению в абвер. Она получила кодовое название "ЗЮД". (   Читать дальше...   )Жанр: История, CпецслужбыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42D0C313B1E16FFE9B456D85DBC6787F8F3B7F9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363082   (945271) от 26.02.2020
-
-Борис Сопельняк | Три покушения на Ленина (2018) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Личность вождя мировой революции до сих пор окутана тайной. В своей документально насыщенной и увлекательной книге Борис Сопельняк рассказывает о малоизвестных фактах из жизни В.И. Ленина периода борьбы за власть, а также рассматривает все попытки покушений на легендарного Ильича.
-
-О покушениях на Ленина, о том, кто к ним причастен, о расследовании этих громких дел (   Читать дальше...   )Жанр: ИсторияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1AFF561712ADACF3F4CB2C567380F303EFDB318
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363106   (945201) от 26.02.2020
 
 Виктор Вилисов | Нас всех тошнит. Как театр стал современным, а мы этого не заметили (2019) [PDF, EPUB]
@@ -141,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945201.jpg" />
 </div>
 
 
@@ -167,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945194.jpg" />
 </div>
 
 
@@ -196,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945153.jpg" />
 </div>
 
 
@@ -223,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945151.jpg" />
 </div>
 
 
@@ -249,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945039.jpg" />
 </div>
 
 
@@ -276,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945017.jpg" />
 </div>
 
 
@@ -302,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944881.jpg" />
 </div>
 
 
@@ -328,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944841.jpg" />
 </div>
 
 
@@ -354,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944687.jpg" />
 </div>
 
 
@@ -382,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944619.jpg" />
 </div>
 
 
@@ -408,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944438.jpg" />
 </div>
 
 
@@ -434,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944413.jpg" />
 </div>
 
 
@@ -463,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944256.jpg" />
 </div>
 
 
@@ -489,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944072.jpg" />
 </div>
 
 
@@ -515,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943793.jpg" />
 </div>
 
 
@@ -542,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943789.jpg" />
 </div>
 
 
@@ -568,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943737.jpg" />
 </div>
 
 
@@ -595,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943708.jpg" />
 </div>
 
 
@@ -622,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943673.jpg" />
 </div>
 
 
@@ -648,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943633.jpg" />
 </div>
 
 
@@ -674,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943627.jpg" />
 </div>
 
 
@@ -686,6 +551,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A9550E377629F795DAC12781422ACAF88502631
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091140   (942806) от 09.01.2017
+
+С. А. Куценко | Основы токсикологии (2002) [PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга Куценко С.А. «Основы токсикологии» рассчитана на ознакомление читателя с фундаментальными проблемами современной токсикологии, сущностью феноменов токсичности и токсического процесса, регистрируемых при взаимодействии разнообразных химических веществ с живыми системами на различных уровнях их структурно-функциональной организации — от молекулы до популяции. (   Читать дальше...   )Жанр: ТоксикологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5881D447346EA61A1C9641150F8ACE2556C2B517
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363587   (942396) от 28.02.2020
+
+Ю.А. Леньков, А.С. Барукин | Проектирование электрических станций (2017) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942396.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии рассмотрены вопросы проектирования электрической части тепловых электростанций, вопросы выбора структурных схем, методика технико-экономических расчетов с учетом надежности, выбор коммутационных аппаратов и проводников, выбор схем распределительных устройств и схем собственных нужд.
+Учебное пособие предназначено для студентов электроэнергетических (   Читать дальше...   )Жанр: ЭлектротехникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D57DD9040B8E47B5264C8947929CE75BCDB668B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363494   (942393) от 28.02.2020
+
+В.С. Савоськин | Электроснабжение. Электроснабжение промышленных предприятий (2010) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942393.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии приведены основные исходные данные для создания системы электроснабжения городов, промышленных предприятий и объектов сельского хозяйства: электрические нагрузки, типовые схемы систем, выбор трансформаторов и коммутационной аппаратуры высокого и низкого напряжений, сечений проводов и жил кабелей, местоположений питающих подстанций, вопросы компенсации реактивной (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:549FDF149152F47D16C6D0CF338D42F7701A7CF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983717   (942353) от 07.02.2016
+
+А. Шафф | Объективный характер законов истории. Некоторые проблемы марксистской методологии историографии (1959) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Монография видного представителя марксистской философской мысли Польши Адама Шаффа «Объективный характер законов истории», впервые изданная на польском языке в Варшаве в 1955 году.
+
+Автор работы, хорошо известный философской общественности нашей страны по ранее опубликованной в СССР его книге об истине, не ставит перед собой задачи подробно осветить все вопросы, (   Читать дальше...   )Жанр: История, философия, политология, методология историиФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA1D2CA4582E3FDB71A3029E054675108207DEFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983761   (942243) от 07.02.2016
+
+П. В. Гидулянов | Отделение церкви от государства в СССР (1926) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942243.jpg" />
+</div>
+
+
+###  Подробнее
+
+С образованием Союза ССР автор поставил целью собрать, систематизировать и проработать правовой материал по линии отделения церкви от государства в общесоюзном масштабе, взяв за основу законодательство и практику РСФСР.Жанр: История, религиоведение, политологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4D4CC2CD12F6C33A79C8FDA53A1DA78C774CF82
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1120559   (802115) от 31.03.2017
+
+VA - Beatport Trance  Pack (31.03.) (2017) [MP3|320 Kbps] <Trance, Energy, Uplifting, Emotional, Blissful, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Paul van Dyk - Touched By Heaven (Extended)  7:30
+02.  Davey Asprey - Fallout (Extended Mix)  5:52
+03.  Ratty - Sunrise (Indecent Noise's Dreamstate Remix)  7:22
+04.  Sean Matthews - Our Empire (John Askew Remix)  7:40(   Читать дальше...   )Жанр: Trance, Energy, Uplifting, Emotional, Blissful, ProgressiveПродолжительность: 03:31:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EA7A9619C3FAEFF6959FBA037A46E71B866AB87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120378   (802098) от 31.03.2017
+
+VA - 100 House Matrix (2017) [MP3|320 Kbps] <House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802098.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Janieck - Feel The Love (Sam Feldt Edit)
+002. Tom Novy - Dance The Way I Feel - Club Mix
+003. Agresias - Ink (Original Mix)
+004. Gil Glaze - Can't Let You Go - Radio Edit(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 09:26:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE45929A0EE9414336DBA2534FBB99AA471FE286
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120466   (802088) от 31.03.2017
 
 VA - Pacific Relax Zone (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -6,7 +64,7 @@ VA - Pacific Relax Zone (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802088.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - The Best - In Music We Trust Vol.14 (2017) [MP3|320 Kbps] <House, Electro, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802042.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Chillout - Ocean sounds (2018) [MP3|320 Kbps] <Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801775.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Автозвук. Злючий Басс (Sound Clinic - Bass Edition) (2018
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801688.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Electro Lemon: Fresh House Session (2021) [MP3|320 Kbps] <Electro, Future H
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801651.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Deep House Collection Vol.153 (2018) [MP3|320 Kbps] <Deep House, Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801553.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - SVS Collection vol.2 by MR.DJ (2018) [MP3|320 Kbps] <Deep House, Disco Hous
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801315.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Ремиксы от MGDC FM Vol 5 (2020) [MP3|320 Kbps] <Funky, Club House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801301.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Beatport Trance  Pack (01.04.) (2017) [MP3|320 Kbps] <Trance, Melodic, Upli
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801267.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Fast Running Music (2017) [MP3|320 Kbps] <Drum & Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801254.jpg" />
 </div>
 
 
@@ -293,7 +351,7 @@ VA - Chillout Hits Vol.5 (2017) [MP3|320 Kbps] <Chillout , Chillstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801233.jpg" />
 </div>
 
 
@@ -322,7 +380,7 @@ VA - Club Night Cream Moon (2018) [MP3|320 Kbps] <Club, Dance, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800630.jpg" />
 </div>
 
 
@@ -351,7 +409,7 @@ VA - Trance Traveling 87 (Mixed by VNP) (Special Uplifting Mix) (2017) [MP3|320 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800617.jpg" />
 </div>
 
 
@@ -380,7 +438,7 @@ VA - Deep House Collection Vol.115 (2017) [MP3|320 Kbps] <Deep House, Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800547.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ VA - Future Trance - Best Of 20 Years (2017) [MP3|320 Kbps] <Future House, Techn
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800497.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ VA - Keeper Of The Deep: Zone Drum And Bass (2018) [MP3|224-320 Kbps] <Drum & Ba
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800447.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ VA - 60 minutes. Old School Dance Music (mixed by Dj V) (2017) [MP3|320 Kbps] <C
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800438.jpg" />
 </div>
 
 
@@ -496,7 +554,7 @@ VA - Evening Chillout Sounds (2020) [MP3|320 Kbps] <Chillout, Ambient, Downtempo
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800389.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ VA - Beatport Funky House: Sound Pack #90 (2020) [MP3|320 Kbps] <Funky, Disco Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800343.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ VA - Hi Games Vol.7 (Chiptune, Electro House Edition) (2020) [MP3|320 Kbps] <Chi
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800335.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ VA - Beatport Progressive Trance: Electro Sound Pack #89 (2020) [MP3|320 Kbps] <
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800276.jpg" />
 </div>
 
 
@@ -612,7 +670,7 @@ VA - Beatport Future House: Electro Sound Pack #97 (2020) [MP3|320 Kbps] <Electr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800203.jpg" />
 </div>
 
 
@@ -641,7 +699,7 @@ VA - Beatport Deep House: Electro Sound Pack #87 (2020) [MP3|320 Kbps] <Deep Hou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800198.jpg" />
 </div>
 
 
@@ -670,7 +728,7 @@ VA - Beatport Techno Hypnotic: Sound Pack #88 (2020) [MP3|320 Kbps] <Techno>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800196.jpg" />
 </div>
 
 
@@ -684,64 +742,6 @@ VA - Beatport Techno Hypnotic: Sound Pack #88 (2020) [MP3|320 Kbps] <Techno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:685CAFF5B238C91154E4D24C1CEE2733FDE5A4AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506473   (800003) от 31.10.2021
-
-VA - Record Super Chart 30.10.2021 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alok - It Don't Matter (Feat. Sofi Tukker, Inna) (2:53)
-02. Calvin Harris feat. Tom Grennan - By Your Side (3:09)
-03. Tiesto & KAROL G - Don't Be Shy (2:20)
-04. Kungs - Never Going Home (2:49)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:39:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF40B2CCDA4B1FB509390F53B9C3CEBEB73618DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273542   (799896) от 02.01.2019
-
-VA - Selection 2018 (2018) [MP3|320 Kbps] <Progressive, Psychedelic, Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ace Ventura - Maximum Overdrive (Lyktum Remix)
-02. Aioaska & Gipsy Soul - Natural Response (Original Mix)
-03. Altered State - Rubix (Original Mix)
-04. Audiofire (UK) - A Billion Neurons (Original Mix)(   Читать дальше...   )Жанр: Progressive, Psychedelic, TranceПродолжительность: 04:38:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8506C183A3929925CF9D99FF15892030595B9135
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1680578   (134219) от 29.11.2023
+
+Garden Planner 3.8.53 [En]
+
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134219.jpg" />
+</div>
+
+
+###  Подробнее
+
+Garden Planner - удобное приложение для проектирования сада Вашей мечты или ландшафта для вашей фазенды. Расположите растения, деревья, постройки и объекты, используя удобный 'drag and drop' интерфейс. Используйте различные инструменты, чтобы быстро создать мощение, дорожки и заборы. Цвет листвы можно изменять. План легко масштабируется. В завершение, вы можете произвести (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.10.2023Разработчик: © 2023 Artifact InteractiveПоддерживаемая ОС: macOS 10.7 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92061836757C01C322F887B253D2EA5D7A96B3CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594421   (133969) от 25.12.2012
+
+Hazel 3.0.16 [Eng]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hazel – это ваш личный уборщик, который организует и очистит папки так, как вы захотите. Hazel может также управлять вашей корзиной и удалять приложения. Hazel позволяет сортировать файлы по названиям, типу, дате, сайту или адресу электронной почты, с которого пришёл файл. С помощью этой программы вы также имеете возможность прикреплять цветные ярлыки, создавать ключевые слова Spotlight и комментарии. Hazel также удаляет неполные или повторные загрузки. Все работы проходят в фоновом режиме.Название программы: HazelРелиз состоялся: декабрь 2012Тип издания: Mac OS X softwareЯзык интерфейса: Eng
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680597   (133955) от 30.11.2023
 
 iCompta 6 v.6.1.10 [Multi]
@@ -6,7 +58,7 @@ iCompta 6 v.6.1.10 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133955.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ SILKYPIX Developer Studio Pro 11 for FUJIFILM 11.4.13.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133949.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ CryptoEdit 2 v.2.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133919.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ PhotoFoundry for Mac 1.2.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133911.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Input Recorder for Mac 1.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133902.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Recompress 22.12 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133901.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ SILKYPIX Developer Studio Pro 11 for Panasonic 11.3.13.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133892.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ Aperture Update 3.4.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133880.jpg" />
 </div>
 
 
@@ -221,7 +273,7 @@ Dropzone 4 Pro v.4.80.0 fix [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133879.jpg" />
 </div>
 
 
@@ -248,7 +300,7 @@ JSON Wizard for Mac 2.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133856.jpg" />
 </div>
 
 
@@ -274,7 +326,7 @@ Capture One 23 Enterprise 16.3.2.32 [En/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133833.jpg" />
 </div>
 
 
@@ -301,7 +353,7 @@ Trimma for Mac 1.6.884 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133823.jpg" />
 </div>
 
 
@@ -327,7 +379,7 @@ Pixea Plus for Mac 5.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133820.jpg" />
 </div>
 
 
@@ -353,7 +405,7 @@ Flyingbee PDF to Word for Mac 8.5.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133816.jpg" />
 </div>
 
 
@@ -379,7 +431,7 @@ Balsamiq Mockups For Desktop 4.7.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133777.jpg" />
 </div>
 
 
@@ -406,7 +458,7 @@ R-Studio Technician for Mac 7.3.191246 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133655.jpg" />
 </div>
 
 
@@ -432,7 +484,7 @@ Photo Mechanic Plus 6 v.6.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133615.jpg" />
 </div>
 
 
@@ -458,7 +510,7 @@ Kiosc 1.15.13 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133545.jpg" />
 </div>
 
 
@@ -484,7 +536,7 @@ Disk Space Saver 2.6.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133502.jpg" />
 </div>
 
 
@@ -510,7 +562,7 @@ Keysmith for Mac 1.18.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133490.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ Network Security Scanner for Mac 4.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133451.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ Easy File Organizer for Mac 3.3.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133425.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ Downloads Cleaner Pro for Mac 8.3.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133413.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ Motion 5.7 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133332.jpg" />
 </div>
 
 
@@ -625,58 +677,6 @@ Apple Motion — приложение для создания анимирова
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49139F520A8FF8E20D9DBD238093A70663ADF9E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680907   (133303) от 01.12.2023
-
-Compressor 4.7 [Multi]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Compressor – простой и мощный инструмент для сжатия видео. Compressor может сжимать ваше видео с поддержкой большинства популярных форматов, включая HEVC, MPEG-4, H.264, MXF и др. Кроме этого, в приложении имеется замечательная возможность прямого экспорта последовательности сегментов видео с применением различных эффектов и фильтров на прямую из Final Cut, для последующей (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.11.2023Разработчик: Apple Inc.Поддерживаемая ОС: macOS 13.5 или вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA13825A2443DFE2BD8777D04056DB539DFB3502
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680906   (133266) от 01.12.2023
-
-Logic Pro X 10.8.1 [Multi]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133266.jpg" />
-</div>
-
-
-###  Подробнее
-
-Logic Pro X — самая совершенная версия Logic. Мощные инструменты для профессионального создания музыки, обработки и микширования звука встроены в современный интерфейс для быстрого получения качественных результатов и удобства работы — где бы Вы ни находились. В Logic Pro X входит огромная коллекция музыкальных инструментов, эффектов и лупов — всё, что нужно для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.11.2023Разработчик: © 2004-2022 Apple Inc.Поддерживаемая ОС: macOS 13.5 +Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5FE95A208AA65646E87B4BE882596279B9468EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

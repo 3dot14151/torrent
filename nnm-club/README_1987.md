@@ -1,22 +1,22 @@
-###  Публикация: 922863   (1011014) от 14.06.2021
+###  Публикация: 1476675   (1011523) от 12.06.2021
 
-Peers TV 7.3.1 [Ru] - для просмотра ТВ онлайн и в записи (обновляемая)
+Журнал | Car [España] №5 (май 2021) [PDF] [Es]
 
->>3
->>4
+>>Автомобили
+>>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011523.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Peers.TV устанавливают даже те, кто говорит, что не смотрит телевизор. Почему? Да потому что Peers.TV одновременно больше (функционал) и меньше (размер) привычной коробки с телеканалами. Это ТВ онлайн и в записи, IPTV-плеер, удобная телепрограмма и возможность добавлять собственные плейлисты, а также полная поддержка Chromecast. При этом приложение не занимает много (   Читать дальше...   )Тип издания: Пиратка (AdFree)Релиз состоялся: 13.06.2021Разработчик: InetraПоддерживаемая ОС: Android 4.2+Язык интерфейса: Русский
+CAR - самый эксклюзивный журнал в автомобильном мире, с тестами, новостями и многим другим.Жанр: Автомобильный журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9CDF8DB5F5F8179D92C14E87FA2CB795D440802E
+magnet:?xt=urn:btih:376F5F10E04D5B267F0C1259D9964838C070D2E1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,173 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477459   (1011013) от 15.06.2021
+###  Публикация: 1476880   (1011522) от 12.06.2021
 
-Flotsam And Jetsam - Dreams Of Death (2005) [FLAC|Lossless|image + .cue] <Power Metal, Thrash Metal>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Requiescal
-02. Straight To Hell
-03. Parasychic, Paranoid
-04. Bleed(   Читать дальше...   )Жанр: Power Metal, Thrash MetalПродолжительность: 00:47:23
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477458   (1011012) от 15.06.2021
-
-Flotsam And Jetsam - My God (2001) [FLAC|Lossless|image + .cue] <Power Metal, Thrash Metal>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dig Me Up To Bury Me
-02. Keep Breathing
-03. Nothing To Say
-04. Weather To Do(   Читать дальше...   )Жанр: Power Metal, Thrash MetalПродолжительность: 01:04:24
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477597   (1011011) от 15.06.2021
-
-Футбол. Чемпионат Европы 2020. Групповой этап. Группа D. 1-й тур. Англия — Хорватия (2021) HDTV [H.264/1080i-LQ]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011011.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Европы по футболу 2020 года.
-13 июня 2021, воскресенье. 16:00 МСК
-Группа D. 1-й тур.
-Англия — Хорватия(   Читать дальше...   )Телекомпания: Россия 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:47:33
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477608   (1011010) от 15.06.2021
-
-Футбол. Чемпионат Европы 2020. Групповой этап. Группа C. 1-й тур. Австрия — Северная Македония (2021) HDTV [H.264/1080i-LQ]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Европы по футболу 2020 года.
-13 июня 2021, воскресенье. 19:00 МСК
-Группа C. 1-й тур.
-Австрия — Северная Македония(   Читать дальше...   )Телекомпания: Матч! Премьер HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:49:59
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477612   (1011009) от 15.06.2021
-
-Футбол. Чемпионат Европы 2020. Групповой этап. Группа C. 1-й тур. Австрия — Северная Македония (2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Европы по футболу 2020 года.
-13 июня 2021, воскресенье. 19:00 МСК
-Группа C. 1-й тур.
-Австрия — Северная Македония(   Читать дальше...   )Телекомпания: Матч! Премьер HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:49:49
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477600   (1011008) от 15.06.2021
-
-Футбол. Чемпионат Европы 2020. Групповой этап. Группа D. 1-й тур. Англия — Хорватия (2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Футбол. Чемпионат Европы 2020. Групповой этап. Группа A. 1-й тур. Уэльс — Швейцария (2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
 >>Спорт и активный отдых
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011522.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Чемпионат Европы по футболу 2020 года.
-13 июня 2021, воскресенье. 16:00 МСК
-Группа D. 1-й тур.
-Англия — Хорватия(   Читать дальше...   )Телекомпания: Россия 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:47:17
+12 июня 2021, суббота. 16:00 МСК
+Группа A. 1-й тур.
+Уэльс — Швейцария(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:52:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E2837C8217AA78191E1D16505E1194B69468E358
+magnet:?xt=urn:btih:7B5DFD0C7473C9EBBC759C7BD2D084B9E982BF17
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -198,83 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477453   (1011007) от 15.06.2021
+###  Публикация: 1476652   (1011521) от 12.06.2021
 
-Flotsam And Jetsam - Unnatural Selection (1998) [FLAC|Lossless|image + .cue] <Power Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dream Scrape
-02. Chemical Noose
-03. Promise Keepers
-04. Liquid Noose(   Читать дальше...   )Жанр: Power Metal, Thrash MetalПродолжительность: 00:45:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A799CA8781C2E55EA4EDDCE4260FF291ABC31EB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477446   (1011006) от 15.06.2021
-
-Футбол. Чемпионат Европы 2020. Групповой этап. Обзор матчей (15.06.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Футбол. Чемпионат Европы 2020. Групповой этап. Группа A. 1-й тур. Турция — Италия (2021) HDTV [H.264/1080i]
 
 >>Спорт и активный отдых
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011006.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Европы по футболу 2020 года. Обзор матчей. 1й тур. 4й день (15.06.2021)Телекомпания: Матч!Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:21:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06D065A4ACA573C3AD0056418BABED29487304AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477643   (1011005) от 15.06.2021
-
-Футбол. Чемпионат Европы 2020. Групповой этап. Группа D. 1-й тур. Шотландия — Чехия (2021) HDTV [H.264/1080i-LQ]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011521.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Чемпионат Европы по футболу 2020 года.
-14 июня 2021, понедельник. 16:00 МСК
-Группа D. 1-й тур.
-Шотландия — Чехия(   Читать дальше...   )Телекомпания: Матч! Премьер HDЖанр: СпортЯзык озвучки: РусскийСубтитры: Русские (отключаемые)Продолжительность: 02:37:53
+11 июня 2021, пятница. 21:30 МСК
+1. Церемония открытия Евро-2020
+2. Групповой этап. Группа A. 1-й тур.(   Читать дальше...   )Телекомпания: Первый канал HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:06:18
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:0FC91CB11CD51A92D237A38759A317AB79385495
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -282,28 +82,84 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477628   (1011004) от 15.06.2021
+###  Публикация: 1476680   (1011520) от 12.06.2021
 
-Футбол. Чемпионат Европы 2020. Групповой этап. Группа C. 1-й тур. Нидерланды — Украина (2021) HDTV [H.264/1080i-LQ]
+Soft Organizer Pro 9.02 RePack (& Portable) by Dodakaedr [Multi/Ru]
 
->>
->>
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Soft Organizer - утилита для полного удаления ненужных программ из системы.
+Зачастую после удаления программ в системе остаются следы от них, ненужные файлы и папки на дисках и записи в реестре. Это происходит даже в том случае, если приложение удалялось по всем правилам, с использованием собственного деинсталлятора (инструмента для удаления программы, созданного (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C177C7B35C06F36351E02697154761FEA0D6949
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476497   (1011519) от 12.06.2021
+
+David Sean Simpson - The Radical Low (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never I Say
+02. Radical Low
+03. When Will the Lights Go Out
+04. Machine(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D10B7891EA8EF7983DFEA6FCA96869F1D9B4D22D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476863   (1011518) от 12.06.2021
+
+Футбол. Чемпионат Европы 2020. Групповой этап. Группа A. 1-й тур. Турция — Италия (2021) HDTV [H.264/1080i]
+
+>>Спорт и активный отдых
+>>Футбол. Чемпионаты Европы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011518.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Чемпионат Европы по футболу 2020 года.
-13 июня 2021, воскресенье. 22:00 МСК
-Группа C. 1-й тур.
-Нидерланды — Украина(   Читать дальше...   )Телекомпания: Первый канал HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:40:44
+11 июня 2021, пятница. 21:30 МСК
+Групповой этап. Группа A. 1-й тур.
+Турция — Италия(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: Русские (отключаемые)Продолжительность: 01:47:43
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:CEC2EBF8953481DED751B7134B45F0C2BCF48939
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -311,24 +167,50 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477599   (1011003) от 15.06.2021
+###  Публикация: 1476868   (1011517) от 12.06.2021
 
-VA - MPM Synthwave: Electronic Mixtape (2021) [MP3|320 Kbps] <Synthwave, Electronic>
+Футбол. Чемпионат Европы 2020. Групповой этап. Группа A. 1-й тур. Турция — Италия (2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
->>
->>
+>>Спорт и активный отдых
+>>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011517.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Cuprite - Form
-002. Detroit's Filthiest - Dark Shadows
-003. The Oddness - Distant Voices
-004. Zendlo - So OK(   Читать дальше...   )Жанр: Synthwave, ElectronicПродолжительность: 09:31:40
+Чемпионат Европы по футболу 2020 года.
+11 июня 2021, пятница. 21:30 МСК
+1. Церемония открытия Евро-2020
+2. Групповой этап. Группа A. 1-й тур.(   Читать дальше...   )Телекомпания: Первый канал HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:06:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75EBF854555F4CC446C06FC3FF4BE5F31EC0AA7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476813   (1011516) от 12.06.2021
+
+MediBang Paint Pro v22.3 + Permissions OFF [Ru/Multi]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011516.jpg" />
+</div>
+
+
+###  Подробнее
+
+MediBang Paint - это бесплатное приложение для рисования и создания комиксов. Приложение включает в себя более 1000 видов инструментов: кисти, шрифты, готовые фоны и другие материалы. MediBang Paint работает на Windows, Mac OS X, Android и IOS. Сохранив работу в облаке вы можете легко открыть её на другом мобильном устройстве или ПК.Тип издания: ProРелиз состоялся: 21.05.2021Разработчик: MediBang Inc.Поддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский, Шведский и т.д.
 
 ## Скачать торент
 ```bash
@@ -340,28 +222,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477585   (1011002) от 15.06.2021
+###  Публикация: 1476822   (1011515) от 12.06.2021
 
-Valance Drakes - A Patternless And Endless Soul (2021) YUKU Records [FLAC|Lossless|WEB-DL|tracks] <Glitch-Hop, IDM, Ambient>
+Monolink - Under Darkening Skies (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Deep House, Organic House, Downbeat>
 
 >>Electronic
->>IDM (Lossless)
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011515.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Grown Weary Of Their Kindness (03:58)
- 02. Awaken Old Memories From Their Slumber (03:39)
- 03. Angels Can Still Feel Fear (03:40)
- 04. Those That Tell You Winning Lies (03:50)(   Читать дальше...   )Жанр: Glitch-Hop, IDM, AmbientПродолжительность: 00:29:27
+01. Laura (7:20)
+ 02. The Prey (4:12)
+ 03. We Don't Sleep (4:59)
+ 04. Harlem River (4:38)(   Читать дальше...   )Жанр: Electronic, Deep House, Organic House, DownbeatПродолжительность: 01:02:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1B3B5DAC82DF8316786ACB65B6A8BC6740DF57B1
+magnet:?xt=urn:btih:FC20D3176EB8CEEDA068FD139A867FECA6A71FB3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -369,28 +251,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477450   (1011001) от 15.06.2021
+###  Публикация: 1476689   (1011514) от 12.06.2021
 
-Jeff Coffey - This Time Around (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
+VA - R&B Feel That Music: Remastering Mix (2021) [MP3|320 Kbps] <R&B, Soul, Funk>
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>
+>>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011514.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Black and Blue
-02. All I Need Is Love
-03. Someday
-04. This Time Around(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:52:17
+001. Nelly Furtado, Timbaland - Promiscuous
+002. Gene Mcdaniels - A Hundred Pounds Of Clay
+003. Zo! & Tall Black Guy - Sightseeing
+004. Carl Holmes & The Commanders - Unchain My Heart(   Читать дальше...   )Жанр: R&B, Soul, FunkПродолжительность: 07:43:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:58705572BFBB4174CE153318E17204751350C742
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -398,28 +280,275 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477457   (1011000) от 15.06.2021
+###  Публикация: 1476799   (1011513) от 12.06.2021
 
-LATE - Far North Eleven (2021) Amek Collective [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Industrial>
+Ivan Cattaneo - Ivan Il Terribile (1982) [MP3|320 Kbps] <Electronic, Italo-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Toro! Torero! (2:41)
+02. Bassa Quota (3:10)
+03. Italian Slip (3:06)
+04. Odio & Amore (3:47)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-popПродолжительность: 00:44:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66DAE388FD70CE43DE4D1DD81C0C9C91850BD5E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476664   (1011512) от 12.06.2021
+
+Журнал | BBC Top Gear [Italia] №2 (февраль 2021) [PDF] [It]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011512.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Top Gear» — автомобильный журнал, который издается «BBC Worldwide», назван в честь телевизионной передачи «Top Gear» 1977 года. Первый выпуск вышел в октябре [1993 году].Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AD9F29235EE13FCBEDEE3C924D6EDDC5C8EFC05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476841   (1011511) от 12.06.2021
+
+PrivaZer 4.0.25 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011511.jpg" />
+</div>
+
+
+###  Подробнее
+
+PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32F677D1C27AE7A4C44315317A9388215456E094
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476591   (1011510) от 12.06.2021
+
+Peter Wilson - Electricity (2021) 2xCD [FLAC|Lossless|image + .cue] <Italo-Disco>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011510.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Forever Can Start Tonight (3:51)
+02. Tell Me Who You Are (Feat Fred Ventura) (4:31)
+03. Fire Alarm (4:35)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 02:05:11
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476667   (1011509) от 12.06.2021
+
+Журнал | BBC Top Gear [Italia] №6 (июнь 2021) [PDF] [It]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011509.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Top Gear» — автомобильный журнал, который издается «BBC Worldwide», назван в честь телевизионной передачи «Top Gear» 1977 года. Первый выпуск вышел в октябре [1993 году].Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476769   (1011508) от 12.06.2021
+
+AllDup 4.4.54 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011508.jpg" />
+</div>
+
+
+###  Подробнее
+
+AllDup - бесплатный инструмент для поиска и удаления дубликатов файлов на Вашем компьютере. Программа обладает специально разработанным алгоритм быстрого поиска дублирующихся файлов любого типа - текст, изображения, музыка, фильмы и т.д.
+Задайте диски или папки для анализа, и мощная поисковая система за считанные секунды обработает целые гигабайты информации, находя (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88C02499F9FFD05288004F0428C080C04EDEED33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476492   (1011507) от 12.06.2021
+
+VA - Шансонный хит 4 (2003) [FLAC|Lossless|tracks + .cue]<Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. М. Шуфутинский - Посадка на рейс
+02. М. Звездинский - Ничейная полоса
+03. А. Полотно - Переживем
+04. Б. Драгилев - Про него(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:12:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D147BEC2A555FB4EEBB6FCE019355DAB0B1DFF4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476665   (1011506) от 12.06.2021
+
+Журнал | BBC Top Gear [Italia] №3 (март 2021) [PDF] [It]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011506.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Top Gear» — автомобильный журнал, который издается «BBC Worldwide», назван в честь телевизионной передачи «Top Gear» 1977 года. Первый выпуск вышел в октябре [1993 году].Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476473   (1011505) от 12.06.2021
+
+Mystic Diversions - Renaissance (2016) 2018, RDS Records [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Night (5:38)
+02. Change (5:40)
+03. Laid Down (4:18)
+04. Feel (5:41)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 00:53:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476579   (1011504) от 12.06.2021
+
+Cold Cave - Fate In Seven Lessons (2021) [MP3|320 Kbps] <Synthpop, Darkwave, Electronic>
 
 >>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
+>>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011504.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. We Lived Falling Out Of The Skin Into The Soul (05:06)
- 02. Far North Eleven (04:18)
- 03. Circles (03:42)
- 04. Kharon (02:36)(   Читать дальше...   )Жанр: Ambient, Experimental, IndustrialПродолжительность: 00:43:46
+01. Prayer From Nowhere [00:05:03]
+02. Night Light [00:04:29]
+03. Psalm 23 [00:04:10]
+04. Love Is All [00:04:34](   Читать дальше...   )Жанр: Synthpop, Darkwave, ElectronicПродолжительность: 00:32:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:495209F75FE7869DFB1C2DFE0B70200831637FBD
+magnet:?xt=urn:btih:B3EBBC20371F178015C472C7EC16BEB6A3A9B959
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -427,21 +556,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477344   (1010999) от 15.06.2021
+###  Публикация: 1476818   (1011503) от 12.06.2021
 
-Леонс Перре. На рельсах / Sur les rails (1913) DVDRip
+PicsKit - фоторедактор v2.1.8.1 + v2.1.9 Beta Mod by Mixroot [Ru/Multi]
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011503.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Трактирщица и рабочий с вокзала собираются пожениться. Но в неё влюблён и друг жениха, который, подпоив приятеля, решается осуществить свой преступный план... Что не сделаешь ради искусства - актёру пришлось реально побывать под проходящим составом!Производство: ФранцияЖанр: Драма, короткометражный, немое киноРежиссер: Леонс ПерреАктеры: Юджин Бреон, Эмиль Кеппенс, Валентайн ПетиПеревод: Немой с интертитрамиСубтитры: Французские и русские интертитрыПродолжительность: 00:13:52
+PicsKit - это редактор, в котором каждый может создавать креативные фотографии для мобильных устройств. От неограниченного количества слоев изображений, профессиональных режимов смешивания, до цветовых изображений, фотомонтажа, художественных эффектов и расширенных инструментов редактирования, редактирование фотографий стало еще проще.Тип издания: Premium + (Mod)Релиз состоялся: 27.05.2021Разработчик: changpengПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский, Шведский и т.д.
 
 ## Скачать торент
 ```bash
@@ -453,163 +582,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477580   (1010998) от 15.06.2021
+###  Публикация: 1476801   (1011502) от 12.06.2021
 
-Леонс Перре. Дитя Парижа / L'enfant de Paris (1913) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010998.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полнометражная криминальная мелодрама, рассказывающая о злоключениях маленькой девочки из состоятельной буржуазной семьи на улицах Парижа. А также о хитроумном и безжалостном мошеннике по кличке Бакалавр и благородном подмастерье сапожника по имени Боско. Место действия Париж и Ницца, время действия – последние годы Прекрасной эпохи (Belle Époque). Продолжительность (   Читать дальше...   )Производство: Франция, GaumontЖанр: Мелодрама, криминалРежиссер: Леонс ПерреАктеры: Леонс Перре, Луи Лебас, Maurice Lagrenée, Эмиль Кеппенс, Марк Жерар, Анри Дюваль, Мари Дорли, Сюзанн Ле Брэт, Джинн Мари-Лорен, Эдриан ПетиПеревод: Немой с интертитрамиСубтитры: Французские интертитры, русские отдельным файломПродолжительность: 02:03:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83B09DF86163F868F61F79AC9C39318A3DEE8697
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477405   (1010997) от 15.06.2021
-
-Machine Head - Unto the Locust (2011) Remastered, Reissue, 2021, Nuclear Blast [MP3|320 Kbps] <Thrash Metal, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Am Hell (Sonata In C#) (8:26)
-02. Be Still and Know (5:44)
-03. Locust (7:36)
-04. This Is the End (6:11)(   Читать дальше...   )Жанр: Thrash Metal, Groove MetalПродолжительность: 01:03:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2395D86C22744910CAD6198357FFEDB858EBBD67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477572   (1010996) от 15.06.2021
-
-Мэйбл Норманд. День его свадьбы / On His Wedding Day (1913) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010996.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Главным героем" этой комедии по праву можно назвать красный перец, подсыпанный жениху в букет с цветами, когда он спешил на свою свадебную церемонию. Доставленный женихом по месту назначения букет стал причиной безудержного чихания cреди гостей, в результате чего торжественная церемония оказалась на гране срыва...Производство: США, Keystone Film CompanyЖанр: Комедия, короткометражный, немое киноРежиссер: Мак СеннетАктеры: Форд Стерлинг, Дот Фарли, Ник Когли, Hale Studebaker, Мэйбл Норманд, Чарльз Эйвери, Честер М. Франклин, Хелен Холмс, Берт Ханн, Кармен ФиллипсПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:06:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C15281B9849C97C1939BFA1784294F9268D1A30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477277   (1010995) от 15.06.2021
-
-Bloody Six - In The Name Of Blood (1984) Unofficial Release, 2020, Ambush Records [FLAC|Lossless|tracks + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Starchaser
-03. High Class n' Wild
-04. Let It Burn(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B09EE9CCB6A5ECB5E2A2BE0B90BF965B15984513
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477484   (1010994) от 15.06.2021
-
-??? ??????? - {{{{{{{{{{{{ (2020) Schematic [FLAC|Lossless|WEB-DL|tracks] <Electro, Acid, IDM, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. } (07:01)
- 02. }} (08:03)
- 03. }}} (03:16)
- 04. }}}} (05:27)(   Читать дальше...   )Жанр: Electro, Acid, IDM, ExperimentalПродолжительность: 00:55:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A46DC21817E8BEC8607EB949CD0D26641B6B1036
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477275   (1010993) от 15.06.2021
-
-All Is Ashes - What Comes Next (2021) [FLAC|Lossless|WEB-DL|tracks] <Groove, Thrash Metal>
+Registry Finder 2.50.1 + Portable [Multi/Ru]
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011502.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Waves of Change [00:03:59]
-02. Made for More [00:03:50]
-03. Empty Tales [00:03:07]
-04. Locked Down [00:04:26](   Читать дальше...   )Жанр: Groove, Thrash MetalПродолжительность: 00:40:00
+Registry Finder - простая в использовании утилита для поиска в реестре Windows нужной информации. Операция поиска выполняется эффективно и быстро. Результаты поиска отображаются в отдельном окне в виде списка, в котором легко ориентироваться. Вы можете перейти к любому найденному элементу в окне реестра или отредактировать / удалить элементы прямо в окне результатов (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
@@ -621,24 +608,23 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477451   (1010992) от 15.06.2021
+###  Публикация: 1476844   (1011501) от 12.06.2021
 
-Flotsam And Jetsam - High (1997) [FLAC|Lossless|image + .cue] <Power Metal, Thrash Metal>
+WhatsApp 2.2121.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011501.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Final Step
-02. Hallucinational
-03. It's On Me
-04. High Noon(   Читать дальше...   )Жанр: Power Metal, Thrash MetalПродолжительность: 00:47:10
+WhatsApp Messenger - кроссплатформенный мобильный мессенджер, который позволяет обмениваться сообщениями без платы за SMS. WhatsApp для iPhone и Android предлагает сквозное (end-to-end) шифрование для чатов и голосовых вызовов.
+Пользователи получают обычный интерфейс WhatsApp Web на Windows с несколькими параметрами, которые позволяют активировать
+уведомления в звуковые (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
@@ -650,28 +636,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477286   (1010991) от 15.06.2021
+###  Публикация: 698239   (1011500) от 12.06.2021
 
-Flotsam And Jetsam - Cuatro (1992) [FLAC|Lossless|image + .cue] <Power Metal, Thrash Metal>
+Мэри Нортон | Помело и волшебная шишечка от кровати (2006) [FB2]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011500.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Natural Enemies
-02. Swatting At Flies
-03. The Message
-04. Cradle Me Now(   Читать дальше...   )Жанр: Power Metal, Thrash MetalПродолжительность: 00:51:53
+Мэри Нортон (1903-1992) - британская детская писательница.
+Мэри Нортон известна у нас циклом Добывайки (Занимашки) и книгой Метла и металлический шарик (Мисс Прайс и волшебные каникулы).
+Занимашки неоднократно экранизаровались, а по Метле... студией Диснея был снят фильм-мультфильм Набалдашник и метла.Жанр: Детская, приключения, сказкаФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:320956B3109C95C28F90E5FE3B88A90838BFF1A0
+magnet:?xt=urn:btih:9856F585EA0A15E945B210B8C5BCC9F17433C168
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -679,28 +664,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477367   (1010990) от 15.06.2021
+###  Публикация: 1476784   (1011499) от 12.06.2021
 
-Stormwind - 2 Albums (2001-2004) Remastered, Reissue, 2021, Black Lodge Records [FLAC|Lossless|WEB-DL|tracks] <Neoclassical Power Metal>
+Jesse Royal - Royal (2021) [FLAC|Lossless|WEB-DL|tracks] <Reggae>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>
+>>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011499.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Genesis (Remastered) [00:01:12]
-02. War of Troy (Remastered) [00:04:15]
-03. The Man Behind the Iron Mask (Remastered) [00:03:54]
-04. Reflections (Remastered) [00:05:11](   Читать дальше...   )Жанр: Neoclassical Power MetalПродолжительность: 2 CD, 01:37:23
+01. High Tide or Low (feat. Samory I) [00:03:54]
+02. LionOrder (feat. Protoje) [00:03:32]
+03. Dirty Money (feat. Stonebwoy) [00:04:13]
+04. Natty Dread [00:03:21](   Читать дальше...   )Жанр: ReggaeПродолжительность: 00:39:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AFFA3BD17BEF8497690B93346FD17053525761E2
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -708,28 +693,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477272   (1010989) от 15.06.2021
+###  Публикация: 1476637   (1011498) от 12.06.2021
 
-Black Sun - Silent Enemy (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+VA - Vintage Melody: Soul Funk Music (2CD) (2021) [MP3|320 Kbps] <Soul, Funk, Jazz, Lyric>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011498.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Moebius
-02. Resist
-03. Terror Zone
-04. Dark Mirror(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:20:42
+CD 01:
+
+001. Lance Reddick - Tick Tock
+002. The Spinners - O-O-H Child(   Читать дальше...   )Жанр: Soul, Funk, Jazz, LyricПродолжительность: 13:49:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FBD022015528476345D68854B84BDB471E90344C
+magnet:?xt=urn:btih:EE230F5D61327B775FF0D15DD8A2E3F6D9A6C631
 ```
 
 https://mybot314.ru/tekegram_catalog/

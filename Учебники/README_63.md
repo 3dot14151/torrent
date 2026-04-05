@@ -1,3 +1,55 @@
+###  Публикация: 1065187   (416348) от 24.10.2016
+
+Н.П. Никитин и др. | Телевизионные цифровые системы (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие содержит теоретический материал по следующим основным системам цифрового телевидения: многопозиционные модуляторы, многочастотная система передачи данных OFDM, канальное кодирование, тракт цифрового наземного телевидения, тракт цифрового спутникового телевидения, тракт цифрового кабельного телевидения. По этим разделам также приведены примеры схем (   Читать дальше...   )Жанр: ТелевидениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18CE1BE87E0B8ACBEE6C4F546FB55B9241359F33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065559   (416340) от 24.10.2016
+
+Б. Яне | Цифровая обработка изображений (2007) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416340.jpg" />
+</div>
+
+
+###  Подробнее
+
+С момента выхода первого издания, опубликованного в 1991 году, "Цифровая обработка изображений" получила широкое применение в качестве учебного пособия. В книге дается полный обзор процесса обработки от получения изображения до выделения интересующих данных. Каждая глава включает упражнения, которые помогут оценить понимание материала, развить полученные (   Читать дальше...   )Жанр: ЭлектроникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD75A3084D8821B134BB5D885000B43C22EA3A35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1325207   (416203) от 13.09.2019
 
 Т.В. Воронченко | Основы бухгалтерского учета. Учебник и практикум (2019) [PDF]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416203.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416178.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416176.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416161.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414708.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414706.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414339.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414337.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414334.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414329.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414308.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414198.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414194.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414187.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414175.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413626.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413619.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413482.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412584.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412576.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412571.jpg" />
 </div>
 
 
@@ -561,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412570.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412459.jpg" />
 </div>
 
 
@@ -613,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412454.jpg" />
 </div>
 
 
@@ -624,58 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FB3C828710F2D1E74174BCF9E99DA29AD972137
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325591   (412445) от 15.09.2019
-
-А.В. Винников и др. | Электротехнические материалы и изделия (2017) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412445.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии дана классификация, описаны свойства группы материалов, в силу которых основными областями их применения являются электроустановки. Приведены области применения и эксплуатационные режимы для различных видов электротехнических материалов - ЭТМ. Вскрыта физическая сущность свойств ЭТМ. Приведены основные понятия, характеризующие свойства этих материалов (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96578E1566F80E277379BF32082C92B0F05D9C1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325440   (412440) от 15.09.2019
-
-Ю.А. Родионов | Микроэлектронные датчики и сенсорные устройства (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412440.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кратко рассмотрены элементы метрологии, используемые в микросенсорике. Подробно рассмотрены основные твердотельные датчики, используемые преимущественно в наукоемких областях (точная механика и оптика, микро- и наноэлектроника, атомная энергетика, военное дело): датчики на основе гальваномагнитных эффектов, датчики давления, температуры и теплового излучения, скорости (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96E5E79CAB934050D024E4BF02F1790FD04EEE4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

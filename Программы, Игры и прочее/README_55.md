@@ -1,3 +1,108 @@
+###  Публикация: 1527263   (737292) от 27.01.2022
+
+AlfaOBD v2.2.5.0 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программное обеспечение AlfaOBD для диагностики автомобилей производства FCA: Alfa-Romeo, Fiat, Lancia, Dodge, RAM, Chrysler, Jeep. Peugeot (Boxer), Citroen (Jumper) также покрыты. Хотя программное обеспечение в первую очередь предназначено для владельцев автомобилей, оно предоставляет функции профессиональных сканеров. Доступны многие процедуры диагностики и настройки (   Читать дальше...   )Тип издания: Пиратка (Paid)Релиз состоялся: 9 декабря 2021 г.Разработчик: AlfaOBD SoftПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B171EF5D7701E6E9F30F455F6BFF4687D6B75FC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527240   (736885) от 28.01.2022
+
+bimmer-tool expert v3.2.4 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736885.jpg" />
+</div>
+
+
+###  Подробнее
+
+bimmer-tool позволяет читать и удалять коды неисправностей, восстанавливать DPF, считывать параметры двигателя и многое другое в автомобилях BMW.Тип издания: Пиратка (Paid)Релиз состоялся: 25 января 2022 г.Разработчик: bimmer-toolПоддерживаемая ОС: Android 4.2+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EDEA0CB192425B1BCF35F03F821F4CE426D5D60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398084   (736491) от 24.07.2020
+
+TorrServe v1.1.83_4/ v1.1.76_9 (клиент+сервер) [Ru] (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736491.jpg" />
+</div>
+
+
+###  Подробнее
+
+TorrServe — приложение для скачивания торрентов. Программа для просмотра торрент (фильма) онлайн или скачивать другие торрент файлы как http файл. Подключение к торренту идет локально, если ваш провайдер блокирует торренты, будьте осторожны. Кэш хранится в оперативной памяти, по этому не портится внутренняя память. Программа состоит из двух частей, клиент и сервер, (   Читать дальше...   )Тип издания: ModРелиз состоялся: 12.04.2020Разработчик: YouROKПоддерживаемая ОС: Android 5.0+ / Mod 4.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CB8479A9DC095D3D97B03C0153249E43923822F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527864   (735832) от 30.01.2022
+
+KitchenTimer v4.5.2 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Таймер в два касания, первым устанавливаете время, вторым запускаете.
+Можно быстро запустить таймеры по-умолчанию или создать множество пресетов и виджетов.Тип издания: ПираткаРелиз состоялся: 26.01.2022Разработчик: Maxim KablukaПоддерживаемая ОС: Android 4.0.3 +Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39ECB7190BF988FE1043D015350BB922400CA8DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1398503   (735618) от 26.07.2020
 
 Фентези – бесплатные книги v3.30 [Ru]
@@ -6,7 +111,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735618.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735122.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ Harmony v4.0 [Ru/Multi] - расслабляющие мелодии (обнов�
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734728.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ Space Pinball: Ретро пинбол v1.1.4 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733934.jpg" />
 </div>
 
 
@@ -113,7 +218,7 @@ Circle Cutter v1.4.5 [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732915.jpg" />
 </div>
 
 
@@ -139,7 +244,7 @@ Librain v1.1.11 [Ru/Multi] - развитие памяти и внимания (
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732863.jpg" />
 </div>
 
 
@@ -165,7 +270,7 @@ Mind Diary Journal / Дневник для самоанализа и самор�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732640.jpg" />
 </div>
 
 
@@ -191,7 +296,7 @@ Princess coloring book v2.6.5 [En/Ru]
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732501.jpg" />
 </div>
 
 
@@ -217,7 +322,7 @@ Animal Coloring Book v2.6.5 [En/Ru]
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732475.jpg" />
 </div>
 
 
@@ -243,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_732392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732392.jpg" />
 </div>
 
 
@@ -269,7 +374,7 @@ Lanos (Daewoo/ZAZ/Chevrolet) v1.0.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731744.jpg" />
 </div>
 
 
@@ -298,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731623.jpg" />
 </div>
 
 
@@ -326,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_731603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731603.jpg" />
 </div>
 
 
@@ -353,7 +458,7 @@ Music Theory Companion v2.6.3 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730660.jpg" />
 </div>
 
 
@@ -379,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729568.jpg" />
 </div>
 
 
@@ -405,7 +510,7 @@ Bluetooth Scanner v1.2.2 [Ru] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729567.jpg" />
 </div>
 
 
@@ -432,7 +537,7 @@ Snapseed 2.17.0.150426010 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729362.jpg" />
 </div>
 
 
@@ -460,7 +565,7 @@ My Android Tools Pro 1.3.7.2  [Rus]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729208.jpg" />
 </div>
 
 
@@ -489,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728914.jpg" />
 </div>
 
 
@@ -515,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728802.jpg" />
 </div>
 
 
@@ -542,7 +647,7 @@ Erectile Dysfunction Cure Yoga v6.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728695.jpg" />
 </div>
 
 
@@ -571,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728077.jpg" />
 </div>
 
 
@@ -585,115 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10176C36CEDC0E19C3A8BB5E7317AF5EEE5754FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530808   (727622) от 12.02.2022
-
-Учить английский: Читать книги v1.0.11 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727622.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учить английский бесплатно (Free) с помощью Express English, самый лучший метод по изучению языков для всех уровней.Тип издания: Пиратка (Premium)Релиз состоялся: 6 февраля 2022 г.Разработчик: DevPalmПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B5D7322D5B71FE453487E0C2056747DA8F8F50F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128537   (727204) от 25.04.2017
-
-Заметки: персональный блокнот 1.0 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727204.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заметки: персональный блокнот - это быстрое и удобное приложение для записи своих мыслей, планов, сообщений или чего угодно важного. Приложение выполнено в стиле Material Design, интуитивно понятно и отзывчиво в использовании.Тип издания: FreeРелиз состоялся: 2016Разработчик: DuoSoftПоддерживаемая ОС: Android 4.0.3 +Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65A36BC367C7E789A5248CAB6AD6EAD9874934D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531061   (726514) от 13.02.2022
-
-Переводчик чата SwiftTranslate v1.4.9 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726514.jpg" />
-</div>
-
-
-###  Подробнее
-
-Переводчик чата - Swift Translate преодолевает языковой барьер, позволяя общаться в чате с людьми, говорящими на другом языке. Он переводит их сообщения на ваш язык и переводит ваши сообщения на их язык, делая общение проще и быстрее. Может использоваться во всех популярных приложениях для обмена сообщениями, таких как WhatsApp и Messenger.
-
-Переводчик чата - Swift (   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 12 февраля 2022 г.Разработчик: YDZ LabsПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9387FD9B82A1734B7E0E055B11D3FBB97384023F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531052   (726505) от 13.02.2022
-
-RawBT служба печати v5.52.0 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что умеет программа:
-1. Работать как стандартная служба печати.
-Как распечатать html страницу из Google Chrome :
-а) "..." в шапке(   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 6 января 2022 г.Разработчик: 402dПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94608E0BD2F44B2454B34E7CBE883798B809AD9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

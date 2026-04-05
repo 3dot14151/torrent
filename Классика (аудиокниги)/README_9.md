@@ -1,22 +1,50 @@
-###  Публикация: 763066   (886922) от 05.03.2014
+###  Публикация: 1102524   (889099) от 10.02.2017
 
-Шарль де Костер | Легенда об Уленшпигеле (2011) [MP3, Вячеслав Герасимов]
+Чарльз Диккенс | Лавка древностей (2013) [MP3]
 
 >>Художественные аудиокниги и публицистика
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_886922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889099.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Легенда об Уленшпигеле смело может быть отнесена к тем десяти книгам, без которых не может прожить ни один человек. Шарль де Костер дал нам незабываемую интерпретацию средневековой фламандской легенды. Бродяга и балагур, отчаянный герой и проходимец Тиль проходит по жизни, ломая ее и устраивая по своему вкусу. Не влюбиться в этого шалопая просто невозможно, как и (   Читать дальше...   )Жанр: Классическая прозаИздательство: МедиаКнига
+Один из самых привлекательных романов Чарльза Диккенса, имел огромный успех у современников писателя. Но и сегодня судьба маленькой Нелл, мужественно переносящей недетские испытания и не утратившей душевного благородства и любви к окружающим, не оставляет читателей равнодушными. Ее трогательная и печальная история, написанная в лучших традициях сентиментализма, знаменует (   Читать дальше...   )Жанр: Классика, романПродолжительность: 25:19:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:28886E7B1A4AD7B9AE06D8E13079750102C93AAD
+magnet:?xt=urn:btih:B1F54860DCCBBC64987D31133237953895600D8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102986   (887061) от 11.02.2017
+
+Борис Пастернак | Доктор Живаго (2008) [MP3, Евгений Терновский]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пронзительная и искренняя история любви, не заглушенная залпами орудий, выжившая в хаосе и крови Гражданской войны; размышления о жизненном опыте поколения, к которому принадлежал автор, о ценности человеческой личности об исторической судьбе страны - основные мотивы сложного, многопланового романа "Доктор Живаго" Бориса Пастернака.
+
+Борис Пастернак | Доктор (   Читать дальше...   )Жанр: Отечественная классикаИздательство: Нигде не купишьПродолжительность: 26:42:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3575B8CD47FBB0BCCA7FB79CA355CDE50A47D527
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886570.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884529.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883456.jpg" />
 </div>
 
 
@@ -110,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883121.jpg" />
 </div>
 
 
@@ -137,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882610.jpg" />
 </div>
 
 
@@ -163,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881014.jpg" />
 </div>
 
 
@@ -191,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875076.jpg" />
 </div>
 
 
@@ -217,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874573.jpg" />
 </div>
 
 
@@ -243,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873896.jpg" />
 </div>
 
 
@@ -269,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873226.jpg" />
 </div>
 
 
@@ -295,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871567.jpg" />
 </div>
 
 
@@ -321,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871434.jpg" />
 </div>
 
 
@@ -347,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868022.jpg" />
 </div>
 
 
@@ -373,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866687.jpg" />
 </div>
 
 
@@ -399,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866258.jpg" />
 </div>
 
 
@@ -428,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865362.jpg" />
 </div>
 
 
@@ -454,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863767.jpg" />
 </div>
 
 
@@ -480,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863037.jpg" />
 </div>
 
 
@@ -506,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862950.jpg" />
 </div>
 
 
@@ -532,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860487.jpg" />
 </div>
 
 
@@ -558,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860072.jpg" />
 </div>
 
 
@@ -585,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859992.jpg" />
 </div>
 
 
@@ -614,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859983.jpg" />
 </div>
 
 
@@ -641,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857518.jpg" />
 </div>
 
 
@@ -653,33 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9565A6AC37B0D2F151F400A2949D3344FB64BF6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001097   (853851) от 28.03.2016
-
-Лев Толстой | Утро помещика (2016) [MP3, Олег Кейнз]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853851.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Утро помещика» — рассказ автобиографического характера о молодом помещике, желающем «сделать счастие своих крестьян». Девятнадцатилетний юноша ушел из университета и навсегда переехал в деревню, где его грандиозный план подвергся суровому испытанию на практикеЕ Милая тетушка.»
-Я принял решение, от которого должна зависеть участь всей моей жизни. Я выхожу из университета, (   Читать дальше...   )Жанр: Повесть, Отечественная классикаИздательство: Творческая группа «СамИздат»Продолжительность: 01:52:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2411D8858A1D181EF86BD86C764FD363A2E29FCE
 ```
 
 https://mybot314.ru/tekegram_catalog/

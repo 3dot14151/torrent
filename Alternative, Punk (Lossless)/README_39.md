@@ -6,7 +6,7 @@ Jimmy Eat World - Integrity Blues (2016) [FLAC|Lossless|tracks] <Alternative Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416632.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Delta Spirit - What Is There (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416038.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Jane's Addiction - Ritual De Lo Habitual (1990) [FLAC|Lossless|tracks] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414747.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Seether - 11 альбомов (2000-2011) [FLAC|Lossless]<Post-Grunge>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414003.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ The Joy Formidable - AAARTH (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413500.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Metric - Art of Doubt (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413364.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Nickelback ‎ - All The Right Reasons (2005) 15th Anniversary Expanded Edition,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411740.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Oceans Ate Alaska - Disparity (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410539.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Cold - The Things We Can't Stop (2019) [FLAC|Lossless|tracks + .cue] <Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410330.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Kaleo - A/B (2016) special russian edition, 2017 [FLAC|Lossless|tracks + .cue] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410246.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Soeckers - Kopfkarussell (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410004.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Blue Stahli - Blue Stahli (2018) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409991.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Linkin Park - Studio Collection 2000-2012 (2013) 6CD [FLAC|Lossless|WEB-DL|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409949.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ PVRIS - Use Me (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409858.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Blue Stahli - Quartz (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, In
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409848.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Cocteau Twins - 9 альбомов (1982 - 1996) [FLAC|Lossless]<Post-Punk, Ethe
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_409682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_409682.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ The Birthday Massacre - 2 альбома (2011, 2012) [FLAC|Lossless]<Gothic, Sy
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_409591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_409591.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Leech - For Better or for Worse (2018) [FLAC|Lossless|tracks + .cue] <Post Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409210.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ The Strypes - Little Victories (2015) [FLAC|Lossless|image + .cue] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408878.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ D.O.A. (DOA) - Fight Back (2018) [FLAC|Lossless|image + .cue] <Punk Rock, Hardco
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408069.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Echo And The Bunnymen - The Stars, The Oceans & The Moon (2018) [FLAC|Lossless|W
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407969.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ The Feather - ROOM (2020) [FLAC|Lossless|tracks + .cue] <Alternative>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406834.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Oasis - 12 Albums, 2 Box Set (1994 - 2016) 50 CD, Japan [FLAC|Lossless|image + .
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404531.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Blood Youth - Beyond Repair (2017) [FLAC|Lossless|tracks + .cue] <Alternative Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402468.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Marilyn Manson - Heaven Upside Down (2017) [FLAC|Lossless|tracks] <Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395578.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Liam Gallagher - As You Were (Deluxe Edition) (2017) [FLAC|Lossless|WEB-DL|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394720.jpg" />
 </div>
 
 

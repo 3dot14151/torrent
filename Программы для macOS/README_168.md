@@ -1,3 +1,55 @@
+###  Публикация: 1679880   (134909) от 27.11.2023
+
+CADintosh X 8.8.6 [Multi]
+
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134909.jpg" />
+</div>
+
+
+###  Подробнее
+
+CADintosh позволяет ускорить проектные работы и имеет тысячи надстроек, которые позволяют удовлетворить потребности самого широкого круга клиентов. CADintosh X - приложение из категории "Графика и дизайн", созданное компанией Lemke Software GmbH в январе 2012 года, которое прекрасно вписывается в идеологию Mac. Интерфейс приложения доступен на восьми языках. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.11.2023Разработчик: © 2002-2022 Lemke Software GmbHПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05972FAF8553DBD38F6E99E8A627CDEF28DC20B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679650   (134890) от 27.11.2023
+
+VectorStyler for Mac 1.1.111 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессиональное программное обеспечение для иллюстраций. VectorStyler — это передовое программное обеспечение для создания иллюстраций и рисунков. Создание иллюстраций, логотипов, значков, рисунков, типографики, векторной графики для экрана, печати и «Интернета». Благодаря многочисленным новым функциям VectorStyler переопределяет и расширяет инструменты, доступные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.10.2023Разработчик: © 2019-2023 Numeric PathПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86EF1313033F408AF9327F8E64C5DC7DC452D4DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680052   (134879) от 27.11.2023
 
 Readiris Pro 17.1.9 [Multi/Ru]
@@ -6,7 +58,7 @@ Readiris Pro 17.1.9 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134879.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ CrossOver 23.7.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134719.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ wordCount 2.56 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134646.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ ZoneClock for Mac 3.65 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134631.jpg" />
 </div>
 
 
@@ -115,7 +167,7 @@ Cisdem ContactsMate 6 v.6.7.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134629.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ Convusic for Mac 1.17 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134621.jpg" />
 </div>
 
 
@@ -168,7 +220,7 @@ Yate 6.17.2.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134617.jpg" />
 </div>
 
 
@@ -196,7 +248,7 @@ Cisdem OCRWizard 5.1.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134615.jpg" />
 </div>
 
 
@@ -222,7 +274,7 @@ Unite 5.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134607.jpg" />
 </div>
 
 
@@ -248,7 +300,7 @@ Word Count Popup 2.56 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134605.jpg" />
 </div>
 
 
@@ -276,7 +328,7 @@ Magic Cutter - MP3 Editor for Mac 1.9 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134602.jpg" />
 </div>
 
 
@@ -302,7 +354,7 @@ Goldie for Mac 2.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134587.jpg" />
 </div>
 
 
@@ -328,7 +380,7 @@ iMap Builder: Organisation 11.1.14 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134579.jpg" />
 </div>
 
 
@@ -354,7 +406,7 @@ MacCleaner 3 PRO 3.2.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134406.jpg" />
 </div>
 
 
@@ -380,7 +432,7 @@ batchCONVERTER for Mac 2.00 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134375.jpg" />
 </div>
 
 
@@ -407,7 +459,7 @@ AbleFTP13 for Mac 13.07 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134373.jpg" />
 </div>
 
 
@@ -433,7 +485,7 @@ Nifty File Lists 1.15 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134360.jpg" />
 </div>
 
 
@@ -459,7 +511,7 @@ WonderPen 2.4.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134358.jpg" />
 </div>
 
 
@@ -485,7 +537,7 @@ FontXChange 6.0 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134347.jpg" />
 </div>
 
 
@@ -514,7 +566,7 @@ Librarian Pro 7 v.7.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134309.jpg" />
 </div>
 
 
@@ -540,7 +592,7 @@ TechSmith Camtasia 2022 Studio 2022.6.10 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134285.jpg" />
 </div>
 
 
@@ -566,7 +618,7 @@ Baking Soda for Mac 1.1.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134279.jpg" />
 </div>
 
 
@@ -593,7 +645,7 @@ AnyMP4 iPhone Transfer Pro for Mac 9.0.72 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134261.jpg" />
 </div>
 
 
@@ -620,7 +672,7 @@ A Better Finder Rename 12.04 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134257.jpg" />
 </div>
 
 
@@ -632,58 +684,6 @@ A Better Finder Rename является лучшим решением для а�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBD3E06DD2F06327DB54DC1CB98C6811EC0E296B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680578   (134219) от 29.11.2023
-
-Garden Planner 3.8.53 [En]
-
->>Программы для macOS
->>CAD, 3D, ПО для специалистов для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134219.jpg" />
-</div>
-
-
-###  Подробнее
-
-Garden Planner - удобное приложение для проектирования сада Вашей мечты или ландшафта для вашей фазенды. Расположите растения, деревья, постройки и объекты, используя удобный 'drag and drop' интерфейс. Используйте различные инструменты, чтобы быстро создать мощение, дорожки и заборы. Цвет листвы можно изменять. План легко масштабируется. В завершение, вы можете произвести (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.10.2023Разработчик: © 2023 Artifact InteractiveПоддерживаемая ОС: macOS 10.7 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92061836757C01C322F887B253D2EA5D7A96B3CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594421   (133969) от 25.12.2012
-
-Hazel 3.0.16 [Eng]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133969.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hazel – это ваш личный уборщик, который организует и очистит папки так, как вы захотите. Hazel может также управлять вашей корзиной и удалять приложения. Hazel позволяет сортировать файлы по названиям, типу, дате, сайту или адресу электронной почты, с которого пришёл файл. С помощью этой программы вы также имеете возможность прикреплять цветные ярлыки, создавать ключевые слова Spotlight и комментарии. Hazel также удаляет неполные или повторные загрузки. Все работы проходят в фоновом режиме.Название программы: HazelРелиз состоялся: декабрь 2012Тип издания: Mac OS X softwareЯзык интерфейса: Eng
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

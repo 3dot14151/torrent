@@ -1,3 +1,159 @@
+###  Публикация: 1094321   (861765) от 25.02.2017
+
+Windows 10 (v1607) RUS-ENG x86-x64 -20in1- KMS-activation (AIO)
+
+>>3
+>>31
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861765.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная сборка является правопреемницей сборки Windows 10 (v1511) RUS-ENG x86-x64 -20in1- KMS-activation (AIO) и совмещает в себе русские и английские 32-битные и 64-битные редакции в рамках общего единого дистрибутива. В сборке реализован ряд интересных решений, благодаря которым удалось получить компактный продукт, совмещающий в себе возможности шестнадцати официальных (   Читать дальше...   )Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A9102693C4A7B9E32F2E56E277549E552114FDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 521636   (861460) от 20.04.2013
+
+Max Payne 3 (2012) [Ru/Multi] (1.0.0.114) RePack | RG Games
+
+>>3
+>>23
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861460.jpg" />
+</div>
+
+
+###  Подробнее
+
+После событий Max Payne 2 прошло восемь лет. Макс уже не коп — он спившийся, сидящий на обезболивающих безработный. Сломленный. Раздавленный. Без цели. Но, волею случая перебравшись в Бразилию, он поступает на службу в частное охранное агентство и получает задание защищать семью успешного торговца недвижимостью. Вскоре Максу на собственной шкуре предстоит почувствовать: (   Читать дальше...   )Тип издания: RePackРазработчик: Rockstar VancouverЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский, Multi8
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375557   (861448) от 16.04.2020
+
+Россия застолбит себе место на Луне
+
+>>3
+>>14
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_861448.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запуск на Луну тяжелой российской посадочной станции "Луна-27", вокруг которой в дальнейшем может начаться развертывание российской лунной инфраструктуры, запланирован на август 2025 года.О сроках запуска рассказал в интервью РИА Новости генеральный директор НПО Лавочкина (входит в "Роскосмос") Владимир Колмыков."Опытно-конструкторские работы (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373145   (861442) от 16.04.2020
+
+MInstAll v.05.04.2020 By Andreyonohov & Leha342 [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861442.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед Вами обновленный 04 Апреля 2020 года полюбившийся многим пользователям сборник последних версий самых часто используемых в работе программ от Андрея Онохова. Теперь в новой, более простой и удобной оболочке MInstAll - это новый мастер установки приложений, упрощенный аналог WPI. Данный MInstAll имеет самый оптимальный состав софта для установки на чистые системы. (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60E1C6D611373E0ECFB43C210547FC399DB79006
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374782   (861437) от 16.04.2020
+
+mini10PE 20.4 [Ru] [x64] (авторская раздача)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861437.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мини загрузочный диск на базе Microsoft Windows 10 Pro Version 1909 для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления, диагностики компьютера, восстановления файлов.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:899A8D9F6DCF7F06A93DD28369D0144E7F23F42D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373437   (861436) от 16.04.2020
+
+Рикошет (2019) SATRip [H.264] (сезон 1, серии 1-16 из 16)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861436.jpg" />
+</div>
+
+
+###  Подробнее
+
+20 лет назад его официально похоронили. «Воскреснуть» Дениса заставляет смерть родителей. Чтобы достойно их похоронить, «последний герой» лихих 90-х возвращается в родной Аннинск с новым именем, с новым лицом, с новыми документами. Он сразу оказывается в центре криминальных событий городка, погрязшего в преступности. Денис понимает, что ошибок прошлого уже не исправить, (   Читать дальше...   )Производство: Россия / КИТ, SMART ProductionЖанр: триллер, детектив, криминал, боевикРежиссер: Денис Карышев, Вячеслав КирилловАктеры: Александр Устюгов, Екатерина Волкова, Сергей Шнырев, Петр Рыков, Ингрид Олеринская, Виктория Заболотная, Григорий Зельцер, Елена Муравьева, Константин Адаев, Данила Якушев и др.Продолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CC4F994665E9CA6CBFD9DD794C60BE684FF2175
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 569965   (861435) от 16.04.2020
 
 Need for Speed: Most Wanted (2005) [Ru/En] (1.3) Repack R.G. Механики [Black Edition]
@@ -6,7 +162,7 @@ Need for Speed: Most Wanted (2005) [Ru/En] (1.3) Repack R.G. Механики [B
 >>10
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861435.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_861306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_861306.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Microsoft Windows 7 SP1 RUS-ENG x86 -36in1- (AIO)
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861305.jpg" />
 </div>
 
 
@@ -86,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861284.jpg" />
 </div>
 
 
@@ -112,7 +268,7 @@ Adobe CC Master Collection RUS/ENG
 >>24
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861281.jpg" />
 </div>
 
 
@@ -138,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_860977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_860977.jpg" />
 </div>
 
 
@@ -164,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_860898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_860898.jpg" />
 </div>
 
 
@@ -190,7 +346,7 @@ Google превратила Chrome в инструмент массовой сл
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_860888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_860888.jpg" />
 </div>
 
 
@@ -216,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860883.jpg" />
 </div>
 
 
@@ -242,7 +398,7 @@ Microsoft Windows 11 Insider Preview, Version 21H2 [10.0.22000.194] - Ориги
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860882.jpg" />
 </div>
 
 
@@ -269,7 +425,7 @@ Windows 10 Pro 21H1 19043.1237 x64 ru by SanLex (2021.09.20) [Ru]
 >>9
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860881.jpg" />
 </div>
 
 
@@ -295,7 +451,7 @@ Call of Duty: Advanced Warfare (2014) [Ru/Multi] (1.13.0.1/dlc) SteamRip Let'sPl
 >>15
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860727.jpg" />
 </div>
 
 
@@ -322,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_860317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_860317.jpg" />
 </div>
 
 
@@ -348,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860280.jpg" />
 </div>
 
 
@@ -374,7 +530,7 @@ Stranded Deep (2015) [En] (Alpha 0.11 H2) SteamRip MarkusEVO (R.G. Games)
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860279.jpg" />
 </div>
 
 
@@ -400,7 +556,7 @@ Company of Heroes (2013) [Ru] (2.700.2.42) Repack xatab [Complete Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860278.jpg" />
 </div>
 
 
@@ -426,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860113.jpg" />
 </div>
 
 
@@ -452,7 +608,7 @@ AOMEI Backupper Professional 4.0.2 [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860095.jpg" />
 </div>
 
 
@@ -478,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860089.jpg" />
 </div>
 
 
@@ -504,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860085.jpg" />
 </div>
 
 
@@ -515,163 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8853FC1A09DF1E5BB3A678F27671C548BBAAA304
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108747   (860083) от 26.02.2017
-
-Под покровом ночи / Nocturnal Animals (2016) BDRip [H.264]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860083.jpg" />
-</div>
-
-
-###  Подробнее
-
-У Сьюзен роскошная жизнь в Лос-Анджелесе, прекрасный муж и собственная галерея. Но однажды она получает неожиданную посылку от бывшего супруга — он хотел бы встретиться, но сначала просит прочитать его новый роман. Сьюзен не подозревает, что как только она откроет рукопись, она вернется в прошлое, которое считала надежно укрытым под покровом ночи.Производство: СШАЖанр: триллер, драмаРежиссер: Том ФордАктеры: Эми Адамс, Джейк Джилленхол, Майкл Шеннон, Аарон Тейлор-Джонсон, Айла Фишер, Элли Бамбер, Арми Хаммер, Карл Глусман, Роберт Арамайо, Лора ЛинниПеревод: Дублированный (Лицензия BD CEE)Язык субтитров: русскийПродолжительность: 01:56:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F04E08F44E5B633E062CCD408D11AA6C9AF91BA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375612   (859963) от 17.04.2020
-
-В Санкт-Петербурге спустили на воду первый супертраулер крупнейшей в мире серии судов
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_859963.jpg" />
-</div>
-
-
-###  Подробнее
-
-27 марта в Санкт-Петербурге на «Адмиралтейских верфях» (одна из крупнейших верфей госхолдинга «Объединенная судостроительная корпорация») был спущен на воду супертраулер проекта СТ-192 «Капитан Вдовиченко». Он строится по заказу Русской рыбопромышленной компании (РРПК)«Капитан Вдовиченко» – головное судно в серии из 10 супертраулеров, заказанной РРПК «Адмиралтейским (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372764   (859852) от 17.04.2020
-
-Jonas Schmedtmann | The Complete JavaScript Course 2020: Build Real Projects! (2019) PCRec [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это действительно полный курс JavaScript, который выходит за рамки того, чему вас учат другие курсы JavaScript.
-Я возьму вас от полного начинающего JavaScript до продвинутого разработчика. Вы не только будете изучать язык JavaScript, но и научитесь программировать. Как решить проблемы. Как структурировать и организовать код, используя общие шаблоны JavaScript.Производство: UdemyЖанр: Javascript, Front-end, ПрограммированиеПеревод: отсутствуетЯзык озвучки: АнглийскийПродолжительность: 27:55:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E212D067BDAF365D0778A1E93CF34D1EE7E3EBC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376202   (859849) от 17.04.2020
-
-Мединского исключили из совета Фонда кино
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_859849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывшего министра культуры Владимира Мединского исключили из совета Фонда кино. Соответствующее распоряжение опубликовано на официальном портале правовой информации. Господин Мединский был заместителем председателя совета.Также из совета был исключен бывший вице-премьер—руководитель аппарата правительства Константин Чуйченко, который являлся председателем совета Фонда (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376217   (859732) от 17.04.2020
-
-Windows 10 Pro 1909 Build 18363.778 x64 by SanLex (edition 2020-04-16) [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка основана на официальном оригинал образе Windows_10_Pro_1909_Russian_x64 (март, 2020). Отключены службы телеметрии, рекламные модули, и всё что влияет на приватность (в пределах возможного). Добавлены накопительные обновления безопасности системы, улучшения и исправления. В остальном ничего лишнего не добавлялось, как только убавлялось/отключалось/изолировалось.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B99F10EBEE898A0505B208A1AA5CE969C5A15D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376190   (859728) от 17.04.2020
-
-Windows 10 1909 32in1 (x86/x64) +/- Office 2019 by Eagle123 (04.2020) [Ru/En]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859728.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная сборка содержит в себе ISO-образ с Windows 10 1909 18363.778, включающий в себя 8 русских и 8 английских редакций x86/x64, основанный на оригинальных образах, с интегрированными обновлениями по 04.2020, дополнительными системными библиотеками (RuntimePack), с возможностью выбора опций установки, автоустановки драйверов, программ и наличием Microsoft Diagnostics (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:564874A2E52138D6C68F3E457F26ADA98E472997
 ```
 
 https://mybot314.ru/tekegram_catalog/

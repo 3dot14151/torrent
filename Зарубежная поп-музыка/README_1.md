@@ -6,7 +6,7 @@ CC Catch - Best Of (1998) [OGG Vorbis|480 Kbps] <Electronic, Synth-pop, Euro Hou
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044734.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Celine Dion - Ultimate Box (2008) 2 CD [OGG Vorbis|480 Kbps] <Rock, Blues, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044721.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Mylene Farmer - En Concert (1989) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, C
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044622.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Shania Twain - Up! (2002) [OGG Vorbis|480 Kbps] <Rock, Country Rock, Pop Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044316.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Seal - Seal (1991) 4CD, Deluxe Edition, Remastered, 2022, Rhino - Warner Records
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044238.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Sting - Brand New Day (1999) [OGG Vorbis|450 Kbps] <Rock, Pop, Pop Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044062.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Adriano Celentano - Le Volte Che Celentano E'Stato 1 (2003) [OGG Vorbis|450 Kbps
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044056.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Sting - Sacred Love (2003) [OGG Vorbis|450 Kbps] <Rock, Pop, Pop Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044055.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Megahits 2023-die Erste [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044051.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Mylene Farmer - L'Autre... (1991) [OGG Vorbis|480 Kbps] <Electronic, Pop, Chanso
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043952.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ The Cars - Candy-O (1979) Reissue, Remastered, 2012, Elektra [OGG Vorbis|480 Kbp
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043933.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Patricia Kaas - Rien Ne S'Arrete (Best Of 1987 - 2001) (2001) [OGG Vorbis|500 Kb
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043920.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Mylene Farmer - Dance Remixes (1992) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043744.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Gabriella Laberge - Etrangere (2019) [MP3|320 Kbps] <French Pop, Synthpop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043733.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Ciao Italia (1997) 3CD Box Set (1997) [MP3|320 Kbps] <Рор>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043151.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Romantic Collection. Golden (1995) [OGG Vorbis|480 Kbps] <Rock, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042868.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Romantic Collection. Volume 3 (1997) [OGG Vorbis|480 Kbps] <Pop Rock, Swing
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042859.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ The J. Geils Band - Freeze Frame (серия "Другие восьмидеся�
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042400.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Mega Hits Winter (2023) [MP3|320 Kbps] <Electropop, Disco, House, Synthpop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041630.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Romantic Collection. Jazz (2003) [OGG Vorbis|480 Kbps] <Pop, Jazz>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041356.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Romantic Collection. Tet-A-Tet (1999) [OGG Vorbis|480 Kbps] <Electronic, Ro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041325.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Ennio Morricone - Love Songs & Romantic Scores (2023) [MP3|320 Kbps] <Film, Band
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041322.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Romantic Collection. Magic Blues (2000) [OGG Vorbis|480 Kbps] <Blues>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041303.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Gym Motivation Mix (2021) Explicit [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040886.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - I Singoli di Sanremo 2023 (2023) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040801.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - ФРАНЦУЗСКИЙ ПОДАРОК The Best Of France Nostalgique Part 2
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040761.jpg" />
 </div>
 
 

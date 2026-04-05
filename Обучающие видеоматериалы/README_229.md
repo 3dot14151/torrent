@@ -1,3 +1,32 @@
+###  Публикация: 1648692   (195300) от 24.07.2023
+
+Learnsquared, Tim Zarki | Industrial Design Foundations (2023) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195300.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дизайн для реального мира.
+
+Создавайте детализированные, реалистичные продукты с помощью Fusion 360 и Keyshot.
+(   Читать дальше...   )Производство: LearnsquaredЖанр: 3D ГрафикаЯзык озвучки: АнглийскийПродолжительность: 17:45:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:989BC004D4862A2BAEA9619A8B1ABCCAA3243A94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1648641   (195298) от 24.07.2023
 
 Виктор Блуд | Статика / Вводный курс (2022) WEB-DL [AD] [RU]
@@ -6,7 +35,7 @@
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195298.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195249.jpg" />
 </div>
 
 
@@ -58,7 +87,7 @@ Blender Bros | Rendering University - Platinum (2022) WEB-DL [EN / EN Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195223.jpg" />
 </div>
 
 
@@ -87,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195183.jpg" />
 </div>
 
 
@@ -116,7 +145,7 @@ Hudozhnik Online, Полина Абдулаева | Создание комик�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195181.jpg" />
 </div>
 
 
@@ -144,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195169.jpg" />
 </div>
 
 
@@ -173,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195135.jpg" />
 </div>
 
 
@@ -200,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195121.jpg" />
 </div>
 
 
@@ -229,7 +258,7 @@ drvik | Нейросеть Leonardo: Твори как бог дизайна, з
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195098.jpg" />
 </div>
 
 
@@ -256,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195088.jpg" />
 </div>
 
 
@@ -282,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195080.jpg" />
 </div>
 
 
@@ -308,7 +337,7 @@ Podlodka Crew | Записи Go Crew #1 - «Внутренний тулинг» 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195063.jpg" />
 </div>
 
 
@@ -337,7 +366,7 @@ Archviz Artist, Agnieszka Klich | 3ds Max Exterior & Interior Animations (2023) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195053.jpg" />
 </div>
 
 
@@ -365,7 +394,7 @@ Udemy, Nafay Sheikh | Unreal Engine 5: Car Rendering for Beginners (2022) WEB-DL
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195050.jpg" />
 </div>
 
 
@@ -394,7 +423,7 @@ Archviz Artist, Agnieszka Klich | 3ds Max Exterior & Interior Visualizations 2.0
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195045.jpg" />
 </div>
 
 
@@ -421,7 +450,7 @@ Udemy, Maya Pundale | Unreal Engine 5 Essentials (2022) WEB-DL [AD] [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195044.jpg" />
 </div>
 
 
@@ -447,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195043.jpg" />
 </div>
 
 
@@ -475,7 +504,7 @@ Archviz Artist, Agnieszka Klich | 3ds Max Advanced Interior Visualizations (2023
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195033.jpg" />
 </div>
 
 
@@ -502,7 +531,7 @@ Udemy, Unreal RPG Mastery | Unreal Engine 5: Soulslike Melee Combat System (2022
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195032.jpg" />
 </div>
 
 
@@ -530,7 +559,7 @@ Archviz Artist, Agnieszka Klich | 3ds Max Advanced Exterior Visualizations (2023
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195023.jpg" />
 </div>
 
 
@@ -558,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195022.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194975.jpg" />
 </div>
 
 
@@ -610,7 +639,7 @@ Udemy, Nikita Sergeev | Excel: основное для работы с масс�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194974.jpg" />
 </div>
 
 
@@ -637,7 +666,7 @@ SD.CODE, Сергей Дмитриевский | Мышление Програм
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194955.jpg" />
 </div>
 
 
@@ -666,7 +695,7 @@ Udemy, Pixel Helmet | Unreal Engine 5 Blueprints: Multiplayer Shooter (FPS) (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194952.jpg" />
 </div>
 
 
@@ -680,35 +709,6 @@ Udemy, Pixel Helmet | Unreal Engine 5 Blueprints: Multiplayer Shooter (FPS) (202
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77E99EB63384FB5D9FB53D3AAEC28A750737DB5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650069   (194941) от 30.07.2023
-
-Max Twain | Workshop Июль 2023: Создание нейроартов в нейросети Stable Diffusion (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194941.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеозапись прямого эфира с процессом создания нейроартов в нейросети "Stable Diffusion"
-- Интересный и динамичный процесс
-- Быстрый результат прям в процессе
-- Доработка арта в Photoshop(   Читать дальше...   )Жанр: ДизайнЯзык озвучки: РусскийПродолжительность: 03:41:58Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AC4BE46E70EBB07850EEE97F0B4A96F8FE43702
 ```
 
 https://mybot314.ru/tekegram_catalog/

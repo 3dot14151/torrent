@@ -6,7 +6,7 @@ Magic Kaito 1412 / Волшебник Кайто 1412 [2014, TV, 24 из 24] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149831.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Iya na Kao Sarenagara Opantsu Misete Moraitai | Изобрази отвраще�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149189.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Meikyuu Black Company | The Dungeon of Black Company | Подземелье "Ч�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146901.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Ani ni Tsukeru Kusuri wa Nai! 3 | В случае с братом медицин
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146813.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Kumo Desu ga, Nanika? | So I'm a Spider, So What? | Да, я паук, и что
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146648.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Sentouin, Haken Shimasu! | Combatants Will Be Dispatched! | Бойцы буду�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146640.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Deca-Dence | Дека-Данс | Декаданс [2020, TV, 12 из 12] BDRip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146000.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Ani ni Tsukeru Kusuri wa Nai! 4 | В случае с братом медицин
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145516.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Seirei Gensouki | Seirei Gensouki: Spirit Chronicles | Духовные хрон
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145222.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Momo e no Tegami / A Letter to Momo / Письмо для Момо [2011, Movie]
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145060.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Hells / Hells Angels / Ангелы Ада [2008, MV] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145019.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Bermuda Triangle: Colorful Pastorale | Бермудский треугольни
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143705.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Sidonia no Kishi: Daikyuu Wakusei Seneki | Knights of Sidonia: Battle for Planet
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142472.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Vivy: Fluorite Eye's Song | Виви: Песнь флюоритового гла
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141783.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Idolish Seven: Second Beat! | Семёрка идолов (ТВ-2) [2020, TV, 15
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139225.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Saenai Heroine no Sodatekata Fine | Saekano: How to Raise a Boring Girlfriend.fi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138766.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Hachigatsu no Cinderella Nine | Cinderella Nine | Девять золушек в
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138165.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Niji-iro Hotaru: Eien no Natsuyasumi | Rainbow Fireflies | Радужные св
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138117.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Kouya no Kotobuki Hikoutai | The Magnificent Kotobuki | Пустынная эс�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138067.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Santa Company | Компания Санты [2014, Movie] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137982.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Sword Art Online: Alicization | Мастера меча онлайн: Алиси
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137834.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Nande Koko ni Sensei ga!? | Why the Hell Are You Here, Teacher!? | Что зде
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137687.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Code Geass: Fukkatsu no Lelouch | Code Geass: Lelouch of the Resurrection | Ко
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137586.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Arknights: Holy Knight Light / Рыцари ковчега: Святые рыц�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136601.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Acchi Kocchi / Там-сям [2012, TV, 12 + 1Sp] BDrip 1080p Hi10P raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_135550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135550.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Afro Samurai Resurrection (Director's Cut) | Афросамурай: Воскр�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132814.jpg" />
 </div>
 
 

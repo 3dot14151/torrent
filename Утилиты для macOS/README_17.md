@@ -1,3 +1,30 @@
+###  Публикация: 1523638   (749793) от 12.01.2022
+
+AnyToISO Pro 3.9.6 fix [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749793.jpg" />
+</div>
+
+
+###  Подробнее
+
+AnyToISO Pro - создание ISO из других форматов/дисков/папок
+Скачали CD/DVD образ неизвестного формата? Нет нужды искать или покупать дорогой коммерческий софт, который его поддерживает - одна программа работает с любыми форматами. AnyToISO Pro - это простой в эксплуатации и функциональный конвертер поможет преобразовывать образы дисков CD и DVD в специфических форматах (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.03.2021Разработчик: © 2005-2021 CrystalIDEAПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:926D0DAA3F1C7DDE6ECE1EFF09D3CB96654C2ECA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216373   (748983) от 31.03.2018
 
 macOS Server 5.6 [En]
@@ -6,7 +33,7 @@ macOS Server 5.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748983.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ Xcode 7.3.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747579.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ QR Factory 2.9.5 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746813.jpg" />
 </div>
 
 
@@ -87,7 +114,7 @@ Virus Scanner Plus 3.13 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746556.jpg" />
 </div>
 
 
@@ -113,7 +140,7 @@ DockMate Beta 0.8.7 fix [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743853.jpg" />
 </div>
 
 
@@ -139,7 +166,7 @@ CopyLess 1.8.9 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743780.jpg" />
 </div>
 
 
@@ -167,7 +194,7 @@ Apeaksoft iOS Toolkit 1.1.96 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743769.jpg" />
 </div>
 
 
@@ -195,7 +222,7 @@ Sierra Cache Cleaner 11.1.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743349.jpg" />
 </div>
 
 
@@ -223,7 +250,7 @@ Disk Map Analyzer 1.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742069.jpg" />
 </div>
 
 
@@ -251,7 +278,7 @@ KeyKey 2.9 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741890.jpg" />
 </div>
 
 
@@ -279,7 +306,7 @@ Better Rename 10.17 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741113.jpg" />
 </div>
 
 
@@ -306,7 +333,7 @@ ShowPass - пароль за звездочками 1.1.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739777.jpg" />
 </div>
 
 
@@ -332,7 +359,7 @@ iSkysoft Data Recovery 4.2.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739560.jpg" />
 </div>
 
 
@@ -358,7 +385,7 @@ VisualDiffer 1.8.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739107.jpg" />
 </div>
 
 
@@ -385,7 +412,7 @@ Screenshot Editor 2.3.3 fix [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738813.jpg" />
 </div>
 
 
@@ -411,7 +438,7 @@ Mirror for Toshiba TV 1.1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738513.jpg" />
 </div>
 
 
@@ -437,7 +464,7 @@ XCOrganizer 1.2.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738510.jpg" />
 </div>
 
 
@@ -463,7 +490,7 @@ Mirror for Sharp TV 3.6.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738169.jpg" />
 </div>
 
 
@@ -489,7 +516,7 @@ HighTop Full 1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738164.jpg" />
 </div>
 
 
@@ -516,7 +543,7 @@ aText 2.40.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737392.jpg" />
 </div>
 
 
@@ -542,7 +569,7 @@ Mirror for Panasonic TV 3.7.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736936.jpg" />
 </div>
 
 
@@ -569,7 +596,7 @@ Cleaner-App Pro 8.2.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736912.jpg" />
 </div>
 
 
@@ -595,7 +622,7 @@ Dependency Walker 1.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736888.jpg" />
 </div>
 
 
@@ -621,7 +648,7 @@ Mirror for Chromecast 2.9.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736430.jpg" />
 </div>
 
 
@@ -648,7 +675,7 @@ Easy Screen Recorder 4.6.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736420.jpg" />
 </div>
 
 
@@ -659,33 +686,6 @@ Easy Screen Recorder - это простой, но мощный инструме
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A5141BA76AF9766DA87706B42D393765B067BE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527857   (735872) от 30.01.2022
-
-LaunchControl 1.52.4 U2B [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735872.jpg" />
-</div>
-
-
-###  Подробнее
-
-LaunchControl — это полнофункциональный графический интерфейс запуска, позволяющий создавать, управлять и отлаживать системные и пользовательские службы на вашем Mac.
-С LaunchControl вы сразу видите все службы и их соответствующий статус. Недействительные службы выделяются, и предоставляется описание проблемы. Вы можете включить или отключить услуги одним щелчком (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.01.2022Разработчик: © 2009–2022 soma-zoneПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F45F9330190A3FB98FB4EEDF5A1E645CF2FB199
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155549.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155456.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155427.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155382.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155289.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155116.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155084.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155082.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155041.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155003.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ VA - Global Lounge Masters, Vol. 4 (2021) [AAC|~328 Kbps] <Lounge, Chill Out, Do
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154417.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154401.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Varitda Bhirombhakdi - Mood 2: Jazz in the City (2021) [AAC|~320 Kbps] <Jazz, Vo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154386.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ SolarFlow - Collection of the Best Tracks From: Solarflow, Pt. 2 (2020) [AAC|~32
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154371.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ VA - Winter Relaxation, Vol. 2 (2020) [AAC|~328 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154363.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ VA - Winter Relaxation, Vol. 3 (2021) [AAC|~323 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154355.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ VA - Space Chillout (2021) [AAC|~305 Kbps] <Lounge, Chill Out>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154347.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Varitda Bhirombhakdi - Mood (2020) [AAC|~331 Kbps] <Jazz, Vocal Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154338.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ H.1, Hevi - Indigo Night (2021) [AAC|~310 Kbps] <Lounge, Chill Hop, Ambient>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154304.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ SolarFlow - Specter (2020) [AAC|~332 Kbps] <Electronic, Lounge, Chill Out, Enigm
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154295.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ VA - Fireplace Chill - Winter Edition (2021) [AAC|~319 Kbps] <Lounge, Chill Out,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154290.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ VA - Best Vocal Chill Out (Remixes for 2021) (2021) [AAC|~339 Kbps] <Lounge, Chi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154279.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ SolarFlow - Collection of the Best Tracks From: Solarflow (2020) [AAC|~326 Kbps]
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154261.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ VA - Winter Relaxation, Vol. 1 (2019) [AAC|~329 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154248.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ SolarFlow - Imagine (2020) [AAC|~323 Kbps] <Electronic, Lounge, Chill Out, Enigm
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154242.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ VA - Winter Relaxation, Vol. 4 (2021) [AAC|~328 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154235.jpg" />
 </div>
 
 

@@ -1,3 +1,81 @@
+###  Публикация: 1135585   (680524) от 19.05.2017
+
+The Falling Nights (2017) [En/Es] (1.0.0) License HI2U
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680524.jpg" />
+</div>
+
+
+###  Подробнее
+
+Был обычный день, когда Джейк собрался отвезти свою дочь Рейчел на занятия по танцам. Но после того как они спустились в метро, их обыденной жизни наступил конец. Что-то потустороннее подвесило их во времени между 1974 годом и настоящим, в период, когда кое-что ужасное произошло в подземке. Джейк оказался в ловушке и потерял свою дочь, которая была похищена загадочной (   Читать дальше...   )Тип издания: LicenseРазработчик: Delusion Arts Entertainment, LLCЖанр: Adventure (Horror), 1st Person, IndieЯзык озвучки: АнглийскийЯзык субтитров: Английский, ИспанскийЯзык интерфейса: Английский, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD1C921F258CAE2EA3011ECCCD8E130742D4C851
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290185   (679943) от 19.03.2019
+
+GRIS (2018) [Ru/Multi] (1.03) License GOG [Soundtrack Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Грис - наивная девочка, запершаяся в собственном мире из-за боли, окутавшей ее в реальности. Ее скорбь находит воплощение в ее платье, которое дает разные способности, позволяющие лучше ориентироваться в своем мире. По ходу сюжета Грис (Gris) эмоционально крепнет и начинает видеть свой мир немного иначе, открывая все новые и новые пути.Тип издания: LicenseРазработчик: Nomada StudioЖанр: Приключение, Головоломка, ПлатформерЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6966663F204E0FAF7A8480EADD99726E22EE816
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123750   (679841) от 19.03.2019
+
+Quern - Undying Thoughts (2016) [Ru/Multi] (1.2.0 HotFix2) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679841.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы пытаетесь избавиться от пелены перед глазами и подняться на ноги. Стоит сделать шаг, как портал, через который вы прибыли, закрывается за вашей спиной. Вы в ловушке – пути назад нет... «Quern. Вечные мысли» – приключенческая игра-головоломка с видом от первого лица. Она приглашает вас исследовать загадочный мир и узнать, что он для вас приготовил.Тип издания: LicenseРазработчик: Zadbox EntertainmentЖанр: Приключение, Головоломка, ДетективЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EEB82B2C2892A5DB260B555DDF9117065CCF560
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135810   (678438) от 20.05.2017
 
 The Walking Dead: A New Frontier (2016) [Ru/Multi] (1.0) Repack R.G. Catalyst [Episode 1-4]
@@ -6,7 +84,7 @@ The Walking Dead: A New Frontier (2016) [Ru/Multi] (1.0) Repack R.G. Catalyst [E
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678438.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Know by Heart... / Помни... (2022) [Ru/En] (1.03) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678063.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Tales of Monkey Island: Chapter 2 The Siege of Spinner Cay / Tales of Monkey Isl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_678037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_678037.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Old Man's Journey (2017) [Ru/Multi] (1.0.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676484.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Old Man's Journey (2017) [Ru/Multi] (1.0.0) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676178.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Nightfall: Escape (2016) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675703.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Everybody's Gone to the Rapture / Хроники последних дней (20
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671552.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ D: The Game (1996) [En/Fr/Ge] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671211.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Late Shift (2017) [Ru/Multi] (1.0) SteamRip Let'sPlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670525.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Sound of Drop - fall into poison (2015) [Ru/Multi] (1.0) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670136.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Awakened (2016) [En/Multi] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669907.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Awakened (2016) [En/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669882.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Désiré (2016) [Ru/Multi] (1.03) License POSTMORTEM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668424.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667952.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Full Throttle Remastered (2017) [Ru/En] (1.1.879806) Repack R.G. Механик�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667379.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Alone in the Dark: The New Nightmare (2001) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666937.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Mages of Mystralia (2017) [Ru/Multi] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666317.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Subaeria (2018) [Multi] (2.0.46r) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665889.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Contrast (2013) [Ru/En] (11736) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665829.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Subaeria (2018) [Multi] (2.0.46r) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665771.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Lake Ridden (2018) [En] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664670.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_664441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_664441.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Black Dahlia (1998) [En] (1.10) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664230.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Black Dahlia Black Dahlia - так прозвали известную в 40-е 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A783525B65C901EEAEF5A7C56DF9A3E10239B3D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150153   (663565) от 12.05.2018
-
-Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0upd1) License GOG [Episodes 1-5]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663565.jpg" />
-</div>
-
-
-###  Подробнее
-
-После того, как Джесси и его команде удалось одолеть Иссушающую бурю, спасти мир и обрести всеобщее признание, их жизнь сделалась чуточку... сложнее. Обязанностей стало больше, а на старые добрые приключения времени почти не осталось, так что их дружба начала угасать. Но не тут-то было: в один прекрасный день рука Джесси застревает в жуткой перчатке, некогда принадлежавшей (   Читать дальше...   )Тип издания: LicenseРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8522C04668CFA9051E24A7DD4A16D95384416846
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016721   (661840) от 31.05.2017
-
-Dreamfall Chapters (2014-2016) [Ru/Multi] (5.4.1.1) License GOG [Special Edition]
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dreamfall Chapters: The Longest Journey - продолжение приключенческой игры The Longest Journey, которая развивает историю предыдущих частей и завершит рассказ истории Зои Кастильо. Chapters - это 3D-приключение, выполненное в жанре point-and-click квеста. Игроки могут переключаться между тремя персонажами и двумя мирами - Arcadia и Stark - которые существуют параллельно (   Читать дальше...   )Тип издания: LicenseРазработчик: Red Thread Games и Blink StudiosЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Немецкий, ФранцузскийЯзык интерфейса: Русский, Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FAA65EC680096A9CF774260919C1F08F7C2C2D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225259   (661714) от 14.05.2018
-
-Dark Fall 3: Lost Souls (2009) [En] (1.1) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661714.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пять лет назад Эми Хейвен исчезла. Инспектор, который вёл это дело, был убеждён, что в похищении виноват местный бродяга по имени м-р Кости, но у него не было доказательств. Поэтому, он решил взять закон в свои руки и сделать «доказательство». О незаконности действий инспектора узнали, дискредитировали. Он стал изгоем в городе, а Эми так и не была найдена. После (   Читать дальше...   )Тип издания: LicenseРазработчик: Darkling RoomЖанр: Adventure (Point & Click), HorrorЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82733001A242169802837F48DBB4F1A37409D8E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

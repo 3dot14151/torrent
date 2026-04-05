@@ -1,3 +1,81 @@
+###  Публикация: 1547531   (602906) от 28.04.2022
+
+Моя ужасная сестра (2022) WEB-DL [H.264/720p]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда мама и папа десятилетних Лены и Маруси решают пожениться, эти две совершенно чужие девочки вынужденно становятся сестрами. Теперь они делят одну комнату, один класс, друзей, а главное — сражаются за внимание родителей. Каждая из них мечтает вернуть прежнюю жизнь, а для этого надо рассорить взрослых.Производство: Россия / Мотор Фильм СтудияЖанр: комедия, семейныйРежиссер: Александр ГалибинАктеры: София Петрова, Марта Кесслер, Наталья Чистякова-Ионова, Владимир Яглыч, Стефан ОттоПеревод: Не требуется (Русский)Субтитры: отсутствуютПродолжительность: 01:14:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A39FB5F4E5F6781605D878DFD7296D47CFE8469
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146653   (602849) от 08.07.2017
+
+Тайна тёмной комнаты (2014) HDTVRip [H.264/720p-LQ]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два школьника решают исследовать таинственное окно, появляющееся на стене их дома в полночь во время полнолуния. Проникнув туда и оказавшись в тёмной комнате, они и не подозревают, какие приключения ждут их впереди…Производство: Россия  / киноконцерн "Мосфильм", киностудия "Вертикаль"Жанр: Детский, ПриключенияРежиссер: Ольга БеляеваАктеры: : Сергей Никоненко, Виктор Сухоруков, Галина Польских, Ирина Скобцева, Константин Крюков, Иван Агапов, Екатерина Воронина, Нина Маслова, Егор Губарев, Андрей ПоповичСубтитры: отсутствуютПродолжительность: 01:16:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13F6893056BF5085D3B55DE56B3914A4F29A6EDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547393   (602760) от 28.04.2022
+
+Моя ужасная сестра (2022) WEBRip [H.264/1080p]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда мама и папа десятилетних Лены и Маруси решают пожениться, эти две совершенно чужие девочки вынужденно становятся сестрами. Теперь они делят одну комнату, один класс, друзей, а главное — сражаются за внимание родителей. Каждая из них мечтает вернуть прежнюю жизнь, а для этого надо рассорить взрослых.Производство: Россия, Мотор Фильм СтудияЖанр: CемейныйРежиссер: Александр ГалибинАктеры: София Петрова, Марта Кесслер, Наталья Чистякова-Ионова, Владимир Яглыч, Стефан ОттоПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:14:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1FE72172C11845F169B1A5BB3BF5DC0B5C90C79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1148192   (602447) от 09.07.2017
 
 Ближе, чем кажется (2015) WEB-DL [H.264/720p-LQ]
@@ -6,7 +84,7 @@
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602447.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602246.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_601093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601093.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597757.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593383.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578789.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574003.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567020.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566882.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556359.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543581.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527686.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522176.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517603.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510240.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507092.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507052.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506399.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505325.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496895.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478963.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465600.jpg" />
 </div>
 
 
@@ -580,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457289.jpg" />
 </div>
 
 
@@ -592,85 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6261620EC468E1E46200DFDAEED8D781BBE3BA7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 667423   (455475) от 27.09.2013
-
-Золушка (1947) BDRip [H.264/1080p] [hand made 60fps]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455475.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основа сюжета — старинный сказочный мотив о трудолюбивой Золушке, злой мачехе и ленивых сестрах. Разумеется, Шварцем переработанный и оживленный до уровня комедии, в которой есть и просто юмор, и злая сатира.
-До сих пор этот нежный и добрый фильм продолжает радовать и удивлять больших и маленьких. А вы попробуйте не удивиться тому, что к вам в гости приходит волшебница (   Читать дальше...   )Производство: СССР / ЛенфильмЖанр: Мюзикл, фэнтези, мелодрама, комедия, семейныйРежиссер: Надежда Кошеверова, Михаил ШапироАктеры: Янина Жеймо, Алексей Консовский, Эраст Гарин, Фаина Раневская, Елена Юнгер, Тамара Сезеневская, Василий Меркурьев, Александр Румнев, Варвара Мясникова, Игорь КлименковСубтитры: ОтсутствуютПродолжительность: 01:21:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AE68CCE11A9514C4C852F8E71B0868275FF48E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247544   (452728) от 15.09.2018
-
-Габриэл (2018) WEBRip [H.264/1080p-LQ]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452728.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о маленькой девочке, которая попав в цирк, влюбилась в него. А пообщавшись с животными поближе, поняла что хочет стать артисткой цирка, и сразу решила для себя, что посвятит этому жизнь.Производство: РоссияЖанр: Короткометражный, семейныйРежиссер: Кирилл КапустинАктеры: Евгения Козакова, Евгения Лисанец, Алексей ЯценкоСубтитры: ОтсутствуютПродолжительность: 00:18:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:040545118F467B6A6B665A24E39E01E47703B9BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568981   (451337) от 13.08.2022
-
-Душа пирата (2022) WEBRip [H.264/1080p-LQ] [PR]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Школьник Пашка Костин получает травму и впадает в кому. Его друзья решают, что Пашкина душа вселилась в дворовую собаку по кличке Пират. Приятели изыскивают всевозможные способы вытащить душу из пса и вернуть Пашке. В конце концов срабатывает старый проверенный способ - "спящую красавицу" Пашку целует принцесса.Производство: Россия / Кинокомпания «Студия IV»Жанр: детский фильм, семейное киноРежиссер: Айсыуак ЮмагуловАктеры: Кирилл Сидоркин, Назар Мурашев, Амир Муртазин, София Коробова, Елизавета Карпова, Александр Самойленко, Андрей Ганичев, Игорь Конев, Лада Николаева, Александр Шабаев, Татьяна Макрушина, Елизавета НабиеваПеревод: Не требуетсяСубтитры: НетПродолжительность: 01:22:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02C27BD96701EE00287F7657C4199EE59E25915E
 ```
 
 https://mybot314.ru/tekegram_catalog/

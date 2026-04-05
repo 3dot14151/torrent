@@ -6,7 +6,7 @@ Piezo 1.5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400603.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ MenuBar Stats 2.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400572.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ MacClean 3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400429.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400208.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Hope Sandoval & The Warm Inventions - Through The Devil Softly (2009) [ALAC|Loss
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400026.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ TextSoap 8.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399820.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ iTubeDownloader 6.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399817.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ TouchCopy 16.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399626.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Geekbench 4.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399538.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Textual 7 Standard Edition 7.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398741.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Downie 3.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398630.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ DCommander 3.1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398623.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ TotalFinder 1.10.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398565.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Little Snitch 4.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398352.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ popCalendar 1.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397802.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ NetWorker - Advanced Network Information App 4.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397773.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ FontDoctor 10.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397772.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Mazzy Star - 3 альбома [ALAC|Lossless]<Indie Rock>
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397677.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Tuxera NTFS for Mac 2012.3.4 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397673.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Carbon Copy Cloner 5.0.3 (5115) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397620.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ CADintosh X 8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397617.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Araxis Merge Pro 2017 (4937) macOS Sierra Edition [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396726.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Translatium - translator 7.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396718.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Winclone Pro 6.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396628.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ Bartender 3 v.3.0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396568.jpg" />
 </div>
 
 
@@ -713,7 +713,7 @@ Privatus 5.0.8.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395813.jpg" />
 </div>
 
 

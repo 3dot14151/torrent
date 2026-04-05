@@ -6,7 +6,7 @@ ScullGirl 2nd Encore v. 1.0.13330 (2015) [Multi] [OS X Native game]
 >>Тестовые macOS Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446634.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Deep Sky Derelicts v1.5.4 (2018) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444985.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Lamplight City  [En] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439635.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Hades v.1.38291 (2020) [Multi/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437486.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Viking Squad v1.16 (2016) [En] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426871.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_415567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_415567.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Timespinner v.1.0.2 (2018) [En] [macOS Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415334.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Diluvion: Resubmerged v1.17.96 (2017) [Multi/Ru] [macOS Native game]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415247.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Broforce v.1.0.0 (2015) [En] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415217.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Left 4 Dead 2 v2.1.5.2 (2010) [En/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412945.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Portal 2 v2.0.0.1 (2011) [En/Ru] [macOS Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412929.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Wasteland 2: Director's Cut v. 2.0.0 (2015) [OS X Native Game] [Multi/Ru]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412925.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ The Darkness II v1.0.8032 (2012) [Ru] [macOS Native port]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410720.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Half-Life Classic: Half-Life, Opposing Force, Blue Shift (2013) [Ru] [macOS Nati
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410593.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Ultima™ 8 Gold Edition (1994) [Multi] [macOS DOSbox]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410090.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Dreamfall Chapters Book 1-2-3 v. 3.14 (2014) [Ru] [OS X Native game]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409037.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Dishonored [RUS] [WineSkin]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_406861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_406861.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Men of War: Vietnam [WineSkin] [RUS]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_406035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_406035.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Endless Space [Native] [RUS]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_405669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_405669.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Men of War: Condemned Heroes [WineSkin]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_405422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_405422.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Men of War: Red Tide [WineSkin] [RUS]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_405410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_405410.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ The Witcher 2: Assassins of Kings Enhanced Edition [Native]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401650.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Black Mirror II [WineSkin]
 >>Quests, Adventure, Arcade для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400748.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ The Last Remnant [WineSkin]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399758.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ The Witcher: Enhanced Edition Director's Cut [Native port]
 >>Strategy, RPG для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398664.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Immortal Redneck v.1.2.3 (2017) [Multi/Ru] [OS X Native game]
 >>Action, FPS для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391033.jpg" />
 </div>
 
 

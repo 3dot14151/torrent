@@ -1,3 +1,55 @@
+###  Публикация: 221708   (612874) от 25.07.2010
+
+Самый дурацкий корабль в армии / The Wackiest Ship in the Army (1960) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612874.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Комедия, ВоенныйРежиссер: Ричард МерфиАктеры: Джек Леммон, Рики Нельсон, Джон Ланд, Чипс Рафферти, Том Талли, Джоби Бэйкер, Уоррен Берлинджер, Патриция Дрисколл, Майк КеллинПеревод: Многоголосый закадровый+Продолжительность: 01:39:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE9FDC1346073ED99E54BFF547E41119F90C24F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142481   (612734) от 30.06.2017
+
+Тони Роум / Tony Rome (1967) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612734.jpg" />
+</div>
+
+
+###  Подробнее
+
+Частный детектив Тони Роум — в прошлом самый крутой полицейский в Майами. Ему неведом страх, он не отступает перед трудностями и беспощаден к преступникам. Для него главное — закон и справедливость. Однажды Роум сталкивается с непростым делом — богатый бизнесмен просит его найти брошь с бриллиантами, которую его дочь потеряла при весьма странных обстоятельствах. (   Читать дальше...   )Производство: США / Arcola PicturesЖанр: Драма, Криминал, ДетективРежиссер: Гордон ДугласАктеры: Фрэнк Синатра, Джилл Ст. Джон, Ричард Конте, Джина Роулендс, Саймон Оукленд, Джеффри Линн, Ллойд Бокнер, Роберт Дж. Уилки, Вирджиния Винсент, Джоан ШоулиПеревод: Профессиональный (многоголосый закадровый)Субтитры: АнглийскиеПродолжительность: 01:50:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58763E3B40B5C3FC6B972B367CE623F91FABF37F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1142023   (612730) от 30.06.2017
 
 Приезжие / The Out of Towners (1969) DVDRip [H.264]
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612730.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612294.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612213.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611885.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611643.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611512.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611507.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611500.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_611255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_611255.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611236.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610891.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610566.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610033.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609896.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608790.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608335.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608199.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608178.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607846.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606850.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606846.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606835.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606504.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606462.jpg" />
 </div>
 
 
@@ -622,60 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A75F65E4E47A39634EEE1D34E819B3394A14DB83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036940   (606461) от 28.07.2016
-
-Фриско Кид / The Frisco Kid (1979) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606461.jpg" />
-</div>
-
-
-###  Подробнее
-
-На дворе 1850-ый год — новоиспеченный ортодоксальный раввин Авраам Белински решил добраться из Филадельфии до Сан-Франциско… верхом на лошади.
-Единственное, что знает о Калифорнии незадачливый ездок — это то, что она «где-то неподалеку от Нью-Йорка». К счастью, Авраам знакомится с бывалым ковбоем Томом Лиллардом, который готов протянуть руку помощи.
-Путь в Сан-Франциско (   Читать дальше...   )Производство: США / Warner Bros. PicturesЖанр: Комедия, Приключения, ВестернРежиссер: Роберт ОлдричАктеры: Джин Уайлдер, Харрисон Форд, Рамон Биери, Вал Бизольо, Джордж ДиЧенцо, Лео Фукс, Пенни Пейсер, Уильям Смит, Джек Сомак, Биджи БаркеттПеревод: Многоголосый закадровый, АвторскийЯзык субтитров: Русский, английскийПродолжительность: 01:58:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E41A64DA0566DB0A4483F9BBDDAE33CB2672BD8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289553   (606329) от 20.04.2019
-
-Человек, обманувший смерть / The Man Who Could Cheat Death (1959) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доктор Бонне рассчитывает жить вечно, продлевая себе жизнь путём периодической трансплантации околощитовидных желез от своих молодых и здоровых жертв. Он выглядит на 40 лет, хотя на самом деле ему 104. Со временем окружающие его люди начинают что-то подозревать…Производство: Великобритания / Hammer FilmsЖанр: Ужасы, Фантастика, ДрамаРежиссер: Теренс ФишерАктеры: Антон Диффринг, Хэйзел Корт, Кристофер Ли, Арнольд Марле, Делфи Лоуренс, Френсис Де Вулф, Рональд Адам, Мари Бурк, Джон Харрисон, Йен ХьюитсонПеревод: Многоголосый закадровый (Paramount Channel)Субтитры: РусскиеПродолжительность: 01:22:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAB76622F8DB6E69516BDBBD68151EF7162783E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

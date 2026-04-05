@@ -6,7 +6,7 @@
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483276.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482641.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481318.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481313.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481305.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480419.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480366.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480271.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478902.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478740.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477602.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473028.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472572.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472570.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472476.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472472.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472464.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472460.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472459.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472004.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471912.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471128.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470124.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470120.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470117.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470112.jpg" />
 </div>
 
 

@@ -1,3 +1,160 @@
+###  Публикация: 531298   (542596) от 05.08.2012
+
+VA - Скорая музыкальная помощь 50/50 (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Delta pro. - Наше лето
+02 Mike Indigo - Bam Baram (Original Radio Edit)
+03 Dan Balan - Не любя
+04 Sean Paul feat. Pitbull - She Doesn't Mind
+05 Бьянка - Весна-Лето 3 (Про Зою)
+06 Jennifer Lopez feat. Flo Rida - Goin' In
+07 SPACE4 и Антон Зацепин - Невозможно Не Любить
+08 Linkin Park - Burn It Down
+09 Слава - Sex не любовь
+10 Nelly Furtado - Big Hoops (Bigger The Better) (Radio Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 06:00:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:627B5B197CC50021CF7A593B31B751C428BB3CF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531650   (542441) от 05.08.2012
+
+VA - Главная дискотека августа (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Ева Польна - Весь мир на ладони моей
+02 Наталья Подольская Интуиция
+03 ВегаS - Слезы
+04 Юлия Савичева - Юлия
+05 Дмитрий Колдун - Ничего
+06 Николай Басков и Валерия - Сохранив любовь
+07 Алсу - Ссора
+08 Митя Фомин - Хорошая Песня
+09 Ирина Дубцова - Ешь, молись, люби
+10 Денис Любимов - Любви больше нет(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:56:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6409414CFFF3AFB3B8D94E71CF410EEBA7119828
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049839   (542255) от 06.09.2016
+
+VA - Лето в кайф. Часть 9 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542255.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rameses B Feat. Aloma Steele - Darkest Place
+002. Инь-Ян - Мурашки
+003. Zed Bias & Stylo G - Shizam
+004. Archi-M & Самира - Так Красиво(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27771A0A96306AA03BE83A21FA8469969AD0CBDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049702   (542097) от 06.09.2016
+
+VA - Популярная 100-ка Летних Хитов (2016) [MP3|256-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ariana Grande - Focus
+02. Алена Мордяхина - Ваня
+03. Thomas Lundell - Slow Dance
+04. Jay Ron - Для Тебя(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:226D358B123D0CC97DA7B06068E1FF47A3A918B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925348   (540822) от 06.08.2015
+
+VA - Maximum летний mix 50/50 (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Потап и Настя - Уди Уди
+02. Mr. Groove - I Love The Bass (Original Mix)
+03. Fontano - Moskva (Andrey Vakulenko Remix)
+04. Gorgon City - Go All Night (Feat. Jennifer Hudson)(   Читать дальше...   )Жанр: PopПродолжительность: 07:05:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C8C4C462346CEFDCB835878BDD65B01AE65E2F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1049962   (540669) от 07.09.2016
 
 VA - Лето в кайф. Часть 8 (2016) [MP3|256 Kbps] <Pop>
@@ -6,7 +163,7 @@ VA - Лето в кайф. Часть 8 (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540669.jpg" />
 </div>
 
 
@@ -35,7 +192,7 @@ VA - Осенняя Бомба Года 50х50 (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540511.jpg" />
 </div>
 
 
@@ -64,7 +221,7 @@ VA - Your Songs: The All Summertime Greatest Hits (2018) [MP3|320 Kbps] <Pop, Da
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540356.jpg" />
 </div>
 
 
@@ -93,7 +250,7 @@ VA - ЕвроХит Топ 40 Europa Plus 03.08.2018 [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540352.jpg" />
 </div>
 
 
@@ -122,7 +279,7 @@ VA - Золотой Шлягер (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540305.jpg" />
 </div>
 
 
@@ -157,7 +314,7 @@ VA - Главная дискотека августа 2 50/50 (2012) [MP3|256 к
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540169.jpg" />
 </div>
 
 
@@ -192,7 +349,7 @@ VA - Горячие хиты пляжного сезона 4 Русский (201
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538247.jpg" />
 </div>
 
 
@@ -227,7 +384,7 @@ VA - Зайцев.Нет - Лучшие Новинки Сентября (2016) [
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538077.jpg" />
 </div>
 
 
@@ -256,7 +413,7 @@ VA - Новое и Лучшее. Русский Сборник (2012) [MP3|256 �
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537965.jpg" />
 </div>
 
 
@@ -291,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536947.jpg" />
 </div>
 
 
@@ -320,7 +477,7 @@ VA - Back Where I Belong Popular Dance (2016) [MP3|320 Kbps] <Pop, Dance, Club>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536740.jpg" />
 </div>
 
 
@@ -349,7 +506,7 @@ VA - German Top 50 Party Schlager Charts 01.07.2019 (2019) [MP3|320 Kbps] <Pop, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536498.jpg" />
 </div>
 
 
@@ -378,7 +535,7 @@ VA - Ballermann Party Knueller (2022) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535702.jpg" />
 </div>
 
 
@@ -407,7 +564,7 @@ VA - Ballermann Discofox (Die besten Discofox Hits) (2022) [MP3|320 Kbps] <Pop, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535642.jpg" />
 </div>
 
 
@@ -436,7 +593,7 @@ VA - Обнимай меня. Топ новинок попмузыки (2016) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535021.jpg" />
 </div>
 
 
@@ -465,7 +622,7 @@ VA - Музыкальный Адреналин. Top Hits 2 (2016) [MP3|256 Kbps]
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535014.jpg" />
 </div>
 
 
@@ -494,7 +651,7 @@ VA - Потоки ветра. Топ новинок поп музыки (2016) [
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534917.jpg" />
 </div>
 
 
@@ -523,7 +680,7 @@ VA - Попсовый Драйв Зарубежный (2016) [MP3|256 Kbps] <Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534911.jpg" />
 </div>
 
 
@@ -552,7 +709,7 @@ VA - Улетная попсовая 100ка (2016) [MP3|192-256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534803.jpg" />
 </div>
 
 
@@ -581,7 +738,7 @@ VA - Звездный Хит - Парад. Русский Выпуск (2016) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534655.jpg" />
 </div>
 
 
@@ -610,7 +767,7 @@ VA - Танцевальная хитовая дискотека. Зарубеж�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534652.jpg" />
 </div>
 
 
@@ -624,151 +781,6 @@ VA - Танцевальная хитовая дискотека. Зарубеж�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DD15A628B7771F51BD2DB582ABED4AFC595CAFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050944   (534556) от 10.09.2016
-
-VA - Мега хиты хорошего настроения 6 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534556.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Major Lazer Feat. Justin Bieber & Mo - Cold Water
-002. Dido & Dj Mrid - Без Тебя
-003. Uppermost Feat. Jessica Gabrielle - Whisper
-004. Анжелика Пушнова - Всей Моей Нежности(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DAE5C412B761429FF52E333AF2EA081C552E479
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558251   (531872) от 20.06.2022
-
-VA - June EDC Radio: Exclusive Mixed (2022) [MP3|320 Kbps] <EDC, Dance, Club, House>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531872.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rеnе Rоdrigеzz - Thе Stоrу Abоut Lifе
-002. Lvа - Whеn In Iроh
-003. Cоаrbу - If Yоu Wаnt Mе
-004. Dоn Diаblо - Thrоugh Thе Stоrm(   Читать дальше...   )Жанр: EDC, Dance, Club, HouseПродолжительность: 11:25:10 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86DC1E0EC943AAD2ED503E7C19CAE78F49D0DCE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155831   (531674) от 04.08.2017
-
-VA - Cay Hume (K.B. Caps) Projcts (2009) [MP3|320 Kbps] <Disco Euro-Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrea Di Lazzaro - Never Leave Me 05:30
-02. K.B. Caps - Catch Me Now I'm Falling (Original 12inch Version) 06:36
-03. Amandras - Another Lover (Disco Maxi Mix) 05:30
-04. T.Ark - How Old Are You (12'' Vinyl Maxi) 06:31(   Читать дальше...   )Жанр: Disco Euro-DiscoПродолжительность: 02:02:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:123A2DC4834FE066C056FC6E4C6654973BE30B8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558257   (531642) от 20.06.2022
-
-VA - More More Disco (2022) [MP3|320 Kbps] <Disco, Dance, Remix>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531642.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Trаnsistоrсаkе - Pаri Pаri
-002. Bаrrу Bluе - Dаnсinоn A Sаturdау Night
-003. Cаrоl Dоuglаs - Night Fеvеr
-004. Clаudiо Tеmреstа - Mу Tаngо Is Hурnоtiс(   Читать дальше...   )Жанр: Disco, Dance, RemixПродолжительность: 11:24:59 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:197B42EFE279A5CCA1E9B9D98111E2D04D7AB97D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155825   (531458) от 04.08.2017
-
-K.B. Caps - Dancing In The Dark (1986) [MP3|320 Kbps] <Disco Euro-Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dont You Know (03:55)
-02. Angel Of The Dreamland (03:59)
-03. Dancing In The Dark (05:22)
-04. Catch Me Now Im Falling (06:33)(   Читать дальше...   )Жанр: Disco Euro-DiscoПродолжительность: 01:04:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCF3DCEAE287BA99B89884AB45B0AA4DFA13246F
 ```
 
 https://mybot314.ru/tekegram_catalog/

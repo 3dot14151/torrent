@@ -1,32 +1,3 @@
-###  Публикация: 1289309   (678233) от 20.03.2019
-
-N'Sync - Star Collection (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <RnB, Synth-pop, Hip Hop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678233.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Bye Bye Bye
-02. Here We Go
-03. Crazy For You(   Читать дальше...   )Жанр: RnB, Synth-pop, Hip HopПродолжительность: 01:11:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:057AA7BA1444A9D075D2CE7CA0B8301ED5C5D489
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 797168   (677622) от 18.06.2014
 
 Stevie Wonder - Солнце моей жизни (1988) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Jazz-Funk, Soul, Funk>
@@ -35,7 +6,7 @@ Stevie Wonder - Солнце моей жизни (1988) [FLAC 2.0 24/192|traks(V
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677622.jpg" />
 </div>
 
 
@@ -70,7 +41,7 @@ Electric Light Orchestra - A New World Record (1976)  [FLAC 2.0 24/192|image (Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677546.jpg" />
 </div>
 
 
@@ -99,7 +70,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676600.jpg" />
 </div>
 
 
@@ -128,7 +99,7 @@ Paul McCartney - Pipes Of Peace (1983) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <S
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676576.jpg" />
 </div>
 
 
@@ -157,7 +128,7 @@ https://mybot314.ru/tekegram_catalog/
 >>DVD-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675708.jpg" />
 </div>
 
 
@@ -186,7 +157,7 @@ Slade - Slade In Flame (1974) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Glam Rock/Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673980.jpg" />
 </div>
 
 
@@ -212,7 +183,7 @@ Red Hot Chili Peppers - The Getaway (2016) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Al
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673808.jpg" />
 </div>
 
 
@@ -241,7 +212,7 @@ Dire Straits - Communiqué (1978) SHM-SACD [DSD 2.0 1bit/2822,4kHz |SACD-R]<rock
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673772.jpg" />
 </div>
 
 
@@ -276,7 +247,7 @@ Scorpions - Virgin Killer (1976) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672215.jpg" />
 </div>
 
 
@@ -311,7 +282,7 @@ VA - Dance Hits Collection (2001) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Disco, Eur
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672115.jpg" />
 </div>
 
 
@@ -340,7 +311,7 @@ Isao Tomita - Okhotsk Fantasy (2016)  [DTS 4.0 CD-DA|44.1/16|image+cue|SACD] <El
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_671966.jpg" />
 </div>
 
 
@@ -369,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>DVD-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_671828.jpg" />
 </div>
 
 
@@ -398,7 +369,7 @@ Jean-Michel Jarre - Oxygene (1976) [PPCM 5.1|96/24|VinylRip] [upmix] <Electronic
 >>DVD-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_671730.jpg" />
 </div>
 
 
@@ -427,7 +398,7 @@ Mike Oldfield - Five Miles Out (Deluxe Edition) (2013) 1982 [DTS 5.1 CD-DA|44.1/
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671210.jpg" />
 </div>
 
 
@@ -456,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671197.jpg" />
 </div>
 
 
@@ -485,7 +456,7 @@ Oscar - Oscar (1974) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Pop Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669316.jpg" />
 </div>
 
 
@@ -514,7 +485,7 @@ Wes Montgomery - A Day In The Life (1967) 1984 [FLAC 2.0|192/24|image+.cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669264.jpg" />
 </div>
 
 
@@ -543,7 +514,7 @@ Stray - This Is Stray (1971) renamed album Saturday Morning Pictures, 1976 [FLAC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667841.jpg" />
 </div>
 
 
@@ -572,7 +543,7 @@ VA (Юрий Антонов, Сергей Беликов, Ольга Заруб�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665359.jpg" />
 </div>
 
 
@@ -601,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665297.jpg" />
 </div>
 
 
@@ -630,7 +601,7 @@ Orchestra ''Electrecord'' (Romania) - Muzica De Dans: Twist and Swing (1966) [FL
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664319.jpg" />
 </div>
 
 
@@ -659,7 +630,7 @@ Mylene Farmer - Vinyl Discography 9LP (2009) [FLAC 2.0 24/96|image+cue (Vinyl ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663315.jpg" />
 </div>
 
 
@@ -685,7 +656,7 @@ KISS - I Was Made For Lovin' You (1979) Single [FLAC 2.0|96/24|tracks|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663044.jpg" />
 </div>
 
 
@@ -712,7 +683,7 @@ ForSenses II - Timber Lounge... (2011) [DTS-ES  6.1 44.1/24|*.bin+*.cue (Blu-ray
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_661155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_661155.jpg" />
 </div>
 
 
@@ -738,7 +709,7 @@ Genesis - We Can't Dance (1991) 2LP [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659994.jpg" />
 </div>
 
 
@@ -752,6 +723,35 @@ B1. I Can't Dance (4:01)(   Читать дальше...   )Производст
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15B139C8604B69CE3CE80DEBDEFD65D86DC6BE4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 342078   (659069) от 27.05.2011
+
+BluScenes: Gallery Moderna (2010) [DTS-ES 6.1 44.1/24|image+.cue (Blu-ray)] <Lounge, Relax>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_659069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Scene 01  17:30
+02.  Scene 02  14:59
+03.  Scene 03  15:01
+04.  Scene 04  15:00(   Читать дальше...   )Жанр: RelaxПродолжительность: 01:02:32
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

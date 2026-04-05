@@ -6,7 +6,7 @@ Resident Evil 2 / Biohazard RE:2 (2019) [Ru/Multi] (11636119/dlc) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61370.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Resident Evil 2 / Biohazard RE:2 (2019) [Ru/Multi] (11636119/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61340.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ The Callisto Protocol (2022) [Ru/Multi] (13179062/dlc) Repack FitGirl [Digital D
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61242.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ The Callisto Protocol (2022) [Ru/Multi] (13179062/dlc) Repack DODI [Digital Delu
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61031.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Aron's Adventure (2021) [Multi] (1.05) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58916.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Aron's Adventure (2021) [En] (1.05) Scene CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58873.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Remnant II (2023) [Ru/Multi] (417.127/dlc) Scene FairLight
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58509.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Remnant: From the Ashes (2019) [Ru/Multi] (275.957/dlc) Scene CODEX [Complete Ed
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58113.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Deadpool (2013) [Ru/En] (1.0/dlc) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58087.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Aliens: Fireteam Elite (2021) [Ru/Multi] (1.0.5.114949/dlc) Repack Decepticon
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57575.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Red Dead Redemption II (2) (2019) [Ru/Multi] (1491.50/dlc) Scene Razor1911 [Ulti
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57055.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Ghost of Tsushima (2024) [Ru/Multi] (14380324/dlc) Scene Rune [Director's Cut]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56087.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Ghost of Tsushima (2024) [Ru/Multi] (1053.0.0515.2048/dlc) Repack FitGirl [Direc
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56006.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Morbid: The Lords of Ire (2024) [Ru/Multi] (1.0) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55994.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Morbid: The Lords of Ire (2024) [Ru/Multi] (1.0) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55683.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Ghost of Tsushima (2024) [Ru/Multi] (1053.0.0515.2048/dlc) Repack seleZen [Direc
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55672.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Night of the Dead (2020) [Ru/Multi] (1.0/dlc) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54754.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Night of the Dead (2020) [Ru/Multi] (1.0.0.15/dlc) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54441.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Morbid: The Lords of Ire (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54416.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Die by the Blade (2024) [Multi] (1.0.2) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54409.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ ALTF42 (2023) [Multi] (2.0.1) Scene Tenoke
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53985.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ FUBG: FIGHT UNKNOWN BATTLEGROUND (2024) [En] (1.0) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53972.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ ALTF42 (2023) [Multi] (2.0.1) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53967.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Star Wars™: The Force Unleashed (2009) [Ru/Multi] (1.2) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53898.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Hellblade: Senua's Sacrifice (2017) [Ru/Multi] (1.03.1.202112071122) Repack dixe
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53895.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Watch Dogs (2014) [Ru/En] (1.06.329/dlc) Repack dixen18 [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53882.jpg" />
 </div>
 
 

@@ -1,139 +1,3 @@
-###  Публикация: 1137710   (666826) от 27.05.2017
-
-А. Бебель | Крестьянские войны в Германии (1923) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предисловие:
-
-Это сочинение не имеет притязания быть научным исследованием; для этого, в том месте, где оно возникло, у меня не было никаких средств.
-(   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A060D944D205D6DA4EFE1E65FF6E33719FAB2A08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137587   (666787) от 27.05.2017
-
-К. Попов, Я. Резвушкин | О перерастании буржуазно-демократической революции в социалистическую (1929) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666787.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предисловие:
-
-Вопрос, которому посвящена работа т. Резвушкина, отнюдь не академический вопрос. Актуальный в прошлом для нашей страны, он остается столь же актуальным и теперь для развивающийся на наших глазах мировой пролетарской революции. Программа Коминтерна не только не обходит его, но и подчеркивает его значение. Говоря о трех основных типах «условий и путей», (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9E86D40BCB3A569D9EA17D1A26DF48F5AB1D193
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137612   (666714) от 27.05.2017
-
-В.В. Золотарёв и др. | Многопороговые декодеры и оптимизационная теория кодирования (2012) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666714.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изложены основные принципы современной оптимизационной теории помехоустойчивого кодирования и следующие из нее алгоритмы многопорогового декодирования (МПД). Эти итеративные алгоритмы при каждом изменении корректируемых ими символов всегда находят строго более правдоподобные решения.
-Рассмотрены возможности открытых авторами символьных кодов и соответствующих им (   Читать дальше...   )Жанр: СвязьФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9400022D9CADEF6360A684990BDED01F82F6161E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 900779   (666674) от 23.05.2015
-
-Альбом | Иллюстрированная Отечественная война 1812 года (1887) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбом с  12 – ю  фотогравюрами  с картин П. Гесса, находящихся в Императорском Зимнем дворце, с пояснительными текстами. Альбом выпущен в честь 75 – й  годовщины  Отечественной войны 1812 года.Жанр: Исторический альбомФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43A0C58AFD82B1CDEE95678C959E0FF31F2FA5A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137634   (666667) от 27.05.2017
-
-С.Г. Рихтер | Кодирование и передача речи в цифровых системах (2011) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Систематизированы сведения в области преобразования и обработки информации в системах связи с подвижными объектами, причем основное внимание сосредоточено на речевых сигналах. Изучаются процедуры преобразования и обработки информации, осуществляемые в основном в абонентском терминале - ключевом элементе любой системы связи с подвижными объектами. Последовательно (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E36660A9981DEA39F6CD07C0CEFDD467FBBD49A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1137709   (666658) от 27.05.2017
 
 С.Е. Банков | Электромагнитные кристаллы (2010) [PDF]
@@ -142,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666658.jpg" />
 </div>
 
 
@@ -169,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666651.jpg" />
 </div>
 
 
@@ -195,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666244.jpg" />
 </div>
 
 
@@ -221,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666140.jpg" />
 </div>
 
 
@@ -247,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666058.jpg" />
 </div>
 
 
@@ -274,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666003.jpg" />
 </div>
 
 
@@ -302,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665941.jpg" />
 </div>
 
 
@@ -328,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665886.jpg" />
 </div>
 
 
@@ -356,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665879.jpg" />
 </div>
 
 
@@ -382,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665845.jpg" />
 </div>
 
 
@@ -408,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665832.jpg" />
 </div>
 
 
@@ -434,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665804.jpg" />
 </div>
 
 
@@ -460,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665654.jpg" />
 </div>
 
 
@@ -486,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665430.jpg" />
 </div>
 
 
@@ -512,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665426.jpg" />
 </div>
 
 
@@ -538,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665371.jpg" />
 </div>
 
 
@@ -564,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665364.jpg" />
 </div>
 
 
@@ -590,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665330.jpg" />
 </div>
 
 
@@ -616,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665312.jpg" />
 </div>
 
 
@@ -643,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665311.jpg" />
 </div>
 
 
@@ -669,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665309.jpg" />
 </div>
 
 
@@ -681,6 +545,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77A96A9576F1407CBDB7947AD8A2799FDC1D90B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138191   (665308) от 28.05.2017
+
+Михаил Барятинский | Броня СССР. Все советские танки (2014) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самая полная и авторитетная энциклопедия советских танков – с 1919 года и до наших дней! От легких и средних до плавающих и тяжелых, от опытных боевых машин, построенных еще в годы Гражданской войны, до легендарной «тридцатьчетверки» и от танков прорыва «Иосиф Сталин» до грозных Т-80 и Т-90, состоящих на вооружений Российской армии в наши дни, – эта энциклопедия (   Читать дальше...   )Жанр: Военная техника. ТанкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBD7989ED16314F7964BBA1CBC41F51DF369A7B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138119   (665307) от 28.05.2017
+
+В.Я. Гальченко, Р.В. Трембовецкая | Линейные задачи оптимизации. MathCAD - практикум (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665307.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии изложены конспективно основные теоретические положения и в расширенном виде практический материал по решению задач линейного программирования. Существенное внимание уделено компьютерной реализации рассматриваемых методов в среде универсального математического пакета MathCAD, содержатся комплекты заданий для самостоятельной работы и большое количество примеров, (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5A0C702718D4BA70C01D4F0D8EC778E759B8C18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138223   (665302) от 28.05.2017
+
+Д.Е. Бугай и др. | Коррозионно-стойкие материалы (2012) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник предназначен для ознакомления студентов технических специальностей с классификацией основных коррозионно-стойких материалов, изучения их структуры и физико-механических свойств, а также способов повышения коррозионной стойкости путем изменения химического состава, термической обработки, химико-термической обработки и других внешних воздействий. Подробно рассматриваются (   Читать дальше...   )Жанр: МатериаловедениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8E40102C66E8FE0ACF91B5769B0F26ED5B90242
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137911   (665252) от 28.05.2017
+
+Д.Ж. Сакалема | Подвижная радиосвязь (2012) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665252.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены принципы построения классификация и основные характеристики систем подвижной радиосвязи. Систематизированы обширные сведения об особенностях организации радиосвязи с подвижными объектами и передачи массовых сообщений, в том числе об особенностях построения, функционирования и проектирования сотовых сетей с кодовым разделением каналов. Изложены принципы (   Читать дальше...   )Жанр: РадиосвязьФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04D9E6E72BF41204E4B9CD85C73131CE9CE4A312
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138016   (665251) от 28.05.2017
+
+Ю.Е. Лившиц и др. | Программируемые логические контроллеры для управления технологическими процессами [в 2-х частях] (2014) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665251.jpg" />
+</div>
+
+
+###  Подробнее
+
+В первой части учебно-методического пособия рассмотрены структура, основные характеристики программируемых логических контроллеров (ПЛК). Показаны возможности конфигурации системы управления на базе ПЛК Mitsubishi серии MELSEC FX0S, FX2N
+Приведена классификация языков программирования ПЛК по стандарту МЭК 1131-3 и основные правила составления программ на языке релейно-контактных (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FEC4DEE657AB25F6022980C11666E152FB06EED
 ```
 
 https://mybot314.ru/tekegram_catalog/

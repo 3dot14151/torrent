@@ -1,3 +1,109 @@
+###  Публикация: 1417271   (359976) от 19.10.2020
+
+Ворчун / Il Burbero (1986) BDRip [H.265/1080p] [10-bit]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Адвокат Тито Торризи летит во Флоренцию, чтобы отвлечься от неудачных дел. Он продает свой лишний билет официантке Мэри, не подозревая, к чему приведет его доброта.Производство: Италия / C.G. Silver Film, AlexandraЖанр: КомедияРежиссер: Франко Кастеллано, Джузеппе МоччиаАктеры: Адриано Челентано, Дебра Фэйер, Жан Сорель, Маттиа Сбража, Анджела Финоккьяро, Пеппе Ланцетта, Перси ХоганПеревод: Двуголосый профессиональный, авторский, многоголосый (UKR)Язык озвучки: Русский, украинский, итальянскийСубтитры: Русские, итальянскиеПродолжительность: 01:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:892DCD53CA27B72E482947FDAAE1E5A9247338DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577204   (359548) от 18.11.2012
+
+Путь Карлито / Carlito's Way (1993) [1080p] BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_359548.jpg" />
+</div>
+
+
+###  Подробнее
+
+70-е годы. Крупный наркоделец Карлито Бриганте вышел из тюрьмы, где отбыл пять лет. Теперь, возвращаясь в испанский квартал Нью-Йорка к любимой женщине, он хочет все бросить и начать честную жизнь. Однако криминальное прошлое и просьба близкого друга, адвоката Клейнфилда, ввязавшегося в опасную авантюру, неудержимо тянут Карлито в пучину гибели…Жанр: Триллер, Драма, КриминалРежиссер: Брайан Де Пальма / Brian De PalmaАктеры: Аль Пачино, Шон Пенн, Пенелопа Энн Миллер, Джон Легуизамо, Ингрид Роджерс, Луис Гузман, Джеймс Ребхорн, Джозеф Сираво, Вигго Мортенсен, Ричард Фороньи, Jorge Porcel, Frank Minucci, Адриан Пасдар, Джон Ортиз, Анхель Салазар, Аль Израэль, Рик АвилесПеревод: • Профессиональный (многоголосый, закадровый)
+• Профессиональный (двухголосый, закадровый)
+• Авторский (одноголосый закадровый)Язык субтитров: Русский, английскийФормат: MKVПродолжительность: 02:24:10
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 254638   (359145) от 06.11.2010
+
+В джазе только девушки / Some Like It Hot (1959) HDTV [1080i]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда чикагские музыканты Джо и Джерри случайно становятся свидетелями бандитской перестрелки, они в срочном порядке смываются на поезде во Флориду, прикинувшись женщинами. Теперь они — Джозефина и Дафна, новенькие и хорошенькие инструменталистки женского джаз — банда.  До поры до времени их маскировка срабатывает. Но вскоре любвеобильная солистка «западает» на переодетую мужчиной Джозефину, престарелый плейбой влюбляется в Дафну, а босс мафии, разгадав тайну маскарада, решает срочно разделаться со свидетелямиЖанр: комедия, мелодрама, приключения, музыкаРежиссер: Билли УайлдерВ ролях: Мэрилин Монро, Тони Кертис, Джек Леммон, Джордж Рафт, Пэт О’Брайен, Джо Е. Браун, Нехемия Персофф, Джоан Шоули, Билли Грэй, Джордж Е. Стоун. Дэйв Барри.....Перевод: Профессиональный (полное дублирование), полная версияФормат: TSПродолжительность: 02:01:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BC1BAFE421AA203BAEB422CAE32DCA0DE6D8F15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255250   (358570) от 20.10.2018
+
+Челюсти / Jaws (1975) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация одноимённого произведения Питера Бенчли. Действие картины протекает в течение пяти дней — на острове Э́мити, где расположен небольшой курортный городок. В этом тихом и солнечном месте произошли ужасные трагические события, начало которым было положено ранним утром, когда шеф местной полиции Мартин Броуди и его помощник находят на берегу остатки тела (   Читать дальше...   )Производство: США / Universal Pictures, Zanuck/Brown ProductionsЖанр: Триллер, Ужасы, ПриключенияРежиссер: Стивен СпилбергАктеры: Рой Шайдер, Роберт Шоу, Ричард Дрейфусс, Лоррэйн Гари, Мюррэй Хэмилтон, Карл Готтлиб, Джефри Крамер, Сьюзэн Бэклайни, Джонатан Филли, Тед ГроссманПеревод: Профессиональный (многоголосый, закадровый), авторский (одноголосый, закадровый)Субтитры: русские, английскиеПродолжительность: 02:04:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A3018AF7CAAB0A2DC7F96E6292226A782956088
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950968   (357824) от 31.10.2015
 
 Лодка «Счастливая леди» / Lucky Lady (1975) HDTV [H.264/1080i]
@@ -6,7 +112,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357824.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357639.jpg" />
 </div>
 
 
@@ -59,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357540.jpg" />
 </div>
 
 
@@ -85,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357140.jpg" />
 </div>
 
 
@@ -111,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356601.jpg" />
 </div>
 
 
@@ -137,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356075.jpg" />
 </div>
 
 
@@ -163,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355969.jpg" />
 </div>
 
 
@@ -190,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355352.jpg" />
 </div>
 
 
@@ -216,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355228.jpg" />
 </div>
 
 
@@ -243,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355042.jpg" />
 </div>
 
 
@@ -269,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353163.jpg" />
 </div>
 
 
@@ -296,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352863.jpg" />
 </div>
 
 
@@ -322,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352780.jpg" />
 </div>
 
 
@@ -349,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352464.jpg" />
 </div>
 
 
@@ -375,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352052.jpg" />
 </div>
 
 
@@ -401,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352002.jpg" />
 </div>
 
 
@@ -428,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351881.jpg" />
 </div>
 
 
@@ -455,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351828.jpg" />
 </div>
 
 
@@ -481,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351652.jpg" />
 </div>
 
 
@@ -508,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351648.jpg" />
 </div>
 
 
@@ -535,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350093.jpg" />
 </div>
 
 
@@ -562,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349545.jpg" />
 </div>
 
 
@@ -574,110 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72919CA27089404A30FA235F447FE1CE237A4343
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068076   (349369) от 14.11.2016
-
-Александр Великий / Alexander the Great (1956) HDTV [H.264/720p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349369.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эпический фильм, рассказывающий о жизни Александра Македонского, который объединил все древние греческие племена и направил их против огромной персидской Империи. Александр завоевал большую часть известного в те времена мира и создал греческую империю, которая охватывала пространство от Балкан до Индии.Производство: США, Испания. Кинокомпания: C.B. Films S.A., Rossen FilmsЖанр: Драма, Военный, Исторический, БиографияРежиссер: Роберт РоссенАктеры: Ричард Бертон, Фредрик Марч, Клер Блум, Даниэль Даррье, Бэрри Джонс, Гарри Эндрюс, Стенли Бейкер, Ниалл МакГиннис, Питер Кашинг, Майкл Хордерн, Мариса Де Леза, Густаво Рохо, Рубен Рожо, Питер Уингард, Хельмут Дантин, Уильям Скуайр, Фридрих фон Ледебур, Виржилиу Тейшейра, Тереза Дел Рио, Хулио Пенья, Хосе Ньето, Карлос Баэна, Ларри Тейлор и др.Перевод: Многоголосый закадровый, Двухголосый закадровыйПродолжительность: 02:10:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:092E3395643A0E8349E79F7DD83F2A34F20B7FB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418507   (348802) от 24.10.2020
-
-Суп из капусты / La soupe aux choux (1981) BDRip [H.265/1080p] [10-bit]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два старика - Клод Ратинье по прозвищу «Дохлый» и Франк Черазе по кличке «Горбатый» уже век как живут в заброшенной деревеньке, только и делая, что ежедневно и ежечасно накатывая по рюмочке своей любимой настойки, наслаждаясь окрыляющей свободой и довольствуясь своей безмятежной старческой жизнью. Но в один прекрасный вечер эти двое неразлучных друзей кладут конец (   Читать дальше...   )Производство: Франция / Films A2, Les Films Christian FechnerЖанр: Фантастика, комедияРежиссер: Жан ЖироАктеры: Луи де Фюнес, Жан Карме, Жак Вильре, Клоди Жансак, Анри Жене, Марко Перрен, Кристин Дежу, Гаэлль Легран, Катрин Охотникоф, Филипп РужиериПеревод: Многоголосый профессиональный, двухголосый (UKR)Язык озвучки: Русский, украинский, французскийСубтитры: Французские, английскиеПродолжительность: 01:42:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F7D271319D0874FFE6A71E964DB407296160819
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951079   (348409) от 04.11.2015
-
-Казино Рояль / Casino Royale (1967) BDRip [H.264/720p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Единственная комедия бондианы, поставленная по одноименному роману Яна Флеминга. Могущественная тайная организация уничтожила всех агентов британской разведки. У королевской разведки единственный выход — обратиться за помощью к ушедшему на покой после гибели любимой девушки Джеймсу Бонду, легендарному агенту 007, обладающему лицензией на убийство…Производство: Великобритания, США / Columbia Pictures Corporation, Famous Artists ProductionsЖанр: КомедияРежиссер: Кен Хьюз, Джон Хьюстон, Джозеф МакГратАктеры: Питер Селлерс, Урсула Андресс, Дэвид Нивен, Орсон Уэллс, Джоанна Петтет, Далия Лави, Вуди Аллен, Дебора Керр, Уильям Холден, Шарль Буайе, Джон Хьюстон, Жан-Поль Бельмондо, Курт Казнар, Джордж Рафт, Теренс Купер, Барбара Буше, Жаклин БиссетПеревод: Многоголосый закадровый, авторскийЯзык субтитров: Русский, английскийПродолжительность: 02:11:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CC076CA4A349C3F0BD52D701A1FD1FEAFA4F0C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415523   (348249) от 24.10.2020
-
-Назад в Будущее / Back to the Future (1985) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
-
->>След.
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348249.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подросток Марти с помощью машины времени, сооружённой его другом-профессором доком Брауном, попадает из 80-х в далекие 50-е. Там он встречается со своими будущими родителями, ещё подростками, и другом-профессором, совсем молодым.Производство: США / Amblin Entertainment, U-Drive Productions, Universal PicturesЖанр: Фантастика, комедия, приключенияРежиссер: Роберт ЗемекисАктеры: Майкл Дж. Фокс, Кристофер Ллойд, Лиа Томпсон, Криспин Гловер, Томас Ф. Уилсон, Клаудия Уэллс, Марк МакКлюр, Уэнди Джо Спербер, Джордж ДиЧенцо, Фрэнсис Ли МакКейнПеревод: Дублированный, Авторский, Двуголосый профессиональный, Многоголосый профессиональныйСубтитры: Русские (Full), Английские (Full)Продолжительность: 01:56:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9532593D246F49EC00BC79C031DEBBB64DC311B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

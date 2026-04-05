@@ -6,7 +6,7 @@ CleanMyMac 3.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586150.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ MAMP & MAMP PRO 3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585685.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ HandsFree 2.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585679.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ PhoneClean Pro 3.7.0 (20150710) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585677.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Balsamiq Mockups For Desktop 3.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585594.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ HazeOver 1.7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585530.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Tower 2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585529.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Swinsian 1.12 (290) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585528.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ MindNode 2.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585469.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Ulysses 2.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585461.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ HoudahGeo 5.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585439.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ MindNode 2.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584774.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Downie 2.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584666.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Nik Software Complete Collection by Google 1.2.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584593.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Synalyze It! Pro 1.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584466.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584382.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ SnippetsLab 1.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584028.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ ExpanDrive 5.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584019.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ This War of Mine [iOS 7.0+] [Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583621.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583619.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ KeyFlow Pro 1.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583455.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Cardhop 1.2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583383.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ FSNotes 3 v3.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583340.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ HoudahSpot 4 v4.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583336.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Quiver: The Programmer's Notebook 3.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583325.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ PaintCode 3 v3.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583272.jpg" />
 </div>
 
 

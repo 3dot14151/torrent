@@ -6,7 +6,7 @@ Eminem - Best of Eminem (2017) [MP3|192-320 Kbps] <Rap, R&B, Hip-Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891867.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ ATL - Потреблять (2018) Неизданный и слитый альб�
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888419.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Know What I Want: R&B Collection (2020) [MP3|320 Kbps] <R&B, Soul>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882052.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Bob Marley - 100% Bob Marley (2020) [MP3|320 Kbps] <Reggae>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876429.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Hip Hop Caramel (2021) [MP3|320 Kbps] <Hip-Hop, Rap>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873012.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - RnB: Music Is My Life (2021) [MP3|320 Kbps] <Rnb, Soul, Funk>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872855.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Beatport Bassline: Electro Sound Pack #50 (2020) [MP3|320 Kbps] <D&B, Bassl
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872835.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868725.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Go Your Way: City R&B Lyric (2020) [MP3|320 Kbps] <R&B, Soul>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865618.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Reggae Vibes (2020) [MP3|320 Kbps] <Reggae>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863602.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Reggae On The Roof (2020) [MP3|320 Kbps] <Reggae, Dancehall, Riddim>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858914.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Perfect Riddim: April Reggae Party (2020) [MP3|320 Kbps] <Reggae, Dancehall
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850082.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848663.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Beach Chilled Reggae (2017) [MP3|320 Kbps] <Reggae, Lyric, Chilled>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848359.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Alicia Keys - Mp3 Play (2014) [MP3|320 Kbps] <Pop, R&B, Soul>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848358.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Noize MC - Квартирник у Маргулиса (2016) [MP3|256 Kbps] <Rap
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848278.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Rihanna - MP3 Play (2014) [MP3|320 Kbps] <RnB, Reggae>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846480.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Tropical Fantasy Reggae Mix April (2016) [MP3|320 кб/с] <Reggae, Jungle>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841378.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Dancehall Fresh Sounds (2020) [MP3|320 Kbps] <Dancehall, Reggaeton, Latin H
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839442.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837925.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Reggae On The Roof Vol.11 (2020) [MP3|320 Kbps] <Reggae, Dancehall, Regaeto
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835050.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Worldwide Rap Singles - Март 2020 (2020) [MP3|263-320 Kbps] <Rap, Hip-H
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832952.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Personification: Rnb Show Music (2020) [MP3|320 Kbps] <R&B, Soul>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831455.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Rap Inspiration: Music For Everyone (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821230.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Rap Ballads: Experimental Hip-Hop and Jazz Rap (2016) [MP3|320 кб/с] <Ra
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819167.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - Best Funk Of All Time (2020) [MP3|320 Kbps] <R&B, Soul & Funk>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815438.jpg" />
 </div>
 
 

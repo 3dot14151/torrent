@@ -1,3 +1,30 @@
+###  Публикация: 1185061   (297042) от 19.11.2017
+
+Лиззи Остром | Парфюм. История ароматов XX века (2017) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297042.jpg" />
+</div>
+
+
+###  Подробнее
+
+У каждой эпохи – свой аромат. Так считает автор этой книги, знаменитый парфюмерный эксперт Лиззи Остром, и рассказывает историю XX века через историю парфюма.
+Перед вами промелькнут «прекрасная эпоха» начала века, ревущие двадцатые, грозные тридцатые, непокорные сороковые, элегантные пятидесятые, свингующие шестидесятые, сверкающие семидесятые, эгоистичные восьмидесятые, (   Читать дальше...   )Жанр: Мода и стиль, ПублицистикаФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D89F2CFEAAE06A0D13B4BC8FC41806BD01A855C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1185054   (297038) от 19.11.2017
 
 Джошуа Купер Рамо | Седьмое чувство. Под знаком предсказуемости: как прогнозировать и управлять изменениями в цифровую эпоху (2017) [FB2, EPUB]
@@ -6,7 +33,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297038.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295062.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295021.jpg" />
 </div>
 
 
@@ -87,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294899.jpg" />
 </div>
 
 
@@ -113,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294889.jpg" />
 </div>
 
 
@@ -139,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294814.jpg" />
 </div>
 
 
@@ -166,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294013.jpg" />
 </div>
 
 
@@ -194,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294001.jpg" />
 </div>
 
 
@@ -220,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293502.jpg" />
 </div>
 
 
@@ -246,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293494.jpg" />
 </div>
 
 
@@ -272,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293357.jpg" />
 </div>
 
 
@@ -298,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293337.jpg" />
 </div>
 
 
@@ -324,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291380.jpg" />
 </div>
 
 
@@ -350,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291160.jpg" />
 </div>
 
 
@@ -377,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290237.jpg" />
 </div>
 
 
@@ -404,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290021.jpg" />
 </div>
 
 
@@ -432,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289926.jpg" />
 </div>
 
 
@@ -460,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289743.jpg" />
 </div>
 
 
@@ -486,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289487.jpg" />
 </div>
 
 
@@ -512,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289058.jpg" />
 </div>
 
 
@@ -538,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288275.jpg" />
 </div>
 
 
@@ -564,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288256.jpg" />
 </div>
 
 
@@ -590,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288242.jpg" />
 </div>
 
 
@@ -616,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287587.jpg" />
 </div>
 
 
@@ -645,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286448.jpg" />
 </div>
 
 
@@ -658,32 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E0AC7119BF7E83493C3D122B3A4B44FD3830ED5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335561   (286342) от 03.11.2019
-
-В. А. Горохов | I Интернационал и русский социализм (1925) [DJVU, PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286342.jpg" />
-</div>
-
-
-###  Подробнее
-
-В конце 60-х и в начале 70-х годов в Швейцарских кружках русской эмиграции и учащейся молодежи подводился итог социалистическим движениям 60-х годов и залагались основы нового социально-революционного движения. Как ни малочисленны были эти кружки, сколько ни примешивались к идейным разногласиям фракций личные столкновения, мы не можем отказать теоретической работе (   Читать дальше...   )Жанр: История, политология, публицистикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30B7A4AA8589661B03B008E1D19AE88D9F7D42D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

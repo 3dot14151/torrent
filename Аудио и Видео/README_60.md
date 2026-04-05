@@ -6,7 +6,7 @@
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800926.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800793.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800789.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800776.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800624.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800598.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800440.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800298.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Chrizz Morisson - Magic Worlds: Summer Remix Edition (2018) [AAC|~325 Kbps] <Dan
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800267.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ VA - Toxic Lounge Tunes, Vol. 5 (2013) [AAC|~331 Kbps] <Downtempo, Lounge, Chill
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800266.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Chrizz Morisson - Magic Worlds (2021) [AAC|~326 Kbps] <Dance, House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800265.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Chrizz Morisson - Universe (2021) [AAC|~330 Kbps] <Dance, House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800264.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800259.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ VA - Toxic Lounge Tunes, Vol. 4 (2013) [AAC|~326 Kbps] <Downtempo, Lounge, Chill
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800251.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ VA - Toxic Lounge Tunes, Vol. 2 (2011) [AAC|~325 Kbps] <Downtempo, Lounge, Chill
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800244.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800219.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800214.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ VA - Toxic Lounge Tunes (2009) [AAC|~313 Kbps] <Downtempo, Lounge, Chill Out>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800189.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ VA - Toxic Lounge Tunes, Vol. 3 (2012) [AAC|~325 Kbps] <Downtempo, Lounge, Chill
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800172.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800126.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800119.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799733.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799732.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799613.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ VA - Eight Years Eisenwaren (2021) [AAC|~308 Kbps] <House, Techno>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799568.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ Marco Bedini - Bufalo Essentials, vol. 2 (2021) [AAC|~339 Kbps] <House, Techno>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799567.jpg" />
 </div>
 
 

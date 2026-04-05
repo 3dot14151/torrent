@@ -1,3 +1,61 @@
+###  Публикация: 1202884   (789096) от 31.01.2018
+
+VA - Best Of The Best Suanda Vol 4 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer, Roxanne Emery -Lullaby (Original Mix)
+02. LTN -Maldives (Original Mix)
+03. Armos, Lucid Blue, Ruslan Radriges -Call Of The Wild (Ruslan Radriges Radio Edit)
+04. Frainbreeze -Back To The Future (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:13:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B098BD1620907F116F3CF8F489765DBF514D2945
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202881   (789095) от 31.01.2018
+
+Secret Pyramid - Two Shadows Collide (2017) Ba Da Bing! [FLAC|Lossless|WEB-DL|tracks] <Ambient, Modern Classical, Drone>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Touch (05:04)
+02. Two Shadows (05:31)
+03. Lost (02:14)
+04. A Dream On Third (08:27)(   Читать дальше...   )Жанр: Ambient, Modern Classical, DroneПродолжительность: 00:39:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50FFE700564E5FCDE31B780B8AE67D156C60E2EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203061   (789083) от 31.01.2018
 
 Rameses B - Spacewalk (2018) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Drum & Bass, Ambient>
@@ -6,7 +64,7 @@ Rameses B - Spacewalk (2018) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Drum & Bas
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789083.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Restricted Dance Reloaded (2019) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789074.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Svårmod Records (Svarmod Records) - Label 2 Releases (2017) [FLAC|Lossless|WEB-
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789064.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Cafe del Mar Chilled (Mixed) (2018) [MP3|320 Kbps] <Downtempo, Lounge, Chil
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789057.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Anima Infinity - With Eyes Closed (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient,
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789055.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Dance Mix Vol.2 (2019) [MP3|320 Kbps] <House, Dance, Electro>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789051.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Solamah Cille-Free Dance Vol.1 (2019) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789050.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Dance Mix Vol 3 (2019) [MP3|320 Kbps] <House, Dance, Electro>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789049.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Dance Mix Vol.1 (2019) [MP3|320 Kbps] <House, Deep House, Progressive House
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789048.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Ross From Friends - Family Portrait (2018) [FLAC|Lossless|WEB-DL|tracks] <House,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789043.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Mama Thresl, Vol.1: Urban Soul meets the Alps (2018) [FLAC|Lossless|WEB-DL|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789039.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Tor - Blue Book (2016) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Trip Hop, Chill
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789030.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Cj Rcm - Vol.1 Legends Of Chillout Music (2018) [MP3|320 Kbps] <Downtempo, Chill
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789025.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Rational Youth - 5 Studio Albums (1982-2013) [MP3|320 Kbps] <Electronic, Synth-p
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788950.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ I:Scintilla / I-Scintilla - 18 Releases (2004-2018) [MP3|320 Kbps] <Industrial, 
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788821.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Psichi (Matsuri Digital Chill) (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788680.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Progressive Dream Escape (2018) [MP3|320 Kbps] <Progressive House, Trance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788679.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Dream Mood Energy (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788676.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Lostly - Outburst presents Spotlight (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788669.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Deep House | Odyssey, Vol. 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788668.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Chai Cafe (Early Morning Music For Awakening & Relaxation) (2018) [MP3|320 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788664.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Aurora Borealis Chillout 1 (2018) [MP3|320 Kbps] <Chillout, Instrumental, A
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788663.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Aly & Fila - Future Sound of Egypt 533 (2018) [MP3|320 Kbps] <Trance,Uplift
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788657.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Sick Music 2018 [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788634.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Sick Music 2018 [MP3|320 Kbps] <Drum & Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2A6E46C2EA31050C5688234DB24D40F3BB0271E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203246   (788608) от 01.02.2018
-
-Krama - Made in Dancefloors (2018) [MP3|320 Kbps] <Psy-Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neelix & Caroline Harrison – Makeup (Krama Remix)
-02. Krama & Linimi – Made in Dancefloors (Original Mix)
-03. Krama & Normalize – Hexapole (Original Mix)
-04. Krama – Master of Elements (Extended Mix)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:00:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E92BB2E7CCD63BC9DCE9BE03664951E2521C3B6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203336   (788603) от 01.02.2018
-
-IAMX - Alive In New Light (2018) [MP3|320 Kbps] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stardust
-02. Alive In New Light
-03. Break the Chain
-04. Body Politics(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:40:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9164C859E3386B3C5B67368BFB1B89985C56196
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1419317   (341931) от 27.10.2020
+
+Ирина Травина | Самая первая энциклопедия. Тело человека (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга из серии "Самая первая энциклопедия" от издательства Росмэн расскажет о строении человеческого тела. В ней простым и доступным языком изложена информация о коже, скелете, внутренних и наружных органах. Материал обязательно заинтересует всех ребят, которые увлекаются анатомией, медициной и другими естественными науками. Текст сопровождается красочными (   Читать дальше...   )Жанр: Энциклопедия/Познавательная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:506070DB63B94CEB0E1F42F49D34473E33C35F1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 726162   (340431) от 24.11.2013
 
 Детгиз | Глобус (1960) [DJVU]
@@ -6,7 +32,7 @@
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340431.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340410.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340408.jpg" />
 </div>
 
 
@@ -91,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340288.jpg" />
 </div>
 
 
@@ -117,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340167.jpg" />
 </div>
 
 
@@ -144,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340012.jpg" />
 </div>
 
 
@@ -172,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339999.jpg" />
 </div>
 
 
@@ -200,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337847.jpg" />
 </div>
 
 
@@ -229,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337731.jpg" />
 </div>
 
 
@@ -260,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337588.jpg" />
 </div>
 
 
@@ -286,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337576.jpg" />
 </div>
 
 
@@ -312,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335655.jpg" />
 </div>
 
 
@@ -338,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335555.jpg" />
 </div>
 
 
@@ -367,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335431.jpg" />
 </div>
 
 
@@ -393,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332327.jpg" />
 </div>
 
 
@@ -419,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331348.jpg" />
 </div>
 
 
@@ -447,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331283.jpg" />
 </div>
 
 
@@ -473,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329305.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329249.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329216.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326604.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326545.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324832.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323702.jpg" />
 </div>
 
 
@@ -657,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322243.jpg" />
 </div>
 
 
@@ -668,32 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85A5AEB3F349A8DF54618C75DA22900B724894C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 727576   (321927) от 27.11.2013
-
-Аванта+ | Искусство (Том 7) (1997) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая книга тома «Искусство» предлагает читателям очерк архитектуры, изобразительного и декоративно-прикладного искусства с древнейших времѐн до эпохи Возрождения. Она объединяет тринадцать разделов, посвященных искусству различных стран и пародов. Особое внимание уделено античному, древнерусскому искусству, а также искусству Возрождения в Италии, Нидерландах, Франции и Германии. Статьи, вошедшие в книгу, написаны специалистами из Российской Академии художеств, Московского государственного университета, Государственного музея изобразительных искусств и Центральных научно-реставрационных проектных мастерских. Том «Искусство» рассчитан на детей среднего и старшего школьного возраста, их родителей и преподавателей, а также на всех, кто считает себя любителем искусства.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F28975DB354074CFF8A0CADFEE10A46986A8211
 ```
 
 https://mybot314.ru/tekegram_catalog/

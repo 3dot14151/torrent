@@ -1,3 +1,29 @@
+###  Публикация: 1173324   (390416) от 11.10.2017
+
+Обои - Весёлый Амстердам. 3840x2160 - 50 шт [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Позитивные яркие снимки весёлой голландской столицы. Городские улицы, каналы, архитектура и беззаботно гуляющий народ.Формат: JPGРазрешение файлов: 3840х2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC5FB5686F25B27CAD3B587977D5BFB42E227791
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 570424   (389888) от 05.11.2012
 
 Живопись и рисунки Gue Yang [Графика]
@@ -6,7 +32,7 @@
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389888.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389682.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388812.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Artworks by Carmen Ziervogel [Графика]
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387749.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387335.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Best HD Wallpapers Pack (08.11.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385955.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Computer Desktop Wallpapers Collection (08.11.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385947.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385929.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книжная иллюстрация
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385123.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классическое искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_383333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_383333.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_379825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_379825.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379573.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379328.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_379267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379267.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378402.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378253.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377796.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377332.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377242.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377145.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377141.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377039.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ Wallpapers Fantasy (10.11.12) [Wallpapers]
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376411.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376229.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375563.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A80A79ECE54FD1FEEDE2AF9AE0ACD8AFC26B2EAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 574042   (375451) от 12.11.2012
-
-Artworks by Angelo Batti [Графика]
-
->>Графика, Арт, Разное
->>Классическое искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_375451.jpg" />
-</div>
-
-
-###  Подробнее
-
-Artworks by Angelo Batti
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86DAB8E3C1CFCB7C624B38BA8D5A75F4293FBB12
 ```
 
 https://mybot314.ru/tekegram_catalog/

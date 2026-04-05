@@ -1,3 +1,214 @@
+###  Публикация: 1674084   (160486) от 07.11.2023
+
+Блуждающая Земля 2 / Liu lang di qiu 2 / The Wandering Earth II (2023) BDRip [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Солнце угасает. Последний шанс человечества на спасение — поиск нового дома. Объединившись, люди находят возможность изменить орбиту Земли, отправившись в неизвестность. Но это путешествие на много сотен световых лет во тьму несет разрушение и хаос. Планета растерзана катаклизмами, в которых выживут далеко не все. И все же только в бесконечной пустоте можно обрести (   Читать дальше...   )Производство: Китай, CFC Pictures, China Film Co., G!Film Studio, Rollin StudiosЖанр: фантастика, боевикРежиссер: Франт ГвоАктеры: Джеки У, Энди Лау, Ли Сюэцзянь, Нин Ли, Энди Френд, Ван Чжи, Ша И, Чжу Яньманьцзы, Тун Лия, Зина БлахусоваПеревод: Дублированный (Велес), профессиональный многоголосый (TVShows)Язык озвучки: русский, украинский, китайскийСубтитры: русские (forced, full), английские (SDH)Продолжительность: 02:53:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5594B37B02829414B30B73EDA67F94DA15D10CEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674970   (160485) от 07.11.2023
+
+ESET Endpoint Antivirus / ESET Endpoint Security 10.1.2058.0 (26.10.2023) RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160485.jpg" />
+</div>
+
+
+###  Подробнее
+
+ESET Endpoint Security — это комплексное решение для обеспечения безопасности, являющееся результатом долгих усилий, направленных на достижение оптимального сочетания максимальной степени защиты с минимальным влиянием на производительность компьютера. Современные технологии, основанные на применении искусственного интеллекта, способны превентивно противодействовать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F4FAB004BEA3E90E41C3630879E9322CF5C180C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 141257   (160484) от 07.11.2023
+
+Кислород (2009) DVDRip
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Был обычный летний день. Санек гулял по бульвару и с интересом рассматривал всех окружающих. Кто-то танцевал хип-хоп, кто-то катался на скейтбордах, кто-то целовался, в общем, все как обычно, но... Санек повернул голову и увидел ЕЕ - свободную, красивую, рыжеволосую девушку, ту которая стала для него - «Чистым КИСЛОРОДОМ»! И с этой минуты все, что было в его жизни (   Читать дальше...   )Производство: Россия, Красная стрелаЖанр: ДрамаРежиссер: Иван ВырыпаевАктеры: Каролина Грушка, Алексей Филимонов, Варвара Воецкова, Юлия СнигирьПеревод: ОригинальныйПродолжительность: 01:13:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C4FBA0F2D6C7E547061F308E7FEA80AA9860D9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404773   (160482) от 07.11.2023
+
+Need for Speed: Most Wanted HQ (2005-2020) [Ru/En] (1.3/1.19.6) Repack/Mod Vasy@n
+
+>>3
+>>14
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160482.jpg" />
+</div>
+
+
+###  Подробнее
+
+Need for Speed: Most Wanted - девятая игра серии аркадных гонок от Electronic Arts. Впервые за долгое время в серию вернулась полиция и появились масштабные, красивые погони. Действия игры происходят в вымышленном городе Рокпорт, в котором игроку предоставлена полная свобода перемещения.Тип издания: Repack/ModЖанр: Arcade, Racing (Cars), 3DЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54DA70252B5F0A9F5639B5695C41F847EDB61648
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577930   (160324) от 08.11.2023
+
+Альпарслан: Великие Сельджуки / Alparslan: Buyuk Selcuklu (2022-2023) WEB-DLRip [H.264/720p-LQ] (сезон 2, серии 1-34 (28-61) из 34) turok1990
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это сериал о султане великих сельджуков. Его зовут Альпарслан. Он второй султан из династии Сельджуков. Сериал покажет ключевые моменты жизни Альпарслана.Производство: Турция / Akli FilmЖанр: драма, военный, историяРежиссер: Седат ИнчиАктеры: Барыш Ардуч, Кайра Забчи, Мехмет Озгюр, Серхат Тутумлуэр, Уйгар Озчелик, Корель Джезавирли, Эрдинч Гюленер, Бора Дженгиз, Ойкю Гюрман, Умут Карадаг и др.Перевод: Одноголосый любительский (turok1990)Язык озвучки: РусскийПродолжительность: ~02:30:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D6013B9B70B74B072292D7BF469305C813EF4CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 37379   (160323) от 08.11.2023
+
+Wolfgang Amadeus Mozart - Complete Works (Brilliant Classics) (2005) 170CD Box [APE|Lossless|image + .cue]<Classical>
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160323.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+SYMPHONY No. 1 in E flat major KV 16
+1.	Molto allegro		6:00
+2.	Andante		5:03(   Читать дальше...   )Жанр: ClassicalПродолжительность: 170:18:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98E23D8DEEA06FE0A60AF77D0D745600E387C525
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 346809   (159978) от 09.11.2023
+
+Фантастика: Избранное (1996-2023+) [MP3]
+
+>>3
+>>9
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159978.jpg" />
+</div>
+
+
+###  Подробнее
+
+На протяжении многих лет велся поиск и скачивались в свободном доступе из сети интернета аудиокниги жанра фантастики. Также были просмотрены и продолжают просматриваться десятки крупнейших torrent tracker сайтов, аудиопроектов, студий, издательств и прочих источников, специализирующихся на свободном распространении аудио ресурсов: «Модель Для Сборки», «Радиус Вселенной (   Читать дальше...   )Жанр: ФантастикаПродолжительность: от 00:02:27 до 45:20:36 (общая — более 1500 час.)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A7C58325B5E69A9F6B3B4B12213B961F96CAFBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598531   (159953) от 22.12.2022
+
+Google представила переводчик плохого почерка врачей
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_159953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Непонятные «каракули» докторов — большая проблема для многих. Ее попытались решить с помощью технологий.Компания провела презентацию, на которой рассказала об обновлении Google Lens — умной камеры, которая может определять товары, переводить тексты и помогать в поиске. Раньше камера могла идентифицировать текст, который напечатан или аккуратно написан от руки.Теперь (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1598917   (159935) от 22.12.2022
 
 Евросоюз рассказал о новых правилах, которые будут обязаны выполнять производители смартфонов и другой техники.
@@ -6,7 +217,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_159935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_159935.jpg" />
 </div>
 
 
@@ -33,7 +244,7 @@ IXION (2022) [Ru/Multi] (1.0.2.3) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159911.jpg" />
 </div>
 
 
@@ -59,7 +270,7 @@ Microsoft® Windows® 10 Enterprise LTSC 2021 x86-x64 21H2 RU by OVGorskiy 12.20
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159910.jpg" />
 </div>
 
 
@@ -85,7 +296,7 @@ The Bat! Professional 10.3.3 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159707.jpg" />
 </div>
 
 
@@ -111,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159672.jpg" />
 </div>
 
 
@@ -139,7 +350,7 @@ Akiba Maid Sensou / Akiba Maid War / Война горничных Акибы [2
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159492.jpg" />
 </div>
 
 
@@ -167,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159475.jpg" />
 </div>
 
 
@@ -193,7 +404,7 @@ Spy x Family | Семья шпиона [2022, TV, 25 эп.] WEBRip 720p raw
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159473.jpg" />
 </div>
 
 
@@ -219,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_159409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_159409.jpg" />
 </div>
 
 
@@ -245,7 +456,7 @@ Samsung на 10 % подняла цены на свою флеш-памяти 3D
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_159172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_159172.jpg" />
 </div>
 
 
@@ -271,7 +482,7 @@ Uzaki-chan wa Asobitai! Double | Uzaki-chan Wants to Hang Out! W | Узаки х
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159163.jpg" />
 </div>
 
 
@@ -299,7 +510,7 @@ Yuusha Party wo Tsuihou Sareta Beast Tamer, Saikyoushu no Nekomimi Shoujo to Dea
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159128.jpg" />
 </div>
 
 
@@ -325,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>30
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_159111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_159111.jpg" />
 </div>
 
 
@@ -351,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159109.jpg" />
 </div>
 
 
@@ -377,7 +588,7 @@ YouTube в войне с блокировщиками рекламы наруш�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_159106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_159106.jpg" />
 </div>
 
 
@@ -403,7 +614,7 @@ CleanMyMac X 4.12.3 U2B [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159101.jpg" />
 </div>
 
 
@@ -429,7 +640,7 @@ Microsoft® Windows® 11 x64 Ru 23H2 4in1 Upd 11.2023 by OVGorskiy
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159048.jpg" />
 </div>
 
 
@@ -455,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159045.jpg" />
 </div>
 
 
@@ -466,216 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6897184FB20789E3ED84A7C08ACB90D865E3C39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 338678   (159044) от 11.11.2023
-
-uTorrent 2.2.1 Build 25302 [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159044.jpg" />
-</div>
-
-
-###  Подробнее
-
-uTorrent - это бесплатный клиент для сетей BitTorrent (P2P), функционирующий под ОС Windows. Главные отличия uTorrent от прочих torrent-клиентов это маленький размер при довольно большом функциональном потенциале и простому, дружелюбному интерфейсу. uTorrent занимает менее 400 кБ на диске, использует минимум системных ресурсов и не требователен к железу, нормально (   Читать дальше...   )Язык интерфейса: Русский, английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67B0E0E47B7AACCB6D39F40EEADE46DA991D6742
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599994   (158870) от 26.12.2022
-
-Очередное достижение: 7000 релизов от Аlехаndr!
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_158870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередное достижение: 7000 релизов от Аlехаndr!
-Уважаемые одноклубники!
-Семь тысяч! Целых семь тысяч релизов! Вот такой Новогодний подарок приготовил нам релизер,(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569089   (158769) от 26.12.2022
-
-Doma TV Net Pro v4.3 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158769.jpg" />
-</div>
-
-
-###  Подробнее
-
-Смотрите то, что интересно, 24 часа в сутки без выходных и праздников. ТВ доступно в хорошем качестве для людей с различными предпочтениями. Дома ТВ Нет обязательно понравится всем без исключения. Настало время ощутить преимущества настоящего телевидения, каким оно должно быть в интересах зрителя!Тип издания: AdfreeРелиз состоялся: 17 декабря 2022Разработчик: domanetvПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D261DA2403D81DCC5598DB4638A27B7EF6823D1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675873   (158766) от 12.11.2023
-
-В поликлиниках Москвы заработал ИИ-сервис для заключительного диагноза
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_158766.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во всех взрослых поликлиниках столицы заработал новый сервис на базе искусственного интеллекта (ИИ), он помогает столичным терапевтам и врачам общей практики в постановке заключительного диагноза на основе данных электронной медкарты пациента за последние два года, сообщила заммэра столицы по вопросам социального развития Анастасия Ракова."Во всех взрослых поликлиниках (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600163   (158763) от 26.12.2022
-
-Kaspersky Plus 21.8.5.452 Repack by LcHNextGen (26.12.2022) [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158763.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2022 году Kaspersky предлагает кибербезопасность нового поколения, чтобы защитить вас от новых вирусов, программ-вымогателей и вредоносного ПО, не замедляя вашу работу. Также включает в себя защиту платежей и менеджер паролей, чтобы ваша цифровая жизнь была конфиденциальной и безопасной.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89D6F655AEC6117748FA9393114091AF7FC7B8F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676314   (158720) от 12.11.2023
-
-Redshift 3.5.19  for Cinema 4D [En]
-
->>3
->>10
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158720.jpg" />
-</div>
-
-
-###  Подробнее
-
-RedShift – невероятно быстрое и функциональное решение для 3D-рендеринга. Обладает гибкостью и бескомпромиссным качеством CPU рендера, используя скорости GPU.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FF32EC66CF8E7C287984D36377DE123BCE7491A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663697   (158719) от 12.11.2023
-
-Кибердеревня (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-10 из 10)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158719.jpg" />
-</div>
-
-
-###  Подробнее
-
-2100 год. Николай счастливо живет с семьей в кибердеревне на Марсе. Он спокойно ведет роботизированное хозяйство, пока на планету не прилетает руководитель огромной корпорации — Барагозин, который хочет построить на месте деревни новый завод. Николай отправляется в полное опасностей и приключений путешествие до Земли, чтобы спасти свой дом.Производство: Россия / Место силы, Плюс СтудияЖанр: фантастика, комедияРежиссер: Сергей ВасильевАктеры: Сергей Чихачёв, Григорий Скряпкин, Сергей Бурунов, Артем Семакин, Елена Махова, Влада Лукина, Маргарита Силаева, Сергей Фёдоров, Григорий Столбов, Зоя МансуроваСубтитры: Русские (Full, SDH)Продолжительность: ~00:30:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F5FA46EE8C86EA411B2C95CBD50902BFB758C70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967153   (158524) от 20.12.2015
-
-Adobe After Effects CC 2015.1 13.6.1.6 RePack by D!akov  [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158524.jpg" />
-</div>
-
-
-###  Подробнее
-
-After Effects CC — это ведущая в отрасли программа для создания и компоновки анимированной графики, которую используют многие разработчики визуальных эффектов и анимированной графики. Она предлагает великолепные функции управления, широкий выбор инструментов для творчества, а также возможность интеграции с другими приложениями для постобработки видеоматериалов. Сделайте (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D646D8CEEA7F0F16957CE56F53B36A6EA5D99230
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,162 @@
+###  Публикация: 599017   (789124) от 20.11.2021
+
+Звездные Врата: Полная коллекция / Stargate: Full collection (1994-2008) BDRip (от LostFilm)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раскрыта прежде неизвестная цель "Шеврона 9", команда попадает на корабль древних, называемый "Судьба", построенный миллионы лет назад для распространения звездных врат по галактике. Команда, возглавляемая доктором Николасом Рашем и полковником Эверетом Янгом, оказывается в ловушке на корабле древних, потому что они не могут изменить запрограммированный (   Читать дальше...   )Производство: СШАЖанр: Фантастика, Боевик, ПриключенияРежиссер: Энди Микита и др.Актеры: Роберт Карлайл Луис Феррейра Дэвид Блу Брайан Смит Джамил Уолкер Смит Элейна Хаффман Элиз ЛевекПеревод: Многоголосый закадровый -Формат: AVIПродолжительность: 40 серий по ~00:43:00 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E1378F705F3C81FC785BAA143D9C5B976BA10E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202883   (788878) от 31.01.2018
+
+Легенда о Коловрате (2017) WEB-DLRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788878.jpg" />
+</div>
+
+
+###  Подробнее
+
+XIII век. Русь раздроблена и вот-вот падет на колени перед ханом Золотой Орды Батыем. Испепеляя города и заливая русские земли кровью, захватчики не встречают серьезного сопротивления, и лишь один воин бросает им вызов. Молодой рязанский витязь Евпатий Коловрат возглавляет отряд смельчаков, чтобы отомстить за свою любовь и за свою родину. Его отвага поразит даже (   Читать дальше...   )Производство: Россия, Централ Партнершип, Киностудия КИТ, Продюсерский центр ИВАНЖанр: История, Боевик, ФэнтезиРежиссер: Джаник Файзиев, Иван ШурховецкийАктеры: Илья Малаков, Полина Чернышова, Алексей Серебряков, Александр Ильин мл., Игорь Савочкин, Тимофей Трибунцев, Александр Цой, Юлия Хлынина, Андрей Бурковский, Виктор ПроскуринПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:52:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E33738FAE52A91C8FE6E8CC69628A7625F2670E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202938   (788877) от 31.01.2018
+
+Windows 7 Ultimate SP1 (x86/x64) Elgujakviso Edition (v.30.01.18) [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборки сделаны на основе оригинальных образов от MSDN:
+ru_windows_7_ultimate_with_sp1_x86_dvd_u_677463.iso. (Original 12.05.2011)
+ru_windows_7_ultimate_with_sp1_x64_dvd_u_677391.iso. (Original 12.05.2011)
+(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91ADF40E0C816AA14A5D9B0794B18C1B1790A7B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202783   (788874) от 31.01.2018
+
+Adobe Premiere Pro CC 2018 12.0.1.69 RePack by KpoJIuK  [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788874.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Premiere Pro CC 2018 - профессиональная программа для нелинейного видеомонтажа. Приложение обеспечивает высококачественное редактирование видео разрешения 4K и выше, с 32-битовым цветом, как в RGB, так и YUV цветовом пространстве. Редактирование аудиосемплов, поддержка VST аудиоплагинов (plug-in) и звуковых дорожек 5.1 surround. Архитектура Premiere Pro плагинов (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3345330769D5DF15832B029BBBD87011EE03BC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196052   (788873) от 31.01.2018
+
+Андрей Журавлёв | Adobe Photoshop. Базовый уровень (2017) PCRec [H.264]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс позиционируется как Adobe Photoshop для начинающих, мы тем не менее построили его на платформе глубокого практического опыта использования программы. Вы будете изучать инструменты в той последовательности, в которой они применяются специалистами на практике. Это позволит вам не просто осваивать отдельные инструменты, но и понимать логику работы с изображением. (   Читать дальше...   )Производство: profileschoolЖанр: Adobe PhotoshopПродолжительность: 39:17:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A75F7ACD3E6B06110088EB0DC07804AEC80AE4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202569   (788872) от 31.01.2018
+
+Новое старое имя Клуба NNM-Club.ME
+
+>>3
+>>10
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_788872.jpg" />
+</div>
+
+
+###  Подробнее
+
+Внимание всем одноклубникам!Мы возвращаемся на наш старый, проверенный домен NNM-Club.MEОбновите закладки, RSS ридеры, пути обхода блокировок и т.п. Старый домен на NAME в ближайшее время станет недоступен.В случае временных проблем с закачкой *.torrent файлов вспоминаем о магнетах, и вообще всегда помним о них, не унываем и почаще используем их :)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275743   (788828) от 14.01.2019
 
 Приверженцы теории плоской Земли разыскивают капитана для путешествия
@@ -6,7 +165,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_788828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_788828.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_788815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_788815.jpg" />
 </div>
 
 
@@ -58,7 +217,7 @@ Adobe Acrobat Pro DC 2019.010.20064 [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788808.jpg" />
 </div>
 
 
@@ -84,7 +243,7 @@ Titan Quest Anniversary Edition (2016) [Ru/Multi] (1.57/dlc) License GOG
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788807.jpg" />
 </div>
 
 
@@ -110,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_788742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_788742.jpg" />
 </div>
 
 
@@ -138,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_788741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_788741.jpg" />
 </div>
 
 
@@ -164,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_788735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_788735.jpg" />
 </div>
 
 
@@ -190,7 +349,7 @@ Microsoft® Windows® 7 Ultimate Ru x64 SP1 7DB by OVGorskiy 11.2021 1DVD
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788688.jpg" />
 </div>
 
 
@@ -216,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788683.jpg" />
 </div>
 
 
@@ -242,7 +401,7 @@ Star Wars Jedi: Fallen Order / Звездные Войны Джедаи: Пав�
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788682.jpg" />
 </div>
 
 
@@ -268,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_788522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_788522.jpg" />
 </div>
 
 
@@ -294,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_788472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_788472.jpg" />
 </div>
 
 
@@ -320,7 +479,7 @@ PCRADIO 5.0.2 Premium RePack (& Portable) by elchupacabra [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788447.jpg" />
 </div>
 
 
@@ -346,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_788441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_788441.jpg" />
 </div>
 
 
@@ -372,7 +531,7 @@ Call of Duty: Modern Warfare 3 (2011) [Ru] (1.9.461/dlc) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788428.jpg" />
 </div>
 
 
@@ -398,7 +557,7 @@ Windows 10 (x86/x64) 10in1 + LTSB +/- Office 2016 by SmokieBlahBlah 13.01.2018 [
 >>17
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788427.jpg" />
 </div>
 
 
@@ -426,7 +585,7 @@ AllWinUSB Constructor by SmokieBlahBlah 20.12.17 [Ru/En]
 >>88
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788426.jpg" />
 </div>
 
 
@@ -454,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_788405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_788405.jpg" />
 </div>
 
 
@@ -480,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788391.jpg" />
 </div>
 
 
@@ -506,7 +665,7 @@ Colin McRae Rally 2005 (2004) [Ru] (1.0) License
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788390.jpg" />
 </div>
 
 
@@ -517,164 +676,6 @@ Colin McRae Rally 2005 (2004) [Ru] (1.0) License
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B614FEE29B4417F80438858539A5C50C5BBDA91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276087   (788389) от 15.01.2019
-
-Windows 7 SP1 х86-x64 by g0dl1ke 19.1.12 [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788389.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стабильная сборка на базе MSDN windows 7 х86-x64 с интегрированными обновлениями по январь 2019 года и полезными твиками, по рекомендациям simplixЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FB1A78F879F564E195736F5A4FE56DE84BC8930
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071610   (788387) от 15.01.2019
-
-Ученик (2016) WEB-DL [H.264/1080p-LQ]
-
->>3
->>10
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир устроен неправильно. Мир погряз во зле. Много лжи, вранья, лицемерия. Добродетель поругана. Вера утрачена. Главный герой, мальчик Вениамин, считает, что знает все о моральных нормах. Как их надо соблюдать, от кого их надо защищать, что такое хорошо и что такое плохо. Его поведение для окружающих становится серьезным испытанием. Где граница между моралью и нетерпимостью, (   Читать дальше...   )Производство: РоссияЖанр: ДрамаРежиссер: Кирилл СеребренниковАктеры: Виктория Исакова, Петр Скворцов, Александр Горчилин, Юлия Ауг, Александра Ревенко, Антон Васильев, Николай Рощин, Светлана Брагарник, Ирина Рудницкая, Марина Клещева.Перевод: Не требуется (русский, iTunes)Субтитры: ОтсутствуютПродолжительность: 01:53:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF81D2EFF25D2F55B602C7674E818C5977FA9886
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276142   (788386) от 15.01.2019
-
-AllWinUSB Constructor by SmokieBlahBlah 14.01.19 [Ru/En]
-
->>3
->>12
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788386.jpg" />
-</div>
-
-
-###  Подробнее
-
-    Конструктор мультизагрузочной флешки (или внешнего жесткого диска) с выбором компонентов для записи, содержащий все сборки Windows от SmokieBlahBlah (XP/7/8.1/10) с обновлениями по январь 2019 (кроме XP и 10 LTSB). Также есть возможность добавить 2k10 Live и WinPE Sergei Strelec.
-    При установке Windows опционально (ставите нужные галочки) доступны: активация, (   Читать дальше...   )Язык интерфейса: Русский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D3278460C43EBB6C5A3023382D1EA477718E5A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511055   (788250) от 22.11.2021
-
-Легендарный медиаплеер, по которому тоскуют фанаты, выводят из многолетнего анабиоза
-
->>3
->>13
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_788250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитый проигрыватель Winamp, похоже, готов к своему возвращению. Владелец проекта обещал «оживить» его с 2013 г., но на этот раз все очень серьезно. Плеер получил новые логотип и сайт, и желающие даже могут принять участие в бета-тестировании его новой версии.Winamp жив
-В обозримом будущем к жизни может вернуться легендарный плеер Winamp, появившийся в конце (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510971   (788249) от 22.11.2021
-
-Windows 10 Enterprise LTSC 2021: Основные изменения
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_788249.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Microsoft выпустила новую версию Windows для долгосрочного канала обслуживания Windows 10 Enterprise LTSC 2021, предназначенную для корпоративных клиентов. Новый выпуск основан на Windows 10 Enterprise LTSC 2019 и включает набор функций, эквивалентный Windows 10, версия 21H2.В отличие от Windows 10 Enterprise LTSC 2019, Windows 10 Enterprise LTSC 2021 включает (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511801   (788246) от 22.11.2021
-
-Farming Simulator 22 (2021) [Ru/Multi] (1.1.1.0/dlc) License FAIRLIGHT
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Farming Simulator 22 – очередная часть серии симуляторов фермера, в которой вас ждет около 400 единиц техники от более сотни реальных бендов и новые сельскохозяйственные культуры, а также смена сезонов. Кроме этого игра предлагает улучшенную оптимизацию, продвинутый искусственный интеллект и поддержку модов от пользователей.Тип издания: LicenseРазработчик: Giants SoftwareЖанр: Simulator, 3DЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:573CE994696DC6F458CA68E71129EC6423AA87C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

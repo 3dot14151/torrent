@@ -1,3 +1,55 @@
+###  Публикация: 1150354   (593726) от 15.07.2017
+
+Драконы: Гонки по краю / Dragons: Race to the Edge (2012-2016) WEB-DL [H.264/1080p-LQ] (1-3 сезоны: 66 серии из 66 + Бонус)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593726.jpg" />
+</div>
+
+
+###  Подробнее
+
+Викинги Олуха и их бывшие враги — драконы — теперь живут вместе в мире и покое, однако такое соседство всё равно не так уж гармонично, как хотелось бы. Несмотря на мирное сосуществование, драконы всё-таки остаются существами непредсказуемыми и опасными, реагирующими на многие вещи совершенно неожиданно. Иккинг решается открыть Школу для дрессировки драконов на Олухе, (   Читать дальше...   )Производство: США, DreamWorks Animation, DreamWorks Television Animation StudioЖанр: Фентези, Приключения, КомедияРежиссер: Энтони Белл, Джон Санфорд, Луи дель Кармен, Джон ЭнгПерсонажи: Джей Барушель, Америка Феррера, ТиДжей Миллер, Зак Перлман, Кристофер Минц-Плассе, Нолан Норт, Крис Эджерли, Джули Ариелла Маркус, Эндри Вермелен, Стивен Рут, Тим Конуэй, Томас Ф. Уилсон, Марк Хэмилл, Пол Ругг, Дэвид Фаустино, Мэй Уитман, Майкл Голдстром, Дэвид Теннант, Лукас ГрабилПеревод: Профессиональный (полное дублирование) - Студия "Невафильм"Субтитры: Русские (1-2 сезон, 3 сезон форсированные, на непереведенные сцены), английскиеПродолжительность: 66 x ~00:22:00Реклама: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BEA164E1E2A5E834143B91CEF2BDB3119720922
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300020   (593465) от 05.05.2019
+
+Звёздные войны: Повстанцы / Star Wars: Rebels (2015) WEB-DL [H.264/1080p-LQ] (сезон 2, серии 21 из 21) Невафильм
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593465.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для Галактики настали тёмные времена. Поглощая один мир за другим, Империя продолжает наращивать свою мощь. Имперские войска, оккупировавшие отдаленную планету, устанавливают на ней деспотический режим. Но находятся смельчаки, готовые противостоять силам Империи - экипаж космического корабля «Призрак»! Команде повстанцев предстоит столкнуться лицом к лицу с новыми (   Читать дальше...   )Производство: США, Lucasfilm Ltd, DisneyXDЖанр: Фантастика, боевик, приключенияРежиссер: Дэйв Филони, Стюарт Ли, Боско ЭнДжиАктеры: Тейлор Грэй, Дэйв Филони, Ванесса Маршалл, Фредди Принц мл., Стивен Блум, Тия Сиркар, Ди Брэдли Бейкер, Дэвид Ойелоуо, Стефен Стэнтон, Кион ЯнгПеревод: Дублированный, профессиональный - НевафильмСубтитры: отсутствуютПродолжительность: Первая серия 00:43:52 | остальные 00:22:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A03CD5C775FAC3DBFC8B9B74EF1323D711689A7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1233491   (592825) от 30.06.2018
 
 Симпсоны / The Simpsons (2016) WEB-DLRip [H.264/1080p-LQ] (сезон 28, серии 1-22 из 22) [UKR]
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592825.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592584.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592033.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591589.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_591566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591566.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587846.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587589.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587572.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587022.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587021.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586380.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585573.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584744.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584146.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584089.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_584080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584080.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583231.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583226.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583174.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582179.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581537.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578270.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576599.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576268.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF69C2B8EDE7DC5A675CC6C8BE33F59B46F2359E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488774   (575366) от 31.05.2022
-
-Совиный дом / Дом совы / The Owl House (2021) WEBRip  (сезон 2, серии 1-21 из 21) NewStation
-
->>След.
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575366.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главной героиней является девочка по имени Луз. Она нечаянно натыкается на портал в королевство Демонов. В новой реальности Луз становится подругой мятежной ведьмы Иды и очаровательного маленького воина по имени Кинг. Несмотря на отсутствие магических способностей, Луз преследует свою мечту стать ведьмой, становясь ученицей Иды в Совином Доме и в конечном итоге находит (   Читать дальше...   )Производство: США, Walt Disney Television AnimationЖанр: Фантастика, фэнтези, комедия, приключенияРежиссер: Дана ТеррасПеревод: Многоголосый профессиональный (NewStation)Субтитры: отсутствуютПродолжительность: ~00:22:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AEA6645F20380096D6EC97AB2BD6EF6BEE2ADD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042823   (574099) от 15.08.2016
-
-Футурама / Futurama (2002) BDRip (сезон 5, серии 1-4 из 4) LostFilm
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал начинается с того, что разносчик пиццы из Нью-Йорка Филипп Джей Фрай случайно, как это кажется на первый взгляд (но подробнее об этом будет поведано лишь в десятой серии четвертого сезона «Загадка Фрая»), был заморожен в криогенной камере ровно в 00 часов 00 минут 00 секунд 1 января 2000 года. Он был разморожен тысячу лет спустя, 31 декабря 2999 года, и обнаружил (   Читать дальше...   )Производство: СШАЖанр: мультфильм, фантастика, комедияРежиссер: Питер Аванзино, Брэт Хааланд, Грегг ВанцоПерсонажи: Футурама и его друзья.Перевод: Многоголосый закадровый, профессиональный - Ren-TVПродолжительность: ~01:29:00 серияРеклама: присутствует заставка LostFilm.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7313BF9BE2FB4CE1966789CFB16886D6F5A72D4E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1177829   (355783) от 28.10.2017
+
+Lorne Balfe - Geostorm / Геошторм (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nature Warning (03:13)
+02. President Meeting (03:49)
+03. What About Us (02:08)
+04. Hong Kong Falling (03:50)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:52:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD96A44C5406A811EBF29877B4D21D78EEF11DE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 837279   (355751) от 03.11.2014
+
+Estas Tonne - 8 альбомов (2002-2013) [MP3|320 Kbps] <Instrumental, Flamenco>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355751.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эстас Тонне - мастер гитары, «гитарист дорог» мира. Его музыка уходит корнями в культуру фламенко и испанской классической гитары, однако вобрала в себя отголоски самых различных стилей, языков и культур. Называя себя современным трубадуром, последние годы он путешествует по миру (от США до Индии, от Мексики до Израиля), давая уличные концерты и выступая на престижных (   Читать дальше...   )Список альбомов:
+2002 - Black and White World (with Michael Shulman)
+2004 - Dragon of Delight, Vol.II
+2008 - 13 Songs of Truth(   Читать дальше...   )Жанр: Instrumental, FlamencoПродолжительность: 08:34:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58E708999D5A6E33604E5A281704F95EFFA2A3CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1177837   (355630) от 28.10.2017
 
 Kyle Dixon & Michael Stein - Stranger Things 2 / Очень странные дела 2 (A Netflix Original Series Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -6,7 +64,7 @@ Kyle Dixon & Michael Stein - Stranger Things 2 / Очень странные д�
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355630.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Mark Mothersbaugh - Thor: Ragnarok / Тор Рагнарёк (Original Motion Pi
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355501.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Mark Mothersbaugh - Thor: Ragnarok / Тор Рагнарёк (Original Motion Pi
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355496.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355312.jpg" />
 </div>
 
 
@@ -128,7 +186,7 @@ Behzad - 4 albums (1999 - 2007) [MP3|320 кб/с]<New age, Flamenco, Folk>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_355050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_355050.jpg" />
 </div>
 
 
@@ -163,7 +221,7 @@ David Arkenstone - Desert Spa (2019) [FLAC|Lossless|WEB-DL|tracks] <New age, Rel
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354445.jpg" />
 </div>
 
 
@@ -192,7 +250,7 @@ Greg Maroney - Fall (2018) [MP3|320 Kbps] <New Age, Instrumental>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354271.jpg" />
 </div>
 
 
@@ -221,7 +279,7 @@ Ernest Lyons - Sleep Naturally (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354266.jpg" />
 </div>
 
 
@@ -250,7 +308,7 @@ Toskana & Chakra's Dream - Chakra Meditation Music (2018) [MP3|320 Kbps] <New Ag
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354150.jpg" />
 </div>
 
 
@@ -279,7 +337,7 @@ Two Steps from Hell - Illumina (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353864.jpg" />
 </div>
 
 
@@ -308,7 +366,7 @@ VA - Dreamline 3 (2017) [MP3|320 Kbps] <New Age, Balearic, Leftfield>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353705.jpg" />
 </div>
 
 
@@ -337,7 +395,7 @@ VA - Cytus OST v.5.0.0 (2013) [MP3|128-192 Kbps] <Soundtrack>
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353701.jpg" />
 </div>
 
 
@@ -364,7 +422,7 @@ Carlos Rodrigo - Argentine Tango (2001) [MP3|~160 кб/с (V4)]<Tango>
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353514.jpg" />
 </div>
 
 
@@ -393,7 +451,7 @@ VA - The Bodyguard (Original Soundtrack Album) (1992) Japanese Edition [FLAC|ima
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353506.jpg" />
 </div>
 
 
@@ -422,7 +480,7 @@ Jean Michel Jarre - Revolutions (1988) Remastered / 2015, Sony Music / [FLAC|tra
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353431.jpg" />
 </div>
 
 
@@ -451,7 +509,7 @@ Jose Dolores y su Sax Maravilloso - Sax Romantico (2015) [MP3|256 кб/с]<Saxop
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353414.jpg" />
 </div>
 
 
@@ -480,7 +538,7 @@ Music Factory - Romantic Saxophone (2014) [MP3|256 кб/с]<Saxophone, Instrumen
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353314.jpg" />
 </div>
 
 
@@ -509,7 +567,7 @@ Back to Earth - Secret Spaces (1998) [FLAC|Lossless|tracks + .cue] <New age, Ins
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352939.jpg" />
 </div>
 
 
@@ -538,7 +596,7 @@ Mehdi - Christmas Treasures (2001) [FLAC|Lossless|tracks + .cue] <New age, Instr
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352786.jpg" />
 </div>
 
 
@@ -567,7 +625,7 @@ Thomas Newman - Spectre (Original Motion Picture Soundtrack) (2015) [FLAC|tracks
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352767.jpg" />
 </div>
 
 
@@ -596,7 +654,7 @@ Curtis Macdonald - Breeze (2016) [FLAC|Lossless|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352482.jpg" />
 </div>
 
 
@@ -625,7 +683,7 @@ Thomas Barquee - The Sound of Om (2003) [FLAC|Lossless|tracks + .cue] <Mantras>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352374.jpg" />
 </div>
 
 
@@ -654,7 +712,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352360.jpg" />
 </div>
 
 
@@ -689,7 +747,7 @@ Michel Pepe - La purete de l'Esprit (2016) [FLAC|Lossless|WEB-DL|tracks] <New Ag
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352177.jpg" />
 </div>
 
 
@@ -703,64 +761,6 @@ Michel Pepe - La purete de l'Esprit (2016) [FLAC|Lossless|WEB-DL|tracks] <New Ag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51F7B1CCA67764D1D4F39221CFF7198E18E38C39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072121   (352175) от 13.11.2016
-
-Jim Brickman - Hope (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winter Morning [00:02:43]
-02. Sundown [00:04:07]
-03. Distant Rain [00:04:58]
-04. Daydream [00:03:47](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:54:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1266580C7D3640168124D4CE496EFE823BECC418
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329606   (352131) от 05.10.2019
-
-Reuel - Transformation (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Broken
-02. Electric Sky
-03. Regal Havana
-04. Earth Addictions(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:34:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13C4212CF20C69A5A22F19AB4C2A900A328DF755
 ```
 
 https://mybot314.ru/tekegram_catalog/

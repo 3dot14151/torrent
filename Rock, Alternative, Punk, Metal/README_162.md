@@ -1,3 +1,160 @@
+###  Публикация: 622932   (955801) от 26.02.2013
+
+Точка Росы - Два ветра (2002) [FLAC|Lossless] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Флоксы (02:20)
+02. Е2-Е2 (03:32)
+03. Далеко (02:24)
+04. Трамваи (02:43)
+05. Там (03:56)
+06. 300 шагов (03:55)
+07. Утоли (03:10)
+08. Ничего не изменилось (04:17)
+09. Два ветра (03:02)
+10. Небо в полруки (03:25)(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361294   (955729) от 19.02.2020
+
+Этил - Яд - Этил - Яд (2020) [MP3|320 Kbps] <Thrash, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Белая горячка
+02. Сверхприбыль
+03. Странное виденье
+04. Черная принцесса(   Читать дальше...   )Жанр: Thrash, Heavy MetalПродолжительность: 00:50:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C350BBB13595E3E01623047955F1BA713665936
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980464   (955696) от 29.01.2016
+
+Pink Floyd - The Dark Side Of The Moon (1973) 3rd Japan Issue [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955696.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Speak To Me / Breathe In The Air 3:57
+2. On The Run 3:34
+3. Time 7:05
+4. The Great Gig In The Sky 4:47(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:42:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE3E30CDCA48870F76EBA2AD86EE8D5B16E8BB29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361468   (955641) от 19.02.2020
+
+Shakra - Mad World (2020) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fireline (3:51)
+02. Too Much Is Not Enough (3:42)
+03. A Roll Of The Dice (4:26)
+04. Mad World (3:48)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3F990668ABED5114A5E7355825538716939468A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 622942   (955353) от 26.02.2013
+
+Сегодня Ночью (Сегодняночью) - 6 Альбомов (1999-2012) [MP3|256-320 kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лучшие годы нашей молодости (03:21)
+02. Именно (03:21)
+03. Нигилист (02:52)
+04. В ладонях осени (03:37)
+05. Ты вряд ли сможешь меня понять (04:03)
+06. Сентябрь (03:01)
+07. Вика (02:22)
+08. Sunshine (03:35)
+09. Цацки и шпильки (03:40)
+10. Не надо пить чай лица (04:41)(   Читать дальше...   )Жанр: Rock |Продолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20292720DBE68FC7A1654753906E1F5657845767
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297451   (955302) от 19.02.2020
 
 Pendragon - 16 albums, 27 CD (1985-2020) [FLAC|Lossless|image + .cue | tracks + .cue] <Prog Rock, Neo-Progressive Rock>
@@ -6,7 +163,7 @@ Pendragon - 16 albums, 27 CD (1985-2020) [FLAC|Lossless|image + .cue | tracks + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955302.jpg" />
 </div>
 
 
@@ -35,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955220.jpg" />
 </div>
 
 
@@ -64,7 +221,7 @@ Casual - 6 Альбомов, 11 Синглов (2012-2020) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955209.jpg" />
 </div>
 
 
@@ -93,7 +250,7 @@ U.D.O. - 8 Albums Anniversary Edition (2013) (AFM Records AFM 427-2 - 436-2 EU) 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955195.jpg" />
 </div>
 
 
@@ -122,7 +279,7 @@ Mechina - As Embers Turn to Dust (2017) [MP3|320 Kbps] <Epic, Symphonic, Industr
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955073.jpg" />
 </div>
 
 
@@ -151,7 +308,7 @@ The Shivas - You Know What To Do (2014) [FLAC|Lossless|WEB-DL|tracks] <60's Psyc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954764.jpg" />
 </div>
 
 
@@ -180,7 +337,7 @@ Billy Joel - Streetlife Serenade (1974) remaster, 2015, Audio Fidelity [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954738.jpg" />
 </div>
 
 
@@ -209,7 +366,7 @@ Steve Hackett - Wolflight (2015) Special Edition [FLAC|Lossless|image + .cue] <P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954659.jpg" />
 </div>
 
 
@@ -238,7 +395,7 @@ Dylem - Dylem (2016) [MP3|320 кб/с] <Melodic Rock, Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954641.jpg" />
 </div>
 
 
@@ -267,7 +424,7 @@ VA - Now That's What I Call Rock (2016) [MP3|320 кб/с] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954596.jpg" />
 </div>
 
 
@@ -296,7 +453,7 @@ Savages - Adore Life (2016) [MP3|320 кб/с] <Garage, Alternative Rock, Indie R
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954591.jpg" />
 </div>
 
 
@@ -325,7 +482,7 @@ AC/DC - Back In Black (1980) Germany Original Press, 1988 - 1989 [FLAC|Lossless|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954426.jpg" />
 </div>
 
 
@@ -354,7 +511,7 @@ Dream Theater - The Astonishing (2016) 2CD [FLAC|Lossless|image + .cue] <Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954362.jpg" />
 </div>
 
 
@@ -383,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954306.jpg" />
 </div>
 
 
@@ -412,7 +569,7 @@ Best Coast - Always Tomorrow (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954301.jpg" />
 </div>
 
 
@@ -441,7 +598,7 @@ Doro - Doro (1990) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954219.jpg" />
 </div>
 
 
@@ -470,7 +627,7 @@ Demons & Wizards - III (2020) [FLAC|Lossless|tracks + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954205.jpg" />
 </div>
 
 
@@ -499,7 +656,7 @@ Rise Of The Northstar - Дискография  (2009 - 2018) 4 CD [MP3|320 Kbps
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954179.jpg" />
 </div>
 
 
@@ -525,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954126.jpg" />
 </div>
 
 
@@ -554,7 +711,7 @@ Metamorphosis - Then All Was Silent (2005)  [FLAC|Lossless|image + .cue]<Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953896.jpg" />
 </div>
 
 
@@ -583,7 +740,7 @@ Yogi Lang (ex.RPWL) - No Decoder (2010)  [FLAC|Lossless|image + .cue]<Progressiv
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953755.jpg" />
 </div>
 
 
@@ -597,151 +754,6 @@ Yogi Lang (ex.RPWL) - No Decoder (2010)  [FLAC|Lossless|image + .cue]<Progressiv
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6DDE9F3B2F69561D5A2078028C8E4C540699A8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089162   (953663) от 02.01.2017
-
-Last Autumn's Dream - In Disguise (2016) Japanese Edition [MP3|320 Kbps] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If Love Should Go (Streets) (4:33)
-02. Jet Airliner Time (Steve Miller Band) (4:10)
-03. Working For The Weekend (Lover Boy) (3:48)
-04.Жанр: Melodic Hard RockПродолжительность: 00:47:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B6622ACA41592831BD5A74A5F1DB876E1A1FF6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 623741   (953508) от 27.02.2013
-
-Republica - 3 Albums + 7 Singles + 1 Compilation (1994-2002) [FLAC, APE, WavPack|Lossless] <Dance-Punk, Alternative Rock, Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Dance-Punk, Alternative Rock, Pop-Rock |Продолжительность: 01:10:46
-
-01 | Ready to Go | 05:02
-02 | Drop Dead Gorgeous | 04:30(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088565   (953496) от 02.01.2017
-
-Korn - Follow The Leader (2016) 1998 [FLAC 2.0|192/24|tracks|WEB-DL] <Nu Metal, Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's On! (04:29)
-02. Freak On a Leash (04:15)
-03. Got the Life (03:45)
-04. Dead Bodies Everywhere (04:45)(   Читать дальше...   )Жанр: Nu Metal, Alternative MetalПродолжительность: 01:07:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AB954E7196CD76EDB008D1C37D9BA4387B6F298
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 280275   (953482) от 08.01.2011
-
-Океан Ельзи - Песни высшей пробы (2010) [FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953482.jpg" />
-</div>
-
-
-###  Подробнее
-
-----------------
-01. Я так хочу... [4:42]
-02. Все буде добре [3:08]
-03. Без бою [4:19](   Читать дальше...   )Жанр: RockПродолжительность: 01:18:25
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981260   (953097) от 31.01.2016
-
-Coma Void - Stormking Twilight (2001) [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stormking Twilight
-02. Lord of the Light's Axe
-03. Opal Hill Mining Disaster of 1911
-04. Cast into Misery, Cast into Distress(   Читать дальше...   )Жанр: Death Metal, Doom MetalПродолжительность: 01:08:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6C50F6ED3CCEA9A593CBE83A0F97D28776B8262
 ```
 
 https://mybot314.ru/tekegram_catalog/

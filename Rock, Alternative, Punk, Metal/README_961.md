@@ -1,3 +1,32 @@
+###  Публикация: 1613736   (206980) от 19.02.2023
+
+Mark Knopfler - True Love (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Golden Heart
+02. Wherever I Go (feat. Ruth Moody)
+03. True Love Will Never Fade (Remastered 2021)
+04. This Is Us (feat. Emmylou Harris)(   Читать дальше...   )Жанр: RockПродолжительность: 00:28:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFB5360689A8C43E14D3A3878EDDE8D41A881D8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1614332   (206820) от 21.02.2023
 
 VA - Classic Rock Classic Hits (2023) [MP3|320 Kbps] <Rock>
@@ -6,7 +35,7 @@ VA - Classic Rock Classic Hits (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206820.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Radio Tapok - 7 Singles (2022-2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206790.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ Suzi Quatro, KT Tunstall - Face To Face (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206551.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ Peter Gabriel - Come Talk to Me (Live) (2023) [MP3|320 Kbps] <Progressive Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206521.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ Suzi Quatro & KT Tunstall - Face To Face (2023) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206477.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ Elvis Presley - Aloha from Hawaii via Satellite (1973) 3CD, Deluxe Edition, 2023
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206425.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ Eric Clapton - Rarities 2001-2010 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Bl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206420.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ Eric Clapton - The Definitive 24 Nights (Live) (2023) 3CD [MP3|320 Kbps] <Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206402.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ Denis Pauna - Kill 'Em All ZZ Top Style (2023) [MP3|320 Kbps] <Rock, Blues>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206327.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ Overlord - Fake Salvation (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206316.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ Gorillaz - Cracker Island (2023) Deluxe Edition [FLAC 2.0|44.1/48/24|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206312.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ Elimination - The Blood of Titans (2011) [FLAC|Lossless|image + .cue] <Power, Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206307.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ Gorillaz - Cracker Island (2023) Deluxe Edition [MP3|320 Kbps] <Alternative-Rock
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206266.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ Asia - Axis XXX Live San Francisco (2015) 2CD [FLAC|Lossless|image + .cue] <Pop 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206256.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ CirKus - Avalanche (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206230.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ The Sixting Music - Rendering Pink Floyds (1974) [MP3|320 Kbps] <Progressive Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205962.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ Lorna Shore - 5 альбомов + 4 EP + 1 сингл  (2010-2022) [MP3|256-320
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205881.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ V.A. - Abbey Road Reimagined - A Tribute To The Beatles (2023) [FLAC|Lossless|WE
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205868.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ Alter Bridge - Pawns & Kings (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205854.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ Aerosmith - Greatest Hits (2023) 3CD Deluxe Edition [FLAC|Lossless|WEB-DL|tracks
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205842.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ Underoath - Underoath Voyeurist | Digital Ghost (Live From Digital Ghost) (2023)
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205809.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ VA - Biker Songs That Rock (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205803.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205790.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205776.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ Swanslaughter - Make A Wish (2025) [MP3|320 Kbps] <Hardcore, Metalcore, Deathcor
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205673.jpg" />
 </div>
 
 
@@ -713,35 +742,6 @@ Swanslaughter - Make A Wish (2025) [MP3|320 Kbps] <Hardcore, Metalcore, Deathcor
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3854C0298E0ED20A13AAE508FD0088A91A9757D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1830680   (205644) от 27.10.2025
-
-Coroner - Dissonance Theory (2025) Reissue, Remastered, 2025, Century Media [FLAC|Lossless|image + .cue] <Thrash, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205644.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Dissonance Theory (Album 2025):
-1-1 Oxymoron 0:59
-1-2 Consequence 6:15
-1-3 Sacrificial Lamb 6:03(   Читать дальше...   )Жанр: Thrash, Progressive MetalПродолжительность: 01:11:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:847A7E4D0D504D0A591301F9F8C9A29C935C2634
 ```
 
 https://mybot314.ru/tekegram_catalog/

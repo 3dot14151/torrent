@@ -1,3 +1,67 @@
+###  Публикация: 1299143   (599901) от 01.05.2019
+
+Kenio Fuke - Atlantida (2008) KF Music [FLAC|Lossless|WEB-DL|tracks] <New Age, Relaxation>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Spirit of the Water (5:07)
+ 02. Atlantis Memory (5:25)
+ 03. Atlantida (5:28)
+ 04. Lost Continent (6:04)(   Читать дальше...   )Жанр: New Age, RelaxationПродолжительность: 00:49:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF021B5F7BB057972672624B41A17E32DEC5758B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 525923   (599618) от 23.07.2012
+
+Rain Dance - Music Power for Peace (2002) [MP3|320 кб/с]<New Age, Native American, Folk>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rain Dance
+02. Flying Condor
+03. Allin Quampi
+04. Love Mountain
+05. May you walk in sunshine
+06. Five Spirit
+07. Sunquyman
+08. Four Circles of Live
+09. Tatanka
+10. Axtu Sumix(   Читать дальше...   )Жанр: New Age, Native American, FolkПродолжительность: 01:00:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F48CAEC2A0B725BB1DD0156EBE61631924DC78F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038808   (599532) от 30.07.2016
 
 VA - Country Legends - Men & Women - Country Legends - Men & Women (2013) [MP3|320 Kbps] <Country>
@@ -6,7 +70,7 @@ VA - Country Legends - Men & Women - Country Legends - Men & Women (2013) [MP3|3
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599532.jpg" />
 </div>
 
 
@@ -35,7 +99,7 @@ Angi Schiliro - White Lady (1992) Japan 1-st Press 1993 [FLAC|Lossless|image + .
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599531.jpg" />
 </div>
 
 
@@ -64,7 +128,7 @@ Brule - Star People (2001) [MP3|198~257 Kbps (V1)] <Native American, North Ameri
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599521.jpg" />
 </div>
 
 
@@ -93,7 +157,7 @@ Charlie Chaplin - The Essential Film Music Collection-2 CD (2006) [MP3|320 кб/
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599354.jpg" />
 </div>
 
 
@@ -128,7 +192,7 @@ VA-Enigmatica - 50 Tracks (2005) [MP3|320 кб/с]<New age, Meditative, Relax, F
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599338.jpg" />
 </div>
 
 
@@ -163,7 +227,7 @@ Blue Medicine Music - Indian Groove (2005) [MP3|320 кб/с]<New Age, Native Ame
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599217.jpg" />
 </div>
 
 
@@ -198,7 +262,7 @@ Mark Pinkus - Deep Diving (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Pi
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598375.jpg" />
 </div>
 
 
@@ -227,7 +291,7 @@ Craig Padilla - Heaven Condensed (2016) [MP3|320 Kbps] <Ambient, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598045.jpg" />
 </div>
 
 
@@ -256,7 +320,7 @@ Levin Minnemann Rudess - From the Law Offices Of (2016) [FLAC|Lossless|tracks + 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597487.jpg" />
 </div>
 
 
@@ -285,7 +349,7 @@ Ewan Dobson - 2 Альбома (2008, 2010) [FLAC|Lossless|tracks + .cue] <Acous
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597373.jpg" />
 </div>
 
 
@@ -314,7 +378,7 @@ Fausto Papetti - Collections (2009) [FLAC|Lossless|image + .cue] <Instrumental>
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597056.jpg" />
 </div>
 
 
@@ -343,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596889.jpg" />
 </div>
 
 
@@ -378,7 +442,7 @@ Amure - 8 albums (2010-2015) [FLAC|Lossless|WEB|tracks] <New Age, Enigmatic>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596610.jpg" />
 </div>
 
 
@@ -407,7 +471,7 @@ Kimberly Haynes - In Dreams (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Folk>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_596358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596358.jpg" />
 </div>
 
 
@@ -436,7 +500,7 @@ Muddy Waters - Folk Singer (2013) 1964 [FLAC 2.0|192/24|tracks|WEB-DL]<Blues, Fo
 >>Folk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595971.jpg" />
 </div>
 
 
@@ -465,7 +529,7 @@ Shine Dion - два альбома (1998, 2002) [MP3|192 Kbps, 320 kbps] <folk r
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595959.jpg" />
 </div>
 
 
@@ -494,7 +558,7 @@ Young Summer - Siren (2014) [MP3|320 Kbps] <Indie pop, Alternative>
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595919.jpg" />
 </div>
 
 
@@ -523,7 +587,7 @@ VA - 100 Hits The Midnight Special (2004) [MP3|256 кб/с]<Country, Folk , West
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595585.jpg" />
 </div>
 
 
@@ -558,7 +622,7 @@ Enigma Club - Утро Тибета (2002) [MP3|320 кб/с]<New Age, Ethnic Fus
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595584.jpg" />
 </div>
 
 
@@ -590,7 +654,7 @@ Andres Segovia - Collections 2 альбома - 6CD (1994 - 1998) [APE|Lossless]
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_595523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_595523.jpg" />
 </div>
 
 
@@ -625,7 +689,7 @@ Paddy and the Rats - From Wasteland to Wonderland (2022) [MP3|320 Kbps] <Folk Pu
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594731.jpg" />
 </div>
 
 
@@ -654,7 +718,7 @@ Patrick Doyle - Игорь / Igor (2008) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_594560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594560.jpg" />
 </div>
 
 
@@ -683,7 +747,7 @@ Robin Spielberg - On the Edge of a Dream (2018) [FLAC|Lossless|WEB-DL|tracks] <N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593937.jpg" />
 </div>
 
 
@@ -712,7 +776,7 @@ Vartra - Basma (2022) [MP3|320 Kbps] <Dark Folk, Ethereal, Doom>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593906.jpg" />
 </div>
 
 
@@ -726,64 +790,6 @@ Vartra - Basma (2022) [MP3|320 Kbps] <Dark Folk, Ethereal, Doom>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7685465CE31A0CD2D20AFDE06D8061925AF92845
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548640   (593903) от 06.05.2022
-
-Кметъ - Солнце, Ладога И Киев (2022) [FLAC|Lossless|WEB-DL|tracks] <Pagan Folk Metal, Groove Metal>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Кий, Щек, Хорив и Лыбедь (00:05:07)
-02 - Выше Солнца (00:04:32)
-03 - Капище (00:04:54)
-04 - Иду на Вы (00:04:12)(   Читать дальше...   )Жанр: Pagan Folk Metal, Groove MetalПродолжительность: 00:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E20AD6701DCDF7E8BCC3D4E2E5867561A1967EE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300182   (593697) от 05.05.2019
-
-Joy Williams - Front Porch (2019) [FLAC|Lossless|tracks + .cue] <Folk, Country, Americana>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Canary
-02. Front Porch
-03. When Does A Heart Move On
-04. All I Need(   Читать дальше...   )Жанр: Folk, Country, AmericanaПродолжительность: 00:43:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D5B4ECCAAB8A56C04F8AAF764CDA989E9EEA9BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 339316   (665625) от 21.05.2011
+
+VisiCon 1.1 SE [русский]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_665625.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа обеспечивает возможность любому пользователю изменить или создать свой уникальный проект дизайна интерьера. Программа VisiCon создана для осуществления оперативного или простого дизайна и включает в себя только самые необходимые функции, что позволяет создавать планы первичного проектирования, перепланировку и идеологическую проработку будущих объектов. VisiCon поможет представить наглядные возможности по разделению пространства на гостиную, кухню, спальню и т.д. Используя имеющуюся в программе VisiCon библиотеку трехмерных изображений, пользователь может скомпоновать и расставить мебель по помещениям в режиме реального времени. Кроме того, можно поэкспериментировать с подбором цветовых гам и материалов для отделки стен и пола, рассматривать готовые проекты в 3D виде с различных ракурсов.Язык интерфейса: русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538667   (662018) от 21.03.2022
+
+ArchvizTools - Backdrop Generator 1.0 [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662018.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скрипт, который эффективен для автоматического создания 2D фона в 3dsMax. Совместим с V-ray и Corona Renderer.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F2AD68302B19E6E203EB99B581D4D67A378449C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 902866   (658393) от 30.05.2015
+
+CrazyTalk 7.32.3114.1 Pro + Custom Content Packs Repack by Kindly [Ru/En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658393.jpg" />
+</div>
+
+
+###  Подробнее
+
+CrazyTalk — новая обновленная и улучшенная версия программы для "оживления" в реальном времени статических фотографий с помощью фирменной технологии 3D фото морфинга Facetrix с добавлением эмоций, речи, звукового сопровождения. В этой версии можно добавить элементы лица и еще много другого. Программа предназначена для художников, аниматоров, но при этом (   Читать дальше...   )Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F16F15F7FC016D544BCB644EA169C280A780FC72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 906746   (643235) от 09.06.2015
 
 Anim8or 0.9.8.0 Portable [En]
@@ -6,7 +84,7 @@ Anim8or 0.9.8.0 Portable [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643235.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ MultiTexture Map 1.0.2 для 3DS Max 9, 2008, 2009, 2010, 2011, 2012, 2013 x86/
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_620126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_620126.jpg" />
 </div>
 
 
@@ -61,7 +139,7 @@ Nitro4D NitroBlast 2.0.2 for Cinema 4D  [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607782.jpg" />
 </div>
 
 
@@ -88,7 +166,7 @@ Smith Micro Anime Studio Pro 11 Build 15858 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604591.jpg" />
 </div>
 
 
@@ -114,7 +192,7 @@ Reallusion CrazyTalk Pipeline 8.13.3615.3 + Resource Pack [Ru/En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604189.jpg" />
 </div>
 
 
@@ -140,7 +218,7 @@ Rayfire 1.65.01 for 3ds Max 2014-2015 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599388.jpg" />
 </div>
 
 
@@ -168,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_587741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587741.jpg" />
 </div>
 
 
@@ -194,7 +272,7 @@ Anima 2.0.2 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574093.jpg" />
 </div>
 
 
@@ -220,7 +298,7 @@ Itoo RailClone Pro 3.3.1 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537559.jpg" />
 </div>
 
 
@@ -247,7 +325,7 @@ Artlantis Studio 4.1.7 x64 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511998.jpg" />
 </div>
 
 
@@ -274,7 +352,7 @@ V-ray 3.10.01 for Maya 2015-2016 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510608.jpg" />
 </div>
 
 
@@ -300,7 +378,7 @@ Reallusion iClone Pro 6.2.2102.1 Retail + Resource Pack [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501909.jpg" />
 </div>
 
 
@@ -326,7 +404,7 @@ RayFire 1.81 for 3ds Max 2017-2018 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493535.jpg" />
 </div>
 
 
@@ -354,7 +432,7 @@ Trypogen 1.5 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487737.jpg" />
 </div>
 
 
@@ -380,7 +458,7 @@ MoFractal v.1 For Cinema 4d [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486901.jpg" />
 </div>
 
 
@@ -406,7 +484,7 @@ Pixologic Sculptris [Eng] Alpha 6
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462181.jpg" />
 </div>
 
 
@@ -436,7 +514,7 @@ Manga Studio EX 5.0.6 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457075.jpg" />
 </div>
 
 
@@ -463,7 +541,7 @@ Influence Point v1.5.2 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409464.jpg" />
 </div>
 
 
@@ -490,7 +568,7 @@ Depliage V1.3.2 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409461.jpg" />
 </div>
 
 
@@ -516,7 +594,7 @@ Alveole v1.0.3 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409337.jpg" />
 </div>
 
 
@@ -543,7 +621,7 @@ Topoformer 1.1 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385212.jpg" />
 </div>
 
 
@@ -569,7 +647,7 @@ Quixel Megascans + Studio + Bridge 0.922 beta [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385096.jpg" />
 </div>
 
 
@@ -595,7 +673,7 @@ GreyscaleGorilla - Light Kit Pro v3 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383314.jpg" />
 </div>
 
 
@@ -606,87 +684,6 @@ Light Kit Pro 3 - это студийный плагин освещения дл
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70EEEE6DC310B4AF615428E9A96AB1B052D88A68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254609   (372642) от 14.10.2018
-
-AwesomeBump V5.1 Portable 5.1 [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372642.jpg" />
-</div>
-
-
-###  Подробнее
-
-AwesomeBump - это программа с открытым кодом созданная для генерирования текстурных карт нормалей, высот, отражений, а также АО из простого изображения. Так как весь процесс осуществляется на 99% с помощью GPU процессоров видеокарты, результаты можно получить очень быстро, а все параметры можно менять практически "на лету".
-Генератор был создан как альтернатива (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7A7D6E055F02A84C1BDE5846B11414C1E91D75F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178313   (357503) от 27.10.2017
-
-Phoenix FD 3.04.00 for 3ds max 2013-2018 [En]
-
->>След.
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357503.jpg" />
-</div>
-
-
-###  Подробнее
-
-Phoenix Fluid Dynamics — это плагин для моделирования и рендеринга газообразных состояний (огня и дыма) в Autodesk 3ds Max.
-Мощное средство для быстрого расчета и моделирования огня и дыма в 3ds Max, его основное отличие от других программных продуктов подобного рода — феноменальная скорость расчета и реалистичность моделируемых процессов. Также стоит отметить полную (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:742D31DDF619610036A55EC10911827618E3842E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178062   (355262) от 28.10.2017
-
-NVIDIA Mental Ray v.3.14.3.31 for Maya 2017 [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355262.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программное обеспечение для визуализации NVIDIA® mental ray® помогает помогает создавать реалистичные изображения превосходного качества. Оно объединяет в себе физически корректную симуляцию освещения с полной программируемостью.
-Это позволяет профессионалам создавать любые визуальные эффекты. Mental ray используется профессионалами, работающими в отрасли более 25 (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4CA2104E04C5BE180044B24C1CF6487DC0A32E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

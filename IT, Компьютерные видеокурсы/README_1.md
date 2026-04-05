@@ -1,3 +1,112 @@
+###  Публикация: 1846328   (1051479) от 08.01.2026
+
+Евгений Паромов | Продвинутая типизация TypeScript (2025) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051479.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хочешь сделать переиспользуемый компонент, но кроме any в голову ничего не приходит? Снова ошибка в TypeScript, и непонятно, как её исправить? Боишься открывать типы популярных библиотек, потому что там сплошная «чёрная магия»? Ты не один такой.Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 25:15:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8FEE4CCF9B3D59D03C4A55B475E81D42A842CED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846507   (1051470) от 08.01.2026
+
+Udemy | Full Kaspersky Training [Endpoint SEC, Hybrid Cloud, EDR] (2022) PCRec [En]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы когда-нибудь работали в виртуальной лаборатории, которая полностью имитирует ИТ-инфраструктуру реальной корпорации? Это не просто сухая теория, а глубокое погружение в администрирование систем защиты Kaspersky в условиях, максимально приближенных к «боевым».Производство: UdemyЖанр: видеокурс, обучающий курсЯзык озвучки: английскийПродолжительность: 10:46:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38DF3F4A5E755B00F3192BC5AEDBFCC9D133DB83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845967   (1051023) от 04.01.2026
+
+Udemy, Dmitrii Fokeev | Полный курс по JavaScript - С нуля до результата! (2025) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051023.jpg" />
+</div>
+
+
+###  Подробнее
+
+Привет!) Меня зовут Дима.
+
+И я рад вам представить самый полный и самый современный курс по самому востребованному языку программирования, JavaScript.
+(   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: РусскийПродолжительность: 29:39:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CE5431C5240130228C4D673CAA2D64B84EA8440
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845192   (1050639) от 01.01.2026
+
+Self Made Engineer, Tiago Taquelim | Complete Microservices with Go (2025) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050639.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе, основанном на практическом проекте, вы с нуля создадите систему микросервисов для сервиса поездок в стиле Uber - используя Go, Docker и Kubernetes.
+Курс включает мини-курс по продвинутому Go, поэтому вы получите полный набор знаний, даже если только начинаете знакомство с языком.
+К концу обучения у вас будет полностью развернутая, горизонтально масштабируемая (   Читать дальше...   )Производство: Self Made EngineerЖанр: Обучающий курсЯзык озвучки: АнглийскийПродолжительность: 18:31:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD49C60BBB59CE6AEACDE94AD9AB807D0D4DDBF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1844926   (1050407) от 28.12.2025
 
 OTUS, Сергей Потамошнев, Артем Павлов |  Rust Developer. Basic (2025) PCRec [RU]
@@ -6,7 +115,7 @@ OTUS, Сергей Потамошнев, Артем Павлов |  Rust Develop
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050407.jpg" />
 </div>
 
 
@@ -34,7 +143,7 @@ OTUS, Владимир Елфимов | LLM Driven Development. Разработ
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050406.jpg" />
 </div>
 
 
@@ -60,7 +169,7 @@ OTUS, Андрей Вилков | GitOps (2025) PCRec [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050260.jpg" />
 </div>
 
 
@@ -86,7 +195,7 @@ OTUS, Вячеслав Федосеев | CICD на основе GitLab (2025) P
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050256.jpg" />
 </div>
 
 
@@ -112,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050244.jpg" />
 </div>
 
 
@@ -138,7 +247,7 @@ Patreon, Timur Shemsedinov | Асинхронное программирован
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050241.jpg" />
 </div>
 
 
@@ -164,7 +273,7 @@ OTUS, Олег Каратаев | Архитектор 1С (2025) PCRec [AD] [RU
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050091.jpg" />
 </div>
 
 
@@ -190,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049294.jpg" />
 </div>
 
 
@@ -216,7 +325,7 @@ Stepik, Михаил Трунов | Командная строка для ра�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049293.jpg" />
 </div>
 
 
@@ -242,7 +351,7 @@ Onskills, Семен Глушков | Онлайн-курс по нейросе�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049292.jpg" />
 </div>
 
 
@@ -268,7 +377,7 @@ TCM Security Academy, Andrew Prince | Security Operations 101 (2024) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048688.jpg" />
 </div>
 
 
@@ -294,7 +403,7 @@ TCM Security Academy, Andrew Prince | Security Operations 201 (2024) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048687.jpg" />
 </div>
 
 
@@ -320,7 +429,7 @@ EC-Council, Keith Rayle | EC-Council Certified DevSecOps Engineer (2024) PCRec [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048611.jpg" />
 </div>
 
 
@@ -346,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048370.jpg" />
 </div>
 
 
@@ -372,7 +481,7 @@ Stepik, Pragmatic Programmer | SQL практикум. Полный курс (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048243.jpg" />
 </div>
 
 
@@ -398,7 +507,7 @@ Julia Marketing, Алёна Волкова | Веб-дизайнер сайто�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047947.jpg" />
 </div>
 
 
@@ -424,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047729.jpg" />
 </div>
 
 
@@ -450,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047728.jpg" />
 </div>
 
 
@@ -476,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047727.jpg" />
 </div>
 
 
@@ -502,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047596.jpg" />
 </div>
 
 
@@ -528,7 +637,7 @@ Stepik, Илья Фофанов | Профессия Python-разработчи
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047513.jpg" />
 </div>
 
 
@@ -554,7 +663,7 @@ IT Start, Дмитрий Тарасов | Курс по Python 3 (2024) PCRec [A
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047510.jpg" />
 </div>
 
 
@@ -565,113 +674,6 @@ IT Start, Дмитрий Тарасов | Курс по Python 3 (2024) PCRec [A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25E2D3234360382E4E9665DC638626A25644F099
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840746   (1047459) от 07.12.2025
-
-Stepik, Дмитрий Фокеев | Курс по WordPress с нуля до результата. Создание сайтов без кода (2024) PCRec [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс по WordPress познакомит вас со всеми инструментами для создания современного сайта с любым дизайном и полным функционалом без подписок и дополнительных трат, которые есть у других CMS и конструкторов сайтов.Производство: StepikЖанр: видеокурс, обучающий курс, создание сайтов, WordPressЯзык озвучки: русскийПродолжительность: 13:43:40Реклама: наложение на видео (плашка спонсоров)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D60676D8D35EFE1FCAEEA3A75D102D00BCA8C4F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840077   (1047006) от 02.12.2025
-
-OTUS, Владимир Елфимов | LLM Driven Development. Разработка и эксплуатация AI: полный курс для профессионалов (2025) PCRec [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1047006.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс охватывает полный цикл разработки и внедрения больших языковых моделей — от основ архитектуры AI и подготовки данных до тонкостей MLOps, мониторинга и оптимизации. Программа основана на реальных кейсах и инструментах, которые уже сейчас востребованы в индустрии.Производство: OTUSЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 53:54:20Реклама: Наложения на видео и вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CE0F8C8E130B791959EC733BCD3D740F898D6F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839732   (1046800) от 30.11.2025
-
-Rush Academy, Евгений Милованцев, Михаил Охотников, Мария Скрипова и др.| Профессия AI SEO-специалист (2024) PCRec [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046800.jpg" />
-</div>
-
-
-###  Подробнее
-
-На курсе вы:
-получите профессию “SEO-специалист” уровня middle с зарплатой от 70 000 руб. на старте и 120 000 руб. в среднем;
-научитесь продвигать сайты любой тематики в ТОП Яндекс и Google;
-автоматизируете SEO-рутину и ускорите работу с помощью нейросетей;(   Читать дальше...   )Производство: Rush AcademyЖанр: Обучающий курс, нейросети, SEOЯзык озвучки: русскийПродолжительность: 67:12:44Реклама: наложение на видео (плашка спонсоров и QR-код)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A0A2806024CF5DEF3F62E8F98C4D4CCB05A0A86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839775   (1046777) от 30.11.2025
-
-Stepik, Василий Еремин | 1С программирование для начинающих (2025) PCRec [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046777.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данном курсе понятным и простым языком вы получите необходимую информацию для начинающего программиста 1С.Производство: StepikЖанр: видеокурс, обучающий курс, программирование, 1СЯзык озвучки: русскийПродолжительность: 13:13:27Реклама: наложение на видео и в презентации (плашка спонсоров)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:009362F9D4B7B14CA5EFBFA4D675828764F4AA5C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,133 @@
+###  Публикация: 1463978   (502491) от 16.07.2022
+
+Тимошкина елка. Сборник мультфильмов Владимира Дегтярёва (1966-1973) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы (коллекции, сборники / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник отечественных мультфильмов, в который вошли следующие мультфильмы, созданные Владимиром Дегтяревым: Тимошкина елка, Снегурка, Сладкая сказка, Как Ослик счастье искал, Новогодняя сказка, Волшебные фонарики.Производство: СССР /  Киностудия «Союзмультфильм»Жанр: Рисованная анимация, Кукольный, Сказка, ДетскийРежиссер: Владимир ДегтярёвСубтитры: ОтсутствуютПродолжительность: 01:11:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8FB61FCB795E167023EBF12B9556E8A8221EE78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 378332   (502435) от 25.08.2011
+
+Замочек с секретом (1985) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Детский, Рисованая анимацияРежиссер: Леонид КощениковПродолжительность: 00:19:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BD74F81F4D8B7BE1809122CE319F7B896379A70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 377768   (502415) от 25.08.2011
+
+Лямзи-Тыри-Бонди, злой волшебник (1976) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Приключения, Рисованая анимацияРежиссер: Марианна НовогрудскаяПерсонажи: Коля Рогов, Лямзи-Тыри-БондиПродолжительность: 00:09:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:860C2917A88DC9CF0A996AE9DE6B768AF3A7AE5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478266   (502219) от 16.07.2022
+
+Сборник мультфильмов о Лисенке (1989-1994) SATRip - DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы (коллекции, сборники / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502219.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник старых добрых советских мультфильмов о том, как маленький Лисёнок открывает для себя мир, а заодно, проявляет отзывчивость, храбрость и любознательность.Жанр: Детский, Рисованная анимацияРежиссер: Борис ТузановичПродолжительность: 00:07:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AC275D83EC4ECD924069CEBDD533AFF574AAD7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 304375   (502214) от 16.07.2022
+
+Умка ищет друга / Сборник мультфильмов, Умка, Умка ищет друга, Птичка Тари, Халиф-аист, Терем-теремок, Кот Котофеевич, Жил-был пес, Осторожно, обезьянки (1969-1982) DVD5
+
+>>Мультфильмы
+>>Отечественные Мультфильмы (коллекции, сборники / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_502214.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультфильмы режиссеров Владимира Попова и Владимира Пекаря. Белый медвежонок по имени Умка (от чук. умкы — «самец белого медведя») случайно познакомился с мальчиком. Они подружились. Однако люди уходят из той местности, где жил Умка. Медвежонок расстроен и решает найти своего друга. Во 2-й части мультфильма, придя на полярную станцию, Умка, после ряда забавных приключений, (   Читать дальше...   )Жанр: Рисованая анимация, Детский, ПриключенияРежиссер: Владимир Попов, Владимир Пекарь, Геннадий Сокольский, Леонид Амальрик, Валерий Угаров, Галина Баринова, Леонид Шварцман, Эдуард НазаровПродолжительность: 01:27:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 314050   (502209) от 16.07.2022
 
 Волк и теленок / Сборник мультфильмов (1960- 1984) DVD9  ["Крупный план". Полная реставрация изображения и звука]
@@ -6,7 +136,7 @@
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502209.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502208.jpg" />
 </div>
 
 
@@ -61,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_502206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_502206.jpg" />
 </div>
 
 
@@ -87,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502201.jpg" />
 </div>
 
 
@@ -113,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502041.jpg" />
 </div>
 
 
@@ -140,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501897.jpg" />
 </div>
 
 
@@ -167,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501348.jpg" />
 </div>
 
 
@@ -193,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501177.jpg" />
 </div>
 
 
@@ -219,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501090.jpg" />
 </div>
 
 
@@ -247,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500862.jpg" />
 </div>
 
 
@@ -273,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500858.jpg" />
 </div>
 
 
@@ -299,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500285.jpg" />
 </div>
 
 
@@ -325,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500267.jpg" />
 </div>
 
 
@@ -351,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500239.jpg" />
 </div>
 
 
@@ -377,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500188.jpg" />
 </div>
 
 
@@ -403,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500120.jpg" />
 </div>
 
 
@@ -429,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500057.jpg" />
 </div>
 
 
@@ -456,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499840.jpg" />
 </div>
 
 
@@ -482,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499529.jpg" />
 </div>
 
 
@@ -508,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499375.jpg" />
 </div>
 
 
@@ -534,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499372.jpg" />
 </div>
 
 
@@ -545,137 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C85E2AA005F3DE861C7758E8B0DD52F0FA7C9A32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 306177   (499257) от 19.07.2022
-
-Загадочная планета. Сборник мультфильмов (1974-1993) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499257.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник из 6 мультфильмов, объединённые одним жанром: исследование чужих, загадочных планет.Производство: СССР, Творческое Объединение «ЭКРАН»Жанр: ДетскийРежиссер: Б. Ардов, А. Соловьёв, В. Самсонов, Г. Тищенко, М. НовогрудскаяАктеры: Алексей Баталов, Мария Виноградова, Виктор Сергачев и др.Субтитры: ОтсутствуютПродолжительность: 01:23:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:623C637C8A4DC990F7C1AC3D5F8D4C2AA7D6D062
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 185294   (499256) от 19.07.2022
-
-Сборник мультфильмов: Именины сердца-1 (1954-1988) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499256.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник Советских мультфильмов в количестве 18 шт.
-И открывает наш хит-парад сказка: В Стране невыученнных уроков.Производство: СССР, СоюзмультфильмЖанр: Детский, Рисованная анимацияРежиссер: Юрий ПрытковАктеры: Анастасия Георгиевская, Алексей Грибов, Николай Литвинов, Анатолий Папанов, Клара Румянова и др.Субтитры: ОтсутствуютПродолжительность: 00:19:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D29B1E7278B6161D8DEDCF49B575C24CA9EB229B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932412   (499020) от 08.09.2015
-
-Новый Гулливер (1935) DVDRip [H.264] [hand made colored]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пионер Петя Константинов как лучший юный осводовец (ОСВОД - в СССР Общество спасения на водах) в качестве награды получает любимую книгу - "Путешествия Гулливера" Джонатана Свифта. Вместе с другими пионерами, своими руками отремонтировавшими парусную лодку со звучным именем "Артек", он отправляется на прогулку к ближайшему от пионерского лагеря (   Читать дальше...   )Производство: СССР, Московская Кино-ФабрикаЖанр: мультфильм, фэнтези, комедияРежиссер: Александр ПтушкоАктеры: Владимир Константинов, Иван Юдин, Иван Бобров, Феликс Брест, Юрий Хмельницкий, Михаил Дагмаров, Ака Неусыхин, Борис ЕвгеньевПродолжительность: 01:12:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5D465DDF21D55AD0239BEB80555E1981B84F173
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542216   (498996) от 02.09.2012
-
-Симпсоны / The Simpsons (Season 9, серии 01-25 из 25) (1997) DVDRip
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультфильм - пародия на американский уклад жизни. Cемейство Симпсонов состоит из пяти членов: папаша Гомер, мать семейства Мардж, их дочери Лиза и Мэгги и несносный подросток Барт.Жанр: КомедияРежиссер: Марк Керклэнд, Джефф Линч, Сьюзи ДиттерАктеры: Дэн Кастелланета, Джули Кавнер, Нэнси Картрайт, Ярдли Смит, Гарри Ширер, Хэнк Азария, Памела Хейден, Тресс МакНилл, Карл Видерготт, Мэгги РосвэллПеревод: Многоголосый закадровый (Ren TV)Продолжительность: 25 серий по ~00:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA450D82E804DFED28DB53199A5EE1F7DECA2480
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935694   (498307) от 09.09.2015
-
-Кокоша – маленький дракон / Der kleine Drache Kokosnuss (2014) BDRip 3D [AVC/H.264/1080p] [Вертикальная анаморфная стереопара] [Line]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498307.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дракончик Кокоша и его друг, дракончик Оскар, жили на Острове Драконов. Были они не такими, как все. Кокоша очень хотел стать летающим драконом, но летать у него не получалось. А Оскар, хищник по рождению, был убежденным вегетарианцем. Однажды вместе со своей подружкой, дикобразихой Матильдой, они решили отправиться в рискованное путешествие…Производство: Германия / Caligari Film- und Fernsehproduktions GmbH, Universum Film (UFA), Virgin Lands Animated Pictures, Zweites Deutsches Fernsehen (ZDF)Жанр: Мультфильм, ДетскийРежиссер: Хьюберт Вейланд, Нина ВелсПерсонажи: Каролин Кебекус,  Клаудия Михельсен,  Дастин Земмельрогге,  Макс фон ГробенПеревод: ДублированныйПродолжительность: 01:22:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D9CBBC69D18672C5F7E30F933A0E4CBB8B43752
 ```
 
 https://mybot314.ru/tekegram_catalog/

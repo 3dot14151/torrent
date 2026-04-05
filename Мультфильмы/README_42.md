@@ -1,3 +1,135 @@
+###  Публикация: 1358605   (968508) от 08.02.2020
+
+Зомбиллениум / Zombillenium (2017) BDRip [H.264/1080p-LQ] [PR]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зомбиллениум — тематический парк, единственное место на земле, где настоящие зомби могут быть на виду. Когда Гектор, человек, грозит раскрыть истинную сущность сотрудников, начальство парка вынуждено принять его на работу. Чтобы увидеть свою дочь, Гектору придётся убежать от своих сотрудников — зомби и оборотней.Производство: Франция, Бельгия / Belvision, Dupuis Edition&Audiovisuel, Universal Pictures...Жанр: Фэнтези, Детский, Комедия, ПриключенияРежиссер: Артур де Пинс, Алексис ДюкорПеревод: Многоголосый закадровый, профессиональный (КОЛОБОК)Субтитры: Английские (PGS)Продолжительность: 01:20:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDA842710FF1E2B81FDC1ABA58DB94ADF679CCA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358461   (968431) от 08.02.2020
+
+Потерянное звено / Missing Link (2019) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968431.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесстрашный натуралист и исследователь Лайонел Фрост поставил перед собой задачу рассказать миру о существовании разных созданий, о которых говорят только легенды. Его новым открытием становится Линк, так называемое "недостающее звено" - одинокий йети, проживающий в глухих лесах Северной Америки. Фрост решает помочь новому другу найти ближайших родственников, (   Читать дальше...   )Производство: США, Канада, Laika EntertainmentЖанр: Фэнтези, Комедия, ПриключенияРежиссер: Крис БатлерПеревод: Дублированный (iTunes)Субтитры: русские, английскиеПродолжительность: 01:34:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC13848541ED557224C57D04CF656970AC244EE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 618980   (968314) от 15.02.2013
+
+Кошмар перед Рождеством / The Nightmare Before Christmas (1993) BDRip [1080p] [Вертикальная анаморфная стереопара 3D]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультфильм рассказывает о царстве Хэллоуин, царстве страхов и кошмаров, где живут мертвецы, уродцы, чудовища во главе с царем ужасов Джеком Скелингтоном. Под рождество Джек случайно попадает в город Рождества, где узнает, что есть где-то радость, добро и веселье.
+Ему страшно захотелось испытать это чувство — дарить людям счастье — и он похитил Сэнди Клауса и занял (   Читать дальше...   )Жанр: Мультфильм, Мюзикл, Фэнтези, Семейный, ...Режиссер: Генри СеликПерсонажи: Дэнни Элфман,  Крис Сарандон,  Кэтрин О’Хара,  Уильям Хикки,  Гленн Шэдикс,  Пол Рубенс,  Кен Пейдж,  Эд Айвор,и  Сьюзэн МакБрайд,  Деби ДерстПеревод: Дублированный (впервые на БД) студийный перевод, закадровый многоголосый (2 шт.)Продолжительность: 01:16:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3A254452A771F59CB6CF69BE32F8913E7F4228A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 168233   (968210) от 22.01.2010
+
+Саакянц. БЕРГ САУНД | Всемирная история. Древняя Греция (2009) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968210.jpg" />
+</div>
+
+
+###  Подробнее
+
+Древняя Греция - колыбель всех современных цивилизаций! То, как мы живём (политика и устройство государства), то, чем мы наслаждаемся (театр, музыка и литература), как следим за своим здоровьем (медицина и спорт) и как познаём мир (математика, физика, механика) - все это и многое, многое другое появилось и развилось на этой благодатной земле!
+Наши герои - Дедушка (   Читать дальше...   )Производство: Россия, ООО "Элит" по заказу ООО "БЕРГ САУНД"Жанр: рисованная анимация, развивающий, детскийРежиссер: Роберт СаакянцПеревод: не требуется (изначально русскоязычная озвучка)Субтитры: отсутствуютПродолжительность: 00:41:52
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 744863   (967980) от 14.01.2014
+
+Том и Джерри: Гигантское приключение / Tom and Jerry's Giant Adventure (2013) BDRip [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967980.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом мультфильме Том и Джерри — одни из последних зверушек, оставшихся в парке развлечений «Город сказок». Здесь «мечты оживают, если ты веришь в это». Мальчик Джек хочет спасти парк от рук жадного миллиардера и вместе со своими верными друзьями — котом и мышонком — решает продать своего бычка за пригоршню волшебных бобов. Забравшись по гигантскому бобовому стеблю (   Читать дальше...   )Производство: США / Warner Bros.Жанр: Рисованная анимация, КомедияРежиссер: Спайк Брандт, Тони СервонеПерсонажи: Джейкоб Бертран, Грэй ДеЛисл, Гаррисон Кейллор, Пол Рубенс, Томас Ф. Уилсон, Джо Аляски,  Ричард МакГонагл,  Джон Ди Маджио,  Кэт СаусиПеревод: ДублированыйСубтитры: Вшитые отключаемыеЯзык субтитров: Русский, AнглийскийПродолжительность: 00:57:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:364AF125A5F123CB08ABFADF04311B404A6C2424
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 744887   (967933) от 14.01.2014
 
 Альфа и Омега: Приключения праздничного воя / Alpha and Omega 2: A Howl-iday Adventure (2013) BDRip [720p]
@@ -6,7 +138,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967933.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967439.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967436.jpg" />
 </div>
 
 
@@ -84,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967420.jpg" />
 </div>
 
 
@@ -110,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967338.jpg" />
 </div>
 
 
@@ -136,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967325.jpg" />
 </div>
 
 
@@ -162,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967249.jpg" />
 </div>
 
 
@@ -188,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967189.jpg" />
 </div>
 
 
@@ -214,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967169.jpg" />
 </div>
 
 
@@ -240,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967068.jpg" />
 </div>
 
 
@@ -266,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967009.jpg" />
 </div>
 
 
@@ -292,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967008.jpg" />
 </div>
 
 
@@ -318,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966973.jpg" />
 </div>
 
 
@@ -344,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966966.jpg" />
 </div>
 
 
@@ -370,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966959.jpg" />
 </div>
 
 
@@ -396,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966938.jpg" />
 </div>
 
 
@@ -422,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966922.jpg" />
 </div>
 
 
@@ -448,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966867.jpg" />
 </div>
 
 
@@ -474,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966383.jpg" />
 </div>
 
 
@@ -500,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966314.jpg" />
 </div>
 
 
@@ -527,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966273.jpg" />
 </div>
 
 
@@ -538,137 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE4CB0EB64757A747F4722639B6003836B248F78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977235   (966264) от 20.01.2016
-
-Кунг-фу Панда / Kung Fu Panda (2008) BDRip [H.264/1080p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спасение Долины Мира и всех ее обитателей от непобедимого и безжалостного мастера Тай Лунга должно лечь на плечи Воина Дракона, Избранного среди лучших из лучших, коим становится… неуклюжий, ленивый и вечно голодный панда По.
-Ему предстоит долгий и трудный путь к вершинам мастерства кунг-фу бок о бок с легендарными воинами: Тигрой, Обезьяной, Богомолом, Гадюкой и (   Читать дальше...   )Производство: США / DreamWorks Animation, Pacific Data Images (PDI), James Baxter AnimationЖанр: Компьютерная анимация, Боевик, Комедия, Приключения, СемейныйРежиссер: Марк Осборн, Джон СтивенсонПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:32:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79EE7A957D37A4ECA24B302FE01E4C3F3163A0E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 620090   (966117) от 17.02.2013
-
-Космический спецназ Гарфилда / Garfield's Pet Force (2009) BDRip [1080p] [Вертикальная анаморфная стереопара 3D]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всем известный кот-толстяк Гарфилд, большой любитель лазаньи, утраивает пикник со своими друзьями, но этот чудный день был испорчен непрошеными гостями. Оди и Нермал становятся супергероями, чтобы прогнать их, но Гарфилд не следует их примеру, ему просто лень. Но когда друзья оказываются в беде, кот понимает, что пришло время надеть маску героя.Жанр: Мультфильм, Комедия, Семейный, ...Режиссер: Марк А.З. ДиппеПерсонажи: Грегг Бергер,  Кэти Кавадини,  Дженнифер Дарлинг,  Грег Иглз,  Грег Финли,  Джефф Фишер,  Ванесса Маршалл,  Дэвид Мичи,  Пейдж Поллак,  Нил РоссПеревод: Многоголосый закадровыйПродолжительность: 01:13:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9FBAA6893A16951DF91C7D2DBC31DC8B123D13F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 620078   (966058) от 17.02.2013
-
-Бумажный роман / Paperman (2012) [1080p] BDRemux
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966058.jpg" />
-</div>
-
-
-###  Подробнее
-
-Середина двадцатого столетия. Нью-Йорк. Одинокий молодой человек на платформе вокзала. Еще мгновение — и судьба подарит ему удивительный шанс, который, возможно, бывает раз в жизни. Он встретит красавицу, чей взгляд мгновенно покорит его сердце. Но девушка его мечты так же быстро исчезает, как и появляется. Будет ли у героя мультфильма вторая попытка?Производство: СШАЖанр: короткометражка, мелодрама, комедияРежиссер: Джон КарсАктеры: Джон Карс, Джефф Тарлей, Кэри УолгренПеревод: Без словСубтитры: ОтсутствуютПродолжительность: 00:06:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:670D494ACCFBA3BDC78BCC84ADFF56963321D3AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 620173   (965927) от 17.02.2013
-
-Обитель зла: Проклятие / Biohazard: Damnation (2012) [H.264/1080p-LQ] BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение популярной компьютерной анимации «Обитель зла: Вырождение». Леон Кеннеди отправляется в Восточную Европу на борьбу с монстрами — порождениями корпорации Амбрела. Больше монстров, больше пушек, больше экшена.Производство: Япония | Digital Frontier, Sony Pictures Entertainment, Capcom CompanyЖанр: Мультфильм, Ужасы, Фантастика, Боевик, ТриллерРежиссер: Макото КамияПерсонажи: Робин Сакс, Кортни Тейлор, Кэролин Лоуренс, Мэттью Мерсер, Уэнди Ли, Дейв Уиттенберг, Салли Саффиоти, Вэл Тассо, Элисон КортПеревод: Профессиональный, Многоголосый закадровыйСубтитры: НетПродолжительность: 01:40:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55F4D8B30E061AA9633A020942E936B0D5CEE132
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359054   (965840) от 10.02.2020
-
-Робин Гуд / Robin Hood (1973) HDRip [H.265] [10-bit]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в дремучий Шервудский лес, где ты встретишь храброго и забавного лисенка по имени Робин Гуд и его лучшего друга Крошку Джона — большого добродушного медведя. Эту веселую компанию давно разыскивает шериф Нотингема. Он готовит друзьям ловушку: на турнире лучников Робин Гуда будет ждать засада. Но отважный лисенок все равно собирается участвовать в (   Читать дальше...   )Производство: США / Walt Disney Productions, Walt Disney Animation StudiosЖанр: мультфильм, мелодрама, комедия, приключения, семейныйРежиссер: Вольфганг РайтерманПеревод: ДублированныйСубтитры: Русские, английскиеПродолжительность: 01:23:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ABAD5FBC99DA359D38D7D19F38DC3B396CD4399
 ```
 
 https://mybot314.ru/tekegram_catalog/

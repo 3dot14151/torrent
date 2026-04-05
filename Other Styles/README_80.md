@@ -1,3 +1,61 @@
+###  Публикация: 1035211   (628410) от 16.07.2016
+
+Alexandre Desplat - The Secret Life of Pets / Тайная жизнь домашних животных (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meet the Pets (02:38)
+02. Katie's Leaving (00:56)
+03. Meet Duke (03:37)
+04. Fetch Me a Stick (03:10)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:660C307FC484DAA18162AF4C0D1364FB2BBF540C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229259   (627949) от 05.06.2018
+
+Argishty - Трубка мира (2018) [MP3|320 Kbps] <Instrumental Folk, World, Armenian Duduk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая пластинка Argishty переполнена экспериментами и замечательными находками. Так дудук еще не звучал: тут и соединение с аутентичным фламенко, и православный распев с голосом батюшки из Александро-Невской Лавры, и даже знаменитое танго!... Argishty снова раздвигает границы эклектики в звучании древнего инструмента!01. You must return - Ты должна вернуться (PAD Version)
+02. Tsvite Teren (Ukranian folk song) - Цвите Терен (укр. нар.)
+03. Kamancha (Sayat Nova) - Кеманча (Саят Нова)
+04. Aravot Luso (Armenian folk song) - Аравот Лусо (арм. нар.)(   Читать дальше...   )Жанр: Instrumental Folk, World, Armenian DudukПродолжительность: 00:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:291492038645F5E7FE0B30D973A6FA8473A47297
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1229207   (627948) от 05.06.2018
 
 Артель РОСА - Счастливые люди (2018) [MP3|320 Kbps] <Russian Urban Folk>
@@ -6,7 +64,7 @@
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627948.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ David Wright - Beyond the Airwaves Vol. 1 (2014) [MP3|320 кб/с]<Electronic, N
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627927.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Messer Chups - The Incredible Crocotiger (2015) [MP3|320 кб/с]<Surf, Psychobi
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627635.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Jesse Cook - One World (2015) [FLAC|Lossless|WEB-DL]<Flamenco, New Age, World mu
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627629.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Franck Pourcel - plays Abba & The Beatles (2010) [MP3|320 kbps]<Instrumental>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627296.jpg" />
 </div>
 
 
@@ -148,7 +206,7 @@ Mass Effect Trilogy - Original Videogame Soundtrack (2007-2013) [MP3|320 кб/с
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627138.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ Era - Greatest Hits 2 CD (2008) [MP3|320 kbps]<New Age, Enigmatic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_626959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_626959.jpg" />
 </div>
 
 
@@ -212,7 +270,7 @@ VA - Spirit Horse (2016) [MP3|320 Kbps] <New Age, World>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626708.jpg" />
 </div>
 
 
@@ -241,7 +299,7 @@ Sean Christopher - Mystique (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626662.jpg" />
 </div>
 
 
@@ -270,7 +328,7 @@ Ennio Morricone - Film Music - 5 Альбомов (1987-2004) [MP3|320 кб/с]<
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626624.jpg" />
 </div>
 
 
@@ -305,7 +363,7 @@ VA - Ghostbusters / Охотники за привидениями (Original Mot
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626580.jpg" />
 </div>
 
 
@@ -334,7 +392,7 @@ VA - Ghostbusters / Охотники за привидениями (Original Mot
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626517.jpg" />
 </div>
 
 
@@ -363,7 +421,7 @@ VA - Eamonn Karran - I’ll Be With You (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626463.jpg" />
 </div>
 
 
@@ -392,7 +450,7 @@ Andy Hull and Robert McDowell - Swiss Army Man / Человек – швейца
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626378.jpg" />
 </div>
 
 
@@ -421,7 +479,7 @@ Andy Hull and Robert McDowell - Swiss Army Man / Человек – швейца
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626241.jpg" />
 </div>
 
 
@@ -450,7 +508,7 @@ Empire Of Love - Mysterious I-II (2016-2017) [MP3|320 Kbps] <New Age, Enigmatic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625526.jpg" />
 </div>
 
 
@@ -479,7 +537,7 @@ Brian Tyler, Keith Power - Criminal (Original Motion Picture Soundtrack) (2016) 
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624720.jpg" />
 </div>
 
 
@@ -508,7 +566,7 @@ Craig Armstrong - Me Before You / До встречи с тобой (Original Mo
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624662.jpg" />
 </div>
 
 
@@ -537,7 +595,7 @@ VA - Me Before You / До встречи с тобой (Original Motion Picture 
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624583.jpg" />
 </div>
 
 
@@ -566,7 +624,7 @@ Craig Armstrong - Me Before You / До встречи с тобой (Original Mo
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624576.jpg" />
 </div>
 
 
@@ -595,7 +653,7 @@ VA - Me Before You / До встречи с тобой (Original Motion Picture 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624489.jpg" />
 </div>
 
 
@@ -624,7 +682,7 @@ Bernward Koch - Walking through Clouds (2014) Real Music [FLAC|Lossless|WEB-DL|t
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624117.jpg" />
 </div>
 
 
@@ -653,7 +711,7 @@ David Wright - Beyond the Airwaves, Vol. 2 (2015) [MP3|320 кб/с]<Electronic, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624070.jpg" />
 </div>
 
 
@@ -682,7 +740,7 @@ The London Studio Orchestra - The Love Themes (1991) [MP3|320 kbps]<Instrumental
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623627.jpg" />
 </div>
 
 
@@ -696,64 +754,6 @@ The London Studio Orchestra - The Love Themes (1991) [MP3|320 kbps]<Instrumental
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EE518609A405BDF6DE625F86AD1922368B38048
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294889   (623596) от 10.04.2019
-
-А.И.Жихарев - Поющая бронза (2008) [FLAC|Lossless|tracks + .cue] <Музыка на плоских колоколах (билах)>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Композиция 01 (5:12)
-02. Композиция 02 (3:53)
-03. Композиция 03 (4:00)
-04. Композиция 04 (5:36)(   Читать дальше...   )Жанр: Музыка на плоских колоколах (билах)Продолжительность: 01:01:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8F1A0736C6A8E43605B3FFF8E53746F7BE640F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542817   (623568) от 14.04.2022
-
-James Asher - Return of the Tiger (2011) [FLAC|Lossless|tracks + .cue] <New Age, Tribal, World Beat>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gatekeeping
-02. Salute to Cuba
-03. Drum Dialogue
-04. Until the Ice Cracks(   Читать дальше...   )Жанр: New Age, Tribal, World BeatПродолжительность: 01:00:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28AAEE5C545C4A029A5C9EB54E574C1B8DC35193
 ```
 
 https://mybot314.ru/tekegram_catalog/

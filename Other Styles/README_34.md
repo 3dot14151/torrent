@@ -1,3 +1,61 @@
+###  Публикация: 1004607   (836890) от 07.04.2016
+
+Frederic Talgorn - Крепость / Fortress (1992) 1993 [MP3|320 кб/с] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude and Pursuit
+02. Descent to Fortress
+03. Forbidden Dream
+04. Kick Fight(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:35:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA62B713BA169F6A393DC76BC26176FE92991B57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004663   (836786) от 07.04.2016
+
+Richard Band - Troll / Тролль (1986) [MP3|320 кб/с] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cantos I
+02. Cantos II
+03. Cantos Profanae
+04. Cantos IV(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:37:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1878B8ABDB884145E00CC2324CB0EE02D3AF2071
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004600   (836540) от 07.04.2016
 
 Ennio Morricone - Spiel Mir Das Lied Vom Tod - The Very Best Of (1992) 2 CD, Compilation [FLAC|Lossless|tracks] <Classical, Stage & Screen, Instrumental>
@@ -6,7 +64,7 @@ Ennio Morricone - Spiel Mir Das Lied Vom Tod - The Very Best Of (1992) 2 CD, Com
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836540.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836391.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Louis Landon - Southwest Solo Piano (2020) [FLAC|Lossless|WEB-DL|tracks] <New Ag
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836377.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Chris Spheeris & Paul Voudouris - Greatest Hits & Unreleased Masters (2017) [FLA
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836341.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836103.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Gelka - Wishful Thinking (2020) [MP3|192 Kbps] <Electronica>
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835987.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Luca Stricagnoli - Change Of Rules (2020) [FLAC|Lossless|WEB-DL|tracks] <Instrum
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835912.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Peter Kater - Hawai'i: A Tribute to Aloha Aina (2020) [FLAC|Lossless|WEB-DL|trac
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835890.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Joe Bongiorno - Love's Light (Solo Piano) (2016) [FLAC|Lossless|tracks] <New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835239.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834906.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834402.jpg" />
 </div>
 
 
@@ -322,7 +380,7 @@ Katzenjammer - A Kiss Before You Go (2011) [FLAC|Lossless|tracks] <Pop, Folk, Vo
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834355.jpg" />
 </div>
 
 
@@ -351,7 +409,7 @@ Club 8 - Pleasure (2015) [MP3|320 кб/с] <Pop, Rock, Electronic>
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834354.jpg" />
 </div>
 
 
@@ -380,7 +438,7 @@ Gheorghe Zamfir - Golden Pan Flute Melodies (1988) [FLAC|Lossless|image + .cue] 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833634.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ Bino Dola, Luna Blanca, Fuegoitaliano - New Flamenco (2014) [MP3|320 Kbps] <Flam
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833505.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ Oliver Scheffner - Relax Lounge. Soothing Music for Recreation (2014) [FLAC|Loss
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833502.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ Clinton Shorter - The Expanse: Season One (Original Television Soundtrack) (2016
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833295.jpg" />
 </div>
 
 
@@ -496,7 +554,7 @@ Salvador Candel - Reflejos (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832525.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ Shastro - 8 альбомов (1994-2001) [MP3|320 kbps]<NewAge, Meditative, Worl
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832121.jpg" />
 </div>
 
 
@@ -556,7 +614,7 @@ Joe Bongiorno - Synfonia (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832069.jpg" />
 </div>
 
 
@@ -585,7 +643,7 @@ Joe Bongiorno - Synfonia (2015) [MP3|320 Kbps] <New Age, Piano>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831965.jpg" />
 </div>
 
 
@@ -614,7 +672,7 @@ Henry Jackman - Kong: Skull Island / Конг: Остров черепа (Origin
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831961.jpg" />
 </div>
 
 
@@ -643,7 +701,7 @@ Mgzavrebi / Мгзавреби - PROстранства (2015) [WavPack|Lossless|
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831682.jpg" />
 </div>
 
 
@@ -672,7 +730,7 @@ Henry Jackman - Kong: Skull Island / Конг: Остров черепа (Origin
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831675.jpg" />
 </div>
 
 
@@ -686,64 +744,6 @@ Henry Jackman - Kong: Skull Island / Конг: Остров черепа (Origin
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B967794B2AEAD2C7D0BA2557126E0B8B5687BCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380275   (831572) от 04.05.2020
-
-Salvador Candel - Caminante Del Cielo (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831572.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Namaste 04:10
-2. Evocación 06:21
-3. Caminante del cielo 05:20
-4. Sámba 04:09(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:54:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2E7C2B377BD20F00C4111572F7687691FF3EBD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380592   (831567) от 04.05.2020
-
-Inon Zur - Syberia 3 (Original Soundtrack) (2017) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Syberia 3 Main Theme
-02. Thrill of Nature
-03. Dark Force in Motion
-04. Call of Tradition(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:57:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB15EBE195C1F66A3DEFAD103C82DD55B50D8134
 ```
 
 https://mybot314.ru/tekegram_catalog/

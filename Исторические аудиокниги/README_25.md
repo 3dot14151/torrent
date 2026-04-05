@@ -1,55 +1,3 @@
-###  Публикация: 120038   (487748) от 29.08.2018
-
-Н.С.Трубецкой | Исторические труды (2006) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487748.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящем издании представлены работы Н. Трубецкого «Европа и человечество», «Взгляд на русскую историю не с запада, а с востока», «Мы и другие», «Русская проблема». С точки зрения Н. Трубецкого, евразийство значительно углубляет и расширяет понятие личности. Личностью с евразийской точки зрения является не только человек, но и народ.Жанр: История, философияПродолжительность: 07:27:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:014557CFF186427BA2530509B89B5BE2BD29BC49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405019   (487127) от 28.08.2020
-
-Арсений Замостьянов | Генералиссимус Суворов. "Мы русские - враг перед нами дрожит!" (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это не просто подробная биография величайшего русского полководца. Больше, чем исследование боевого пути А.В. Суворова, всех его походов, сражений и побед. Это – первая Суворовская энциклопедия, иллюстрированная сотнями картин, карт, рисунков и реконструкций. Его триумфы вошли в легенду. Его «Наука побеждать» стала настольной книгой любого офицера. Его имя навеки (   Читать дальше...   )Жанр: БиографииПродолжительность: 17:11:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63FA3C9483063F64D40E17CA466190874FA8836D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1405214   (485310) от 29.08.2020
 
 Фаина Раневская | Мой кот и пес. «Они живут как Сара Бернар, а я сама - как собака» (2020) [MP3]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485310.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484034.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481356.jpg" />
 </div>
 
 
@@ -136,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480262.jpg" />
 </div>
 
 
@@ -166,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479487.jpg" />
 </div>
 
 
@@ -193,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479410.jpg" />
 </div>
 
 
@@ -219,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474071.jpg" />
 </div>
 
 
@@ -245,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470690.jpg" />
 </div>
 
 
@@ -271,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469972.jpg" />
 </div>
 
 
@@ -298,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468468.jpg" />
 </div>
 
 
@@ -324,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467797.jpg" />
 </div>
 
 
@@ -351,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466754.jpg" />
 </div>
 
 
@@ -378,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466010.jpg" />
 </div>
 
 
@@ -404,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466005.jpg" />
 </div>
 
 
@@ -430,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465874.jpg" />
 </div>
 
 
@@ -456,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465256.jpg" />
 </div>
 
 
@@ -483,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464855.jpg" />
 </div>
 
 
@@ -509,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463770.jpg" />
 </div>
 
 
@@ -537,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463678.jpg" />
 </div>
 
 
@@ -566,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462188.jpg" />
 </div>
 
 
@@ -592,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460098.jpg" />
 </div>
 
 
@@ -618,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460091.jpg" />
 </div>
 
 
@@ -644,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459574.jpg" />
 </div>
 
 
@@ -670,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457852.jpg" />
 </div>
 
 
@@ -681,6 +629,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEBB76B1E95529BA67BFB7ADEB9681B9FFBDA625
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060092   (457561) от 06.10.2016
+
+Василий Немирович-Данченко | Скобелев (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена выдающемуся русскому полководцу - генералу М. Д. Скобелеву, особо отличившемуся в освободительной войне болгарского народа против Турции в 1877- 1878 гг.
+В повествовании ярко, достоверно, выразительными литературными средствами отображены события, очевидцем которых был автор - русский писатель, брат известного театрального деятеля Владимира Ивановича (   Читать дальше...   )Жанр: Воспоминания; Военная прозаПродолжительность: 10:58:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A52D7976261DAB350B339A3DC8767FA681765ED8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246723   (456987) от 13.09.2018
+
+Гектор Флейшман | Шпионка императора (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ноябрь 1803-го. Жизнь первого консула Наполеона Бонапарта постоянно находится под угрозой. Парижская гильотина и военно-полевые суды не уменьшают числа заговорщиков-роялистов. К чувству ненависти к узурпатору прибавляется ещё и горячее желание отомстить за смерть своих единомышленников. Наполеон уже привык к этому. Он двигает полками, флиртует с актрисами, ссорится (   Читать дальше...   )Жанр: Исторический романПродолжительность: 10:42:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DDCE4D60840B185D205EB9936FBCBE23006E49A
 ```
 
 https://mybot314.ru/tekegram_catalog/

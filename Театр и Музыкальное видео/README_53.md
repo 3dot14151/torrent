@@ -6,7 +6,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720705.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Pink Floyd: P. U. L. S. E. Live at Earls Court (1994) WEBRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720278.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720260.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Queen - Live At The Rainbow '74 (2014)  BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719196.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719078.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ VA - Magical Flight vol. 2 (2CD) (2008) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717497.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Kalwi & Remi feat. Mr X - Girls (Uncensored) (2011) WEBRip [H.264/720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717388.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ DJ Phoenix - The Legend Club (Uncensored) (2013) WEBRip [H.264/720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717386.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Led Zeppelin: The Song Remains The Same (2007) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_715304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_715304.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_715300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_715300.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714046.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Bryan Ferry - Nuits de Fourviere. Live in Lyon (2011) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713803.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Arch Enemy - War Eternal Tour - Tokyo Sacrifice (2016) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713698.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713563.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ AC/DC: Live at Donington (1991) [720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_713549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_713549.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_713269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_713269.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712657.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712592.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Arch Enemy - War Eternal Tour - Tokyo Sacrifice (2016) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711946.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711788.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Gregorian - Masters Of Chant In Santiago De Compostela (2001) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710865.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Gregorian - Masters Of Chant - Moments Of Peace In Ireland (2001) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710863.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Gregorian - Masters Of Chant Chapter III (2002) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710701.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ U.D.O. - Steelhammer: Live From Moscow (2014) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709923.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709819.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ The Alan Parsons Symphonic Project - Live In Colombia (2016) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_709437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709437.jpg" />
 </div>
 
 

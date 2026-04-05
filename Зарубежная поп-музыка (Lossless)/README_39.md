@@ -6,7 +6,7 @@ The New Seekers - The Best Of The New Seekers (2000) [FLAC|Lossless|image + .cue
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664862.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Stars On 45 Proudly Presents The Star Sisters - Tonight ! 20.00 Hrs. Remix (2007
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664214.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Delicious Pop (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663289.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Opus - Up And Down (1984) [FLAC|Lossless|tracks] <Pop, Pop-Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661292.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Easy Acoustic (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661274.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Syreeta - The Essential (2001) Compilation [FLAC|Lossless|image + .cue] <Soul, D
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660763.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Workout (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659044.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Top Of The Pops '1975 (2018) 3CD [FLAC|Lossless|tracks + .cue] <1970s, pop,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658594.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656651.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Maroon 5 - V (2014) Deluxe Edition [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656433.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Simply Red - Big Love (2015) [FLAC|Lossless]<Pop, Soul>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655304.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Ace Of Base - Hidden Gems (2015) [FLAC|Lossless]<Pop, Eurodance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655177.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Modestia Aparte - Por Amor al Arte (Digitally Remastered) (1988) [FLAC|Lossless|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654938.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Michael Jackson - Thriller 25 (1982) Super Deluxe Edition, Reissue, Remastered, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654840.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ VA - Greatest Feelgood Hits... Ever. Volume 1 (2004) [APE|Lossless|image + .cue]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653869.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Falco - The Sound Of Musik (The Greatest Hits) (2022) Compilation [FLAC|Lossless
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653802.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ VA - Absolute Dance Summer (2012) [FLAC|Lossless]<Pop, Rok, R&B>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_653419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_653419.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Katy Perry - Witness (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652128.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Dido - 3 альбома (2001-2005) [FLAC|Lossless]<Pop, Vocal, Ballad>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_651750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_651750.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Gianni Morandi - Questa E' La Storia Da "Canzoni Stonate" A "Banane E Lampone" (
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651492.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Al Bano - The Best Platinum Collection (2007) [FLAC|Lossless|tracks + .cue] <Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651488.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ VA - Die Grobe 4 Cd Party Box (1999) Box Set, 4CD, Compilation [FLAC|Lossless|im
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650605.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ B. Fleischmann - Stop Making Fans (2018) [FLAC|Lossless|tracks + .cue] <Electron
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648843.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ VA - Les Inrockuptibles: La bande-son du printemps 2019 (2019) [FLAC|Lossless|tr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648755.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ The Palladium Singers - 100 Hits from the Musicals (2007) Box Set, 5CD, Compilat
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648623.jpg" />
 </div>
 
 
@@ -727,7 +727,7 @@ Sezen Aksu - Biraz Pop Biraz Sezen (2017) [FLAC|Lossless|tracks + .cue] <Turkish
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648497.jpg" />
 </div>
 
 

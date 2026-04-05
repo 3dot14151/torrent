@@ -1,3 +1,111 @@
+###  Публикация: 1712712   (53499) от 13.06.2024
+
+Бывший герой решил жить самостоятельно | Dekisokonai to Yobareta Moto Eiyuu wa, Jikka kara Tsuihou Sareta no de Suki Katte ni Ikiru Koto ni Shita [2024, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главного героя Аллена, прозванного неудачником за низкий уровень и отсутствие божественного дара, лишают дворянского титула и изгоняют из герцогства Вестфельдт. Правда, он этому только рад, ведь в прошлой жизни Аллен был великим героем, а теперь он наконец-то сможет жить так, как ему заблагорассудится.
+Однако радость была недолгой, ведь безмятежное существование (   Читать дальше...   )Производство: Япония / Студия Studio Deen, Marvy JackЖанр: Приключения, фэнтезиРежиссер: Кога КадзуомиЯзык озвучки: Русский (AniLibria.TV); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBF5C65D3B3A4A99EDF35347F486F9D40C38AEAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729585   (53346) от 14.06.2024
+
+Isekai Yakkyoku | Parallel World Pharmacy | Аптека в другом мире [2022, TV, 12 из 12] BDRip 1080p HEVC 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кандзи Якутани - гениальный фармацевт мирового уровня. Он работает не покладая рук на благо людей всего мира, забывая об отдыхе. Утомление и становится причиной его смерти. Однако впереди его ждёт жизнь в новом мире, где он - сын придворного врача, обладающий удивительным даром.Производство: DiomedeaЖанр: повседневность, фэнтезиРежиссер: Кусакава КэйдзоЯзык озвучки: Японский, русский (AniLibria, Force Media)Субтитры: Русские (AniLibria, Crunchyroll)Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35DEF869717EDF396009A0F85081731B85A418FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642538   (53241) от 15.06.2024
+
+Kyokou Suiri Season 2 | In/Spectre Season 2 | Ложные выводы [ТВ-2] [2023, TV, 12 из 12] BDRip 1080p HEVC 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение истории о странной парочке, расследующей дела о духах, ёкаях, призраках и прочей паранормальщине. Котоко Иванага, эксцентричная девушка и по совместительству богиня мудрости, и её парень Куро Сакурагава, обладающий неуязвимостью и даром предвидения, возвращаются на экраны, чтобы вновь с головой окунуться в увлекательные расследования загадочных происшествий, (   Читать дальше...   )Производство: Brains BaseЖанр: детектив, фэнтезиРежиссер: Гото КэйдзиЯзык озвучки: Японский, русский (AniLibria)Субтитры: Русские (Crunchyroll)Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37BA6AF2800065E2707A034DB50D5504BA03A3E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730839   (52906) от 18.06.2024
+
+Исчезновение Харухи Судзумии | Suzumiya Haruhi no Shoushitsu | The Disappearance of Haruhi Suzumiya  [2010, Movie] BDRip 1080p 10-bit raw+eng+rus+ukr
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52906.jpg" />
+</div>
+
+
+###  Подробнее
+
+17 декабря был обычный школьный день. Приближается Рождество, и у Харухи появляется идея организовать вечеринку по этому поводу. Однако, по какой-то причине мир для Кёна на следующий день полностью изменился, после некоторых сомнений он понял, что Харухи больше нет в его школе. Нагато теперь не пришелец, Микуру — обычная школьница, а следа загадочного переведённого (   Читать дальше...   )Производство: Япония / Kyoto AnimationЖанр: фантастика, комедия, приключения, драмаРежиссер: Исихара ТацуяСубтитры: MTBB:
+Диалоги — Официальная новелла (через Chihiro)
+Эндинг — De․us
+Всё остальное — motbob(   Читать дальше...   )Продолжительность: 02:41:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2DFB3CFD62984B0625B61F3D9920F6605C95D34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1712605   (52860) от 19.06.2024
 
 Перерождение: Монстр | Re:Monster [2024, TV, 12 из 12] WEBRip 1080p Raw+Rus
@@ -6,7 +114,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52860.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52516.jpg" />
 </div>
 
 
@@ -59,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52416.jpg" />
 </div>
 
 
@@ -86,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52176.jpg" />
 </div>
 
 
@@ -112,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52150.jpg" />
 </div>
 
 
@@ -139,7 +247,7 @@ Keiken Zumi na Kimi to, Keiken Zero na Ore ga, Otsukiai Suru Hanashi | Исто�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52042.jpg" />
 </div>
 
 
@@ -165,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51889.jpg" />
 </div>
 
 
@@ -192,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51651.jpg" />
 </div>
 
 
@@ -218,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51637.jpg" />
 </div>
 
 
@@ -244,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51575.jpg" />
 </div>
 
 
@@ -271,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51515.jpg" />
 </div>
 
 
@@ -297,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51365.jpg" />
 </div>
 
 
@@ -324,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51312.jpg" />
 </div>
 
 
@@ -351,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51300.jpg" />
 </div>
 
 
@@ -377,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51295.jpg" />
 </div>
 
 
@@ -404,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51254.jpg" />
 </div>
 
 
@@ -431,7 +539,7 @@ B Gata H Kei | Yamada's First Time | Второй размер, интим пр�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51211.jpg" />
 </div>
 
 
@@ -457,7 +565,7 @@ Kimitachi wa Dou Ikiru ka | The Boy and the Heron | Мальчик и птица
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51161.jpg" />
 </div>
 
 
@@ -483,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51153.jpg" />
 </div>
 
 
@@ -509,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51109.jpg" />
 </div>
 
 
@@ -537,7 +645,7 @@ Kimitachi wa Dou Ikiru ka | The Boy and the Heron | Мальчик и птица
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51107.jpg" />
 </div>
 
 
@@ -563,7 +671,7 @@ Kage no Jitsuryokusha ni Naritakute! 2nd Season | The Eminence in Shadow 2nd Sea
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50906.jpg" />
 </div>
 
 
@@ -574,114 +682,6 @@ Kage no Jitsuryokusha ni Naritakute! 2nd Season | The Eminence in Shadow 2nd Sea
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECEE910C615F41104AE254E0EABC2AC4D3F80D2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735625   (50594) от 09.07.2024
-
-Башня Бога [ТВ-1] | Kami no Tou | Tower of God [2024, TV, 13 из 13] BDRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Башня Бога рассказывает о пареньке по имени Двадцать Пятый Баам, что провёл большую часть своей жизни запертым в подземелье под огромной и мистической Башней, в компании с одним единственным другом — Рахиль.
-Когда Рахиль проникла в Башню, Баам сумел открыть дверь и проскользнуть следом, и теперь он поднимается вверх, этаж за этажом, в поисках своего единственного (   Читать дальше...   )Производство: Япония / Студия Telecom Animation FilmЖанр: Драма, приключения, фэнтези, экшенРежиссер: Сано ТакасиЯзык озвучки: Русский (Crunchyroll), (AniLibria.TV); ЯпонскийСубтитры: Русские (софтсаб)
-- (надписи+полные) Crunchyroll
-- (полные) SovetRomantica
-- (полные) YakuSub StudioПродолжительность: 13 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:242F3D9BA84E66B605DA2CFF7B5F911E366F63B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717642   (50163) от 13.07.2024
-
-Jiisan Baasan Wakagaeru | Дедушка и бабушка вновь стали молодыми | Grandpa and Grandma Turn Young Again [2024, TV, 11 из 11] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50163.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сёдзо и Инэ Сайто — пожилая пара с яблочной фермы в префектуре Аомори. Они много лет были вместе, у них есть и дети, и внуки. Это история о дедушке и бабушке, которые вернулись к молодости. Сёдзо и Инэ просто в один день проснулись снова молодыми. Как же они этим воспользуются?Производство: Япония, студия GekkouЖанр: комедия, романтикаРежиссер: Нисида МасаёсиЯзык озвучки: Русский закадровый (Dream Cast), (AniBaza), (AniLibria.TV), (КОМНАТА ДИДИ)Субтитры: Русские надписи, русские (софтсаб), Multi-10Продолжительность: 11 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7492BDFA83C9CA71D847DAE52DA7F80F00D57E4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725089   (49331) от 21.07.2024
-
-NieR:Automata Ver1.1a | Ниер: Автомата [ТВ-1] [2023, TV, 12 из 12] BDRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49331.jpg" />
-</div>
-
-
-###  Подробнее
-
-За тысячелетия своего существования человечество всегда выживало, даже в самых ужасных катастрофах. Но везение когда-нибудь заканчивается. Однажды на Землю пришли машины и обрушили на людей всю свою мощь. Перед лицом, казалось, несокрушимой угрозы человеческая раса была вынуждена покинуть Землю и укрыться на Луне. В изгнании люди создали армию боевых андроидов, дабы (   Читать дальше...   )Производство: A-1 PicturesЖанр: приключения, фантастика, драмаРежиссер: Масуяма РёдзиЯзык озвучки: Японский, русский (AniLibria, Amber Studio, AniPlague, Flarrow Films)Субтитры: Русские (AniLibria, Crunchyroll)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C280495040676AA4F76C23B9B8FD1FC3F352283
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739924   (48381) от 30.07.2024
-
-Vampire in the Garden | Вампир в саду [2022, Web, 5 из 5] WEB-DL 1080p raw+rus+eng
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48381.jpg" />
-</div>
-
-
-###  Подробнее
-
-Некогда люди и вампиры мирно сосуществовали, пока их не разделила война. Обычная человеческая девушка, чья мечта — играть на скрипке, и королева вампиров, желающая увидеть мир, объединяют силы и отправляются в путешествие, чтобы преодолеть судьбу и изменить мир.Производство: Wit StudioЖанр: приключения, фэнтези, драма, вампирыРежиссер: Макихара РётароЯзык озвучки: Японский, Английский (Netflix) и Русский (Jaskier)Субтитры: Русские, Английские, Японские - NetflixПродолжительность: 5 серии по 26 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB3C04173DBA0B5AA1FA8CD184648E052EE8423C
 ```
 
 https://mybot314.ru/tekegram_catalog/

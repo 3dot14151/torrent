@@ -1,30 +1,3 @@
-###  Публикация: 1667633   (176360) от 08.10.2023
-
-Rebrain, Алексей Рябов | HashiCorp Vault (2022) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176360.jpg" />
-</div>
-
-
-###  Подробнее
-
-HashiCorp Vaultэто инструмент с открытым исходным кодом, который обеспечивает безопасный и надежный способ хранения и распространения секретов, таких как ключи API, токены доступа и пароли. Программное обеспечение, такое как Vault, может быть критически важным при развертывании приложений, требующих использования секретов или конфиденциальных данных.
-✅10 живых (   Читать дальше...   )Производство: RebrainЖанр: ПрактикумЯзык озвучки: РусскийПродолжительность: 15:28:40Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A59DFB139E10E1849B7EC8E81386DF3ABA91A8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665812   (176348) от 08.10.2023
 
 Josh W Comeau | The Joy of React (2023) WEB-DL [EN]
@@ -33,7 +6,7 @@ Josh W Comeau | The Joy of React (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176348.jpg" />
 </div>
 
 
@@ -62,7 +35,7 @@ Node University | Подборка курсов по разработке на N
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176288.jpg" />
 </div>
 
 
@@ -91,7 +64,7 @@ Udemy, Zoran Horvat | Рефакторинг под паттерны проек�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175634.jpg" />
 </div>
 
 
@@ -118,7 +91,7 @@ Udemy, Vinoth Selvaraj | Selenium WebDriver и Паттерны Проектир
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175627.jpg" />
 </div>
 
 
@@ -144,7 +117,7 @@ OTUS, Павел Пархомец и др. | Безопасность веб-п�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175447.jpg" />
 </div>
 
 
@@ -173,7 +146,7 @@ Udemy, MrBriit | End-To-End Machine Learning Projects&Deployment Mastery 2021 (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174893.jpg" />
 </div>
 
 
@@ -201,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174674.jpg" />
 </div>
 
 
@@ -227,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174658.jpg" />
 </div>
 
 
@@ -256,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173521.jpg" />
 </div>
 
 
@@ -285,7 +258,7 @@ Slurm (Слёрм), Дмитрий Горчаков | Микросервисы �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173512.jpg" />
 </div>
 
 
@@ -314,7 +287,7 @@ Udemy, Mahadi | Create and Publish a Mobile RPG Game with Unreal Engine (2025) P
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173511.jpg" />
 </div>
 
 
@@ -342,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173477.jpg" />
 </div>
 
 
@@ -370,7 +343,7 @@ Udemy, Meta Brains | ChatGPT Coding Express: Fast-Track Coding with ChatGPT (202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173136.jpg" />
 </div>
 
 
@@ -397,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173134.jpg" />
 </div>
 
 
@@ -426,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173112.jpg" />
 </div>
 
 
@@ -453,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173104.jpg" />
 </div>
 
 
@@ -482,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173076.jpg" />
 </div>
 
 
@@ -511,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172942.jpg" />
 </div>
 
 
@@ -538,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172930.jpg" />
 </div>
 
 
@@ -565,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172929.jpg" />
 </div>
 
 
@@ -594,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172926.jpg" />
 </div>
 
 
@@ -621,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172912.jpg" />
 </div>
 
 
@@ -649,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172911.jpg" />
 </div>
 
 
@@ -678,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172536.jpg" />
 </div>
 
 
@@ -707,7 +680,7 @@ Udemy, Steve Avon | Trending Stocks with Python, Reddit, Twitter, and ChatGPT (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171475.jpg" />
 </div>
 
 
@@ -718,6 +691,35 @@ In this comprehensive hands-on course, you'll delve into the world of stock anal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF56C3393AC0BEE2D7E4E754D2C07A7967813C9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671581   (171108) от 25.10.2023
+
+Rebrain | Онлайн-тренажер Prometheus by Rebrain  (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171108.jpg" />
+</div>
+
+
+###  Подробнее
+
+За 7 дней узнайте все о Prometheus
+Научимся:
+    ✅Устанавливать и настраивать систему мониторинга Prometheus.
+    ✅Разбираться в инцидентах и понимать причину, а также получать уведомления о неработоспособности серверов через мессенджеры.(   Читать дальше...   )Производство: RebrainЖанр: Онлайн-тренажерЯзык озвучки: РусскийПродолжительность: 03:14:00Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFADD4D87C1AF98E26FE7CB7A41FF333FD2FB567
 ```
 
 https://mybot314.ru/tekegram_catalog/

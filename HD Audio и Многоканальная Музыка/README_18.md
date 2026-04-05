@@ -1,32 +1,3 @@
-###  Публикация: 1522078   (759783) от 06.01.2022
-
-VA - The Absolute Sound (2017) [DSD64 2.0|1bit/2822,4kHz |SACD-R]<Classical>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Por Una Cabeza (03:27) - Semmy Stahlhammer
-02. Mozart: Le Nozze Di Figaro - Voi Che Sapete (02:57) - Elisabeth Schwarzkopf
-03. Feet Of A Dancer (04:22) - Charlie McGettigan
-04. Amico Mio (04:27) - Sara Indrio(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:58:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C41DC17063CE65A38AA207995FF4729EAD837E8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522392   (758525) от 07.01.2022
 
 Александр Розенбаум - Нарисуйте Мне Дом... (1987) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Chanson, Vocal>
@@ -35,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758525.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Mireille Mathieu - Sentimentalement Votre (1977) [FLAC 2.0|192/24|image +.cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_758235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_758235.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Coldplay - 4 альбома (Vinil-rip 24 Bit/96 kHz) (2000-2008) [FLAC|Lossless
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_757696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757696.jpg" />
 </div>
 
 
@@ -119,7 +90,7 @@ Mando Diao - Aelita (2014) [LPCM 2.0 96/24|DTS 5.1 96/24|Audio-DVD5|BD-Audio] <E
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_757465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757465.jpg" />
 </div>
 
 
@@ -148,7 +119,7 @@ Queen Of The Damned OST (2002) hand made [restored, declipped][FLAC 2.0|Lossless
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756639.jpg" />
 </div>
 
 
@@ -175,7 +146,7 @@ Metallica - Master Of Puppets (1986) [WavPack 2.0|192/32|image + .cue|Vinil-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756572.jpg" />
 </div>
 
 
@@ -204,7 +175,7 @@ Fish - Something In The Air (1992) 45 RPM, Single [FLAC|Lossless|tracks] <Prog R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755577.jpg" />
 </div>
 
 
@@ -233,7 +204,7 @@ Aaron Neville - Devotion (2000) [DTS 5.1 CD-Audio|44.1/16|image+.cue|DVD-Audio] 
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754943.jpg" />
 </div>
 
 
@@ -262,7 +233,7 @@ Deep Purple - Turning To Crime (2021) [DSD128 2.0|tracks|Vinyl-Rip] <Rock, Blues
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754827.jpg" />
 </div>
 
 
@@ -291,7 +262,7 @@ Pink Floyd - Delicate Sound Of Thunder (2 LP) (1988) [FLAC 2.0 24/192|traks(Vini
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754029.jpg" />
 </div>
 
 
@@ -326,7 +297,7 @@ VA - The Absolute Sound (2016) [DSD64 2.0|1bit/2822,4kHz |SACD-R]<Classical, Fol
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_752920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752920.jpg" />
 </div>
 
 
@@ -355,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750797.jpg" />
 </div>
 
 
@@ -390,7 +361,7 @@ Ozzy Osbourne - Diary Of A Madman (1981) AnTrop Unofficial Release, 1993 [FLAC 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749948.jpg" />
 </div>
 
 
@@ -419,7 +390,7 @@ Toto - Stranger In Town (Dance Mix) (1984) 12", 45 RPM, Single [FLAC 2.0|192/24|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748532.jpg" />
 </div>
 
 
@@ -448,7 +419,7 @@ Toto - Fahrenheit (1987) [FLAC|FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748525.jpg" />
 </div>
 
 
@@ -477,7 +448,7 @@ Various Artists – Best of Super Audio CD (2002) [DTS 5.1 44.1 /16 | .wav+.cue 
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747312.jpg" />
 </div>
 
 
@@ -507,7 +478,7 @@ Billie Holiday - Billie Holiday (1975) Mono [FLAC 1.0|96/24|image +.cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746922.jpg" />
 </div>
 
 
@@ -536,7 +507,7 @@ Lift - Lift (1977) Russian text on labels [FLAC 2.0|96/24|image +.cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746920.jpg" />
 </div>
 
 
@@ -565,7 +536,7 @@ The Beatles - 1962-1966 (1973) Red Album [FLAC 2.0|192/24|image +.cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746507.jpg" />
 </div>
 
 
@@ -594,7 +565,7 @@ The Beatles - 1967-1970 (1973) Blue Album [FLAC 2.0|192/24|image +.cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746374.jpg" />
 </div>
 
 
@@ -623,7 +594,7 @@ Muse - 4 Альбома (2001-2012) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Alternat
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745721.jpg" />
 </div>
 
 
@@ -649,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743906.jpg" />
 </div>
 
 
@@ -684,7 +655,7 @@ Paul Mauriat And His Orchestra – Gone Is Love (1970) [DSD128 2.0|tracks|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743627.jpg" />
 </div>
 
 
@@ -713,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743124.jpg" />
 </div>
 
 
@@ -742,7 +713,7 @@ Imagine Dragons - Evolve (2017) [DSD 2.0|5.6448/1|tracks|Vinyl-Rip] <Rock, Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742980.jpg" />
 </div>
 
 
@@ -756,6 +727,35 @@ Imagine Dragons - Evolve (2017) [DSD 2.0|5.6448/1|tracks|Vinyl-Rip] <Rock, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EC6EF873D8750BC59803B59868FF5D4E2CC0C2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524431   (741879) от 17.01.2022
+
+Комиссар - Наше Время Пришло (1991) Питон, со вставками Звук [DSD2.0|11,28MHz/1bit|image+.cue|Tape-Rip] <Pop, Disco, Dance, Techno>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741879.jpg" />
+</div>
+
+
+###  Подробнее
+
+[0:35] 01. Студия ПИТОН представляет!
+[5:05] 02. Ты уйдешь
+[3:51] 03. Наше время пришло
+[4:56] 04. Всё изменится(   Читать дальше...   )Жанр: Pop, Disco, Dance, TechnoПродолжительность: 00:33:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F9152FEA6FA7194A80CEAA962B55981D0CC2995
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1083424   (273727) от 16.12.2016
+
+VA - Coffee Bar Lounge Vol.3 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Room - The Essence 4:03
+02. Clelia Felix - Music For Your Soul 3:53
+03. Svendaq - Cosmic Sweeper 4:33
+04. Unit Blue - Tango Bay 5:15(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:37:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E94C7130CECBF7D0FF6DBB406970D84B74A505B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333686   (273717) от 11.11.2019
+
+Sansibar - Targeted Individuals (2019) FTP [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Breaks>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Liquid Programming (06:04)
+ 02. Technology (03:47)
+ 03. My Mind (05:02)
+ 04. Meri (08:00)(   Читать дальше...   )Жанр: Electro, IDM, BreaksПродолжительность: 01:11:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59757107369CF977CC370AF5C2FCD41202D5B136
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337509   (273715) от 11.11.2019
+
+Stargazers - Crystalize (The Best Of) (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stargazers & Fenna Day - Crystalize
+02. Stargazers & Neev Kennedy - Walk Between Your Shadows
+03. Stargazers & Kate Louise Smith - Black Diamond (Radio Edit)
+04. Stine Grove & Stargazers - Time Travel Away (Radio Edit)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 03:21:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79239C344E66BD80ABCE93CB1DC59F833338BA67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337600   (273707) от 11.11.2019
+
+Grum - Deep State (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Progressive Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep State [02:17]
+02. Stay (feat. Natalie Shay) [08:12]
+03. Lose Control [05:38]
+04. Tomorrow (feat. Dom Youdan) [05:09](   Читать дальше...   )Жанр: Progressive House, Progressive TranceПродолжительность: 00:54:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1431F4A9BF46AB579D916D169585D5B46D7CA19A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1188635   (273687) от 03.12.2017
 
 Stärker (Stärker) - Substrate (2017) Hospital Productions [FLAC|Lossless|WEB-DL|tracks] <Techno, Industrial, Experimental>
@@ -6,7 +122,7 @@ Stärker (Stärker) - Substrate (2017) Hospital Productions [FLAC|Lossless|WEB-D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273687.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Mr. Cloudy - Memoria / Sprayer (2017) Local Traffic [FLAC|Lossless|tracks] <Dub 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273686.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Anjunabeats The Yearbook (2017) [MP3|320 Kbps] <Trance,Progressive House>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273680.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Mr. Cloudy - Perceived 2 (Magnetic Tide) (2017) Space Of Variants [FLAC|Lossless
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273679.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Joachim Spieth - Irradiance (2017) Affin LTD [FLAC|Lossless|WEB-DL|tracks] <Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273677.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Automatic Tasty - A World Of Moving And Connected Parts (2017) SLEEPERS [FLAC|Lo
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273676.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Lounge Theatre: Bar Set (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273675.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Kitties Wanna Dance! Vol. 3 (2012) Suara [FLAC|Lossless|WEB-DL|tracks] <Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273674.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Ibiza House Fillers (2017) [MP3|320 Kbps] <House, Tech House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273671.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - Techno Club Vol.53 - (Mixed by Talla 2XLC & Markus Schulz) (2017) [MP3|~250
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273601.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Ten Madison - 7 Альбомов (2000-2007) [FLAC|Lossless]<Downtempo, Ambient,
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273539.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Schiller - Zeitreise (Das Beste von Schiller) (2016) [MP3|320 Kbps] <Ambient, Do
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273401.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ VA - Liquicity Drum & Bass 2017 (2017) [MP3|320 Kbps] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273353.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ VA - Soviett 1 Year (Compiled & Mixed by Ivan Starzev) (2018) [FLAC|Lossless|WEB
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273265.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ VA - Get To Know: Disco (2018) [FLAC|Lossless|WEB-DL|tracks] <House, Nu-Disco>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273264.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ VA - Cafe Sputnik: Electronic Exotica From Russia (2005) [FLAC|Lossless|WEB-DL|t
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273262.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Alfred Heinrichs - YOUR TEARS (2018) EP [FLAC|Lossless|WEB-DL|tracks] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273105.jpg" />
 </div>
 
 
@@ -497,7 +613,7 @@ VA - Best Of Deep House (Deluxe Version) (2016) [MP3|320 Kbps] <House, Deep Hous
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273065.jpg" />
 </div>
 
 
@@ -526,7 +642,7 @@ VA - Best Of Chillout Vol.08 (2018) [MP3|320 Kbps] <Downtempo,Chillout,Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273036.jpg" />
 </div>
 
 
@@ -555,7 +671,7 @@ Wychdoktor - Hexen (2015) [FLAC|Lossless|WEB-DL|tracks] <Industrial, Dark Ambien
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273023.jpg" />
 </div>
 
 
@@ -584,7 +700,7 @@ VA - Uplifting Trance 2019 (2018) [FLAC|Lossless|WEB-DL|tracks] <Trance,Upliftin
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272975.jpg" />
 </div>
 
 
@@ -613,7 +729,7 @@ Logical Elements - Discography 15 Releases (2009-2018) [FLAC|Lossless|WEB-DL|tra
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272911.jpg" />
 </div>
 
 
@@ -624,122 +740,6 @@ Logical Elements - Discography 15 Releases (2009-2018) [FLAC|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32541609CE2D3F7B60B3FC4F6A0959ED50713788
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083842   (272661) от 17.12.2016
-
-VA - Ambient Feelings: The Finest Ambient and Chill Music (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stars Over Foy - Mirror of Emotions
-02. Nagayaki Hushimo - Mindfulness Trip
-03. Vechigen - Magic Frost - Ambient Mix
-04. Dr. J. James - Here for You - Ambient Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:42:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92851F672EF773D125DE40A1FDC9A7783D546076
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083919   (272656) от 17.12.2016
-
-VA - Hangover Music (The Relaxing Chillout Sound Migraine & Headache Remedy) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Electrolytes - Lazy Daisy 3:50
-02. Viral Musk - Hpns 3:25
-03. Viral Musk - Start Up 3:26
-04. Dr. Goodfeel - Take Two 5:57(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:39:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:742A636047E006DC6BDE4EF232011287D75CA125
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083988   (272653) от 17.12.2016
-
-VA - Tea Time Lounge (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don Gorda Project - Warm Tones [00:05:19]
-02. Enrico Donner - Side Chain Reactions [00:05:57]
-03. Cane Garden Quartet - Colours of Love [00:05:00]
-04. Baghira - Put Your Arms [00:06:19](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:30:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBB2FF56713B126302B1EA34BC2A909982955B6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083881   (272644) от 17.12.2016
-
-VA - Xmax Deephouse Hot Traxx (2016) [MP3|320 Kbps] <House, Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Azeotrop - Aftermath [00:05:56]
-02. Najwars - Deep Trading [00:06:54]
-03. Simplex Sensus - Up & Away [00:06:02]
-04. Chillelektro - Eggum [00:06:42](   Читать дальше...   )Жанр: House, Tech House, Deep House, ElectronicПродолжительность: 02:27:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C624DDE2FECBAD3BCBB7BC9B7016BAD32128F88
 ```
 
 https://mybot314.ru/tekegram_catalog/

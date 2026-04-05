@@ -1,3 +1,55 @@
+###  Публикация: 1463360   (1020361) от 18.04.2021
+
+Relicta (2020) [Ru/En] (1.10) License GOG
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Relicta — основанная на законах физики головоломка с видом от первого лица. Раскройте тайны базы «Чандра», меняя магнетизм и гравитацию. Вы одни на Луне. Чтобы спасти дочь, вам придется полагаться на свой ум...Тип издания: LicenseРазработчик: Mighty PolygonЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8D1BE61BD2A3D32D8CC37E0961C4E54F6C9B58D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465851   (1018841) от 27.04.2021
+
+S.T.A.L.K.E.R.: Call of Pripyat / S.T.A.L.K.E.R.: Зов Припяти (2009) [Ru] (1.6.02) Repack West4it
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018841.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие проекта "S.T.A.L.K.E.R.: Зов Припяти" разворачивается после событий оригинальной игры - то есть после того, как Стрелок уничтожил проект "О-Сознание". Получив сведения об открытии дороги к центру Зоны, правительство решает развернуть масштабную военную операцию под кодовым названием "Фарватер" для получения контроля над ЧАЭС. (   Читать дальше...   )Тип издания: RepackРазработчик: GSC Game WorldЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C06670619D2895AE7F845547F32DF9BD71A015B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1466825   (1018168) от 01.05.2021
 
 Deadstep (2018) [Ru/Multi] (1.2.0) Repack Other s
@@ -6,7 +58,7 @@ Deadstep (2018) [Ru/Multi] (1.2.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018168.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ Wolfenstein II: The New Colossus (2017) [Ru/Multi] (6.5.0.1331/dlc) License GOG 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017458.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ Metro: Exodus / Метро: Исход (2019, 2021) [Ru/Multi] (2.0.0.0/dlc) Lic
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017307.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ The Ultimate Doom (1995) [En] (1.9) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016640.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ Thief (2014) [Ru/Multi] (1.7) License GOG [Definitive Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011558.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ West of Dead (2020) [Ru/Multi] (1.11.8.29/dlc) License GOG [Path of the Crow Del
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007206.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ Liberated (2020) [Ru/Multi] (1.16/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004637.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ Freeman: Guerrilla Warfare (2018) [Ru/Multi] (1.32) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004188.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ Freeman: Guerrilla Warfare (2018) [Ru/En] (1.32) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004176.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ Inner Chains (2017) [Ru/Multi] (2.2) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002880.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ Inner Chains (2017) [Ru/Multi] (2.2) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002364.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ Medal of Honor (2010) [Ru/En] (1.0.75.0) Rip Other s [Limited Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001493.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ Doom 3 BFG Edition [Ru/En] (RePack/1.0.0.1u1) 2012 | R.G. Origami
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999503.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ Doom 3: BFG Edition [Ru/En] (RePack/1.1400.346456) 2012 | R.G. Games
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999204.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ Homefront [Ru/En] (RePack/1.0.384501) 2011 | R.G. Revenants
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998465.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ Will Rock / Will Rock: Гибель богов (2003) [Ru/En] (1.2) RePack R.G. 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998184.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ Brothers in Arms: Anthology [En/Ru] (Rip) 2005 - 2008| R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997085.jpg" />
 </div>
 
 
@@ -459,7 +511,7 @@ Painkiller. Hell & Damnation [Ru] (RePack/1.0.27204/3 DLC) 2012 | Fenixx
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996582.jpg" />
 </div>
 
 
@@ -489,7 +541,7 @@ No One Lives Forever Антология / No One Lives Forever Anthology + OST [
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996580.jpg" />
 </div>
 
 
@@ -515,7 +567,7 @@ Sniper: Ghost Warrior / Снайпер: Воин-призрак [Ru] (RePack/1.3
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996560.jpg" />
 </div>
 
 
@@ -542,7 +594,7 @@ Call of Juarez: Bound in Blood / Call of Juarez: Узы крови [Ru] (RePack/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994952.jpg" />
 </div>
 
 
@@ -570,7 +622,7 @@ Death To Spies Moment of Truth / Смерть шпионам: Момент ис�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994353.jpg" />
 </div>
 
 
@@ -601,7 +653,7 @@ Call Of Juarez: The Cartel: Limited Edition [Ru] (Rip/1.1.12) 2011 | Fenixx
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993828.jpg" />
 </div>
 
 
@@ -631,7 +683,7 @@ Aliens: Colonial Marines (2013) [Ru] (1.0.210.751923/upd1.4.0/dlc) Repack Other 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992988.jpg" />
 </div>
 
 
@@ -642,58 +694,6 @@ Aliens: Colonial Marines (2013) [Ru] (1.0.210.751923/upd1.4.0/dlc) Repack Other 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1E5E91F4DEF6F6FA11B9836BFCF14B4E5E8D723
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609621   (991458) от 27.01.2013
-
-Dusk-12 / Территория тьмы [Ru] (L/1.2) 2007
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991458.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый экшен от первого лица, действия которого разворачиваются в Чернозерске - городе, в результате внештатной ситуации в ходе секретного проекта зараженном штаммом мутагенного вируса «Тьма 12». В этом динамичном и увлекательном шутере вас ждут две полноценных сюжетных линии с разными главными героями и с индивидуальным стилем геймплея для каждого из них. Участвуйте в спецоперации ФСБ России по выяснению причин аварии в Чернозерске, как Андрей Егоров - боец отряда специального назначения, а затем спасайте город, играя за Горина - сверхсолдата, выращенного в закрытой лаборатории в рамках проекта «Создатель». Технологичная графика, закрученный сюжет, уникальные образцы вооружения, разнообразный и динамичный геймплей, а также неповторимая атмосфера обреченности умирающего города - все это ждет вас в «Территории тьмы! (   Читать дальше...   )Тип издания: ЛицензияЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3D936B827107E79915906B67D3C95600B96BB3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 611065   (988783) от 30.01.2013
-
-Chivalry: Medieval Warfare [Ru/En/Multi7] (L) 2012 | PROPHET
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chivalry: Medieval Warfare - это, как говорят ее разработчики, средневековая "военная" (в оригинале "combat" - от слова игра "сражение") игра от первого лица. В местном выдуманном мире Агатовые рыцари (Agathian Knights) сражаются против Масонского ордена (Mason Order) за контроль над страной Агата (Agatha). Причем, что удивительно для подобных игр, местный мир выписан достаточно подробно, в нем существуют свои герои и свои предатели и, конечно, свои причины воевать - на этот раз в их роли выступает гражданская война. Несмотря на фантастическую историю, сам игровой процесс довольно серьзен и стремится детально воспроизвести сражения между закованными в броню рыцарями. Фактически, перед нами FPS без автоматов, но с мечами и луками.(   Читать дальше...   )Тип издания: ЛицензияЖанр: Action / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Английский / РусскийЯзык интерфейса: Английский / Русский / MULTi7
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:250548196434D0662539348FDB882236D6F7C7EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ MacX DVD Ripper Pro 6.5.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365256.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Hazel 4.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365179.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Sidify Apple Music Converter 1.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365165.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Ulysses 17.1 (51750) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365087.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Battle Chasers: Nightwar (2017) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364903.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364821.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Privatus 5.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364766.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ PaintCode 3.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364669.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Movavi Screen Recorder 5 v5.4.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364110.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364095.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ SketchUp Pro 2017 (17.0) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363820.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Principle 4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363626.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363450.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363443.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ AudioFinder 6.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363345.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Cookie 6.1.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363341.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Stellaris v2.1.4.4 (24035) (2016) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363262.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363207.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Pixave 2.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363202.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ WinX DVD Ripper 6.5.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363199.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ MediaHuman Youtube Downloader 3.9.9.47 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363194.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Smooze 1.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363166.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Fantastical 2.4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363155.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Capture One Pro 11 v11.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363063.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Algoriddim djay Pro (Complete FX Pack) 2 v2.2.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363015.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ OmniFocus Pro 3.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362895.jpg" />
 </div>
 
 

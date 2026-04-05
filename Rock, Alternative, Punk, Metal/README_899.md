@@ -1,3 +1,32 @@
+###  Публикация: 1646205   (232580) от 13.07.2023
+
+Cadaveria - Collection (2002 - 2022) 6CD [WavPack|Lossless|image + .cue] <Gothic, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232580.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Spell
+2.	Declaration of Spiritual Independence
+3.	In Memory of Shadows' Madame
+4.	Circle of Eternal Becoming(   Читать дальше...   )Жанр: Gothic, Black MetalПродолжительность: 05:00:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0C1847A2AAC621DB999FFABD0C3D5901E230A66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1608864   (232578) от 01.02.2023
 
 Ohrima - Catoblepas (2023) [MP3|320 Kbps] <Progressive Metal>
@@ -6,7 +35,7 @@ Ohrima - Catoblepas (2023) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232578.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Structure - Structure (2022) EP, Remastered [FLAC|Lossless|WEB-DL|tracks] <Atmos
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232574.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Eleanore Begin - 3 Albums (2016-2023) [MP3|320 Kbps] <Alternative Metal, Alterna
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232573.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Sulfure - Anthropocene (2023) [MP3|320 Kbps] <Death, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232567.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Monje - Culto al Fin de los Tiempos (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232562.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Snowblind - Behind The Snow (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232558.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Johnny The Boy - You (2023) [MP3|320 Kbps] <Blackened Sludge, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232555.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Anima Tempo - Chaos Paradox (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232554.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232552.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ The Animal State - 3 Albums (2020-2023) [MP3|320 Kbps] <Progressive Metal, Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232551.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Night Legion - Fight Or Fall (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232547.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Lifesigns - Live In Netherlands (2023) [MP3|320 Kbps] <Neo-Progressive>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232544.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Avatarium - Death, Where Is Your Sting (2022) [FLAC|Lossless|image + .cue] <Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232541.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232536.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Indefinite Decorum - Débutant (2023) [MP3|320 Kbps] <Symphonic Dark Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232533.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Edge of Paradise - Hologram (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232528.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Architectonica - 3 Albums (2014-2023) [MP3|320 Kbps] <Space, Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232522.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ The Neal Morse Band - An Evening of Innocence & Danger: Live In Hamburg (2023) [
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232519.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Il Cerchio d'Oro - Pangea e Le Tre Lune (2023) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232517.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Stray Gods - Storm the Walls (2022) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232511.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Putrefactum - Unsere Wahrheit (2023) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232509.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ The Infamists - Live Evil (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psyc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232506.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Dead Gallery - Dead Man's Theme (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Blue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232503.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Phoebus The Knight - Ferrum Fero Ferro Feror (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232500.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Motoriot - Harmonic Distortion (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232496.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Motoriot - Harmonic Distortion (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F652FD85E0A088243E1745B9DAD746CE069B4C7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645943   (232494) от 12.07.2023
-
-System Trashed - Outlaw (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Screaming Through (04:38)
-02 - You Will Pay (04:04)
-03 - Outlaw (04:35)
-04 - War Dance (04:26)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:46:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81B26BB825E7581FA1E643446FC502DC494091F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

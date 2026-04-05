@@ -1,3 +1,55 @@
+###  Публикация: 1044672   (562609) от 21.08.2016
+
+Диапазон 15 / Range 15 (2016) WEB-DLRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несколько отставных военных устраивают шумную вечеринку, а на следующий день просыпаются в каталажке. Побузили немножко ночью, с кем не бывает. И тут вдруг выяснятся, что по стране распространилась зомби-эпидемия. Радости наших героев нет предела, они ждали этого всю жизнь!Производство: США / Street Justice FilmsЖанр: Ужасы, КомедияРежиссер: Росс ПаттерсонАктеры: Мат Бест, Минди Робинсон, Уильям Шетнер, Дэнни Трехо, Шон Эстин, Кит Дэвид, Брайан Коллен, Рон Джереми, Джим О’Хейр, Мартин КлеббаПеревод: Многоголосый закадровый, любительскийПродолжительность: 01:29:32Реклама: Присутствуют голосовые и текстовые вставки рекламы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AD8E33F7A2220F28D81F89ED59FDBF49260F4DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932126   (562608) от 21.08.2016
+
+Dark Orbit: Reloaded 3D (2015) [Ru/En] (10.0.4463) License
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dark Orbit: Reloaded 3D - это огромная игровая вселенная, безграничные просторы которой бороздят корабли миллионы геймеров по всему миру. Реалистичная графика игры позволит вам почувствовать себя настоящим исследователем галактики. Здесь вы найдете и четко прорисованные, сложные по дизайну космические корабли, необычные планеты, и радующие глаз спецэффекты.Тип издания: LicenseРазработчик: BigpointЖанр: Strategy, Online, MMORPG, Action, AdventureЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A364EB04F2AA6D61341F531AD94CC394D5FD11E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 764275   (562604) от 21.08.2016
 
 Android Weather & Clock Widget v3.9.0.2 Ad-Free и v5.9.0.2 Free + Mod [Ru/Multi] - быстрый и точный прогноз погоды
@@ -6,7 +58,7 @@ Android Weather & Clock Widget v3.9.0.2 Ad-Free и v5.9.0.2 Free + Mod [Ru/Multi
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562604.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562218.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562214.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562213.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ Adobe After Effects CC 2015 (v13.5.1) RUS/ENG Update 1
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562189.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562183.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ Huawei 3G Modem Software 16.3.45.9.143 (9.05.2012) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562176.jpg" />
 </div>
 
 
@@ -194,7 +246,7 @@ Amlab.me | Свадебный университет (2017) [H.264/1080p-LQ]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561765.jpg" />
 </div>
 
 
@@ -221,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561272.jpg" />
 </div>
 
 
@@ -247,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561142.jpg" />
 </div>
 
 
@@ -274,7 +326,7 @@ Microsoft Office 2013-2016 C2R Install 5.9.9 Full | Lite by Ratiborus [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560925.jpg" />
 </div>
 
 
@@ -300,7 +352,7 @@ CyberLink PowerDVD Ultra 16.0.2011.60 RePack by qazwsxe [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560758.jpg" />
 </div>
 
 
@@ -326,7 +378,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4405.1000 VL (x86)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560752.jpg" />
 </div>
 
 
@@ -352,7 +404,7 @@ Final Fantasy XIII (2009) [PS3] [USA] 2.80 [Unofficial] [En/Ru] R.G. RED
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560307.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ DriverPack Solution 15.8 + Драйвер-Паки 15.08.0 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560298.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560297.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ Victoria 4.56b SSD Portable [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560015.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_559410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_559410.jpg" />
 </div>
 
 
@@ -483,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559239.jpg" />
 </div>
 
 
@@ -510,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559082.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ Inside (2016) [Ru/Multi] (5.0.4.29787) License CONSPIR4CY
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558883.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ Pinnacle Studio Ultimate 20.0.1.10084 (x86) RePack by PooShock [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558879.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_558772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_558772.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_558498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_558498.jpg" />
 </div>
 
 
@@ -625,58 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110562   (558358) от 12.07.2018
-
-Викинг (2016) WEB-DL [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558358.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раннее Средневековье. Время тяжелых мечей и темных законов крови. Правящий род в раздоре. Вина за случайную смерть брата легла на Великого Князя. По закону мстить ему должен младший брат — бастард. За отказ убивать он заплатит всем, что у него было, потому что «для мира нужно больше мечей, чем для войны»…Производство: Россия, Дирекция КиноЖанр: Драма, ИсторияРежиссер: Андрей КравчукАктеры: Данила Козловский, Светлана Ходченкова, Максим Суханов, Игорь Петренко, Андрей Смоляков, Владимир Епифанцев, Александра Бортич, Кирилл Плетнёв, Александр Устюгов, Ростислав БершауэрПеревод: Не требуется (русский) iTunesПродолжительность: 02:28:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9E9434142B8590D78E100129CE7F1B75710D872
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556626   (557872) от 10.06.2022
-
-Бодибилдер (2022) WEBRip [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Макс – знаменитый бодибилдер, мечтающий стать чемпионом планеты, по состоянию здоровья вынужден уйти из спорта. Его жизнь катится под откос. Случайно он знакомится с врачом скорой помощи Виктором, который когда-то по заказу Минобороны разработал уникальное лекарство, позволяющее не только лечить самые страшные заболевания, но и усиливать все возможности человеческого (   Читать дальше...   )Производство: Россия, Yellow, Black & WhiteЖанр: триллер, спортРежиссер: Андрей ГрачевАктеры: Денис Семенихин, Михаил Горевой, Виктория Полторак, Владимир Епифанцев, Дарья Повереннова, Сергей Чонишвили, Максим ЛинниковПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:31:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1115177BDCD78AECB575F7DE46B678DD3FE0A212
 ```
 
 https://mybot314.ru/tekegram_catalog/

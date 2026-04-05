@@ -6,7 +6,7 @@ Paul Motian Trio - It Should've Happened a Long Time Ago (1985) ECM Records [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111138.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Paul Bley - The Paul Bley Synthesizer Show (1970, 1971) 2017, Bamboo [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111118.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Tal Farlow - Complete 1956 Private Recordings (2002) 2CD, Definitive Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111117.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Joe Mooney - Lush Life (1956) 1999, Koch Jazz [FLAC|Lossless|tracks + .cue] <Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111116.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Paul Motian - Monk In Motian (1988) JMT [FLAC|Lossless|tracks + .cue] <Post-Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111048.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Zoot Sims - Swing King! (1947 - 1953) 2CD, 2004, Proper Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111042.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Ronny Smith - Struttin (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111034.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Pat Martino - Live! (1972) 1992, Muse Records [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111027.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Carmen McRae - It Takes A Whole Lot Of Human Feeling (1973) 1997, Charly Records
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111008.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Gerald Albright - 30 (2018) Bright Music Records [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111007.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Bonnie Bowden - The Great American Songbook (2012) Self-Released [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111002.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Chris Flory - City Life (1993) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mains
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110979.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Blue Sun - Festival (2006) [FLAC|Lossless|tracks + .cue] <Jazz-Rock, Prog Rock>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110964.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Walt Dickerson Quartet - To My Queen Revisited (1978) 1987, SteepleChase [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110962.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Dave Eshelman's Jazz Garden Big Band - When Dreams Come True (1993) Sea Breeze J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110922.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Gerald Albright - Giving Myself To You (1995) Atlantic Jazz [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110921.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Susannah McCorkle - I'll Take Romance (1992) Concord Jazz [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110918.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Bobby Hutcherson - Landmarks (1984 - 1986) 1991, Landmark Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110830.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Gerald Albright - G (2016) Bright Music Records [FLAC|Lossless|tracks + .cue] <S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110828.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Charlie Byrd, Barney Kessel, Herb Ellis - Great Guitars: Recorded Live At The Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110822.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ VA - Ultimate Chillout Ambient Lounge II (2024) [FLAC|Lossless|WEB-DL|tracks] <L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110763.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ VA - Luxury Lifestyle Relaxing Lounge Chill Playlist (2024) [FLAC|Lossless|WEB-D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110738.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ VA - Summer Jazz & Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110723.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ VA - Summer Jazzy Sounds (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110722.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ VA - Jump Up & Boogie: The New Swing Collection (1998) Elektra Entertainment [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110719.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ VA - Luxury Lifestyle Classy Relaxing Jazz Instrumentals (2024) [FLAC|Lossless|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110716.jpg" />
 </div>
 
 

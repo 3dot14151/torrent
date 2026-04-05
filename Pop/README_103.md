@@ -1,174 +1,3 @@
-###  Публикация: 1394650   (762203) от 06.07.2020
-
-VA - Best Covers (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762203.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. No Doubt - It's My Life (Album Version) 03:46
-2. Ellie Goulding - Your Song 03:09
-3. Florence + The Machine - You've Got The Love 02:46
-4. Jamie Cullum - Shape Of You 04:02(   Читать дальше...   )Жанр: PopПродолжительность: 01:38:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E40FFFF4162C4E0564CA40451135D99F2CF45640
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 661706   (761936) от 27.05.2013
-
-Fancy - Flames Of Love (1988) [FLAC|Lossless]<Italo Disco, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Italo Disco, Disco
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215139   (761676) от 24.03.2018
-
-M.B.T. Soul - Chase! (1977) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Chase (15:08)
-02. You Set Me In Motion (3:57)
-03. Soni (4:06)
-04. Deep Love (4:36)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:31:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E2993C5B41EC43D025777362A777C755D4D9980
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215121   (761538) от 24.03.2018
-
-VA - #Hits 2018 #2 (2018) [MP3|320 Kbps] <Pop, Dance, RnB>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761538.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Luis Fonsi Feat. Demi Lovato - Echame La Culpa
-02. MC Fioti, Future, J Balvin, Stefflon Don, Juan Magan - Bum Bum Tam Tam
-03. Imagine Dragons - Whatever It Takes(   Читать дальше...   )Жанр: Pop, Dance, RnBПродолжительность: 02:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB2BF395A0671D2C7F50154C5E3FEF6309A61021
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280271   (761496) от 02.02.2019
-
-Кватро - XV лет. Часть 2 (2019) [MP3|320 Kbps] <Pop, Retro>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761496.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Улетай
-2. Caruso
-3. Не жалею, не зову, не плачу
-4. Bella Ciao(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:34:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DBA7EFEB73EA6524B1DBDD9D75B652D86A1CD4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215070   (761376) от 24.03.2018
-
-Leila K. - Carousel (1993) [FLAC|Lossless|image + .cue] <Euro-House>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carousel
-02. Open Sesame
-03. Ca Plane Pour Moi
-04. Slow Motion(   Читать дальше...   )Жанр: Euro-HouseПродолжительность: 00:58:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F47F3883FA1970BF42E7D31A1E19377667A5E133
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1017751   (760778) от 17.05.2016
 
 Jamala - Подих (2015) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -177,7 +6,7 @@ Jamala - Подих (2015) [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760778.jpg" />
 </div>
 
 
@@ -206,7 +35,7 @@ Marc De Ville - Don't Smile (1979) LP [MP3|320 Kbps] <Electronic, Power Pop, Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760435.jpg" />
 </div>
 
 
@@ -235,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_760426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_760426.jpg" />
 </div>
 
 
@@ -264,7 +93,7 @@ VA - Best Of Funk 2021 (2022) [MP3|320 Kbps] <Disco, Nu-Disco, Funk>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760350.jpg" />
 </div>
 
 
@@ -293,7 +122,7 @@ VA - Deutsche Schlager Hits Deluxe 2018 (80 Discofox Hits) [MP3|320 Kbps] <Pop, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759833.jpg" />
 </div>
 
 
@@ -322,7 +151,7 @@ VA - Best Of The 70's (2002) [FLAC|Lossless|tracks + .cue] <Rock, Reggae, Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759618.jpg" />
 </div>
 
 
@@ -351,7 +180,7 @@ VA - Pure... 80s (2012) Box Set, 4 CD [FLAC|Lossless]<Pop, Rock, Electronic, Sof
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759475.jpg" />
 </div>
 
 
@@ -380,7 +209,7 @@ Dave Edmunds - 2 Albums (1983, 1984) [MP3|320 кб/с] <New Wave, Pop Rock, Rock
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759271.jpg" />
 </div>
 
 
@@ -412,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758726.jpg" />
 </div>
 
 
@@ -441,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758724.jpg" />
 </div>
 
 
@@ -470,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758558.jpg" />
 </div>
 
 
@@ -499,7 +328,7 @@ INNA - Champagne Problems #DQH1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_758252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_758252.jpg" />
 </div>
 
 
@@ -528,7 +357,7 @@ Yan Tregger - Christopher Ried - Ducks & Drakes (1979) LP [MP3|320 Kbps] <Electr
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758221.jpg" />
 </div>
 
 
@@ -557,7 +386,7 @@ Arp-Life - Jumbo Jet (1977) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758092.jpg" />
 </div>
 
 
@@ -586,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757806.jpg" />
 </div>
 
 
@@ -615,7 +444,7 @@ VA - The 80s (2003) [FLAC|Lossless]<Pop, Disco>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757757.jpg" />
 </div>
 
 
@@ -644,7 +473,7 @@ George Baker - Diamond Star Collection (1996) Unofficial Release [APE|Lossless|i
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757631.jpg" />
 </div>
 
 
@@ -673,7 +502,7 @@ Ariana Grande - Dangerous Woman (2016) [MP3|320 кб/с] <Pop, Hip-Hop, R&B>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_757362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757362.jpg" />
 </div>
 
 
@@ -702,7 +531,7 @@ VA - Super Hits Of The '70s: Have A Nice Day (1990-1996) 25CD [MP3|320 кб/с] 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757255.jpg" />
 </div>
 
 
@@ -731,7 +560,7 @@ Ke - I Am [...] (1996) [FLAC|Lossless|image + .cue] <Rock, Funk, Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756986.jpg" />
 </div>
 
 
@@ -745,6 +574,176 @@ Ke - I Am [...] (1996) [FLAC|Lossless|image + .cue] <Rock, Funk, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72144767B98B361C6C365C1DC4787188FD7F4341
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280977   (756831) от 05.02.2019
+
+Елена Темникова - TEMNIKOVA 4 (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756831.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro
+2. Бабочки
+3. Садится батарея
+4. Говорила(   Читать дальше...   )Жанр: PopПродолжительность: 00:19:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10B94A270302E65A7AB43E8BA3A951C9D1863256
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215700   (756733) от 27.03.2018
+
+Mary Chapin Carpenter (Мэри Чапин Карпентер) - Hometown Girl (1987) Columbia [MP3|320 Kbps] <Country, Alt-Country, Pop-Rock, Indie, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_756733.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мэри Чапин Карпентер - американская кантри певица, автор песен и актриса. Певица в молодости никогда не представляла себя на профессиональной сцене. Дебютное выступление Мэри состоялось в местном баре, куда её привел отец. В 1981 году будущая певица получила высшее образование. Она стала выпускницей университета «Браун». Главной встречей в её карьере стало знакомство (   Читать дальше...   )01. A Lot Like Me 4:37
+02. Other Streets And Other Towns 5:01
+03. Hometown Girl 4:54
+04. Downtown Train 4:11(   Читать дальше...   )Жанр: Country, Alt-Country, Pop-Rock, Indie, Soft RockПродолжительность: 00:42:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8061C7B283FC62277F71D6A95B66794614D8EDD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215789   (756728) от 27.03.2018
+
+Mary Chapin Carpenter (Мэри Чапин Карпентер) - State Of The Heart (1989) Columbia [MP3|320 Kbps] <Country, Alt-Country, Pop-Rock, Indie, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мэри Чапин Карпентер - американская кантри певица, автор песен и актриса. Певица в молодости никогда не представляла себя на профессиональной сцене. Дебютное выступление Мэри состоялось в местном баре, куда её привел отец. В 1981 году будущая певица получила высшее образование. Она стала выпускницей университета «Браун». Главной встречей в её карьере стало знакомство (   Читать дальше...   )01. How Do 2:13
+02. Something of a Dreamer 3:01
+03. Never Had it So Good 4:08
+04. Read My Lips 3:09(   Читать дальше...   )Жанр: Country, Alt-Country, Pop-Rock, Indie, Soft RockПродолжительность: 00:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC965D55EF67A35736655621EFE1B067A9215C36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215811   (756601) от 27.03.2018
+
+Reflection - A Whiter Shade Of Pale (1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Whiter Shade Of Pale (14:23)
+02. A Woman In Black (5:00)
+03. Hot Summer Night (7:17)Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:26:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C53B7B74AA71D620261A0F1B9A8377890D742AC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 662885   (756235) от 30.05.2013
+
+Madonna - The Complete Studio Albums (1983-2008) Box Set, 11CD, 2012, Warner Bros. [FLAC|Lossless|image + .cue] <Pop, Dance, Electronic>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_756235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Dance, ElectronicПродолжительность: 00:56:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 662927   (756234) от 30.05.2013
+
+VA - Суперхиты дискотеки 90-х... продолжение (2011) [FLAC|Lossless]<Pop, EuroDance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_756234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. East 17 - It's Alright (4:43)
+02. E-Type - Set the World on Fire (3:46)
+03. Captain Hollywood - Over and Over (3:47)
+04. DJ BoBo - Take Control (3:48)(   Читать дальше...   )Жанр: Pop, EuroDanceПродолжительность: 01:18:55
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

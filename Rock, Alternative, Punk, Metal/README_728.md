@@ -1,3 +1,32 @@
+###  Публикация: 1420359   (332608) от 01.11.2020
+
+VA - Volume 4 (Redux) (2020) [MP3|320 Kbps] <Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thou - Wheels of Confusion - The Straightener
+02. The Obsessed - Tomorrow's Dream
+03. High Reeper - Changes
+04. Matt Pike - FX(   Читать дальше...   )Жанр: MetalПродолжительность: 00:48:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96A8F180AE2A0B891E9504C5430BF0672721508D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1420577   (332602) от 01.11.2020
 
 Ocean Jet - BAD GOOD (2020) EP [MP3|320 Kbps] <Indie Pop Rock, Electronic Rock, Synthpop>
@@ -6,7 +35,7 @@ Ocean Jet - BAD GOOD (2020) EP [MP3|320 Kbps] <Indie Pop Rock, Electronic Rock, 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332602.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Moondog Matinee - Carry Me, Rosie (2015) [MP3|320 кб/с]<Alternative, Heavy Bl
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332569.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Cult Of Luna - Vertikal (2013) [FLAC|image+.cue]<Post-Metal / Sludge Metal / Pro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332564.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Deathdefier - They Will Come To Cut Your Head (2016) [FLAC|image+.cue]<Instrumen
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332557.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Nothing - The Great Dismal (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alt
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332551.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Chris Isaak - First Comes the Night (2015) Deluxe edition [MP3|320 кб/с]<Pop 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332407.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Queen - A Night At The Odeon: Hammersmith 1975 (2015) Live [FLAC|tracks + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332400.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ SeeYouSpaceCowboy - The Correlation Between Entrance and Exit Wounds (2019) [MP3
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332350.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Brujeria - 3 albums, 5 singles, 3 compilations (1990-2008) [MP3|128-320 кб/с]
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332337.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Kurt Cobain - Montage of Heck: The Home Recordings (2015) Deluxe Edition [MP3|32
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332322.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Swallow The Sun - Songs From The North I, II & III (2015) 3CD [MP3|320 кб/с]<
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332216.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Jeff Lynne’s ELO (Electric Light Orchestra) - Alone In The Universe (2015) Del
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332215.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332147.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Judas Priest - Fuel for Life 1986 (live) (1986) Reissue, 2022, Cult Legends [MP3
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332139.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Icon For Hire - The Reckoning (2022) [MP3|320 Kbps] <Alt. Rock, Female Vocal>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332137.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Drowning Pool - Strike A Nerve (2022) [MP3|320 Kbps] <Alt. Metal, Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332015.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Down 'n' Outz - This Is How We Roll (2019) [OGG Vorbis|484 Kbps] <Rock, Hard Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332007.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Sabaton - Weapons Of The Modern Age (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331998.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Sabaton - Weapons Of The Modern Age (2022) EP [MP3|320 Kbps] <Heavy Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331996.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Machine Head - 7albums + 3EPs + 7singles (1993-2011) [MP3|320kbps] <Thrash Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331874.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Dark Oasis - Ode To The Dead / Lurking In The Darkness (2021) Compilation, Huang
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331848.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Twenty Four Hours - Ladybirds (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331846.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Aviana - Corporation (2022) [MP3|320 Kbps] <Progressive Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331845.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Suzi Quatro - Uncovered (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Clas
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331839.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Alice Cooper - Live from the Astroturf (2022) [FLAC|Lossless|WEB-DL|tracks] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331838.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Alice Cooper - Live from the Astroturf (2022) [FLAC|Lossless|WEB-DL|tracks] <Har
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2ABB6A030F36B3BAA8AAF6F9D45DF39B20A4024D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 796021   (331757) от 15.10.2019
-
-Machine Head - 2 Studio Albums, 2 Live Albums, 3 Singles (2012-2019) [MP3|320 кб/с] <Groove Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331757.jpg" />
-</div>
-
-
-###  Подробнее
-
-2012 - Machine F**king Head Live (2CD, Live)
-2014 - Killers & Kings (Single, RSD 10-inch)
-2014 - Bloodstone & Diamonds (Limited Edition Mediabook)
-2016 - Is There Anybody Out There? (Single)(   Читать дальше...   )Жанр: Groove Metal, Thrash MetalПродолжительность: 06:37:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58990DF4F03FA01904503772A57ACB3E88C17526
 ```
 
 https://mybot314.ru/tekegram_catalog/

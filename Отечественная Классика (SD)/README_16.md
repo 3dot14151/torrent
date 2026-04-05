@@ -1,3 +1,57 @@
+###  Публикация: 1200257   (795527) от 21.01.2018
+
+Гамлет (1964) WEBRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795527.jpg" />
+</div>
+
+
+###  Подробнее
+
+По одноименной трагедии Уильяма Шекспира (пер. Бориса Пастернака).
+Фильм этот — попытка современного прочтения шекспировской трагедии. За всю историю Эльсинора, мрачного замка, хранящего тайну не одного преступления, Гамлет, быть может, первый человек, который без прежней легкости и уверенности в своей правоте берется за оружие, чтобы отомстить. Он — первый мыслитель (   Читать дальше...   )Производство: СССР, ЛенфильмЖанр: Драма, ЭкранизацияРежиссер: Григорий КозинцевАктеры: Иннокентий Смоктуновский, Михаил Названов, Эльза Радзиня, Юрий Толубеев, Анастасия Вертинская, Вадим Медведев, Владимир Эренберг и др.Субтитры: Русские, Английские, ФранцузскиеПродолжительность: 01:11:39 + 01:11:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:314D48783D076843A5CD7518DDDCD7135F8C0B01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197540   (795477) от 21.01.2018
+
+Олеся (1970) DVBRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795477.jpg" />
+</div>
+
+
+###  Подробнее
+
+По одноименной повести Александра Куприна.
+Трагическая история любви русского интеллигента и неграмотной девушки, обладающей, тем не менее, необычными способностями.Производство: СССР, киностудия: "им. А.Довженко"Жанр: ДрамаРежиссер: Борис ИвченкоАктеры: Людмила Чурсина, Геннадий Воропаев, Борислав Брондуков, Анатолий Барчук, Мария Капнист, Владимир Волков и др.Продолжительность: 01:20:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0C8B98E5FDF97A346F219B600C537031B41A716
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 113560   (795325) от 21.01.2018
 
 Праздник святого Иоргена (1930) DVDRip
@@ -6,7 +60,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795325.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794678.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792687.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792320.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792066.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791875.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790881.jpg" />
 </div>
 
 
@@ -192,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789830.jpg" />
 </div>
 
 
@@ -218,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789777.jpg" />
 </div>
 
 
@@ -244,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787785.jpg" />
 </div>
 
 
@@ -270,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786631.jpg" />
 </div>
 
 
@@ -296,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785254.jpg" />
 </div>
 
 
@@ -322,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784595.jpg" />
 </div>
 
 
@@ -348,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782750.jpg" />
 </div>
 
 
@@ -374,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782712.jpg" />
 </div>
 
 
@@ -402,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780499.jpg" />
 </div>
 
 
@@ -428,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779460.jpg" />
 </div>
 
 
@@ -454,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778829.jpg" />
 </div>
 
 
@@ -480,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778432.jpg" />
 </div>
 
 
@@ -506,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777130.jpg" />
 </div>
 
 
@@ -533,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776784.jpg" />
 </div>
 
 
@@ -559,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775928.jpg" />
 </div>
 
 
@@ -585,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775701.jpg" />
 </div>
 
 
@@ -611,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775606.jpg" />
 </div>
 
 
@@ -622,59 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9975F7FD0D9BA24FD15201EC6C584DE1D1A30D2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566716   (775445) от 09.05.2016
-
-Аты-баты, шли солдаты... (1976) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Широкоформатный фильм. Последний фильм Леонида Быкова и его последняя роль в кино...
-Они погибли 18 марта 1944 года, их было всего восемнадцать человек – комсомольский взвод, остановивший колонну немецких танков. Трагическое и комедийное, героическое и лирическое сплелись на экране в необычную ткань повествования об отцах, навсегда оставшихся молодыми, и о детях, (   Читать дальше...   )Производство: СССР / Киностудия имени А.П. ДовженкоЖанр: Драма, ВоенныйРежиссер: Леонид БыковАктеры: Леонид Быков, Владимир Конкин, Елена Шанина, Леонид Бакштаев, Евгения Уралова, Гия Авалишвили, Богдан Бенюк, Николай Гринько, Отабек Ганиев, Иван Гаврилюк, Владимир ГерасимовПродолжительность: 01:22:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F93E68C9F9D27A86C2390F4DE850BA7AFD29E97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 657270   (775360) от 22.05.2013
-
-Трое суток после бессмертия (1963) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Идет 250-й день обороны Севастополя. На окраине разбомбленного города, без рации и с горсткой боеприпасов, из последних сил держатся 12 бойцов Советской армии. С ними в укрытии — раненые, женщины и дети. Сообщение Совинформбюро о том, что Севастополь оставлен советскими войсками, открывает им суровую правду — теперь они один на один с врагом. Их единственная надежда (   Читать дальше...   )Жанр: Военный, ДрамаРежиссер: Владимир ДовганьАктеры: Владимир Заманский, Николай Крюков, Георгий Юматов, Геннадий Юхтин, Александр Мовчан, Альберт Акчурин, Леонид Данчишин, Лилия Калачёва, Генаят Кенжехан-улы, Виктор КолодныйПродолжительность: 1:20:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4E28DB54F8F240770D07660BB9AF3A371FAA9DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

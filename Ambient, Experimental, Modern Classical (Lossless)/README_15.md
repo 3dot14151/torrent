@@ -6,7 +6,7 @@ worriedaboutsatan - Europa (2020) Past Inside the Present [FLAC 2.0|44.1/24|trac
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383515.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Christian Kleine - Touch & Fuse (2020) A Strangely Isolated Place [FLAC 2.0|44.1
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383420.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Josh Alexander - Bright Morning Jetlag Blues (2020) Moderna Records [FLAC|Lossle
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381449.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ N-So - Out of the Valley (2020) Moderna Records [FLAC|Lossless|WEB-DL|tracks] <M
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381440.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Ian Boddy & Erik Wøllo (Erik Wollo) - Meridian (2018) DiN [FLAC|Lossless|WEB-DL
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_377514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377514.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Martin Goodwin - Eclosion (2020) Kornarion Records [FLAC 2.0|44.1/24|tracks|WEB-
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376861.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ The Green Kingdom - Expanses Remixes (2019) Dronarivm [FLAC|Lossless|tracks+.cue
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376727.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Dawn Chorus and the Infallible Sea - Liberamente (2020) Azure Vista Records [FLA
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374307.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Zake - Geneva (2020) Past Inside the Present [FLAC|Lossless|WEB-DL|tracks] <Ambi
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374301.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Fatih Tuter - Beehive (2020) Shimmering Moods Records [FLAC 2.0|44.1/24|tracks|W
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_374177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374177.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Jean-Michel Jarre - Oxygene Trilogy (2016) [FLAC|Lossless|tracks + .cue] <Ambien
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372720.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Moon Zero - Discography 7 Releases (2013-2017) Denovali Records, Futuresequence 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370671.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Dahlia's Tear - Discography 8 Releases (2005-2020) Cryo Chamber [FLAC|Lossless|t
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367253.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Sonic Scope - Yoga Chakra (2020) Avatar Records [FLAC|Lossless|WEB-DL|tracks] <A
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367186.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Giulio Aldinucci - Aer (2014) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Contempora
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366867.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Kedr Livanskiy - Ariadna (ариадна) (2017) [FLAC|Lossless|Web-DL|tracks] <
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365307.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Chronovalve - Light (2020) Home Normal [FLAC|Lossless|WEB-DL|tracks] <Ambient, D
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362837.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Above & Beyond - Flow State (2019) [FLAC|Lossless|tracks + .cue] <Ambient>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362802.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Proxeeus - Celephaïs (Celephais) (2019) [FLAC|Lossless|WEB-DL|tracks] <Psybient
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361208.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359062.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Saffronkeira with Paolo Fresu - In Origine: The Field Of Repentance (2020) Denov
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355730.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ VA - Summer Tales EP (2020) 20:21 [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub Te
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349296.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Ghost And Tape - Vár (2017) Home Normal [FLAC|Lossless|WEB-DL|tracks] <Ambient,
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342807.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ The Seven Fields Of Aphelion - Discography 2 Releases (2010-2017) Graveface Reco
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342649.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ David Moufang - Solitaire (1995) Fax +49-69/450464 [FLAC|Lossless|tracks+.cue] <
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342194.jpg" />
 </div>
 
 
@@ -726,7 +726,7 @@ Qik - Alba (2020) Aula Magna Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Exp
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340118.jpg" />
 </div>
 
 

@@ -1,3 +1,159 @@
+###  Публикация: 1214204   (759355) от 25.03.2018
+
+Эксперты рассказали, как правильно заряжать смартфоны
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_759355.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многие пользователи задумались над тем, как правильно заряжать аккумулятор смартфона, при этом не навредив ему.В основном смартфоны ставят на подзарядку на ночь, но это вредит аккумулятору. Дело в том, что после достижения 100%-го заряда блоки отключаются, однако аппарат начинает постепенно терять свой заряд и снова начинает подзаряжаться.Таким образом, для аккумулятора (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191389   (759354) от 25.03.2018
+
+Total Commander 9.12 Podarok Edition + Lite [Ru/Uk]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759354.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка Podarok Edition работает с любого носителя. Она помогает облегчить работу системного администратора или продвинутого пользователя - большинство необходимых в повседневной работе программ собраны в одном пакете. Помогает в быстрой настройке Windows после инсталляции, экономя время на установку более полусотни программ. Позволяет иметь всегда под рукой на FLASH (   Читать дальше...   )Язык интерфейса: Русский, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1F4C12C2E4BB5E269270415E3D342051835AC97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214184   (759351) от 25.03.2018
+
+10 на 10 / 10x10 (2018) WEB-DLRip [H.264/720p-LQ] [MVO] [AD]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой человек средь бела дня очень дерзко похищает девушку прямо с городской улицы. Предварительно у себя дома он соорудил звукоизолированную коробку размером десять на десять футов, куда и поместил свою пленницу. На это ужасное и безумное действие, как оказывается, его толкает чувство неудовлетворенной мести, а девушка, оказавшаяся в ловушке, не является невинной (   Читать дальше...   )Производство: Великобритания / Broadlane FilmsЖанр: ТриллерРежиссер: Сьюзи ЮингАктеры: Люк Эванс, Келли Райлли, Ноэль Кларк, Оливия Ченери, Руби Бустаманте, Джейсон Мацца, Джилл Винтерниц, Скай Люсия Дегруттола, Джексон КайПеревод: Многоголосый закадровый, любительский (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:26:08Реклама: Присутствуют вставки текстовой рекламы!
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F2D2F1C29D4EE1415C30A2FBF3B652ABC9233E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215156   (759350) от 25.03.2018
+
+Microsoft Windows 7 Максимальная Ru x86-x64 Orig w.BootMenu by OVGorskiy® 03.2018 1DVD [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759350.jpg" />
+</div>
+
+
+###  Подробнее
+
+обновленные оригинальные русские образы ОС "Windows® 7™ Максимальная" от Microsoft разных разрядностей (x86 и x64), объединенных в один образ стандартными средствами от Microsoft (DISM, AIK) на 1 DVD. Включает в себя "чистые" не модифицированные образы ОС Windows 7 Ultimate x86/x64 и расширенный загрузчик-установщик Stop SMS Uni Boot от Core-2. (   Читать дальше...   )Язык интерфейса: Русский (Russian)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:169B299194C978F0A44B79A12C07CD950ED74E1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 309054   (759234) от 08.04.2011
+
+Терминал (2010) SATRip (сезон 1, серии 1-24 из 24)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из лучших сотрудников МУРа майор Муратов за жёсткие методы работы переведен на работу в таможенный терминал. Но и там, на терминале, для Муратова находится работа!Жанр: Детектив, КриминалРежиссер: Марсель ШамшулинАктеры: Вячеслав Разбегаев, Наталья Антонова, Олег Штефанко, Кирилл Козаков, Виктория Лукина, Дмитрий Исаев, Татьяна Журавлева, Михаил Самохвалов, Эдуард Галеев, Игорь Литовкин, Юлия Марина, Денис Сердюков, Святослав Чирков, Анна Чурина, Кирилл Кяро, Сергей Степин, Владимир Зайцев, Александр Рапопорт, Сергей Власов, Алексей Зеленский, Валерий Афанасьев, Анатолий Горячев, (   Читать дальше...   )Продолжительность: 24 х ~ 00:44:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 320430   (759232) от 08.04.2011
+
+127 Часов / 127 Hours (2010) HDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759232.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неудержимый скалолаз и любитель спрятанных в каньонах пещер в очередной раз в одиночестве едет в горы и оказывается в смертельной ловушке. 127 часов без еды, без питья и практически без надежды выжить. Тут-то и проявляется сила характера…Жанр: триллер, драма, приключения, биографияРежиссер: Дэнни БойлАктеры: Джеймс Франко, Кейт Мара, Эмбер Тэмблин, Шон Ботт, Колман Стингер, Трит Уильямс, Джон Лоуренс, Кейт Бёртон, Бэйли Мишель, Джонсон Ребекка С. ОлсонПеревод: ДублированныйПродолжительность: 01:33:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B4344A38A2806DE5EE958670304BB8241848728
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 320354   (759231) от 08.04.2011
 
 Painkiller Антология [Ru] (Lossless RePack) 2004-2011 | R.G. Catalyst
@@ -6,7 +162,7 @@ Painkiller Антология [Ru] (Lossless RePack) 2004-2011 | R.G. Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759231.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Windows lwgame nCore v.2.5 OBT Rus 2010  [Только русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_759156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_759156.jpg" />
 </div>
 
 
@@ -67,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759137.jpg" />
 </div>
 
 
@@ -93,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_758968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_758968.jpg" />
 </div>
 
 
@@ -119,7 +275,7 @@ JetBrains PhpStorm 2016.1.1 Build PS-145.970 [En]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758701.jpg" />
 </div>
 
 
@@ -145,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758700.jpg" />
 </div>
 
 
@@ -171,7 +327,7 @@ Half-Life 2: Deathmatch (2004) [Ru/En] (3398447) Repack/Mod toizy
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758699.jpg" />
 </div>
 
 
@@ -197,7 +353,7 @@ Microsoft® Windows 7 SP1 x86/x64 Ru 9 in 1 Origin-Upd 05.2016 by OVGorskiy® 1D
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758696.jpg" />
 </div>
 
 
@@ -223,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_758618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_758618.jpg" />
 </div>
 
 
@@ -249,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758307.jpg" />
 </div>
 
 
@@ -276,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758304.jpg" />
 </div>
 
 
@@ -304,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>9
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_758302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_758302.jpg" />
 </div>
 
 
@@ -334,7 +490,7 @@ ESET NOD32 Antivirus / Smart Security 8.0.312.3 RePack by KpoJIuK [Ru/En]
 >>12
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758293.jpg" />
 </div>
 
 
@@ -361,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_758262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_758262.jpg" />
 </div>
 
 
@@ -387,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_758134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_758134.jpg" />
 </div>
 
 
@@ -415,7 +571,7 @@ Google отдал 500 т.р. за отказ блокировать «запре
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_758079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_758079.jpg" />
 </div>
 
 
@@ -441,7 +597,7 @@ Kerish Doctor 2019 4.70 DC 31.01.2019 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758066.jpg" />
 </div>
 
 
@@ -467,7 +623,7 @@ PCRADIO 6.0.2 Premium RePack (& Portable) by elchupacabra [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_758059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_758059.jpg" />
 </div>
 
 
@@ -493,7 +649,7 @@ mini10PE 19.2 [Ru] [x86/x64] (авторская раздача)
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_758058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_758058.jpg" />
 </div>
 
 
@@ -519,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758050.jpg" />
 </div>
 
 
@@ -530,170 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6355C6C9FFA7FB17E67DABE89080832D77E1A23E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521965   (757998) от 07.01.2022
-
-Есть ли разница между 4K и 8K для вашего глаза
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_757998.jpg" />
-</div>
-
-
-###  Подробнее
-
-Некоторые современные дорогие модели телевизоров предлагают разрешение 8K UHD, вдвое превышающее предыдущий стандарт 4K. Действительно ли изображение на этих телевизорах 8K в два раза лучше, чем 4K?Стоит ли покупать ультрасовременный телевизор с разрешением 8K?
- (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215207   (757679) от 26.03.2018
-
-Роскомнадзор добивается блокировки IP-адресов Amazon
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_757679.jpg" />
-</div>
-
-
-###  Подробнее
-
-Только так можно окончательно заглушить интернет-рацию, заблокированную в прошлом году. Представители «большой тройки» операторов отказались от комментариев, как и сам РосКомНадзор.Блокировку Zello Роскомнадзор называет «экспериментом». Как гласит письмо, Роскомнадзор проанализировал работу Zello и определил подсети, «которые необходимо заблокировать для эффективной (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215587   (757671) от 26.03.2018
-
-Windows 10 Pro 1709 x86/x64 by kuloymin v12.5 (esd) [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка основана на официальных образах от MSDN: ru_windows_10_multi-edition_version_1709_updated_dec_2017.
-Удалены некоторые APPX, стандартные темы, отключено несколько компонентов, активирован протокол Samba.
-Очищена папка WinSxS\Backup.
-Очищена папка WinSxS\ManifestCache.(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B414DF84689278B190374BD31C22BC0CBA41859
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215197   (757670) от 26.03.2018
-
-Российский студент выжил на стипендию
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_757670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Петербургский студент смог месяц прожить на стипендию в 1572 рубля
-Студент СПбГУ Алексей Зырянов смог прожить месяц на стипендию, потратив на еду 1472 рубля, сообщает «Росбалт». Свой эксперимент Зырянов начал 23 февраля и регулярно отчитывался о его ходе в своем паблике.Алексей Зырянов учится в Санкт-Петербургском государственном университете и получает стипендию (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913393   (757667) от 26.03.2018
-
-Doragon Boru Cho / Dragon Ball Super / Драгонболл Супер [2015, TV, 131] HDTVrip 720p raw
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_757667.jpg" />
-</div>
-
-
-###  Подробнее
-
-События происходят спустя несколько лет после победы над Маджин Буу, когда на Земле вновь царит мир.Производство: Toei AnimationЖанр: приключения, комедия, фэнтези, сёнэнРежиссер: Kimitoshi ChiokaЯзык субтитров: Русский (отключаемый), Английский (отключаемый)Продолжительность: 131 серия по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E333BA16FC2CF3E939ABF05D7B5EE07A80EDBBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207663   (757665) от 26.03.2018
-
-Windows 10 Enterprise LTSB 2016 v1607 (x86/x64) by LeX_6000 [18.02.2018] [Ru/En]
-
->>3
->>36
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборки основаны на официальных образах Microsoft:
-ru_windows_10_enterprise_2016_ltsb_x86_dvd_9058173
-ru_windows_10_enterprise_2016_ltsb_x64_dvd_9057886
-en_windows_10_enterprise_2016_ltsb_x86_dvd_9060010(   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09FD5202202E10F2FB57B2ABECADF3E7B92E11EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287357.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ OmniFocus Pro 2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287153.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ PhoneRescue 2.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287145.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ CleanMyMac 3.9.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287122.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Imagenomic Plug-in for Photoshop СС2015.5-СС2018 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286962.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Path Finder 7.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286888.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ DEVONthink Pro Office 2.8.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286850.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Transmit 4.4.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286848.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ VMware Fusion Pro 8.1.0 (3272237) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286808.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Feeder 3.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286695.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Squeezer 1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286692.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Folx Pro 5.1.13639 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286631.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Reflect Studio 2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286567.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Circular Studio 1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286561.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ SkyLab Studio 1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286455.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ OmniGraffle Pro 7.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286447.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ LensFlare Studio 5.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286437.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ DriveDx 1.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286370.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Find Any File 2.0.1b6 (216)  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286347.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Disk Xray 2.7.1 (build 27110) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286345.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ iCollections 5.4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286344.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Athentech Perfectly Clear Complete 3.8.0.1688 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286343.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ DoubleTake 2.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286311.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Luminar 2018 v1.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286224.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ AppDelete 4.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285912.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ Bootstrap Studio 4.3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285836.jpg" />
 </div>
 
 

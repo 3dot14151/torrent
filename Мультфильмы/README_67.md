@@ -1,3 +1,135 @@
+###  Публикация: 637383   (899433) от 31.03.2013
+
+Мишка Гумми - Я мишка Гумми / Gummy Bear - Eu Sou O Gummy Bear (2012) DVD5 [EN, POR]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899433.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник клипов про Медведя Гумми, португальская версия.
+
+  Мишка Гумми (мармеладный мишка) - зеленый голубоглазый символ жевательных конфет Gummy Bear, в оранжевых панталонах и тапочках поет и танцует. Небольшая часть левого уха, в верху, отсутствует, так как, ее, скорее всего кто-то откусил. Два нижних зуба, расположены далеко друг от друга (так как вредно есть столько (   Читать дальше...   )Жанр: Детский, Компьютерная анимацияРежиссер: Реnе RennefeldПерсонажи: Gummy BearПеревод: ОтсутствуетСубтитры: Только вторая песняЯзык субтитров: Португальский (Бразилия)Продолжительность: 00:18:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7153AC74E83281DBD41798563589D775E2F0B3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 760405   (899402) от 26.02.2014
+
+Балто: Дилогия / Balto: Dilogy (1995, 2002) DVDRip [UKR, EN]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы (коллекции, сборники / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение приключений легендарного пса Балто. Случилось так, что Балто стал отцом. Он сделал все возможное, чтобы пристроить всех своих отпрысков в хорошие семьи. Но одна девочка, по имени Алу, вдруг почувствовала, что никогда не сможет быть похожей на своих братьев и сестер. После того, как она встретила в лесу охотника, Алу ощутила пробуждение загадочной природы (   Читать дальше...   )Производство: США / Amblin Entertainment, Universal Pictures, AmblimationЖанр: мультфильм, фантастика, фэнтези, комедия, семейныйРежиссер: Фил ВайнштейнПерсонажи: Морис ЛаМарш, Джоди Бенсон, Лэйси Чэберт, Дэвид Кэрредин, Марк Хэмилл, Чарльз Флайшер, Питер МакНикол, Роб Полсен, Николетт Литтл и др.Перевод: многоголосый закадровыйПродолжительность: 01:15:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D432772B96D4916EFE43DB232B0145A9F4D6340B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 761030   (899387) от 26.02.2014
+
+Турбо / Turbo (2013) BDRip [1080p] [hand made 60fps] [Горизонтальная анаморфная стереопара 3D]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ничто так не раздражает темпераментную, мечтающую о скорости улитку с говорящим именем Турбо, как неспешная жизнь, медленные разговоры, заторможенные соседи. Пусть наш герой выглядит большим чудаком в этом вялом, неторопливом мире, пусть он идёт вопреки закону природы о «рождённом ползать», но если в сердце горит «пламенный мотор», а душа верит в чудо, оно просто (   Читать дальше...   )Производство: СШАЖанр: Компьютерная анимация, ПриключенияРежиссер: Дэвид СоренПерсонажи: Райан Рейнольдс, Пол Джаматти, Майкл Пенья, Снуп Догг, Майя Рудольф, Мишель Родригес, Сэмюэл Л. Джексон, Луис Гусман, Билл Хейдер, Бен ШварцПеревод: ДублированныйПродолжительность: 01:35:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F71DC6F3970F46341EABBE477850CD8D72FA1B09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 294305   (899190) от 11.02.2011
+
+Гадкий Я / Despicable Me (2010) [1080p] Blu-ray 3D
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гадкий снаружи, но добрый внутри Грю намерен, тем не менее, закрепить за собой статус главного архизлодея в мире, для чего он решает выкрасть Луну при помощи созданной им армии миньонов. Дело осложняют конкуренты, вставляющие высокотехнические палки в колеса, и семейные обстоятельства в виде трех сироток, о которых Грю вынужден заботиться...Жанр: Комедия, семейный, мультфильмРежиссер: Пьер Соффин, Крис РеноАктеры: Стив Карелл, Джейсон Сигел, Расселл Брэнд, Джули Эндрюс, Уилл Арнетт, Кристен Уиг, Миранда Косгров, Дэна Гайер, Элси Фишер, Пьер КоффенПеревод: ДубляжСубтитры: English, Chinese, Danish, Finnish, Norwegian, Portuguese,Продолжительность: 01:34:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100365   (898856) от 04.02.2017
+
+Рио / Rio (2011) BDRip [H.264/1080p] [handmade 16:9]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898856.jpg" />
+</div>
+
+
+###  Подробнее
+
+Попугай-зануда оставляет свою уютную сытую жизнь в клетке и из Миннесоты отправляется в Рио-де-Жанейро, город грез всех и каждого. Неминуемые встречи, препятствия, опасности и любовь к последней представительнице его рода заставляют нашего героя по-другому посмотреть на мир и из скучного домоседа превратиться в милого симпатягу, узнавшего цену дружбе и смелости.Производство: Канада, elefilm Canada - Equity Investment ProgramЖанр: Приключения, Комедия, СемейныйРежиссер: Карлос СалданаПерсонажи: Карен Дишер, Джейсон Фриччион, София Скарпа Салдана, Лесли Манн, Келли Китон, Джесси Айзенберг, Ванда Сайкес, Джейн Линч, Родриго Санторо, Грасинья ЛепорансПеревод: ДублированныйЯзык субтитров: русские (форсированные, полные), английские (полные)Продолжительность: 01:29:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AFA55A8EB2986EBF89A2FA858538234A0CBDEAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1492785   (898653) от 01.09.2021
 
 Легенды «Смертельной битвы»: Битва королевств / Mortal Kombat Legends: Battle of the Realms (2021) WEB-DL [H.264/1080p] [EN]
@@ -6,7 +138,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898653.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898601.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898517.jpg" />
 </div>
 
 
@@ -87,7 +219,7 @@ Playmobil фильм: Через вселенные / Playmobil: The Movie (2019
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898357.jpg" />
 </div>
 
 
@@ -113,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898251.jpg" />
 </div>
 
 
@@ -139,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898038.jpg" />
 </div>
 
 
@@ -165,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897922.jpg" />
 </div>
 
 
@@ -191,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897739.jpg" />
 </div>
 
 
@@ -217,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897693.jpg" />
 </div>
 
 
@@ -243,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897534.jpg" />
 </div>
 
 
@@ -269,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897479.jpg" />
 </div>
 
 
@@ -295,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897224.jpg" />
 </div>
 
 
@@ -321,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897177.jpg" />
 </div>
 
 
@@ -347,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897083.jpg" />
 </div>
 
 
@@ -373,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896948.jpg" />
 </div>
 
 
@@ -399,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896839.jpg" />
 </div>
 
 
@@ -426,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896758.jpg" />
 </div>
 
 
@@ -452,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896754.jpg" />
 </div>
 
 
@@ -478,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896727.jpg" />
 </div>
 
 
@@ -504,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896592.jpg" />
 </div>
 
 
@@ -530,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896524.jpg" />
 </div>
 
 
@@ -541,136 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7886597AF94FDEB2AB69DD711DE06F334604FB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370188   (896510) от 27.03.2020
-
-Лесная братва  / Over the Hedge (2006) WEBRip [H.264/1080p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896510.jpg" />
-</div>
-
-
-###  Подробнее
-
-Медведь Винсент, угрожая съесть енота Эр-Джея, даёт ему всего неделю на то, чтобы вернуть уничтоженные им съестные припасы. Во время поиска еды Эр-Джей находит коттеджный посёлок и уговаривает других животных отправиться с ним к людям. Но первая же вылазка за едой в посёлок заканчивается неприятностями.Производство: США / DreamWorks AnimationЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Тим Джонсон, Кэри КиркпатрикПеревод: ДублированныйСубтитры: русские, английскиеПродолжительность: 01:23:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D321E227C0E3320ECA8F468F13738FC9DD6A4F07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 761454   (896504) от 28.02.2014
-
-Про Ксюшу и Компьюшу (1989) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896504.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жила девочка Ксюша. Мама и папа у нее работали программистами, а бабушка очень любила спорт. Как-то раз бабушка отправилась на Всемирные соревнования спортивных бабушек. Поэтому родители решили сделать Ксюше электронную бабушку, которая бы присматривала за девочкой. Назвали её Компьюшей. Компьюша поначалу вела себя как обычный бездушный робот, но, подружившись с (   Читать дальше...   )Жанр: ДетскийРежиссер: Леонид КощениковПродолжительность: 00:20:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1615010F1DF93C78DE25A508BDBD1E55E233FE21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370379   (896433) от 27.03.2020
-
-Вперёд / Onward (2020) WEB-DL [H.265/2160p] [4K, HDR, 10-bit] [MVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896433.jpg" />
-</div>
-
-
-###  Подробнее
-
-Братья-эльфы Иэн и Барли Лайтфуты живут в волшебном мире, населенном троллями, гоблинами, гномами, кентаврами и единорогами. Когда-то их мир переполняла магия, но те времена прошли, и теперь сказочные существа летают на самолетах, пользуются автомобилями, и ведут в целом прозаичную жизнь. Однако неожиданная находка приводит к тому, что братья решают отправиться в (   Читать дальше...   )Производство: США / Walt Disney Pictures, Pixar Animation StudiosЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Дэн СкэнлонПеревод: профессиональный многоголосый (HDRezka Studio)Субтитры: английские (full, SDH)Продолжительность: 01:42:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2785A01E043718AAD6F35A9BC338CF628FD079A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367690   (896431) от 27.03.2020
-
-ГлюкоТехники / Glitch Techs (2020)  WEBRip (сезон 1, серии 1-9 из 9) NewStation
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896431.jpg" />
-</div>
-
-
-###  Подробнее
-
-История двух непохожих друг на друга подростках, Мико и Пятый, которые сражаются с Глюками-монстрами, возникшими из-за ошибок в системе виртуальной реальности крупнейшей в мире техно-компании "Хиноби"Производство: США, Nickelodeon, NetflixЖанр: Приключения, фантастикаРежиссер: Дэн Милано, Эрик РоблсПеревод: Многоголосый профессиональный (NewStation)Субтитры: отсутствуютПродолжительность: ~00:46:01 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84BE89BA8DC85858A4AFE7764062E9F40B4F5A90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365086   (896430) от 27.03.2020
-
-ГлюкоТехники / Glitch Techs (2020)  WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-9 из 9) NewStation
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896430.jpg" />
-</div>
-
-
-###  Подробнее
-
-История двух непохожих друг на друга подростках, Мико и Пятый, которые сражаются с Глюками-монстрами, возникшими из-за ошибок в системе виртуальной реальности крупнейшей в мире техно-компании "Хиноби"Производство: США, Nickelodeon, NetflixЖанр: Приключения, фантастикаРежиссер: Дэн Милано, Эрик РоблсПеревод: Многоголосый профессиональный (NewStation)Субтитры: русские, английские, испанские, французские, китайскиеПродолжительность: ~00:46:01 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:324BDF8B7C357192FC777026E504A03AECBBF91C
 ```
 
 https://mybot314.ru/tekegram_catalog/

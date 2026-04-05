@@ -1,32 +1,3 @@
-###  Публикация: 1813776   (6584) от 21.08.2025
-
-Heaven Shall Burn - Studio Albums (11 releases) (1998-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal, Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6584.jpg" />
-</div>
-
-
-###  Подробнее
-
-Heaven Shall Burn - метал-группа из Тюрингии, Германия, образованная в 1996 году.1998 - In Battle... There Is No Law
-2000 - Asunder
-2002 - Whatever It May Take
-2004 - AntigoneЖанр: Melodic Death Metal, MetalcoreПродолжительность: 13:35:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E2A44239342F9A3F054D3F7B44BC05A1FB0357C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1813819   (6583) от 21.08.2025
 
 JP LeBlanc - All In My Blood / Je l'ai dans l'sang (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
@@ -35,7 +6,7 @@ JP LeBlanc - All In My Blood / Je l'ai dans l'sang (2025) [FLAC 24/44.1|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6583.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Dashiell Royston - Soul and Beyond (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6582.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Deftones - Studio Albums (12 releases) (1995-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6505.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Burning Witches - Studio Albums (6 releases) (2017-2025) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6498.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Meshuggah - Studio Albums (15 releases) (1991-2025) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6484.jpg" />
 </div>
 
 
@@ -179,7 +150,7 @@ Blackbriar - Studio Albums (6 releases) (2017-2025) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6475.jpg" />
 </div>
 
 
@@ -207,7 +178,7 @@ Deftones - Private Music (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Nu-Metal, S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6425.jpg" />
 </div>
 
 
@@ -236,7 +207,7 @@ Myrath - Reflections: Best Of (2025) [FLAC 24/44.1, 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6415.jpg" />
 </div>
 
 
@@ -265,7 +236,7 @@ Rise Against - Ricochet (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Punk Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6414.jpg" />
 </div>
 
 
@@ -294,7 +265,7 @@ Feuerschwanz - Knightclub (2025) Deluxe Version, 2025, Napalm Records Handels Gm
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6413.jpg" />
 </div>
 
 
@@ -323,7 +294,7 @@ Jack The Joker - The Devil To Pay In The Backlands (2025) [FLAC 24/96|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6396.jpg" />
 </div>
 
 
@@ -352,7 +323,7 @@ Three Days Grace - Studio Albums (8 releases) (2003-2025) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6367.jpg" />
 </div>
 
 
@@ -381,7 +352,7 @@ John Fogerty - Legacy: the Creedence Clearwater Revival years (John's Version) (
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6299.jpg" />
 </div>
 
 
@@ -410,7 +381,7 @@ Three Days Grace - Alienation (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Altern
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6278.jpg" />
 </div>
 
 
@@ -439,7 +410,7 @@ Fabia Mantwill Orchestra - IN.SIGHT (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6264.jpg" />
 </div>
 
 
@@ -468,7 +439,7 @@ Helloijan - Senja di Pantai Morib (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6262.jpg" />
 </div>
 
 
@@ -497,7 +468,7 @@ Greenberg Group - More Swans! (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6248.jpg" />
 </div>
 
 
@@ -526,7 +497,7 @@ Heber Ataza - Viajando (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6247.jpg" />
 </div>
 
 
@@ -555,7 +526,7 @@ Adegoke Steve Colson & Iqua Colson - Glow: Music for Trio... Add Voice (2025) [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6246.jpg" />
 </div>
 
 
@@ -584,7 +555,7 @@ Bob Forte - Quarter Till Midnight (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6245.jpg" />
 </div>
 
 
@@ -613,7 +584,7 @@ Greg Chako - Comfort Food (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6244.jpg" />
 </div>
 
 
@@ -642,7 +613,7 @@ Felice Lionetti - True (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6243.jpg" />
 </div>
 
 
@@ -671,7 +642,7 @@ Geoff Mann, Herbie Mann - Underground (2025) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6241.jpg" />
 </div>
 
 
@@ -700,7 +671,7 @@ Heidarlegur - Time Machine to Travel Back to Childhood (2025) [FLAC 24/44.1|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6239.jpg" />
 </div>
 
 
@@ -729,7 +700,7 @@ Iron Savior (Helloween, Gamma Ray, Unisonic) - Studio Albums (16 releases) (1997
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6182.jpg" />
 </div>
 
 
@@ -743,6 +714,35 @@ Iron Savior — немецкая группа, играющая в стиле п
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81493A1A7BE3C1B091E61510460E3EBDB4F0DDB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814653   (5953) от 25.08.2025
+
+Holst, Grieg - Herbert von Karajan, Vienna Philharmonic - The Planets, Peer Gynt (1961, 2024) [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Classical, Romantic, Modern>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Holst - The Planets, Op.32
+01. 1. Mars, the Bringer of War (7:05)
+02. 2. Venus, the Bringer of Peace (8:22)
+03. 3. Mercury, the Winged Messenger (4:00)(   Читать дальше...   )Жанр: Classical, Romantic, ModernПродолжительность: 01:14:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDB58F705174315DBEE350E6FF8781837648A0DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

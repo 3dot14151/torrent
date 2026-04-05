@@ -1,4 +1,57 @@
 https://t.me/izofen
+###  Публикация: 127622   (1063938) от 
+
+Олеся (1971) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063938.jpg" />
+</div>
+
+
+###  Подробнее
+
+Захватывающая история любви русского интеллигента и неграмотной девушки колдуньи разворачивается в картине "Олеся", снятой по одноименной, самой известной повести Александра Куприна. Блуждая по лесу, Иван Тимофеевич находит на краю болота ветхую избушку. В ней живет старуха с красавицей внучкой Олесей. Много лет назад крестьяне, считая женщину ведьмой, (   Читать дальше...   )Жанр: ДрамаРежиссер: Борис ИвченкоАктеры: Людмила Чурсина, Геннадий Воропаев, Борислав Брондуков, Анатолий Барчук, Владимир ВолковПеревод: ОригинальныйПродолжительность: 01:20:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B26F6432FAAE45FA7ADC240CD7655844D0F7AAA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862514   (1063389) от 
+
+Бумбараш (1971) IPTV [H.264] (2 серии)
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063389.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рядовой Бумбараш, считающийся погибшим на фронтах Первой мировой войны, неожиданно возвращается в родную деревню, где никто его не признаёт, т.к. деньги на панихиду давным-давно употреблены по назначению.
+В стране уже вовсю полыхает гражданская война, в крохотной деревушке власть меняется каждые полдня: красные, белые, анархисты, бандиты, опять красные, а за ними (   Читать дальше...   )Производство: СССР / Киевская киностудия им. Довженко, Гостелерадио СССРЖанр: мюзикл, комедия, приключенияРежиссер: Абрам Народицкий, Николай РашеевАктеры: Валерий Золотухин, Екатерина Васильева, Юрий Смирнов, Лев Дуров, Роман Ткачук, Наталья Дмитриева, Александр Хочинский, Александр Белина, Леонид Бакштаев, Николай Дупак и др.Субтитры: русскиеПродолжительность: 01:03:34 + 01:02:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ACFA6412DD83B3414676C81B6278F37AC24A582
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1861422   (1062457) от 
 
 Битва за Москву (1985) WEBRip [H.264] (фильмы 1-2 из 2)
@@ -7,7 +60,7 @@ https://t.me/izofen
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062457.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059701.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059340.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057581.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056299.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053147.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051031.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050733.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050635.jpg" />
 </div>
 
 
@@ -241,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049655.jpg" />
 </div>
 
 
@@ -267,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049642.jpg" />
 </div>
 
 
@@ -293,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048830.jpg" />
 </div>
 
 
@@ -319,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048201.jpg" />
 </div>
 
 
@@ -346,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048158.jpg" />
 </div>
 
 
@@ -372,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047561.jpg" />
 </div>
 
 
@@ -398,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047258.jpg" />
 </div>
 
 
@@ -425,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046741.jpg" />
 </div>
 
 
@@ -451,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045246.jpg" />
 </div>
 
 
@@ -478,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045017.jpg" />
 </div>
 
 
@@ -505,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044728.jpg" />
 </div>
 
 
@@ -531,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044679.jpg" />
 </div>
 
 
@@ -557,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043993.jpg" />
 </div>
 
 
@@ -583,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042181.jpg" />
 </div>
 
 
@@ -609,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041936.jpg" />
 </div>
 
 
@@ -620,61 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2CCDD2A3C9C06E1D2964155339255CBA5BA933E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 126581   (1041767) от 09.02.2023
-
-Тридцать три (1965) DVDRip [Полная реставрация]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041767.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зубной врач провинциального города Верхние Ямки сделал неожиданное научное открытие, обнаружив в полости рта пациента Ивана Сергеевича Травкина тридцать третий зуб.
-
-Изнывающего от боли Травкина повезли в Москву. Иван Сергеевич становится вначале пациентом сумасшедшего дома (благодаря завистникам), а затем — героем научной международной конференции и, наконец, пациентом (   Читать дальше...   )Производство: СССР,  киностудия "Мосфильм"Жанр: КомедияРежиссер: Георгий ДанелияАктеры: Евгений Леонов, Нонна Мордюкова, Любовь Соколова, Виктор Авдюшко, Савелий Крамаров, Геннадий Ялович, Николай Парфенов, Мария Виноградова, Инна Чурикова, Аркадий Трусов, Вячеслав Невинный, Владимир Басов, Фрунзе Мкртчян, Коля Данелия, Рита ГладункоПродолжительность: 01:12:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89B4D637516254E18A2C0D82D45CA68BFF69DFA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437783   (1041628) от 06.01.2021
-
-Мимино (1977) DVDRemux
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041628.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Мимино» — по-грузински «сокол». Так называют друзья героя фильма, летчика Валико Мизандари, по воле режиссера то и дело попадающего в смешные, грустные, а порой драматические ситуации.
-Работая в родном горном селении, Мимино перевозит на вертолете почту, фрукты, овец. Но он давно мечтает о настоящей, большой авиации. Наконец ему удается воплотить свою мечту в жизнь…Производство: СССР, МосфильмЖанр: Драма, комедияРежиссер: Георгий ДанелияАктеры: Вахтанг Кикабидзе, Фрунзик Мкртчян, Елена Проклова, Евгений Леонов, Руслан Микаберидзе, Закро Сахвадзе, Марина Дюжева, Арчил Гомиашвили, Валентина Титова, Владимир БасовЯзык озвучки: Русский, Английский, ФранцузскийСубтитры: Русские, английские, французскиеПродолжительность: 01:31:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C14F4CF8905B3278D15C3B8427859C11581A92D
 ```
 
 https://mybot314.ru/tekegram_catalog/

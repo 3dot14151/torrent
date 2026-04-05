@@ -6,7 +6,7 @@
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249309.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248974.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248288.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248116.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247620.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_246654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246654.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244604.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242394.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239869.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234944.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234255.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233642.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_230812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230812.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229609.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_228307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228307.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226666.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225760.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225173.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225066.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225003.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224614.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221975.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220889.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218944.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217551.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217036.jpg" />
 </div>
 
 

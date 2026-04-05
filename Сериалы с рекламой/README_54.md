@@ -1,3 +1,55 @@
+###  Публикация: 1759325   (37600) от 11.11.2024
+
+Вероника / Veronika (2024) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37600.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вероника Грен, офицер полиции и мать двоих детей, борется со своей сложной семейной жизнью и тайной зависимостью от таблеток. Когда она внезапно видит перед собой мертвого мальчика, ей кажется, что она сошла с ума. Постепенно Вероника вынуждена признать, что мальчик - не иллюзия. Она понимает, что должна докопаться до истины, и вскоре обнаруживает, что улики ведут (   Читать дальше...   )Производство: Швеция / BigsterЖанр: триллер, драма, криминалРежиссер: Йонас Александр АрнбюАктеры: Александра Рапапорт, Тобиас Зантельман, Арвин Кананян, Sarah Rhodin, Eddie Eriksson Dominguez, Baxter Renman, Андерс Мосслинг, Пер Граффман, Эмели Гарберс, Санна Экман и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: Русский, шведскийСубтитры: Русские, английскиеПродолжительность: ~00:45:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0835FE89BF7AFB52FAE00B1B3F435A2F87EFED4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759326   (37588) от 11.11.2024
+
+Вероника / Veronika (2024) WEBRip (сезон 1, серии 1-8 из 8) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вероника Грен, офицер полиции и мать двоих детей, борется со своей сложной семейной жизнью и тайной зависимостью от таблеток. Когда она внезапно видит перед собой мертвого мальчика, ей кажется, что она сошла с ума. Постепенно Вероника вынуждена признать, что мальчик - не иллюзия. Она понимает, что должна докопаться до истины, и вскоре обнаруживает, что улики ведут (   Читать дальше...   )Производство: Швеция / BigsterЖанр: триллер, драма, криминалРежиссер: Йонас Александр АрнбюАктеры: Александра Рапапорт, Тобиас Зантельман, Арвин Кананян, Sarah Rhodin, Eddie Eriksson Dominguez, Baxter Renman, Андерс Мосслинг, Пер Граффман, Эмели Гарберс, Санна Экман и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:45:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9281EFED551DB0E9ABB521C8E786E209ACC862B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1760326   (37387) от 13.11.2024
 
 Праздник / Rapa (2024) WEBRip (сезон 3, серии 1-6 из 6) ViruseProject [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37387.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37357.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35855.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35820.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35819.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35817.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35641.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35633.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35133.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35059.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34915.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34361.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33788.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33774.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33638.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33600.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33593.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32963.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32950.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31405.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31379.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31356.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31353.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31288.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:851857B982F3624EA043A7D49B37E5CEC8A98190
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772426   (31283) от 11.01.2025
-
-Ублюдские хроники / The Creep Tapes (2024) WEBRip (сезон 1, серии 1-6 из 6) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31283.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал основан на коллекции видеозаписей из секретного хранилища самого смертоносного и социально неприемлемого в мире серийного убийцы, который под ложным предлогом нанимает своих жертв, чтобы те снимали его в течение дня.Производство: США / Duplass Brothers ProductionsЖанр: ужасы, комедияРежиссер: Патрик БрайсАктеры: Марк Дюпласс, Джош Рубен, Джош Фэйдем, Криша Фэйрчайлд, Майк Лучиано, Тай Леклер, Дэвид Нордстром, Джон Крэйвен, Скотт ПиттсПеревод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:25:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7B18581478BC19C3C32F310CEAB4E166155D9AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772968   (31114) от 13.01.2025
-
-Снег / Schnee / Snow (2023) WEBRip (сезон 1, серии 1-6 из 6) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Врач Люция Залингер переезжает с семьей из Вены в родную деревню её мужа Матти в Тирольских Альпах, чтобы их десятилетняя дочь Альма, страдающая тяжелой астмой, поправила своё здоровье. Однако новая жизнь семьи в горах оказывается непростой. Зимний курорт теряет свою популярность от того, что из-за изменения климата нет снега. Бруно и Мария Хофер, родители Матти (   Читать дальше...   )Производство: Австрия / Primary Pictures, X-Filme Creative Pool, Beta FilmЖанр: триллер, детективРежиссер: Esther Hassfurther, Каталина МолинаАктеры: Бриджит Хобмайер, Роберт Штадлобер, Мари-Луиз Штокингер, Мария Хофштаттер, Карл Фишер, Стипе Эрцег, Зильфиа Айзенбергер, Катрин Ритт, Laeni Geiseler, Paolo Di Sapia и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:45:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FABC0E0D772FCB3109AB67CE0FA42772512E4DD6
 ```
 
 https://mybot314.ru/tekegram_catalog/

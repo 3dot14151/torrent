@@ -1,3 +1,61 @@
+###  Публикация: 1648692   (195300) от 24.07.2023
+
+Learnsquared, Tim Zarki | Industrial Design Foundations (2023) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195300.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дизайн для реального мира.
+
+Создавайте детализированные, реалистичные продукты с помощью Fusion 360 и Keyshot.
+(   Читать дальше...   )Производство: LearnsquaredЖанр: 3D ГрафикаЯзык озвучки: АнглийскийПродолжительность: 17:45:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:989BC004D4862A2BAEA9619A8B1ABCCAA3243A94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648684   (195223) от 24.07.2023
+
+Blender Bros | Rendering University - Platinum (2022) WEB-DL [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем Rendering University — пошаговую формулу создания эффективного портфолио для построения успешной карьеры, привлечения клиентов и создания лояльных и впечатляющих подписчиков — и все это с нуля.
+Видите ли, ключ к тому, чтобы выделиться среди толпы низкопробных 3D-художников, — это портфолио, которое действительно хорошо выглядит.
+
+У вас может быть плохая (   Читать дальше...   )Жанр: 3D ГрафикаЯзык озвучки: АнглийскийПродолжительность: 13:06:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21864594B7793E1F401E5DD8F10A0E1891D2A30F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1649423   (195181) от 27.07.2023
 
 Hudozhnik Online, Полина Абдулаева | Создание комикса (2023) WEB-DL [RU]
@@ -6,7 +64,7 @@ Hudozhnik Online, Полина Абдулаева | Создание комик�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195181.jpg" />
 </div>
 
 
@@ -34,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195169.jpg" />
 </div>
 
 
@@ -63,7 +121,7 @@ drvik | Нейросеть Leonardo: Твори как бог дизайна, з
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195098.jpg" />
 </div>
 
 
@@ -90,7 +148,7 @@ Archviz Artist, Agnieszka Klich | 3ds Max Exterior & Interior Animations (2023) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195053.jpg" />
 </div>
 
 
@@ -118,7 +176,7 @@ Udemy, Nafay Sheikh | Unreal Engine 5: Car Rendering for Beginners (2022) WEB-DL
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195050.jpg" />
 </div>
 
 
@@ -147,7 +205,7 @@ Archviz Artist, Agnieszka Klich | 3ds Max Exterior & Interior Visualizations 2.0
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195045.jpg" />
 </div>
 
 
@@ -174,7 +232,7 @@ Udemy, Maya Pundale | Unreal Engine 5 Essentials (2022) WEB-DL [AD] [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195044.jpg" />
 </div>
 
 
@@ -200,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195043.jpg" />
 </div>
 
 
@@ -228,7 +286,7 @@ Archviz Artist, Agnieszka Klich | 3ds Max Advanced Interior Visualizations (2023
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195033.jpg" />
 </div>
 
 
@@ -255,7 +313,7 @@ Udemy, Unreal RPG Mastery | Unreal Engine 5: Soulslike Melee Combat System (2022
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195032.jpg" />
 </div>
 
 
@@ -283,7 +341,7 @@ Archviz Artist, Agnieszka Klich | 3ds Max Advanced Exterior Visualizations (2023
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195023.jpg" />
 </div>
 
 
@@ -311,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195022.jpg" />
 </div>
 
 
@@ -337,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194975.jpg" />
 </div>
 
 
@@ -363,7 +421,7 @@ Udemy, Pixel Helmet | Unreal Engine 5 Blueprints: Multiplayer Shooter (FPS) (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194952.jpg" />
 </div>
 
 
@@ -392,7 +450,7 @@ Max Twain | Workshop Июль 2023: Создание нейроартов в н�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194941.jpg" />
 </div>
 
 
@@ -421,7 +479,7 @@ Udemy, Nafay Sheikh | Unreal Engine 5: Realistic Product Animation / Visualizati
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194914.jpg" />
 </div>
 
 
@@ -448,7 +506,7 @@ Kalachevaschool, Анна Эгида | Цветная графика (2023) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194297.jpg" />
 </div>
 
 
@@ -477,7 +535,7 @@ The Gnomon Workshop, Sean Marino | Creating a Sci-Fi Pistol for Games (2023) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194271.jpg" />
 </div>
 
 
@@ -503,7 +561,7 @@ Udemy, Nafay Sheikh | Unreal Engine 5: Easy Cinematic Environments (2022) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194258.jpg" />
 </div>
 
 
@@ -530,7 +588,7 @@ Boundless Entertainment, Sam Eisenhower | Unreal Engine for Filmmakers - Advance
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194237.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Canopy Games, Erindale Woodford | BCS: Geometry Nodes For Blender 3.3+ (2022) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194212.jpg" />
 </div>
 
 
@@ -585,7 +643,7 @@ Udemy, Gustavo Rosa | Learn Blender Compositor! (2022) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194202.jpg" />
 </div>
 
 
@@ -614,7 +672,7 @@ Udemy, Stephen Ulibarri | Blender Sculpting - Rune Sword (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193098.jpg" />
 </div>
 
 
@@ -641,7 +699,7 @@ Udemy, Art Studio | Modelling and Animating a Car in Blender (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193086.jpg" />
 </div>
 
 
@@ -653,60 +711,6 @@ Udemy, Art Studio | Modelling and Animating a Car in Blender (2022) PCRec [EN]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:735D87596CA19ED349FD14A725E8FD276F1F5DDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587237   (193081) от 29.10.2022
-
-Udemy, Art Studio | Learn Modelling and Animating in Blender (2022) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193081.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создание всплывающей анимации - один из самых популярных стилей анимации в мире. Он использовался для многих крупных анимационных компаний, таких как Walt Disney и Pixar animations. Графические дизайнеры используют этот метод для воплощения своей идеи в жизнь, и они зарабатывают на этом много денег. Если вы один из тех, кто заинтересован в изучении анимации всплывающих (   Читать дальше...   )Производство: UdemyЖанр: 3D моделирование, АнимацияЯзык озвучки: АнглийскийПродолжительность: 07:06:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED83D7DD44D044BE4A0E175178D44FE48C2AB12A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587297   (192785) от 30.10.2022
-
-ArtStation, Daniel Peres | Creating Vegetation for Games (2022) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192785.jpg" />
-</div>
-
-
-###  Подробнее
-
-In this tutorial I will take you in-depth into the whole process of creating vegetation for games, where we will learn how to tackle a tree asset from start to finish.
-
-We will learn the fundamentals and mindset behind creating vegetation assets for games and how to leverage existing industry tools to speed up your workflows, making them faster, optimized and highly (   Читать дальше...   )Производство: ArtStationЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 04:24:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51174760C4B55E5AF5449CDD624334EDEB1D7939
 ```
 
 https://mybot314.ru/tekegram_catalog/

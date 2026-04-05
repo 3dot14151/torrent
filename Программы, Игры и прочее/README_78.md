@@ -1,3 +1,108 @@
+###  Публикация: 1331222   (333249) от 14.10.2019
+
+zetaTorrent Pro 3.7.9 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быстрый и мощный торрент клиент со встроенным браузером, файлменеджером, RSS каналом и передачей файлов по Wi-FiТип издания: ПираткаРелиз состоялся: 11.10.2019Разработчик: teeonПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ACA5373376AE3ADFE39D15ACA938CE101B2E7E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331092   (333241) от 14.10.2019
+
+En16 2019.819.2020.0 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333241.jpg" />
+</div>
+
+
+###  Подробнее
+
+En16 - это простой и эффективный способ изучить основы английского языка.
+Приложение последовательно проведет вас через 16 интерактивных занятий, в рамках которых вам будет предложено ознакомиться с теоретическими основами языка, пройти практические занятия и сдать экзамен.Тип издания: Пиратка (все уроки открыты)Релиз состоялся: 25.08.2019Разработчик: Partner.mobile.appsПоддерживаемая ОС: Android: 4.0.3 и вышеЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B1FAF507C3BE2B4E537CAD4A9ACBA7C949292C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420591   (332198) от 01.11.2020
+
+Шведский дизайн интерьера 3D v1.14.1 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шведский дизайн интерьера 3D - простое и удобное приложение, которое позволит вам быстро и просто создавать красивые планировки домов, дизайн кухни, интерьер спальни, гостиной и других комнат! Больше не нужно специальных навыков и долгого знакомства с инструкцией - рисуйте красивые и аккуратные планировки квартир, планы домов и интерьеры всего за несколько минут (   Читать дальше...   )Тип издания: Пиратка (открыт Premium)Релиз состоялся: 29.10.2020Разработчик: Planner 5DПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1E27D9977A45655DAD469608B430DBF17480BCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420396   (332191) от 01.11.2020
+
+Ассистент Дуся v2.3.0 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332191.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ассистент Дуся - Где бы вы ни были, и что бы не делали это приложение поможет вам в любых ваших начинаниях. Голосовой ассистент который быстро набрал популярности на просторах СНГ. Знакомьтесь это Дуся, голосовой ассистент который сможет ответить практически на любой интересующий вас вопрос, и выполнит любую поставленную задачу. Более того с её помощью вы сможете (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 12 марта 2019 гРазработчик: UseYoVoiceПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A340B304F37DC25E67D9E76F3456B51A2A65AC21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1420550   (332049) от 01.11.2020
 
 Яндекс Go v4.0.1 [Ru/En] — Такси, Доставка, Драйв, Продукты, Еда (обновляемая)
@@ -6,7 +111,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332049.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ Defense zone 2 HD 1.5.1 [Ru/Multi] + mod
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331798.jpg" />
 </div>
 
 
@@ -61,7 +166,7 @@ tTorrent Pro 1.5.4.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330104.jpg" />
 </div>
 
 
@@ -87,7 +192,7 @@ SwiftKey Keyboard 6.0.0.161  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330043.jpg" />
 </div>
 
 
@@ -113,7 +218,7 @@ GreenNet: Hotspot VPN Proxy v1.5.45 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329681.jpg" />
 </div>
 
 
@@ -139,7 +244,7 @@ Unique VPN | Fast VPN Proxy 1.3.33 b43 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329676.jpg" />
 </div>
 
 
@@ -165,7 +270,7 @@ XP VPN (Xtra Power) 3.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329632.jpg" />
 </div>
 
 
@@ -192,7 +297,7 @@ AirRadio Pro v5.0.0 [Ru/Multi] - Радиосканер переговоров �
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329117.jpg" />
 </div>
 
 
@@ -218,7 +323,7 @@ Solo Launcher 2.4.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329026.jpg" />
 </div>
 
 
@@ -244,7 +349,7 @@ Kiwi VPN Proxy: Safer & Faster 42.30.09 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328800.jpg" />
 </div>
 
 
@@ -270,7 +375,7 @@ HAWA VPN Super VPN Proxy Maste 1.1.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328798.jpg" />
 </div>
 
 
@@ -297,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326952.jpg" />
 </div>
 
 
@@ -323,7 +428,7 @@ Mario Yoshis Island 1.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326396.jpg" />
 </div>
 
 
@@ -351,7 +456,7 @@ Angry Birds Rio 2.6.0 Mod [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326390.jpg" />
 </div>
 
 
@@ -377,7 +482,7 @@ Tangle / Клубок v72.20.4.22 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324395.jpg" />
 </div>
 
 
@@ -403,7 +508,7 @@ Planimeter - GPS area measure v 4.5.4 [Ru/Multi] - инструмент для �
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323515.jpg" />
 </div>
 
 
@@ -429,7 +534,7 @@ Agenda 2018 Pro v5.16 [Ru/Multi] - Простой ежедневник
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322864.jpg" />
 </div>
 
 
@@ -458,7 +563,7 @@ Garmin: City Navigator Europe NT 2019.20 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322722.jpg" />
 </div>
 
 
@@ -484,7 +589,7 @@ Johnny Trigger v1.11.5 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321901.jpg" />
 </div>
 
 
@@ -511,7 +616,7 @@ Image Colorizer Pro v2.0.3 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321900.jpg" />
 </div>
 
 
@@ -537,7 +642,7 @@ Cookies Must Die v1.1.2 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321777.jpg" />
 </div>
 
 
@@ -564,7 +669,7 @@ Age of Civilizations II v1.014177-ELA [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321671.jpg" />
 </div>
 
 
@@ -576,112 +681,6 @@ Age of Civilizations II - интересная и захватывающая с�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:816CA530708F6C9609077061E9038EF3DD9B69C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421226   (321541) от 03.11.2020
-
-Plants vs. Zombies™ Heroes v1.36.42 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321541.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создатели Plants vs. Zombies 2 и Plants vs. Zombies Garden Warfare 2 представляют новую битву добра и зла — игру Plants vs. Zombies Heroes. Создавайте собственную команду героев в этой задорной коллекционной карточной игре. Знакомьтесь с новыми персонажами и давайте отпор сильным противникам. И впервые на мобильных устройствах выбирайте сторону, за которую хотите (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 16 октября 2020 г.Разработчик: ELECTRONIC ARTSПоддерживаемая ОС: Android 4.1 и вышеЖанр: Strategy (Стратегия)Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5D2301C05E4F8CD445EEFED989AC36BE00DB05F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075585   (320430) от 22.11.2016
-
-Уроки английского 6.14 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Совершенствуйте свой английский!
-Уроки английского включает в себя полный курс письменного английского языка в режиме офлайн, а также интерактивные упражнения на знание глаголов, лексики, грамматики, включая упражнения на аудирование. Все слова и фразы доступны для прослушивания.
-Несмотря на то, что переведенные версии приложения рассчитаны на взрослую, неанглоговорящую (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 2 января 2016 г.Разработчик: CogniteccoПоддерживаемая ОС: Android 1.6+Жанр: ОбразованиеЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB2DACB86F7C24E57147E24C51E54D267F68B62B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421490   (319549) от 04.11.2020
-
-Who Are You, Mr. Cooper? v1.11 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Who Are You, Mr. Cooper? - увлекательная приключенческая история в стиле стим панк. Сюжет Who Are You, Mr. Cooper? расскажет нам о похождениях некоего Уилсона Смита живущего в промышленном городе под названием Стэйрем. Развитие событий начинается с того момента как при взрыве в пабе погибает лучший друг главного героя, но перед смертью приятель просит найти некоего (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 29 октября 2020 г.Разработчик: The Last Fairy TaleПоддерживаемая ОС: 2.3 и вышеЖанр: Adventure (Адвенчура, приключенческая игра)Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D16A5096ABBC2992A8512AB08CEB2E0AFB0124B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421499   (319453) от 04.11.2020
-
-Sky: Дети Света v0.11.2 (156351) [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319453.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sky: Дети Света - волшебное приключение на Android, которое стоит пройти вместе со своими друзьями. Добро пожаловать в чарующий мир Неба – прекрасное царство, которое ждет знакомства с вами и вашими близкими. В Sky: Дети Света вы будете управлять безымянным персонажем — «духом света», с помощью которого вы будете путешествовать по разным локациям. А вашей задачей (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 31 октября 2020 г.Разработчик: thatgamecompany incПоддерживаемая ОС: 8.0 и вышеЖанр: RPG — Role Playing Game (РПГ, Ролевая игра)Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6FDDBB649166DC088CC33809EAE70772AD06EE3
 ```
 
 https://mybot314.ru/tekegram_catalog/

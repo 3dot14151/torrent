@@ -1,3 +1,205 @@
+###  Публикация: 476703   (85796) от 01.04.2012
+
+Melda Production - MTotal Bundle v6.00 x86 x64 by ASSiGN [английский]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85796.jpg" />
+</div>
+
+
+###  Подробнее
+
+MTotalBundle 6.00 - набор из 60-ти плагинов для обработки звука. В пакете MTotal Bundle собраны все плагины производителя MeldaProduction. Революционные технологии, внедренные в этих плагинах, заставят Ваши записи, что называется ЗВУЧАТЬ, даже если Вы не провели последние 50 лет за рабочим местом звукоинженера. Высокая скорость обработки, простота в использовании, минимальный уровень шума - это лишь немногие достоинства плагинов MeldaProduction.
+Разработчик: Melda Production
+Год выпуска: 03 MARCH 2012
+Релиз-группа: ASSiGN
+Платформа: WiN32 VST/VST3, WiN64 VST/VST3Название программы: Melda Production - MTotal Bundle v6Язык интерфейса: английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475138   (85431) от 30.03.2012
+
+Sound Performance Lab - SPL ALL 2012 Bundle v1.0.R2 x86.x64 by ASSiGN [английский]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85431.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продвинутые современные процессоры, такие как Transient Designer, маст-хэв для обработки ударных, окрашивающий Vitalizer MK2-T с запатентованной технологией, или сатуратор TwinTube, мастеринговый эквалайзер с пассивными фильтрами Passeq и некоторые другие.
+В этот сборник включены:
+SPL Attacker v1.3.1,
+SPL De-Verb v1.3.1,
+SPL DrumXChanger v1.1.1,
+SPL EQ Rangers Vol.1 v1.4.1,
+SPL Mo-Verb v1.3.1,
+SPL Passeq v1.1.1,
+SPL Transient Designer v1.4.1,
+SPL TwinTube v1.4.1,(   Читать дальше...   )Название программы: Sound Performance Lab - SPL ALL 2012 Bundle v1.0.R2Язык интерфейса: английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474862   (84990) от 28.03.2012
+
+Plugin Alliance - Maag EQ4 v1.1 x86.x64 By ASSiGN [английский]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84990.jpg" />
+</div>
+
+
+###  Подробнее
+
+Maag EQ4 - 6-ти полосный эквалайзер с легендарной AIR BAND™ полосой. Это плагин, разработанный в сотрудничестве Plugin Alliance, Brainworx и Maag Audio - эмуляция известного аппаратного эквалайзера. Следуя качеству своих предшественников EQ3 и EQ3-D, EQ4 обеспечивает беспрецедентную прозрачность и присутствие на высоких частотах, сохраняя при этом естественное звучание. Настройка эквалайзера достигается с минимальными фазовыми сдвигами, а фиксация управления позволяет легко возвращать настройки обратно.Название программы: Plugin Alliance - Maag EQ4 v1.1Язык интерфейса: английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474840   (84947) от 28.03.2012
+
+LinPlug - Organ VSTi v3.1.5 x86/x64 by AiR [английский]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Organ 3 - является продолжением имитатора электромеханических органов daOrgan. Новая версия имеет полифонию 64 голоса (зависит от мощности компьютера), 12 моделей электроорганов (в том числе Hammond B3, Farfisa и Vox), три отдельные клавиатуры (верхнюю, нижнюю и педальную), возможность сохранения и копирования настроек клавиатур, режимы наложения и разделения звуков клавиатур, отдельные для каждой клавиатуры настройки функции перкуссии, вибрато, колеса высоты тона, генератора огибающей (ADSR) и транспонирования, возможность регулировать уровень шума клавиш и мотора, возможность изменения возраста имитируемого инструмента, настраиваемую функцию портаменто, два программируемых эффекта (алгоритмы: имитация вращения динамиков, ревербератор, дилей, хорус, Gator, LoFi) с возможностью синхронизации параметров с темпом, поддержку файлов микронастройки TUN, улучшенную поддержку внешних MIDI-контроллеров (есть предустановки для моделей Native Instruments B4D и Doepfer d3c).Название программы: LinPlug - Organ VSTi v3.1.5  x86/x64Язык интерфейса: английскийФормат: VSTi
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474729   (84888) от 28.03.2012
+
+Hamburg-audio - NUKLEAR 1.1.3 [английский]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hamburg-Audio Nuklear - синтезатор, первый виртуальный инструмент, основанный на усовершенствованном гранулярном пульсарном синтезе! У, так называемого, пульсарного синтеза есть некоторые особенности, благодаря которым можно получить интересные, довольно необычные звуки. Вместо цикличного использования стандартных форм волн (синусоида, пилообразная, прямоугольная и т.д.), пульсарные осцилляторы используют отдельные импульсы различных форм, повторяя их в медленном или быстром темпе. Этот метод даёт некоторые новые функции, например: поочередное панорамирование импульсов (для создания супер широкого звука), исключение определенных импульсов (подъём субгармоник) и др. В распоряжении четыре осциллятора, у каждого из которых есть параметр Pulsar. Установка этого параметра на нулевое значение вызовет растягивание импульов, т.е. на выходе получается результат, как и при использовании обычных осцилляторов. Соответственно, максимальная величина параметра даёт нам "чистый" пульсарный синтез. Так же имеются параметры (   Читать дальше...   )Разработчик: Hamburg-audioЯзык интерфейса: английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 464823   (81119) от 09.03.2012
+
+Oxford Native VSTi v1.0 by AiR [English]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81119.jpg" />
+</div>
+
+
+###  Подробнее
+
+SONNOX-Предлагаю вашему внимаю пакет высококачественных VST плагинов Sonnox Oxford Native: Плагины обработки звука Sony Oxford, высоко оцененные аудиопрофессионалами, с апреля 2007 года сменили название: теперь они называются Sonnox, и эта коллекция отличных профессиональных инструментов, в которую входят EQ, Dynamics, Limiter, Inflator, Reverb и Transient Modulator, на Musikmesse 2007 была дополнена native-версией для аудиоприложений, совместимых с форматами Audio Units и VST. Новая линейка, таким образом, совместима с аудио/MIDI-секвенсерами Logic, Digital Performer, Cubase, Nuendo, Pro Tools LE, FL Studio и другими популярными приложениями. Пакет включает в себя следующие процессоры:
+- Sonnox.Oxford.Inflator.Native.VST.v1.5.1-AiR
+- Sonnox.Oxford.Limiter.Native.VST.v1.1.1-AiR
+- Sonnox.Oxford.R3.Dynamics.Native.VST.v1.3.1-AiR
+- Sonnox.Oxford.R3.EQ.Native.VST.v1.6.1-AiR
+- Sonnox.Oxford.Reverb.Native.VST.v1.0-AiR
+- Sonnox.Oxford.TransMod.Native.VST.v1.3.1-AiR
+Пакет VST-плагинов Sonnox Oxford Native длительное время (   Читать дальше...   )Название программы: Oxford Native (Подборка)Язык интерфейса: English
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775368   (71438) от 26.01.2025
+
+Waldorf - Blofeld 1.1.0 VSTi, VSTi 3, AAX (x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Генерация звука плагина Blofeld обеспечивает типичный насыщенный и богатый звуковой характер Waldorf, который так любят многие пользователи Waldorf по всему миру, когда они играют на своих Blofeld, Q, Q+, Microwave, Microwave II/XT или даже на флагмане Wave. Секрет его звука заключается в мощном движке волновой таблицы, который позволяет создавать эти интенсивные (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6102C42A760733DB958116262C4EF614AB01581A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1775718   (71392) от 28.01.2025
 
 United Plugins & Muramasa - MorphVerb 4.0 VST, VST 3, AAX (x64) RePack by BUBBiX [En]
@@ -6,7 +208,7 @@ United Plugins & Muramasa - MorphVerb 4.0 VST, VST 3, AAX (x64) RePack by BUBBiX
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71392.jpg" />
 </div>
 
 
@@ -34,7 +236,7 @@ CoolUtils Total Audio Converter 6.1.0.278 RePack (& Portable) by TryRooM [Multi/
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71356.jpg" />
 </div>
 
 
@@ -60,7 +262,7 @@ Sixth Sample & Integraudio - Deelay 1.3.1 VST 3, AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70981.jpg" />
 </div>
 
 
@@ -86,7 +288,7 @@ W.A. Production - KickShaper 1.0.1 VST, VST 3, AAX (x86/x64) RePack by BUBBiX [E
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70535.jpg" />
 </div>
 
 
@@ -112,7 +314,7 @@ W.A. Production - ChopBeast 1.0.0 VSTi, VSTi 3, AAX (x86/x64) RePack by BUBBiX [
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70533.jpg" />
 </div>
 
 
@@ -138,7 +340,7 @@ MusicBrainz Picard 2.13.3 + Portable [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70474.jpg" />
 </div>
 
 
@@ -165,7 +367,7 @@ W.A. Production - Put Me On Drums by K391 1.0.4 VST, VST3, AAX RePack by BUBBiX 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70283.jpg" />
 </div>
 
 
@@ -191,7 +393,7 @@ Plugin Alliance - Vertigo 1.0.0 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70134.jpg" />
 </div>
 
 
@@ -218,7 +420,7 @@ Plugin Boutique - DC Snares 1.2.0 VSTi 3, AAX (x64) RePack by BUBBiX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69709.jpg" />
 </div>
 
 
@@ -245,7 +447,7 @@ Plugin Alliance & Kiive Audio - XTComp 1.0.2 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69391.jpg" />
 </div>
 
 
@@ -271,7 +473,7 @@ W.A. Production - Detroubler 1.0.0 VST, VST 3, AAX RePack by BUBBiX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69390.jpg" />
 </div>
 
 
@@ -297,7 +499,7 @@ Excite Audio - Bloom Drum Percussion 1.0.0 STANTALONE, VSTi, VSTi 3, AAX (x64) [
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68672.jpg" />
 </div>
 
 
@@ -324,7 +526,7 @@ Three-Body Technology - VO-TT 1.1.0 VST, VST 3, AAX (x64) RePack by SEnki [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68665.jpg" />
 </div>
 
 
@@ -350,7 +552,7 @@ Lese - Sweep (Infinity Filter) 1.3.5 VST 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68652.jpg" />
 </div>
 
 
@@ -378,7 +580,7 @@ Dear Reality - Exoverb 1.3.0 VST 3, AAX (x64) + Additional Reverbs [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68611.jpg" />
 </div>
 
 
@@ -405,7 +607,7 @@ Dear Reality - dearVR MIX 1.17.0 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68589.jpg" />
 </div>
 
 
@@ -431,7 +633,7 @@ Dear Reality - dearVR PRO 2 2.1.0 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68587.jpg" />
 </div>
 
 
@@ -457,7 +659,7 @@ Klevgrand - OneShot 1.0.3 VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68445.jpg" />
 </div>
 
 
@@ -483,7 +685,7 @@ LANDR - Synth X 1.0.38 VSTi 3 (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67866.jpg" />
 </div>
 
 
@@ -494,194 +696,6 @@ LANDR - Synth X 1.0.38 VSTi 3 (x64) RePack by R2R [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF37B25982517FDA07DE2F58DC73317837949B25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794328   (67348) от 28.04.2025
-
-Togu Audio Line - TAL-U-NO-LX-V2 5.0.0 VSTi, VSTi 3, AAX, CLAP (x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67348.jpg" />
-</div>
-
-
-###  Подробнее
-
-TAL-U-NO-LX - это подключаемый модуль для синтезатора, который точно воссоздает культовое звучание аналогового синтезатора Juno 60. Каждый генератор, фильтр и оболочка были тщательно смоделированы таким образом, чтобы передать суть оригинального оборудования, обеспечивая непревзойденный уровень аутентичности.
-Этот виртуальный инструмент передает теплоту, богатство (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22395EA1BC52709D8230774C8B9A2F72FF27CD92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794329   (67339) от 28.04.2025
-
-Togu Audio Line - TAL-J-8 2.0.0 VSTi, VSTi 3, AAX, CLAP (x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67339.jpg" />
-</div>
-
-
-###  Подробнее
-
-TAL-J-8 от популярного разработчика эмуляций винтажных синтезаторов компании TAL Software. Инструмент эмулирует звучание классического Roland Jupiter-8. Виртуальный синтезатор фокусируется на воссоздании звука оригинального инструмента, а не дополнительных возможностях, отмечает разработчик.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08F07C992240B0D86713A175D4486A607EA2A35F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801114   (66232) от 08.06.2025
-
-Wavesequencer - Theia 1.22 STANDALONE, VSTi 3 (x64) RePack by TCD [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66232.jpg" />
-</div>
-
-
-###  Подробнее
-
-Theia обеспечивает легкий доступ к мощному синтезатору Hyperion и его великолепной обширной звуковой библиотеке, насчитывающей около 600 пресетов.
-Интерфейс, ориентированный на производительность, позволяет легко управлять каждым звуком, позволяя вам без усилий просматривать сложные конструкции патчей и сосредоточиться на создании музыки.
-Мгновенный источник музыкального (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B3AA7C59797399355766789DEE013597BD19C8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803633   (65818) от 24.06.2025
-
-Plugin Alliance & Brainworx - bx_glue 1.1.0 VST, VST 3, AAX (x64) RePack by TCD [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65818.jpg" />
-</div>
-
-
-###  Подробнее
-
-Получите звук величайших VCA-компрессоров британского производства 1980-х годов, теплоту, мощь и сплоченность аналоговой компрессии для склейки со всей мощью и контролем современного набора функций Brainworx с многополосными возможностями. Для профессионалов, ищущих идеальный клей для микса, и любителей, чья миск никогда не получается единым целым, это идеальный (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6EAC643B422A8FCB7A6DEE675833C2745680319
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803827   (65780) от 25.06.2025
-
-Sonic Academy & Slate Digital - ANA 2 Ultra Bundle 2.5.6 VSTi, VSTi 3, AAX (x64) RePack by R2R [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65780.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый мощный в мире синтезатор стал еще лучше. Eurorack, Sad Trap, Cinematic, Detroit и другие - все это здесь, в Ultra Bundle.
-ANA 2 Ultra Bundle — невероятно мощный синтезатор, который позволяет легко создавать все фирменные звуки, уникальные текстуры и пользовательские эффекты, которые вы только можете себе представить.
-Поднимите ANA 2 Ultra Bundle на новые творческие (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE688984C45862723E6F7C77E4EDA5052128728C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803825   (65758) от 25.06.2025
-
-BABY Audio - Smooth Operator Pro 1.1 VST, VST 3, AAX [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65758.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smooth Operator Pro - Спектральный балансировщик сигнала.
-Мы разработали новую версию Pro без ущерба для быстрого рабочего процесса, который сделал Smooth Operator 1 таким популярным. Задайте желаемую целевую кривую, затем поворачивайте регулятор глобального порога до тех пор, пока плагин не начнёт балансировать ваш звук. При необходимости погрузитесь в глубокие (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7804D96795A6482E132CFCDE30A3675733DAACC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804467   (65660) от 29.06.2025
-
-Soundtheory - Kraftur 1.2.3 VST, VST 3, AAX (x64) RePack by R2R [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kraftur был тщательно спроектирован для обогащения вашего микса, позволяя вам увеличить мощность, сохраняя при этом изначальную целостность его динамики. Используя новые, фирменные методы DSP, Kraftur полагается на инновационные алгоритмы, чтобы избежать артефактов, которые появляются при более традиционных подходах к мягкому клиппингу. Kraftur также может добавить (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:706B802D817B83C2C781387A47E4BE9807BB41CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

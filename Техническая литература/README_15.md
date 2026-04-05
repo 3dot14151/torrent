@@ -1,3 +1,56 @@
+###  Публикация: 1143503   (635124) от 18.06.2017
+
+А.А. Лавров | Авиационная голографическая РЛС планового обзора. Режимы работы. Потенциальные характеристики (2016) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены принципы построения, алгоритмы обработки сигналов и потенциальные характеристики авиационных голографических радиолокаторов планового обзора, использующих длинную вдолькрыльевую антенную решетку.
+Показаны их возможности при обзоре земной и морской поверхности, при обнаружении воздушных целей. Описаны алгоритмы формирования скоростного портрета и создания (   Читать дальше...   )Жанр: Радиотехника, радиолокацияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BBA5A929EE9813AF93BB8D7E39B1982C95905E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293685   (634836) от 04.04.2019
+
+Игорь Иванов | Монтаж электрики в квартире. Для начинающих (2019) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634836.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена электрике. А вернее, электромонтажу в квартире и частном доме. С нуля и под ключ. Рассчитана для начинающих электриков. А также тех, кто хочет сделать ремонт сам своими силами и сэкономить деньги.Жанр: ЭлектротехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44C205699A7964D0E4CFCE76A43716C543470D0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 908239   (634073) от 14.06.2015
 
 П. И. Коротин (ред.) | Системы наблюдения, измерения и контроля в вибро- и гидроакустике (2002) [PDF]
@@ -6,7 +59,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634073.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632431.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632273.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632154.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629014.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628204.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628043.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627933.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627644.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625692.jpg" />
 </div>
 
 
@@ -272,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623933.jpg" />
 </div>
 
 
@@ -299,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623858.jpg" />
 </div>
 
 
@@ -326,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623708.jpg" />
 </div>
 
 
@@ -352,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623399.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622362.jpg" />
 </div>
 
 
@@ -404,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622187.jpg" />
 </div>
 
 
@@ -430,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621558.jpg" />
 </div>
 
 
@@ -456,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620094.jpg" />
 </div>
 
 
@@ -483,7 +536,7 @@ Tektronix | Цифровые устройства. Руководство по �
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619961.jpg" />
 </div>
 
 
@@ -510,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619632.jpg" />
 </div>
 
 
@@ -537,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618659.jpg" />
 </div>
 
 
@@ -565,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618030.jpg" />
 </div>
 
 
@@ -591,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616059.jpg" />
 </div>
 
 
@@ -619,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615939.jpg" />
 </div>
 
 
@@ -631,58 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66AAC29364378FDE25F770AA807CEEDEB11A5C0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911194   (615844) от 23.06.2015
-
-Б.Ю. Семенов | Шина I2C в радиотехнических конструкциях  (+CD) (2004) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615844.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассказывается о принципах построения и логике работы последовательной шины обмена данными Inter-Integrated Circuit Bus (I2C), разработанной фирмой Philips. Приводятся сведения о микросхемах, имеющих интерфейс I2C, а также несложные конструкции на их основе, доступные для повторения радиолюбителями. Книга может быть полезна радиолюбителям, инженерам, студентам (   Читать дальше...   )Жанр: ЭлектроникаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2569FB21795B26316BD4C959B6D97F73F8B4E1C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037155   (615470) от 23.07.2016
-
-A.Н. Евсеев | Радиолюбительские устройства телефонной связи (1999) [PDF, DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Описаны различные по сложности и функциональному назначению устройств для установления телефонной связи между абонентами, а также приставки к телефонным аппаратам. Устройства могут быть использованы для организации телефонной связи на небольших предприятиях, в офисах, коттеджах, школах и др. Приставки к телефонным аппаратам расширяют их возможности и предназначены (   Читать дальше...   )Жанр: СвязьФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B21C664D84F708572A7375502412FC75A1B5CC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

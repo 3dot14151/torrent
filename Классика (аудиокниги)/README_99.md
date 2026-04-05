@@ -1,3 +1,29 @@
+###  Публикация: 1820281   (487) от 27.09.2025
+
+Фёдор Достоевский | Идиот (2025) [MP3, Александр Бордуков]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_487.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой князь Лев Николаевич Мышкин возвращается в Россию из Швейцарии, где он проходил лечение от тяжелой болезни. После нескольких лет проведенных в изоляции Мышкин попадает в петербургское общество, пропитанное ненавистью, завистью и злобой. Князь жалеет этих людей, видит, что они гибнут, пытается спасти их, но, несмотря на все усилия, ничего не может изменить. (   Читать дальше...   )Жанр: Русская классика, романИздательство: СОЮЗПродолжительность: 30:23:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A54AB073E2731D803C8DC92EBC3B6D369066D0E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1820747   (64) от 29.09.2025
 
 Дмитрий Мамин-Сибиряк | Золото (2025) [MP3, Иван Букчин]
@@ -6,7 +32,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10.jpg" />
 </div>
 
 
@@ -89,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1.jpg" />
 </div>
 
 

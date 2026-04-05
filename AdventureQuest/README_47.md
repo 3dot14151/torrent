@@ -1,3 +1,81 @@
+###  Публикация: 958810   (320896) от 22.11.2015
+
+Memoria (2013) [Ru/En] (1.2.3.0341) Repack R.G. Catalyst
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Memoria – расскажет нам историю принцессы Сатии из далеких земель Фасара, которая однажды решилась на войну с демонами в пустыне Гори. Ее цель – войти в легенды – так и не осуществилась. Что-то пошло не так и девушка таинственным образом исчезла, а ее историю со временем забыли.Тип издания: RepackРазработчик: Daedalic EntertainmentЖанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97D918C94B33B84434AE9E70036A5F39941C06A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167736   (320616) от 08.11.2017
+
+Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0) License RELOADED [Episode 1-4]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320616.jpg" />
+</div>
+
+
+###  Подробнее
+
+После того, как Джесси и его команде удалось одолеть Иссушающую бурю, спасти мир и обрести всеобщее признание, их жизнь сделалась чуточку... сложнее. Обязанностей стало больше, а на старые добрые приключения времени почти не осталось, так что их дружба начала угасать.Тип издания: LicenseРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: Английский, Французский, Немецкий, ИспанскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9603016868EFCCF542928CF90224E5179E337BC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331774   (320214) от 17.10.2019
+
+Layers of Fear 2 (2019) [Ru/Multi] (1.3) Repack xatab
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320214.jpg" />
+</div>
+
+
+###  Подробнее
+
+Layers of Fear 2 — это психологический хоррор от первого лица с глубоким сюжетом и обширным пространством для исследования. Главный герой — голливудская звезда, что играет главную роль в фильме загадочного режиссера, решившего провести съемки на борту океанского лайнера.Тип издания: RepackРазработчик: Bloober TeamЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A0E95720D92BD36CCDD9203B0A84E59F839B5E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1331623   (320186) от 17.10.2019
 
 Morels The Hunt (2019) [Ru/Multi] (1.0) License HOODLUM
@@ -6,7 +84,7 @@ Morels The Hunt (2019) [Ru/Multi] (1.0) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320186.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Layers of Fear 2 (2019) [Ru/Multi] (1.3) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320042.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Sherlock Holmes: Crimes and Punishments (2014) [Ru] (1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319870.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Asterix & Obelix XXL: Romastered (2020) [Multi] (1.0.29) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319182.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Obduction (2016) [Ru/Multi] (1.6.5) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318798.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Gabriel Knight: Sins of the Fathers (2014) [Multi] (2.02) License GOG [20th Anni
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318449.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ The Wild Eight (2019) [Ru/Multi] (1.0.12) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317906.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Syberia 3 / Сибирь 3 (2017) [Ru/Multi] (3.0/dlc) License RELOADED [Deluxe 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316369.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Ice Age Scrat's Nutty Adventure (2019) [Ru/Multi] (1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315612.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Miasmata [En] (L) 2012
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314601.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Stories Untold (2017) [En] (1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313740.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Syberia 3 / Сибирь 3 (2017) [Ru/En] (3.0/dlc) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313736.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Syberia 3 / Сибирь 3 (2017) [Ru/Multi] (3.0/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313730.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Yesterday / Yesterday: Печать Люцифера (2012) [Ru/Multi] (1.0.0.1)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313104.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Silence - The Whispered World 2 (2016) [Ru/Multi] (1.1.20227) Repack R.G. Мех
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312897.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Westmark Manor (2020) [Ru/Multi] (1.0/upd10) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312382.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Rise of the Dragon (1990) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311651.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ The Book of Unwritten Tales 2 (2015) [En/Multi] (25.11.2015) License PROPHET [Al
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311544.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Syberia 3: The Complete Journey (2017) [Ru/Multi] (1.5.07/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311428.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Ice Age Scrats Nutty Adventure (2019) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310996.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Deliver Us The Moon (2019) [Ru/Multi] (1.3.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310987.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Tales from the Borderlands (2014-2015) [Ru] (1.0.1) Repack =nemos= [Episodes 1-5
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309018.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307945.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3729101021D196085BAFF4F2EFBF14AE0F4DEA7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260915   (306935) от 09.11.2018
-
-11-11 Memories Retold (2018) [Ru/Multi] (1.0/dlc) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306935.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 ноября 1916 года молодой фотограф покинул Канаду и отправился воевать на западный фронт в Европе. В тот же день немецкий механик узнал, что его сын пропал без вести в бою. Оба они хотят остаться людьми и живыми вернуться к своим близким.Тип издания: LicenseРазработчик: Aardman Animations, DigixartЖанр: Adventure, CasualЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6ABE139975C42CA10122E6D67C94A02C4A9D214
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084775   (306774) от 14.11.2017
-
-The Whispered World / Ускользающий мир (2010) [Ru/Multi] (3.2.0419) License GOG [Special Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306774.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда судьба всего мира повиснет на волоске, появится необычный герой! Визуально впечатляющая приключенческая игра «Ускользающий мир» впервые доступна в специальном издании. «Ускользающий мир» очарует вас множеством анимированных деталей и фантастических персонажей. Приключение Седвика начинается, когда он решает найти объяснение своим частым кошмарам.Тип издания: LicenseРазработчик: Daedalic EntertainmentЖанр: AdventureЯзык озвучки: Русский, Английский, НемецкийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD9EFF28E4F1AFE19C14CE70573BF07CA7095C79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261023   (306718) от 09.11.2018
-
-11-11 Memories Retold (2018) [Ru/Multi] (1.0/dlc) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306718.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 ноября 1916 года молодой фотограф покинул Канаду и отправился воевать на западный фронт в Европе. В тот же день немецкий механик узнал, что его сын пропал без вести в бою. Оба они хотят остаться людьми и живыми вернуться к своим близким.Тип издания: RepackРазработчик: Aardman Animations, DigixartЖанр: Adventure, CasualЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EB0D4350B7C69A23533BF3FB6CC868A122DFABF
 ```
 
 https://mybot314.ru/tekegram_catalog/

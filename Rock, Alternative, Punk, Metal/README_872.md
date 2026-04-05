@@ -1,3 +1,32 @@
+###  Публикация: 1613471   (235997) от 18.02.2023
+
+Diseased Earth - Welcome the plague years (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Coven of Leeches (00:02:58)
+02 - Upon the funeral pyre (00:02:54)
+03 - The slug's throne (00:03:12)
+04 - In a deathless light (00:04:05)(   Читать дальше...   )Жанр: Sludge, Doom, Death MetalПродолжительность: 00:24:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CA375D5A3CDC3D0A3952E41C358046659E17A2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1612953   (235987) от 18.02.2023
 
 Setanera - Equilibrium (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal>
@@ -6,7 +35,7 @@ Setanera - Equilibrium (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235987.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Shadowland - Collection (1992-1996) 3CD [FLAC|Lossless|image + .cue] <Neo-progre
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235979.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ The Exploding Hearts - Guitar Romantic (2023) Expanded & Remastered [FLAC 24/44.
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235974.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Fragile Art - The World You Wanted (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235958.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Rock'n'roll Party (2023) [MP3|320 Kbps] <Rock n Roll, Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235954.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Gerry Rafferty - On A Wing & A Prayer (1992) [FLAC|Lossless|tracks + .cue]<Pop R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235951.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Cinderella - 20th Century Masters: The Millennium Collection: Best Of Cinderella
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235949.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Stepson - Help Me, Help You (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hardco
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235948.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ The Silent Rage - Nuances Of Life (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235945.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Beast Eagle - Beast Eagle (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235937.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Kuturlat - Necroritual (2005) [APE|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235934.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ AHTOH SKALD (Anton Gruzinsky) - Enigma Of Time (2022) [FLAC|Lossless|WEB-DL|trac
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235933.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Blud Red Roses - Fall to the Hate (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235929.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Perished - Seid (2003) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235917.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ The Dead Krazukies - From the Underworld (2023) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235900.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Funeral Mass - Shadow of the Raventhrone (2022) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235884.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ FireWolfe - We Rule The Night (2014) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235879.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Flidais - Pathogen (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Progressive Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_235875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235875.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Steely Dan - Countdown To Ecstasy (2023) [FLAC 24/192|Lossless|WEB-DL|tracks] <R
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235874.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Power from Hell - The True Metal (2004) [FLAC|Lossless|image + .cue] <Black Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235871.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Eddie B - I'm Holding On (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235868.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Chords Of Chaos - For Those About to Rock (2017) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235867.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Perished - Kark (1998) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235864.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Psilocybe Larvae - Stigmata (2001) [FLAC|Lossless|image + .cue] <Dark Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235856.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Deathstars - Everything Destroys You (2023) [FLAC|Lossless|image + .cue] <Gothic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_235852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235852.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Deathstars - Everything Destroys You (2023) [FLAC|Lossless|image + .cue] <Gothic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F80EF21249BD6A448F4D8C340AA16F179E36464
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615365   (235849) от 25.02.2023
-
-Armory - Mercurion (2022) [FLAC|Lossless|WEB-DL|tracks] <Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Message From The Stars
-02. Journey Into Infinity
-03. Transneptunic Flight
-04. The Hunters From Beyond(   Читать дальше...   )Жанр: Speed MetalПродолжительность: 00:42:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B49133060B93FC1FB2E0B143454BB77290452D46
 ```
 
 https://mybot314.ru/tekegram_catalog/

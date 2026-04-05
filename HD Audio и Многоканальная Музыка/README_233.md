@@ -1,32 +1,3 @@
-###  Публикация: 1760630   (37231) от 15.11.2024
-
-Godsmack - IV (2006) Reissue, 2024, Universal Records [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative metal, hard rock, heavy metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Livin In Sin (4:40)
-02. Speak (New Version) (3:57)
-03. The Enemy (4:07)
-04. Shine Down (5:01)(   Читать дальше...   )Жанр: Alternative metal, hard rock, heavy metalПродолжительность: 01:01:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7877EC77C7DE4C21FAF358A1217C8DE8E223AFF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1760601   (37213) от 15.11.2024
 
 Linkin Park - From Zero (Expanded Edition) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock>
@@ -35,7 +6,7 @@ Linkin Park - From Zero (Expanded Edition) (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37213.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Gwen Stefani - Bouquet (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Pop Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37205.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Rockets - The Final Frontier (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Space
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37202.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ The Guess Who - American Woman (1970) Remastered, 2024, SMCMG [FLAC 24/96|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37186.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Sodom - Tapping The Vein (1992) Super Deluxe Edition, 2024, SPV [FLAC 24/44.1|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37183.jpg" />
 </div>
 
 
@@ -177,7 +148,7 @@ Poppy - Negative Spaces (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37172.jpg" />
 </div>
 
 
@@ -206,7 +177,7 @@ Steve Vai, Generation Axe, Brian May, Zakk Wylde, Nuno Bettencourt, Yngwie Malms
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36977.jpg" />
 </div>
 
 
@@ -232,7 +203,7 @@ Wheeler Walker Jr - Ram (Deluxe Edition) (2024) [FLAC 24/96|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36865.jpg" />
 </div>
 
 
@@ -261,7 +232,7 @@ Garage Bluesband - Seven Shades of the Blues (2024) [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36767.jpg" />
 </div>
 
 
@@ -290,7 +261,7 @@ Fritz Kalkbrenner - Third Place (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Te
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36764.jpg" />
 </div>
 
 
@@ -319,7 +290,7 @@ VA - Golden Metal Ballads №1+№2 (1994) Compilation, Unofficial Release [FLAC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36723.jpg" />
 </div>
 
 
@@ -345,7 +316,7 @@ Luke Watt - Luke Watt (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36683.jpg" />
 </div>
 
 
@@ -374,7 +345,7 @@ Sandy Hall - Full Circle (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Classic Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36659.jpg" />
 </div>
 
 
@@ -403,7 +374,7 @@ Dan T. and the Crew - LEGACY (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36657.jpg" />
 </div>
 
 
@@ -432,7 +403,7 @@ Jazz Romantica, Sexual Music Collection - Jazz Room of Seduction (2024) [FLAC 24
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36589.jpg" />
 </div>
 
 
@@ -461,7 +432,7 @@ Marilyn Manson - One Assassination Under God - Chapter 1 (2024) [FLAC 24/96|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36581.jpg" />
 </div>
 
 
@@ -490,7 +461,7 @@ Straviado - Weird (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36576.jpg" />
 </div>
 
 
@@ -519,7 +490,7 @@ Ludivine issambourg - Above the Laws (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36575.jpg" />
 </div>
 
 
@@ -548,7 +519,7 @@ As the Sun Falls - Studio Albums (4 releases) (2020-2024) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36573.jpg" />
 </div>
 
 
@@ -577,7 +548,7 @@ Alexander Aruca - October Wind (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36570.jpg" />
 </div>
 
 
@@ -606,7 +577,7 @@ Emmy Meli - Hello Stranger (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36569.jpg" />
 </div>
 
 
@@ -635,7 +606,7 @@ Widespread Panic - Hailbound Queen (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <S
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36566.jpg" />
 </div>
 
 
@@ -664,7 +635,7 @@ Xandria - Universal Tales (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphoni
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36560.jpg" />
 </div>
 
 
@@ -693,7 +664,7 @@ Opeth - The Last Will And Testament (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36557.jpg" />
 </div>
 
 
@@ -722,7 +693,7 @@ The Smoothies - November Night Grooves: Velvet Soul (2024) [FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36555.jpg" />
 </div>
 
 
@@ -736,6 +707,35 @@ The Smoothies - November Night Grooves: Velvet Soul (2024) [FLAC 24/44.1|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A136DC09F4054AA14517BE2DDCAA22D8C9C6AC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761854   (36508) от 22.11.2024
+
+Sexual Music Collection - After Dark Sex Red Room (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bedtime Jazzy Bliss (3:20)
+02. Tango Temptation (3:41)
+03. Love & Lust (3:15)
+04. Midnight Confessions (3:15)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:33:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9CA58AC177FD5C23AF961D22AA2EFE85FD3FA34
 ```
 
 https://mybot314.ru/tekegram_catalog/

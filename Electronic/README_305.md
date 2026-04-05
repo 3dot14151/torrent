@@ -1,3 +1,131 @@
+###  Публикация: 1247586   (450333) от 16.09.2018
+
+Orbital - Monsters Exist (3xCD Deluxe) (2018) ACP Recordings [FLAC|Lossless|tracks+.cue] <Techno, Electro, IDM, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kinetic (2017) (06:12)
+ 02. Copenhagen (05:26)
+ 03. To Dream Again (Reocurring Mix) (04:02)
+ 04. Where Is It Going? (Live Style Mix) (07:56)Жанр: Techno, Electro, IDM, HouseПродолжительность: 01:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5A519B7959644FB052F1F6B6285ED2E26EDBAA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1163489   (450230) от 05.09.2017
+
+Cosmic Gate - Materia Chapter.Two (2017) [FLAC|Lossless|tracks] <Trance, Progressive Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Gate & JES – Materia (Intro Mix) (06:29)
+02. Cosmic Gate & Emma Hewitt – Tonight (03:11)
+03. Cosmic Gate & Super8 & Tab – Noom (05:33)
+04. Cosmic Gate & Eric Lumiere – Bigger Than We Are (03:21)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 00:40:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD2FD9286D29BD709652EC79F178ED67519336F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551881   (449864) от 25.09.2012
+
+The Prodigy - The Dirtchamber Sessions, Volume One (1999) [FLAC|Lossless]<Alternative Rock, Breaks, Punk, Big Beat, Hip Hop, Breakbeat>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_449864.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Dirtchamber Sessions Volume One - альбом, состоящий из диджейских ремиксов различных исполнителей от лидера электронного коллектива The Prodigy Лиама Хоулетта.01. Section 1: Intro Beats / Punk Shock / Untitled / Chemical Beats / Kool Keith ... :: 07:18
+02. Section 2: Bug Powder Dust / Pump Me Up / How High / Poison / Been Caught Ste... :: 06:44
+03. Section 3: The Mexican / Rock the House / The Best Part of Breaking Up / King... :: 06:03
+04. Section 4: Hey Can You Relate / What Time Is Love / Funky Acid Makossa / Shaf... :: 07:52
+05. Section 5: New York / Punk to Funk / I'm Sick :: 04:57
+06. Section 6: The Home of Hip-Hop / Strong Island / Kowalski / Time to Get Ill /... :: 05:48
+07. Section 7: Get Down / Humpty Dance / Dope On Plastic / Beats and Pieces :: 03:59
+08. Section 8: Sure Shot / Breakdance Electric Boogie / Doomsday of Rap / Ozone B... :: 08:40
+Section 1 - 7:18
+ 1. Intro Beats - taken from Run-D.M.C.’s «Here We GoЖанр: Alternative Rock, Breaks, Punk, Big Beat, Hip Hop, BreakbeatФормат: CD, Compilation, MixedПродолжительность: 00:51:26
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552018   (449860) от 25.09.2012
+
+Группа Технология - 4 Альбома (1991 - 1996) /2003, JAM Group/ [FLAC|Lossless]<Synth Pop, Techno Pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_449860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Телефон небес
+02. Королева дорог
+03. Яд
+04. Скорая помощь
+05. Экран
+06. Не последний танец
+07. Это война
+08. Хранитель тишины
+09. Тайга
+10. Вспоминай(   Читать дальше...   )Жанр: Synth Pop, Techno PopПродолжительность: 00:53:13
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569835   (449563) от 14.08.2022
 
 Roger Shah & Jukebox 80s - Nightride (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthpop, Synthwave>
@@ -6,7 +134,7 @@ Roger Shah & Jukebox 80s - Nightride (2021) [FLAC|Lossless|WEB-DL|tracks] <Elect
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449563.jpg" />
 </div>
 
 
@@ -35,7 +163,7 @@ Sevenn - Sevenn Hours 001-008 (2022) [MP3|320 Kbps] <House, Tech House>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449558.jpg" />
 </div>
 
 
@@ -64,7 +192,7 @@ VA - Nicholson - Reverent (2020) [FLAC|Lossless|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449334.jpg" />
 </div>
 
 
@@ -93,7 +221,7 @@ VA - Cozy Chillin The Smoothest in Lounge and Chill out Vol 1 (2015) [MP3|320 Kb
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449293.jpg" />
 </div>
 
 
@@ -122,7 +250,7 @@ VA - Balearic Summer Vibes Vol.1 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lou
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449291.jpg" />
 </div>
 
 
@@ -151,7 +279,7 @@ Miguel Migs - Outside the Skyline (2011) [FLAC|Lossless]<Deep House, Soulful Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_449248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_449248.jpg" />
 </div>
 
 
@@ -180,7 +308,7 @@ VA - All The Best Remixes From 90s For Fitness & Workout (2020) [MP3|320 Kbps] <
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449182.jpg" />
 </div>
 
 
@@ -209,7 +337,7 @@ VA - Chillout Summer Vibes (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449170.jpg" />
 </div>
 
 
@@ -238,7 +366,7 @@ Scooter - The Fifth Chapter (2014) 2CD Deluxe Edition [MP3|320 кб/с]<Techno, 
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449111.jpg" />
 </div>
 
 
@@ -267,7 +395,7 @@ Loop Zeppelin - Discography 5 Releases (2014-2020) Crime League [FLAC|Lossless|W
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449022.jpg" />
 </div>
 
 
@@ -296,7 +424,7 @@ VA - Christopher S pres.- Fuck The DJ (mixed by DJ Flava) (2009) [MP3|~190 кб/
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448905.jpg" />
 </div>
 
 
@@ -331,7 +459,7 @@ VA - Progressive Ibiza (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448807.jpg" />
 </div>
 
 
@@ -360,7 +488,7 @@ Armada Deep - Ibiza Closing Party (2018) [MP3|320 Kbps] <Minimal,Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448684.jpg" />
 </div>
 
 
@@ -389,7 +517,7 @@ Timmy Trumpet - SINPHONY Radio 001-077 (2021-2022) [MP3|320 Kbps] <Electro House
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448579.jpg" />
 </div>
 
 
@@ -418,7 +546,7 @@ HIDE - Hell Is Here (2019) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Industrial>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448381.jpg" />
 </div>
 
 
@@ -447,7 +575,7 @@ VA - House Classic Hits Summer Playlist (2019) [MP3|320 Kbps] <Funky, Club House
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448379.jpg" />
 </div>
 
 
@@ -476,7 +604,7 @@ Axwell & Ingrosso - More than You Know (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448272.jpg" />
 </div>
 
 
@@ -505,7 +633,7 @@ VA - Squadron (2000) Merck [FLAC|Lossless|tracks+.cue] <Glitch, IDM, Experimenta
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447582.jpg" />
 </div>
 
 
@@ -534,7 +662,7 @@ Marian Closca - Downward Spiral (2020) [FLAC|Lossless|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447365.jpg" />
 </div>
 
 
@@ -563,7 +691,7 @@ VA - Cartoon People-Future Club House Vol.1 (2020) [MP3|320 Kbps] <Electro House
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447363.jpg" />
 </div>
 
 
@@ -592,7 +720,7 @@ VA - First Class Lounge, Vol. 1 (Amazing Sensual Smooth Jazz 'N'chill Grooves) (
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447347.jpg" />
 </div>
 
 
@@ -621,7 +749,7 @@ Steve Aoki - Neon Future Odyssey (2015) 2CD [MP3|320 кб/с]<Electronic, Progre
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447331.jpg" />
 </div>
 
 
@@ -635,122 +763,6 @@ Steve Aoki - Neon Future Odyssey (2015) 2CD [MP3|320 кб/с]<Electronic, Progre
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AA56A9D9437FCA5E17E19632E2FB561867584A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409367   (447233) от 16.09.2020
-
-VA - The Best Of Cafe Del Mar (2020) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D Note - D Votion (7:08)
-02. Lux - Northern Lights (5:34)
-03. Salt Tank - Sargasso Sea (7:14)
-04. Paco De Lucía - Entre Dos Aguas (Remastered 2014) (6:00)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 09:07:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2B068637C04CC62474F51A566EEC0F059404B2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569930   (447204) от 15.08.2022
-
-Proxyon - Proxyon (1989) [OGG|485 Kbps] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Space Guards                      	6:45
-02. Space Travellers                  	5:20
-03. Space Hopper                        6:18
-04. Space Fly (Magic Fly)         	6:40(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:37:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2B7B73E400E699FA3FE70EDDAF4795673773750
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570069   (447200) от 15.08.2022
-
-Pet Shop Boys - Please (1986) [OGG|485 Kbps] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Two Divided By Zero	  3:34
-02. West End Girls            	  4:45
-03. Opportunities            	  3:43
-04. Love Comes Quickly 	  4:19(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:42:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30C58F08D971C38244E3BCD0DE1073CA649F27B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570060   (447199) от 15.08.2022
-
-Pet Shop Boys - Actually (1987) [OGG|485 Kbps] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One More Chance     5:28
-02. What Have I Done To Deserve This? 	4:21
-03. Shopping                   3:37
-04. Rent                          5:07(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88B406950785FEEAE28BF9F4B74B9F3D0C10259B
 ```
 
 https://mybot314.ru/tekegram_catalog/

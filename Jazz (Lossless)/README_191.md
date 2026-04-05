@@ -6,7 +6,7 @@ The Dick Morrissey Quartet - Here And Now And Sounding Good! (1966) 1995, Norma 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415094.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Carmen McRae - Something to Swing About (1959) 1989, Warner[FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414948.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ June Christy - Gone For The Day And Fair And Warmer (1957) 1998, Capitol[FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414944.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Roy Eldridge - Swingin' On The Town (1960) 1999, Verve [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414918.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ The Jones Brothers - Keepin' Up With The Joneses (1958) 1999, Verve [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414917.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Sadao Watanabe - Open Road (1973) 2CD, 2000, SME Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414916.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Nat King Cole - Unforgettable (1954) 2007, Collectors' Choice Music[FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414771.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Anders Widmark Trio - Psalmer (1997) Kaza [FLAC|Lossless|tracks + .cue] <Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414681.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Betty Carter - Whatever Happened To Love? (1982) 1989, Verve Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_414676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414676.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Bill Evans Trio - At the Village Vanguard August 17 (1967) 2004, 2CD, Verve Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413835.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Bill Evans Trio - At the Village Vanguard August 18 (1967) 2004, 2CD, Verve Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413829.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Donny McCaslin - Seen From Above (2000) Arabesque Jazz [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413516.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - The Newport Jazz Festival All-Stars & Bern Concert '89 (1990) Concord Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413515.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Bill Leslie - Diggin' the Chicks (1962) 2004, Universal [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412903.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Terry Gibbs - Hootenanny My Way (1963) 2017, Solid Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412899.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Johnny Smith - Plays Jimmy Van Heusen (1955) 2017, Warner [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412896.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Deborah Franciose - Gypsy Heart (1993) North Star Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412807.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Ernie Andrews - Jump For Joy (2003) HighNote [FLAC|Lossless|tracks + .cue] <Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412805.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Anders Widmark Trio - Visor (2010) Blue Records [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412803.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Masahiko Satoh featuring Eddie Gomez And Steve Gadd - As If... (1985) Denon [APE
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412532.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Duke Ellington - Reminiscing In Tempo (1928-1960) 1991, Columbia[FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412403.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Ike Quebec - Swing Hi Swing Lo (1944-1946) 1999, Disconforme[FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412400.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Nat King Cole - 10th Anniversary (1955) 2007, Collectors' Choice Music[FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412398.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ June Christy - Sings The Standards (1956-2001) 2002, EMI[FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_412394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412394.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Louis Armstrong - Collected (1920-e - 1960-e) 2018, 3CD, Universal [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411910.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Mitchel Forman - Harvest Song (1997) /Jazzline/[FLAC|image+.cue]<Jazz Fusion, Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411789.jpg" />
 </div>
 
 

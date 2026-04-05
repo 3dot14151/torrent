@@ -1,3 +1,55 @@
+###  Публикация: 1263694   (284502) от 21.11.2018
+
+Videoloupe 1.2.1 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Videoloupe - программный продукт совмещающий продвинутый медиаплеер с профессиональным инструментарием для редактирования. Программа предлагает уникальное сочетание средств управления воспроизведением, инструментов редактирования и опций экспорта.Тип издания: macOS SoftwareРелиз состоялся: 28.10.2018Разработчик: Corduroy Code Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B32359558FED7AD838D0BF3D52F659727A99C8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081254   (284442) от 09.12.2016
+
+GarageBand 10.1.4 [Multi/Ru]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284442.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полностью обновленная программа GarageBand с новым интерфейсом и замечательными новыми функциями — это самый простой способ создавать великолепно звучащие песни на Вашем компьютере Mac. Добавляйте в песни реалистичные, безупречно исполненные и записанные барабанные ритмы с использованием Drummer. С легкостью корректируйте звучание любого инструмента в фонотеке, используя (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 декабря 2016Разработчик: Apple Inc.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский, Голландский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E3AD06570073920F423016108B1166F53845511
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1335655   (284245) от 04.11.2019
 
 Readiris Pro 17.1.3 (build 7ca) [Multi/Ru]
@@ -6,7 +58,7 @@ Readiris Pro 17.1.3 (build 7ca) [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284245.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Nimble Commander 1.2.2 (2450) [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284230.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Nikon Camera Control Pro 2.28.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284015.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Aurora Blu-ray Player 2.18.9 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283395.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ Snapheal CK (Pro) 1.5 (1118) [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283392.jpg" />
 </div>
 
 
@@ -142,7 +194,7 @@ Sketch 3.4.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283379.jpg" />
 </div>
 
 
@@ -169,7 +221,7 @@ CrossOver 15.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_283286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283286.jpg" />
 </div>
 
 
@@ -198,7 +250,7 @@ TurboLayout 2.0.17 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282953.jpg" />
 </div>
 
 
@@ -225,7 +277,7 @@ Canary Mail - Encrypted Email 2.15 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281159.jpg" />
 </div>
 
 
@@ -251,7 +303,7 @@ Blu-ray Player for Mac 1.1.6 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281150.jpg" />
 </div>
 
 
@@ -278,7 +330,7 @@ Keep It 1.7.5 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280950.jpg" />
 </div>
 
 
@@ -304,7 +356,7 @@ Cisdem PDFManagerUltimate 3.2.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280948.jpg" />
 </div>
 
 
@@ -330,7 +382,7 @@ MailRaider 3.69 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280940.jpg" />
 </div>
 
 
@@ -356,7 +408,7 @@ RealDNS - Dynamic DNS update client 7.4.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280806.jpg" />
 </div>
 
 
@@ -383,7 +435,7 @@ Music Converter Pro 1.5.6 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280804.jpg" />
 </div>
 
 
@@ -409,7 +461,7 @@ Image Viewer 2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280600.jpg" />
 </div>
 
 
@@ -437,7 +489,7 @@ Copied 2.0.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280448.jpg" />
 </div>
 
 
@@ -466,7 +518,7 @@ Photo Converter 2.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280434.jpg" />
 </div>
 
 
@@ -493,7 +545,7 @@ Bookends 13.1.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279572.jpg" />
 </div>
 
 
@@ -521,7 +573,7 @@ Barsoom 2.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279012.jpg" />
 </div>
 
 
@@ -548,7 +600,7 @@ Microsoft Office for Mac 2016 v15.28 VL [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278060.jpg" />
 </div>
 
 
@@ -575,7 +627,7 @@ DxO PhotoLab Elite 1.2.3 (82) [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277767.jpg" />
 </div>
 
 
@@ -603,7 +655,7 @@ Boinx mimoLive 4.5 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277763.jpg" />
 </div>
 
 
@@ -630,7 +682,7 @@ Wondershare Filmora 8.7.6 + Effect Pack [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277587.jpg" />
 </div>
 
 
@@ -641,62 +693,6 @@ Wondershare Filmora 8.7.6 + Effect Pack [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62E354726588A06C413B10DDB5793CEC3E8126B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187791   (277286) от 30.11.2017
-
-Lingon X 5.2.3 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lingon позволяет визуально создавать файлы автозагрузки, которые используются для запуска приложений и скриптов автоматически при загрузке Mac OS X. Список всех программ выносится в таблицу, где его удобно редактировать. Тут же отображается статус каждой программы: чем она занимается, работает ли в данный момент и т.п.
-
-Всю конфигурацию можно проводить и вручную, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.11.2017Разработчик: Peter Borg Apps ABПоддерживаемая ОС: macOS 10.12 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94D802AEDD16EDF54F6E55F02829FB2DE11B2148
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082672   (277259) от 13.12.2016
-
-Paste 2.1.2 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Paste — менеджер истории буфера обмена для Mac
-Paste хранит всё, что вы когда-либо копировали в буфер обмена, и позволяет воспользоваться историей копирования, когда она вновь понадобится. Работает – притаившись в фоном режиме системы и, следит за историей скопированных данных. Готов в любой момент предоставить на выбор нужный фрагмент из истории буфера обмена.
- (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13 декабря 2016Разработчик: WirelessheadsПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D87D136A9C21B52A3AA9DC15C6FDEC6C02EC25FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

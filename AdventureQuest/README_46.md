@@ -1,3 +1,82 @@
+###  Публикация: 1073200   (346761) от 15.11.2016
+
+Silence: The Whispered World 2 (2016) [Ru/Multi] (1.0.19854) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346761.jpg" />
+</div>
+
+
+###  Подробнее
+
+Началась война. Во время авианалета 16-летний Ноа со своей младшей сестрой Рени укрылись в бункере. Здесь они нашли не только спасение от бомб, но и мир-перекресток между жизнью и смертью: Безмолвный мир. Сестра Ноа заблудилась, и мальчику пришлось отправиться на ее поиски в этой небезопасной, как оказалось, идиллии.
+В Безмолвном мире свои войны и страдания. Зловещие (   Читать дальше...   )Тип издания: RepackРазработчик: Daedalic EntertainmentЖанр: Adventure, IndieЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3001D5078D1147EDC8DD5E1CE888AE17374025A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179763   (346462) от 01.11.2017
+
+Cognition: An Erica Reed Thriller (2013) [Multi] (2.1.0.9/dlc) License GOG [GOTY Edition] [Episode 1-4]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cognition - это "эпизодический криминальный триллер". Девелоперы разбили игру на четыре эпизода. Игроку предстоит помочь агенту ФБР Эрике Рид. Много лет назад она потеряла брата из-за некоего серийного убийцы, которого так и не поймали. Стресс пробудил в героине странные способности, позволяющие ей видеть прошлое любого предмета, к которому она прикасается. (   Читать дальше...   )Тип издания: LicenseРазработчик: Phoenix Online StudiosЖанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: Английский, Итальянский, НемецкийЯзык интерфейса: Английский, Итальянский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07D62E855BD4891509DF23831BEAF00F79AFE3FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329301   (345113) от 08.10.2019
+
+The Wild Eight (2019) [Ru/Multi] (1.0.4) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Падение самолета — лишь начало. Восемь выживших остались брошенными посреди суровых лесов Аляски, полных секретов и тайн. The Wild Eight — это суровое приключение в случайно генерируемом мире, полном опасности и испытаний. Добывай ресурсы для выживания и исследуй локации в поисках спасения бок о бок с другими игроками. Или ты попробуешь выбраться отсюда в одиночку?Тип издания: LicenseРазработчик: HypeTrain DigitalЖанр: Simulator (Survival, Top-Down), RPG, 3DЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:737DDAABBFCC90B968AF753F57B6DC03738F23BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1257534   (345038) от 26.10.2018
 
 TheNightfall (2018) [Ru/Multi] (1.5) License PLAZA [Halloween Edition]
@@ -6,7 +85,7 @@ TheNightfall (2018) [Ru/Multi] (1.5) License PLAZA [Halloween Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345038.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ Tales (2016) [Ru/Multi] (1.0.1) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344490.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ Neptune Flux (2016) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344478.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ Yesterday Origins (2016) [Ru/Multi] (1.0/u4) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344367.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ Penumbra 4: Necrologue / Пенумбра 4: Некролог (2014) [Ru] (1.0) 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344021.jpg" />
 </div>
 
 
@@ -137,7 +216,7 @@ Attentat 1942 (2017) [En/Cz] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344005.jpg" />
 </div>
 
 
@@ -163,7 +242,7 @@ The Book of Unwritten Tales (2012) [Multi] (2.0.0.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343837.jpg" />
 </div>
 
 
@@ -189,7 +268,7 @@ Trine 4: The Nightmare Prince (2019) [Ru/Multi] (1.0.7998) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343059.jpg" />
 </div>
 
 
@@ -215,7 +294,7 @@ TheNightfall (2018) [Ru/Multi] (1.5) Repack Other s [Halloween Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342472.jpg" />
 </div>
 
 
@@ -241,7 +320,7 @@ The Dark Eye. Chains Of Satinav [Ru/En] (Repack/1.1) 2012 | Fenixx
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342025.jpg" />
 </div>
 
 
@@ -270,7 +349,7 @@ Among the Sleep (2014) [Ru/Multi] (3.0.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341957.jpg" />
 </div>
 
 
@@ -296,7 +375,7 @@ Turnip Boy Commits Tax Evasion (2021) [Ru/Multi] (1.1.3f1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340649.jpg" />
 </div>
 
 
@@ -322,7 +401,7 @@ The Lost Chronicles of Zerzura [En] (L) 2012 | SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339500.jpg" />
 </div>
 
 
@@ -348,7 +427,7 @@ Black Mirror Anthology | Антология. Чёрное зеркало [Ru/En]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339483.jpg" />
 </div>
 
 
@@ -376,7 +455,7 @@ Amnesia A Machine for Pigs (2013) [Ru/Multi] (1.0 Upd2) License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339290.jpg" />
 </div>
 
 
@@ -403,7 +482,7 @@ Transient (2020) [Ru/Multi] (0.119) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336924.jpg" />
 </div>
 
 
@@ -429,7 +508,7 @@ Call of Cthulhu (2018) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335887.jpg" />
 </div>
 
 
@@ -455,7 +534,7 @@ Among the Sleep (2014) [Ru/Multi] (2.0.1/dlc) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335257.jpg" />
 </div>
 
 
@@ -481,7 +560,7 @@ Alwa's Legacy (2020) [Multi] (1.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334722.jpg" />
 </div>
 
 
@@ -507,7 +586,7 @@ Kena: Bridge of Spirits (2021) [Ru/Multi] (2.02/dlc) Repack Other s [Digital Del
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332752.jpg" />
 </div>
 
 
@@ -533,7 +612,7 @@ Game of Thrones: A Telltale Games Series (2014-2015) [En] (1.0.0.1) License CODE
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326303.jpg" />
 </div>
 
 
@@ -559,7 +638,7 @@ Leisure Suit Larry - Wet Dreams Dry Twice (2020) [Ru/Multi] (1.0.1.54) License G
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323686.jpg" />
 </div>
 
 
@@ -585,7 +664,7 @@ Leisure Suit Larry: Love for Sail! / Ларри в выходном костюм
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322440.jpg" />
 </div>
 
 
@@ -596,84 +675,6 @@ Leisure Suit Larry: Love for Sail! / Ларри в выходном костюм
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:315554E0BA995EE95BAEEA90DDFA4C02FEB551A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958810   (320896) от 22.11.2015
-
-Memoria (2013) [Ru/En] (1.2.3.0341) Repack R.G. Catalyst
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320896.jpg" />
-</div>
-
-
-###  Подробнее
-
-Memoria – расскажет нам историю принцессы Сатии из далеких земель Фасара, которая однажды решилась на войну с демонами в пустыне Гори. Ее цель – войти в легенды – так и не осуществилась. Что-то пошло не так и девушка таинственным образом исчезла, а ее историю со временем забыли.Тип издания: RepackРазработчик: Daedalic EntertainmentЖанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97D918C94B33B84434AE9E70036A5F39941C06A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167736   (320616) от 08.11.2017
-
-Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0) License RELOADED [Episode 1-4]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320616.jpg" />
-</div>
-
-
-###  Подробнее
-
-После того, как Джесси и его команде удалось одолеть Иссушающую бурю, спасти мир и обрести всеобщее признание, их жизнь сделалась чуточку... сложнее. Обязанностей стало больше, а на старые добрые приключения времени почти не осталось, так что их дружба начала угасать.Тип издания: LicenseРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: Английский, Французский, Немецкий, ИспанскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9603016868EFCCF542928CF90224E5179E337BC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331774   (320214) от 17.10.2019
-
-Layers of Fear 2 (2019) [Ru/Multi] (1.3) Repack xatab
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320214.jpg" />
-</div>
-
-
-###  Подробнее
-
-Layers of Fear 2 — это психологический хоррор от первого лица с глубоким сюжетом и обширным пространством для исследования. Главный герой — голливудская звезда, что играет главную роль в фильме загадочного режиссера, решившего провести съемки на борту океанского лайнера.Тип издания: RepackРазработчик: Bloober TeamЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A0E95720D92BD36CCDD9203B0A84E59F839B5E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

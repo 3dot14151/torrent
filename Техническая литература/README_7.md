@@ -1,3 +1,56 @@
+###  Публикация: 1207690   (780216) от 20.02.2018
+
+В.К. Варварин | Выбор и наладка электрооборудования. Справочное пособие (2006) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780216.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрена наладка оборудования электродвигателей, пусковой и защитной аппаратуры, заземляющих устройств. Приведены данные о степенях защиты, о конструктивном исполнении и способе монтажа электрооборудования для выбора его с учетом специфических условий среды, в которой это оборудование должно работать.
+Изложены сведения об электрических цепях и схемах. Описаны (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FDA247FA286FD5DEE1A4F7AF061A42B8171BE58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208923   (779601) от 24.02.2018
+
+Боб Яннини | Удивительные электронные устройства (2008) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779601.jpg" />
+</div>
+
+
+###  Подробнее
+
+В предлагаемой книге известного зарубежного технического писателя - популяризатора науки и техники Боба Яннини даны описания различных физических явлений: магнитных катушек Тесла, плазмы, лазеров, электрокинетики, ультраакустики. Информация о них начинается с краткой, просто изложенной теории. Теоретическая часть дополняется практической: каждая глава, а их 28, представляет (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:407DC486624A971CAC3C5ED17D1A5998A9AF10B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1208808   (779574) от 24.02.2018
 
 Саймон Монк | Практическая электроника: иллюстрированное руководство для радиолюбителей (2016) [PDF]
@@ -6,7 +59,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779574.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779372.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778647.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778641.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778342.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778302.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ Samsung | Сервис-мануалы к технике Samsung (1998-2005) [PDF
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778143.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ Asus | Сервис-мануалы к технике Asus (1989-2015) [PDF] [En]
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778137.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778088.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778087.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776350.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775962.jpg" />
 </div>
 
 
@@ -323,7 +376,7 @@ Acer | Сервис-мануалы и принципиальные схемы к
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775421.jpg" />
 </div>
 
 
@@ -352,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774978.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772785.jpg" />
 </div>
 
 
@@ -404,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772473.jpg" />
 </div>
 
 
@@ -430,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768783.jpg" />
 </div>
 
 
@@ -456,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767427.jpg" />
 </div>
 
 
@@ -482,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766888.jpg" />
 </div>
 
 
@@ -508,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765945.jpg" />
 </div>
 
 
@@ -534,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765019.jpg" />
 </div>
 
 
@@ -563,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764730.jpg" />
 </div>
 
 
@@ -590,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764353.jpg" />
 </div>
 
 
@@ -616,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764126.jpg" />
 </div>
 
 
@@ -627,58 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC35085469CB4063FFECC21B0AF2A94BC11D583C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280032   (763424) от 01.02.2019
-
-Л.Н. Григорьев | Цифровое формирование диаграммы направленности в фазированных антенных решетках (2010) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_763424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изложены методы цифрового диаграммообразования с использованием антенных решеток. Анализируются погрешности, обусловленные наличием дестабилизирующих факторов. Приведены теоретические результаты и экспериментальные данные. Для специалистов-разработчиков радиолокационной аппаратуры, а также для аспирантов и студентов радиотехнических специальностейЖанр: РадиотехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00BFB845FAAC9A4D5B66DFD941A5A50072EAB2C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017117   (762951) от 16.05.2016
-
-Зинаида Марсакова и др. | Производство меховых и овчинно-шубных изделий (1991) [PDF, DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_762951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены раскрой и изготовление изделий из различных видов пушно-меховых шкурок и шубной овчины в меховом производстве. Описана технология скорняжного производства, изготовления меховой одежды, меховых головных уборов, изделий из шубной овчины. В отличие от 1-го издания (1974 г.) описано изготовление изделий из мехового велюра.Жанр: Легкая промышленностьФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41BA9446031D9099DADC3DDF08FE4E4C00AF1387
 ```
 
 https://mybot314.ru/tekegram_catalog/

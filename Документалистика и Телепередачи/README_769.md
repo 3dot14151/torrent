@@ -1,3 +1,160 @@
+###  Публикация: 1739970   (48372) от 30.07.2024
+
+Крот / The Mole (2022) WEBRip (сезон 1, серии 1-10 из 10) ViruseProject [AD]
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крот - американское игровое реалити-шоу, в котором участники работают группой, чтобы добавить денег в банк, который в конечном итоге выиграет только один из них. Среди участников есть один человек, которого продюсеры тайно назвали "Кротом", которому поручено саботировать усилия группы по зарабатыванию денег. В конце каждой серии участник, который меньше (   Читать дальше...   )Производство: США / Eureka Productions (II) NetflixЖанр: игра, реальное ТВ, детектив, приключенияРежиссер: нетАктеры: Алекс Вагнер, Ari Shapiro, William James Richardson, Joi Schweitzer, Kesi Neblett, Avori Henderson, Jacob Hacker, Шон Патрик Брайан, Дианна Томпсон, Hannah Burns и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:45:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FD6AD5B125F77416478D8392113A15E6B165A5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 433790   (47913) от 04.08.2024
+
+Гений Чарльза Дарвина / The Genius of Charles Darwin (2008) DVDRip
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47913.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом увлекательном фильме Ричард Докинз, автор бестселлера "Бог как иллюзия", объясняет теорию эволюции и её вклад в наше понимание жизни на Земле. Теория Чарльза Дарвина о развитии жизни опубликована в 1859 году в "Происхождении видов" и продолжает быть предметом обсуждений до сих пор, несмотря на то, что в каждой найденной окаменелости мы (   Читать дальше...   )Жанр: ДокументальныйПеревод: Многоголосый закадровый, любительскийПродолжительность: 3 x ~00:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6176E4F3455079EC0F7DC4E44730A34FAD1B2E7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692242   (47771) от 05.08.2024
+
+По дебрям Уссурийского края (1928) WEBRip
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47771.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1928 году Александр Литвинов вместе с оператором П. Мершиным совершил первую в истории нашего кино экспедицию по уссурийской тайге с кинокамерой. А готовить эту экспедицию (от разработки маршрута до снаряжения) помогал сам В. К. Арсеньев. Результатом этого творческого союза стали два фильма, которые вошли в историю мирового кинематографа: «По дебрям Уссурийского (   Читать дальше...   )Производство: СССР / СовкиноЖанр: документальный, география, немое киноРежиссер: Александр ЛитвиновСубтитры: русские (интертитры)Продолжительность: 01:20:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9080C581EC3C7583C7030C10C5791BD4299A5B5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692683   (47768) от 05.08.2024
+
+Лесные люди (1928) WEBRip
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47768.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1928 году Александр Литвинов вместе с оператором П. Мершиным совершил первую в истории нашего кино экспедицию по уссурийской тайге с кинокамерой. А готовить эту экспедицию (от разработки маршрута до снаряжения) помогал сам В. К. Арсеньев. Результатом этого творческого союза стали два фильма, которые вошли в историю мирового кинематографа: «По дебрям Уссурийского (   Читать дальше...   )Производство: СССР / СовкиноЖанр: документальный, география, немое киноРежиссер: Александр ЛитвиновЯзык озвучки: русскийСубтитры: русские (интертитры)Продолжительность: 01:21:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7D25D1151346CD875AC5AEA31A46452094FA969
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730790   (47394) от 09.08.2024
+
+Орел и решка. Земляне (2021-2022) WEB-DLRip [H.264/1080p] (сезон 27, серии 1-35 из 35)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47394.jpg" />
+</div>
+
+
+###  Подробнее
+
+За огромное количество сезонов "Орёл и решка" так и не раскрыли главное чудо нашей планеты, которого нет ни в одной известной нам галактике - это земляне. Вас ждёт путешествие, которого прежде не было, а поведут вас в него - Кирилл Макашов и Мишель Андраде (Michelle Andrade).
+Кирилл Макашов - английский джентльмен, который точно сможет найти общий язык (   Читать дальше...   )Телекомпания: Украина, ИнтерЖанр: ТВ-шоу, путешествияЯзык озвучки: РусскийПродолжительность: серии по ~ 00:55:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:649551CAAB78FF20040016CDCA4A27B0433964C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742070   (47356) от 09.08.2024
+
+Катынь. Геббельс и чистка зубов (2024) WEBRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47356.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четвёртый выпуск Плохого сигнала из серии подкастов, посвящённых трагедии в Катынском лесу и её использованию в качестве идеологического оружия. Расшифровка текста с источниками здесь (доступ открытый).Производство: Россия, Авторский блог Плохой сигналЖанр: историяЯзык озвучки: РусскийПродолжительность: 01:27:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74D19923019243DFFABA486D10E7A60721A77402
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1742077   (47319) от 09.08.2024
 
 Катынь.  Нет в приговоре Нюрнберга (2024) WEBRip [H.264]
@@ -6,7 +163,7 @@
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47319.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47284.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47238.jpg" />
 </div>
 
 
@@ -84,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47229.jpg" />
 </div>
 
 
@@ -110,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47216.jpg" />
 </div>
 
 
@@ -136,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47172.jpg" />
 </div>
 
 
@@ -162,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47162.jpg" />
 </div>
 
 
@@ -189,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47138.jpg" />
 </div>
 
 
@@ -215,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47134.jpg" />
 </div>
 
 
@@ -241,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47130.jpg" />
 </div>
 
 
@@ -267,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47043.jpg" />
 </div>
 
 
@@ -294,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46500.jpg" />
 </div>
 
 
@@ -320,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46497.jpg" />
 </div>
 
 
@@ -348,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46429.jpg" />
 </div>
 
 
@@ -374,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46427.jpg" />
 </div>
 
 
@@ -400,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46412.jpg" />
 </div>
 
 
@@ -426,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45850.jpg" />
 </div>
 
 
@@ -452,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45740.jpg" />
 </div>
 
 
@@ -478,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Космос
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45414.jpg" />
 </div>
 
 
@@ -504,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авиация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45103.jpg" />
 </div>
 
 
@@ -515,164 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:172F75D974CA1B80A0C365799FA80E6283B5734A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746474   (45032) от 31.08.2024
-
-Главная дорога (31.08.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Снова в школу! А после уроков многие ребята спешат за руль велосипедов и самокатов. Какие правила стоит вспомнить и детям, и родителям?
-  Как не нарваться на пешехода-подставщика в условно безопасных районах и можно ли на слух распознать звук от рокового удара там, где нет регистратора?
-  Скребем по асфальту: что происходит во время движения в переполненной машине? В (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:25:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D1EAC32A8CE4C2017F74ECD264FC9BB78C0ED43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733683   (45006) от 01.09.2024
-
-Последний герой: Русский сезон (2024) WEB-DL [H.264/720p] (сезон 11, выпуски 1-10 из 10)
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45006.jpg" />
-</div>
-
-
-###  Подробнее
-
-Впервые за всю историю своего существования реалити-шоу «Последний герой» будет в России. Местом действия станет берег Телецкого озера, расположенного в Республике Алтай. Съёмочная команда, участники проекта и ведущая Ксения Бородина уже прибыли на место. И в ближайшие недели претендентам на гордое звание Последнего героя предстоит осваиваться в горной местности, (   Читать дальше...   )Телекомпания: Россия / ТВ3Жанр: ТВ-шоуУчастники: Александра Маслакова, Иван Пышненко, Николай Сердюков, Артем Антипов, Алан Царикаев, Павел Ярыгин, Кристина Захарова, Дмитрий Конышев, Александр Лось, Светлана Мастеркова, Давид Ниамеди, Ксения СурковаСубтитры: ОтсутствуютПродолжительность: ~01:56:00 выпуск
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E04684AD0A8663726BFEEA77AE2A9F7BD381BB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744727   (44990) от 01.09.2024
-
-Гладиаторы / Gladiators (2024) WEB-DL [H.264/1080p] (сезон 1, серии 1-4 из 4) Pazl Voice
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44990.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раскройте убийственные секреты и хитроумные тактики самых жестоких бойцов природы в четырех невероятных экосистемах по всему миру. Дикие гладиаторы, от самых маленьких муравьев до самых больших медведей, сражаются за главный приз - выживание.Производство: Великобритания / Sky Nature, TalesmithЖанр: документальный, природа, мир животныхУчастники: Шон БинПеревод: Одноголосый любительский (Pazl Voice)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), английскиеПродолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85CD5BA2202A82C0C2470D0078ED31E9B12BB0E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746817   (44818) от 02.09.2024
-
-Следствие вели... (01.09.2024) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44818.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Дама в шляпе». 1990 г., Куйбышевская область. Неизвестная банда нападала на пенсионеров. Со стариками расправились с особой жестокостью. Почему этим делом заинтересовался КГБ? Зачем преступники забирали детали от телевизоров? Какое отношение к происходившему имел человек в модной шляпе и как раскрыть дело помог фонарь?Производство: Россия | Телекомпания «НТВ»Жанр: Документальный, криминал, расследованиеЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B06725786FB191D941A09D171F6CFF259F05FC0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747131   (44617) от 04.09.2024
-
-Крот / The Mole (2024) WEBRip (сезон 2, серии 1-10 из 10) ViruseProject [AD]
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44617.jpg" />
-</div>
-
-
-###  Подробнее
-
-Крот - американское игровое реалити-шоу, в котором участники работают группой, чтобы добавить денег в банк, который в конечном итоге выиграет только один из них. Среди участников есть один человек, которого продюсеры тайно назвали "Кротом", которому поручено саботировать усилия группы по зарабатыванию денег. В конце каждой серии участник, который меньше (   Читать дальше...   )Производство: США / Eureka Productions (II), NetflixЖанр: игра, реальное ТВ, детектив, приключенияРежиссер: нетАктеры: Алекс Вагнер, Ari Shapiro, William James Richardson, Joi Schweitzer, Kesi Neblett, Avori Henderson, Jacob Hacker, Шон Патрик Брайан, Дианна Томпсон, Hannah Burns и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:50:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AAA190F3199BE4E60A206BA69760BEFC8F08A17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 121665   (44593) от 05.09.2024
-
-Крылья России. С неба на землю в бой! Вынужденные прыжки с парашютом. (2003) VHSRip
-
->>Документалистика и Телепередачи
->>Авиация
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Какой мальчишка не мечтал носить голубой берет десантника? Воздушно-десантные войска всегда считались элитой вооружённых сил: бойцы занимались специальной физической подготовкой, прекрасно владели техникой рукопашного боя, умели водить любую технику, стрелять из всех типов оружия, прыгать с парашютом, воевать в любых условиях. "С неба на землю в бой!" - (   Читать дальше...   )Жанр: ДокументальныйПеревод: ОригинальныйПродолжительность: 00:54:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F360E9780119329616FB70126FE802C9F22F6BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

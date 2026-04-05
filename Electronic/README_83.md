@@ -1,3 +1,58 @@
+###  Публикация: 1281668   (905159) от 28.08.2021
+
+Glåsbird (Glasbird) - Discography 8 Releases (2018-2021) Whitelabrecs [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Modern Classical>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Land Sleeps (07:57)
+ 02. Icebound (03:54)
+ 03. Skating Baikal (07:14)
+ 04. Quiet Snowstorms (04:28)(   Читать дальше...   )Тип издания: CD, Web •Жанр: AmbientПродолжительность: 05:08:54 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1073F7572F22E63389985FFAE5970DCD436BB9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973622   (905150) от 28.08.2021
+
+Minor Rain - Discography 29 Releases (2012-2021) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Liquid Funk, Microfunk, Downtempo>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Floating Cell (05:24)Тип издания: WebЖанр: Drum & Bass, Liquid Funk, Microfunk, Downtempo •Продолжительность: 07:29:06 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F3DF0E95E74B35114BEB0C01FCC8AFFE639D692
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 760006   (905003) от 23.02.2014
 
 Schiller - Die Einlassmusik 10 (2013) [FLAC|Lossless]<Ambient, Chillout>
@@ -6,7 +61,7 @@ Schiller - Die Einlassmusik 10 (2013) [FLAC|Lossless]<Ambient, Chillout>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905003.jpg" />
 </div>
 
 
@@ -35,7 +90,7 @@ VA - Lovers Lounge: Chillout Your Mind (2017) [MP3|320 Kbps] <Chillout, Lounge, 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905002.jpg" />
 </div>
 
 
@@ -64,7 +119,7 @@ Kettel - Discography 27 Releases (2001-2020) [FLAC|Lossless|tracks+.cue, tracks]
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904918.jpg" />
 </div>
 
 
@@ -93,7 +148,7 @@ Scann-Tec | Broadcast Of Variants | Rotozey - 7 Releases (2010-2019) Celestial D
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904911.jpg" />
 </div>
 
 
@@ -119,7 +174,7 @@ VA - Cafe Chillout Lounge del Mar (2017) [MP3|320 Kbps] <Chillout, Lounge, Downt
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904891.jpg" />
 </div>
 
 
@@ -148,7 +203,7 @@ VA - Klubb House 2006 (2006) [FLAC|Lossless|tracks + .cue] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904228.jpg" />
 </div>
 
 
@@ -177,7 +232,7 @@ Astrix - He.Art (2016) [MP3|320 кб/с] <Psy-Trance, Full On>
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904089.jpg" />
 </div>
 
 
@@ -206,7 +261,7 @@ Heogen - Odd Radio Circle (2021) Touched Music [FLAC|Lossless|WEB-DL|tracks] <ID
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903965.jpg" />
 </div>
 
 
@@ -235,7 +290,7 @@ Krewella - zer0 (2020) [FLAC|Lossless|WEB-DL|tracks] <Dance, Electronic>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903815.jpg" />
 </div>
 
 
@@ -264,7 +319,7 @@ VA - Midnight Lounge Vol.25 Allure (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chi
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903681.jpg" />
 </div>
 
 
@@ -293,7 +348,7 @@ VA - Smoking Lounge: Luxury Chill-Out & Lounge Tunes Vol.7 (2017) [MP3|320 Kbps]
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903678.jpg" />
 </div>
 
 
@@ -322,7 +377,7 @@ VA - Jazz Lounge Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903669.jpg" />
 </div>
 
 
@@ -351,7 +406,7 @@ VA - KID Recordings presents: Compilations Collection - 6 Releases (2016-2019) [
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903662.jpg" />
 </div>
 
 
@@ -380,7 +435,7 @@ VA - Universal Language Lounge Anthems Vol.1 (2017) [MP3|320 Kbps] <Downtempo, L
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903551.jpg" />
 </div>
 
 
@@ -409,7 +464,7 @@ VA - Ibiza Soundset 2017: Beach Lounge and Chill Out  [MP3|320 Kbps] <Downtempo,
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903518.jpg" />
 </div>
 
 
@@ -438,7 +493,7 @@ VA - Vocal Chillout 2017. Chill Out Songs  [MP3|320 Kbps] <Downtempo, Chillout, 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903285.jpg" />
 </div>
 
 
@@ -467,7 +522,7 @@ VA - Red Velvet Erotic Lounge (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chill Ou
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903200.jpg" />
 </div>
 
 
@@ -496,7 +551,7 @@ Infected Mushroom - More than Just a Name (2020) [MP3|320 Kbps] <Psy-Trance, Dub
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903114.jpg" />
 </div>
 
 
@@ -525,7 +580,7 @@ Malk & StarJam - Elements (2016) [MP3|320 кб/с] <Electronic, Deep Dubstep>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902714.jpg" />
 </div>
 
 
@@ -554,7 +609,7 @@ Robbie van Doe - 16 Singles, 11 Remixes, 1 Tracks (2007 - 2016) [MP3|320 кб/с
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902434.jpg" />
 </div>
 
 
@@ -583,7 +638,7 @@ VA - Bangin' Future House, Vol. 1 (2018) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902114.jpg" />
 </div>
 
 
@@ -612,7 +667,7 @@ VA - Bangin' Future House, Vol. 2 (2018) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902112.jpg" />
 </div>
 
 
@@ -641,7 +696,7 @@ VA - EDM World Vol 10 (2020) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902039.jpg" />
 </div>
 
 
@@ -670,7 +725,7 @@ VA - Ego In Miami (2020) [MP3|320 Kbps] <House, Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902034.jpg" />
 </div>
 
 
@@ -684,64 +739,6 @@ VA - Ego In Miami (2020) [MP3|320 Kbps] <House, Electro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C91082B5E61C14EEB3822C613FFD183E086194DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369756   (902015) от 24.03.2020
-
-VA - 100 (Compiled by DJ PIN) (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902015.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Waterphonics - Not Real (Oeah Edit) (5:58)
-2. ArkoMo - Wunderwald (8:00)
-3. Dj Pin; Patchbay - Goa Wind (7:23)
-4. Hyperflex - Makumba (8:20)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:54:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8A464A298AA29AA0B8C8FE02E20ABE2C5D74637
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369721   (902010) от 24.03.2020
-
-VA - Nothing But... Soulful House Vibes, Vol. 07 (2020) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Des Jaguar - Forgive Myself [08:09]
-02. Chynaah Doll - I Hear The Rain (Joeflame Remix) [08:10]
-03. BSJ The Black Legend - Your Best Side (Dub Mix) [06:22]
-04. Gianni Ruocco - Groove Del Sol (Lazy Bug & Gabriel Grant Remix) [06:18](   Читать дальше...   )Жанр: HouseПродолжительность: 02:51:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F60221F1B00DA25F48BFCADF6BAF045422EFD0FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

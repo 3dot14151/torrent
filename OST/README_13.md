@@ -1,38 +1,3 @@
-###  Публикация: 529934   (564594) от 01.08.2012
-
-Ennio Morricone - Lolita / Лолита (Режиссёр Adrian Lyne) (1997) [MP3|320 кб/с]<OST Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564594.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Lolita (2:22)
- 2. Love in the Morning (3:38)
- 3. I'm in the Mood for Love (2:57)
- 4. Amor (2:58)
- 5. Take Me to Bed (2:53)
- 6. Lolita on Humbert's Lap (3:36)
- 7. Tain't What You Do (It's the Way That You Do It) (2:57)
- 8. Lolita in My Arms (1:38)
- 9. Requiescant (2:13)
- 10. Civilization (Bongo, Bongo, Bongo) (3:20)(   Читать дальше...   )Жанр: OST ScoreПродолжительность: 01:01:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB0A0C41614EA60C659374A3B6B25F6371E262BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 529933   (562947) от 02.08.2012
 
 Nelson Riddle & Bob Harris - Lolita / Лолита (Режиссёр Stanley Kubrick) (1962) [MP3|320 кб/с]<OST Score>
@@ -41,7 +6,7 @@ Nelson Riddle & Bob Harris - Lolita / Лолита (Режиссёр Stanley Kub
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562947.jpg" />
 </div>
 
 
@@ -76,7 +41,7 @@ Bear McCreary - Godzilla: King of the Monsters / Годзилла 2: Корол�
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561847.jpg" />
 </div>
 
 
@@ -105,7 +70,7 @@ Alan Menken & VA - Aladdin / Аладдин (Оригинальный саунд
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561563.jpg" />
 </div>
 
 
@@ -134,7 +99,7 @@ Really Slow Motion & Instrumental Core - Angels Among Demons (2015) [MP3|320 Kbp
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560078.jpg" />
 </div>
 
 
@@ -163,7 +128,7 @@ Really Slow Motion & Instrumental Core - Other Worlds (2015) [MP3|320 Kbps] <Sou
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560076.jpg" />
 </div>
 
 
@@ -192,7 +157,7 @@ VA - Southpaw (2015) [MP3|320 кб/с]<OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557477.jpg" />
 </div>
 
 
@@ -221,7 +186,7 @@ VA - Тупой и еще тупее 2 / Dumb and Dumber To (2014) [MP3|320 кб
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555337.jpg" />
 </div>
 
 
@@ -250,7 +215,7 @@ Hans Zimmer - X-Men: Dark Phoenix / Люди Икс: Тёмный Феникс (
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555173.jpg" />
 </div>
 
 
@@ -279,7 +244,7 @@ Olivier Deriviere - A Plague Tale: Innocence (Original Soundtrack) (2019) [MP3|3
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554182.jpg" />
 </div>
 
 
@@ -308,7 +273,7 @@ Jesse Harlin, Jim Bonney - Mafia III (Expanded Game Score) (2016) [MP3|320 кб/
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552750.jpg" />
 </div>
 
 
@@ -337,7 +302,7 @@ VA - Stranger Things / Очень странные дела (Original Series Sou
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552701.jpg" />
 </div>
 
 
@@ -366,7 +331,7 @@ Nick Murray & Roger Shah - Singularity (2016) [MP3|320 Kbps] <Soundtrack, Classi
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551851.jpg" />
 </div>
 
 
@@ -395,7 +360,7 @@ VA - Honey 3 - Dare to Dance (Original Motion Picture Soundtrack) (2016) [MP3|25
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544847.jpg" />
 </div>
 
 
@@ -424,7 +389,7 @@ Two Steps From Hell - Nemesis (2007) [MP3|320 кб/с]<OST Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542043.jpg" />
 </div>
 
 
@@ -459,7 +424,7 @@ Yoko Shimomura, VA - Final Fantasy XV Original Soundtrack (2016) 4 CD [MP3|320 K
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538839.jpg" />
 </div>
 
 
@@ -489,7 +454,7 @@ Atom Music Audio - Transcendence (2019) [MP3|320 Kbps] <Soundtrack, Instrumental
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536387.jpg" />
 </div>
 
 
@@ -518,7 +483,7 @@ Atom Music Audio - EON II (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic 
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536318.jpg" />
 </div>
 
 
@@ -547,7 +512,7 @@ VA - Blanck Mass Presents - The Strange Colour of Your Body's Tears Re-Score (20
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535582.jpg" />
 </div>
 
 
@@ -576,7 +541,7 @@ Dr. Dre - Compton (2015) [MP3|320 кб/с]<Soundtrack, Rap, Hip-Hop>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535158.jpg" />
 </div>
 
 
@@ -605,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532734.jpg" />
 </div>
 
 
@@ -631,7 +596,7 @@ Dario Marianelli & Regina Spektor - Kubo and the Two Strings / Кубо. Лег�
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_532546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532546.jpg" />
 </div>
 
 
@@ -660,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531779.jpg" />
 </div>
 
 
@@ -695,7 +660,7 @@ Bear McCreary - Child's Play / Детские игры (Original Motion Picture 
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530825.jpg" />
 </div>
 
 
@@ -724,7 +689,7 @@ Randy Newman - Toy Story 4 / История игрушек 4 (Оригиналь
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530816.jpg" />
 </div>
 
 
@@ -753,7 +718,7 @@ Randy Newman - Toy Story 4 / История игрушек 4 (Original Motion Pi
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530814.jpg" />
 </div>
 
 
@@ -767,6 +732,35 @@ Randy Newman - Toy Story 4 / История игрушек 4 (Original Motion Pi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D107D105DCF431293E2655AB7063222911768785
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927215   (529929) от 12.08.2015
+
+Marco Beltrami & Philip Glass - The Fantastic Four (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Soundtracks>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fantastic Four Prelude
+02. The Garage
+03. The Unveiling
+04. Baxter(   Читать дальше...   )Жанр: SoundtracksПродолжительность: 01:12:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84AF5B133D712339D04EF0EBACA5FFD319FEBFCE
 ```
 
 https://mybot314.ru/tekegram_catalog/

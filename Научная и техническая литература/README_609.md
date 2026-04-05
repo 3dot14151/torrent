@@ -1,136 +1,3 @@
-###  Публикация: 1708914   (62120) от 22.03.2024
-
-М.Р. Шебес | Задачник по теории линейных электрических цепей (1990) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62120.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге даны краткий справочный материал в виде основных положений и соотношений, расчетные формулы, типовые задачи с подробными решениями и пояснениями, примеры применения основных методов расчета электрических цепей в установившемся и переходном режимах, примеры задач с использованием программируемых микрокалькуляторов. 4-е издание (3-е-—1982 г.) дополнено задачами (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: Высшая школаФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:192F2D2DB703875E91CE4DDFC2740C14E29FAECC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708913   (62117) от 22.03.2024
-
-М.Р. Шебес | Теория линейных электрических цепей в упражнениях и задачах (1973) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель данного учебного пособия - оказать помощь студентам в их самостоятельной работе. К большему количеству задач даны подробные решения и пояснения, к некоторой части задач - методические указания, ко всем остальным задачам - ответы.
-Примеры страницЖанр: ЭлектротехникаИздательство: Высшая школаФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A68263F44A2238607DE461DC2FB5AE6D5065E96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 249332   (61973) от 24.03.2024
-
-Л.Орлова | Женьшень [2006] [PDF]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61973.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издревле известны целебные свойства женьшеня. При каких недугах поможет этот чудо-цветок и как правильно применять препараты женьшеня читатель узнает из этой книги.
- Женьшень является лекарственным средством, внесенным в государственную фармакопею. И это не случайно. На нашей планете нет, пожалуй, другого растения, которое пользовалось бы столь огромной славой всеисцеляющего средства, кок женьшень. И, наверное, ни о каком ином растении в мире не сложено больше легенд и преданий, чем о женьшене.
- Стресс, синдром хронической усталости, импотенция, сердечно-сосудистые и простудные заболевания — о том, как победить эти недуги с помощью «человека-корня», рассказывает эта книга.Жанр: Фитотерапия, народная медицинаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74A98E8D6B9F98D2669F1833A6E62FCDA09C6B1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709345   (61937) от 24.03.2024
-
-Роберт Миддлкауф | Славное дело. Американская революция 1763-1789 (2015) [FB2, PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61937.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Роберта Миддлкауфа издана в серии «Оксфордская история США», где каждый том посвящен определенному периоду. «Славное дело» сочетает академическую строгость с живым и привлекательным стилем. Автор, делая масштабный обзор Американской революции, пересматривает и раздвигает границы популярных представлений об этом периоде, детально анализируя дипломатические и (   Читать дальше...   )Жанр: ИсторияПеревод: Максим Леонович, Д. Голубцов, Олег МичковскийИздательство: ООО «Издательство Гонзо», ЕкатеринбургФормат: FB2, PDFКачество: FB2 - Изначально электронное (ebook), PDF - хороший скан + OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA4DB1D6210D1378705FDFCFBAC864AA15F13045
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709665   (61826) от 25.03.2024
-
-И.Н. Орлов | В начале творческого пути (1986) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Советы студентам технических вузов. Цель книги - помочь студентам овладеть глубокими профессиональными знаниями.Жанр: Учебно-воспитательная работаИздательство: Высшая школаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A98F98F27A205F7112284D1271B0EA3F592CB2AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1709689   (61797) от 25.03.2024
 
 П.А. Бутырин (ред.) | Сборник задач по теоретическим основам электротехники (2012) [PDF]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61797.jpg" />
 </div>
 
 
@@ -165,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61407.jpg" />
 </div>
 
 
@@ -192,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61400.jpg" />
 </div>
 
 
@@ -218,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61374.jpg" />
 </div>
 
 
@@ -245,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61296.jpg" />
 </div>
 
 
@@ -272,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61181.jpg" />
 </div>
 
 
@@ -298,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61078.jpg" />
 </div>
 
 
@@ -324,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60978.jpg" />
 </div>
 
 
@@ -350,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60884.jpg" />
 </div>
 
 
@@ -379,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60755.jpg" />
 </div>
 
 
@@ -405,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60489.jpg" />
 </div>
 
 
@@ -431,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60430.jpg" />
 </div>
 
 
@@ -457,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60048.jpg" />
 </div>
 
 
@@ -483,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60010.jpg" />
 </div>
 
 
@@ -509,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59862.jpg" />
 </div>
 
 
@@ -537,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59841.jpg" />
 </div>
 
 
@@ -563,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59832.jpg" />
 </div>
 
 
@@ -589,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59820.jpg" />
 </div>
 
 
@@ -615,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59738.jpg" />
 </div>
 
 
@@ -642,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59697.jpg" />
 </div>
 
 
@@ -668,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59690.jpg" />
 </div>
 
 
@@ -679,6 +546,144 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2142D1E84DB099BCB06C98665C70C1352690217D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716476   (59665) от 15.04.2024
+
+Вячеслав Дубынин | Мозг и его потребности 2.0. От питания до признания (Обновленное издание) (2024) [PDF, FB2, RTF, EPUB]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обновленное издание знаменитого бестселлера.
+Эта книга – самый полный путеводитель по работе мозга и биологическим потребностям человека. Написанная профессором, нейрофизиологом Вячеславом Дубыниным, она приближает читателя к пониманию собственного организма, учит управлять природными механизмами тела, чтобы реализовать личную одаренность.
+Книга объясняет:
+– Почему (   Читать дальше...   )Жанр: Нейробиология, нейрофизиология, нейропсихологияИздательство: ЭксмоФормат: PDF, FB2, RTF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C564BA30D170716F325F0F38519A818DD6769061
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716474   (59635) от 15.04.2024
+
+Гарретт Райан | Обнаженные статуи, толстые гладиаторы и боевые слоны. Необычные истории о жизни в Древней Греции и Риме (2024) [FB2]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59635.jpg" />
+</div>
+
+
+###  Подробнее
+
+В серии коротких юмористических эссе Гарретт Райан, профессор Мичиганского университета, исследует историю Древнего мира через частную и социальную жизнь обычных людей. Что они ели и пили? Как развлекались и занимались спортом? Как создавали семьи и расставались? Познакомьтесь с историей Древней Греции и Рима через увлекательные подробности повседневной жизни!
+
+Из (   Читать дальше...   )Жанр: Зарубежная образовательная литератураПеревод: А. В. ЯконюкИздательство: ЭксмоФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DED35A80B3F739F33C26643BBFB210F1CCA19EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716443   (59623) от 15.04.2024
+
+Д. Босуэлл, М. Константино | Преднамеренная практика в когнитивно-поведенческой терапии (2023) [PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59623.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отработка ключевых навыков в КПТ на практике
+В центре внимания этой книги находится проблема, с которой сталкиваются многие психотерапевты, от студентов-начинающих, до опытных специалистов, — разрыв между теоретическими знаниями о психотерапии и способностью надежно проводить ее, применяя эти знания на практике. Для преодоления этой проблемы авторы предлагают использовать (   Читать дальше...   )Жанр: ПсихологияИздательство: Видавець ТОВ "Науковий Світ", КиївФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B5C36BCE9EC6FBD883C6F0F9ADE4654BBBD0671
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708776   (59315) от 18.04.2024
+
+П.А. Ионкин | Сборник задач по теоретическим основам электротехники (1982) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Содержание задачника охватывает все разделы теории линейных и нелинейных цепей и теории электромагнитного поля курса теоретических основ электротехники и соответствует утвержденной программе.
+В сборнике приведены задачи, как иллюстрирующие тот или иной метод расчета, так и возникающие при исследовании реальных электротехнических устройств. Все задачи имеют ответы, (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: ЭнергоатомиздатФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05A63185DE97D1F2751D58521A75EC6B0A8929BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717779   (59036) от 21.04.2024
+
+Р.М. Марстон | Circuits Manual [10 книг] (1987 - 1998) [PDF] [En]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59036.jpg" />
+</div>
+
+
+###  Подробнее
+
+Руководство по схемам — бесценное руководство для инженеров и технических специалистов. Он также окажется полезным руководством для студентов и экспериментаторов, а также предоставит опытным любителям и любителям DIY множество идей.
+Как и во всех руководствах по схемам Рэя Марстона, стиль книги прост для чтения и не содержит математической информации, с упором на (   Читать дальше...   )Жанр: ЭлектроникаЯзык: АнглийскийИздательство: NewnesФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD629EA962AD0C88C590796057AB02D7011378CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

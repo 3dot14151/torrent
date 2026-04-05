@@ -1,135 +1,3 @@
-###  Публикация: 993660   (895061) от 05.03.2016
-
-Станислав Дугин | Самоучитель английского языка. Новая методика обучения (2015) [PDF, DJVU]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895061.jpg" />
-</div>
-
-
-###  Подробнее
-
-В последние годы появилось большое количество пособий и самоучителей, обещающих научить английскому языку за 6-8 недель.
- Ну что ж, для будущего мойщика посуды в каком-нибудь нью-йоркском ресторане этого, может быть, и достаточно. Но если ваша цель - научиться правильно и грамотно читать, писать и говорить по-английски, вы просто обязаны познакомиться с определенными (   Читать дальше...   )Жанр: Английский языкФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D5836F59900185B6D55B91EF7108EC4DD109CB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370790   (895058) от 28.03.2020
-
-Герд Леонгард | Технологии против человека (2018) [EPUB]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895058.jpg" />
-</div>
-
-
-###  Подробнее
-
-Технологии захватывают мир, и грани между естественным и рукотворным становятся все тоньше. Возможно, через пару десятилетий мы сможем искать информацию в интернете, лишь подумав об этом, – и жить многие сотни лет, искусственно обновляя своё тело. А если так случится – то что будет с человечеством? Что, если технологии избавят нас от необходимости работать, от старения (   Читать дальше...   )Жанр: Научно-популярная литератураФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E0BD9F598A29240EE923CABD50A79EAA58669BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370771   (895048) от 28.03.2020
-
-Закарайя Арти | Homo Futurus. Облачный Мир. Эволюция сознания и технологий (2019) [EPUB]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вселенная и само мироздание – суть Великая Спираль. Посему и процесс эволюционного роста представляет собой движение вверх по спирали. Говорят, что история повторяется. Не совсем. Препятствие, которое было таковым сто лет назад, сегодня окажется маленьким холмиком далеко внизу, под ногами.
-Человек несовершенен. Сейчас мы не обладаем объективной информацией о собственной (   Читать дальше...   )Жанр: Научно-популярная литератураФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E00B6505D1520EBE6A2704F3F0E31447C18EC95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370726   (895037) от 28.03.2020
-
-Л.Д. Ландау, А.И. Китайгородский | Электрон. Энергия Космоса (2017) [PDF]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895037.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книги лауреата Нобелевской премии Льва Ландау и Александра Китайгородского – тексты, переворачивающие обывательское представление об окружающем мире. Большинство из нас, постоянно сталкиваясь с физическими явлениями и процессами, не осознает и не думает об их сложном устройстве. Не говоря уже о строении материй и структуре веществ, с которыми в повседневности происходят (   Читать дальше...   )Жанр: Научно-популярная литература, ФизикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:634602882D05E2DD17320F29C98BCA46BB4C30C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370792   (895023) от 28.03.2020
-
-Роберт Хофрихтер | Таинственная жизнь грибов. Удивительные чудеса скрытого от глаз мира (2019) [EPUB]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895023.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наш прекрасный мир и его чудесная природа обрели свой вид только благодаря грибам, без которых немыслима ни одна экосистема. Без них не было бы ни наших лесов, ни нашего климата, да и, возможно, самой жизни. Грибы вездесущи, и, если использовать их правильно, они могут помочь нам в совершенно неожиданных областях. Грибы – партнеры, грибы – мастера утилизации отходов, (   Читать дальше...   )Жанр: Научно-популярная литератураФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD519A7178A603C7F2693028C08FDACD705E20A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370781   (895008) от 28.03.2020
 
 Александр Никонов | Физика и астрофизика. Краткая история науки в нашей жизни (2019) [EPUB]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895008.jpg" />
 </div>
 
 
@@ -164,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895006.jpg" />
 </div>
 
 
@@ -190,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895003.jpg" />
 </div>
 
 
@@ -216,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894930.jpg" />
 </div>
 
 
@@ -242,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894871.jpg" />
 </div>
 
 
@@ -268,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894826.jpg" />
 </div>
 
 
@@ -294,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894436.jpg" />
 </div>
 
 
@@ -321,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894288.jpg" />
 </div>
 
 
@@ -348,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894060.jpg" />
 </div>
 
 
@@ -374,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893966.jpg" />
 </div>
 
 
@@ -403,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893923.jpg" />
 </div>
 
 
@@ -432,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893863.jpg" />
 </div>
 
 
@@ -458,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893703.jpg" />
 </div>
 
 
@@ -485,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893696.jpg" />
 </div>
 
 
@@ -511,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893665.jpg" />
 </div>
 
 
@@ -537,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893657.jpg" />
 </div>
 
 
@@ -563,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893651.jpg" />
 </div>
 
 
@@ -589,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893586.jpg" />
 </div>
 
 
@@ -616,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893506.jpg" />
 </div>
 
 
@@ -642,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893501.jpg" />
 </div>
 
 
@@ -668,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893469.jpg" />
 </div>
 
 
@@ -681,6 +549,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:586B593667CC3F9809D86A6920D7CF97ECD2D385
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993463   (893459) от 06.03.2016
+
+И.В. Семушин и др. | Вычислительная линейная алгебра в проектах на C# (2014) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие охватывает базовые алгоритмы вычислительной линейной алгебры (ВЛА) и ориентирует на их анализ и полномасштабное исследование методом проектов. Предлагаемые авторами проекты содержат более 250 индивидуальных заданий по основным темам ВЛА в трёх частях: "Стандартный курс", "Повышенный курс" и "Специальный курс". Учебное (   Читать дальше...   )Жанр: Математика, информационные системыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05BD762600DD45316D3C8415FF0080814F2AF926
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993765   (893458) от 06.03.2016
+
+С. Р. Микулинский, М. Г. Ярошевский | Об историческом пути психофизиологии [Анализ некоторых коренных проблем психофизиологии в трудах В. И. Ленина] (1970) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893458.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отстаивая в противовес махизму и развивая соответственно новым социально-историческим запросам теорию отражения, В. И. Ленин рассмотрел в связи с этой задачей ряд коренных психофизиологических проблем. Ленинские идеи и выводы позволяют проследить характер соотношений между философскими тенденциями и успехами в конкретном изучении нервно-психических актов на каждом (   Читать дальше...   )Жанр: История, философия, психология, психофизиология, нейрофизиологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CE3E65CD8C671C07A07CA08C6C0E01311A53D36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993594   (893456) от 06.03.2016
+
+М. П. Ивановский | Рождение миров [Очерк современных представлений о возникновении и развитии Солнечной системы] (1951) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Космогония — наука о происхождении и развитии небесных тел — является важнейшей отраслью астрономии, так как она, соединяя в себе астрофизику (физику небесных тел) и звездную астрономию (науку о строении звездных систем), позволяет единственно правильно диалектически разрешить проблему внутреннего строения планет и звезд и найти источники звездной энергии, одновременно (   Читать дальше...   )Жанр: История, космогония, астрономия, физика, химия, науковедениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:586EECE8594319ABB21027001E44DBF3BFF52E3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993413   (893450) от 06.03.2016
+
+Андрей Кашкаров | Справочное пособие по системам охраны с пироэлектрическими датчиками (2016) [FB2]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Справочное пособие будет полезно разработчикам и установщикам популярных (современных) охранных систем с пироэлектрическими детекторами. В книге приведены сравнительные характеристики разных систем и модификаций, а также даны рекомендации по совместимости разных датчиков- пироэлектрических сенсоров с контрольными панелями систем охраны разных производителей.
+Проблема (   Читать дальше...   )Жанр: Техническая литература, справочное пособиеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B23DD4D70F2AC6E29B79EC7E497E16D13F08D20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370984   (893411) от 29.03.2020
+
+Г. Лебег | Об измерении величин (1938) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893411.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена основным вопросам преподавания элементарной математики: понятиям длины, площади, объема; рассматриваются также более общие вопросы об измеримых величинах, о производной и интеграле, причем рассуждения ведутся для пространства n измерений.
+
+Педагогические соображения автора обладают свежестью и глубиной и способны оказывать значительное воспитывающее (   Читать дальше...   )Жанр: История, науковедение, математикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5717472FC2AF49082DDD579229F3D1E65FBA4C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

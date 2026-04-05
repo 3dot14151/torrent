@@ -1,3 +1,55 @@
+###  Публикация: 1111365   (847764) от 05.03.2017
+
+Rogue Warrior (2009) [Ru] (1.0) License
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный персонаж игры - знаменитый Дик Марсинко, основатель Шестой группы «морских котиков» (SEAL Team Six), лучший профессиональный солдат, прославившийся непримиримостью к врагам. В ходе проведения секретной операции за железным занавесом погибли все бойцы его диверсионной группы. Марсинко остался один. Но миссия должна быть выполнена любой ценой!Тип издания: LicenseРазработчик: Rebellion DevelopmentsЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E799057CD029924D6A2165C78CFCF607B0B32600
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499537   (847280) от 02.10.2021
+
+In Sound Mind (2021) [Ru/Multi] (1.01.0916) Repack Other s
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847280.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы просыпаетесь в коридорах странного здания, где окружающая обстановка живёт своей жизнью и приводит вас к нескольким жертвам, каждая из которых пережила одну и ту же экспериментальную терапию. Пока вы пытаетесь разобраться в происходящем, вам являются жуткие видения, леденящие душу кошмары... и кошка Tonia. Создатели культовой классической игры Nightmare House (   Читать дальше...   )Тип издания: RepackРазработчик: We Create StuffЖанр: Action (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60977E824796647679A03CCF2DBF41DE6486AA97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1499703   (847262) от 02.10.2021
 
 S.T.A.L.K.E.R.: Shadow of Chernobyl / S.T.A.L.K.E.R.: Тень Чернобыля (2007) [Ru] (1.0006) Repack West4it
@@ -6,7 +58,7 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl / S.T.A.L.K.E.R.: Тень Чернобыл�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847262.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Homefront: The Revolution (2016) [Ru/En] (1.078.1055/dlc) Repack R.G. Revenants 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840868.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ One Sole Purpose (2017) [En] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840858.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Nether: Resurrected (2014) [Ru/En] (2014 June) Repack Pioneer
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837517.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ S.T.A.L.K.E.R. Shadow of Chernobyl - Конец Света 2: Последний
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837510.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ Shogo: Mobile Armor Division / Ярость: Восстание на Крону�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835614.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ Follia Dear Father (2020) [Ru/Multi] (3.86) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835537.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ Far Cry 3: Blood Dragon (2013) [Ru/En] (1.0.1) RePack R.G. Games
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832312.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ Stairs (2015) [En] (1.0) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832141.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ Crysis 2 (2011) [Ru] (1.9) Repack/Mod Agastan [HD Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831951.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ Resilience: Wave Survival (2015) [En] (Build 26) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828215.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ Outlast Dilogy (2013-2017) [Ru/Multi] Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825536.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ Obscuritas (2016) [Ru/Multi] (1.0) Repack ARMENIAC
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824517.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ Cold Fear (2005) [Ru/Multi] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_824030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_824030.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ Deus Ex: Mankind Divided (2016) [Ru/En] (1.19hf/dlc) Repack  xatab [Digital Delu
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823829.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ The Tape (2015) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822826.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ Putrefaction (2015) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822600.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ Dead Secret (2016) [En] (1.0) Rip Unleashed
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822599.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ Deus Ex: Human Revolution (2013) [Ru/Multi] (2.0/dlc) Repack West4it [Director's
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_822093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822093.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ SOMA (2015) [Ru/Multi] (1.500) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821992.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ Worst Case Z (2016) [En/De] (1.0) License CODE
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818716.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ White Noise 2 (2017) [Ru/Multi] (1.0/upd46/dlc) License PLAZA [Complete Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818645.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818609.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ Wolfenstein: The Old Blood (2015) [Ru/En] (1.0) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816583.jpg" />
 </div>
 
 
@@ -619,60 +671,6 @@ Wolfenstein: The Old Blood – предыстория игры Wolfenstein: The 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E7B67EB9B878DE558E0181C34B14788D36CA80F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 883051   (816345) от 29.03.2015
-
-Red Orchestra: Ostfront 41–45 (2006) [Multi] (1.0) License PROPHET
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816345.jpg" />
-</div>
-
-
-###  Подробнее
-
-Red Orchestra: Ostfront 41-45 предоставляет игроку на выбор 28 видов оружия пехоты и 14 реалистичных транспортных средств советской армии 1941-45 годов.
-
-В игре присутствует более десятка карт, призванных воспроизвести сражения Второй мировой войны. Все эти особенности делают Red Orchestra непревзойденным симулятором боевых действий от первого лица.Тип издания: ЛицензияРазработчик: Tripwire InteractiveЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: В зависимости от стороны (Русский, немецкий)Язык интерфейса: Английский, Польский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2057CA3B4FDD504B4918F85EEC74C0242BE5EEF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503902   (815402) от 21.10.2021
-
-Into the Pit (2021) [Multi] (368) License GOG
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815402.jpg" />
-</div>
-
-
-###  Подробнее
-
-Динамичный Roguelite Shooter от первого лица в стиле ретро! Как член семьи мистиков, охотящихся за знаниями, Вас вызывают в проклятую деревню, привлечённую слухами о демоническом портале. Тёмная магия захлестнула деревню. Вам предстоит спасти выживших, развить свои силы и отправиться в Яму. Вы и ваш кузен Luridia по отдельности странствуете по земле, следуя слухам (   Читать дальше...   )Тип издания: LicenseРазработчик: Nullpointer GamesЖанр: First Person Shooter, Action, RogueliteЯзык интерфейса: Английский, Французский, Немецкий, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BCB404ACCEC33DC7BB325643EC8AE31A63FC61E
 ```
 
 https://mybot314.ru/tekegram_catalog/

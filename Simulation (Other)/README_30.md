@@ -1,3 +1,29 @@
+###  Публикация: 1764750   (34817) от 08.12.2024
+
+Hairdresser Simulator (2024) [Ru/Multi] (1.030/dlc) Repack seleZen
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34817.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Hairdresser Simulator игрок возьмется за расческу и ножницы, чтобы заняться созданием великолепных причесок. Со временем пользователь станем мастером, который усовершенствует свои навыки и расширит салон и спектр услуг в нем. В симуляторе парикмахера предстоит не только делать прически, но и управлять заведением, зарабатывая деньги и расширяя свой бизнес.Тип издания: RepackРазработчик: Petard GamesЖанр: Казуальные игры, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F1F8F42B8B09267ABAF0E17E3817EE9E53C1285
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652704   (34758) от 09.12.2024
 
 Sun Haven (2023) [Ru/Multi] (1.7.3/dlc) Scene Tenoke
@@ -6,7 +32,7 @@ Sun Haven (2023) [Ru/Multi] (1.7.3/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34758.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Primateria (2023) [Multi] (2.17.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34749.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Thief Simulator (2018) [Ru/Multi] (1.8/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34518.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Hairdresser Simulator (2024) [Ru/Multi] (1.030/dlc) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34020.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Autopsy Simulator (2024) [Ru/Multi] (Build 153 413) Repack Let'sРlay [Deluxe Ed
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34005.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ The Cabin Factory (2024) [Ru/Multi] (1.07) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33909.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ The Cabin Factory (2024) [Ru/Multi] (1.07) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33795.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ The Cabin Factory (2024) [Ru/Multi] (1.07) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33486.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Oxygen Not Included (2019) [Ru/Multi] (647408/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33348.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Moving Out 2 (2023) [Ru/Multi] (1.3.311/dlc) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33153.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Cooking Simulator (2019) [Ru/Multi] (6.0.14/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32962.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Critter Café (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32930.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ The Universim (2018) [Ru/Multi] (1.2.0.48225) License GOG [Collector's Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32892.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Transport Fever 2 (2019) [Ru/Multi] (35924.0/dlc) License GOG (обновляе�
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32577.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Recycling Center Simulator (2024) [Ru/Multi] (1.1.6) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32510.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Architect Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32471.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ My Time at Sandrock (2023) [Ru/Multi] (1.4.2/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32376.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ MiSide (2024) [Ru/Multi] (0.9) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32271.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ On Your Tail (2024) [Multi] (1.0.1) Repack FitGirl [Deluxe Bundle]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32235.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Flashing Lights - Police, Firefighting, Emergency Services Simulator (2023) [Ru/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32025.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ The Universim (2018) [Ru/Multi] (1.2.0.48225) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32021.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Garry's Mod (2006) [Ru/Multi] (Build 162138607) Repack dixen18
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31950.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Beach Invasion 1945 - Pacific (2023) [Ru/Multi] (1.0/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31828.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Shop Simulator: Supermarket (2024) [Ru/Multi] (1.0.5.2) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31810.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Gold Mining Simulator (2017) [Ru/Multi] (1.8.2.858/dlc) Repack Let'sРlay [Gold 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31453.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Gold Mining Simulator (2017) [Ru/Multi] (1.8.2.858/dlc) Repack Let'sРlay [Gold 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:015BEC26E9344F8F8D0BEBA05C3059C7283B599F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771785   (31422) от 10.01.2025
-
-My Summer Car (2016) [En] (241230-03) Repack FitGirl
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31422.jpg" />
-</div>
-
-
-###  Подробнее
-
-My Summer Car – симулятор жизни финского, 19-тилетного паренька, который живёт на даче в живописных лесах. Его родственники на отдыхе в Тенерифе, весь дом, а главное, гараж, в его распоряжении. Создана на Unity, благодаря гибкости данного движка, и стало возможно добавить столько механик, о которых ниже. Основным вашим занятием будет восстановление древнего автомобиля (   Читать дальше...   )Тип издания: RepackРазработчик: Amistech GamesЖанр: Инди, Гонки, СимуляторыЯзык озвучки: ФинскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D517A3257135EDBDB44E9E7C0ABD28D96A79CCD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1359875   (963156) от 13.02.2020
+
+Слободан Стойичевич | Сетевая война против сербов. Уроки для России (2020) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сетевая война – абсолютно новый и малоизученный способ агрессии, используемый США для завоевания и порабощения других стран. В этой книге кратко, доходчиво и систематизировано перечисляются сетевые техники и описываются способы их применения на примере Республики Сербия и Сербской Православной Церкви, атакованных Западом через сетевые структуры внутри и вне страны. (   Читать дальше...   )Жанр: Политология, ПублицистикаПеревод: Ирина СтойичевичФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C93CB8588139187E605499C444A7A93BD7E26293
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1360531   (960790) от 15.02.2020
 
 Николай Склифосовский | Спасая жизни. Дневник военного хирурга (2019) [EPUB]
@@ -6,7 +32,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960790.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960669.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959343.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958073.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957283.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956231.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956057.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955991.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955872.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955123.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954634.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954551.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954195.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951453.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951397.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951203.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951121.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950920.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950891.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950659.jpg" />
 </div>
 
 
@@ -538,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949731.jpg" />
 </div>
 
 
@@ -566,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949587.jpg" />
 </div>
 
 
@@ -593,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949474.jpg" />
 </div>
 
 
@@ -619,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949190.jpg" />
 </div>
 
 
@@ -645,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948243.jpg" />
 </div>
 
 
@@ -657,32 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DEE5E476E9237B8EA1D76314A9BF28E2B9EF177
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362710   (948120) от 24.02.2020
-
-Макс Фрай | Не мешки (2020) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Название этой книги отсылает нас к общеизвестной непечатной поговорке, смысл которой сводится к тому, что вербальный труд легче физического. Не хотелось бы вот так сразу соглашаться с народной мудростью, но знаете, положа руку на сердце, всё-таки – да. В книгу включены дневниковые записи и фрагменты из переписки с друзьями, сделанные в течение последних полутора (   Читать дальше...   )Жанр: Публицистика, Современная русская прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA46FED6A424451F2F71C43552269973138DFA5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

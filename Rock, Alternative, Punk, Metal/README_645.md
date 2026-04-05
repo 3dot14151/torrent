@@ -1,3 +1,32 @@
+###  Публикация: 1572424   (421376) от 27.08.2022
+
+Cavalera Conspiracy - Сollection (2008-2017) 4CD [FLAC|Lossless|tracks + .cue] <Groove Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421376.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cavalera Conspiracy — Бразильско-Американская метал-группа, образованная братьями Игорем Кавалерой (ударные) и Максом Кавалерой (ритм-гитара, вокал). Помимо них, в группе принимает участие Марк Риццо (соло-гитара).Список альбомов:
+2008 - Inflikted
+2011 - Blunt Force Trauma
+2014 - Pandemonium(   Читать дальше...   )Жанр: Groove Thrash MetalПродолжительность: 03:02:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E93379AFC4913D64671D27F9803FFA48D4F043F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1324769   (421321) от 11.09.2019
 
 Liv Sin (ex-Sister Sin) - Burning Sermons (2019) [MP3|320 Kbps] <Heavy Metal>
@@ -6,7 +35,7 @@ Liv Sin (ex-Sister Sin) - Burning Sermons (2019) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421321.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Belphegor - Collection (1993 - 2017) 13CD [FLAC|Lossless|image + .cue] <Death, B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421208.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Janis Joplin (Big Brother & The Holding Co. feat. Janis Joplin) - 22 albums, 1 B
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421041.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Imperial Age - New World (2022) [MP3|320 Kbps] <Symphonic Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_421032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421032.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Heart - Два альбома (2010-2012) [FLAC|Lossless|image + .cue|tracks + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420949.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420817.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ Neurogenic - Ouroboric Stagnation (2016) [WavPack|Lossless|image + .cue] <Brutal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420797.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ Raven - ExtermiNation (2015) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420796.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ House Of X - House Of X (2014) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420790.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ Shaman - Reason (2005) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420788.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ Shaman - Origins (2010) [APE|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420786.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ Shaman - RituAlive (2004) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420776.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ Memoira - 3 Albums (2008-2020) [FLAC|Lossless|WEB-DL|tracks] <Symphonic-Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420774.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ Shaman - Immortal (2007) [APE|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420643.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ Setka - Silent Warning (2020) [MP3|320 Kbps] <Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420642.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ Blues Pills - Holy Moly! (2020) [FLAC|Lossless|tracks + .cue] <Psychedelic Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420639.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ Frigoris - ...in Stille (2020) [FLAC|Lossless|Web-DL|tracks] <Black Metal, Atmos
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420637.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ Shaman - Ritual (2002) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420634.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ Anaal Nathrakh - Endarkenment (2020) [MP3|320 Kbps] <Black Metal, Grindcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420632.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ Coney Hatch - Coney Hatch (1982) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420557.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ Fish - Weltschmerz (2020) 2xCD [FLAC|Lossless|WEB-DL|tracks + .cue] <Art Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420439.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420435.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ VA - Black Mark Tribute (1997) [FLAC|Lossless|image + .cue] <Thrash Metal, Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420402.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ VA - Blackend - The Black Metal Compilation Vol. 2 (1996) 2CD [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420401.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ Saxon - Battering Ram (2015) [MP3|320 кб/с]<Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420384.jpg" />
 </div>
 
 
@@ -713,35 +742,6 @@ Saxon - Battering Ram (2015) [MP3|320 кб/с]<Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6847B4D4630F4F1885FB39CD4E32E30FCF00A93D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947289   (420383) от 16.10.2015
-
-Курара - Бойз донт край (2015) EP [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Бойз донт край
- 02. Грясь 13
- 03. Лору Палмер (Марсу Нужны Любовники Remix)
- 04. Ответы (Переделка Феликса Беспомощного)(   Читать дальше...   )Жанр: RockПродолжительность: 00:27:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D88A9F874EAD0692486BF0887679EF36360A5923
 ```
 
 https://mybot314.ru/tekegram_catalog/

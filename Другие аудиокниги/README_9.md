@@ -1,3 +1,55 @@
+###  Публикация: 1116722   (820923) от 21.03.2017
+
+Радио «Комсомольская правда» | Тёмные истории на «Комсомольской правде» (2014-2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820923.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывает, в жизни происходят настолько странные и необъяснимые вещи, что не говорить про них нельзя, а объяснить - невозможно. О некоторых из таких случаях в мировой истории и рассказывается в выпусках «Тёмных историй» в эфире радио «Комсомольская правда».Жанр: РадиопередачаПродолжительность: 02:27:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:681CAAE5C7970FA75B5D1F1EF8F87C07E319C064
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007673   (819758) от 16.04.2016
+
+Юрий Ильинский | За ядовитыми змеями (2012) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга полна интересных фактов, встреч с людьми и забавных приключений. Вместе с автором читатель совершит путешествие в Среднюю Азию - змеиное царство, в горную Армению, в Дагестан, посетит Индию, север Сибири.Жанр: Познавательная литератураПродолжительность: 05:16:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF3E92DEA7E828F4CCEA56867965F4E014A6E223
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007709   (819644) от 16.04.2016
 
 Владимир Кунин | Старшина (2016) [MP3]
@@ -6,7 +58,7 @@
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819644.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819098.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816038.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816032.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815678.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811929.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811922.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810328.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ Romuald | Грозовой пегас (2016) [MP3]
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806104.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805604.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805483.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804183.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802010.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801588.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799657.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799643.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799234.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799218.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797027.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795411.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795146.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794725.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793504.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793501.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65780871B0940DB2812CE07FE1171F06F158B9A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201373   (792779) от 24.01.2018
-
-Софья Толстая | Чья вина (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792779.jpg" />
-</div>
-
-
-###  Подробнее
-
-«…Я сама в сердце своем почувствовала, что эта повесть направлена в меня, что она сразу нанесла мне рану, унизила меня в глазах всего мира и разрушила последнюю любовь между нами», пишет Софья Толстая о «Крейцеровой сонате» в своем дневнике зимой 1891 года. Выдающееся событие в литературной жизни 80-х годов XIX столетия, «Крейцерова соната» демонстрирует на примере (   Читать дальше...   )Жанр: ПублицистикаПродолжительность: 04:38:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7875A4EDD38A4FCB723CA9B5989BBFE94493BEDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387055   (792429) от 31.05.2020
-
-Питер Эшер | The Beatles от A до Z: необычное путешествие в наследие «ливерпульской четверки» (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Британский писатель, продюсер и музыкант Питер Эшер рассказывает историю «Битлз» через песни: их собственные, их коллег, предшественников и последователей. Для этого он использует классическую алфавитную систему, однако применяет ее неожиданным образом. К примеру, вы не встретите известнейших «Yesterday» на букву Y или «All you need is love» на букву A, вместо этого (   Читать дальше...   )Жанр: Зарубежная литература о культуре и искусстве, МузыкаПродолжительность: 08:11:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AC0403957AB58DD44A848160517273F313EBD18
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1857512   (1059720) от 06.03.2026
+
+SOMA (2015) [Ru/Multi] (Build 20049349) Repack dixen18
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059720.jpg" />
+</div>
+
+
+###  Подробнее
+
+SOMA - научно-фантастический хоррор от Frictional Games, авторов Amnesia. Игра погружает игрока в тревожную историю о личности, сознании и человечности на полуразрушенной подводной станции, где роботы начинают считать себя людьми. Геймплей сочетает исследование, решение головоломок и скрытное перемещение, чтобы выжить и разгадать тайны станции.Тип издания: RepackРазработчик: Frictional GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCDAB59613B8FA5156336723D68CE9EDD7601B0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857499   (1059717) от 06.03.2026
+
+The Last Express (2013) [Multi] (1.0) License GOG [Gold Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059717.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сядьте в вагон «Восточного экспресса» 1914 года в этой отмеченной наградами приключенческой игре от создателя «Принца Персии» Джордана Мехнера. Описанная как одна из лучших приключенческих игр всех времён, «Последний экспресс» - это полное интриг приключение, действие которого разворачивается на борту роскошного «Восточного экспресса».Тип издания: LicenseРазработчик: DotEmuЖанр: Приключенческие игрыЯзык озвучки: Английский, Немецкий, Французский, Итальянский и другиеЯзык субтитров: Английский, Немецкий, Французский, Итальянский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CDF6C1F34BFCF891668563A1A0ED0681C239D12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857082   (1059378) от 04.03.2026
+
+Survivalist: Invisible Strain (2020) [Ru/Multi] (269) Repack Pioneer
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059378.jpg" />
+</div>
+
+
+###  Подробнее
+
+Десять лет назад людей начала косить болезнь. Поселения, которые продержались все это время, по неясным причинам начинают рушиться одно за другим. Выжившие бегут от новой опасности. Вы - один из них, и вам предстоит найти свой путь в жизни… любой ценой. Survivalist: Invisible Strain - симулятор управления колонией в открытом мире, действие которого происходит в зомби-апокалипсисе, (   Читать дальше...   )Тип издания: RepackРазработчик: BobЖанр: Экшены, Приключенческие игры, Инди, Ролевые игры, Симуляторы, СтратегииЯзык интерфейса: Русский, Английский, Японский, Корейский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CED0AE995FA8F8CAC359717BF6C9564E1B9D9A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1857135   (1059336) от 04.03.2026
 
 Dofamine (2020) [Ru/Multi] (1.1) License GOG
@@ -6,7 +84,7 @@ Dofamine (2020) [Ru/Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059336.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Grand Theft Auto V (5) (2015) [Ru/Multi] (1.0.1180.1) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059062.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Q.U.B.E. 2 (2018) [Ru/Multi] (2.0.38/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057698.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Temple of the Green Moon / Храм Зеленой Луны (2025) [Ru/En] (2.2)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057611.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Forgotton Anne (2018) [Ru/Multi] (Build 20250418/dlc) Repack Let'sРlay [Collect
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057531.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Disney Villains Cursed Cafe (2025) [Ru/Multi] (1.0.2) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057464.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Death Howl (2025) [Ru/Multi] (1.0.0.5.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057011.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (20251218) Scene Rune [Enhanc
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057001.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Super Drift Blade (2025) [Multi] (1.0.3.1) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055421.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.258.834/dlc) Repack HardwareMining [
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055275.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Children of the Sun (2024) [Ru/Multi] (16524106) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055232.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Agatha Christie - Death on the Nile (2025) [Multi] (1.3.0_20251017-215031) Licen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055142.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Bye Sweet Carole (2025) [Multi] (1.0.11) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055102.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ DYSTHANASIA (2025) [Multi] (1.0.8.1/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055012.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Five Nights In Saransk / Пять ночей в Саранске (2025) [Ru/En] 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054853.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Machinarium / Машинариум (2009) [Ru/Multi] (5738-A) Repack Let'sРlay 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054500.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ The Book of Bondmaids (2021) [Ru/Multi] (Build 18042732/dlc) Repack Let'sРlay [
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054108.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ The Book of Outcasts (2025) [Ru/Multi] (Build 21576001/dlc) Repack Let'sРlay [D
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054079.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Womanizer (2024) [Ru/Multi] (Build 20905236/dlc) Repack Let'sРlay [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053992.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Three Kingdoms Story: Conussia (2020) [Ru/Multi] (Build 17653291/dlc) Repack Let
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053991.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Caravan SandWitch (2024) [Ru/Multi] (1.13.72.2/dlc) Repack Other s [Digital Coll
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053745.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Horses (2025) [Multi] (1.0.16497) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053470.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Deponia (2012) [Ru/Multi] (4.0.1386) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053285.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Deponia (2012) [Ru/Multi] (4.0.1386) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28C606EDE2995AA6E233AACFC94A95F60B7EB705
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848969   (1053188) от 20.01.2026
-
-Emerald Valley (2025) [Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053188.jpg" />
-</div>
-
-
-###  Подробнее
-
-Emerald Valley - это постепенное составление целостной картины из разрозненных фрагментов истины, сокрытой в знакомых, но тревожных пейзажах. Атмосферу гнетущей неопределенности усиливают доносящиеся издалека странные звуки, а также разбросанные по укромным местам записки и камни необычной формы. Протагонист прибывает в долину в качестве туриста, рассчитывая на спокойный (   Читать дальше...   )Тип издания: SceneРазработчик: JIMIJMI19Жанр: Приключенческие игры, Казуальные игры, Инди, Ролевые игры, СтратегииЯзык субтитров: Английский, Китайский (упрощенный)Язык интерфейса: Английский, Китайский (упрощенный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E4F53EB3FF88ABE5A2A38493F35E8060BE0D5C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848962   (1053187) от 20.01.2026
-
-1000 Deaths / Thousand Deaths (2025) [Ru/Multi] (1.0.5.20250809) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053187.jpg" />
-</div>
-
-
-###  Подробнее
-
-1000 Deaths представляет собой 3D-платформер, в котором гравитация переориентируется на поверхность, к которой прикасается персонаж. Проект отслеживает развитие 4 разных игровых персонажей, прослеживая их жизненный путь от зарождения до финала. Принятые решения влекут за собой ощутимые последствия, в свою очередь формирующие платформенные испытания и доступные сюжетные (   Читать дальше...   )Тип издания: RepackРазработчик: Pariah Interactive, Inc.Жанр: Приключенческие игры, Казуальные игры, ИндиЯзык субтитров: Русский, Английский, Японский, Французский и другиеЯзык интерфейса: Русский, Английский, Японский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94D00142D30FC471C447F5D7E16C1362CCBCD500
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848807   (1053067) от 24.01.2026
-
-Mai: Child of Ages (2025) [Ru/Multi] (1.13) Repack Let'sРlay
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Следуй за Май в её путешествии по разрушенному миру в поисках своей личности и происхождения таинственных существ, угрожающих равновесию вселенной. Путешествуй вместе с ней сквозь прошлое и будущее и открой связь между ней и загадочной фигурой, которая станет её проводником в приключении. Исследуй подземелья в стиле Zelda и обучай её управлять таинственным Камнем (   Читать дальше...   )Тип издания: RepackРазработчик: Chubby PixelЖанр: Экшены, Приключенческие игрыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6E5FFA585FB8E101815D05447852A5E6950D011
 ```
 
 https://mybot314.ru/tekegram_catalog/

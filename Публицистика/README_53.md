@@ -1,3 +1,29 @@
+###  Публикация: 1410348   (435653) от 21.09.2020
+
+Наоми Вульф | Вагина. Новая история женской сексуальности (2018) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435653.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американская журналистка и писательница Наоми Вульф, автор культового «Мифа о красоте», посвятила свою новую книгу… вагине. Предпринятое Вульф исследование превратилось в увлекательное и полное неожиданных открытий путешествие во внутренний мир женщины. То, как относятся к вагине в разных культурах – с уважением или презрением, внимательно или пренебрежительно, – (   Читать дальше...   )Жанр: Научная литература, МедицинаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6012A365E33093ED03B1D4DC93BC6BF0319BD253
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 945273   (435509) от 09.10.2015
 
 Книжная серия | Амфора Travel [54 книги] (2008-2013) [FB2]
@@ -6,7 +32,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435509.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_435252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435252.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434963.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434959.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434815.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434667.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_434494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434494.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433963.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433735.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433675.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433449.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_433295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433295.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432984.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432746.jpg" />
 </div>
 
 
@@ -380,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432451.jpg" />
 </div>
 
 
@@ -406,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432208.jpg" />
 </div>
 
 
@@ -432,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431738.jpg" />
 </div>
 
 
@@ -459,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431721.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431671.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431577.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431001.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430468.jpg" />
 </div>
 
 
@@ -594,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430187.jpg" />
 </div>
 
 
@@ -620,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429599.jpg" />
 </div>
 
 
@@ -648,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429597.jpg" />
 </div>
 
 
@@ -661,32 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:409EF197A5E890EFA22434F98FA9D8245DF05DDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411287   (429378) от 24.09.2020
-
-Книжная серия | Финансовые хроники профессора Катасонова [13 книг] (2017-2020) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429378.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия книг «Финансовые хроники профессора Катасонова» – не просто любимое чтение читателя-патриота России, но и сильнодействующее средство против промывки мозгов средствами массовой дезинформации, служащих «хозяевам денег». Если вы экономист, предприниматель или просто человек, которому интересно знать, что на самом деле происходит в мировой экономике и финансах (   Читать дальше...   )Жанр: Мировая экономика, Политология, Геополитика, ПублицистикаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD2E79481FD9F975287FFD139BAD29EB48672B2A
 ```
 
 https://mybot314.ru/tekegram_catalog/

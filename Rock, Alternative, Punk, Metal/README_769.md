@@ -1,3 +1,32 @@
+###  Публикация: 1335173   (289752) от 01.11.2019
+
+Peter Felippi - Blue Light (1982) LP [MP3|320 Kbps] <Electronic, Krautrock, Synth-pop, Ambient>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tageseifer (Keep Cool) (4:23)
+02. Dschungel (The Lost Ark) (5:43)
+03. Ambivalenz (6:01)
+04. Traumland (3:49)(   Читать дальше...   )Жанр: Electronic, Krautrock, Synth-pop, AmbientПродолжительность: 00:37:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:807CB125662C9C3F5EAF39244AD242360FA44A2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1335195   (289745) от 01.11.2019
 
 Завтраккусто - Театр военных преступлений (2019) [MP3|320 Kbps] <Indie Rock>
@@ -6,7 +35,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289745.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Iron Savior - Reforged - Riding On Fire (2017) 2CD [MP3|320 Kbps] <Power Metal, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289661.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Lindemann - Knebel (2019) Single [MP3|320 Kbps] <Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289577.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ Iron Maiden - The Book of Souls: Live Chapter (2017) 2CD [WavPack|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289525.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ Zdob si Zdub - Bestiarium (2019) [MP3|320 Kbps] <Folk Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289427.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ Quiet Riot - Hollywood Cowboys (2019) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289426.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ Stereo Nasty - Nasty By Nature (2015) [WavPack|image+.cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289220.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ Reverence - Gods Of War (2015) Japan [FLAC|image +.cue]<Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289056.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289032.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288980.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288683.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ Sacred Steel - Heavy Metal Sacrifice (2016) [FLAC|Lossless|image + .cue] <Epic P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288542.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ Trixie - Shelter (2006) [MP3|320 Kbps] <Hard Rock, Glam>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288479.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ The Men That Will Not Be Blamed For Nothing - Now That's What I Call Steampunk! 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288442.jpg" />
 </div>
 
 
@@ -415,7 +444,7 @@ Messer Fur Frau Muller (Нож для Фрау Мюллер) - Allo, Superman! (
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288283.jpg" />
 </div>
 
 
@@ -444,7 +473,7 @@ Almanac - Kingslayer (2017) [MP3|320 Kbps] <Symphonic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288253.jpg" />
 </div>
 
 
@@ -473,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288125.jpg" />
 </div>
 
 
@@ -502,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_288114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288114.jpg" />
 </div>
 
 
@@ -531,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287978.jpg" />
 </div>
 
 
@@ -560,7 +589,7 @@ Bring Me The Horizon - 2004 - 2013 (2017) [MP3|320 Kbps] <Alt. Rock, Metalcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287972.jpg" />
 </div>
 
 
@@ -589,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287816.jpg" />
 </div>
 
 
@@ -618,7 +647,7 @@ Deaf Rat - Ban the Light (2019) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287707.jpg" />
 </div>
 
 
@@ -647,7 +676,7 @@ Zgard - Totem (2015) [MP3|320 кб/с]<Pagan Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287648.jpg" />
 </div>
 
 
@@ -676,7 +705,7 @@ Billy Sherwood - Citizen (2015) [FLAC|image + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287642.jpg" />
 </div>
 
 
@@ -705,7 +734,7 @@ Foggy Mountain Rockers - Angel Heart (1999) [MP3|160-192 кб/с]<Rockabilly>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287641.jpg" />
 </div>
 
 
@@ -719,35 +748,6 @@ Foggy Mountain Rockers - Angel Heart (1999) [MP3|160-192 кб/с]<Rockabilly>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D0C2E466AD039B12D1F779EE94901D24C0D46E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186144   (287607) от 24.11.2017
-
-Нуки (Слот) - Исключения (2017) [MP3|320 Kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287607.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ау
-2. Before I Die
-3. Исключения
-4. Вверх(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:50:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B5DCADF314EC29353340957711D47E7DFDDB91D
 ```
 
 https://mybot314.ru/tekegram_catalog/

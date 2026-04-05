@@ -6,7 +6,7 @@
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195856.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195674.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ PBS: Американский опыт: Осуждение Роберта Опп
 >>PBS
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195477.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ NG: Расследования Авиакатастроф / Mayday / Air Crash I
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195322.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195142.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ NG. Затонувшие сокровища нубийских фараонов 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195075.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ NG. Линии Наски: Раскрытые тайны / Nasca Lines: Unlockin
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195069.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ NG. Путешествия с Гордоном Рамзи / Gordon Ramsay - Unch
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195051.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ NG: Самые опасные животные: От пустыни до сав�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195039.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ NG. Самая огромная акула-бык / World's Biggest Bull Shark (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195035.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ NG. 700 Акул / 700 Sharks (2018) WEB-DL [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195004.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ NG: Земля: Биография Планеты / Earth: Making of a Planet (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_194981.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ NG: Путешествие на край Вселенной / Journey to the Edg
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_194978.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ BBC: Хиросима / Hiroshima (2005) DVDRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_194581.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194543.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_194499.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194038.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193776.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ BBC Horizon: Плутон: Восставший из мёртвых / Pluto: Bac
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193602.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192809.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192632.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Discovery: Тайны катакомб Ватикана / Mystery Of The Lost Ca
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192623.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Discovery: В поисках Святого Грааля / In Search of the Holy
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192385.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192224.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191796.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Discovery: Последние тайны "Титаника" / Last Mysteries of 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191172.jpg" />
 </div>
 
 

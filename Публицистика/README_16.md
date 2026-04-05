@@ -1,3 +1,29 @@
+###  Публикация: 1373907   (876420) от 08.04.2020
+
+Уильям Бёрнс | Невидимая сила. Как работает американская дипломатия (2020) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876420.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уильям Бёрнс, названный журналом The Atlantic «секретным дипломатическим оружием» США, состоял на службе Госдепартамента США при пяти президентах и десяти госсекретарях. За свою долгую карьеру Бёрнс имел отношение ко множеству значимых событий последних лет: операции «Буря в пустыне» в 1991 г., вторжению в Югославию в 1999 г., обсуждению расширения НАТО, ядерной (   Читать дальше...   )Жанр: История, Политология, ПублицистикаПеревод: Валерия БашкироваФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9D01B600386C8F4048AADA51DD83EFF6B209435
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997227   (875589) от 16.03.2016
 
 Э. М. Арнольди | Жизнь и сказки Уолта Диснея (1968) [PDF]
@@ -6,7 +32,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875589.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874710.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874418.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874299.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872881.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871798.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871393.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871069.jpg" />
 </div>
 
 
@@ -222,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870680.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870679.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870601.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869944.jpg" />
 </div>
 
 
@@ -328,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868910.jpg" />
 </div>
 
 
@@ -354,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867995.jpg" />
 </div>
 
 
@@ -380,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867990.jpg" />
 </div>
 
 
@@ -406,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865624.jpg" />
 </div>
 
 
@@ -432,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865498.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865388.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864331.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863993.jpg" />
 </div>
 
 
@@ -538,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863891.jpg" />
 </div>
 
 
@@ -564,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863865.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863607.jpg" />
 </div>
 
 
@@ -618,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863604.jpg" />
 </div>
 
 
@@ -645,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863595.jpg" />
 </div>
 
 
@@ -656,32 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E66999A48D4192CA9E00EF7EDBC3353D08268D2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375662   (863525) от 15.04.2020
-
-Анджела Галлоп | Когда собаки не лают. Путь криминалиста от смелых предположений до неопровержимых доказательств (2020) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Какие следы вы бы стали искать на грузовике, в котором транспортировали краденое? После прочтения этой книги вы будете знать ответ на этот вопрос. Ее автор, Анджела Галлоп, самый востребованный криминалист Великобритании, специалист по нераскрытым делам, рассказывает о том, как ведется работа по раскрытию преступлений. Анджела утверждает, что на каждом месте преступления (   Читать дальше...   )Жанр: Криминалистика, ПублицистикаПеревод: Иван ЧорныйФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E1B9237C0E0EF05722AB2B91F794908FFE46170
 ```
 
 https://mybot314.ru/tekegram_catalog/

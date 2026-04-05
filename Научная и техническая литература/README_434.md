@@ -1,135 +1,3 @@
-###  Публикация: 1178310   (358141) от 27.10.2017
-
-Н.А. Самуэльян (сост.) | Лучшие романы Томаса Майна Рида / The Best of Thomas Mayne Reid (2013) [FB2, EPUB] [En]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358141.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга «Лучшие романы Томаса Майна Рида» на английском языке станет эффективным и увлекательным пособием для изучающих иностранный язык на хорошем «продолжающем» и «продвинутом» уровне. Она поможет эффективно расширить словарный запас, подскажет, где и как правильно употреблять устойчивые выражения и грамматические конструкции, просто подарит радость от чтения. В (   Читать дальше...   )Жанр: Иностранные языки, Наука и ОбразованиеФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:396D69460A83FC6355C6A7EE7BA36ECBA125F84B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178318   (358121) от 27.10.2017
-
-Шарлотта Бронте / Charlotte Bronte | Джейн Эйр / Jane Eyre (2016) [FB2, EPUB]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтение оригинальных произведений – простой и действенный способ погрузиться в языковую среду и совершенствоваться в иностранном языке. Серия «Бестселлер на все времена» – это возможность улучшить свой английский, читая лучшие произведения англоязычных авторов, любимые миллионами читателей. Для лучшего понимания текста в книгу включены краткий словарь и комментарии, (   Читать дальше...   )Жанр: Иностранные языкиФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11BF54499BF22612B9989AC28C935F9869938C6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178316   (358118) от 27.10.2017
-
-Артур Конан Дойль / Arthur Conan Doyle | Знак четырех / The Sign of the Four (2016) [FB2, EPUB]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358118.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтение оригинальных произведений – простой и действенный способ погрузиться в языковую среду и совершенствоваться в иностранном языке. Серия «Бестселлер на все времена» – это возможность улучшить свой английский, читая лучшие произведения англоязычных авторов, любимые миллионами читателей. Для лучшего понимания текста в книгу включены краткий словарь и комментарии, (   Читать дальше...   )Жанр: Иностранные языкиФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E56E808E5A9D6857603514FF27137001FAB2FBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951688   (358095) от 31.10.2015
-
-Полина Кочеткова, Татьяна Линник | Спецслужбы и войска особого назначения (1996) [FB2]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия «Энциклопедия тайн и сенсаций» открывается томом «Спецслужбы и войска особого назначения».
-
-В книге собраны данные о всех известных силах специального назначения в истории человечества.Жанр: ЭнциклопедииФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B52A6A7FB9D3472B5683F4513FE0E60703E241A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577843   (358037) от 19.11.2012
-
-Н.А. Бестужев| Опыт истории российского флота [1961] [DJVU]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358037.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге впервые полностью публикуется рукопись декабриста Н.А. Бестужева, посвященная истории русского флота и кораблестроения с древнейших врмен до 1714 года. Н.А. Бестужев показывает развитие русского флота на фоне общественно-политической жизни страны. Подробно описаны: древнее русское мореходство, создание русского регулярного флота при Петре I и первая выдающаяся победа русского флота при Гангуте в 1714 году.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8327464F9B7BCFFF13001A5911A488266F6A40E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1178027   (357992) от 27.10.2017
 
 С.М. Чернов | Общая физика. Квантовая физика (2016) [PDF]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357992.jpg" />
 </div>
 
 
@@ -165,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357981.jpg" />
 </div>
 
 
@@ -191,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357980.jpg" />
 </div>
 
 
@@ -219,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357974.jpg" />
 </div>
 
 
@@ -245,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357928.jpg" />
 </div>
 
 
@@ -271,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357917.jpg" />
 </div>
 
 
@@ -297,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357832.jpg" />
 </div>
 
 
@@ -325,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357817.jpg" />
 </div>
 
 
@@ -351,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357807.jpg" />
 </div>
 
 
@@ -377,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357799.jpg" />
 </div>
 
 
@@ -403,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357687.jpg" />
 </div>
 
 
@@ -429,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357546.jpg" />
 </div>
 
 
@@ -455,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357532.jpg" />
 </div>
 
 
@@ -481,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357148.jpg" />
 </div>
 
 
@@ -507,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357010.jpg" />
 </div>
 
 
@@ -535,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356915.jpg" />
 </div>
 
 
@@ -561,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356913.jpg" />
 </div>
 
 
@@ -589,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356912.jpg" />
 </div>
 
 
@@ -617,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356911.jpg" />
 </div>
 
 
@@ -645,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356910.jpg" />
 </div>
 
 
@@ -674,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356907.jpg" />
 </div>
 
 
@@ -687,6 +555,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF4C57A46F3E83127A1473114031D66191BE6ADA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256343   (356782) от 21.10.2018
+
+Воздушная разведка (1942) [DJVU]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник содержит ряд статей, обобщающих опыт явления воздушной разведки в великой отечественной войне.
+
+За исключением статьи подполковника Ю. Макарова, материал взят из газет «Сталинский сокол» и «Красная звезда». Сборник иллюстрирован подполковником Ю. Макаровым.Жанр: История, политология, документалистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9905372B7B8FA117072A0F97F570F61F1BC902CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256248   (356778) от 21.10.2018
+
+С.П. Капица (сост.) | Жизнь Науки. Антология вступлений к классике естествознания (1973) [DJVU]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356778.jpg" />
+</div>
+
+
+###  Подробнее
+
+История знаний отражена в самой науке, и в словах творцов науки содержится ключ к пониманию ее развития. Эта книга - результат систематического отбора вступлений к трудам классиков естествознания. Предисловия потому привлекли внимание составителей, что именно там, в начале монографии или мемуара, обращаясь к широкому кругу лиц, ученый объясняет цель, значение и метод (   Читать дальше...   )Жанр: История, науковедение, биографияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9418BD39CC720F73FD94DB2833A8C8986018542
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256357   (356777) от 21.10.2018
+
+Л. Г. Бескровный | Хрестоматия по русской военной истории (1947) [DJVU]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356777.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хрестоматия представляет собой сборник военно-исторических документов. Каждая глава содержит документальный материал (отрывки из летописей, уставов, приказы, диспозиции, инструкции, письма и т. д.), относящийся к определенному военно-историческому периоду. Этот материал, по замыслу составителя, подобран так, чтобы языком документов рассказать о войнах, которые пришлось (   Читать дальше...   )Жанр: История, искусство, документалистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:872FB0F95A145CCA110812D57299C97EF04AA136
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577460   (356760) от 18.09.2022
+
+Дэвид Аттенборо | Жизнь на нашей планете: моё предупреждение миру на грани катастрофы (2022) [PDF, FB2, EPUB, MOBI]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая книга знаменитого телеведущего, натуралиста, писателя Дэвида Аттенборо – своеобразный манифест, предупреждение человечеству на грани экологической катастрофы, нависшей над нашей планетой. Человек несёт ответственность за уничтожение биоразнообразия Земли, флоры и фауны нашего хрупкого мира. И человек должен и в силах это исправить, пока не поздно. Книга написана (   Читать дальше...   )Жанр: научно-популярная литература, природа и животные, экологияПеревод: Сергей П. БавинФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26BC941630BCD75785CEF317B9DE3C696CD01548
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071752   (356715) от 11.11.2016
+
+Пэт Шипман | Захватчики: Люди и собаки против неандертальцев (2016) [FB2]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неандертальцы, обладавшие крепким телосложением, большим мозгом, использовавшие сложные орудия охоты, были ближайшими родственниками современного человека. Около 200 000 лет назад, когда человек только начал мигрировать со своей эволюционной родины в Африке, неандертальцы – потомки гораздо более древнего ответвления рода Homo давно расселились в Европе. Но когда (   Читать дальше...   )Жанр: Биология, Зарубежная образовательная литература, История, Прочая образовательная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0B661F7CDFC93083153A565C51333EC2EBED680
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,161 +1,3 @@
-###  Публикация: 1388569   (786642) от 06.06.2020
-
-Adam Freeman | Pro ASP.NET Core 3. Разработка облачных веб-приложений с использованием MVC, Blazor и Razor Pages (2020) [PDF] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это всеобъемлющее руководство-бестселлер по ASP.NET Core - единственная книга, которая нужна вам для разработки на ASP.NET Core. Профессиональные разработчики смогут создать более компактные приложения для платформы ASP.NET Core, используя указания, приведенные в этой книге, которая обновлена для ASP.NET Core 3. Рассматриваются новые функции и возможности, такие (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BA4DD24AADC113D473B683A8721616288A8B4E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203981   (785224) от 04.02.2018
-
-Дуглас Мауро, Кевин Шмидт | Основы SNMP (2012) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785224.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второе издание книги «Основы SNMP» – это практическое руководство для системных и сетевых администраторов, которые пользуются протоколом SNMP для управления своими серверами и маршрутизаторами. Внимание авторов сосредоточено на практическом системном и сетевом администрировании, конфигурации SNMP-агентов и станций управления сетью, использовании SNMP для получения (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A90FAA4AD013CC70EA5642F406A5DA0B1E73583
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204815   (784290) от 07.02.2018
-
-М.А. Денисов | Автоматизированное проектирование в ANSYS и КОМПАС-3D (2015) [DJVU]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784290.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии изложены основы компьютерного проектирования технических объектов. Рассмотрены системы автоматизированного проектирования и инженерного анализа технических решений. Методы конструирования рассматриваются на примерах, использующих систему проектирования «КОМПАС-3D». Система «КОМПАС-3D» имеет ряд конкурентных преимуществ в сравнении с другими пакетами (   Читать дальше...   )Жанр: Системы проектированияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:458516AA0E9AC6A8AD1CA0915106F3933A8DA571
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204805   (784288) от 07.02.2018
-
-Джеймс Чамберс и др. | ASP.NET Core. Разработка приложений (2018) [DJVU]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современные разработчики занимаются построением кроссплатформенных приложений, их сопровождением и развертыванием. Чтобы облегчить им тяжкий труд, был создан новый фреймворк компании Microsoft — ASP.NET Core. Теперь в вашем распоряжении множество разнообразных библиотек с открытым кодом, более того, сам фреймворк является продуктом с открытым кодом.
-Как же освоить (   Читать дальше...   )Жанр: ПрограммированиеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41CE5385587C17F656E21AD86A2A7F179A58ECE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204924   (783968) от 08.02.2018
-
-Майкл Хартл | Ruby on Rails для начинающих. Изучаем разработку веб-приложений на основе Rails (2017) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783968.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ruby on Rails - один из наиболее популярных фреймворков для разработки веб-приложений, но его изучение и использование не самая простая задача. Эта книга поможет вам решить ее независимо от того, имеете ли вы опыт веб-разработки вообще и Rails в частности.
-Известный автор и ведущий разработчик Rails Майкл Хартл познакомит вас с Rails на примере разработки трех приложений. (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:187BF4772FAF65A3DB4BED941929BA4F2E6D6DE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389811   (783833) от 12.06.2020
-
-Packt Publishing | Blender 3D на примерах / Blender 3D By Example [2-ое издание по Blender 2.83] [+ Project files] (2020) [PDF, EPUB] [En]
-
->>Компьютерная литература
->>3D графика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783833.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начните работать с Blender 3D через серию практических проектов, которые помогут вам изучить основные концепции 3D-дизайна, такие как моделирование, скульптинг, материалы, текстуры, освещение и риггинг, используя новейшие функции Blender 2.83.Жанр: 3D моделирование, АнимацияФормат: PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84411E3AFF4EC3FF16C0990587B68C6EF7A0E888
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1389837   (783832) от 12.06.2020
 
 Ян ван ден Хемель | Секреты Blender + 100 удивительных советов по Blender / Blender Secrets + 100 Amazing Blender Tips [5 книг] (2019) [PDF] [En]
@@ -164,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783832.jpg" />
 </div>
 
 
@@ -190,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783414.jpg" />
 </div>
 
 
@@ -216,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782896.jpg" />
 </div>
 
 
@@ -242,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782858.jpg" />
 </div>
 
 
@@ -268,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782809.jpg" />
 </div>
 
 
@@ -296,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782048.jpg" />
 </div>
 
 
@@ -322,7 +164,7 @@ Alex Banks, Eve Porcello | Learning React: Modern Patterns for Developing React 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781370.jpg" />
 </div>
 
 
@@ -348,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781368.jpg" />
 </div>
 
 
@@ -374,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D графика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780975.jpg" />
 </div>
 
 
@@ -400,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780159.jpg" />
 </div>
 
 
@@ -426,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780158.jpg" />
 </div>
 
 
@@ -454,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780149.jpg" />
 </div>
 
 
@@ -480,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779606.jpg" />
 </div>
 
 
@@ -506,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779605.jpg" />
 </div>
 
 
@@ -532,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779586.jpg" />
 </div>
 
 
@@ -558,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779454.jpg" />
 </div>
 
 
@@ -584,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779319.jpg" />
 </div>
 
 
@@ -610,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778934.jpg" />
 </div>
 
 
@@ -637,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778645.jpg" />
 </div>
 
 
@@ -663,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778621.jpg" />
 </div>
 
 
@@ -674,6 +516,164 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7F715BE9F6F535827341E38525E36EA7CC546DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210726   (778021) от 05.03.2018
+
+Валерий Яценков | Java за неделю. Вводный курс (2018) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вводный курс для начинающих изучать язык Java. Быстрый и ощутимый результат — лучший стимул в обучении. Занимаясь 1—2 часа по вечерам, уже через неделю вы будете писать полноценные оконные приложения с графическим интерфейсом.
+Книга содержит примеры с пошаговыми пояснениями. Приведен список литературы для желающих продолжить обучение. Работа с учебными проектами (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EB64849C6976AD4EE9A6CBDD00637019C47BFE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013124   (777877) от 03.05.2016
+
+Подборка книг | Настройки BIOS [8 книг] (2004-2009) [DJVU, PDF, CHM]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777877.jpg" />
+</div>
+
+
+###  Подробнее
+
+BIOS (Basic Input/Output System) - базовая система ввода-вывода. Так расшифровывается эта загадочная и манящая надпись. Что же на самом деле представляет собой эта система ввода-вывода и для чего она нужна? Это и многое другое вы узнаете из книг о BIOS.На самом деле, BIOS это ничто иное, как низкоуровневое программное обеспечение, которое хранится в отдельном чипе (   Читать дальше...   )Жанр: Компьютерная литератураФормат: DJVU, PDF, CHM
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D61151873047B8F1ABA86C224659B743FCAA4F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013554   (777097) от 05.05.2016
+
+No Starch Press | Humble Bundle - Hacking by No Starch Press [13 книг] (2003-2016) [PDF, EPUB] [En]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777097.jpg" />
+</div>
+
+
+###  Подробнее
+
+Взломайте планету! Один из лучших путей для укрепления навыков владения компьютером - это понимать что происходит в самом низу.
+С помощью этого комплекта книг Вы можете изучить все аспекты компьютерных технологий: от Phython и Arduino до Bitcoin!Жанр: Computer Science, Компьютерная литература, ВзломФормат: PDF, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AD4CC49616D0A2C193F0BD66912A027F14F3DC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211836   (776664) от 09.03.2018
+
+Кишори Шаран | Java 9. Полный обзор нововведений. Для быстрого ознакомления и миграции (2018) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776664.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассмотрены все нововведения в Java 9. Приведена разработка приложений с использованием системы модулей. Описаны измененная модульная структура образа среды выполнения JDK/JRE, новые фабричные методы для создания коллекций, уведомления процессора об активном ожидании с целью оптимизации потребления ресурсов, новый API платформенно-зависимого рабочего стола, (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D636A69B8CBC726ABDA297DB71A39E137D3D6D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014332   (776323) от 07.05.2016
+
+Д.Л. Шиндер | Основы компьютерных сетей (2002) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга призвана помочь читателю понять основы, концепции и принципы реализации вычислительных сетей. В книгу включено также краткое введение в выполняющиеся на сетевых компьютерах клиентские и серверные операционные системы. В книгу включены история развития вычислительных сетей, принятая терминология, теория сетей, установившиеся стандарты и способы реализации (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47918B0ADFD56600B58F41FE8686F3665C0B64CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277566   (775639) от 21.01.2019
+
+Андрей Букреев | Миллион идей для компьютерных игр (2019) [PDF, RTF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обязательно тем, кому от 18 до 22. Важно для 30+. Для 40+ точно не помешает, плюс еще и дети растут. Это уже «медицинский» факт – рынок труда (профессий соответственно) в ближайшие 5 лет изменится до неузнаваемости. Тут нет злой воли – просто мы все выросли. Книга будет полезна не только разработчикам компьютерных игр, но и маркетологам и специалистам по рекламе. (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D27FAB53A0DEA2C4F00F658B10D235D85F693FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

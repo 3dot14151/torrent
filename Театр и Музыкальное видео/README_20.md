@@ -6,7 +6,7 @@
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944500.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Beatles: Вечер трудного дня / A Hard Day-s Night (1964) BDRi
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944450.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944428.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944231.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Shirley Bassey - Divas Are Forever (2000) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943733.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Stray Cats - Greatest Hits! (2001) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943687.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943427.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943399.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ VA-Коллекция клипов в авто (ZAP) (2DIN) (1980-2016) HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943261.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ The Ed Sullivan Show (1965) TVRip [hand made colored] H.264
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942799.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942727.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942722.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942721.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942707.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ The Piano Guys: Концерт на Красном холме сада / The Pia
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942648.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942496.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ The Chemical Brothers: «Не думай» / The Chemical Brothers: Don’t Thin
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942208.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Sting: Live in Berlin (2010) BDRip [H.265/1080p-LQ] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942151.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Metallica - Orgullo, Pasion Y Gloria - Tres Noches En La Ciudad De Mexico (2009)
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941919.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ VA – Реальная Музыка (2001) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941882.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941708.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Beth Hart - Live at Paradiso (2004) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941213.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941129.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940955.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940915.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ Chris Norman: One Acoustic Evening - Live at the Private Music Club (2005) 2xDVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940706.jpg" />
 </div>
 
 

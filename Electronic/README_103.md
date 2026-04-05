@@ -1,3 +1,61 @@
+###  Публикация: 1109780   (857365) от 28.02.2017
+
+VA - Winter (compiled by DJ Zen) (2017) [MP3|320 Kbps] <Electronic, Ambient, Downtempo, Psychedelic>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Argus - The Time Before (07:27)
+02. Argus - We Are One (08:38)
+03. Profondita - Island (08:29)
+04. Suduaya - Clear Water (08:50)(   Читать дальше...   )Жанр: Electronic, Ambient, Downtempo, PsychedelicПродолжительность: 01:13:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA31251FF6C80793D2C2B3DB9EAD960A5A8C6B76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109513   (857286) от 28.02.2017
+
+VA - IBIZA Deep: The Deep House Opening Party 2017 (60 Hot Summer Tunes) (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857286.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. House of Coco - Give Me Your Hand 3:45
+002. Stefan Pascho - Erase the Fear 3:26
+003. KayJay - Everyone's A Winner 2:58
+004. Soul Express - World Master 3:17(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:35:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:509805C00A0956543B0D6D218FDE5F1AC11E52AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109510   (857229) от 28.02.2017
 
 VA - Deep House Relax (2017) [MP3|320 Kbps] <Deep House>
@@ -6,7 +64,7 @@ VA - Deep House Relax (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857229.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Luomo - The Present Lover (2003) [FLAC|Lossless|tracks + .cue] <Deep House, Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857069.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Gabriel Ananda - Selected Remixes (2017) [FLAC|Lossless|WEB-DL|tracks] <Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856915.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Ibiza House Sexy (2020) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856902.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Backstage Gurus - Mediterranean Odyssey (2020) Liquid Sound Design [FLAC|Lossles
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856895.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Erotic Chill (2020) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856774.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Justin Gain - Techno Ebola (2016) [FLAC|Lossless|image + .cue] <Techno, Deep Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856674.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Natalia Zamilska - Discography 10 Releases (2014-2020) Mik.Musik.!., Untuned Rec
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856567.jpg" />
 </div>
 
 
@@ -235,7 +293,7 @@ VA - Acoustic Lounge Essentials Vol 1-3 (2014-2015) [MP3|320 кб/с]<Downtempo,
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856351.jpg" />
 </div>
 
 
@@ -264,7 +322,7 @@ VA - ATB - The DJ 1 - 6 In The Mix (2004 - 2010) [FLAC|Lossless]<Trance , Progre
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855865.jpg" />
 </div>
 
 
@@ -292,7 +350,7 @@ VA - Canary Islands Chillout Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, L
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855758.jpg" />
 </div>
 
 
@@ -321,7 +379,7 @@ VA - Espace au Jardin: Edition Bleu. Mixed By Kolibri Musique (2017) [MP3|320 Kb
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855757.jpg" />
 </div>
 
 
@@ -350,7 +408,7 @@ VA - Metropolitan Lounge Selection London (2017) [MP3|320 Kbps] <Downtempo, Chil
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855755.jpg" />
 </div>
 
 
@@ -379,7 +437,7 @@ VA - Is This Lounge Enough (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855753.jpg" />
 </div>
 
 
@@ -408,7 +466,7 @@ VA - Ibiza Local The Winter Lounge Compilation 2017  [MP3|320 Kbps] <Downtempo, 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855685.jpg" />
 </div>
 
 
@@ -437,7 +495,7 @@ VA - Ibiza Beach House Club Royale (2017) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855680.jpg" />
 </div>
 
 
@@ -466,7 +524,7 @@ VA - Deep House Republic Vol.2 (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855669.jpg" />
 </div>
 
 
@@ -495,7 +553,7 @@ VA - Mind & Soul Music (Ambient Sounds & Down Beats) (2016) [MP3|320 кб/с] <L
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855647.jpg" />
 </div>
 
 
@@ -524,7 +582,7 @@ VA - Welcome EDM Vol.9 (2017) [MP3|320 Kbps] <House, Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855612.jpg" />
 </div>
 
 
@@ -553,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855125.jpg" />
 </div>
 
 
@@ -582,7 +640,7 @@ Tycho - Awake (2014) [MP3|320 kbps] <Chill Out, Ambient, Electronic>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854998.jpg" />
 </div>
 
 
@@ -611,7 +669,7 @@ VA - Global DJ Broadcast Top 20 March (2016) [MP3|320 кб/с] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853922.jpg" />
 </div>
 
 
@@ -640,7 +698,7 @@ WANT/ed - Fringe (2016) [MP3|320 кб/с] <Synth Pop, Coldwave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853846.jpg" />
 </div>
 
 
@@ -669,7 +727,7 @@ VA - Cala Ibizarre Sunset Lounge Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillou
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853815.jpg" />
 </div>
 
 
@@ -683,64 +741,6 @@ VA - Cala Ibizarre Sunset Lounge Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9056CD41E76802C2EAE41D8EE859F072F0115404
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110395   (853814) от 02.03.2017
-
-VA - In Search of Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853814.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Seven24 - Rescue Me - Bryan Milton Remix 5:15
-002. Robien M - Catch a Glimpse 4:14
-003. R.I.B. - Escape to You 4:41
-004. Alexander Volosnikov - Bird of Mind 5:51(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:17:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89FDBF0E0FCE1D645E9403FF979DFF0BEFA0A6A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110234   (853813) от 02.03.2017
-
-VA - Airport Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lamar Ensemble - Das Parfum  6:07
-02.  The Sura Quintet - Observing You  5:56
-03.  Arrojas - Sensual Waves  5:35
-04.  Rey Salinero - Tell Me Why  4:42(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:49:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E52B8E4C275975FA69BE5D888A655836E9AE4D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

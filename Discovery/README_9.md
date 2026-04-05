@@ -6,7 +6,7 @@ Discovery: Выжить любой ценой  / Ultimate Survival (Man vs. Wild
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630147.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Discovery: Необъяснимое. Специальные материалы /
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628433.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Discovery. НАСА: необъяснимые материалы. Лунные �
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628272.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Discovery. А ты бы выжил? / So You Think You'd Survive? (2014) HDTVRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627929.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Discovery. А ты бы выжил? / So You Think You'd Survive? (2014) HDTV [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627770.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Discovery: Легенда о золоте крокодилов / The Legend of C
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626915.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Discovery: Охотники за ядом / Venom Hunters (2016) HDTV [H.264/108
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624574.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Discovery: Дьявольский каньон / Devil's Canyon (2017) HDTVRip [
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624231.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Discovery. Сокровища из кладовки / Backroad Bounty (2014) HDT
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623935.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Discovery: Один на один с природой / Alone in the Wild (2009)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622564.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Discovery: Путешествие в неизвестность с Эдом Ст
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622519.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Discovery: Через магию к звёздам / The Pop Illusionist (El Mag
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620526.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Discovery. Аппараты лунных программ / Moon Machines (2008)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620209.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Discovery. Короли Леса / Kings of the Wood (2022) WEBRip [H.264/1080p-
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619904.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Discovery. Акула Тьмы: Ярость Субмарины / Shark of Darkn
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619490.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Discovery: Головоломы (Мозголомы): Насилие над на
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616453.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Discovery. Ванная под ключ / King of Thrones (2013) HDTVRip [Сер
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615927.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Discovery. Ванная под ключ / King of Thrones (2013) HDTV [H.264/720
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615855.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Discovery: Выжить любой ценой [сезон 1] / Ultimate Survival
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614492.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Discovery. Из любви к машинам / For the Love of Cars (2014) HDTV 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614152.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Discovery. Гаражное золото / Garage Gold (2013) HDTVRip [Сезо�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612511.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Discovery. Из любви к машинам / For the Love of Cars (2014) HDTVR
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612354.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Discovery: Скрытое - Самые страшные темницы / Hidden 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_611427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_611427.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Discovery: Хаос в действии: кадры очевидцев / Chaos c
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610681.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Discovery: Хаос в действии: кадры очевидцев / Chaos c
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608823.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608610.jpg" />
 </div>
 
 

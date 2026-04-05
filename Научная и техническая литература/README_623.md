@@ -1,137 +1,3 @@
-###  Публикация: 1752363   (41979) от 29.09.2024
-
-Юрий Лубченков | 100 великих маршалов (2018) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41979.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маршал - воинское звание (или чин) высшего генеральского состава в армиях ряда государств. В России генерал-фельдмаршал было высшим воинским званием до 1917 года.
-Звание маршала в армии впервые стали использовать в Тевтонском ордене; отсюда появилось наименование фельдмаршала, сначала для полковников кавалерии. Во Франции маршал, ведавший королевской конюшней, прежде (   Читать дальше...   )Жанр: История. Биография.Издательство: Москва: «Вече»Формат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8821474C0CC0BCADD27CE25F7D18F016CBF1EF76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752191   (41976) от 29.09.2024
-
-А.А. Петров, Х.В. Бальян, А.Т. Трощенко | Органическая химия (1981) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41976.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебнике систематически изложены основы современной органической химии. В доступной форме даются сведения о квантово-химической природе простых и кратных связей. Излагаются современные взгляды на механизмы важнейших реакций. Большое внимание уделено практическому использованию достижений органической химии. Пятое издание существенно переработано и дополнено новыми (   Читать дальше...   )Жанр: УчебникИздательство: Высшая школаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B761561E6D75A933CCEFE00834745C50F7D03E2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466177   (41946) от 30.09.2024
-
-А.Д. Александров, Н.Ю. Нецветаев | Геометрия (1990) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Содержит основные разделы курса геометрии: аналитическую геометрию, элементарную геометрию на основе аксиоматики, включая геометрические преобразования и построения, элементы многомерной и проективной геометрии, дифференциальной геометрии и топологии, основания геометрии с обзором теорий «высшей» геометрии.
-
-Для студентов математических специальностей педвузов и (   Читать дальше...   )Жанр: МатематикаИздательство: НаукаФормат: DJVUКачество: Черно-белый скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76A68081D39FFAC3B6E192BFFBF9DF0A97352D31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752519   (41925) от 30.09.2024
-
-А.М. Кугушев, Н.С. Голубева | Основы радиоэлектроники (Нелинейные электромагнитные процессы) (1977) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41925.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге изложены основы теории нелинейных электромагнитных процессов в средах (нелинейная электродинамика). Процессы описываются на основе уравнений электромагнитного поля и квантовой механики. Даются принципы работы квантовых генераторов и усилителей оптического диапазона и диапазона СВЧ (парамагнитных и молекулярных), а также электронных генераторов и усилителей (   Читать дальше...   )Жанр: ЭлектроникаИздательство: ЭнергияФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3455597C4744DF070649CCB6A80273F29A400DDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752521   (41924) от 30.09.2024
-
-А.М. Кугушев, Н.С. Голубева | Основы радиоэлектроники (Линейные электромагнитные процессы) (1969) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41924.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге изложены основы теории линейных электромагнитных процессов в средах (электродинамика) и в цепях (теория линейных цепей). Процессы описываются на основе уравнений электромагнитного поля (уравнения Максвелла). В дополнительной главе приводится краткое изложение применяемого математического аппарата.
-Книга может служить учебным пособием для студентов радиоэлектронных (   Читать дальше...   )Жанр: ЭлектроникаИздательство: ЭнергияФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A11A5E44BD0EF91BFC890A9D2D71F447A44E90F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1752374   (41915) от 30.09.2024
 
 Книжная серия | Серия справочников издательства "Радио и связь" [78 книг] (1982 - 1996) [DJVU]
@@ -140,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41915.jpg" />
 </div>
 
 
@@ -166,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41898.jpg" />
 </div>
 
 
@@ -193,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41895.jpg" />
 </div>
 
 
@@ -219,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41816.jpg" />
 </div>
 
 
@@ -245,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41630.jpg" />
 </div>
 
 
@@ -271,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41353.jpg" />
 </div>
 
 
@@ -298,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41300.jpg" />
 </div>
 
 
@@ -324,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41246.jpg" />
 </div>
 
 
@@ -351,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41242.jpg" />
 </div>
 
 
@@ -377,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41128.jpg" />
 </div>
 
 
@@ -403,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41094.jpg" />
 </div>
 
 
@@ -432,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41050.jpg" />
 </div>
 
 
@@ -458,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41048.jpg" />
 </div>
 
 
@@ -484,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40931.jpg" />
 </div>
 
 
@@ -513,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40893.jpg" />
 </div>
 
 
@@ -539,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40888.jpg" />
 </div>
 
 
@@ -566,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40882.jpg" />
 </div>
 
 
@@ -592,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40862.jpg" />
 </div>
 
 
@@ -618,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40855.jpg" />
 </div>
 
 
@@ -644,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40846.jpg" />
 </div>
 
 
@@ -671,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40842.jpg" />
 </div>
 
 
@@ -682,6 +548,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B78C946B4CDEDA32AB1634B832F602A5133C1DF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754513   (40822) от 10.10.2024
+
+Н.В. Белов | Самоисцеление. Гимнастика для внутренних органов (2007) [EPUB, PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга адресуется широкому кругу читателей. В ней приведены комплексы физических упражнений для различных органов и систем, применение которых поможет людям, у которых появились проблемы со здоровьем, наладить работу организма. Кроме того, эти упражнения – мощное профилактическое средство, препятствующее возникновению во внутренних органах патологических процессов.Жанр: здоровье, физические упражненияИздательство: Минск: «Современный литератор»Формат: EPUB, PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ABC96596897C3453B97FF09B5DD9A5E4EF48011
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754443   (40821) от 10.10.2024
+
+Катя Янг | Рецепты столетия. Рацион для тех, кто хочет прожить 100 лет (2021) [PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сбросить 10 лет за 12 дней? Забыть о фастфуде и вредных перекусах? Жить счастливо и чувствовать себя здоровой? Да, это возможно! Катя Янг – практикующий врач-эндокринолог, признанный эксперт в области гормонального здоровья и активного долголетия. Разработанная ею схема питания предусматривает плавное сокращение «лишних» продуктов, исключение нежелательной группы (   Читать дальше...   )Жанр: Все грани здоровьяИздательство: Москва: ИД «Комсомольская Правда»Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E6B9E1FE15D5FCFA8B0844B6B53296654F628ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754551   (40795) от 10.10.2024
+
+А.В. Кайнаран и др. | Киевский укрепленный район [2 книги] (2011 - 2017) [DJVU]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40795.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет собой самое полное описание КИУРа из всех ранее издававшихся произведений. В ней рассказывается о предыстории создания КИУРа, детально описывается проект в том виде, как он был построен между 1928 и 1932 годами, подробнейшим образом описаны сооружения укрепрайона, их оборудование и вооружение.
+Во втором томе описываются события, относящиеся к обороне (   Читать дальше...   )Жанр: Военная историяИздательство: ВолыньФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C6CBE756B3150A6271A96EB40B7BD216A04511E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754707   (40741) от 11.10.2024
+
+Сергей Бубновский | Упражнения для дома и зала. Золотая книга. Более 100 практик при болях в спине и суставах (2023) [PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три этажа здоровья. Три ключевых зоны поражения органов и систем. Чтобы не стать жертвой "времени", чтобы не потерять имеющихся возможностей, чтобы всегда заниматься тем, что дорого и что нравится, надо правильно следить за своим телом. В этой книге собраны 100 идеальных упражнений, которые можно делать дома и в зале в любом возрасте. Результат: здоровое (   Читать дальше...   )Жанр: Массаж. ЛФКИздательство: ЭксмоФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56476EB7E2BF6AC3A5435F91E1E11168C914B518
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754713   (40722) от 11.10.2024
+
+Сергей Длин | Помоги своим суставам. Как в домашних условиях улучшить состояние при артрите и артрозе (2024) [PDF, EPUB]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Практически перед каждым в определённый момент жизни встает вопрос – как избавиться от боли и сохранить активность при заболеваниях суставов. На страницах этой книги вас ждут простые и легкие в применении способы профилактики, упражнения, правила жизни и питания, которые помогут восстановить здоровье, если у вас уже есть артрит или артроз. Врач с опытом работы 25 (   Читать дальше...   )Жанр: Медицина и здоровьеИздательство: БомбораФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:366A5300E6C8E63B98F5C69863B04CC55669C9F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

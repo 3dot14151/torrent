@@ -6,7 +6,7 @@ John Coltrane - Plays For Lovers 1951 - 1958 (2003) Prestige [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301591.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Blue Mitchell - Bantu Village (1969) 2011, Passion Music[FLAC|tracks+.cue]<Hard 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301555.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Yusef Lateef - 1984 (1965) 1998, MCA [WavPack|Lossless|image + .cue] <Post-Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301512.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Milt Jackson - Opus De Jazz (1955) 2017, Columbia [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301508.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ The Australian Jazz Quintet - Selections Of Rodgers & Hammerstein (1957) 2014, S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301420.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Elvin Jones - Genesis (1971) 2014, Universal[FLAC|tracks+.cue]<Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301419.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Eric Alexander - Song Of No Regrets (2017) HighNote [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301362.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Billy Eckstine Sings with Benny Carter special guest Helen Merrill (1987) EmArcy
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301361.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Anita O'Day - Jazz 'Round Midnight (1954 - 1962) 1997, Verve [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301288.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Ella Fitzgerald - Jazz 'Round Midnight Again (1956 - 1966) 1995, Verve [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301277.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Clifford Brown - Jazz 'Round Midnight (1954 - 1956) 1993, Verve [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301275.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Billy Eckstine - Jazz 'Round Midnight (1950-e - 1960-e) 1994, Verve [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301274.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Sun Ra And His Arkestra - Super-Sonic Jazz (1956) 1991, Evidence [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301272.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Milt Jackson - Jazz 'Round Midnight (1964 - 1968) 1997, Verve [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301271.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Antonio Carlos Jobim - Jazz 'Round Midnight (1963 - 1994) 1998, Verve [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301267.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ National Youth Jazz Orchestra - London Pride (2006) [FLAC|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300878.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ George Lewis and His Ragtime Band - Jazz At Vespers (1954) 1992, OJC[FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300873.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - One More: The Summary Music of Thad Jones, Vol.2 (2006) IPO Recordings [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300753.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Tony Anderson's Muskat Ramblers - Most Wanted Dixieland (2005) [FLAC|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300693.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Jeff Palmer, John Abercrombie, David Liebman, Adam Nussbaum - Abracadabra (1990)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300684.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Nighthawks - Citizen Wayne (1998) [FLAC|Lossless|tracks + .cue] <Nu Jazz, Acid J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300525.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ The Sextet Of Orchestra U.S.A. Under The Direction Of Michael Zwerin - Mack The 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299441.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Lenny Breau - Last Sessions (1988) Genes Records [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299135.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Count Basie & His Orchestra - Basie's Bag (of Swing) 1947 - 1959 (2007) 3CD, IMC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299126.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Billie Holiday - Lady In Satin: The Centennial Edition (1957-1958) 3CD, 2015, So
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299086.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Adrien Moignard - Between Clouds (2012) [FLAC|Lossless]<Swing, Guitar Jazz, Loun
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_298936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_298936.jpg" />
 </div>
 
 

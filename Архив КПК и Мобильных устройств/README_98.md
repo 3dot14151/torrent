@@ -6,7 +6,7 @@ Soul Browser 1.3.53 Mod by AnBo39 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208833.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Soul Browser 1.3.56 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208824.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ DIGI Clock Widget Plus 3.3.2 (build 25408) [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208771.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ MX Player 1.48.4 Lite-Mod by OsitKP [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208435.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Truecaller BETA: определитель номера 13.26.6 Mod by LITEAPKS, 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208312.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ WaveStudio (WaveEditor Record & Edit Audio) v1.108 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208262.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ MyRadar - Weather Radar Pro 8.49.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208254.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Smart Launcher 6.2 build 047 Mod by Balatan, derrin, 0x7d [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208196.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ RS Explorer / RS Проводник 2.0.1 Mod by AppModz [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208102.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Soul Browser 1.3.58 Mod by youarefinished, AnBo39 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208097.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ ZEDGE 8.12.2 Mod by ZackModz, 0x7d [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208091.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Kodi 20.1 (Nexus) for Android [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208037.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ CamScanner 6.45.0.2307170000 Mod by maxi123444, youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208036.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ OfficeSuite Pro + PDF 13.11.48134 Mod by mihz [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208026.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Busuu - изучение языков 30.9.0(600134) Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208022.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ OfficeSuite Pro + PDF 13.11.48134 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208008.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ OGWhatsApp 17.51 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207958.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Truecaller BETA: определитель номера 13.26.6 Mod by Amr Gamal 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207941.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ AIMP для Android 4.00.1343 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207919.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Aqua Mail Pro 1.45.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207793.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ CCleaner Pro: ПО для очистки 23.14.0 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207789.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207415.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ XY VPN - Security Proxy VPN 4.4.766 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207371.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Gradient v2.9.66 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207367.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ XY VPN - Security Proxy VPN 4.5.006 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207274.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Garmin: Дороги России Топо 6.40 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_207084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207084.jpg" />
 </div>
 
 

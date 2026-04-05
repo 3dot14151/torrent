@@ -6,7 +6,7 @@ Vince Benedetti - Hardbop World (2008) TCB Records [FLAC|Lossless|image + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305640.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Artie Shaw - The Last Recordings Rare & Unreleased (1954) 2CD, 1991, Limelight [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305635.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Art Farmer - Art Worker (1968) 2014, Studio Songs[FLAC|tracks+.cue]<Hard Bop, Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305628.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ June Christy - Big Band Specials (1962) 1999, Capitol Jazz [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305618.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Duke Ellington - Ellington At Newport 1956 Complete 2CD, 2014, Sony Music[FLAC|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305568.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Charlie Byrd - Christmas Carols for Solo Guitar (1966) 1997, Columbia Jazz [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305523.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Stan Getz - Out Of Nowhere (1960) 1994, FourStar [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305521.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Clifford Brown & Max Roach Quintet - The Complete Study In Brown (1954 - 1956) 2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304295.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Roger Kellaway - Live At The Jazz Standard (2006) 2CD, 2008, IPO Recordings [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303617.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Louis Prima - The Wildest! (1956) 2000, DCC Compact Classics [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303609.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Sam Taylor Quartet - Along The Way (2017) [FLAC|Lossless|WEB-DL|tracks] <Saxopho
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303604.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Lionel Hampton - Three Classic Albums Plus 1954 - 1955 (2009) 2CD, Avid Jazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303599.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Humphrey Lyttelton - Humph Plays Standards (1960) 2014, Solid Records[FLAC|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303518.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Gene Ammons - Blue Gene (1958) 2003, Original Jazz Classics [FLAC|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303497.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Michel Colombier - Michel Colombier (1979) 1999, Anthology's [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303493.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Coco Favre - Introducing Coco Favre (2014) Self-Released [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303492.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Lisa Ekdahl - More of the Good (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303434.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Erotic Jazz Moments (2016) (Essential Collection) [FLAC|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303293.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Dave Ellis - In The Long Run (1998) Monarch Records[FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303013.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Mezzoforte - Rising (1984) [FLAC|Lossless|image + .cue] <Fusion, Jazz-Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303008.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Mezzoforte - Surprise, Surprise (1982) 1989, RCA, Germany [FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303007.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Mezzoforte - Playing For Time (1989) [FLAC|Lossless|image + .cue] <Fusion, Jazz-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303005.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Mezzoforte - No Limits (1986) [FLAC|Lossless|image + .cue] <Fusion, Jazz-Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302995.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ The Puppini Sisters - Дискография (5 альбомов) (2007 - 2011) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_302760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_302760.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ Joe Locke & Geoffrey Keezer Group - Live In Seattle (2006) Origin Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302626.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ Sonny Clark - 1954 Memorial Album (2001) The Jazz Factory [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302619.jpg" />
 </div>
 
 

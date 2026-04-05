@@ -1,3 +1,32 @@
+###  Публикация: 1072854   (350132) от 14.11.2016
+
+Three Thirteen - Dawn of the Shred (2016) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (Welcome to Hell) Devil in the Flesh 05:33
+02. Brain Damage (Undead) 04:13
+03. American Massacre 04:31
+04. Evilution 04:28(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:793AB9157528A08E193BE9FDEF213385E7FE897E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072845   (350129) от 14.11.2016
 
 Exit - Into Darkness (2016) [MP3|320 Kbps] <Death Metal>
@@ -6,7 +35,7 @@ Exit - Into Darkness (2016) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350129.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Krokus - Original Album Classics (1980-1982) Remastered 3CD Box Set /2012, Sony 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_350102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_350102.jpg" />
 </div>
 
 
@@ -73,7 +102,7 @@ Grydgaard - Secrets from the Palace (2022) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350070.jpg" />
 </div>
 
 
@@ -102,7 +131,7 @@ AcoD - Fourth Reign Over Opacities And Beyond (2022) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350067.jpg" />
 </div>
 
 
@@ -131,7 +160,7 @@ VA - Rock Sound: Sound Check No. 127 (2009) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350066.jpg" />
 </div>
 
 
@@ -160,7 +189,7 @@ Grace From Gadgets - Grace From Gadgets (2022) [MP3|320 Kbps] <Progressive Rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350062.jpg" />
 </div>
 
 
@@ -189,7 +218,7 @@ VA - Rock Sound: Sound Check No. 125 (2009) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350061.jpg" />
 </div>
 
 
@@ -218,7 +247,7 @@ Hitten - Twist of Fate (2018) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350041.jpg" />
 </div>
 
 
@@ -247,7 +276,7 @@ Millenium - Tales from Imaginary Movies (2022) [MP3|320 Kbps] <Progressive Rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350038.jpg" />
 </div>
 
 
@@ -276,7 +305,7 @@ Guardians of Time - Tearing Up the World (2018) [FLAC|Lossless|image + .cue] <Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350034.jpg" />
 </div>
 
 
@@ -305,7 +334,7 @@ Impellitteri - The Nature of the Beast (2018) Japan [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350022.jpg" />
 </div>
 
 
@@ -334,7 +363,7 @@ Eyexist - The Digital Holocaust (2016) [MP3|320 Kbps] <Symphonic Technical Death
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349991.jpg" />
 </div>
 
 
@@ -363,7 +392,7 @@ The Wonder Stuff - 30 Goes Around the Sun (2016) [MP3|320 Kbps] <Alternative Roc
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349979.jpg" />
 </div>
 
 
@@ -392,7 +421,7 @@ The Rasmus - Rise (2022) [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349900.jpg" />
 </div>
 
 
@@ -421,7 +450,7 @@ Ellende - Todbringer (2016) [MP3|320 Kbps] <Atmospheric Black Metal, Post-Black 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349843.jpg" />
 </div>
 
 
@@ -450,7 +479,7 @@ On-The-Go - Origins (2016) Digipak CD Edition [FLAC|Lossless|tracks + .cue] <Ind
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349835.jpg" />
 </div>
 
 
@@ -479,7 +508,7 @@ Sepultura - I Am The Enemy (2016) Single [MP3|320 Kbps] <Death Metal, Thrash Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349737.jpg" />
 </div>
 
 
@@ -505,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349723.jpg" />
 </div>
 
 
@@ -534,7 +563,7 @@ On-The-Go - 4 альбома + 6 синглов + 3 EP`s (2008-2016) [MP3|320 к
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349722.jpg" />
 </div>
 
 
@@ -563,7 +592,7 @@ Dorothy - Rockisdead (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349720.jpg" />
 </div>
 
 
@@ -592,7 +621,7 @@ Morly Grey - The Only Truth (1972) / 2000, Akarma / [MP3|320 кб/с]<Psychedeli
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349564.jpg" />
 </div>
 
 
@@ -621,7 +650,7 @@ Jana Kramer - Thirty One (2015) [FLAC|tracks + .cue]<Rock, Country Rock, Pop>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349563.jpg" />
 </div>
 
 
@@ -650,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349559.jpg" />
 </div>
 
 
@@ -679,7 +708,7 @@ Coheed and Cambria - The Color Before The Sun (2015) Best Buy Exclusive [OGG| 43
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349554.jpg" />
 </div>
 
 
@@ -708,7 +737,7 @@ Whitewater - Dark Planet (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349418.jpg" />
 </div>
 
 
@@ -722,35 +751,6 @@ Whitewater - Dark Planet (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B991BC37E468B72018A7731C4F1B7144F4D1D48A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418460   (349413) от 24.10.2020
-
-Superior Stream - Anatomy Of A Human Heart Pt.1&2 (2020) 2xCD [MP3|320 Kbps] <Progressive Metal, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349413.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. First Breath (01:20)
- 02. The Unknown (03:36)
- 03. Motion (03:49)(   Читать дальше...   )Жанр: Progressive Metal, Progressive RockПродолжительность: 01:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C866408EEDA0C0CDCAB3EA34D4829BBDF372E567
 ```
 
 https://mybot314.ru/tekegram_catalog/

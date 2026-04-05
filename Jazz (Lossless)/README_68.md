@@ -6,7 +6,7 @@ Fred Astaire - Fred Astaire's Finest Hour (1940-e - 1950-e) 2003, Universal [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799684.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Oscar Peterson & Clark Terry 1975 (1994) Original Jazz Classics [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799611.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Vincent Herring, Bobby Watson, Gary Bartz - Bird at 100 (2019) Smoke Sessions Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799458.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Mal Waldron & Steve Lacy - The Super Quartet Live at Sweet Basil (1987) Bellapho
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799450.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Chano Dominguez - Chano (1993) Nuba Records [FLAC|Lossless|tracks + .cue] <World
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799261.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Ike Quebec - It Might As Well Be Spring (1961) 1998, Ars Nova [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799254.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Konstantin Klashtorni & Love Suggestions - Sax Night (2017) [FLAC|Lossless|WEB-D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799230.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Zoot Sims - New Beat Bossa Nova, Vol. 1 & 2 (1962) 2004,  Colpix Records/Toshiba
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799229.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Toots Thielemans - The Real... Toots Thielemans (2017) 3CD [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799217.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Konrad Paszkudzki Trio - Serenade In Blue: Harry Warren Song Book (2018) Venus R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799126.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Mokhtar Samba & WDR Big Band Cologne - Musique d'Afrique (2016) [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798883.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Miles Davis - In Person, Saturday Night at The Blackhawk, San Francisco, Vol.II 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798880.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Billie Holiday - Don't Explain (1956 - 1958) 1990, Magic Music [FLAC|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798860.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Ike Quebec - The Complete Blue Note 45 Sessions (1959, 1960, 1962) 2CD, 2005, Bl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798853.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Henry Mancini - The Real... Henry Mancini (2014) 3CD [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798802.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Aldo Romano - Threesome (2004) Universal [FLAC|Lossless|tracks + .cue] <Post-Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798789.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Johnny Frigo - Summer Me!: Live at Battle Ground (1986 - 1997) 2008, Log Cabin R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798779.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Ella Fitzgerald - Milestones Of A Jazz Legend: Sings The Songbooks (1956 - 1959)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798472.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Joe Henderson - Mode For Joe (1966) 1988, Blue Note Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798301.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Claudio Chiara - It's Easy to Say (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798134.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Dexter Gordon Quartet - Espace Cardin 1977 (2018) Elemental Music [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798104.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Joe Henderson - The Complete Blue Note Studio Sessions (1963 - 1967) 5CD, 2021, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798001.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Cymande - Arrival (2009) [FLAC|Lossless|tracks + .cue] <Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797872.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ George Adams & Don Pullen Quartet - Decisions (1984) Remaster, 2015, Solid Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797702.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ The Hal Galper Quintet Live - Redux '78, 1991, Concord Jazz(1991) [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797700.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Art Farmer - Gentle Eyes (1971/1972) 1991, Mainstream Records[FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797698.jpg" />
 </div>
 
 

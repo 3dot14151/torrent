@@ -1,3 +1,81 @@
+###  Публикация: 1447619   (1031490) от 14.02.2021
+
+Her Story (2015) [En] (1.0) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Her Story – новая видеоигра от Сэма Барлоу, создателя Silent Hill: Shattered Memories и Aisle. Весь игровой процесс криминального детектива Her Story вращается вокруг полицейской базы данных с допросами подозреваемых. Во всех видеороликах допросов снялась Вива Сейферт, актриса и участница группы Joe Gideon and the Shark. Как это работает? Her Story усаживает вас (   Читать дальше...   )Тип издания: LicenseРазработчик: Sam BarlowЖанр: Simulator, Detective, FMVЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3251ACDBC7BF0615B95E0037B540B8D165AA18C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621190   (1031314) от 23.03.2023
+
+Rough Justice: '84 (2023) [Multi] (1.0.1) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rough Justice: '84 - детективный симулятор, дающий возможность управлять частным охранным агентством. События игры развиваются в солнечных 80-х годах. На плечи игрока выпадает тяжелая ноша - очистить улицы родного города от преступности. В центре истории секретные организации, тайные заговоры и политические интриги. Геймплей позволяет нанимать команду опытных оперативников, (   Читать дальше...   )Тип издания: LicenseРазработчик: Gamma Minus UGЖанр: Приключение, Стратегия, ДeтективЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, Немецкий, Французский, Китайский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Китайский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAE71DF420B6CB5D73B45ED3F875783130EDDB1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238319   (1031005) от 16.02.2021
+
+Don't Starve (2013) [Ru/En] (429404/dlc) Repack West4it
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031005.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Don’t Starve» — это бескомпромиссная игра на выживание в диком мире, наполненном наукой и магией. Вы — Уилсон, отважный ученый господин, которого поймал злобный демон и отправил в загадочные дикие земли.Тип издания: RepackРазработчик: Klei EntertainmentЖанр: Adventure, Indie, Sandbox, HorrorЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1DD31C5A0BE8703AA9C9D4F47DEE5FA3440B011
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1621772   (1030635) от 26.03.2023
 
 Outcast - Second Contact (2017) [Multi] (Patch 2 Hotfix) License GOG
@@ -6,7 +84,7 @@ Outcast - Second Contact (2017) [Multi] (Patch 2 Hotfix) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030635.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Broken Pieces (2022) [Ru/Multi] (1.3.1 Build 10795835) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030617.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Journey to the Savage Planet (2021) [Ru/Multi] (1.0.10/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030543.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ The Signifier (2020) [Ru/Multi] (1.04) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030340.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ The Shore (2021) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029839.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ A Space for the Unbound (2023) [Multi] (1.0.30.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029764.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Find Yourself (2021) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029425.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Breathedge (2021) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028957.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ ColdSide (2020) [Ru/Multi] (1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028760.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Beyond a Steel Sky (2020) [Ru/Multi] (1.3.27878/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028759.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ DISTRAINT (2015) [Ru/Multi] (1.1) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027661.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Sword Art Online: Alicization Lycoris (2020) [Ru/En] (1.30/dlc) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027267.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Mundaun (2021) [Ru/Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025870.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Remothered: Broken Porcelain (2020) [Ru/Multi] (1.8.0.1Fix) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025866.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ The Medium (2021) [Ru/Multi] (1.2) Repack SpaceX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025363.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Lust from Beyond (2021) [Ru/Multi] (1.0) License CODEX [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024967.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Little Nightmares II (2021) [Ru/Multi] (5.68/dlc) Repack SpaceX [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024689.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Arkham Horror: Mother's Embrace (2021) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024662.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Visage (2020) [Ru/Multi] (3.04) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024655.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Octodad: Dadliest Catch (2014) [Ru/Multi] (1.2.19351/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024330.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Genesis Noir (2021) [Ru/Multi] (1.0) Repack SpaceX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024118.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Clea 2 (2021) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024116.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Presence (2021) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024112.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Presence (2021) [Ru/Multi] (1.0) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC75F798DAC9B995AF61DF8795AB773CCD26DAE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458466   (1023712) от 29.03.2021
-
-Paradise Lost (2021) [Ru/Multi] (12490.1383cl.shipping) Repack Other s
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023712.jpg" />
-</div>
-
-
-###  Подробнее
-
-Станьте участником последней истории на Земле в Paradise Lost, эмоциональной игре о выживании после конца света. Узнайте, что случилось в подземном городе, спрятанном в заброшенном бункере нацистов. Славянская мифология здесь сталкивается с ретрофутуризмом.Тип издания: RepackРазработчик: PolyAmorousЖанр: Adventure, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7230DFB0534494036F445465D7859021918CF52E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459062   (1023355) от 31.03.2021
-
-From The Darkness (2021) [Ru/En] (1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023355.jpg" />
-</div>
-
-
-###  Подробнее
-
-From the Darkness — это хоррор-игра от первого лица, в которой основное внимание уделяется созданию страха у игрока. Большую часть времени вам предстоит ходить и исследовать заброшенную квартиру умершего дедушки, в которую вы пришли за старым семейным альбомом, но в квартире начинают твориться странные вещи, тот кто живет во тьме не отпустит вас так легко. Ваша главная (   Читать дальше...   )Тип издания: RepackРазработчик: N4bAЖанр: Adventure (Horror), 1st Person, 3DЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABB99096D1C3FF5E4393EB002D7E2B8A57B60AFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459969   (1022685) от 04.04.2021
-
-Raji: An Ancient Epic (2020) [Ru/Multi] (1.4.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022685.jpg" />
-</div>
-
-
-###  Подробнее
-
-Raji: An Ancient Epic — это action-adventure, которая отправит вас в путешествие по Древней Индии. Молодой девушке Раджи, ставшей по воле богов единственной защитницей человечества, предстоит уничтожить орды демонов во главе с их предводителем, чтобы спасти своего младшего брата.Тип издания: RepackРазработчик: Nodding Heads GamesЖанр: Adventure, Action, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87A4CEA75A32C41D9A13B6DE2D614EE5C71378EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

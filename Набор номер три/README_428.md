@@ -1,3 +1,216 @@
+###  Публикация: 1250690   (421866) от 29.09.2018
+
+Как «Ростелеком» за 35 миллионов поменял «ухо» на «галочку»
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_421866.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специалисты раскритиковали новый символ национального оператора, пришедший на смену «уху». По их словам, «гора родила мышь». Впрочем, про МТС с "яйцом" в свое время говорили не лучше.«Ростелеком», во главе с бывшим вице-губернатором Петербурга Михаилом Осеевским, как и анонсировал топ-менеджер в 2017 году, сменит имидж. На разработку потрачено 35 млн рублей, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1166401   (420932) от 18.09.2017
+
+Спрячь лицо и спи спокойно
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_420932.jpg" />
+</div>
+
+
+###  Подробнее
+
+Китайские магазины начали продавать специальные маски, которые должны защитить владельцев iPhone от несанкционированного доступа к смартфону.Спрос на маски возник после презентации нового iPhone X, где сканер отпечатка пальца заменили на систему распознавания лица.Это озадачило поклонников продукции Apple, которые начали бояться, что злоумышленники отсканируют их (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112410   (420900) от 18.09.2017
+
+Need for Speed: Most Wanted (2012) [Ru] (1.5.0.0/dlc) Repack Other s [Limited Edition]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Открытый мир в Need for Speed™ Most Wanted дает вам свободу передвижения на четырех колесах. Прыгайте с трамплинов, срезайте путь, скрывайтесь или гоняйтесь там, где ландшафт лучше всего подходит вашей машине. Пробивайтесь мимо полиции и обгоняйте соперников, используя свои умения, лучшие машины и тонны нитро. Есть только вы, ваши друзья и огромный выбор машин. Посмотрим, (   Читать дальше...   )Тип издания: RepackРазработчик: Criterion GamesЖанр: Arcade, Racing (Cars), 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0039BD5B8EBB92BE4D9765BBB53333832C6F3DE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065132   (420837) от 22.10.2016
+
+Специалисты ЕКА получили данные, раскрывающие причину молчания посадочного модуля Schiaparelli
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_420837.jpg" />
+</div>
+
+
+###  Подробнее
+
+Посадочный модуль Schiaparelli российско-европейской миссии ExoMars 2016 продолжает оставаться недоступным для контакта, а специалисты Европейского Центра космических операций (European Space Operations Centre, ESOC) в Дармштадте, Германия, не прекращают искать объяснения и подсказки относительно нынешнего состояния и дальнейшей судьбы этого космического аппарата. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065131   (420824) от 22.10.2016
+
+Самый большой в мире радиотелескоп присоединился к поискам внеземных цивилизаций
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_420824.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ученые, занимающиеся поисками следов высокоразвитых внеземных цивилизаций, получили в свой арсенал еще один астрономический инструмент. Это произошло после того, как руководство китайской Национальной астрономической обсерватории (National Astronomical Observatories of China, NAOC) приняло решение о присоединении к инициативе Breakthrough Listen Initiative, программе (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 557580   (420619) от 07.10.2012
+
+XCOM Enemy Unknown [Xbox 360] [ENG] [Region Free] [LT 3.0/XGD3/14719] (2012)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420619.jpg" />
+</div>
+
+
+###  Подробнее
+
+Станьте частью секретной военной организации под названием XCOM. Отныне вы и ваши соратники — последнее препятствие на пути враждебных инопланетян к завоеванию Земли. В роли командира спецподразделения вам предстоит распределять ресурсы, развивать технологии, разрабатывать общую стратегию сражений и определять тактическую диспозицию каждого солдата.
+
+Оригинальная XCOM — настоящая жемчужина мира компьютерных игр. И теперь ее идеи, возможности и тактическая глубина вновь оживут, благодаря стараниям сотрудников Firaxis Games.
+
+XCOM: Enemy Unknown привнесет в мир XCOM новую историю, новых врагов и новые технологии, с помощью которых вам предстоит защитить Землю. Судьба человечества окажется в ваших руках. Только эффективно исследуя технологии пришельцев, развивая собственную базу, планируя операции и контролируя передвижения каждого бойца на поле боя, можно достичь успеха в этой войне.Жанр: Strategy (Real-time/Turn-based/Tactical)Перевод: НетЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FCDE9D1182E05C18A1D7CF3600FDADEBF6B9B64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 557160   (420584) от 07.10.2012
+
+Batman: Arkham City Game of the Year Edition + 6 DLC [Ru/En] (RePack) 2012 | R.G. Revenants
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Студия Rocksteady — создатели проекта Batman: Arkham Asylum — приглашают игроков вновь окунуться в мрачную и таинственную атмосферу Готэма в игре «Batman: Аркхем Сити».
+Аркхем — район, где бесчинствуют выпущенные из психиатрической клиники и предоставленные сами себе безумцы, матерые преступники и маньяки. Это черное пятно в самом сердце Готэма, отгороженное от окружающего города неприступной стеной. А как известно, где зло — там и Бэтмен! В Аркхеме легендарный Человек-летучая мышь встретится со многими знаменитыми героями и злодеями, а игроки испытают на себе, каково это — быть Темным Рыцарем. (   Читать дальше...   )Тип издания: RepackЖанр: Action / 3D / 3rd Person / StealthЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95CF84A5A37FE165265B9BE6054AFDDF2C18F671
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 557099   (420580) от 07.10.2012
+
+Anno 2070 Deluxe Edition + 9 DLC + Addon "Deep Ocean" [Ru] (Repack/2.0.7780] 2011 | R.G. Catalyst
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420580.jpg" />
+</div>
+
+
+###  Подробнее
+
+К 2070 году глобальный экологический кризис привел к тому, что уровень воды в океанах и морях существенно повысился. Многие города и целые равнины оказались под водой, а выжившие люди вынуждены осваивать новые технологии и способы добывание пищи из моря. Именно в подобных условиях вам и придется строить собственную империю в экономическом симуляторе "Anno 2070".Тип издания: RepackРазработчик: Related DesignsЖанр: Strategy (Manage/Busin. / Real-time) / 3DЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22F62F07997ADD45B6BDB8077B8D2728E0E84583
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1572307   (420579) от 27.08.2022
 
 Спиратили у пиратов: кинотеатры в России начали показывать фильмы с неофициальной озвучкой
@@ -6,7 +219,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_420579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_420579.jpg" />
 </div>
 
 
@@ -32,7 +245,7 @@ Adobe CS6 Master Collection DVD Update 2 [RUS / ENG]
 >>32
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_420578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_420578.jpg" />
 </div>
 
 
@@ -58,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_420517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_420517.jpg" />
 </div>
 
 
@@ -84,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_420500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_420500.jpg" />
 </div>
 
 
@@ -110,7 +323,7 @@ BELOFF 2016.10 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420350.jpg" />
 </div>
 
 
@@ -136,7 +349,7 @@ Assassin's Creed: Syndicate (2015) [Ru] (1.51/dlc) SteamRip Let'sPlay [Gold Edit
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420343.jpg" />
 </div>
 
 
@@ -162,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420338.jpg" />
 </div>
 
 
@@ -188,7 +401,7 @@ tinyCam Monitor PRO v7.1.1 [Ru/Multi] - Мобильное видеонаблю�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420337.jpg" />
 </div>
 
 
@@ -214,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>9
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_420325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_420325.jpg" />
 </div>
 
 
@@ -240,7 +453,7 @@ Ancestors: The Humankind Odyssey (2019) [Ru/Multi] (1.1) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420309.jpg" />
 </div>
 
 
@@ -266,7 +479,7 @@ BATTLETECH (2018) [Ru/Multi] (1.7.0/dlc) License PLAZA [Digital Deluxe Edition]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420307.jpg" />
 </div>
 
 
@@ -292,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420305.jpg" />
 </div>
 
 
@@ -318,7 +531,7 @@ Wreckfest (2018) [Ru/Multi] (1.25.0834/dlc) License CODEX
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420301.jpg" />
 </div>
 
 
@@ -344,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420150.jpg" />
 </div>
 
 
@@ -370,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_420020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_420020.jpg" />
 </div>
 
 
@@ -396,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_420015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_420015.jpg" />
 </div>
 
 
@@ -422,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_420011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_420011.jpg" />
 </div>
 
 
@@ -448,7 +661,7 @@ Windows 10 2004 (x64) 8in1 by Eagle123 (09.2020) [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_420001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420001.jpg" />
 </div>
 
 
@@ -459,219 +672,6 @@ Windows 10 v2004 19041.508, включающая в себя 4 русских и
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C42542CC4823EF288C88B4064069187B7EB19E77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946934   (419995) от 16.10.2015
-
-Первая в мире полностью роботизированная сельскохозяйственная ферма начнет функционировать в Японии в 2017 году
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_419995.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роботы, без сомнения, являются идеальными сельскохозяйственными работниками будущего. В качестве доказательства этому утверждению японская компания Spread занимается сейчас строительством первой в мире фермы по выращиванию салата, работать на которой будут исключительно роботы под управлением специализированных компьютеров. Согласно планам, эта ферма начнет работать (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 724240   (419776) от 16.10.2015
-
-Deep Purple - Machine Head (1972) [FLAC 2.0 24/192|tracks(Vinyl-Rip)]<Rock, Heavy Metal>
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419776.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Highway Star  6:06
-2. Maybe I'm A Leo  4:52
-3. Pictures Of Home  5:06(   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 00:37:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07725C1E7A70A39DFCD7AD3FAB5107E6FA0E1CAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947419   (419627) от 16.10.2015
-
-Cowon jetAudio 8.1.4.303 Plus Retail [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419627.jpg" />
-</div>
-
-
-###  Подробнее
-
-JetAudio - это универсальный проигрыватель музыкальных и видео файлов, риппер, конвертер и т.д., в общем, все в одном комплекте. Программа поддерживает практически все музыкальные форматы, умеет проигрывать MP3, MP2, WAV, MID, REAL AUDIO/VIDEO, S3M, MOD, MPG, AVI, MOV, Video/Audio CD, RealPlayer G2 и некоторые другие форматы мультимедийных файлов. Позволяет записывать (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47037DD354CC46F0498C0CFEFA411B1B18DDCEFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947296   (419624) от 16.10.2015
-
-DisplayFusion Pro 7.3.1 Final [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419624.jpg" />
-</div>
-
-
-###  Подробнее
-
-DisplayFusion многофункциональная программа изменения и настройки интерфейса Windows. С ее помощью вы сможете: расположить в заголовках окон настраиваемые кнопки управления с дополнительными опциями управления окна; задать привила расположения и размеров окон, а так же их взаимодействия между собой и краями монитора; использовать сетевые источники фоновых изображений (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD6647D0E244F446FB93220138DF8B381E2AAD56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947014   (419619) от 16.10.2015
-
-Adobe Acrobat Professional DC (v15.9) Multilingual
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419619.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Acrobat Professional DC — это полностью обновленная настольная версия лучшего в мире решения для работы с файлами PDF. В состав этого решения входит мобильное приложение, позволяющее подписывать и отправлять файлы PDF, а также заполнять формы с любых устройств. Он содержит множество интеллектуальных функций, которые предоставляют дополнительные возможности (   Читать дальше...   )Язык интерфейса: Английский / Венгерский / Голландский / Датский / Испанский / Итальянский / Китайский (упрощенный) / Китайский (традиционный) / Корейский / Немецкий / Норвежский / Польский / Португальский / Русский / Словацкий / Словенский / Турецкий / Украинский / Финский / Французский / Чешский / Шведский / Японский / Английский с поддержкой арабского письма / Английский с поддержкой (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5885164D794832C4989DD18D6DA3CFD27A7F5F27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947112   (419618) от 16.10.2015
-
-Windows 10 (x86/x64) 12in1 by SmokieBlahBlah 15.10.15 [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419618.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 редакций Windows 10 с обновлениями по октябрь 2015, основанных на оригинальных образах. В самих образах ничего не вырезано и не протвикано, интегрированы обновления по октябрь 2015, .NET Framework 3.5, RuntimePack, VC++ 2005-2015, DirectX 9.
-Присутствует "Настройка установки" (см. 2-ый скриншот)
-В boot.wim (x86) интегрирован софт (см. 3-ой скриншот). (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5C23CA5E19FDD37B43BADB01E637DF2793E8FFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947237   (419617) от 16.10.2015
-
-TNod User & Password Finder 1.6.0 Beta + Portable [Multi/Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419617.jpg" />
-</div>
-
-
-###  Подробнее
-
-TNOD User & Password Finder – это программа, которая при каждом запуске системы или по требованию пользователя, ныряет в интернет и ищет ключи для ESET NOD32 Smart Security и ESET NOD32 Antivirus всех версий 2.5.x, 2.7.x, 3.x, 4.x, 5.x, 6.x, 7.x, 8.x y 9.0 и автоматически вставляет их. Также в программе есть возможность сохранить найденные ключи в текстовом формате. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAE6EC4AF4A9F949AD6F74172406BF86C356A814
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 837820   (419615) от 16.10.2015
-
-Call Of Duty: Advanced Warfare (2014) [PS3] [EUR] [3.55] [Cobra ODE / E3 ODE PRO ISO] [PSN / 1.20 / 9 DLC] [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Call of Duty: Advanced Warfare — шутер от первого лица, разрабатываемый студией Sledgehammer Games при поддержке High Moon Studios. Действие Call of Duty: Advanced Warfighter разворачивается в не столь далеком будущем, в котором частные военные компании стали самыми эффективными войсками, услугами которых пользуются страны во всем мире, а самым могущественным человеком (   Читать дальше...   )Тип издания: PSNРазработчик: Sledgehammer GamesЖанр: Action (Shooter) / 1st PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26E072895CD0CE7F01D3F44E27135C7CBACC1DD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

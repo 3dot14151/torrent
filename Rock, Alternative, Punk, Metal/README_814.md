@@ -1,3 +1,32 @@
+###  Публикация: 1454071   (244201) от 13.03.2021
+
+ПсиХХХо - Молиться, умирать, молчать... (Часть 1) (2021) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Молиться, умирать, молчать... [00:05:21]
+02. Помощь идет! [00:03:49]
+03. Если я не плыву [00:04:22]
+04. Гори, оставайся! [00:03:29](   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:30:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52336055CA197952E6F1E6217F1E6D51A6571388
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1621078   (244198) от 29.03.2023
 
 Therion - Leviathan II (2022) [FLAC|Lossless|image + .cue] <Symphonic Metal>
@@ -6,7 +35,7 @@ Therion - Leviathan II (2022) [FLAC|Lossless|image + .cue] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244198.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Trippelganger - Trip to Hell (2023) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner, D
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244174.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Void - Horrors of Reality (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244170.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Heart Healer - The Metal Opera (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244161.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Ship Thieves - Irruption (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Punk Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244153.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ High Five - Salad Balloon (2023) [MP3|320 Kbps] <Psychedelic, Space Rock, Krautr
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244147.jpg" />
 </div>
 
 
@@ -179,7 +208,7 @@ Russkaja - No One is Illegal (2019) [FLAC|Lossless|WEB-DL|tracks] <Gypsy Punk, S
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244144.jpg" />
 </div>
 
 
@@ -208,7 +237,7 @@ Elyose - 5 Albums (2015-2023) [MP3|320 Kbps] <Modern Industrial, Gothic, Nu-Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244132.jpg" />
 </div>
 
 
@@ -237,7 +266,7 @@ John Illsley - 9 albums, 4 singles, 15CD (1984-2022) [FLAC|Lossless|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244129.jpg" />
 </div>
 
 
@@ -265,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244126.jpg" />
 </div>
 
 
@@ -294,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244124.jpg" />
 </div>
 
 
@@ -323,7 +352,7 @@ Rizon - Prime Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244123.jpg" />
 </div>
 
 
@@ -352,7 +381,7 @@ Colorsfade - Built From The Wreckage (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk-
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244114.jpg" />
 </div>
 
 
@@ -381,7 +410,7 @@ Crippled Black Phoenix - Banefyre (2022) 2xCD [FLAC|Lossless|image + .cue] <Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244110.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ Goblin Hovel - The Comedy of Forms, The Tragedy of Function (2021) [MP3|320 Kbps
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244106.jpg" />
 </div>
 
 
@@ -439,7 +468,7 @@ Cattle Decapitation - Terrasite (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244101.jpg" />
 </div>
 
 
@@ -468,7 +497,7 @@ Die Apokalyptischen Reiter - Tief.Tiefer (2014) 2xCD [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244096.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ The Radio Sun - Heaven Or Heartbreak (2015) [FLAC|Lossless|image + .cue] <Melodi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244089.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ Stargazer - Life Will Never Be The Same (2023) [FLAC|Lossless|image + .cue] <Mel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244087.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ Bort - Valhalla (2021) [MP3|320 Kbps] <Stoner, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244081.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ Ad Infinitum - Chapter III: Downfall (2023) [FLAC|Lossless|WEB-DL|tracks] <Symph
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244075.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ The Radio Sun - Unstoppable (2017) [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244074.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ Epic - Starlight (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, Female
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244069.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ Die Apokalyptischen Reiter - Der Rote Reiter (2017) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244066.jpg" />
 </div>
 
 
@@ -700,7 +729,7 @@ T3nors - Naked Soul (2023) [MP3|320 Kbps] <AOR, Melodic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244065.jpg" />
 </div>
 
 
@@ -714,35 +743,6 @@ T3nors - Naked Soul (2023) [MP3|320 Kbps] <AOR, Melodic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F40E8EF8E2F50E8EC1ECB3B5116C396879AE9CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611047   (244057) от 11.02.2023
-
-Dispyria - 3 Albums (2012-2023) [MP3|320 Kbps] <Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244057.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2012 "Dispyria"
-2019 "The Journey To Aelyrea"
-2023 "The Story Of Marion Dust"Жанр: Heavy, Power MetalПродолжительность: 02:33:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B891BFC568AC1FB43A9A2EAFCAB0A51B91D65EC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

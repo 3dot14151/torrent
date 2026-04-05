@@ -6,7 +6,7 @@ Shadow Complex Remastered (2016) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777769.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ The Beggar's Ride (2016) [En/Multi] (1.0) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777091.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Chicku (2016) [En] (1.05) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777060.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Otem's Defiance (2016) [En/Sp] (2.1.0.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777059.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Hyposphere (2016) [En] (1.0) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776651.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ UTOPIA 9 - A Volatile Vacation (2016) [En] (1.0 u23) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776641.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ The Beggar's Ride (2016) [En/Multi] (1.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776639.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Fear Effect Sedna (2018) [En/Fra/Ge] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776632.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ CHUCHEL (2018) [Ru/Multi] (1.0.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776257.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ SkyKeepers (2017) [En] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775977.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ I and Me (2016) [En/Zh] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775892.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ SOULCALIBUR VI / SOULCALIBUR 6 (2018) [Ru/Multi] (01.10.01/dlc) Repack Other s [
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775558.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ The Hong Kong Massacre (2019) [En] (1.0) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774851.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Sundered (2017) [Ru/Multi] (911/upd2) License PLAZA [Eldritch Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774793.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Braid (2009) [Ru/Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773909.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ The Sexy Brutale (2017) [En] (1.0) License SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772736.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Tinertia (2015) [Multi] (2.0/dlc) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772735.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ ZAMB! Endless Extermination (2019) [Ru/Multi] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772646.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ The Expendables 2: Videogame (2012) [Ru/Multi] (1.0) Repack =nemos=
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772224.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ AVICII Invector (2019) [Ru/Multi] (1.4.4) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771189.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Chicku (2016) [En] (1.05) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771057.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Riff Racer - Race Your Music! (2016) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770034.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Shadow Complex Remastered (2016) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769433.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Shadow Complex Remastered (2016) [Ru/Multi] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769425.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Holy Potatoes! We're in Space?! (2017) [Ru/Multi] (1.1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766702.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Hellmut: The Badass from Hell (2018) [Ru/Multi] (1.0.3/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766488.jpg" />
 </div>
 
 

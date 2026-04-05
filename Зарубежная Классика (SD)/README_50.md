@@ -1,3 +1,58 @@
+###  Публикация: 1029214   (651377) от 04.07.2016
+
+Беги, человек, беги / Corri uomo corri (1968) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651377.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бежав из тюрьмы, Кучильо и Рамирез направляются в город, в котором бандит Риза ищет спрятанное золото. За ними по пятам идут два французских агента, тоже имеющих виды на сокровище.Производство: Италия, Франция / Chretien, MancoriЖанр: Комедия, Приключения, ВестернРежиссер: Серджо СоллимаАктеры: Томас Милиан, Дональд О’Брайэн, Джон Айрленд, Линда Верас, Марко Гульельми, Хосе Торрес, Лучано Росси, Нелло Паццафини, Джанни Риццо, Данте МаджиоПеревод: Одноголосый закадровый, любительский (echnathon)Субтитры: ОтсутствуютПродолжительность: 02:00:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:551AB16F1D94F88F54F2017973AB23FCEDCE7461
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 344882   (651278) от 02.06.2011
+
+Филадельфийская история / The Philadelphia Story (1940) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651278.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Филадельфийская история", выйдя на экраны, сразу покорила сердца зрителей всего мира,
+комедийные ситуации и великолепно сыгранные роли героев восхищают нас и сегодня.
+
+Холодная красавица миссис Трейси разведена и готовится вновь выйти замуж за Джорджа, управляющего нефтяной компанией ее отца.(   Читать дальше...   )Жанр: Комедия, МелодрамаРежиссер: Джордж КьюкорАктеры: Кэри Грант, Кэтрин Хепберн, Джеймс Стюарт, Рут Хасси, Джон Ховард, Роланд Янг, Джон Холлидэй и др.Перевод: Многоголосый, закадровый + Оригинальная дорожкаСубтитры: Русские ( отдельным файлом)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2B6CEB00CB143149F7AEF8F4F4D2E96DD7214EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029338   (651253) от 04.07.2016
 
 Троянская война / La guerra di Troia (1961) DVDRip
@@ -6,7 +61,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651253.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651099.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650945.jpg" />
 </div>
 
 
@@ -85,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650249.jpg" />
 </div>
 
 
@@ -111,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649418.jpg" />
 </div>
 
 
@@ -137,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649406.jpg" />
 </div>
 
 
@@ -165,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649235.jpg" />
 </div>
 
 
@@ -192,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649152.jpg" />
 </div>
 
 
@@ -218,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649138.jpg" />
 </div>
 
 
@@ -245,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649122.jpg" />
 </div>
 
 
@@ -271,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_648978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_648978.jpg" />
 </div>
 
 
@@ -297,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648357.jpg" />
 </div>
 
 
@@ -324,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647403.jpg" />
 </div>
 
 
@@ -350,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_647245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_647245.jpg" />
 </div>
 
 
@@ -376,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646756.jpg" />
 </div>
 
 
@@ -403,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645810.jpg" />
 </div>
 
 
@@ -429,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645678.jpg" />
 </div>
 
 
@@ -456,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645361.jpg" />
 </div>
 
 
@@ -482,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645327.jpg" />
 </div>
 
 
@@ -508,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645209.jpg" />
 </div>
 
 
@@ -534,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_645071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_645071.jpg" />
 </div>
 
 
@@ -561,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644667.jpg" />
 </div>
 
 
@@ -587,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644606.jpg" />
 </div>
 
 
@@ -614,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644221.jpg" />
 </div>
 
 
@@ -625,58 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07401BED199251B37DE79A10C7165FF5EC9D5520
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 216965   (643902) от 08.07.2010
-
-Шелест / Фру-Фру / Frou-Frou (1955) [H.264] DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643902.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шестнадцатилетняя Антуанетта (Дени Робен) по прозвищу Фру-Фру продает цветы в ресторане. Как-то, очаровав компанию мужчин своей непосредственностью, она получает от них интересное предложение: русский князь Владимир Преображенский (Джино Черви), итальянский граф, полковник (Луи де Фюнес) и богатый предприниматель Сабатье обещают содержать её, предоставить ей все необходимое для роскошной жизни, апартаменты, кареты, если Фру-Фру согласится принимать их у себя по определённым дням и позволит им заниматься своим воспитанием и образованием. При этом близких отношений между ними быть не может, и господа обязаны скрывать нежные чувства к ней, если таковые возникнут. Другими словами четверо скучающих мужчин нашли себе развлечение в виде простой девушки и хотят сделать из неё светскую львицу. Фру-Фру соглашается. Мужчины составляют план посещений, и каждый начинает воспитывать её в соответствии со своими представлениями. Наконец, преподав ей уроки хороших манер и французской истории, покровители решают вывести её в свет (   Читать дальше...)Жанр: драмаРежиссер: Августо Дженина / Augusto GeninaВ ролях: Дени Робен / Dany Robin, Джино Черви / Gino Cervi, Филипп Лемер / Philippe Lemaire,Перевод: Оригинальный, Профессиональный (многоголосый, закадровый)Формат: Matroska
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD75DB1641E78FBFEB2DEA9EF1D6DA92D96A0932
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030722   (643676) от 08.07.2016
-
-Куантес / Quantez (1957) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643676.jpg" />
-</div>
-
-
-###  Подробнее
-
-Банда под предводительством Хеллера ограбила банк и, скрываясь от погони, остановилась переночевать в заброшенном городке под названием Куантес. И тут уже в голове каждого из налётчиков начала созревать идея как бы завладеть деньгами, не поделившись с остальными, прихватив в придачу еще и красавицу Чейни. К тому же городок Куантес находился на территории апачей, (   Читать дальше...   )Производство: США / Universal International Pictures (UI or U-I)Жанр: ВестернРежиссер: Гарри КеллерАктеры: Фред МакМюррэй, Дороти Мэлоун, Джеймс Бартон, Сидни Чаплин, Джон Гэвин, Джон Ларч, Майкл Ансара, Чарльз СолданиПеревод: Одноголосый закадровый (Ю.Медведев)Субтитры: ОтсутствуютПродолжительность: 01:20:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE6B84ABEE2EB60833233A6C16D3F14D066C98B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

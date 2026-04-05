@@ -1,3 +1,166 @@
+###  Публикация: 1705890   (63398) от 10.03.2024
+
+Спецназ животного мира / Animal Special Forces (2018) WEBRip [H.264/1080p] (сезон 1, серии 1-6 из 6)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63398.jpg" />
+</div>
+
+
+###  Подробнее
+
+С помощью современного оборудования и новейших исследований зрители смогут погрузиться в тайны волшебного мира дикой природы.
+Спецназ — только так можно назвать создания, наделенные феноменальной силой, невероятной гибкостью и необычными органами чувств.Производство: США, Чехия / KM Records, BIG MediaЖанр: документальныйРежиссер: Макс СериоУчастники: Джим О’БрайэнПеревод: Дублированный (по заказу "Русский Репортаж")Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~00:48:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F18434690000B548E214DC7E8B945376DB02D71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705792   (63392) от 10.03.2024
+
+Ты не поверишь! (09.03.2024) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63392.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Ты не поверишь!» — информационно-развлекательная программа в жанре светского репортажа, освещающая жизнь богатых и знаменитых со всех сторон. Шикарные особняки и тайный бизнес звезд — на чем они зарабатывают свои миллионы? Новые романы и закрытые свадьбы — как живут семьи знаменитых артистов?
+
+Звездные подарки к 8 Марта, защита от назойливых фанатов, Лариса Долина (   Читать дальше...   )Телекомпания: НТВЖанр: ТВ-шоуЯзык озвучки: РусскийПродолжительность: 00:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8878E93CAFAA948F1E384EBB7AC28CD4ECEC6399
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704279   (63386) от 10.03.2024
+
+Первая передача на НТВ. Автомобильная передача (03.03.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63386.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разнузданный босс автосервиса без тормозов: чем может обернуться ремонт по ОСАГО?
+ Зачем коммунальщики разбрасывают снег по асфальту?
+ Freelander второго поколения: реальный внедорожник или «премиум-понты»?
+ «Поворотник» - как он может обмануть?Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:24:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2C6A2ABB6BFC107FEE17A4843CF22A04AEE0429
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705800   (63268) от 11.03.2024
+
+Экстрасенсы. Реванш (09.03.2024) WEBRip [H.264/1080p] (сезон 1, выпуск 9)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экстрасенсы. Реванш - новое мистическое шоу, где участники «Битвы экстрасенсов», которые так и не смогли одержать победу, ещё раз бросят вызов себе и покажут, на что они способны. У них есть амбиции, способности, сила и даже место в финале своего сезона. Нет только победы, за которую они сразятся в новом проекте ТНТ.
+В «Экстрасенсы. Реванш» участники и финалисты (   Читать дальше...   )Телекомпания: ТНТЖанр: Телепередача, ТВ-шоу, Реальное ТВСубтитры: ОтсутствуютПродолжительность: 01:13:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47763B28B5C97FC7E1DDDABD9184E54344CB304C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706401   (63199) от 12.03.2024
+
+Жизнь и смерть Тупака Шакура / The Life and Death of Tupac Shakur (2021) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Борьба на грани: история простого парня из Гарлема, успевшего за четверть века жизни изменить историю хип-хопа.Производство: Великобритания / Entertain Me ProductionsЖанр: документальный, биография, криминал, музыкаРежиссер: Finlay BaldУчастники: Donovon Allion-Ruddock, Tupac ShakurПеревод: Одноголосый профессиональныйЯзык озвучки: Русский, английскийСубтитры: отсутствуютПродолжительность: 01:04:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECF6021551E3C9C729862A47575E7D8B8C0D23CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706415   (63194) от 12.03.2024
+
+Роллинг Стоунз. Короли рока / The Rolling Stones: Rock Royalty (2018) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63194.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полувековая история культовой группы, созданной как альтернатива «битлам» и ставшей символом свободы и рок-н-ролла.Производство: Великобритания / Entertain Me ProductionsЖанр: документальный, музыкаРежиссер: Matt SalmonУчастники: Gerry Conway, Tony Calder, Howard CohenПеревод: Одноголосый профессиональныйЯзык озвучки: Русский, английскийСубтитры: отсутствуютПродолжительность: 01:00:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EF1DF2BFBA1960B7D0C13637212096E162C35C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 239962   (63153) от 13.03.2024
 
 Подстрочник (2008/2009) TVRip
@@ -6,7 +169,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63153.jpg" />
 </div>
 
 
@@ -32,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62826.jpg" />
 </div>
 
 
@@ -60,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62779.jpg" />
 </div>
 
 
@@ -89,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62746.jpg" />
 </div>
 
 
@@ -115,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62612.jpg" />
 </div>
 
 
@@ -141,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62608.jpg" />
 </div>
 
 
@@ -167,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62602.jpg" />
 </div>
 
 
@@ -193,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62447.jpg" />
 </div>
 
 
@@ -219,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61966.jpg" />
 </div>
 
 
@@ -245,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61961.jpg" />
 </div>
 
 
@@ -271,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61271.jpg" />
 </div>
 
 
@@ -297,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60640.jpg" />
 </div>
 
 
@@ -323,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60539.jpg" />
 </div>
 
 
@@ -349,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60324.jpg" />
 </div>
 
 
@@ -375,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кинолетопись Страны Советской
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60148.jpg" />
 </div>
 
 
@@ -403,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59816.jpg" />
 </div>
 
 
@@ -429,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59754.jpg" />
 </div>
 
 
@@ -455,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59709.jpg" />
 </div>
 
 
@@ -481,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59513.jpg" />
 </div>
 
 
@@ -507,7 +670,7 @@ History Channel. Нацисты на наркотиках: Гитлер и бл�
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59094.jpg" />
 </div>
 
 
@@ -519,166 +682,6 @@ History Channel. Нацисты на наркотиках: Гитлер и бл�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06396A0132AD51B06E130378598576E664F28649
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717625   (59084) от 20.04.2024
-
-Новая Битва экстрасенсов (20.04.2024) WEBRip [H.264/1080p] (сезон 24, выпуск 05)
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59084.jpg" />
-</div>
-
-
-###  Подробнее
-
-24-й сезон легендарного проекта «Битва экстрасенсов». В новом сезоне участникам придётся столкнуться с тяжелыми и загадочными испытаниями, которые проверят их экстрасенсорные способности, ведь создатели внесли ряд изменений в отборочный этап. Задача скептиков и приглашенных гостей раскусить шарлатана и выгнать его с проекта. Ведущим проекта стал бессменный Марат (   Читать дальше...   )Телекомпания: ТНТЖанр: Телепередача, ТВ-шоу, Реальное ТВСубтитры: ОтсутствуютПродолжительность: 01:51:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01EC636693462A755DE8D2790DF3049A65A885F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717808   (58980) от 21.04.2024
-
-Следствие вели... (21.04.2024) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58980.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Орел и решка». 1991 год, Вологда. На улице города северной сказки жестоко убита женщина, еще одна позже была избита прям на глазах у детей. Неужели преступник охотился за шапками? Какую роль в этом деле сыграли татуировка и женская ревность?Производство: Россия | Телекомпания «НТВ»Жанр: Документальный, криминал, расследованиеЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DC731E6F8E20B83490CC17A68EE4237212F69AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717638   (58974) от 21.04.2024
-
-Ты не поверишь! (20.04.2024) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58974.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Ты не поверишь!» — информационно-развлекательная программа в жанре светского репортажа, освещающая жизнь богатых и знаменитых со всех сторон. Шикарные особняки и тайный бизнес звезд — на чем они зарабатывают свои миллионы? Новые романы и закрытые свадьбы — как живут семьи знаменитых артистов?
-
-Евгений Плющенко и Яна Рудковская ждут, когда на свет появится их долгожданная (   Читать дальше...   )Телекомпания: НТВЖанр: ТВ-шоуЯзык озвучки: РусскийПродолжительность: 00:46:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2459EBB4FF93EE08F6B1912030B17E71E103E54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719180   (58247) от 28.04.2024
-
-Новая Битва экстрасенсов (27.04.2024) WEBRip [H.264/1080p] (сезон 24, выпуск 06)
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58247.jpg" />
-</div>
-
-
-###  Подробнее
-
-24-й сезон легендарного проекта «Битва экстрасенсов». В новом сезоне участникам придётся столкнуться с тяжелыми и загадочными испытаниями, которые проверят их экстрасенсорные способности, ведь создатели внесли ряд изменений в отборочный этап. Задача скептиков и приглашенных гостей раскусить шарлатана и выгнать его с проекта. Ведущим проекта стал бессменный Марат (   Читать дальше...   )Телекомпания: ТНТЖанр: Телепередача, ТВ-шоу, Реальное ТВСубтитры: ОтсутствуютПродолжительность: 01:30:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFADBB6E9B721BC4C4303FD1F89EFC18CE0F06B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 91646   (58222) от 29.04.2024
-
-Санкт-Петербург: Видеопрогулка / Saint-Petersburg: Videowalk (2004) [DVD]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58222.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Большинство туристов приезжает в Санкт-Петербург, чтобы собственными глазами увидеть его знаменитые достопримечательности, пройтись по тем самым площадям и улицам, на которых разворачивалась история Российской империи, побывать в местах, которые посещали знаменитые писатели, поэты, художники и политические деятели.
-
-В фильме представлены основные достопримечательности (   Читать дальше...   )Телекомпания: ООО "Texнопрoм"Жанр: Документальный, ВидеоэкскурсияПеревод: Не требуется, русский оригиналСубтитры: ОтсутствуютПродолжительность: 01:37:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85D1AA0BCF12F8A5BF11E28C4C1640D606FDAC4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703606   (58144) от 29.04.2024
-
-Своя игра (январь-апрель 2024) SATRip (выпуск 1-30 из 30)
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58144.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Своя игра» — российский вариант всемирно известной телеигры «Jeopardy!» Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. В каждом выпуске программы место за игровыми пультами занимают три интеллектуала. Им предстоит отвечать на вопросы из различных областей знаний. Каждый вопрос имеет свою стоимость. Если участник дает верный ответ, (   Читать дальше...   )Производство: Россия | «2В Медиа»Жанр: Интеллектуальная играРежиссер: Евгений КозловЯзык озвучки: русскийПродолжительность: ~00:41:00 выпуск
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1D4C10A9503C194DCE9FDDE53778CCF1B245285
 ```
 
 https://mybot314.ru/tekegram_catalog/

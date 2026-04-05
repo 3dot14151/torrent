@@ -6,7 +6,7 @@ Kenny G - New Standards (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217479.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Jeff Parker, Eric Revis, Nasheet Waits - Eastside Romp (2022) [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217260.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ James Moody - Wail Moody, Wail (1955) 1992, Original Jazz Classics [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_217214.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Terry Gibbs Quartet - Take It From Me (1964) Remaster, 2010, Universal[FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217177.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Art Farmer-Benny Golson Jazztet - Here and Now (1962) 1998 [WavPack|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217172.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Sergio Mendes & Brasil '66 - Greatest Hits (1970) 1987, A&M Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217058.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Marion Meadows - Dressed To Chill (2006) [FLAC|Lossless|tracks + .cue] <Smooth J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216947.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Billie Holiday - Songs For Distingue Lovers (1957) 1997, Classic Compact Discs [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216900.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Beto Saroldi - Venus (2020) [FLAC|Lossless|image + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216856.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Claude Hopkins - 1932 - 1934 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216407.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Frank Wright Quartet - Blues For Albert Ayler (1974) 2012, ESP Disk [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216403.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Brzzvll - Waiho (2018) Sdban Records [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216326.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Bruno Angelini - Open Land (2018) La Buissonne [FLAC|Lossless|tracks + .cue] <Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216279.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Kenny Dorham - Sings And Plays: This Is the Moment! (1958) 1994, Original Jazz C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_216252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_216252.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Paula Atherton - Can You Feel It (2020) [FLAC|Lossless|image + .cue] <Smooth Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216164.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Lem Winchester & Benny Golson - Winchester Special (1959) 1991, Original Jazz Cl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215932.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Cityrhythm Orchestra - Vibrant Tone (2004) [FLAC|Lossless]<Big Band, Mainstream 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215771.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Eddie Higgins Trio - Essential Romance (2009) Venus Records [FLAC|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215761.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Club des Belugas - Best of 2002-2022 (2022) 3CD Box Set [FLAC|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215655.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ J.J. Johnson & Kai Winding - Jay & Kai (1947 - 1954) 1992, Savoy Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_215579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_215579.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Duane Allen - Yin-Yang (2004) [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_215376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_215376.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Dakota Staton - Live at Milestones (1986) 2007, Caffe Jazz [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215195.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Sonny Stitt - Four Classic Albums 1954 - 1959 (2011) 2CD, Avid Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215131.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Billie Holiday - Birth Of A Legend (30-e - 40-e) 2019, Rough Guides [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215052.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ Lennie Niehaus Vol. 4 - The Quintets & Strings (1955) 1995, Original Jazz Classi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214883.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ Monty Alexander - Fridaynight (1985) Remaster, 2015, Solid Records[FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214873.jpg" />
 </div>
 
 

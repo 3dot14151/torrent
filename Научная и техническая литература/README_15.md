@@ -1,135 +1,3 @@
-###  Публикация: 1850535   (1054696) от 29.01.2026
-
-И.И. Резвицкий | Личность. Индивидуальность. Общество [Проблема индивидуализации и ее соц.-филос. смысл] (1984) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054696.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что такое человеческая индивидуальность? Как строить свою жизнь, чтобы с наибольшей полнотой реализовать себя? Какую роль играет индивидуализация, индивидуальный подход в социальном познании и управлении, в воспитании личности? Отвечая на эти мало разработанные в философской науке вопросы, автор книги — доктор философских наук, профессор И. И. Резвицкий — освещает (   Читать дальше...   )Жанр: История, политология, философия, психология, социологияИздательство: ПолитиздатФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1196B53C84EDF43206E98B6B83C265EA1966694C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850521   (1054693) от 29.01.2026
-
-И.Н. Сиземская | Человек и труд: условия гармонии и развития [Социально-философский анализ общественного производства] (1981) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054693.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге кандидата философских наук И. Н. Сиземской рассматриваются актуальные вопросы развития труда и человека в условиях социализма. Как соотносятся между собой экономическая эффективность и гуманистическая ценность производственной деятельности, экономический рост и духовный прогресс общества, профессионализм и свободная самодеятельность? Автор показывает, что (   Читать дальше...   )Жанр: История, политология, публицистика, экономика, философияИздательство: ПолитиздатФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC32F8168DECA976075A7CE39AED68CD6EE6B50E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850824   (1054633) от 30.01.2026
-
-Alfred Hassner, Irishi Namboothiri, Meir Golan | Organic Syntheses Based on Name Reactions. A Practical Encyclopedic Guide to Nearly 800 Transformations. 4th Edition (2025) [PDF] [EN]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Organic Syntheses Based on Name Reactions is an invaluable reference book for organic chemists in academia and industry. In continuation of Hassner and Namboothiri’s popular 3rd Edition, this new edition with full colored graphics covers nearly 800 reactions, with numerous chemo-, regio- and stereoselective reactions. A diligently prepared summary of important information (   Читать дальше...   )Жанр: Organic Chemistry, ChemistryЯзык: АнглийскийИздательство: ElsevierФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4A8AA739F5B384E3379C9F20C7F92F7417D624C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850822   (1054632) от 30.01.2026
-
-G. Miller, Scott Spoolman, Danielle Andrews-Brown | Environmental Science (MindTap Course List). 17th Edition (2024) [PDF] [EN]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054632.jpg" />
-</div>
-
-
-###  Подробнее
-
-Discover Miller/Spoolman/Andrews-Brown's ENVIRONMENTAL SCIENCE, 17th Ed., and get inspired to care for the planet. Written in collaboration with National Geographic Learning, this edition equips you with the tools and knowledge to make a difference in today's environmental issues. Explore exclusive content featuring the important work of diverse National Geographic (   Читать дальше...   )Жанр: Environmental Studies, Environmental ScienceЯзык: АнглийскийИздательство: Cengage LearningФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C1E792FD8947133479D76FD1D16D57DF73F25F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850821   (1054631) от 30.01.2026
-
-Emily Schlickman, Brett Milligan | Design by Fire. Resistance, Co-Creation and Retreat in the Pyrocene (2023) [PDF] [EN]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054631.jpg" />
-</div>
-
-
-###  Подробнее
-
-Across the world, the risks of wildfires are increasing and expanding. Due to past and current human actions, we dwell in the age of fire – the Pyrocene – and the many challenges and climate adaptation questions it provokes. Exploring our past and current relationships with fire, this book speculates on the pyro futures yet to be designed and cared for.
-
-Drawing (   Читать дальше...   )Жанр: Landscape Architecture, Urban & Land Use Planning, Environmental ScienceЯзык: АнглийскийИздательство: RoutledgeФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31BC0235C52251C8FBF749943EC45DD5FB6EE0B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1850630   (1054621) от 30.01.2026
 
 Адам Резерфорд | История о нас. Как мы стали людьми? Путеводитель по эволюции человека (2022) [PDF, FB2, EPUB]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054621.jpg" />
 </div>
 
 
@@ -164,7 +32,7 @@ Francis D. K. Ching, Steven R. Winkel | Building Codes Illustrated. A Guide to U
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054618.jpg" />
 </div>
 
 
@@ -192,7 +60,7 @@ Artur Zaporozhets | Smart Charging in Solar Microgrids. Intelligent Forecasting 
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054617.jpg" />
 </div>
 
 
@@ -218,7 +86,7 @@ Melissa B. Miller, Andrea M. Prinzi, Kyle G. Rodino и др. | Cases in Medical 
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054604.jpg" />
 </div>
 
 
@@ -246,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054565.jpg" />
 </div>
 
 
@@ -272,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054564.jpg" />
 </div>
 
 
@@ -298,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054561.jpg" />
 </div>
 
 
@@ -326,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054552.jpg" />
 </div>
 
 
@@ -354,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054491.jpg" />
 </div>
 
 
@@ -380,7 +248,7 @@ Abbie Headon | The Periodic Table Illustrated. A Guide to the 118 Chemical Eleme
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054484.jpg" />
 </div>
 
 
@@ -406,7 +274,7 @@ Erico Azevedo, Jose Pissolato Filho | Information Fields Theory and Applications
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054483.jpg" />
 </div>
 
 
@@ -432,7 +300,7 @@ Michael Seeds, Dana Backman, Eric Wegryn | Foundations of Astronomy. 15th Editio
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054482.jpg" />
 </div>
 
 
@@ -458,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054476.jpg" />
 </div>
 
 
@@ -485,7 +353,7 @@ Daniel D. Mais, Kimberly W. Sanford | Quick Compendium of Clinical Pathology. 5t
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054471.jpg" />
 </div>
 
 
@@ -511,7 +379,7 @@ Yong Ching Lim, Paulo S. R. Diniz, Yih-Fang Huang | Signal Processing for Autono
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054469.jpg" />
 </div>
 
 
@@ -537,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054459.jpg" />
 </div>
 
 
@@ -565,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054356.jpg" />
 </div>
 
 
@@ -591,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054354.jpg" />
 </div>
 
 
@@ -617,7 +485,7 @@ Kenneth Kuttler | Real and Functional Analysis. Textbooks in Mathematics (2026) 
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054292.jpg" />
 </div>
 
 
@@ -644,7 +512,7 @@ Giulia Enders | Gut.The Inside Story of Our Body’s Most Underrated Organ (2026
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054291.jpg" />
 </div>
 
 
@@ -673,7 +541,7 @@ Steven McGee | McGee's Evidence-Based Physical Diagnosis. 6th Edition (2025) [PD
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054289.jpg" />
 </div>
 
 
@@ -684,6 +552,138 @@ Emphasizing the most important physical signs needed to determine an underlying 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:655B5E30FC25C3DEF1D85DCEAED4EBF0E819918E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850102   (1054280) от 26.01.2026
+
+John S. Duncan, Davide Giampiccolo | MRI Neuroanatomy. Cortex, Nuclei and Connections (2026) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054280.jpg" />
+</div>
+
+
+###  Подробнее
+
+The dogma that brain function relied on the cortex has dominated clinical neurology, neurosurgery and psychiatry for the last 100 years. Since the start of the 2000s, it has become evident that brain function is orchestrated as a network through white matter connections. This framework provides an understanding of brain function and dysfunction, and has radically (   Читать дальше...   )Жанр: Нейрохирургия, НеврологияЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C18C1E3D029111CECB17B34E46FD4F85A19F36A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850214   (1054242) от 26.01.2026
+
+Руслан Назаров | Как выучить много иностранных языков? Диалектический подход (2025) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054242.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге схема изучения для пяти языков: английский, немецкий, итальянский, французский, испанский. Отдельно — русский, если его изучает иностранец. Основа метода: научиться понимать предложение, как оно формируется, из чего состоит. Суть метода: мы усваиваем то, из чего развивается, «произрастает» язык. Элементарная «единица» предложения — это не слово, буква, а (   Читать дальше...   )Жанр: Языкознание, обучениеИздательство: Издательские решенияФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A28410379CB1A2B78C4AC9B02ADD705211C482A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850247   (1054162) от 27.01.2026
+
+Джон Ронсон | Самовлюбленные, бессовестные и неутомимые. Захватывающие путешествия в мир психопатов (2022) [PDF, EPUB]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уэльский журналист Джон Ронсон берется за расследование мистификации, связавшей ведущих ученых по всему миру, и это решение становится отправной точкой для путешествия в мир безумия.
+
+Пытаясь понять, на чьей стороне истина, журналист реконструирует историю изучения психопатов. Он встречается с саентологами, убежденными в безнравственности психиатров и занимающимися (   Читать дальше...   )Жанр: ПсихиатрияИздательство: ЭксмоФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D2C7B45DA795264C7C2286434DA52ED6B6DF247
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850264   (1054145) от 27.01.2026
+
+Musarrat Husain Warsi , Rishabha Malviya | Biopolymers. Green and Sustainable Approaches for Drug Delivery, Food Products and Packaging (Materials Horizons. From Nature to Nanomaterials) (2026) [PD ...
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054145.jpg" />
+</div>
+
+
+###  Подробнее
+
+This book presents an in-depth exploration of biopolymers in biomedical engineering, spanning 15 chapters. Each chapter delves into different aspects of biopolymers, including their origins, development, potential, and sustainable sources, as well as advanced eco-friendly production methods. The text covers a wide range of applications, from advanced drug delivery (   Читать дальше...   )Жанр: БиополимерыЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76E4639AE809A8AA36D6A2CD3F1F31BC261564A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850265   (1054144) от 27.01.2026
+
+Alberto Debernardi Pinos, Elijah Liflyand, Sergey Tikhonov и др. | Single and Multiple Number Series (2026) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Addressing a significant gap in the study of number series, this book presents an in-depth theory of multiple number series and an exhaustive examination of one-dimensional series. It incorporates overlooked yet essential results alongside recent research advancements. Much of the text is based on the authors' original contributions, particularly in the development (   Читать дальше...   )Жанр: МатематикаЯзык: АнглийскийИздательство: Cambridge University PressФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B485114794B9F1A9C9FFCFACF6FF876F5D3062FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

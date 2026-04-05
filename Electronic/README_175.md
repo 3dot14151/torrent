@@ -1,3 +1,61 @@
+###  Публикация: 1020655   (745463) от 26.05.2016
+
+VA - Techno Club Vol. 50 (Mixed by Talla 2XLC & Kai Tracid) (2016) [MP3|320 кб/с] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kai Tracid - Tracid Theme (Album Version) (1:11)
+02. Kai Tracid - Your Own Reality (Energy Mix) (6:43)
+03. Tiësto - Adagio For Strings (7:33)
+04. Kai Tracid - Tiefenrausch (The Deep Blue) (NRG Mix) (6:15)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:18:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71CA990AC8B6C657EE27E6F0D2B4FD7CE4FF384A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396598   (745441) от 16.07.2020
+
+Phase Fatale - Scanning Backwards (2020) [FLAC|Lossless|tracks + .cue] <EBM, Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_745441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Velvet Imprints (05:11)
+02. Binding by Oath (06:06)
+03. Polystyrene (05:21)
+04. During the Freezing Process (05:30)(   Читать дальше...   )Жанр: EBM, IndustrialПродолжительность: 00:42:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2219D19B37A2F98CD88E48060EE938242CC0765A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1396710   (745432) от 16.07.2020
 
 VA - Psychedelic Addict, Vol.1-2 (2019-2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
@@ -6,7 +64,7 @@ VA - Psychedelic Addict, Vol.1-2 (2019-2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745432.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Conforce - Machine Conspiracy (2010) Meanwhile [FLAC|Lossless|tracks+.cue] <Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745407.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Lito - Hayastan EP (2018) Precept [FLAC|Lossless|WEB-DL|tracks] <Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745406.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ David August - D'Angelo (2018) [FLAC|Lossless|tracks + .cue] <Tech House, Deep H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745401.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Welcome To Miami (2019) [MP3|320 Kbps] <House, FutureHouse, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745400.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Brian Eno - Reflection (2017) Japanese Limited Edition [FLAC|Lossless|tracks + .
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745396.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ Gregory Esayan - Pilgrim's Diary (2016) [MP3|320 кб/с] <Progressive House , B
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745390.jpg" />
 </div>
 
 
@@ -206,7 +264,7 @@ Noraus - Noraus (2019) Microcosmos Records [FLAC|Lossless|WEB-DL|tracks] <Psybie
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745331.jpg" />
 </div>
 
 
@@ -235,7 +293,7 @@ VA - The Morning Light/Beautiful Relaxation Music To Start My Day (2019) [MP3|32
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745329.jpg" />
 </div>
 
 
@@ -264,7 +322,7 @@ VA - Meditation Music (2019) [MP3|320 Kbps] <Downtempo, ChillOut, Meditation, El
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745325.jpg" />
 </div>
 
 
@@ -293,7 +351,7 @@ VA - The Essential Downtempo Vol.2: Chillout Your Mind (2022) [FLAC|Lossless|WEB
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745201.jpg" />
 </div>
 
 
@@ -322,7 +380,7 @@ VA - Uplifting Trance Classics 2021 (2022) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745197.jpg" />
 </div>
 
 
@@ -351,7 +409,7 @@ Nym - Convex (2015) [MP3|320 Kbps] <Trip-Hop, Ambient, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744881.jpg" />
 </div>
 
 
@@ -380,7 +438,7 @@ Martin Nonstatic - Ligand (2017) [MP3|320 Kbps] <Chillout>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_744876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_744876.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ The Soundlovers - People (1997) [MP3|320 Kbps] <Euro House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744872.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ VA - Fireplace: Best Lounge Music To Relax (2018) [MP3|320 Kbps] <Balearic, Down
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_744871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_744871.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ Scandroid - Monochrome (2017) [MP3|320 Kbps] <Synthpop, Synthwave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744627.jpg" />
 </div>
 
 
@@ -496,7 +554,7 @@ Scandroid - Scandroid (2016) [MP3|320 Kbps] <Synthpop, Synthwave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744624.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ O-Wells - Ebecs (2020) Die Orakel [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, T
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744195.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ Cult48 - Catalog 1 (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, IDM, Downte
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744086.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ VA - Goa Trance, Vol. 43 (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744009.jpg" />
 </div>
 
 
@@ -612,7 +670,7 @@ Hi_Tack - Say Say Say (Waiting 4 U) (2006) Enhanced [MP3|~245 Kbps (V0)] <House,
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743843.jpg" />
 </div>
 
 
@@ -641,7 +699,7 @@ Ed Lynam - Live @ Gallery At Ministry Of Sound London (2019-02-01) (Classics Set
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743749.jpg" />
 </div>
 
 
@@ -670,7 +728,7 @@ VA - Damaged 100 (Mixed by Jordan Suckley & Alex Di Stefano) (2019) [MP3|320 Kbp
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743746.jpg" />
 </div>
 
 
@@ -684,63 +742,6 @@ VA - Damaged 100 (Mixed by Jordan Suckley & Alex Di Stefano) (2019) [MP3|320 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16D740516CDA548A2CF53E7594477BDB1884D214
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282599   (743745) от 13.02.2019
-
-Not Waving - Futuro (Music For The Waldorf Project) (2019) Ecstatic [FLAC|Lossless|WEB-DL|tracks] <Ambient, Abstract, Experimental, Soundtrack>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emotion 1.7 Cleanse (06:54)
- 02. Emotion 1.4 Decontamination (05:21)
- 03. Transitions 2/3 Alarm Sound (05:20)
- 04. Blue (06:20)(   Читать дальше...   )Жанр: Ambient, Abstract, Experimental, SoundtrackПродолжительность: 01:09:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D13C6DCF7BB5E9DDB64921C6245AE9142210CF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282623   (743735) от 13.02.2019
-
-VA - Armin van Buuren - A State Of Trance 900 (Part 3) (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Gate ft. Foret – Need To Feel Loved
-02. Late Night Alumni – Empty Streets (ALPHA 9 Remix)
-03. Thoba & Kate Miles – Your LoveЖанр: TranceПродолжительность: 03:00:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:133C722E94E8452F4D7E6FF28F6ABB8B92DDB117
 ```
 
 https://mybot314.ru/tekegram_catalog/

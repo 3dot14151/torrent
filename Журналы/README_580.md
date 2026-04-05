@@ -1,3 +1,142 @@
+###  Публикация: 468186   (82217) от 15.03.2012
+
+Журнал | Мой виноградник №3 [март 2012] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мастер-классы по выращиванию винограда, культуры, произрастающей сегодня не только в южных областях.март 2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FB4A16DA51FD94B6BD0293F3E91A1F5B0E97C03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468460   (82194) от 15.03.2012
+
+Журнал | Красивые дома №2 [февраль 2012] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82194.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Красивые дома» – прекрасный выбор и для профессионалов, и для любителей, давно уже стал незаменимой частью работы для огромного числа строителей, архитекторов и дизайнеров, своеобразной необходимостью их профессиональной деятельности.2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAA96A11DCF73ABE8C5DA985CBAE10A09C0346B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466863   (82008) от 14.03.2012
+
+Газета | Британский союзник № 14, 15 ноября [1942] [DJVU]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82008.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Британский союзник» - еженедельная газета на русском языке (издание министерства информации Великобритании), выходившая и распространявшаяся в Советском Союзе по воскресеньям с 1942 года на протяжении войны и в первые послевоенные годы. Еженедельник издавало Министерство информации Великобритании.
+
+В номере:
+- "От обороны к наступлению" (выступление фельдмаршала Смэтса, премьер-министра Южно-Африканского Союза);
+- "Канадцы будут сражаться до конца" (генерал-лейтенант А.Г.Л. Макнотен);
+- День в пустыне (спец. корреспондент "Таймса");
+- Египет ведет наступление (фоторепортаж);
+- Бойцам Красной Армии (письмо уроженца Украины, воюющего в рядах канадской армии)
+и др. материалы.
+(   Читать дальше...   )1942Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A34BC8DD6BF207ACD19510448E1DE8A179B7E77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467589   (82004) от 14.03.2012
+
+Журнал | Всё для женщины. Спецвыпуск. На нашей кухне №1 [2012] [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отличный журнал кулинарных рецептов. В номере представлены разнообразные рецепты мясных и постных блюд, а также рецепты к традиционным праздникам февраля и марта.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:182A5579036E390B2F5E8206F3F542DF2D887EAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467400   (81852) от 13.03.2012
+
+Журнал | Men's Health [Россия] №4 (апрель 2012) [PDF]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81852.jpg" />
+</div>
+
+
+###  Подробнее
+
+Men’s Health — самый узнаваемый мужской журнальный бренд категории lifestyle. Журнал освещает все стороны жизни мужчины — пишет о здоровье, фитнесе, моде, правильном питании, отношениях, путешествиях, технике, карьере. Это единственное издание, созданное чтобы показать мужчинам, как они могут улучшить свою жизнь. РусскоязычныйФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADB7318B82A6C7998EE7B16DB26DCEE3308F4ACE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 467099   (81780) от 13.03.2012
 
 Газета | Веневский революционный вестник № 160, 24 сентября [1918] [PDF]
@@ -6,7 +145,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81780.jpg" />
 </div>
 
 
@@ -37,7 +176,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81406.jpg" />
 </div>
 
 
@@ -63,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81204.jpg" />
 </div>
 
 
@@ -89,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81026.jpg" />
 </div>
 
 
@@ -115,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80377.jpg" />
 </div>
 
 
@@ -141,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80034.jpg" />
 </div>
 
 
@@ -167,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79925.jpg" />
 </div>
 
 
@@ -193,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79759.jpg" />
 </div>
 
 
@@ -219,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79757.jpg" />
 </div>
 
 
@@ -245,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79734.jpg" />
 </div>
 
 
@@ -271,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79148.jpg" />
 </div>
 
 
@@ -300,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79130.jpg" />
 </div>
 
 
@@ -327,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78954.jpg" />
 </div>
 
 
@@ -353,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78741.jpg" />
 </div>
 
 
@@ -379,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78642.jpg" />
 </div>
 
 
@@ -405,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78253.jpg" />
 </div>
 
 
@@ -431,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77927.jpg" />
 </div>
 
 
@@ -457,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77714.jpg" />
 </div>
 
 
@@ -483,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77670.jpg" />
 </div>
 
 
@@ -509,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76898.jpg" />
 </div>
 
 
@@ -535,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76890.jpg" />
 </div>
 
 
@@ -547,143 +686,6 @@ Popular Woodworking - журнал, посвященный столярному 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BE0CF8024F1DA9AB7EE4B8E5F8E2B1648104983
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 452378   (76360) от 15.02.2012
-
-Журнал | Penthouse № 1 USA (январь)[2012] [PDF]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Penthouse - приносит вам наши собственные обжигающие рассказы запрещенных желаний, ненасытных потребностей и невысказанных вожделений...Формат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 453067   (76267) от 15.02.2012
-
-Журнал | Cosmopolitan [Россия] №204 (март 2012) [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76267.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cosmopolitan – женский глянцевый журнал №1 в России. Сегодня невозможно встретить девушку, которая бы ни разу не читала или хотя бы не держала в руках номер Cosmo. Для своих постоянных читательниц журнал стал настоящей подругой, с которой можно поболтать о моде, косметике, отношениях, сексе и многом другом. СегодняФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8828002ACBA3D10535A7203118161AFA581AB032
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 452114   (76134) от 14.02.2012
-
-Журнал | Playboy [Россия] №3 (2012) [PDF]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76134.jpg" />
-</div>
-
-
-###  Подробнее
-
-Playboy — легендарный журнал для мужчин. Эксклюзивные съёмки знаменитостей. Престижные автомобили. Стильный и современный Playboy неизменно привлекает внимание читателей. Это издание для успешных современных мужчин, берущих от жизни всё! В каждом номере — девушка месяца и галерея Playboy.
-Playboy — классический мужской life style журнал!Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:786D898C86A7EB9CC77F835F592002B723B784AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 452286   (76092) от 14.02.2012
-
-Журнал | Men's Health [Россия] №3 (2012) [PDF]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76092.jpg" />
-</div>
-
-
-###  Подробнее
-
-Men’s Health — самый узнаваемый мужской журнальный бренд категории lifestyle. Журнал освещает все стороны жизни мужчины — пишет о здоровье, фитнесе, моде, правильном питании, отношениях, путешествиях, технике, карьере. Это единственное издание, созданное чтобы показать мужчинам, как они могут улучшить свою жизнь. РусскоязычныйФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:521B7269A7AB910B51853F5448898109C48B6D76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 358226   (75141) от 09.02.2012
-
-Журнал | Проект Периметр [2011-12] [PDF, JAR] Обновлено 9.02.2012
-
->>Журналы
->>Игровые журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75141.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оставляя журнал «S.T.A.L.K.E.R. World» сайту STG, мы расширяем свои рамки до «Проекта "Периметр"». В нём найдётся место не только Зоне, но и Пятизонью, Метро, Зоне Смерти и всем тем постапокалиптическим мирам, в которых нас называют одним и тем же словом – Сталкер. Это миры, в которых каждый из нас находит то, что заслуживает: азарт приключений и горечь потерь, любовь и ненависть, дружбу и предательство.
-
-Но, наряду с этим, мы не забываем и о реальном мире, в котором существует ЧАЭС, совсем не та ЧАЭС, которую мы видим в игре, и ещё множество всяких АЭС и потенциально опасных техногенных объектов, несущих угрозу всему Человечеству. Мы отдаём дань памяти всем, кто положил своё здоровье и свою жизнь на алтарь служения людям.
-
-Добро пожаловать домой, Сталкер!
-
-Личное мнение: Журнал маленький и "молодой", но все таки чувствуется, что редакция "разбирается как следует")))2011-12Формат: PDF - для ПК, JAR - для мобилок
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68C5F871E32D43B802B276437C1B018C81AE2298
 ```
 
 https://mybot314.ru/tekegram_catalog/

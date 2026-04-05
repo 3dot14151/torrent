@@ -1,3 +1,55 @@
+###  Публикация: 1167037   (421098) от 18.09.2017
+
+MegaRace 3 (2001) [En] (1.0) License GOG
+
+>>Win Старые Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421098.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автогонки? Забудьте. Под вопли ликующей толпы и улетные комментарии Лэнса Бойла вы будете гнать по сменяющим друг друга трассам на транспорте, специально созданном для скорости и сражений. А ваше вооружение представляет собой не какой-то захудалый дробовик, а целую смертоносную машину...Тип издания: LicenseРазработчик: Cryo InteractiveЖанр: Гонки, Экшн, РаллиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1067A22101B036A860355F9E0DEF7731CDB6152
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065261   (420464) от 22.10.2016
+
+Sky Break (2016) [Ru/Multi] (1.0) License HI2U
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420464.jpg" />
+</div>
+
+
+###  Подробнее
+
+Человечеству грозит опасность. Смертоносный вирус распространяется быстро. Растительность планеты Аркания - бывшего форпоста космической экспансии - может помочь создать лекарство. Но планета заброшена с тех пор, как строительные дроны взбунтовались против людей. На Арканию отправилась группа ученых, чтобы найти решение. Я - один из них. Но после высадки на планету (   Читать дальше...   )Тип издания: LicenseРазработчик: Farsky InteractiveЖанр: Action, 3D, 3rd PersonЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AE187BC25BC25D362204A53F281DBE29E2A0382
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1167299   (419071) от 19.09.2017
 
 Moto Racer 2 (1998) [Multi] (1.0) License GOG
@@ -6,7 +58,7 @@ Moto Racer 2 (1998) [Multi] (1.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419071.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Call of Juarez: Bound in Blood (2009) [Multi] (1.1.0.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411767.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Pendragon (2020) [En] (1.2.13) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411174.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Big Buck Hunter Arcade (2016) [En] (5.3.6) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411080.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Konami Collector's Series: Castlevania & Contra (2002) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409222.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Star Wars: Battlefront (2004) [En] (1.3.7.4) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406969.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Kingdom Hearts [En] [RePack/Emul] 2002 | MoveXX
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406264.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Psi-Ops: The Mindgate Conspiracy / Psi-Ops: Врата разума [Ru/En] (ReP
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405676.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ Second Sight [Ru/En] (RePack) 2005 | R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405391.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ Simon the Sorcerer 3D (2002) [Ru/En] (2.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404662.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ Stonekeep (1995) [Multi] (1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402151.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ Spirit of Excalibur [En] (RePack) 1990 | RG Games/Pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398038.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ Dark Heart of Uukrul [En] (RePack) 1989 | RG games/Pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397858.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ Kingdom at War [En] (RePack) 1992 | RG Games/Pilotus
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_396863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_396863.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ Darkspyre [En] (RePack) 1990 | RG Games/Pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395900.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ Worms: Armageddon [Ru/En/Multi9] (RePack/3.6.31.2b) 1999 | R.G. GraSe Team
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395504.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ Neverending Story 2 [En] (RePack) 1991 | RG games/Pilotus
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390715.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ Jim Power in "Mutant Planet" [En] (RePack) 1993
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390058.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ Earth 2150: Escape from the Blue Planet / Земля 2150: Война Миров
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388887.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386775.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ Beltion: Beyond Ritual / Бельтион: Свод Равновесия (2009) 
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384892.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ Mortal Kombat Trilogy (1996) [En] (1.0hf) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383150.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ Advent Rising (2005) [En] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381952.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ Enclave (2003) [Multi] (1.0.0.1) License PROPHET
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381938.jpg" />
 </div>
 
 
@@ -621,58 +673,6 @@ Enclave (2003) [Multi] (1.0.0.1) License PROPHET
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCCC8AFA7BF16E4C165E0DD83BC9C6FA1870E8EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573250   (380580) от 10.11.2012
-
-CyberMage: Darklight Awakening [En] (RePack) 1995 | dimonstrer
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еще один киберпанковый хит от издателей System Shock. Cybermage - уникальный экшен с RPG элементами и тяжелой, захватывающей aтмосферой киберпанка и фэнтези. Графика в игре очень хороша для своего времени и не уступает своему собрату по цеху System Shock. К сожалению, в своё время игра не была популярна из-за своих высоких системных требований, несовершенства движка и сложного геймплея. Игра написана и стилизована под комиксы D. W. Bradley и прорисована с душой. Для 1995 года графика просто шикарная. Действие происходит в 2044 году. Миром правят могущественные корпорации и группы повстанцев. Корпорации, столкнувшись с бунтовщиками и внутренними спорами, начинают работу над имплантами для создания "людей-гибридов". Вы просыпаетесь в биогенетическом инкубаторе в странном костюме с самоцветом, который имплантирован на шлем. Этот самоцвет - Темносвет или Светотень (как вам удобнее); камень с волшебными свойствами. Под звуки выстрелов вы выбираетесь из инкубатора, чтобы узнать что происходит и кто Вы такой (   Читать дальше...   )Тип издания: RePackЖанр: 3D Action\Sci-fi\CyberpunkЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:657BF5453AC125391F0B642CC46FFA0A525F1D7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 251585   (377689) от 29.10.2010
-
-Wings of Honour / Крылья отваги [Ru] (P) 2003
-
->>Win Старые Игры
->>Simulation (Flight/Space)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_377689.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Крылья Отваги" - представитель благородного жанра симуляторов. Первая Мировая - время небесных аристократов и рыцарей. Война в воздухе ведется исключительно на ближних дистанциях, когда ты видишь лицо врага. В игре представлены настоящие копии самолетов тех времен. На таких летали Манфред фон Рихтхофен (Красный Барон) и кавалер высшей американской награды Эдди Рикенбеккер. Взмывай в небо вместе с лучшими асами Первой Мировой!Тип издания: ПираткаЖанр: Arcade / Simulator (Flight Combat) / 3DЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

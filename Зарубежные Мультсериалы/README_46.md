@@ -1,3 +1,55 @@
+###  Публикация: 1639272   (197153) от 13.06.2023
+
+Тихая Вода / Stillwater (2020-2023) WEB-DLRip [H.264] (сезон 1-3, серии 1-30 из 30) Пифагор
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197153.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Карла, Эдди и Майкла необычный сосед — мудрая панда по имени Тихая Вода. Дружба с ней помогает ребятам лучше понять окружающий мир, друг друга и самих себя.Производство: США, Франция, Япония / Apple TV+Жанр: мультфильм, семейныйРежиссер: Джан Фалкенштейн, Эмбер Торнквист Холлингер, Рой Бурдин, Гари ХартлПеревод: Дублированный (Пифагор)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: ~00:24:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A85B0D737FFC443C50E748C9F0B96B38A630FD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639518   (197112) от 14.06.2023
+
+Стражи Галактики / Guardians of the Galaxy (2015-2019) WEB-DLRip [H.264] (сезон 1-3, серии 0-77 из 77) Невафильм
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда космических супергероев во главе со Звёздным Лордом защищает мир и порядок во Вселенной, которой угрожает величайший суперзлодей Танос. Студия Marvel Animation представляет красочный мультсериал о похождениях межрасовой команды наёмников, перешедших на сторону добра, «Стражи Галактики». Путешественникам по космосу предстоит встретиться с другими персонажами (   Читать дальше...   )Производство: СШАЖанр: мультфильм, фантастика, боевик, драма, комедия, приключения, семейныйРежиссер: Лео Райли, Джеймс Янг, Джефф УоместерПеревод: Дублированный (Невафильм)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: ~00:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:405FFEC8AED7CEF0138842908DBF671D7C2DB845
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1618473   (197002) от 14.06.2023
 
 Гриффины / Family Guy (2022) WEBRip [H.264/1080p-LQ] (сезон 21, серии 1-20 из 20)
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197002.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196741.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196235.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196001.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195919.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195912.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195757.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195649.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195458.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195428.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195426.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195163.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193926.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192508.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192493.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192478.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192408.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192064.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192020.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191533.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191531.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191446.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191438.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190776.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E84540FF6013FB4BF8914F98A3CEC3EC5D545240
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588936   (190767) от 07.11.2022
-
-Принц драконов / The Dragon Prince (2022) WEB-DL [H.264/1080p] (сезон 4, серии 1-9 из 9) [EN / RU, EN, multi Sub]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190767.jpg" />
-</div>
-
-
-###  Подробнее
-
-С момента битвы у Штормового шпиля минуло два года. Жители Зедии и Королевства людей налаживают новую мирную жизнь, Король Эзран пытается укрепить мир между двумя народами, а его старший брат Каллум улучшает свои навыки волшебства. Однако, на пороге появляется новая угроза – легендарный Архимаг Ааравос по прозвищу “Падшая звезда”.Производство: США, Канада / Bardel Entertainment, Madison Wells, Wonderstorm, NetflixЖанр: Мультфильм, фэнтези, боевик, триллер, драма, приключенияРежиссер: Вилладс Спандсберг, Lih Liau, Джанкарло Вольпе и Меруан СалимПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские, Английские и другие.Продолжительность: ~00:28:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95DC8DD0F7753364C39202266DFAF390FD4C7780
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575484   (190494) от 08.11.2022
-
-Пантеон / Pantheon (2022) WEB-DL [H.264/720p-LQ] (сезон 1, серии 1-8 из 8) NewStation
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190494.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девушка начинает получать сообщения от неизвестного номера, который утверждает, что это ее умерший отец. Пытаясь выяснить правду, она натыкается на большой заговор, связанный с сингулярностью.Производство: США, AMC StudiosЖанр: мультфильм, фантастика, драмаРежиссер: Крейг СилверстайнАктеры: Пол Дано, Уильям Хёрт, Тейлор Шиллинг, Лара Пулвер, Мод Апатоу, Скут МакНэйри, Аарон Экхарт, Дэниэл Дэ КимПеревод: Многоголосый профессиональный (NewStation)Субтитры: английскиеПродолжительность: ~00:41:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5EE775530A6B46E071C89668C0E25A157B5C8DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

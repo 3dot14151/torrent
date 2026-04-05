@@ -6,7 +6,7 @@
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673422.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672554.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672329.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672283.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672282.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672081.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672071.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671034.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670469.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670317.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670240.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670089.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668779.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668770.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668508.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_668157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_668157.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665253.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663140.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661761.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ VA - Шансон 2022 года (Музыкальный хит-парад) (2022
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661075.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651803.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651795.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651635.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649548.jpg" />
 </div>
 
 
@@ -709,7 +709,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649535.jpg" />
 </div>
 
 
@@ -738,7 +738,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647894.jpg" />
 </div>
 
 

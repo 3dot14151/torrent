@@ -1,3 +1,57 @@
+###  Публикация: 748281   (934603) от 06.02.2014
+
+Морские рассказы (1967) SATRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934603.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключенческий фильм по мотивам рассказов Бориса Житкова "Погибель", "Вата", "Компас".
+1-я новелла ("Афера"): Русский парень Николай и испанец Хозе попадают на судно, которое владелец решил затопить, чтобы получить страховую премию, однако друзьям удается разоблачить негодяя.
+2-я новелла ("Скорпион и вата"): Одесса (   Читать дальше...   )Жанр: ПриключенияРежиссер: Алексей Сахаров, Александр СветловАктеры: Виктор Задубровский, Николай Досталь, Лев Дуров, Владимир Балашов, Рашид Атамалибеков, Владимир Балон, Эдуард Бредун, Леонид Пирогов, Герман Качин, Михаил Орлов, Владлен Паулус, Виктор ФилипповПродолжительность: 01:10:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:091A47DD37618DC648BF7A25DBDEDBEADFD665E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 752335   (934597) от 06.02.2014
+
+Зоя (1944) SATRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934597.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о короткой жизни московской школьницы Зои Космодемьянской, которая в начале Великой Отечественной войны стала партизанкой-диверсанткой и была казнена немцами в подмосковной деревне Петрищево в ноябре 1941 г. За подвиг была удостоена звания Героя Советского Союза (посмертно).Жанр: Военный, ДрамаРежиссер: Лев АрнштамАктеры: Галина Водяницкая, Катя Скворцова, Ксения Тарасова, Николай Рыжов, Ростислав Плятт, Алексей Кузнецов, Борис Пославский, В.Волчек, Алексей Баталов, Вера Попова, Т.АльцеваПродолжительность: 01:26:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27B4DFEFD2FEBE199E7F26253ADC47FC49542C99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 982124   (933677) от 12.02.2016
 
 Идиот (1958) DVDRip [H.264]
@@ -6,7 +60,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933677.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931888.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930853.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928798.jpg" />
 </div>
 
 
@@ -111,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928544.jpg" />
 </div>
 
 
@@ -137,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927861.jpg" />
 </div>
 
 
@@ -164,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927595.jpg" />
 </div>
 
 
@@ -190,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927543.jpg" />
 </div>
 
 
@@ -216,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926627.jpg" />
 </div>
 
 
@@ -242,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925915.jpg" />
 </div>
 
 
@@ -268,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925593.jpg" />
 </div>
 
 
@@ -295,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923445.jpg" />
 </div>
 
 
@@ -321,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922356.jpg" />
 </div>
 
 
@@ -347,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921944.jpg" />
 </div>
 
 
@@ -373,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921371.jpg" />
 </div>
 
 
@@ -400,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921202.jpg" />
 </div>
 
 
@@ -428,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920886.jpg" />
 </div>
 
 
@@ -454,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920816.jpg" />
 </div>
 
 
@@ -480,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920807.jpg" />
 </div>
 
 
@@ -506,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920806.jpg" />
 </div>
 
 
@@ -532,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920416.jpg" />
 </div>
 
 
@@ -558,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919845.jpg" />
 </div>
 
 
@@ -584,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918912.jpg" />
 </div>
 
 
@@ -610,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918682.jpg" />
 </div>
 
 
@@ -621,59 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:528FD5A177877C5161D7C9ED61A6BFF75FD34FF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986581   (918380) от 21.02.2016
-
-Тревожный месяц вересень (1976) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918380.jpg" />
-</div>
-
-
-###  Подробнее
-
-По одноименной повести Виктора Смирнова.
-В сентябре 1944 года в освобожденное от фашистов село возвращается фронтовой разведчик Иван Капелюх и начинает борьбу против банды бывшего полицая Горелова...Производство: СССР, киностудия им. А.ДовженкоЖанр: Драма, ВоенныйРежиссер: Леонид ОсыкаАктеры: В.Фокин, Б.Брондуков, А.Лефтий, И.Бунина, Ф.Панасенко, А.Ян, В.Алексеенко, И.Миколайчук, С.Станюта, И.Гаврилюк, Ф.Одиноков и др.Продолжительность: 01:29:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95249398EFD2552F389817143C6AECA06650C53A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 289258   (918078) от 31.01.2011
-
-Полосатый рейс (1961) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эксцентрическая комедия о том, как советский теплоход "Евгений Онегин" вез для зоопарка тигров и львов, а подаренная команде обезьянка открыла клетки и выпустила хищников на палубу. Но в команде оказалась милая и скромная буфетчица Марианна, которая очень любила и понимала животных...Жанр: КомедияРежиссер: Владимир ФетинАктеры: Алексей Грибов, Иван Дмитриев, Маргарита Назарова, Евгений Леонов, Владимир Белокуров, Николай Волков (старший), Александр Бениаминов, Аркадий Трусов, Вячеслав Сирин, Алексей Смирнов, Алексей КожевниковПеревод: ОригинальныйПродолжительность: 01:23:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D253FABE6001A97DA7A5CC04C8877AD27B8A51C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1572715   (56903) от 11.05.2024
-
-Unleash the Archers - Studio Albums (7 releases) (2009-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal, Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56903.jpg" />
-</div>
-
-
-###  Подробнее
-
-Unleash the Archers — канадская метал-группа, основанная в Ванкувере в 2007 году. Группа исполняет смесь традиционного хеви-метала с пауэр-металом и мелодичным дэт-металом.2009 - Behold The Devastation
-2011 - Demons Of The AstroWaste
-2015 - Time Stands Still
-2017 - Apex(   Читать дальше...   )Жанр: Heavy/Power Metal, Melodic Death MetalПродолжительность: 06:44:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30A5A8B3549B600F63F023156505C7EFB228EF85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1722778   (56755) от 12.05.2024
 
 Полуночные странники - Русский блюз (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
@@ -35,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56755.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Pussycat - Wet Day In September (1978) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56694.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Freedom Call - Studio Albums (12 releases) (1999-2024) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56449.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Stream of Passion - Studio Albums (6 releases) (2005-2023) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56341.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Pain (Peter Tagtgren) - Studio Albums (9 releases) (1997-2024) hand made [restor
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56281.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Fear Factory - Studio Albums (11 releases) (1992-2023) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56279.jpg" />
 </div>
 
 
@@ -210,7 +181,7 @@ Billie Eilish - HIT ME HARD AND SOFT (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56270.jpg" />
 </div>
 
 
@@ -239,7 +210,7 @@ New Kids On The Block - Still Kids (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56246.jpg" />
 </div>
 
 
@@ -268,7 +239,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56132.jpg" />
 </div>
 
 
@@ -297,7 +268,7 @@ Jazz Erotic Lounge Collective, Jazz Music Collection - Erotic Improvisation: Sen
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56042.jpg" />
 </div>
 
 
@@ -326,7 +297,7 @@ twenty one pilots - Clancy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55509.jpg" />
 </div>
 
 
@@ -355,7 +326,7 @@ Slash (Saul Hudson, Slash's Snakepit, Velvet Revolver) - Studio Albums (10 relea
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55449.jpg" />
 </div>
 
 
@@ -384,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55307.jpg" />
 </div>
 
 
@@ -413,7 +384,7 @@ Eternal Tears of Sorrow - Studio Albums (7 releases) (1997-2013) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54664.jpg" />
 </div>
 
 
@@ -442,7 +413,7 @@ Snoop Dogg & Dj Drama - Gangsta Grillz: I Still Got It (2022) [FLAC 24/44.1|Loss
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54552.jpg" />
 </div>
 
 
@@ -471,7 +442,7 @@ com.pass - Полюса (2021) [FLAC|Lossless|WEB-DL|tracks] <Russian Metalcore>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54551.jpg" />
 </div>
 
 
@@ -500,7 +471,7 @@ Bon Jovi - Forever (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop, Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54180.jpg" />
 </div>
 
 
@@ -529,7 +500,7 @@ Pet Shop Boys - A new bohemia (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Éle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54167.jpg" />
 </div>
 
 
@@ -558,7 +529,7 @@ Color for Shane - End (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54153.jpg" />
 </div>
 
 
@@ -587,7 +558,7 @@ Herb Alpert and The Tijuana Brass - Two Albums: !!Going Places!!/Early Alpert (1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54145.jpg" />
 </div>
 
 
@@ -616,7 +587,7 @@ The Arcane Order - Studio Albums (4 releases) (2006-2023) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54141.jpg" />
 </div>
 
 
@@ -645,7 +616,7 @@ elkka - Prism of Pleasure (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electronic
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54140.jpg" />
 </div>
 
 
@@ -675,7 +646,7 @@ Godsmack (& Sully Erna) - Studio Albums (11 releases) (1998 - 2023) hand made [r
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54117.jpg" />
 </div>
 
 
@@ -704,7 +675,7 @@ Oasis & Projects (Liam Gallagher; Noel Gallagher's High Flying Birds; Beady Eye)
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54090.jpg" />
 </div>
 
 
@@ -734,7 +705,7 @@ Evergrey - Studio Albums (14 releases) (1998-2024) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54075.jpg" />
 </div>
 
 
@@ -748,6 +719,33 @@ Evergrey — шведская прогрессив-метал-группа, со
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4048EDFED7983F3696888FFFD7F38C4842B70DA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728586   (54044) от 07.06.2024
+
+David Crosby - If I Could Only Remember My Name (1971) 50th Anniversary Edition, Remaster, 2021, Rhino Records [FLAC 24/96|Lossless|WEB-DL|tracks] <Folk Rock, Country Rock, Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Riff 1 (Demo) (2021 Remaster) [00:02:22]
+02. Tamalpais High (At About 3)Жанр: Folk Rock, Country Rock, Classic RockПродолжительность: 2CD, 01:35:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F480E04175EB9444159870F070662C01A581CC54
 ```
 
 https://mybot314.ru/tekegram_catalog/

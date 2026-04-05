@@ -1,3 +1,119 @@
+###  Публикация: 1257088   (350137) от 24.10.2018
+
+VA - Levitated Amsterdam (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manuel Rocca - Resilience (Original Mix)
+02. Lupo (cn) - The Overarching Sky (Original Mix)
+03. NrgMind - Nebula (Original Mix)
+04. Christopher Corrigan - Different Thoughts (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:10:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:008F90543AE78F6341565CF38A1A819DB66F25BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072952   (350133) от 14.11.2016
+
+VA - Unique Sense In Amsterdam (Mixed by Abstract Vision) (2016) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Witness45 & Eleven Fly - Laserlight (Radio Edit) 3:39
+02. Holbrook & SkyKeeper - Memories (Poshout pres. Crystal Design Radio Edit) 2:37
+03. X - Sapphire (Radio Edit) 2:42
+04. DRYM & Abstract Vision - Shark (Radio Edit) 2:17(   Читать дальше...   )Жанр: TranceПродолжительность: 01:38:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D100629E3CCFF3D04224430A9F7560246EDEDD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072772   (350128) от 14.11.2016
+
+VA - Moments in Paradise Chillout (2016) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Riquo - Tribalism (05:33)
+02. Joe Jog - Euphoric Dream (06:45)
+03. Praana - Garden of Nightingales (04:14)
+04. Los Dos Terminados - Guethary on 7.6. - Relax Version (04:15)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:47:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC8E650363DC220260934D1BFC1BD35A0968DD70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257078   (350058) от 24.10.2018
+
+VA - Submission Universal (Mixed By Atragun) (2018) [MP3|320 Kbps] <Trance,Psy-Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tom Bro - Summit (Basil O Glue Intro Mix)
+02. Emran Badalov - Spaceman (Original Mix)
+03. Atragun - Lost In Dreams (Three Drives Remix)
+04. Xpectra - Seize The Day (Original Mix)(   Читать дальше...   )Жанр: Trance,Psy-TranceПродолжительность: 06:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCB99FA4183E6905A147569A524C5937E4D822BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1257094   (350047) от 24.10.2018
 
 VA - Butterfly Music Amsterdam 2018 Selection (2018) [MP3|320 Kbps] <Trance>
@@ -6,7 +122,7 @@ VA - Butterfly Music Amsterdam 2018 Selection (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350047.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Ellie Lawson - The Best Of (Extended Mixes) (2018) [MP3|320 Kbps] <Trance,V
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350037.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Teddy Killerz - Pursuit (2019) [FLAC|Lossless|WEB-DL|tracks] <Drum'n'bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350035.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - Relaxing Meditation (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350013.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Colombo - Your Consequences (2019) [FLAC|Lossless|WEB|tracks] <Progressive Break
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350005.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Amon Tobin - Fear In A Handful Of Dust (2019) [MP3|320 Kbps] <Experimental, Abst
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349853.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Ministry of Progressive (50 Supreme Tunes) Vol.2 (2018) [MP3|320 Kbps] <Tec
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349638.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Schnittstelle (Atom™) - Schnittstelle (1998) Rather Interesting [FLAC|Lossless
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349420.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Tekniq - Shazbut! (2004) Hive Records [FLAC|Lossless|tracks+.cue] <Downtempo, ID
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349419.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - Bioluminescence (2007) Native State Records [FLAC|Lossless|tracks+.cue] <Du
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349411.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Anima Infinity - Selected Works (2017) [MP3|320 Kbps] <Balearic, Downtempo, Elec
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349352.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - Halloween Handsup Power Party (2017) [MP3|320 Kbps] <Pop Trance, Big Room>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349351.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ VA - Suanda Acoustic Collection 2 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349347.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ VA - Chill-Out Cafe (30 Beautiful Relaxed Anthems), Vol. 1 (2017) [MP3|320 Kbps]
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349341.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ VA - Summer Tales EP (2020) 20:21 [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub Te
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349296.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Actress - Karma & Desire (2020) Ninja Tune [FLAC|Lossless|tracks+.cue] <Leftfiel
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349290.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ DDR Space Program - 1 Single,2 EP (2016-2017) [MP3|320 Kbps] <New Wave, Spacesyn
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349217.jpg" />
 </div>
 
 
@@ -496,7 +612,7 @@ VA - Progressive Goa Trance Vol.4 (2017) [MP3|320 Kbps] <Psy-Trance>
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349215.jpg" />
 </div>
 
 
@@ -525,7 +641,7 @@ VA - Coffee House: Armada Music (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349211.jpg" />
 </div>
 
 
@@ -554,7 +670,7 @@ VA - Erotique Lounge (Finest Chill Out & Lounge Grooves) Vol 2 (2015) [MP3|320 �
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349176.jpg" />
 </div>
 
 
@@ -583,7 +699,7 @@ VA - Future Sound Theory 2 (Compiled by Matt.B) Celestial Dragon Records (2008) 
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349108.jpg" />
 </div>
 
 
@@ -612,7 +728,7 @@ VA - Euphoria Classics - Ministry Of Sound (2017) [MP3|320 Kbps] <House, Trance,
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349058.jpg" />
 </div>
 
 
@@ -626,116 +742,6 @@ VA - Euphoria Classics - Ministry Of Sound (2017) [MP3|320 Kbps] <House, Trance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:582D89E0448555FEC64C7608EA36194065F89E5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418227   (348967) от 24.10.2020
-
-Dreamtime - Rigid Force Alpha: Extended Soundtrack (2019) [FLAC 2.0|44,1/24|tracks|WEB-DL] <Spacesynth, Synthwave>
-
->>Electronic
->>Synthpop, New Wave, Retro (Hi-Res)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction (1:40)
-02. Rigid Force Alpha Theme (2:54)
-03. Mission Briefing (3:01)
-04. Mining Outpost Alpha (2:57)(   Читать дальше...   )Жанр: Spacesynth, SynthwaveПродолжительность: 00:53:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84259D7834245DDB07227167F5937A4353305DB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418313   (348956) от 24.10.2020
-
-John Frusciante - Maya (2020) Timesig [FLAC|Lossless|WEB-DL|tracks] <Breakbeat, Hardcore, Acid, IDM, Breakcore, Jungle>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348956.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Brand E	4:51
-2.	Usbrup Pensul	4:23
-3.	Flying	3:42
-4.	Pleasure Explanation	4:14(   Читать дальше...   )Жанр: Breakbeat, Hardcore, Acid, IDM, Breakcore, JungleПродолжительность: 00:32:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05372C6D456C07F7AA27823437AF0DD945F6B884
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981689   (348811) от 24.10.2020
-
-Boy is Fiction - Discography 4 Releases (2007-2020) Sun Sea Sky, List Records, n5MD [FLAC|Lossless|tracks+.cue, tracks] <IDM, Post Rock, Ambient, Downtempo, Modern Classical>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Veins Are Blocked / Rework (03:50)Тип издания: CD, WebЖанр: IDM, Post Rock, Ambient, Downtempo, Modern Classical •Продолжительность: 02:37:38 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B5CE55A484BDFE3F5360DFEE2BF0B6045CBBC8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 235120   (348801) от 24.10.2020
-
-Vlastur - Interaxion Dub (2009) EQnation Records [FLAC|Lossless]<Psychill, Dub, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Psychill, Dub, AmbientПродолжительность: 01:14:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90FD44AF1B4827545448E6D9D9C5A48635343C8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

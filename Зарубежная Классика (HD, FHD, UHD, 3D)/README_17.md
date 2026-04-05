@@ -1,3 +1,81 @@
+###  Публикация: 998550   (868395) от 20.03.2016
+
+Дорога в Гонконг / The Road to Hong Kong (1962) HDTV [H.264/1080i]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гарри Тёрнер и Честер Бэбкок — неудачливые актёры водевиля, постоянно находящиеся в поисках заработка. Судьба сталкивает их с Дианой — агентом секретной правительственной организации «3-й Эшелон», а потом со злодеями, которые хотят отправить на Луну ракету с оборудованием, которое поможет им покорить Землю.Производство: Великобритания, Melnor FilmsЖанр: Фантастика, КомедияРежиссер: Норман ПанамаАктеры: Бинг Кросби, Боб Хоуп, Джоан Коллинз, Роберт Морли, Уолтер Готелл, Феликс Эйлмер, Алан Гиффорд, Мишель Мок, Катя Дуглас, Роджер ДельгадоПеревод: Двуголосый закадровый (НТВ+)Продолжительность: 01:32:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AE72E198CF080450165BC90B0E66721EFD44D04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996641   (868313) от 20.03.2016
+
+Док / «Doc» (1971) BDRemux [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868313.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о знаменитых героях Дикого Запада. В городке Тумстоун, штат Аризона, железной рукой порядок наводит грозный шериф Уайтт Эрп. С помощью друга, блестящего стрелка Дока Холлидэя, и своих братьев Эрп поддерживает в городе мир и покой.Производство: США, FP FilmsЖанр: ВестернРежиссер: Фрэнк ПерриАктеры: Стейси Кич, Фэй Данауэй, Харрис Юлин, Майкл Уитни, Денвер Джон Коллинз, Дэн Гринберг, Джон Скэнлон, Ричард МакКензи, Джон Боттомс, Филип ШаферПеревод: Многоголосый закадровый, профессиональный (НТВ+)Язык субтитров: английскийПродолжительность: 01:35:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C67E254ABAD63148A2118CB3246CEC9A53AFB778
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104992   (867450) от 22.02.2017
+
+Цветок кактуса / Cactus Flower (1969) WEB-DLRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джулиан Уинстон, смешной холостяк — дантист, который под влиянием жизненных обстоятельств попадает в различные комические ситуации. Уинстон встречается с головокружительной блондинкой Тони, обманывая её и говоря, что у него есть жена и трое детей. Но когда он узнает, что она пыталась совершить самоубийство из-за него, твердо обещает жениться на ней. Тони добивается (   Читать дальше...   )Производство: США   Columbia Pictures Corporation, Frankovich ProductionsЖанр: Мелодрама, КомедияРежиссер: Джин СэксАктеры: Уолтер Мэттау, Ингрид Бергман, Голди Хоун, Джек Уэстон, Рик Ленц, Вито Скотти, Ирен Херви, Ив Брюс, Ирвин Чарон, Мэттью СаксПеревод: Дублированный со вставками многоголосо, многоголосый закадровый, авторский одноголосый закадровыйЯзык субтитров: Русский, украинский, английскийПродолжительность: 01:43:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1EABDB2F665FC395ADF6B7AF43FE1E6AB489109
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1496585   (866209) от 21.09.2021
 
 Мамочка, нянечка, сыночек и доченька / Mumsy, Nanny, Sonny & Girly (1969) BDRip [H.264/720p] [VO]
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866209.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866143.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865939.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865703.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_865150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865150.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862462.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862292.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860661.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860642.jpg" />
 </div>
 
 
@@ -244,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860639.jpg" />
 </div>
 
 
@@ -271,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859962.jpg" />
 </div>
 
 
@@ -297,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859667.jpg" />
 </div>
 
 
@@ -323,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857176.jpg" />
 </div>
 
 
@@ -349,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857059.jpg" />
 </div>
 
 
@@ -375,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856215.jpg" />
 </div>
 
 
@@ -401,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855466.jpg" />
 </div>
 
 
@@ -429,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854591.jpg" />
 </div>
 
 
@@ -455,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853704.jpg" />
 </div>
 
 
@@ -481,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853596.jpg" />
 </div>
 
 
@@ -507,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852921.jpg" />
 </div>
 
 
@@ -533,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852784.jpg" />
 </div>
 
 
@@ -559,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852636.jpg" />
 </div>
 
 
@@ -585,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851920.jpg" />
 </div>
 
 
@@ -597,85 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BE5A2E83ADBFFA2B9916C565C692B318189AE13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996888   (851802) от 29.03.2016
-
-Моя прекрасная леди / My Fair Lady (1964) BDRip [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитый профессор Генри Хиггинс заключает пари со своим другом, что сможет обучить безграмотную замарашку, уличную цветочницу Элизу правильной речи и высокосветским манерам и выдать ее за настоящую леди. Искрометный юмор, забавные ситуации, Золушка на глазах у зрителей превращается в принцессу, а убежденный холостяк — во влюбленного.Производство: Warner Bros. Pictures, СШАЖанр: Мюзикл, МелодрамаРежиссер: Джордж КьюкорАктеры: Одри Хепберн, Рекс Харрисон, Стэнли Холлоуэй, Вилфрид Хайд-Вайт, Глэдис Купер, Джереми Бретт, Теодор Бикел, Мона Уошборн, Изобел Элсом, Джон ХоллэндПеревод: Многоголосый закадровый профессиональный / одноголосый закадровыйЯзык субтитров: Русский, Английский, Русский (только песни)Продолжительность: 02:53:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B582DA8F4CD0FC0EC2D9BF5111B7D93138FF75F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107967   (851750) от 03.03.2017
-
-Лев зимой / The Lion in Winter (1968) BDRip [H.264/720p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851750.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Лев зимой" (The Lion in Winter) - экранизация исторической драмы Джеймса Голдмена.
-Британский король Генрих II прославился как жестокий и властолюбивый правитель, но дни его клонятся к закату. Понимая это, в 1183 году, накануне Рождества, Генрих II намеревается назвать имя того, кто унаследует трон. Чтоб стать свидетелями решающего события, ко двору возвращается (   Читать дальше...   )Производство: Великобритания, США. Кинокомпании: AVCO Embassy, Haworth ProductionsЖанр: Драма, биография, историяРежиссер: Энтони ХарвиАктеры: Питер О`Тул, Кэтрин Хепбёрн, Энтони Хопкинс, Джон Касл, Найджел Терри, Тимоти Далтон, Джэйн Мэрроу, Найджел Сток, Кеннет Айвз, О. З. Уайтхед, Фран Стэффорд, Элла Мор, Кеннет Гриффит, Генри Вулф, Кэрол Хагар, Дэвид Гриффит и др.Перевод: Дублированный, многоголосый закадровыйЯзык субтитров: Русский, английскийПродолжительность: 02:09:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15EBB39E7B9AAAE9A9A1B1792611A00ADCC64CEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371220   (851115) от 22.04.2020
-
-Звездные войны: Эпизод 3 - Месть Ситхов / Star Wars: Episode III - Revenge of the Sith (2005) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851115.jpg" />
-</div>
-
-
-###  Подробнее
-
-Идёт третий год Войн клонов. Галактическая Республика, некогда бывшая спокойным и гармоничным государством, превратилась в поле битвы между армиями клонов, возглавляемых канцлером Палпатином, и армадами дроидов, которых ведёт граф Дуку, тёмный лорд ситхов. Республика медленно погружается во тьму. Лишь рыцари-джедаи, защитники мира и справедливости, могут противостоять (   Читать дальше...   )Производство: США / Lucasfilm, Mestiere Cinema, Pandora FilmsЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Джордж ЛукасАктеры: Юэн Макгрегор, Натали Портман, Хейден Кристенсен, Иен Макдермид, Сэмюэл Л. Джексон, Джимми Смитс, Фрэнк Оз, Энтони Дэниелс, Кристофер Ли, Киша Касл-ХьюзПеревод: ДублированныйСубтитры: русские (Forced, Full), английские (Full)Продолжительность: 02:20:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F4D58011DF6D6DDD61149E5337C2E656BEBFC4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

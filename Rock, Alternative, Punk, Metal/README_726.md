@@ -1,3 +1,32 @@
+###  Публикация: 1258828   (334699) от 31.10.2018
+
+Yo La Tengo - Upside-Down (1992) EP [FLAC|Lossless|tracks + .cue] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Upside-Down (2:39)
+ 02. (The) Farmer's Daughter (2:22)
+ 03. Out Of Control (2:09)
+ 04. Upside-Down (One More Time) (2:47)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:34:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F36E3B4FB43911AE749FBB187BADA5850A6D2CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1579513   (334698) от 28.09.2022
 
 Chaos Control - Call Of The Abyss (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Speed Metal>
@@ -6,7 +35,7 @@ Chaos Control - Call Of The Abyss (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334698.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Def Leppard - Adrenalize (1992), (2CD) Remastered, Reissue, 2009, Mercury [OGG V
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334695.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Torchlight Parade - 3 Albums (2014-2022) [MP3|320 Kbps] <Classic Hard Rock, Heav
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334692.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334686.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Mesarthim - Collection (2016 - 2020) 8 CD [FLAC|Lossless|image + .cue] <Atmosphe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334682.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Severoth - When The Night Falls... (2018) [MP3|320 Kbps] <Atmospheric Black Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334596.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Passion Pit - Manners (2009) 2010, Limited Edition [FLAC|Lossless|tracks + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334594.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ VA - Prince - 4Ever (2016) 2CD [FLAC|Lossless|tracks + .cue] <Rock, Funk, Soul>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334584.jpg" />
 </div>
 
 
@@ -239,7 +268,7 @@ Dream Theater - Lost Not Forgotten Archives: Falling Into Infinity Demos, 1996 (
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334578.jpg" />
 </div>
 
 
@@ -268,7 +297,7 @@ Zmey Gorynich - Vжица (2022) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal, Deat
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334574.jpg" />
 </div>
 
 
@@ -297,7 +326,7 @@ Streetlight Circus - Super Fine Sugar (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334573.jpg" />
 </div>
 
 
@@ -326,7 +355,7 @@ VA - 100 Greatest Soft Rock Anthems Ever.. (2019) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334541.jpg" />
 </div>
 
 
@@ -355,7 +384,7 @@ Led Zeppelin - Fillmore West 01/11/1969 (1969) bootleg [MP3|320 Kbps] <Hard Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334442.jpg" />
 </div>
 
 
@@ -384,7 +413,7 @@ Grateful Dead - The Best of the Grateful Dead Live (2018) 2CD, HDCD [FLAC|Lossle
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334440.jpg" />
 </div>
 
 
@@ -414,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334343.jpg" />
 </div>
 
 
@@ -443,7 +472,7 @@ Nordic Union - Second Coming (2018) Japanese Edition [MP3|320 Kbps] <Melodic Har
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334342.jpg" />
 </div>
 
 
@@ -472,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334337.jpg" />
 </div>
 
 
@@ -501,7 +530,7 @@ Pink Floyd - The Animals Recording Sessions (1976) [MP3|320 Kbps] <Progressive &
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334333.jpg" />
 </div>
 
 
@@ -530,7 +559,7 @@ Alice Cooper - Live from the Astroturf (2022) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334330.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ Alice Cooper - Live from the Astroturf (2022) [FLAC 2.0|88/24|tracks|WEB-DL] <Ha
 >>Hard Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334328.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ Alliance - Discography: 6 albums, 7CD (1996-2019) [FLAC|Lossless|image + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334296.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ Robert Palmer - Collected (2016) 3CD, Compilation [FLAC|Lossless|tracks + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334233.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ Ashenvoid - Psalms of the Grave Serpent (2020) [MP3|320 Kbps] <Heavy Metal, Doom
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334009.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ Ring Van Mobius - The 3rd Majesty (2020) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333994.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ Seraphic - Chrysalis (2020) [MP3|320 Kbps] <Symphonic Metal, Female Vocal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333986.jpg" />
 </div>
 
 
@@ -715,35 +744,6 @@ Seraphic - Chrysalis (2020) [MP3|320 Kbps] <Symphonic Metal, Female Vocal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBB5297F3185BBF918A3BAB431048397D474BA2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420097   (333952) от 31.10.2020
-
-Jester's Tears - Perception (2020) [MP3|320 Kbps] <Progressive Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harmony (07:33)
- 02. The Only Way (05:37)
- 03. I Can't Deny (06:44)
- 04. Dreams Aside (05:32)(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:56:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AE221593619B6914E2CFB338BC83D232DAF023A
 ```
 
 https://mybot314.ru/tekegram_catalog/

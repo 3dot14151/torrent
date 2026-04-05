@@ -6,7 +6,7 @@ Gerry Mulligan & Chet Baker - The Complete Pacific Jazz and Capitol Recordings O
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176171.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Bill Jennings & Jack McDuff - Legends Of Acid Jazz: Glide On (1959, 1960) 1999, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176098.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ George Coleman Featuring Ned Otter - Danger High Voltage (1996) 2000, Two and Fo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175710.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Richie Beirach & George Coleman - Convergence (1991) Triloka Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175682.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Sylvain Kassap Sextet - Octobres (2022) [FLAC|Lossless|tracks + .cue] <Avant-Gar
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175658.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Samara Joy - Linger Awhile (2022) Verve Records [FLAC|Lossless|tracks + .cue] <V
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175557.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Sonny Rollins - BD Jazz (1951 - 1957) 2CD, 2008, Nocturne [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175428.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Sammy Davis, Jr. - Capitol Collector's Series (1990) Capitol Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175280.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Hazel Scott - 1939 - 1945 (2003) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175171.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ George Coleman - The Quartet (2019) Smoke Sessions Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175159.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Django Reinhardt - BD Jazz (1933 - 1952) 2CD, 2003, Nocturne [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174734.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Chico Hamilton - Seven Classic Albums (1955 - 1959) 4CD, 2013, Real Gone Jazz [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174579.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Randy Waldman - UnReel (2001) Concord Jazz [FLAC|Lossless|tracks + .cue] <Post-B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174128.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Jon Balke & Siwan - Hafla (2022) [FLAC|Lossless|tracks + .cue] <Contemporary Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174092.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Fay Claassen, David Linx, WDR Big Band Cologne - And Still We Sing (2021) Jazzli
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174017.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Electro Swing Disco of the Alps (2022) [FLAC|Lossless|WEB-DL|tracks] <Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174004.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Electro Swing Bass Party (2022) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Swing 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_173980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_173980.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Sammy Davis, Jr. - Starring Sammy Davis, Jr. (1955) 2007, Collectors' Choice Mus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173957.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Gene Krupa - Dejavu Retro: Gold Collection (1928-1963) 2CD /2002, Recording Arts
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173885.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Edie Daponte - Young At Heart (2015) [FLAC|Lossless|image + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173878.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Karen Souza - Suddenly Lovers (2023) Japan [FLAC|Lossless|image + .cue] <Vocal J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173756.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Barb Jungr - Hard Rain (2014) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Singer-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173718.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Buddy DeFranco (De Franco) And The All-Stars - Wholly Cats (1957) 2016, Universa
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173471.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Marilyn Monroe - Film By Film (1953 - 1962) 2CD, 2004, Nocturne [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173374.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Oscar Peterson - In London: The Rare Trio Session (1971) 2014, Pacific Delights 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173256.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Ella Fitzgerald & Joe Pass - Hamburg Duets (1976) 2008, Gambit Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173249.jpg" />
 </div>
 
 

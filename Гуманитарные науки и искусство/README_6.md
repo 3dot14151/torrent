@@ -1,82 +1,3 @@
-###  Публикация: 970850   (988619) от 01.01.2016
-
-Е. Н. Трубецкой | Труды по философии права (2001) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988619.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге представлены самые известные сочинения по философии права выдающегося русского философа Е. Н. Трубецкого (1863-1920): «Лекции по истории философии права», «Лекции по энциклопедии права», «Социальная утопия Платона» и др.
-Оригинальность авторского подхода к основным проблемам философии права, сочетающаяся с ясностью и доступностью изложения, делает книгу полезной (   Читать дальше...   )Жанр: ФилософияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08384F6C2F49BCD14E69AC0D033A9FD49EF20E4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970786   (988618) от 01.01.2016
-
-Ханна Арендт | О насилии (2014) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга одного из крупнейших политических мыслителей XX века Ханны Арендт «О насилии»—компактный очерк политической теории, написанный по горячим следам студенческих протестов 1968 года. Книга радикально переосмысляет феномен насилия, традиционно считавшегося если не основой власти, то одним из основных способов ее осуществления, — по мнению Арендт, если считать властью (   Читать дальше...   )Жанр: Философия, ПолитикаПеревод: Г. М. ДашевскийФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08A378AD0D2BDA0BD6C8ECF33E038934343E8932
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970960   (988595) от 01.01.2016
-
-Куно Фишер | История новой философии: Готфрид Вильгельм Лейбниц: Его жизнь, сочинения и учение (2005) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот том «Истории новой философии» К. Фишера посвящен немецкому философу Готфриду Вильгельму Лейбницу (1646—1716), который прославился в истории культуры изобретением (параллельно с И. Ньютоном) дифференциального исчисления — в математике, монады — в метафизике (философии), теодиции — в теологии. В классической логике он предложил завершающий принцип — достаточного (   Читать дальше...   )Жанр: ФилософияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D536DF359ED650DBCF7F49EF0D4622E3816C750
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970932   (988592) от 01.01.2016
 
 Мартин Хайдеггер | Гераклит (2011) [PDF, DJVU]
@@ -85,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988592.jpg" />
 </div>
 
 
@@ -111,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988591.jpg" />
 </div>
 
 
@@ -137,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988589.jpg" />
 </div>
 
 
@@ -163,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988587.jpg" />
 </div>
 
 
@@ -189,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988586.jpg" />
 </div>
 
 
@@ -215,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988564.jpg" />
 </div>
 
 
@@ -241,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988562.jpg" />
 </div>
 
 
@@ -267,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988504.jpg" />
 </div>
 
 
@@ -293,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988502.jpg" />
 </div>
 
 
@@ -319,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988401.jpg" />
 </div>
 
 
@@ -345,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988243.jpg" />
 </div>
 
 
@@ -373,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987995.jpg" />
 </div>
 
 
@@ -399,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987581.jpg" />
 </div>
 
 
@@ -425,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987580.jpg" />
 </div>
 
 
@@ -453,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987576.jpg" />
 </div>
 
 
@@ -480,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987574.jpg" />
 </div>
 
 
@@ -506,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987571.jpg" />
 </div>
 
 
@@ -532,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987570.jpg" />
 </div>
 
 
@@ -560,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987569.jpg" />
 </div>
 
 
@@ -586,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987568.jpg" />
 </div>
 
 
@@ -612,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987530.jpg" />
 </div>
 
 
@@ -638,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987529.jpg" />
 </div>
 
 
@@ -664,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987522.jpg" />
 </div>
 
 
@@ -675,6 +596,85 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F575E5D53D28AE2BC0AE763332855083C27E8E49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971184   (987517) от 02.01.2016
+
+Сёрен Кьеркегор | Страх и трепет [сборник] (2010) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987517.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первое издание настоящего однотомника, включающего переводы трех книг датского философа и писателя Сёрена Кьеркегора (1813-1855), наиболее значимых для понимания его мировоззрения, вышло в 1993 г. в издательстве «Республика». Данное, 2-е издание, дополнено работой В.А. Подороги «Авраам как Problemata. Серен Киркегор и непрямая коммуникация», а также фрагментами нового (   Читать дальше...   )Жанр: ФилософияПеревод: Н. В. Исаева, С. А. Исаев, А. В. ЛызловФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACD6B9B7C649835313E1836BD74DF675FBEB9730
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971105   (987512) от 02.01.2016
+
+Чарльз Сандерс Пирс | Начала прагматизма. Логические основания теории знаков [2 книги] (2000) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый том настоящего издания составлен из ряда статей известного американского мыслителя Чарльза Сандерса Пирса, написанных им в период с 1868 по 1903 г. и адресованных, по его словам, «непосвященной публике», а также нескольких издательских компиляций более позднего времени, в которых излагаются философские предпосылки его семиотического проекта, получившего название (   Читать дальше...   )Жанр: ФилософияПеревод: В. В. Кирющенко, М. В. КолопотинФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D8023CC68D21C61A18F92F03692602350BCBBE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971235   (987481) от 02.01.2016
+
+Жак Лакан | Работы Фрейда по технике психоанализа. Семинары. Книга 1 (2009) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Монография содержит материалы семинара, проведенного Жаком Лаканом с 1953–1954 годы. Тема семинара — «Работы Фрейда по технике психоанализа».
+“Семинар” Жака Лакана - безусловно, наиболее значительная часть его наследия. Он представляет собой “транскрипцию”, записи лекций, читавшихся Лаканом регулярно с 1953 по 1979 год, составляя, таким образом, двадцать шесть томов, (   Читать дальше...   )Жанр: Психология, ПсихоанализПеревод: М. А. Титова, А. К. ЧерноглазовФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09400EFA1767F00D8654C4458935C4C8E5B11BC7
 ```
 
 https://mybot314.ru/tekegram_catalog/

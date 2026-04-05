@@ -1,3 +1,55 @@
+###  Публикация: 1302766   (575994) от 19.05.2019
+
+С.Ю. Литвинчук | Информационные технологии в экономике. Анализ и прогнозирование временных рядов с помощью Excel (2010) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575994.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом пособии аспекты прогнозирования рассмотрены с позиций социально-экономического явления. Дана общая схема процесса прогнозирования. Описаны встроенные средства Excel, пригодные для быстрого построения прогнозов. Способы прогнозирования снабжены алгоритмическими описаниями. Пособие предназначено для изучения дисциплины «Информационные технологии в экономике» (   Читать дальше...   )Жанр: Учебное пособиеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6F310347F9A9D17E878CA8A9EA7714E5293D388
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302768   (575990) от 19.05.2019
+
+О.Н. Салманов | Математическая экономика с применением Mathcad и Excel (2003) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575990.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге дано систематическое изложение основных базовых математических методов, применяемых в экономике. Приведены общая методология использования математического инструментария и математических моделей в экономике, а также конкретное изложение основных математических понятий и методов: применение дифференциального исчисления в экономике, матричная алгебра, интегральное (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF0510769A303038485687ADB7C8A70CE7F8062C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1151044   (575939) от 17.07.2017
 
 В.П. Шувалов (ред.) | Телекоммуникационные системы и сети [3 тома] (2012-2015) [PDF]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575939.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575797.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575650.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574203.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574199.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573939.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573756.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572535.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572420.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572380.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572222.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571971.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571742.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570756.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570527.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570508.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568658.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568646.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568497.jpg" />
 </div>
 
 
@@ -509,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566725.jpg" />
 </div>
 
 
@@ -535,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563575.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563554.jpg" />
 </div>
 
 
@@ -589,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563448.jpg" />
 </div>
 
 
@@ -615,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563135.jpg" />
 </div>
 
 
@@ -626,58 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B2C097CDF2C9C9B179EA45B8854FD0C45EA5BDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923466   (562689) от 01.08.2015
-
-В.Г. Дьяченко | Основы теплотехники и тепловые машины (2002) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562689.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены основные определения в термодинамике, первичные источники энергии, законы термодинамики, термодинамические процессы, циклы тепловых машин, принцип работы, особенности конструкций и основные характеристики тепловых двигателей, используемых на объектах бронетанковой и автомобильной техникиЖанр: МашиностроениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41EF22E46727BFF8F64007BE74F65572A8EE9ADA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923706   (562617) от 01.08.2015
-
-Л.А. Скоробогатова, А.Л. Семенов | Полупроводниковая электроника (2014) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562617.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии рассмотрены физические основы процессов, определяющих принип действия полупроводниковых приборов, явления переноса и контактные явления в полупроводниках и структурах металл–полупроводник, металл–диэлектрик–полупроводник. Рассмотрены устройство, принцип действия и характеристики основных полупроводниковых приборов с р-n-переходами и диода Ганна. (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:871E6295A278725D0CF40F9DA363E2168CAB9C7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

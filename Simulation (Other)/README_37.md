@@ -1,3 +1,29 @@
+###  Публикация: 1798183   (17611) от 21.05.2025
+
+RoadCraft (2025) [Ru/Multi] (0.1.D1.1.429865/dlc) Repack seleZen
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17611.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы - глава компании, которая специализируется на восстановлении районов, пострадавших от стихийных бедствий. Используйте свою технику для перезапуска местной промышленности. Расчищайте территорию, реконструируйте дороги, мосты и другие объекты!Тип издания: RepackРазработчик: Saber InteractiveЖанр: Приключенческие игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:017BC23877FDE36ACBF45255A2D63503E114861E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1798205   (17607) от 21.05.2025
 
 RoadCraft (2025) [Ru/Multi] (0.1.D1.1.429865/dlc) Scene Rune
@@ -6,7 +32,7 @@ RoadCraft (2025) [Ru/Multi] (0.1.D1.1.429865/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17607.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ House Flipper 2 (2023) [Ru/Multi] (1.8 build 18474892/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17515.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Gunsmith Simulator (2023) [Ru/Multi] (1.3.10/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17231.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Gunsmith Simulator (2023) [Ru/Multi] (1.3.10/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17082.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Democracy 4 (2020) [Ru/Multi] (1.67/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16924.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Crime Scene Cleaner (2024) [Ru/Multi] (1.0.80) Scene Razor 1911
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16887.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Worshippers of Cthulhu (2024) [Ru/Multi] (1.0.0.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16700.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Farming Simulator 25 (2024) [Ru/Multi] (1.9.0.1/dlc) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16616.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Pacific Drive (2024) [Ru/Multi] (1.9.3-CL30287/dlc) Repack FitGirl [Deluxe Editi
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16497.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Frozenheim (2022) [Ru/Multi] (1.4.9.1) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16362.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Gunsmith Simulator (2023) [Ru/Multi] (1.3.10/dlc) Repack FitGirl [Deluxe Edition
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16335.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Galacticare (2024) [Ru/Multi] (1.2.3/dlc) Repack Let'sРlay [Full Coverage Editi
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16280.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Rail Route (2024) [Ru/Multi] (2.3.22/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16233.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Flashing Lights - Police, Firefighting, Emergency Services Simulator (2023) [Ru/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16214.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Frozenheim (2022) [Ru/Multi] (1.4.9.1) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16192.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ RoadCraft (2025) [Ru/Multi] (1.5.D1PATCH.450651/dlc) Repack Other s [Rebuild Edi
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16158.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Cataclismo (2024) [Ru/Multi] (1.0.3.2) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16009.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Car Dealer Simulator (2025) [Ru/Multi] (Build 18642542) Scene SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16006.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Flashing Lights - Police, Firefighting, Emergency Services Simulator (2023) [Ru/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15989.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Car Dealer Simulator (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15950.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ A Year Of Springs (2021) [Multi] (1.07) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15826.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ AirportSim (2023) [Multi] (1.4.3/dlc) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15795.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Tank Squad (2025) [Ru/Multi] (1.0.12.1) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15716.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ UBOAT (2019) [Ru/Multi] (2025.1.1 patch 4/dlc) License GOG (обновляема
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15707.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Farming Simulator 25 (2024) [Ru/Multi] (1.9.0.1/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15656.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Farming Simulator 25 (2024) [Ru/Multi] (1.9.0.1/dlc) Repack seleZen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6E3E57956756A8A68CFCDFA5E5B862252A7BD36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800758   (15619) от 05.06.2025
-
-ContractVille (2024) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15619.jpg" />
-</div>
-
-
-###  Подробнее
-
-Планируйте, проектируйте, стройте и украшайте дом своей мечты в открытом мире. Разрушайте стены, делайте эскизы планировки, а затем стройте и украшайте каждый сантиметр - как внутри, так и в саду. Занимайтесь каждым ремонтом в одиночку или в компании до 4 друзей. Дом вашей мечты ждет вас!Тип издания: RepackРазработчик: MYM Games StudiosЖанр: Казуальные игры, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E35F2792964096DE56C6B00B4EFCA9362EC81649
 ```
 
 https://mybot314.ru/tekegram_catalog/

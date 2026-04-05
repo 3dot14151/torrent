@@ -1,3 +1,29 @@
+###  Публикация: 507396   (683455) от 08.06.2012
+
+Журнал | Маленькие художники 10 (22) октябрь 2011 [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Журналы для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683455.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веселый, развивающий и обучающий журнал-раскраска для дошкольников и младших школьников.Жанр: Детский развивающий журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F739FA9BF572E72E65C18DEAEB6529C979D788C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 507456   (683354) от 08.06.2012
 
 Виктория и Алексей Варгины | По следам золотого ключика или новые приключения Буратино [2005] [FB2]
@@ -6,7 +32,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683354.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683352.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683278.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683177.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683131.jpg" />
 </div>
 
 
@@ -143,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683129.jpg" />
 </div>
 
 
@@ -170,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683052.jpg" />
 </div>
 
 
@@ -199,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683037.jpg" />
 </div>
 
 
@@ -225,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683036.jpg" />
 </div>
 
 
@@ -251,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683033.jpg" />
 </div>
 
 
@@ -277,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682986.jpg" />
 </div>
 
 
@@ -304,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682889.jpg" />
 </div>
 
 
@@ -330,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682780.jpg" />
 </div>
 
 
@@ -356,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682359.jpg" />
 </div>
 
 
@@ -382,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682079.jpg" />
 </div>
 
 
@@ -408,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681945.jpg" />
 </div>
 
 
@@ -434,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681801.jpg" />
 </div>
 
 
@@ -460,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681609.jpg" />
 </div>
 
 
@@ -486,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681340.jpg" />
 </div>
 
 
@@ -516,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681200.jpg" />
 </div>
 
 
@@ -542,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680923.jpg" />
 </div>
 
 
@@ -568,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680686.jpg" />
 </div>
 
 
@@ -595,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680516.jpg" />
 </div>
 
 
@@ -621,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680355.jpg" />
 </div>
 
 
@@ -649,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680256.jpg" />
 </div>
 
 
@@ -660,32 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A13ACE5A574340456B446626096A1117588309D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029724   (680255) от 27.06.2016
-
-Туве Янссон | Муми (1993) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680255.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удивительных обитателей придумала Туве Янсон для своей сказочной страны - хемулей, муми-троллей, хатифнаттов и множество других. И приключения, что случаются с ними, под стать этим небывалым созданиям. Недаром же весь мир зачитывается книгами замечательной финляндской писательницы.Жанр: литературная сказкаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E56157AEB0378076C9147CE0E4FFE43015E4FCC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

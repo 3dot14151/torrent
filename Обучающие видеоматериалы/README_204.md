@@ -1,3 +1,32 @@
+###  Публикация: 1565106   (212303) от 22.07.2022
+
+Школа гитары Андрея Аксёнова, Андрей Аксёнов | Фингерстайл Аранжировка (2022) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Музыка (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для тех, кто мечтает делать собственные гитарные аранжировки, выступать с ними и завоевывать интернет.
+
+36 видео-уроков
+Уровень: средний/продвинутый(   Читать дальше...   )Производство: Школа гитары Андрея АксёноваЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 04:04:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D9F3E6B8EBF8966FFCDF7AD72DD70E4594879B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565191   (212302) от 22.07.2022
 
 Konsa, Александр Фельдман | Поп-музыка на классической гитаре (2019) WEB-DL [RU]
@@ -6,7 +35,7 @@ Konsa, Александр Фельдман | Поп-музыка на класс
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212302.jpg" />
 </div>
 
 
@@ -34,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212287.jpg" />
 </div>
 
 
@@ -63,7 +92,7 @@ Break Your Crayons, Marc Whitelaw | Houdini - QUIXEL megascans workflow Rendered
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212234.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ Pluralsight, Rob Brooks | Blueprint and C++ Integration in Unreal Engine 4 (2017
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212232.jpg" />
 </div>
 
 
@@ -117,7 +146,7 @@ Udemy, Jingtian Li | Introduction to Unreal Engine 4 Ability System Part 1 (2019
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212226.jpg" />
 </div>
 
 
@@ -143,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212134.jpg" />
 </div>
 
 
@@ -169,7 +198,7 @@ ByteGrad, Wesley | Professional CSS Course (2022) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212097.jpg" />
 </div>
 
 
@@ -198,7 +227,7 @@ Pluralsight, Dale Meredith и др. | Ethical Hacking (C|EH v11 Prep) (2022) WEB
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212072.jpg" />
 </div>
 
 
@@ -224,7 +253,7 @@ Udemy, John Thompson | Mastering Thymeleaf with Spring Boot (2021) WEB-DLRip [EN
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212063.jpg" />
 </div>
 
 
@@ -253,7 +282,7 @@ ntCGi Ltd, Antony Ward | Face Rigging in Maya (2019) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212009.jpg" />
 </div>
 
 
@@ -279,7 +308,7 @@ The VFX School, Tariq Kinani | Alien troop attack, crowds and ragdolls (2021) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211954.jpg" />
 </div>
 
 
@@ -305,7 +334,7 @@ The VFX School, Tariq Kinani | Metal bending in Houdini (2021) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211938.jpg" />
 </div>
 
 
@@ -331,7 +360,7 @@ Nizamov.School, Илья Низамов | 1С ZADARMA  (2022) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211749.jpg" />
 </div>
 
 
@@ -360,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211733.jpg" />
 </div>
 
 
@@ -388,7 +417,7 @@ Ppc.world, Никита Кравченко и др. | Специалист по 
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211719.jpg" />
 </div>
 
 
@@ -416,7 +445,7 @@ Udemy, Anand Guru | (Security Operation Centre) SOC Essentials by SOC Experts (2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211687.jpg" />
 </div>
 
 
@@ -445,7 +474,7 @@ Udemy, Terry Martin | Essential Unix Skills for Developers (2022) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211660.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ ui.dev (ex. Tyler McGinnis) | Classic React (2022) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211652.jpg" />
 </div>
 
 
@@ -500,7 +529,7 @@ Adrian Cantrill | AWS Certified Security - Specialty (2022) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211645.jpg" />
 </div>
 
 
@@ -529,7 +558,7 @@ Artefactoschool, Любовь Титова | Реалистичные котик
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211628.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ ui.dev (ex. Tyler McGinnis) | React Router (v6) (2022) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211604.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211599.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211576.jpg" />
 </div>
 
 
@@ -639,7 +668,7 @@ Gumroad, Rachel | Making a Boxbot in Blender 2.8 (2020) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211534.jpg" />
 </div>
 
 
@@ -665,7 +694,7 @@ Englishteacup, Мила Хабирова | Челлендж: 100 базовых 
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211527.jpg" />
 </div>
 
 
@@ -679,35 +708,6 @@ Englishteacup, Мила Хабирова | Челлендж: 100 базовых 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2ABFB7274460152FCBC325B2CA827901DBDB1CCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567026   (211504) от 31.07.2022
-
-Englishteacup, Мила Хабирова | My Successful English Plan (2022) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Иностранные языки (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211504.jpg" />
-</div>
-
-
-###  Подробнее
-
-Составьте свой план занятий самостоятельно и начните заниматься регулярно
-ЗАЧЕМ ВАМ АНГЛИЙСКИЙ?
-Если ваш ответ - “Хочу свободно разговаривать”, “Хочу смотреть фильмы в оригинале и все понимать”, “Хочу путешествовать”, “Хочу помогать ребенку с уроками” или “Хочу замуж за границу”, то это звучит по-разному, но все-таки очень абстрактно.
-Скорее всего вы время от времени (   Читать дальше...   )Производство: EnglishteacupЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 10:30:40Реклама: Присутствуют сторонние вставки и наложения
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:702F2365C5B8CEFBE8357C0E8CE6F9895E78617C
 ```
 
 https://mybot314.ru/tekegram_catalog/

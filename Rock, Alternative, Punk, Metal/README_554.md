@@ -1,3 +1,90 @@
+###  Публикация: 928674   (521780) от 17.08.2015
+
+New Politics - Vikings (2015) [OGG| 411-540 кб/с]<Alternative, Indie Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everywhere I Go (Kings and Queens) (03:25)
+02. West End Kids (03:32)
+03. Girl Crush (02:54)
+04. Lovers in a Song (03:12)(   Читать дальше...   )Жанр: Alternative, Indie Pop RockПродолжительность: 00:44:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE18950682F554F9DEB8EF8E96438B983C4D2028
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928800   (521779) от 17.08.2015
+
+Orpheus Omega - Partum Vita Mortem (2015) [MP3|320 кб/с]<Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521779.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Conception
+2. I, Architect
+3. Karma Favours The Weak
+4. Practice Makes Pathetic(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:58:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1639693F667FC2896A435BFBC90FC1E3732D072
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928880   (521752) от 17.08.2015
+
+Eric Clapton - Eric Clapton & Friends (2014) [MP3|320 кб/с]<Classic rock, Blues, Guitar>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eric Clapton - You Can't Judge a Book by It's Cover (2:54)
+02. Eric Clapton - Let It Rock (2:15)
+03. Eric Clapton - Putty in Your Hands (2:18)
+04. Eric Clapton - Little Red Rooster (3:36)(   Читать дальше...   )Жанр: Classic rock, Blues, GuitarПродолжительность: 01:14:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:172420F2B9837357C1756BD8B3B5FE3512535254
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 928634   (521750) от 17.08.2015
 
 Tito & Tarantula - Lost Tarantism (2015) [FLAC|tracks+.cue]<Rock, Blues Rock>
@@ -6,7 +93,7 @@ Tito & Tarantula - Lost Tarantism (2015) [FLAC|tracks+.cue]<Rock, Blues Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521750.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Young Guns - Ones and Zeros (2015) Deluxe Edition [MP3|320 кб/с]<Alternative 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521711.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Chris Rea - Herzklopfen (1986) [FLAC|image + .cue]<Blues Rock, Soft Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521709.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Strydegor - In The Shadow Of Remembrance (2012) [FLAC|Lossless]<Melodic Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521692.jpg" />
 </div>
 
 
@@ -128,7 +215,7 @@ Show Me A Dinosaur - Evolvent EP (2011) [MP3|320 кб/с]<post-rock, instrumenta
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521681.jpg" />
 </div>
 
 
@@ -159,7 +246,7 @@ Gendos (Gen Dos / Gennady Chamzyryn) - Bay-Tayga (2007) [MP3|320 кб/с]<Ethnic
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521680.jpg" />
 </div>
 
 
@@ -194,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521615.jpg" />
 </div>
 
 
@@ -223,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521469.jpg" />
 </div>
 
 
@@ -252,7 +339,7 @@ The Kills - Future Starts Slow (2011) Single [FLAC|Lossless|tracks + .cue] <Indi
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521431.jpg" />
 </div>
 
 
@@ -278,7 +365,7 @@ Deep Purple - Live In London 1982 [Japanese Edition] (2CD) (2011) [MP3|320 кб/
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521341.jpg" />
 </div>
 
 
@@ -310,7 +397,7 @@ Cat Stevens - The Very Best Of Cat Stevens (2003) [FLAC|Lossless|tracks + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521146.jpg" />
 </div>
 
 
@@ -339,7 +426,7 @@ Doro - Forever Warriors // Forever United (2018) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521060.jpg" />
 </div>
 
 
@@ -368,7 +455,7 @@ In This Moment - Blood (2012) [MP3|320 кб/с]<Melodic Metalcore, Female Vocal 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521044.jpg" />
 </div>
 
 
@@ -403,7 +490,7 @@ Ruinas - Resurrekzion (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Grindco
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520988.jpg" />
 </div>
 
 
@@ -432,7 +519,7 @@ Green Altar - Green Altar (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Slu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520987.jpg" />
 </div>
 
 
@@ -461,7 +548,7 @@ Death Crusader - Death Crusader (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520986.jpg" />
 </div>
 
 
@@ -490,7 +577,7 @@ Sacred Son - The Foul Deth of Engelond (2022) [FLAC|Lossless|WEB-DL|tracks] <Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520890.jpg" />
 </div>
 
 
@@ -519,7 +606,7 @@ Scars Of The Insane - D.H.A.R.M.A. (2018) [FLAC|Lossless|image + .cue] <Thrash, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520885.jpg" />
 </div>
 
 
@@ -548,7 +635,7 @@ Fame on Fire - Levels (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative rock, Po
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520881.jpg" />
 </div>
 
 
@@ -577,7 +664,7 @@ Seedy Jeezus - The Hollow Earth (Double Live) (2022) [MP3|320 Kbps] <Heavy Rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520878.jpg" />
 </div>
 
 
@@ -606,7 +693,7 @@ Dead Can Dance - Anastasis (2012) [FLAC|Lossless]<Ambient, Ethereal>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520854.jpg" />
 </div>
 
 
@@ -639,7 +726,7 @@ Victorius - Dinosaur Warfare Pt. 2 - The Great Ninja War (2022) [FLAC|Lossless|W
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520805.jpg" />
 </div>
 
 
@@ -668,7 +755,7 @@ Allen Morettini - Love, Lies, Bullets and a Blue Dress (2022) [FLAC|Lossless|WEB
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520804.jpg" />
 </div>
 
 
@@ -682,93 +769,6 @@ Allen Morettini - Love, Lies, Bullets and a Blue Dress (2022) [FLAC|Lossless|WEB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30F2B612A9A3C0335E49654E8027552A8E3B3735
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560167   (520745) от 29.06.2022
-
-Werewolves - From the Cave to the Grave (2022) [FLAC|Lossless|WEB-DL|tracks] <Technical Black, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Self-Help Book-Burning (00:04:59)
-02 - We Are Better Than You (00:03:43)
-03 - All the Better to Eat You With (00:02:52)
-04 - Crushing Heaven's Mandate (00:03:47)(   Читать дальше...   )Жанр: Technical Black, Death MetalПродолжительность: 00:34:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B205EDBBF5C5335E5A5CF4AC4DE6F51CF1B88DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927984   (520619) от 18.08.2015
-
-Veil of Maya - Matriarch (2015) [FLAC|image+.cue]<Progressive Metalcore/Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Nyu  01:56
-02 - Leeloo  02:52
-03 - Ellie  03:04
-04 - Lucy  02:56(   Читать дальше...   )Жанр: Progressive Metalcore/DeathcoreПродолжительность: 00:36:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5687298F3C212A3040B09FE5259BB545B06DA840
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927986   (520613) от 18.08.2015
-
-Periphery - 2 альбома - Juggernaut: Alpha\Omega (2015) [FLAC|tracks+.cue]<Progressive Metal / Math Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Reprise  01:26
-02 - The Bad Thing  05:54
-03 - Priestess  05:04
-04 - Graveless  03:56(   Читать дальше...   )Жанр: Progressive Metal / Math MetalПродолжительность: 00:39:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B90A3C49D8C060838BAFE8CEE5E0EE2732FB5E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

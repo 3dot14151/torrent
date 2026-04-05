@@ -1,3 +1,55 @@
+###  Публикация: 1479493   (1009557) от 24.06.2021
+
+Лидия Канг, Нэйт Педерсон | История шарлатанства. Краткий обзор худших способов лечения с древности до наших дней (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009557.jpg" />
+</div>
+
+
+###  Подробнее
+
+«История шарлатанства» доктора медицины Лидии Канг и журналиста Нэйта Педерсена – это история худших способов лечения, которые практиковались врачами, целителями и мошенниками с древности до наших дней. Сегодня многие из этих способов кажутся нам невероятными: представьте себе времена, когда врачи прописывали опиум при младенческом плаче, ртуть при желтой лихорадке (   Читать дальше...   )Жанр: Популярно об историиПродолжительность: 09:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5B3FD5D4592AB87AA1274A9B61985D02DF55F98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479439   (1009556) от 24.06.2021
+
+Марк Форсайт | Краткая история пьянства от каменного века до наших дней (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009556.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Краткая история пьянства» – это история давнего романа Homo sapiens с алкоголем. В каждой эпохе – от каменного века до времен сухого закона – мы найдем ответы на конкретные вопросы: что пили? сколько? кто и в каком составе? А главное – зачем и по какому поводу? Попутно мы познакомимся с шаманами неолита, превратившими спиртное в канал общения с предками, поприсутствуем (   Читать дальше...   )Жанр: Общая история, Популярно об историиПродолжительность: 06:45:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8DCC7A4DD7E21B309A663D83CD08C947DB8427C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1481291   (1008408) от 02.07.2021
 
 Вадим Зеланд | О чем не сказала Тафти (2019) [MP3, Виктория Слуцкая, Константин Панченко, Михаил Черняк]
@@ -6,7 +58,7 @@
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008408.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005598.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004296.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004261.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004259.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004077.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003201.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002926.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002190.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001307.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001306.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992692.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987750.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984973.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983650.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982118.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982031.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981034.jpg" />
 </div>
 
 
@@ -483,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980981.jpg" />
 </div>
 
 
@@ -510,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979972.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977833.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976388.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973079.jpg" />
 </div>
 
 
@@ -617,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972858.jpg" />
 </div>
 
 
@@ -628,58 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5C4662876CF69AD987719494CC4414A99ABA5F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358019   (970566) от 06.02.2020
-
-Акутагава Рюноскэ, и др. | Глубина. Погружение 24-е (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970566.jpg" />
-</div>
-
-
-###  Подробнее
-
-ГЛУБИНА - это литературный аудиопроект творческого объединения независимых чтецов, любящих и умеющих делать своё дело – рассказывать увлекательные истории. Если вы готовы погрузиться ниже ватер-линии обыденной реальности в чарующий океан захватывающей прозы, то нам с вами по пути!Жанр: PазноеПродолжительность: 06:00:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20E3BE1994A1568F18F2ADEB3178BE7F852E73DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976847   (968710) от 18.01.2016
-
-Андрей Воронин | Без единого выстрела (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968710.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге вы снова встретитесь с бывшим офицером спецназа Илларионом Забродовым, который никогда не нападает первым, но, если почуял врага, бьет без промаха. Бывший инструктор спецназа проводит собственное расследование в недрах самой секретной и самой могущественной организации – Федеральной службы безопасности. Ему удается распутать клубок противоречий и загадок (   Читать дальше...   )Жанр: БоевикПродолжительность: 12:50:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:883DBCFB10B45C9E51D9AEB1B4EC3D3878A502A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

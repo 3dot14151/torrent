@@ -1,3 +1,55 @@
+###  Публикация: 1338840   (124623) от 03.01.2024
+
+А. Мерников и др. | Большая энциклопедия для настоящего мужчины. Самое полное руководство (2018) [PDF]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124623.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы хотите научиться всему, что должен уметь каждый мужчина, — эта книга для вас. Из нее вы узнаете, как делать ремонт, благоустраивать загородный дом, своими руками создавать мебель и предметы интерьера. Кроме того, вы сможете в два счета почистить кондиционер, поставить палатку, заклеить резиновую лодку и даже умудритесь принести богатый улов или дичь с охоты. (   Читать дальше...   )Жанр: Энциклопедии, умелые рукиИздательство: АСТФормат: PDFКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D205D5B9ACD5930B793657D7A1367A472B6A53DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689691   (124498) от 04.01.2024
+
+10 фактов об Айзеке Азимове
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_124498.jpg" />
+</div>
+
+
+###  Подробнее
+
+Айзек Азимов, классик американской фантастической литературы, родился и три года прожил в России. Он тщетно пытался научить американцев выговаривать свою фамилию, издал три тома комментариев к Библии, будучи атеистом, считал ерундой высокий IQ и отказался работать над программой ПРО США ради творческой свободы. В его день рождения, который стал неофициальным Днем (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682313   (124302) от 05.01.2024
 
 Кеша должен умереть (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-7 из 7)
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124302.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124133.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_123980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_123980.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123755.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Windows 11 x64 Rus by OneSmiLe [22631.3007]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123599.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_123206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_123206.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123022.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ Gas Station Simulator (2021) [Ru/Multi] (1.0.2.5441S/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123021.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ Amnesia: The Bunker (2023) [Ru/Multi] (1.8) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122855.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122302.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_122106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_122106.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121961.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_121767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_121767.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_121632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_121632.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_121214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_121214.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121067.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_121057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_121057.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120754.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_120706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_120706.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_120591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_120591.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120559.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_120394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_120394.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120222.jpg" />
 </div>
 
 
@@ -609,65 +661,13 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_120209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_120209.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Владельцы новых автомобилей марки BMW столкнулись с неприятным ограничением. Проблему можно починить, но тогда перестанут работать другие опции машины.«Счастливые» обладатели автомобилей BMW жалуются на новую проблему. Их новая машина, привезенная в Россию по параллельному импорту, не видит смартфон, который водитель хочет подключить по проводу или по Bluetooth. (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691302   (120042) от 31.01.2024
-
-Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.14332.20624 (2024.01) (W10 / 11) RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120042.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Office 2021 — новый офисный пакет от корпорации Microsoft, который включает в себя не только передовые функции, которые помогают пользователям работать максимально продуктивно, но и эффективные решения для управления, а также более более комплексный подход к безопасности. По традиции в его состав входят такие приложения как Word, Excel, Outlook, PowerPoint, (   Читать дальше...   )Язык интерфейса: Русский, Украинский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8611F114B7C0612401EC5DEEA251631D4B22953
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695657   (119856) от 01.02.2024
-
-Илон Маск обьявил о первой имплантации устройства Neuralink человеку
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_119856.jpg" />
-</div>
-
-
-###  Подробнее
-
-Миллиардер Илон Маск заявил в понедельник, что его стартап по изучению мозга Neuralink впервые имплантировал устройство человеку. Это шаг к созданию продукта, который, по его словам, позволит людям управлять практически любым внешним устройством, «просто думая».Маск обьявил эту новость в своем аккаунте X. Он написал, что пациент, имя которого он не назвал, «получил (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

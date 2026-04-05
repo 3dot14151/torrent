@@ -1,3 +1,57 @@
+###  Публикация: 349659   (629159) от 13.06.2011
+
+Табор уходит в небо (1976) DVDRip (Реставрация "КП")
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629159.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам ранних рассказов Максима Горького.
+Удивительно поэтичный фильм о романтической, прекрасной и трагической любви удалого цыгана Лойко Зобара и гордой красавицы Рады.
+Действие разворачивается внутри цыганского табора, блуждающего по степям Бессарабии, на окраине Австро-Венгерской империи.Производство: СССР / Киностудия «Мосфильм»Жанр: Мьюзикл, Драма, МелодрамаРежиссер: Эмиль ЛотянуАктеры: Григоре Григориу, Светлана Тома, Барасби Мулаев, Ион Сандри Шкуря, Павел Андрейченко, Серджиу Финити, Борислав Брондуков, Ляля Черная, Нелли Волшанинова,  Николай ВолшаниновСубтитры: ОтсутствуютПродолжительность: 01:35:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B82CB4D8B2905B3D5764EFFE089115CDCC5CD4EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 26921   (628028) от 16.07.2016
+
+Вокзал для двоих (1982) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_628028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Город Заступинск, где-то между Москвой и Алма-Атой, ближе к Воронежу. Вокзальная буфетчица Вера и пианист Платон Рябинин из Москвы познакомились при весьма непривлекательных обстоятельствах. В результате Вера потеряла жениха с дынями, но нашла любимого, который вскоре должен отбыть в отдаленные места, чтобы нести наказание за несовершенное преступление…Производство: СССР, МосфильмЖанр: мелодрамаРежиссер: Эльдар РязановАктеры: Олег Басилашвили, Людмила Гурченко, Никита Михалков, Нонна Мордюкова, Анастасия Вознесенская, Татьяна Догилева, Ольга Волкова, Александр Ширвиндт, Михаил Кононов, Раиса Этуш, Темурмалик Юнусов, Вера ПетроваПродолжительность: 02:12:39
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 908216   (627259) от 17.06.2015
 
 Однолюбы (1982) SATRip
@@ -6,7 +60,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627259.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625607.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625127.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624902.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624420.jpg" />
 </div>
 
 
@@ -137,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623833.jpg" />
 </div>
 
 
@@ -163,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623547.jpg" />
 </div>
 
 
@@ -189,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623147.jpg" />
 </div>
 
 
@@ -217,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622655.jpg" />
 </div>
 
 
@@ -243,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621954.jpg" />
 </div>
 
 
@@ -270,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621928.jpg" />
 </div>
 
 
@@ -296,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619280.jpg" />
 </div>
 
 
@@ -324,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617803.jpg" />
 </div>
 
 
@@ -352,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616653.jpg" />
 </div>
 
 
@@ -378,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616456.jpg" />
 </div>
 
 
@@ -404,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616419.jpg" />
 </div>
 
 
@@ -430,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615845.jpg" />
 </div>
 
 
@@ -456,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615760.jpg" />
 </div>
 
 
@@ -482,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615651.jpg" />
 </div>
 
 
@@ -509,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614998.jpg" />
 </div>
 
 
@@ -537,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614426.jpg" />
 </div>
 
 
@@ -563,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614381.jpg" />
 </div>
 
 
@@ -589,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614202.jpg" />
 </div>
 
 
@@ -616,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613950.jpg" />
 </div>
 
 
@@ -628,58 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:702C177980DA28905AAB29EAD0A3DB0734E1A328
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 221516   (612674) от 25.07.2010
-
-Золотая речка (1976) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612674.jpg" />
-</div>
-
-
-###  Подробнее
-
-1922 год, Сибирь. Совнарком отправляет красноармейца Алексея Куманина, когда-то случайно спасшегося из плена белогвардейцев, в Сибирь. Ему поручено найти канал, по которому золото переправляется за границу. Это именно те запасы драгоценного металла, которые пять лет назад нашла экспедиция профессора Смелкова. Куманин соглашается на это нелегкое задание не только (   Читать дальше...   )Жанр: Приключения, ДрамаРежиссер: Вениамин ДорманАктеры: Борис Сморчков, Александр Абдулов, Александр Кайдановский, Виктор Сергачев, Евгения Симонова, Сергей Сазонтьев, Николай Олялин, Андрей Харыбин, Вадим Захарченко, Николай Горлов, Юрий Каюров, Георгий Мартиросян, Ольга Матешко, Любовь Мышева, Алексей Калабулин, Виктор Смирнов, Владлен Паулус, Александр Вокач, Раднэр Муратов, Георгий Тусузов, Петя ВорсановПеревод: ОригинальныйПродолжительность: 01:31:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C96BEB9418F5805BE4BA88B2C4E7B4095780078E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 792368   (609921) от 18.04.2019
-
-Александр Невский (1938) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609921.jpg" />
-</div>
-
-
-###  Подробнее
-
-На западные рубежи Руси наступают войска Тевтонского Ордена. Они захватывают Псков, мучают и убивают местных жителей. Рыцари заранее делят ещё не завоеванные русские земли, присваивая себе титулы князей и надеясь на поддержку Папы Римского. Новгородский люд на вече решает собирать дружину и звать на командование ей опытного полководца князя Александра, прозванного (   Читать дальше...   )Жанр: Военный, Драма, БоевикРежиссер: Сергей Эйзенштейн, Дмитрий Васильев, Борис ИвановАктеры: Николай Черкасов, Николай Охлопков, Андрей Абрикосов, Дмитрий Орлов, Василий Новиков, Николай Арский, Варвара Массалитинова, Валентина Ивашева, Александра Данилова, Владимир Ершов, Сергей Блинников, Иван Лагутин, Лев Фенин, Наум Рогожин, Николай Апарин, Леонид Иудов, Фёдор Одиноков, Иван Клюквин, Николай ТарасовПродолжительность: 01:48:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4379B07078D1A0F43AFF342522CA6A92D0C8988
 ```
 
 https://mybot314.ru/tekegram_catalog/

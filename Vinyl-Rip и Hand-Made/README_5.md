@@ -1,3 +1,32 @@
+###  Публикация: 1463658   (1019903) от 21.04.2021
+
+Кино - 45 (2021) Reissue 1982, AnTrop [FLAC 2.0|48/24|image+.cue|Vinyl-Rip] <New Wave, Post-Punk, Acoustic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019903.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальная Версия
+01. Время есть, а денег нет (4:12)
+02. Алюминиевые огурцы (3:10)
+03. Бездельник №1 (3:15)(   Читать дальше...   )Жанр: New Wave, Post-Punk, AcousticПродолжительность: 01:28:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88C75194C4C43E1B67A1ECEC93AA87BFF5D0407E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1464927   (1019454) от 24.04.2021
 
 Andy White - Himself (1990) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Folk Rock, Indie Rock>
@@ -6,7 +35,7 @@ Andy White - Himself (1990) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Folk Rock, I
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019454.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Late - Saw, Sine, Square / Voices From The Night (2009) Disfigured Dubz [FLAC 2.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010961.jpg" />
 </div>
 
 
@@ -62,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010281.jpg" />
 </div>
 
 
@@ -91,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009893.jpg" />
 </div>
 
 
@@ -120,7 +149,7 @@ Jean-Michel Jarre - Oxygene 3 (2016), Europe [FLAC 2.0|96/24|tracks +.cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009773.jpg" />
 </div>
 
 
@@ -149,7 +178,7 @@ Rudolf Dasek - Dialogues (1979) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Free Jaz
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007305.jpg" />
 </div>
 
 
@@ -178,7 +207,7 @@ Jon & Vangelis - The Best Of (1993) Unofficial Release [FLAC 2.0|48/24|image +.c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001742.jpg" />
 </div>
 
 
@@ -207,7 +236,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998808.jpg" />
 </div>
 
 
@@ -233,7 +262,7 @@ The Cranberries - 5 альбомов (1993-1999, 2012) [FLAC 2.0 24/192 |image +
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998771.jpg" />
 </div>
 
 
@@ -259,7 +288,7 @@ The Prodigy - The Fat Of The Land (1997) [FLAC 2.0 24/96 |tracks(VinylRip)]<Brea
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998741.jpg" />
 </div>
 
 
@@ -291,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998549.jpg" />
 </div>
 
 
@@ -324,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998545.jpg" />
 </div>
 
 
@@ -359,7 +388,7 @@ Korn - 8 альбомов (1995-2010) [FLAC 2.0 24/192 |image + .cue (Vinyl-Rip)
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998462.jpg" />
 </div>
 
 
@@ -385,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998297.jpg" />
 </div>
 
 
@@ -411,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998265.jpg" />
 </div>
 
 
@@ -446,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997997.jpg" />
 </div>
 
 
@@ -481,7 +510,7 @@ Cyndi Lauper - She's So Unusual (1983) [FLAC 2.0 96/24|image (vinylRip)]<Contemp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997489.jpg" />
 </div>
 
 
@@ -516,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996913.jpg" />
 </div>
 
 
@@ -551,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996893.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996860.jpg" />
 </div>
 
 
@@ -620,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996846.jpg" />
 </div>
 
 
@@ -653,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995507.jpg" />
 </div>
 
 
@@ -688,7 +717,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995474.jpg" />
 </div>
 
 
@@ -723,7 +752,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995462.jpg" />
 </div>
 
 
@@ -755,7 +784,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995442.jpg" />
 </div>
 
 
@@ -775,41 +804,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C2A7317D47CDAE2A85CB0157AA5A33176DD2B32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605263   (995432) от 20.01.2013
-
-Linkin Park - Hybrid Theory (2000/2001) [FLAC 2.0 24/192|image + .cue (Vinyl-Rip)]<Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995432.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Papercut 3:04
-A2. One Step Closer 2:35
-A3. With You 3:23
-A4. Points Of Authority 3:20
-A5. Crawling 3:28
-A6. Runaway 3:05
-B1. By Myself 3:09
-B2. In The End 3:36
-B3. A Place For My Head 3:04
-B4. Forgotten 3:13(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:37:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E747D6D4A323544ABAFEAE884BCC79E1448A55F
 ```
 
 https://mybot314.ru/tekegram_catalog/

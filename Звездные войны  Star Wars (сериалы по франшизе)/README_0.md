@@ -6,7 +6,7 @@
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212871.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201967.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201179.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199516.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199394.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199234.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_195268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195268.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182104.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181303.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181263.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180603.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180091.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180078.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_180075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180075.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_176942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176942.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175617.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175539.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174863.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174853.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173609.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165678.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161877.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161696.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161618.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161536.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звездные войны / Star Wars (сериалы по франшизе)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157613.jpg" />
 </div>
 
 

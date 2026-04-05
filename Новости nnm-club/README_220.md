@@ -1,3 +1,55 @@
+###  Публикация: 1337878   (270364) от 14.11.2019
+
+⚡ Российские частные компании разрабатывают 2 типа ракет-носителей
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_270364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анонсировавшиеся в 2014-2016 годах амбициозные планы отечественной компании «Лин Индастриал» по созданию новых ракет для выведения спутников получили продолжение. В 2019 году разработчик в кооперации с еще двумя частными российскими фирмами ведет работу над 2 ракетами – новой версией сверхлегкого «Таймыра» и легкой ракеты «Адлер» («Сибирь»). Что это за проекты?«Таймыр» (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337707   (270339) от 14.11.2019
+
+⚡ Единого поставщика телевидения в интернете определит Роскомнадзор
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_270339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Госдума  рассмотрит проект закона №759960-7, который одобрит появление в стране единого поставщика телепрограмм в интернете. Думский комитет по информационной политике  рекомендовал принять его в первом чтении.Оператор займется распространением контента, производимого 20 каналами, которые входят в два федеральных мультиплекса. При этом уполномоченная организация, которую, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1338114   (270204) от 14.11.2019
 
 Adobe Photoshop 2020 21.0.1.47 [Multi/Ru]
@@ -6,7 +58,7 @@ Adobe Photoshop 2020 21.0.1.47 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270204.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_270021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270021.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ mini10PE 18.12.2 [Ru] [x86/x64] (авторская раздача)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269785.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Windows Login Unlocker 1.0 (тестирование) [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269764.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ HellGate: London / London 2038 (2007/2018) [Ru/En] (1.2a) Repack R.G. Revenants
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269750.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ VMware Workstation 15 Pro 15.5.1 Build 15018445 (15.11.2019) RePack by KpoJIuK [
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269298.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269297.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269273.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269256.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269248.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ Mozilla Firefox Quantum 57.0.2 Final [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269218.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ Intel приступила к распространению новых унив
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269040.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ Windows 7 xDark ™ Deluxe x64 RG - Codename: State Of Independence 4.3 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269032.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269029.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ A Plague Tale: Innocence (2019) [Ru/Multi] (1.07/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268587.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268503.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ Google объявил о запуске бюджетной версии Android
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268500.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268436.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268309.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ BELOFF 2018.12 Unpacked [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268258.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_267576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_267576.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267479.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267274.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267266.jpg" />
 </div>
 
 
@@ -624,60 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B6D14E2815149328A712E19CB842C56887D942F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 161611   (267173) от 30.12.2009
-
-kulinaria.nnm.ru | Кулинарная книга дока "Пельмешки без спешки" том 2 [2009] [CHM]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267173.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это дополненный новыми рецептами второй том. С июня 2009 в книгу было добавлено 310 рецептов, и общий объем второго тома составил 901 рецепт.
-
-Кулинарная книга дока «Пельмешки без спешки» портала NoNaMe является наиболее полным сборником рецептов дока, существующим на данный конкретный момент. Она содержит в том числе и рецепты, которые более недоступны в доке, а (   Читать дальше...   )Формат: CHM
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339189   (266776) от 18.11.2019
-
-Red Giant Trapcode Suite 15.1.5 RePack by PooShock [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266776.jpg" />
-</div>
-
-
-###  Подробнее
-
-Red Giant Trapcode Suite - это мощный набор из 11 плагинов для Adobe After Effects, предоставляющих широкие возможности работы с графикой движения, анимацией и визуальными эффектами. Эти инструменты компании Red Giant позволяют эффективно работать с титрами, создавать анимированные фоны и логотипы, разрабатывать визуальные эффекты и 3D-объекты непосредственно в родном (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCEAD2AC2AFE58FA5FB18DD624D6300630AE6F85
 ```
 
 https://mybot314.ru/tekegram_catalog/

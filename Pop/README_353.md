@@ -1,170 +1,3 @@
-###  Публикация: 135476   (57540) от 05.05.2024
-
-Винтаж - Криминальная любовь (2008) [APE|lossless]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gomenasai [04:25.05]
-02. 9 1/2 недель II [03:23.31]
-03. Мама mia [03:39.51]
-04. Целься [03:17.66](   Читать дальше...   )Жанр: PopПродолжительность: 44:34:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67DF0EE3062075A50D1416DE628EBF774A6699B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 246715   (57483) от 06.05.2024
-
-Инфинити - Дискография (4CD) (2008-2010) [FLAC|Lossless]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57483.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 0:58:10
-
-01. Не исчезай
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3623C69289AD0818ACC99D06BA0C50436F155E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 622487   (57468) от 06.05.2024
-
-Женя Белоусов - Лучшие песни (1994) [FLAC|Lossless]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57468.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 01:12:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F808F144B9EC39C95306FDC0603854D11094AFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490618   (57465) от 06.05.2024
-
-Андрей Державин и Группа Сталкер - 3 Альбома (1989 - 1996) /1994, 1996/ [APE, FLAC|Lossless]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Жизнь в придуманном мире
-02. Забытые сны
-03. Верю
-04. Без тебя(   Читать дальше...   )Жанр: PopПродолжительность: 02:17:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A5B81962EB8947830A00DBFEEDC647C7D153939
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 295462   (57460) от 06.05.2024
-
-Наталья Ветлицкая - Deluxe Collection (2004) [APE|Lossless]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Pop ||Продолжительность: 01:19:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AE5839C1C887DEED0C7B1BFFAB39E6EFB08F150
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 863091   (57459) от 06.05.2024
-
-Кар-Мэн - Все Хиты 1989-2005! (2005) [APE|Lossless]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лондон (5:25)
-02. Париж (4:15)
-03. Чио-Чио-Сан (4:50)
-04. Чао Бамбино (4:11)(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E215FC119E844066669FA3BC2847AB8A9A5032CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 276132   (57457) от 06.05.2024
 
 Валерий Сюткин - Лучшие песни (2002) [FLAC|image+.cue]<Pop, Rock>
@@ -173,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57457.jpg" />
 </div>
 
 
@@ -199,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57453.jpg" />
 </div>
 
 
@@ -228,7 +61,7 @@ Bisquit - The Ultimate Singles Collection (2003) Limited Edition, Unofficial Rel
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57191.jpg" />
 </div>
 
 
@@ -257,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57042.jpg" />
 </div>
 
 
@@ -286,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57038.jpg" />
 </div>
 
 
@@ -315,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57037.jpg" />
 </div>
 
 
@@ -344,7 +177,7 @@ Mr. Moscow - 9 Albums (2021-2024) [MP3|320 Kbps] <Italo-Disco, Synth-Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56866.jpg" />
 </div>
 
 
@@ -373,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56864.jpg" />
 </div>
 
 
@@ -402,7 +235,7 @@ A'Studio - Лучшие Песни (2008) [WavPack|Lossless|image + .cue] <Pop>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56794.jpg" />
 </div>
 
 
@@ -431,7 +264,7 @@ Danny & Armi - Danny & Armi (1978) LP [MP3|320 Kbps] <Schlager, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56763.jpg" />
 </div>
 
 
@@ -460,7 +293,7 @@ Danny & Armi - Toinen (1979) LP [MP3|320 Kbps] <Pop Rock, Schlager, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56760.jpg" />
 </div>
 
 
@@ -489,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56548.jpg" />
 </div>
 
 
@@ -518,7 +351,7 @@ VA - The Best of Italo Disco, Vol. 1 (2010) [FLAC|Lossless|WEB-DL|tracks] <Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56450.jpg" />
 </div>
 
 
@@ -547,7 +380,7 @@ ABBA - Wembley Arena 1979 (Live) (2014) Reissue, 2024, The Media Champ [FLAC|Los
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56134.jpg" />
 </div>
 
 
@@ -576,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55960.jpg" />
 </div>
 
 
@@ -605,7 +438,7 @@ VA - Fulltime Production Disco Classic, Vol. 1 (2013) [FLAC|Lossless|WEB-DL|trac
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55938.jpg" />
 </div>
 
 
@@ -634,7 +467,7 @@ VA - Disco Club Hits & Secret Tracks Of The 80's And 90's (2021) [FLAC|Lossless|
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55917.jpg" />
 </div>
 
 
@@ -663,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55512.jpg" />
 </div>
 
 
@@ -692,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55505.jpg" />
 </div>
 
 
@@ -721,7 +554,7 @@ Sandra - The Platinum Collection (2009) 3 CD [OGG Vorbis|480 Kbps] <Electronic, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55131.jpg" />
 </div>
 
 
@@ -735,6 +568,179 @@ Sandra - The Platinum Collection (2009) 3 CD [OGG Vorbis|480 Kbps] <Electronic, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BCF413024024FA95CB3AAD5B1AB5B17ED9714A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726830   (54888) от 30.05.2024
+
+VA - 100% Hits: DJ Hits '97 Vol. 1 (1997) [OGG Vorbis|480 Kbps] <Electronic, Reggae, Euro House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paradisio - Bailando
+02. Real McCoy - One More Time
+03. Heart Attack - I Was Made For Loving You
+04. Captain Jack - Together And Forever(   Читать дальше...   )Жанр: Electronic, Reggae, Euro HouseПродолжительность: 01:11:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3AC40153C56C335E65194E8645BEE4DFB24827C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727091   (54776) от 31.05.2024
+
+Silver Convention - Get Up & Boogie: The Worldwide Singles (2024) [FLAC|Lossless|WEB-DL|tracks] <Disco, Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Save Me ((Single Edit))
+02 - Fly, Robin, Fly ((Stereo Single Long Version Edit))
+03 - Tiger Baby ((Single Radio Edit))
+04 - San Francisco Hustle ((Single Version))(   Читать дальше...   )Жанр: Disco, SoulПродолжительность: 01:00:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:177C8F3BD47BDF769DCDA3A885B030475740CC05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726889   (54767) от 31.05.2024
+
+VA - 100% Hits: DJ Hits '97 Vol. 3 (1997) [OGG Vorbis|480 Kbps] <Electronic, Reggae, Euro House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spice Girls - Spice Up Your Life
+02. La Bouche - You Won't Forget Me
+03. Nice Device - Cool Corona
+04. The Boom Beat - Touch the Fire!(   Читать дальше...   )Жанр: Electronic, Reggae, Euro HouseПродолжительность: 01:12:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18AA7B2EF23654813633500CFE96894A26CD298F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728030   (54254) от 05.06.2024
+
+VA - DJ Hits 31 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Toolex - Open Your Heart (Extended Mix)
+02. Bass Bumpers - Keep On Pushing (Extended Club Mix)
+03. Flip Da Crip - Throw Ya Hand In The Air
+04. Back To Nature - Come Back To Me (D.J. Remix)(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:10:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:847B2DC0F12204AA0ED746B0A743F637260AD241
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728044   (54250) от 05.06.2024
+
+VA - DJ Hits Vol. 32 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. N-Trance feat. Ricardo Da Force - Stayin' Alive
+02. 2 Unlimited - Do Whats Good For Me (edit version)
+03. Alexia Feat. Double You - Me And YouЖанр: Electronic, Euro House, EurodanceПродолжительность: 01:13:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:111D355ED3C2E795B0A44F147DD5A22282D8C823
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728146   (54236) от 05.06.2024
+
+VA - Sabadell Sound Megamixes (2024) [FLAC|Lossless|tracks + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D.J. Funny - Megamix Part 1 18:05
+- Closed - Living In Your Eyes
+- Squash Gang– I Want An Illusion
+- Vicio Latino – ¿Qué Me Pasa, Qué Me Pasa?(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F33D0946D533F0C03B947D8A05302BD678AEB40
 ```
 
 https://mybot314.ru/tekegram_catalog/

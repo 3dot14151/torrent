@@ -1,3 +1,55 @@
+###  Публикация: 1378836   (844730) от 26.04.2020
+
+Михаил Анчаров | Венский вальс (1976) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844730.jpg" />
+</div>
+
+
+###  Подробнее
+
+Война разлучила Катарину, дочь эмигранта из Испании, и Алексея в то время, когда их первое трепетное чувство только начинало зарождаться. Любовь помогала юноше жить в суровые годы...Жанр: Драма. РадиоспектакльВ ролях: Николай Александрович, Владимир Кенигсон, Татьяна Решетникова, Владимир Василенко, Светлана Мизери, Чеслав Сушкевич, Антонина Гунченко, Всеволод Ларионов, Михаил ЛобановПродолжительность: 00:49:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:244F6EFB3733B911E6A5B0187503D238F0D517C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111934   (843293) от 08.03.2017
+
+Евгений Шварц | Из дневников (2012) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аудиокнига Евгения Шварца (1896–1958) "Из дневников" - это собственные мемуары известного драматурга, изложенные в виде воспоминаний. Произведение стало своеобразной автобиографией Шварца, которая носит характер исповеди. В ней очень много собственных мыслей драматурга, о его каждодневной работе и о событиях которым он был свидетелям с 1900 года и до самой (   Читать дальше...   )Жанр: Мемуары, автобиографияПродолжительность: 03:25:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CD48EEF3E7D9FE6D67822092CE813F74980F7F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1003183   (843220) от 03.04.2016
 
 Иван Ефремов | Юрта Ворона (2016) [MP3]
@@ -6,7 +58,7 @@
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843220.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843126.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842720.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841777.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841530.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839992.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839931.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839824.jpg" />
 </div>
 
 
@@ -222,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837916.jpg" />
 </div>
 
 
@@ -248,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837818.jpg" />
 </div>
 
 
@@ -274,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835175.jpg" />
 </div>
 
 
@@ -300,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832825.jpg" />
 </div>
 
 
@@ -327,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832628.jpg" />
 </div>
 
 
@@ -353,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830822.jpg" />
 </div>
 
 
@@ -379,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829197.jpg" />
 </div>
 
 
@@ -405,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828980.jpg" />
 </div>
 
 
@@ -431,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828150.jpg" />
 </div>
 
 
@@ -457,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827170.jpg" />
 </div>
 
 
@@ -483,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827093.jpg" />
 </div>
 
 
@@ -510,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823563.jpg" />
 </div>
 
 
@@ -538,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822336.jpg" />
 </div>
 
 
@@ -564,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821682.jpg" />
 </div>
 
 
@@ -591,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821410.jpg" />
 </div>
 
 
@@ -617,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821135.jpg" />
 </div>
 
 
@@ -629,58 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C451D8261E19120B4CD19C67DFF0633DE0EF4B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116722   (820923) от 21.03.2017
-
-Радио «Комсомольская правда» | Тёмные истории на «Комсомольской правде» (2014-2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820923.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывает, в жизни происходят настолько странные и необъяснимые вещи, что не говорить про них нельзя, а объяснить - невозможно. О некоторых из таких случаях в мировой истории и рассказывается в выпусках «Тёмных историй» в эфире радио «Комсомольская правда».Жанр: РадиопередачаПродолжительность: 02:27:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:681CAAE5C7970FA75B5D1F1EF8F87C07E319C064
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007673   (819758) от 16.04.2016
-
-Юрий Ильинский | За ядовитыми змеями (2012) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819758.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга полна интересных фактов, встреч с людьми и забавных приключений. Вместе с автором читатель совершит путешествие в Среднюю Азию - змеиное царство, в горную Армению, в Дагестан, посетит Индию, север Сибири.Жанр: Познавательная литератураПродолжительность: 05:16:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF3E92DEA7E828F4CCEA56867965F4E014A6E223
 ```
 
 https://mybot314.ru/tekegram_catalog/

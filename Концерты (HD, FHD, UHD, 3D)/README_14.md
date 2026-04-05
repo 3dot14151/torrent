@@ -6,7 +6,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751060.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Foreigner - Rockin' at the Ryman (2011) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750987.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ Ana Popovic Band - Jazzwoche Burghausen (2012) HDTV [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750077.jpg" />
 </div>
 
 
@@ -95,7 +95,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749956.jpg" />
 </div>
 
 
@@ -125,7 +125,7 @@ Europe: War of King – Live at W:O:A (2015) BDRemux [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749953.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749681.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747553.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Nickelback: Live At Sturgis (2007) [1080p] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747286.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746684.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Nightwish / From Wishes to Eternity (2001) DVDRip [H.264/720p] [Upscale с Machi
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746648.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Judas Priest - Epitaph (2013) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_745638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_745638.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743522.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Queen - Rock Montreal & Live Aid (1981) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743296.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743272.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742154.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741293.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739602.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736391.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Metallica - Seattle (1989) Blu-ray [MPEG-2/1080i] [AI Remastered]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_736297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736297.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735848.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Mylene Farmer - Timeless 2013 Le Film (2014) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_735458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735458.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Mylene Farmer - Timeless 2013 Le Film (2014) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734067.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Mylene Farmer - Timeless 2013 Le Film (2014) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_734064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734064.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733188.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_733146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733146.jpg" />
 </div>
 
 
@@ -712,7 +712,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_729116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_729116.jpg" />
 </div>
 
 

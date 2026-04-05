@@ -1,3 +1,29 @@
+###  Публикация: 1201579   (791891) от 25.01.2018
+
+macOS Server 5.5 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791891.jpg" />
+</div>
+
+
+###  Подробнее
+
+macOS Server для устройств macOS и iOS позволяет легко обмениваться файлами, планировать встречи, синхронизировать контакты, разрабатывать приложения, поддерживать собственный сайт, публиковать wiki-проекты, управлять настройкой Mac, iPhone и iPad, заходить в сеть удалённо и многое другое. Любой пользователь может быстро и легко превратить компьютер Mac с macOS в (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.01.2018Разработчик: Apple Inc.Поддерживаемая ОС: macOS 10.13.3 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16FEF0D4724B84A68DC8406E661A6C6104FA7ADA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274995   (791666) от 09.01.2019
 
 iPasscode Unlocker 1.1.0 [Multi]
@@ -6,7 +32,7 @@ iPasscode Unlocker 1.1.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791666.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ Alfred 4 Powerpack 4.6.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791589.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ Command-Tab Plus 1.83 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790484.jpg" />
 </div>
 
 
@@ -89,7 +115,7 @@ Contexts 3.7.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790476.jpg" />
 </div>
 
 
@@ -117,7 +143,7 @@ Bartender 4 v4.1.15 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790402.jpg" />
 </div>
 
 
@@ -144,7 +170,7 @@ CleverFiles Duplicates Finder 2.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790344.jpg" />
 </div>
 
 
@@ -171,7 +197,7 @@ Folx Pro 5 v5.26 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790116.jpg" />
 </div>
 
 
@@ -199,7 +225,7 @@ Shredo 1.2.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789851.jpg" />
 </div>
 
 
@@ -228,7 +254,7 @@ Default Folder X 5.6.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789845.jpg" />
 </div>
 
 
@@ -254,7 +280,7 @@ SteerMouse 5.3.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789728.jpg" />
 </div>
 
 
@@ -280,7 +306,7 @@ Endurance 1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789415.jpg" />
 </div>
 
 
@@ -308,7 +334,7 @@ Network Speed Monitor 2.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789036.jpg" />
 </div>
 
 
@@ -337,7 +363,7 @@ PCKeygen Wrapper 2.6.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788865.jpg" />
 </div>
 
 
@@ -363,7 +389,7 @@ cDock 4 v4.6.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788840.jpg" />
 </div>
 
 
@@ -390,7 +416,7 @@ MonitorControl 4.0.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788382.jpg" />
 </div>
 
 
@@ -417,7 +443,7 @@ SwitchGlass 1.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788363.jpg" />
 </div>
 
 
@@ -443,7 +469,7 @@ WinZip Pro 6.5.4149 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788109.jpg" />
 </div>
 
 
@@ -470,7 +496,7 @@ Wondershare Data Recovery 6.2.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788013.jpg" />
 </div>
 
 
@@ -496,7 +522,7 @@ InternetSpeedTest 2.9.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787877.jpg" />
 </div>
 
 
@@ -525,7 +551,7 @@ Hedge 18.3.9 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787251.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ iExplorer 4.5.0 fix [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787041.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ Fresh 2.8.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785621.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ dDNS Broker 2.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784618.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ BookmarkApp 1.7.6 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784386.jpg" />
 </div>
 
 
@@ -662,7 +688,7 @@ VirusKiller Antivirus 4.1.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784377.jpg" />
 </div>
 
 
@@ -676,34 +702,6 @@ Endurance Antivirus - Adware & Malware антивирус.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4408FE0DCDA2FCA61983AE98F2C9ABA76FBCEEB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205629   (783452) от 10.02.2018
-
-TripMode 2.1.1 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783452.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мобильный интернет имеет свойство быстро заканчиваться, и часто это происходит нелепо: macOS установит обновления, Transmission загрузит новые сериалы, iCloud синхронизирует пару сотен мегабайт фотографий и вот уже месячного лимита как не бывало.
-
-Самостоятельно отслеживать запущенный приложения нереально, по этому лучше получить эту задачу специальной утилите. TripMode (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.02.2018Разработчик: TripModeПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0DEF7A75C351B6FC4FCAF84BB49C1FC5E2E98D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

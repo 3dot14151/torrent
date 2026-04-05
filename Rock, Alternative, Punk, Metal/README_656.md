@@ -1,3 +1,30 @@
+###  Публикация: 1325698   (410094) от 16.09.2019
+
+Mungo Jerry - Gold (2019) 3CD [MP3|320 Kbps] <Rock, Folk-rock, Psychedelic>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summer’s Gone [3:40]
+02. 46 & OnЖанр: Rock, Folk-rock, PsychedelicПродолжительность: 02:30:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:710E231632AB628196DDE473076EA39514E14F10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1066591   (410084) от 27.10.2016
 
 Anatomic - In For The Thrill (2000) [APE|Lossless|image + .cue] <Melodic Hard Rock>
@@ -6,7 +33,7 @@ Anatomic - In For The Thrill (2000) [APE|Lossless|image + .cue] <Melodic Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410084.jpg" />
 </div>
 
 
@@ -35,7 +62,7 @@ Asphalt Valentine - Strip Rock Roll (2009) [FLAC|Lossless|image + .cue] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410083.jpg" />
 </div>
 
 
@@ -64,7 +91,7 @@ Pulse R - In Chains (2016) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410080.jpg" />
 </div>
 
 
@@ -93,7 +120,7 @@ Mindghost - The Anti-Citizen (2016) [MP3|320 Kbps] <Stoner Metal, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410070.jpg" />
 </div>
 
 
@@ -122,7 +149,7 @@ Fish On Friday - Black Rain (2020) [FLAC|Lossless|tracks + .cue] <Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410005.jpg" />
 </div>
 
 
@@ -151,7 +178,7 @@ Soeckers - Kopfkarussell (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Alternativ
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410004.jpg" />
 </div>
 
 
@@ -180,7 +207,7 @@ Battling Delirium - Unknown Things (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410003.jpg" />
 </div>
 
 
@@ -209,7 +236,7 @@ Blue Stahli - Blue Stahli (2018) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409991.jpg" />
 </div>
 
 
@@ -238,7 +265,7 @@ Linkin Park - Studio Collection 2000-2012 (2013) 6CD [FLAC|Lossless|WEB-DL|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409949.jpg" />
 </div>
 
 
@@ -267,7 +294,7 @@ Ray Wilson - Makes Me Think Of Home (2016) [MP3|320 Kbps] <Alternative Rock, Pop
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409920.jpg" />
 </div>
 
 
@@ -296,7 +323,7 @@ Cairo - Say (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409910.jpg" />
 </div>
 
 
@@ -325,7 +352,7 @@ PVRIS - Use Me (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409858.jpg" />
 </div>
 
 
@@ -354,7 +381,7 @@ Blue Stahli - Quartz (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, In
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409848.jpg" />
 </div>
 
 
@@ -383,7 +410,7 @@ National Health - 7 альбомов (1978-2009) 9 CD, Дискография [W
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409754.jpg" />
 </div>
 
 
@@ -412,7 +439,7 @@ Cocteau Twins - 9 альбомов (1982 - 1996) [FLAC|Lossless]<Post-Punk, Ethe
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_409682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_409682.jpg" />
 </div>
 
 
@@ -442,7 +469,7 @@ Queen + Adam Lambert - Live Around The World (2020) [FLAC|Lossless|WEB-DL|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409676.jpg" />
 </div>
 
 
@@ -471,7 +498,7 @@ Roger Waters - Us + Them (2020) Live [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409675.jpg" />
 </div>
 
 
@@ -500,7 +527,7 @@ Amaranthe - Manifest (2020) Limited Edition [FLAC|Lossless|image + .cue] <Modern
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409669.jpg" />
 </div>
 
 
@@ -529,7 +556,7 @@ Denner / Shermann - Satan's Tomb (2015) EP [FLAC|image+.cue]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409656.jpg" />
 </div>
 
 
@@ -558,7 +585,7 @@ Status Quo - Aquostic II That's A Fact! (2016) 2CD Deluxe Edition [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409624.jpg" />
 </div>
 
 
@@ -587,7 +614,7 @@ The Birthday Massacre - 2 альбома (2011, 2012) [FLAC|Lossless]<Gothic, Sy
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_409591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_409591.jpg" />
 </div>
 
 
@@ -616,7 +643,7 @@ Paul Kossoff (ex. Free) - Koss (1977) /1983, Street Tunes/ [MP3|320 кб/с]<Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409554.jpg" />
 </div>
 
 
@@ -645,7 +672,7 @@ Aephanemer - Memento Mori (2016) [MP3|320 Kbps] <Melodic Death Metal , MDM>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409525.jpg" />
 </div>
 
 
@@ -674,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409471.jpg" />
 </div>
 
 
@@ -703,7 +730,7 @@ Mortido - V (2018) [MP3|320 Kbps] <Black Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409434.jpg" />
 </div>
 
 
@@ -717,35 +744,6 @@ Mortido - V (2018) [MP3|320 Kbps] <Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5A0EF220860AE92823F6249D6D44684579680A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252552   (409423) от 05.10.2018
-
-Симптом - Hereditatem (vol. 2) (2018) [MP3|320 Kbps] <Gothic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409423.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Князь тишины (Nautilus Pompilius cover)
-2. Мой рок-н-ролл (Би-2 cover) feat. Лия Каргина (Sara)
-3. Моряк (Агата Кристи cover)
-4. Try (acoustic) bonusЖанр: Gothic Hard RockПродолжительность: 00:15:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F433E5364E094FCB83B2C19073B8F8296733B26E
 ```
 
 https://mybot314.ru/tekegram_catalog/

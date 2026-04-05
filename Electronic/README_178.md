@@ -1,3 +1,61 @@
+###  Публикация: 1217841   (741045) от 06.04.2018
+
+Majed Salih - Medievil-Music Trance Emperor Vol. 2 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Trance Symphony (Original Mix)
+02.Orange Idea (Original Mix)
+03.Psychlortron (Original Mix)
+04.Dolphin (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:44:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80613E461129FD222AF9964C08F3FA861FD6116A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217790   (741044) от 06.04.2018
+
+VA - Submission Recordings Presents Miami (Mixed by Atragun) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alpha Modul & Karina Skye - Senses (Intro mix)
+02. Ross Cairns - Here&Back (SHADOWS remix)
+03. Xpectra - Memories (Deepshader remix)
+04. Atragun & Tom Bro - Lost In Dreams (original mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 06:11:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB237BA9ACB13177D21C0872D5D82B147C73DCFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217775   (741040) от 06.04.2018
 
 VA - Ori Uplift & NaHiM - Uplifting Only 269 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
@@ -6,7 +64,7 @@ VA - Ori Uplift & NaHiM - Uplifting Only 269 (2018) [MP3|320 Kbps] <Trance,Uplif
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741040.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Markus Schulz - Global DJ Broadcast - World Tour Miami (2018) [MP3|320 Kbps
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741037.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Paul Oakenfold DJ Box May (2016) [MP3|320 кб/с] <Trance,Progressive Hous
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740996.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - IBIZA 2016 - Locked, Loaded and Ready to Roll (2016) [MP3|320 кб/с] <Dee
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740992.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ LTN - People I'll Never Forget (Remixes) (2016) [MP3|320 кб/с] <Trance,Progre
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740978.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Female Vocal Trance (2019) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740974.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Training Hits 2017 Workout Music (2017) [MP3|320 Kbps] <House, Electro>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740908.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Lounge Deluxe, Vol 4 (50 Fantastic Lounge Grooves) (2016) [MP3|320 кб/с]
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740894.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - The Sound of Cafe del Mar (2017) [MP3|320 Kbps] <Downtempo, Deep House, Chi
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740709.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Buddha Deluxe Lounge • Mystic Chill Sounds Series - 12 Releases (2009-201
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740648.jpg" />
 </div>
 
 
@@ -293,7 +351,7 @@ VA - Deep Sundays, Vol.1 (2019) [MP3|320 Kbps] <House, DeepHouse>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740388.jpg" />
 </div>
 
 
@@ -322,7 +380,7 @@ VA - Suanda Music Radio Top 20 (January/February) (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740344.jpg" />
 </div>
 
 
@@ -351,7 +409,7 @@ Lissom - Lissom (2018) Whales Records [FLAC|Lossless|WEB-DL|tracks] <Dark Ambien
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740339.jpg" />
 </div>
 
 
@@ -380,7 +438,7 @@ Mono Peninsula - Metro/Pol (2018) Rohs! Records [FLAC|Lossless|WEB-DL|tracks] <A
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740338.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ VA - Black Hole Trance Music 02-19 (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740337.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ VA - Spring Club Tunes 2018 [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740319.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ Fief - Fief III (2017) [MP3|320 Kbps] <Dungeon Synth, Ambient>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740248.jpg" />
 </div>
 
 
@@ -496,7 +554,7 @@ VA - Sensual Lounge Vibes (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740240.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ VA - DJ Robert Miles - In The Mix (1997) Mixed [MP3 (image + .cue)|320 Kbps] <Br
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740239.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ VA - India Gets Physical Vol. 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740204.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ Blank & Jones - Milchbar // Seaside Season 10 (2018) [FLAC|Lossless|WEB-DL|track
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740127.jpg" />
 </div>
 
 
@@ -612,7 +670,7 @@ VA - After Sunset Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739871.jpg" />
 </div>
 
 
@@ -641,7 +699,7 @@ Robert Henke - Discography 7 Releases (1994-2015) Imbalance Computer Music [FLAC
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739792.jpg" />
 </div>
 
 
@@ -667,7 +725,7 @@ VA - Exposure, Vol.1-4 (2015 - 2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Tran
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739773.jpg" />
 </div>
 
 
@@ -681,62 +739,6 @@ VA - Exposure, Vol.1-4 (2015 - 2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Tran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00847218B6A318BC726739A415A76CE7F780FF71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283339   (739735) от 17.02.2019
-
-VA - Live @ Trancemission Heartbeat, Stadium Live Moscow, Russia 2019-02-15 [MP3|320 Kbps] <Trance, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Feel @ Trancemission Heartbeat, Stadium Live Moscow, Russia 2019-02-15:Жанр: Trance, Progressive HouseПродолжительность: 00:59:51
-N/A
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80D6EA42C9A2B58516625EA3D249BC3CAFD9D830
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283701   (739674) от 17.02.2019
-
-VA - Lost Dubs 2 (2018) Microfunk Music [FLAC|Lossless|WEB-DL|tracks] <Drum n Bass, IDM, Experimental>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oak – Mongoose (06:13)
-02. Bop – Memories (05:19)
-03. Dissident – Release Me From Space (05:35)
-04. A.Fruit – Be Careful With The Clouds (04:20)(   Читать дальше...   )Жанр: Drum n Bass, IDM, ExperimentalПродолжительность: 00:54:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:048FF61BC1348F16C3240BE11B486FE8B70E4747
 ```
 
 https://mybot314.ru/tekegram_catalog/

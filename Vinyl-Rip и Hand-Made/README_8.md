@@ -1,3 +1,32 @@
+###  Публикация: 1089678   (948575) от 05.01.2017
+
+VA - RETROспектива, часть III: Эстрадные оркестры III (1933-1961) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Instrumental>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Инструментальный октет - Новые приятели
+02. Оркестр п.у. Эмброуза (соло Сэм Браун) - Кукарача (румба)
+03. Джаз-оркестр ВРК п.у. А. Н. Цфасмана - Песенка дятла (полька)
+04. Джаз-оркестр ВРК п.у. А. Н. Цфасмана - Тирольский вальс (вальс)(   Читать дальше...   )Жанр: Retro, InstrumentalПродолжительность: 00:53:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84F4C7F50EB9BAA08B435D8DF13429EF11BEBCB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089961   (948567) от 05.01.2017
 
 VA - RETROспектива, часть IV: Эстрадные оркестры IV (1939-1960) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Instrumental>
@@ -6,7 +35,7 @@ VA - RETROспектива, часть IV: Эстрадные оркестры I
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948567.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Chris Rea - 9 Albums (1979-1989) [WavPack 2.0|192/32|image + .cue|Vinyl-Rip] <Po
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948549.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948484.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Annie Lennox - Diva (1992) Unofficial Release [FLAC 2.0|192/24|image + .cue|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947206.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Phil Collins - ...But Seriously (1989)  Incomplete version /1992, DRT/ [FLAC 2.0
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947050.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - RETROспектива, часть V: Эстрадные оркестры V 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945504.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Black Sabbath - Группа Блэк Саббат (1989) [FLAC 2.0|192/24|track
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943614.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Dire Straits - Dire Straits (1978) Phonogram [FLAC 2.0|192/24|image+cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943612.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Supertramp - The Very Best Of (1992) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942728.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - RETROспектива, часть VII: Эстрадные оркестры 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942626.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Bee Gees - Size Isn't Everything (1993) [FLAC|24Bit/96kHz] <pop-rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941990.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941862.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Demis Roussos - Souvenirs (1975) [FLAC|24Bit/96kHz]<pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940464.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Boney M - Ma Baker, Sunny, Daddy Cool (1977) Japan [WavPack 2.0|192/32|tracks|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939717.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Michael Jackson - Thriller (1982) Japan [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Funk 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939704.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938360.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ Supertramp - Breakfast In America (1979)  Japan Press [FLAC 2.0 24/96|image (Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935842.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ Rainbow - Ritchie Blackmore's Rainbow (1975) Phonogram [FLAC 2.0|192/24|image+cu
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933975.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ Def Leppard - High'N'Dry 1981 (1984) Vertigo [FLAC 2.0|192/24|image+cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932473.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ VA (Various Artists) - Greenpeace Rocks (1993) SNC [FLAC 2.0|192/24|image+cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932468.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930906.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930459.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ VA - RETROспектива, часть VIII: Эстрадные оркестры
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930129.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928780.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928765.jpg" />
 </div>
 
 
@@ -713,35 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:303EBE4045F4ACB6E8E3BC5B50AF9F369B49513A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987552   (925762) от 17.02.2016
-
-Def Leppard - Hysteria (1987) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip]<Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Woman (5:45)
-02. Rocket (6:39)
-03. Animal (4:05)
-04. Love Bites (5:48)(   Читать дальше...   )Производство: Mercury – 830 675-1 Q-1Жанр: Hard RockПродолжительность: 01:02:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0F8994506E24FC87802F2081FCB124399FDA3E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

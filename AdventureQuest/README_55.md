@@ -1,3 +1,81 @@
+###  Публикация: 1583590   (228191) от 15.10.2022
+
+Scorn (2022) [Ru/Multi] (Build 9713371) Repack Other s
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228191.jpg" />
+</div>
+
+
+###  Подробнее
+
+SCORN — атмосферный приключенческий хоррор от первого лица, действие которого происходит в ужасной искореженной вселенной. Он вдохновлен хайдеггеровской идеей «заброшенности». Вам предстоит исследовать связанные друг с другом регионы этого кошмарного мира в полном одиночестве. Окружение будет полноценным героем игры. В каждой локации вас ждут уникальный сюжет, загадки (   Читать дальше...   )Тип издания: RepackРазработчик: Ebb SoftwareЖанр: Adventure (Horror), Puzzle, 1st Person, 3DЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78E81752BDEC1054A7C04DF358E260D83CC13056
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423389   (226363) от 17.11.2020
+
+Observer: System Redux (2020) [Ru/Multi] (1.1.35) Repack Other s
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226363.jpg" />
+</div>
+
+
+###  Подробнее
+
+На дворе 2084 год. Будущее оказалось намного мрачнее, чем казалось раньше. Сперва появился нанофаг – цифровая эпидемия, унесшая жизни многих тысяч аугментированных людей. Затем началась война, превратившая Запад и Восток в руины. В образовавшемся вакууме к власти пришли корпорации, создав собственные империи беззакония. Вы инструмент корпоративного гнета. Вас боятся (   Читать дальше...   )Тип издания: RepackРазработчик: Bloober Team, Anshar StudiosЖанр: Adventure (Cyberpunk-Horror), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E9FB4B28C9185FC45B6D2E83F90FF22385802BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341956   (226331) от 30.11.2019
+
+Heavy Rain (2019) [Ru/Multi] (Build 362) Repack R.G. Механики
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Погрузитесь в напряженный психологический триллер, где ваш выбор и действия могут привести к драматическим последствиям... и определите, кто останется в живых, а кто умрет. Мастер Оригами терроризирует город, который получил такое прозвище из-за своей жуткой визитной карточки — манеры оставлять на месте преступления сложенные из бумаги фигурки, не оставляет полиции (   Читать дальше...   )Тип издания: RepackРазработчик: Quantic DreamЖанр: Adventure, Interactive, 3DЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5719F6CAA48F26C0A137B09FF0A91E839C85F82E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1250801   (225338) от 02.08.2023
 
 Amnesia: The Dark Descent / Амнезия: Призрак прошлого (2010) [Ru/Multi] (1.41b/dlc) License GOG
@@ -6,7 +84,7 @@ Amnesia: The Dark Descent / Амнезия: Призрак прошлого (201
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225338.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Husk (2017) [Ru/Multi] (1.0/upd5) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225318.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Loco Parentis (2019) [Ru/En] (1.2.0.4856) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223230.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Waxworks (1992) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222295.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ The Sin Collector: Repentless (2021) [Multi] (1.0.1441) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221731.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Shannara / Шанара (1995) [Ru/En] (1.0) Unofficial
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221509.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Lake Ridden (2018) [En] (1.5.1505) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220225.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ The Guest (2016) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220157.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Sonority (2022) [Ru/Multi] (1.6.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219988.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Batman - The Telltale Series (2016) [Ru/Multi] (1.0) License GOG [Episode 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219631.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Lucius III (2018) [Ru/Multi] (0.181213182603.a) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219121.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ The Pale Beyond (2023) [En] (1.5.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217515.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Arise: A Simple Story (2019) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217481.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Lure of the Temptress (1992) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217261.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Republique Remastered: Fall Edition (2015) [Ru/Multi] (1.0) Repack R.G. Меха
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216942.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Observer: System Redux (2021) [Ru/Multi] (7368691/dlc) License CODEX [Deluxe Edi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216418.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ DarkHouse (2021) [Ru/En] (1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216196.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Wolfstride (2021) [Ru/Multi] (1.2.1) License GOG [Golden God Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216191.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ House on the Hill (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215358.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Today Is My Birthday (2020) [Ru/En] (1.6) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215319.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215177.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Batman - The Telltale Series (2016) [Ru/Multi] (1.0) Repack R.G. Механик�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215115.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ The Dark Pictures Anthology: House of Ashes (2021) [Ru/Multi] (Build 7575778/dlc
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_214268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_214268.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ The Dark Pictures Anthology — это серия напряжённых кин�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FABB5FBF8DE73573E793E4B3C69177628532E10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343178   (213968) от 08.12.2019
-
-Arise: A Simple Story (2019) [Ru/Multi] (1.0) Repack xatab
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213968.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправляйтесь в эмоциональное путешествие по горько-сладким жизням двух людей в мире, где воспоминания оживают и время подчиняется вашей воле. Погрузитесь в моменты счастья и преодолевайте все трудности, переживая историю своей жизни. История радости и печали. Простая история.Тип издания: RepackРазработчик: PiccoloЖанр: AdventureЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6698B2654DC09A308E48C9DDFC8B7B23828EAF85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561927   (212772) от 07.07.2022
-
-Game of Thrones - A Telltale Games Series (2014) [En] (s106) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212772.jpg" />
-</div>
-
-
-###  Подробнее
-
-Game of Thrones: A Telltale Games Series - это игра состоящая из 6 эпизодов по мотивам одноименного сериала телеканала HBO. Действие игры развернется во временном промежутке между финалом третьего и началом пятого сезона телевизионного сериала. Дом Форрестер - одна из влиятельных семей, чья резиденция расположена на севере Вестероса. Они являются вассалами Старков, (   Читать дальше...   )Тип издания: LicenseРазработчик: Telltale GamesЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F69F43AA9BFC863787CE85D0CA2006A01CD65C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562405   (212744) от 09.07.2022
-
-LEGO Indiana Jones: The Original Adventures (2008) [Multi] (1.0) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212744.jpg" />
-</div>
-
-
-###  Подробнее
-
-LEGO Indiana Jones: The Original Adventures – аркадная приключенческая игра для всех возрастов, основанная на знаменитой вселенной об искателе приключений Индиане Джонсе, которого знают по образу актёра, который сыграл его на большом экране – Харрисона Форда. Сюжетно, эта игра основывается на первой трилогии и переносит геймера в временные отрезки, использовавшиеся (   Читать дальше...   )Тип издания: LicenseРазработчик: Traveller's TalesЖанр: Action, Adventure, ComedyЯзык субтитров: Английский, Немецкий, Датский, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Датский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF26CAD63D2E4F108F3224623A3B05AD7DE0C376
 ```
 
 https://mybot314.ru/tekegram_catalog/

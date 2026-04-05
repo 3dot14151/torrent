@@ -1,32 +1,3 @@
-###  Публикация: 53106   (267333) от 05.12.2018
-
-Mozart - Classics London Symphony Orchestra (2005) [MLP 5.1 48/24 |DVD Audio]<classic>
-
->>HD Audio и Многоканальная Музыка
->>DVD-Audio
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267333.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  Concerto for Piano no 22 in E flat major, K 482: 2nd movement, Andante
-2.  Symphony no 35 in D major, K 385 "Haffner": 2nd movement, Andante
-3.  Serenade no 13 in G major, K 525 "Eine kleine Nachtmusik": 4th movement, Rondo
-4.  Concerto for Flute and Harp in C major, K 299 (297c): 2nd movement, Andantino(   Читать дальше...   )Жанр: классическая музыкаПродолжительность: 00:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6B5ED2EFD2A7DDA37AEA36AF5E8E209F5CAAACD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 154483   (267329) от 05.12.2018
 
 Denon Sonic Boom - DVD Audio Demonstration Disc (2002) [MLP 5.1 96/24 |DVD-Audio]<Classical, Jazz>
@@ -35,7 +6,7 @@ Denon Sonic Boom - DVD Audio Demonstration Disc (2002) [MLP 5.1 96/24 |DVD-Audio
 >>DVD-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267329.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Vivaldi - Flute Concerti, Op. 10 (2005) [MLP 5.1 48/24 |DVD-Audio]<Classical>
 >>DVD-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267273.jpg" />
 </div>
 
 
@@ -90,7 +61,7 @@ Electric Light Orchestra - A New World Record (1976) [FLAC 2.0|192/24|image + .c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263708.jpg" />
 </div>
 
 
@@ -119,7 +90,7 @@ Electric Light Orchestra - Face The Music (1975) [FLAC 2.0|192/24|image + .cue|V
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263373.jpg" />
 </div>
 
 
@@ -148,7 +119,7 @@ Haunted by Silhouettes - Studio Albums (3 releases) (2018-2022) hand made [resto
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261627.jpg" />
 </div>
 
 
@@ -176,7 +147,7 @@ VA - Original Artistes. 15 Mersey Hits (1976) Compilation, Stereo, Mono [FLAC 2.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261510.jpg" />
 </div>
 
 
@@ -205,7 +176,7 @@ The Cliff Adams Singers - Sing Something Simple (1976) [FLAC 2.0|96/24|image +.c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260910.jpg" />
 </div>
 
 
@@ -234,7 +205,7 @@ VA - Original Rocking Hits. From The Soundtrack Of «Side By Side» (1977) [FLAC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260648.jpg" />
 </div>
 
 
@@ -263,7 +234,7 @@ Eric Clapton - Complete Clapton - Boxset 4 vinyl LP (2007) [FLAC 2.0 24/96|track
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258384.jpg" />
 </div>
 
 
@@ -297,7 +268,7 @@ Accept - Kaizoku-Ban (1985) /EP/ [FLAC 2.0 192/24 |VinylRip] <Heavy Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258112.jpg" />
 </div>
 
 
@@ -328,7 +299,7 @@ Tommy Kinsman And His Orchestra - Holiday For Dancers (1960) [FLAC 1.0|192/24|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257818.jpg" />
 </div>
 
 
@@ -357,7 +328,7 @@ Al Caiola - Spanish Guitars (1962) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Pop,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257817.jpg" />
 </div>
 
 
@@ -386,7 +357,7 @@ Memoriam - Studio Albums (6 releases) (2017-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257750.jpg" />
 </div>
 
 
@@ -415,7 +386,7 @@ Haddah - Studio Albums (3 releases) (2014-2025) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257520.jpg" />
 </div>
 
 
@@ -443,7 +414,7 @@ Various - Let's Break (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electroni
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255518.jpg" />
 </div>
 
 
@@ -472,7 +443,7 @@ Two Of Us - Inside Out (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255435.jpg" />
 </div>
 
 
@@ -501,7 +472,7 @@ Styx - Kilroy Was Here (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255414.jpg" />
 </div>
 
 
@@ -530,7 +501,7 @@ Bangles - Different Light (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255339.jpg" />
 </div>
 
 
@@ -559,7 +530,7 @@ Bucks Fizz - Are You Ready? (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255306.jpg" />
 </div>
 
 
@@ -588,7 +559,7 @@ Bucks Fizz - I Hear Talk (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<BritPop
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255302.jpg" />
 </div>
 
 
@@ -617,7 +588,7 @@ Barclay James Harvest - Turn Of The Tide (1981) [FLAC 2.0|192/24|image + .cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255300.jpg" />
 </div>
 
 
@@ -646,7 +617,7 @@ Brutus (Belgian) - Studio Albums (5 releases) (2015-2022) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255296.jpg" />
 </div>
 
 
@@ -675,7 +646,7 @@ Bucks Fizz - Hand Cut (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255266.jpg" />
 </div>
 
 
@@ -704,7 +675,7 @@ Bucks Fizz - Bucks Fizz (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255201.jpg" />
 </div>
 
 
@@ -733,7 +704,7 @@ Taboo - The Same Word (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255126.jpg" />
 </div>
 
 
@@ -747,6 +718,35 @@ Taboo - The Same Word (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D82AEBA72CE6857847ED085006886AFC1163655D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627632   (254994) от 20.04.2023
+
+Раймондс Паулс - Raimonds Pauls - В Тональности Раймондса Паулса - In The Mood Of Raimonds Pauls (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Jazz, Funk / Soul, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254994.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1		Беспокойный Пульс = Restless Beat	4:10
+A2		Печаль = Sadness	4:20
+A3		Испанский Мотив = Spanish Theme	3:40
+A4		Все Твое = All Yours	3:12(   Читать дальше...   )Жанр: Jazz, Funk / Soul, PopПродолжительность: 00:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45D975DEF44FD0773D4E03B10D2CD3B14F0BF69A
 ```
 
 https://mybot314.ru/tekegram_catalog/

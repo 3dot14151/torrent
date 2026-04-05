@@ -1,3 +1,32 @@
+###  Публикация: 1814272   (1923) от 20.09.2025
+
+Международная школа Л.Л. Васильевой, Лидия Васильева | Критическое мышление (2025) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Психология и саморазвитие (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1923.jpg" />
+</div>
+
+
+###  Подробнее
+
+В ходе лекции вы узнаете:
+Что такое критическое мышление и как его развить.
+Какие области мозга отвечают за развитие критического мышления.
+Какие упражнения помогут улучшить критическое мышление.(   Читать дальше...   )Производство: Международная школа Л.Л. ВасильевойЖанр: Лекция, психология, саморазвитиеЯзык озвучки: русскийПродолжительность: 00:58:42Реклама: cторонние вставки и наложения на видео и в презентации (водяной знак спонсора)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20F7B72C6622BBAD221D2305D1036253C5109963
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1819050   (1899) от 20.09.2025
 
 Сергей Наумов | Все нюансы ИИС (2025) WEB-DL [AD] [RU]
@@ -6,7 +35,7 @@
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1899.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ Storytelling School, Татьяна Жакова | Pinterest - с нуля до 
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1873.jpg" />
 </div>
 
 
@@ -58,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1867.jpg" />
 </div>
 
 
@@ -84,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1861.jpg" />
 </div>
 
 
@@ -113,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1849.jpg" />
 </div>
 
 
@@ -139,7 +168,7 @@ Stepik, Карпов и Партнёры | Основы управления п�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1847.jpg" />
 </div>
 
 
@@ -168,7 +197,7 @@ Step Up, Step Up | Перенос онлайн-школы на Salebot (2025) WE
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1832.jpg" />
 </div>
 
 
@@ -194,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1760.jpg" />
 </div>
 
 
@@ -221,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1734.jpg" />
 </div>
 
 
@@ -247,7 +276,7 @@ ArtStation, LaurentiuN | 3D Weapon Tutorial for Portfolio (2025) PCRec [AD] [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1680.jpg" />
 </div>
 
 
@@ -274,7 +303,7 @@ igoroutine.courses, Игорь Панасюк | The Nature of Concurrency - ку
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1207.jpg" />
 </div>
 
 
@@ -300,7 +329,7 @@ ArtStation, Vizyon Designers | 50 Hard Surface Kitbash + Full Process Tutorial (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1200.jpg" />
 </div>
 
 
@@ -326,7 +355,7 @@ Gumroad, CrossMind Studio | Procedural Thinking - Blender 3D - Small Steps to Bi
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1194.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ leManoosh, Mohamed Basil | The Blender Material Mastery - Cracking The Code Of P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1193.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ Rebrain, Александр Марченко, Артемий Дубовой | Gr
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1083.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_620.jpg" />
 </div>
 
 
@@ -435,7 +464,7 @@ Udemy, Joseph Heidari | Understanding Node.js: Core Concepts (2025) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_619.jpg" />
 </div>
 
 
@@ -464,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_616.jpg" />
 </div>
 
 
@@ -490,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_609.jpg" />
 </div>
 
 
@@ -516,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_598.jpg" />
 </div>
 
 
@@ -542,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_567.jpg" />
 </div>
 
 
@@ -568,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_453.jpg" />
 </div>
 
 
@@ -596,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_355.jpg" />
 </div>
 
 
@@ -622,7 +651,7 @@ Kuptsov GameDev Academy, Данил Купцов | Industry Entry for 3D Artist 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_341.jpg" />
 </div>
 
 

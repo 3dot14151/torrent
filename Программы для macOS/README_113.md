@@ -1,3 +1,56 @@
+###  Публикация: 1262329   (296782) от 14.11.2018
+
+Wondershare Video Converter Ultimate 10.2.0 [Multi]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самое быстрое универсальное решение для развлечений с цифровым видео. Скачивайте видео на сверхвысокой скорости одним нажатием мыши! А ещё оцените мощь универсального медиа-плеера, встроенного видео-редактора, интегрированного DVD-привода и многого другого.Тип издания: macOS SoftwareРелиз состоялся: 12.11.2018Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: Mac OS X 10.7 или вышеЯзык интерфейса: Английский, Испанский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06C2052432D8259909B13DDE7AD3ABCB0237CA2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079054   (295982) от 03.12.2016
+
+Priime Styles 1.2 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295982.jpg" />
+</div>
+
+
+###  Подробнее
+
+Применить профессиональные пресеты, созданные и используемые лучшими в мире современными фотографами.
+Priime обладает более чем 100 фотографическими стилям (также известные как предварительные настройки или фильтры), которые создаются в сотрудничестве с ведущими фотографами мира в форме их фотографических стилей. Работает, не требуя каких-либо других программ, чтобы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01 декабря 2016Разработчик: Priime, Inc.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F6F43A392ECE8F76C023D92071DC48BCB56DA2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1424125   (295810) от 15.11.2020
 
 Motion Weather 4K - Ultra HD 1.1.3 [En]
@@ -6,7 +59,7 @@ Motion Weather 4K - Ultra HD 1.1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295810.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Video Converter Movavi 7.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295164.jpg" />
 </div>
 
 
@@ -61,7 +114,7 @@ Flare 2 v2.2.7 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294881.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ Things 2.8.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294728.jpg" />
 </div>
 
 
@@ -115,7 +168,7 @@ SimLab Composer 9 v9.2.17 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294676.jpg" />
 </div>
 
 
@@ -141,7 +194,7 @@ Paragon ExtFS for Mac 11.3.27 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294674.jpg" />
 </div>
 
 
@@ -169,7 +222,7 @@ Drop - Beautiful color picker for macOS 1.01 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294198.jpg" />
 </div>
 
 
@@ -198,7 +251,7 @@ Little Audio App 1.2 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294185.jpg" />
 </div>
 
 
@@ -227,7 +280,7 @@ Pichi 1.0.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293499.jpg" />
 </div>
 
 
@@ -253,7 +306,7 @@ Nice Todo 2 v2.0.5d [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293329.jpg" />
 </div>
 
 
@@ -279,7 +332,7 @@ Roxio Toast Titanium 17 v17.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293327.jpg" />
 </div>
 
 
@@ -305,7 +358,7 @@ Movavi Screen Capture Pro 10 v10.0.1 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293161.jpg" />
 </div>
 
 
@@ -333,7 +386,7 @@ Fantastical 2.1.4 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293159.jpg" />
 </div>
 
 
@@ -360,7 +413,7 @@ Macgo Blu-ray Player Pro 3.3.19 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292909.jpg" />
 </div>
 
 
@@ -386,7 +439,7 @@ Native Instruments Kontakt 6 STANDALONE, VST, AU v6.0.3 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292788.jpg" />
 </div>
 
 
@@ -412,7 +465,7 @@ Adobe InDesign CC 2019 v14.0.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292536.jpg" />
 </div>
 
 
@@ -438,7 +491,7 @@ Vellum 2.6.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291666.jpg" />
 </div>
 
 
@@ -466,7 +519,7 @@ Dr. Antivirus Pro 3.2.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291663.jpg" />
 </div>
 
 
@@ -494,7 +547,7 @@ NetSpot Wi-Fi Reporter 2.1.475 (473)  [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291599.jpg" />
 </div>
 
 
@@ -523,7 +576,7 @@ MPlayerX 1.1.4 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291556.jpg" />
 </div>
 
 
@@ -552,7 +605,7 @@ Final Draft 11 v11.1.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291541.jpg" />
 </div>
 
 
@@ -580,7 +633,7 @@ Screenflick 2.7.45 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291337.jpg" />
 </div>
 
 
@@ -606,7 +659,7 @@ Remotix VNC, RDP & NEAR 5.1.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290959.jpg" />
 </div>
 
 
@@ -635,7 +688,7 @@ Tweetbot for Twitter 2.5.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290884.jpg" />
 </div>
 
 
@@ -648,63 +701,6 @@ Tweetbot - клиент Twitter для Mac. Этот полнофункцион�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8814FA838077B64A3D10AF49C4BA55B43F1E4EA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080391   (290340) от 06.12.2016
-
-Graphics for iWork 3.1 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290340.jpg" />
-</div>
-
-
-###  Подробнее
-
-Graphic Styles  содержит набор высококачественных изображений, которые помогут вам создать  уникальные презентации в Keynote для иллюстрации ваших слайд-шоу, информационных бюллетеней или любого другого контента. Эта великолепная коллекция придаст вашим презентациям эксклюзивность если включить в неё оригинальные рамки, символы, графический шрифт и т.д.
-
-Все изображения (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05 декабря 2016Разработчик: JumsoftПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B08CB0369F2A49D71AC4EE3E23F3C95084FF19C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080388   (290089) от 06.12.2016
-
-M4VGear DRM Media Converter 4.2.5 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для снятия защиты DRM с видео, купленных или арендованных в iTunes Store
-M4VGear может сохранить AC3 Dolby 5.1 аудио при удалении DRM из iTunes видео и кроме того, многоязычные субтитры и звуковые дорожки iTunes видео также могут быть сохранены.
-
-M4VGear перенимает инновационную технику дешифрования DRM, что делает его самым быстрым приложением способен (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04 декабря 2016Разработчик: M4VGear Inc.Поддерживаемая ОС: macOS 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D7745CB7633AF9CBD96A12C7C316C6BEC3077F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

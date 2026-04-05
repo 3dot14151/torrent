@@ -6,7 +6,7 @@
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_231033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231033.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230640.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230517.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_230473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230473.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226088.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226054.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ History Channel: Древние пришельцы / Ancient Aliens (2015) HDTV 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217306.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ History Channel. В изоляции (Лабрадор) / Alone (2022) WEB-DL [H
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211808.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ History Channel. В изоляции (Арктика) / Alone (2021) WEB-DL [H.2
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211541.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210196.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210193.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206051.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ History Channel: Тетрис: Из России с любовью / TETRIS. Fro
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200524.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ History Channel: Древние пришельцы / Ancient Aliens (2022) WEB-D
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199921.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198828.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ History Channel: Древние пришельцы / Ancient Aliens (2020) WEB-D
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198239.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197360.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197212.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_194499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_194499.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ History Channel: Древние пришельцы / Ancient Aliens (2021) WEB-D
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190510.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ History Channel. Тайны древности. Варвары: Монголы /
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181840.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ History Channel: Древние пришельцы / Ancient Aliens (2023) WEB-D
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180426.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ History Channel: Злой гений / Evil Genius (2016-2017) HDTVRip (8 сер
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_173882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173882.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167188.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ History Channel: Древние пришельцы / Ancient Aliens (2018) SATRe
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152820.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151247.jpg" />
 </div>
 
 

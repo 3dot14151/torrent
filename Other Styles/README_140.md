@@ -1,3 +1,58 @@
+###  Публикация: 1336803   (277184) от 08.11.2019
+
+Baguette Quartette - 5 Albums (1995-2010) [FLAC|Lossless|WEB-DL|tracks] <Folk, World, & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исполняют музыку, звучавшую в 1920–40 годах на улицах, в кафе и в популярных танцевальных залах Парижа. Репертуар квартета состоит из вальс аккордеон, танго, пасодоблей, фокстротов, маршей и песен из классического французкого шансона. Они записали пять компакт-дисков: A La Noce (2010), Toujours (2004), Chez Moi (2001), Rendez-Vous (1998) и L'air de Paris (1995). (   Читать дальше...   )Список альбомов:
+1995 - L'air de Paris
+1998 - Rendez Vous
+2001 - Chez Moi(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 04:55:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5451569F3648D1D5FCF4191D0A89F6BBD81122C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265222   (276417) от 26.11.2018
+
+Sade - The Big Unknown (From the motion picture "Widows") (2018) Single [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Big Unknown (4:21)Жанр: Pop, SoulПродолжительность: 00:04:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B0799FBB6ED10C363B5E3A5408FFF2C19029044
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1336604   (276042) от 09.11.2019
 
 Martin Ermen - Piano Dreams Collection (2017-2018) 4CD [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano, Relaxation>
@@ -6,7 +61,7 @@ Martin Ermen - Piano Dreams Collection (2017-2018) 4CD [FLAC|Lossless|WEB-DL|tra
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276042.jpg" />
 </div>
 
 
@@ -35,7 +90,7 @@ Ludvig Forssell, VA - Death Stranding (Original Score + Timefall) (2019) [FLAC|L
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276010.jpg" />
 </div>
 
 
@@ -64,7 +119,7 @@ Yiruma - Piano (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano Solo, Modern
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275974.jpg" />
 </div>
 
 
@@ -93,7 +148,7 @@ Marco Allevi - Spa Music (Music For Relaxation Meditation Massage) (2017) [MP3|3
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275957.jpg" />
 </div>
 
 
@@ -122,7 +177,7 @@ Ludvig Forssell, VA - Death Stranding (Original Score + Timefall) (2019) [MP3|32
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275860.jpg" />
 </div>
 
 
@@ -151,7 +206,7 @@ Ludvig Forssell, VA - Death Stranding (Original Score + Timefall) (2019) [FLAC 2
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275540.jpg" />
 </div>
 
 
@@ -180,7 +235,7 @@ Schlaflieder Für Kinder - 20 Songs to Instantly Calm Your Soul (2019) [FLAC|Los
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275007.jpg" />
 </div>
 
 
@@ -209,7 +264,7 @@ Jim Brickman - The Magic Of Christmas (2019) [FLAC|Lossless|WEB-DL|tracks] <New 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274805.jpg" />
 </div>
 
 
@@ -238,7 +293,7 @@ Musica Relajante - Bikram Yoga Music (2019) [FLAC|Lossless|WEB-DL|tracks] <New A
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274760.jpg" />
 </div>
 
 
@@ -267,7 +322,7 @@ Guido Negraszus - The Very Best of Guido Negraszus (2016) [MP3|320 Kbps] <New Ag
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274735.jpg" />
 </div>
 
 
@@ -296,7 +351,7 @@ VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol. 8 (1994) [FLA
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274641.jpg" />
 </div>
 
 
@@ -325,7 +380,7 @@ VA - Greatest Hits of Classical Rock Vol. 4 (1993) [FLAC|Lossless|image + .cue] 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274582.jpg" />
 </div>
 
 
@@ -354,7 +409,7 @@ Back to Earth - Peace of Mind (2019) [FLAC|Lossless|WEB-DL|tracks] <New age, Rel
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274580.jpg" />
 </div>
 
 
@@ -383,7 +438,7 @@ Molly Valentine - Fantasyland (2016) [MP3|320 Kbps] <New Age, Neo-Classical>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273638.jpg" />
 </div>
 
 
@@ -412,7 +467,7 @@ James Horner & Simon Franglen - The Magnificent Seven / Великолепная
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273630.jpg" />
 </div>
 
 
@@ -441,7 +496,7 @@ Michael Giacchino - Rogue One: A Star Wars Story / Изгой-один: Звёз
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273554.jpg" />
 </div>
 
 
@@ -470,7 +525,7 @@ James Horner & Simon Franglen - The Magnificent Seven / Великолепная
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273551.jpg" />
 </div>
 
 
@@ -499,7 +554,7 @@ Deuter, Parijat and Kamal - Spa Lounge (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273520.jpg" />
 </div>
 
 
@@ -528,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273473.jpg" />
 </div>
 
 
@@ -557,7 +612,7 @@ Michael Giacchino - Rogue One: A Star Wars Story / Изгой-один: Звёз
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273472.jpg" />
 </div>
 
 
@@ -586,7 +641,7 @@ Kevin Kern - Enchanted Piano (2011) [APE|Lossless]<New Age ,Piano>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273462.jpg" />
 </div>
 
 
@@ -615,7 +670,7 @@ Cris Velasco, Sascha Dikiciyan, Jesper Kyd, Raison Varner - Borderlands 2 Origin
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273449.jpg" />
 </div>
 
 
@@ -644,7 +699,7 @@ VA - Forever Instrumental:  Accordion  (2005) [FLAC|Lossless|image + .cue]<Accor
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273345.jpg" />
 </div>
 
 
@@ -673,7 +728,7 @@ Jerry Holland - Romantic Accordion (2001) [FLAC|Lossless|image + .cue]<Accordion
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273340.jpg" />
 </div>
 
 
@@ -687,64 +742,6 @@ Jerry Holland - Romantic Accordion (2001) [FLAC|Lossless|image + .cue]<Accordion
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6AB9C8AF7B4E8530864BFE28F7BCE930A0C835D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188849   (273236) от 03.12.2017
-
-ERA - The 7th Sword (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, New Age, Ethereal>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273236.jpg" />
-</div>
-
-
-###  Подробнее
-
-1/9. Hurricane (3:17)
- 2/9. 7 Seconds (4:04)
- 3/9. Kilimandjaro (4:00)
- 4/9. Ameno (3:35)(   Читать дальше...   )Жанр: Electronic, New Age, EtherealПродолжительность: 00:34:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55355215C94F1B47CA54BB6FD2A60C46A90264DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083747   (273056) от 16.12.2016
-
-Jean-Michel Jarre - Essentials & Rarities (2011) 2CD, Limited Edition [FLAC|Lossless|tracks + .cue] <New Age, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Happiness Is A Sad Song (5:54)
-02. Hypnose (3:30)
-03. Erosmachine (2:58)
-04. La Cage (3:24)(   Читать дальше...   )Жанр: New Age, ElectronicПродолжительность: 00:52:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0F1ABFF0A66A4C52298987C4C09B391EC21EF7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

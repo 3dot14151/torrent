@@ -1,3 +1,29 @@
+###  Публикация: 1782411   (26166) от 28.02.2025
+
+Екатерина Сваровская | Хачапури (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26166.jpg" />
+</div>
+
+
+###  Подробнее
+
+На курсе вы научитесь готовить несколько видов теста для хачапури, несколько видов начинок (сырная, из фасоли, мясная), несколько видов соусов.Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 04:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC677B2A87B584FE521F7A02B7A476B20CA1F303
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1782568   (26110) от 01.03.2025
 
 Udemy, Edward Harding | Learn Architectural Design & Animation With Blender (2025) WEB-DL [EN]
@@ -6,7 +32,7 @@ Udemy, Edward Harding | Learn Architectural Design & Animation With Blender (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26110.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ Udemy, Борис Шлыков | Уроки Гитары С Нуля Для На
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26098.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26086.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ OTUS | Java Developer. Advanced (2024) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26018.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26016.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ Warren Eagles | FF201 Advanced Resolve 11 (2014) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25999.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25860.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25805.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25737.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ Coloso., LouLL_AroLL | 30 Days from 0 Skill to Pro 3D Artist with Daz & Blender 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25707.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ Sorax | Курс по Coffeescript (2014) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25705.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ javascript.ru | Интенсив по RxJS (2024) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25698.jpg" />
 </div>
 
 
@@ -329,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25696.jpg" />
 </div>
 
 
@@ -357,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25639.jpg" />
 </div>
 
 
@@ -386,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25633.jpg" />
 </div>
 
 
@@ -415,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25590.jpg" />
 </div>
 
 
@@ -442,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25582.jpg" />
 </div>
 
 
@@ -471,7 +497,7 @@ Udemy, Logan Wiesen | Realistic 3D Character Creation By Logan Wiesen (2025) WEB
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25558.jpg" />
 </div>
 
 
@@ -497,7 +523,7 @@ Udemy, Marwan Sufyan | AutoCAD Architectural 3D Modeling (2025) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25552.jpg" />
 </div>
 
 
@@ -525,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25531.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25512.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25486.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ Skillbox | Профессия Менеджер маркетплейсов (2024)
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25468.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25400.jpg" />
 </div>
 
 
@@ -661,7 +687,7 @@ Udemy, Ag Motion Designs | Cinema 4D & Redshift: Looping Animation Mastery (2025
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25372.jpg" />
 </div>
 
 
@@ -674,34 +700,6 @@ Udemy, Ag Motion Designs | Cinema 4D & Redshift: Looping Animation Mastery (2025
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BDB10788B6A1A187D999628526118C907C60532
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783794   (25354) от 08.03.2025
-
-Domestika, Jonas Pfeiffer | Abstract Portrait Animation with Cinema 4D (2025) WEB-DL [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25354.jpg" />
-</div>
-
-
-###  Подробнее
-
-Откройте секреты создания захватывающих абстрактных портретов с помощью анимации в Cinema 4D.
-
-Познакомьтесь с Йонасом Пфайффером, креативным умом, стоящим за этим захватывающим курсом. Если вы готовы окунуться в мир дизайна движения и 3D-искусства, вас ждет настоящее удовольствие. В этом онлайн-курсе Йонас отправит вас в художественное путешествие, где вы научитесь (   Читать дальше...   )Производство: DomestikaЖанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 05:47:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:853E93F87CA7C34AF166D3CB28880AB0F864ED32
 ```
 
 https://mybot314.ru/tekegram_catalog/

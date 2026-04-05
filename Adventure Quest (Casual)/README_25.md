@@ -6,7 +6,7 @@ Grim Tales 8: The Final Suspect / Страшные сказки 8: Главны�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648939.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Chronoclasm Chronicles (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647915.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Mystery Trackers: Blackrow's Secret / Охотники за тайнами. За
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647130.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Fierce Tales: The Dog's Heart Collector's Edition / Жестокие истор�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646866.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Grim Tales 16: The Nomad (2019) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646804.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ FRAMED Collection (2018) [Multi] (1.0.16#452) Repack Other s
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646395.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Grim Facade 11: Broken Sacrament (2017) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645095.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ The Andersen Accounts: Chapter One (2018) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645093.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Endless Fables: Dark Moor (2018) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645088.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Moonsouls: Echoes of the Past (2017) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645079.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ The Myth Seekers 2: The Sunken City (2019) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644984.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Bridge to Another World 6: Gulliver Syndrome / Мост в другой мир 6
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644844.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Danse Macabre 6: Ominous Obsession / Танец смерти 6: Наважден
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644605.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Shrouded Tales 3: The Shadow Menace / Таинственные сказки 3: �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644598.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Whispered Secrets 9: Cursed Wealth / Нашептанные секреты 9: П
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644579.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ League of Light 5: Edge of Justice / Лига Света 5: Пик правос�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644472.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Fright Chasers 2: Soul Reaper / Ловцы Страхов 2: Капкан (2018)
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642775.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Midnight Calling 3: Valeria / Полуночный Зов 3: Валерия (201
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642709.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Haunted Hotel 13: The Thirteenth / Проклятый отель 13: Трина�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642571.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Cadenza 4: Fame Theft and Murder / Каденция 4: Слава, кража, �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640900.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ The Andersen Accounts 2: The Price of a Life / Досье Андерсена 2: 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640498.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Cadenza 3: Havana Nights / Каденция 3: Гаванские ночи (2016
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639217.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Enchanted Kingdom 5: Descent of the Elders / Зачарованное Корол
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638935.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Grim Facade: Sinister Obsession Collector's Edition (P) [En] 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637495.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Shattered Minds 2: Encore / Разбитый мозг: Рецидив (P) [Ru] 2
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637044.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Marooned 2: Secrets of the Akoni / Покинутая 2. Секреты Акон
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_637038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637038.jpg" />
 </div>
 
 

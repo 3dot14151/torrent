@@ -1,3 +1,32 @@
+###  Публикация: 1510324   (790110) от 18.11.2021
+
+Windows 11 PRO 21H2 x64 Rus by OneSmiLe [22000.318]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790110.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана из оригинального образа
+ru-ru_windows_11_business_editions_version_21h2_updated_october_2021_x64_dvd_aeafe964
+Удалены все модерн приложения кроме Edge, Магазина, Калькулятора и Paint
+Windows-Defender (По умолчанию выключен. Добавлен пункт Вкл./Выкл. в контекстном меню пуск)(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62B9EDAC9508A261767B466FF77B273CE993B2ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1510735   (790109) от 18.11.2021
 
 Windows 10 Enterprise LTSC x64 Rus by OneSmiLe [19044.1379]
@@ -6,7 +35,7 @@ Windows 10 Enterprise LTSC x64 Rus by OneSmiLe [19044.1379]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790109.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ BELOFF 2021.11.1 (Авторская раздача)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790100.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789954.jpg" />
 </div>
 
 
@@ -88,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_789744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_789744.jpg" />
 </div>
 
 
@@ -115,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789678.jpg" />
 </div>
 
 
@@ -141,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789677.jpg" />
 </div>
 
 
@@ -167,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789674.jpg" />
 </div>
 
 
@@ -195,7 +224,7 @@ Apple и Google не стали повышать цены в магазинах 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_789672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_789672.jpg" />
 </div>
 
 
@@ -221,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_789643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_789643.jpg" />
 </div>
 
 
@@ -247,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_789566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_789566.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ Microsoft выпустила экстренное обновление, чтоб
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_789296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_789296.jpg" />
 </div>
 
 
@@ -299,7 +328,7 @@ Gears of War (2007) [Ru/En] (1.3) Repack R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789276.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789273.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789212.jpg" />
 </div>
 
 
@@ -378,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789130.jpg" />
 </div>
 
 
@@ -404,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788878.jpg" />
 </div>
 
 
@@ -430,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788873.jpg" />
 </div>
 
 
@@ -456,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_788735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_788735.jpg" />
 </div>
 
 
@@ -482,7 +511,7 @@ Microsoft® Windows® 7 Ultimate Ru x64 SP1 7DB by OVGorskiy 11.2021 1DVD
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788688.jpg" />
 </div>
 
 
@@ -508,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_788522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_788522.jpg" />
 </div>
 
 
@@ -534,7 +563,7 @@ PCRADIO 5.0.2 Premium RePack (& Portable) by elchupacabra [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788447.jpg" />
 </div>
 
 
@@ -560,7 +589,7 @@ Call of Duty: Modern Warfare 3 (2011) [Ru] (1.9.461/dlc) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788428.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788391.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ Colin McRae Rally 2005 (2004) [Ru] (1.0) License
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788390.jpg" />
 </div>
 
 
@@ -638,7 +667,7 @@ XYZ School, Артем Гансиор | Movie Man (2021) WEB-DL [AD]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788244.jpg" />
 </div>
 
 
@@ -652,33 +681,6 @@ XYZ School, Артем Гансиор | Movie Man (2021) WEB-DL [AD]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB64B1D2B961EDF372F1D265F530866E490D36D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093424   (788242) от 22.11.2021
-
-F.E.A.R. 2: Project Origin (2009) [Ru/En] (1.05/dlc) Repack Other s [Дополненное издание]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788242.jpg" />
-</div>
-
-
-###  Подробнее
-
-F.E.A.R. 2: Project Origin — продолжает популярную серию шутеров от первого лица F.E.A.R. Вас снова ждет захватывающий, пропитанный ужасом сюжет, всепоглощающая атмосфера постоянного необъяснимого страха, реалистичная детализированная графика, новое суперсовременное оружие и множество безжалостных врагов.
-Вечно молодая наводящая ужас девочка Альма вырывается из разрушенной (   Читать дальше...   )Тип издания: RepackРазработчик: Monolith ProductionsЖанр: Action (Shooter, Horror), 1st Person, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBF7B755D24E5A7BC986D2D6EA857F6B39D277C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

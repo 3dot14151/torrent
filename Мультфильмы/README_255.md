@@ -1,3 +1,133 @@
+###  Публикация: 1181470   (322976) от 07.11.2017
+
+Эмоджи фильм / The Emoji Movie (2017) BDRip [H.264/720p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаете ли вы, что внутри каждого смартфона есть красочный городок Текстополис, в котором живут эмоджи? И что они ужасно радуются, когда владелец телефона именно их выбирает для своего сообщения? Каждый из эмоджи отвечает лишь за одну эмоцию, и только Джин может выражать несколько эмоций сразу. Он очень хочет стать таким же, как и его собратья, и для этого вместе (   Читать дальше...   )Производство: США, Columbia Pictures, LStar Capital, Sony Pictures AnimationЖанр: Мультфильм, Фантастика, Приключения, Комедия, СемейныйРежиссер: Энтони ЛеондисПерсонажи: ТиДжей Миллер, Джеймс Корден, Анна Фэрис, Майя Рудольф, Стивен Райт, Дженнифер Кулидж, Патрик Стюарт, Кристина Агилера, София ВергараПеревод: Профессиональный (полное дублирование) | iTunesСубтитры: АнглийскиеПродолжительность: 01:26:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D371A00808647142D47A40B036E44537E24F7A82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259157   (322725) от 02.11.2018
+
+Суперсемейка 2 / Incredibles 2 (2018) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322725.jpg" />
+</div>
+
+
+###  Подробнее
+
+После событий первой части суперсемейка пользуется повышенным вниманием со стороны журналистов. Неожиданно оказалось, что обаятельная Миссис Исключительная гораздо лучше смотрится на экране телевизора, чем её муж. Мистеру Исключительному все чаще приходится сидеть дома и приглядывать за детьми, у каждого из которых есть свои причины быть недовольным собственными (   Читать дальше...   )Производство: США / Pixar Animation Studios, Walt Disney PicturesЖанр: Компьютерная анимация, Приключения, КомедияРежиссер: Брэд БердПерсонажи: Крэйг Т. Нельсон, Холли Хантер, Сара Вауэлл, Хак Милнер, Кэтрин Кинер, Илай Фучиле, Боб Оденкёрк, Сэмюэл Л. Джексон, Майкл Бёрд, София БушПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, full, SDH), английскиеПродолжительность: 01:57:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37B5C70865FBDA3DB18DBE69A23EF81E7E7FB577
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259168   (322717) от 02.11.2018
+
+Суперсемейка 2 / Incredibles 2 (2018) BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322717.jpg" />
+</div>
+
+
+###  Подробнее
+
+После событий первой части суперсемейка пользуется повышенным вниманием со стороны журналистов. Неожиданно оказалось, что обаятельная Миссис Исключительная гораздо лучше смотрится на экране телевизора, чем её муж. Мистеру Исключительному все чаще приходится сидеть дома и приглядывать за детьми, у каждого из которых есть свои причины быть недовольным собственными (   Читать дальше...   )Производство: США / Pixar Animation Studios, Walt Disney PicturesЖанр: Компьютерная анимация, Приключения, КомедияРежиссер: Брэд БердПерсонажи: Крэйг Т. Нельсон, Холли Хантер, Сара Вауэлл, Хак Милнер, Кэтрин Кинер, Илай Фучиле, Боб Оденкёрк, Сэмюэл Л. Джексон, Майкл Бёрд, София БушПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:57:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0706C0FC08020FC30A9CDAF21E821FB30AEF7D7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074764   (322600) от 21.11.2016
+
+В поисках Дори / Finding Dory (2016) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322600.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дори — синяя доброжелательная рыбка-хирург, страдающая провалами в памяти. Она упорно стремится избавиться от своего недуга и найти свою семью.Производство: США / Pixar Animation Studios, Walt Disney PicturesЖанр: Мультфильм, Комедия, Приключения, СемейныйРежиссер: Эндрю Стэнтон, Энгус МакЛэйнПеревод: Дублированный (Лицензия BD CEE)Язык субтитров: Русский (Forced, Full), Украинский (Forced), Английский (Full, SDH)Продолжительность: 01:37:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90483CA8BBC2886DB99168C161550A909653FC49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 38203   (322547) от 09.10.2022
+
+Как львенок и черепаха пели песню. Сборник мультфильмов (1970-1985) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы (коллекции, сборники / *логии)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322547.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник из 7 мультфильмов, с весёлыми песнями и зажигательными танцами.Производство: СССР, СоюзмультфильмЖанр: детский, рисованная анимация, музыкальныйРежиссер: Инесса КовалевскаяАктеры: Олег Анофриев, Ростислав Плятт, Олег Анофриев, Валентина Толкунова и др.Субтитры: ОтсутствуютПродолжительность: 01:16:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AA0C3023FC69B7DE9A9D02CE57343E5C3F17E0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1331569   (322360) от 16.10.2019
 
 Король Лев / The Lion King (2019) BDRip [H.264/720p-LQ]
@@ -6,7 +136,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322360.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322269.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322261.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322129.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322070.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321814.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321807.jpg" />
 </div>
 
 
@@ -189,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321746.jpg" />
 </div>
 
 
@@ -215,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321496.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321371.jpg" />
 </div>
 
 
@@ -267,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321209.jpg" />
 </div>
 
 
@@ -294,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321184.jpg" />
 </div>
 
 
@@ -320,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321096.jpg" />
 </div>
 
 
@@ -346,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320844.jpg" />
 </div>
 
 
@@ -372,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320628.jpg" />
 </div>
 
 
@@ -398,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320627.jpg" />
 </div>
 
 
@@ -424,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320576.jpg" />
 </div>
 
 
@@ -450,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320288.jpg" />
 </div>
 
 
@@ -476,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_320027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320027.jpg" />
 </div>
 
 
@@ -502,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319541.jpg" />
 </div>
 
 
@@ -528,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319252.jpg" />
 </div>
 
 
@@ -539,139 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE1582FCE104C8B2A60A14605CF30E50FCA634DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377180   (319198) от 04.11.2020
-
-Легенды «Смертельной битвы»: Месть Скорпиона / Mortal Kombat Legends: Scorpions Revenge (2020) BDRemux [H.264/1080p] [MVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_319198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет мультфильма расскажет об очередном смертельном турнире Шан Цзуна, в котором участвуют бойцы с Земли и других миров. В центре истории окажется жаждущий мести за смерть семьи и клана Скорпион, который соглашается принять участие в межпространственном состязании.Производство: США / DC Entertainment, Midway Games, Warner Bros. AnimationЖанр: мультфильм, фэнтези, боевик, приключенияРежиссер: Этан СполдингПеревод: Многоголосый (MVO NewComers)
-Присутствует ненормативная лексикаСубтитры: Английские (Full, SDH)Продолжительность: 01:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63B79CDC1606F3F55212490E06A229338B8E5609
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182059   (318956) от 09.11.2017
-
-Тачки 3 / Cars 3 (2017) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Встречайте самого знаменитого гонщика всех времен, легенду гоночного трека Молнию Маккуина!
-Герой все еще продолжает показывать лучшие результаты на всех турнирах, однако победы даются ему не так легко, а конкуренция становится все жестче. Молнию Маккуина ждут захватывающие приключения, где он встретит новых друзей, а также поймет, что не только скорость и мощность (   Читать дальше...   )Производство: США, Walt Disney Pictures, Pixar Animation StudiosЖанр: мультфильм, комедия, приключения, семейный, спортРежиссер: Брайан ФиАктеры: Оуэн Уилсон, Пол Ньюман, Бонни Хант, Ларри Кейбл Гай, Чич Марин, Тони Шэлоуб, Гуидо Куарони, Дженифер Льюис, Пол Дули, Майкл УоллисПеревод: Дублированный (iTunes)Субтитры: русские, английскиеПродолжительность: 01:42:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20553D1C62557462675EA0FD21D2B508B3A6EC02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958961   (318708) от 23.11.2015
-
-Космическая Скратастрофа / Cosmic Scrat-tastrophe (2015) DCPRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318708.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этот раз Скарт - любитель орехов, превзошел сам себя. Пытаясь спрятать свою находку, он активирует космическую тарелку, замерзшую во льдах, и отправляется в космос…Производство: США / Blue Sky StudiosЖанр: Мультфильм, Короткометражка, КомедияРежиссер: Майк ТёрмайерАктеры: Крис УэджПеревод: Дублированный (Лицензия)Продолжительность: 00:05:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB81BB02128980F2340AF73C283DBFDD41CE7E12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959092   (318693) от 23.11.2015
-
-Космическая Скратастрофа / Cosmic Scrat-tastrophe (2015) DCPRip [H.264/1440p] [2K]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318693.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этот раз Скарт - любитель орехов, превзошел сам себя. Пытаясь спрятать свою находку, он активирует космическую тарелку, замерзшую во льдах, и отправляется в космос…Производство: США / Blue Sky StudiosЖанр: Мультфильм, Короткометражка, КомедияРежиссер: Майк ТёрмайерАктеры: Крис УэджПеревод: Дублированный (Лицензия)Продолжительность: 00:05:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D674BCFB34766A8D7EBF26D571F5E1A43A5BA378
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959226   (318692) от 23.11.2015
-
-Первое свидание Райли / Riley's First Date? (2015) BDRip [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318692.jpg" />
-</div>
-
-
-###  Подробнее
-
-Короткометражка от создателей мультфильма «Головоломка».
-В жизни каждого ребенка наступает момент, когда он вырастает, и его отношения со сверстниками переходят на новый уровень. Вот только для родителей это всегда становится неожиданностью, сколько бы лет ни исполнилось их чаду. Мистер и миссис Андерсон так же оказались не готовы к тому, что у их дочери появится (   Читать дальше...   )Производство: США | Pixar Animation StudiosЖанр: мультфильм, короткометражка, комедияРежиссер: Джош КулиПеревод: ДублированныйЯзык субтитров: РусскийПродолжительность: 00:04:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:552D9EB8852BDCC7D98B71414739AF111D65BB1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

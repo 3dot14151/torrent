@@ -1,3 +1,116 @@
+###  Публикация: 914246   (600284) от 01.07.2015
+
+VA - Special Places (Compiled by AstroPilot) (2012) [FLAC|Lossless|WEB-DL]<Psybient, Modern Classical, Downtempo, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. K.D. Expression - Alpae-3717 (4:44)
+02. Cygna - Camaras De Lamento (7:14)
+03. Chronos - Dandelions As Memory (8:56)
+04. Irukanji feat. JazzyFlute - Out From Little Box (AstroPilot Edit) (6:26)(   Читать дальше...   )Жанр: Psybient, Modern Classical, Downtempo, AmbientПродолжительность: 01:15:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B77C1E62C3CBF82C9581A28E6DEE073FB976A1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 914287   (600280) от 01.07.2015
+
+Robin Schulz - Headlights (The Remixes) (2015) [FLAC|Lossless|WEB-DL]<House, Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Headlights (feat. Ilsey)Жанр: House, Progressive HouseПродолжительность: 00:28:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6E9EBFE8EB8B6349C3A5976D954750DDC4BA96F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 914272   (600186) от 01.07.2015
+
+VA - Fabric 82 (Mixed by Art Department) (2015) [FLAC|Lossless|WEB-DL]<House,Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Basic Channel - Mutism
+02. Frank & Tony - Villa Seurat
+03. Mr G - Hip Flexer
+04. Doubt - Worse For The Wear(   Читать дальше...   )Жанр: House,Deep House, Tech HouseПродолжительность: 01:12:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E40917C5DF62F980477CB6A45B6F6D1A24338AE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232521   (600166) от 24.06.2018
+
+VA - The Best Of Critical Uprising 001 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Allen Watts - Limitless (Original Mix)
+02.Allen Watts - Polarize (Original Mix)
+03.Anna Lee - Endeavour (Craig Connelly Remix)
+04.Dub Tek - Fantasy (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:22:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27EF68210BBFC434A21073E214CAD559FCC0B323
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1232531   (600165) от 24.06.2018
 
 VA - Underground Trance Essentials Vol. 01 (2018) [MP3|320 Kbps] <Trance>
@@ -6,7 +119,7 @@ VA - Underground Trance Essentials Vol. 01 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600165.jpg" />
 </div>
 
 
@@ -35,7 +148,7 @@ Vallmo - Ruin Walls (2019) Northern Electronics [FLAC|Lossless|WEB-DL|tracks] <A
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600158.jpg" />
 </div>
 
 
@@ -64,7 +177,7 @@ Blank & Jones - Milchbar - Seaside Season 14 (2022) DJ Mix [FLAC|Lossless|WEB-DL
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600131.jpg" />
 </div>
 
 
@@ -93,7 +206,7 @@ VA - Best Charts: Summer Of Dance (2018) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600056.jpg" />
 </div>
 
 
@@ -122,7 +235,7 @@ VA - Ibiza Opening Party 2018 (Deluxe Version) [MP3|320 Kbps] <House, Tech House
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600053.jpg" />
 </div>
 
 
@@ -151,7 +264,7 @@ Stardance - Stars Challenge (2017) [MP3|320 Kbps] <Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600047.jpg" />
 </div>
 
 
@@ -180,7 +293,7 @@ VA - Music for Brainwaves (2019) Erased Tapes Records [FLAC|Lossless|WEB-DL|trac
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600035.jpg" />
 </div>
 
 
@@ -208,7 +321,7 @@ Aly & Fila - Future Sound Of Egypt 595 (2019-04-24) [MP3|320 Kbps] <Trance>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600028.jpg" />
 </div>
 
 
@@ -237,7 +350,7 @@ Monolith - Falling Dreams (2018) Sleepless Records / Hands Productions [FLAC|Los
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_600025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600025.jpg" />
 </div>
 
 
@@ -266,7 +379,7 @@ Dance With the Dead - Into the Abyss (2014) [MP3|320 кб/с]<Electronic, Dreamw
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599974.jpg" />
 </div>
 
 
@@ -295,7 +408,7 @@ MRUKS - Level Up (2019) [FLAC|Lossless|WEB-DL|tracks] <Funky, R&B, Retrowave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599910.jpg" />
 </div>
 
 
@@ -324,7 +437,7 @@ Troxellemott - Blood Moon (2019) Someone Records [FLAC 2.0|48/24|tracks|WEB-DL] 
 >>Experimental, Industrial (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599905.jpg" />
 </div>
 
 
@@ -351,7 +464,7 @@ Orbital ‎ - Orbital 2 (1993) [FLAC|Lossless|tracks + .cue] <Trance, Techno>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599897.jpg" />
 </div>
 
 
@@ -380,7 +493,7 @@ Richard Clayderman - Plays the Songs of Love (2003) [FLAC|Lossless|image + .cue]
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599523.jpg" />
 </div>
 
 
@@ -409,7 +522,7 @@ Dreaming Cooper - Exploring the Universe (2019) Altar Records [FLAC 2.0|44.1/24|
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599421.jpg" />
 </div>
 
 
@@ -438,7 +551,7 @@ Chicane - Twenty (2016) [FLAC|Lossless|WEB-DL|tracks] <Trance, House, Ambient>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599286.jpg" />
 </div>
 
 
@@ -467,7 +580,7 @@ VA - Anjunadeep In Ibiza (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Progr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598996.jpg" />
 </div>
 
 
@@ -496,7 +609,7 @@ VA - This Is My Church Vol 7 (The House Edition) (2017) [MP3|320 Kbps] <Funky, C
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598636.jpg" />
 </div>
 
 
@@ -525,7 +638,7 @@ Dj Dimension EDM - Party Music 2017 Summer Memories (2017) [MP3|320 Kbps] <Balea
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598629.jpg" />
 </div>
 
 
@@ -554,7 +667,7 @@ VA - South Beach Miami Vol 1 (2017) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598627.jpg" />
 </div>
 
 
@@ -583,7 +696,7 @@ VA - Family Affair Vol.6 (Part 1-2) (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598624.jpg" />
 </div>
 
 
@@ -612,7 +725,7 @@ VA - Dark Summer (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598494.jpg" />
 </div>
 
 
@@ -626,120 +739,6 @@ VA - Dark Summer (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0ED1A276DCF8CA50ADDE5ECC41DC6AB2F55AB645
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914597   (598471) от 02.07.2015
-
-VA - Top From the Top: Tom Strobe (2015) [FLAC|Lossless|WEB-DL]<Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Melosense - Rainy Day (Original Mix) (03:48)
-02. Stendahl - Serenity (Original Mix) (07:21)
-03. 1Touch - Be Strong (Sunlight Project Remix) (08:18)
-04. Nafis - Holding Hands (Stendahl Remix) (07:42)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:54:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62D385BDBBC14DB208E09B1CCD7E5701160805B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149774   (598444) от 12.07.2017
-
-Jean-Michel (aka Bersarin Quartett) - Collection 5 Releases (1999-2011) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Abstract, Downtempo, Breaks, Experimental, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598444.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Space Shuffle (05:42)
- 02. Trick 17 (04:21)
- 03. Don't Ask For Sunshine (05:47)
- 04. Sleep Well, Darling (05:58)(   Читать дальше...   )Тип издания: CD, Web •Жанр: IDM, Abstract, Downtempo, Breaks, Experimental, Ambient •Продолжительность: 00:24:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:225D4392DDEAA16A23B6F7F7E935925D9AC36BC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039242   (598049) от 31.07.2016
-
-Dog Won't Bite - Schplatterfunk (1993) [FLAC|Lossless|image + .cue] <Acid Jazz, Synth-pop, Funk, Disco>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598049.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Bell Bottoms 3:39
-2. Out Of Limits 4:57
-3. Sweet Lies 4:55
-4. Witness 3:49(   Читать дальше...   )Жанр: Acid Jazz, Synth-pop, Funk, DiscoПродолжительность: 00:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BDAAB553A017D50BDD81D7ADC79E1E7E4AA3947
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149919   (598013) от 12.07.2017
-
-Depeche Mode - Going Backwards (2017) Single [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Going Backwards (5:43)
-02. Going Backwards (highline sessions version) (5:27)Жанр: SynthpopПродолжительность: 00:11:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F08B54EAAB03881EB281AF2BEB12249C66E70593
 ```
 
 https://mybot314.ru/tekegram_catalog/

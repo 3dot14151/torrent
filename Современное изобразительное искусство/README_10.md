@@ -1,3 +1,29 @@
+###  Публикация: 594472   (133550) от 26.12.2012
+
+Работы художников - Bill Holm - индейцы северной америки
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работы художников - Bill Holm - индейцы северной америки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B25C063DAF832449AC55AA59260B8A6B5E80A39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 595825   (131944) от 29.12.2012
 
 Рисованная графика - Artworks by Jeffrey Scott Campbell
@@ -6,7 +32,7 @@
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131944.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130848.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130847.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78516.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23126.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_322.jpg" />
 </div>
 
 

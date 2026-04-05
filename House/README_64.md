@@ -1,3 +1,90 @@
+###  Публикация: 1066100   (245060) от 25.10.2016
+
+VA - Zuckerschlecken Vol.6: Deep Electronic Sounds (2016) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. C-ro - Walk Along - Pretty Pink Remix
+02. Fre3 Fly - I'm Going to Make It - Danny Cotrell Extended Remix
+03. Michi Mueller - Love Yeah
+04. RICD - So Good(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:32:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED3B88A92E90ADFF79B4747289E579A4D5FE90DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067440   (244810) от 29.10.2016
+
+VA - Electro Pop Of The 80s Reloaded (2016) (2016) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nick Austin - I.O.U. (Radio Version) 03:33
+02. Winman - Fade To Grey 03:37
+03. Scotty - Westend Girls (2Nd Mix) 03:18
+04. Topaz - The Great Commandment 03:28(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:51:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21F3888AF411646E070C28844107E40A42AE5CFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071709   (244354) от 12.11.2016
+
+VA - Get 2gether Deep House Vol.3 (2016) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Farfan - Special Feeling - Nick Beringer Remix
+02. Andrei Swipe - Symmetry
+03. BacksideDuo - Till the End of Time
+04. Stu Patrics - Town Talker - Jay Bliss Remix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:23:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3DDB0C7D606BAA4BFF6B44FAD248B59600042FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1625765   (244346) от 11.04.2023
 
 VA - House Nation Clubbing - Miami (2023) [MP3|320 Kbps] <House, Funky House, Soulful, Nu-Disco>
@@ -6,7 +93,7 @@ VA - House Nation Clubbing - Miami (2023) [MP3|320 Kbps] <House, Funky House, So
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244346.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ VA - Amsterdam Dance Night (2023) [MP3|320 Kbps] <Electronica, Melodic House & T
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244308.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ VA - Ibiza Winter (2016) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244229.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ VA - Nu Deep Gold Series:01 (2015) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243741.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ VA - Best Of Deep House 2023 [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_243737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_243737.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ VA - Armada Deep House Selection Vol.15 (The Finest Deep House Tunes) (2016) [MP
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243673.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ VA - Paul Sawyer: 30 Years A DJ (2023) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243475.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ VA - 20 Years Sprout Music (2023) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243454.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ VA - EDM Deejay Compilation 2023 [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_243031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243031.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ VA - Summer Mood 2023 [MP3|320 Kbps] <House, Deep House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_243012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243012.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ VA - Ibiza! - The Sound Of The Summer 2023 (2023) [MP3|320 Kbps] <Dance, Club, H
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242971.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ VA - Spring Break Escalation 2023 (2023) [MP3|320 Kbps] <Dance, Club, House, Ele
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242584.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ VA - Ibiza Opening Party 2023 (2023) [MP3|320 Kbps] <Dance, Club, House, Electro
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242481.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ VA - Twelve Inch Nineties 90s - Loaded (2017) 3 CD [OGG Vorbis|480 Kbps] <Electr
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242376.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ VA - Black Hole House Music 02-17 (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242371.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ VA - Spring Cardio Dance Hits 2021 [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242329.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ VA - Deep House Resort (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242271.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ P.O.S. - Deeper Tales (2023) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242086.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ VA - We Love Summer Vol. 1 (Ibiza Deep House Edition) (2023) [MP3|320 Kbps] <Hou
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_241627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_241627.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ VA - WMC Miami 2017: Deep & Chill Beats (2017) [MP3|320 Kbps] <Deep House, Chill
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241493.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ VA - Black Hole House Music 03-23 (2023) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241490.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ VA - There Is Nothing Like A Power Woman (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241466.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ VA - Extreme Sports Music Vol 5 (2020) [MP3|320 Kbps] <Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241321.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ VA - Extreme Sports Music Vol 5 (2020) [MP3|320 Kbps] <Electro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:042DF87277C90878CF8B3B08497C7F8D47D56B90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119806   (241272) от 29.03.2017
-
-VA - Summer Beach Party (2017) [MP3|320 Kbps] <House, Electro House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Josh Nor - Kalinda  5:02
-02.  Firecrash - Balthazar  6:17
-03.  James Black Pitch - Faithful  4:42
-04.  Forever 80 - Acid Cream  6:30(   Читать дальше...   )Жанр: House, Electro House, ProgressiveПродолжительность: 01:49:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C119D642CA841BBD3FFDC2CBEFBFECA531715B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636047   (241258) от 28.05.2023
-
-VA - Summer Vibes 2023 [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_241258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A-mase - Tremble [06:23]
-02. Abee Sash - Ain't nobody (Gus One Remix) [02:38]
-03. Alessio Cappelli - I Have Been Before [06:26]
-04. Alex Hill - You Will See (Chunkee Remix) [06:21](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:09:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B3001F9E7F2EB04DE060F1CE464680762BF9C2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636075   (241170) от 28.05.2023
-
-VA - Takeover IBIZA 2023 (The Deep-House Files) (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_241170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living Room - Noir & Blanc (Future Pop Edit) [03:24]
-02. Jaques Le Noir - Purified (Radio Edit) [03:06]
-03. Squib - Audioemotional [05:38]
-04. John Fee - Bluestone [02:58](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:32:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0F2FB6487AE0E085F7A61068E32C72E157F4464
 ```
 
 https://mybot314.ru/tekegram_catalog/

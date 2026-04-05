@@ -1,3 +1,55 @@
+###  Публикация: 1139461   (659906) от 02.06.2017
+
+Е.В. Савинкина | Химия: новый полный справочник для подготовки к ЕГЭ (2017) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Справочник содержит весь теоретический материал по курсу химии, необходимый для сдачи ЕГЭ. Он включает все элементы содержания, проверяемые на ЕГЭ по химии, и помогает обобщить и систематизировать знания и умения за курс средней (полной) школы.Теоретический материал изложен в краткой, доступной форме. Каждый раздел сопровождается примерами тестовых заданий, позволяющими (   Читать дальше...   )Жанр: ХимияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8A1A6D6AF4900A8EEC0FBCF119C2600C6EB9703
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 902738   (659600) от 29.05.2015
+
+Михаил Литвак | 5 методов воспитания детей (2015) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659600.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Хочу объяснить почему, я, Литвак Михаил Ефимович, врач психиатр высшей категории, психотерапевт Европейского реестра, член-корреспондент РАЕН, кандидат медицинских наук, автор более 30 книг, посвященных проблеме общения и различным аспектам психиатрии и психологии, решил вдруг заняться проблемами воспитания детей», – так начинает свой очередной психологический бестселлер (   Читать дальше...   )Жанр: Воспитание, педагогика, психологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:371C031347BF62F70B0CF97AD0346EBD4FFD4B2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1539301   (659249) от 24.03.2022
 
 Софи Кинселла | Моя мамочка – фея. Приключение с русалками. Книга 4 (2020) [FB2, EPUB, MOBI]
@@ -6,7 +58,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659249.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659247.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659243.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659237.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659226.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659212.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659058.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658987.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658979.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658896.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658890.jpg" />
 </div>
 
 
@@ -300,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658770.jpg" />
 </div>
 
 
@@ -328,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658555.jpg" />
 </div>
 
 
@@ -354,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658205.jpg" />
 </div>
 
 
@@ -381,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658175.jpg" />
 </div>
 
 
@@ -407,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658073.jpg" />
 </div>
 
 
@@ -434,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658067.jpg" />
 </div>
 
 
@@ -461,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные материалы для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658016.jpg" />
 </div>
 
 
@@ -488,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657860.jpg" />
 </div>
 
 
@@ -514,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657857.jpg" />
 </div>
 
 
@@ -541,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657718.jpg" />
 </div>
 
 
@@ -567,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657703.jpg" />
 </div>
 
 
@@ -596,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657674.jpg" />
 </div>
 
 
@@ -625,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657667.jpg" />
 </div>
 
 
@@ -638,59 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E17F7D7757F7B149386A8BF76F63ECB57BDA3DB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903610   (657569) от 31.05.2015
-
-Хлое Райдер | Принцессы пони. Приключения в волшебной стране [5 книг] (2015) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657569.jpg" />
-</div>
-
-
-###  Подробнее
-
-Секрет для пони.
-Привет! Меня зовут Пиппа, и я люблю лошадей. Я просила маму купить мне пони, но оказалось, что это невозможно. Зато теперь я познакомилась с самыми настоящими волшебными пони и меня ждут удивительные приключения! На Дне сбора урожая мне предстоит не только помочь королевской семье пони, но и распутать одно чрезвычайно важное дело, ведь на празднике (   Читать дальше...   )Жанр: Фантастика, приключенияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D585F9A0BB2084DF885CDF25EF3BBA57633C53B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539608   (657278) от 26.03.2022
-
-Лисса Леменкюлер | Снежик, или Чудо в переулке Синичек (2022) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657278.jpg" />
-</div>
-
-
-###  Подробнее
-
-Существуют ли волшебные существа? Девятилетний Оле, например, читал о снежном человеке. Но он и не подозревал, что может однажды столкнуться с таким чудом… Пока к нему в комнату порывом ветра не занесло Снежика! Ох, как же пушистик любит поесть: со стола тут же исчез папин кофе, а из холодильника – весь сыр. И всё же Снежик очень смешной и классный. Оле даже взял (   Читать дальше...   )Жанр: Детская литература, Фантастика, ПриключенияПеревод: Ксения ЧесноковаФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28859E5929714E5A04485271B57AE88CDD6E07DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

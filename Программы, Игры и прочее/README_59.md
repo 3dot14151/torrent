@@ -1,3 +1,111 @@
+###  Публикация: 901389   (662907) от 26.05.2015
+
+Chicken Invaders / Куриные захватчики 5 версий [En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Chicken Invaders ставит вас на передней край битвы против вторжения межгалактических кур, стремящихся к мести против человеческой расы за наше угнетения цыплят Земли. Вас ждет классика аркадного жанра для андроид. На сей раз вам надо отбиться от полчищ куриц, заполонивших космическое пространство. Используйте все, что есть в арсенале - пулеметы, ракеты, лазеры и (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 25 мая 2015 годаРазработчик: Betacom (UK) S.A.Поддерживаемая ОС: Android 2.3.3+Жанр: ШутерЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A69884E03EB1D1F4E5952B73DF27CCA2D198E44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064388   (662635) от 13.05.2018
+
+Монеты стран бывшего СССР v2.5 [Ru] - Более 1000 юбилейных монет и монет регулярного чекана стран бывшего СССР
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662635.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение может использоваться как инструмент для работы с коллекцией, либо как справочник. Содержит перечень юбилейных монет и монет регулярного чекана стран бывшего СССР (Азербайджан, Армения, Казахстан, Киргизия, Молдавия, Таджикистан, Туркменистан, Узбекистан, Украина, Латвия, Литва, Эстония, Грузия, Приднестровье). Более 1000 монет!Тип издания: Маркет + кейгенРелиз состоялся: 11.05.2018Разработчик: TrionПоддерживаемая ОС: Android 2.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67F388A62D29C1624186FF6583E63AA8AA258905
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 884375   (661753) от 27.05.2015
+
+DuckTales: Remastered / Утиные истории 1.0.2 + Mod [Money] [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из самых любимых 8-битных игр возвращается! Встречайте ""Утиные Истории"" для мобильных платформ - официальное приложение Disney полностью на русском языке!
+
+Вместе со Скруджем Макдаком вам предстоит совершить кругосветное путешествие в поисках легендарных сокровищ! С помощью Секретной карты Скруджа вы сможете перенестись в Гималаи, к реке (   Читать дальше...   )Тип издания: Лицензия+ModРелиз состоялся: 20 мая 2015 годаРазработчик: DisneyПоддерживаемая ОС: Android 4.2+Жанр: ActionЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91B608C811AAC7687C5418965CC914D568B4DE50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138282   (660903) от 01.06.2017
+
+HERE WeGo v2.0.11424.114741 [Multi]
+
+>>Программы, Игры и прочее
+>>Навигация для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660903.jpg" />
+</div>
+
+
+###  Подробнее
+
+С HERE WeGo вы всегда найдете нужный путь в городе. Велосипед или автомобиль, прокатное авто, такси или общественный транспорт – HERE WeGo предложит вам оптимальные маршруты до места назначения. Сравните возможные варианты и выберите наилучший.
+
+В поездке вы сможете следовать подробным голосовым указаниям, поэтому не пропустите свою остановку и не повернете случайно (   Читать дальше...   )Тип издания: FreeРазработчик: HERE Apps LLC (ex-NavTeq from Nokia)Поддерживаемая ОС: Android 4.1 и вышеЯзык интерфейса: Руский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D490DE2C174940DF9D3730ADC32945805E3F9825
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 902716   (659647) от 29.05.2015
 
 Экзамен ПДД Казахстан 2015 1.3 [Ru]
@@ -6,7 +114,7 @@
 >>Вспомогательное ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659647.jpg" />
 </div>
 
 
@@ -34,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вспомогательное ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659633.jpg" />
 </div>
 
 
@@ -61,7 +169,7 @@ RSS Reader v1.7.0 [Ru] - чтение RSS-лент
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659622.jpg" />
 </div>
 
 
@@ -87,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вспомогательное ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658447.jpg" />
 </div>
 
 
@@ -114,7 +222,7 @@ Cказки для малышей 3.0.3 [Ru]
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657664.jpg" />
 </div>
 
 
@@ -143,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657660.jpg" />
 </div>
 
 
@@ -170,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657565.jpg" />
 </div>
 
 
@@ -197,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657485.jpg" />
 </div>
 
 
@@ -224,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657352.jpg" />
 </div>
 
 
@@ -250,7 +358,7 @@ Where's My Perry / Где же Перри? 1.7.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656301.jpg" />
 </div>
 
 
@@ -278,7 +386,7 @@ Root Browser (File Manager) 2.2.3 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655109.jpg" />
 </div>
 
 
@@ -304,7 +412,7 @@ CAD Touch Pro v5.09 [Ru/En] - Редактор и просмотрщик фай�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655075.jpg" />
 </div>
 
 
@@ -330,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654084.jpg" />
 </div>
 
 
@@ -356,7 +464,7 @@ Half-Life HD+ADDONS+MODS [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651870.jpg" />
 </div>
 
 
@@ -382,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650705.jpg" />
 </div>
 
 
@@ -410,7 +518,7 @@ Samsung Все Сматфоны и планшеты [Ru]
 >>Прошивки для Android устройств
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650653.jpg" />
 </div>
 
 
@@ -436,7 +544,7 @@ Akimbo Audiobook Player v1.6.1 (30.06.2014) <Ru>
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_648919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_648919.jpg" />
 </div>
 
 
@@ -469,7 +577,7 @@ Life Is Strange Anthology [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648270.jpg" />
 </div>
 
 
@@ -496,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647308.jpg" />
 </div>
 
 
@@ -523,7 +631,7 @@ MyPhoneExplorer 1.0.35 - Explorer для Android  [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_647005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647005.jpg" />
 </div>
 
 
@@ -549,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641367.jpg" />
 </div>
 
 
@@ -576,7 +684,7 @@ Angry Birds Seasons 5.2.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641108.jpg" />
 </div>
 
 
@@ -589,110 +697,6 @@ Angry Birds устраивают торжества по поводу разли
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A673DE7FAA39CAAA2C5347B793DF891FF69FF128
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 881649   (639048) от 11.06.2015
-
-CM (Cleanmaster) Security 2.6.2 - Антивирус [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из лучших антивирусных движков: Антивирус создан на базе двойного локального и облачного движка Kingsoft, который имеет более 200 миллионов пользователей и 16-летнюю историю в обеспечении защиты ПК и мобильных устройств, неоднократно занимающего первые места по результатам тестов AV-Test (Ноябрь 2013) и AV-Comparatives (Август 2013). Он обнаруживает вирусы, (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 29 мая2015 г.Разработчик: KS Mobile Inc.Поддерживаемая ОС: Android 2.3+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B76A5326E822ABF1215AF2056623D480C5E1F562
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907366   (639045) от 11.06.2015
-
-Muscle Premium v4.1.13 Unlocked [En] - анатомия мышц человека с точными 3D-моделями
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639045.jpg" />
-</div>
-
-
-###  Подробнее
-
-Muscle Premium представляет собой самое продуманное и полное приложение по анатомии мышц человека с точными 3D-моделями. В него входят очень подробные модели мышц и скелета, созданные группой профессиональных медицинских иллюстраторов с многолетним опытом работы в области медико-биологической визуализации. Эти специалисты работают вместе с профессорами и квалифицированными (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 15.10.2014Разработчик: Visible BodyПоддерживаемая ОС: Android 4.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB85818579B65157E25E05DFAFB664E8A9438F22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143377   (634972) от 18.06.2017
-
-Maths Formulas 9.3 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Maths Formulas - программа, в которой Вы найдёте все основные формулы по математике на множестве языков. Приложение очень удобно для учащихся школ или вузов, а также инженеров. В справочнике приведены все необходимые формулы как школьного курса алгебры и геометрии, так и высшей математики. Структура программы позволит быстро найти нужную информацию и будет незаменимой (   Читать дальше...   )Тип издания: Ad-FreeРелиз состоялся: 17 июня 2017Разработчик: NSC CoПоддерживаемая ОС: Android 3.0+Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31ED39BE3F1B425E6A67DF4AAD7EABC770EC8ACA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032711   (633805) от 13.07.2016
-
-Garmin: CarteBlanche Ukraine NT 2016.06 (КартБланш Украина) [Ru/Multi]
-
->>Программы, Игры и прочее
->>Карты для навигационного ПО
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы рады сообщить о выходе новой версии карты Украины КартБланш Украина НТ 2016.06 для навигационных устройств Garmin® и Kenwood®!Тип издания: карты заблокированы (таблетки есть в комплекте)Релиз состоялся: июль 2016Разработчик: ООО «Карт Бланш Украина»Поддерживаемая ОС: GarminЯзык интерфейса: Русский, Английский, УкраинскийФормат: .IMG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90B7607FD32C69E683EF301FB2B84EA82AB3B2E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

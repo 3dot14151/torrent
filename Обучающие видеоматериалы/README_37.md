@@ -1,3 +1,32 @@
+###  Публикация: 1455064   (1025901) от 17.03.2021
+
+Олег Дымшаков | Запуск на миллион (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один запуск может изменить всё...
+И это не просто слова. Вот уже больше 2 лет я занимаюсь запусками онлайн-проектов.
+Сказать, что моя жизнь изменилась — не сказать ничего.
+Я получил деньги, признание, самореализацию и самое главное — невероятных людей вокруг меня. И всё это благодаря запускам.(   Читать дальше...   )Производство: Запуск на миллионЖанр: бизнесПродолжительность: 08:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BE19CBA447554170B10415B4FECD11EFEA6CF5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1454867   (1025897) от 17.03.2021
 
 Udemy, BackSpace Academy | Amazon Web Services (AWS) Certified - 4 Certifications!   (2021) PCRec [En / En Sub]
@@ -6,7 +35,7 @@ Udemy, BackSpace Academy | Amazon Web Services (AWS) Certified - 4 Certification
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025897.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ SKANKA88 | Обучение арбитражу Гемблинг, нутра, т�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025875.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ AreaWeb, Михаил Протасевич | PHP — из блондинки в 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025873.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ AreaWeb, Михаил Протасевич | Laravel 8 — лучший PHP фр
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025867.jpg" />
 </div>
 
 
@@ -116,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025710.jpg" />
 </div>
 
 
@@ -142,7 +171,7 @@ ProfIT | Степанцев Альберт | Вуду регулярных вы�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025699.jpg" />
 </div>
 
 
@@ -169,7 +198,7 @@ Udemy, Fadi Nouh и др. | NodeJs: Build The Complete E-Commerce Web API [2021]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025604.jpg" />
 </div>
 
 
@@ -198,7 +227,7 @@ Udemy, Dave Rongey | Basic Home Electrical Wiring by Example and On the Job (202
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025598.jpg" />
 </div>
 
 
@@ -224,7 +253,7 @@ Udemy, Frank Ako | PHP 5 and 7 & SQL Queries with MySQL database hands on  (2021
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025585.jpg" />
 </div>
 
 
@@ -250,7 +279,7 @@ UralSOFT | Видеокурс Создание сборки Windows 8 UralSOFT (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025568.jpg" />
 </div>
 
 
@@ -279,7 +308,7 @@ Udemy, Igor Ovchinnikov | Project Management With MS Project - Scheduling Master
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025554.jpg" />
 </div>
 
 
@@ -307,7 +336,7 @@ UralSOFT | Видеокурс Создание сборки Windows 7 UralSOFT (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025550.jpg" />
 </div>
 
 
@@ -336,7 +365,7 @@ Udemy, Andrei Dumitrescu | Linux Administration: Build 5 Hands-On Linux Projects
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025545.jpg" />
 </div>
 
 
@@ -364,7 +393,7 @@ Udemy, TCM Security, Heath Adams | Practical Ethical Hacking - The Complete Cour
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025541.jpg" />
 </div>
 
 
@@ -391,7 +420,7 @@ Udemy, Andrei Dumitrescu | Ethical Hacking and Network Security from Scratch 202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025536.jpg" />
 </div>
 
 
@@ -417,7 +446,7 @@ SkillBox, Дмитрий Куповых и др. | Профессия Режис
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025506.jpg" />
 </div>
 
 
@@ -443,7 +472,7 @@ Udemy, Edwin Diaz | PHP MVC Framework CodeIgniter Tutorial for Beginners Project
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025388.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ Udemy, Anton Golosnichenko | Vanilla JavaScript [2021] - создаем клон
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025387.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Udemy, Andrei Neagoie и др. | JavaScript Web Projects: 20 Projects to Build Y
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025383.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ Udemy, Anton Golosnichenko | Vanilla JavaScript с нуля на практик�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025356.jpg" />
 </div>
 
 
@@ -553,7 +582,7 @@ Infostart, Николай Бондаренко | 1С:Предприятие дл
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025341.jpg" />
 </div>
 
 
@@ -580,7 +609,7 @@ TalkPython, Michael Kennedy | Building Data-Driven Web Apps with Pyramid and SQL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025260.jpg" />
 </div>
 
 
@@ -606,7 +635,7 @@ Udemy, Abhishek CSEPracticals и др. | Part A - Networking Projects - Implemen
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025256.jpg" />
 </div>
 
 
@@ -633,7 +662,7 @@ TalkPython, Michael Kennedy | Building Data-Driven Web Apps with Flask and SQLAl
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025253.jpg" />
 </div>
 
 
@@ -659,7 +688,7 @@ Udemy, Abhishek CSEPracticals и др. | Part B - Networking Projects - Implemen
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025242.jpg" />
 </div>
 
 
@@ -672,32 +701,6 @@ Udemy, Abhishek CSEPracticals и др. | Part B - Networking Projects - Implemen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EE2201CEB13DB04DEAB2BFC71B2435B2DAECD6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455994   (1025229) от 21.03.2021
-
-TalkPython, Michael Kennedy | Async Techniques and Examples in Python Course (2021) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поддержка асинхронного и параллельного программирования в Python сильно недооценена. В этом курсе вы изучите весь спектр параллельных API Python. Мы начнем с рассмотрения новых и эффективных ключевых слов async и await вместе с базовым модулем: asyncio. Затем мы перейдем к потокам Python для распараллеливания старых операций и многопроцессорности для операций, связанных (   Читать дальше...   )Производство: TalkPythonЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 05:01:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:639A2E3C7AEB6990D23E6422D8E32987D2D60B12
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1579297   (338997) от 26.09.2022
+
+Группа Че - 2 Albums (2019-2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Гимн космонавтам [00:04:30]
+02. Это Москва [00:04:04]
+03. Ночь [00:04:04]
+04. Серое небо [00:04:04](   Читать дальше...   )Жанр: RockПродолжительность: 2 CD, 00:42:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EDFDD2BD6C1A440774CDE458FF164EBF3EED41D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1579309   (338995) от 26.09.2022
 
 Def Leppard - Pyromania (1983) Reissue, Remastered, 1989, Mobile Fidelity Sound Lab [OGG Vorbis|484 Kbps] <Rock, Hard Rock>
@@ -6,7 +35,7 @@ Def Leppard - Pyromania (1983) Reissue, Remastered, 1989, Mobile Fidelity Sound 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338995.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Friendship - Alchemist of Your Destiny (2022) [FLAC 2.0|48/24|tracks|WEB-DL] <Ha
 >>Hard Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338993.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Lacuna Coil - Black Anima (Deluxe Edition) (2019) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338984.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Fleesh - Home Again (A Tribute to Pink Floyd) (2022) [FLAC|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338886.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Thousand Thoughts - Better than Never (2022) [FLAC|Lossless|WEB-DL|tracks] <Alte
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338879.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - SOSтрадание. Благотворительный музыкальн�
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338747.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338743.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338735.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Abney Park - AEther Shanties (2009) [FLAC|Lossless|tracks + .cue] <Industrial, F
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338688.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Seven Thorns - Symphony Of Shadows (2018) Japanese Edition [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338686.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Freddie Mercury - Never Boring (2019) (Special Edition) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338685.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Abney Park - Nonfiction (2016) [FLAC|Lossless|tracks + .cue] <Folk Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338679.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Arkan - Kelem (2016) [MP3|320 Kbps] <Oriental Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338602.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338425.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Nicolas Cage Fighter - The Bones That Grew from Pain (2022) [FLAC|Lossless|WEB-D
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338418.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Freddie Mercury - Never Boring (2019) Deluxe [FLAC|24/48|Lossless|WEB-DL|tracks]
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338357.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ The Rolling Stones - Havana Moon (2016) Live, Box Set, 2CD [FLAC|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338282.jpg" />
 </div>
 
 
@@ -500,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338204.jpg" />
 </div>
 
 
@@ -529,7 +558,7 @@ Dark Sarah - The Puzzle (2016) [MP3|320 Kbps] <Symphonic Metal, Neo-Classical Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338203.jpg" />
 </div>
 
 
@@ -558,7 +587,7 @@ Molotov Solution - Insurrection (2011) [FLAC|Lossless]<Deathcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_338047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_338047.jpg" />
 </div>
 
 
@@ -593,7 +622,7 @@ Lone Star Hippie - Mind Ride (2017) [MP3|320 Kbps] <Psychedelic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338011.jpg" />
 </div>
 
 
@@ -622,7 +651,7 @@ Joe Henry - Thrum (2017) [FLAC|Lossless|tracks + .cue] <Chamber Pop, Singer-Song
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337997.jpg" />
 </div>
 
 
@@ -651,7 +680,7 @@ Rainbow - Long Live Rock 'n' Roll [Deluxe Remastered Edition] (2012) [MP3|320 к
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337824.jpg" />
 </div>
 
 
@@ -686,7 +715,7 @@ Godsnake - Poison Thorn (2020) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337814.jpg" />
 </div>
 
 
@@ -715,7 +744,7 @@ Armored Saint - Punching The Sky (2020) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337801.jpg" />
 </div>
 
 
@@ -729,35 +758,6 @@ Armored Saint - Punching The Sky (2020) [MP3|320 Kbps] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D1B9402D0EA6C8923A2FC6BCE227C2414D59976
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180728   (337775) от 05.11.2017
-
-Fozzy - Judas (2017) [FLAC|Lossless|image + .cue] <Hard & Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Judas (4:11)
-02.Drinkin With Jesus (3:56)
-03.Painless (4:00)
-04.Weight Of My World (3:18)(   Читать дальше...   )Жанр: Hard & HeavyПродолжительность: 00:42:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC8399228299B4FD7FAE2E8757857A2915CE336A
 ```
 
 https://mybot314.ru/tekegram_catalog/

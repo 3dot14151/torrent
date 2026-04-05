@@ -6,7 +6,7 @@
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792674.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792668.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ History Channel: Вселенная / The Universe (2007-2012) BDRip [H.264/720p
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792654.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792602.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NG: Спасти Нотр-Дам / Saving Notre-Dame / Sauver Notre-Dame (2020) 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792431.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Discovery. Научные приколы / SciJinks (2018) WEB-DL [H.264/1080p] 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792357.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Discovery. Как построить... что угодно / How to Build... Ev
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792352.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ BBC: Планеты / The Planets (2019) HDTVRip [H.264/720p-LQ] (сезон 1, 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792317.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792177.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Discovery: Самые крепкие инструменты / World's Toughest T
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792122.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ NGW: Дикие охотники. Змеи / Wild Hunters. Snakes (2019) WEBRip 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791776.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ DV: Улыбка удачи / The Joy Of Chance (2016) IPTVRip [H.264]
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791773.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Animal Planet: Спасение животных: ураган Харви / Surv
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791685.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791606.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ BBC. Земля: Один потрясающий день / Earth: One Amazing D
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791397.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791249.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ NGW: Дикие охотники. Волки и шакалы / Wild Hunters. Wol
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791201.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ NGW: Дикие охотники. Рептилии / Wild Hunters. Reptiles (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791194.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ NGW: Дикие охотники. Кошки / Wild Hunters. Cats (2019) WEBRip 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791193.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ NGW: Дикие охотники. Медведи / Wild Hunters. Bears (2019) WE
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791190.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ DV: Изящество логики / The Joy of Logic (2013) IPTVRip [H.264]
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791168.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ NG: Космос: Возможные миры / Cosmos: Possible Worlds (2020) W
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791144.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790368.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ BBC. Время / Time (2006) DVDRip [H.264] (серии 1-4 из 4)
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790169.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ DV: "Вояджер" - полет за пределы Солнечной сис�
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790003.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ BBC: Борьба за выживание / The Trials of Life (1990) 4*Blu-ray 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789790.jpg" />
 </div>
 
 

@@ -1,3 +1,61 @@
+###  Публикация: 1421963   (315438) от 06.11.2020
+
+VA - Deep House Mafia (2020) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Veive - Black Silence
+02. Unwritten Smooth - Except Pyramid
+03. Double Deep - Play It Loud
+04. Anatoliy Kurakin - Moon(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 07:17:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CD878CB81D32EE404B332276A282EA87D2CB142
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421969   (315428) от 06.11.2020
+
+VA - Sunset Vibe: Absolute Chillout (2020) [MP3|320 Kbps] <Chillout, Lounge, Ambient>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315428.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rezwan Khan - Slow Jam
+002. Piazza Grande - Mondana
+003. Lvgsh - Tunnel Vision
+004. Brussels Pony Club - Warrior(   Читать дальше...   )Жанр: Chillout, Lounge, AmbientПродолжительность: 09:07:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3939B2ED97CE611261A772B62789A8F43AB7E636
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182654   (315108) от 11.11.2017
 
 VA - 100 European EDM (2017) [MP3|320 Kbps] <Electro, Dance, House, Trance>
@@ -6,7 +64,7 @@ VA - 100 European EDM (2017) [MP3|320 Kbps] <Electro, Dance, House, Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315108.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Spaceship (2017) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315105.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Techno Acid: Tech House Electro Party (2017) [MP3|320 Kbps] <Tech House, Cl
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315102.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Slow Motion Ballade (2017) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315007.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Record Super Chart #511 (2017) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314884.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Trance Desire Volume 57 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314847.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Voices Trance Drifter Dreams (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314845.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Future Trance 78 (2016) [MP3|320 Kbps] <Future House, Trance, Bigroom, Melo
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314365.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Record Super Chart 609 (2019) [MP3|320 Kbps] <Pop, House, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314193.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ PRODUCTION DEEJAYS - WORKIN BOOTLEGS VOL 1 (2012) [MP3|320 кб/с]<house / club
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314178.jpg" />
 </div>
 
 
@@ -302,7 +360,7 @@ VA - Радио Рекорд - Record Club за 23.11.2016 [MP3|320 Kbps] <Elect
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314042.jpg" />
 </div>
 
 
@@ -331,7 +389,7 @@ VA - Soulful House & Chillout from 2000 to 2017 [Re-compiled by Firstlast] (2018
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314025.jpg" />
 </div>
 
 
@@ -360,7 +418,7 @@ Afrojack - DJ Mag Top 100 (2012) [MP3|320 кб/с]<house / electro house / progr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313946.jpg" />
 </div>
 
 
@@ -394,7 +452,7 @@ The End Of 2012 - mix by dj Ivan Frost (2012) [MP3|320 кб/с]<house / club hou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313721.jpg" />
 </div>
 
 
@@ -420,7 +478,7 @@ VA - DeepEmotions - Car Dubstep Vol.10 (2012) [MP3|320 кб/с]<Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313709.jpg" />
 </div>
 
 
@@ -455,7 +513,7 @@ Mayah - Feel for Real (2016) Remix [MP3|256 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313468.jpg" />
 </div>
 
 
@@ -481,7 +539,7 @@ VA - Самые Горячие Хиты Дискотек (2018) [MP3|320 Kbps] <
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313448.jpg" />
 </div>
 
 
@@ -510,7 +568,7 @@ Swedish House Mafia - DJ Mag Top 100 (2012) [MP3|320 кб/с]<House / progressiv
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313082.jpg" />
 </div>
 
 
@@ -544,7 +602,7 @@ VA - Beatport Trance Pack (25.11.) (2016) [MP3|320 Kbps] <Trance, Melodic, Uplif
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312316.jpg" />
 </div>
 
 
@@ -573,7 +631,7 @@ VA - Радио Рекорд - Record Club за 24.11.2016 [MP3|320 Kbps] <Elect
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312044.jpg" />
 </div>
 
 
@@ -602,7 +660,7 @@ The Prodigy - The Fat Of The Land (15th Anniversary Edition) (2012) [MP3|320 к�
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311952.jpg" />
 </div>
 
 
@@ -637,7 +695,7 @@ VA - Радио Рекорд - Record Club за 25.11.2016 [MP3|320 Kbps] <Elect
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311376.jpg" />
 </div>
 
 
@@ -666,7 +724,7 @@ VA - NoCopyrightSounds (NCS) Label Music Vol. 01-09 (2013-2016) (Обновля�
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310823.jpg" />
 </div>
 
 
@@ -695,7 +753,7 @@ VA - Битва DJ: Chief_MC vs. Бинокль (2004) [MP3|320 кб/с]<Progres
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310751.jpg" />
 </div>
 
 
@@ -715,61 +773,6 @@ VA - Битва DJ: Chief_MC vs. Бинокль (2004) [MP3|320 кб/с]<Progres
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE84E6C93BDA36F388DDE8D68E890DC3DEC7B5C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422365   (310718) от 08.11.2020
-
-VA - Record Super Chart 661 (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moses & EMR3YGUL & Alexiane - A Million On My Soul (Remix) (3:26)
-02. Slava Marlow - Снова я напиваюсь (1:56)
-03. Bastard! - F..k That (3:38)
-04. Jason Derulo - Take You Dancing (3:10)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:600CD14D73EB16FE3AA31332C5652B57F9A54A2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 584132   (310653) от 03.12.2012
-
-VA - Битва DJ: Dинамит vs. Woofer (2004) [MP3|320 кб/с]<House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310653.jpg" />
-</div>
-
-
-###  Подробнее
-
-N/AЖанр: HouseПродолжительность: 01:09:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6089EBD9F84012B3FFBFCB764C2E34D47AAE1E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

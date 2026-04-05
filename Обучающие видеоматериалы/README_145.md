@@ -1,3 +1,32 @@
+###  Публикация: 1406881   (470025) от 05.09.2020
+
+Константин Ефимов | Секреты 1С: Эксперта [Пакет полный] (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470025.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основные вопросы, которые рассматриваются в курсе:
+- знакомство с 1С.
+- механизм управляемого приложения.
+- базовая теория СУБД.(   Читать дальше...   )Жанр: 1СПродолжительность: 30:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4D7AF5D63E542AFE904885C8B7FC9268854DF66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1406834   (470021) от 05.09.2020
 
 [ITVDN] Артём Быковец | QA Start (2016) PCRec
@@ -6,7 +35,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470021.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ javaops.ru | Enterprise Java-разработчик (TopJava) (2019) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470020.jpg" />
 </div>
 
 
@@ -58,7 +87,7 @@ CHESS.COM | Видеолекции по шахматам сайта chess.com / 
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470010.jpg" />
 </div>
 
 
@@ -87,7 +116,7 @@ Profileschool | Пейзажная симфония (2013) [PCRec]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468458.jpg" />
 </div>
 
 
@@ -113,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468312.jpg" />
 </div>
 
 
@@ -140,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468154.jpg" />
 </div>
 
 
@@ -169,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468152.jpg" />
 </div>
 
 
@@ -198,7 +227,7 @@ Softwaretesting | Погружение в тестирование. Jedi point (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468150.jpg" />
 </div>
 
 
@@ -226,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467846.jpg" />
 </div>
 
 
@@ -252,7 +281,7 @@ loftschool | React.js. Разработка веб-приложений (2018) P
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466998.jpg" />
 </div>
 
 
@@ -278,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466206.jpg" />
 </div>
 
 
@@ -304,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466141.jpg" />
 </div>
 
 
@@ -330,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465922.jpg" />
 </div>
 
 
@@ -356,7 +385,7 @@ Udemy, Mrawan Hussain | BLENDER: Creating the Dune Ornithopter from start to fin
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465740.jpg" />
 </div>
 
 
@@ -385,7 +414,7 @@ Skillshare, 3D Tudor | Blender 3 to Unreal Engine 5 Dungeon Modular Kitbash (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465738.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Charles Dye | Mix it Like a Record [2012] DVDRip [RUS + ENG]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464533.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464025.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463733.jpg" />
 </div>
 
 
@@ -495,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463511.jpg" />
 </div>
 
 
@@ -523,7 +552,7 @@ Lynda.com | The Art of Video Interviews / Искусcтво съёмки инт�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462172.jpg" />
 </div>
 
 
@@ -549,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461707.jpg" />
 </div>
 
 
@@ -577,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459716.jpg" />
 </div>
 
 
@@ -605,7 +634,7 @@ Profileschool | МК Paths - пути в Adobe Photoshop (2014) PCRec [H.264/720
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459565.jpg" />
 </div>
 
 
@@ -634,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459462.jpg" />
 </div>
 
 
@@ -662,7 +691,7 @@ OTUS | Разработчик Java (Часть 1-3) (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459396.jpg" />
 </div>
 
 
@@ -674,32 +703,6 @@ OTUS | Разработчик Java (Часть 1-3) (2020) PCRec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4062224E12BBCD8E82D9D5026AB3A13F86D47C37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408179   (457682) от 11.09.2020
-
-Robby Branham | Multi Pass Rendering and Compositing (2017) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457682.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом видеокурсе 3D художник Робби Брэнхам расскажет про фундаментальные и продвинутые техники мульти-пасс рендеринга и композитинга с помощью Maya, VRay и Nuke. Вы узнаете как получить больше контроля над процессом рендеринга и композитинга, что поможет ускорить ваш воркфлоу. Техники продакшена включают в себя упрощение сетапов рендер-слоев, рендер пассов и дерева (   Читать дальше...   )Производство: The Gnomon WorkshopЖанр: Создание видеоЯзык озвучки: Английский, РусскийПродолжительность: 04:06:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F697AA47D933AD4097FCD69ED2B0D9CEA01AC0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

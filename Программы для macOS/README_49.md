@@ -1,3 +1,58 @@
+###  Публикация: 1204727   (784386) от 07.02.2018
+
+BookmarkApp 1.7.6 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784386.jpg" />
+</div>
+
+
+###  Подробнее
+
+BookmarkApp является уникальным и полезным инструментом для организации закладок в Вашем браузере Safari. Все, кто использует Safari в качестве основного браузера имеет много дубликатов закладок. Даже после очистки, во время импорта или добавления новых закладок может появиться также много дубликатов. Цель этого инструмента сделать Ваш Safari чистым и организованным, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.01.2018Разработчик: Ruslan HakimzhanovПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C50A3F30D7346A874F2E6DD3B9687AE7CCD32CE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204726   (784377) от 07.02.2018
+
+VirusKiller Antivirus 4.1.7 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784377.jpg" />
+</div>
+
+
+###  Подробнее
+
+Endurance Antivirus - Adware & Malware антивирус.
+" ... проведенное исследование группы независимых разработчиков, в области антивирусной безопасности, - атаки на системы с macOS в 2017 г. увеличились на 78% (что несомненно говорит, о все растущей популярности компьютеров Mac)."
+
+Приложение тщательно сканирует все файлы и папки в вашей системе. Уникальный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.02.2018Разработчик: EDELWEISS SRLПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4408FE0DCDA2FCA61983AE98F2C9ABA76FBCEEB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204748   (784329) от 07.02.2018
 
 IINA 0.0.15 (build 68) [Multi/Ru]
@@ -6,7 +61,7 @@ IINA 0.0.15 (build 68) [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784329.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ LRTimelapse Pro 5.0.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784308.jpg" />
 </div>
 
 
@@ -60,7 +115,7 @@ MaxBulk Mailer Pro 8.6.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784013.jpg" />
 </div>
 
 
@@ -86,7 +141,7 @@ TripMode 2.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783452.jpg" />
 </div>
 
 
@@ -114,7 +169,7 @@ Doo - Get Things Done 2.2.5 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783206.jpg" />
 </div>
 
 
@@ -143,7 +198,7 @@ Messenger for VK 6.1.3 (1901) [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_782647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782647.jpg" />
 </div>
 
 
@@ -170,7 +225,7 @@ WebStorm for Mac 2020.1.2 build (201.7846.79) [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782193.jpg" />
 </div>
 
 
@@ -196,7 +251,7 @@ Fileloupe - Media Browser 1.7.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781927.jpg" />
 </div>
 
 
@@ -223,7 +278,7 @@ CorelCAD 2020.5 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781826.jpg" />
 </div>
 
 
@@ -249,7 +304,7 @@ Living Weather & Wallpapers HD 4.4.4 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781426.jpg" />
 </div>
 
 
@@ -275,7 +330,7 @@ Malwarebytes for Mac Premium 3.2.35 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781212.jpg" />
 </div>
 
 
@@ -303,7 +358,7 @@ LensFlare Studio 6.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780822.jpg" />
 </div>
 
 
@@ -329,7 +384,7 @@ Mountain Duck 2.2.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780812.jpg" />
 </div>
 
 
@@ -357,7 +412,7 @@ Fantastical 2.4.6 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780224.jpg" />
 </div>
 
 
@@ -385,7 +440,7 @@ Movavi Screen Capture Studio 5 v5.2 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780074.jpg" />
 </div>
 
 
@@ -411,7 +466,7 @@ Complete Anatomy 2018 + Courses 3.4.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780019.jpg" />
 </div>
 
 
@@ -437,7 +492,7 @@ RoboDB MySQL Database Manager 1.0.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779959.jpg" />
 </div>
 
 
@@ -463,7 +518,7 @@ Photo Retouch Movavi 1.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779930.jpg" />
 </div>
 
 
@@ -489,7 +544,7 @@ Debit & Credit - Учет финансов 2.6.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779478.jpg" />
 </div>
 
 
@@ -515,7 +570,7 @@ Movavi Video Editor 5 Plus 5.3.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779068.jpg" />
 </div>
 
 
@@ -541,7 +596,7 @@ CodeKit 3.5.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778937.jpg" />
 </div>
 
 
@@ -568,7 +623,7 @@ Logic Pro X 10.4.1 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778763.jpg" />
 </div>
 
 
@@ -594,7 +649,7 @@ OmniPlan Pro 3.9.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778662.jpg" />
 </div>
 
 
@@ -620,7 +675,7 @@ Yummy FTP Alias 2.2.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778367.jpg" />
 </div>
 
 
@@ -631,64 +686,6 @@ Yummy FTP Alias  - Удобная утилита, которая поможет 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7D6A4DF4CD142D2CED89D3D37184F6C048B8FF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012680   (778318) от 02.05.2016
-
-Uploader HD+ for Instagram - post pictures to Instagram 1.0.0 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рекомедуют на  CNN, TheNextWeb, CNET, ArsTechnica, iDownloadBlog, ProductHunt и SlashGear!
-Наконец, загружать фотографии на Instagram с вашего Mac!
-Первый и оригинальный загрузчик для Instagram, позволит вам сделать это!
-(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 01 марта 2016Разработчик: Anobot LLCПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71A39FF42B44CB8F9A287683BBFB57D8A7D90726
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013143   (777993) от 03.05.2016
-
-Spillo 1.8 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777993.jpg" />
-</div>
-
-
-###  Подробнее
-
-Spillo  - контроль над вашим закладкам на Pinboard
-Spillo - это мощный, красивый и удивительно быстрый Pinboard клиент. Spillo позволяет просматривать и упорядочивать закладки в потрясающем современным интерфейсом. Spillo также делает создание закладки из любого места на вашем Mac, максимально удобным.
-
-Spillo имеет красивый современный интерфейс, который чувствует (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 мая 2016Разработчик: Damien DeVilleПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский, Французский, Немецкий и др
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8F19B1A0C4EB08F7C3811B57A34E99267765061
 ```
 
 https://mybot314.ru/tekegram_catalog/

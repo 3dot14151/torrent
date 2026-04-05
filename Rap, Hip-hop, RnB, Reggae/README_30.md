@@ -1,32 +1,3 @@
-###  Публикация: 1595022   (176610) от 03.12.2022
-
-Ноггано - Палец на отсечение (2022) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Утюжок [00:04:46]
-02. Санта Муэрте [00:04:32]
-03. Путаны [00:04:14]
-04. Де ты чё ты [00:03:59](   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 00:56:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:649650271C74FAEC2D06D68E2936EEB7E64F2384
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594667   (176531) от 03.12.2022
 
 Ноггано - Палец на отсечение (2022) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -35,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176531.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Ray Charles - True Genius (2021) 6 x CD, Compilation, Remastered, Tangerine Reco
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175441.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - Chillhop Essentials - Winter 2020 [FLAC|Lossless|Web-DL|tracks] <ChillHop, 
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174984.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Miyagi & Эндшпиль - HATTORI (2022) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174842.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Miyagi & Andy Panda - YAMAKASI (2020) [FLAC 2.0|44; 48/24|tracks|WEB-DL] <Rap, H
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174380.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Scarlxrd - DeadRising (2021) [MP3|320 Kbps] <Trap, Hardcore Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_173830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_173830.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_173626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_173626.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173620.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173162.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Freddie Gibbs - $oul $old $eparately (2022) Bonus Edition [FLAC|Lossless|Web-DL|
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172479.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Anacondaz - Мои дети не будут скучать (2019) [FLAC|Lossless
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170273.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170261.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169593.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169544.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Sagath - Изгой (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169442.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Horus - Рифмономикон 2 (2022) [MP3|320 Kbps] <Rap, Hip-hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169090.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Loqiemean - Пов3стка (2022) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169018.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168912.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168387.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Murda Killa - Один Восемь Семь (2022) [MP3|320 Kbps] <Rap, Hip-Hop
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168272.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167881.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ BOULEVARD DEPO, SP4K - QWERTY LANG (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166904.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165867.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ Onyx & Snowgoons - SnowMads (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Hardc
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165760.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ VA - Рэп со знаком качества 6 (2010) [FLAC|Lossless|image + .
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165603.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ VA - Рэп со знаком качества 6 (2010) [FLAC|Lossless|image + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73473454A4B2B84016FD4FC5BEAA88C1F0035FB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597746   (164988) от 16.12.2022
+
+Horus - Рагнарёк и точка (2022) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Холоден [00:03:04]
+02 - Номад [00:04:03]
+03 - Адонай [00:03:42]
+04 - Красный урожай [00:02:59](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:39:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21189C6D26C43E2D648FE9E44EBB4D2B58CDC7C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

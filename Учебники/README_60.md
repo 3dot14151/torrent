@@ -1,3 +1,55 @@
+###  Публикация: 1160786   (465536) от 29.08.2017
+
+А.О. Горбенко | Информационные системы в экономике (2015) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие написано с учетом системного подхода к рассмотрению современного состояния информационных технологий в экономике и содержит цикл лекций по одноименной дисциплине, которую автор преподает в Академии экономической безопасности МВД России и ряде других вузов Москвы. Материал пособия посвящен прежде всего принципам использования информационных систем (   Читать дальше...   )Жанр: Экономика, информатикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:232A853EDFD383BBC7402E215FF06EB14C47901D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940895   (464771) от 26.09.2015
+
+В.В. Носов | Механика композиционных материалов. Лабораторные работы и практические занятия (2013) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464771.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассмотрены лабораторные работы и практические занятия по вопросам классификации, строения, технологии изготовления, контроля качества, моделирования процессов деформирования и разрушения анизотропных упругих, вязкоупругих, упругопластичных композитов. Разобраны вариационный подход к оценке границ эффективных модулей, принцип энергетической континуализации, (   Читать дальше...   )Жанр: МеханикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A76C587A4D98483EC920C7BE6FF9DE2F3DE893D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 940930   (464617) от 26.09.2015
 
 А.В. Бадиков, П.В. Бондарев | Системы контроля и управления доступом. Лабораторный практикум (2010) [PDF]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464617.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464456.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464163.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463433.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463307.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463198.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462389.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461921.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461620.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457611.jpg" />
 </div>
 
 
@@ -274,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456533.jpg" />
 </div>
 
 
@@ -300,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455409.jpg" />
 </div>
 
 
@@ -327,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453070.jpg" />
 </div>
 
 
@@ -353,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452651.jpg" />
 </div>
 
 
@@ -380,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452523.jpg" />
 </div>
 
 
@@ -406,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452441.jpg" />
 </div>
 
 
@@ -432,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451078.jpg" />
 </div>
 
 
@@ -459,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450747.jpg" />
 </div>
 
 
@@ -486,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450504.jpg" />
 </div>
 
 
@@ -512,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450378.jpg" />
 </div>
 
 
@@ -538,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450355.jpg" />
 </div>
 
 
@@ -565,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449094.jpg" />
 </div>
 
 
@@ -592,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447718.jpg" />
 </div>
 
 
@@ -619,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446498.jpg" />
 </div>
 
 
@@ -630,58 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF1BF92362ED670E58F34478092AD626A0EC2F47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552926   (445611) от 27.09.2012
-
-К.А.Тананушко | Учебник латинского языка [2012] [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445611.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное издание предназначено для изучающих латинский язык как в учебных заведениях, так и самостоятельно. В нем исчерпывающе и доступно объясняются грамматические явления элементарного курса латыни. Поскольку латынь является мертвым языком, неразговорным языком, основной упор делается на развитие пассивного восприятия языка, то есть на перевод с латинского на родной язык. Поэтому естественно, что авторы учебника не включали в него обычные для пособий по современным языкам диалоги, тексты для перевода с русского языка и традиционно ограничились подборкой различных по объему и сложности предложений для грамматического анализа и перевода с латыни. Помогут в этом методические указания, которыми снабжена часть занятий, и латинско-русский словарь, размещенный в конце учебника.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3ED3454DCB38333A8DCED5CB7001A8F972F6D48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 706028   (445150) от 02.10.2013
-
-ТА Инжиниринг | Инструкция по движению поездов и маневровой работе на метрополитенах (2003) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полная инструкция по движению и маневром поездов в метрополитене.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB3A3500F7F1D24CF88D87307A34D80F5C3801AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1193912   (153896) от 26.12.2017
+
+Даллас / Dallas (1950) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гэри Купер снова в седле и с револьвером в руке. Действие происходит в Далласе, штат Техас, тогда еще маленьком городке, сразу после Гражданской войны. Герой ленты, южанин, разыскивает трех братьев, которые разрушили его дом и уничтожили семью в Джорджии…Производство: США / Warner Bros. PicturesЖанр: Мелодрама, ВестернРежиссер: Стюарт ХейслерАктеры: Гэри Купер, Рут Роман, Стив Кокран, Рэймонд Мэсси, Барбара Пэйтон, Лейф Эриксон, Антонио Морено, Джером Кауэн, Рид Хэдли, Джил ДональдсонПеревод: Профессиональный (двуголосый закадровый)Субтитры: ОтсутствуютПродолжительность: 01:34:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1891330A46349DA6F1F9EE58882ABF7730D41254
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192310   (153571) от 26.12.2017
+
+Рим, открытый город / Roma citta aperta (1945) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153571.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рим в последние месяцы оккупации. Умирающая немецкая армия отчаянно хранит последние свои оплоты и жестоко расправляется с мятежниками. Но в сердце города уже родился свой отряд Сопротивления. Близок конец войны…Производство: Италия / Excelsa FilmЖанр: Драма, ВоенныйРежиссер: Роберто РосселлиниАктеры: Альдо Фабрици, Анна Маньяни, Марчелло Пальеро, Вито Анникьярико, Нандо Бруно, Харри Файст, Джованна Галлетти, Франческо ГранжакеПеревод: Многоголосый закадровый (ВГТРК)Субтитры: отсутствуютПродолжительность: 01:42:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FEC79B8AC19E63C5019094A3EA3B10B355B557F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1514678   (152373) от 21.12.2021
 
 Вечный сон / The Big Sleep (1978) BDRip [H.264]
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152373.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151846.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151645.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150908.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150774.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150708.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150612.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150296.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149783.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149484.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149467.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149432.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149416.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149260.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149199.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148273.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147545.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147378.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147052.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146693.jpg" />
 </div>
 
 
@@ -537,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145855.jpg" />
 </div>
 
 
@@ -564,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145399.jpg" />
 </div>
 
 
@@ -590,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145224.jpg" />
 </div>
 
 
@@ -616,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145220.jpg" />
 </div>
 
 
@@ -627,58 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:806F412695531E3ADA9252D8CAAF450891C6C62A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964809   (145147) от 28.12.2015
-
-Свадьба на скалах / Marriage on the Rocks (1965) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145147.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дэн и Валери живут в браке уже без малого двадцать лет. По мнению Дэна их отношения идеальны, но Валери считает, что ее некогда веселый муж стал занудой. Она даже подумывает о разводе, но после консультации с психологом, предлагает Дэну съездить отдохнуть в Мексику, чтобы освежить совместную жизнь. Как только они пересекают границу, им встречается шустрый адвокат, (   Читать дальше...   )Производство: СШАЖанр: КомедияРежиссер: Джек ДонохьюАктеры: Фрэнк Синатра, Дебора Керр, Дин Мартин, Сизар Ромеро, Гермиона Бадделей, Тони Билл, Джон МакГайвер, Нэнси Синатра, Дэвей Дэвисон, Мишель Пети, Джои Лэнсинг, Дарлин Лут, Кэтлин Фримен, Флип Марк, ДеФорест Келли, Сигрид Валдис, Бирон Фулгер, Кэрол АндерсонПеревод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:44:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51019678E9394E96E301CE5C763B31FC149D414B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964932   (145076) от 28.12.2015
-
-Побег в Бирме / Escape to Burma (1955) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145076.jpg" />
-</div>
-
-
-###  Подробнее
-
-История мужчины и женщины, оказавшихся в «жарком зеленом аду джунглей» Бирмы. Им предстоит множество приключений - от столкновения с тигром до серьезных перестрелок с местным населением.Производство: США / Benedict Bogeaus ProductionЖанр: ПриключенияРежиссер: Аллан ДуонАктеры: Барбара Стэнвик, Роберт Райан, Дэвид Фаррар, Мервин Вай, Лиза Монтелл, Роберт Уоррик, Реджинальд Денни, Роберт Кабаль, Питер Коу, Алекс МонтойяПеревод: Одноголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:23:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C727D4C4CA2D0EB441A7227C58C75D229383A391
 ```
 
 https://mybot314.ru/tekegram_catalog/

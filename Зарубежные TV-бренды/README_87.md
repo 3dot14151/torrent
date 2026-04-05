@@ -6,7 +6,7 @@ NG: Когда акулы нападают / When sharks attack (2016) HDTVRip (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407727.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406926.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Discovery: Мистический мир: Необъяснимое.Неведо�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406543.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404428.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403686.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403374.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ NG: Жизнь в других мирах. Аурелия / Extraterrestrial. Au
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403060.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ BBC: Тайная жизнь близнецов / The Secret Life of Twins (2015
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403054.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ NG: Жизнь в других мирах. Голубая луна / Extraterres
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403052.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402164.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ BBC: Уникальные способности животных / Animal Super
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401225.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ History Channel: История далекого прошлого / Deep Time Hi
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399226.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Discovery: Аляска: Семья из леса / Alaskan Bush People (2017) H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398273.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Discovery: Фантасты-предсказатели (Пророки науч�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396649.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Discovery: Демонтаж (сезон 1-2, серии 1-26 из 26  ) / Decons
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_394853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394853.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393831.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ NGW: Дикие болота / Wild Swamplands (2013) HDTVRip [H.264/720p-LQ] (�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391145.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Discovery: Аляска: Семья из леса / Alaskan Bush People (2014-20
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391030.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ NG: Ловец комет: Миссия "Розетта" (Розетта: пос
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_389700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389700.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388837.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387863.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ NGW: Когда акулы нападают / When sharks attack (2017) HDTV [H.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387706.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ NGW: История одной гиеновой собаки / A Wild Dog's Tale
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387703.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ NG. Шаньдун: страна Конфуция / Shandong. Land of Confucius 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387692.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ BBC: Коронация (Коронация с ее Величеством Ко�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387600.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387432.jpg" />
 </div>
 
 

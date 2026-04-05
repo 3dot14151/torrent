@@ -1,3 +1,32 @@
+###  Публикация: 1812333   (7836) от 14.08.2025
+
+Herman Frank - Studio Albums (5 releases) (2009-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7836.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герман Франк — немецкий музыкант, гитарист, продюсер, известен своим участием в рок-группе Accept.2009 - Loyal To None
+2012 - Right In The Guts
+2016 - The Devil Rides Out
+2019 - Fight The FearЖанр: Heavy MetalПродолжительность: 05:05:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C943394C97F4DCDBFDFA5366DA7452CE81E08A17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1812528   (7636) от 15.08.2025
 
 Redemption - Studio Albums (8 releases) (2003-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
@@ -6,7 +35,7 @@ Redemption - Studio Albums (8 releases) (2003-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7636.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Tomarum - Ash in Realms of Stone Icons (2022) [FLAC|24/192|image + .cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7611.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Halestorm - Дискография (19 releases) (1997-2025) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7562.jpg" />
 </div>
 
 
@@ -94,7 +123,7 @@ Bruce Dickinson (Iron Maiden) - Studio Albums (8 releases) (1990-2025) hand made
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7390.jpg" />
 </div>
 
 
@@ -123,7 +152,7 @@ Chevelle - Studio Albums (10 releases) (1999-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7330.jpg" />
 </div>
 
 
@@ -152,7 +181,7 @@ Madonna - Platinum Hits 2 (2000) MTV History/Pop Extended [FLAC 2.0|48/24|image 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7083.jpg" />
 </div>
 
 
@@ -181,7 +210,7 @@ The Book Of Revelations - Studio Albums (4 releases) (2021-2025) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7053.jpg" />
 </div>
 
 
@@ -210,7 +239,7 @@ Architects - Studio Albums (12 releases) (2006-2025) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7037.jpg" />
 </div>
 
 
@@ -239,7 +268,7 @@ Byzantine - Studio Albums (8 releases) (2004-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7032.jpg" />
 </div>
 
 
@@ -268,7 +297,7 @@ Thurisaz - Studio Albums (6 releases) (2004-2020) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7028.jpg" />
 </div>
 
 
@@ -297,7 +326,7 @@ Rain Of Acid - Studio Albums (2 releases) (2011-2014) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6895.jpg" />
 </div>
 
 
@@ -324,7 +353,7 @@ AmongRuins - Studio Albums (3 releases) (2013-2023) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6893.jpg" />
 </div>
 
 
@@ -352,7 +381,7 @@ Guns•N•Roses - Greatest Hits (2024) Compilation, Unofficial Release [FLAC 2.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6771.jpg" />
 </div>
 
 
@@ -381,7 +410,7 @@ Heaven Shall Burn - Studio Albums (11 releases) (1998-2025) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6584.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ Deftones - Studio Albums (12 releases) (1995-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6505.jpg" />
 </div>
 
 
@@ -439,7 +468,7 @@ Burning Witches - Studio Albums (6 releases) (2017-2025) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6498.jpg" />
 </div>
 
 
@@ -468,7 +497,7 @@ Meshuggah - Studio Albums (15 releases) (1991-2025) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6484.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ Blackbriar - Studio Albums (6 releases) (2017-2025) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6475.jpg" />
 </div>
 
 
@@ -524,7 +553,7 @@ Three Days Grace - Studio Albums (8 releases) (2003-2025) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6367.jpg" />
 </div>
 
 
@@ -553,7 +582,7 @@ Iron Savior (Helloween, Gamma Ray, Unisonic) - Studio Albums (16 releases) (1997
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6182.jpg" />
 </div>
 
 
@@ -582,7 +611,7 @@ Incite - Studio Albums (7 releases) (2009-2025) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5934.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ Warmen - Studio Albums (7 releases) (2000-2025) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5786.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ Fueled By Fire - Studio Albums (4 releases) (2006-2022) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5690.jpg" />
 </div>
 
 
@@ -669,7 +698,7 @@ Orchestra Electrecord - Famous Romanian Tangos (1976) [FLAC 2.0|192/24|image +.c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5653.jpg" />
 </div>
 
 
@@ -698,7 +727,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5508.jpg" />
 </div>
 
 
@@ -712,35 +741,6 @@ A4 Звезден Път • Star Way(   Читать дальше...   )Жан�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:393D7668E3DA47E62A80F040BF2DF9D929E9EDA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815030   (5505) от 28.08.2025
-
-Salvo/Сальво - Solo Tu/Только Ты (1981) [FLAC 2.0|24/96|image +.cue|Vinyl-Rip] <Electronic, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5505.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Только Ты • Solo Tu
-A2 Я Свободен • I'm Free
-A3 Романтический сон • Sogno Romantico
-A4 Люби Меня • Innamorati(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:40:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD18AB015953071D46F25E3695D4443CE68F306E
 ```
 
 https://mybot314.ru/tekegram_catalog/

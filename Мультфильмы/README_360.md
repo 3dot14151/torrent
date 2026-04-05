@@ -1,3 +1,133 @@
+###  Публикация: 1686461   (126532) от 23.12.2023
+
+Страшилка и тайна города света / Scarygirl (2023) BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юная Арки — самый необычный подросток на планете. Она дружит с фантастическими существами и постоянно изобретает удивительные устройства. Но когда её отца похищает опасный учёный, ей приходится преодолеть свои страхи и отправиться на его поиски в загадочный Город Света. Всё больше раскрывая тайны этого места, Арки понимает, что ей предстоит спасти не только своего (   Читать дальше...   )Производство: Австралия / Highly Spirited, Passion Pictures Australia, Particular CrowdЖанр: мультфильм, фантастика, фэнтези, детектив, приключенияРежиссер: Рикард Куссо, Таня ВенсанПеревод: дублированный (Мосфильм-Мастер)Субтитры: отсутствуютПродолжительность: 01:30:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3F6D29A40BB30623377140E36F9CB8CB9872723
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686565   (126484) от 23.12.2023
+
+Алеша Попович и Тугарин Змей (2004) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда подступила к Ростову вражеская орда во главе с Тугариным Змеем, Алеша Попович не сумел уберечь жителей от выплаты дани. Теперь богатырь должен восстановить доброе имя, вернуть золото и прогнать неприятеля с земли русской. Он отправляется в путешествие, а помогут ему в этом дядька Тихон, девушка Любава, ее бабушка и говорящий конь Юлий.Производство: Россия / СТВ, студия МельницаЖанр: мультфильм, комедия, приключения, мюзикл, фэнтези, мелодрама, семейныйРежиссер: Константин БронзитАктеры: Олег Куликович, Лия Медведева, Дмитрий Высоцкий, Анатолий Петров, Наталья Данилова, Сергей Маковецкий, Иван Краско, Татьяна Иванова и др.Субтитры: отсутствуютПродолжительность: 01:15:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A87C2D369CB90771F93AAB7D295CCAC2EA493DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686774   (126316) от 24.12.2023
+
+Бука. Мое любимое чудище (2021) BDRip [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скандал в царском семействе: своенравная принцесса Варвара сбежала из дворца и отправилась через лес на поиски прекрасного принца. Однако вместо заветной встречи с возлюбленным её берет в плен Бука, самый опасный разбойник королевства. Но очень быстро становится понятно, что бойкая принцесса готова превратить жизнь Буки в кошмар, лишь бы дойти до своей цели. Так (   Читать дальше...   )Производство: Россия / Анимационная студия «Сказка», Кинокомпания CTBЖанр: мультфильм, приключения, фэнтезиРежиссер: Виктор Глухушин, Максим ВолковАктеры: Любовь Аксёнова, Алексей Чумаков, Алёна Долецкая, Тимур Родригез, Виолетта Вольская, Прохор Чеховской, Владислав Копп, Пётр Иващенко, Максим Волков, Диомид ВиноградовЯзык озвучки: РусскийСубтитры: Русские (forced)Продолжительность: 01:38:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:200D7143F7FF0C4C1F7C42CA2B25571AE92C2007
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686794   (126294) от 24.12.2023
+
+Моя фея-проказница / Meine Chaosfee & ich / My Fairy Troublemaker (2022) HDTVRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126294.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крошечная фея Виолетта, провалив экзамен по волшебству, не сможет доставлять подарки в мир людей. Обманным путем маленькой волшебнице удается проникнуть на Землю и подружиться с девочкой Макси, которая живет с мамой в большом городе, скучая по своему старому загородному дому. Виолетта обещает своей новой подружке исполнить сокровенное желание, если Макси поможет (   Читать дальше...   )Производство: Люксембург, Германия / Ella Film, Fabrique d'Images, Red Post Studio, SERUЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Каролин ОригерАктеры: Йелла Хаазе, Люси Кэролан, Алекс Авенелл, Юлиан Мау, Джон Чедвик, Лукиан Русари, Таммо Каулбарш, Стефан Бенсон, Тим Гробе, Марион Фон ШтенгельПеревод: Дублированный (СиПиАй Филмз / CPI Films)Субтитры: отсутствуютПродолжительность: 01:19:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9F0CF360006391DE54729D6499A5242A77BE353
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547446   (126063) от 13.10.2025
+
+Сказка о царе Салтане (1943) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126063.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультипликационный фильм - экранизация одноименной сказки А.С.Пушкина о царе Салтане, сыне его - славном и могучем богатыре князе Гвидоне и прекрасной царевне Лебедь – Фильмофонд Киностудии «Союзмультфильм». Три девицы под окном пряли поздно вечерком... А потом много чего было: и любовь, и клевета, и предательство, и чудеса, и множество волшебных приключений, и тридцать (   Читать дальше...   )Производство: СССР / СоюзмультфильмЖанр: рисованная анимация, детский, сказкаРежиссер: Татьяна Басманова, Валентина Брумберг, Зинаида БрумбергАктеры: Михаил Жаров, Мария Бабанова, Леонид Пирогов, Дмитрий Орлов, Фаина Раневская, Клавдия Коренева, Фаина ШевченкоСубтитры: ОтсутствуютПродолжительность: 00:34:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D5C7D10B3C050B386D655C27AA57B6DA0D721EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823970   (126051) от 13.10.2025
 
 Сказка о царе Салтане (1943) DVD5
@@ -6,7 +136,7 @@
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126051.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126050.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125923.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125916.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125646.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125337.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125320.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125315.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125313.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125076.jpg" />
 </div>
 
 
@@ -269,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125064.jpg" />
 </div>
 
 
@@ -295,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124986.jpg" />
 </div>
 
 
@@ -321,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124978.jpg" />
 </div>
 
 
@@ -347,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124942.jpg" />
 </div>
 
 
@@ -373,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124940.jpg" />
 </div>
 
 
@@ -399,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124927.jpg" />
 </div>
 
 
@@ -425,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124924.jpg" />
 </div>
 
 
@@ -451,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124903.jpg" />
 </div>
 
 
@@ -479,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124827.jpg" />
 </div>
 
 
@@ -505,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124748.jpg" />
 </div>
 
 
@@ -531,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124701.jpg" />
 </div>
 
 
@@ -542,136 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FF8B7279B5EE068BD7BC2C9275F8AE441AC3231
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689411   (124698) от 02.01.2024
-
-Василиса Микулишна (1975) WEBRip [H.264/1080p] [Handmade Upscale AI]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как Василиса Микулишна умом да хитростью своего мужа Ставра Годиновича из темницы Киевского князя вытащила.Производство: СССР / СоюзмультфильмЖанр: рисованная анимация, детский, сказка, короткометражныйРежиссер: Роман ДавыдовАктеры: Анна Каменкова, Анатолий Васильев, Владимир БасовСубтитры: нетПродолжительность: 00:17:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B712F463BD6C875C6161155FF9C64C9E6BCE8BF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689650   (124631) от 03.01.2024
-
-Волшебное приключение Да Винчи / The Inventor (2023) WEBRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124631.jpg" />
-</div>
-
-
-###  Подробнее
-
-Художник и изобретатель Леонардо покидает Италию, чтобы присоединиться к французскому двору, где он сможет свободно экспериментировать, придумывать механизмы мощных машин и летающих аппаратов и изучать человеческое тело и его возможности. Вместе с отважной принцессой Маргаритой Да Винчи пытается понять, в чем смысл жизни.Производство: Франция, США, Ирландия / Leo and King, Aerial Contrivance Workshop, AlignЖанр: мультфильм, комедия, приключения, семейныйРежиссер: Джим Капобьянко, Пьер-Люк ГранжонАктеры: Стивен Фрай, Дейзи Ридли, Марион Котийяр, Мэтт Берри, Натали Паламидес, Аарон Хеффернан, Крис Гордон, Джим Капобьянко, Бен Стрэнахен, Джейн ОсборнПеревод: Дублированный (Pride Production)Язык озвучки: Русский, английскийСубтитры: РусскиеПродолжительность: 01:39:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD99571F9EDC09A9CCE52257F11763E85A2D5D73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689552   (124597) от 03.01.2024
-
-Тарзан и Джейн / Tarzan and Jane (2017) WEBRip [H.264/1080p] (сезон 1-2, серии 1-13  из 13)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124597.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальный сериал Netflix. Подросток Тарзан знакомится с отважной городской девчонкой Джейн и покидает африканские джунгли, чтобы вернуться к своему дедушке в Лондон. Все вместе они защищают родные Тарзану джунгли и компанию «Грейсток» от разных опасностей.Производство: США, КанадаЖанр: фантастика, боевик, драма, семейный, комедия, приключенияРежиссер: Джесси Ликман, Стив БоллАктеры: Дмитрий Череватенко, Мария Иващенко, Василий Зотов, Сергей Смирнов, Никита Прозоровский, Полина ЩербаковаПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: нетПродолжительность: 00:22:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57C0A63131EEC86AB498734CEEA5F0C98B2AB5ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688868   (124577) от 03.01.2024
-
-Друзья ангелов / Angel's Friends (2009) WEBRip [H.264/1080p] (Сезон 2, Серии 1-52)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124577.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иногда так трудно понять, кто ты и каково твое предназначение в этом мире... Наша героиня Раф все так же ищет ответы на непростые вопросы. Она все такая же смелая и решительная, но все так же не может понять, как вести себя с Сульфусом. Рядом с ней ее верные друзья – Ури, Микки и Сладкая, которые готовы поддержать ее в любой ситуации. Смотрите продолжение полюбившегося (   Читать дальше...   )Производство: ИталияЖанр: фэнтези, романтикаРежиссер: Орландо КоррадиАктеры: Лиза Жаклин, Серра Хирш, Лиза Ортис, Джейсон Гриффит, Саммер Крокетт Мур, Дэн Грин, Кассандра Моррис, Дэвид УиллсПеревод: Многоголосый профессиональныйСубтитры: нетПродолжительность: 00:13:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D06A3F27123E0A7BE4448C0469F8DA7285C56B7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689801   (124371) от 04.01.2024
-
-Секрет Н.И.М.Х. / The Secret of NIMH (1982) BDRip [H.264/720p] [hand made Remaster AI]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сражаясь за спасение своего домика от разрушения фермером Фицджиббом, миссис Бризби прибегает к помощи своих друзей, среди которых ворон, мудрая сова и несколько невероятно сообразительных крыс.Производство: США / Aurora, Don Bluth Productions, Mrs. Brisby Ltd.Жанр: мультфильм, фантастика, фэнтези, триллер, драма, приключения, семейныйРежиссер: Дон БлутСубтитры: Русские, АнглийскиеПродолжительность: 01:22:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93EFDCE1494683B7C14F98B5C1C3048EB889E347
 ```
 
 https://mybot314.ru/tekegram_catalog/

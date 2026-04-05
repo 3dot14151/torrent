@@ -1,136 +1,3 @@
-###  Публикация: 1062895   (427493) от 19.10.2016
-
-Ричард Докинз | Эгоистичный ген (2013) [FB2]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427493.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы созданы нашими генами. Мы, животные, существуем, чтобы сохранить их, и служим лишь машинами, обеспечивающими их выживание. Мир эгоистичного гена – это мир жестокой конкуренции, безжалостной эксплуатации и обмана. Ну а как же акты альтруизма, наблюдаемые в природе: пчелы, совершающие самоубийство, когда они жалят врага, чтобы защитить улей, или птицы, рискующие (   Читать дальше...   )Жанр: Образовательная литература, научно-популярная литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBE998D50B7E798E3F8E8F43ED942B8F5AE07019
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946009   (427371) от 13.10.2015
-
-С. Т. Мелюхин | Философские проблемы современной физики (1966) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427371.jpg" />
-</div>
-
-
-###  Подробнее
-
-В брошюре дается представление о философских проблемах современной физики.Жанр: История, философия, физикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1365BFD8DA52CE336DF46369274511296F85B1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945997   (427366) от 13.10.2015
-
-Т. И. Ойзерман | Основные ступени процесса познания (1957) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427366.jpg" />
-</div>
-
-
-###  Подробнее
-
-В брошюре раскрываются основные положения теории познания диалектического материализма. Показываются роль практики как основы познания, чувственное отражение действительности и рациональное познание.Жанр: История, философияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91E1E210DCA8BE077F9C086137DA617F48FDFCC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946125   (427363) от 13.10.2015
-
-М. М. Розенталь | Принципы диалектической логики (1960) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427363.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге сделана попытка рассмотреть и изложить некоторые важнейшие принципы диалектической логики и применить их к анализу ряда конкретных вопросов многостороннего процесса познания.
-
-Цель, которую преследует данная работа, может быть сведена к трем моментам:
-(   Читать дальше...   )Жанр: История, философия, логикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F7E2FAAE7F3B4623521010A6D5ACD00BEDA492F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324249   (427336) от 08.09.2019
-
-Алексей Волынец | Деревянные пушки Китая. Россия и Китай – между союзом и конфликтом  (2017) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427336.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чем «опиумные войны» англичан в Поднебесной были похожи на Крымскую войну? Почему русские без единого выстрела вернулись на потерянный Амур и отчего за Приморье пришлось сражаться не с китайцами, а с Англией? Зачем русские гвардейцы учили маньчжурских солдат и почему китайские «казаки» Синьцзяна съели русских пленных? Как Китай влиял на постройку Транссиба и Владивостокской (   Читать дальше...   )Жанр: Военное дело, Документальная литература, ИсторияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97AD78F6C81107EDE914505D3EAB8F1A447A51ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1323741   (427333) от 08.09.2019
 
 Фрэнсис Скотт Фицджеральд | Великий Гэтсби. Книга для чтения на английском языке (2011) [PDF] [En]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427333.jpg" />
 </div>
 
 
@@ -168,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427315.jpg" />
 </div>
 
 
@@ -194,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427303.jpg" />
 </div>
 
 
@@ -220,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427296.jpg" />
 </div>
 
 
@@ -246,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427276.jpg" />
 </div>
 
 
@@ -272,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427165.jpg" />
 </div>
 
 
@@ -298,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427155.jpg" />
 </div>
 
 
@@ -324,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427067.jpg" />
 </div>
 
 
@@ -350,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427063.jpg" />
 </div>
 
 
@@ -377,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426938.jpg" />
 </div>
 
 
@@ -403,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426824.jpg" />
 </div>
 
 
@@ -429,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426823.jpg" />
 </div>
 
 
@@ -455,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426820.jpg" />
 </div>
 
 
@@ -483,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426813.jpg" />
 </div>
 
 
@@ -511,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426757.jpg" />
 </div>
 
 
@@ -539,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426754.jpg" />
 </div>
 
 
@@ -566,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426708.jpg" />
 </div>
 
 
@@ -592,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426696.jpg" />
 </div>
 
 
@@ -620,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426670.jpg" />
 </div>
 
 
@@ -646,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426597.jpg" />
 </div>
 
 
@@ -672,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426449.jpg" />
 </div>
 
 
@@ -684,6 +551,140 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D636E9AFDE2BDEDF0B8F7108074C2F92A5742986
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249590   (426444) от 27.09.2018
+
+А.С. Захаров (сост.) | Оболганный Царь. Факты и цифры (2017) [PDF, DJVU, FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426444.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ни для кого уже не секрет, что история России искажена. В особой степени это касается великих людей нашей страны. Которых представляют нам в образе тиранов, сумасшедших или безвольных людей. Одним из самых оболганных правителей является Николай II.
+
+В основу своего правления Царём-Мучеником было положено сохранение принципов государственного строя, укрепление Церкви, (   Читать дальше...   )Жанр: ИсторияФормат: PDF, DJVU, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C426C5536290172CBBC02D1D37364396A933B16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165362   (426283) от 16.09.2017
+
+К.М. Александров | Под немцами. Воспоминания, свидетельства, документы (2011) [PDF, FB2, EPUB]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426283.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборнике опубликованы воспоминания, свидетельства и документы, посвященные повседневной жизни населения, деятельности местных органов самоуправления, террору и вооруженной борьбе на оккупированных территориях Советского Союза в 1941–1944 годах.
+При подготовке ряда биографических справок и комментариев использованы опубликованные результаты исследований 1990-х годов (   Читать дальше...   )Жанр: Военная историяФормат: PDF, FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D6B5B07CFB422F7D9CC9784B85B258AB9426673
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165230   (426274) от 16.09.2017
+
+Е.Л. Мачерет, А.Я. Теленгатор | Справочник врача-невропатолога поликлиники (1995) [DJVU]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее справочное издание предназначено для практикующих врачей-невропатологов. В книге дана исчерпывающая информация обо всем многообразии заболеваний и нарушений. Предложены алгоритмы диагностики и терапии конкретных нозологических форм.
+Справочник содержит сведения о стратегии и тактике ведения пациентов. Представлены лекарственные препараты, рекомендуемые (   Читать дальше...   )Жанр: Медицинская литература, НевропатологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:514E53EBB765D2C0D6293C513ED50A98972CFE4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064625   (426240) от 20.10.2016
+
+М. И. Лазарев | Империалистические военные базы на чужих территориях и международное право (1963) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426240.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена доказательству противоправности военных баз империалистических государств на чужих территориях, несовместимости их создания и сохранения с принципами мирного сосуществования, а также разоблачению империалистических теорий, оправдывающих агрессивные военные базы.Жанр: История, политология, экономика, дипломатия, правоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFC5A1E6EFCEFD1854987736A7BDAAD9DB67A5AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 556691   (426217) от 05.10.2012
+
+О.Д.Барнаулов | Введение в фитотерапию [1999] [Pdf]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена фитотерапии (лечению растениями). Состоит из трех частей (лекций). В первых двух лекциях рассказывается об истоках появления и истории применения фитотерапии; подробно освещается ее место в системе современной медицины, приводятся сведения о лечебных свойствах различных растений. Третья лекция посвящена использованию отдельных представителей флоры в лечении инфекционных и воспалительных заболеваний. Для студентов-медиков и всех интересующихся фитотерапией.Жанр: Фитотерапия, народная медицинаФормат: Pdf
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:365EF70D9E5C37A1F44C456C1C313A46A80C7CC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

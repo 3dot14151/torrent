@@ -1,3 +1,56 @@
+###  Публикация: 909106   (630108) от 16.06.2015
+
+Н. М. Верзилин | Учитель ботаники, или Разговор с растениями (1984) [FB2, EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга об учителе ботаники и его предмете. Он учит ребят понимать природу, воспитывает у школьников любовь к труду на благо народа.
+Для младшего школьного возраста.Жанр: Детская образовательная литература, Природа и ЖивотныеФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:303074650A5718254B2A978134333F823682656F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909114   (630022) от 16.06.2015
+
+Галина Шалаева, О. М. Журавлева, Ольга Сазонова | Как вести себя в детском саду (2009) [FB2, EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630022.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта прекрасно иллюстрированная книга познакомит вашего малыша с основами этикета. Весёлые стихи помогут ребёнку понять, как вести себя в детском саду. Издание послужит замечательным подарком любому ребёнку.Жанр: Детская образовательная литература, Детские стихиФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82D35DAC093ED9AF0FE95CE32E3980A45F424D5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 909111   (630019) от 16.06.2015
 
 Галина Шалаева, О. М. Журавлева | Как вести себя в транспорте (2010) [FB2, EPUB]
@@ -6,7 +59,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_630019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630019.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629921.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629900.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629893.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629890.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629886.jpg" />
 </div>
 
 
@@ -166,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629884.jpg" />
 </div>
 
 
@@ -193,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629783.jpg" />
 </div>
 
 
@@ -219,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629782.jpg" />
 </div>
 
 
@@ -246,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629773.jpg" />
 </div>
 
 
@@ -272,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629765.jpg" />
 </div>
 
 
@@ -298,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629679.jpg" />
 </div>
 
 
@@ -325,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629643.jpg" />
 </div>
 
 
@@ -352,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629634.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629622.jpg" />
 </div>
 
 
@@ -404,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629527.jpg" />
 </div>
 
 
@@ -431,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629518.jpg" />
 </div>
 
 
@@ -457,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629369.jpg" />
 </div>
 
 
@@ -484,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629252.jpg" />
 </div>
 
 
@@ -511,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629193.jpg" />
 </div>
 
 
@@ -537,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629186.jpg" />
 </div>
 
 
@@ -563,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629185.jpg" />
 </div>
 
 
@@ -589,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629079.jpg" />
 </div>
 
 
@@ -615,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628976.jpg" />
 </div>
 
 
@@ -626,63 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FF9DE93C821567B5E1ED8FF69867B2B1F11DCA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520966   (628864) от 10.07.2012
-
-Е.С. Анишенкова | Учимся говорить правильно за 20 минут в день [2009] [DOC]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Логопедия, Психология, Педиатрия
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издательства "ACT" и "Астрель" вместе с известным автором логопедом - методистом Еленой Степановной Анищенковой подготовили книгу "Учимся говорить правильно за 20 минут в день. Уникальная система развития речи", в которой представлена уникальная система развития речи детей 3-5 лет. Книга предназначена для занятий родителей и педагогов с детьми.
-Методически обоснованная, соответствующая закономерностям развития речевой функции очередность усвоения учебного материала обеспечивает естественность овладения дыхательными, голосовыми, произносительными, лексико-грамматическими, темпоритмическими и интонационно-мелодическими навыками.
-Если малыш занимается с логопедом, то предлагаемые задания и упражнения помогут дополнить коррекционную работу, проводимую специалистом. Все задания могут быть выполнены детьми дома под руководством взрослых. Каждое занятие не должно превышать 15-20 минут в день.
-
-Книга предназначена для родителей, воспитателей и логопедов, занимающихся развитием речи дошкольников (   Читать дальше...   )Формат: DOC
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5386BB73DA3EAE1DEA6B28EFD79D02C2E7ACB41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520959   (628739) от 10.07.2012
-
-О.Д.Ларина,  Т.С.Резниченко | Говорим правильно. Дифференциация согласных звуков [2004] [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Логопедия, Психология, Педиатрия
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_628739.jpg" />
-</div>
-
-
-###  Подробнее
-
-Логопедический альбом предназначен для коррекции звукопроизношения, развития языкового чутья, понимания смысловых и стилистических оттенков речи. Это пособие представляет собой cборник упражнений, заданий и игр, предназначенных для выработки умения различать смешиваемые звуки на слух и правильно произносить их в собственной речи.
-Пособие предназначено cпециалистам-дефектологам, педагогам дошкольных учреждений и общеобразовательных школ, родителям.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DB2A6A4A5E06205FE61851E8F3A765CC352F7B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,86 +1,3 @@
-###  Публикация: 976749   (967307) от 19.01.2016
-
-Майк МакГрат | Программирование на С для начинающих (2015) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967307.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге с помощью примеров программ и иллюстраций, показывающих результаты работы кода, разбираются все ключевые аспекты языка С. В этой книге описано даже то. как установить бесплатный компилятор для языка С и работать в нем, – у вас просто не будет шансов ошибиться!
-
-Книга идеально подойдет программистам, переключающимся па работу с другим языком, студентам, (   Читать дальше...   )Жанр: веб-программирование, обучение программированию, разработка программного обеспечения, язык CФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9FC1E0EEC083F9524D2A1EB8AD56B4697897AD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 620825   (965286) от 18.02.2013
-
-Д. Нортон | Написание драйверов для Windows [1994] [DJVU]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга известного американского программиста посвящена одной из самых важных и самых запутанных сторон функционирования графической среды Windows - драйверам устройств, и написана в необычной манере. Она практически не содержит фрагментов исходных текстов драйверов и других программ. Вместо этого автор отсылает читателя к соответствующим разделам описания конкретных программных средств...
-Дается общее представление о структуре и функционировании как самой системы, так и драйверов устройств в ней.
-Для широкого круга программистов и пользователей ПК.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52FE4EE9020E5C9D0F7E4197FB347C03C97984A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360137   (961705) от 14.02.2020
-
-Дэн Вандеркам | Эффективный TypeScript (2019) [PDF, EPUB] [En]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961705.jpg" />
-</div>
-
-
-###  Подробнее
-
-TypeScript - это типизированный расширенный набор javascript, способный решить многие из задач, которыми славится javascript. Но TypeScript имеет собственную линию обучения, и понимание того, как его эффективно использовать, может занять некоторое время. Эта книга познакомит вас с 62 конкретными способами улучшить использование TypeScript.
-Автор Дэн Вандеркам, главный (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CC0A0B1D9ED300773A9AEA6ED9E64856568858B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1360201   (961655) от 14.02.2020
 
 Мэтт Стаффер | Laravel. Полное руководство [2-е издание] (2020) [PDF]
@@ -89,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961655.jpg" />
 </div>
 
 
@@ -116,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960629.jpg" />
 </div>
 
 
@@ -142,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960292.jpg" />
 </div>
 
 
@@ -169,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958952.jpg" />
 </div>
 
 
@@ -195,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955178.jpg" />
 </div>
 
 
@@ -223,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953798.jpg" />
 </div>
 
 
@@ -249,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952385.jpg" />
 </div>
 
 
@@ -275,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949397.jpg" />
 </div>
 
 
@@ -302,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947895.jpg" />
 </div>
 
 
@@ -328,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946787.jpg" />
 </div>
 
 
@@ -356,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940519.jpg" />
 </div>
 
 
@@ -382,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939184.jpg" />
 </div>
 
 
@@ -408,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939095.jpg" />
 </div>
 
 
@@ -434,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938593.jpg" />
 </div>
 
 
@@ -461,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938240.jpg" />
 </div>
 
 
@@ -487,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936456.jpg" />
 </div>
 
 
@@ -513,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934404.jpg" />
 </div>
 
 
@@ -539,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931962.jpg" />
 </div>
 
 
@@ -565,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930148.jpg" />
 </div>
 
 
@@ -592,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928692.jpg" />
 </div>
 
 
@@ -619,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928685.jpg" />
 </div>
 
 
@@ -645,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928557.jpg" />
 </div>
 
 
@@ -671,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928554.jpg" />
 </div>
 
 
@@ -682,6 +599,87 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D48F65AF26800C934A5DAB3B600C27E1C4D87615
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986922   (927188) от 16.02.2016
+
+Василий Усов | Swift. Основы разработки приложений под iOS (2016) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Swift — быстрый, современный, безопасный и удобный язык программирования — появился совсем недавно и стал огромным сюрпризом для iOS-общественности. И вот, спустя год, Apple выпустила версию 2.0, а следом и 2.1, привнесшую в процесс разработки ряд значительных нововведений.
+Данная книга содержит исчерпывающую информацию для всех желающих научиться программировать (   Читать дальше...   )Жанр: Программирование, мобильные устройстваФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2B5965EB9B90201480517E995B1F72951E882A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365814   (926752) от 09.03.2020
+
+Тим Рафгарден | Совершенный алгоритм. Жадные алгоритмы и динамическое программирование (2020) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алгоритмы — это сердце и душа computer science. Без них не обойтись, они есть везде — от сетевой маршрутизации и расчетов по геномике до криптографии и машинного обучения. «Совершенный алгоритм» превратит вас в настоящего профи, который будет ставить задачи и мастерски их решать как в жизни, так и на собеседовании при приеме на работу в любую IT-компанию.
+
+В новой (   Читать дальше...   )Жанр: ПрограммированиеПеревод: А. ЛогуновФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:984AF55824E4CD5AF8CA11B8E1D68A2BAA852560
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366057   (925042) от 10.03.2020
+
+Крис Элбон | Машинное обучение с использованием Python. Сборник рецептов (2019) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга содержит около 200 рецептов решения практических задач машинного обучения, таких как загрузка и обработка текстовых или числовых данных, отбор модели, уменьшение размерности и многие другие. Рассмотрена работа с языком Python и его библиотеками, в том числе pandas и scikit-learn. Решения всех задач сопровождаются подробными объяснениями. Каждый рецепт содержит (   Читать дальше...   )Жанр: ПрограммированиеПеревод: Андрей ЛогуновФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBD60F7A087FD44C1C194AF2B4DB9F749F46DF54
 ```
 
 https://mybot314.ru/tekegram_catalog/

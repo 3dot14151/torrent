@@ -1,29 +1,3 @@
-###  Публикация: 1365845   (927033) от 09.03.2020
-
-Василий Цветков | Белое дело в России. 1917-1919, 1920–1922 гг. [2 книги] (2019) [EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927033.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Эта книга – самое фундаментальное, информативное и подробное исследование, написанное крупнейшим специалистом по истории Белого движения и Гражданской войны в России. Всё о формировании и развитии политических структур Белого движения – от падения монархии к установлению власти Верховного правителя России адмирала А.В. Колчака и до непоправимых ошибок белых в (   Читать дальше...   )Жанр: История России, МонографииФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EBF70B6C11029DFC26FD714B21E97A0BA82976E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366052   (925829) от 10.03.2020
 
 Г. Стародубский | Основы мирной политики СССР [Договоры о нейтралитете и ненападении] (1927) [PDF]
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925829.jpg" />
 </div>
 
 
@@ -60,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925822.jpg" />
 </div>
 
 
@@ -88,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924607.jpg" />
 </div>
 
 
@@ -114,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924593.jpg" />
 </div>
 
 
@@ -140,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924586.jpg" />
 </div>
 
 
@@ -166,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924199.jpg" />
 </div>
 
 
@@ -192,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922806.jpg" />
 </div>
 
 
@@ -218,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922617.jpg" />
 </div>
 
 
@@ -244,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922358.jpg" />
 </div>
 
 
@@ -270,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921151.jpg" />
 </div>
 
 
@@ -296,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920935.jpg" />
 </div>
 
 
@@ -323,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920762.jpg" />
 </div>
 
 
@@ -351,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920431.jpg" />
 </div>
 
 
@@ -377,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919212.jpg" />
 </div>
 
 
@@ -403,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_918948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_918948.jpg" />
 </div>
 
 
@@ -429,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918891.jpg" />
 </div>
 
 
@@ -456,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917544.jpg" />
 </div>
 
 
@@ -482,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917234.jpg" />
 </div>
 
 
@@ -510,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917025.jpg" />
 </div>
 
 
@@ -536,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915652.jpg" />
 </div>
 
 
@@ -563,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914204.jpg" />
 </div>
 
 
@@ -589,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913539.jpg" />
 </div>
 
 
@@ -615,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912317.jpg" />
 </div>
 
 
@@ -643,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912080.jpg" />
 </div>
 
 
@@ -669,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910432.jpg" />
 </div>
 
 
@@ -682,6 +656,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BD38C8DF471BEF485BCF26C383A801FB5BD06C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368151   (910370) от 19.03.2020
+
+Валерия Черепенчук | История флагов. От рыцарских знамен до государственных штандартов (2020) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знамена, штандарты, флаги... За каждым стоит своя история и порой самые невероятные политические, экономические и социальные события. Флаги делают гораздо больше, чем просто идентифицируют страны и группы людей. В каждом цвете, символе и дизайне граждане и правительства стран заявляют о своей верности, патриотизме и возносят свою историю. Благодаря этой книге вы (   Читать дальше...   )Жанр: Всемирная история, ВексиллологияФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:385F6F0F4629124E1EE1C514C1291744F0886A46
 ```
 
 https://mybot314.ru/tekegram_catalog/

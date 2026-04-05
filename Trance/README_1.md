@@ -1,3 +1,61 @@
+###  Публикация: 1848069   (1052609) от 15.01.2026
+
+VA - Trance Fusion, Vol. 16 (2026) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vivacity (NO) & Nico Cranxx - Liberation (Radio Edit) [3:19]
+02. DreamLife - Angel Trail (Original Mix) [4:17]
+03. Atragun - Snowblind (Extended Mix) [6:43]
+04. Christopher Maison - The River Flows In You (Original Mix) [3:26](   Читать дальше...   )Жанр: TranceПродолжительность: 02:05:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03DE3BAFCCC70451CD0FE668295A4C6704115A2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847806   (1052491) от 14.01.2026
+
+VA - Nahawand: Best Of 2025 (2026) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nicola Maddaloni - By Your Hand (Original Mix) 04:18
+02. Iberian - Just One Trip (Original Mix) 03:22
+03. Magnetti & Stefano Negrini - Desire (Original Mix) 03:45
+04. Alpha Frequency & Henry Caster - Galactic (Original Mix) 03:18(   Читать дальше...   )Жанр: TranceПродолжительность: 01:08:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB58889F912F77A91B62AE30C449ED36D0D899CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1847932   (1052409) от 15.01.2026
 
 VA - Redux Selection, Vol. 1 / 2026 (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -6,7 +64,7 @@ VA - Redux Selection, Vol. 1 / 2026 (2026) [MP3|320 Kbps] <Trance, Uplifting Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052409.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - We Love Trance 2026 (2026) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051173.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Progressive Vibes Dark 2025 (2025) [MP3|320 Kbps] <Trance, Progressive>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050597.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Progressive Vibes Music 2025 (2025) [MP3|320 Kbps] <Trance, Progressive>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050596.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Best Of Tidy Two 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050425.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - The Best Releases 2025 of Voice of Our Hearts (2025) [MP3|320 Kbps] <Trance
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050424.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - The Best of TRM 2024-2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050421.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Interplay 2025 (Mixed by Alexander Popov) (2025) [MP3|320 Kbps] <Trance, Pr
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050026.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Enhanced Progressive Best of 2025 (Mixed by Matt Fax) (2025) [MP3|320 Kbps]
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050025.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - This is Ablazing 2025 (Mixed and Selected by Rene Ablaze) (2025) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049366.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Monster Tunes Year Mix 2025 (Mixed By Exouler) (2025) [MP3|320 Kbps] <Tranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049363.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - The Best Of Full On 140 Records 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049300.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - The Best Releases 2025 of Your Melodies (2025) [MP3|320 Kbps] <Trance, Upli
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049245.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Redux Presents: The Finest Selection 2025 Mixed by DJ Jayel (2025) [MP3|320
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049156.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Black Hole Recordings - Best Of 2025 (2025) [MP3|320 Kbps] <Trance, Progres
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048952.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Gert Year Best Collection 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048792.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - The Best Releases 2025 of High Emotions Recordings (2025) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048594.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - A State of Trance Year Mix 2025 (Selected by Armin van Buuren) (2025) [MP3|
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048432.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Black Hole Trance Music 12-25 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048253.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Lost Kommunication Reflections 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048212.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Best of FSOE 2025 (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047858.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - The Best Releases 2025 of Endlessky Audio (2025) [MP3|320 Kbps] <Trance, Up
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047739.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - A Journey Through Time and Trance (2025) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047511.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Redux Selection, Vol. 12 / 2025 (2025) [MP3|320 Kbps] <Trance, Uplifting Tr
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046967.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Redux Selection, Vol. 12 / 2025 (2025) [MP3|320 Kbps] <Trance, Uplifting Tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BA63CD3C13335753C3065B59D378E934CCBC0CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839454   (1046667) от 29.11.2025
-
-VA - Trance Fusion, Vol. 15 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Dolphin - Dreams (Original Mix) [6:17]
-02. DJ Prozac - Beautiful Stranger (Original Mix) [7:17]
-03. Matt Pincer - Wave Of Emotion (Original Mix) [9:29]
-04. ATA - Blue Skies (Original Mix) [6:48](   Читать дальше...   )Жанр: TranceПродолжительность: 03:11:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:331F855DF26D2EBFD8E3A4A130EE2C5F3E7EDF2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839363   (1046478) от 28.11.2025
-
-VA - Nocturnal Knights Best Of 2025 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angelus - Take Us Home (Extended Mix) [7:57]
-02. Dan Cooper - Recuperation 303 (Extended Mix) [6:23]
-03. Mark Wilks - Rave Culture (Extended Mix) [6:37]
-04. Roger Shah & RAM and Natalie Gioia vs. Allen Watts - For The One You Love 2025 (Extended Mix) [7:02](   Читать дальше...   )Жанр: TranceПродолжительность: 02:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F37A03B205800C8386B5C0DCB515E20DF380D598
 ```
 
 https://mybot314.ru/tekegram_catalog/

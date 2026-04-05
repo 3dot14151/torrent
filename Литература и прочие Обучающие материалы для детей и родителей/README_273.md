@@ -1,3 +1,55 @@
+###  Публикация: 941652   (460192) от 28.09.2015
+
+Л. Андреев | Петька на даче (1942) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460192.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мальчик, на которого чаще всех кричали, назывался Петькой и был был самым маленьким служащий в заведении. Другой мальчик, Николка, насчитывал от роду тремя годами больше и скоро должен был перейти в подмостерья. Уже и теперь, когда в парикмахерскую заглядывал посетитель попроще, а подмастерья, в отсутствии хозяина, ленились работать, они посылали Николку стричь и (   Читать дальше...   )Жанр: Детская прозаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9446F0BAF264B4BE8D2AECA4A8E8B81B14FB706
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941648   (460188) от 28.09.2015
+
+М. Горький | Рассказы и сказки (1942) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для младшего и среднего возраста.Жанр: Детская прозаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FED45295FDAE4ADBF0546E82FCA6E26212E28BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1059754   (459866) от 05.10.2016
 
 Александра Аренштейн | …Пишите Марице! (1982) [DJVU]
@@ -6,7 +58,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459866.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459534.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459507.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные материалы для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459371.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459293.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459275.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459211.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459200.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459188.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459160.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458791.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458674.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458667.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458657.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458490.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458233.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458229.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458223.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458044.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457964.jpg" />
 </div>
 
 
@@ -535,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457941.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457930.jpg" />
 </div>
 
 
@@ -589,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457740.jpg" />
 </div>
 
 
@@ -615,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457730.jpg" />
 </div>
 
 
@@ -628,61 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C063A143E6EF51072BE476214DC27F47764B96AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 389053   (457724) от 17.09.2011
-
-О.Катаргина (сост.) | Серия нотных сборников «Фортепианная техника в удовольствие» (2006) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Прочие материалы для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457724.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия сборников «Фортепианная техника в удовольствие» предлагает этюды и пьесы, написанные композиторами разных стран и эпох.
-Произведения, в которых представлены практически все виды техники, помогут начинающим музыкантам лучше овладеть пианистическими навыками.
-Яркий, выразительный образ пьес, характерные названия позволят юным исполнителям с удовольствием освоить (   Читать дальше...   )Жанр: Ноты для ДМШ (фортепиано)Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46DDBAE382056C8D6182C09233A77D6520F23779
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408276   (457678) от 11.09.2020
-
-Евгения Френкель | Общая химия. Самоучитель (2017) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самоучитель основан на методике, которую автор с успехом использует более 20 лет. С помощью этой методики множество школьников смогли поступить на химические факультеты и в медицинские вузы. Самоучитель особенно полезен ученикам 11 класса, которые повторяют общую химию, а также тем, кто готовится к ЕГЭ по химии и хочет получить отличную оценку на экзаменах.
-Встретившись (   Читать дальше...   )Жанр: Обучение/РазвитиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88070BCBA22D9392513C1E88A04C742A43EDD0AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

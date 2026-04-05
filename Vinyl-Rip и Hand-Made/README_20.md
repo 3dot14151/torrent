@@ -1,3 +1,32 @@
+###  Публикация: 1137527   (667520) от 26.05.2017
+
+Юрий Антонов. Песни (коллекция виниловых пластинок) (1971-1989) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Pop Rock>
+
+>>След.
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667520.jpg" />
+</div>
+
+
+###  Подробнее
+
+(Vinyl, LP, Мелодия - C50 28357-58 002, USSR)
+
+01. Инро
+02. Ю. Антонов - Живёт повсюду красота(   Читать дальше...   )Жанр: Pop, Pop Rock
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:243B89E81F1A943691317B1288DE6AD23D3FAD0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1137878   (665359) от 28.05.2017
 
 VA (Юрий Антонов, Сергей Беликов, Ольга Зарубина и Александр Серов) - На улице Каштановой (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop>
@@ -6,7 +35,7 @@ VA (Юрий Антонов, Сергей Беликов, Ольга Заруб�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665359.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665297.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Orchestra ''Electrecord'' (Romania) - Muzica De Dans: Twist and Swing (1966) [FL
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664319.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Mylene Farmer - Vinyl Discography 9LP (2009) [FLAC 2.0 24/96|image+cue (Vinyl ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663315.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ KISS - I Was Made For Lovin' You (1979) Single [FLAC 2.0|96/24|tracks|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663044.jpg" />
 </div>
 
 
@@ -146,7 +175,7 @@ Genesis - We Can't Dance (1991) 2LP [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_659994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659994.jpg" />
 </div>
 
 
@@ -175,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657863.jpg" />
 </div>
 
 
@@ -204,7 +233,7 @@ Opus - Live Is Life (1984) [WavPack 2.0|192/24|image + .cue|Vinyl-Rip] <Pop, Roc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657803.jpg" />
 </div>
 
 
@@ -233,7 +262,7 @@ Aphex Twin - London 03.06.17 (2017) Warp Records [FLAC|48/24|Lossless|tracks] <I
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657799.jpg" />
 </div>
 
 
@@ -262,7 +291,7 @@ Cream - The Best Of Cream Live (1972) 2LP, Compilation, Reissue, Repress 1975 [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656074.jpg" />
 </div>
 
 
@@ -291,7 +320,7 @@ The Rolling Stones - Exile On Main St (1972) 2LP, Reissue 1983 [FLAC 2.0|192/24|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656048.jpg" />
 </div>
 
 
@@ -320,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655727.jpg" />
 </div>
 
 
@@ -349,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655725.jpg" />
 </div>
 
 
@@ -378,7 +407,7 @@ Yehudi Menuhin - Stephane Grappelli - Tea for two (1978)  [FLAC 2.0 24/96|image 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655621.jpg" />
 </div>
 
 
@@ -413,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653000.jpg" />
 </div>
 
 
@@ -442,7 +471,7 @@ Nazareth - Play 'N' The Game (1976) Reissue, 1979, Vertigo [WavPack 2.0|192/32|i
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651363.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ U.D.O. - 13 Альбомов (1987-2015) [WavPack 2.0 32/192|image (Vinyl-Rip)]<
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650918.jpg" />
 </div>
 
 
@@ -500,7 +529,7 @@ The Alan Parsons Project - Pyramid (1978) [FLAC 2.0 24/96|image (Vinyl-Rip)] <Pr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649060.jpg" />
 </div>
 
 
@@ -529,7 +558,7 @@ Phil Collins & Genesis - Collection (11 Albums) (1981 - 2010) restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644503.jpg" />
 </div>
 
 
@@ -558,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639308.jpg" />
 </div>
 
 
@@ -587,7 +616,7 @@ Queen - A Kind Of Magic (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_639015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639015.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ Quiet Riot - QR III (1986)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Glam Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_638409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638409.jpg" />
 </div>
 
 
@@ -645,7 +674,7 @@ The Who - It's Hard (1982)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634547.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631375.jpg" />
 </div>
 
 
@@ -703,7 +732,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629373.jpg" />
 </div>
 
 
@@ -717,35 +746,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C85997CC5FC2605B8D46AABA8C767540C76C0B98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143821   (629152) от 21.06.2017
-
-Dire Straits - ExtendeDancEPlay (1982) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Twisting by the Pool (3:30)
-02. Badges, Posters, Stickers, T-Shirts (4:54)
-03. Two Young Lovers (3:23)
-04. If I Had You (4:16)Жанр: RockПродолжительность: 00:16:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63EC11C1F8317AB11F08FBF560769CCFDCF4CD8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

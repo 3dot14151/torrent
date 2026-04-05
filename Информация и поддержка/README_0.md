@@ -6,7 +6,7 @@
 >>Новости Клуба
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64140.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Telegram bot для канала NNMCLUB
 >>Предложения и замечания
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63005.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ЧаВо (FAQ)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13647.jpg" />
 </div>
 
 

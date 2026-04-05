@@ -1,3 +1,32 @@
+###  Публикация: 1654614   (204893) от 22.08.2023
+
+Rising Alma - Awake (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Female Vocals>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunrise [00:01:05]
+02. Awake [00:04:01]
+03. The Cage [00:03:28]
+04. Sail Away [00:03:16](   Читать дальше...   )Жанр: Alternative Rock, Female VocalsПродолжительность: 00:45:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D2C00F8710B402AA565E9896B74BE8E22321474
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1654622   (204889) от 22.08.2023
 
 Volatile Ways - 2 Albums (2020-2023) [FLAC|Lossless|WEB-DL|tracks] <Beatdown Hardcore, Metallic Hardcore, Female Vocals>
@@ -6,7 +35,7 @@ Volatile Ways - 2 Albums (2020-2023) [FLAC|Lossless|WEB-DL|tracks] <Beatdown Har
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204889.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Next - La Coleccion (1991) Compilation [FLAC|Lossless|image + .cue] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204874.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Jag Panzer - Dissident Alliance (1994) [FLAC|Lossless|image + .cue] <Heavy, Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204872.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Obscure Infinity - Into the Vortex of Obscurity (2019) [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204870.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Necroart - The Highest Law (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204866.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Samuel Keen - Metamorphosis (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard & Heavy>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204864.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Aeon Sable - Aenigma (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock, Hard Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204862.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Persevera - Genesis (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204860.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Eisbrecher - Es bleibt kalt°! (2023) 2CD, Compilation, 2003-2023, Sony Music Ca
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204788.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Edu Falaschi - Eldorado (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204760.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Phil Vincent - Divine Intervention (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204757.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Urban Project - All Up (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Progre
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204722.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Sky Cries Mary - Everything Goes Somewhere (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204714.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Asking Alexandria - Where Do We Go From Here? (2023) [FLAC|Lossless|WEB-DL|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204698.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Sky Cries Mary - Everything Goes Somewhere (2023) [MP3|320 Kbps] <Crossover Prog
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204663.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Heimdall - Hephaestus (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204653.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Rideout - Driven To Insanity (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204625.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Scatterbrain - Here Comes Trouble (1990) [FLAC|Lossless|image + .cue] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204618.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Asking Alexandria - Where Do We Go From Here? (2023) [MP3|320 Kbps] <Alt. Rock, 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204541.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Asking Alexandria - Where Do We Go From Here? (2023) [FLAC|24/96|tracks|WEB-DL] 
 >>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204490.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Daedric - Mortal (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Industrial Roc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204464.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Manntra - Kreatura (2022) [FLAC|24/44.1|tracks|WEB-DL] <Metal, Alternative Metal
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204423.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Augurium - Unearthly Will (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204381.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Lions at the Gate (ex. El Nino) - The Excuses We Cannot Make (2023) [FLAC|24/44.
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204321.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ T. Rex - Elemental Child... Live (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204291.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ T. Rex - Elemental Child... Live (2020) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D36126F979110455E55853E5969F6A8674FC3A00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655392   (204264) от 26.08.2023
-
-Seraina Telli - Addicted To Color (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Hard Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Song For The Girls [00:03:06]
-02. Monkey & Zookeeper [00:03:01]
-03. Left Behind [00:03:10]
-04. Addicted To Color [00:03:56](   Читать дальше...   )Жанр: Alternative, Hard Rock, Female VocalПродолжительность: 00:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60EFC43EAB8E0FC2B76E8E5F14771FCD28D57B4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

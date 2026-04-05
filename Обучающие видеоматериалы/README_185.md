@@ -1,3 +1,29 @@
+###  Публикация: 1537940   (249942) от 18.03.2022
+
+CGMA, Johannes Richter | VEX in Houdini with Johannes Richter (2019) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249942.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс представляет собой комплексное введение в использование VEX в Houdini. Изучаемые темы включают в себя: внедрение деформаторов столкновений, сглаживание алгоритмами Лапласа и Таубина, шум Перлина и реализацию своего собственного шума fBM (дробное броуновское движение), различные шейдеры на VEX, манипуляции с объемами, пирокластический шум, эрозию террейнов (   Читать дальше...   )Производство: CGMAЖанр: СимуляцияЯзык озвучки: Русский (отдельным файлом)Продолжительность: 17:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89F61A7BC0A5C379649EFF5AC689682502CAB4A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1537758   (249931) от 18.03.2022
 
 Gumroad, Chris Legaspi | Shading Techniques in Photoshop (2016) PCRec [EN, RU]
@@ -6,7 +32,7 @@ Gumroad, Chris Legaspi | Shading Techniques in Photoshop (2016) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249931.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ CGcircuit, Tyler Bay | Houdini For The Artist Modeling I (2019) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249780.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ CGMA, Adam Swaab | Abstract FX in Houdini (2019) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249779.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Helloluxx, Rich Nosworthy | Houdini In Bloom (2021) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249765.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Junichiro Horikawa | VEX for Algorithmic Design Part 1-6 (2020-2021) PCRec [EN, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249751.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ CGMA, Ben Keeling | Advanced Substance for Environment Art (2020) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249749.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Wingfox, Amit Ginni Patpatia | Intro to Unreal Lighting (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249717.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Bandband, Мария Галина и др. | Литературная масте
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249710.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ Rebelway, Sjors De Laat | The Basics of Substance Designer for Realtime FX (2021
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249708.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ hipflask, Fraser Shiers | Houdini Made Easy The Core Essentials (2019) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249695.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249691.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ Konsa, Ровшан Мамедкулиев | Классическая гитар
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249534.jpg" />
 </div>
 
 
@@ -327,7 +353,7 @@ Konsa, Максим Ярушкин | Фингерстайл специи. Кур
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249524.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ Konsa, Марина Юракова | Лёгкие пьесы для фортеп
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249516.jpg" />
 </div>
 
 
@@ -381,7 +407,7 @@ Konsa, Ира Александрова | Классическая гитара (
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249512.jpg" />
 </div>
 
 
@@ -409,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249495.jpg" />
 </div>
 
 
@@ -438,7 +464,7 @@ GoFingerstyle, Максим Ярушкин | Аккордовая камасут
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249484.jpg" />
 </div>
 
 
@@ -467,7 +493,7 @@ GoFingerstyle, Максим Ярушкин | Техника Фингерстай
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249474.jpg" />
 </div>
 
 
@@ -496,7 +522,7 @@ Enterclass, Татьяна Каштальян | Нарциссы пастель�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249430.jpg" />
 </div>
 
 
@@ -523,7 +549,7 @@ Unreal Engine, Paulo Souza | Profiling and Optimization in UE4 | Unreal Indie De
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249391.jpg" />
 </div>
 
 
@@ -550,7 +576,7 @@ Epic Games, Wes Bunn | UMG UI Inventory Unreal Engine (2014) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249387.jpg" />
 </div>
 
 
@@ -576,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248677.jpg" />
 </div>
 
 
@@ -603,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248675.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248671.jpg" />
 </div>
 
 
@@ -659,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248670.jpg" />
 </div>
 
 
@@ -670,32 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B2683C6BDC3519F0E24D3EDECCCCBC055EF5EE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833992   (248612) от 02.11.2025
-
-Школа критического мышления, Никита Непряхин | Критическое мышление (2020) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Психология и саморазвитие (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248612.jpg" />
-</div>
-
-
-###  Подробнее
-
-Школа критического мышления была основана культовым бизнес-тренером, писателем, исследователем теории аргументации Никитой Непряхиным. Школа занимается исследованием и популяризацией одной из самых актуальных компетенций современного делового человека – критического мышления. Сильная методологическая база, научный, но при этом прикладной, подход, самые компетентные (   Читать дальше...   )Производство: Школа критического мышленияЖанр: видеокурс, обучающий курс, психология, саморазвитие, логикаЯзык озвучки: русскийПродолжительность: 06:02:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34AE41CF66E2BA66F4CE0667B2191A914AF13783
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Sandra - Greatest Hits (2008) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88048.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ Chilly - We Are The Popkings ... And Other Hits Of (2011) [MP3|320 кб/с]<Elec
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87791.jpg" />
 </div>
 
 
@@ -76,7 +76,7 @@ The Overtones - Gambling Man (2012) [MP3|~245 кб/с (V0)]<Pop, Doo-Wop, Vocal 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87723.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Annalisa - Mentre Tutto Cambia (2012) [MP3|320 кб/с]<Italian Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87529.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ Mozzart - Money (The Maxi-Singles Collection) (2007) [MP3|320 кб/с]<Italo-Dis
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85879.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Samantha Fox - Greatest Hits (2009) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85505.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Beverley Craven - Promise Me - The Best Of Beverley Craven (2011) [MP3|320 кб/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84921.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Katy Perry - Teenage Dream-The Complete Confection (2012) [MP3|320 кб/с]<Pop,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84339.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ Madonna - MDNA (Deluxe Edition) (2012) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84183.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Madonna - MDNA (2012) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84120.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ VA - Назад в 80-e Collection (2012) [MP3|320 kbps]<Disco | Pop | Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83948.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ Stefanie Heinzmann - Stefanie Heinzmann (2012) [MP3|320 кб/с]<Soul, Indie Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83651.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Michael Bolton - Gems: The Very Best Of (2012) [MP3|320 кб/с]<Pop-Rock | Ball
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83459.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Revolver - Let Go (2012) [MP3|320 кб/с]<Indie Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82798.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ ABBA - Gold: Greatest Hits (1993) [MP3|320 кб/с]<Pop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82564.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Bad Boys Blue - All The Best (2012) [MP3|320 кб/с]<Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82318.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Adam Lambert - Glam Nation Live (2011) [MP3|320 kbps]<Pop-Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82049.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Pink - Can't Take Me Home (2000) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81805.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Thomas Anders & DJ Eurodisco - The Fine Soldier - PART 1-2 (2012) [MP3|320 кб/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81450.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81425.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ Mr.President - Golden Super Hits (2000) [MP3|320 кб/с]<Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81385.jpg" />
 </div>
 
 
@@ -740,7 +740,7 @@ Ice MC - Disco Collection (2001) [MP3|320 кб/с]<Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81043.jpg" />
 </div>
 
 
@@ -775,7 +775,7 @@ Alphaville - 18 Legendary Hits (2003) [MP3|320 кб/с]<Pop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81030.jpg" />
 </div>
 
 
@@ -810,7 +810,7 @@ Fancy - The Original Hit Collection (2007) [MP3|320 кб/с]<Disco, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80961.jpg" />
 </div>
 
 
@@ -845,7 +845,7 @@ ABBA - Collected (2011) [MP3|320 кб/с]<Pop, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80695.jpg" />
 </div>
 
 
@@ -880,7 +880,7 @@ Mylene Farmer - 8 альбомов (1986-2010) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80282.jpg" />
 </div>
 
 

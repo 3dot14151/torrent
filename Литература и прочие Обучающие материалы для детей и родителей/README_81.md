@@ -1,3 +1,30 @@
+###  Публикация: 751972   (943158) от 01.02.2014
+
+студия PIXAR | Приключения Флика (1999) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943158.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новеллизация по мотивам мультфильма «Bug’s Life», студия PIXAR.
+ Вы помните фильм «Великолепная семерка»? И должно же было так случиться, чтобы похожая история произошла и с муравьями…Жанр: СкзкаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8733EABBE855913E98091B3909B20C5DA7A3C4C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1091560   (943144) от 09.01.2017
 
 Юрий Разумовский | Наперегонки (1959) [PDF, DJVU]
@@ -6,7 +33,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943144.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942624.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942523.jpg" />
 </div>
 
 
@@ -87,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942518.jpg" />
 </div>
 
 
@@ -114,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942357.jpg" />
 </div>
 
 
@@ -142,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942264.jpg" />
 </div>
 
 
@@ -168,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941975.jpg" />
 </div>
 
 
@@ -194,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941765.jpg" />
 </div>
 
 
@@ -220,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941760.jpg" />
 </div>
 
 
@@ -246,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941665.jpg" />
 </div>
 
 
@@ -275,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941576.jpg" />
 </div>
 
 
@@ -301,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941473.jpg" />
 </div>
 
 
@@ -327,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941446.jpg" />
 </div>
 
 
@@ -357,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941409.jpg" />
 </div>
 
 
@@ -383,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941248.jpg" />
 </div>
 
 
@@ -411,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941237.jpg" />
 </div>
 
 
@@ -438,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940336.jpg" />
 </div>
 
 
@@ -466,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940242.jpg" />
 </div>
 
 
@@ -492,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940221.jpg" />
 </div>
 
 
@@ -518,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939673.jpg" />
 </div>
 
 
@@ -546,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939039.jpg" />
 </div>
 
 
@@ -572,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938803.jpg" />
 </div>
 
 
@@ -599,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938576.jpg" />
 </div>
 
 
@@ -625,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938469.jpg" />
 </div>
 
 
@@ -654,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938369.jpg" />
 </div>
 
 
@@ -667,33 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62C772AAE9216CC76EF869DBE3F2055FFC56FF08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984676   (938359) от 09.02.2016
-
-Джейкоб Тейтельбаум, Дебора Кеннеди | Как отучить ребенка от сладкого. Проверенная, безопасная и простая программа (2016) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Логопедия, Психология, Педиатрия
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938359.jpg" />
-</div>
-
-
-###  Подробнее
-
-Научно обоснованная и проверенная программа, которая поможет исключить сахар из рациона вашего ребенка.
-Диета современного ребенка содержит, как правило, много сахара: во фруктовом соке, шоколадном молоке, сладких мюсли и батончиках, газированной воде и фастфуде, не говоря про печенье и конфеты. Очень многие продукты содержат "скрытый сахар" (например, (   Читать дальше...   )Жанр: ПсихологияФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4E1C9ED2E118EB8B8AA318C67AAE815E9F51C05
 ```
 
 https://mybot314.ru/tekegram_catalog/

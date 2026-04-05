@@ -1,3 +1,55 @@
+###  Публикация: 1503489   (819493) от 19.10.2021
+
+AirFoil+Airfoil Satellite 5.10.5 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819493.jpg" />
+</div>
+
+
+###  Подробнее
+
+AirFoil – специальное программное обеспечение, позволяющее транслировать музыку с любого Mac или PC на AirPort Express, AppleTV, iPhone, iPod Touch, либо на другой компьютер, работающий на базе любой операционной системы. Стоит отметить, что такой же функцией обладает и iTunes, но здесь имеется существенное отличие – iTunes способен передать только ту музыку, которую (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.10.2021Разработчик: Rogue Amoeba Software, IncПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:983017CF7305951452CC89AE5537A22D23316BFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007892   (819447) от 16.04.2016
+
+Flux 6.0.17 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819447.jpg" />
+</div>
+
+
+###  Подробнее
+
+Flux является передовым программным обеспечением для веб-дизайнеров, создающих сайты на XHTML и CSS. На западе Flux называют убийцей Dreamweaver. Флюкс может оказаться полезной тем, кто тыкал и пытался что-то сделать в iWeb, но не имеет терпения почитать книжек и запустить, например, Coda или Textmate. Flux поддерживает наиболее распространенные на сегодняшний день (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 14 апреля 2016Разработчик: The Escapers Ltd.Поддерживаемая ОС: Mac OS X 10.11 +Язык интерфейса: Русский, Английский, Испанский,  Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:260C23C20D4F299C4A6399A97A3297F12788862E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007901   (819313) от 16.04.2016
 
 Pomodoro Time Pro 1.2 [En]
@@ -6,7 +58,7 @@ Pomodoro Time Pro 1.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819313.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ PriceWatcher 1.2.33 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819287.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ PDFpenPro 8.3.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819263.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ Accenssible 1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819254.jpg" />
 </div>
 
 
@@ -117,7 +169,7 @@ Diagrammix 2.16 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819035.jpg" />
 </div>
 
 
@@ -143,7 +195,7 @@ SMART Utility 3.2.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818989.jpg" />
 </div>
 
 
@@ -170,7 +222,7 @@ Clear Day - (Formerly Weather HD) 3.1.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818928.jpg" />
 </div>
 
 
@@ -199,7 +251,7 @@ RealVNC Enterprise 5.3.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818826.jpg" />
 </div>
 
 
@@ -225,7 +277,7 @@ PullTube 0.9.9 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816906.jpg" />
 </div>
 
 
@@ -254,7 +306,7 @@ DxO PhotoLab 5 ELITE Edition 5.0.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815966.jpg" />
 </div>
 
 
@@ -281,7 +333,7 @@ Polarr Photo Editor 1.4.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815688.jpg" />
 </div>
 
 
@@ -310,7 +362,7 @@ PDFpenPro 12 v12.0.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815557.jpg" />
 </div>
 
 
@@ -338,7 +390,7 @@ Pimp Your Screen / Экран На Прокачку 2.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815495.jpg" />
 </div>
 
 
@@ -367,7 +419,7 @@ Hardware Monitor 5.54 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815418.jpg" />
 </div>
 
 
@@ -395,7 +447,7 @@ Logic Pro X 10.5.0 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814936.jpg" />
 </div>
 
 
@@ -421,7 +473,7 @@ Coolorus Mac & Coolorus for Fl and Ps 1.3.1, 2.0.1, 2.5.7 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814701.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ Affinity Designer 1.5.5 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814628.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ Awaken 6.4.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814197.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ Espresso 5.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_814189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814189.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ Capture One 21 Pro Pro 4 v14.4.1.16 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813845.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ AV Recorder & Screen Capture 1.5.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813570.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ Suite for iWork: Themes for Keynote, Templates for Pages and Numbers 9.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813249.jpg" />
 </div>
 
 
@@ -616,7 +668,7 @@ Acronis True Image 2016 (2.0.6077) [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812957.jpg" />
 </div>
 
 
@@ -645,7 +697,7 @@ Paragon NTFS for Mac OS X 8.0 [Rus]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812488.jpg" />
 </div>
 
 
@@ -659,60 +711,6 @@ Paragon NTFS for Mac OS XTM - это низкоуровневый драйвер
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504418   (812413) от 23.10.2021
-
-Keep It 1.11.5 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создавайте заметки со встроенными стилями, которые хорошо выглядят и хорошо читаются на всех ваших устройствах. Заметки могут содержать контрольные списки, маркированные и пронумерованные списки, изображения, ссылки и другие вложения.Тип издания: macOS SoftwareРелиз состоялся: 21.10.2021Разработчик: Reinvented SoftwareПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Арабский и  Иврит
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC2E07163EE5E97590978637EB33581385216204
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504407   (812395) от 23.10.2021
-
-Color Code Copy 1.3.3 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Копирование цветовых кодов буфера обмена в различных форматах (#Hex, Objective-C UIColor, Swift UIColor, Objective-C NSColor, Swift NSColor).
-Выберите в настройках код копирования по умолчанию.
-• Дважды щелкните мышью за пределами средства выбора, который копирует код и закрывает окно.Тип издания: macOS SoftwareРелиз состоялся: 20.10.2021Разработчик: Albert PartiПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF66F1ED0911AD41E28F8B000E2B199E92A2BAB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

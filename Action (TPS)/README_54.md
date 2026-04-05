@@ -6,7 +6,7 @@ Gears of War Reloaded (2025) [Ru/Multi] (1.0.1.3816947) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_922.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ LOLLIPOP CHAINSAW RePOP (2024) [Ru/Multi] (1.15) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_915.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Shadow of the Tomb Raider (2018) [Ru/Multi] (1.0.1.0/dlc) License GOG [Definitiv
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_658.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Rise of the Tomb Raider (2016) [Ru/Multi] (1.0.1.0/dlc) License GOG [20 Year Cel
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_649.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Metal Gear Solid Delta: Snake Eater (2025) [Ru/Multi] (1.1.4/dlc) Repack Decepti
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_622.jpg" />
 </div>
 
 

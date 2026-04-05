@@ -1,3 +1,148 @@
+###  Публикация: 1387907   (790659) от 03.06.2020
+
+Foreigner & Aerosmith - FM Broadcasts (2020) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790659.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Aerosmith - Dream On (Live)
+2. Aerosmith - Love In An Elevator (Live)
+3. Foreigner - Cold As Ice (Live)
+4. Foreigner - I Need You (Live)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:13:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF3DB93657D523A40B4426B9AED81A7547FDBE48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387906   (790647) от 03.06.2020
+
+Дмитрий Губерниев - У микрофона (2020) [MP3|320 kbps] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790647.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный спортивный комментатор Дмитрий Губерниев представил свой сольный альбом, продюсером которого стал Кирилл Немоляев. "Новый альбом вышел! Ребята, мы это сделали! Мой полноценный музыкальный альбом на всех цифровых площадках. Огромное спасибо друзьям, музыкантам и группе "Легион", - написал Губерниев в своем инстаграме. Отметим, что у комментатора (   Читать дальше...   )01. Ветер биатлона (03:36)
+02. Птица (04:53)
+03. Руки прочь (03:53)
+04. Это ты (03:41)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:33:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B5D10505DD0E24F136100156340426C05762B70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387860   (790638) от 03.06.2020
+
+Bon Jovi & Guns N' Roses - FM Broadcasts (2020) [MP3|320 Kbps] <Hard Rock, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790638.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Bon Jovi - Never Say Die (Live)
+2. Guns N' Roses - Sweet Child O' Mine (Live)
+3. Guns N' Roses - Rocket Queen (Live)
+4. Bon Jovi - Livin' On A Prayer (Live)(   Читать дальше...   )Жанр: Hard Rock, RockПродолжительность: 01:14:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:936166F05FC63CE97F0691A0D23AECB0916E3969
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387864   (790626) от 03.06.2020
+
+ZZ Top & Van Halen - FM Broadcasts (2020) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790626.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. ZZ Top - Hi Fi Mama (Live)
+2. Van Halen - Panama (Live)
+3. Van Halen - Finish What You Started (Live)
+4. ZZ Top - Dust My Broom (Live)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E629D7EE815AD66F85A504BE87CDF9CB517EF07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202123   (790555) от 28.01.2018
+
+Hordak - Padre (2016) digipak [FLAC|Lossless|image + .cue] <Pagan Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ekleipsis - Devourer of Gods - 05:06
+02. Bloodline of the Wolves -04:29
+03. Soaring - 05:00
+04. Sol Sister -04:11(   Читать дальше...   )Жанр: Pagan Metal
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE25003D18C29DFD9E52839A2805419C7900B969
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202157   (790552) от 28.01.2018
 
 Tatir - Cave Of Ephyras... To The Infernal Fields (2012) [FLAC|Lossless|image + .cue] <Viking Black Metal>
@@ -6,7 +151,7 @@ Tatir - Cave Of Ephyras... To The Infernal Fields (2012) [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790552.jpg" />
 </div>
 
 
@@ -34,7 +179,7 @@ Mimicking Birds - Layers of Us (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie, Acou
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790545.jpg" />
 </div>
 
 
@@ -63,7 +208,7 @@ Stranger - The Bell (1985) Hot Blood Records [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790542.jpg" />
 </div>
 
 
@@ -92,7 +237,7 @@ Dio - Master Of The Moon (2005) Japanese Edition [FLAC|Lossless|image + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790530.jpg" />
 </div>
 
 
@@ -121,7 +266,7 @@ Sjodogg - Landscapes Of Disease And Decadence (2007) [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790523.jpg" />
 </div>
 
 
@@ -150,7 +295,7 @@ Sinbreed - IV (2018) Japan [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790519.jpg" />
 </div>
 
 
@@ -179,7 +324,7 @@ Radiant - Radiant (2018) Japan [FLAC|Lossless|image + .cue] <Melodic Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790516.jpg" />
 </div>
 
 
@@ -208,7 +353,7 @@ Tunng - Songs You Make At Night (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790515.jpg" />
 </div>
 
 
@@ -237,7 +382,7 @@ Orphaned Land - Unsung Prophets & Dead Messiahs (2018) Limited Edition [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790504.jpg" />
 </div>
 
 
@@ -266,7 +411,7 @@ Alter Bridge - AB III (2010) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Ha
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790487.jpg" />
 </div>
 
 
@@ -295,7 +440,7 @@ Metal Church - Damned If You Do (2018) 2CD Japan [FLAC|Lossless|image + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790486.jpg" />
 </div>
 
 
@@ -322,7 +467,7 @@ Bowes & Morley - 2 альбома (2002-2004) [FLAC|Lossless|image + .cue] <Hard
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790482.jpg" />
 </div>
 
 
@@ -351,7 +496,7 @@ Crucified Barbara - 4 albums (2005-2014) [FLAC|Lossless|image + .cue | tracks + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790481.jpg" />
 </div>
 
 
@@ -380,7 +525,7 @@ Warfield - Master Executor (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790447.jpg" />
 </div>
 
 
@@ -409,7 +554,7 @@ Dark Heart - Dark Heart (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, NWOBH
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790446.jpg" />
 </div>
 
 
@@ -438,7 +583,7 @@ The Bangles - The Essential Bangles (2004) Compilation [FLAC|Lossless|tracks + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790445.jpg" />
 </div>
 
 
@@ -467,7 +612,7 @@ Daniel Gauthier - Altitude 16425 - Someone (2021) 2xCD [FLAC|Lossless|image + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790405.jpg" />
 </div>
 
 
@@ -494,7 +639,7 @@ Mike Onesko's Guitar Army - The Last Solo (2021) [FLAC|Lossless|tracks + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790389.jpg" />
 </div>
 
 
@@ -523,7 +668,7 @@ Be'lakor - Coherence (2021) [FLAC|Lossless|tracks + .cue] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790386.jpg" />
 </div>
 
 
@@ -552,7 +697,7 @@ The Three Tremors - The Three Tremors (2019) [FLAC|Lossless|image + .cue] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790335.jpg" />
 </div>
 
 
@@ -582,7 +727,7 @@ Robert Plant & Alison Krauss - Raise The Roof (2021) Deluxe Edition [MP3|320 Kbp
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790271.jpg" />
 </div>
 
 
@@ -596,151 +741,6 @@ Robert Plant & Alison Krauss - Raise The Roof (2021) Deluxe Edition [MP3|320 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0E6E08F58EFAD793E2E5086ED9FDDE65C37DF2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510803   (790175) от 18.11.2021
-
-Sting - The Bridge (2021) Deluxe Edition [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rushing Water
-02. If It's Love
-03. The Book of Numbers
-04. Loving You(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25705CB7D862F162948815A462ABFCF67B5116DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510615   (790158) от 18.11.2021
-
-Judas Priest - 50 Heavy Metal Years Of Music (2021) 42xCD,  Box Set, Compilation, Limited Edition, Reissue, Sony Music [FLAC|Lossless|tracks + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790158.jpg" />
-</div>
-
-
-###  Подробнее
-
-JUDAS PRIEST выпустили огромный лимитированный box-set "50 Heavy Metal Years", куда вошли все их официальные студийные и концертные альбомы, а также 13 дисков с ранее не издававшимся материалом.CD - 1 - Rocka Rolla:
-01. One For The Road
-02. Rocka Rolla
-03. Winter(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 35:59:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13E1AD93FC372DDEF675E781E0FD237DC0B71CD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388157   (790130) от 04.06.2020
-
-Hole - Live Through This (1994) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Violet (3:24)
-02. Miss World (3:00)
-03. Plump (2:34)
-04. Asking For It (3:29)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:38:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86FF29BE25E6272F778A037F9598060906CA35E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387990   (790129) от 04.06.2020
-
-MC5 - Kick Out The Jams (1969) [FLAC|Lossless|tracks + .cue] <Rock, Garage Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ramblin' Rose (4:15)
-02. Kick Out The Jams (2:52)
-03. Come Together (4:29)
-04. Rocket Reducer No. 62 (Rama Lama Fa Fa Fa) (5:41)(   Читать дальше...   )Жанр: Rock, Garage RockПродолжительность: 00:40:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3879BC5B0E380457DCC30FC365EFC5DA8940D3BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388010   (790128) от 04.06.2020
-
-Gene Clark - White Light (1972) [FLAC|Lossless|tracks + .cue] <Rock, Folk Rock, Country Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Virgin (3:39)
-02. With Tomorrow (2:27)
-03. White Light (3:40)
-04. Because Of You (4:05)(   Читать дальше...   )Жанр: Rock, Folk Rock, Country RockПродолжительность: 00:51:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A82945E5D0AF3248C34DB54C4092B3A5B90140B
 ```
 
 https://mybot314.ru/tekegram_catalog/

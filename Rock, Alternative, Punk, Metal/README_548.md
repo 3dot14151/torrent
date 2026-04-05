@@ -1,3 +1,90 @@
+###  Публикация: 1313035   (528288) от 07.07.2019
+
+Bornholm - March for Glory and Revenge (2009) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Intro - Reconquering the Carpathians /02:22/
+02.Call of the Heathen Horns /04:47/
+03.From the Blackness of Aeons /05:19/
+04.Mournful Hymns /05:03/(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:46:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0878F25ED0293884C54D6C94DC288758C8B21A81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313007   (528286) от 07.07.2019
+
+Heir Apparent - The View from Below (2018) [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Man in the Sky (5:35)
+02. The Door (5:50)
+03. Here We Aren't (5:44)
+04. Synthetic Lies (4:59)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:45:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2828A2785F5DEF8E63FAA33B749D81C224107E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313073   (528283) от 07.07.2019
+
+Masters of Reality - Welcome To The Western Lodge (1999) [FLAC|Lossless|tracks + .cue] <Space Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Shit (2:57)
+ 02. Moriah (3:34)
+ 03. The Great Spelunker (3:11)
+ 04. Time To Burn (2:36)(   Читать дальше...   )Жанр: Space Rock, Psychedelic RockПродолжительность: 00:38:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C9601205DDA4782C7BED61F5382F601F96285C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1052417   (528246) от 14.09.2016
 
 А Тоrturеd Sоul - Оn Тhis Еvil Night (2016) [FLAC|Lossless|image + .cue] <Heavy Metal, Dark Metal>
@@ -6,7 +93,7 @@
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528246.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Zаrра - Disрuеstоs Раrа Аtасаr (2016) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528245.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Serious Black - Mirrorworld (2016) Limited Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528191.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Gloryful - End Of The Night (2016) [FLAC|Lossless|image + .cue] <Heavy Metal, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528187.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Ines - The Flow (1999) [FLAC|Lossless|image + .cue]<Neo-Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528138.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Lanfear - The Code Inherited (2016) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528080.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Tainted Nation - On The Outside (2016) [FLAC|Lossless|image + .cue] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528073.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ VA - 100 Rock'n'Roll Hits (1992) 4 CD, Box Set [FLAC|Lossless]<Rock'n'Roll>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528049.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Alcatrazz - The Ultimate Fortress Rock Set (2016) 5CD Box Set [FLAC|Lossless|ima
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527951.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527918.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Wolf Hoffmann (ex.Accept) - 2 Albums (1997 - 2016) [FLAC|Lossless|image + .cue]<
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527851.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Criminal - Cancer (2001) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527784.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Leo Sayer - Thunder In My Heart (1977) Remastered, 2002, RPM Records [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527663.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Pentakill - II: Grasp of the Undying (2017) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527656.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Pink Floyd - The Dark Side of the Moon (1973) 2CD Unofficial Release, 2011, EMI 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527530.jpg" />
 </div>
 
 
@@ -442,7 +529,7 @@ Ariadna Project - Nоvus Мundus (2016) Jараnеsе Еditiоn [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527378.jpg" />
 </div>
 
 
@@ -471,7 +558,7 @@ Moody Marsden - Ozone Friendly (1997) [FLAC|Lossless|image + .cue] <Rock, Blues 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527370.jpg" />
 </div>
 
 
@@ -500,7 +587,7 @@ Lordi - Monstereophonic (Theaterror vs. Demonarchy) (2016) [MP3|320 Kbps] <Heavy
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527313.jpg" />
 </div>
 
 
@@ -529,7 +616,7 @@ Ghost - Popestar (2016) EP [MP3|320 Kbps] <Heavy Metal, Occult Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527312.jpg" />
 </div>
 
 
@@ -558,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527277.jpg" />
 </div>
 
 
@@ -587,7 +674,7 @@ Nordicwinter - Threnody (2007) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527224.jpg" />
 </div>
 
 
@@ -616,7 +703,7 @@ Pater Tenebrarum - Of Gods and Madmen (2022) [FLAC|Lossless|WEB-DL|tracks] <Melo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527196.jpg" />
 </div>
 
 
@@ -645,7 +732,7 @@ Pagan Rites - Embrace the Torments of Hell (2010) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527195.jpg" />
 </div>
 
 
@@ -659,93 +746,6 @@ Pagan Rites - Embrace the Torments of Hell (2010) [FLAC|Lossless|image + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D60AB75EA84B4F04BD3D86ED1A421E6DDE8162D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559049   (527192) от 24.06.2022
-
-Cân Bardd (Can Bardd) - Devoured by the Oak (2021) Limited edition [FLAC|Lossless|image + .cue] <Epic Black metal, Folk metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527192.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Echoes of the Moss (05:02)
-2.Une couronne de branches (10:31)
-3.Devoured by the Oak Pt.I  (08:34)
-4.Devoured by the Oak Pt.II (08:50)(   Читать дальше...   )Жанр: Athmospheric/Epic Black metal, Folk metalПродолжительность: 57:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C07A72B247D1945059CD92D6E8FFC81D56C081B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559028   (527186) от 24.06.2022
-
-Sinsid - In Victory (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Northern March (Intro) (2:13)
-02. Iron Heart (5:24)
-03. Metalheads (4:11)
-04. Secret of the Beast (4:24)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BA0C86DEBEAFF3282E3CC5097880F8669F09EDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559226   (527185) от 24.06.2022
-
-Black Rose - WTF (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crazy Mental Bad
-02. Devils Candy
-03. WTF
-04. Pain(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:55:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:771B1C5F40E797C68B012A4D88C605E3A915236F
 ```
 
 https://mybot314.ru/tekegram_catalog/

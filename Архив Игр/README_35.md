@@ -1,3 +1,57 @@
+###  Публикация: 527700   (574480) от 27.07.2012
+
+Angry Birds Space [En] (L/1.2.2) 2012
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Angry Birds Space отправляется в космос! После того, как гигантский коготь похищает их яйца, Сердитые птицы преследуют его в червоточину и двигаются по странной новой галактике – окруженной космическими свиньями! К счастью у Сердитых птиц есть собственная сверхдержава... Angry Birds Space включает в себя 60 межзвездных уровней на планетах и в невесомости, приводящей к захватывающему геймплею с головоломками, совершенно новыми птицами, совершенно новыми супердержавами и целой галактикой для исследования. Небо больше не предел!
+(   Читать дальше...   )Тип издания: ЛицензияЖанр: Arcade / Logic (Puzzle)Язык озвучки: -/-Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F441D7AA5F1B3095514E8FC925F0BDA66510B5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527962   (574312) от 27.07.2012
+
+Inversion [En] (L) 2012 | SKIDROW
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574312.jpg" />
+</div>
+
+
+###  Подробнее
+
+События Inversion разворачиваются в будущем. На Землю вторгся таинственный и могущественный враг, перед которым и люди, и современное оружие оказались беспомощны. Вскоре повсюду на планете образовались аномальные зоны, где изменяется вектор притяжения или вовсе царит невесомость.
+Полицейский Дэвис Рассел и его друг Лео Дельгадо отправляются в смертельно опасное путешествие по ввергнутому в хаос мегаполису, чтобы отыскать пропавшую дочь Рассела. Противопоставить захватчикам отчаянные герои могут лишь изобретательность и смекалку… Однако, по счастью, в их руки попадает главное оружие противника — Gravlink, устройство для управления гравитацией.(   Читать дальше...   )Тип издания: ЛицензияРазработчик: Saber InteractiveЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:561E5033E8349AB1E4B5F59F407D048998A63C85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 527804   (574302) от 27.07.2012
 
 Dead Drunk / Симулятор пьяного сисадмина / Пьяница [En] (WebRip/1.4) 2012
@@ -6,7 +60,7 @@ Dead Drunk / Симулятор пьяного сисадмина / Пьяниц
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_574302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_574302.jpg" />
 </div>
 
 
@@ -35,7 +89,7 @@ Inversion [Ru/En] (RePack/1.0.1) 2012 l VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574301.jpg" />
 </div>
 
 
@@ -62,7 +116,7 @@ Chernobyl Terrorist Attack / Чернобыль: Зона отчуждения [
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574294.jpg" />
 </div>
 
 
@@ -88,7 +142,7 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl / S.T.A.L.K.E.R.: Тень Чернобыл�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574285.jpg" />
 </div>
 
 
@@ -115,7 +169,7 @@ Crazy Machines [Wii] [PAL] [EN/DE] (2010)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_574212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_574212.jpg" />
 </div>
 
 
@@ -142,7 +196,7 @@ Kenshi (2018) [Ru/Multi] (1.0.21) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573880.jpg" />
 </div>
 
 
@@ -168,7 +222,7 @@ The Solus Project (2016) [Ru/Multi] (1.021) Repack R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573867.jpg" />
 </div>
 
 
@@ -194,7 +248,7 @@ Galactic Civilizations III (2015) [Ru/Multi] (1.81/dlc) License POSTMORTEM
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573862.jpg" />
 </div>
 
 
@@ -220,7 +274,7 @@ Inversion (RePack/1.0.1) [Ru] 2012 l R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573201.jpg" />
 </div>
 
 
@@ -248,7 +302,7 @@ Inversion (RePack) [Ru] 2012 l SEYTER
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573056.jpg" />
 </div>
 
 
@@ -276,7 +330,7 @@ Etherlords 2 (2003) [Ru/Multi] (2.0.0.3) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573020.jpg" />
 </div>
 
 
@@ -304,7 +358,7 @@ Inversion (RePack) [Ru/En] 2012 l R.G. Revenats
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572915.jpg" />
 </div>
 
 
@@ -332,7 +386,7 @@ Prototype 2 (RePack/1.0) [Ru] 2012 l DangeSecond
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572734.jpg" />
 </div>
 
 
@@ -360,7 +414,7 @@ Inversion (RePack/5.48.0.0) [Ru] 2012 l Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572594.jpg" />
 </div>
 
 
@@ -388,7 +442,7 @@ Prototype 2 (RePack) [Ru] 2012 | R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572154.jpg" />
 </div>
 
 
@@ -414,7 +468,7 @@ Prototype 2 (Steam-Rip/1.0) [Ru/En/Multi7] 2012 l R.G. Origins [Без табл�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572150.jpg" />
 </div>
 
 
@@ -442,7 +496,7 @@ Prototype 2 (L) [Mutli2/-] 2012 l FLT
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572145.jpg" />
 </div>
 
 
@@ -470,7 +524,7 @@ Prototype 2 (RePack/1.0) [Ru/En] 2012 l VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572055.jpg" />
 </div>
 
 
@@ -498,7 +552,7 @@ Prototype 2 (RePack/1.0) [Ru] 2012 l SHARINGAN
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572048.jpg" />
 </div>
 
 
@@ -526,7 +580,7 @@ Prototype 2 (Crack) [Multi12/+] 2012 | FLT
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572030.jpg" />
 </div>
 
 
@@ -553,7 +607,7 @@ Kingdoms of Amalur: Reckoning [Ru/En] (RePack/1.0.0.2) 2012 l R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572022.jpg" />
 </div>
 
 
@@ -579,7 +633,7 @@ Prototype 2 (Lossless RePack) [Ru] 2012 l R.G. World Games
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571999.jpg" />
 </div>
 
 
@@ -607,7 +661,7 @@ Cities: Skylines (2015) [Ru/Multi] (1.11.1-f4/dlc) Repack R.G. Catalyst [Deluxe 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571916.jpg" />
 </div>
 
 
@@ -633,7 +687,7 @@ Dawn of Man (2019) [Ru/Multi] (1.1.1) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571892.jpg" />
 </div>
 
 
@@ -644,58 +698,6 @@ Dawn of Man — уникальная историческая стратегия
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCF9A9FA1C08C395293318CD5BDB6F4BDE5EA53E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 528742   (570382) от 29.07.2012
-
-Stolen (RePack/1.0) [Ru/En] 2005 | VANSIK
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570382.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Городе, погрязшем в хаосе и коррупции, даже герои давно перебрались по ту сторону закона. Прелестная Аня Романова - первоклассный вор, оснащенный по последнему слову техники. Луи Палмер - ее верный друг и незаменимый координатор. Вместе они промышляют искусным воровством. Едва не попавшись на последнем задании, Аня жаждет расквитаться с таинственной шпионкой Breeze, подставившей ее, а заодно и с тем смельчаком, что посмел бросить вызов звездному дуэту... (   Читать дальше...   )Тип издания: RepackЖанр: Action (Shooter) / 3D / 3rd Person / StealthЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DE4CF02F11AB2FCC91C488F213047D94C121129
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 528560   (570168) от 29.07.2012
-
-Minecraft (RePack/1.3 pre release) [Ru/Multi56] 2012 | YaKrevetko
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570168.jpg" />
-</div>
-
-
-###  Подробнее
-
-Minecraft — это строительная игра жанра «песочница», вдохновлённая Infiniminer, Dwarf Fortress и Dungeon Keeper и созданная Маркусом Перссоном, основателем Mojang AB. Игра позволяет игрокам создавать и разрушать различные блоки и использовать предметы в трёхмерной окружающей среде. Игрок управляет персонажем, который может разрушать или устанавливать блоки, формируя фантастические структуры, создания и художественные работы в одиночку или коллективно с другими игроками на различных многопользовательских серверах в разных игровых режимах.(   Читать дальше...   )Тип издания: RePackЖанр: ПесочницаЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский, Мульти56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83A4F3AB1EC71F35CA558D55A8659F48188ECCB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

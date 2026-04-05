@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1863154   (1063797) от 
+
+4K Video Downloader + 26.0.8.0295 [Multi/Ru]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой загрузчик видео, ничего лишнего. Видеохостинги сделали просмотр видео удобным и повсеместно доступным, но есть и очевидные минусы. Сейчас ролик на месте, а через час его удалят. Ваш друг из Европы может посмотреть запись, а для России она недоступна. Сегодня у вас есть «Интернет», а завтра планируется поездка в глушь без малейшего намёка даже на 3G. В общем, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.03.2026Разработчик: © 2024 OpenMedia OOOПоддерживаемая ОС: macOS (12+)Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:680420B322DEBE49B170E6A059FBBBD26B3C23DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1860782   (1062167) от 
 
 4K Video Downloader + 26.0.5.0287 [Multi/Ru]
@@ -7,7 +33,7 @@ https://t.me/izofen
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062167.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062166.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062154.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062013.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057891.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1055876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055876.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054795.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052708.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047183.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ Tipard DVD Cloner for Mac 6.2.38 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045111.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ AnyMP4 Mac Video Converter Ultimate for Mac 9.2.38 [Rus/Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044697.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ AnyMP4 MXF Converter for Mac 8.2.22 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044649.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ Apeaksoft Video Converter Ultimate for Mac 2.2.32 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044639.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ AnyMP4 DVD Converter for Mac 8.2.18 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044626.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ Bigasoft iMovie Converter for Mac 5.7.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043855.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ TunePat Any Audiobook Converter 1.1.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039932.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ vGuruSoft Video Player 1.6.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039931.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ HD Video Converter Movavi 21.0.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039479.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ Smart Tunes 1.1.14 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037525.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037479.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ Vidmore Player 1.0.12 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037474.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ Macsome iTunes Converter 3.1.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035734.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ NoteBurner iTunes DRM Audio Converter 3.1.0 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035432.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ MediaHuman Youtube Downloader 3.9.9.52 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035189.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ Macsome Spotify Downloader 2 v2.1.1 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033019.jpg" />
 </div>
 
 
@@ -649,32 +675,6 @@ Spotify Downloader для Mac - это профессиональный Music Co
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0828D2B47881A6AE4EF7AF30EB29F5062ACB6D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446488   (1032732) от 09.02.2021
-
-KPlayer 2.1.0 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032732.jpg" />
-</div>
-
-
-###  Подробнее
-
-KPlayer - простой и надежный видеоплеер для Mac OS с поддержкой субтитров и аппаратного ускорения H.264/HEVC, для более гладкого воспроизведения видео в формате 1080p и 4K.Тип издания: macOS SoftwareРелиз состоялся: 24.11.2020Разработчик: BoHoon KimПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10F8A67127C3D45C1211BFFA9466F82A98EA0091
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ NG. Пирамиды смерти / Pyramids of Death (2005) HDTVRip [H.264/720p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_610028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_610028.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NG: Последние шаги Гитлера / Hitler's Last Stand (2018) HDTV
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609930.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Animal Planet: 100 миль в неизвестность / 100 Miles from Nowhe
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609182.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NG: Суперсооружения: Мегазаводы. Грузовики М�
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609051.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Discovery: Хаос в действии: кадры очевидцев / Chaos c
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608823.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608610.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608494.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608492.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608489.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608361.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Animal Planet: Живой или вымерший. Яванский тигр / E
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608279.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ NG: Египет с высоты птичьего полета / Egypt from Abov
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608274.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608245.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607586.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ BBC: Вся правда о вкусе / The Truth About Taste (2013) HDTV [H.26
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607520.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607510.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ NG: Рассвет человечества / Dawn of Humanity (2015) HDTV [H.26
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607420.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ NG: Растения - монстры ( Секс, наркотики и раст
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607337.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Discovery: 11 Сентября - Звонки из небоскрёбов / 9/11
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607319.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ NG: Путешествие к ядру Земли / Down to the Earth's core (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607164.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Discovery: Через магию к звёздам / The Pop Illusionist (El Mag
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607130.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ NGW: Самые опасные змеи в мире / World's deadliest snakes (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606889.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ BBC. История Жизни / BBC. Life Story (2014) (1-6 серии из 6) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606710.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Animal Planet. Дома на деревьях / Treehouse Masters (2013-2014) HD
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606578.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Animal Planet. Дома на деревьях / Treehouse Masters (2013) SATRip 
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606571.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ BBC. Океаны: Наша Голубая Планета / Oceans: Our Blue Pla
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606330.jpg" />
 </div>
 
 

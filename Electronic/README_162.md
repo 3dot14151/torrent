@@ -1,3 +1,61 @@
+###  Публикация: 1392086   (770691) от 23.06.2020
+
+VA - electronica2@*.lv (2004) Ingus Baušķenieka Ieraksti [FLAC|Lossless|tracks+.cue] <IDM, Techno, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cafe2 – Nothing Ever Intervenes (05:55)
+02. Craft B. – Stay Awake (2nd Edition) (07:46)
+03. Fee.nix-z – Roundtrip (07:29)
+04. Krīpis Tulo – Black Silk (05:33)(   Читать дальше...   )Жанр: IDM, Techno, ExperimentalПродолжительность: 01:19:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4F6223D647ADE0226968725F3F1CDB1EFC4A4B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016430   (770540) от 14.05.2016
+
+VA - Matura Party Mallorca (2016) [MP3|320 кб/с] <Club, House, Funky, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mind Strong - High Time (Del Mar Mix) 06:47
+02. Freeg - Stronger (Club Mix) (Feat. Flava & Stevenson & Johnny K. Palmer) 05:26
+03. Candy Shop - Feel It 04:45
+04. American Groove Junkies - Reach You (Radio Version) 03:33(   Читать дальше...   )Жанр: Club, House, Funky, ProgressiveПродолжительность: 03:32:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68F2744360F7F77CD87EAB266707F6FBA5A4C40C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1016181   (770537) от 14.05.2016
 
 VA - Ultimate Ibiza House 2016 Progressive Edition (2016) [MP3|320 кб/с] <House, Progressive House>
@@ -6,7 +64,7 @@ VA - Ultimate Ibiza House 2016 Progressive Edition (2016) [MP3|320 кб/с] <Hou
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770537.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Gate To Ibiza (The Opening Party 2016) (2016) [MP3|320 кб/с] <Dance, Ele
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770531.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Sexy Latin House - Hot Tribal Club Trax With a Blend of Latin Vibes (2016) 
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770450.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Workout Massive Music 2020 [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769840.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Dheeva (Asura & Lestesie) - Discography 2 Releases (2020) Multiversal Records, F
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769811.jpg" />
 </div>
 
 
@@ -150,7 +208,7 @@ VA - Cajmere - Wheels Of Steel Vol.1 (1998) [FLAC|Lossless|tracks + .cue] <Techn
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769770.jpg" />
 </div>
 
 
@@ -179,7 +237,7 @@ Jan Amit - Discography 19 Releases (2012-2020) Endless [SHF] Quest, SEALT [FLAC|
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769704.jpg" />
 </div>
 
 
@@ -205,7 +263,7 @@ VA - Ultimate Dub Style Techno, Vol. 1 (2016) [MP3|320 кб/с] <House, Tech Hou
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769696.jpg" />
 </div>
 
 
@@ -234,7 +292,7 @@ VA - Deep House Babes (2016) [MP3|320 кб/с] <House, Tech House, Deep House, E
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769687.jpg" />
 </div>
 
 
@@ -263,7 +321,7 @@ Soukie & Windish - Loom (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769683.jpg" />
 </div>
 
 
@@ -292,7 +350,7 @@ VA - Vocal Trance Hits 2016-02 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769554.jpg" />
 </div>
 
 
@@ -321,7 +379,7 @@ Darkhalo - Metamorph (2020) [FLAC|Lossless|WEB-DL|tracks] <Drum n Bass, IDM, Amb
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769386.jpg" />
 </div>
 
 
@@ -350,7 +408,7 @@ Viill & Aura Minimum - Full Harvest (2020) Modern Nature [FLAC|Lossless|WEB-DL|t
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769385.jpg" />
 </div>
 
 
@@ -376,7 +434,7 @@ Darkhalo - Discography 8 Releases (2009-2020) [FLAC|Lossless|WEB-DL|tracks] <Dru
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769341.jpg" />
 </div>
 
 
@@ -405,7 +463,7 @@ Blank & Jones - RELAX - Edition 12 (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Elec
 >>Downtempo, Ambient (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769334.jpg" />
 </div>
 
 
@@ -434,7 +492,7 @@ VA - Work Body Extreme Top Selection (2020) [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769236.jpg" />
 </div>
 
 
@@ -463,7 +521,7 @@ Black Hole - Ancient Curse (2020) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769233.jpg" />
 </div>
 
 
@@ -492,7 +550,7 @@ VA - Kiez Beats: Synthwave, Vol. 7 (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwa
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769231.jpg" />
 </div>
 
 
@@ -521,7 +579,7 @@ VA - Sunny Lax Presents: 20 Years Of Anjunabeats (2020) 3CD, DJ Mix [FLAC|Lossle
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769212.jpg" />
 </div>
 
 
@@ -550,7 +608,7 @@ Soul Button - Phantom Existence (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769105.jpg" />
 </div>
 
 
@@ -579,7 +637,7 @@ VA - Pure Bliss Vocals: Spring (2017) [MP3|320 Kbps] <Trance, Vocal Trance, Upli
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768759.jpg" />
 </div>
 
 
@@ -608,7 +666,7 @@ VA - Tales From Another World Vol.1 - South America (2019) [MP3|320 Kbps] <House
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768536.jpg" />
 </div>
 
 
@@ -637,7 +695,7 @@ Soul Button - Phantom Existence (Remix Edition) (2020) [FLAC|Lossless|WEB-DL|tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768487.jpg" />
 </div>
 
 
@@ -666,7 +724,7 @@ Emog - Cosmic Cruising Tunes (2020) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psy
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768480.jpg" />
 </div>
 
 
@@ -680,64 +738,6 @@ Emog - Cosmic Cruising Tunes (2020) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C9F3456FBDE3A68BE8F210845A9F6071B3B468E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393227   (768428) от 29.06.2020
-
-VA - Open Fields (2020) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psybient, Downtempo>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768428.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. GMO - Be Yourself (6:47)
-2. Tranonica; Fluxsense - Hypnotica (8:01)
-3. Sine - Entrance (5:26)
-4. Martin Nonstatic - Orcinus Orca (7:17)(   Читать дальше...   )Жанр: Psychill, Psybient, DowntempoПродолжительность: 57:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:919E1D63C62AEE40ED994C7C465A52DE5E22E683
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393219   (768354) от 29.06.2020
-
-VA - Voyager: Third Plateau (2020) [FLAC|Lossless|WEB-DL|tracks] <Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. HelixNebula - Over The City Of The Future (10:13)
-02. Artifact303 - Consequences (HelixNebula Remix) (09:56)
-03. Celestial Intelligence - Constant Motion (Median Project Remix) (09:21)
-04. Median Project - Flights in Dream and Reality (08:10)(   Читать дальше...   )Жанр: Goa TranceПродолжительность: 01:13:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9384A02BCE4B3816325B8C8801B894F4EBBFF07D
 ```
 
 https://mybot314.ru/tekegram_catalog/

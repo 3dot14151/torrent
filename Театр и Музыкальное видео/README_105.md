@@ -6,7 +6,7 @@
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297929.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297662.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297008.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296941.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296750.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ AC/DC - Live at River Plate (2009/2011) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296684.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ VA - Official UK Top 40 Video Chart (27-11-2015) WEB-DL [1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296560.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295563.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Queen - Live At The Rainbow '74 (2014) SD BDRemux [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295330.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295195.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295119.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Dream Theater - Live At Luna Park (2013) Blu-Ray [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294987.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ Flo Rida - Collection Video Clip ( 2010 - 2015) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294715.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Celine Dion - Live at Tokyo Dome (2018) DVD5 [custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294695.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ VA - Зимний марафон № 209: Дискотека с доставко
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294585.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294480.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293895.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Sting - 25 Years. Rough, Raw & Unreleased: Live at Irving Plaza  (2011) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293737.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ P J Harvey - On Tour Please Leave Quietly (2006) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293506.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Tom Waits "Burma Shave" (2006) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293155.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Rihanna feat. Jay-Z - Umbrella (2007) 540p HDTV
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293122.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292872.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Pitbull - (Collection Video Clip) (2011 - 2015) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292758.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Iron Maiden - Death On The Road (2006) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292751.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Ageless rock (2015) WEBRip [H.264]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292639.jpg" />
 </div>
 
 
@@ -712,7 +712,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291372.jpg" />
 </div>
 
 

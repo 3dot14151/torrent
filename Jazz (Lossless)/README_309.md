@@ -6,7 +6,7 @@ VA - Green Hill: 30 Years Of Jazz (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117035.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Oscar Dennard - The Legendary Oscar Dennard (1958) 1989, Somethin' Else [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117016.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Andrew Hill Trio - Invitation (1974) 1992, SteepleChase [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117015.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117010.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Holiday Sweet Relaxing Jazz Chilly Tunes (2024) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117007.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Svend Asmussen - Evergreens (1998) EMI Svenska AB [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117004.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Donald Byrd - A New Perspective (1963) 1999, Blue Note [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116994.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Elle & The Pocket Belles - What's a Girl to Do... (2024) [FLAC|Lossless|WEB-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116884.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Sean Ono Lennon - Asterisms (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116871.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Erotic Jazz Music Ensemble - Midnight Intimacy: Gentle Caresses, Intimate Moment
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116855.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Svend Asmussen - June Night (1983) 1993, Sony Music [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116848.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Donald Byrd - At The Half Note Cafe, Vol. 2 (1960) 1987, Blue Note [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116832.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Dick Haymes - The Name's Haymes! (1958) 2015, Sepia Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116827.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Joshua Redman, Ron Miles, Scott Colley, Brian Blade - Still Dreaming (2018) None
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116824.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Barry Harris Trio - Plays Tadd Dameron & Thelonious Monk (1975 - 1984) 2008, Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116823.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Donald Byrd - Fuego (1959) 2005, Blue Note [FLAC|Lossless|tracks + .cue] <Hard B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116656.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Tom Harrell - Infinity (2019) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116654.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Svend Asmussen - Still Fiddling (1999) 2002, Storyville [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116650.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Jazz - The Best - Standards and Rarities (2024) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116543.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Avenue Of Electric Sound - The Street (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116505.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116496.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ David Becker Tribune - Germerica (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116490.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Eddie Higgins - Eddie Higgins (1960) Victor [FLAC|Lossless|image + .cue] <Hard B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116486.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116484.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Svend Asmussen - Fit As A Fiddle (1996) 2005, Storyville [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116482.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - Jazz Bass - Virtuosity - Electric & Upright (2024) [FLAC|Lossless|WEB-DL|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116347.jpg" />
 </div>
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1773921   (1730) от 21.09.2025
+
+Алексей Ковтунов, Олег Сапфир | Цикл "Идеальный мир для Демонолога" [12 книг] (2024-2025) [FB2] [Обновляемая]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1730.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это были обычные демонологи, которые хотели призвать обычного демона... Но что-то в момент призыва пошло не так. Да и, впрочем, какая им разница - Демон или Демонолог? Результат для них, в любом случае, будет веселым. Ведь меня зовут Константин, и я не рядовой демонолог... Если обычно людей пугают демонами, то здесь ситуация другая. Это демонов пугают мной..Жанр: Юмор, Бояръ-Аниме, Боевая фантастикаИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4520247CA07C1FCC5E15D8482D2BD5D1263D00B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744023   (912) от 26.09.2025
+
+Александр Горбов | Цикл "Дядя самых честных правил" [12 книг] (2022-2025) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир, где дворяне гордятся магическим Талантом, князьям служат отряды опричников, а крепостные орки послушно отрабатывают барщину. Мир, где кареты тащат магомеханические лошади, пушки делают колдуны, а масоны занимаются генетикой. Мир, где подходит к концу XVIII век, вместо Берингова пролива — Берингов перешеек, а на Российском престоле сидит матушка-императрица Елизавета (   Читать дальше...   )Жанр: Бояръ-Аниме, Попаданцы в магические миры, Альтернативная историяИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E86FF0489C8EB05D2EC5B039F69C27D84DFBAADC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785352   (901) от 26.09.2025
+
+Дмитрий Ангор, Олег Сапфир | Цикл "Мастер Гравитации" [5 книг] (2024-2025) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы знаете, каково это быть человеком с уникальным даром? Нет? Очень сложно…
+Ведь в прошлом мире меня звали Атилла Гравдас, и это имя было у всех на слуху.
+А как не знать человека, который может, не напрягаясь, целую армию превратить в мясной клубок или планету в пыльный шарик.
+Я был чертовски силен и очень не любил тех, кто влезал в мои дела. Славные были деньки, (   Читать дальше...   )Жанр: Бояръ-Аниме, Боевое фэнтези, ЮморИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BBFAC78EC7A02FCBC3FEB6F485A497276D46DDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1797723   (871) от 26.09.2025
 
 Андрей Земляной | Цикл "Игра" (2024-2025) [FB2]
@@ -6,7 +87,7 @@
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_871.jpg" />
 </div>
 
 
@@ -34,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_840.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_817.jpg" />
 </div>
 
 
@@ -86,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_813.jpg" />
 </div>
 
 
@@ -112,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_787.jpg" />
 </div>
 
 
@@ -138,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_784.jpg" />
 </div>
 
 
@@ -165,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_410.jpg" />
 </div>
 
 
@@ -193,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_370.jpg" />
 </div>
 
 

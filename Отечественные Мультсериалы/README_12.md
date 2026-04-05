@@ -1,3 +1,29 @@
+###  Публикация: 445321   (73533) от 01.02.2012
+
+Барбоскины. Выпуск №2. Лучший подарок. Серии 1-15 (2011) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_73533.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мама, папа и… пятеро щенят. У Барбоскиных все, как у людей. Папа свободное время проводит за компьютером, дочери увлекаются модой и слушают Жанну Киску, а сыновья играют в футбол и мечтают о Нобелевской премии.Жанр: Мультсериал, Анимация, ДетскийПродолжительность: 15 ~ 00:05:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:769D163AE8D286BBE7D32BD9C46B81F712F45FCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1779883   (70595) от 15.02.2025
 
 Волшебники двора (2016-2023) WEBRip (сезон 1-2, серия 1-25 из ???) (обновляемая)
@@ -6,7 +32,7 @@
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70595.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70106.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64135.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60662.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59407.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58797.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58693.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58062.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56053.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55404.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55319.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53923.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48635.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47064.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46982.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46608.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46509.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45000.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42387.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42316.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34484.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34359.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34302.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34299.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34284.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A9CF00250921E89749BA6824EEA476675AC3168
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766100   (33957) от 16.12.2024
-
-Жила-была царевна (2013-2021) WEBRip (сезон 1, серии 1-27 из 27) + бонусы
-
->>Мультфильмы
->>Отечественные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детям никогда не нравятся взрослые правила. Спать по ночам, по утрам умываться и чистить зубы, делиться игрушками с соседскими детишками и купаться в ванне? Нет, нет, и еще раз нет — у капризной царевны свой взгляд на то, как должен выглядеть день. И ночь, конечно, тоже. Своенравная, непослушная и веселая царевна любит игры, забавы и приключения. Как (   Читать дальше...   )Производство: Россия / X-Media DigitalЖанр: мультфильм, детскийРежиссер: Наталья ТитаренкоАктеры: Алёна Созинова, Василий Шемякинский, Елизавета Запорожец, Артём Колпаков, Анастасия Лучинина, Евгений Вальц, Павел РоссошанскийПродолжительность: ~ 00:06:10 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45811670DE309B7F67774A3706B75D9F32141992
 ```
 
 https://mybot314.ru/tekegram_catalog/

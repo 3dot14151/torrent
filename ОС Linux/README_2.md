@@ -6,7 +6,7 @@ Debian GNU/Linux 8.7.1 Jessie Live (free + nonfree) [i386] 14xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928647.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Debian GNU/Linux 8.7.1 Jessie Live (free + nonfree) [x86-64] 14xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928524.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Debian Edu - Skolelinux 11.0.0 Bullseye + nonfree [Linux для школы] [i38
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925218.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Kubuntu 14.04.4 LTS [i386, amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920422.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Lubuntu 14.04.4 Trusty Tahr (Легкий дистрибутив) [i386, amd64] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920280.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Xubuntu 14.04.4 LTS (Легкий дистрибутив) [i386, amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920226.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ EuroLinux 8.4 [совместим с Red Hat Enterprise Linux] [amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918633.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ BlackArch Linux 2021.09.01 [Хакинг, аудит, безопасность] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918496.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Edubuntu 12.04.4 LTS (Ubuntu для школ и вузов) [i386, amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915590.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Linux Mint 18.1 Serena KDE [32bit, 64bit] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915006.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Linux Mint 18.1 Serena XFCE [32bit, 64bit] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914998.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Zentyal 3.0.2 [Сервер для дома и малого бизнеса] [i38
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912439.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Linux Mint Debian Edition (MATE/Cinnamon) 201303 [x32 + x64] (4xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912300.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Sabayon 16.03 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE и server) [amd64] 7xDV
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905788.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Window Maker Live 0.95.7-3 (Легкий дистрибутив) [i386, amd64] 2
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903728.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Parrot Security OS 4.8 + netinstall x64-x32 [Хакинг, аудит, безо�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903032.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ KDE neon 5.9.0 (20170202) [x86-64] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900771.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ BlackArch Linux 2017.01.28 [Хакинг, аудит, безопасность] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898799.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ ELive Livecd/LiveUSB Topaz kernel update 002 - дистрибутив Linux дл
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896887.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Manjaro Linux 0.8.11(12) (Arch + зоопарк рабочих столов) [x8
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894133.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Manjaro Linux 0.8.11(12) (Arch + зоопарк рабочих столов) [i6
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892823.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Manjaro Linux 0.8.9 Ascella  (Arch + зоопарк рабочих столов)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892190.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Manjaro Linux 0.8.9 Ascella (Arch + зоопарк рабочих столов) 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892067.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ CentOS 7.3 (1611) [i386] 4xDVD, 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888620.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ OS4 13.4 (легкий дистрибутив) [x86, x64] (2xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880799.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Slackel KDE-4.10.5 Live [x86, x86-64] (2xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879650.jpg" />
 </div>
 
 

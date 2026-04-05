@@ -1,160 +1,3 @@
-###  Публикация: 1699142   (118057) от 12.02.2024
-
-Раджу Ганди | Head First. Git. Лучший способ понять Git изнутри
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118057.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга поможет быстро и легко изучить самый популярный в мире инструмент контроля версий Git. В ней использована уникальная методика Head First, выходящая за рамки синтаксиса и инструкций по решению конкретных задач, а эффектное визуальное оформление разработано с учетом того, как работает и наиболее продуктивно усваивает информацию мозг. Рассмотрены основы Git, свойства (   Читать дальше...   )Жанр: ПрограммированиеИздательство: БХВ-ПетербургФормат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85DA227297BE5189075C79DBD0FCD70DF8E656B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700093   (117423) от 15.02.2024
-
-Michael W. Lucas | Absolute FreeBSD, 3rd Edition: The Complete Guide to FreeBSD 3rd Edition (2018) [PDF][EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117423.jpg" />
-</div>
-
-
-###  Подробнее
-
-«FreeBSD. Подробное руководство»  всеобъемлющее руководство по FreeBSD, мощной, гибкой и бесплатной операционной системе семейства UNIX, выбранной многими предприятиями в качестве серверной платформы. Прочитав книгу, вы сможете использовать FreeBSD для предоставления сетевых сервисов, научитесь управлять системами FreeBSD, поддерживать их и накладывать «заплатки». (   Читать дальше...   )Жанр: руководство, компьютерная литератураЯзык: АнглийскийИздательство: No Starch PressФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC8E8167422743704E95487D12783F22723EA288
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700148   (117350) от 16.02.2024
-
-Максим Иванов | Алгоритмический тренинг. Решения практических задач на Python и С++ (2023) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Опираясь на богатый соревновательный и эвристический опыт, автор предлагает оригинальные реализации классических алгоритмов Computer Science на языках Python и C++. Особое внимание уделено математическим и геометрическим алгоритмам, графовым алгоритмам, структурам данных (в особенности различным деревьям), комбинаторике и работе со строками.
-Книга поможет заложить (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: БХВ-ПетербургФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38F68279440F5CF667D5236534BAB26902C4E638
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700468   (117327) от 16.02.2024
-
-Виталий Леонтьев | Windows 10. Новейший самоучитель для компьютеров и планшетов 4-е изд. (2019) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117327.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четвертое издание «Новейшего самоучителя Windows 10» включает подробный отчет о самых свежих обновлениях, затронувших такие важные элементы, как меню Настроек и систему безопасности. А кроме того, читатели найдут в этой книге, как всегда, множество интересных и полезных советов автора на все случаи использования операционной системы Windows – от настройки до работы (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ЭксмоФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AA3AE8E9AF4D60237A0503ED2229F06FEC4070D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700179   (117297) от 16.02.2024
-
-Джейд Картер | Облачные технологии. Практическое руководство по созданию инновационных приложений (2024) [PDF, EPUB]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга представляет собой всестороннее руководство по разработке приложений с использованием современных облачных технологий. В ней рассматриваются ключевые аспекты от базовых концепций облачных вычислений до передовых методик и стратегий оптимизации. Читатели получат углубленное понимание моделей облачных вычислений, архитектуры облачных приложений и эффективного (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ЛитРесФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62B796840DFE18CCE88C605022089FB9E6CAC8D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701155   (116777) от 19.02.2024
-
-Виталий Леонтьев | Серия "Компьютерные книги Виталия Леонтьева" [10 книг] (2015-2019) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116777.jpg" />
-</div>
-
-
-###  Подробнее
-
-Виталий Леонтьев — один из самых популярных и продаваемых авторов компьютерных книг в России. В его копилке — множество самоучителей, помогающих читателям любого возраста с разным уровнем подготовки освоить азы компьютерной грамотности. Книги Виталия Леонтьева написаны с юмором и любовью к предмету, а вся информация в них подкреплена наглядными примерами.Жанр: Компьютерная литератураИздательство: ЭксмоФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE6161928BF428E8C298243B8C95604C62124F80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700968   (116755) от 19.02.2024
 
 Андрей Жвалевский | Смартфоны и планшеты Android без напряга. Руководство пользователя (2014) [PDF]
@@ -163,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116755.jpg" />
 </div>
 
 
@@ -189,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116611.jpg" />
 </div>
 
 
@@ -215,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116581.jpg" />
 </div>
 
 
@@ -242,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115418.jpg" />
 </div>
 
 
@@ -268,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115408.jpg" />
 </div>
 
 
@@ -294,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115285.jpg" />
 </div>
 
 
@@ -320,7 +163,7 @@ Kameron Hussain, Frahaan Hussain | Linux Unveiled: From Novice to Guru (2024) [E
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115255.jpg" />
 </div>
 
 
@@ -348,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115145.jpg" />
 </div>
 
 
@@ -376,7 +219,7 @@ Python. Самое полное руководство по разработке
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115139.jpg" />
 </div>
 
 
@@ -402,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114779.jpg" />
 </div>
 
 
@@ -428,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112328.jpg" />
 </div>
 
 
@@ -454,7 +297,7 @@ S. Haghsheno, G. Satzger | Kunstliche Intelligenz im Bauwesen (2024) [PDF] [DE]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106387.jpg" />
 </div>
 
 
@@ -481,7 +324,7 @@ E. Voigts, R.M. Auer et al (еditors) | Artificial Intelligence - Intelligent Ar
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106382.jpg" />
 </div>
 
 
@@ -507,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104410.jpg" />
 </div>
 
 
@@ -533,7 +376,7 @@ Chip Huyen | AI Engineering: Building Applications with Foundation Models (2025)
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100927.jpg" />
 </div>
 
 
@@ -560,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98425.jpg" />
 </div>
 
 
@@ -586,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91188.jpg" />
 </div>
 
 
@@ -612,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90932.jpg" />
 </div>
 
 
@@ -638,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90327.jpg" />
 </div>
 
 
@@ -664,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90326.jpg" />
 </div>
 
 
@@ -675,6 +518,162 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49734D207ADA4F1C39B172BFBA3EC30A96AC9117
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484748   (89273) от 18.04.2012
+
+Л.Д. Забродин | UNIX: основы командного интерфейса и программирования (в примерах и задачах) [2010] [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89273.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассматриваются основы командного языка мобильных UNIX-подобных операционных систем (ОС) и основы программирования процедур на языке оболочки Korn-shell. Операционные системы семейства UNIX (Linux, Sysyem V, AIX, MCBC и др.) объединяют единые стандарты как на структуры алгоритмов и управляющих данных, так и на внешние интерфейсы для пользователей.  Изучаются возможности ОС UNIX по управлению и защите файлов, по управлению процессами, по управлению и экспортированию переменных, программированию процедур проверки условий и организации циклов. Изучение базируется на большом количестве примеров и задач. Особое место отводится контрольным вопросам и тестированию. Пособие предназначено для использования в вузах, колледжах, лицеях и на курсах повышения квалификации, а также для самостоятельного изучения ОС UNIX.2010Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3F6E64AA24BA2D6F0641E7FC05D5B2B3096F91F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483225   (89083) от 17.04.2012
+
+Waves Lab | Руководство для пакета плагинов Waves 7 (русский)[PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89083.jpg" />
+</div>
+
+
+###  Подробнее
+
+Руководство для пакета плагинов Waves 7 на русском языке в формате PDF.неизвестенЯзык интерфейса: русскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A467739772057270B25E7139AB1D0B75EA35D963
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483756   (88906) от 16.04.2012
+
+С. Келби | Система "великолепная семерка" Скотта Келби для Adobe Photoshop CS3 [2008] [PDF]
+
+>>Компьютерная литература
+>>2D графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88906.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге описывается новаторская система (Scott Kelby's 7-Point System) обучения работе в Adobe Photoshop CS3, изобретенная Скоттом Келби, одним из самых известных авторов книг по цифровой фотографии. В отличие от большинства справочников и учебников по Photoshop, содержащих излишне детализированные описания и теоретические выкладки, эта книга дает ответ на самые важные вопросы, с которыми сталкивается любой фотограф: "С чего начинать редактирование, какие действия необходимы и в какой последовательности их выполнять?" Читатели получат 21 наглядный урок редактирования невзрачных изображений и поэтапного превращения их в шедевры цифровой фотографии. Все уроки снабжены краткими пошаговыми описаниями и реальными значениями параметров. Многократное повторение шагов системы "великолепная семерка" позволяет быстро запомнить и успешно применять операции редактирования к любой фотографии.2008Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3312C05626F81A49AE4750413D801797F24845E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483293   (88667) от 15.04.2012
+
+Тони Седдон | Сетки. Креативные решения для графических дизайнеров [2009] [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Креативно разработанная и правильно примененная сетка это то, что отличает обычную композицию листа от действительно яркой и "цепляющей". Эта книга поможет дизайнерам обрести вдохновение и отшлифовать умение создавать великолепные композиции страниц и разворотов. Сетка присутствует на всех страницах книги. Журналы, буклеты, многостраничные издания представлены не просто лучшими разворотами, а композиционными листами с видимой сеткой, подробными комментариями, детализирующими процесс работы и точными параметрами сеток.Вы поймете, как дизайнер использовал модульную сетку для создания узнаваемого ритма страниц и разворотов, не теряя при этом динамики и гибкости изображения. Книга "Сетки" действительно необходима графическим дизайнерам, чья творческая деятельность связана с созданием плакатов, упаковки и многостраничных изданий.2009Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B442DD8687E286B28B33C22E71F6D7A668B297F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481854   (88097) от 12.04.2012
+
+Василий Леонов | Самоучитель Mac OS X Lion [2012] [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88097.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга поможет проложить вам кратчайший путь в мир богатых возможностей операционной системы Mac OS X Lion. С ее помощью читатель познакомится с самыми различными сторонами операционной системы.2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45C591E95ED47DD4A1A8E36E3C37F0DB1B243378
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481734   (87979) от 12.04.2012
+
+Управление "К" предупреждает: будьте осторожны и внимательны! [2011] [RTF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87979.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сегодня в повседневной жизни используется множество разнообразных высокотехнологичных устройств. Одновременно с развитием таких устройств появляются виды мошенничества, позволяющие обмануть и присвоить денежные средства граждан. Чтобы не поддаться на уловки злоумышленников, достаточно знать, как они действуют, и соблюдать правила пользования мобильными телефонами, пластиковыми картами и компьютерами.2011Формат: RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50F9B5A5A325AA4D3CB590BBD024F3E66FE2C6A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

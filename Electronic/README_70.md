@@ -1,3 +1,58 @@
+###  Публикация: 627798   (939587) от 08.03.2013
+
+Solar Fields - Origin #02 (2013) [Ultimae Records] [FLAC|Lossless]<Psybient, Downtempo, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939587.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Psybient, Downtempo, AmbientПродолжительность: 01:17:37
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364158   (939375) от 01.03.2020
+
+Sopor Aeternus & The Ensemble of Shadows - Island of the Dead (2020) [FLAC|Lossless|tracks + .cue] <Darkwave, Neo-Classical, Goth Rock>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Minotaur (5:33)
+02. Poison (3:49)
+03. Black Magic Spell (5:45)
+04. DeathHouse (5:14)(   Читать дальше...   )Производство: Apocalyptic Vision – AV-048-BOXЖанр: Darkwave, Neo-Classical, Goth RockПродолжительность: 01:01:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AAA0CEF6AD705A803E023254DA21868555E8D90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364155   (939348) от 01.03.2020
 
 Maya Jane Coles - Take Flight (2017) 2CD [FLAC|Lossless|tracks + .cue] <Electronic, Deep House, Trip-Hop, Downbeat>
@@ -6,7 +61,7 @@ Maya Jane Coles - Take Flight (2017) 2CD [FLAC|Lossless|tracks + .cue] <Electron
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939348.jpg" />
 </div>
 
 
@@ -35,7 +90,7 @@ Pet Shop Boys - Discography: The Complete Singles Collection (1991) [FLAC|Lossle
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_939302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_939302.jpg" />
 </div>
 
 
@@ -64,7 +119,7 @@ VA - House Vip (09.02.10) [MP3|128 - 320 kbps]<Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939275.jpg" />
 </div>
 
 
@@ -99,7 +154,7 @@ VA - Perfect Electronica Downtempo (2017) [MP3|320 Kbps] <Downtempo, Chillout, L
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938949.jpg" />
 </div>
 
 
@@ -128,7 +183,7 @@ VA - Oasis Of Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938873.jpg" />
 </div>
 
 
@@ -157,7 +212,7 @@ Trentemoller - The Last Resort (2006) Limited Edition [FLAC|Lossless|image + .cu
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938752.jpg" />
 </div>
 
 
@@ -186,7 +241,7 @@ VA - Lounge Winter Garden (50 Amazing Tunes) (2016) [MP3|320 Kbps] <Lounge, Chil
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938648.jpg" />
 </div>
 
 
@@ -215,7 +270,7 @@ Trentemoller - The Trentemoller Chronicles (2007) 2CD [FLAC|Lossless|image + .cu
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938635.jpg" />
 </div>
 
 
@@ -244,7 +299,7 @@ Prins Thomas - Bringing Mum to Panorama Bar (2020) Prins Thomas Musikk [FLAC|Los
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938011.jpg" />
 </div>
 
 
@@ -272,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937903.jpg" />
 </div>
 
 
@@ -301,7 +356,7 @@ VA - Best Release Of The Season (2016) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937425.jpg" />
 </div>
 
 
@@ -330,7 +385,7 @@ VA - Mountain Spa Collection Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937424.jpg" />
 </div>
 
 
@@ -359,7 +414,7 @@ VA - Global DJ Broadcast: Top 20 January (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937421.jpg" />
 </div>
 
 
@@ -388,7 +443,7 @@ VA - House Seduction  Vol.11 (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937419.jpg" />
 </div>
 
 
@@ -417,7 +472,7 @@ Will Fast - The Greatest Hits (2017) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937417.jpg" />
 </div>
 
 
@@ -446,7 +501,7 @@ VA - Chill On the Board (2017) [MP3|320 Kbps] <Deep House>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937415.jpg" />
 </div>
 
 
@@ -475,7 +530,7 @@ VA - Candybeach Compilation 2016 (2017) [MP3|320 Kbps] <House, Tech House, Deep 
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937411.jpg" />
 </div>
 
 
@@ -504,7 +559,7 @@ VA - Colours II. Ice (selected by AstroPilot) (2016) [MP3|320 Kbps] <Ambient, Ps
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937332.jpg" />
 </div>
 
 
@@ -533,7 +588,7 @@ VA - Bodybuilding Girly Edition 2016 Top 50 (2016) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937328.jpg" />
 </div>
 
 
@@ -562,7 +617,7 @@ V.A. - Hed Kandi: Summer Of Sax (2014) 2CD [FLAC|Lossless]<House, Lounge, Jazzy>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937279.jpg" />
 </div>
 
 
@@ -592,7 +647,7 @@ VA - Happy Valentine's Day (2016) [MP3|320 кб/с] <Lounge, ChillOut, Easy List
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937254.jpg" />
 </div>
 
 
@@ -621,7 +676,7 @@ Atiq & EnK - Embracing The Unknown (2014) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ex
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937249.jpg" />
 </div>
 
 
@@ -650,7 +705,7 @@ Satin Jackets - Panorama Pacifico (2016) [FLAC|Lossless|tracks + .cue] <House, N
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937077.jpg" />
 </div>
 
 
@@ -679,7 +734,7 @@ Label Pack - Crystalclouds Recordings - 78 Releases (2007 - 2016) [MP3|320 Kbps]
 >>Label-Packs
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936876.jpg" />
 </div>
 
 
@@ -690,64 +745,6 @@ Label Pack - Crystalclouds Recordings - 78 Releases (2007 - 2016) [MP3|320 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:120546DE9DAD303999FE436913607C0316F17F4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364434   (936406) от 03.03.2020
-
-VA - Lifting Makes You Strong Check into the Gym (2020) [MP3|320 Kbps] <House, Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936406.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Electro Jack - Stadium 4:11
-2. Edgar Blaime - Legazy 4:11
-3. Dustin Phillow - Amount 4:11
-4. Duna Shain - Sculpt 4:11(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 02:45:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D8725EC070A18897B7CC93680976BF684AA717A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364530   (936389) от 03.03.2020
-
-Vladislav Delay - Rakka (2020) Cosmo Rhythmatic [FLAC|Lossless|WEB-DL|tracks] <Experimental, Noise, Ambient>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rakka (07:26)
- 02. Raajat (08:36)
- 03. Rakkine (06:17)
- 04. Raakile (03:38)(   Читать дальше...   )Жанр: Experimental, Noise, AmbientПродолжительность: 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E715BB0BEE5105432612E9A12F5446B4FFF85CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

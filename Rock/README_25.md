@@ -6,7 +6,7 @@ Jimi Hendrix - Both Sides of the Sky (2018) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776822.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Chain - Toward The Blues (1971) Reissue, 2007, Picar ‎[MP3|320 кб/с] <Rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776563.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ The Artwoods - Art Gallery (1966) Remastered, 2014, RPM Records [MP3|320 кб/с
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776192.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Wet Willie - Wet Willie (1971) Remastered, 2015, Capricorn Records [MP3|320 кб
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776180.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ John Illsley - Long Shadows (2016) [MP3|320 кб/с] <Rock, Blues, Folk>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776172.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Nigeria Rock Special - Psychedelic Afro-Rock & Fuzz Funk In 1970's Nigeria 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775071.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Simple Minds - Walk Between Worlds (2018) [MP3|320 Kbps] <Pop Rock, New Wave>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774406.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Road of Kicks - Before the Stone (2019) [MP3|320 Kbps] <Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774306.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Huey Lewis And The News - 10 Albums, 1 Compilation (1980-2010) CD [MP3|320 Kbps]
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774300.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Richard Schneider Jr. - 2 Albums (1977, 1980) LP [MP3|320 Kbps] <Krautrock, Expe
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773120.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ The Goo Goo Dolls - Boxes (2016) [MP3|320 кб/с] <Alternative Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772969.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ The Headlines - In The End (2017) [MP3|320 Kbps] <Rock, Punkrock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772099.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Santana - In Search of Mona Lisa (2019) EP [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771711.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Exmagician - Scan The Blue (2016) [MP3|320 кб/с] <Psychedelic Rock, Psychedel
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771612.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Led Zeppelin - Physical Rarities (2003) [MP3|320 кб/с] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771150.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Bob Dylan - Rough & Rowdy Ways (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770621.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Sports Team - Deep Down Happy (2020) [MP3|320 Kbps] <Indie Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769894.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Omar Rodriguez-Lopez - The Clouds Hill Tapes, Pt. I (2020) [MP3|320 Kbps] <Psych
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769892.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ VA - The Ultimate History Of Rock 'N' Roll Collection (1997) 10CD, Box Set [MP3|
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769783.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ The Squirrels - The Not-So-Bright Side Of The Moon (2000) [MP3|320 кб/с] <Pro
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769570.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Kansas - The Absence of Presence (2020) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769373.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Long Distance Calling - How Do We Want to Live? (2020) [MP3|320 Kbps] <Post-Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769106.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Mansions - Big Bad (2020) [MP3|320 Kbps] <Indie Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768984.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Jo Jo Gunne - So...Where's The Show? (1974) Unofficial, 2010, Dogtoire [MP3|320 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768538.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Self Deception - Self Deception (2018) [MP3|320 Kbps] <Alternative Rock, Modern 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768194.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ John Rooney - Joy (2019) [MP3|320 Kbps] <Melodic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767841.jpg" />
 </div>
 
 

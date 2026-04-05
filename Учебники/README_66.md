@@ -1,3 +1,57 @@
+###  Публикация: 571572   (387485) от 07.11.2012
+
+Э. Б. Винберг | Курс алгебры [2001] [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет собой расширенный вариант курса алгебры, читаемого в течение трех семестров на математических факультетах университетов. В нее включены такие дополнительные разделы, как элементы коммутативной алгебры (в связи с аффинной алгебраической геометрией), теории Галуа, теории конечномерных ассоциативных алгебр, и теории групп Ли. Это позволяет использовать книгу не только как учебник по общему курсу алгебры, но и как пособие для тех, кто желает углубить свои познания в алгебре. Изложение иллюстрируется большим количеством примеров и сопровождается задачами, часто содержащими дополнительный материал.
+
+Для математиков и физиков - студентов, аспирантов, преподавателей и научных работников.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:226B6324048C3CD0A4D4F5DCC75B8EF85E235E58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571675   (387220) от 07.11.2012
+
+А.Г. Курош | Книги по математике [1967 - 1973] [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387220.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алекса́ндр Генна́диевич Ку́рош (6 (19) января 1908, село Ярцево (ныне город), Смоленская губерния — 18 мая 1971, Москва) — выдающийся советский математик-алгебраист, доктор физико-математических наук, профессор МГУ. Автор многочисленных работ, монографий и учебников, сохраняющих ценность и в наши дни. За свою деятельность был удостоен премии имени П. Л. Чебышева (1945), Государственной премии СССР (посмертно). Награждён также орденами Трудового Красного Знамени, «Знак Почета» и медалями.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BB81D84C518CBD014F775939E0E23391D720E0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 571619   (387192) от 07.11.2012
 
 В.Ф.Жуков (ред.) | Деньги. Кредит. Банки (4-издание) [2010] [PDF]
@@ -6,7 +60,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387192.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387024.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386984.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386983.jpg" />
 </div>
 
 
@@ -111,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386863.jpg" />
 </div>
 
 
@@ -137,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386850.jpg" />
 </div>
 
 
@@ -163,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386839.jpg" />
 </div>
 
 
@@ -189,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_386735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386735.jpg" />
 </div>
 
 
@@ -215,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385424.jpg" />
 </div>
 
 
@@ -241,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_385203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385203.jpg" />
 </div>
 
 
@@ -267,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384987.jpg" />
 </div>
 
 
@@ -293,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384916.jpg" />
 </div>
 
 
@@ -319,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384827.jpg" />
 </div>
 
 
@@ -346,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383342.jpg" />
 </div>
 
 
@@ -372,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_383093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383093.jpg" />
 </div>
 
 
@@ -398,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382764.jpg" />
 </div>
 
 
@@ -424,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382660.jpg" />
 </div>
 
 
@@ -450,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382501.jpg" />
 </div>
 
 
@@ -477,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382336.jpg" />
 </div>
 
 
@@ -504,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381221.jpg" />
 </div>
 
 
@@ -530,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381106.jpg" />
 </div>
 
 
@@ -557,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_381057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381057.jpg" />
 </div>
 
 
@@ -583,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380936.jpg" />
 </div>
 
 
@@ -609,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380779.jpg" />
 </div>
 
 
@@ -620,58 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E89A9DB9111C09BC44F48931C47DC12E54CDD7C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326786   (380495) от 22.09.2019
-
-Д.П. Харченко и др. | Схемотехника. Внутреннее устройство и программирование РІС-контроллеров (2014) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380495.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие содержит сведения о внутренней архитектуре, системе команд и программированию современных РІС-микроконтроллеров, получивших распространение во встроенных системах контроля и управления. Рассмотренные микроконтроллеры являются практически готовыми устройствами, не требующие для своей работы дополнительного оборудования и позволяющие реализовать достаточно (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C808D9196095FDC5DBED4C95C8BFDD6677C316C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 572772   (380430) от 10.11.2012
-
-А.В. Бицадзе, Д.Ф. Калиниченко | Сборник задач по уравнениям математической физики [1977] [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_380430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник содержит свыше 600 задач по курсу уравнений в частных производных, читаемому в высших учебных заведениях студентам математического, механического, физического и технического профилей (с повышенной программой математического образования). Материал в книге расположен по традиционный разделам этого курса—уравнениям эллиптического, гиперболического и параболического типов. Особое внимание уделяется методам, наиболее часто применяемым на практике при построении решений указанных уравнений (методу Фурье, методу интегральных преобразований, методу конечных разностей, вариационным методам и т. д).Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8199C1E49187C12969D80B6529E8D365E6BD5029
 ```
 
 https://mybot314.ru/tekegram_catalog/

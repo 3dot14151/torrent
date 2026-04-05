@@ -1,30 +1,3 @@
-###  Публикация: 1406898   (470519) от 05.09.2020
-
-Ubuntu*Pack 20.04 GNOME Flashback (сентябрь 2020) [amd64] DVD
-
->>Linux, Unix и другие ОС
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
-Интерфейс
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DB0CCE60C6EB6D06F9AFEB1427C27BE588E6599
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1406983   (470424) от 05.09.2020
 
 Ubuntu*Pack 20.04 LXqt / Lubuntu (сентябрь 2020) [amd64] DVD
@@ -33,7 +6,7 @@ Ubuntu*Pack 20.04 LXqt / Lubuntu (сентябрь 2020) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470424.jpg" />
 </div>
 
 
@@ -60,7 +33,7 @@ Ubuntu*Pack 20.04 Xfce / Xubuntu (сентябрь 2020) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470421.jpg" />
 </div>
 
 
@@ -87,7 +60,7 @@ Ubuntu*Pack 20.04 GNOME Like Win (сентябрь 2020) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470418.jpg" />
 </div>
 
 
@@ -114,7 +87,7 @@ Ubuntu*Pack 20.04 KDE / Kubuntu (сентябрь 2020) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470294.jpg" />
 </div>
 
 
@@ -141,7 +114,7 @@ Ubuntu 16.10 Yakkety Yak Beta II [i386, amd64] 2xDVD, 2xCD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470214.jpg" />
 </div>
 
 
@@ -167,7 +140,7 @@ BackBox Linux 3.09 [i386, amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469611.jpg" />
 </div>
 
 
@@ -197,7 +170,7 @@ KNOPPIX 8.6 [x32, x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468745.jpg" />
 </div>
 
 
@@ -223,7 +196,7 @@ Manjaro Linux 0.8.7.1 (Arch + XFCE, LXDE, openbox, net: легкий дистр�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467302.jpg" />
 </div>
 
 
@@ -251,7 +224,7 @@ Antergos 18.9 18.9 [i586, x86_64]
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465338.jpg" />
 </div>
 
 
@@ -277,7 +250,7 @@ Debian Live GNU/Linux 9.1.0 + nonfree Stretch [amd64] 12xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465237.jpg" />
 </div>
 
 
@@ -303,7 +276,7 @@ Debian Live GNU/Linux 9.1.0 + nonfree Stretch [i386] 12xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463339.jpg" />
 </div>
 
 
@@ -329,7 +302,7 @@ Mandriva 2012 Alpha [i586 + x86-64] (2xDVD)
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461889.jpg" />
 </div>
 
 
@@ -355,7 +328,7 @@ Tor Browser 2.3.25-13 [анонимный доступ в сети] [i686, x86-6
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460107.jpg" />
 </div>
 
 
@@ -381,7 +354,7 @@ BlackArch Linux 2017.08.30 [Хакинг, аудит, безопасность] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458615.jpg" />
 </div>
 
 
@@ -407,7 +380,7 @@ Manjaro Linux 15.09 (KDE, Xfce, LXDE, LXQt + netinstall) [i686] 2xDVD + 3xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457284.jpg" />
 </div>
 
 
@@ -433,7 +406,7 @@ Ubuntu 17.10 Artful Aardvark Beta I [i386, amd64] 10xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456263.jpg" />
 </div>
 
 
@@ -461,7 +434,7 @@ Ubuntu Gnome 13.10 Saucy Beta II [i386, amd64]
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455665.jpg" />
 </div>
 
 
@@ -489,7 +462,7 @@ Kubuntu 13.10 Saucy Beta II [i386, amd64] 2xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453679.jpg" />
 </div>
 
 
@@ -515,7 +488,7 @@ Calculate Linux 15 [x86-64] 1xCD, 6xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453557.jpg" />
 </div>
 
 
@@ -543,7 +516,7 @@ Calculate Linux 15 [i686] 1xCD, 6xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453411.jpg" />
 </div>
 
 
@@ -571,7 +544,7 @@ Lubuntu 13.10 Saucy Beta II (легкий дистрибутив) [i386, amd64]
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453370.jpg" />
 </div>
 
 
@@ -599,7 +572,7 @@ SystemRescueCD 6.1.8 [x86/x64] 2xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453166.jpg" />
 </div>
 
 
@@ -625,7 +598,7 @@ Parted Magic 2015_09_29 [i686, amd64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453094.jpg" />
 </div>
 
 
@@ -651,7 +624,7 @@ Kubuntu LTS 18.04.1 [x86_x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450317.jpg" />
 </div>
 
 
@@ -677,7 +650,7 @@ KNOPPIX 8.2 [x32, x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450202.jpg" />
 </div>
 
 
@@ -688,6 +661,36 @@ KNOPPIX 8.2 [x32, x64] 1xDVD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7E179D9D5B3886F8F3719DF04851000FDF2923B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552553   (447452) от 26.09.2012
+
+Cr OS Linux (ex. Chrome Linux OS) 2.2.1226 [i686] (1xDVD + 1xUSB)
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447452.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cr OS Linux (произносится как Cros Linux) является свободной OS, построенной вокруг революционного браузера Chromium. Разработчики называю процедуру построения этой OS - хромирование, т.к. это стабильная и блестящая OS.
+
+Этот проект с открытым кодом предоставляет легкий дистрибутив, который похож на Google Chrome OS и может быть использован на любом x86 PC, ноутбуке или нетбуке.
+
+Включает в себя: Linux kernel 3.4.6; Cinnamon 1.6; Chromium 22.0.1226; InSync beta 5 клиент для Google Drive; Banshee 2.4: Shotwell 0.12; GIMP 2.8; LibreOffice 3.5 office suite; Wine 1.5; Cheese 3.4 и многое другое.
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

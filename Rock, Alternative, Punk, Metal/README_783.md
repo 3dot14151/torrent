@@ -1,3 +1,29 @@
+###  Публикация: 347148   (271962) от 30.11.2018
+
+Sphinx - 4 альбома (2003-2010) [MP3|320 kbps]<Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Symphonic Power Metal
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:522FA10F3FF293DF5686A114B8A6EC8A5F3F2608
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 325219   (271881) от 30.11.2018
 
 Ворон Кутха - Погнали наши городских... (2008) [MP3|320 kbps]<Folk-Rock>
@@ -6,7 +32,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271881.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ Chicago - XXXIII - O Christmas Three (2011) [MP3|320 kbps]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271855.jpg" />
 </div>
 
 
@@ -70,7 +96,7 @@ Lordi - Babez for Breakfast (2010) [MP3|320 kbps]<Hard Rock/Heavy Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271815.jpg" />
 </div>
 
 
@@ -99,7 +125,7 @@ Margenta - Дети Савонаролы (2009) [MP3|320 kbps]<Heavy/Gothic Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271803.jpg" />
 </div>
 
 
@@ -128,7 +154,7 @@ Sonata Arctica - Takatalvi (2010) [MP3|320 kbps]<Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271798.jpg" />
 </div>
 
 
@@ -157,7 +183,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271773.jpg" />
 </div>
 
 
@@ -186,7 +212,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271677.jpg" />
 </div>
 
 
@@ -212,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271576.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ Coldplay - Everyday Life (2019) Scene [FLAC|Lossless|tracks] <Indie Rock, Britpo
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271444.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ King Crimson - Teatro Carlo Felice, Genova, Italy (2003) 2006 [FLAC|Lossless|tra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271361.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ Peter Crowley - Conquest of the Seven Seas (2016) [MP3|320 Kbps] <Symphonic Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271358.jpg" />
 </div>
 
 
@@ -328,7 +354,7 @@ Aziola Cry - Ellipsis (2005) [FLAC|Lossless|image + .cue] <Instrumental Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271356.jpg" />
 </div>
 
 
@@ -357,7 +383,7 @@ Loudness - Re-Masterpieces (2001) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271289.jpg" />
 </div>
 
 
@@ -386,7 +412,7 @@ Adelitas Way - Notorious (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271270.jpg" />
 </div>
 
 
@@ -415,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271224.jpg" />
 </div>
 
 
@@ -444,7 +470,7 @@ King Diamond - 12 Albums (1986 - 2007) Discography, Full-lenght albums [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271068.jpg" />
 </div>
 
 
@@ -473,7 +499,7 @@ Brothers of Metal - Prophecy Of Ragnarok (2017) 2018, Limited Edition [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271038.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271012.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ Neil Young - Songs for Judy (2018) Live album [FLAC|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271003.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ Jessy Joyce - Love Me (1976) LP [MP3|320 Kbps] <Electronic, Psychedelic Rock, Pr
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270971.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270969.jpg" />
 </div>
 
 
@@ -618,7 +644,7 @@ Elvis Presley - '68 Comeback Special (50th Anniversary Edition) (2018) [MP3|320 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270958.jpg" />
 </div>
 
 
@@ -647,7 +673,7 @@ blink-182 - Nine (2019) Japanese Edition [FLAC|Lossless|tracks + .cue] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270632.jpg" />
 </div>
 
 
@@ -676,7 +702,7 @@ The Dark Element - Songs the Night Sings (2019) [MP3|320 kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270626.jpg" />
 </div>
 
 
@@ -705,7 +731,7 @@ Die Krupps - Vision 2020 Vision (2019) [MP3|320 Kbps] <Industrial Metal, Aggro-I
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270603.jpg" />
 </div>
 
 
@@ -719,35 +745,6 @@ Die Krupps - Vision 2020 Vision (2019) [MP3|320 Kbps] <Industrial Metal, Aggro-I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E56CF06D0DA229D618635A5056D568F404E3A915
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338345   (270445) от 14.11.2019
-
-Дельфин (Dolphin) - КРАЙ (2019) [FLAC|Lossless|Web-DL|tracks] <Alternative, Electronic, Trip-Hop>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_270445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. J2000.0 (4:05)
-02. Лето (3:51)
-03. Joy Stick (3:46)
-04. МСКВ (4:39)(   Читать дальше...   )Производство: M2Жанр: Alternative, Electronic, Trip-HopПродолжительность: 00:30:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84D4CF3BE16A001873C00A1A65D07A24E65DB19C
 ```
 
 https://mybot314.ru/tekegram_catalog/

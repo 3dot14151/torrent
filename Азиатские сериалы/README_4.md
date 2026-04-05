@@ -1,3 +1,29 @@
+###  Публикация: 1578947   (338406) от 26.09.2022
+
+Легкая улыбка покоряет мир / Weiwei yixiao hen qingcheng / Love O2O / Weiwei's Beautiful Smile (2016) WEBRip [H.264/720p] (сезон 1, серии 1-30 из 30) Мобильное Телевидение
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда студент Сяо Най впервые увидел Бэй Вэйвэй, он влюбился не в её красоту, а в её тонкие пальцы, которые быстро порхали над клавиатурой. В то же время игровой эксперт Бэй Вэйвэй одержала славную победу в компьютерной игре, несмотря на невыгодное положение, совершенно не подозревая, что амур уже поблизости. Чтобы завоевать сердце красавицы, Сяо Най использует тактику (   Читать дальше...   )Производство: Китай | GCOO Entertainment, Shanghai Croton Culture Media Co.Жанр: мелодрамаРежиссер: Лам Юк-ФаньАктеры: Ян Ян, Чжэн Шуан, Денни Хуан, Ню Цзюньфэн, Мао Сяотун, Бай Юй, Чжан Хэ, Ма Чуньжуй, Чжэн Ечэн, Вин ЧжанПеревод: Многоголосый (Мобильное Телевидение)Язык озвучки: РусскийПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F28E41D6693C9064C64E8DAA65C8F769E969F96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1548304   (338035) от 26.09.2022
 
 Шоу начинается! / С этого момента время для шоу! / Jigeumbuteo Syotaim! / From Now On, Showtime! (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-16 из 16) FRONDA, HIGH HOPES, SOFTBOX
@@ -6,7 +32,7 @@
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338035.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336087.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331795.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_330650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330650.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325368.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318601.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308825.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300567.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290711.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287096.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_287037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_287037.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_287035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_287035.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277500.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273980.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273954.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272783.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271688.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_261305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_261305.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257862.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255863.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255615.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255083.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254647.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254550.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252218.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72C85E50D00CDDF1E40C1C21E1EC5D2167518D12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623422   (252106) от 22.05.2023
-
-Школа; Фронт / Обязанности после школы / Banggwa hu jeonjaenghwaldong / Duty After School (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-10 из 10) Softbox, High Hopes
-
->>Зарубежные сериалы
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252106.jpg" />
-</div>
-
-
-###  Подробнее
-
-Внезапно странные инопланетные существа появляются в небе Земли и наносят тяжелые потери. Чтобы увеличить военную мощь Кореи, правительство объявляет, что все университеты и старшие школы будут объединены в резервные силы. Тем временем ученики класса 3-2 старшей школы сбиты с толку ситуацией, с которой они столкнулись. Они усердно готовились к вступительным экзаменам (   Читать дальше...   )Производство: Южная Корея, GT:st, Studio Dragon, TVINGЖанр: фантастика, драма, боевик, ужасы, комедияРежиссер: Сон Ён-ильАктеры: Ким Ги-хэ, Квон Ын-бин, Ким Су-гём, Чхве Мун-хи, У Мин-гю, Щин Су-хён, Щин Хён-су, Ли Сун-вон, Ким Мин-чхоль, Ё Джу-хаПеревод: Двуголосый любительский (Softbox, High Hopes)Язык озвучки: русский, корейскийСубтитры: русские (Азалии), английскиеПродолжительность: ~01:10:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C641513FDD17352E21E88259E7D26434E466E4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

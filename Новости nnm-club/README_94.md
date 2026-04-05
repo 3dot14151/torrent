@@ -1,3 +1,29 @@
+###  Публикация: 1523996   (746017) от 14.01.2022
+
+Трагедия Макбета / The Tragedy of Macbeth (2021) WEB-DL [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746017.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ведьмы убеждают шотландского лорда Макбета в том, что ему суждено стать королём. Предавая друзей и следуя советам честолюбивой жены, он выбирает зло способом достижения своих целей.Производство: США / A24, IAC FilmsЖанр: триллер, драма, военный, историяРежиссер: Джоэл КоэнАктеры: Дензел Вашингтон, Фрэнсис МакДорманд, Алекс Хэсселл, Берти Карвел, Брендан Глисон, Кори Хоукинс, Гарри Меллинг, Майлз Андерсон, Мэтт Хельм, Моусес ИнгрэмПеревод: Дублированный (Невафильм)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full, SDH), английские  (Full, SDH), украинские, ивритПродолжительность: 01:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FDE4FA5BFB9E1D648EEE301D220386991659F04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1246389   (745947) от 11.02.2019
 
 Молодёжка. Лёд и пламя (2018) WEB-DLRip [H.264/720p-LQ] (сезон 6, серии 1-44 из 44)
@@ -6,7 +32,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745947.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745906.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_745891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_745891.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Microsoft Office 2013 SP1 Professional Plus 15.0.4711.1000 (x64) RePack by D!ako
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745696.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744640.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Time Machine VR (2016) [En] (1.0.0.18931) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744417.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744414.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744410.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2018.04.01 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744350.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744344.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_743788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_743788.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ Tetris Effect (2019) [Multi] (1.0.6) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743650.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ Adobe Photoshop 2020 21.2.1.265 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743649.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ GoodbyeDPI 0.2.1. Launcher 5.0 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743192.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743185.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ Microsoft® Windows® 7 SP1 x86/x64 Ru 9 in 1 Update 01.2022 by OVGorskiy 1DVD
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743180.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.1
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743155.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743153.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_743099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_743099.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_742975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_742975.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ Adobe Photoshop Lightroom Classic CC 2018 7.3 RePack by KpoJIuK  [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742963.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ IT-курсы из «Бауманки» решили еще раз заблок�
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_742931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_742931.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742858.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742852.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742772.jpg" />
 </div>
 
 
@@ -652,32 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE194F87A8B2D7B55128A6D167C7622A5A44075C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527450   (742765) от 21.04.2015
-
-Crysis 2 (2010) [Ru/En] (v.1.9) Repack R.G. Games [Maximum Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742765.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир потрясла серия экологических катастроф, и человечество находится на грани вымирания. Инопланетяне вернулись с твердым намерением стереть людей с лица земли и начали при этом с одного из самых культовых земных городов. Улицы Нью-Йорка наводнили инопланетные захватчики, и волна оживших кошмаров постепенно захлестывает город и его жителей. Городские коммуникационные (   Читать дальше...   )Тип издания: Переупакованная лицензияРазработчик: CrytekЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Английский, РусскийЯзык субтитров: Английский, РусскийЯзык интерфейса: Английский, Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55A0264699DD6BCE834C78014C31971C6FE83940
 ```
 
 https://mybot314.ru/tekegram_catalog/

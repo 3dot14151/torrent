@@ -1,3 +1,55 @@
+###  Публикация: 1192923   (262164) от 20.12.2017
+
+Выгодный этап «ценовой войны»: операторы начали снижать цены на связь
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262164.jpg" />
+</div>
+
+
+###  Подробнее
+
+18 декабря 2017 года Yota объявила о снижении цен на тарифы в 12 регионах, включая Москву и Московскую область. Это изменение — следствие «ценовой войны» операторов, возобновившейся в ноябре. TJ вспоминает, как компании пришли к новому витку конкуренции, и приводит примеры тарифов из регионов.Что изменилось и почемуВ апреле 2017 года «большая четвёрка» операторов (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193344   (262047) от 21.12.2017
+
+Очередное достижение: 4000 релизов от maykov!!!
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262047.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередное достижение: 4000 релизов от maykov!!!Уважаемые одноклубники , рад сообщить Вам о возможности поздравить нашего товарища с 4000-м релизом!С удовольствием поздравляю активного релизера , участника RG Музыки maykov с этим достижением и выражаем огромную благодарность от имени всех одноклубников и администрации NoNaMe ClubНадеюсь, что вы все также присоединитесь (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193392   (262005) от 21.12.2017
 
 WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2017.12.21 [Ru]
@@ -6,7 +58,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2017.12.21 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262005.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262004.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262002.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Avast Premier 17.9.2322 Final [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261850.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Acronis True Image 2018 Build 10640  RePack by KpoJIuK  [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261839.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261836.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261684.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_261379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_261379.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Max Payne 3 (Rip/1.0.0.17) [Ru] 2012 l Audioslave
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_261366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_261366.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ Max Payne 3 [Ru] (RePack/1.0.0.17) 2012 | R.G. ReCoding
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261079.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260661.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ Batman: Arkham City / Batman: Аркхем Сити + 14 DLC [Ru] (RePack/1.03) 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260642.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ Voyager 12.04 [i386, x86_64] (2xDVD)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259755.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ Master of Orion 2: Battle at Antares [Ru] (RePack) 1996 | Pet9948
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259749.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259745.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259508.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259237.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ CSI: Место Преступления / CSI: Crime Scene Investigation [12 с
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258976.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ Nero Burning ROM и Nero Express 11.2.10300 [Ru/En] RePack by MKN
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258969.jpg" />
 </div>
 
 
@@ -512,7 +564,7 @@ Iron Front: Liberation 1944 [Multi6/+] (L) 2012 | RELOADED
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258966.jpg" />
 </div>
 
 
@@ -540,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258686.jpg" />
 </div>
 
 
@@ -566,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258679.jpg" />
 </div>
 
 
@@ -592,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258655.jpg" />
 </div>
 
 
@@ -618,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258652.jpg" />
 </div>
 
 
@@ -629,65 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1D526C26C56387E81A7A40A79D3E0E28FCF58F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 501438   (258581) от 26.05.2012
-
-Аудитория "Яндекса" превысила число зрителей "Первого канала"
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258581.jpg" />
-</div>
-
-
-###  Подробнее
-
-На российском медиарынке сменился лидер — «главная кнопка» страны теперь не Первый канал, а «Яндекс»: портал собирает большую аудиторию, чем любой отдельно взятый телеканал.В апреле «Яндекс» посещало 19,1 млн человек в день, а Первый канал смотрело 18,2 млн человек в день, подсчитала аналитическая компания TNS (аудитория 12-54 лет в городах с населением более 100 000 человек). «Первый» — самый популярный российский канал, он все время был самым популярным медиаресурсом в стране, интернет-портал обогнал его впервые.«Яндекс», а также Mail.ru почти догнали «Первый» и по недельной аудитории (до результата канала в апреле им не хватило 0,7 млн и 1,2 млн человек соответственно). Самый большой отрыв канала от сайтов — по месячной аудитории: хотя бы раз в месяц «Первый» включает 41,4 млн человек, что на 8,2 млн человек больше, чем пользователей у Mail.ru, и на 8,7 млн — чем у «Яндекса».
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 501480   (258441) от 25.05.2012
-
-Torchlight 2/II [En] (RePack/Beta/0.22.82) 2012 | Ali213
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258441.jpg" />
-</div>
-
-
-###  Подробнее
-
-В бета версии ограничение по уровню персонажа до 21 уровня.
-
-Некогда герои Torchlight спасли мир от древнего и могущественного существа Ордрака. И вот, спустя годы, некто украл эссенцию его мощи и использовал ее, чтобы нарушить баланс шести элементов. Вам довелось стать свидетелем разрушительного действия ужасного артефакта…
-
-Теперь вы должны отыскать злодея и предотвратить вселенскую катастрофу. Его след ведет вас через истерзанные войной степи и пустоши к руинам старинного города гномов. А затем вам предстоит углубиться в подземное царство, куда тысячи лет не ступала нога смертного и откуда грозит обрушиться на мир невиданное доселе ужасающее Зло…
-
-(   Читать дальше...   )Тип издания: RepackЖанр: RPG (Rogue/Action) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EC7CC1BA2EA6F448AC0A5649E45F8AF868BA40C
 ```
 
 https://mybot314.ru/tekegram_catalog/

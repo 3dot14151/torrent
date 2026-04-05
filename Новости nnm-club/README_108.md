@@ -1,3 +1,29 @@
+###  Публикация: 1133742   (692635) от 13.05.2017
+
+Adobe After Effects CC 2017 (v14.2.0) Multilingual Update 2
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692635.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe After Effects CC 2017 - популярная программа для редактирования видео и динамических изображений, создания композиций, различных эффектов и анимации. Наиболее часто ее используют для обработки видеоматериалов (постпродакшн), создания музыкальных клипов, рекламных роликов, анимации, титров, а также множества других элементов, для которых необходимы цифровые (   Читать дальше...   )Язык интерфейса: Английский / Испанский / Итальянский / Китайский (упрощенный) / Корейский / Немецкий / Португальский / Русский / Французский / Японский / Английский с поддержкой арабского письма / Английский с поддержкой иврита / Английский (Великобритания) / Испанский (Мексика) / Французский (Канада) / Французский (Марокко)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADEF7BA98A1B9E929C41ABC12EFF896B596A95AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133458   (692634) от 13.05.2017
 
 Защитники (2016) BDRip [H.264/1080p-LQ]
@@ -6,7 +32,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692634.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Adobe Illustrator CC 2017.1.0 21.1.0.326 Portable by XpucT [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692629.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692288.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691981.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691909.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_691908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_691908.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691886.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Dawn of Man (2019) [Ru/Multi] (1.6.1) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691788.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_691719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_691719.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ King's Bounty Anthology / Антология King's Bounty (2008-2014) [Ru/Multi
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691153.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691151.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_691125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_691125.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ Sublime Text 3 Build 3164 Dev + Portable [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690947.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690760.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ Green Disc 2010 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690738.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_690415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_690415.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_690269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_690269.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690235.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690231.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689995.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689504.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689502.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ Waterfox 13.0 x64 Final [Русский/Английский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689464.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689210.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ Warhammer 40 000: Dawn of War 2: Chaos Risin [En/Ru] (Steam-Rip/2.6.0.5628) 2010
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_689019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_689019.jpg" />
 </div>
 
 
@@ -652,32 +678,6 @@ Warhammer 40 000: Dawn of War 2: Chaos Risin [En/Ru] (Steam-Rip/2.6.0.5628) 2010
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:906B5A227F16496614C4599BC2E03646B8DCC435
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221834   (688829) от 27.04.2018
-
-Adobe After Effects CC 2018 15.1.1.12 RePack by KpoJIuK  [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688829.jpg" />
-</div>
-
-
-###  Подробнее
-
-After Effects CC — это ведущая в отрасли программа для создания и компоновки анимированной графики, которую используют многие разработчики визуальных эффектов и анимированной графики. Она предлагает великолепные функции управления, широкий выбор инструментов для творчества, а также возможность интеграции с другими приложениями для постобработки видеоматериалов. Сделайте (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B937F1A207597E6E23BFD64F6A66BEE27EAF738A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,22 +1,23 @@
-###  Публикация: 1030808   (672161) от 01.07.2016
+###  Публикация: 1223391   (672939) от 05.05.2018
 
-Экшены - GraphicRiver - Collage Mix [ATN, ABR, PAT]
+Поезд на Париж / The 15:17 to Paris (2018) WEB-DL [H.264/1080p-LQ]
 
->>Материалы для мультимедиа и дизайна
->>Дополнения
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672939.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Collage Mix - превосходный экшен для Вашего творчества. Идеально подойдёт для оформления журналов, фотоальбомов, листовок, плакатов и т. д. Вы можете менять и манипулировать слоями, изменять цвета, плотность,  прозрачность и режим наложения. Огромные возможности и простота в использовании.Формат: ATN, ABR, PAT
+В центре сюжета события, произошедшие ранним вечером 21 августа 2015 года, когда весь мир, затаив дыхание, наблюдал за предотвращением террористической атаки в скоростном поезде N 9364. Террорист из Марокко с автоматом и большим количеством боеприпасов открыл в поезде стрельбу с целью убить более пятисот человек.
+Фильм основан на реальных событиях.Производство: США / Malpaso Productions, Village Roadshow Pictures, Warner Bros. PicturesЖанр: Триллер, драма, историяРежиссер: Клинт ИствудАктеры: Спенсер Стоун, Энтони Сэдлер, Алек Скарлатос, Джуди Грир, Дженна Фишер, Рэй Корасани, Тони Хейл, Томас Леннон, Синква Уоллс, Лиллиэн Соланж БодуанПеревод: Дублированный (iTunes)Субтитры: Русские (Full)Продолжительность: 01:33:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0813C35EBF21BFCA5652CEBB3AC233CDE5A7BD18
+magnet:?xt=urn:btih:3784280C32A69EB42C658B559B754B3958A7E604
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,23 +25,529 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030753   (672160) от 01.07.2016
+###  Публикация: 899634   (672933) от 19.05.2015
 
-Интересные факты. Выпуск 28 - Консервная банка и её история
+Auslogics Disk Defrag Free 5.4.0.0 RePack by RedGrant [Ru/En]
 
->>Поговорим
->>А знаете ли вы..
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672933.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Специальный проект NNM-Club
-Интересные факты. Выпуск 28
-Консервная банка и её историяЗначительно улучшенное качество звука в отличие от предыдущих выпусков!(   Читать дальше...   )
+Auslogics Disk Defrag - программа, призванная помочь избавиться от часто возникающей проблемы жестких дисков - фрагментации. Программа очень проста в использовании и работает достаточно быстро, поскольку не требует много времени на анализ. После завершения (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D31B13AD6C5A7BE9AB00D39549FA201E94D7CBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 899594   (672930) от 19.05.2015
+
+Opera 29.0.1795.60 Stable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672930.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF34105366D2B76A1C9F7612CD0AE34E1F935106
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 885085   (672929) от 19.05.2015
+
+Причуды науки / Perversions of Science (1997) VHSRip (сезон 1, серии 1-10 из 10) Андрей Дольский
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672929.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал является спин-оффом более успешного проекта HBO — «Байки из склепа». Фантастические истории связаны между собой только рассказчиком — «сексуальным, но металлическим» роботом женского пола по имени Хром.Кошмарные истории, сфокусированные в основном на вторжении инопланетян и путешествиях во времени.Производство: США , HBOЖанр: фантастика, ужасыРежиссер: Тоуб ХуперАктеры: Морин Тифи, Жанетт Льюис, Адам Аркин, Кит Кэрредин, Лолита Давидович, Питер Джейсон, Гретхен Палмер, Лин Шэй, Джереми Лондон, Джефф Фэйи и др.Перевод: Одноголосый, авторский - Андрей ДольскийПродолжительность: ~00:25:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5CA0BD1EFB6B66D435159BE632C52A51E62A2E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 899301   (672927) от 19.05.2015
+
+Скандал / Scandal (2015) WEB-DLRip [H.264/1080p] (сезон 4, серия 15 из 22) [EN / EN Sub]
+
+>>Зарубежные сериалы
+>>Сериалы без перевода
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672927.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия 15 - The Testimony of Diego Munoz
+Специалист по связям с общественностью Оливия Поуп, ранее работавшая на президента США, создает свое антикризисное агенство, цель которого — устранять проблемы высокопоставленных клиентов до того, как они станут всеобщим достоянием. Но если Вы посвящаете 24 часа в сутки решению проблем других людей, у Вас просто не будет времени, (   Читать дальше...   )Производство: СШАЖанр: триллер, драма, детективРежиссер: Том Верика, Оливер Бокельберг, Эллисон Лидди, Стив Робин, Жанно Шварц, Рэндолл Зиск, Марк Тинкер, Тони Голдуин, Пол МакКрейн, Стивен КреггАктеры: Керри Вашингтон, Дэрби Стэнчфилд, Кэти Лоус, Гильермо Диас, Джефф Перри, Джошуа Малина, Беллами Янг, Тони Голдуин, Коламбус Шорт и др.Перевод: отсутствуетЯзык субтитров: английскийПродолжительность: 00:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10ADF2B51122DDA6626C15CEE461DDF12B010014
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 899650   (672924) от 19.05.2015
+
+Windows Repair (All In One) 3.2.0 Pro + Portable [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows Repair - инструмент все-в-одном для ремонта системы . Предназначен для восстановления различных параметров Windows к их значениям по умолчанию. Помогает исправить большинство известных проблем, в том числе ошибки реестра и права доступа к файлам, а (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8509DBC36FAA9291F735A282AE2BA29AAD2E6A09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 899608   (672921) от 19.05.2015
+
+Reg Organizer 7.12 DC 19.05.2015 + Portable [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672921.jpg" />
+</div>
+
+
+###  Подробнее
+
+Reg Organizer® - это многофункциональная программа для комплексного обслуживания системного реестра операционных систем Micorosft Windows XP, Vista, 7 и 8. Позволяет проводить чистку реестра, его сжатие и дефрагментацию. Имеет мощный редактор системного реестра (   Читать дальше...   )Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8610ED78C09FB95443B96A7A0624C76DA8D097A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 509963   (672916) от 13.06.2012
+
+VA - Asia Lounge (2012) [MP3|320 кб/с]<Ethnic, Lounge, Relax>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672916.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dubsahara - Zentropy (7:11)
+2. Seoan & Friends - Mystery Of God feat. Seoan (3:54)
+3. Rain In Eden - Rumi (5:06)
+4. Bally Sagoo - Dil Cheez (4:07)
+5. Summer Chill - Journei (5:41)
+6. Red Buddha - Preaching of Buddha (5:27)
+7. James Asher - Red desert (5:39)
+8. Natacha Atlas - Amulet (Aywah Remix) (5:21)
+9. Jef Stott - Junjura (5:45)
+10. Aquila - Song of Laya (2:54)2012Жанр: Ethnic, Lounge, RelaxПродолжительность: 04:32:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC90E022A3900DBBF15C4343B4F1E54B21138E3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 510057   (672912) от 13.06.2012
+
+[Wallpapers]Зимняя сказка
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0695CE3C49F360D436539D3F66E5F20AACDF0F86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 510141   (672901) от 13.06.2012
+
+Querembas - Pornocracia (2012) [MP3|320 кб/с]<Alt. Metal/Nu-Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Orgia En El Convento
+02. Hay Que Matarlos A Todos
+03. Toxic Love
+04. El Mundo Gira
+05. Amanecer
+06. Clandestina
+07. Prefiero Morirme
+08. Sex Machine
+09. Another Life
+10. No Me Importa(   Читать дальше...   )2012Жанр: Alt. Metal/Nu-MetalПродолжительность: 00:32:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4598A83A5B9B0AA8B34181765565A4715BC5751A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536656   (672898) от 13.03.2022
+
+Bastard of Loran - Beckoning the Red Moon (2021) [FLAC|Lossless|image + .cue] <Symphonic, Melodic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Embraced by Her Queer Scent 04:34
+02. Blood Rapture Under Twilight 04:31
+03. The Hunter 05:59
+04. Beckoning 03:03(   Читать дальше...   )Жанр: Symphonic, Melodic Black MetalПродолжительность: 00:34:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6D4BFBC0E3117D151F77237CAC50ABEE301A696
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536731   (672897) от 13.03.2022
+
+XCap 1.2.4 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Утилита XCap - создана специально для цифровых микроскоповТип издания: macOS SoftwareРелиз состоялся: 11.03.2022Разработчик: © 2022 SHIH-CHUEH CHENПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Традиционный китайский и Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D73521719E66D1DBF8AB6BD926DCA8745128779E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536749   (672896) от 13.03.2022
+
+Nevercenter CameraBag Pro 2021.5.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672896.jpg" />
+</div>
+
+
+###  Подробнее
+
+CameraBag позволяет мгновенно применить одну из сотен прекрасных предустановок к вашим фотографиям и видео, а затем погрузиться глубже с помощью интуитивно понятных профессиональных настроек и пользовательских предустановок. Внимание CameraBag к интуитивно понятным инструментам и рабочим процессам не сводится к простому редактированию изображений, а к тому, чтобы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.11.2021Разработчик: © 2021 NEVERCENTERПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0489391E50668DACCF025D8B3A5F7F738DD830F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536574   (672895) от 13.03.2022
+
+Doom Machine - Somewhere, Between, the Truth and the Void (2022) [MP3|320 Kbps] <Heavy Metal, Doom Metal, Stoner Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude To (00:35)
+02. The Void (07:33)
+03. Backlash (05:26)
+04. Never Look Back (03:29)(   Читать дальше...   )Жанр: Heavy Metal, Doom Metal, Stoner MetalПродолжительность: 00:55:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C5321DE8081FD420CEBD82B2F0FB37826DB6EE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536687   (672894) от 13.03.2022
+
+The Bob Dorough Quartet - An Excursion Through "Oliver!": Songs From The Hit Show (1954) 2009, Classic Jazz [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Food, Glorious Food [5:24]
+02. Oliver! [4:26]
+03. Boy for Sale [4:19]
+04. Where Is Love? [2:06](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Piano JazzПродолжительность: 00:48:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98B499CAEA9A427D7D698B7ACD31D3F3B9C1038B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536714   (672893) от 13.03.2022
+
+VA - Il Caffe Italiano Trieste (Italian Lounge Espresso Music) (2016) [AAC|~336 Kbps] <Jazz, Nu Jazz, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cocktail Martino, Federico Straga' - E la Chiamano Estate (3:12)
+02. Tonisterical - Frogs (2:22)
+03. Montefiori Cocktail - Sunny (4:33)
+04. Orchestra Volare - Arriva la Bomba (2:34)(   Читать дальше...   )Жанр: Jazz, Nu Jazz, LoungeПродолжительность: 01:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32822E4179D58A9F484D5AB7049AF3DB0FFD9F73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536712   (672892) от 13.03.2022
+
+VA - Il Caffe Italiano Roma (Italian Lounge Espresso Music) (2016) [AAC|~335 Kbps] <Jazz, Nu Jazz, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Orchestra Volare - Roma Nun Fa la Stupida Stasera (3:20)
+02. Italian Secret Service - Via Beato Angelico (7:46)
+03. Matteo Brancaleoni, Rosario Fiorello, Fabrizio Bosso - L'italiano (3:28)
+04. Cocktail Martino, Francesca Gramegna - Estate (3:56)(   Читать дальше...   )Жанр: Jazz, Nu Jazz, LoungeПродолжительность: 01:47:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9728479AE295E52F87BA3AF7B70D87EB0CAFF068
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536755   (672891) от 13.03.2022
+
+Obsidian Black - Judgement Day (2022) EP [FLAC|Lossless|WEB-DL|tracks] <NWOBHM, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost Life in a Beautiful Storm (04:23)
+02. Judgement Day (05:16)
+03. Lights in the Dusk (Re-Recorded) (03:59)
+04. Gates of Babylon (03:46)(   Читать дальше...   )Жанр: NWOBHM, Heavy MetalПродолжительность: 00:20:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24C55B1A8B216F6F013F0E985231A1DC9A5A1F33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536716   (672890) от 13.03.2022
+
+VA - Il Caffe Italiano Bologna (Italian Lounge Espresso Music) (2017) [AAC|~325 Kbps] <Jazz, Nu Jazz, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Montefiori Cocktail - Riviera Beat (5:02)
+02. Matteo Brancaleoni - Cosa hai messo nel caffè (3:20)
+03. Massimo Guerra Xtet - Futura (6:33)
+04. Italian Secret Service - Italian melody (4:50)(   Читать дальше...   )Жанр: Jazz, Nu Jazz, LoungeПродолжительность: 01:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9C950F2B4E8EE9C0018BFDCDE96642C50E2CB79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536842   (672889) от 13.03.2022
+
+EdgeView 3 v3.3.8 [En]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672889.jpg" />
+</div>
+
+
+###  Подробнее
+
+EdgeView 3 - это новейший просмотрщик изображений. Вы можете открывать различные файлы изображений и открывать архивные файлы, такие как ZIP и RAR, в своем встроенном файловом браузере без извлечения, вы также можете напрямую подключиться к FTP и открывать файлы. EdgeView - отличный выбор при просмотре и управлении файлами изображений или мультфильмов, такими как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.03.2022Разработчик: © DJ ProductionПоддерживаемая ОС: macOS 11.1+Язык интерфейса: Английский, Корейский и Японский
 
 ## Скачать торент
 ```bash
@@ -52,155 +559,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030765   (672159) от 01.07.2016
+###  Публикация: 1536730   (672888) от 13.03.2022
 
-Мусор / Trashed (2012) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672159.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вместе с Джереми Айронсом создатели этого документального фильма изучают опасность загрязнения земли, воздуха и воды отходами и влияние этого загрязнения на пищевую цепочку и окружающую среду. Лента раскрывает удивительные факты, касающиеся серьезной угрозы нашему здоровью. Она построена в форме глобального разговора между Джереми Айронсом и жителями нашей планеты (   Читать дальше...   )Телекомпания: США, Blenheim Films, Rose PicturesЖанр: ДокументальныйПеревод: Двуголосый закадровый, профессиональный (NovaMedia)Продолжительность: 01:32:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E6859D24C0B939B2FE82C458AB76F023D7F1B5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030663   (672158) от 01.07.2016
-
-Журнал | Интернет-гид №6 (июнь 2016) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672158.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Интернет-гид» — это универсальный проводник, спусковая кнопка в необъятный мир веб-страниц. Это полезная прогулка по ту сторону браузера, по самым живописным местам на карте глобальной сети.Жанр: Компьютерный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A9C0DA5F0C8D7BEB635A3CFC886444DD85950DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030664   (672157) от 01.07.2016
-
-Михаил Барятинский | Т-54 и Т-55. «Танк-солдат» (2015) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672157.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эти легендарные танки в боевом строю уже 70 лет. Эти грозные, сверхнадежные, недорогие в производстве и простые в эксплуатации машины стали эталоном мирового танкостроения – даже натовские стратеги подсчитывали мощь своих танковых войск в «пятьдесятпятках», которые первыми в мире были оснащены системой противоатомной защиты и способный вести боевые действия в условиях (   Читать дальше...   )Жанр: Военная техникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67448AE3D6EFE1D7567F597003B968E8819633F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030510   (672156) от 01.07.2016
-
-М. Келли, H. Спайс | Язык программирования Форт (1993) [DJVU]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672156.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге американских авторов описаны основные версии языка Форт, включая стандарты 1979 и 1983 гг., а также версию MMSFORTH для персональной ЭВМ типа IBM PC. Рассмотрены процедуры для работы с файлами и последовательностями символов, техника расширения списка стандартных операторов, а также возможность включения программ, написанных на языке ассемблера. Приведено (   Читать дальше...   )Жанр: ПрограммированиеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:795494A472DD8FB217F9DAF70ED1A9EAB63A3A8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030701   (672155) от 01.07.2016
-
-Сделано в СССР. Магазины (2016) IPTVRip
-
->>Документалистика и Телепередачи
->>Кинолетопись Страны Советской
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672155.jpg" />
-</div>
-
-
-###  Подробнее
-
-1917–1991 – это не просто промежуток времени, а целая эпоха со своими особенностями, научными открытиями, спортивными достижениями, культурными феноменами. Эта эпоха оставила наследство, которое до сих пор интересно и актуально. Кто-то все еще ностальгирует по своему советскому детству, проведенному в пионерлагере. У кого-то дома хранятся коллекции марок с Гагариным, (   Читать дальше...   )Телекомпания: МИРЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: ~ 00:24:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15ED57ED1AFDE2C73C07C6E6BB8ECECA8DDD80F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291172   (672149) от 23.03.2019
-
-Гринч / The Grinch (2018) BDRip [720p] ATV
+VA - Class of '87 (2022) [AAC|~339 Kbps] <Pop, Rock, Alternative>
 
 >>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672888.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Любой бы на месте Гринча позеленел и взбесился. Как порядочный интроверт он живёт в тёмной пещере на самой вершине горы подальше ото всех, но эти «все» готовят грандиознейшее празднование нового года. Они шумят, всё украшают и дико бесят. Кто бы отказал себе в удовольствии испортить праздник? Гринч решает украсть Новый год.Производство: Китай, США, Франция, ЯпонияЖанр: Мультфильм, фэнтези, комедия, семейныйРежиссер: Ярроу Чейни, Скотт МоужерАктеры: Бенедикт Камбербэтч, Кэмерон Сили, Рашида Джонс, Фаррелл Уильямс, Тристан О’Хэйр, Кенан Томпсон, Сэм Лаваньино, Рамон Хэмилтон, Анджела Лэнсбери, Скарлетт ЭстевесПеревод: Дублированный (iTunes)Субтитры: Русские форсированные,  Английские,  АнглийскиеПродолжительность: 01:27:26
+01. R.E.M. - It's The End Of The World As We Know It (And I Feel Fine) (4:07)
+02. Sting - Englishman In New York (4:27)
+03. Public Image Limited - Seattle (2011 Remaster) (3:41)
+04. The Northern Pikes - Teenland (4:00)(   Читать дальше...   )Жанр: Pop, Rock, AlternativeПродолжительность: 01:49:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2E58958A2CE2A5732898580A7F077C7D46E4E0F2
+magnet:?xt=urn:btih:165830AAC72E060BB2DE8910ECD4F32DBCB0042E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -208,25 +588,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291226   (672148) от 23.03.2019
+###  Публикация: 1536715   (672887) от 13.03.2022
 
-3D модели - Cubebrush - Cadillac ATSV 2016 [MAX, FBX, OBJ]
+VA - Il Caffe Italiano Milano (Italian Lounge Espresso Music) (2017) [AAC|~325 Kbps] <Jazz, Nu Jazz, Lounge>
 
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672887.jpg" />
 </div>
 
 
 ###  Подробнее
 
-3d модель автомобиля марки CadillacФормат: MAX, FBX, OBJ
+01. Papik, Alan Scaffardi - Prendila così (3:40)
+02. Matteo Brancaleoni - Una Carezza In Un Pugno (3:07)
+03. Zerosospiro - C'èun Tic (2:55)
+04. Parma Brass Quintet - Via con me (3:15)(   Читать дальше...   )Жанр: Jazz, Nu Jazz, LoungeПродолжительность: 01:41:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1EE5DAA2B4DD5887A0872FD8D6CA2A9B9231C071
+magnet:?xt=urn:btih:D8D06AF6C583EAEA85B6073206E5D547066D7691
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -234,25 +617,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290940   (672147) от 23.03.2019
+###  Публикация: 1536732   (672886) от 13.03.2022
 
-HyperSnap 8.16.10 RePack (& Portable) by TryRooM [Ru/En]
+De-Arrow - De-Arrow (2018) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
 
->>Архив торрентов
->>Архив Программ
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672886.jpg" />
 </div>
 
 
 ###  Подробнее
 
-HyperSnap — инструмент для захвата изображения, позволяющий скопировать не только окна стандартных программ, но и игры, скринсейверы и видеофильмы. С помощью HyperSnap вы можете сделать скриншот всего экрана монитора, его части, окна определённой программы (вместе с курсором или без), игр и скринсейверов (работающих в режимах DirectX и 3Dfx Glide), видео- и DVD-фильмов, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+01. Rock 'N' Roll Nights (3:47)
+02. We've Got The Wings (4:27)
+03. First Break Of The Heart (4:30)
+04. Feelin' Fine (4:03)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:54:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:62271E7320918E3702A9A43F09C933223C0AE768
+magnet:?xt=urn:btih:1E90F9ABE9C8DEA81CF89E0E564737893001A6AC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -260,25 +646,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 678032   (672146) от 10.07.2013
+###  Публикация: 1536724   (672885) от 13.03.2022
 
-Журнал | Forbes [Россия] №7 (112) (июль 2013) [PDF]
+VA - Electronica Royale, Vol. 1 (Organic Downtempo Vibes Deluxe) (2021) [AAC|~322 Kbps] <Lounge, Chill Out, Downtempo, Ambient>
 
->>Журналы
->>Другие журналы
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672885.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Издание рассказывает об историях успеха и поражений предпринимателей, новых идеях для бизнеса и инвестиций, публикует авторитетные рейтинги. Forbes имеет доступ к первым лицам компаний, политикам и лидерам мнений и получает информацию от самых осведомленных источников.Формат: PDF
+01. Romantic Warrior - Excalibur (Electronic Dub Mix) (4:45)
+02. Intergalactic Traveller - Ursa Major (Minimal Mix) (5:05)
+03. Once Upon A Time - Feel Alone (4:38)
+04. Electric Echoes - I Go Now (3:21)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, AmbientПродолжительность: 00:42:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F8F31E9B4DB3CB7643D4D3404D61DCB81D444F6A
+magnet:?xt=urn:btih:1AB39FCA160F438ACF8F8AB1521AC1EF2F87EFB6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -286,26 +675,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289133   (672145) от 23.03.2019
+###  Публикация: 1536719   (672884) от 13.03.2022
 
-Дана Арнаутова и др. | Литературный аудиопроект «Глубина» [выпуск 13] (2019) [MP3]
+VA - Il Caffe Italiano Torino (Italian Lounge Espresso Music) (2017) [AAC|~333 Kbps] <Jazz, Nu Jazz, Lounge>
 
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672884.jpg" />
 </div>
 
 
 ###  Подробнее
 
-ГЛУБИНА - это литературный аудиопроект творческого объединения независимых чтецов, любящих и умеющих делать своё дело – рассказывать увлекательные истории. Если вы готовы погрузиться ниже ватер-линии обыденной реальности в чарующий океан захватывающей прозы, то нам с вами по пути!
-________________________________________Жанр: Рассказы, разноеПродолжительность: 06:01:57
+01. Matteo Brancaleoni - Volare (Nel Blu Dipinto di Blu). (2:48)
+02. Papik, Alan Scaffardi - Che Sarà (4:05)
+03. Giuseppe Milici - Dimmi cos'è (3:45)
+04. Melania - Caruso (4:42)(   Читать дальше...   )Жанр: Jazz, Nu Jazz, LoungeПродолжительность: 01:36:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:234CFAF28E6B1603A6B41CCFB9FB352D3BE14183
+magnet:?xt=urn:btih:9D05E09A1A8F311F8911116414BBBC83FC63BFC1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -313,377 +704,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290084   (672143) от 23.03.2019
+###  Публикация: 1536728   (672883) от 13.03.2022
 
-Bonnie Tyler - Between The Earth And The Stars (2019) [FLAC 2.0|48/24|tracks|WEB-DL] <Pop - Rock>
+Edge Of Forever - Seminole (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672883.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hold On (Mackay, Dunne)
-02. Battle Of The Sexes (with Rod Stewart) (Norman, Carline)
-03. Slow Walk (Cadd, Belland)
-04. Seven Waves Away (A.Gibb, B.Gibb, Emery, S.Gibb)(   Читать дальше...   )Жанр: Pop - RockПродолжительность: 00:48:38
+01. Get Up Your Feet Again (4:24)
+02. On The Other Side Of Pain (3:56)
+03. Made It Through (4:45)
+04. Shift The Paradigm (4:00)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:51:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FF4AB5EB23BDFD5F642A8EBEDD267AD73A285094
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291157   (672141) от 23.03.2019
-
-VA - Deep Conception Vol.17 (2019) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eating Snow - Gravel And Trees (Einmusik Remix) 7:17
-02. Tube & Berger feat. Alegant - CURE (Original Mix) 5:38
-03. Manuel Moreno feat. Natasha Waters - Ghost (Definition Remix) 8:25
-04. Outstrip & Dub Makers feat. Maria Chirkova - Rainbow (Original Mix) 7:38(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:10:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E1AEF8D8B7B4AF27E1B713E8263A75038C7039F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291074   (672139) от 23.03.2019
-
-Борнео. Очарование Азии / Borneo. Faszination Asien (2017) UHD BDRemux [H.265/2160p] [4K, 10-bit] [DE, EN]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672139.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очарование Азии! Изобилие островов – одна из главных привлекательных сторон круизов в Юго-Восточной Азии. Гуам, Борнео или те же Филиппины, гигантский островной парк развлечений Сентоза близ Сингапура – вот лишь небольшая часть из того ожерелья архипелагов, которые обещают участникам круизов по Юго-Восточной Азии массу впечатлений.Производство: США, MiragedereveЖанр: Документальный, природа, флора, фаунаРежиссер: Майк Гордон, Аттила ТенкиПеревод: отсутствуетСубтитры: отсутствуютПродолжительность: 01:10:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA6C31E71F5F6E34F876610BEF322FCA472EEBAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291151   (672137) от 23.03.2019
-
-Ghidra 9.0  [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ghidra - это среда реверс-инжиниринга программного обеспечения (SRE), разработанная Исследовательским управлением АНБ. Эта структура включает в себя набор полнофункциональных инструментов анализа программного обеспечения высокого класса, которые позволяют пользователям анализировать скомпилированный код на различных платформах, включая Windows, Mac OS и Linux. Возможности (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16642A95830259FC4E2F22B109EDBCF0E3FAAB00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291138   (672135) от 23.03.2019
-
-VA - Rock Drive 6  (2019) 4CD, от DON Music[MP3|320 Kbps] <Rock, Hard Rock, Heavy Metal, Blues Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672135.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Jan Lindqvist - Tonight
-02. Gathering Of Kings - The Gathering+Forever & A Day(   Читать дальше...   )Жанр: Rock, Hard Rock, Heavy Metal, Blues RockПродолжительность: 04:55:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2905B7C6D2CE8BB1FCC7D0F82C17F0078B76FA84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291209   (672133) от 23.03.2019
-
-Семейный круг (1980) TVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бракоразводный процесс уже немолодых супругов Медведевых, который ведет Сомова Татьяна Михайловна, заставляет ее задуматься о собственном одиночестве, конфликте со взрослыми детьми и разрыве с мужем.Производство: CCCР / Киностудия имени А. ДовженкоЖанр: ДрамаРежиссер: Владимир ДовганьАктеры: Ада Роговцева, Ирина Бунина, Сергей Голованов, Лилия Гурова, Владимир Заманский, Сергей Иванов, Татьяна Митрушина, Александр Пороховщиков, Юрий Пузырёв, Надежда СмирноваСубтитры: ОтсутствуютПродолжительность: 01:23:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D490F2FC57AAE3FE203E9E39FAE8B10D5233EDC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291141   (672131) от 23.03.2019
-
-Юрий Визбор - Grand Collection (2003) [FLAC|Lossless|image + .cue]<Авторская песня>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Милая моя
-02. Мне твердят
-03. Здравствуй, я вернулся
-04. Осенние дожди ( Видно нечего нам )(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 01:17:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59927864CEE519C9CF873B81BFD3F703DFDDAD71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291068   (672129) от 23.03.2019
-
-Сатья Дас | Ведическая кухня. Питание в благости (2019) [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сатья дас - популярный семейный психолог, лектор и ведический философ. Автор популярных семинаров "Философия счастливой жизни", "Нескучная семейная психология, "Нескучная ведическая кулинария", "Очарование женственности" и мужского семинара "Без соплей". А также шеф-повар самых известных ведических фестивалей в СНГ. С (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B66A4BE7A74A9B4C9769835E209D5C4E9D399974
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290948   (672127) от 23.03.2019
-
-Другой ты / Another You (1991) WEB-DLRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один — патологический лжец, которого только что выпустили из психиатрической клиники на поруки. Другой — профессиональный обманщик, вынужденный за ним присматривать. Неожиданно мошенник обнаруживает, что его подопечный поразительно похож на известного миллионера.
-Подобным сходством просто нельзя не воспользоваться. Вдвоем они придумывают самую грандиозную ложь в (   Читать дальше...   )Производство: США / TriStar PicturesЖанр: Комедия, КриминалРежиссер: Морис ФиллипсАктеры: Ричард Прайор, Джин Уайлдер, Мерседес Руэль, Стивен Лэнг, Ванесса Уильямс, Фил Рубенштейн, Питер Майкл Гец, Билли Бек, Джерри Хаузер, Кевин ПоллакПеревод: Многоголосый закадровый, авторскийСубтитры: АнглийскиеПродолжительность: 01:34:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCE3AF66681759CFDFF8055480D5BC30F89670AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291118   (672125) от 23.03.2019
-
-Media Player Classic Home Cinema 1.8.6 RePack (& portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Media Player Classic Home Cinema – удобный во всех планах мультимедийный проигрыватель. Он построен на базе классического плеера Media Player Classic и одного из лучших наборов медиа-кодеков ffdshow, и благодаря этому может проигрывать многие форматы видео и аудио файлов без установки внешних кодеков. Этот плеер имеет большое количество различных функциональных возможностей: (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:808C21F794406FA6B9D0C545B73807D4BFA2FD07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291219   (672120) от 23.03.2019
-
-3D модели - Hum3D - Jeep Wrangler Unlimited Sahara 2018 [Mental Ray|V-Ray|*.max, 3DS, 3DM, C4D]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672120.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки JeepФормат: Mental Ray|V-Ray|*.max, 3DS, 3DM, C4D, FBX, LWO, OBJ, MB, MXS, STL, BIP, BLEND, DAE, DXF,
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39674BE01722856652A7FEE9D76BB0DB34A2AC8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291210   (672119) от 23.03.2019
-
-Камеди Клаб / Комеди Клаб / Comedy Club (2019.03.22) WEB-DL [H.264/720p-LQ]
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672119.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморАктеры: Гарик Мартиросян, Вадим Галыгин, Павел Воля, Тимур Батрутдинов, Александр Ревва, Гавр, Олег Верещагин, Дмитрий Сорокин, Зураб Матуa, Андрей Аверин, Алексей Лихницкий, Роман Юнусов, Антон Лирник, Андрей Молочный, Александр Незлобин, Дмитрий Хрусталёв, Васильев Виктор, Сергей Бессмертный, Игорь Меерсон, Семён Слепаков, Михаил Галустян и др.Субтитры: ОтсутствуютПродолжительность: 00:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D39608BA30F490BAE03CB1D08708B4A7DFEDA952
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290265   (672118) от 23.03.2019
-
-Излучина реки / Bend of the River (1951) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672118.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пятидесятые года XIX века. При сопровождении каравана фургонов через горы, через прерии в Портленд, в поисках новой жизни Глен МакЛинток спасает от линчевания Эмерсона Коула, подозреваемого в краже скота. Благодарный Коул помогает Глену и его друзьям отбить неожиданную атаку индейцев, так они становятся друзьями.
-Подруга Глена Лаура Бэйл увлеклась Коулом и намерена (   Читать дальше...   )Производство: США / Universal International Pictures (UI or U-I)Жанр: Боевик, Мелодрама, Приключения, ВестернРежиссер: Энтони МаннАктеры: Джеймс Стюарт, Артур Кеннеди, Джули Адамс, Рок Хадсон, Джей С. Флиппен, Лори Нельсон, Чабби Джонсон, Степин Фетчит, Гарри Морган, Ховард ПетриПеревод: Многоголосый закадровый, двухголосый закадровыйСубтитры: АнглийскиеПродолжительность: 01:31:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F19526BFEE1C6166751784EE1D47788C396BFED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291221   (672117) от 23.03.2019
-
-Wings - Red Rose Speedway (The Bruce McMouse Show) (2018) BDRemux [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пол Маккартни переиздал свой альбом Wings 1973 года Red Rose Speedway в роскошном издании, включающем 3 диска, 2 DVD и 1 Blu-ray. В визуальную часть пакета был включен неизданный анимационный фильм под названием « The Bruce McMouse Show», объедивший анимацию семьи любящих музыку мышей, живущих под концертной площадкой, с живыми кадрами четырех живых выступлений Wings (   Читать дальше...   )Производство: Великобритания, M.P.L. Communications LimitedЖанр: фильм-концерт, анимацияРежиссер: Барри ЧаттингтонАктеры: Пол и Линда Маккартни, Дерик Гайлер, Пэт Кумбс и Дерек НиммоПеревод: ОтсутствуетСубтитры: отсутствуютПродолжительность: 00:52:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C52C26019EFBC301B611B21EFA800DDA10BC2C56
+magnet:?xt=urn:btih:3FC852109DEA1553427D2FB505EA1CFFBC42F20A
 ```
 
 https://mybot314.ru/tekegram_catalog/

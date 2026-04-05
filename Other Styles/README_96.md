@@ -1,3 +1,67 @@
+###  Публикация: 1050149   (540756) от 07.09.2016
+
+Timothy Olson - Bedtime (2016) [MP3|320 Kbps] <Electronic, Easy Listening, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awake All Night
+02. Baby Dream
+03. Bedtime Stories
+04. Breeze(   Читать дальше...   )Жанр: Electronic, Easy Listening, New AgeПродолжительность: 00:25:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCAD00CA8F0644874238B9BAC80E34F037FAABED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531652   (540733) от 06.08.2012
+
+Stefano Mocini - A Cat Playing (2011) [MP3|128-256 кб/с]<Relax,New Age,Melodic,Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540733.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Injustice (2:51)
+2. The Dragonfly (2:01)
+3. Awesome Lie (3:02)
+4. Calm Before (3:06)
+5. Aginst Fate (3:13)
+6. Joke (3:02)
+7. Hope You Will Fine  (2:18)
+8. It Hurts (3:20)
+9. Leaving You (3:39)
+10. Half Moon Ball Pianosolo Version (3:50)Жанр: Relax,New Age,Melodic,PianoПродолжительность: 00:30:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5112353AC2F21E3A9C31509A6F0FA74EC16B767A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1050290   (540515) от 07.09.2016
 
 VA - Angels of Hope (An Angelic Compilation) (2016) [FLAC|Lossless|tracks] <New Age>
@@ -6,7 +70,7 @@ VA - Angels of Hope (An Angelic Compilation) (2016) [FLAC|Lossless|tracks] <New 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540515.jpg" />
 </div>
 
 
@@ -35,7 +99,7 @@ Valentina Babor - Piano Princess (2015) [FLAC|Lossless|tracks + .cue] <Instrumen
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540378.jpg" />
 </div>
 
 
@@ -64,7 +128,7 @@ Kitaro - Asian Cafe (2002) 2016 Domo Records [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540373.jpg" />
 </div>
 
 
@@ -93,7 +157,7 @@ Andrei Denisov - Easy to Fly (1996) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540053.jpg" />
 </div>
 
 
@@ -122,7 +186,7 @@ VA-Enigma Lounge - By The Essence (2004) [MP3|320 кб/с]<New age , Enigmatic, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540045.jpg" />
 </div>
 
 
@@ -157,7 +221,7 @@ Daughter of Swords - Dawnbreaker (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539969.jpg" />
 </div>
 
 
@@ -186,7 +250,7 @@ Kaare Norge & Claus Raahauge - Made Of Dreams (1998) [MP3|256 kbps]<Relax, New A
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539753.jpg" />
 </div>
 
 
@@ -216,7 +280,7 @@ Zack Hemsey - 13 Albums + 8 Singles (2006-2014) [MP3|320 кб/с]<Instrumental, 
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539674.jpg" />
 </div>
 
 
@@ -243,7 +307,7 @@ Yoko Shimomura, VA - Final Fantasy XV Original Soundtrack (2016) 4 CD [MP3|320 K
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538839.jpg" />
 </div>
 
 
@@ -273,7 +337,7 @@ The Royal Guitar Ensemble & Claude Ciari - Golden Guitar (2004) [FLAC|Lossless]<
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538759.jpg" />
 </div>
 
 
@@ -302,7 +366,7 @@ VA - Romantic Collection - Instrumental Vol. 2 (2000) [FLAC|Lossless|tracks + .c
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538695.jpg" />
 </div>
 
 
@@ -331,7 +395,7 @@ Nazca - Indians, Songs, Nature, Dreams (2002) [MP3|192 кб/с]<Native American,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538560.jpg" />
 </div>
 
 
@@ -366,7 +430,7 @@ Taikoza - Beginnings (Японские барабаны!) (2002) [MP3|~190 кб/
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538244.jpg" />
 </div>
 
 
@@ -399,7 +463,7 @@ Anhidema - Le Retour Du Anunnaki (2016) [MP3|320 Kbps] <New Age, Space, Spiritua
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538158.jpg" />
 </div>
 
 
@@ -428,7 +492,7 @@ Erin Durant - Islands (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538126.jpg" />
 </div>
 
 
@@ -457,7 +521,7 @@ The Henningsens - World's on Fire (2016) [FLAC|Lossless|tracks] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538085.jpg" />
 </div>
 
 
@@ -486,7 +550,7 @@ James Last - James Last and his Orchestra play music of Andrew Lloyd Webber (199
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538066.jpg" />
 </div>
 
 
@@ -521,7 +585,7 @@ VA - A Native American Odyssey- Inuit to Inca (1998) [MP3|320 Kbps] <Native Amer
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538018.jpg" />
 </div>
 
 
@@ -550,7 +614,7 @@ Raymond Lefevre et Son Grand Orchestre - Japanese Limited Mini LP SHM-CD (6CD) (
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537754.jpg" />
 </div>
 
 
@@ -585,7 +649,7 @@ VA - The World Of The Spanish Guitar Vol. 1 /2CD/ (2011) [MP3|320 kbps]<Instrume
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536909.jpg" />
 </div>
 
 
@@ -620,7 +684,7 @@ Mythos - Eros (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536844.jpg" />
 </div>
 
 
@@ -649,7 +713,7 @@ Atom Music Audio - Transcendence (2019) [MP3|320 Kbps] <Soundtrack, Instrumental
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536387.jpg" />
 </div>
 
 
@@ -678,7 +742,7 @@ Atom Music Audio - EON II (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic 
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536318.jpg" />
 </div>
 
 
@@ -707,7 +771,7 @@ Raimonds Pauls / Раймонд Паулс - Zelta 60 (2CD) (1996) [MP3|320 кб
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536166.jpg" />
 </div>
 
 
@@ -729,66 +793,6 @@ Raimonds Pauls / Раймонд Паулс - Zelta 60 (2CD) (1996) [MP3|320 кб
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52D4A7701FD0A7959F61706CD4047CFB39A030A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 227252   (535925) от 16.08.2010
-
-Music From The World Of Osho - Laughing Drums (2000) [WMA|357-449 kbps]<New Age, Worldbeat>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Свинг тенко		   (07:32)
-02 Танцующие барабаны	   (10:47)
-03 Ритм птицы		   (04:09)
-04 Тимфун		   (06:52)
-05 Ритм жизни		   (21:08)
-06 Спокойный Будда	   (08:09)Жанр: New Age, WorldbeatПродолжительность: 00:58:42
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312132   (535661) от 02.07.2019
-
-Jean Michel Jarre - The Best Of (2015) 2CD [FLAC|Lossless|image + .cue] <Electronic, New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oxygene4 [4:05]
- 02. Equinoxe 4 [6:40]
- 03. Magnetic Fields 2 [3:56]
- 04. Orient Express [4:12](   Читать дальше...   )Жанр: Electronic, New Age, AmbientПродолжительность: 02:39:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:999E690406BC79695202D451A9EB2BEC32347DD4
 ```
 
 https://mybot314.ru/tekegram_catalog/

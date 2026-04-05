@@ -1,3 +1,55 @@
+###  Публикация: 1623487   (200509) от 01.04.2023
+
+class101, tfvkne | From Visualization to Illustration: Understanding Basic Anatomy and Rendering (2022) WEB-DL [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200509.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом классе будут затронуты такие темы, как анатомия человека и то, как изображать свои работы с вниманием к деталям. Мы изучим мой образ мышления, а также советы и рекомендации о том, как начать с продуктивной визуализации концепции до иллюстрирования ее на чистом холсте с нуля. Научитесь поддерживать свой рабочий процесс и мотивацию для завершения работы!Производство: class101, tfvkneЖанр: РисованиеЯзык озвучки: АнглийскийПродолжительность: 08:00:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:123A51D75E65CBDBCAD2186A9255BDC3E428657C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623011   (200495) от 31.03.2023
+
+Ольга Кондратова | Интенсивный курс по дизайну. Часть I (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс рассчитан на широкую аудиторию. Будет полезен как практикующему дизайнеру (в том числе новичку), так и просто интересующимся темой обустройства своего дома (квартиры). Всё с самого начала - от оценки пространств и его обмера, через оси к дверям и внутренним окнам, по напольным покрытиям и материалу стен, к цвету и освещению. 20 статей, способных перевернуть (   Читать дальше...   )Жанр: Дизайн интерьераЯзык озвучки: РусскийПродолжительность: 00:16:05Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:467981E8172EA359BE7176DB516A8A8488AF5D40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1623253   (200454) от 01.04.2023
 
 Арт-студия Matita, Егор Матита | Портреты. Достижение фотореализма. Тариф - Я сам (2023) WEB-DL [RU]
@@ -6,7 +58,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200454.jpg" />
 </div>
 
 
@@ -35,7 +87,7 @@ Udemy, Stefano Cotardo | Houdini FX - How to add Visual Effects in Real Videos (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200375.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ Udemy, Stephen Pearson | The Cloth Simulation Guide in Blender 2.8 (2021) WEB-DL
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200292.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ Controforma.school, Михаил Шишкин, Анастасия Актерск
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200275.jpg" />
 </div>
 
 
@@ -115,7 +167,7 @@ Udemy, Stephen Pearson | Rigid Body Simulation Guide in Blender 2.8 (2021) WEB-D
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200209.jpg" />
 </div>
 
 
@@ -143,7 +195,7 @@ Udemy, Stephen Pearson | Beginners Guide to the Particle System in Blender 2.8 (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200206.jpg" />
 </div>
 
 
@@ -169,7 +221,7 @@ Udemy, Stephen Pearson | Complete Guide to Dynamic Paint in Blender (2021) WEB-D
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200198.jpg" />
 </div>
 
 
@@ -195,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200147.jpg" />
 </div>
 
 
@@ -224,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200116.jpg" />
 </div>
 
 
@@ -250,7 +302,7 @@ Udemy, Raffi Bedross | Intro to Hair and Fur in Houdini 19.5 (2022) WEB-DL [EN, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200044.jpg" />
 </div>
 
 
@@ -278,7 +330,7 @@ Udemy, Philip Cotton | Beginners Ultimate Guide to 3D Printing; Bootcamp (2023) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200038.jpg" />
 </div>
 
 
@@ -304,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200026.jpg" />
 </div>
 
 
@@ -333,7 +385,7 @@ Aaron Blaise | How to Draw Wolves, Coyotes & Foxes (2020) WEB-DL [AD] [EN / EN S
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200008.jpg" />
 </div>
 
 
@@ -361,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199983.jpg" />
 </div>
 
 
@@ -387,7 +439,7 @@ Udemy, Shahzad Ahmad | Magical Butterfly FX in Houdini (2022) WEB-DL [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199964.jpg" />
 </div>
 
 
@@ -416,7 +468,7 @@ Kalacheva School, Анна Цымбал | Практическая линогр�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199938.jpg" />
 </div>
 
 
@@ -445,7 +497,7 @@ Refactoringui, Adam Watan | Refactoring UI – Complete Package (2023) WEB-DL [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199812.jpg" />
 </div>
 
 
@@ -473,7 +525,7 @@ Designcode, SOURASITH PHOMHOME | UI Design Android Apps in Figma (2023) WEB-DL [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199769.jpg" />
 </div>
 
 
@@ -499,7 +551,7 @@ Udemy, Ken Zhuang | Mystique Effect in Houdini with Vex (2022) WEB-DL [EN / EN S
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199768.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ The Gnomon Workshop, Dan Weiss | Designing & Modeling a Creature With Scales By 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199763.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ CG Fast Track | Geometry Nodes Boot Camp Vol. 1 (Blender 3.4) (2023) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199347.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199294.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199158.jpg" />
 </div>
 
 
@@ -636,7 +688,7 @@ Udemy, Joakim Tornhill | The Blender Path to Procedural Patterns! (2020) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199123.jpg" />
 </div>
 
 
@@ -648,61 +700,6 @@ Udemy, Joakim Tornhill | The Blender Path to Procedural Patterns! (2020) PCRec [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FE38731E653163967F038F6E8820AA6D029BBA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630421   (199046) от 30.04.2023
-
-Udemy, Joakim Tornhill | The Emitter Particle Course for Blender 2.8 and above (2020) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_199046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс предназначен для тех, кто действительно хочет воспользоваться преимуществами мощной системы частиц, существующей в Blender.
-В нем будут рассмотрены все аспекты, такие как размещение и вращение частиц, их раскрашивание, использование различных типов физики, как различные силы взаимодействуют с системой частиц, как текстуру можно использовать различными способами (   Читать дальше...   )Производство: UdemyЖанр: 3D моделирование, ЧастицыЯзык озвучки: АнглийскийПродолжительность: 08:26:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DAE2310FD33B1002BAC792321A1EA9CF127EB20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630419   (199028) от 30.04.2023
-
-Udemy, Joakim Tornhill | Shader Magic in Blender 3.41 and above (2023) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_199028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы один из тех, кто думает, что ноды выглядят устрашающе, когда вы видите большое дерево нодов ... или, возможно, вам просто любопытно, как вода в игре может так красиво обтекать эти камни в реке и идеально следовать течению?
-Независимо от причины, здесь вы узнаете больше о том, как соединить эти ноды!
-Я расскажу о том, как создавать фигуры, как работает векторная (   Читать дальше...   )Производство: UdemyЖанр: 3D моделирование, ШейдерыЯзык озвучки: АнглийскийПродолжительность: 13:54:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DF7FABA86BD89E42AC0BB1CED30B814CD85615A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ SiteSucker Pro 4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798013.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Screen Wonders 1.9.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798011.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ VisualDiffer 1.8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798009.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ File Juicer 4.96 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798006.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Pacifist 4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797996.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ iNet Network Scanner 2.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797993.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ MacPilot 13 v13.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797986.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Unclutter 2.1.24 fix [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797979.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Movavi Video Editor Plus 2022 v22.0.0 fix [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797935.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ DVD-Cloner 2020 7.10.716 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797882.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Multitouch 1.17.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797880.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ AnyMP4 Audio Converter for Mac 8.2.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797869.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ DCommander 3.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797806.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Fileloupe - Media Browser 1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797648.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Total Video Converter Pro 4.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797638.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Multitouch 1.25 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797590.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ PhotosCollage 1.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797587.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797577.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ eBookBinder 1.10.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797563.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Dato 3.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797558.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ DVD-Cloner 2021 v8.40.726 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797557.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Dash 4.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797529.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797528.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Default Folder X 5.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797521.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Dark Reader for Safari 1.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797513.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ ON1 Photo RAW 2022 v16.0.1.11212 fix [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797511.jpg" />
 </div>
 
 

@@ -1,3 +1,135 @@
+###  Публикация: 1725985   (55341) от 26.05.2024
+
+Кровь Зевса / Blood of Zeus (2024) WEB-DL [H.264/1080p] (сезон 2, серии 1-8 из 8) Jaskier, TVShows, LostFilm
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55341.jpg" />
+</div>
+
+
+###  Подробнее
+
+Житель Древней Греции Герон случайно узнает свое истинное предназначение. Выясняется, что он — сын Зевса, призванный спасти мир от демонической армии.Производство: США / Powerhouse Animation Studios, Asia Minor PicturesЖанр: мультфильм, боевик, фэнтезиРежиссер: Шант Нигогосян, Джэ Х. Ким, Joshua CoveyАктеры: Дерек Филлипс, Джессика Хенвик, Илайс Туфексис, Джейсон О’Мара, Адетокумбо Маккормак, Клаудия Кристиан, Крис Диамантополос, Фред Таташиор, Мэттью Мерсер, Мэтт ЛоуПеревод: Многоголосый профессиональный (Jaskier, TVShows, LostFilm)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Украинские, Английские (Forced, Full)Продолжительность: ~00:31:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50DA753888DC7501FC0E19B59FCC088C3E773476
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725984   (55319) от 26.05.2024
+
+Живой гараж (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-26 из 26)
+
+>>Мультфильмы
+>>Отечественные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычный 8-летний мальчик Тимми вместе с семьёй переезжает в новый дом. В гараже он находит гиперчатку, с ее помощью случайно активирует Живой Гараж и становится главным инженером. Там же Тимми знакомится с инженериксами — комичными живыми существами, которые трансформируются из ящиков с инструментами. Живой Гараж вместе с инженериксами помогает Тимми в непростом, (   Читать дальше...   )Производство: Россия | «ЯРКО», «Аэроплан»Жанр: Мультфильм, комедияРежиссер: Станислав Добровский, Мария Конева, Рафаэль Тер-СаргсянАктеры: Ева Финкельштейн, Пётр Иващенко, Антон Колесников, Ольга Шорохова, Лариса БрохманСубтитры: ОтсутствуютПродолжительность: ~00:06:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDA1C6E0616193A28287E9097EFCB73533C1571B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726268   (55242) от 27.05.2024
+
+Кунг-фу Панда 4 / Kung Fu Panda 4 (2024) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit, Dolby Vision]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение приключений легендарного Воина Дракона, его верных друзей и наставника.
+По готовится стать духовным лидером своей Долины Мира, но ему также нужен кто-то, кто займет его место Воина Дракона. Таким образом, он будет обучать нового практикующего кунг-фу для этого места и столкнется со злодеем по имени Хамелеон, который вызывает злодеев из прошлого.Производство: США, Китай / DreamWorks Animation, DreamWorks SKG, Universal PicturesЖанр: мультфильм, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Майк Митчелл, Стефани СтайнАктеры: Джек Блэк, Аквафина, Виола Дэвис, Дастин Хоффман, Брайан Крэнстон, Джеймс Хун, Иэн Макшейн, Ке Хюи Куан, Ронни Чиэн, Лори Тань ЧиннПеревод: Дублированный, МногоголосыйЯзык озвучки: Русский, АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: 01:33:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B89C44F7C9646830F2D0E79D2EE824E1B3FC729
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726103   (55222) от 27.05.2024
+
+Четыре души Койота / Kojot negy lelke / Four Souls of Coyote (2023) WEB-DLRip [H.264/1080p] [MVO] [AD]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Венгерский анимационный фильм о том, как коренные американцы борются за свою землю, протестуя против строительства нефтепровода на их территории. Индейцы желают жить в гармонии с природой, но нефтяная корпорация жаждет проложить свой нефтепровод через исторические земли, имеющие ценность для коренного населения. Старейшина рассказывает молодым потомкам древний миф (   Читать дальше...   )Производство: Венгрия / Cinemon EntertainmentЖанр: мультфильм, боевик, драма, приключенияРежиссер: Арон ГаудерАктеры: Карин Энглин, Кле Беннетт, Джон Эрик Бентли, Янош Папп, Петер Божо, Герда Пикали, Петер Шерер, Тамаш Селеш, Балинт Вида, Сара ВидаПеревод: Многоголосый любительский (RGB)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:46:06Реклама: Плавающий баннер
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B0251F87BEE6301A9188A50787E47CC283E0B4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726249   (55215) от 27.05.2024
+
+Кунг-фу Панда 4 / Kung Fu Panda 4 (2024) BDRemux [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение приключений легендарного Воина Дракона, его верных друзей и наставника.
+По готовится стать духовным лидером своей Долины Мира, но ему также нужен кто-то, кто займет его место Воина Дракона. Таким образом, он будет обучать нового практикующего кунг-фу для этого места и столкнется со злодеем по имени Хамелеон, который вызывает злодеев из прошлого.Производство: США, Китай / DreamWorks Animation, DreamWorks SKG, Universal PicturesЖанр: мультфильм, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Майк Митчелл, Стефани СтайнАктеры: Джек Блэк, Аквафина, Виола Дэвис, Дастин Хоффман, Брайан Крэнстон, Джеймс Хун, Иэн Макшейн, Ке Хюи Куан, Ронни Чиэн, Лори Тань ЧиннПеревод: Дублированный, МногоголосыйЯзык озвучки: Русский, АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: 01:33:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8B405C2FCF7B8A6E2E15EE63E4145A813AE5CA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1726102   (55197) от 27.05.2024
 
 Четыре души Койота / Kojot negy lelke / Four Souls of Coyote (2023) WEB-DLRip [H.264] [MVO] [AD]
@@ -6,7 +138,7 @@
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55197.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55158.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55134.jpg" />
 </div>
 
 
@@ -85,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55122.jpg" />
 </div>
 
 
@@ -112,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55109.jpg" />
 </div>
 
 
@@ -139,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55106.jpg" />
 </div>
 
 
@@ -165,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55105.jpg" />
 </div>
 
 
@@ -193,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55095.jpg" />
 </div>
 
 
@@ -221,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55087.jpg" />
 </div>
 
 
@@ -247,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55086.jpg" />
 </div>
 
 
@@ -275,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55011.jpg" />
 </div>
 
 
@@ -301,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54998.jpg" />
 </div>
 
 
@@ -327,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54914.jpg" />
 </div>
 
 
@@ -353,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54905.jpg" />
 </div>
 
 
@@ -380,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54893.jpg" />
 </div>
 
 
@@ -406,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54795.jpg" />
 </div>
 
 
@@ -432,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54790.jpg" />
 </div>
 
 
@@ -458,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54709.jpg" />
 </div>
 
 
@@ -486,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54705.jpg" />
 </div>
 
 
@@ -512,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54683.jpg" />
 </div>
 
 
@@ -538,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54660.jpg" />
 </div>
 
 
@@ -549,141 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A5A1AC2A45BE35C224FD1A1F319D644366E65CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727325   (54580) от 02.06.2024
-
-Похождения императора / The Emperor's New Groove (2000) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как и положено царственной особе, император Куско - очень занятой человек. Но последнее его занятие грозит обернуться большими неприятностями: правитель решил построить для себя водный парк, предварительно снеся одну из деревень королевства.
-Этот план непременно бы воплотился в жизнь, если бы неприятность не произошла уже с самим императором: недруги превратили его (   Читать дальше...   )Производство: США, Япония / Walt Disney Pictures, Walt Disney Feature AnimationЖанр: рисованная анимацияРежиссер: Марк ДиндалАктеры: Дэвид Спейд, Джон Гудман, Эрта Китт, Патрик Варбертон, Уэнди Мэлик, Келлиэнн Келсо, Эли Расселл Линэц, Стивен Дж. Андерсон, Боб Берген, Роджер БампассПеревод: Дублированный (Невафильм)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:18:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:138A6E804F5C78CF032662C06DA119416A750B49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727478   (54566) от 02.06.2024
-
-Леди и бродяга 2: Приключения Шалуна / Lady and the Tramp II: Scamp's Adventure (2001) WEB-DLRip [H.265/2160p] [Локализованная версия] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54566.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение классического диснеевского мультфильма о трогательных отношениях породистой Леди и бездомного пса Бродяги. Они уже родители целой своры щенков — трёх элегантных девочек и одного буйного мальчика по имени Шалун.
-
-В поисках риска и «реальной» собачьей жизни Шалун уходит из дома и встречает Энджел, Бастера и его шайку. Вместе с верными друзьями он переживёт (   Читать дальше...   )Производство: Австралия, США / Walt Disney Pictures, Walt Disney Television Animation, Walt Disney Animation AustraliaЖанр: рисованная анимацияРежиссер: Даррел Руни, Джаннин РуссельАктеры: Скотт Вулф, Алисса Милано, Чазз Пальминтери, Джефф Беннетт, Джоди Бенсон, Билл Фагербакки, Микки Руни, Бронсон Пиншо, Кэти Мориарти, Мэри Кэй БергманПеревод: Дублированный (Пифагор)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:06:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1FEFDE87E2F5D60935DFE4DAE27069E7F8E4526
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693300   (54413) от 04.06.2024
-
-Кунг-фу Панда / Kung Fu Panda (2008 - 2024) BDRemux [H.264/1080p] [Квадрология]
-
->>Мультфильмы
->>Зарубежные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54413.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Кунг-фу панда» — американская медиафраншиза студии DreamWorks Animation запущенная с выходом одноимённого мультфильма 2008 года. Вся франшиза так или иначе завязана на главном герое все мультфильмов, панде по имени По.Производство: США, Великобритания, Китай / DreamWorks Animation, Dragon Warrior Media, China Film Group Corporation (CFGC)Жанр: мультфильм, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Марк Осборн, Джон Стивенсон, Дженнифер Ю, Алессандро Карлони, Майк Митчелл, Стефани СтайнАктеры: Джек Блэк, Аквафина, Виола Дэвис, Дастин Хоффман, Брайан Крэнстон, Джеймс Хун, Иэн Макшейн, Ке Хюи Куан, Ронни Чиэн, Лори Тань ЧиннПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские,  украинские, английскиеПродолжительность: 01:32:09 / 01:30:23 / 01:34:54 / 01:33:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5630E52A012685526253F1288304862EA15F11CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727951   (54318) от 05.06.2024
-
-Атлантида: Затерянный мир / Atlantis: The Lost Empire (2001) WEB-DLRip [H.265/2160p] [Локализованная версия] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Атлантида... Мечтой найти легендарный затонувший в пучинах океана остров грезили многие смельчаки. Но только юному картографу Майло Тэтчу повезло: в 1914 году в его руки попал таинственный дневник, указывающий путь к Затерянной империи. И вот уже самая могучая подводная лодка в мире под командованием неустрашимого капитана Рурка выходит в открытый океан.
-
-Майло и (   Читать дальше...   )Производство: США, Япония / Walt Disney Pictures, Toon City Inc., Walt Disney Feature AnimationЖанр: мультфильм, фантастика, фэнтези, боевик, приключения, семейныйРежиссер: Гари Труздейл, Кирк УайзАктеры: Кори Бертон, Клаудия Кристиан, Майкл Дж. Фокс, Джеймс Гарнер, Джон Махони, Фил Моррис, Леонард Нимой, Дон Новелло, Жаклин Обрадорс, Флоренс СтэнлиПеревод: Дублированный (Невафильм)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:31:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:795F31DC5C7568052E01EF74125FD25CA4731665
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728119   (54313) от 05.06.2024
-
-Последняя фантазия: Духи внутри / Final Fantasy: The Spirits Within (2001) BDRip [AV1/1080p] [10-bit] [handmade AI]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54313.jpg" />
-</div>
-
-
-###  Подробнее
-
-Земля, год 2065... Планета в страшной опасности. На родину человечества напали монстры-фантомы из космоса, которым невозможно противостоять. Полупрозрачные чудовища, более похожие на порождения галлюцинирующего мозга, уже истребили большую часть человечества, и скоро их господство над Землей станет полным. Судьба мира в руках горстки смельчаков - ученой Аки Росс, (   Читать дальше...   )Производство: США, Япония / Columbia Pictures, Chris Lee Productions, Square Co. Ltd.Жанр: мультфильм, фантастика, боевикРежиссер: Хиронобу Сакагути, Мото СакакибараАктеры: Мин-На Вэнь, Алек Болдуин, Винг Рэймс, Стив Бушеми, Пери Гилпин, Дональд Сазерленд, Джеймс Вудс, Кейт Дэвид, Жан Симмонс, Мэтт МакКензи, Джон ДеМита, Алекс Фернандез, Дэвид Рэснер, Дуайт ШульцПеревод: Дублированный (Невафильм)Язык озвучки: РусскийСубтитры: Русские (forced, full)Продолжительность: 01:45:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53F41C4C8226CE9130224DE50982CB959A1E11A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

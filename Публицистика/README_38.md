@@ -1,3 +1,31 @@
+###  Публикация: 1229559   (624346) от 07.06.2018
+
+Алексей Венедиктов | Мое особое мнение. Записки главного редактора «Эха Москвы» (2018) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624346.jpg" />
+</div>
+
+
+###  Подробнее
+
+НОВАЯ КНИГА известного журналиста Алексея Венедиктова – это предельно откровенный (как и все его эфиры) разговор с читателем. Впервые на книжных страницах главный редактор «Эха Москвы» рассказывает о главных политических событиях последней четверти века и своем участии в них; делится личными историями и размышлениями…
+
+О дружбе с Горбачевым и противостоянии с Березовским; (   Читать дальше...   )Жанр: Публицистика, Современное политическое положениеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31266614B9EBED61A69F42C6ABA801EAFF57D7FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1229680   (624059) от 07.06.2018
 
 Лоуренс Рис | Холокост. Новая история (2018) [FB2]
@@ -6,7 +34,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624059.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622484.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622201.jpg" />
 </div>
 
 
@@ -85,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621735.jpg" />
 </div>
 
 
@@ -111,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_621006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621006.jpg" />
 </div>
 
 
@@ -137,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620494.jpg" />
 </div>
 
 
@@ -163,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620490.jpg" />
 </div>
 
 
@@ -189,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619092.jpg" />
 </div>
 
 
@@ -216,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618824.jpg" />
 </div>
 
 
@@ -242,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618700.jpg" />
 </div>
 
 
@@ -268,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617608.jpg" />
 </div>
 
 
@@ -295,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617265.jpg" />
 </div>
 
 
@@ -321,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617066.jpg" />
 </div>
 
 
@@ -348,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617052.jpg" />
 </div>
 
 
@@ -374,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616920.jpg" />
 </div>
 
 
@@ -400,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615131.jpg" />
 </div>
 
 
@@ -427,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615078.jpg" />
 </div>
 
 
@@ -453,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_615052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615052.jpg" />
 </div>
 
 
@@ -479,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614930.jpg" />
 </div>
 
 
@@ -505,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614481.jpg" />
 </div>
 
 
@@ -531,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_613775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613775.jpg" />
 </div>
 
 
@@ -557,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612684.jpg" />
 </div>
 
 
@@ -584,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612017.jpg" />
 </div>
 
 
@@ -610,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611744.jpg" />
 </div>
 
 
@@ -636,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611649.jpg" />
 </div>
 
 
@@ -648,32 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FE04CF31376231EE203624DFB623692245A8D66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146940   (611310) от 01.07.2017
-
-Ф. Э. Дзержинский | Избранные произведения [2 тома] (1967) [DJVU, PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Избранные произведения выдающегося деятеля Коммунистической партии и Советского государства, верного ученика и ближайшего соратника В. И. Ленина, пламенного борца за коммунизм Феликса Эдмундовича Дзержинского, подготовленные Институтом марксизма-ленинизма при ЦК КПСС. Первый том охватывает периоды с 1897 по 1923 год. Второй том охватывает период с января 1924 по (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CE366C8EB64781BF9F33DDB286BFB6A888A83DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

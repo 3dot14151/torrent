@@ -1,3 +1,162 @@
+###  Публикация: 990699   (905394) от 28.02.2016
+
+Проекты - VideoHive - FX Particle Builder | Fire Dust Smoke Particular Presets - 14664200 [AEP]
+
+>>3
+>>9
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905394.jpg" />
+</div>
+
+
+###  Подробнее
+
+FX Particle Builder | Fire Dust Smoke Particular Presets - это мощный инструмент для простого и быстрого создания эффекта пламени, искр, дыма, эффекта магии, эффекта частиц разбитого стекла.
+Можно применить к тексту, Вашим фотографиям, картинкам, или видео материалам.
+Информация по работе со скриптами находится под спойлером "Дополнительная информация". (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87D0A2087758B7DB4DCCEF98E687889643556249
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953401   (905387) от 28.02.2016
+
+Гримм / Grimm (2015) WEB-DL [H.264/1080p-LQ]  (сезон 5, серии 1-10 из 22) LostFilm (обновляемая)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905387.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре повествования мрачной и фэнтезийной полицейской драмы от канала NBC - детектив Ник Буркхардт, который думал, что готов к суровой действительности, работая в отделе убийств. Но это было до того, как он начал видеть вещи, которые он не мог объяснить: привлекательная женщина на его глазах превращалась в ведьму, а заурядный Джо в опасного тролля. От единственного (   Читать дальше...   )Производство: США / GK Productions, Hazy Mills Productions, Universal TelevisionЖанр: драма, фэнтези, ужасыРежиссер: Норберто Барба, Терренс О’Хара, Эрик ЛанёвилльАктеры: Дэвид Джинтоли, Битси Таллок, Сайлас Уэйр Митчелл, Расселл Хорнсби, Саша Ройз, Регги Ли, Клэр Коффи, Бри Тёрнер, Роберт Бланш, Дэнни Бруно и др.Перевод: Многоголосый закадровый, профессиональный - LostFilmЯзык субтитров: английский, немецкийПродолжительность: ~00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78FAD76B61CB37BE29949D3EBFC70C12DC89D5CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946586   (905381) от 28.02.2016
+
+Ходячие мертвецы / The Walking Dead  (2015) WEB-DLRip [H.264/1080p-LQ]  (сезон 6, серии 1-10 из 16) LostFilm (обновляемая)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905381.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал рассказывает историю жизни семьи шерифа после того, как «зомби» — эпидемия апокалиптических масштабов захлестнула земной шар. Шериф Рик Граймс путешествует со своей семьей и небольшой группой выживших в поисках безопасного места для жизни. Но постоянный страх смерти каждый день приносит тяжелые потери, заставляя героев почувствовать глубины человеческой жестокости. (   Читать дальше...   )Производство: США / American Movie Classics (AMC), Circle of Confusion, Valhalla Motion PicturesЖанр: ужасы, драмаРежиссер: Грег Никотеро, Эрнест Р. Дикерсон, Гай ФерлендАктеры: Эндрю Линкольн, Стивен Ян, Чендлер Риггз, Норман Ридус, Мелисса Сюзанн МакБрайд, Лорен Кохэн, Данай Джекесай Гурира, Сонекуа Мартин-Грин, Эмили Кинни, Аланна Мастерсон и др.Перевод: Многоголосый закадровый, профессиональный - LostFilmПродолжительность: ~00:43:00 серия (01:04:00 первая серия)Реклама: присутствуют заставка и логотип LostFilm.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89D684B7BF779EA936C69DFA4C4E2F680530C767
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491870   (905011) от 28.08.2021
+
+Microsoft тихо удалила из Windows 11 привычные функции.
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905011.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новой сборке Windows 11 исчезло сразу несколько функций панели задач, которые есть в Windows 10, и которым все давно привыкли. В частности, часы больше не умеют отображать время в секундах, а календарь лишился встроенного органайзера. Microsoft не стала скрывать, что убрала все эти функции специально, чем вызвала поток жалоб со стороны пользователей.Microsoft стремится (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491876   (904987) от 28.08.2021
+
+Adobe Photoshop 2021 22.5.0.384 (Win10) Portable by syneus [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop 2021 - новая версия программы для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, коллажирования, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8FBA91DB8E069DE35C2C5FEB732D1F768431387
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215206   (904930) от 28.08.2021
+
+Tamas Olejnik (Dublicator, MetaComplex, Antendex, Astral Travel Agency, Organit, Auto Reverse, etc.) - 2006-2021 [FLAC|Lossless] <Dub Techno, Ambient, Electro, Psybient, Synthwave, Psy-Trance>
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avulth - Lime & Space (07:52)
+ 02. Organit - Curvature (07:12)Тип издания: CD, Vinyl, WebЖанр: Dub Techno, Ambient, Electro, Techno, Psybient, Synthwave, Psy-Trance •Продолжительность: 46:42:52 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9CE68DABE45586F2D5DBB01F32B605060BF6A0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368727   (904680) от 22.03.2020
 
 Ремонт по-марсиански: инженеры NASA вернули бур аппарата InSight к работе, стукнув по нему лопатой
@@ -6,7 +165,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904680.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904670.jpg" />
 </div>
 
 
@@ -58,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904572.jpg" />
 </div>
 
 
@@ -84,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>14
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904532.jpg" />
 </div>
 
 
@@ -110,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904525.jpg" />
 </div>
 
 
@@ -136,7 +295,7 @@ Adobe Photoshop 2020 21.1.1.121 RePack by KpoJIuK [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904523.jpg" />
 </div>
 
 
@@ -162,7 +321,7 @@ Foobar2000 v1.1.2 Spotifoo v1.3.1 Br3tt_Mod by ~ Zin-Uru [Английский]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904389.jpg" />
 </div>
 
 
@@ -192,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904294.jpg" />
 </div>
 
 
@@ -225,7 +384,7 @@ WizTree 2.01 + Portable [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904249.jpg" />
 </div>
 
 
@@ -251,7 +410,7 @@ Bandicam 3.3.2.1195 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904247.jpg" />
 </div>
 
 
@@ -277,7 +436,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2017.01.31 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904229.jpg" />
 </div>
 
 
@@ -303,7 +462,7 @@ iБой / iBoy (2016) WEB-DL [H.264/720p-LQ] [AD]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904227.jpg" />
 </div>
 
 
@@ -329,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904213.jpg" />
 </div>
 
 
@@ -355,7 +514,7 @@ BELOFF 2017.1 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904210.jpg" />
 </div>
 
 
@@ -381,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904207.jpg" />
 </div>
 
 
@@ -407,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903943.jpg" />
 </div>
 
 
@@ -433,7 +592,7 @@ Windows 7 Enterprise SP1 IDimm Edition х86/x64 v.19.15 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903923.jpg" />
 </div>
 
 
@@ -463,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903595.jpg" />
 </div>
 
 
@@ -489,7 +648,7 @@ uTorrent 3.4.5 Build 41865 Stable Portable by A1eksandr1 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903589.jpg" />
 </div>
 
 
@@ -515,182 +674,13 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903569.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Тогда как обновления для Windows 10 выходят постоянно и регулярно, начиная с релиза новой ОС, в июле прошлого года, Microsoft не жаждала делиться подробностями о том, что входит в состав этих обновлений.Фактически, пользователям каждый раз предлагается установить кота в мешке. Теперь эта скверная тенденция наконец изменится.«Понаблюдав за реакцией, которую вызывал (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991828   (903542) от 29.02.2016
-
-Windows 98 — теперь и в браузере
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Энтузиасты запускают в браузере старые игры, программы и операционные системы. При этом работа, которая требуется для реализации некоторых задумок, очень кропотливая и трудемкая, не говоря уже о том, какая уйма времени нужна в некоторых случаях. Для запуска Windows 98 в браузере разработчикам понадобилось целых четыре года. Но оно стоило того — теперь в браузере (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992061   (903504) от 29.02.2016
-
-AusLogics BoostSpeed 8.2.1.0 RePack (& Portable) by KpoJIuK [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903504.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics BoostSpeed - популярный набор инструментов для оптимизации и настройки вашей операционной системы. С помощью этой программы вы сможете значительно оптимизировать работу вашей системы, с легкостью настроить различные параметры Windows, очистить жесткий диск и системный реестр от мусора и ненужных записей, сделать дефрагментацию дисков и реестра, а также (   Читать дальше...   )Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:496ED939B3F22686304A4DB1614E746D55BFB16F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974618   (903484) от 29.02.2016
-
-Кости (2014) SATRip [H.264] (серии 1-24 из 24)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Адаптация американского детективного телесериала "Bones".
-Антрополог Анна Костина незаменима в раскрытии преступлений, где от тела жертвы остались только кости или разложившиеся останки. Напарником Анны становится старший следователь Особого отдела Следственного комитета РФ Дмитрий Богров. Убийства — не единственное, с чем приходится иметь дело главным (   Читать дальше...   )Производство: Россия / Good Story MediaЖанр: детективРежиссер: Филипп Коршунов, Виктор Божинов, Дмитрий Киселёв, Антон Борматов, Павел Бардин, Григорий ФёдоровАктеры: Наталья Высочанская, Константин Соловьёв, Вениамин Смехов, Артём Осипов, Анна Старшенбаум, Родион Долгирев, Михаил Куряев, Венчислав Хотяновский, Никита Тезов, Александр Пугачёв , Галина Звягинцева, Екатерина Дубакина, Никас Крюков, Татьяна Борисова, Алла Фомичева, Анна Багмет, Александр Андриенко, Маргарита Иванова-Донская , Сергей Галанин, Юлия Вознесенская, Лейла (   Читать дальше...   )Продолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EF7BFAE7134CD1B5A4E2CA38FFB6E06970DFBF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 636761   (903195) от 29.03.2013
-
-Побочный эффект / Side Effects (2013) DVDRip
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903195.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь главной героини Эмили пошла под откос, когда её мужа посадили в тюрьму. Вначале она пыталась спастись от депрессии своими силами, горстями глотая успокоительное. После того, как стало понятно, что это не поможет, Эмили не оставалось другого выхода кроме отправления в психиатрическую лечебницу к добрым и заботливым людям в белых халатах.
-
-Теперь главная героиня (   Читать дальше...   )Производство: США / Di Bonaventura Pictures, Endgame Entertainment See moreЖанр: Триллер, Драма, КриминалРежиссер: Стивен СодербергАктеры: Джуд Лоу, Руни Мара, Кэтрин Зета-Джонс, Ченнинг Татум, Кармен Пелаес, Марин Айрлэнд, Полли Дрэйпер, Аральдо Альварес, Джеймс Мартинез, Владимир ВерсейлПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:41:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6868B794030827C48A2368E99D597751D94DF886
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 182131   (903127) от 11.03.2010
-
--=FAN STYLING SE7EN X64 rus 2010 =- 7600.16385 х64 RUS [русский]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903127.jpg" />
-</div>
-
-
-###  Подробнее
-
-
--=FAN STYLING SE7EN X64 rus 2010 =- • Год выпуска: 2010
-• Версия:  7600.16385 х64 RUS
-• Разработчик: Microsoft Corporation
-• Платформа:  х64 (64bit) 
-• Совместимость с Vista: полная
-• Совместимость с Seven: полная
-• Формат файла: ISO
-• Авторы сборки: SPA(   Читать дальше...)
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369241   (903125) от 23.03.2020
-
-Очередное достижение: 4000 релизов от kosatka!
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередное достижение: 4000 релизов от kosatka!Уважаемые одноклубники!
-В очередной раз, выражаем огромную благодарность и искренне поздравляем нашего почётного Релизёра, Трудягу, грамотного и подкованного Доку, нашего Друга, kosatka, с достижением новой вершины - 4000 релизов!
-Желаем от всего сердца нескончаемого вдохновения, терпения, сил и творческих успехов в нашем (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

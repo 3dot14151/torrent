@@ -1,3 +1,61 @@
+###  Публикация: 1359361   (964992) от 11.02.2020
+
+Грязный Эндрю - Матерные частушки (2019) [MP3|320 Kbps] <Частушки>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964992.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Матерные частушки, часть1
+2. Матерные частушки, часть2
+3. Матерные частушки, часть3
+4. Матерные частушки, часть4(   Читать дальше...   )Жанр: ЧастушкиПродолжительность: 00:36:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAB78E5DF6025CE9068DF8650E16D7228B365E36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978160   (964709) от 22.01.2016
+
+Jim Brickman - Believe (2014) [MP3|320 кб/с] <New Age, Solo Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunshine in the Rain
+02. The Road Before Us
+03. Daybreak
+04. As the River Flows(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:48:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3540745F64BD706D78D64BE4359632F535D8B008
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1359411   (964191) от 12.02.2020
 
 VA - Instrumental Moods (2002) [FLAC|Lossless|tracks + .cue] <Instrumental, Latin, Jazz>
@@ -6,7 +64,7 @@ VA - Instrumental Moods (2002) [FLAC|Lossless|tracks + .cue] <Instrumental, Lati
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964191.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Gary Girouard - The Naked Piano: Transitions (2016) [MP3|320 кб/с] <New Age, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963578.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Stephen Rhodes - New Images (2016) [MP3|320 кб/с] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963577.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Of Monsters And Men - Beneath The Skin (2015) Deluxe [FLAC|Lossless|WEB-DL|track
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963423.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Crispin Merrell - Машина смерти / Death Machine (1994) 2015 [MP3|320
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963273.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Raise the Roof: Country Bands (2020) [MP3|320 Kbps] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963212.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Mike Oldfield - Tubular Beats (2013) /WEB/ [FLAC (tracks)|Lossless]<New Age, Ele
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962698.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Dominic Miller & Neil Stacey - New Dawn (2002) [FLAC|Lossless]<Jazz, Instrumenta
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962548.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Antonio Forcione - Dedicato (1996) [FLAC|Lossless]<Acoustic Guitar>
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962541.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Acoustic Mania - Talking Hands (1997) [FLAC|Lossless]<Instrumental, Easy listeni
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962539.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Trance Lucid - Arise (1996) [FLAC|Lossless]<Instrumental>
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962438.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Huey Lewis & The News - The Power of Love / Back to the future (1985) [MP3|320 �
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962293.jpg" />
 </div>
 
 
@@ -353,7 +411,7 @@ David Arkenstone - Parisian Nights (2016) [MP3|320 кб/с] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962292.jpg" />
 </div>
 
 
@@ -382,7 +440,7 @@ VA - 10 CORSO COMO – Love 3 (2004) 3CD Box [FLAC|Lossless|tracks + .cue] <Indi
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962286.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ Oliver Scheffner - The Magic of the Moon (2014) [MP3|320 кб/с] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962283.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ Djivan Gasparyan - The World of the Duduk (2008) 2CD, 2009, Мелодия [FLAC
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962100.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ Chesky Records Guide to Critical Listening - The Ultimate Demonstration Disc (19
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962057.jpg" />
 </div>
 
 
@@ -496,7 +554,7 @@ The Dali CD - DALI Audio Test CD (2006) [FLAC|Lossless]<Audiofile, Test>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961979.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ Steve Jablonsky - Bloodshot / Бладшот (Original Motion Picture Score) (20
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961921.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ Daniel Pemberton - Birds of Prey / Хищные птицы: Потрясающа
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961895.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ Bear McCreary - Остров фантазий  / Blumhouse's Fantasy Island (Ori
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961894.jpg" />
 </div>
 
 
@@ -612,7 +670,7 @@ Daniel Pemberton - Birds of Prey / Хищные птицы: Потрясающа
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961889.jpg" />
 </div>
 
 
@@ -641,7 +699,7 @@ Steve Jablonsky - Bloodshot / Бладшот (Original Motion Picture Score) (20
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961887.jpg" />
 </div>
 
 
@@ -670,7 +728,7 @@ Nathaniel Rateliff - And It’s Still Alright (2020) [FLAC|Lossless|WEB-DL|track
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961886.jpg" />
 </div>
 
 
@@ -684,64 +742,6 @@ Nathaniel Rateliff - And It’s Still Alright (2020) [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D3219F64F072A793B45AC5851BCA649E9CC80D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360048   (961885) от 14.02.2020
-
-Bear McCreary - Остров фантазий  / Blumhouse's Fantasy Island (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961885.jpg" />
-</div>
-
-
-###  Подробнее
-
-|01:38| 01. You Are One of My Guests
-|03:46| 02. Arrival
-|02:26| 03. Regret is a Disease
-|05:47| 04. Your Fantasy Begins Now(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:11:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E52BB748314627E9E9259BEE841BDD7B1121803
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 864449   (961826) от 24.01.2016
-
-Of Monsters And Men - 3 Albums, 4 EP & singles (2011-2015) [MP3|320 кб/с]<Indie, Alternative Rock, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dirty Paws (04:26)
-02. King and Lionheart (04:35)
-03. Numb Bears (02:45)
-04. Sloom (04:42)(   Читать дальше...   )Жанр: Indie, Alternative Rock, FolkПродолжительность: 03:29:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:298A5602832D008461627A5F28FFFF93504DAF64
 ```
 
 https://mybot314.ru/tekegram_catalog/

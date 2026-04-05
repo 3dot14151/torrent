@@ -1,3 +1,56 @@
+###  Публикация: 110324   (14378) от 17.06.2025
+
+Семь самураев / Shichinin no samurai / Seven Samurai (1954) DVDRip [H.264]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14378.jpg" />
+</div>
+
+
+###  Подробнее
+
+Япония. 16 век. В стране полыхает гражданская война, повсюду орудуют банды разбойников и мародеров. Бедные крестьяне нанимают для своей защиты семерых самураев, которые немного сплачивают раздробленных и малодушных жителей деревни в этой борьбе.
+Куросава показывает яркие, выразительные и такие достоверные персонажи, что, кажется, всему происходящему зритель был свидетелем (   Читать дальше...   )Производство: Япония / Toho CompanyЖанр: Драма, ПриключенияРежиссер: Акира КуросаваАктеры: Тосиро Мифунэ, Такаси Симура, Кэйко Цусима, Юкико Шимазаки, Каматари Фудзивара, Дайскэ Като, Исао Кимура, Минору Чиаки, Сэйдзи Миягути, Ёсио КосугиПеревод: Многоголосый закадровыйСубтитры: Русские, АнглийскиеПродолжительность: 03:27:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EFBB3C7AD3C9E2D1893803E7FA7FABCC4597323
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803431   (13707) от 23.06.2025
+
+Хлопковый хвост / Пушистохвосточка / Cottontai (2023) WEB-DLRip [H.264] [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13707.jpg" />
+</div>
+
+
+###  Подробнее
+
+После смерти жены 60-летний Кэндзабуро и его 30-летний сын Тоси получают неожиданное письмо, в котором их покойная жена и мать Акико просит развеять ее прах в том месте, которое она больше всего любила в детстве - озеро Уиндермир в Англии. Удивленные этой неожиданной просьбой, отец и сын поначалу не могут решить, что делать дальше. В конце концов они отправляются (   Читать дальше...   )Производство: Великобритания, Япония / Brouhaha Entertainment, MBK Productions, Magnolia Mae FilmsЖанр: мелодрамаРежиссер: Патрик ДикинсонАктеры: Киаран Хайндс, Изи Сатти, Ифа Хайндс, Томас Кумбз, Юри Цунэмацу, Энгус Барнетт, Рири Фрэнки, Юки Мацудзаки, Таэ Кимура, Дэйв СаймонПеревод: Авторский (Александр Смирнов)Язык озвучки: русский, японский/английскийСубтитры: русские (forced), английские (forced, full, forced - hardsub на японскую речь)Продолжительность: 01:34:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6DA39B41E7430A25196521E7F50372B3780C05B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1804637   (12857) от 01.07.2025
 
 Слепая война / Mang zhan / Blind War (2022) BDRip [H.264]
@@ -6,7 +59,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12857.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9766.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9172.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8944.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7253.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7134.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6499.jpg" />
 </div>
 
 
@@ -188,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5975.jpg" />
 </div>
 
 
@@ -214,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5378.jpg" />
 </div>
 
 
@@ -240,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4140.jpg" />
 </div>
 
 
@@ -266,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4104.jpg" />
 </div>
 
 
@@ -292,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2948.jpg" />
 </div>
 
 
@@ -318,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2718.jpg" />
 </div>
 
 
@@ -344,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1018.jpg" />
 </div>
 
 
@@ -370,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_750.jpg" />
 </div>
 
 
@@ -396,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_550.jpg" />
 </div>
 
 
@@ -422,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_397.jpg" />
 </div>
 
 
@@ -448,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_183.jpg" />
 </div>
 
 

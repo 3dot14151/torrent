@@ -1,3 +1,29 @@
+###  Публикация: 1366736   (921977) от 12.03.2020
+
+Никита Михалков | Мои дневники (2016) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921977.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это мои записные книжки, которые я начал вести во время службы в армии, а точней, на Тихоокеанском флоте. Сорок лет катались они со мной по городам и весям, я почти никому их не показывал, продолжая записывать «для памяти» то, что мне казалось интересным, и относился к ним как к рабочему инструменту. Что же касается моих флотских дневников, вообще не понимаю, почему (   Читать дальше...   )Жанр: Биографии и Мемуары, ПублицистикаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7033FF3F3EB288C2E841F77870419C367CDDCC70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988407   (920931) от 20.02.2016
 
 Сергей Вальцев | Миссия России. Национальная доктрина (2011) [FB2]
@@ -6,7 +32,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920931.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919140.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919067.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918989.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918900.jpg" />
 </div>
 
 
@@ -143,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918899.jpg" />
 </div>
 
 
@@ -169,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918784.jpg" />
 </div>
 
 
@@ -195,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917608.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917428.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917399.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917192.jpg" />
 </div>
 
 
@@ -303,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916622.jpg" />
 </div>
 
 
@@ -329,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915516.jpg" />
 </div>
 
 
@@ -355,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915513.jpg" />
 </div>
 
 
@@ -381,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913894.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913378.jpg" />
 </div>
 
 
@@ -436,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911515.jpg" />
 </div>
 
 
@@ -462,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911509.jpg" />
 </div>
 
 
@@ -489,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911013.jpg" />
 </div>
 
 
@@ -515,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910758.jpg" />
 </div>
 
 
@@ -541,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910666.jpg" />
 </div>
 
 
@@ -568,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910644.jpg" />
 </div>
 
 
@@ -594,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910429.jpg" />
 </div>
 
 
@@ -620,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909805.jpg" />
 </div>
 
 
@@ -646,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909240.jpg" />
 </div>
 
 
@@ -657,32 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC7405E94B142FF14AF9FE3C630992DD4C921FBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368486   (909227) от 20.03.2020
-
-А. Н. Митин | В плену мистики и мнимых ценностей (1981) [DJVU, PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909227.jpg" />
-</div>
-
-
-###  Подробнее
-
-В брошюре даются анализ и критика основных особенностей идеологии и практической деятельности евангельского христианства-баптизма. Показываются несостоятельность его моральных установок, их несовместимость с образом жизни советских людей.Жанр: История, политология, публицистика, социология, религиоведениеФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F63257D9D9D9EBD9E577F131EDD3BF846248789F
 ```
 
 https://mybot314.ru/tekegram_catalog/

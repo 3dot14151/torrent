@@ -1,136 +1,3 @@
-###  Публикация: 1364737   (934656) от 04.03.2020
-
-Т.А. Белякова | Сборник тестов по грамматике английского языка (2007) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемый сборник содержит тесты по основным темам грамматики английского языка. Предназначен для курсантов 1 и II курсов в качестве дополнительного тренировочного материала при совершенствовании грамматических навыков и умений.Жанр: Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7691EB85C59ACA7ACABFC7584C5F510F27DAC47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364789   (934643) от 04.03.2020
-
-Валерия Черепенчук | Средневековое искусство. Для тех, кто хочет всё успеть (2019) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934643.jpg" />
-</div>
-
-
-###  Подробнее
-
-Средние века… Период, окутанный для современного человека романтическим флером. Время отважных рыцарей, прекрасных дам, турниров, песен менестрелей… и, конечно, удивительных шедевров — величественных зданий, ярких витражей и гобеленов, живописных полотен, созданных мастерами, прославившими свои имена в веках. Да, мы понимаем, что не все так однозначно, Средневековье (   Читать дальше...   )Жанр: ИскусствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:799B620F4178BEA7812CE94C4490A1C5FACC69A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 790575   (934416) от 04.03.2020
-
-Николай Якубович | Все самолеты Ильюшина (2013) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934416.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самая полная энциклопедия самолетов С.В.Ильюшина. Исчерпывающая информация обо всех проектах гения авиации и его прославленного КБ, – как военных, так и гражданских, от первых опытных моделей 1930-х гг. до современных авиалайнеров.Жанр: военная история, авиацияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:995B746F8F3D18A68A61140374FA50D269BDC830
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364802   (934414) от 04.03.2020
-
-И.И. Бурова | Две тысячи лет истории Англии (2020) [EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934414.jpg" />
-</div>
-
-
-###  Подробнее
-
-История Англии тесно связана с судьбой всего мира. Так уж получилось, что происходившее в островном государстве касалось жизни людей на разных континентах. Рассказывая о главных событиях в британской истории, о монархах, прославившихся далеко за пределами своей страны, о полководцах и деятелях культуры, автор книги стремится раскрыть феномен становления и расцвета (   Читать дальше...   )Жанр: История, КультурологияФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C2B329035DE54BD70D2A8D9674451E1A9E35B72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093482   (933952) от 15.01.2017
-
-И. Дворкин и др. (ред.) | Против фашистского мракобесия и демагогии (1936) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник «Против фашистского мракобесия и демагогии» посвящен разоблачению идеологии германского фашизма.
-
-Идеологическая борьба с фашизмом — настоятельнейшая задача. Сборник имеет своей задачей разоблачить и вскрыть реакционную, демагогическую и крупнокапиталистическую суть наиболее реакционной, германской, разновидности фашизма.
-(   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB23CC765499E2FD368AC5C992A735FABD681774
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1093343   (933900) от 15.01.2017
 
 А. Э. Штекли | «Город Солнца»: утопия и наука (1978) [DJVU]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933900.jpg" />
 </div>
 
 
@@ -165,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933758.jpg" />
 </div>
 
 
@@ -191,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933756.jpg" />
 </div>
 
 
@@ -218,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933752.jpg" />
 </div>
 
 
@@ -245,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933750.jpg" />
 </div>
 
 
@@ -271,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933746.jpg" />
 </div>
 
 
@@ -297,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933725.jpg" />
 </div>
 
 
@@ -324,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933721.jpg" />
 </div>
 
 
@@ -350,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933629.jpg" />
 </div>
 
 
@@ -376,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933627.jpg" />
 </div>
 
 
@@ -402,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933626.jpg" />
 </div>
 
 
@@ -428,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933615.jpg" />
 </div>
 
 
@@ -454,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933565.jpg" />
 </div>
 
 
@@ -481,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933561.jpg" />
 </div>
 
 
@@ -507,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933549.jpg" />
 </div>
 
 
@@ -534,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933541.jpg" />
 </div>
 
 
@@ -560,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933489.jpg" />
 </div>
 
 
@@ -586,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933488.jpg" />
 </div>
 
 
@@ -612,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933481.jpg" />
 </div>
 
 
@@ -638,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933480.jpg" />
 </div>
 
 
@@ -664,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933476.jpg" />
 </div>
 
 
@@ -676,6 +543,136 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CBEAC9B40593812751989B2CB3549B670442321
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364982   (933421) от 05.03.2020
+
+Кай-Михаэль Бе | Захватывающий мир легких (2019) [EPUB]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как происходит дыхание? Почему нам порой не хватает воздуха и какое отношение имеет к этому маленькая Русалочка? Как наши эмоции влияют на дыхание? Почему мы кашляем, но не чувствуем боли в дыхательных путях? Может ли вырасти новое легкое? Как самый большой орган нашего тела защищается от микробов и вредных веществ. И самое главное: что мы можем предпринять, чтобы (   Читать дальше...   )Жанр: Анатомия и физиология, Популярно о медицинеПеревод: Сергей БоричФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0A304C894B0471577ABCD9A8CDB068AD974F8C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364973   (933411) от 05.03.2020
+
+Кай-Михаэль Бе | Захватывающий мир легких (2019) [PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933411.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как происходит дыхание? Почему нам порой не хватает воздуха и какое отношение имеет к этому маленькая Русалочка? Как наши эмоции влияют на дыхание? Почему мы кашляем, но не чувствуем боли в дыхательных путях? Может ли вырасти новое легкое? Как самый большой орган нашего тела защищается от микробов и вредных веществ. И самое главное: что мы можем предпринять, чтобы (   Читать дальше...   )Жанр: Интересные факты, Органы дыханияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C47A42537D2B01287EB29956977B0B332142DD3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365076   (933407) от 05.03.2020
+
+А.Л. Крохин | Сплайны в вычислительной математике и компьютерной графике (2020) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933407.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии рассматриваются математические методы описания положения в пространстве линий и поверхностей. Особое внимание уделено параметрическому описанию, как наиболее приспособленному для компьютерной обработки. Представлены методы интерполяции, как традиционные, так и новые, в том числе В-сплайны и NURB. Учебное пособие может быть использовано при изучении (   Читать дальше...   )Жанр: Компьютерная литература, математикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F91777482D7783B6D9BB7190B2E42259614170DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093281   (933321) от 15.01.2017
+
+В.М. Рябенький и др. | Практическая электротехника. Основы электротехники с использованием MATLAB/Simulink (2014) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детально рассмотрена возможность использования программы моделирования динамических систем Simulink, которая входит в пакет прикладных программ MATLAB, для проведения лабораторных и практических работ по электротехнике. В разделах 1–8 рассмотрены цепи постоянного тока, однофазного и трехфазного переменного тока, основы теории четырехполюсников (в том числе длинные (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E50150C359F6881F4233C10540F7D4E8C55EF083
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364978   (933254) от 05.03.2020
+
+В.А. Вишневский | Птицы европейской части России (2011) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933254.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сколько видов птиц гнездятся в России? Каких пернатых можно встретить в ближайшем парке, на опушке леса, у озера или речки? Чем побаловать птиц суровой зимой? Как определить, кому принадлежит найденное гнездо с яйцами? Полноцветная, великолепно иллюстрированная книга-определитель посвящена птицам - удивительным созданиям, появившимся во времена динозавров и населяющим (   Читать дальше...   )Жанр: Энциклопедия, ОрнитологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75CFC741D992A95969810B297CEC75270747E483
 ```
 
 https://mybot314.ru/tekegram_catalog/

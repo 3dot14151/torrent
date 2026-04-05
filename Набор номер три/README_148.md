@@ -1,3 +1,159 @@
+###  Публикация: 994880   (846193) от 01.04.2016
+
+Resident Evil / Biohazard HD Remaster (2015) [Ru/Multi] (1.0) Repack R.G. Механики
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Признанная классика жанра ужасов снова с нами! Встречайте обновленное издание игры Resident Evil в формате HD. В 1998 году для расследования странных убийств в окрестности города Раккун-сити направлен отряд особого назначения. На бойцов нападает стая кровожадных псов-мутантов, и они пытаются спастись в усадьбе неподалеку. Но и там все пропитано запахом смерти. Боеприпасов (   Читать дальше...   )Тип издания: RepackРазработчик: CAPCOM Co., Ltd.Жанр: Action (Survival horror), 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9293BD0A5FDE2FD4E6A5AB46F2485E70BB7F0C43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999532   (846191) от 01.04.2016
+
+Полицейский с Рублёвки (2016) DVB [H.264] (серии 1-8 из 8)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846191.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Полицейский с Рублёвки» — это история о Грише Измайлове, полицейском, который призван охранять покой и порядок в самом элитном районе России, где живут невероятно богатые люди. Ему приходится расследовать дела, в которые впутываются жители Рублевки, и делает он это нередко превышая свои полномочия. Грише около 30 лет, он красив, одинок, богат, циничен, азартен и (   Читать дальше...   )Производство: Россия / "АВ Контент" по заказу  тнтЖанр: драма, комедияРежиссер: Илья КуликовАктеры: Александр Петров, Александра Бортич, Сергей Бурунов, Татьяна Бабенкова, Софья Каштанова, Роман Попов, Ростислав Гулбис, Анастасия Стежко, Лилия Лаврова, Виктория Тарасова, Анна Котова, Сергей Калашников, Сергей Штатнов, Владимир РузановПродолжительность: ~ 00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46B683FCDF09770AF5AAC0C0FCA246001ECCB2B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 850182   (846190) от 01.04.2016
+
+Here Maps v1.1.10201 [Ru/Multi] - Навигационная программа
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846190.jpg" />
+</div>
+
+
+###  Подробнее
+
+С HERE вы можете путешествовать по всему миру, прокладывать собственные маршруты и отыскивать нужные места даже без подключения к Интернету. Просто скачайте карты и сохраните их на своем телефоне или планшете. Вы сможете полноценно работать с ними в автономном режиме, где бы вы ни находились. Приложение HERE поможет найти то, что вам нужно. Посмотрите, где находятся (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 30.03.2016Разработчик: Nokia Apps LLCПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28CE16CF34A279C149E8D67F22E4F5B26D790A5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002843   (846188) от 01.04.2016
+
+Звёздные войны: Пробуждение силы / Star Wars: Episode VII - The Force Awakens (2015) BDRip [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Через тридцать лет после гибели Дарта Вейдера и Императора галактика по-прежнему в опасности. Государственное образование Первый Орден во главе с их таинственным верховным лидером Сноуком и его правой рукой Кайло Реном идёт по стопам Империи, пытаясь захватить всю власть. В это нелёгкое время судьба сводит юную девушку Рей и бывшего штурмовика Первого Ордена Финна (   Читать дальше...   )Производство: США, Bad Robot, Lucasfilm Ltd., Truenorth ProductionsЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Джей Джей АбрамсАктеры: Джон Бойега, Дэйзи Ридли, Оскар Айзек, Адам Драйвер, Донал Глисон, Харрисон Форд, Марк Хэмилл, Кэрри Фишер, Макс фон Сюдов, Энди Серкис, Лупита Нионго, Энтони ДэниелсПеревод: Дублированный (iTunes)Язык субтитров: Русский (форс., полные), английскийПродолжительность: 02:18:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D374D5D2639A162C8F82AFF3857EE6539C12913F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111867   (846149) от 06.03.2017
+
+Mozilla Firefox 52.0 Final [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846149.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mozilla Firefox - очень быстро работающий браузер, причем быстрота работы заметна не только во время загрузки веб-страниц, но и при поиске в закладках и истории. Сделан он на основе движка Mozilla и позволяет просматривать все веб-страницы в одном многовкладочном окне, а также обладает множеством других полезных опций, включая способность значительного расширения (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EF5F020A6642FDBDD925ADC96AF84FD240417DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377724   (846129) от 25.04.2020
+
+Алмазные нанонити запасают энергию в три раза эффективнее Li-Ion батарей
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_846129.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ученые из Технологического университета Квинсленда (Австралия) спроектировали новый накопитель энергии, в основе которого лежит... пружина. Только в данном случае она изготовлена из чрезвычайно перспективного инновационного материала – алмазных нанонитей. Пока что есть лишь небольшие экспериментальные образцы этого материала, но в ближайшем будущем, когда производство (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 192368   (846106) от 15.04.2010
 
 V Центурия. В поисках зачарованных сокровищ (2010) DVDRip
@@ -6,7 +162,7 @@ V Центурия. В поисках зачарованных сокровищ 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846106.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846104.jpg" />
 </div>
 
 
@@ -60,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_846019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_846019.jpg" />
 </div>
 
 
@@ -88,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_846016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_846016.jpg" />
 </div>
 
 
@@ -114,7 +270,7 @@ Pink Floyd - Meddle (2016) 1971 [DTS 5.1 CD-DA|44.1/16|image+cue|BD-Audio] <Prog
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846013.jpg" />
 </div>
 
 
@@ -143,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845995.jpg" />
 </div>
 
 
@@ -169,7 +325,7 @@ Windows 8.1 SevenMod RUS-ENG x64 -10in1- Activated v2 (AIO)
 >>11
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845993.jpg" />
 </div>
 
 
@@ -195,7 +351,7 @@ Mad Max (2015) [Ru/Multi] (1.0.3.0/dlc) Repack =nemos=
 >>21
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845990.jpg" />
 </div>
 
 
@@ -221,7 +377,7 @@ XCOM: Chimera Squad (2020) [Ru/Multi] (1.0) License CODEX
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845778.jpg" />
 </div>
 
 
@@ -247,7 +403,7 @@ GRID (2019) [Multi] (v 1.0.118.9362/dlc) Repack xatab [Ultimate Edition]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845775.jpg" />
 </div>
 
 
@@ -273,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845773.jpg" />
 </div>
 
 
@@ -299,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_845702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_845702.jpg" />
 </div>
 
 
@@ -325,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_845700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_845700.jpg" />
 </div>
 
 
@@ -351,7 +507,7 @@ F.I.S.T.: Forged In Shadow Torch (2021) [Ru/Multi] (1.004) License FAIRLIGHT
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845597.jpg" />
 </div>
 
 
@@ -377,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845595.jpg" />
 </div>
 
 
@@ -403,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845368.jpg" />
 </div>
 
 
@@ -429,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845124.jpg" />
 </div>
 
 
@@ -456,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_845089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845089.jpg" />
 </div>
 
 
@@ -483,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844892.jpg" />
 </div>
 
 
@@ -509,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>11
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844888.jpg" />
 </div>
 
 
@@ -521,164 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003273   (844570) от 02.04.2016
-
-Проекты - VideoHive - Dark Logo Pack - 8566339 [AEP]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844570.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания логотипа. Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B2FB1A2EC74D3B035298156E8EB089AE2FFB15E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 191789   (844503) от 16.04.2010
-
-SONY Vegas Pro (x32/x64) 9.0d Build 1133 [Multi + Rus]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844503.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sony Vegas - профессиональная программа для многодорожечной записи, редактирования и монтажа видео и аудио потоков. Инструменты, содержащиеся в 'Vegas Pro', дают возможность редактирования, и обработки в реальном времени форматов DV, AVCHD, HDV, SD/HD-SDI и XDCAM™, точную корректировку аудио, создание объёмного звука и двухслойных DVD. Вы можете прожечь Blu-ray диски (   Читать дальше...   )Язык интерфейса: Multi + Rus (x32)
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 192360   (844498) от 16.04.2010
-
-Активатор Windows 7 Build 7600 RTM (x86/x64) Выпуск 12.0 (15/04/2010) [ DE-EN-RU]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самая последняя на сегодняшний день версия OEM Активатора для Windows 7.
-Она устанавливает OEM сертификат одной из крупных фирм, после чего активирует вашу копию Windows 7,
-и дает возможность проходить проверку подлинности.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111946   (844369) от 07.03.2017
-
-Игру Resident Evil 7 взломали в рекордное время
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_844369.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спустя пять дней после выхода на рынок, игра Resident Evil 7: Biohazard уже появилась на пиратских сайтах. Обычно продукты, защищённые Денуво, требуют месяцы на это, поэтому это не только грандиозное поражение но и определённая веха в мировых стандартах антипиратских технологий.Неутешительное положение дел для антипиратской технологии компании Denuvo Software Solutions, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002958   (844351) от 02.04.2016
-
-Проекты - VideoHive - Beautiful Day - 2730969 [AEP]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844351.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для веселого и красивого детского фото-видео слайд-шоу.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FC4CFA148D3F386C2B22DF6CF6218EEE0C72B7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002933   (844350) от 02.04.2016
-
-DAEMON Tools Ultra 4.1.0.0489 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844350.jpg" />
-</div>
-
-
-###  Подробнее
-
-DAEMON Tools Ultra — это самая мощная, функциональная и профессиональная программа для работы с образами, которую мы когда-либо создавали. Эмулируйте виртуальные приводы, создавайте загрузочные USB для восстановления операционных систем, используйте RAM-диски для того, чтобы ускорить работу ПК, и подключайтесь к удаленным USB-устройствам по протоколу iSCSI с помощью (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5A010B0F70200E5FF2C4FFC1744A325EC8525FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

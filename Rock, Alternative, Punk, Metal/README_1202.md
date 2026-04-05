@@ -1,3 +1,38 @@
+###  Публикация: 466031   (96377) от 11.03.2012
+
+[T.3.R] - Романтика 21 века (2012) [FLAC|Lossless]<Goth, Industrial>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_96377.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Рождение нации (04:33)
+2. Лица (04:27)
+3. Эпитафия (04:00)
+4. Морфий (03:44)
+5. Апатия (04:10)
+6. Без тебя (04:51)
+7. Романтика (03:30)
+8. Давай? (03:34)
+9. Zuruck: 1,2 (04:33)
+10. Пустые тела (03:05)(   Читать дальше...   )Жанр: Goth, IndustrialПродолжительность: 00:49:11
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 466204   (96364) от 11.03.2012
 
 Ambeon - Fate Of A Dreamer (2012) Expanded Edition [FLAC|Lossless]<Progressive Metal/Ambient>
@@ -6,7 +41,7 @@ Ambeon - Fate Of A Dreamer (2012) Expanded Edition [FLAC|Lossless]<Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_96364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_96364.jpg" />
 </div>
 
 
@@ -41,7 +76,7 @@ Gormenghast - Resist Or Serve (2012) [MP3|320 кб/с]<Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96295.jpg" />
 </div>
 
 
@@ -76,7 +111,7 @@ Soulfly - Enslaved (2012) [MP3|320 кб/с (CD Rip)]<Thrash Metal, Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96244.jpg" />
 </div>
 
 
@@ -111,7 +146,7 @@ VA - Masterland.com - 10 Лет В Сети (2012) [FLAC|Lossless]<Heavy / Power
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_96242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_96242.jpg" />
 </div>
 
 
@@ -146,7 +181,7 @@ Doro - B-sides & Rarities (2007) 2CD /2007, No Remorse Records/[FLAC|Lossless]<H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_96159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_96159.jpg" />
 </div>
 
 
@@ -181,7 +216,7 @@ Gun Barrel - 2 альбома (2003-2007) [FLAC|Lossless]<Heavy-metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_96090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_96090.jpg" />
 </div>
 
 
@@ -216,7 +251,7 @@ Jungle Rot - Kill On Command (2011) [MP3|320 кб/с]<Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96024.jpg" />
 </div>
 
 
@@ -251,7 +286,7 @@ Kaiser Chiefs - Start The Revolution Without Me (2012) [MP3|~245 кб/с (V0)]<I
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_95699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_95699.jpg" />
 </div>
 
 
@@ -286,7 +321,7 @@ Spawn Of Possession - Incurso (2012) [FLAC|Lossless]<Technical Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_95653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_95653.jpg" />
 </div>
 
 
@@ -320,7 +355,7 @@ Onkel Tom Angelripper - Nunc Est Bibendum (2011) [MP3|320 кб/с]<Thrash Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_95479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_95479.jpg" />
 </div>
 
 
@@ -355,7 +390,7 @@ Inkubus Sukkubus - The Dark Goddess (2011) [MP3|320 кб/с]<Gothic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_95460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_95460.jpg" />
 </div>
 
 
@@ -390,7 +425,7 @@ Charlie Straight - Someone With a Slow Heartbeat (2012) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_95410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_95410.jpg" />
 </div>
 
 
@@ -425,7 +460,7 @@ Bonfire - Don't touch the light (1986) 1-st Press / 1986, Sonopress / [FLAC|Loss
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_95357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_95357.jpg" />
 </div>
 
 
@@ -459,7 +494,7 @@ Deep Purple & Friends - Purple And Other Colours (2003) [FLAC|Lossless]<Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_95347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_95347.jpg" />
 </div>
 
 
@@ -492,7 +527,7 @@ Yngwie Malmsteen - Marching Out (1984) /1994, Polydor/ [FLAC|Lossless]<Heavy/Pow
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_95309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_95309.jpg" />
 </div>
 
 
@@ -527,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_95281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_95281.jpg" />
 </div>
 
 
@@ -562,7 +597,7 @@ Crane - Refuge (2011) [FLAC|Lossless]<Hard Rock/Classic Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_95254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_95254.jpg" />
 </div>
 
 
@@ -597,7 +632,7 @@ CyberManiacs - CyberManiacs (2012) [MP3|320 кб/с]<Horror Industrial, Alternat
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_95018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_95018.jpg" />
 </div>
 
 
@@ -632,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94735.jpg" />
 </div>
 
 
@@ -661,7 +696,7 @@ Mena Brinno - Icy Muse (2007) [MP3|192 кб/с]<Symphonic Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94489.jpg" />
 </div>
 
 
@@ -695,7 +730,7 @@ The Beautiful South - Superbi (2006) [MP3|320 кб/с]<Pop-Rock, Country>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94268.jpg" />
 </div>
 
 
@@ -730,7 +765,7 @@ My Best Fiend - In Ghostlike Fading (2012) [MP3|320 кб/с]<Alternative, Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94263.jpg" />
 </div>
 
 
@@ -764,7 +799,7 @@ VA - Metal Violin (2011) [MP3|320 kbps]<Symphonic Metal, Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_93925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93925.jpg" />
 </div>
 
 
@@ -799,7 +834,7 @@ Semargl - Satanic Pop Metal (2012) [MP3|256 kbps]<Melodic Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_93859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93859.jpg" />
 </div>
 
 
@@ -834,7 +869,7 @@ Bap Kennedy - The Sailor's Revenge (2012) [MP3|320 kbps]<Rock / Blues-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_93650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93650.jpg" />
 </div>
 
 
@@ -854,41 +889,6 @@ Bap Kennedy - The Sailor's Revenge (2012) [MP3|320 kbps]<Rock / Blues-Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC44893FDAE7CCEACF166617D86867ECE2229A23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 453110   (93646) от 17.02.2012
-
-Dollar Co. - Country Beatles (1981) [MP3|320 kbps]<Сountry, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_93646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey Jude - Something (05:50)
-02. Ob-La-Di, Ob-La-Da - If I Nee (02:30)
-03. And I Love Her (03:38)
-04. I Want To Hold Your Hand (02:22)
-05. Eight Days A Week (03:03)
-06. Get Back (02:45)
-07. Help ! (02:53)
-08. With A Little Help From My Fr (04:01)
-09. A Hard Dayґs Night (03:08)
-10. Let It Be (03:29)(   Читать дальше...   )1981Жанр: Сountry, RockПродолжительность: 00:40:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9514C728DD2E50B33B55BB70BFD4892452F75F67
 ```
 
 https://mybot314.ru/tekegram_catalog/

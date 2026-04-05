@@ -1,31 +1,3 @@
-###  Публикация: 238407   (940479) от 29.02.2020
-
-С.В. Дубровская | Календарь народной мудрости. Приметы, пословицы, обычаи, сад, огород, кухня [2008] [PDF]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940479.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга, которую вы держите в руках, не просто календарь, посвященный тем или иным датам и событиям года. Она заменит вам несколько увесистых книг по ведению домашнего хозяйства, саду и огороду, кулинарии.
- Кроме того, на ее страницах вы найдете интересную информацию о православных и гражданских праздниках, правилах поведения.
- Для широкой читательской аудитории.Жанр: Научно-популярныйФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D33E2C3FA8F1BA29EA6A64CE0A72F0924429BB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364092   (939195) от 01.03.2020
 
 Андрей Курпатов | Четвертая мировая война. Будущее уже рядом (2019) [EPUB]
@@ -34,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939195.jpg" />
 </div>
 
 
@@ -61,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937793.jpg" />
 </div>
 
 
@@ -87,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937771.jpg" />
 </div>
 
 
@@ -115,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937741.jpg" />
 </div>
 
 
@@ -141,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937736.jpg" />
 </div>
 
 
@@ -168,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935209.jpg" />
 </div>
 
 
@@ -194,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934870.jpg" />
 </div>
 
 
@@ -220,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927779.jpg" />
 </div>
 
 
@@ -246,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927719.jpg" />
 </div>
 
 
@@ -272,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927089.jpg" />
 </div>
 
 
@@ -299,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927043.jpg" />
 </div>
 
 
@@ -325,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926796.jpg" />
 </div>
 
 
@@ -351,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926055.jpg" />
 </div>
 
 
@@ -377,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925977.jpg" />
 </div>
 
 
@@ -404,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924101.jpg" />
 </div>
 
 
@@ -430,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922141.jpg" />
 </div>
 
 
@@ -458,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920558.jpg" />
 </div>
 
 
@@ -485,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920291.jpg" />
 </div>
 
 
@@ -511,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918994.jpg" />
 </div>
 
 
@@ -537,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918925.jpg" />
 </div>
 
 
@@ -563,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918797.jpg" />
 </div>
 
 
@@ -589,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917415.jpg" />
 </div>
 
 
@@ -615,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917167.jpg" />
 </div>
 
 
@@ -641,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917105.jpg" />
 </div>
 
 
@@ -667,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916848.jpg" />
 </div>
 
 
@@ -678,6 +650,34 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C2E3483D4CDD736BC16E83FEC3DAD7837BFC855
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989993   (911421) от 25.02.2016
+
+Эрик Шлоссер | Нация фастфуда (2016) [EPUB]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Культовое исследование того, как устроена индустрия фастфуда.
+
+В 2001 году Эрик Шлоссер впервые опубликовал эту книгу, которая быстро стала международным бестселлером. В ней он показал, как индустрия фастфуда породила эпидемию ожирения, увеличивала разрыв между бедными и богатыми и изменила рынок продовольствия во всем мире. Эта книга изменила взгляды миллионов людей (   Читать дальше...   )Жанр: Здоровье, ПитаниеФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FBB7CC8DCCD775D77C37C148CA42C0280FEE325
 ```
 
 https://mybot314.ru/tekegram_catalog/

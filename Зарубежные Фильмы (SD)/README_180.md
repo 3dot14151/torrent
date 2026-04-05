@@ -1,3 +1,108 @@
+###  Публикация: 656968   (813551) от 16.05.2013
+
+Ватель / Vatel (2000) DVDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Франция. 1671 год. Его Величество «король Солнце» Луи XIV в сопровождении королевы и многочисленной свиты изъявляет желание навестить замок принца Де Кондэ и провести там три дня. Небывалая честь одновременно и радует и пугает принца, ведь обедневшее поместье вряд ли сможет оказать достойный первой особы прием.
+Единственная надежда хозяина — его верный дворецкий (   Читать дальше...   )Производство: Франция, Великобритания, Бельгия / Canal+Жанр: Драма, МелодрамаРежиссер: Роланд ЖоффеАктеры: Жерар Депардье, Ума Турман, Тим Рот, Тимоти Сполл, Джулиан Гловер,Перевод: Дублированный (Невафильм, 2000г)Продолжительность: 01:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:575C6E07F757843552406D4EE1BD34B78ABD111D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504129   (813546) от 22.10.2021
+
+Загадочное убийство / Weekend (2020) WEB-DLRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813546.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четверо друзей оказались заперты в загородном доме и изолированы от внешнего мира из-за сильной метели. Оказавшись в снежной ловушке, они понимают, что у них есть всего один шанс на спасение: выяснить, кто из них виновен в совершении необъяснимого преступления в прошлом.Производство: Италия / Camaleo, Twister FilmЖанр: Триллер, драмаРежиссер: Риккардо ГрандиАктеры: Лоренцо Цурцоло, Якопо Ольмо Антинори, Филиппо Шиккитано, Эудженио Франческини, Алессио Лапиче, Грета Ферро, Walter Cordopatri, Сара Риччи, Ilenia CalabreseПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:24:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:394590A2A541555DC45486DE22F1A691D9A786BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504173   (813526) от 22.10.2021
+
+Поймать свидетеля (Исподтишка) / Blindsided (Night of the Sicario) (2021) WEB-DLRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время четырехбалльного шторма офицеры управления по борьбе с наркотиками перевозят важного свидетеля по делу колумбийского наркокартеля и его дочь, но подвергаются нападению сикарио. Чтобы спастись, им приходится укрыться в ближайшем подходящем здании, которым оказывается дом престарелых под руководством бесстрашной Тэйлор.Производство: США /  Premiere Entertainment Group, Keystone Imagination, Inspiring FilmsЖанр: Боевик, триллер, драмаРежиссер: Джот РиггсАктеры: Наташа Хенстридж, Мэнни Перес, Костас Мэндилор, Эддисон Кендалл, Роберто «Санс» Санчес, Хуан Карлос Диас, Кэрол Флоренс, Дэн Керн, Джерри Кэрриэр, Robert TorresПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:23:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF9EAE19E81723F218FD6FA421D0333ACB812A17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197510   (813514) от 08.01.2018
+
+Зверофабрика / Animal Factory (2000) WEB-DLRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813514.jpg" />
+</div>
+
+
+###  Подробнее
+
+За воротами тюрьмы нормальная жизнь заканчивается. Любой несчастный вступивший в стены этого жуткого старого здания обречен жить по чудовищным, волчьим законам, от которых законопослушный человек придет в неописуемый ужас. Здесь татуированные рецидивисты режут и калечат друг друга, устраивают кровопролитные разборки, и «берут в жены» слабаков, которые не могут за (   Читать дальше...   )Производство: США / Animal Productions LLC, Arts Production Corporation, Franchise PicturesЖанр: Драма, КриминалРежиссер: Стив БушемиАктеры: Уиллем Дефо, Эдвард Ферлонг, Дэнни Трехо, Микки Рурк, Том Арнольд, Джон Хёрд, Дж. К. Куин, Марк Веббер, Стив БушемиПеревод: Многоголосый, авторскийСубтитры: отсутствуютПродолжительность: 01:30:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A2480B9D8346F47CBB2392EA4CF2B26BA5FE038
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1504140   (813381) от 22.10.2021
 
 Клыки ночи / Night Teeth (2021) WEB-DLRip
@@ -6,7 +111,7 @@
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813381.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813380.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813373.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813350.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813342.jpg" />
 </div>
 
 
@@ -137,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813337.jpg" />
 </div>
 
 
@@ -163,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813234.jpg" />
 </div>
 
 
@@ -189,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813186.jpg" />
 </div>
 
 
@@ -215,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813184.jpg" />
 </div>
 
 
@@ -242,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813182.jpg" />
 </div>
 
 
@@ -269,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813134.jpg" />
 </div>
 
 
@@ -295,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813128.jpg" />
 </div>
 
 
@@ -322,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813111.jpg" />
 </div>
 
 
@@ -348,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813074.jpg" />
 </div>
 
 
@@ -375,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813064.jpg" />
 </div>
 
 
@@ -401,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813050.jpg" />
 </div>
 
 
@@ -427,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813027.jpg" />
 </div>
 
 
@@ -455,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_813012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813012.jpg" />
 </div>
 
 
@@ -483,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812899.jpg" />
 </div>
 
 
@@ -509,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812895.jpg" />
 </div>
 
 
@@ -537,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812892.jpg" />
 </div>
 
 
@@ -563,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812888.jpg" />
 </div>
 
 
@@ -575,110 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B1C8A060B612F76A1495922F72EF390DB573231
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 882988   (812838) от 31.03.2015
-
-Восставший из ада 4: Кровное Родство  / Hellraiser: Bloodline (1996) DVDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жуткие события происходят в 2127-ом году на космической станции Минос, Доктор Мерчант, одержимый какими-то странными, безумными идеями, захватил станцию, чтобы провести в жизнь свои таинственные эксперименты, Доктора «повязали», и он рассказал, как же он дошел до жизни такой, И выяснилось, что причина безумия доктора — в магическом кубике, изготовленном мастером (   Читать дальше...   )Производство: США , Dimension FilmsЖанр: Ужасы, Триллер, ФантастикаРежиссер: Кевин Ягер, Алан Смити, Джо ЧаппелльАктеры: Брюс Рэмсей, Валентина Варгас, Даг Брэдли, Шарлотта Чаттон, Адам Скотт, Ким Майерс, Мики Коттрелл, Луи Тюренн, Кортленд Мид, Луис МустилльоПеревод: Многоголосый закадровый,авторскийПродолжительность: 01:21:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55CB0C3497EEA09CB358F0987D255579221423BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383095   (812818) от 14.05.2020
-
-Ловушка разума / The Wave (2019) WEB-DLRip
-
->>След.
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812818.jpg" />
-</div>
-
-
-###  Подробнее
-
-Страховой адвокат начинает принимать загадочный галлюциногенный препарат, который постепенно разрушает его восприятие реальности и выставляет напоказ его жизнь такой, какой она и является на самом деле.Производство: США, EchoWolf ProductionsЖанр: Фантастика, ТриллерРежиссер: Gille KlabinАктеры: Джастин Лонг, Томми Флэнаган, Катя Винтер, Дональд Фэйзон, Шейла Ванд, Сара Минник, Билл Сейдж, Моник Канделария, Ронни Джин Блевинс, Блайт ХовардПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:27:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A2F9733DF51350FAE04655322021A87F2434A92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008672   (812809) от 19.04.2016
-
-Игра на понижение / The Big Short (2015) BDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812809.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда речь идет о деньгах, совесть молчит. А уж если речь об огромных деньгах!.. Это основанная на реальных событиях история нескольких провидцев, которые независимо друг от друга предсказали мировой экономический кризис 2008 года задолго до того, как о нем зашептались в кулуарах на Уолл-стрит. И предсказав, стали на нем зарабатывать. Сами того не желая.Производство: США / Plan B Entertainment, Regency EnterprisesЖанр: драма, комедия, биографияРежиссер: Адам МакКейАктеры: Кристиан Бэйл, Стив Карелл, Райан Гослинг, Брэд Питт, Мелисса Лео, Хамиш Линклэйтер, Джон Магаро, Рейф Сполл, Джереми Стронг, Мариса ТомейПеревод: Дублированный (iTunes Russia)Язык субтитров: Русский (форсированные)Продолжительность: 02:10:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:494EED6C67B21286A80A971CFA7F4A59897EB235
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008685   (812806) от 19.04.2016
-
-Игра на понижение / The Big Short (2015) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_812806.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда речь идет о деньгах, совесть молчит. А уж если речь об огромных деньгах!.. Это основанная на реальных событиях история нескольких провидцев, которые независимо друг от друга предсказали мировой экономический кризис 2008 года задолго до того, как о нем зашептались в кулуарах на Уолл-стрит. И предсказав, стали на нем зарабатывать. Сами того не желая.Производство: США / Plan B Entertainment, Regency EnterprisesЖанр: драма, комедия, биографияРежиссер: Адам МакКейАктеры: Кристиан Бэйл, Стив Карелл, Райан Гослинг, Брэд Питт, Мелисса Лео, Хамиш Линклэйтер, Джон Магаро, Рейф Сполл, Джереми Стронг, Мариса ТомейПеревод: Дублированный (iTunes Russia)Язык субтитров: Русский, английскийПродолжительность: 02:10:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65F1786EF132EB83A8B55EBB1B887F6B38A843FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

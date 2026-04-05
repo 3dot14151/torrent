@@ -1,3 +1,55 @@
+###  Публикация: 1704384   (114454) от 04.03.2024
+
+Granblue Fantasy: Relink (2024) [Multi] (1.0.4/dlc) Repack FitGirl [Special Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Granblue Fantasy: Relink - приключение в просторах Небесного царства, где острова парят среди безбрежных лазурных просторов. В роли капитана небесного корабля вы отправитесь в путешествие, полное тайн, магии и товарищества. Вместе со своими верными спутниками, такими как энергичный дракон Вирн и загадочная Лирия, вы отправитесь на Эсталусию - мифический остров, окутанный (   Читать дальше...   )Тип издания: RepackРазработчик: Cygames, Inc.Жанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Японский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Японский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9BE6D6E48D9A42F721E1811394AAAE3C03F20E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704703   (114266) от 05.03.2024
+
+The Witcher 3: Wild Hunt / Ведьмак 3: Дикая Охота (2015) [Ru/Multi] (4.04a_Launcher/dlc) Repack Decepticon [Complete Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сыграйте в самую совершенную и полную версию самой прославленной игры 2015 года, «Ведьмак 3: Дикая Охота» - издание «Игра года». Теперь - со всеми дополнениями и новыми материалами. Станьте профессиональным убийцей чудовищ и отправляйтесь в по-настоящему эпическое путешествие! Сразу после выхода в свет игра «Ведьмак 3: Дикая Охота» стала классикой жанра, она удостоилась (   Читать дальше...   )Тип издания: RepackРазработчик: CD Projekt REDЖанр: Ролевая игра, Приключение, ФэнтeзиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BCE6041222655554FC6A7A901BEF384FD9EB4CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704796   (114084) от 06.03.2024
 
 Robin Hood: Sherwood Builders (2024) [Ru/Multi] (1.0) Repack DjDI
@@ -6,7 +58,7 @@ Robin Hood: Sherwood Builders (2024) [Ru/Multi] (1.0) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114084.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Disgaea 7: Vows of the Virtueless (2023) [Multi] (1.12/dlc) Scene Tenoke [Ultima
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112445.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Immortal Mantis: Revenge (2024) [Multi] (1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112001.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Immortal Mantis (2022) [Multi] (1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111974.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Siralim Ultimate (2021) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107632.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ I Was a Teenage Exocolonist (2022) [En] (1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106464.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Cat Quest II (2019) [Ru/Multi] (1.7.6) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104451.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Cat Quest (2017) [Ru/Multi] (1.2.13) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104435.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Bad Blood [En] (RePack) 1990 | Pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_102644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_102644.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ A Savage Frontier Fantasy Role-Playing Epic Антология [En] (RePack) 199
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_102193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_102193.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Rings of Medusa и Return of Medusa [En] (RePack) 1990-1991 | Pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_101959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_101959.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Diablo 2 + Lord of Destruction [En/Ru] (RePack/1.13d) 2000 | R.G. ReCoding
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101932.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ Tainted Grail: Conquest (2021) [Ru/Multi] (1.62) License GOG [Original Soundtrac
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100803.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ Talisman (2014) [Ru/Multi] (84935/dlc) License GOG [Digital Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100802.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ Luck & Loot (2025) [Ru/Multi] (1.1c) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100782.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ Titan Quest (2016) [Ru/Multi] (2.10.21415/dlc) Repack Let'sРlay [Anniversary Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98583.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ Lost in Random: The Eternal Die (2025) [Ru/Multi] (rc6/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94586.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ Prince Of Qin [Ru/En] (P) 2004
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90531.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ Realms of Arkania Антология [En/Ru] (RePack) 1992-1996 | Pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88714.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ Avernum: Escape from the Pit (P) [En] 2012
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88315.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ Angels vs Devils [Ru] (L) 2004
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87244.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ King's Bounty Platinum Edition [Ru/En] (RePack) 2008-2010 | Seraph1
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86874.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ Venetica: HD Edition [Ru] (Lossless RePack) 2010 | Naitro
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84834.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ Neverend [Ru] (RePack) 2005 | Sash HD
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84192.jpg" />
 </div>
 
 
@@ -621,60 +673,6 @@ Neverend [Ru] (RePack) 2005 | Sash HD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D34B7BE823D8BD9D853283B882CD6F009E98812D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466992   (81764) от 12.03.2012
-
-Risen [Ru] (Lossless RePack/1.1/1.2) 2009 | pe4enko
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Волей всемогущей Инквизиции! Слушайте высочайший указ владыки. До нас дошли слухи, что соседний остров проклят. В джунглях разверзлась твердь земная, и древний храм поднялся над остатками забытых поселений. Так вот – все это грязная клевета. Любой, кто посмеет покинуть город без разрешения с целью проверить лживую байку, будет казнен. Мы уже отправили отряд стражи и скоро узнаем подробности. Впрочем, считайте случившееся извержением вулкана. В джунгли ходить не стоит – несколько человек так и не вернулись. Да будет их судьба уроком для всех!
-
-Новая ролевая игра от создателей знаменитой серии Gothic сразу же привлекла внимание поклонников жанра. Каждый найдет здесь что-то свое – элегантный стиль боя на мечах, могущественные заклинания, потрясающие возможности прокачки персонажа. От ваших действий зависит многое – различные фракции постараются привлечь героя на свою сторону. Обилие оружия и снаряжения поразит даже бывалых искателей приключений. Над локализацией игры работали лучшие актеры нашей страны – вы сможете (   Читать дальше...   )Тип издания: Lossless RePackРазработчик: Piranha BytesЖанр: RPG / 3D / 3rd PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F08F2F840700FC3BD1D3D457DF50A672B6AE0F46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776138   (71364) от 30.01.2025
-
-Darkest Dungeon II (2023) [Ru/Multi] (2.00.73217/dlc) Repack FitGirl
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Darkest Dungeon 2 - сиквел готической ролевой игры, объединяющей в себе механики метроидвании и сурвайвал хоррора. Игровой процесс представляет собой динамичный экшен, в котором вы путешествуете по мрачному фэнтезийному миру и сражаетесь с многочисленными врагами. Каждый враг представляет серьезную угрозу. Все противники имеют уникальные паттерны атак и движений. (   Читать дальше...   )Тип издания: RepackРазработчик: Red Hook StudiosЖанр: Инди, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:443CDD001EA696E6FB88DECFA3AB60E2903AC685
 ```
 
 https://mybot314.ru/tekegram_catalog/

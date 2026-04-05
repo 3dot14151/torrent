@@ -1,32 +1,3 @@
-###  Публикация: 1159319   (479756) от 22.08.2017
-
-Мираж - Снова Вместе (катушка 2) (1989) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Млечный путь [4:28]
-02. Где я [4:40]
-03. Море грёз [4:33]
-04. Я не шучу [3:15](   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB1058C3984588CB492182A6CD51B6072CF00B76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1159174   (479753) от 22.08.2017
 
 Ласковый Май - 1 альбом "Оренбург" (AKAI) (1988) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Disco>
@@ -35,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479753.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Supertramp - Even In The Quietest Moments... (1977) [FLAC 2.0|192/24|image + .cu
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477957.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Enigma - A Posteriori (Limited Edition, Remastered, Pink Translucent) (2018) [FL
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477742.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Enigma - The Cross Of Changes (Limited Edition, Remastered, Yellow Translucent) 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477738.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Enigma - MCMXC A.D. (2018) (Limited Edition, Remastered,Red Translucent) [FLAC 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477727.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Eva (Csepregi Éva, ex Neoton Familia) - Midnight (1986) [FLAC 2.0|96/24|image +
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477194.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Enigma - Seven Lives Many Faces (Limited Edition, Remastered, Light Blue) (2018)
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475535.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Barclay James Harvest - Turn Of The Tide (1981) [FLAC 2.0|192/24|image + .cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473898.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ The Cars - Heartbeat City (1984)  [FLAC 2.0 24/96|image (Vinyl-Rip)]<Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473389.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Marie Laforet - Viens, Viens (1973) [FLAC 2.0 24/96|image+.cue (Vinyl Rip)]<Pop/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473210.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ David Gilmour - Rattle That Lock (2015) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Prog
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473093.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Thunderstone - Studio Albums (2002 - 2016) hand made [restored, declipped] [FLAC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472248.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Walter Trout - Survivor Blues (2019) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Blues R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470791.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Larisa Stow - Moment By Moment (2001) [MLP 5.1 48Khz/24Bit, DTS 5.1, Dolby AC3 2
 >>DVD-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470300.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_469994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469994.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ T. Texas Tyler - His Great Hits (1967) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468008.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Jack Dorsey's Big Band Gold - 50 Years Of Swing (The Ronco Music Library) (1983)
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467664.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Peter Gabriel - Up (2002) [FLAC 2.0|88.2/24|tracks|SACD] <Progressive Rock, New 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467442.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Genesis - Anthology 1970-1998 (2007) [FLAC 2.0|88.2/24|tracks|SACD] <Progressive
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467329.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ David Gilmour - Rattle That Lock (2015) [DTS 5.1 44.1 /16 | .wav+.cue (BD-Audio)
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466270.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Down (Phil Anselmo, Pantera) - Дискография (6 releases) (1995 - 2014)
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464086.jpg" />
 </div>
 
 
@@ -643,7 +614,7 @@ Theatre Of Tragedy - Aegis(Upmix) (1998/2008) [DTS] <Gothic Rock>
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463829.jpg" />
 </div>
 
 
@@ -672,7 +643,7 @@ Jack Bruce - Songs For A Tailor (1969) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Ar
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462105.jpg" />
 </div>
 
 
@@ -701,7 +672,7 @@ Unisonic (Helloween, Gamma Ray, Iron Savior) - Studio Albums (2012 - 2014) hand 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461945.jpg" />
 </div>
 
 
@@ -728,7 +699,7 @@ VA - Hits Of BBC And Alaska Records 1 & 2 (1977) [FLAC 2.0|96/24|image+.cue|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461729.jpg" />
 </div>
 
 
@@ -739,6 +710,35 @@ VA - Hits Of BBC And Alaska Records 1 & 2 (1977) [FLAC 2.0|96/24|image+.cue|Viny
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B78BC52F3E8C73FC99C4F6238D2A72A9E6DCA86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059501   (461549) от 04.10.2016
+
+Car-Man (Кар-Мэн) - Кармания (Carmania) (1992) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Hip-House, Europop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Russians
+02. В Багдаде всё спокойно
+03. Бомбей буги
+04. Coribian Girl(   Читать дальше...   )Жанр: Hip-House, EuropopПродолжительность: 00:41:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE146ED843CC42F0767552426FD7ACAE57B11BCF
 ```
 
 https://mybot314.ru/tekegram_catalog/

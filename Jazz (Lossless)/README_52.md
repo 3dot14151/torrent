@@ -6,7 +6,7 @@ Count Basie - The Real... Count Basie (2015) 3CD [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857439.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Duke Ellington - Take The A Train 1929 - 1952 (2006) Milan Jazz [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857014.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Harry Allen With Monty Alexander Trio - Soul Of My Life (2006) Swing Bros. Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857013.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856139.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ Abbey Lincoln - That's Him! (1957) Remaster, 1999, Victor[FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855936.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ James Moody - Quadromania: Just Moody (1948-1955) 4CD, 2005, Membran Music [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855754.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Duke Ellington - Paris, March 1964 (2013) La Maison du Duke [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855683.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Ray Barretto And New World Spirit - Contact! (1997) Blue Note [FLAC|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855678.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Stevie Wonder - Number Ones (2007) [FLAC|Lossless|image + .cue] <Soul, Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855600.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Keiko Matsui - Wildflower (2003) [FLAC|Lossless|image + .cue] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855598.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Harry Allen & Trio da Paz - Harry Allen Meets Trio da Paz (2007) Swingbros Co. [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855209.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Harry Allen Quintet - Down For The Count (2007) Swingbros Co. [FLAC|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855208.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Count Basie - Dejavu Retro Gold Collection (2001) 2CD [FLAC|Lossless]<Swing, Big
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855001.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Dinah Shore - Dinah Sings Some Blues With Red & Dinah, Down Home! (1998) [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854343.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Joe Williams & Dave Pell - Prez & Joe: In Celebtration Of Lester Young (1979) 19
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853867.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Bill Cunliffe - Bill Plays Bud (1996) 1998, Naxos Jazz [APE|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853864.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Harry Allen & Alan Barnes - Barnestorming (2007) Woodville [FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853716.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Maynard Ferguson - Memories Of Maynard: The Best Of The Columbia Years (2018) [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853667.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ The Puppini Sisters - Dance Dance Dance (2020) [FLAC|Lossless|image + .cue] <Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853560.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Nat King Cole - Milestones Of A Legend (1950 - 1962) 10CD, 2015, The Intense Med
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852876.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Kenny Burrell - At The Village Vanguard (1978, 1983) 2CD, 1999, Muse [APE|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852641.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ The Don Rendell / Ian Carr Quintet - Phase III & Live (1967/1968) 2CD, 2004, BGO
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852292.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Akiko Muto Trio - The Windmills Of Your Mind (2007) Jasnac [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852180.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Don Ralke And His Orchestra - But You've Never Heard Gershwin With Bongos & The 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852179.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Dave Brubeck - The Real... Dave Brubeck (2012) 3CD [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852085.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Ehud Asherie With Harry Allen - Lower East Side (2013) Posi-Tone Records [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851950.jpg" />
 </div>
 
 

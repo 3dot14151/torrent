@@ -6,7 +6,7 @@ Weather Lord 8: Graduation / Повелитель погоды 8: Выпускн
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799513.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Railway Empire (2018) [Ru/Multi] (1.7.0.22893/dlc) Repack R.G. Catalyst
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798565.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ REDCON (2016) [Ru/Multi] (1.2.0-273) Repack Other s
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770872.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Railway Empire (2018) [Ru/En] (1.13.0.25864/dlc) Repack xatab (обновляе�
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769269.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Paradise Beach / Пляжный Рай (P) [Ru] (2009)
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_755965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_755965.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Alicia Quatermain 3: And Mystery of the Flaming Gold / Алисия Квотер
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754958.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Kingdom Rush Origins (2018) [Ru/Multi] (1.3.4) License PLAZA
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754833.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Kingdom Rush Origins (2018) [Ru/Multi] (1.3.4) Repack Other s
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746085.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Roads of Time 2: Odyssey / Дороги времени 2: Одиссея (2020) 
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708921.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Elven Legend 7: The New Generation / Эльфийская Легенда 7: Но
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708852.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Hexagon Defense (2016) [En] (1.01) License
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690270.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Fever Frenzy (P) [En] 2007
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677052.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Farm Frenzy 3: Madagaskar / Веселая ферма 3. Мадагаскар (P
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_673026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_673026.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Reus (2013) [Ru/Multi] (1.6.5) Repack R.G. Механики
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646387.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Political Animals (2016) [Multi] (1.0.0083) License GOG
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636529.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Bounty Train (2017) [Ru/Multi] (05062018/dlc) License SKIDROW
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625856.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Build-a-lot: Fairy Tales (P) [En] 2012
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624761.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ A Gnome's Home: The Great Crystal Crusade (P) [En] 2012
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624757.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ McDROID (2014) [En] (1.0 Build 237) Repack Mizantrop1337
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611668.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Adelantado. Trilogy. Book one / Трилогия Аделантадо. Книг�
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610650.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Delicious 11. Emily's Home Sweet Home (2015) [En] Unofficial [Collector's Editio
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592192.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Turmoil (2016) [En/Multi] (1.0/upd7) Repack Other s
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586237.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Railway Empire (2018) [Ru/Multi] (1.9.0.24141/dlc) License PLAZA
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562987.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Railway Empire (2018) [Ru/Multi] (1.14.1.27369/dlc) License GOG [Complete Collec
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562818.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Incredible Dracula: The Last Call / Невероятный Дракула II. П
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561004.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Chase for Adventure: The Lost City / Погоня за приключениям�
 >>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560883.jpg" />
 </div>
 
 

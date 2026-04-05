@@ -1,3 +1,159 @@
+###  Публикация: 1087144   (148596) от 26.12.2016
+
+60 минут. Катастрофа Ту-154 (26.12.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Общественно-политические и пропагандистские ток-шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ток-шоу с Ольгой Скабеевой и Евгением Поповым. В новом социально-политическом ток-шоу каждый день ведущие и гости программы обсуждают главную тему текущего дня. В студию приглашаются политические и общественные деятели, эксперты по актуальной проблематике.Телекомпания: Россия 1Жанр: Телепередача, политическое ток-шоуПродолжительность: 01:15:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53463E6752BBDB68B1F764C83C447903CFA613D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969094   (148593) от 26.12.2015
+
+Голос. Сезон №4. Выпуск №17. Финал (2015.12.25) SATRip
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148593.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Первый канал" объявляет о премьере нового сезона музыкального проекта "Голос". Из тысяч претендентов, приславших минувшим летом свои заявки на участие, отобраны полторы сотни тех, кто поднимется на ставшую уже знаменитой на всю страну сцену во время "слепых прослушиваний" в надежде покорить слух требовательных наставников. Зрителей (   Читать дальше...   )Телекомпания: Первый каналЖанр: ТВ-Шоу, развлекательныйПродолжительность: ~ 02:25:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2395A496641C4957D842399EBFBF268EBF6CFDB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086971   (148563) от 26.12.2016
+
+Вести недели (25.12.2016) HDTVRip [1080i]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148563.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Вести недели» - еженедельная итоговая информационная программа Всероссийской государственной телерадиокомпании, выходящая в эфир по воскресеньям в 20.00, с хронометражем от 1 часа 10 минут до 1 часа 30 минут. Программа «Вести недели» не имеет рубрик, но внутри неё может показываться в кратком виде фрагменты из программы «Специальный корреспондент».Телекомпания: Россия 1Жанр: ТелепередачаПродолжительность: 02:09:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE421B640F5C28F63347632046B3CEC49FB61FC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347762   (148544) от 24.12.2019
+
+Антонио Гауди - архитектор от бога / Antoni Gaudi: God's Architect (2003) TVRip
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Антонио Гауди – самый известный архитектор Испании. Немногие архитекторы в мире оказали столь значительное влияние на облик своего города или создали нечто столь знаковое для своей культуры. В Барселоне у Гауди были поклонники, но успешных подражателей не было. Его творчество не породило архитектурной школы. Творения архитектора от бога и по сей день остаются неразгаданными.Производство: Великобритания, Oxword Film for BBCЖанр: Документальный, биография, архитектура, историяРежиссер: Мэнди ЧангПеревод: Одноголосый закадровый, профессиональный (СВ-Дубль)Субтитры: отсутствуютПродолжительность: 00:58:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F62936EA98220FBEA8BEAA8B59DEBA30ADB17078
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086228   (148542) от 26.12.2016
+
+Вечерний Ургант (2016.12.23) SATRip (cезон 10, выпуск 74)
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148542.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:35:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A113C9836E158E4671542AB13B87C861A5487F8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519398   (148529) от 24.12.2021
+
+Сафари / Safari (2016) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Страшное в своей жестокости документальное изобличение охотников-туристов, убивающих ради "спортивного интереса". Цивилизованные европейцы целыми семьями приезжают в Африку, чтобы пострелять в красивейших животных, сфотографироваться рядом с их трупами, а после их разделывания украсить добытыми трофеями свои интерьеры.Производство: Австрия, Дания, ARTE G.E.I.E., Danish Documentary Production, Ulrich Seidl Film Produktion GmbH, Westdeutscher Rundfunk (WDR)Жанр: документальный, природаРежиссер: Ульрих ЗайдльПеревод: многоголосый профессиональныйСубтитры: отсутствуютПродолжительность: 01:27:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED3D304B98065020D1CABE40B08748E671A72B8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347529   (148520) от 24.12.2019
 
 Как создать человека? / How to Build a Human (2016) HDTVRip [H.264]
@@ -6,7 +162,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148520.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148501.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148489.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148462.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148457.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148414.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148408.jpg" />
 </div>
 
 
@@ -189,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148334.jpg" />
 </div>
 
 
@@ -215,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148332.jpg" />
 </div>
 
 
@@ -242,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148325.jpg" />
 </div>
 
 
@@ -268,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148302.jpg" />
 </div>
 
 
@@ -294,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148272.jpg" />
 </div>
 
 
@@ -320,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148255.jpg" />
 </div>
 
 
@@ -346,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148248.jpg" />
 </div>
 
 
@@ -372,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148244.jpg" />
 </div>
 
 
@@ -398,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148241.jpg" />
 </div>
 
 
@@ -424,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148198.jpg" />
 </div>
 
 
@@ -451,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148149.jpg" />
 </div>
 
 
@@ -477,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148142.jpg" />
 </div>
 
 
@@ -503,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>История
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148117.jpg" />
 </div>
 
 
@@ -514,162 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACE23413E48E157204C5767022F2B950A2E954C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434862   (148093) от 26.12.2020
-
-Главная дорога (26.12.2020) SATRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одним — праздник, другим — сухой закон! На новогодние каникулы многие ставят своим машины на стоянки, но есть и те, кто выбирает роль трезвого водителя. Сможет ли поднять им градус веселья безалкогольное вино, пиво и шампанское? В новом выпуске «Главной дороги» Андрей Федорцов и Денис Юченков проверили это при помощи научного эксперимента! Они собрали большую компанию, (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:27:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1D8DBC7444837FD9DA248E7BB1CAF84B34B2BB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435045   (147957) от 26.12.2020
-
-Псих. Фильм о фильме (2020) WEBRip [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый сериал Федора Бондарчука, первый большой сценарий Паулины Андреевой, первая главная роль Константина Богомолова - в одном из самых успешных и резонансных проектов 2020 года «Псих» многое было впервые. Больше года шла работа над 8-серийным сериалом, который сами его создатели называют «полным метром в восьми частях». А ведь начиналось все с парадоксальной идеи: (   Читать дальше...   )Производство: РоссияЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:29:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6445D4F3B5967AC65643C215A106D6094FB3CC92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435055   (147831) от 26.12.2020
-
-Битва экстрасенсов (26.12.2020) WEB-DL [H.264/720p-LQ] (сезон 21, выпуск 14)
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147831.jpg" />
-</div>
-
-
-###  Подробнее
-
-На ТНТ стартует 21-й сезон «Битвы экстрасенсов» – проекта, который навсегда изменил представление людей об экстрасенсорике и человеческих возможностях. Из-за пандемии в этом году кастинг в 21-й сезон «Битвы экстрасенсов» впервые был полностью дистанционный. Его можно было пройти по видеосвязи – не выходя из дома, из любой точки мира, из любой деревни или села, везде, (   Читать дальше...   )Производство: ТНТЖанр: ТВ-шоуЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:08:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F069EF777F696DCBE1FD613FAD4B547D9C1EBBEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 647951   (147729) от 26.12.2020
-
-Убить Гитлера (2004) DVBRip
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147729.jpg" />
-</div>
-
-
-###  Подробнее
-
-История покушений на фюрера насчитывает более 50 случаев. Но все попытки потерпели неудачу. Можно ли считать подобные факты случайностью? Или это провидение, в которое свято верил самый главный фашистский преступник? Ведь Гитлер держал в руках историческое "Копье судьбы", по легенде, приносящее невиданную удачу.Телекомпания: ООО "Караван-Арт"Жанр: ДокументальныйРежиссер: Александр Иванкин, Артем Чащихин-ТоиздеПродолжительность: 01:28:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C07B884308A5181182FEBDC6E07514A43B0B9245
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086698   (147628) от 26.12.2016
-
-Первая передача на НТВ. Автомобильная передача (2016.01.17-2016.12.25) SATRip (выпуски 234-275) (Весь сезон!!!)
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147628.jpg" />
-</div>
-
-
-###  Подробнее
-
-« Первая передача» — новый проект для автомобилистов и про автомобилистов. Ведущий «Первой передачи» — Виктор Травин, президент Коллегии правовой защиты автовладельцев. Уже много лет этот известный журналист защищает права автолюбителей. В автомире для него нет секретов и закрытых дверей. Всех, кто не представляет своей жизни без автомобиля, и тех, кто только задумывается (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаРежиссер: Роман ИовицаСубтитры: ОтсутствуютПродолжительность: ~ 00:35:00 выпуск
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AE32EA3F5ED9B3729F8C949D948F1D8518E5342
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969429   (147609) от 27.12.2015
-
-Чудо техники (2015.12.27) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147609.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Чудо техники» — это доходчивый и интересный рассказ о новейших научных разработках, которые способны поменять или уже меняют нашу повседневную жизнь. Автор проекта — Сергей Малозёмов — хорошо знаком зрителям НТВ по репортажам программы «Сегодня», касающимся новых технологий, гаджетов, медицины. Он в курсе последних научных разработок и одним из первых узнает о значимых (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: ~ 00:36:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7193B96599B46A1C28717732BAA30CFFEAE065F
 ```
 
 https://mybot314.ru/tekegram_catalog/

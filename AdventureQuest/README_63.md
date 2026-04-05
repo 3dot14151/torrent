@@ -1,3 +1,81 @@
+###  Публикация: 1594909   (176371) от 03.12.2022
+
+Return to Monkey Island (2022) [Ru/Multi] (1.5) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176371.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Возвращение на Остров Обезьян» - неожиданное и невероятное возвращение создателя серии Рона Гилберта, продолжающее историю легендарных приключенческих игр «Тайна Острова Обезьян» и «Остров Обезьян: Месть ЛеЧака», разработанных в сотрудничестве с Lucasfilm Games. С последней битвы Гайбраша Трипвуда и его заклятого врага, зомби-пирата ЛеЧака, прошло много лет. Любовь (   Читать дальше...   )Тип издания: LicenseРазработчик: Terrible ToyboxЖанр: Приключение, КвестЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD5FFF0E2B328B6C6F834A1F148FE0513C003C2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667372   (176312) от 08.10.2023
+
+COCOON (2023) [Ru/Multi] (1.0) Scene FairLight
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176312.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая игра от Йеппе Карлсена, ведущего гейм-дизайнера LIMBO и INSIDE. Это путешествие по мирам внутри других миров. Овладейте механикой прыжков по мирам и разгадайте космическую тайну. Уникальный взгляд на головоломки и приключения. Здесь каждый мир – это сфера, которую можно буквально таскать на спине. Постигайте механику прыжков между мирами: манипулируйте ими, (   Читать дальше...   )Тип издания: SceneРазработчик: Geometric InteractiveЖанр: Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BFC1CA042A907C381C642FEADEC145830C4F8B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667497   (176233) от 08.10.2023
+
+Detroit: Become Human (2020) [Ru/Multi] (12158144) Repack dixen18
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детройт, 2038 год. Технологии развились до такой степени, что человекообразные андроиды встречаются на каждом шагу. Они говорят, двигаются, ведут себя словно человеческие существа, но они - лишь машины в на службе у людей. Играйте за трех разных андроидов и наблюдайте мир на грани хаоса - наше возможное будущее - их глазами. Каждое ваше решение приведет к драматическим (   Читать дальше...   )Тип издания: RepackРазработчик: Quantic DreamЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CB8D02AD4F3F57D1E51B4E852AB0923255C9B44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595167   (175912) от 04.12.2022
 
 Escape from Monkey Island (2000) [Multi] (1.1) License GOG
@@ -6,7 +84,7 @@ Escape from Monkey Island (2000) [Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175912.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Tales of Monkey Island: Complete Season (2009) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175882.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Hello Neighbor 2 (2022) [Ru/Multi] (1.1.15.5/dlc) License FLT [Deluxe Edtion]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175747.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ DARQ (2019) [Ru/Multi] (1.3/dlc) Repack Other s [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175345.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Edna and Harvey / Эдна и Харви Дилогия (RePack) [Ru/Ge] 2008-20
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174698.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Tell Me Why / Скажи мне, почему (2020) [Ru/Multi] (5510896) Repack
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174025.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Riot of Willy (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173603.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Planet of Lana (2023) [Ru/Multi] (1.1.0.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173543.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ The Supper: New Blood (2025) [En] (1.02a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173434.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ The Supper (2020) [En] (1.01a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173433.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Storyteller (2023) [Ru/Multi] (20230927) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173299.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Torn Away (2023) [Ru/Multi] (12315550) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173295.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Monolith (2023) [Multi] (1.0.1.3) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173143.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Haunted House (2023) [Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173132.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Last Lesson (2023) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173128.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Aka Manto (2019) [Multi] (1.0) Scene DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172784.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Stigmatized Property (2019) [Ru/Multi] (1.0) Scene PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172764.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Inunaki Tunnel (2019) [Multi] (1.0) Scene DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172750.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Yuki Onna (2020) [Multi] (1.0) Scene DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172748.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Windy Meadow A Roadwarden Tale (2023) [En] (1.0.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172240.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Night Loops (2023) [En] (1.0) Scene Tenoke [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172038.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Tribe: Primitive Builder (2023) [Ru/Multi] (1.0.17) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171978.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Kona II: Brume (2023) [Ru/Multi] (Build 12466960) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171970.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Kona II: Brume (2023) [Ru/Multi] (Build 12466960) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB829315DCD4A947614D90CF3A9F457803FAE807
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550867   (171791) от 21.10.2023
-
-Crowns and Pawns: Kingdom of Deceit (2022) [Ru/Multi] (1.1.1) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171791.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом очаровательном приключении легенды прошлого становятся явью. Crowns and Pawns — современное приключение в духе таких классических игр, как Broken Sword, Still Life и Syberia. Откройте для себя малоизвестные страницы истории Европы. Узнайте легенды Великого княжества Литовского, выведите на чистую воду зловещую ячейку КГБ, решайте головоломки и собирайте улики, (   Читать дальше...   )Тип издания: LicenseРазработчик: Tag of JoyЖанр: Приключение, Квест, ГоловоломкаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, ФранцузскийЯзык интерфейса: Русский, Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2A461ED71A179AA2E228575C0C641A585A5F7B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670979   (171671) от 22.10.2023
-
-Lair of Torment (2023) [Ru/Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lair of Torment - это короткий инди-хоррор с головоломками от первого лица, в жанре симулятора ходьбы. Глубоко под землей находиться убежище, в темных и сырых коридорах которого царит атмосфера страха и ужаса. Там, во мраке и тишине, стены шепчут тайные истории, а непроницаемые шторы между реальностью и кошмарами создают атмосферу напряжения и загадочности. Однако, (   Читать дальше...   )Тип издания: SceneРазработчик: Admia, a1esska, NotexЖанр: Приключенческие игры, Инди, СимуляторыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5E3631DC60BF832C656EF7DE793336ACC48C919
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670801   (171640) от 22.10.2023
-
-Vlad Circus: Descend into Madness (2023) [Ru/Multi] (2.34) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171640.jpg" />
-</div>
-
-
-###  Подробнее
-
-В игре Vlad Circus: Descend into Madness вы откроете для себя историю, полную тайн и боли, историю, где каждая тень скрывает в себе запутанную тайну или зловещую угрозу, и никто не застрахован от трагедии. Погрузитесь в леденящую от ужаса кровь историю цирка уродов 1920-х годов, который сгорел дотла, и переизобретение нового цирка. Следуйте за измученным Оливером (   Читать дальше...   )Тип издания: LicenseРазработчик: IndiesruptionЖанр: Survival Horror, Adventure, Puzzle, Thriller, Mystery, 2D, 3rd PersonЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B128678B347D6705D094AF55EBC5FD9475459721
 ```
 
 https://mybot314.ru/tekegram_catalog/

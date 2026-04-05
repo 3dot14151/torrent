@@ -6,7 +6,7 @@ VA - The Hits Album: The Car Album (2019) [MP3|320 Kbps] <Pop, Rock, Other>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_611752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611752.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Indie Country Folk (2016) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610327.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Nicklas Sahl - Planets (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610326.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Beyonce - Homecoming: The Live Album (2019) [MP3|320 Kbps] <Pop, RnB>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610256.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - NOW Thats What I Call Music! 2 (2019) [MP3|320 Kbps] <Synthpop, Reggae, Dan
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_610243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610243.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ The Human League - Greatest Hits (1995) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609490.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Tricia - Radiate (2013) [MP3|320 Kbps] <Pop, Pop Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_608750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608750.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Super Disco Еxclusive Remix [Vol.1-5] (2022) DJ Lexsus [MP3|320 Kbps] <Dan
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607672.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Hit Rocket (1977) LP [MP3|320 Kbps] <Electronic, Disco, Electro, Pop Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607618.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Savage Garden - The Singles (2015) [MP3|320 кб/с]<Pop, Pop-Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607080.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Booom Summer 2018 (2018) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_607044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607044.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - NOW That's What I Call Summer Party 2018 (3CD) (2018) [MP3|320 Kbps] <Pop, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606972.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ VA - Der deutsche Schlager - Frühling & Sommer (2019) 3CD [MP3|320 Kbps] <Pop, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606920.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ VA - Ballermann Stars - Mallorcastyle Opening Hits 2019 (Mallorca Schlager im XX
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606816.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ VA - Eurovision Song Contest Tel Aviv (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606680.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ VA - ZYX Italo Disco Spacesynth Collection 5 (2019) [MP3|320 Kbps] <Italo-Disco,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606678.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ VA - DMC Dance Mixes 291 Pop (2021) [MP3|320 Kbps] <House, Dance-pop, Drum n Bas
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606273.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ VA - DMC Dance Mixes 291 Dubs (2021) [MP3|320 Kbps] <Electronic, Dubstep, Dance,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606270.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Gin Wigmore - Blood To Bone (2015) [MP3|320 кб/с]<Pop, Soul, Funk, Alternativ
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605198.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Alex Hepburn - Things I've Seen (2019) Explicit [MP3|320 Kbps] <Pop-Rock, Soul>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604822.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Adriano Celentano - Golden Hits (2013) 3CD [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604781.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Bananarama - In Stereo (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604053.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Chrysta Bell - Feels Like Love (2019) [MP3|192 Kbps] < Pop Rock, Dream Pop, Voca
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603596.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ VA - Eurobeat & High Energy Cartoons Flavor: Top 120 Mega Pack Hits (2019) [MP3|
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603590.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ VA - DMC Dance Mixes 299 (2022) [MP3|320 Kbps] <House, Tech House, Bassline, Voc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603436.jpg" />
 </div>
 
 
@@ -733,7 +733,7 @@ VA - DMC Dance Mixes 298 (2022) [MP3|320 Kbps] <House, Breaks, Dance-pop, Vocal>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603434.jpg" />
 </div>
 
 

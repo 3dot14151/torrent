@@ -1,3 +1,133 @@
+###  Публикация: 1678253   (144570) от 21.11.2023
+
+Северные амуры (2023) WEBRip [H.264/1080p]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Славные приключения неунывающих храбрецов, которые понравятся и взрослым, и детям. Не перевелись богатыри в Российской империи! Когда в 1788 году шведский король объявил нам войну, люди по всей стране поднялись на защиту земель. Особенно отличились башкиры — известные храбрецы, верой и правдой служившие отчизне. Подвиг пятёрки богатырей из далёкой деревни так впечатлил (   Читать дальше...   )Производство: Россия | Студия «Муха», Студия «Башкортостан»Жанр: МультфильмРежиссер: Руслан ТавабиловАктеры: Радик Юльякшин, Назифа Кадырова, Идрис Газиев, Фидан Гафаров, Азамат Гафаров, Илья Тавлияров, Руслан Ронич, Ильнур Лукманов, Юнир Аминев, Камиль БузыкаевСубтитры: ОтсутствуютПродолжительность: 01:04:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93DCE25C56A8C9AE79C3512507851EF246F2616C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590197   (144532) от 16.12.2012
+
+Шевели ластами 2 / Sammy's avonturen 2 (2012) DVD5
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Верные друзья навсегда, черепахи Сэмми и Рей, наслаждаются размеренной жизнью вблизи океана, а также присматривают за только что вылупившимися Рикки и Эллой. Внезапно, браконьер хватает больших черепах, они нужны ему для захватывающего морского шоу в Дубае. Центральная фигура шоу, морской конёк Большой Ди, посвящает новичков в свои планы на грандиозный побег. Но, (   Читать дальше...   )Производство: Бельгия, nWave Pictures, Illuminata Pictures, Motion Investment GroupЖанр: Мультфильм, приключенияРежиссер: Бен СтассенПерсонажи: Билли Ангер, Пэт Кэрролл, Карлос МакКаллерс II, Синда Адамс, Дино Андраде, Крис Эндрю Кулла, Изабель Фурман, Уэсли Джонни, Силье Рейномо, Дуглас Райан РотПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:32:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0A26BB1DCD450DB0309DE49482F804C02B8EAFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589912   (144516) от 16.12.2012
+
+Шевели ластами 2 / Sammy's avonturen 2 (2012) [1080p] BDRip [Горизонтальная анаморфная стереопара 3D]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144516.jpg" />
+</div>
+
+
+###  Подробнее
+
+Верные друзья навсегда, черепахи Сэмми и Рей, наслаждаются размеренной жизнью вблизи океана, а также присматривают за только что вылупившимися Рикки и Эллой. Внезапно, браконьер хватает больших черепах, они нужны ему для захватывающего морского шоу в Дубае. Центральная фигура шоу, морской конёк Большой Ди, посвящает новичков в свои планы на грандиозный побег. Но, (   Читать дальше...   )Производство: Motion Investment Group / nWave PicturesЖанр: Мультфильм, приключенияРежиссер: Бен СтассенАктеры: Билли Ангер, Пэт Кэрролл, Карлос МакКаллерс II, Синда Адамс, Крис Эндрю Кулла, Дино Андраде, Изабель Фурман, Уэсли Джонни, Силье Рейномо, Дуглас Райан Рот, Джо Томас, Уилли Джеймс Уоррен мл.Перевод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:32:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2B1FCC91377FF4E68051F57F55C82EDEB8A57E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444117   (144508) от 21.11.2023
+
+Флинтстоуны / The Flintstones The Complete Series (1960-1966) BDRip [H.264] (Сезон 1-6, 166 серий из 166)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый анимационный сериал, ориентированный на взрослую аудиторию. Действие разворачивается в Каменном веке, где всё не так запущенно, как могло бы показаться. Здесь есть телефоны, автомобили, боулинг-клубы, - правда, всё из камня. А проблемы доисторической семьи Флинтстоунов отличаются от современных только антуражем. Сериал был задуман как карикатура на американское (   Читать дальше...   )Производство: США, Hanna-Barbera ProductionЖанр: Комедия, Рисованная анимацияРежиссер: Уильям Ханна и Джозеф БарбераПеревод: Дублированный, Многоголосый закадровыйСубтитры: английские, русские (в сериях, где нет русской озвучки).Продолжительность: ~00:24:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F19B643BC45F174971DF08B942A9BE2B79ABBDA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969820   (144439) от 28.12.2015
+
+Монстры на каникулах 2 / Hotel Transylvania 2 (2015) BDRemux [H.264/1080p] [3D/2D] [ISO]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описание Граф Дракула выдает свою очаровательную дочь замуж за парня из мира людей, и у молодой «смешанной» пары рождается сын. Станет ли этот ребенок человеком или вампиром?Производство: США, Columbia Pictures, LStar Capital, Sony Pictures Animation, Sony Pictures Digital, Sony Pictures ImageworksЖанр: Мультфильм, Фэнтези, Комедия, СемейныйРежиссер: Генндий ТартаковскийПерсонажи: Адам Сэндлер, Энди Сэмберг, Селена Гомес, Кевин Джеймс, Стив Бушеми, Дэвид Спейд, Кигэн-Майкл Ки, Эшер Блинкофф, Фрэн Дрешер, Молли ШеннонПеревод: Дублированный (iTunes Russia)Язык субтитров: Русский (Forced, iTunes), украинский (iTunes), английский (SDH, Commentary)Продолжительность: 01:29:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C23D7E6E37B32A7B67732D9393D18A38055804D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970001   (144316) от 28.12.2015
 
 Монстры на каникулах 2 / Hotel Transylvania 2 (2015) BDRip 3D [AVC/H.264/1080p] [Вертикальная анаморфная стереопара]
@@ -6,7 +136,7 @@
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144316.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144307.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144179.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144100.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144002.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143980.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143932.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143913.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143458.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143175.jpg" />
 </div>
 
 
@@ -268,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143085.jpg" />
 </div>
 
 
@@ -294,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143084.jpg" />
 </div>
 
 
@@ -321,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143081.jpg" />
 </div>
 
 
@@ -347,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143077.jpg" />
 </div>
 
 
@@ -373,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143050.jpg" />
 </div>
 
 
@@ -399,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142923.jpg" />
 </div>
 
 
@@ -425,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142891.jpg" />
 </div>
 
 
@@ -453,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142845.jpg" />
 </div>
 
 
@@ -480,7 +610,7 @@ Larva Island (2019) WEB-DL [H.264/1080p] (сезон 2, серии 1-13 из 13)
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142601.jpg" />
 </div>
 
 
@@ -506,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142577.jpg" />
 </div>
 
 
@@ -532,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142338.jpg" />
 </div>
 
 
@@ -546,139 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9A433F5A79AF0AB4FC66D0E1C4C56AC74366DEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272634   (142295) от 28.12.2018
-
-Приключения Икабода и мистера Тоада / The Adventures of Ichabod and Mr. Toad (1949) BDRip [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шедевр мультипликации — «Студия Уолта Диснея» («Walt Disney Pictures») под одной обложкой в едином живописном стиле поместила две сказочные истории по классическим произведениям:
-1. «Ветер в ивах» («The Wind in the Willows») — об одном из самых удивительных и забавных персонажей английской литературы, о жабе Джее Тадеуше Тоаде, а проще — о мистере Тоаде, потомственном (   Читать дальше...   )Производство: Walt Disney PicturesЖанр: Рисованная анимация, Приключения, Комедия, ФентезиРежиссер: Джеймс Алгар / James Algar, Клайд Джероними / Clyde Geronimi, Джек Кинни / Jack KinneyПеревод: Дублированный, многоголосый закадровый, одноголосый авторскийСубтитры: русские (форс., полные), английские (полные)Продолжительность: 01:08:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B20D13FB27F45CB2170312D6841DE9F70B51580
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590162   (142247) от 17.12.2012
-
-Слон по имени Элмер / Elmer Elephant (1936)  [H.264/720p-LQ] BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слон Элмер приносит цветы на день рождения тигрице Тилли. Она оставляет его на мгновение и все другие животные дразнят Элмера за его длинный хобот. Он уходит, и встречает старого мудрого жирафа. Между тем, дом на дереве Тилли загорелся. Элмер, жираф, и несколько пеликанов объединяються, чтобы спасти Тилли от огня.Жанр: короткометражный анимационный фильмРежиссер: Уилфред ДжексонПеревод: ДублированныйПродолжительность: 00:08:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EA8E62D54E9DE81274B84C9D90DC36B13B15656
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272539   (142178) от 28.12.2018
-
-Принц Египта / The Prince of Egypt (1998) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта история случилась на заре цивилизации в Древнем Египте. Стремительный и величавый Нил вынес на берег перед дворцом фараона корзину с младенцем. Могущественный правитель усыновил крошечного мальчика и дал ему имя Моисей.
-Шли годы… Моисей и его брат Рамзес росли вместе. Но придет день, когда один из братьев станет владыкой величайшей империи на земле, а другой (   Читать дальше...   )Производство: США / DreamWorks AnimationЖанр: Мюзикл, Приключения, Семейный, ИсторияРежиссер: Бренда Чепмен, Стив Хикнер, Саймон УэллсАктеры: Вэл Килмер, Рэйф Файнс, Мишель Пфайффер, Сандра Буллок, Джефф Голдблюм, Дэнни Гловер, Патрик Стюарт, Хелен Миррен, Стив Мартин, Мартин Шорт, Офра ХазаПеревод: Дублированный, многоголосый закадровый, одноголосый авторскийСубтитры: русские (полные), английские (полные)Продолжительность: 01:38:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C55C816D290988EDB4E75D8F9363F0C0D15A0E08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272723   (142134) от 28.12.2018
-
-Суперсемейка 2 / Incredibles 2 (2018) DVD9
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142134.jpg" />
-</div>
-
-
-###  Подробнее
-
-После событий первой части суперсемейка пользуется повышенным вниманием со стороны журналистов. Неожиданно оказалось, что обаятельная Миссис Исключительная гораздо лучше смотрится на экране телевизора, чем её муж. Мистеру Исключительному все чаще приходится сидеть дома и приглядывать за детьми, у каждого из которых есть свои причины быть недовольным собственными (   Читать дальше...   )Производство: США / Walt Disney Pictures, Pixar Animation StudiosЖанр: Мультфильм, фантастика, боевик, комедия, приключения, семейныйРежиссер: Брэд БёрдПерсонажи: Крэйг Т. Нельсон, Холли Хантер, Сара Вауэлл, Хак Милнер, Кэтрин Кинер, Илай Фучиле, Боб Оденкёрк, Сэмюэл Л. Джексон, Майкл Бёрд, София БушПеревод: Дублированный (лицензия)Субтитры: Русские, английскиеПродолжительность: 01:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA8654B5B2A0C8DDECA004BB602605DBD007808D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 853854   (141968) от 29.12.2014
-
-Книга жизни / The Book of Life (2014) WEB-DL [H.264/720p-LQ] [EN / EN Sub]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141968.jpg" />
-</div>
-
-
-###  Подробнее
-
-Романтическая история любви на фоне празднования Дня мертвых в Мексике.
-Тореадор Маноло разрываясь между  ожиданиями его семьи и  зовом сердца, пускается в приключение, которое охватывает три фантастических мирах, где он должен встретиться со своими страхамиПроизводство: США |  Reel FX Animation Studios, Twentieth Century Fox, ChatroneЖанр: мультфильм, фэнтези, мелодрама, комедия, приключения, семейныйРежиссер: Хорхе Р. ГутьерресПеревод: ОтсутствуетЯзык субтитров: АнглийскийПродолжительность: 01:36:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4497C7CB8E4437D2E93D113013B5CE7B1D0FDFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,133 @@
+###  Публикация: 1515164   (170337) от 06.12.2021
+
+Под небом Сицилии (Именем закона) / In nome della legge / In the Name of the Law (1949) BDRip [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170337.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мaлeнький сицилийcкий городок нa поeздe приeзжaeт новый cудья. Ha cтaнции он вcтрeчaeт cвоeго прeдшecтвeнникa, который cовeтуeт eму кaк можно быcтрee уeзжaть из этиx мecт, для eго жe пользы. Прибыв в город, cудья – Гвидо Cкъяви, довольно быcтро вникaeт в обcтaновку, в которой он окaзывaeтcя мeжду двумя нacтоящими «влaдeльцaми городa»: мaфиози - Тури Пaccaлaквa (   Читать дальше...   )Производство: Италия, Lux Film S.p.a.Жанр: Драма, криминалРежиссер: Пьетро ДжермиАктеры: Массимо Джиротти, Йоне Салинас, Камилло Мастрочинке, Шарль Ванель, Саро Урци, Тури Пандольфини, Пеппино Спадаро, Саро Аркидьяконо, Игнацио Бальзамо, Нанда Де СантисПеревод: Одноголосый любительский (dimadima)Субтитры: Русские - отдельным файломПродолжительность: 01:40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:556FA5E8A1DBD06E85E26BFCB3FC56E6B07FBDA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672098   (170039) от 27.10.2023
+
+Магнитный монстр / The Magnetic Monster (1953) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170039.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пара агентов из Управления научных исследований (OSI) доктор Джеффри Стюарт и доктор Дэн Форбс отправляются расследовать странную аномалию в местном магазине бытовой техники. Все часы магазина остановились в одно и то же время и металлические предметы намагнитились. Источник этого прослеживается до офиса, расположенного прямо над магазином, где найдено различное (   Читать дальше...   )Производство: США, Ivan Tors ProductionsЖанр: фантастикаРежиссер: Курт Сьодмак, Херберт Л. СтрокАктеры: Ричард Карлсон, Кинг Донован, Джин Байрон, Гарри Эллерб, Лео Бритт, Леонард Мьюди, Бирон Фулгер, Майкл Фокс, Джон Заремба, Ли ФелпсПеревод: любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские (VampirO), английскиеПродолжительность: 01:15:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ACC98F0F03AA993596A7F32F753DA6DD1CB931A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430881   (169964) от 11.12.2020
+
+Дети Евы / Children of Eve (1915) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169964.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семнадцатилетняя Мэйми совершает мелкие кражи, водится с уголовником - в общем, попала в плохую компанию. Берт, приёмный сын бездушного фабриканта Мэдисона, старается помогать бедноте. Однажды выручив Мэйми, он пытается наставить её на путь истинный. Берт нравится ей и она хотела бы изменить свою жизнь, но привычный круг, друзья... Не так-то просто выиграть в борьбе (   Читать дальше...   )Производство: США, Edison CompanyЖанр: Драма, немое киноРежиссер: Джон Х. КоллинзАктеры: Виола Дэна, Роберт Коннесс, Том Блейк, Нелли Грант, Роберт Уолкер, Уильям Вэдсворт, Джеймс Харрис, Хьюберт Доули, Уоррен Кук, Брэд СаттонЯзык озвучки: НемойСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 01:14:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:335B846BA82F2D3E36B0BAC76C4FF64279FE58E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596546   (169939) от 10.12.2022
+
+Чарли Чейз. С первого взгляда / At First Sight (1924) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169939.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередные приключeния Джимми Джампа. Оказав на улице помощь симпатичной девице, Джимми знакомится с ней и приглашает её на свидание. В знак договоренности, они обменялись визитными карточками. Обычная история. Да вот в чем казус, это не их карточки. Не его и не её. И это сулит забавные недоразумения.Производство: США, Hal Roach StudiosЖанр: комедия, короткометражный, немое киноРежиссер: Дж.А. ХоуАктеры: Чарли Чейз, Blanche Mehaffey, Лайл Тайо, Весткотт КларкПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:09:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8920542DE1870716A6AEC1C6D4D4D6FB582196A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430890   (169865) от 11.12.2020
+
+Макс Линдер. Будьте моей женой / Be My Wife (1921) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169865.jpg" />
+</div>
+
+
+###  Подробнее
+
+Макс влюблен в молодую девушку, но ее тетя хочет, чтобы она выбрала другого. Максу приходится идти на различные уловки, чтобы завоевать свою любовьПроизводство: ФранцияЖанр: Короткометражка, комедия, немое киноРежиссер: Макс ЛиндерАктеры: Макс Линдер, Альта Аллен, Кэролайн Ранкин, Линкольн Стедман, Роуз Дионе, Чарльз МакХью, Viora Daniel, Артур КлэйтонЯзык озвучки: НемойСубтитры: Английские интертитрыПродолжительность: 00:13:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:409DAD61C9909CDB67F8EDC123EAC23D7F0A2D7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 232691   (169496) от 11.12.2020
 
 Тайна летучей рыбы / The Mystery of the Leaping Fish (1916) DVDRip
@@ -6,7 +136,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169496.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169434.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169413.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169378.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169300.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169233.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169103.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169101.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168996.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168978.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168961.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168940.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168841.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168623.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168537.jpg" />
 </div>
 
 
@@ -397,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168506.jpg" />
 </div>
 
 
@@ -425,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168480.jpg" />
 </div>
 
 
@@ -451,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168424.jpg" />
 </div>
 
 
@@ -477,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168194.jpg" />
 </div>
 
 
@@ -503,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168099.jpg" />
 </div>
 
 
@@ -529,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167846.jpg" />
 </div>
 
 
@@ -540,137 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F6F62AFBC3DEAAB2931AF0AC38D7109E016110D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596813   (167827) от 12.12.2022
-
-Один дома / Home Alone (1990) WEB-DLRip [H.264] [Open Matte]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167827.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американское семейство отправляется из Чикаго в Европу, но в спешке сборов бестолковые родители забывают дома... одного из своих детей. Юное создание, однако, не теряется и демонстрирует чудеса изобретательности. И когда в дом залезают грабители, им приходится не раз пожалеть о встрече с милым крошкой.Производство: США / 20th Century Fox Film Corporation, Hughes EntertainmentЖанр: комедия, семейныйРежиссер: Крис КоламбусАктеры: Маколей Калкин, Джо Пеши, Дэниел Стерн, Кэтрин О’Хара, Джон Хёрд, Робертс Блоссом, Джерри Бэммен, Девин Рэтрей, Джон Кэнди, Киран КалкинПеревод: Профессиональный (дублированный), Профессиональный (многоголосый закадровый), Профессиональный (двухголосый закадровый)Субтитры: РусскиеПродолжительность: 01:42:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A78CBFD71B8F052937675707618D15E95C59D24A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515993   (167797) от 09.12.2021
-
-Идти преступным путём / Walk a Crooked Mile (1948) BDRip [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает о совместной работе агента ФБР (Деннис О’Киф) и сотрудника Скотленд-Ярда (Луис Хейуорд), которые предотвращают деятельность шпионской организации, целью которой было похищение секретных разработок из лаборатории ядерных исследований в Калифорнии. Наряду с такими картинами, как «Я был коммунистом для ФБР» (1951), «Вор» (1952), «Происшествие на Саут-стрит» (   Читать дальше...   )Производство: США, Edward Small Productions, Columbia PicturesЖанр: Фильм-нуар, драма, криминалРежиссер: Гордон ДугласАктеры: Луис Хейуорд, Деннис О’Кифи, Луиз Олбриттон, Карл Эсмонд, Онслоу Стивенс, Рэймонд Бёрр, Арт Бэйкер, Лоуелл Гилмор, Филип Ван Зандт, Чарльз ЭвансПеревод: Авторский (Андрей Дольский)Субтитры: Английские - отдельным файлoмПродолжительность: 01:31:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7782D0529B43C5C8D9C232CB633580EDD83C168D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672758   (167788) от 29.10.2023
-
-Крепость / Az erod / The Fortress (1979) TVRip [DVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167788.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа любителей острых ощущений отправляется на форт, где тайно проводятся игры на выживание. Условия этой игры совсем нешуточные: им придется противостоять в военных действиях группе обученных солдат, которые, пленив их, могут делать с игроками все, что угодно...
-Фильм участвовал в Московском международном кинофестивале 1979 года и был отмечен премией Советского (   Читать дальше...   )Производство: Венгрия / Budapest Filmstúdió, MafilmЖанр: фантастикаРежиссер: Миклош СинетарАктеры: Белла Танаи, Шандор Остер, Йожеф Мадараш, Адам Райхона, Ференц Бач, Дьюла Бенкё, Петер Бенкё, Джорджиана Тарьян, Нора Немит, Юдит ХернадиПеревод: двуголосый любительский (den904 & deadsno)Язык озвучки: русский, венгерскийСубтитры: русские (Dekadansu), английскиеПродолжительность: 01:53:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9363DA1E4BE5F6380CD5AADA462E93039789B8AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597179   (167773) от 13.12.2022
-
-Чарли Чейз. Минуточку / Just a Minute (1924) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джимми Джамп, продавец автомобилей, который собирается жениться. Его босс приказывает ему показать машину мэру этого городка. Джимми оставляет девушку на углу всего на минуту, но эта минута получилась так длинна... Короче, все плохо!Производство: США, Hal Roach StudiosЖанр: комедия, короткометражный, немое киноРежиссер: Джеймс ПэрротАктеры: Чарли Чейз, Хелен Гилмор, Клайд Э. Хопкинс, Blanche Mehaffey, Ной ЯнгПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:12:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F5BE4D1F355FDFB9723E5E66E5F3C62456CF27B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597188   (167713) от 13.12.2022
-
-Приключение неправильного Санта-Клауса / The Adventure of the Wrong Santa Claus (1914) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167713.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комедийка из серии приключений Октавия, детектива-любителя. На этот раз Октавий приглашен знакомыми на празднование Рождества. Его попросили надеть костюм Санта-Клауса, чтобы поздравить ребятишек. Что он и сделал. И вот оказия - в этот же дом забрался вор, представьте себе, тоже переодетый в соответствии с рождеством. И этот негодяй украл все подарки из под ёлки!Производство: США, Edison CompanyЖанр: комедия, короткометражный, немое киноРежиссер: Чарльз М. СиэйАктеры: Херберт Йост, Джулиан Рид, Ричард Нилл, Блисс Милфорд, Кеннет Лоулор, Кэтлин Кофлин, Эдит Питерс, Джон Старджон, Элси МаклеодПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:14:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82B0278978719AB7BB6471C1E520CED4C38F49CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

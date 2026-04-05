@@ -1,3 +1,133 @@
+###  Публикация: 946528   (427247) от 13.10.2015
+
+Журнал | Лена рукоделие. Спецвыпуск №11 (2015) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Слово «декупаж» от французского decouper - вырезать. Техника возникла ещё в XVII веке, итальянские мастера подделывали с её помощью дорогую китайскую мебель. Позже декупаж стал модным во Франции, кстати, именно пол своим французским названием он и стал известен во всём мире. Сама Мария Антуанетта с удовольствием декорировал, мебель картинками Ватто и Фрагонара. В (   Читать дальше...   )Жанр: Домоводство, рукоделиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F51B2FA094BA52F417A0B9DF039F1536E9DFA2B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946450   (427246) от 13.10.2015
+
+Журнал | Делаем сами №19 (октябрь 2015) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Делаем сами» - полезные советы домашним мастерам и мастерицам - тем, кто шьет и вяжет, строит и ремонтирует, придумывает и творит. Для тех, кто любит делать красивые и полезные вещи своими руками, создает уют в доме. Схемы, чертежи и описания самоделок, другая полезная информация.Жанр: домоводствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D80B61183398CF958613DE8540B101E56CD30C47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946263   (427244) от 13.10.2015
+
+Газета | 1000 секретов. Готовим в мультиварке №9. Блюда без мяса (2015) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427244.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сладкую кашку, воздушный омлет, вегетарианские щи, овощное соте, аппетитную пасту и еще множество вкусных блюд без мяса можно приготовить в мультиварке. С ее помощью продукты сохранят максимум полезных веществ, и можно быть уверенными, что ничего не убежит и не подгорит. Осталось только выбрать подходящий рецепт из этого сборника и удивить родных своим кулинарным (   Читать дальше...   )Жанр: Домоводство, кулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7588C55C64B250E48599DC39B2B4FD2B8C114480
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945924   (427076) от 13.10.2015
+
+Журнал | Сам [Россия] №9 (сентябрь 2015) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427076.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Сам себе мастер» - уникальная энциклопедия творчества, умений и мастерства, одна из его главных задач - распространение технических знаний и умений среди населения, развитие технического творчества в домашних условиях и приобретение навыков решать проблемы по строительству, обустройству и ремонту всего, что находится в домашнем хозяйстве, своими силами и (   Читать дальше...   )Жанр: Строительство и ремонтФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51E3D02171647562045443121C4102A969A8B823
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250422   (426983) от 27.09.2018
+
+Журнал | Про кухню №9-10 (120) (октябрь 2018) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426983.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Про кухню" - первое издание о кухне как центре семейного уюта, о самом главном месте в жизни семьи, где готовят и едят, принимают гостей, общаются, принимают решения, грустят и радуются. Издание, которое отвечает на вопросы: где, как, сколько стоит и как использовать?Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F654A37EF3CEFBBB7708003B1F175FDA4F88D0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 556516   (426966) от 05.10.2012
 
 Журнал | Салон - специальный выпуск "Классика" [2012] [PDF]
@@ -6,7 +136,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426966.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426953.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426887.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426736.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426631.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426212.jpg" />
 </div>
 
 
@@ -164,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426204.jpg" />
 </div>
 
 
@@ -190,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426116.jpg" />
 </div>
 
 
@@ -216,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426107.jpg" />
 </div>
 
 
@@ -242,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_426090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426090.jpg" />
 </div>
 
 
@@ -268,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425963.jpg" />
 </div>
 
 
@@ -294,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425951.jpg" />
 </div>
 
 
@@ -320,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425679.jpg" />
 </div>
 
 
@@ -346,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425154.jpg" />
 </div>
 
 
@@ -372,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425146.jpg" />
 </div>
 
 
@@ -398,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425143.jpg" />
 </div>
 
 
@@ -424,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425140.jpg" />
 </div>
 
 
@@ -450,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424903.jpg" />
 </div>
 
 
@@ -477,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424827.jpg" />
 </div>
 
 
@@ -503,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424816.jpg" />
 </div>
 
 
@@ -529,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424746.jpg" />
 </div>
 
 
@@ -540,137 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DCD9921AE74BD1BF82C422FCD9060DD02084049
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166610   (424737) от 17.09.2017
-
-Журнал | Тайны и загадки №2 (13) (2016) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424737.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несмотря  на то, что уже  вовсю идет XXI век,  и  всякая  нечисть,  типа  вампиров, зомби,  оборотней  и  других не  менее яр­ких  и  живописных  представителей  поту­стороннего  мира,  должна  была  остаться
-в далеком  прошлом (скажем,  где-то веке в XV),  вряд ли  в современном  мире най­дется  человек, который  не  имеет  пред­ставления  о  том,  кто  это  такие.  Множе­ство  фантастических  романов, (   Читать дальше...   )Жанр: Популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:549087D742FE9580370561CFCA37586D80128D45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166618   (424734) от 17.09.2017
-
-Газета | Сад, огород – кормилец и лекарь. Спецвыпуск №17 (161) (Сентябрь 2017) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый спецвыпуск издания "Сад, огород – кормилец и лекарь" посвящен определенной теме, волнующей читателей. На их письма отвечают специалисты и журналисты. А также сами читатели делятся опытом и дают мудрые советы.Жанр: Дача, сад, огородФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F9A87AA2FC17097838E8B6620A3FE6523560CCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166685   (424732) от 17.09.2017
-
-Журнал | Загадки i тайны. Спецвыпуск №9 (2016) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал для тех, кто любит погружаться в таинственный мир мистики, непознанного и различных аномальных явлений.Жанр: Популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F32197F802C910F0040FA4F22732D83E1EBA7F70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166660   (424728) от 17.09.2017
-
-Журнал | Тайны и загадки №1 (01) (2014) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424728.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследователи далекого прошлого давно установили, что наша цивилизация далеко не первая на этой планете...Жанр: Популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:609C1D3A18353451343E7F74861265E161A6F276
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166605   (424727) от 17.09.2017
-
-Журнал | Тайны и загадки №3 (14) (2016) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424727.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пророки  были  всегда.  Не  проходило десятилетия,  чтобы  в  какой-нибудь  стра­не  не  уродился  очередной  провидец  бу­дущего,  который,  как это  ни удивительно, довольно часто оказывался  прав  в своих предсказаниях.  На  такого  пророка  моли­лись,  его прославляли,  изгоняли, травили и  даже казнили,  а  после  его  смерти  со­здавали  из  него  икону  и  снова  начинали молиться.  Величайшие (   Читать дальше...   )Жанр: Популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:538E7638B9E1792F1908C3EAD4E5D1F72760CBDE
 ```
 
 https://mybot314.ru/tekegram_catalog/

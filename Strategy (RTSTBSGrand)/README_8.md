@@ -1,3 +1,55 @@
+###  Публикация: 1205018   (573893) от 20.05.2019
+
+Dungeons 3 / Dungeons III (2017) [Ru/Multi] (1.6/dlc) Repack R.G. Catalyst
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наконец-то Лорду Подземелья удалось объединить под своим началом все силы тьмы и основать империю зла. Пришло время сделать следующий шаг – расширить границы своих владений! Лорд Подземелья переманил на свою сторону жрицу темных эльфов, Талию, сделав ее своим главным помощником. Ничто не может помешать теперь властелину темного царства управлять операцией по завоеванию (   Читать дальше...   )Тип издания: RepackРазработчик: Realmforge StudiosЖанр: Strategy (Management, Real-time), Simulator, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52CFBE15FDFEC1E7EF8E48CBB904F17B480469E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151666   (570090) от 20.07.2017
+
+Ultimate General: Civil War (2017) [Ru/Multi] (1.0) Repack Covfefe
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570090.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ultimate General: Civil War - тактическая военная игра. Вы попадете в самое кровавое время в истории США - в период Гражданской войны 1861-1865 годов. Полная кампания: кампания Гражданской войны в США насчитывает более 50 сражений - от мелких стычек до масштабных битв, которые разворачиваются по несколько дней на сотнях квадратных километров. Ход кампании полностью (   Читать дальше...   )Тип издания: RepackРазработчик: Game-LabsЖанр: Strategy (RTS)Язык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22CE4E8756BC259597A2DEB719CB7BC5F80A2361
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1066029   (566573) от 24.05.2019
 
 War For The Overworld (2015) [Ru/Multi] (2.0.7/dlc) Repack R.G. Catalyst [Underlord Edition]
@@ -6,7 +58,7 @@ War For The Overworld (2015) [Ru/Multi] (2.0.7/dlc) Repack R.G. Catalyst [Underl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566573.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Dungeons 3 (2017) [Ru/En] (1.6.0/dlc) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566557.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Hostile Waters: Antaeus Rising / Враждебные воды: Территор
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_564565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_564565.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Master of Orion: Conquer the Stars (2016) [Ru/Multi] (55.1.1/dlc) Repack R.G. Ca
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562738.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Stellaris (2016) [Ru/Multi] (1.2.5.24012/dlc) Repack от Let'sPlay [Galaxy Edit
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562622.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Aggression: Reign over Europe / Агрессия (2007) [Ru] (1.23) Repack R.G. 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560308.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Fragile Allegiance (1997) [En] (1.0) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557956.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Iron Heart (2019) [Ru/Multi] (1.0) License PLAZA
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555603.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ The Hive (2016) [En] (1.01) Repack Other s
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552586.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Warparty (2019) [Ru/Multi] (1.0.9) Repack R.G. Catalyst
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551766.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Re-Legion (2019) [Ru/Multi] (1.3.1.314) Repack R.G. Catalyst
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547505.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ MarZ: Tactical Base Defense (2019) [Ru/Multi] (1.0/upd8) Repack Other s
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547495.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Plague Inc: Evolved (2016) [Ru/Multi] (1.16.3/dlc) License HI2U
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544355.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Star Wars: Galactic Battlegrounds Saga (2002) [Ru/Multi] (1.10/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543378.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Sudden Strike: Resource War / Sudden Strike: Битва за ресурсы (200
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542208.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Sudden Strike 3: Arms for Victory (2007) [Multi] (1.4) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542196.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Victoria 2 / Виктория 2 + DLC [En/Ru] (L) 2010
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539286.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Imperialism 2: The Age of Exploration (1999) [En] (1.03) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533842.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Command & Conquer - Generals: Zero Hour (2009) [Ru] (1.00) Mod/Portable [Multipl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_531330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531330.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Cossacks Anthology / Козаки Антология (2003) [En] (1.15/1.30/1.35
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530220.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Total War: ROME II (2013) [Multi] (2.4.0/dlc) License CODEX [Emperor Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529535.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Hearts of Iron: Trilogy / День Победы: Трилогия (2002-2009) [E
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_529319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529319.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Star Wars: Galactic Battlegrounds Saga (2001) [Ru/En] (1.1) Repack R.G. Меха
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524748.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Star Wars: Empire at War Gold (2006) [Ru/En] (1.5/1.1) Repack R.G. Механи�
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524692.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Star Wars: Empire at War Gold (2006) [Ru/En] (1.5/1.1) Repack R.G. Механи�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD30DFC5423DE920773258356D859C2E72490122
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927389   (524691) от 13.08.2015
-
-Crusader Kings II (2012) [Ru/Multi] (2.4.1/dlc) Repack R.G. Механики
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524691.jpg" />
-</div>
-
-
-###  Подробнее
-
-Crusader Kings II открывает перед игроками один из важнейших периодов в мировой истории благодаря работе настоящих мастеров жанра глобальной стратегии. Средневековая Европа оживает в этой эпической игре рыцарей, интриг и престолов…Тип издания: RepackРазработчик: Paradox InteractiveЖанр: Strategy (Real-time / Grand strategy) / 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3E7289D26B95C19F86198817F68260946585E09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928009   (523000) от 15.08.2015
-
-Pike and Shot: Campaigns 1494-1698 (2015) [En/Multi] License SKIDROW
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pike and Shot Campaigns 1494-1698 - ожидаемое расширение для оригинальной игры Pike and Shot поступило в продажу. Итак, в новой игре стал доступен новый режим - Campaigns, где игрок может сам руководить набором армий и походами на стратегических картах четырех кампаний. Достаточно передвинуть флажок армии на соседнюю территорию и начнется битва, если там есть противник. (   Читать дальше...   )Тип издания: ЛицензияРазработчик: The Lordz Games StudioЖанр: Strategy (Turn-based) / 3D / IsometricЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий, ИспанскийЯзык интерфейса: Английский, Французский, Немецкий, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:554EF53BE2E36E47E5B61A6E5821463A0953D051
 ```
 
 https://mybot314.ru/tekegram_catalog/

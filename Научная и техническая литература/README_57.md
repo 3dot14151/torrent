@@ -1,137 +1,3 @@
-###  Публикация: 606672   (995124) от 21.01.2013
-
-Светлана Чойжинимаева | Диагностика в тибетской медицине [2010] [FB2]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Целью диагностики в тибетской медицине является установление истинных причин заболевания с тем, чтобы посредством лечения устранить их и вернуть организм в здоровое состояние. В данном издании представлены основы и методы тибетской диагностики, рассказывается о ранней диагностике тяжелых заболеваний, даны программы лечения и прогнозы исцеления.
-В этом состоит коренное отличие тибетской медицины от аллопатической (западной), усилия которой направлены лишь на устранение симптомов, и лечение не затрагивает подлинной сути болезни. Вот почему представители западной медицины, как правило, не находят времени, чтобы узнать обстоятельства возникновения и развития болезни, характер питания и образ жизни своего пациента, его психоэмоциональное состояние, и выносят суждение исключительно на основании жалоб больного и одного двух явных симптомов.Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:803E30D0C77C75B5EF8A8DB1CE2DF5382341BF46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606727   (995093) от 21.01.2013
-
-А. И. Сидоров | Подводные лодки. Их история, устройство и действие в общедоступном изложении [1928] [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995093.jpg" />
-</div>
-
-
-###  Подробнее
-
-От автора:
-Во время последней мировой войны, когда начались действия подводных лодок, в публике появился известный интерес к этому, мало известному широким кругам роду оружия. Однако, никто из из петербургских моряков не нашел нужным удовлетворить этому интересу. Тогда я составил популярную лекцию о подводных лодках и прочел её с большим успехом в большой аудитории Политехнического музея. В настоящее время ознакомление возможно широких кругов народа с военным делом является делом государственной важности и потому издание моей лекции, в несколько переработанном и дополненном виде Государственным Техническим Издательством является вполне своевременным.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45C5E2974B92B3DCBDE261264C4EAF3045070536
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605859   (995038) от 21.01.2013
-
-Эдвард Радзинский | Иван IV Грозный [2012] [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995038.jpg" />
-</div>
-
-
-###  Подробнее
-
-В страшные дни войны, когда немцы рвались к Москве, на стол к Иосифу Сталину попала пьеса А. Н. Толстого об Иване Грозном. Прочитав ее и, видимо, о чем-то раздумывая, Сталин несколько раз написал на задней стороне обложки одно слово – «Учитель».
-
-Учитель… но в чем? Сталинская любовь к Грозному связана с неким важнейшим вопросом, который когда-то задал наш великий историк Карамзин. И ответ на который скрывает история самого загадочного и самого кровавого из русских царей…Формат: FB2.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8098F2613A105CFA4553BDD6DD8F91FCE210FC1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607375   (994917) от 22.01.2013
-
-М.И. Ципоруха | Вокруг света под парусами [2012] [DJVU]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга рассказывает о кругосветных плаваниях российских военных моряков на парусных судах в первой половине XIX века - экспедициях И.Ф.Крузенштерна и О.Ф.Лисянского на шлюпах "Надежда" и "Нева", М.П.Лазарева на корабле "Суворов", О.Е.Коцебу на бриге "Рюрик", В.М.Головнина на шлюпе "Диана", Ф.Ф.Беллинсгаузена и М.П.Лазарева на шлюпах "Восток" и "Мирный" и многих других. Читателей ожидают встречи со многими замечательными российскими географами, исследователями океанов, адмиралами, офицерами, матросами, учеными-натуралистами, беззаветно служившими Отечеству и мировой науке.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86139287DEA7F4FDEB37B4182249F4ED3E83AA07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607220   (994880) от 22.01.2013
-
-Юрий Сенкевич, Александр Шумилов | Их позвал горизонт [1987] [PDF]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторы рассказывают об открытиях и судьбах замечательных географов и путешественников: о Колумбе и Эль-Кано, о Седове и Стеллере, о Миклухо-Маклае и Отто Шмидте... Тринадцать новелл, тринадцать человеческих судеб.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F115151D63FDCC4FCE70D8A2AEF5E69E624B1040
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 607066   (994865) от 22.01.2013
 
 Сергей Сулига | Линейные корабли "Ришелье" и "Жан Бар" (1996) [PDF]
@@ -140,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994865.jpg" />
 </div>
 
 
@@ -166,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994846.jpg" />
 </div>
 
 
@@ -193,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994827.jpg" />
 </div>
 
 
@@ -219,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994818.jpg" />
 </div>
 
 
@@ -245,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994793.jpg" />
 </div>
 
 
@@ -272,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994755.jpg" />
 </div>
 
 
@@ -298,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994750.jpg" />
 </div>
 
 
@@ -324,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994681.jpg" />
 </div>
 
 
@@ -350,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994529.jpg" />
 </div>
 
 
@@ -379,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994520.jpg" />
 </div>
 
 
@@ -406,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994464.jpg" />
 </div>
 
 
@@ -432,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994449.jpg" />
 </div>
 
 
@@ -458,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994445.jpg" />
 </div>
 
 
@@ -484,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994213.jpg" />
 </div>
 
 
@@ -510,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994133.jpg" />
 </div>
 
 
@@ -537,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994058.jpg" />
 </div>
 
 
@@ -564,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994001.jpg" />
 </div>
 
 
@@ -592,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993364.jpg" />
 </div>
 
 
@@ -618,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993289.jpg" />
 </div>
 
 
@@ -644,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993277.jpg" />
 </div>
 
 
@@ -670,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993223.jpg" />
 </div>
 
 
@@ -681,6 +547,138 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3EBC7B7D2DA2FAD02A02E12BA4F99AF72B840B88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348137   (993002) от 16.01.2020
+
+Марк Курлански | Молоко! Самый спорный продукт (2019) [PDF, EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Историю человечества невозможно себе представить без молока. Первая пища, которую мы пробуем в своей жизни, оставила след в религии, политике, культуре, экономике, медицине… Многие мифы о сотворении мира восходят к молоку. Древние греки, например, считали, что Млечный Путь появился, когда богиня женственности Гера пролила молоко при кормлении Геракла – каждая капля (   Читать дальше...   )Жанр: История, продукты питанияФормат: PDF, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52424B94A280FA6C6A12AECD9E555211F7F6618E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608925   (992834) от 26.01.2013
+
+Л.Г. Грабчак | Горноразведочные работы [2003] [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992834.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге приведена технология горноразведочных работ, изложены основные горнотехнические свойства и характеристики горных пород, вопросы разрушения горных пород взрывом и невзрывные методы. Рассмотрены вопросы горного давления и крепи горных выработок. Уделено внимание вопросам транспорта при горноразведочных работах и экологическим требованиям
+Учебник очень полезный для студентов всех горногеологических специальностей.Авторы- преподаватели кафедры горного дела Российского Государственного Геологоразведочного Университета им. Серго Орджоникидзе ( МГРИ-РГГРУ ) http://msgpa.ru/
+Для копирования и решения др задач могу приложить к раздаче текст в формате MS Word, распознанный Fine Reader'омФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE708DFEC52D8D75EE4B00B66D681A2237A43CDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 609047   (992815) от 26.01.2013
+
+А. Ипатович-Горанский, В. Яковлев | Курс кавалерийских училищ. Конно-саперное дело (Раритетное издание) [1908] [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992815.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящий курс конно-саперного дела предназначен для кавалерийских училищ, для учебных команд кавалерийских частей, а также для офицеров, командируемых в саперные лагеря для изучения конно-саперного дела. Подрывное, телеграфное, телефонное дело. Оптическая сигнализация. Понятия об искровом телеграфе.Язык: Русский (старая орфография)Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C421FDA2AE1CB0C8073EB9DE192AB7E4745AF1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353142   (992620) от 17.01.2020
+
+А.П. Лободанов | Грамматические трудности французского языка (2003) [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992620.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот словарь предназначен для изучающих французский язык и имеет целью овладение этим языком и устной и письменной форме. Содержит наиболее трудные случаи употребления французских глаголов, усвоение которых помогает правильно строить французские фразы.Жанр: Учебное пособие, СловарьФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8D82D9E7D30E34BEF98D15F6AA458A3188C8FCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353189   (992578) от 17.01.2020
+
+В.И. Нефедов, А.С. Сигов | Общая теория связи (2019) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс «Общая теория связи» является основной дисциплиной из плана подготовки бакалавров в области исследования и разработки телекоммуникаций. Основной целью курса является обучение студентов теории, методам и основам построения устройств модуляции, кодирования, передачи, помехоустойчивого приема и обработки сигналов, развитие навыков системного подхода к разработке (   Читать дальше...   )Жанр: СвязьФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E2BEBA41999D01045FA1ED7DA6FFF67D9479B25
 ```
 
 https://mybot314.ru/tekegram_catalog/

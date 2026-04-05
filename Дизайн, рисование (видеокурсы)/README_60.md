@@ -1,3 +1,59 @@
+###  Публикация: 1513220   (225168) от 28.11.2021
+
+CGEvent | Подборка мастерклассов по трехмерке Москва 2018 (2018) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225168.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка мастерклассов по трехмерке:
+Анимация. Игры (не) против мультфильмов
+Топология. Полисетки. Тела
+Особенсти gamedev-анимации(   Читать дальше...   )Производство: CGEventЖанр: МастерклассПродолжительность: 05:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96555C808496625A8232F16B32D4C13809B1959E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513213   (224786) от 28.11.2021
+
+Udemy, Charlie Grubel | 3D Animation Basics To Full Body and Creature Mechanics (2015) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в курс по 3D анимации: Основы механики тела персонажей. Автор курса – Чарли Грубель – студийный аниматор-фрилансер, преподаватель, разработчик игр и 3D-художник. У него за плечами годы работы с анимацией и теперь он готов поделиться приобретенными знаниями!
+В данном курсе мы рассмотрим все 12 принципов анимации, удары мяча, перехлест при анимации (   Читать дальше...   )Производство: UdemyЖанр: АнимацияЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 03:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3B8981DBB3F237DB032EA3C2DC4C1832F1B608F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1513212   (224764) от 28.11.2021
 
 Digital Tutors, Floyd Bishop | Creating Animal Animations in Maya 2016 (2015) PCRec [En, Ru]
@@ -6,7 +62,7 @@ Digital Tutors, Floyd Bishop | Creating Animal Animations in Maya 2016 (2015) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224764.jpg" />
 </div>
 
 
@@ -33,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224754.jpg" />
 </div>
 
 
@@ -61,7 +117,7 @@ CG Cookie, Kent Trammell | HUMAN: Realistic Portrait Creation with Blender (2021
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224382.jpg" />
 </div>
 
 
@@ -87,7 +143,7 @@ Creative Shrimp, Jeannot Landry | Hard Surface Rigging In Blender (2020) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224349.jpg" />
 </div>
 
 
@@ -114,7 +170,7 @@ Skillshare, David Jaasma | Мастер-класс по системе част�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223803.jpg" />
 </div>
 
 
@@ -141,7 +197,7 @@ Creative Shrimp, Luca Rood | Procedural Texturing: Blender Master Class (2021) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223080.jpg" />
 </div>
 
 
@@ -167,7 +223,7 @@ MachDigital, Тимур Магомедов | MachDigital - Моделирова�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222081.jpg" />
 </div>
 
 
@@ -194,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221811.jpg" />
 </div>
 
 
@@ -220,7 +276,7 @@ Coloso, Hyoungtaek Nam | Realistic Character Design (2022) PCRec [EN / EN Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219793.jpg" />
 </div>
 
 
@@ -248,7 +304,7 @@ FreelStep | After Effects from FreelStep (2022) WEB-DL [AD] [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219756.jpg" />
 </div>
 
 
@@ -275,7 +331,7 @@ Gumroad, Josh Gambrell, Ponte Ryuurui| Полное руководство по 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219614.jpg" />
 </div>
 
 
@@ -302,7 +358,7 @@ Skillbox, Михаил Розов | Cinema 4D для веб-дизайна (2018
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219470.jpg" />
 </div>
 
 
@@ -331,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217575.jpg" />
 </div>
 
 
@@ -360,7 +416,7 @@ CGTarian, Вадим Беседин | CG Generalist (2015) TVRip
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217162.jpg" />
 </div>
 
 
@@ -389,7 +445,7 @@ Gumroad, Danny Mac | How to Sculpt and Retopologize a Stylized Head in Blender (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216242.jpg" />
 </div>
 
 
@@ -416,7 +472,7 @@ Gumroad, Danny Mac | How to Sculpt and Retopologize a Stylized Head in Blender (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216201.jpg" />
 </div>
 
 
@@ -443,7 +499,7 @@ Bestblendercourse, Mad Rabbit | Самый лучший курс по Blender (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216129.jpg" />
 </div>
 
 
@@ -472,7 +528,7 @@ The Gnomon Workshop, Madeleine Scott-Spencer | Введение в ZBrush 2020 /
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215444.jpg" />
 </div>
 
 
@@ -499,7 +555,7 @@ The Gnomon Workshop, Kat Unsworth | Modeling a Stylized Character for Games (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_215053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215053.jpg" />
 </div>
 
 
@@ -525,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214935.jpg" />
 </div>
 
 
@@ -552,7 +608,7 @@ Yiihuu, Xara Mahmoudi | The Dwarf Warrior II: from rigging to animation and engi
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214423.jpg" />
 </div>
 
 
@@ -578,7 +634,7 @@ designonline, Александр Шуняев | Постановка PRO осв�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213629.jpg" />
 </div>
 
 
@@ -605,7 +661,7 @@ Udemy, Creativity Unleashed | Complete Blender Megacourse: Beginner to Expert - 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213495.jpg" />
 </div>
 
 
@@ -631,7 +687,7 @@ Udemy, Creativity Unleashed | Complete Blender Megacourse: Beginner to Expert - 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213494.jpg" />
 </div>
 
 
@@ -642,59 +698,6 @@ Udemy, Creativity Unleashed | Complete Blender Megacourse: Beginner to Expert - 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4415DCB2237194DA58CC9B5DD5BA06E069FD52B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548462   (213492) от 20.08.2023
-
-Udemy, Creativity Unleashed | Complete Blender Megacourse: Beginner to Expert - Basics (2022) PCRec [EN, RU / EN Sub]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы когда-нибудь хотели создавать 3D-модели? В эпоху технологий домашние цифровые развлечения стали более популярными, чем когда-либо, и не проявляют никаких признаков замедления. Может быть, вы хотели бы попробовать свои силы в создании собственного анимационного фильма, или, возможно, вы хотите создать свою собственную видеоигру. Независимо от того, новичок ли вы (   Читать дальше...   )Производство: UdemyЖанр: 3D моделированиеЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 27:50:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D990BFA9040261C57F7B70460C7C12CF6E75777
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557826   (213288) от 17.06.2022
-
-Patreon, FlyCat | Ahri Modelling - Full process videos and 3D model (2021) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Моделирование и анимация персонажа в Blender.
-Полное видео процесса моделирования и финальная 3D-модель.Производство: PatreonЖанр: 3D моделирование, СкульптингЯзык озвучки: Без озвучкиПродолжительность: 27:05:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DA34E5CC2CC362541BF3F6D441DB3C6B88F03B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

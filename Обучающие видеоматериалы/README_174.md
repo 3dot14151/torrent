@@ -1,3 +1,29 @@
+###  Публикация: 1422948   (303890) от 11.11.2020
+
+LiveClasses, Антон Мартынов | Как это снято? (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>Фотография и Видео (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видите красивую фотографию и не понимаете, как это снято? В этом классе вы изучите приёмы, позволяющие проанализировать чужие фотографии и понять, какие настройки там использовались. Какая была диафрагма? А выдержка? А ISO? Прямо на классе Антон Мартынов разберет ряд фотографий и даст вам весь инструментарий для самостоятельной работы.Производство: LiveClassesЖанр: ФотографияПродолжительность: 01:59:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E54200CC8635604F22B18B49F178E6800EE21B70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1423018   (303885) от 11.11.2020
 
 LiveClasses, Антон Мартынов | Как снимать автопортреты (2020) PCRec
@@ -6,7 +32,7 @@ LiveClasses, Антон Мартынов | Как снимать автопор�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303885.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303810.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ ITVDN | C# Стартовый на примерах из GTA 5 (2016) PCRec [H.2
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303803.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ LiveClasses, Антон Мартынов | Мужской портрет в ни
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303794.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ LiveClasses, Антон Мартынов | Вспышки (2020) HDTVRip
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303792.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ LiveClasses, Антон Мартынов | Типичные ошибки нач�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303789.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ LiveClasses, Антон Мартынов | Упражнения для само�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303785.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ LiveClasses, Антон Мартынов | Фотография: Быстрый 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303784.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ LiveClasses, Антон Мартынов | Как снимать портрет�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303783.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ Fstoppers, Andreas H. Bitesnich | Искусство ню фотографии /
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303782.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ LiveClasses, Дмитрий Ларионов | Работа с шаблонам�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303777.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303733.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ LiveClasses, Дмитрий Ларионов | Эффекты и анимаци�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303722.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ LiveClasses, Дмитрий Ларионов | Монтаж видео для с
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303720.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ XYZ School, Женя Пак | Hard Surface Lite (2020) HDTVRip
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_303717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303717.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302575.jpg" />
 </div>
 
 
@@ -434,7 +460,7 @@ Mike Donavanik | Xtreme Burn (2016) HDTVRip [H.264/1080p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302037.jpg" />
 </div>
 
 
@@ -461,7 +487,7 @@ Werner Herzog | Вернер Херцог учит кинопроизводст�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301856.jpg" />
 </div>
 
 
@@ -488,7 +514,7 @@ Lynda, Darrin Lile | Архитектурная визуализация в Blen
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301746.jpg" />
 </div>
 
 
@@ -515,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301728.jpg" />
 </div>
 
 
@@ -544,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301652.jpg" />
 </div>
 
 
@@ -573,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301649.jpg" />
 </div>
 
 
@@ -602,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301648.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301550.jpg" />
 </div>
 
 
@@ -658,7 +684,7 @@ Skillbox | Управление digital-проектами (2017) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301533.jpg" />
 </div>
 
 
@@ -669,34 +695,6 @@ Skillbox | Управление digital-проектами (2017) PCRec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:379B75BB9602E9CD6BC7EEE5EA5A6DE841D5FB0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423667   (299085) от 13.11.2020
-
-Udemy, Dr. Ryan Ahmed и др. | Программирование на Python 3. От новичка до профессионального мастера / Python 3 Programming: Beginner to Pro Masterclass (2020) PCRec [En / En, Ru Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299085.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наша миссия - создать самое полное в мире руководство по программированию на Python.
-Этот мастер-класс предоставляет вам все необходимое, от основ Python до методов, используемых профессионалами, для начала создания и применения Python.
-Мастер-класс «Python от новичка до профессионального уровня» - это наш флагманский курс Python, который предлагает уникальное обучение (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 22:37:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DD1A6935E2A1A5F7551C90C5D7FB8F5CDF6B899
 ```
 
 https://mybot314.ru/tekegram_catalog/

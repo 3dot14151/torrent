@@ -1,3 +1,55 @@
+###  Публикация: 1197541   (805752) от 12.01.2018
+
+Человек будущего / Future Man (2017) WEB-DL [H.264/720p-LQ] (сезон 1, серии 1-13 из 13) AMS [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Довольно известные режиссеры Брэндон Трост, Эван Голдберг и Сет Роген (сериал "Проповедник", мультфильмы "Симпсоны" и "Кунг-фу панда") решили порадовать мир новым фантастическим сериалом "Человек будущего". У героя явные способности к киберспорту, и Джош намерен развивать эти навыки. Особенно ему нравится игра "Кибергеддон" (   Читать дальше...   )Производство: СШАЖанр: фантастика, комедияРежиссер: Ниша Ганатра, Эван Голдберг, Сет РогенАктеры: Джош Хатчерсон, Дерек Уилсон, Элиза Куп, Эд Бегли мл., Дрю Джеймс, Роберт Крэйгхед, Кит Дэвид, Хэйли Джоэл Осмент, Джейсон Скотт Дженкинс, Кевин Калибер, Грег Брайан и др.Перевод: Многоголосый закадровый, профессиональный - AMS (Adiós Muchachos Studio)Субтитры: английскиеПродолжительность: ~00:30:00 серияРеклама: присутствуют аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0205C177436CBCF589ECAD4E0251A4A48E8BC429
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184012   (802465) от 14.01.2018
+
+Искатели сокровищ / Detectorists (2017) HDTVRip (сезон 3, серии 1-6 из 6) Lord32x Studio [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802465.jpg" />
+</div>
+
+
+###  Подробнее
+
+И снова мы встречаемся с двумя друзьями Энди (Маккензи Крук) и Лэнсом (Тоби Джонса), общей страстью которых является кладоискательство. Вернувшись из Африки, Энди и Бекки на время перебрались к матери Бекки, со всеми вытекающими последствиями отношений зять-тёща. Лэнс пытается построить отношения с Тони, а также ужиться со своей дочерью, чему не способствует появление (   Читать дальше...   )Производство: Великобритания / Channel XЖанр: комедияРежиссер: Маккензи КрукАктеры: Маккензи Крук, Тоби Джонс, Рэйчел Стирлинг, Эйми-Ффион Эдвардс, Люси Бенджамин, Орион Бен, Софи Томпсон, Люси Менджамин и др.Перевод: Одноголосый закадровый, любительский - Lord32x StudioПродолжительность: ~00:30:00 серияРеклама: Присутствует (звуковая и текстовая в начале и конце серии на 5 секунд) + рекламная надпись и адрес сайта в правом верхнем углу.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6612D9147528959177487EEB8BA01660876627A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1172067   (802359) от 14.01.2018
 
 Призрачные войны / Война с призраками  / Ghost Wars (2017) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-13 из 13) OmskBird [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802359.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801355.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801344.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800920.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799419.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ Y. Последний мужчина / Y: The Last Man (2021) WEBRip [H.264/1080
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799309.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ Y. Последний мужчина / Y: The Last Man (2021) WEBRip [H.264/720p
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799307.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798976.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797841.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797393.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797323.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795454.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794869.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793924.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793835.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793751.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793496.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792290.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792082.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792081.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792078.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792033.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792031.jpg" />
 </div>
 
 
@@ -613,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792027.jpg" />
 </div>
 
 
@@ -624,59 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C1089064DD15D56A26BB5FA0220618A5FB20F3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510123   (792021) от 15.11.2021
-
-Волчица / Матушка Гусыня / Gasmamman (2016) BDRip [H.264/720p-LQ] (сезон 2, серии 1-10 из 10) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792021.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Волчица" - это захватывающая шведская криминальная драма-триллер, завоевавший любовь зрителя в Швеции и за ее пределами. До сих пор вышло три сезона, в 2019 обещают четвертый сезон.
-Соня (Александра Рапапорт) живет беззаботной жизнью с любимым мужем и детьми недалеко от Стокгольма. Но в один прекрасный день ее жизнь кардинально меняется. Соне приходится (   Читать дальше...   )Производство: Швеция / Endemol Shine Nordics, Discovery Networks Sweden, C More EntertainmentЖанр: триллер, драма, криминалРежиссер: Ричард Холм, Joakim Eliasson, Олоф СпаакАктеры: Александра Рапапорт, Клара Христианссон, Эдвин Рюдинг, Йоэль Люцов, Грюнет Мольвиг, Шебли Ниаварани, Кристиан Свенссон, Ульф Фриберг, Аня Лундквист, Анастасиос Соулис и др.Перевод: Профессиональный двуголосый (ViruseProject)Язык озвучки: Русский, шведскийСубтитры: Русские, шведские, датские, норвежские, финскиеПродолжительность: ~00:45:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF8FC491D28DD6F3E8AF38AEAEC7DB504BBD992E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510138   (792017) от 15.11.2021
-
-Волчица / Матушка Гусыня / Gasmamman (2019) WEB-DLRip (сезон 4, серии 1-8 из 8) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Соня живет беззаботной жизнью с любимым мужем и детьми недалеко от Стокгольма. Но в один прекрасный день ее жизнь кардинально меняется. Соне приходится вступить в совершенно неизвестный ей преступный мир и "брататься" с гангстерами местного и международного масштаба. Из доброй и беззаботной мамаши она превращается в сильную и порой жестокую волчицу, готовую (   Читать дальше...   )Производство: Швеция / Endemol Shine Nordics, Discovery Networks Sweden, C More EntertainmentЖанр: триллер, драма, криминалРежиссер: Ричард Холм, Joakim Eliasson, Олоф СпаакАктеры: Александра Рапапорт, Клара Христианссон, Эдвин Рюдинг, Йоэль Люцов, Грюнет Мольвиг, Шебли Ниаварани, Кристиан Свенссон, Ульф Фриберг, Аня Лундквист, Анастасиос Соулис и др.Перевод: Профессиональный двуголосый (ViruseProject)Язык озвучки: Русский, шведскийСубтитры: Русские (отдельно)Продолжительность: ~00:45:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBF27F9D6A81D51640150944D162931E43BA882E
 ```
 
 https://mybot314.ru/tekegram_catalog/

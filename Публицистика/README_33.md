@@ -1,3 +1,29 @@
+###  Публикация: 508551   (679275) от 10.06.2012
+
+Владимир  Хандорин | Адмирал Колчак. Правда и мифы [2007] [RTF, FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга кандидата исторических наук В.Г.Хандорина посвящена одному из наиболее противоречивых и неоднозначных имен в отечественной истории, вокруг которого продолжаются дискуссии среди ученых и политиков - военно-политическому деятелю, белогвардейскому Верховному правителю периода Гражданской войны, выдающемуся флотоводцу, ученому, полярному путешественнику адмиралу А.В.Колчаку. Книга, написанная хорошим литературным языком, опирается на широкий круг документальных источников и литературы и представляет попытку всестороннего объективного анализа личности и деятельности адмирала, свободную от свойственных большинству исследований о нем политических крайностей.2007Жанр: ИсторияФормат: RTF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A579A234223752D899AFD460F68B79F99E5E1D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290405   (678338) от 20.03.2019
 
 И. И. Толстой (отв. ред.) | Записки Юлия Цезаря (1948) [DJVU]
@@ -6,7 +32,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678338.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_678335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678335.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676985.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674904.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ C. И. Мицкевич | Революционная Москва [1888-1905] (1
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_673423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673423.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672982.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672461.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671529.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670844.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670839.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670485.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670254.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670245.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_669393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669393.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668436.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668177.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666011.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665892.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_664374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664374.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662327.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662321.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662119.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661946.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661885.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661883.jpg" />
 </div>
 
 
@@ -654,32 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E4BDF6606652937BA5C25D9848535CB14B2036B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225027   (661825) от 14.05.2018
-
-Денис Горелов | Родина слоников [сборник] (2018) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_661825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга рассказывает об истории советского кино, точнее, через призму кино – об истории страны, ее народа и культуры. Увлекательное, познавательное и остроумное чтение от одного из лучших и уж точно самого едкого кинокритика России.Жанр: Современная русская литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:228F50E8E781D560E781C90683080CE309B4C40A
 ```
 
 https://mybot314.ru/tekegram_catalog/

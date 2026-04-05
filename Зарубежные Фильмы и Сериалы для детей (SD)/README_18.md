@@ -1,3 +1,55 @@
+###  Публикация: 965469   (225320) от 14.12.2015
+
+Тигриный хвост / A Tiger s Tail (2014) WEB-DLRip
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225320.jpg" />
+</div>
+
+
+###  Подробнее
+
+В город где проживает мальчик по имени Билли, приехал бродячий зоопарк. После представления в автомобиле родителей, Билли обнаруживает странную находку, маленького тигренка. Утаив от родителей новость о неожиданной находке, мальчик приносит его домой. После этого, жизнь семейства кардинально меняется, новый питомец семьи, доставляет много хлопот, как приятных так (   Читать дальше...   )Производство: СШАЖанр: Семейный, ПриключенияРежиссер: Майкл Дж. СарнаАктеры: Грег Гранберг, Дарлин Фогел, Кристофер Джадж, Уил Спенсер, Захари Фридман, Мэрит Лейтон, Дэниэл ДиМаджио, Логан Гулд, Джо КэмпПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 01:17:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B67ED2FB6CDFBA3241C4FD6461C1F1F30F47F14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 736338   (224178) от 20.12.2013
+
+Три золотых волоса / Plavcik a Vratko (1982) TVRip
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224178.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам сказки братьев Гримм. Королю предсказали, что на его дочери женится сын бедняка. Королю очень не понравилось это пророчество... Но мальчик, в которого влюбится принцесса, хоть и бедный, но находится под защитой Солнечного Короля. И он больше, чем кто-либо другой, достоин быть мужем принцессы.Жанр: Детский фильм, СказкаРежиссер: Мартин ТапакАктеры: Стефан Скрукани, Тереза Покорна, Михал Дочоломански, Милка Вашароева, Мартин Марек, Владо МюллерПеревод: Двуголосый закадровыйПродолжительность: 01:24:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:254886BAD66444356AF738560887A4003FA92F64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342467   (223485) от 02.12.2019
 
 Бобот и энергия Вселенной / Бобот та енергiя Всесвiту / The Bobot (2018) WEB-DLRip
@@ -6,7 +58,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223485.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222808.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222782.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222714.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222649.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222165.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_221882.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_221740.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221722.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221489.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_221114.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_217017.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214299.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_214254.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213092.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211568.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211519.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_211113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211113.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209801.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209164.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208324.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207397.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207373.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207019.jpg" />
 </div>
 
 
@@ -619,59 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0BA16094AA2576CCFEE4CB58C581D4065EC75EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654569   (205108) от 21.08.2023
-
-Отряд стремительных / The Bike Squad (2005) DVD5 [VO]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205108.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре событий этой приключенческой комедии — тинэйджер Райен. Собаку Райена украли! Райен и трое его новых друзей отправляются вдогонку за похитителями.
-Оказывается, собаки начали пропадать по всему городу, их всех отвозили на эксперименты в лабораторию зловещего учёного. Райен и его стремительная команда должны освободить собак и вернуть их хозяевам!Производство: США / MRG EntertainmentЖанр: комедия, семейныйРежиссер: Ричард ГабайАктеры: Браден Паркес, Эмили Петта, Томас Гарнер, Грэхэм Спиллман, Стефани Денис Гриффин, Калли Ватерман, Вульф Брэдли, Майкл С. Ваккаро, Майкл Олифьерс, Майкл МакКоннохиПеревод: одноголосый закадровый (Вячеслав Котов)Язык озвучки: русский, английскийСубтитры: нидерландскиеПродолжительность: 01:16:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0815B7D219475EC451FB384E3E58FB5AB18F97DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654726   (204946) от 22.08.2023
-
-Джонни и Клайд / Johnny & Clyde (1995) DVD5 [AVO]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джонни приходится часто переезжать из города в город, так как папа его — полицейский. В новом городе судьба сталкивает его с собакой по имени Клайд. Пес этот был очень не простой — он работал в паре со знаменитым мошенником, чей портрет украшал все полицейские участки. Клайд делал вид, что его сбила дорогая машина, владелец или владелица, охая и причитая, бросались (   Читать дальше...   )Производство: США / Motion Picture Corporation of America (MPCA)Жанр: семейныйРежиссер: Уильям БайндлиАктеры: Майкл Рукер, Джон Уайт, Сэм Малкин, Дэвид Б. Николс, Дайан Дугласс, Дайана Рейс, Кристиан Мэтисон, Тайрон Бенскин, Мишель Джагер, Рег ДрегерПеревод: авторский (Сергей Визгунов)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 01:24:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27DA7079318AC0B3CD9AD0910F1B5BC247246F7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1584718   (224118) от 19.10.2022
+
+VA - Jazz For Kids (2022) [MP3|320 Kbps] <Джаз для детей>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_224118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roy Ayers - Everybody Loves The Sunshine
+02. Horace Silver - What Kind of Animal Am I
+03. Billie Holiday - Lover Come Back To Me (Live In Koln, Germany 1954)
+04. Stan Getz - The Girl From Ipanema(   Читать дальше...   )Жанр: Джаз для детейПродолжительность: 02:26:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBAD09089893094B68E12E7C66173AE50DEFBAC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342473   (223507) от 02.12.2019
 
 VA - Новый Год 2020 (Песни для деток) (2019) [MP3|320 Kbps]<Детские песни>
@@ -6,7 +35,7 @@ VA - Новый Год 2020 (Песни для деток) (2019) [MP3|320 Kbps]
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223507.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - Фантазёры. Новые детские песни (2017) [MP3|320 Kb
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223466.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222844.jpg" />
 </div>
 
 
@@ -91,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222761.jpg" />
 </div>
 
 
@@ -120,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222741.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222538.jpg" />
 </div>
 
 
@@ -179,7 +208,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222508.jpg" />
 </div>
 
 
@@ -205,7 +234,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222414.jpg" />
 </div>
 
 
@@ -232,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222367.jpg" />
 </div>
 
 
@@ -259,7 +288,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222346.jpg" />
 </div>
 
 
@@ -285,7 +314,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221709.jpg" />
 </div>
 
 
@@ -311,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221617.jpg" />
 </div>
 
 
@@ -337,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221608.jpg" />
 </div>
 
 
@@ -363,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221576.jpg" />
 </div>
 
 
@@ -392,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221563.jpg" />
 </div>
 
 
@@ -419,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220898.jpg" />
 </div>
 
 
@@ -445,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220653.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220502.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220394.jpg" />
 </div>
 
 
@@ -523,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220303.jpg" />
 </div>
 
 
@@ -552,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220297.jpg" />
 </div>
 
 
@@ -581,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219935.jpg" />
 </div>
 
 
@@ -609,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219755.jpg" />
 </div>
 
 
@@ -638,7 +667,7 @@ The London Symphony Orchestra - Classic fm Babies (2 CD) (2007) [MP3|320 кб/с
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219637.jpg" />
 </div>
 
 
@@ -664,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219011.jpg" />
 </div>
 
 
@@ -675,32 +704,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BA973A419AEE396E9A57885ACF561DBAC6E48D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966694   (219003) от 18.12.2015
-
-В. Михайловский, А. Санин | Король Палитра Первый (1974/2013) [WavPack]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219003.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сказку, песни, музыку и стихи, которые вы сейчас услышите, сочинили в 1974 году В. Михайловский, А. Санин и композитор А. Флярковский.Жанр: СказкаПродолжительность: 00:39:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63CA512C3F4E2D8A214E1D2141115DB5C0B6ECF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1334766   (293032) от 30.10.2019
+
+Animal ДжаZ - Время любить (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Так надо
+02. Апрель
+03. Мистика
+04. Чувства(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18592DFF7EBDBD138CDC53A17D8F5170682288FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1262542   (292980) от 16.11.2018
 
 Mark Knopfler - Down the Road Wherever (2018) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -6,7 +35,7 @@ Mark Knopfler - Down the Road Wherever (2018) Deluxe Edition [FLAC|Lossless|WEB-
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292980.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292969.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Linkin Park - Crawling (One More Light Live) (2017) Single [FLAC|Lossless|WEB-DL
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292946.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ Queen - News Of The World (1977) 40th Anniversary Edition, 3CD, 2017 [MP3|320 Kb
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292944.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ Stratovarius & Kotipelto - 18 Albums, 7 Compilations & Lives, 8 Singles & EP (19
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292890.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ Mark Knopfler - Down the Road Wherever (2018) Deluxe [FLAC|Lossless|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292885.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292797.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ VA - Great Rock Hits (2015) [MP3|224 кб/с]<Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292755.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ INXS - The Very Best (2011) Compilation [FLAC|Lossless|tracks + .cue] <Pop-Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292694.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ P.O.D. - 11 Альбомов, 3 EP, 4 Сингла, 2 Компиляции (1994
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292657.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ Coldplay - A Head Full of Dreams (2015) [FLAC|tracks + .cue] <Pop Rock, Indie Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292634.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ Slechtvalk - Falconry (2000) [APE|Lossless|image + .cue] <Melodic Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292219.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ Slechtvalk - The War That Plagues The Lands (2002) [APE|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292211.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ Morgart - Die Türme (2007) [FLAC|Lossless|image + .cue] <Symphonic Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292149.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ Carnal Grief - Out of Crippled Seeds (2004) [WavPack|Lossless|image + .cue] <Mel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292143.jpg" />
 </div>
 
 
@@ -438,7 +467,7 @@ Slechtvalk - Thunder Of War (2005) [APE|Lossless|image + .cue] <Pagan Black Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292138.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ Blind Stare - Symphony of Delusions (2005) [WavPack|Lossless|image + .cue] <Melo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_292071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292071.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ Uriah Heep - Salisbury (1970) 2CD, Remastered, 2016, Sanctuary Records [FLAC|Los
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291896.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291725.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ Persecutor - Rebirth (2019) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291677.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ David Kilgour And The The Heavy Eights - Bobbie's A Girl (2019) [FLAC|Lossless|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291674.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ White Denim - In Person (2019) Live album [FLAC|Lossless|WEB-DL|tracks] <Indie R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291669.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ Summoning - With Doom We Come (2018) [MP3|320 Kbps] <Atmospheric Black Metal, Ep
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291555.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ In Flames - Down, Wicked & No Good (2017) EP [MP3|320 Kbps] <Modern Metal, Alt.M
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291547.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ Angeli Di Pietra - Storm Over Scaldis (2009) [FLAC|image +.cue]<Folk, Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291495.jpg" />
 </div>
 
 
@@ -713,35 +742,6 @@ Angeli Di Pietra - Storm Over Scaldis (2009) [FLAC|image +.cue]<Folk, Power Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD8D47F422237564709B26588C8CD3D273E546F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262951   (291411) от 17.11.2018
-
-Sirenia - Arcane Astral Aeons (2018) Limited Edition [FLAC|Lossless|image + .cue] <Symphonic Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Styx Embrace (6:01)
-02. Into The Night (4:41)
-03. Love Like Cyanide (5:49)
-04. Desire (5:15)(   Читать дальше...   )Жанр: Symphonic Gothic MetalПродолжительность: 00:59:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3B42EF03055B8896D9A9CAF7736FB9F9E15C6CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

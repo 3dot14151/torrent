@@ -1,3 +1,55 @@
+###  Публикация: 1053169   (461625) от 04.10.2016
+
+Венецианский палач / Il boia di Venezia (1963) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461625.jpg" />
+</div>
+
+
+###  Подробнее
+
+Смертельно больной правитель Венеции открывает своему сыну Сандриго тайну его происхождения: малыш был найден им на палубе атакованного венецианцами пиратского судна. В день свадьбы Сандриго с прекрасной Леонорой его арестовывают по приказу Верховного Инквизитора, который сам домогается любви Леоноры...Производство: Италия / Liber FilmЖанр: ПриключенияРежиссер: Луиджи КапуаноАктеры: Лекс Баркер, Гай Мэдисон, Алессандра Панаро, Марио Петри, Альберто Фарнезе, Джулио Маркетти, Федор Шаляпин мл., Франко Фантазия, Раф Бальдассарре, Мирелла РоксиПеревод: Двуголосый закадровый (НТВ-Профит)Продолжительность: 01:28:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11D6A38F7BF9C72FADB1776B970704143A9EBD76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1160150   (461190) от 31.08.2017
+
+Языческая любовная песнь / Pagan Love Song (1950) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мими Беннетт, наполовину таитянка и наполовину американка, живёт на вилле на острове Tаити вместе со своей богатой тётей. Мими откровенно скучает на острове, где жизнь напоминает бесконечные каникулы, и мечтает уехать в Америку. В один прекрасный день девушка и её друзья отправляются поприветствовать по таитянскому обычаю прибывающий пароход. Там её замечает один (   Читать дальше...   )Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: Мюзикл, МелодрамаРежиссер: Роберт ЭлтонАктеры: Эстер Уильямс, Ховард Кил, Минна Гомбелл, Рита Морено, Бен Чэпман, Джин Кугэн, Карло Кук, Марсель Кордей, Филип КостаПеревод: Одноголосый закадровый (Матвей Кенс)Субтитры: Русские (Forced, Full), английскиеПродолжительность: 01:16:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6BF02EFB5FF1125C9E6606F786580D4F4CDB420
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 548817   (460008) от 21.09.2012
 
 Приключения Робин Гуда / The Adventures of Robin Hood (1938) BDRip
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460008.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459996.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459785.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459756.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459735.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459542.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459469.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459384.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458881.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458770.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458484.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457984.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457902.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457650.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457455.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457447.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456946.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456630.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455561.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455540.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455444.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454449.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_454290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_454290.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453498.jpg" />
 </div>
 
 
@@ -622,58 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE5D9D863DDE36193A475980D0085FC6D08C24BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940387   (453398) от 01.10.2015
-
-Черный лебедь / The Black Swan (1942) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453398.jpg" />
-</div>
-
-
-###  Подробнее
-
-После королевского помилования, самый известный английский пират Генри Морган назначается губернатором Ямайки вместо взяточника лорда Дэнби. Морган запрещает пиратство в своих владениях, что приводит к расколу среди его капитанов. Рыжебородый Билли Лич, грозный капитан "Черного Лебедя" и его помощник Воган объявляют Моргану войну. На стороне Моргана только (   Читать дальше...   )Производство: США / 20th Century Fox Film CorporationЖанр: Боевик, Драма, ПриключенияРежиссер: Генри КингАктеры: Тайрон Пауэр, Морин О’Хара, Лэйрд Крегар, Томас Митчелл, Джордж Сэндерс, Энтони Куинн, Джордж Зукко, Эдвард Эшли, Бонни Бэннон, Фортунио БонановаПеревод: Многоголосый закадровый (Светла)Субтитры: ОтсутствуютПродолжительность: 01:24:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE6E74CFAF3B87C961F8EB7D9B061B1F8261CE27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940174   (453246) от 01.10.2015
-
-Пушки острова Наварон / The Guns of Navarone (1961) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Греция. Эгейское море. 1943 год. Германия собирается совершить блицкриг на остров Керос. Две тысячи британских солдат оказались вловушке на этом крохотном островке. Им, измотанным и беспомощным, оставалось жить всего неделю. Эвакуация британских солдат была невозможна, ибо подходы к острову блокировали две немецких пушки с радарным наведением, расположенные на соседнем (   Читать дальше...   )Производство: США | Великобритания|Жанр: Боевик, Драма, Приключения, ВоенныйРежиссер: Дж. Ли Томпсон / J. Lee ThompsonАктеры: Грегори Пек (Capt. Keith Mallory), Дэвид Нивен (Cpl. Miller), Энтони Куинн (Col. Andrea Stavros), Стенли Бейкер (Pvt. 'Butcher' Brown), Энтони Куэйл (Maj. Roy Franklin), Джеймс Даррен (Pvt. Spyros Pappadimos), Ирен Папас (Maria Pappadimos), Гия Скала (Anna), Джеймс Робертсон Джастис (Commodore Jensen, Prologue Narrator), Ричард Харрис (Squadron Leader Howard Barnsby (   Читать дальше...   )Перевод: Профессиональный (многоголосый, закадровый) -Продолжительность: 02:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:836B87B713F13DB81AF38D22533478557BBFC2C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

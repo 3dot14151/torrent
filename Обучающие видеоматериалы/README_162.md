@@ -1,3 +1,31 @@
+###  Публикация: 1416828   (364525) от 17.10.2020
+
+[Специалист] Березанская Анна | Бухгалтерский учет 2020. Теория и практика (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный курс соответствует требованиям профессионального стандарта «Бухгалтер», утвержденного приказом Минтруда и социальной защиты РФ от 21.02.2019 № 103н!
+
+Программа сочетает глубокую теоретическую подготовку и решение реальных практических задач. Она подойдёт слушателям, которые только начали осваивать бухгалтерский учет, а также тем, кто хочет обновить свои знания (   Читать дальше...   )Производство: СпециалистЖанр: БухгалтерияПродолжительность: 43:36:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9361BBFCEA70615AC16B15FF175F3922010FFB87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1416864   (364512) от 17.10.2020
 
 Яндекс.Практикум | Профессия Python-разработчик [Часть 5 из 8] (2020) PCRec
@@ -6,7 +34,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364512.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ Slurm (Слёрм), В. Севостьянов, А. Бурылов | Apache Kafk
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363276.jpg" />
 </div>
 
 
@@ -61,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363066.jpg" />
 </div>
 
 
@@ -88,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362551.jpg" />
 </div>
 
 
@@ -114,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362309.jpg" />
 </div>
 
 
@@ -140,7 +168,7 @@ Bravo Chef! Рыба и морепродукты [2012] DVDRip
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362308.jpg" />
 </div>
 
 
@@ -166,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362307.jpg" />
 </div>
 
 
@@ -194,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362305.jpg" />
 </div>
 
 
@@ -221,7 +249,7 @@ Groove3 | Музыкальная Теория Для Всех (Части 1-3) (
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362253.jpg" />
 </div>
 
 
@@ -248,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362251.jpg" />
 </div>
 
 
@@ -277,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362194.jpg" />
 </div>
 
 
@@ -306,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362065.jpg" />
 </div>
 
 
@@ -332,7 +360,7 @@ Slurm (Слёрм), Александр Волочнев | AWS База. Адми
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361058.jpg" />
 </div>
 
 
@@ -358,7 +386,7 @@ Lectoria, Артем Зернов | MODX: Большой курс по разр�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361056.jpg" />
 </div>
 
 
@@ -387,7 +415,7 @@ Slurm (Слёрм), Денис Наумов и др. | Python: Работа с A
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361053.jpg" />
 </div>
 
 
@@ -415,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361052.jpg" />
 </div>
 
 
@@ -444,7 +472,7 @@ Slurm (Слёрм), Марсель Ибраев и др. | Docker: from zero to 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361050.jpg" />
 </div>
 
 
@@ -472,7 +500,7 @@ Slurm (Слёрм), Владимир Федорков | Тюнинг и масш
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361048.jpg" />
 </div>
 
 
@@ -501,7 +529,7 @@ Digital-Tutors | Quick Start to NUKE (2014) PCRec [H.264/720p-LQ] [RU/EN]
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_360645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360645.jpg" />
 </div>
 
 
@@ -529,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359968.jpg" />
 </div>
 
 
@@ -556,7 +584,7 @@ Udemy, Roman Dushkin | Системы, основанные на знаниях 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359132.jpg" />
 </div>
 
 
@@ -582,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359129.jpg" />
 </div>
 
 
@@ -608,7 +636,7 @@ Skillshare | Сделай своего первого милого 3D персо
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358761.jpg" />
 </div>
 
 
@@ -637,7 +665,7 @@ Foxminded, Дмитрий Береговец | Python с нуля. Курс пи
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358670.jpg" />
 </div>
 
 
@@ -663,7 +691,7 @@ Chris Downing | Shift Shop (2017) HDTVRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358330.jpg" />
 </div>
 
 
@@ -674,32 +702,6 @@ Shift Shop – это программа для похудения и укреп
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB6A957457E1A736C731ADD30A85A18FB6100D4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178188   (358321) от 27.10.2017
-
-Фрейзер Квилч | TRX Core Strength [Vol.1] (2009) DVDRip [EN]
-
->>Обучающие видеоматериалы
->>Здоровье и Спорт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Получите полную функциональную тренировку для вашей мышечной системы! Фрейзер Квелч проведет вас через новаторскую программу, которая нацелена на часто и незаслуженно забываемые глубокие мышцы живота и нижней части спины. Крепкий, мощный корсет - это то, что нужно для достижения пика спортивных результатов или для полноценной здоровой жизниЖанр: Функциональный тренинг, фитнесПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 00:37:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96778E9CF7A34008CDFA27B843BE1740D7F41EAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

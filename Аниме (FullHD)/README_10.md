@@ -6,7 +6,7 @@ Arata Kangatari | Arata: The Legend | Легенда Араты [2013, TV, 12 и
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920578.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Shoukoku no Altair | Altair: A Record of Battles | Империя Альтаир
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920570.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Macross Delta | Macross Δ | Макросс Дельта [2016, TV, 26 + 9] BDRi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920525.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Macross Plus: Movie Edition | Macross Plus The Movie | Макросс Плюс: 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920523.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Urawa no Usagi-chan / Усаги-чан из Уравы [2015, TV, 13 из 13] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918773.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Shirobako [2014, TV, 24 + 2sp] BDrip 1080p Hi10p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916614.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Mugen no Ryvius | Infinite Ryvius | Бесконечное путешестви�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915686.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Nihon Chinbotsu 2020 | Japan Sinks 2020 | Гибель Японии 2020 [2020, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915504.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Girlfriend (Kari) | Girlfriend (Beta) | Девушка (Бета) [2015, TV, 12 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915161.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Wixoss Diva(A)Live | Wixoss: Дива в прямом эфире [2021, TV, 12 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913907.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Slime Taoshite 300-nen, Shiranai Uchi ni Level Max ni Nattemashita | Я 300 ле
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913741.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Dr. Stone: Stone Wars | Доктор Стоун [ТВ-2] [2021, TV, 11 эп.] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913727.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Kimi to Boku no Saigo no Senjou, Arui wa Sekai ga Hajimaru Seisen | KimiSen | П
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913726.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ High School DxD Born | Демоны старшей школы [ТВ-3] [2015, TV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912983.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Altered Carbon: Resleeved | Видоизмененный углерод [2020, M
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910150.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Sekai Seifuku: Bouryaku no Zvezda / World Conquest Zvezda Plot / Покорен�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907520.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Heroic Age / Героический Эйдж [2007, TV, 26] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906730.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Carole & Tuesday | Кэрол и Тьюсдей [2019, TV, 24 эп.] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905577.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Akanesasu Shoujo | The Girl in Twilight | Девушка в багряных с�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905557.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Uchi no Ko no Tame Naraba, Ore wa Moshikashitara Maou mo Taoseru Kamo Shirenai. 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905375.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Isekai Shokudou | Restaurant to Another World | Кафе из другого м�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905246.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Hashiri Tsuzukete Yokattatte. | Хорошо, что я продолжил бе�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903817.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Watashi, Nouryoku wa Heikinchi dette Itta yo ne! | Разве я не проси
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903660.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Ni no Kuni | Другой мир | Вторая страна [2019, Movie] BDRip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903377.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Kaijuu no Kodomo | Children of the Sea | Дети моря [2019, Movie] BDRip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903373.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Shisha no Teikoku / The Empire of Corpses / Империя мертвых [2015,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901922.jpg" />
 </div>
 
 

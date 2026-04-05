@@ -1,3 +1,56 @@
+###  Публикация: 1090813   (918721) от 24.01.2017
+
+Козерог один / Capricorn One (1977) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полёт американских астронавтов на Марс может сорваться в связи с проблемами систем жизнеобеспечения корабля. Но, стремясь сохранить политический имидж Америки, руководство не хочет отказываться от проекта. Мир должен думать, что полёт состоялся, и ради этого замышляется грандиозный обман. Корабль «Козерог один» стартует без экипажа, а астронавты на земле инсценируют (   Читать дальше...   )Производство: США, Великобритания / Associated General Films, Incorporated Television Company (ITC)Жанр: Боевик, Фантастика, ТриллерРежиссер: Питер ХайамсАктеры: Эллиотт Гулд, Джеймс Бролин, Бренда Ваккаро, Сэм Уотерстон, О. Дж. Симпсон, Хэл Холбрук, Карен Блэк, Телли Савалас, Дэвид Хаддлстон, Дэвид ДойлПеревод: Дублированный (Советский дубляж)Язык озвучки: РусскийПродолжительность: 02:03:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A7CE1A102FB10C499933A79EDDFF3E1323A0A19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363087   (918646) от 14.03.2020
+
+Мой дядя Бенжамин / Mon oncle Benjamin (1969) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918646.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бенжамин был душой местного общества, личностью поистине незаурядной и демократичной. Неудивительно, что в него была по уши влюблена юная Монетта…
+Экранизация романа Клода Тиллье.Производство: Франция, Италия / Euro International Film (EIA), Gaumont InternationalЖанр: КомедияРежиссер: Эдуар МолинароАктеры: Жак Брель, Клод Жад, Бернар Алан, Рози Варт, Поль Франкёр, Альфред Адам, Бернар Блие, Карло Алигьеро, Лин Шардонне, Робер Дальбан, Арман Местраль, Поль Пребуа, Даниэла Сурина, Кристин ОрельПеревод: Двуголосый профессиональныйСубтитры: АнглийскиеПродолжительность: 01:32:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60CE7D3C540C4A470B9BEB7D9DE8B55F7B32833A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 289339   (918605) от 31.01.2011
 
 Банковский сыщик / The Bank Dick (1940) DVDRip
@@ -6,7 +59,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918605.jpg" />
 </div>
 
 
@@ -36,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918187.jpg" />
 </div>
 
 
@@ -62,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917997.jpg" />
 </div>
 
 
@@ -88,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917383.jpg" />
 </div>
 
 
@@ -114,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917288.jpg" />
 </div>
 
 
@@ -141,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916883.jpg" />
 </div>
 
 
@@ -167,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916764.jpg" />
 </div>
 
 
@@ -193,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916626.jpg" />
 </div>
 
 
@@ -219,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916590.jpg" />
 </div>
 
 
@@ -246,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915056.jpg" />
 </div>
 
 
@@ -272,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915020.jpg" />
 </div>
 
 
@@ -298,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913820.jpg" />
 </div>
 
 
@@ -324,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913707.jpg" />
 </div>
 
 
@@ -352,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913652.jpg" />
 </div>
 
 
@@ -380,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913575.jpg" />
 </div>
 
 
@@ -406,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913175.jpg" />
 </div>
 
 
@@ -432,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912059.jpg" />
 </div>
 
 
@@ -459,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911980.jpg" />
 </div>
 
 
@@ -485,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911479.jpg" />
 </div>
 
 
@@ -512,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910104.jpg" />
 </div>
 
 
@@ -539,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909590.jpg" />
 </div>
 
 
@@ -565,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909011.jpg" />
 </div>
 
 
@@ -592,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908476.jpg" />
 </div>
 
 
@@ -618,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908099.jpg" />
 </div>
 
 
@@ -630,60 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63221FCBDC6AACA126804FCCD73172C91DBE2E3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 181108   (907885) от 08.03.2010
-
-451 градус по фаренгейту / Fahrenheit 451 (1966) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907885.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация по одноимённому научно-фантастического роману-антиутопии Рэя Брэдбери.
-Мир будущего, в котором все письменные издания безжалостно уничтожаются спецотрядом пожарных-огнеметчиков, а интерес к книгам и их хранение преследуются по закону.
-Главный герой этой истории по имени Гай Монтэг – один из пожарных-уничтожителей и он всегда качественно выполнял свою (   Читать дальше...   )Производство: Великобритания. Anglo Enterprises, Vineyard Film Ltd.Жанр: Фантастика, Триллер, ДрамаРежиссер: Франсуа ТрюффоАктеры: Оскар Вернер, Джули Кристи, Сирил Кьюcак, Антон Диффринг, Джереми Спенсер, Би Даффелл, Ноэл Дэвис, Джиллиан Алдам, Майкл Бальфур, Энн БеллПеревод: Многоголосый закадровыйПродолжительность: 01:52:27
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 866558   (907751) от 05.02.2015
-
-Терминатор / The Terminator (1984) HDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907751.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре сюжета - противостояние солдата Кайла Риза и киборга-терминатора, прибывших в 1984-ый год из пост-апокалиптического будущего, где миром правят машины-убийцы, а человечество находится на грани вымирания. Цель киборга: убить девушку по имени Сара Коннор, чей ещё нерождённый сын к 2029 году выиграет войну человечества с машинами. Цель солдата Кайла Риза: спасти (   Читать дальше...   )Производство: СШАЖанр: фантастика, боевикРежиссер: Джеймс КэмеронАктеры: Арнольд Шварценеггер, Майкл Бин, Линда Хэмилтон, Пол Уинфилд, Лэнс Хенриксен, Рик Россович, Бесс Мотта, Эрл Боэн, Дик Миллер, Шоун ШеппсПеревод: ДублированныйЯзык субтитров: РусскиеПродолжительность: 01:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B50E2AEE463BFD1F736222938D1B84A38580DFE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

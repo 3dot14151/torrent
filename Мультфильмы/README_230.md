@@ -1,3 +1,133 @@
+###  Публикация: 604167   (389178) от 03.11.2013
+
+Грэвити Фоллс / Gravity Falls (2012) WEB-DLRip [H.264/720p-LQ] (20 серий из 20)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультсериал повествует о приключениях двенадцатилетних близнецов (брата и сестры) Диппера и Мейбл, чьи летние планы рушатся, когда родители отправляют их в далёкий городок Грэвити Фоллс, штат Орегон, к Дяде Стэну. В городе творятся странные вещи, в которых им предстоит разобраться.Жанр: Приключения, КомедияРежиссер: Алекс Хирш / Alex HirschПерсонажи: Диппер Пайнс, Мэйбл Пайнс, Стэн, Венди, СусПеревод: Многоголосый закадровыйПродолжительность: 20 серий по ~ 00:21:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20AD1DC25F844E49DEB2942CB977330C8DCB0B6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 684053   (389144) от 03.11.2013
+
+Гуппи и Пузырики / Bubble Guppies  (2011-2013) SATRip (2 сезон, 19 серий из 19)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_389144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гуппи живут в вымышленном подводном городе Бабблтаки. Все эпизоды выдержаны приблизительно в одном и том же формате. Серия начинается со вступления, где Гил прерывает Молли, которая пытается рассказать что-то, что связанно с темой эпизода. Один из них восклицает: «Пришло время для Пузырьков Гуппи!», и начинает играть песня – заглавная тема. После того как она кончается, (   Читать дальше...   )Жанр: Детский, КомедияРежиссер: Джонни Белт и Роберт Сколл (Johnny Belt and Robert Scull)Персонажи: Молли, Гил, Гоби, Дина, Уна, Нони, Щенок Пузырёк, Мистер ГрупперПеревод: Полный дубляж, вкл. песниПродолжительность: 18 х ~00:22:55 + 1 x 00:44:29
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 718589   (389135) от 03.11.2013
+
+Гадкий я 2 / Despicable Me 2 (2013) BDRip [H.264/1080p-LQ] [Hi10P]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389135.jpg" />
+</div>
+
+
+###  Подробнее
+
+В то время как Грю, бывший суперзлодей, приспосабливается к семейной жизни и пытается честным трудом зарабатывать в сфере бизнеса, тайные лаборатории Арктики оказываются украденными. Анти-Злодейская лига решает, что она нуждается в помощи Грю и его новобранцев в расследовании.Производство: СШАЖанр: Мультфильм, Фантастика, КомедияРежиссер: Кюнг Хо ЛиАктеры: Роб Шнайдер, Брэт МакКензи, Ивонн Страховски, Алан Камминг, Фрэнк Уэлкер, Норм МакДональд, Дженни Пулос, Тим Карри, Эрик Лопез, Крис ЭджерлиПеревод: ДублированныйСубтитры: Вшитые ОтключаемыеЯзык субтитров: РусскиеПродолжительность: 01:37:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99C7F15E404823C8245E8678E43B8E8B4DC2F656
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571004   (388833) от 06.11.2012
+
+Маша и Медведь [1я Серия] (2009) [1080p] 3D UPconvert BD-Remux -3DGenesis
+
+>>Мультфильмы
+>>Отечественные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388833.jpg" />
+</div>
+
+
+###  Подробнее
+
+1я серия мультсериала про девочку Машу, которая никому не дает покоя, и в первую очередь - своему другу Медведю теперь в 3Д.Производство: Animaccord Animation Studio (Россия)Жанр: мультфильм, короткометражка, комедия, семейныйАктеры: Алина Кукушкина, Эдуард Назаров, Борис КутневичПеревод: Не требуетсяСубтитры: нетПродолжительность: 00:06:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B584290E8BBE00E1674E96A5236CB344E84A3730
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173925   (388770) от 13.10.2017
+
+Маша и Медведь: Цирк, да и только (2017) WEB-DL [H.264/720p-LQ] (Серия 67)
+
+>>Мультфильмы
+>>Отечественные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388770.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весна – время веселиться и играть. В лесу тает снег, и Маша и пингвин резвятся, забыв обо всём. В результате Маша заболевает. Болеть нелегко, но как приятно, когда рядом есть те, кто всегда готов позаботиться и развлечь. Ведь лучшее лекарство - это смех!Производство: Россия / Студия "Анимаккорд"Жанр: Детский, комедия, семейныйРежиссер: Олег Кузовков, Олег Ужинов, Денис ЧервяцовПерсонажи: Алина Кукушкина, Эдуард Назаров, Борис КутневичСубтитры: ОтсутствуютПродолжительность: 00:07:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D70AB6C3549A4567A8EA6597A954F82D4F938B24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1163801   (388601) от 13.10.2017
 
 Кротик и Панда / Krtek a panda (2017) WEB-DLRip [H.264/720p-LQ] (сезон 1, серии 1-52 из 52) [Обновляемая]
@@ -6,7 +136,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388601.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388444.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388442.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388433.jpg" />
 </div>
 
 
@@ -111,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388318.jpg" />
 </div>
 
 
@@ -137,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_388297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388297.jpg" />
 </div>
 
 
@@ -163,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387815.jpg" />
 </div>
 
 
@@ -189,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387802.jpg" />
 </div>
 
 
@@ -215,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387759.jpg" />
 </div>
 
 
@@ -242,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387754.jpg" />
 </div>
 
 
@@ -270,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387753.jpg" />
 </div>
 
 
@@ -296,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387752.jpg" />
 </div>
 
 
@@ -322,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_387662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_387662.jpg" />
 </div>
 
 
@@ -348,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_387658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_387658.jpg" />
 </div>
 
 
@@ -374,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387640.jpg" />
 </div>
 
 
@@ -400,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387612.jpg" />
 </div>
 
 
@@ -426,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387610.jpg" />
 </div>
 
 
@@ -453,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387603.jpg" />
 </div>
 
 
@@ -479,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387520.jpg" />
 </div>
 
 
@@ -505,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387513.jpg" />
 </div>
 
 
@@ -531,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387453.jpg" />
 </div>
 
 
@@ -542,136 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC929567B0FF1DEF50A99FB12EC9B739F7680641
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 335517   (387446) от 04.09.2022
-
-Наргис (1965) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387446.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультипликационный фильм по мотивам повести Шарафа Рашидова «Кашмирская песня».Производство: СССР, СоюзмультфильмЖанр: детский, рисованная анимацияРежиссер: Владимир ПолковниковАктеры: Алексей Консовский, Елена Понсова, Роза Макагонова, Эраст Гарин, Борис ИвановСубтитры: ОтсутствуютПродолжительность: 00:19:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A64AF8C48E3F3F9EC68609AF601907EA919136B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574059   (387430) от 04.09.2022
-
-Миньоны: Грювитация / Minions: The Rise of Gru (2022) WEB-DLRip [H.264] [Локализованная версия]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Миллион лет миньоны искали самого великого и ужасного предводителя, пока не встретили ЕГО. Знакомьтесь — Грю. Пусть он еще очень молод, но у него в планах по-настоящему гадкие дела, которые заставят планету содрогнуться.Производство: США / Illumination Entertainment , Universal PicturesЖанр: мультфильм, фантастика, комедия, криминал, приключения, семейныйРежиссер: Кайл Балда, Брэд Эблесон, Джонатан дель ВальАктеры: Стив Карелл, Пьер Коффан, Алан Аркин, Тараджи П. Хенсон, Мишель Йео, Джули Эндрюс, Расселл Брэнд, Жан-Клод Ван Дамм, Дольф Лундгрен, Дэнни ТрехоПеревод: Дублированный (iTunes)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 01:26:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:292FD2A0624628C4240C06BAE1B6D16DD23A0EB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 250824   (387424) от 04.09.2022
-
-Ночной цветок (1984) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Котенок, Утенок и Цыпленок отправились на поиски лечебного цветка, чтобы помочь старому Псу.Производство: СССР, СоюзмультфильмЖанр: детский, рисованная анимацияРежиссер: Иван ДавыдовАктеры: Галина Иванова, Людмила Гнилова, Вячеслав Богачёв, Мария Виноградова, Светлана Харлап, Нина КорниенкоСубтитры: ОтсутствуютПродолжительность: 00:09:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF0FF2F96A5FFF1FDC18243BD97671C47550B076
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414196   (387281) от 07.10.2020
-
-Ральф против интернета / Ralph Breaks the Internet 3D (2018) BDRip [H.264/1080p] [Вертикальная анаморфная стереопара]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387281.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этот раз Ральф и Ванилопа фон Кекс выйдут за пределы зала игровых автоматов и отправятся покорять бескрайние просторы интернета, который может и не выдержать сокрушительного обаяния громилы.Производство: США / Walt Disney PicturesЖанр: мультфильм, комедия, приключения, семейный, фантастикаРежиссер: Фил Джонстон, Рич МурПеревод: ДублированныйСубтитры: русские, английскиеПродолжительность: 01:52:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A67C464A7AB203FF63117F8649E18FB23963FBA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414194   (387262) от 07.10.2020
-
-Ральф против интернета / Ralph Breaks the Internet (2018) WEBRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_387262.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этот раз Ральф и Ванилопа фон Кекс выйдут за пределы зала игровых автоматов и отправятся покорять бескрайние просторы интернета, который может и не выдержать сокрушительного обаяния громилы.Производство: США / Walt Disney PicturesЖанр: мультфильм, комедия, приключения, семейный, фантастикаРежиссер: Фил Джонстон, Рич МурПеревод: ДублированныйСубтитры: русские, английскиеПродолжительность: 01:48:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C09E0B1562AB4132C283B6CCF1900D5CC9CF6CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

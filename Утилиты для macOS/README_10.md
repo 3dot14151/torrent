@@ -1,3 +1,29 @@
+###  Публикация: 1498842   (854529) от 28.09.2021
+
+Big Sur Cache Cleaner 16.1.7 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Big Sur Cache Cleaner - это отмеченный наградами инструмент общего назначения для macOS. BSCC упрощает обслуживание системы с помощью простого интерфейса для многих функций macOS. Как новички, так и опытные пользователи оценят мощный набор инструментов, который предоставляет BSCC. Big Sur Cache Cleaner - один из ведущих в мире инструментов для обслуживания, который (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.09.2021Разработчик: Northern SoftworksПоддерживаемая ОС: macOS 10.4 - macOS 11.0.1Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6534E6708E0CA926921A8D6AB811FABF4260B26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1498752   (854418) от 28.09.2021
 
 CopyClip 2 v2.9.98.9 [En]
@@ -6,7 +32,7 @@ CopyClip 2 v2.9.98.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854418.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ Tune Sweeper 4 v4.25 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853673.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Magnet - Snap windows into various sizes and positions 2.1.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853469.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Easy Batch Rename 1.0.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852890.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ CopyLess 1.8.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852115.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ SMARTReporter 3.1.9 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852103.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ Adobe Zii 2021 - Universal Patcher 6.1.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850890.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ VersionsManager 1.1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850554.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ Vicomsoft FTP Client 5.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850306.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ SmoothScroll 1.1.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849688.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ NetWorker Pro 7.4.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849645.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ Magic Battery 5.4.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849536.jpg" />
 </div>
 
 
@@ -327,7 +353,7 @@ SyncMate 5.3.636 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848927.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ AnyTrans 4.9.2 (20160331) [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848684.jpg" />
 </div>
 
 
@@ -380,7 +406,7 @@ TimeMachineEditor 5.0.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844810.jpg" />
 </div>
 
 
@@ -408,7 +434,7 @@ Clips 2.0.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841789.jpg" />
 </div>
 
 
@@ -435,7 +461,7 @@ Dwell Click 2.2.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841703.jpg" />
 </div>
 
 
@@ -463,7 +489,7 @@ HazeOver 1.7 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841691.jpg" />
 </div>
 
 
@@ -492,7 +518,7 @@ Clipboard Center 2.2.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841089.jpg" />
 </div>
 
 
@@ -520,7 +546,7 @@ Hazel 3.3.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838308.jpg" />
 </div>
 
 
@@ -546,7 +572,7 @@ Mirror for Samsung TV 1.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837942.jpg" />
 </div>
 
 
@@ -575,7 +601,7 @@ iStatistica 1.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836672.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ FileSalvage 9.1 (3.0) [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836607.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ CCleaner Professional Edition for Mac 1.12.339 [En/Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836040.jpg" />
 </div>
 
 
@@ -660,7 +686,7 @@ Mirror for Philips TV 1.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835166.jpg" />
 </div>
 
 
@@ -674,33 +700,6 @@ Mirror for Philips TV 1.4.1 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77C471FB4B18B3AE93DF8E36D3F7F8A69B3B78D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502029   (831910) от 12.10.2021
-
-DirEqual 3.8.3 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831910.jpg" />
-</div>
-
-
-###  Подробнее
-
-DirEqual - это инструмент сравнения папок, который упрощает сравнение локальных файлов и папок на вашем Mac. DirEqual отображает сравниваемые каталоги рядом в виде расширяемых деревьев, а размер и дата указываются для каждого элемента. Различия между каталогами обозначены цветом и легко различимы значками.
-Чтобы скопировать или удалить файлы / папки, щелкните отдельный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.10.2021Разработчик: Naarak-StudioПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A53171F7D545C5EDF1E90BA7C25C0A43983388D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,86 @@
+###  Публикация: 958904   (319010) от 23.11.2015
+
+Г. В. Поздняк (ред.) | Азербайджан. Общегеографическая карта (2005) [JPG, PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319010.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данное издание кроме подробной справочной карты Азербайджана (масштаб 1:750 000) содержит ещё и брошюру с указателем географических названий. На основном листе есть карта-схема азербайджанской столицы — Баку.Жанр: Складная географическая картаФормат: JPG, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:668B861C40083F1859408ACA46DA32A37DC4C8D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075597   (318672) от 23.11.2016
+
+К. Маркс | Математические рукописи (1968) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318672.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Математические рукописи" К. Маркса посвящены в основном выяснению сущности дифференциального исчисления.
+
+Предложенное Марксом объяснение смысла основных понятий и методов дифференциального исчисления позволяет и в настоящее время с позиций диалектического материализма разобраться в сущности символических исчислений математики и математической логики. (   Читать дальше...   )Жанр: История, математика, логика, философия, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6B423D69D3A615A374B785E5F18D39FB4C64A89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075603   (318530) от 23.11.2016
+
+Н. А. Дубовой (ред.) | Мозамбик. Справочная карта (1985) [JPG, PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318530.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данное издание входят:
+1) Подробная справочная карта Мозамбика с административным делением (масштаб 1:2 500 000).
+2) Указатель географических названий в алфавитном порядке.
+3) Обложка с выходными данными.(   Читать дальше...   )Жанр: Складная географическая картаФормат: JPG, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D34C980D6890EA69A46444AFBEA9F40EC8BE79FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182807   (314451) от 11.11.2017
 
 Ж. Пиаже и др. | Преподавание математики (1960) [DJVU]
@@ -6,7 +89,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314451.jpg" />
 </div>
 
 
@@ -32,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313867.jpg" />
 </div>
 
 
@@ -61,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312255.jpg" />
 </div>
 
 
@@ -87,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309536.jpg" />
 </div>
 
 
@@ -113,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308598.jpg" />
 </div>
 
 
@@ -139,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307599.jpg" />
 </div>
 
 
@@ -165,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_304965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304965.jpg" />
 </div>
 
 
@@ -191,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302450.jpg" />
 </div>
 
 
@@ -220,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_302442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302442.jpg" />
 </div>
 
 
@@ -249,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_301039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301039.jpg" />
 </div>
 
 
@@ -275,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300936.jpg" />
 </div>
 
 
@@ -301,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300838.jpg" />
 </div>
 
 
@@ -328,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300318.jpg" />
 </div>
 
 
@@ -354,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298918.jpg" />
 </div>
 
 
@@ -381,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297439.jpg" />
 </div>
 
 
@@ -407,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297294.jpg" />
 </div>
 
 
@@ -433,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296952.jpg" />
 </div>
 
 
@@ -459,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296710.jpg" />
 </div>
 
 
@@ -485,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296299.jpg" />
 </div>
 
 
@@ -511,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295045.jpg" />
 </div>
 
 
@@ -537,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_294100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294100.jpg" />
 </div>
 
 
@@ -566,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293508.jpg" />
 </div>
 
 
@@ -592,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293479.jpg" />
 </div>
 
 
@@ -603,86 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:255E4BAEECBDC151AAD2F36524276B614A8C1DE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961910   (293340) от 05.12.2015
-
-Р. П. Барыкина и др. | Справочник по ботанической микротехнике (2004) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293340.jpg" />
-</div>
-
-
-###  Подробнее
-
-Справочник включает современные микротехнические методы анатомических, цитоэмбиологических, гистохимических и палинологических исследований растительных объектов с использованием различных типов световых микроскопов. Приведены теоретические обоснования применения тех или иных процедур, а также подробная рецептура фиксаторов, красителей, сред и т.д.
-Для научных работников, (   Читать дальше...   )Жанр: Общая биологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5D0579E76B613AA5409D61BDC2FDE8F20C45DF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962059   (293338) от 05.12.2015
-
-М. П. Исаенко и др. | Определитель главнейших минералов руд в отраженном свете (1986) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Охарактеризованы основные свойства рудных минералов (отражение, двуотражение, цвет, твердость, микротвердость, магнитность и др.) и детально рассмотрены методы их диагностики в отраженном свете. Описаны отбор материала и приготовление полированных шлифов, количественное измерение констант рудных минералов под микроскопом и др. Приведены вспомогательные таблицы, обеспечивающие (   Читать дальше...   )Жанр: Науки о Земле, ГеологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB9C358FF05F830A2311386C16713CCEFB8F55FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961912   (293166) от 05.12.2015
-
-К. А. Гладков | Атом от А до Я (1974) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_293166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет собой небольшой карманный словарь, объясняющий самые ходовые термины, встречающиеся при чтении газет, журналов и неспециальной литературы. Это небольшая энциклопедия, дающая краткое, но полное представление о соответствующих разделах физики. Термины подобраны так. что они представляют собой законченное изложение того или иного понятия.
-Первое издание (   Читать дальше...   )Жанр: Физика атомного ядра и элементарных частицФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B98B616C96B7312F1F699858F9A35A42FE3DAA12
 ```
 
 https://mybot314.ru/tekegram_catalog/

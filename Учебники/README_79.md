@@ -1,3 +1,57 @@
+###  Публикация: 497252   (253457) от 16.05.2012
+
+Л.М.Балабанова | Судебная патопсихология (вопросы определения нормы и отклонений). Психология в системе силовых структур государства [1998] [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253457.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассматриваются патопсихологические особенности, механизм и мотивации преступных действий лиц с психическими аномалиями. Исследуются общепризнанные положения судебной патологии и обосновывается необходимость разработки и применения объективных методов диагностики эмоционально-значимых состояний, особенно при проведении судебно-психологистической экспертизы. В связи с этим анализируются системные принципы детерминации психофизиологических функции человека в аспекте индивидуальной нормы и разрабатывается концепция индивидуальной нормы состояния.
+Для курсантов, слушателей, студентов юридических специальностей вузов, а также практических работников правоохранительных органов.1998Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A6634B4B2772871FABC9BE91FEBFAFDC9159166
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635038   (252080) от 23.05.2023
+
+А.В. Бабич | Введение в UML (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252080.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс поможет составить представление о UML, убедиться в его простоте и полезности, поверить в свои способности к UML-моделированию, наметить направления дальнейшего совершенствования своих знаний.
+Курс не сделает из читателя профессионала, но поможет понять основополагающие концепции рассматриваемой технологии, на которые читатель сможет в дальнейшем "нарастить" (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C24FF5F047B5E8FA98846D110344A46E38F72356
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1636441   (251946) от 30.05.2023
 
 М.С. Костин, А.Д. Ярлыков | Архитектурно-конфигурируемые SDR-технологии радиомониторинга и телеметрии (2021) [PDF]
@@ -6,7 +60,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251946.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251897.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251839.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251664.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251216.jpg" />
 </div>
 
 
@@ -136,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251194.jpg" />
 </div>
 
 
@@ -163,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250302.jpg" />
 </div>
 
 
@@ -190,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250258.jpg" />
 </div>
 
 
@@ -216,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250226.jpg" />
 </div>
 
 
@@ -243,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250221.jpg" />
 </div>
 
 
@@ -270,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250054.jpg" />
 </div>
 
 
@@ -296,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249982.jpg" />
 </div>
 
 
@@ -322,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249856.jpg" />
 </div>
 
 
@@ -348,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249808.jpg" />
 </div>
 
 
@@ -374,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249676.jpg" />
 </div>
 
 
@@ -400,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249666.jpg" />
 </div>
 
 
@@ -427,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249608.jpg" />
 </div>
 
 
@@ -453,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249607.jpg" />
 </div>
 
 
@@ -479,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249601.jpg" />
 </div>
 
 
@@ -506,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249596.jpg" />
 </div>
 
 
@@ -533,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249566.jpg" />
 </div>
 
 
@@ -560,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249562.jpg" />
 </div>
 
 
@@ -587,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249505.jpg" />
 </div>
 
 
@@ -614,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249498.jpg" />
 </div>
 
 
@@ -625,58 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56046D2610B769DEEF4FF0839879163D23522BFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565530   (249383) от 24.07.2022
-
-Д.Г. Кузнецов | Органическая химия (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249383.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящем учебном пособии в систематизированном виде изложен материал по органической химии в соответствии с требованиями программы для студентов, обучающихся по специальности высшего образования «Фармация».Жанр: Химические наукиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05B51D4CD83F2828C7921B8527A302EF093997BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833979   (248610) от 02.11.2025
-
-А.В. Голенков, П.Б. Зотов | Самоубийства после убийства (2024) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Впервые в отечественной литературе описаны постгомицидные самоубийства (самоубийства после убийства), их распространенность в регионах Российской Федерации (по данным репрезентативной выборки, собранной в 2002-2021 гг.), проведено сравнение с убийствами и самоубийствами. Авторами предложена оригинальная типология постгомицидных самоубийств, которая иллюстрируется (   Читать дальше...   )Жанр: Психология, правоохранительные органы, криминалистика, социальная работаИздательство: ГЭОТАР-МедиаФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83E1F47606B0FFB0FC5496B4C8095B2A1EBEBD3A
 ```
 
 https://mybot314.ru/tekegram_catalog/

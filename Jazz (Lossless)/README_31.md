@@ -6,7 +6,7 @@ Nat Adderley - The Scavenger (1968) Remaster, 2013, Universal[FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942367.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Tom Scott - Rural Still Life (1968) Remaster, 2015, Universal[FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942355.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941769.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Art Pepper with Duke Jordan - In Copenhagen 1981 (1996) 2CD, Galaxy[FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941766.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Gregory Porter - Live In Berlin (2016) 2CD, Universal[FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941685.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Sergey Mikhaylenko (Сергей Михайленко) & XYZ Quartet - Trump Car
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941669.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Harry James - Classic Jazz Archive 1937 - 1939 (2004) 2CD, Membran Music [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941030.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ The Chico Hamilton Quintet - A Different Journey (1963) Remaster, 2012, Warner[F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940639.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Melvin (Mel) Rhyne - Remembering Wes (1996) 1999, Savant[FLAC|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940355.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Joe Bushkin - In Concert Town Hall (1963) Remaster, 2013, Warner[FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940353.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Dr. Lonnie Smith - Evolution (2016) [FLAC|Lossless|tracks + .cue] <Jazz, Jazz Fu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940322.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Fourplay - The Best Of (1997) [FLAC|Lossless|image + .cue] <Smooth Jazz, Easy Li
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940069.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Reuben Wilson - Boogaloo To The Beastie Boys (2004) [FLAC|Lossless]<Jazz, Jazz F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939061.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Shirley Horn - Jazz 'Round Midnight (1998) [APE|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939046.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Harold Mabern - Greasy Kid Stuff! (1970) Remaster, 2014, Universal[FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939020.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Charles Mingus - Oh Yeah (1961-1962) 2007, Warner Music[FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939013.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Acoustic Alchemy - Live In London (2014) [FLAC|Lossless]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938981.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ The Modern Jazz Quartet - Three Windows (1987) 1990, Atlantic[APE|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938950.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Cecil Payne & Duke Jordan - Brooklyn Brothers (1973) 1998, Prevue[FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938948.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ VA - Simply Late Night Jazz (2010) 2CD [FLAC|Lossless]<Jazz, Vocal Jazz, Lounge,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938817.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Ella Fitzgerald - 1951 (2002) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938017.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Gato Barbieri - New York Meeting (2010) Melopea Discos [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938016.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Felix Slovacek Big Band - Happy-Go-Lucky (1998) [FLAC|Lossless|tracks + .cue] <J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937953.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ The Modern Jazz Quartet - The Comedy & Concorde (1962) 1998, Atlantic[APE|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937430.jpg" />
 </div>
 
 
@@ -709,7 +709,7 @@ Lena Horne - We'll Be Together Again (1994) Blue Note[FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937428.jpg" />
 </div>
 
 
@@ -738,7 +738,7 @@ Oscar Peterson - Jazz Manifesto (1949 -1996) 2CD, 2007, Performance Records[FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937427.jpg" />
 </div>
 
 

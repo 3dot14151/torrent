@@ -6,7 +6,7 @@
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_723018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723018.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Body Count - Bloodlust (2017) [FLAC|Lossless|tracks + .cue] <Rapcore, Hardcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_722400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722400.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Black Orchid Empire - Semaphore (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Alt
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721412.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ WIZO - Bleib Tapfer / Für'n Arsch (1992) Compilation [FLAC|Lossless|tracks + .c
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_721194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721194.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Feist - Pleasure (2017) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720713.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Les 35 Ans De Radio Libertaire (2017) Compilation [FLAC|Lossless|tracks + .
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_719159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719159.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Weezer - Weezer (Black Album) (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716947.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Adia Victoria - Silences (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716821.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Thurston Moore - Rock N Roll Consciousness (2017) [FLAC|Lossless|WEB-DL|tracks +
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716538.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Pond - Tasmania (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Psychedelic Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715088.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Hozier - Wasteland, Baby! (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alte
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715079.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Gorillaz - Humanz (2017) Deluxe Edition, 2CD [FLAC|Lossless|image + .cue] <Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713918.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ In Hearts Wake - Kaliyuga (2020) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713497.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Marianas Trench - Phantoms (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713187.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Tribal Ink - Surrounded By Freaks (2003) [FLAC|Lossless|tracks + .cue] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713123.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Band Of Horses - Why Are You OK (2016) [FLAC|Lossless|image + .cue] <Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712129.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Garbage - Strange Little Birds (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712115.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Garbage - Strange Little Birds (2016) [FLAC|Lossless|tracks + .cue] <Alternative
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711872.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Kongos - Egomaniac (2016) [FLAC|Lossless|tracks] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711764.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Misery Signals - Ultraviolet (2020) [FLAC|Lossless|image + .cue] <Metalcore, Mel
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711607.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Curses - Chapter II: Bloom (2020) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711494.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Banda Bassotti - Amore e odio (2004) [FLAC|Lossless|tracks + .cue] <Rock, Punk, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711350.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Backyard Babies - Sliver & Gold (2019) Limited Edition [FLAC|Lossless|tracks + .
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711315.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ The Temper Trap - Thick As Thieves (2016) Deluxe Edition [FLAC|Lossless|tracks] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710038.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Saliva - Love, Lies & Therapy (2016) [FLAC|Lossless|tracks] <Alternative Rock, A
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710021.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Guano Apes - Offline (2014) [FLAC|Lossless]<Rock, Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710004.jpg" />
 </div>
 
 

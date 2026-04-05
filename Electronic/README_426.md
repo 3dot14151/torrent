@@ -1,3 +1,119 @@
+###  Публикация: 1829246   (202108) от 25.10.2025
+
+VA - Lounge Music (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. N.E.O.N - Feel The Fire (3:16)
+02. DeepTurco - Memory (3:33)
+03. The Fly - Rewind (2:46)
+04. Sharapov - Keep On Rising (3:19)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:40:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:844B98622569F7765826811EE76ABEA148F62558
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319445   (201955) от 02.03.2023
+
+Late Night Alumni - Silver (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Downtempo, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mine (3:19)
+ 02. Float (4:06)
+ 03. Virtue (3:40)
+ 04. White Bear (3:04)(   Читать дальше...   )Жанр: Electronic, Downtempo, Deep HouseПродолжительность: 00:49:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44E429D7492DFB1BE5D617C6613EDB8B262C21FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1829447   (201952) от 25.10.2025
+
+VA - Ibiza Closing 2025 (Deep Strips Records) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrew Ross - Look Into My Eyes (3:39)
+02. Kristina Pototskaya - Finding Balance (4:52)
+03. Revro Jay - Vibe of the Sunshine (2:59)
+04. Aoma Nito - Perfect (2:34)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4DD13B137FF0FAEAAF03FAE4FF3B0132DE38A8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1829032   (201889) от 25.10.2025
+
+Bassnectar (Lorin Ashton) - 5 Albums (2020-2025) [MP3|320 Kbps] <Electronic, Breakbeat, Dubstep>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2020 - All Colors
+2023 - The Golden Rule
+2024 - The Golden Rule Remixes (Part 1)(   Читать дальше...   )Жанр: Electronic, Breakbeat, DubstepПродолжительность: 5 CD, 05:38:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF4574A70EA32D20AEAD2ECD28ACE71EA3E29A4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617605   (201689) от 07.03.2023
 
 Spacehawk - New Generation (2023) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Spacedisco>
@@ -6,7 +122,7 @@ Spacehawk - New Generation (2023) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Spa
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201689.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Schiller - Illuminate (2023) Limited Premium Deluxe Edititon [FLAC|Lossless|imag
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201458.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Galaxy Waves - 80's Synthwave Chillwave 2023 - Retro Electro Wave Special part 2
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201411.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Severed Skies - Dreamscapes (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, 
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201103.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ M83 - Fantasy (2023) [FLAC 2.0|96/24|WEB-DL|tracks] <electronic-pop, synth-pop, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_201098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201098.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - A State of Trance - Classics Top 10, Vol. 10 (2025) [MP3|320 Kbps] <Trance,
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_200000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_200000.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Home Office Chill: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_199932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_199932.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Armin van Buuren - A State Of Trance 1248 (ADE Special) (2025) [MP3|320 Kbp
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_199915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_199915.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Pet Shop Boys - Lost (2023) EP [FLAC|Lossless|WEB-DL|tracks] <SynthPop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199914.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - Chill Beach (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks] <Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_199899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_199899.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Vintage & Morelli - My Rose Enchanted Destiny (2016) [FLAC|Lossless|WEB-DL|track
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199397.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Armin van Buuren - Feel Again (2023) 6CD [FLAC|Lossless|WEB-DL|tracks] <Trance, 
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199241.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ VA - Car Music 2023: Best Road Trip Songs [FLAC|Lossless|WEB-DL|tracks] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198705.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Sandra - Stop For A Minute (Maxi-Singles Collection) (2023) [FLAC|Lossless|image
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198673.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Analog '82 - Sunsets and Memories (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwav
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197265.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Gunsta Sessions - Vol. 2 (2008) [MP3|320 kbps]<Drum&Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197220.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ John B - Live At 7years Jungle Club Freiburg (28 Ноября 2008) [MP3|192 Kbp
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_197204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_197204.jpg" />
 </div>
 
 
@@ -496,7 +612,7 @@ DJ Грув - Белый альбом (2007) [FLAC|946 kbps]<Electronic, Downtem
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197197.jpg" />
 </div>
 
 
@@ -525,7 +641,7 @@ John B - To Russia With Love (2008) [MP3|320 kbps]<Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197191.jpg" />
 </div>
 
 
@@ -554,7 +670,7 @@ DJ Грув - ЯД (2007) [FLAC|1072 kbps]<Electronic, House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197044.jpg" />
 </div>
 
 
@@ -583,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197033.jpg" />
 </div>
 
 
@@ -612,7 +728,7 @@ Stim Axel - На Радиоволнах... (2008) [MP3|320 Kbps] <Drum & Bass, V
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197031.jpg" />
 </div>
 
 
@@ -626,119 +742,6 @@ Stim Axel - На Радиоволнах... (2008) [MP3|320 Kbps] <Drum & Bass, V
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:794FE22CA8292907AE1B411F8050836764EB2C0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 179290   (197025) от 14.06.2023
-
-VA - Pirate Station X [Mixed by DJ Gvozd] (26.02.2010) [MP3|320 kbps]<Drum'n'Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Implex And Enei - Lightyers (Respect002 12" Promo)
-02. Mc Jackes Ft. Tc - All About
-03. Adam F + Dj Fresh - When The Sun Goes Down (Commix Rmx)
-04. Subwave - First Time(   Читать дальше...   )Жанр: Drum'n'BassПродолжительность: 01:50:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D8818590CE445289A877411492B4078A92276D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 285561   (197023) от 14.06.2023
-
-Stim Axel - AcousticA (2010) [MP3|320 kbps]<Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 -Жанр: Drum & BassПродолжительность: 01:01:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:300F5B20F18909A79879C7C3747D99DF3FFB20F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 57142   (197019) от 14.06.2023
-
-Aphrodite - Break In Reality (2007)
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jungle Intro
-02. Criss Cross
-03. Holding On
-04. PK Interlude(   Читать дальше...   )Жанр: Drum'n'Bass(Jump Up)/Jungle/Hip-HopПродолжительность: 1:19:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1862E6D9530DCC12DB15EEB11AA375763823AD66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 14224   (197015) от 14.06.2023
-
-Stim Axel - Тишина (2006) [MP3|320 Kbps] <Drum & Bass, Vocal>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_197015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stim Axel - Без Тебя
-02. Stim Axel - Твои Глаза
-03. Stim Axel - Тишина
-04. Stim Axel - Ностальгия(   Читать дальше...   )Жанр: Electronic, Drum'n'BassПродолжительность: 49:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F09700A417F65D095B5828FE69F56B220801623A
 ```
 
 https://mybot314.ru/tekegram_catalog/

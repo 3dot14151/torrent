@@ -1,51 +1,25 @@
-###  Публикация: 983036   (942248) от 07.02.2016
+###  Публикация: 1092264   (940265) от 11.01.2017
 
-Johnny Beast - Special Selection 0102 (2016) [MP3|320 кб/с] <House, Club House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942248.jpg" />
-</div>
-
-
-###  Подробнее
-
-N/AЖанр: House, Club HouseПродолжительность: 01:22:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3F00CD11871C30F2501CE2EA9B814552F14D77D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983632   (942245) от 07.02.2016
-
-Car-Man - 2 album (1992, 1994) [MP3|320 кб/с] <Eurodisco, Electro-Pop, Techno>
+VA - 30 Stars: Chillout (2016)2CD [FLAC|Lossless|tracks] <Chillout>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940265.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Чио-Чио-Сан 05:00
-02. Эй, ухнем 04:20
-03. Дели 04:59
-04. Знойный Истамбул 03:58(   Читать дальше...   )Жанр: Eurodisco, Electro-Pop, TechnoПродолжительность: 00:47:07
+01 Pharrell Williams - Gust Of Wind [04:45]
+02 Leon Bridges - River [03:59]
+03 MO Feat. Diplo - XXX 88 [03:41]
+04 Groove Armada - At The River [03:04](   Читать дальше...   )Жанр: ChilloutПродолжительность: 01:57:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C5869C9164B4165A07D51F74A16A3DD18167F7C4
+magnet:?xt=urn:btih:A5CEFAE00708C20A08B5E79BF97DED818D453433
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 983039   (942244) от 07.02.2016
+###  Публикация: 1091801   (940263) от 11.01.2017
 
-Johnny Beast - Special Selection 0103 (2016) [MP3|320 кб/с] <Electro House, Dutch House>
+Marinah & Chicuelo - Sintonias (2016) [FLAC|Lossless|tracks + .cue] <Flamenco, Latin, World Music>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940263.jpg" />
 </div>
 
 
 ###  Подробнее
 
-N/AЖанр: Electro House, Dutch HouseПродолжительность: 01:34:38
+01. Afrobeat (6:28)
+02. Bajo La Luna (4:44)
+03. Dos Bailes (5:32)
+04. Arbole (5:48)(   Читать дальше...   )Жанр: Flamenco, Latin, World MusicПродолжительность: 00:47:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8CBB32DA6A62FA3912CFAD1CAEA16BC82FA5E87B
+magnet:?xt=urn:btih:A577B9A3723CFEDEA05080B66A9465962EDD9C9D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,26 +56,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 983591   (942237) от 07.02.2016
+###  Публикация: 1092115   (940249) от 11.01.2017
 
-Антивирусные базы Qihoo 360 (Bitdefender) от 2016.02.06 [En]
+Журнал | Дачные советы Галины Старосельцевой №1 (январь 2017) [PDF]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940249.jpg" />
 </div>
 
 
 ###  Подробнее
 
-360 Total Security и 360 Total Security Essential - бесплатные антивирусы с облачной и проактивной защитой - 360 Cloud и QVM II, а также дополнительными локальным движком Bitdefender для эффективной онлайн и оффлайн защиты от всех угроз.
-Антивирусные базы 360 Total Security для Windows позволяют обновлять локальные движок Bitdefender на компьютерах, не подключенных (   Читать дальше...   )Язык интерфейса: Английский
+Старосельцева Галина Константиновна — автор и ведущая популярной в Самаре и Самарской области передачи «Дачные советы с Галиной Старосельцевой». Программа выходит с 2000г. Спустя 10 лет в июне 2010 года «Дачные советы» увидела вся область благодаря переходу на канал «Губерния». Галина Старосельцева не только ведущая телепередачи, но и практик-энтузиаст с большим (   Читать дальше...   )Жанр: Дом, сад, огород, дачаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BE38FA7099D645F77F0BF0186DC1AE8DD39E9C87
+magnet:?xt=urn:btih:8AB16FA6A324459A2D667F9361EFE6B743BD98CF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -106,189 +82,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363249   (942222) от 28.02.2020
+###  Публикация: 1092416   (940248) от 11.01.2017
 
-Fox Stevenson - Killjoy (2019) [FLAC|Lossless|WEB-DL|tracks] <Drum'n'Bass, Dubstep, Downtempo>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942222.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Out My Head [03:46]
-2. Killjoy [02:47]
-3. Broken Man [03:07]
-4. Okay [02:51](   Читать дальше...   )Жанр: Drum'n'Bass, Dubstep, DowntempoПродолжительность: 00:46:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC578D854FDAA2888661CD9A3077349F7DC4BA28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363596   (942214) от 28.02.2020
-
-Android Studio 3.6 Build #AI-192.7142.36.36.6200805 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942214.jpg" />
-</div>
-
-
-###  Подробнее
-
-Android Studio предоставляет быстрые инструменты для создания приложений на все типы Android устройств.
-Редактирование кода, отладка, инструменты оптимизации мирового уровня, гибкая система сборки, и система мгновенной сборки/развёртывания позволят вам сфокусироваться на построении уникальных и высококачественных приложений.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73E565044053745E7DB18A0C19A2C3CDC9268AC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363554   (942213) от 28.02.2020
-
-LosslessCut 3.11.0 Portable (x64) [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942213.jpg" />
-</div>
-
-
-###  Подробнее
-
-LosslessCut — простой видеоредактор для нарезки медиафайлов без потери качества. Не делает никакого декодирования/кодирования и поэтому работает чрезвычайно быстро. Вырезанный фрагмент мгновенно появляется рядом с исходником. Делает слияние выбранных сегментов и слияние произвольных файлов (с одинаковыми кодеками) без потерь. Извлекает без потерь видео, аудио и субтитры. (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC08AD39C44674082CEB854AA92CF85C9D6F91BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363462   (942211) от 28.02.2020
-
-FontViewOK 5.61 + Portable (x86/x64) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942211.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами крошечная программа, которая после запуска отобразит пользователю все установленные в его операционной системе шрифты, и конечно вы сможете с ними работать. Особенность программы, позволяющая вводить любой текст в специальное отведенное поле и сразу просматривать результат, то есть сразу будет видно, как набранное слово будет смотреться в том или ином (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA892A8B46891582EE26F6995C820E2F76DDD123
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363415   (942210) от 28.02.2020
-
-Directory Lister 2.40 Enterprise Edition RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942210.jpg" />
-</div>
-
-
-###  Подробнее
-
-Directory Lister Pro - полезная программа, которая позволяет выводить список файлов из выбранных папок или целых дисков. Программа имеет множество настроек по информации, отображаемой в выводимом списке: размеры файлов, дата создания и последнего изменения, тип файла, расположение файла, атрибуты, хеш-суммы (MD5, CRC32, SHA-1, Whirlpool) и т.п.
-Для мультимедиа файлов (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5090B102DCDBCAD159E3AFFB9F9DF75FAE506837
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363599   (942207) от 28.02.2020
-
-Рождество на двоих / Last Christmas (2019) BDRip [H.264/1080p]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кейт работает в магазине рождественских товаров, злоупотребляет выпивкой и давно бросила переживать из-за собственной жизни. Но всё меняется после знакомства с милым и очаровательным Томом.Производство: США, Великобритания / Calamity Films, Feigco Entertainment, Perfect World PicturesЖанр: Драма, мелодрама, комедияРежиссер: Пол ФигАктеры: Эмилия Кларк, Генри Голдинг, Мишель Йео, Эмма Томпсон, Ребекка Рут, Лидия Леонард, Пэтти ЛюПон, Мэдисон Инголдсби, Борис Исакович, Люси МиллерПеревод: Дублированный | iTunesСубтитры: Русские (Forced, full), английскиеПродолжительность: 01:42:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C7E2B59EA07A4DAEAA9B89CB579871730FE88F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983844   (942200) от 07.02.2016
-
-Destruction - Inventor Of Evil (2005) 2011, High Roller Records [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Thrash Metal>
+Ocean Shiver - Forever and the Earth (2009) [FLAC|Lossless|Web-DL|tracks] <Downtempo, Acid Jazz, Ambient>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940248.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Soul Collector
-02 - The Defiance Will Remain
-03 - The Alliance Of Hellhoundz
-04 - No Mands Land(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:04:18
+Музыка Ocean Shiver – завораживающий сплав из электроники, этнических мотивов и пост-роковых элементов. Это музыка космоса, созданная с помощью доисторических синтезаторов, современных компьютерных технологий, электрогитары и богатой живой фантазии. Глубокая и вдумчивая, она тем не менее не страдает излишней серьезностью. Иными словами, это просто красивая и качественная (   Читать дальше...   )01. Midnightmare (3:46)
+02. Forever and the Earth (4:25)
+03. Long, long way to nowhere (5:22)
+04. Solitude of the time (3:44)(   Читать дальше...   )Жанр: Downtempo, Acid Jazz, AmbientПродолжительность: 00:34:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0DBFC4A39C091BA49C2BBAFB5AF9A6EB6F526E08
+magnet:?xt=urn:btih:CEABA3C7B8ACC74C1FFB4B5F2DE0AE52B7AC4D63
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -296,28 +111,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 983681   (942187) от 07.02.2016
+###  Публикация: 1092250   (940239) от 11.01.2017
 
-Autumn of Communion - Polydeuces (2016) ...txt [FLAC|Lossless|WEB-DL|tracks] <Ambient, Psybient, Dark Ambient>
+Imba - First Encounter (2016) [MP3|320 Kbps] <Psy-Trance,Goa Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940239.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Oort Cloud (13:07)
-02. Cassini Spacecraft (08:52)
-03. Tectonics (11:35)
-04. Sikhote-Alin Mountains (10:17)(   Читать дальше...   )Жанр: Ambient, Psybient, Dark AmbientПродолжительность: 00:59:42
+01. Imba – Imbaba & 303 Trancers
+02. Imba – Hidden Paradise
+03. Imba – Cosmos In Her Eyes
+04. Imba – First Encounter(   Читать дальше...   )Жанр: Psy-Trance,Goa TranceПродолжительность: 01:19:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2E7E239E794D6D80258A85F20FB39BC8DD050414
+magnet:?xt=urn:btih:29916681C1BE2ADB0482DBB57DF034E6EACBEF95
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -325,87 +140,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 174938   (942181) от 13.02.2010
+###  Публикация: 1092333   (940238) от 11.01.2017
 
-Законник / Lawman (сезон 1, эпизод 01) (2009) SATRip
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942181.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ток-шоу, выполненное в развлекательном стиле, повествует об обыкновенных и не очень днях в американской полиции. Единственное но — в качестве главного героя выступает Стивен Сигал, который является в настоящей жизни инструктором по восточным единоборствам в полицейском отделении штата Луизиана.
-Подборка сюжетов покажет реальную жизнь полицейских, их способы достижения справедливости и поставки правосудия даже в исковерканные правовым нигилизмом и преступностью отдалённые районы. Сигал же активно участвует практически в каждой операции, добросовестно выполняя все функции обыкновенного копа, не взирая на свой актёрский «титул» и не давая себе никаких поблажек…Жанр: Детектив, Короткометражный, Реальное ТВРежиссер: Джеффри РейнерАктеры: Стивен Сигал, Ларри Диэс, Джонни Фортунато, Ньюэлл НорманПеревод: Одноголосый закадровыйПродолжительность: 00:21:29
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 175330   (942179) от 13.02.2010
-
-PDF-XChange Viewer Pro v2.046 Multilingual
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942179.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDF-XChange Viewer PRO - удобная, красивая, более быстрая и более функциональная замена неповоротливому Adobe Acrobat Reader,а так же Foxit. С помощью PDF-XChange Viewer можно смотреть и печатать PDF документы, экспортировать из них текст и графику, создавать всплывающие подсказки, добавлять комментарии, делать пометки и многое другое. Из интересных особенностей можно назвать возможность заполнения форм без необходимости перехода в режим набора текста и функцию экспорта страниц или всего документа в графические файлы BMP, JPEG, TIFF, PNG и др.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 282786   (942173) от 16.01.2011
-
-VA - House Vip [11.01.2011] (2011) [MP3|320 kbps]<Electro House>
+Рената Скотто - Арии из опер (G. Puccini, A. Catalani, F. Cilea, P. Mascagni) (1977) [WavPack|192/32|tracks|Vinyl-Rip] <Classical, Opera>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940238.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Daniel Fox Ft. StarrBright - Sehzihno (Original Mix) (5:56)
-2. DJ IgRock - BasSound (Dub Mix) (6:01)
-3. Eric Tyrell De Vox - Only Love Can Set Us Free (Gianni Kosta Remix) (5:45)
-4. Far East Movement feat. The Cataracs & Dev - Like A G6 (Disco Fries Club Mix) (5:34)
-5. Like A G6 (DJ Nejtrino & DJ Baur Booty Mix) (4:52)
-6. House Clap feat Max C - On & On (David Puentez & Hanna Hansen Remix) (6:59)
-7. Rocket - Hello Hares (Original mix) (4:40)
-8. Sir Colin - Roxane (Thomas Vest Private Remix) (4:35)
-9. Steve Aoki & Sidney Samson - Wake Up Call (Mustard Pimp Remix) (4:38 )
-10. Trash Junk - 2 Buckets With Faces (Original Mix) (5:34)Жанр: Electro HouseПродолжительность: 00:54:37
+Сторона 1
+Дж. Пуччини
+01. Ария Анны - Виллисы, 1 д.  5:10
+02. Ария Манон - Манон Леско, 2 д.  2:26(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 00:41:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FC464FDBCE20FAEF18E4217914F763E8B5061591
+magnet:?xt=urn:btih:D27999D49E00F99998E786DC4540CC515BC5B5CF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -413,183 +169,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363507   (942150) от 28.02.2020
+###  Публикация: 983207   (940233) от 08.02.2016
 
-Malwarebytes AdwCleaner 8.0.2.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942150.jpg" />
-</div>
-
-
-###  Подробнее
-
-AdwCleaner - программа, которая ищет и удаляет рекламное ПО в веб-браузере, панели инструментов, потенциально нежелательные программы (PUP) и hijacker-утилиты с вашего компьютера. С помощью AdwCleaner вы можете легко удалить многие из этих типов программ для спокойной работы на вашем компьютере и в Интернете.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF191E0799E72A71FA16F0896145C86DE3D1F595
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363394   (942148) от 28.02.2020
-
-LibreOffice 6.4.1.2 Stable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942148.jpg" />
-</div>
-
-
-###  Подробнее
-
-LibreOffice - офисный пакет с открытым исходным кодом, являющийся ответвлением от проекта OpenOffice.org и претендующий на роль бесплатной альтернативы пакету офисных приложений Microsoft Office. В состав программы входят текстовый редактор Writer, табличный процессор Calc, мастер презентаций Impress, векторный графический редактор Draw, редактор формул Math и модуль (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33A8CBCC0C95DCB8E05A38B91EAC592CE4C6D867
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363594   (942147) от 28.02.2020
-
-DMG Audio - All Plugins 2020.02.27 VST, VST3, AAX, RTAS (x86/x64) [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942147.jpg" />
-</div>
-
-
-###  Подробнее
-
-DMG Audio All Plugins - набор высококачественных плагинов для работы со звуком, которые помогут выполнять практически любые музыкальные задачи сведения и мастеринга при низком потреблении ресурсов.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61DF6FD7BDA8893CEB28AA49BBE0783A973E4065
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363360   (942145) от 28.02.2020
-
-Mood Messenger SMS и MMS v1,87k [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mood – самая красивая и удобная программа для обмена SMS-сообщениями из всех, что когда-либо существовали. Устали от стандартного приложения от Android? Mood откроет для вас мир общения заново! Простой, быстрый и эффективный, он заменит ваше стандартное SMS-приложение, радуя вас уникальными функциями и контентом.Тип издания: Пиратка (Разблокирован Premium)Релиз состоялся: 06.02.2020Разработчик: Mad SevenПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5918209178740E8885A7FF38097A31723B1BD6C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363575   (942137) от 28.02.2020
-
-Clonezilla Live (stable) 2.6.4-10 [i686, i686-pae, amd64] 3xCD
-
->>Архив торрентов
->>Архив *Nix
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доступна очередная стабильная сборка Clonezilla Live – выполненного на базе Debian GNU/Linux специализированного Live CD, предназначенного для клонирования жёстких дисков или отдельных разделов, а также для создания резервных копий и аварийного восстановления системы.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58F3DFAD67A219B1175ABA5C668D569FEC21B33F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983675   (942128) от 07.02.2016
-
-SlimBrowser 7.00 Build 137 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942128.jpg" />
-</div>
-
-
-###  Подробнее
-
-Браузер на основе движка Trident, обладающий большим количеством полезных возможностей. В частности в SlimBrowser встроен настраиваемый блокиратор всплывающих окон, инструмент автозаполнения форм, менеджер паролей, присутствует возможность «на лету» исправлять ошибки в скриптах. Имеются опции контроля за загружаемым контентом: графикой, анимацией, звуками и т.д.Язык интерфейса: Русский, Английский, др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A627DBECE0424F402EABC86CF82F4B906D23B75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984052   (942124) от 07.02.2016
-
-VA - Imminent Collection (2016) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Future Garage, Chillwave, Bass, Ambient>
+Calyx & Teebee - Anatomy (2007) [FLAC|Lossless|tracks + .cue] <Drum & Bass, Neurofunk>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940233.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Broken. - Everything (03:53)
- 02. Twisted Psykie - This Place Is My Sanctuary (06:53)
- 03.Тип издания: WEB, Compilation |Жанр: Downtempo, Future Garage, Chillwave, Bass, Ambient |Продолжительность: 02:21:59 |
+01. The Divide (6:06)
+02. Dual Processed (feat. MC Verse) (5:23)
+03. Make Your Choice (5:22)
+04. All That Remains (5:51)(   Читать дальше...   )Жанр: Drum & Bass, NeurofunkПродолжительность: 00:58:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C5BD5A6D7D04756D61711206FE3F66E01C339F6C
+magnet:?xt=urn:btih:95A04695842775900ACC5F6EC21E5E905E5DAE7C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -597,28 +198,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 981903   (942119) от 07.02.2016
+###  Публикация: 1092269   (940229) от 11.01.2017
 
-Brett - On Account of Your Love (2015) Japanese Edition (EP) [FLAC|Lossless|tracks + .cue] <Synthpop, Indietronic>
+VidCoder 2.44 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940229.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный видеоконвертер с многопоточной и пакетной обработкой файлов. В состав программы входит несколько фильтров, возможен предварительный просмотр видео. VidCoder позволяет настраивать качество итоговых файлов по ряду параметров: битрейту, размеру и т.п. Также есть несколько готовых наборов настроек для оптимизации видео под возможности мобильных устройств.Язык интерфейса: Русский, Английский, др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27DF2CC8F349668CC768CBAE864D55ED16F7E74E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092268   (940227) от 11.01.2017
+
+t_error 404 - Vajrabhairava GO (2017) [FLAC|Lossless|WEB-DL|tracks] <Rhythmic Noise, Techno, Tribal, EBM, Industrial>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940227.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Street Cleaning
-02. On Account of Your Love
-03. Favours
-04. Cost(   Читать дальше...   )Жанр: Synthpop, IndietronicПродолжительность: 00:34:15
+01. Doi Suthep (05:14)
+02. Dhammakaya Corporation (04:12)
+03. Vajrabhairava (06:00)
+04. Dharma Resonance (07:30)(   Читать дальше...   )Жанр: Rhythmic Noise, Techno, Tribal, EBM, IndustrialПродолжительность: 01:29:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C4FEB5DDE5BC0AFBFB5E099B2978D314E4A1A405
+magnet:?xt=urn:btih:6382CFC02A3486EB943B184E0E2772C728A4A117
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -626,28 +253,52 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 983943   (942116) от 07.02.2016
+###  Публикация: 984244   (940213) от 08.02.2016
 
-Image2icon - Make your own icons 2.4 [En]
+Однажды в России. Сезон 2. Выпуск 24 (2016.02.07) DVB [H.264]
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шоу «Однажды в России», как и многие проекты ТНТ, имеет оригинальный формат. Это будет «реальный театр». То есть заранее написанный сценарий герой шоу «Однажды в России» постарается воплотить в повседневной жизни. А это совсем не так просто, как может показаться сначала, но зато очень смешно. Передача построена на чередовании скетчей. Создатели «Однажды в России» (   Читать дальше...   )Производство: РоссияТелекомпания: ТНТЖанр: Юмористическое тв-шоуПродолжительность: 00:46:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDBAD4ACB84F0396707747CD2ED403031B3096F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984274   (940211) от 08.02.2016
+
+Dash 3.2.2 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940211.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Image2icon - приложение для создания  и персонализация иконок из ваших изображений
-
-Устали от ваших стандартных иконок Mac?
-Хотите, персонализировать свои файлы или папки?(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 21.01.2016Разработчик: Shiny Frog di Matteo Rattotti & C. S.N.C. All rights reserved.Поддерживаемая ОС: OS X 10.9 и вышеЯзык интерфейса: Английский
+Dash  - браузер документации и примеров кода
+Dash - очень удобное приложение, включающее в себя браузер API документации и примеров фрагментов кода с возможностью поиска, для языков, сред программирования и баз данных.  Dash уже содержит более 150-ти пакетов документации и есть несколько способов добавить свои: оставить запрос разработчику, сгенерировать доксет, ну (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 февраля 2016Разработчик: Bogdan PopescuПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:62C36AECA3332AD2CCCEB3A236A1FE371DC63152
+magnet:?xt=urn:btih:1F96163811398A3F1F64EDBC0B6D33F3D9EC0935
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -655,60 +306,412 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 983823   (942114) от 07.02.2016
+###  Публикация: 283733   (940193) от 17.01.2011
 
-Don't Sleep 3.83 Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Портативная бесплатная утилита, которая временно может отключить настройки электропитания. Можно выбрать, что именно отключать - хранитель экрана, режим гибернации, блокировку рабочего стола. Также программа позволяет отсчитывать время, которое предоставляется компьютеру для работы без настроек питания, а после сможет выключить, заблокировать компьютер или отправить (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C404D080270AF32940CCFFBF67B41687854833CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 282211   (942100) от 16.01.2011
-
-VA - Dance 2011 (2010) [MP3|192-320 kbps]<House>
+Yarik-Ecuador - Melodies of the heart Native (2008) [MP3|320 kbps]<New age, Ethnic>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940193.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fedde Le Grand feat. Mitch Crown - Rockinґ High (Benny Benassi Remix)
-02. Kaiserdisco - Jaana (Original)
-03. Greg Parys - Why Donґt We Just Fuck (D.Flush Remix)
-04. Alex M. - I Believe (Alex M. Vs. Mvd ElectroClub Mix)
-05. Liviu Hodor Feat. Tara - Happy For You (Deepcentral Remix)
-06. Chris Bernhardt - Miami Nights (Club Mix)
-07. Max Farenthide - Happy People (Bernasconi & Farenthide Club Mix)
-08. Pulsedriver - Lookout Weekend (Extended Mix)
-09. Samantha Vs. Sabrina - Call Me (Nigel Neptune Mix)
-10. Moff Feat. Leilani - Weekend Is Over (Edington RMX)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:32:00
+1. Qarwa yaku                                 06:08
+2. Buffalo whuite                              05:19
+3. Akuchimay                                    05:15
+4. Rain dance                                   04:50
+5. Mohicans                                      04:48
+6. Wayarapamuspuynin                   06:21
+7. Ananau                                        05:11
+8. Sunquyman                                  06:12
+9. Tatanka                                       05:13
+10. Clouds of sunset                        05:06(   Читать дальше...)Жанр: New age, EthnicПродолжительность: 01:16:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6AE9055A17D7F582307EB06744397B4EB62C47C7
+magnet:?xt=urn:btih:FAE61EB4DA445DF1CC140603F38E6E870C6BFC93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 627458   (940177) от 08.03.2013
+
+Журнал | Любимая дача. Спецвыпуск №3 [апрель 2013] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940177.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специальные выпуски журнала «Любимая дача» — это красочные издания, полные интересных идей и практических советов, касающихся строительства, благоустройства дачи или участка. Они охватывают круг тем, близких разным поколениям дачников. Материалы представлены в виде статей, рекомендаций специалистов, пошаговых фотографий и схем.
+Тема номера: цветочная дача.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBB7124A078F65DA7E106B84EBF57B9D094B499A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982908   (940168) от 08.02.2016
+
+VA - СОЮЗ Пионерский № 2 (2010) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Леприконсы - Хали - Гали, Паратруппер
+02. Татьяна Буланова - Мой Ненаглядный
+03. Алёна Апина - Электричка
+04. Любовь Успенская - Карусель(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8DEB72CBFA773064AEFE4A7BA967A43ABE50E13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984287   (940167) от 08.02.2016
+
+VA - 250 Our Best (2016) [MP3|320 кб/с] <Minimal, Funky, Tech House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrea Mattioli - Screamer (Original Mix) 06:58
+02. Stefano Kosa - Flashback (Original Mix) 06:54
+03. Stefano Kosa - Holiday (Original Mix) 06:58
+04. Flex - Amazonia (Original Mix) 07:16(   Читать дальше...   )Жанр: Minimal, Funky, Tech HouseПродолжительность: 03:03:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC75F95A94C3E770AF74864385318452669A2205
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984167   (940151) от 08.02.2016
+
+Alternate Password DB 2.210 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alternate Password DB - небольшая, бесплатная и простая в работе программа для хранения паролей и PIN-кодов. Она запомнит все Ваши пароли, а Вам надо будет знать всего один единственный, который требуется для запуска, чтобы никто, кроме Вас, не смог посмотреть конфедициальные данные. Пароли шифруются алгоритмом Blowfish 256 bit. В программу встроен генератор паролей. (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBC9A0196EA39DC364D200AD0D4B6535D593D194
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092059   (940127) от 11.01.2017
+
+Wondershare Data Recovery 3.7.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ваши данные Mac спасены, быстро, безопасно и надежно!
+Независимо от того, был ли он удален, отформатирован или недоступен по иным причинам, все, что вам нужно, это Wondershare Data Recovery для Mac!
+
+Восстановление утерянных фотографий, видео, документов, электронных писем и архивных файлов с любого жесткого диска Mac или внешнего жесткого диска, IPod, USB диска, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2016Разработчик: WondershareПоддерживаемая ОС: 10.6+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:087A9EF4C3C4F7F84A04C3AE2B8AC082DCDAF3A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092273   (940126) от 11.01.2017
+
+Журнал | Авиаколлекция №5 (2016) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940126.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение к журналу «Моделист-конструктор». Специализированный журнал для любителей истории авиации и авиамоделистов. Каждый выпуск - это мини-монография об отечественной или иностранной конструкции летательных аппаратах. Каждый выпуск содержит информацию об истории создания самолета или вертолета, его серийном производстве, модификациях, эксплуатации, боевом применении (   Читать дальше...   )Жанр: История авиации и мини-монографииФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29AB24046EC925051F50918417BF1D18F7097828
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092052   (940124) от 11.01.2017
+
+K-Lite Codec Pack Update 12.7.8 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940124.jpg" />
+</div>
+
+
+###  Подробнее
+
+K-Lite Codec Pack - в различных вариантах содержит все самые популярные кодеки для проигрывания и кодирования видео (кроме версии Basic). QuickTime Alternative и Real Alternative являются дополнительными пакетами для проигрывания соответственных форматов и содержат основные компоненты от официальных проигрывателей.
+Update это обновление применимо для всех пакетов (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A3E90CEFE8ADC69A15EDD156D2150C66B3D3D8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983671   (940089) от 08.02.2016
+
+xrecode II 1.0.0.229 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940089.jpg" />
+</div>
+
+
+###  Подробнее
+
+xrecode II - популярный и мощный аудио конвертер, обладающий удобным «drag and drop»-интерфейсом и поддерживающий большинство распространённых форматов, который позволяет быстро и без особого труда преобразовывать аудио-данные. Поддерживается извлечение аудио дорожки из видео файлов и граббинг многоканальных Audio CD. Возможность создания одного большого аудио файла (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC4E8DC64965FCF9D17464F0811DBFE0E841BCE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984337   (940081) от 08.02.2016
+
+USDownloader 1.3.5.9 (08.02.2016) Portable [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940081.jpg" />
+</div>
+
+
+###  Подробнее
+
+Universal Share Downloader - это программа для скачивания файлов. В первую очередь оптимизирована под скачивание (в том числе полностью автоматическое) с различных файлообменных серверов типа rаpidshаrе.cоm, LetitBit, Deposit и прочих, сайтов с видео YouTube.com, RuTube.com и прочих. Universal Share Downloader поддерживает более 120! Вам достаточно добавить в программу (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DBCAF9E38D8731B2B1A78A1CD36E54B93334A65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984243   (940074) от 08.02.2016
+
+Однажды в России. Сезон 2. Выпуск 24 (2016.02.07) SATRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Россия - богатейшая страна, в которой много нефти, газа и проблем. ТВ-Шоу на ТНТ "Однажды в России" не решает ни одной из них. Оно над ними смеется. Участники шоу разыгрывают скетчи на сцене перед зрителями. Их снимают камеры. Это шоу - реальное театральное действие, совмещенное с кинопроизводством.Производство: РоссияТелекомпания: ТНТЖанр: Юмористическое тв-шоуПродолжительность: 00:43:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03160F2011D2E7A9699BFA90660CE680AEB51B3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984359   (940064) от 08.02.2016
+
+SRWare Iron 48.0.2550.0 DC 08.02.16 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940064.jpg" />
+</div>
+
+
+###  Подробнее
+
+Безопасный, удобный и быстрый в работе браузер на основе исходного кода проекта Chromium. Обладая интерфейсом и многими функциями, знакомыми пользователям по Google Chrome, SRWare Iron отличается своей политикой по отношению к безопасности и конфиденциальности. В нем отсутствуют какие-либо «следящие» модули, в чем неоднократно обвинялся браузер от Google.Язык интерфейса: Русский, Английский, др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAB29E3DD99C2577E72EC67D2559072CE1774886
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 752995   (940060) от 03.02.2014
+
+Framework - Untold Stories (2013) [FLAC|Lossless]<EBM, Electro, Industrial>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Non Ho Sonno (04:16)
+ 02. Sinners (03:52)
+ 03. Scene Of Crime (04:44)
+ 04. Mayhem (06:30)(   Читать дальше...   )Жанр: EBM, Electro, IndustrialПродолжительность: 01:09:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6240DD26538C1754348BD5BE60D052C82E190BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091236   (940058) от 11.01.2017
+
+Живой труп (1968) DVDRip
+
+>>Архив торрентов
+>>Архив Классики кино и Старых фильмов до 90-х
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Драма по одноименной неоконченной пьесе Льва Толстого.Федор Протасов уходит из дома, предпочитая общество цыган и их песни, особенно молодой цыганки Маши. Он искренне верит, что его жена Лиза будет счастливее с их давним другом, положительным и надежным Виктором Карениным - но не с ним, непутевым пьяницей. Но никто из троих не в силах решиться на развод - ведь кому-то (   Читать дальше...   )Производство: СССР, ЛенфильмЖанр: ДрамаРежиссер: Владимир ВенгеровАктеры: Алексей Баталов, Алла Демидова, Олег Басилашвили, Иннокентий Смоктуновский, Елена Черная, Софья Пилявская, Евгений Кузнецов, Светлана Тома, Олег Борисов, Николай БоярскийЯзык субтитров: русские, английскиеПродолжительность: 02:14:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C7257FC3C7F056DF07ACBBE08FDC154A7249BB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 753019   (940053) от 03.02.2014
+
+Журнал | Electronics For You №2 (февраль 2014) [PDF] [En]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это журнал для читателей, интересующихся электроникой и техникой. Впервые был выпущен в 1969 году. В нем широко представлены обзоры лучших образцов электронной продукции, сравнения аппаратного и программного обеспечения, новости электронной техники, компьютерного оборудования, источников питания, радиоэлектронных компонентов, цифровых устройствФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF7B4FD30544BBA152D1B133C3805D161F6B50E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

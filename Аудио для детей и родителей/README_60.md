@@ -1,3 +1,32 @@
+###  Публикация: 431014   (348396) от 24.10.2020
+
+ТВИК - Классическая музыка детям: Популярные танцы (2007) [MP3|320 kbps]<классическая танцевальная музыка>
+
+>>Аудио для детей и родителей
+>>Классика для мам и малышей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348396.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Танго
+2. Чарльстон
+3. Слоу-фокс
+4. Венский вальс(   Читать дальше...   )Жанр: классическая танцевальная музыкаПродолжительность: 00:56:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6A371271C5DA2DC30B92561AFB47288B1463B40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 550927   (348391) от 24.10.2020
 
 VA - Волшебные голоса природы: Малыш в саду (2009) [MP3|320 kbps] <Классика детям, релакс>
@@ -6,7 +35,7 @@ VA - Волшебные голоса природы: Малыш в саду (200
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348391.jpg" />
 </div>
 
 
@@ -41,7 +70,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348250.jpg" />
 </div>
 
 
@@ -70,7 +99,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348115.jpg" />
 </div>
 
 
@@ -96,7 +125,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348071.jpg" />
 </div>
 
 
@@ -124,7 +153,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347521.jpg" />
 </div>
 
 
@@ -150,7 +179,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346693.jpg" />
 </div>
 
 
@@ -179,7 +208,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346566.jpg" />
 </div>
 
 
@@ -208,7 +237,7 @@ VA - Кукабарра. Гайтана та діти світла (2008) [MP3|1
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346422.jpg" />
 </div>
 
 
@@ -237,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345582.jpg" />
 </div>
 
 
@@ -265,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344699.jpg" />
 </div>
 
 
@@ -291,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344198.jpg" />
 </div>
 
 
@@ -317,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344087.jpg" />
 </div>
 
 
@@ -343,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342863.jpg" />
 </div>
 
 
@@ -369,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341867.jpg" />
 </div>
 
 
@@ -395,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341762.jpg" />
 </div>
 
 
@@ -422,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_341637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341637.jpg" />
 </div>
 
 
@@ -449,7 +478,7 @@ VA - Детские песни Ладушки (2010) [MP3|320 kbps]<Pop>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340960.jpg" />
 </div>
 
 
@@ -478,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340482.jpg" />
 </div>
 
 
@@ -507,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_340013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340013.jpg" />
 </div>
 
 
@@ -533,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339228.jpg" />
 </div>
 
 
@@ -562,7 +591,7 @@ VA - Детские песни части 1-2 (2007) [MP3|320 kbps]<Песенк
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339195.jpg" />
 </div>
 
 
@@ -591,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_338996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338996.jpg" />
 </div>
 
 
@@ -617,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337692.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337240.jpg" />
 </div>
 
 
@@ -669,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_337232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337232.jpg" />
 </div>
 
 
@@ -680,35 +709,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50BFF3E8C8E79C7B77793DEDA072E09F42B319B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 258652   (336511) от 16.11.2010
-
-А. Усачев - Тридцать три кота (2006) [MP3|256 kbps]<Музыка и песенки детей>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336511.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Кошки – мышки (А.Пинеген, В.Приходько) – 01:56
-2. Стулья и кошка (А.Усачев, А.Пинеген – А.Усачев) – 00:50
-3. Классный кот (А.Пинеген – слова народные) – 2:24
-4. Киса Василиса (А.Пинеген – слова народные) – 01:26(   Читать дальше...   )Жанр: Музыка и песенки детейПродолжительность: 01:08:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E95E7FCE3A91933202BA6636F311D23DC14B0D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

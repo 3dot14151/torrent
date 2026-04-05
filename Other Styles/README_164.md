@@ -1,3 +1,61 @@
+###  Публикация: 1690580   (123806) от 08.01.2024
+
+Deva Premal - Deva (2018) [FLAC|Lossless|tracks + .cue] <Mantras>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seven Chakra Gayatri Mantra
+02. Sarva Mangala
+03. Prabhujee
+04. Buddham Sharanam(   Читать дальше...   )Жанр: MantrasПродолжительность: 01:05:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:406CB4E6BF5E0073021EFB3C4D6327107EB6E4BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690160   (123585) от 10.01.2024
+
+VA - Бременские музыканты (2023) Официальный саундтрек к фильму [FLAC|Lossless|WEB-DL|tracks] <Films/Jeux vidéo / Musiques de films>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Серенада Трубадура. Детство [00:02:21]
+02. Песня маме [00:03:13]
+03. Серенада Трубадура (15 лет) [00:00:17]
+04. Дуэт Короля и Принцессы [00:01:03](   Читать дальше...   )Жанр: Films/Jeux vidéo / Musiques de filmsПродолжительность: 00:37:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEDD3329AD71B2C18C29FA728CD58F02B859D465
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691419   (123315) от 12.01.2024
 
 Борис Гребенщиков - Songs of Clear Light (2024) [FLAC|Lossless|WEB-DL|tracks] <Relax, Meditative>
@@ -6,7 +64,7 @@
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123315.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123311.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Dancing Fantasy - Day Dream (1995) [OGG Vorbis|480 Kbps] <New Age/Meditative/Rel
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122196.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - The Orient Collective: Space Tribe (2024) [FLAC|Lossless|WEB-DL|tracks] <Wo
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122188.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Dancing Fantasy - California Grooves (1991) [OGG Vorbis|480 Kbps] <New Age/Medit
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122164.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Ennio Morricone - Il Grande Silenzio / Un Bellissimo Novembre (1968) Reissue, 20
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121727.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Dj Eroticamila, Ibiza Sexy Chill Beats - Deep Sexual Satisfaction (2023) [FLAC|L
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121723.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Ennio Morricone - 100 Movie Themes Hits/Original Versions - Super Gold (2005) Bo
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121342.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Adult Smooth Jazz: Sax for Sex (2023) [FLAC|Lossless|WEB-DL|tracks] <Instru
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120857.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - There With Me: Intimate Soundtracks for Lovers (2024) [FLAC|Lossless|WEB-DL
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120310.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Paul Mauriat - Amapola (1984) [OGG Vorbis|480 Kbps] <Jazz, Pop, Easy Listening>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119942.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Александр Зацепин. 31 июня (2021) [FLAC|Lossless|tracks
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119829.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Paul Mauriat - White Christmas (1977) Reissue, 1984, Philips [OGG Vorbis|480 Kbp
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119798.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Ashley Ryan - Too Far Gone (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Co
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119780.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Paul Mauriat - Windy (1986) [OGG Vorbis|480 Kbps] <Classical>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119639.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Александр Зацепин. 31 июня (2021) [MP3|320 Kbps] <Sound
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119517.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119484.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Paul Mauriat - Love Sounds Journey (1988) [OGG Vorbis|480 Kbps] <Jazz, Pop, Clas
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119360.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Paul Mauriat - Nagekidori (1987) [OGG Vorbis|480 Kbps] <Jazz, Pop, Easy Listenin
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119359.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Paul Mauriat - Iberia (1990) [OGG Vorbis|480 Kbps] <Jazz, Pop, Easy Listening>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119358.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Paul Mauriat - Souvenirs D'Ete (1984) [OGG Vorbis|480 Kbps] <Jazz, Pop, Classica
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119356.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Paul Mauriat - Bossa Nova Wave (1991) [OGG Vorbis|480 Kbps] <Jazz, Pop, Easy Lis
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119346.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Sex Music Zone - Night Sexual Trap: Erotic Chill Trap Music (2023) [FLAC|Lossles
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118327.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Sensual Piano Jazz: Restaurant Week 2024 (2023) [FLAC|Lossless|WEB-DL|track
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118275.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Sensual Piano Jazz: Restaurant Week 2024 (2023) [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F80CBDB5B5A8B4BCE58736FDF237D23F6B6D131
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698404   (117976) от 12.02.2024
-
-VA - B-Tribe - Inner Meditation Journey (2024) [MP3|320 Kbps] <Native American, New Age, Electro>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. B-Tribe,AH*NEE*MAH,Mohicans,Chillout Cafe,Winds Of Minds,EverLight,Relax Bro - Kindred Spirit [04:51]
-02. B-Tribe,AH*NEE*MAH,Mohicans,Stress Relief Calm Oasis,Majestic Sleep,Binaural Landscapes - Living Your Ending [03:50]
-03. B-Tribe,AH*NEE*MAH,Mohicans,Dormiente,Mellow Line,Relaxing Spa Music - In The Magic Of Cosmos [04:50]
-04. B-Tribe,AH*NEE*MAH,Mohicans,Our (   Читать дальше...   )Жанр: Native American, New Age, ElectroПродолжительность: 00:53:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B57FA0E6525BD18B04FEFDB28E7988C59A0CBF4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699246   (117972) от 12.02.2024
-
-Kevin Costner & Modern West - Untold Truths (2008) [FLAC|Lossless|WEB-DL|tracks] <Pop/Rock,Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117972.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Long Hot Night
-2. 90 Miles an Hour
-3. Hey Man What About You?
-4. Superman 14(   Читать дальше...   )Жанр: Pop/Rock,CountryПродолжительность: 01:01:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97070E0A36822B9C0FDE210AF16A70C3BE4BBE8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

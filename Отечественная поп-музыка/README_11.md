@@ -1,29 +1,3 @@
-###  Публикация: 211566   (696215) от 19.06.2010
-
-Блестящие - 7 альбомов (1997-2006) [MP3|320 kbps]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_696215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 06:07:09
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1403162   (694148) от 18.08.2020
 
 Чёртово колесо инженера Ферриса - Funeral Sex (2020) [MP3|320 Kbps] <Power Pop, Dance Punk>
@@ -32,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694148.jpg" />
 </div>
 
 
@@ -61,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692609.jpg" />
 </div>
 
 
@@ -89,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_692402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_692402.jpg" />
 </div>
 
 
@@ -118,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692098.jpg" />
 </div>
 
 
@@ -147,7 +121,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691253.jpg" />
 </div>
 
 
@@ -176,7 +150,7 @@ VA - Союз 62 (2018) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689043.jpg" />
 </div>
 
 
@@ -205,7 +179,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687344.jpg" />
 </div>
 
 
@@ -234,7 +208,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686097.jpg" />
 </div>
 
 
@@ -263,7 +237,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682887.jpg" />
 </div>
 
 
@@ -298,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680321.jpg" />
 </div>
 
 
@@ -327,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_671699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_671699.jpg" />
 </div>
 
 
@@ -356,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657746.jpg" />
 </div>
 
 
@@ -385,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656673.jpg" />
 </div>
 
 
@@ -414,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656242.jpg" />
 </div>
 
 
@@ -443,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_655734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655734.jpg" />
 </div>
 
 
@@ -472,7 +446,7 @@ Evгеника - ДиДюЛя + Evгеника (2016) Макси-сингл [MP3
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654687.jpg" />
 </div>
 
 
@@ -500,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654546.jpg" />
 </div>
 
 
@@ -526,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654407.jpg" />
 </div>
 
 
@@ -561,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654256.jpg" />
 </div>
 
 
@@ -590,7 +564,7 @@ Emma M (Эмма М) - Штрихкоды (2017) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653998.jpg" />
 </div>
 
 
@@ -619,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653696.jpg" />
 </div>
 
 
@@ -648,7 +622,7 @@ Serebro - Mama Lover (2012) [MP3|320 кб/с]<Pop, Dance>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653117.jpg" />
 </div>
 
 
@@ -683,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649421.jpg" />
 </div>
 
 
@@ -712,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649121.jpg" />
 </div>
 
 
@@ -741,7 +715,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648544.jpg" />
 </div>
 
 
@@ -755,6 +729,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEE276E87666349CCE0D0EEC3381A085476CD209
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032171   (647526) от 06.07.2016
+
+Guru Groove Foundation - Over You (2016) EP [MP3|320 Kbps] <Dancepop, Funk, Neo Soul>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bomb
+02. Over You
+03. As Much As You Say
+04. When HeЖанр: Dancepop, Funk, Neo SoulПродолжительность: 00:16:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:423727F6458B7D8B3CEA82BF18836B14461E94CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

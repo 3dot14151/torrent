@@ -1,3 +1,29 @@
+###  Публикация: 540860   (501887) от 30.08.2012
+
+Desktop Gadgets 1.1 [Мульти, Русский]
+
+>>След.
+>>Разное (прочее ПО)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501887.jpg" />
+</div>
+
+
+###  Подробнее
+
+Desktop Gadgets – в Windows 8 корпорация Microsoft полностью отказалась от использования гаджетов рабочего стола удалив модуль из системы.  Но для многих пользователей они были важным дополнение к системе. Данный патч вернет поддержку гаджетов во все редакции системы Windows 8.Название программы: Desktop GadgetsЯзык интерфейса: Мульти, Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 545915   (478129) от 13.09.2012
 
 Wall Street RоВоt - форекс советник для МТ4/МТ5 4.2 [Eng]
@@ -6,7 +32,7 @@ Wall Street RоВоt - форекс советник для МТ4/МТ5 4.2 [Eng
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478129.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ PowerPlan v3.2e & Trackpad++ v3.5b [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477827.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ TransTrade 2.9 [Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440211.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ KinoScreen 1.1 + Portable [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425068.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_384047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384047.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378869.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ FPS Monitor 5440 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363278.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Ripple Screensaver 3.2 RePack by вовава [Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344130.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296498.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ Sotis 3.11 (07.12.2016) [Multi/Ru] (Обновляемая)
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279802.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ Keyboard Leds 2.7.1 [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278276.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ Clickermann 4.13.014 Portable [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277284.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273177.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ Windows Style Builder (aka Vista Win7 Style Builder) 1.5.6.3 Beta Portable by Xp
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267494.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262515.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ AIO Runtimes 2023 v.1.1 ( MS Visual C++ MS DirectX + DLL/OCX + Trusted Root CA P
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254656.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ EarthView 7.13.14 RePack (& Portable) by elchupacabra [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252575.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250677.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ AltSnap 1.66 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250625.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_248680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_248680.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ AMP Font Viewer 3.86 + Portable [Multi]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244050.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ PeStudio 9.43 Portable [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232967.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ GameMaker 2022.8.1.37 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232958.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ Stardock DeskScapes 8.51 [Multi]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217279.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ Atmosphere Deluxe 7.1 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208715.jpg" />
 </div>
 
 
@@ -652,34 +678,6 @@ Atmosphere Deluxe (   Читать дальше...   )Язык интерфей
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53B47628507B9E83FC16E49717C22009F36DD163
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653713   (205999) от 17.08.2023
-
-Digimizer 6.3.0 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разное (прочее ПО)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Digimizer - это простой в использовании и гибкий программный пакет для анализа изображений, позволяющий проводить как точные ручные измерения, так и автоматическое обнаружение объектов с измерением их характеристик.
-
-Изображения могут представлять собой рентгеновские снимки, микрофотографии и т.д. Поддерживаемые форматы файлов - JPG, GIF, TIFF, BMP, PNG, WMF, EMF (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E988991886F53C11A4A9E3ED431B10515E652D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

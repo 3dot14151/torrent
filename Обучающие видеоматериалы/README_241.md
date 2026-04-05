@@ -1,3 +1,30 @@
+###  Публикация: 1427609   (182661) от 28.11.2020
+
+Udemy, Timur Mashnin | SEO: Введение в поисковую оптимизацию (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182661.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотите понять как основные поисковые системы ранжируют ваш сайт в своих результатах поиска и как привлечь трафик? Научитесь поисковой оптимизации SEO.
+На этом курсе Вы познакомитесь с основными элементами поисковой оптимизации и изучите основные стратегии и тактики SEO для продвижения веб-сайтов, а также тактики, которых следует избегать, чтобы предотвратить наказание (   Читать дальше...   )Производство: UdemyЖанр: SEOПродолжительность: 03:32:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C86E86103A9B464C1354788EB0E8EE118BED7D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 30464   (182647) от 23.11.2022
 
 Обнаженный массаж (Эротический массаж) / Nude Massage
@@ -6,7 +33,7 @@
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_182647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182647.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ Udemy, Кирилл Несмелов | Профессия Ui/Ux веб-диза�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_182570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182570.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ Domestika, Gemma Roman | Adobe Photoshop for Illustration (2022) WEB-DL [ES / ES
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182130.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ Udemy, DevelopIntelligence Team | Node Микросервисы / Node Microserv
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181992.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181915.jpg" />
 </div>
 
 
@@ -140,7 +167,7 @@ Udemy, Dr. Ryan Ahmed и др. | Мастер-класс по современн
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181898.jpg" />
 </div>
 
 
@@ -166,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181759.jpg" />
 </div>
 
 
@@ -192,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181757.jpg" />
 </div>
 
 
@@ -221,7 +248,7 @@ GeekBrains, Андрей Заярный и др. | C#. Базовый и про�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181742.jpg" />
 </div>
 
 
@@ -250,7 +277,7 @@ Merion Academy, Иван Тишин | Администрирование MS Wind
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181729.jpg" />
 </div>
 
 
@@ -278,7 +305,7 @@ itProger, Гоша Дударь | C++. Изучение языка C++, WinForms
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181717.jpg" />
 </div>
 
 
@@ -306,7 +333,7 @@ Skillbox, Алексей Никушин | Аналитика данных на P
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181710.jpg" />
 </div>
 
 
@@ -335,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181459.jpg" />
 </div>
 
 
@@ -364,7 +391,7 @@ Slurm (Слёрм), Иван Чувашов | Оптимизация запро�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181336.jpg" />
 </div>
 
 
@@ -392,7 +419,7 @@ Slurm (Слёрм), Кирилл Борисов | Jenkins: СI/CD для DevOps 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181320.jpg" />
 </div>
 
 
@@ -418,7 +445,7 @@ Slurm (Слёрм), Алексей Барабанов | Rabbit MQ (2022) WEB-DL 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181299.jpg" />
 </div>
 
 
@@ -444,7 +471,7 @@ lectoroom, Елизавета Залегина | Натюрморт «Завтр
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181290.jpg" />
 </div>
 
 
@@ -471,7 +498,7 @@ Gumroad, FlippedNormals, Tim Bergholz | Полное Руководство По
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181249.jpg" />
 </div>
 
 
@@ -498,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181234.jpg" />
 </div>
 
 
@@ -527,7 +554,7 @@ Udemy, Neyamul Hasan, M.Pharm | ChatGPT PROFIT: Complete Passive Income Supremac
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181164.jpg" />
 </div>
 
 
@@ -555,7 +582,7 @@ Stepik, Askarov Workshop | Рисунок карандашом - построе�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181125.jpg" />
 </div>
 
 
@@ -584,7 +611,7 @@ Udemy, VFX 3D Pro | PolyModeling in Houdini (2019) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181115.jpg" />
 </div>
 
 
@@ -613,7 +640,7 @@ OF3D Academy, Ander Alencar | Masterviz (2023) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181084.jpg" />
 </div>
 
 
@@ -642,7 +669,7 @@ Karpov.courses, Александр Сахнов, Валерий Бабушкин
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181048.jpg" />
 </div>
 
 
@@ -671,7 +698,7 @@ Skillbox, Евгений Тонконогий | Иллюстрация на iPad
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181043.jpg" />
 </div>
 
 
@@ -685,33 +712,6 @@ Skillbox, Евгений Тонконогий | Иллюстрация на iPad
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4B80C9487281884CCD064F1131B6D00AC3615A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665803   (180987) от 01.10.2023
-
-Javabegin, Тимур Батыршинов | Базы данных и SQL - с нуля до профи - PostgreSQL (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_180987.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это 3-ий курс из сборника javabegin
-В данном курсе вы пройдете основы работы с базами данных, которые должен знать любой начинающий прикладной разработчик. Все главные принципы создания таблиц, планирования структуры, загрузки тестовых данных и многое другое. Также внимание уделено оптимизации и анализу для нахождения "узких" мест, из-за чего БД может работать (   Читать дальше...   )Производство: JavabeginЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 08:35:00Реклама: Присутствуют наложения на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E1BBAE92C4DB8BFBD25B64BCB96E045E7A8C33A
 ```
 
 https://mybot314.ru/tekegram_catalog/

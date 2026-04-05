@@ -1,3 +1,61 @@
+###  Публикация: 995306   (884258) от 11.03.2016
+
+VA - Romantic Collection-Cinema (1999) [FLAC|Lossless|image + .cue] < Soundtrack, Pop, Ballad>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Un Homme Et Une Femme (Francis Lai)
+02. Love Theme From The Godfather (Nino Rota)
+03. The Windmils Of Your Mind (& His Orchestra) (Henry Mancini)
+04. Love Story (Francis Lai)(   Читать дальше...   )Жанр: Soundtrack, Pop, BalladПродолжительность: 01:17:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD0BBB4E5F55CC9FDB6040C99C673B0FEB4110A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103840   (883190) от 13.02.2017
+
+Tyler Bates & Joel J Richard - John Wick / Джон Уик (Original Motion Picture Soundtrack) (2014) [FLAC|Lossless|tracks + .cue]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Every Ending Has a Beginning (01:31)
+02. Story of Wick (03:05)
+03. John Mourns (02:30)
+04. Assassins (02:12)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:17:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FAD753EA974BE8759E78802CE3D856CA97FEDD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103812   (883016) от 13.02.2017
 
 Tyler Bates & Joel J. Richard - John Wick: Chapter 2 / Джон Уик 2 (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
@@ -6,7 +64,7 @@ Tyler Bates & Joel J. Richard - John Wick: Chapter 2 / Джон Уик 2 (Origin
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883016.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Tyler Bates & Joel J. Richard - John Wick: Chapter 2 / Джон Уик 2 (Origin
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882918.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Govi - Your Lingering Touch: Govi at His Romantic Best (2001) [FLAC|Lossless|tra
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882074.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Toundra - Das Cabinet Des Dr. Caligari (2020) [FLAC|Lossless|tracks + .cue] <Sou
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882054.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA, Lorne Balfe - The LEGO Batman Movie / Лего Фильм: Бэтмен (Ori
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881710.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Dan Gibson - Ocean Surf: Timeless And Sublime (1995) Solitudes - Nature Sound Co
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881573.jpg" />
 </div>
 
 
@@ -179,7 +237,7 @@ Agrelia's Castle - Elders and Ancestors (2015) [MP3|320 кб/с] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881167.jpg" />
 </div>
 
 
@@ -208,7 +266,7 @@ VA - All Music Of The World, A Collection Of Ambient Music Remixed With Native S
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881068.jpg" />
 </div>
 
 
@@ -237,7 +295,7 @@ Hans Zimmer & Richard Harvey - The Little Prince / Маленький принц
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880836.jpg" />
 </div>
 
 
@@ -266,7 +324,7 @@ Dr. Jeffrey Thompson - Natural Music For Sleep (2001) [FLAC|Lossless|tracks + .c
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879840.jpg" />
 </div>
 
 
@@ -293,7 +351,7 @@ VA, Lorne Balfe - The LEGO Batman Movie / Лего Фильм: Бэтмен (Ori
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879826.jpg" />
 </div>
 
 
@@ -322,7 +380,7 @@ Sulton Ali - Legend (2002), Мирзакарим Норбеков [FLAC|Lossless
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879722.jpg" />
 </div>
 
 
@@ -351,7 +409,7 @@ Hans Zimmer & Junkie XL - Batman v Superman: Dawn of Justice (Original Motion Pi
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878978.jpg" />
 </div>
 
 
@@ -380,7 +438,7 @@ V.A. - The Matrix (Full OST Collection) (1999..2004) [MP3|192, 320 kbps]<Soundtr
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878432.jpg" />
 </div>
 
 
@@ -406,7 +464,7 @@ Vangelis - Voices (1995) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, Ambient>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878168.jpg" />
 </div>
 
 
@@ -435,7 +493,7 @@ Cusco - Essential Cusco: The Journey (2005) [FLAC|Lossless|image + .cue] <New Ag
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878114.jpg" />
 </div>
 
 
@@ -464,7 +522,7 @@ Various artists - Mulheres apaixonadas [Internacional] (2003) [FLAC|Lossless|tra
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877436.jpg" />
 </div>
 
 
@@ -493,7 +551,7 @@ Cell - Phonic Peace (2005) [MP3|320 kbps]<Dub, Downtempo, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_876998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_876998.jpg" />
 </div>
 
 
@@ -527,7 +585,7 @@ Guy Sweens - Legend Of Ganesha (2009) [MP3|320 кб/с]<New Age, Spiritual, Ethn
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_876991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_876991.jpg" />
 </div>
 
 
@@ -559,7 +617,7 @@ Slow Leaves - Shelf Life (2020) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876883.jpg" />
 </div>
 
 
@@ -588,7 +646,7 @@ Slow Leaves - Beauty Is So Common (2014) [FLAC|Lossless|WEB-DL|tracks] <Folk Roc
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876875.jpg" />
 </div>
 
 
@@ -617,7 +675,7 @@ Slow Leaves - Enough About Me (2017) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876867.jpg" />
 </div>
 
 
@@ -646,7 +704,7 @@ Paul Sills - Electric Storm (2017) [MP3|320 Kbps] <New Age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876551.jpg" />
 </div>
 
 
@@ -675,7 +733,7 @@ Wychazel - In Search of Lemuria (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876549.jpg" />
 </div>
 
 
@@ -689,64 +747,6 @@ Wychazel - In Search of Lemuria (2017) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:622372BAF9DCC34049FD50CF0A1BAF1455CA4733
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105244   (876411) от 17.02.2017
-
-J.S. Epperson - Solfeggio Suite (2011) [FLAC|Lossless|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876411.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 174 Hz Earthing (Schumann Resonance) 04:40
-2. 396 Hz Release 12:55
-3. 417 Hz Undo 08:24
-4. 528 Hz DNA Repair 13:55(   Читать дальше...   )Жанр: New AgeПродолжительность: 1:09:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE40C1AE1BC7609DD8FEC19046B89F7F95E639B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 377353   (876362) от 08.04.2020
-
-Enigma - Alchemist (2008) [FLAC|Lossless|image + .cue] <New Age, Abstract>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From East To West (4:12)
-02. Sitting on the Moon (4:32)
-03. Fata Morgana (2:57)
-04. The Look of Today (3:54)(   Читать дальше...   )Жанр: New Age, AbstractПродолжительность: 01:04:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:658F07003EED42B27A0A43329F1DF3D33865055C
 ```
 
 https://mybot314.ru/tekegram_catalog/

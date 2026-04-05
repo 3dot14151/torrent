@@ -6,7 +6,7 @@ Burnout Paradise (2009) [Ru/En] (1.1.0.0/dlc) Repack R.G. Origami [The Ultimate 
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263319.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Project CARS 2 (2017) [Ru/Multi] (1.3.0.0/dlc) License RELOADED [Deluxe Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262173.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Need for Speed Hot Pursuit Remastered (2020) [Ru/Multi] (1.0.0.23891) Repack Nec
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260858.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Need for Speed Hot Pursuit Remastered (2020) [Ru/Multi] (1.0.0.23891) Repack Fit
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260850.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Need for Speed Hot Pursuit Remastered (2020) [Ru/Multi] (1.0.0.23891) Repack Oth
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260847.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Need for Speed Hot Pursuit Remastered (2020) [Ru/Multi] (1.0.0.23891) Repack Dec
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260846.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Formula Legends (2025) [Multi] (1.0.8/dlc) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260078.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Need for Speed Hot Pursuit Remastered (2020) [Ru/Multi] (1.0.0.23891) Scene voic
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257835.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Need for Speed Hot Pursuit Remastered (2020) [Ru/Multi] (1.0.0.23891) Repack Wan
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257695.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ CarX Street (2024) [Ru/Multi] (1.9.1/dlc) Repack Necros
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257506.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Quarantine Антология [En] (RePack) 1994-1996 | RG Games (Pilotus)
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257273.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Burnout Paradise: The Ultimate Box / Russian Vanity [Ru] (RePack/Mod/1.1/1.4) 20
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256247.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Rally Championship 2000 [Ru] (L) 1999
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255832.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Gripper (2023) [Ru/Multi] (1.0.1) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255037.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Assetto Corsa Competizione (2019) [Ru/Multi] (1.9.0/dlc) Repack DjDI
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254793.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Forza Horizon 4 (2018) [Ru/Multi] (1.476.99.0/dlc) Repack DjDI [Ultimate Edition
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254786.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Joyride (2022) [Ru/Multi] (2023.5.1/dlc) Scene Tinyiso
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254487.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Wreckfest (2018) [Ru/Multi] (Build 16986367/dlc) Repack Other s [Complete Editio
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_252287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252287.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Need for Speed: Heat (2019) [Ru/Multi] (1.0.60.7040/dlc) Repack Other s [Deluxe 
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_251278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251278.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Need for Speed: Heat (2019) [Ru/En] (1.0.60.7040/dlc) Repack Decepticon [Deluxe 
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250879.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Need for Speed: Heat (2019) [Ru/Multi] (1.0.60.7040/dlc) Repack Wanterlude [Delu
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250354.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Need for Speed: Heat (2019) [Ru/Multi] (1.0.60.7040/dlc) Repack FitGirl [Deluxe 
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250347.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Need for Speed: Heat (2019) [Ru/Multi] (1.0.60.7040/dlc) Scene voices38 [Deluxe 
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249360.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Need for Speed: Heat (2019) [Ru/Multi] (1.0.60.7040/dlc) Repack Necros [Deluxe E
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_249337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249337.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Death Rally [En] (RePack) 1996
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_249274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_249274.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ GRID (2019) [Ru/Multi] (1.0.122.743/dlc) Repack Let'sРlay [Ultimate Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_248543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248543.jpg" />
 </div>
 
 

@@ -1,3 +1,55 @@
+###  Публикация: 1558316   (491817) от 24.07.2022
+
+Старик / The Old Man (2022) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1-7 из 7) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491817.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дэн Чейз — старик с тёмным прошлым. Однажды на пороге его дома появляется группа убийц, присланных устранить Чейза, он понимает, что прошлое вновь напомнило о себе. Чтобы сохранить своё будущее, Чейз должен опять взяться за оружие.Производство: США / 20th Television, Fox 21 Television Studios, Fresh Bacon MediaЖанр: боевик, триллер, драмаРежиссер: Джон Уоттс, Джет Уилкинсон, Зетна ФуэнтесАктеры: Джефф Бриджес, Педж Вахдат, Джон Литгоу, Алиа Шокат, Э.Дж. Бонилья, Noor Razooky, Билл Хек, Гбенга Акиннагбе, Фаран Таир, Этан Рэйнс и др.Перевод: Двуголосый профессиональный (ViruseProject)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: ~01:00:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:228CE1D6340C94795F3639FAAEEA291EC9779FE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339324   (491803) от 24.07.2022
+
+Темные начала / His Dark Materials (2019) WEBRip [H.264/720p] (сезон 1, серии 1-8 из 8) Kerob [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лира Белаква живёт в мире, где существуют ведьмы и бронированные медведи, а у людей есть деймоны — существа, составляющие неотъемлемую часть их личностей. Опекун девочки, исследователь лорд Азриэл, находит способ передвигаться между параллельными землями, благодаря чему Лира знакомится с мальчиком Уиллом, который живёт в мире, лишённом магии.Производство: Великобритания, США / Bad Wolf, British Broadcasting Corporation (BBC), Home Box Office (HBO)Жанр: фэнтези, драма, приключения, семейныйРежиссер: Джейми Чайлдс, Уильям МакГрегор, Отто БатхёрстАктеры: Дафни Кин, Джеймс МакЭвой, Рут Уилсон, Лин-Мануэль Миранда, Кларк Питерс, Дэвид Суше, Иэн Гелдер, Уилл Кин, Эрион Бакаре, Рута Гедминтас, Энн-Мэри ДаффПеревод: Многоголосый любительский (Kerob)Субтитры: отсутствуютПродолжительность: ~00:56:00 серияРеклама: присутствуют видео вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:904D0164BAFE7DCD50DA673139B7D58AB36B90C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036014   (491631) от 20.09.2016
 
 Завучи / Vice Principals (2016) HDTVRip [H.264/720p-LQ] (сезон 1, серии 1-9 из 9) OMSKBIRD [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491631.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490813.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488978.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486329.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485739.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484453.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481616.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481611.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480575.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478985.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478831.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478827.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478822.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477567.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474636.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467710.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465746.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463053.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463047.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462021.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462019.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462009.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461617.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460594.jpg" />
 </div>
 
 
@@ -619,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C4E7F47865E3D4AC5F35507694D5CC347102C69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162571   (458747) от 01.09.2017
-
-Сломленный / Broken (2017) HDTVRip (сезон 1, серии 1-6 из 6) Jaskier [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458747.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отец Майкл, современный, независимый и совершающий обычные человеческие ошибки католический священник, служащий в Северном городском приходе, должен стать куратором, доверенным и духовным лицом общины, члены которой пытаются привести свою веру в соответствие с вызовами обыденной жизни.Производство: ВеликобританияЖанр: ДрамаРежиссер: Норин Кершоу, Эшли ПирсАктеры: Анна Фрил, Шон Бин, Паула Малкомсон, Эшлин Лофтус, Дэнни Сапани, Марк Стэнли, Эдриан Данбар, Муна Отару, Лорен ЛайлПеревод: Многоголосый закадровый, профессиональный (Jaskier)Субтитры: ОтсутствуютПродолжительность: ~ 00:56:00 серияРеклама: Присутствуют аудио вставки рекламы!
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:639CF92E215D21CEB90CD2FE2F3696C1D28382C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408068   (457848) от 11.09.2020
-
-Прежде чем умрём / Innan vi dor / Before We Die (2019) WEBRip (сезон 2, серии 1-8 из 8) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457848.jpg" />
-</div>
-
-
-###  Подробнее
-
-Деятельность группировки байкеров расследует женщина-детектив, возлюбленный которой пропал после того, как попытался внедриться в эту банду. Попутно главная героиня обнаруживает, что и ее собственный сын, которому она уделяла слишком мало времени, тоже примкнул к преступникам на мотоциклах.Производство: Швеция, Германия, НорвегияЖанр: триллер, драма, детективРежиссер: Кристиан Петри, Симон Кайзер, Kristina HumleАктеры: Мария Рихардсон, Адам Пэлссон, Магнус Креппер, Малгожата Печиньска, Sandra Redlaff, Каллед Мустонен, Ричард Форсгрен, Алексей Манвелов, Седомир Джорджевич, Якоб Эрикссон и д.р.Перевод: Двуголосый закадровый (ViruseProject)Субтитры: Русские (отдельно)Продолжительность: ~00:60:00 серииРеклама: Присутствуют видео, аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CA9DE315F942273321A2C3D5A0530B758A1E369
 ```
 
 https://mybot314.ru/tekegram_catalog/

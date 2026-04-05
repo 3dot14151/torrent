@@ -7,7 +7,7 @@ VA - RC Cars (Недетские гонки) OST (2002) Оригинальные
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1056800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056800.jpg" />
 </div>
 
 
@@ -28,35 +28,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607598   (1043899) от 27.01.2023
-
-Земфира & Дмитрий Емельянов - CACTUS (2023) [MP3|320 Kbps] <OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043899.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Земфира - Cказка.начало
-2. Земфира - Превращение
-3. Дмитрий Емельянов - Минус
-4. Дмитрий Емельянов - Радио(   Читать дальше...   )Жанр: OSTПродолжительность: 00:23:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F37EB59B9AD5F7E74541ACC01553196C91C0D01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1614302   (1038483) от 22.02.2023
 
 VA - Atomic Heart - Vol.1 (2023) [MP3|320 Kbps] <OST>
@@ -65,7 +36,7 @@ VA - Atomic Heart - Vol.1 (2023) [MP3|320 Kbps] <OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038483.jpg" />
 </div>
 
 
@@ -94,7 +65,7 @@ Darren Korb - Pyre OST (2017) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029347.jpg" />
 </div>
 
 
@@ -123,7 +94,7 @@ Darren Korb - Hades OST (2020) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029337.jpg" />
 </div>
 
 
@@ -152,7 +123,7 @@ Tom Holkenborg (aka Junkie XL) - Zack Snyder's Justice League / Лига спр�
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025415.jpg" />
 </div>
 
 
@@ -181,7 +152,7 @@ Tom Holkenborg (aka Junkie XL) - Godzilla vs. Kong / Годзилла проти
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024200.jpg" />
 </div>
 
 
@@ -210,7 +181,7 @@ Hans Zimmer - Wonder Woman 1984 / Чудо-женщина 1984 (Sketches from th
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024056.jpg" />
 </div>
 
 
@@ -239,7 +210,7 @@ Benjamin Wallfisch - Mortal Kombat / Мортал Комбат (Original Motion 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020444.jpg" />
 </div>
 
 
@@ -268,7 +239,7 @@ OST - Вампиры средней полосы (2020) [MP3|320 Kbps] <Саун
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019728.jpg" />
 </div>
 
 
@@ -297,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000892.jpg" />
 </div>
 
 
@@ -326,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999059.jpg" />
 </div>
 
 
@@ -361,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996457.jpg" />
 </div>
 
 
@@ -396,7 +367,7 @@ Atom Music Audio - Wild Planet (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989888.jpg" />
 </div>
 
 
@@ -425,7 +396,7 @@ Atom Music Audio - Sinner: Antihero Themes (2019) [MP3|320 Kbps] <Soundtrack, In
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989883.jpg" />
 </div>
 
 
@@ -454,7 +425,7 @@ Atom Music Audio - Spirit (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989850.jpg" />
 </div>
 
 
@@ -483,7 +454,7 @@ Atom Music Audio - Thunderbolt (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989837.jpg" />
 </div>
 
 
@@ -512,7 +483,7 @@ Atom Music Audio feat. Alexa Ray - From the Ashes (2019) [MP3|320 Kbps] <Soundtr
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989829.jpg" />
 </div>
 
 
@@ -541,7 +512,7 @@ Atom Music Audio - Abyss (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic O
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989774.jpg" />
 </div>
 
 
@@ -570,7 +541,7 @@ Quincy Jones / Ray Brown Orchestra - Music From The Adventurers /OST/ (1970) [MP
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989392.jpg" />
 </div>
 
 
@@ -604,7 +575,7 @@ Ludwig Goransson - The Mandalorian / Мандалорец (Original Score) (2019
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986039.jpg" />
 </div>
 
 
@@ -633,7 +604,7 @@ Eric Serra - The Fifth Element / Пятый элемент (Complete Score) (2CD
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981529.jpg" />
 </div>
 
 
@@ -659,7 +630,7 @@ Colin Stetson - Color Out of Space / Цвет из иных миров (Original
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980540.jpg" />
 </div>
 
 
@@ -688,7 +659,7 @@ Sonya Belousova, Giona Ostinelli - The Witcher / Ведьмак (Music from the 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980515.jpg" />
 </div>
 
 
@@ -717,7 +688,7 @@ Lorne Balfe, VA - Bad Boys for Life / Плохие парни навсегда (
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980356.jpg" />
 </div>
 
 
@@ -746,7 +717,7 @@ Bennett Salvay - Peaceful Warrior / Мирный воин (Original Motion Pictu
 >>OST
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980258.jpg" />
 </div>
 
 
@@ -760,6 +731,35 @@ Bennett Salvay - Peaceful Warrior / Мирный воин (Original Motion Pictu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2DF0453FCC01355CCB306833681D6AB5D4BD60A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973463   (980256) от 08.01.2016
+
+Yuki Kajiura - Akiresu to kame (Ахиллес и черепаха) (2008) [OGG|Lossless] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Omoide no e (1:41)
+02. Tora no e (1:19)
+03. Hirame no e (0:47)
+04. Shuumatsu no e (1:58)(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:45:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97F2A4EE14DABE5E199082D5A488F2A779D3CD63
 ```
 
 https://mybot314.ru/tekegram_catalog/

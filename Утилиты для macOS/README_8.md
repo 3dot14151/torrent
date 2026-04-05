@@ -1,3 +1,30 @@
+###  Публикация: 869306   (892135) от 14.02.2015
+
+Toast Titanium Pro 12.1 (3580) [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892135.jpg" />
+</div>
+
+
+###  Подробнее
+
+Roxio Toast  Titanium Pro 12 - cамый мощный пакет для записи дисков.
+Roxio Toast Titanum Pro предоставляет множество вариантов для обработки цифровой музыки, видео и изображений на кинофильмов и фотографий на CD и DVD-дисках. Теперь нет необходимости хранить большие файлы на дисках. К звуковому DVD добавились более полусотни часов музыки и система Dolby Digital.Файлы (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 31 июля 2014Разработчик: RoxioПоддерживаемая ОС: OS X 10.5 +Язык интерфейса: Английский, Немецкий, Французский, испанский и Итальянский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C8EF07CE88E8EE4F896E811B8924441683C694A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994222   (891521) от 07.03.2016
 
 Ceceree 1.2.1 [En]
@@ -6,7 +33,7 @@ Ceceree 1.2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891521.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ Window Tidy 2.1.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891161.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ Weather Widget Deskto‪p Full version 3.9.6 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890906.jpg" />
 </div>
 
 
@@ -87,7 +114,7 @@ Mira v1.5.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890887.jpg" />
 </div>
 
 
@@ -115,7 +142,7 @@ SyncMate 2.5.0.921 UB
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890813.jpg" />
 </div>
 
 
@@ -147,7 +174,7 @@ Reflector 2.6.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890452.jpg" />
 </div>
 
 
@@ -175,7 +202,7 @@ Stats 2.6.9 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889331.jpg" />
 </div>
 
 
@@ -201,7 +228,7 @@ handyPrint 5.4.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889215.jpg" />
 </div>
 
 
@@ -228,7 +255,7 @@ Stellar Partition Manager 3.0.0.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887936.jpg" />
 </div>
 
 
@@ -256,7 +283,7 @@ Adobe Zii 2020 - Universal Patcher 5.1.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886766.jpg" />
 </div>
 
 
@@ -282,7 +309,7 @@ Stellar Data Recovery Technician 10.0.0.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886491.jpg" />
 </div>
 
 
@@ -308,7 +335,7 @@ Periscope Pro 3.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886192.jpg" />
 </div>
 
 
@@ -337,7 +364,7 @@ Xmas snow 1.5.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886094.jpg" />
 </div>
 
 
@@ -365,7 +392,7 @@ Theine 3.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886060.jpg" />
 </div>
 
 
@@ -391,7 +418,7 @@ HashTab 6.0.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885762.jpg" />
 </div>
 
 
@@ -420,7 +447,7 @@ macOS Server 5.10 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885051.jpg" />
 </div>
 
 
@@ -446,7 +473,7 @@ Wondershare Data Recovery 3.7.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883425.jpg" />
 </div>
 
 
@@ -475,7 +502,7 @@ ChronoSync 4.9.9 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883403.jpg" />
 </div>
 
 
@@ -504,7 +531,7 @@ Disk Cleaner - Free Your Hard Drive Space 1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883374.jpg" />
 </div>
 
 
@@ -531,7 +558,7 @@ Disk Drill Entreprise 2.4.438 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882320.jpg" />
 </div>
 
 
@@ -558,7 +585,7 @@ AnyMP4 iPhone Data Recovery for Mac 7.3.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880734.jpg" />
 </div>
 
 
@@ -587,7 +614,7 @@ Timerik 1.3 [En/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878216.jpg" />
 </div>
 
 
@@ -616,7 +643,7 @@ Webcam Settings Control: Full Camera Adjustment 2.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874821.jpg" />
 </div>
 
 
@@ -645,7 +672,7 @@ Paragon Camptune X v10.10.20 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874382.jpg" />
 </div>
 
 
@@ -671,7 +698,7 @@ QR Factory 2.9.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873838.jpg" />
 </div>
 
 
@@ -683,33 +710,6 @@ QR-код является незаменимым и универсальным 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:473BC1395837B556B734A55633E1860C7B70C694
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374527   (873161) от 10.04.2020
-
-Duplicate Sweeper 1.06 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873161.jpg" />
-</div>
-
-
-###  Подробнее
-
-Duplicate Sweeper - поиск, выбор и удаление дубликатов файлов на вашем Mac легко и быстро.
-С помощью Duplicate Sweeper с усовершенствованным алгоритмом поиска, файлы с одинаковым содержимым будут быстро идентифицированы - даже если они называются по-разному.Тип издания: macOS SoftwareРелиз состоялся: 10.04.2020Разработчик: Wide Angle SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7D01E74B6FD8D479D8745DD7ACFCE306192539A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,109 @@
+###  Публикация: 1587725   (192250) от 01.11.2022
+
+Unified Remote v3.21.0 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192250.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великолепный клиент для дистанционного управления вашим компьютером (сервер можно взять там. Поддерживает как работу внутри домашней сети, так и доступ извне с использованием внешнего IP вашего компьютера. В наличии доступ к множеству разнообразных пультов (виртуальная мышь и клавиатура, трансляция экрана, управление мультимедиа и многое другое).  Превратите свое (   Читать дальше...   )Тип издания: FullРелиз состоялся: 22.05.2022Разработчик: Unified IntentsПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1A1823F91C9D7B3D3AD609F8B54B5097F7CD33E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657792   (192248) от 05.09.2023
+
+InShot - Фото и видеоредактор 1.960.1416 Mod by 0x7d [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192248.jpg" />
+</div>
+
+
+###  Подробнее
+
+InShot - впечатляющее своими возможностями и удобством приложение, что завоевало стойкую положительную репутацию у пользователей мобильных гаджетов. Проект представляет собой фоторедактор и видеоредактор, а так же обладает функцией превращения статичных изображений в так называемые живые фотографии. Не стоит ожидать от программы внешность и функционал профессионального (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 26.08.2023Разработчик: InShot Video EditorПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8ECEF4B909F0A5124FA782F2DD42ED1E7FA0552
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657852   (192215) от 05.09.2023
+
+VPN Inf - Security Fast VPN 7.5.824 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192215.jpg" />
+</div>
+
+
+###  Подробнее
+
+VPN Inf - быстрый, безопасный и безлимитный VPN
+Это лучшее приложение для продвижения сайтов, безопасности Wi-Fi и защиты конфиденциальности.
+Не нужно никакой настройки, просто нажмите одну кнопку, и вы сможете безопасно путешествовать по Интернету.Тип издания: PremiumРазработчик: Inf Security StudioПоддерживаемая ОС: Android 5.0 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EA9B0345E17483D19977CF31BEF4312618337B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657782   (192116) от 05.09.2023
+
+Square Home Launcher 2.4.15 Mod by PieMods [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Square Home - красивый, стильный и функциональный лаунчер для мобильных работающих на Android-е. Им предлагается вариация оболочки выполненной в стиле Metro UI от Windows 10. Это очень понравится всем, кто постоянно использует данную операционную систему на других гаджетах. И считает, что подобная механика удобна и понятна для него и для его работы. Красивое исполнение (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 20.08.2023Разработчик: ChYK the devПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2409C7D752832472B5539A8251ED550F5E35F8F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1658050   (191851) от 06.09.2023
 
 WPS Office + PDF 18.1.1 Mod by ImanAlien [Ru/Multi]
@@ -6,7 +112,7 @@ WPS Office + PDF 18.1.1 Mod by ImanAlien [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191851.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ Battery HD Pro 1.99.06 (Google Play) [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191814.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ ibis Paint X 10.2.0 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191801.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ BSPlayer Pro 3.19.247-20230828 Mod by ferhad.necef [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191777.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ Dais Dark - Poweramp v3 Skin 1.3.7 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191485.jpg" />
 </div>
 
 
@@ -136,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191430.jpg" />
 </div>
 
 
@@ -162,7 +268,7 @@ Frolomuse: Музыкальный Плеер 7.3.1-R Mod by LITEAPKS [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191275.jpg" />
 </div>
 
 
@@ -188,7 +294,7 @@ Jellify - Живые фотографии v1.4.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191266.jpg" />
 </div>
 
 
@@ -214,7 +320,7 @@ Frolomuse: Музыкальный Плеер 7.3.1-R Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191236.jpg" />
 </div>
 
 
@@ -240,7 +346,7 @@ PREQUEL: Редактор фото и видео v1.51.0 Mod by Dymonyxx [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_190966.jpg" />
 </div>
 
 
@@ -266,7 +372,7 @@ Plus Messenger (Telegram+) v10.0.5.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190921.jpg" />
 </div>
 
 
@@ -292,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190891.jpg" />
 </div>
 
 
@@ -318,7 +424,7 @@ ElectroCalc - DIY Electronics v3.9  Mod by vedserega [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190890.jpg" />
 </div>
 
 
@@ -344,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190862.jpg" />
 </div>
 
 
@@ -370,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190850.jpg" />
 </div>
 
 
@@ -396,7 +502,7 @@ Picture Mushroom - Mushroom ID v2.9.11 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_190742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_190742.jpg" />
 </div>
 
 
@@ -425,7 +531,7 @@ Relax Night ~ Nature Sounds v5.13.3 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190516.jpg" />
 </div>
 
 
@@ -451,7 +557,7 @@ Melon VPN - Secure Proxy VPN 7.9.215 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190492.jpg" />
 </div>
 
 
@@ -480,7 +586,7 @@ Listen Audiobook Player v5.1.0 (955) Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190490.jpg" />
 </div>
 
 
@@ -506,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190452.jpg" />
 </div>
 
 
@@ -532,7 +638,7 @@ TrackView - HomeSafe v3.8.27 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190413.jpg" />
 </div>
 
 
@@ -558,7 +664,7 @@ Picture Bird - Bird Identifier v2.9.25 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190008.jpg" />
 </div>
 
 
@@ -569,113 +675,6 @@ Picture Bird позволяет легко распознать птиц вок�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D3F0238EF4C11997D87763F1EC0C167B1267641
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659515   (189970) от 11.09.2023
-
-Picture Mushroom - Mushroom ID v2.9.20 Mod by youarefinished [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189970.jpg" />
-</div>
-
-
-###  Подробнее
-
-Picture Mushroom — распознавайте грибы мгновенно. Просто сфотографируйте или загрузите фото гриба, и уже через пару секунд приложение Picture Mushroom подскажет вам, что это за гриб.
-Основные функции:
-- Быстрое и точное распознавание многочисленных видов грибов
-- Обширная база данных с большим количеством информации обо всех видах грибов(   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 07.09.2023Разработчик: Next Vision LimitedПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8F1CA5839FFAC869D3E767CB3B41A8B5B3C8665
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659509   (189956) от 11.09.2023
-
-Garmin: City Navigator Europe NTU 2024.20 [En]
-
->>Программы, Игры и прочее
->>Карты для навигационного ПО
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Путешествуйте по улицам Европы с уверенностью. Этот продукт предоставляет подробные карты дорог и достопримечательностей для вашего совместимого устройства, поэтому вы можете точно и пошагово проложить маршрут до любого адреса или перекрестка. Маршрут к ресторанам, заправочным станциям, жилью, достопримечательностям и многому другому.Тип издания: РазблокированоРелиз состоялся: июль 2023Разработчик: Garmin / HereПоддерживаемая ОС: GarminЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:144160F1F8FF729CA156AC8F5A69B9574A0F500B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589673   (189882) от 10.11.2022
-
-Word: Поиск Слова Кроссворд v7.2 [Ru/Multi]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189882.jpg" />
-</div>
-
-
-###  Подробнее
-
-Захватывающая игра-кроссворд на Android! Просто проведите пальцем и соедините буквы, чтобы найти нужные скрытые слова. Более 3000 уровней ждут вас, чтобы бросить вызов. Геймплей прост, но сложен в освоении. Загрузите его, свяжите письмо, найдите кроссворды, чтобы тренировать свой мозг и расширить свой словарный запас!Тип издания: ModРелиз состоялся: 05.11.2022Разработчик: Diao Da LLCПоддерживаемая ОС: Android 4.4+Жанр: игра-кроссвордЯзык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5901EA2C1C7F967D8B60DA40D7DDC322A25C2700
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589644   (189862) от 10.11.2022
-
-VPN Thailand: VPN в Тайланде 1.85 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189862.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быстрый и бесплатный Vpn Тайланд позволяет в один клик получить таиландский IP или разблокировать доступ к закрытым сайтам и приложениям. Безопасное и анонимное подключение к открытым WIFI сетям обеспечивает технология подключения OpenVPN с OpenSSL ключом 2048 бит.Тип издания: ProРелиз состоялся: 4 нояб. 2022 г.Разработчик: AltAppsПоддерживаемая ОС: Android 4.4 и выше / arm64Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:553A6E39A34E471889079364D3A5064AACD07655
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,58 @@
+###  Публикация: 1023908   (720447) от 07.06.2016
+
+Дмитрий Мережковский | Данте (2012) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720447.jpg" />
+</div>
+
+
+###  Подробнее
+
+РОМАН О ВЕЛИКОМ ИТАЛЬЯНЦЕ.
+Судьба Данте была трагична. Через восемь лет после смерти поэта кардинал Бертрандо дель Поджетто сжигает его сочинения, хочет откопать и сжечь его кости за «ересь», потому что Данте слыл «колдуном» и потому что «магическое» в нем действительно есть.
+Он и после смерти не вернулся
+В старую Флоренцию свою.(   Читать дальше...   )Жанр: Биографии и МемуарыПродолжительность: 14:01:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50A3EB2CD040E2F45EB30D6B280D8E4BF923B74A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023935   (720429) от 07.06.2016
+
+Питер Акройд | Исаак Ньютон (2012) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720429.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книги поэта и прозаика англичанина Питера Акройда (р. 1949) популярны во всем мире. Он - автор более четырех десятков книг. Значительное место в его творчестве занимают биографии, а один из любимых героев писателя - великий Исаак Ньютон, мыслитель, физик, астроном и математик, чей вклад в естествознание переоценить просто невозможно. "Я пытаюсь придумать новый (   Читать дальше...   )Жанр: Биографии и МемуарыПродолжительность: 05:58:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:042091E363310931C1CB6F16ECD45DBABB7D0733
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024130   (720427) от 07.06.2016
 
 Виктор Корчной | Антишахматы Записки злодея Возвращение невозвращенца (2013) [MP3]
@@ -6,7 +61,7 @@
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720427.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720426.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720309.jpg" />
 </div>
 
 
@@ -84,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720305.jpg" />
 </div>
 
 
@@ -112,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720179.jpg" />
 </div>
 
 
@@ -138,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_720027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720027.jpg" />
 </div>
 
 
@@ -164,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718165.jpg" />
 </div>
 
 
@@ -191,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718157.jpg" />
 </div>
 
 
@@ -218,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718153.jpg" />
 </div>
 
 
@@ -244,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718140.jpg" />
 </div>
 
 
@@ -270,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718136.jpg" />
 </div>
 
 
@@ -299,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_718043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718043.jpg" />
 </div>
 
 
@@ -326,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_717253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717253.jpg" />
 </div>
 
 
@@ -353,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716130.jpg" />
 </div>
 
 
@@ -379,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_716031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716031.jpg" />
 </div>
 
 
@@ -406,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715832.jpg" />
 </div>
 
 
@@ -432,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_712348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712348.jpg" />
 </div>
 
 
@@ -458,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711884.jpg" />
 </div>
 
 
@@ -484,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_711571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711571.jpg" />
 </div>
 
 
@@ -510,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_710658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710658.jpg" />
 </div>
 
 
@@ -536,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708208.jpg" />
 </div>
 
 
@@ -562,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_707835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707835.jpg" />
 </div>
 
 
@@ -588,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_706955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706955.jpg" />
 </div>
 
 
@@ -614,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704934.jpg" />
 </div>
 
 
@@ -625,58 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7F774B2AB46333A425D102AD0BEC54E934BDF50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026923   (700326) от 17.06.2016
-
-Ольга Муравьёва | Как воспитывали русского дворянина (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700326.jpg" />
-</div>
-
-
-###  Подробнее
-
-В современном обществе все больше растет интерес к дворянской культуре, дворянскому воспитанию. Дворянское воспитание приносило удивительные плоды. Русский аристократ - это совершенно особый тип личности, человек необыкновенной честности, благородства и тонкости чувств. Автор книги пытается разобраться, как воспитывались дети аристократов - чему их обучали и как (   Читать дальше...   )Жанр: Культура, историяПродолжительность: 05:01:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC9C007A651B402035B08572E657B738BCCAE00C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132723   (698688) от 10.05.2017
-
-Ольга Носова | В объятиях удава. Воспоминания узницы ГУЛага (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_698688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девушка из Сибири пошла в армию во время Великой Отечественной войны. Поступила в военное училище, стала офицером. Служила на Дальнем Востоке. А через два года после войны была арестована с грудным ребенком на руках. Обвинили ее чуть не в шпионаже...Жанр: МемуарыПродолжительность: 06:47:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30577A3368E615AD85E6948FCF37F5CF333DC458
 ```
 
 https://mybot314.ru/tekegram_catalog/

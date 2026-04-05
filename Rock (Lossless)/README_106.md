@@ -1,3 +1,124 @@
+###  Публикация: 723547   (354853) от 18.11.2013
+
+Joe Cocker - Hit Collection (2000) [FLAC|Lossless|image + .cue]<Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  My Father's Son   (4:29)
+02.  Night Calls   (3:29)
+03.  That's All I Need To Know   (4:08)
+04.  When The Night Comes   (4:00)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:18:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E11B94D2A7B5D3BB6FE009936B9048D09F4519C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 578115   (354757) от 20.11.2012
+
+David Byron (ex.Uriah Heep) - 7 альбомов (1975 - 1984) дискография [FLAC|Lossless]<Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_354757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock'N'Roll (3:28)
+02. Lookin' For You (4:07)
+03. Lock And Key (4:58)
+04. Seasong (7:35)
+05. By The Horn (3:13)
+06. Scared (5:34)
+07. Hobo (5:45)
+08. The Link (2:19)
+09. End Of The Line (5:46)Жанр: Hard Rock, Classic RockПродолжительность: 00:42:45
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417823   (353415) от 22.10.2020
+
+Eagles - Live From The Forum MMXVIII (2020) 2xCD [FLAC|Lossless|WEB-DL|tracks] <Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353415.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Seven Bridges Road (Live at The Forum, Inglewood, CA, 9/12, 14, 15/2018) (03:33)
+02. Joe Walsh: "How ya doin'?" (Live at The Forum, Inglewood, CA, 9/12, 14, 15/2018) (00:33)
+03. Take It Easy (Live at The Forum, Inglewood, CA, 9/12, 14, 15/2018) (04:14)(   Читать дальше...   )Жанр: Soft RockПродолжительность: 02:17:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37A4300FCDA83C3C1D35758A3D56EDE452CADCAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577609   (352459) от 20.09.2022
+
+A Mountain Of One - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Crossover, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Custards Last Stand [00:06:44]
+02. Black Apple Pink Apple [00:07:20]
+03. Make My Love Grow [00:04:20]
+04. Surrender [00:07:33](   Читать дальше...   )Жанр: Progressive, Crossover, RockПродолжительность: 2 CD, 01:32:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7805E52E5C5C5F04E95F340C0380138E5F1439E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1577595   (352455) от 20.09.2022
 
 Pat Mastelotto & Bill Munyon - XtraKcts & ArtifaKcts (2001) [FLAC|Lossless|image + .cue] <Art Rock, Prog Rock>
@@ -6,7 +127,7 @@ Pat Mastelotto & Bill Munyon - XtraKcts & ArtifaKcts (2001) [FLAC|Lossless|image
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352455.jpg" />
 </div>
 
 
@@ -35,7 +156,7 @@ Loveless - 2 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352444.jpg" />
 </div>
 
 
@@ -64,7 +185,7 @@ Lenny Kravitz - Another Life (2004) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352397.jpg" />
 </div>
 
 
@@ -93,7 +214,7 @@ Electric Light Orchestra - Mr. Blue Sky: The Very Best Of Electric Light Orchest
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_352348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_352348.jpg" />
 </div>
 
 
@@ -128,7 +249,7 @@ Death Cab for Cutie - Asphalt Meadows (2022) [FLAC|Lossless|WEB-DL|tracks] <Indi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352310.jpg" />
 </div>
 
 
@@ -157,7 +278,7 @@ Flying Colors - Third Degree (2019) 2CD Limited Edition [FLAC|Lossless|tracks + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352251.jpg" />
 </div>
 
 
@@ -186,7 +307,7 @@ Sniff 'n' The Tears - No Damage Done (1992) [FLAC|image+.cue]<Pop Rock & Soft Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351783.jpg" />
 </div>
 
 
@@ -215,7 +336,7 @@ Sniff 'n' the Tears - A Best Of (1991) [FLAC|image+.cue]<Pop Rock & Soft Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351545.jpg" />
 </div>
 
 
@@ -244,7 +365,7 @@ Brett Ellis - 3 Альбома (2007-2012) [FLAC|Lossless]<Classic Rock, Blues R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_350602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_350602.jpg" />
 </div>
 
 
@@ -279,7 +400,7 @@ Nemo - Les nouveaux mondes (2002) Remaster, 2022, Quadrifonic [FLAC|Lossless|WEB
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350302.jpg" />
 </div>
 
 
@@ -308,7 +429,7 @@ White Hills - 3 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350299.jpg" />
 </div>
 
 
@@ -337,7 +458,7 @@ Rocking Horse Music Club - Circus of Wire Dolls (2022) 2CD [FLAC|Lossless|WEB-DL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350297.jpg" />
 </div>
 
 
@@ -366,7 +487,7 @@ Nautilus - A Floating City (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350289.jpg" />
 </div>
 
 
@@ -395,7 +516,7 @@ VA - Rock Sound: Sound Check No. 126 (2009) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350142.jpg" />
 </div>
 
 
@@ -424,7 +545,7 @@ VA - Rock Sound: Sound Check No. 122 (2009) [FLAC|Lossless|tracks + .cue] <Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350140.jpg" />
 </div>
 
 
@@ -453,7 +574,7 @@ VA - Rock Sound: Sound Check No. 124 (2009) [FLAC|Lossless|tracks + .cue] <Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350139.jpg" />
 </div>
 
 
@@ -482,7 +603,7 @@ VA - Rock Sound: Sound Check No. 127 (2009) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350066.jpg" />
 </div>
 
 
@@ -511,7 +632,7 @@ VA - Rock Sound: Sound Check No. 125 (2009) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350061.jpg" />
 </div>
 
 
@@ -540,7 +661,7 @@ Jana Kramer - Thirty One (2015) [FLAC|tracks + .cue]<Rock, Country Rock, Pop>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349563.jpg" />
 </div>
 
 
@@ -569,7 +690,7 @@ Whitewater - Dark Planet (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349418.jpg" />
 </div>
 
 
@@ -598,7 +719,7 @@ The Moody Blues - Every Good Boy Deserves Favour (1971) Remastered /2007, Thresh
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349307.jpg" />
 </div>
 
 
@@ -627,7 +748,7 @@ Hawkwind Light Orchestra - Carnivorous (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349285.jpg" />
 </div>
 
 
@@ -641,128 +762,6 @@ Hawkwind Light Orchestra - Carnivorous (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B1846656FEB57895DA0B12EEDC67D3EF7923922
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 579291   (348192) от 23.11.2012
-
-Cactus - The New Cactus Band (1970-1973) 5 CD Box Set /Victor,2009/ [FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_348192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Getting Better (3:50)
-02. I Can't Wait (3:27)
-03. Hook Line And Sinker (3:56)
-04. It's Just A Feelin' (4:11)
-05. Lady (Spend My Life With You) (4:29)
-06. Ragtime Suzy (2:47)
-07. Blue Gipsy Woman (3:21)
-08. Senseless Rebel (3:28)
-09. Man Is A Boy (3:30)
-10. Hold On To My Love (4:14)(   Читать дальше...   )Жанр: Blues, Classic, Hard RockПродолжительность: 00:40:28
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578178   (348163) от 22.09.2022
-
-Moritz - About Time Too (2017) [FLAC|Lossless|image + .cue] <AOR, Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. About Time Too
-02. One More Beautiful Day
-03. To The Moon and Back
-04. Chance Of A Lifetime(   Читать дальше...   )Жанр: AOR, Melodic RockПродолжительность: 00:52:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60A955551BAAC28E615C258E2AAF0B4B519ABA06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578166   (348159) от 22.09.2022
-
-Prayer - Silent Soldiers (2018) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silent Treatment
-02. Rock And A Hard Place
-03. Fires Of The Heart
-04. Feel Like A Prisoner(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:57:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA3BE97C53D8203A81193627A702F48399EFA8A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578200   (348072) от 22.09.2022
-
-Stan Bush - Change The World (2017) [FLAC|Lossless|image + .cue] <AOR, Arena Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Change The World 5:00
-02. Warrior 3:23
-03. Born To Win 3:16
-04. Never Surrender 3:27(   Читать дальше...   )Жанр: AOR, Arena Rock, Pop RockПродолжительность: 00:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28077A39FB55168022A8293B3542095C02D7EB87
 ```
 
 https://mybot314.ru/tekegram_catalog/

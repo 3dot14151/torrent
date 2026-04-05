@@ -1,3 +1,55 @@
+###  Публикация: 608622   (992615) от 26.01.2013
+
+Зеленый Фонарь: Анимационный сериал / Green Lantern: The Animated Series (1 сезон: 14 серий из 18) (2011-2013) WEB-DLRip (обновляемая)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультсериал с компьютерной анимацией, посвящённый приключениям Хэла Джордана, Зелёного Фонаря Сектора 2814 и его союзника Киловога. К ним потом присоединяются Рэйзер и Айя (робот с искусственным интеллектом). Они борются против главных злодеев сериала - Красных Фонарей, возглавляемых Атроситусом.Жанр: Компьютерная анимация, фантастика, боевик, приключенияРежиссер: Сэм Лью, Рик МоралесПерсонажи: Джошуа Китон, Том Кенни, Кевин Майкл Ричардсон, Джонатан Адамс, Грей ДеЛайл, Джейсон Спайсэк, Дженнифер Хейл, Йен Эберкромби, Сьюзан Блэйксли, Брайан Джордж и др.Перевод: Двуголосый закадровый, любительскийПродолжительность: 14 х ~ 00:20:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590245   (991500) от 27.01.2013
+
+Сорвиголова Кик Бутовски / Kick Buttowski: Suburban Daredevil (Сезон 2, 1-32(32)) (2011-2012) WEB-DLRip
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991500.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кик Бутовски — очень необычный ребенок, живущий в самом обычном городе. Он — великий борец с обыденностью, который стремится сделать каждое мгновение своей жизни особенным. Твердо решив стать самым отчаянным каскадером в мире, Кик понимает, что ему необходимо преодолеть все жизненные обстоятельства на этом пути.Жанр: КомедияРежиссер: Крис Савино, Шерм КоэнПерсонажи: Кларенс Фрэнсис «Кик» Бутовски, Гюнтер Магнусон, Брэдли Фрэнсис «Бред» Бутовски, Брианна Фрэнсис «Брит» Бутовски, Кендалл Перкинс, Брианна Фрэнсис «Брит» БутовскиПеревод: Полный дубляж, вкл. песниПродолжительность: Cерия ~ 00:21:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDFF5FBC409A2CC598758A82D5386E58A8ED6E48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350029   (991253) от 18.01.2020
 
 Отважные птенцы / Top Wing (2017) WEBRip [H.264/1080p-LQ] (сезон 1, эпизоды 26 из 26)
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991253.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990466.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989836.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987783.jpg" />
 </div>
 
 
@@ -115,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987642.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986399.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986190.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985719.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985214.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984217.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982323.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980389.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979456.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978876.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_977244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_977244.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976433.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976421.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975595.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975041.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974227.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974140.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974125.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972944.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972859.jpg" />
 </div>
 
 
@@ -621,61 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14E77BA2E82E614A6254D01B720671CB180119D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 744390   (971120) от 11.01.2014
-
-Гадкий Я: Мини-фильмы. Миньоны / Despicable Me Presents: Minions Mini-Movies & Minion Madness (2010-2013) DVDRip (6 серий)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жёлтые коротышки, служат армией и помощниками для Грю. Хотя и понимают человеческую речь, говорить по-человечески не умеют, но могут произносить отдельные слова, но чаще они общаются на своём языке между собой. Глуповатые, но очень полезные. Интересно, что у некоторых миньонов только один глаз. Замечательное дополнение к известному мультфильмам "Гадкий я" (   Читать дальше...   )1. Преображение дома - Home makeover
-2. Ознакомительный день - Orientation Day
-3. Банан - Banana (без перевода – не требуется, нет диалогов)
-4. Паника в почтовом отделении - Panic in the Mailroom (без перевода – не требуется, нет диалогов)(   Читать дальше...   )Жанр: Мультфильм, короткометражный, комедия, приключения, семейныйПеревод: Профессиональный многоголосыйЯзык субтитров: ОтсутствуютПродолжительность: 6 х ~ 00:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35EBBABBE77A3DEBC73D4F8E224CB15FA8C52064
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358076   (970355) от 06.02.2020
-
-Долина муми-троллей / Moominvalley (2019) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-13 из 13) HDRezka Studio
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970355.jpg" />
-</div>
-
-
-###  Подробнее
-
-Муми-тролль — любопытный, добрый, чуткий и идеалистичный подросток. Он взрослеет, пытаясь найти свое истинное «я», оставаясь при этом частью семьи.Производство: Финляндия, ВеликобританияЖанр: Фэнтези, драма, семейныйРежиссер: Стив Бокс, Даррен Робби, Avgousta ZourelidiАктеры: Мэтт Берри, Уорвик Дэвис, Тэрон Эджертон, Эдвин Эндре, Розамунд Пайк, Бел Паули, Акия Генри, Уилл Селф, Джо Уилкинсон, Сьюзи БрэннПеревод: Многоголосый профессиональный (HDRezka Studio)Субтитры: русские (хардсаб)Продолжительность: ~00:20:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A231F425B13404257D887D83357CAB381AC16E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,113 @@
+###  Публикация: 1418227   (348967) от 24.10.2020
+
+Dreamtime - Rigid Force Alpha: Extended Soundtrack (2019) [FLAC 2.0|44,1/24|tracks|WEB-DL] <Spacesynth, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave, Retro (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction (1:40)
+02. Rigid Force Alpha Theme (2:54)
+03. Mission Briefing (3:01)
+04. Mining Outpost Alpha (2:57)(   Читать дальше...   )Жанр: Spacesynth, SynthwaveПродолжительность: 00:53:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84259D7834245DDB07227167F5937A4353305DB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418313   (348956) от 24.10.2020
+
+John Frusciante - Maya (2020) Timesig [FLAC|Lossless|WEB-DL|tracks] <Breakbeat, Hardcore, Acid, IDM, Breakcore, Jungle>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348956.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Brand E	4:51
+2.	Usbrup Pensul	4:23
+3.	Flying	3:42
+4.	Pleasure Explanation	4:14(   Читать дальше...   )Жанр: Breakbeat, Hardcore, Acid, IDM, Breakcore, JungleПродолжительность: 00:32:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05372C6D456C07F7AA27823437AF0DD945F6B884
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981689   (348811) от 24.10.2020
+
+Boy is Fiction - Discography 4 Releases (2007-2020) Sun Sea Sky, List Records, n5MD [FLAC|Lossless|tracks+.cue, tracks] <IDM, Post Rock, Ambient, Downtempo, Modern Classical>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Veins Are Blocked / Rework (03:50)Тип издания: CD, WebЖанр: IDM, Post Rock, Ambient, Downtempo, Modern Classical •Продолжительность: 02:37:38 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B5CE55A484BDFE3F5360DFEE2BF0B6045CBBC8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 235120   (348801) от 24.10.2020
+
+Vlastur - Interaxion Dub (2009) EQnation Records [FLAC|Lossless]<Psychill, Dub, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Psychill, Dub, AmbientПродолжительность: 01:14:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90FD44AF1B4827545448E6D9D9C5A48635343C8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329949   (348009) от 07.10.2019
 
 Portico Quartet - Memory Streams (2019) [MP3|320 Kbps] <Ambient, Crossover Jazz>
@@ -6,7 +116,7 @@ Portico Quartet - Memory Streams (2019) [MP3|320 Kbps] <Ambient, Crossover Jazz>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348009.jpg" />
 </div>
 
 
@@ -35,7 +145,7 @@ VA - 25 Vocal House Multibundle (2016) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347954.jpg" />
 </div>
 
 
@@ -64,7 +174,7 @@ VA - Beach Bar Lounge: Chill out and Deep House Selection (2016) [MP3|320 Kbps] 
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347948.jpg" />
 </div>
 
 
@@ -93,7 +203,7 @@ VA - Arkham Digital: ADE Essentials (Selected by DJ Xquizit)(2018) [MP3|320 Kbps
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347936.jpg" />
 </div>
 
 
@@ -122,7 +232,7 @@ VA - Live @ Ultra Music Festival Croatia (2019) [MP3|~245 Kbps (V0)] <Trance, Te
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347864.jpg" />
 </div>
 
 
@@ -151,7 +261,7 @@ VA - Anjunabeats Volume 14 (Mixed By Above & Beyond) (2019) [FLAC|Lossless|WEB|t
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347858.jpg" />
 </div>
 
 
@@ -180,7 +290,7 @@ VA - Total Trance Selections Vol.13 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347784.jpg" />
 </div>
 
 
@@ -209,7 +319,7 @@ Electro Deluxe - Apollo (2019) [FLAC 2.0|48/24|tracks|WEB-DL] <Electro,  Funk>
 >>Trance, House, Techno (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347722.jpg" />
 </div>
 
 
@@ -238,7 +348,7 @@ VA - A State of Trance: Top 20 - October (Selected By Armin Van Buuren)(ADE Spec
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347626.jpg" />
 </div>
 
 
@@ -267,7 +377,7 @@ Alexander Popov - Intention (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347625.jpg" />
 </div>
 
 
@@ -296,7 +406,7 @@ VA - DJ Фонарь - Reactivate Classics Part I  (1998) [MP3|320 Kbps] <Techno
 >>Techno, Electro, Minimal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347615.jpg" />
 </div>
 
 
@@ -325,7 +435,7 @@ Derek Palmer - Gemini (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347548.jpg" />
 </div>
 
 
@@ -354,7 +464,7 @@ VA - Psychedelic Adventures Vol 3 (Selected by Aesis Alien) (2018) [MP3|320 Kbps
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347482.jpg" />
 </div>
 
 
@@ -383,7 +493,7 @@ Vladimir Fonarev (Володя Фонарёв) - 21 Compilations (1997 - 2017) [
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347286.jpg" />
 </div>
 
 
@@ -412,7 +522,7 @@ VA - Coastal Sunrise 001 (2017) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347112.jpg" />
 </div>
 
 
@@ -441,7 +551,7 @@ Edamame - Bask (2017) [MP3|320 Kbps] <chill electronic, ambient, downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347111.jpg" />
 </div>
 
 
@@ -470,7 +580,7 @@ VA - Workout Music, Vol.2 (2017) [MP3|320 Kbps] <House, Tech House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347103.jpg" />
 </div>
 
 
@@ -499,7 +609,7 @@ VA - Deep House Blast Three (2018) [MP3|320 Kbps] <House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_347035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347035.jpg" />
 </div>
 
 
@@ -528,7 +638,7 @@ VA - Workout Music, Vol.7 (2017) [MP3|320 Kbps] <House, Tech House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346966.jpg" />
 </div>
 
 
@@ -557,7 +667,7 @@ VA - The Hitmen - Completed (2017) [FLAC|Lossless|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346820.jpg" />
 </div>
 
 
@@ -586,7 +696,7 @@ Tchami - Year Zero (2020) [FLAC|Lossless|WEB-DL|tracks] <EDM, Deep House, Bassli
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346802.jpg" />
 </div>
 
 
@@ -615,7 +725,7 @@ The Bloody Beetroots - The Great Electronic Swindle (2017) [MP3|320 Kbps] <Drums
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346592.jpg" />
 </div>
 
 
@@ -629,122 +739,6 @@ The Bloody Beetroots - The Great Electronic Swindle (2017) [MP3|320 Kbps] <Drums
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1056FBC04426DBE9F4DCD20E83C72BC66F56BB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179629   (346586) от 01.11.2017
-
-VA - Infusion Vol. 3 (2017) [MP3|320 Kbps] <bass, downtempo, dubstep>
-
->>Electronic
->>Dubstep, Future Garage, Bass Music, UK Garage
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_346586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dissolv - Redwood Rising (04:51)
-02. AHEE x Frank Royal - Lose My Mind feat. Ash Tree (04:27)
-03. Ian Stewart & Jackson Whalan - Rap City in Da Nile (feat. Mr. Lif) (04:08)
-04. Chamberlain - Desert Horizon (05:36)(   Читать дальше...   )Жанр: bass, downtempo, dubstepПродолжительность: 00:47:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DF0C07D7DAF6E2C31E7EBE2DC4B656AEEBF7530
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073400   (345861) от 16.11.2016
-
-VA - Drumma Society Vol.3 (2016) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexkid - Fifteen-O-Five (Original Mix) (6:42)
-02. Astelaguel (Manglus - Candombe Jaus (Original Mix) (7:46)
-03. Bendejo - Modi (Original Mix) (7:32)
-04. Bruno Schiavi - Stratit (Original Mix) (7:20)(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:23:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5443BBE8E03803AA24E1F15D4AD171F665A793EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073403   (345854) от 16.11.2016
-
-VA - Deep Escapades Vol.1 (2016) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boogeyman - Guitarliscious
-02. Mr. Groove - Mouraria
-03. Miguel Alcobia - Who Am I
-04. Gorillag - Last Night - Extended Mix(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:28:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:992CD172EDCDA751C436311FB0309071235A86CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578545   (345833) от 23.09.2022
-
-VA - Black Hole Trance Music 09-22 (2022) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emma Hewitt & Markus Schulz - INTO MY ARMS (Extended Mix) [6:12]
-02. BT - Paper Chairs (Alex Sonata & TheRio Extended Remix) [6:39]
-03. Richard Durand & Susana - I Matter to You (XiJaro & Pitch Extended Remix) [8:10]
-04. Dennis Sheperd & Brandon Le - Intouchable (Extended Mix) [7:22](   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:45:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69AC2DB5581D61342D47712EED86506F1530D1B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

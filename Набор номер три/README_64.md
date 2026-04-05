@@ -1,3 +1,171 @@
+###  Публикация: 1356669   (976163) от 01.02.2020
+
+Неогранённые алмазы (Неогранённые драгоценности) / Uncut Gems (2019) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976163.jpg" />
+</div>
+
+
+###  Подробнее
+
+Говард Ратнер владеет ювелирным магазином. Чтобы сохранить бизнес, он влезает в долги, которые обязан погасить в короткие сроки.Производство: США / Elara Pictures, IAC Films, Scott Rudin ProductionsЖанр: Триллер, драма, криминалРежиссер: Бен Сэфди, Джошуа СэфдиАктеры: Адам Сэндлер, Джулия Фокс, Идина Мензел, Лакит Стэнфилд, Кевин Гарнетт, Эрик Богосян, Кит Уильямс Ричардс, Джадд Хёрш, Майк Франчеза, Ноа ФишерПеревод: Дублированный (Пифагор)Субтитры: Русские (Forced, Full), английские (Full, SDH), немецкие, испанские, финские, французские, итальянские, польские, турецкиеПродолжительность: 02:15:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08081519AC2F93A135153819397E3D49C73DC39E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 498694   (975720) от 09.02.2013
+
+Тайны мира с Анной Чапман (29 выпусков) (2012-2013) SATRip [обновляемая]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярный проект Анны Чапман на РЕН ТВ полностью меняет свой формат!
+
+Самая загадочная ведущая на нашем телевидении и новый цикл документальных расследований! В новом сезоне программа будет посвящена исследованиям связей между фактами, которых на первый взгляд не существует – медицинский шпионаж, тайны белых халатов, технологии сексуально-политического скандала, любовь как причина военных конфликтов, а также самый таинственный заговор 21 века. Неизвестные подробности громких политических дел. Вся правда без цензуры.
+
+Анна Чапман раскроет самые громкие тайны нашего времени!Жанр: ДокументальныйПродолжительность: 00:48:02
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 616344   (975707) от 09.02.2013
+
+Wolfram Mathematica 9.0.1 [English]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975707.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почти любой рабочий процесс включает в себя вычисление результатов, и это именно то, что делает система Mathematica — от построения веб-сайта для торговли хедж-фондами или публикации технических учебников до разработки встроенных алгоритмов распознавания изображений или преподавания математического анализа.
+
+Система Mathematica известна как самое мощное в мире вычислительное приложение. Но это гораздо больше — она является единственной платформой для разработки, полностью интегрирующей вычисления в рабочий процесс от начала до конца, плавно проводя вас от первоначальных идей и вплоть до развернутых индивидуальных и промышленных решений.Название программы: Wolfram MathematicaЯзык интерфейса: English
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 616244   (975706) от 09.02.2013
+
+Star Wars Collection [Ru/En] (Repack) 1987-2012 | R.G. Catalyst
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975706.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Давным давно, в далёкой-далёкой галактике..."
+Хотя зачем так далеко? Здесь и сейчас, Вы можете погрузиться в мир легендарной саги. Благодаря Star Wars Collection Вам предоставится возможность поучавствовать в войне за галактический мир и установить равновесие силы...
+да прибудет с Вами сила...Тип издания: RepackРазработчик: Rovio MobileЖанр: Arcade, SmallЯзык озвучки: Русский, АнглийскийСубтитры: -/-Язык субтитров: Русский, Английский, MultiЯзык интерфейса: Русский, Английский, Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C9882150F1D3C4EC0BEC99631133307A683D7BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 615776   (975704) от 09.02.2013
+
+Невозможное / Lo imposible / The Impossible (2012) DVDRip
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975704.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лента о событиях, разворачивающихся на фоне цунами 2004 года.
+То, что произошло в 2004-м году в Индийском океане, на его берегу, до сих пор будоражит воображение и заставляет кровь стыть в жилах.Жанр: Триллер, ДрамаРежиссер: Хуан Антонио БайонаПродюсер: Белен Атьенца, Альваро Аугустин, Гислен БаруаАктеры: Наоми Уоттс, Юэн МакГрегор, Том Холлэнд, Сэмюэл Джослин, Оакли Пендергаст, Марта Этура, Шенке Мёринг, Джеральдин Чаплин, Плой Хиндачоте, Жомжаои Сэ-ЛимПеревод: Двуголосый закадровый, любительский + одноголосыйПродолжительность: 01:48:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D7DF2AF704C68BC3DC3E8F0AEA7CFB924369AE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972696   (975197) от 12.01.2016
+
+Михаил Русаков | Фреймворк Yii 2.0 с нуля. Пример создaния сaйтa (2015) PCRec [H.264/720p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975197.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс состоит из двух крупных разделов:
+«Основы и примеры использования Yii» и «Создание Blog.MyRusakov.ru».
+По сути, это теория и практика. Почти к каждому уроку в обоих разделах идут упражнения для закрепления материала.
+(   Читать дальше...   )Производство: РоссияЖанр: Программирование, PHPПродолжительность: 05:32:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B7AE65D69EF82C4F00535BF7D7B817D9AC03672
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974390   (975195) от 12.01.2016
 
 Вавилон 5 / Babylon 5 (1993-2007) DVDRip [H.264] (сезон 1-5, серии 1-110 из 110 + Крестовый поход + полнометражные фильмы) ТВ-6
@@ -6,7 +174,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975195.jpg" />
 </div>
 
 
@@ -32,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975191.jpg" />
 </div>
 
 
@@ -58,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975190.jpg" />
 </div>
 
 
@@ -84,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975189.jpg" />
 </div>
 
 
@@ -110,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975188.jpg" />
 </div>
 
 
@@ -136,7 +304,7 @@ WinPE 10 Sergei Strelec (x86/x64) 11.01.2016 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975186.jpg" />
 </div>
 
 
@@ -162,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975169.jpg" />
 </div>
 
 
@@ -188,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975084.jpg" />
 </div>
 
 
@@ -214,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975081.jpg" />
 </div>
 
 
@@ -240,7 +408,7 @@ Navitel / Навител: Официальные карты релиза 2019-Q3
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975036.jpg" />
 </div>
 
 
@@ -266,7 +434,7 @@ HostsPatrol 0.3 [Русский]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974510.jpg" />
 </div>
 
 
@@ -292,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974185.jpg" />
 </div>
 
 
@@ -320,7 +488,7 @@ Acronis True Image 19.0.6027 / Universal Restore 11.5.40010 / Disk Director 12.0
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974169.jpg" />
 </div>
 
 
@@ -346,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974086.jpg" />
 </div>
 
 
@@ -372,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>10
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974085.jpg" />
 </div>
 
 
@@ -400,7 +568,7 @@ Navitel / Навител Навигатор v9.6.904/1327/1978 Real CLONES UniRe
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974083.jpg" />
 </div>
 
 
@@ -426,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974080.jpg" />
 </div>
 
 
@@ -452,7 +620,7 @@ HTML Academy | Интенсивный онлайн-курс «Базовый Jav
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974078.jpg" />
 </div>
 
 
@@ -479,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974077.jpg" />
 </div>
 
 
@@ -506,177 +674,13 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973886.jpg" />
 </div>
 
 
 ###  Подробнее
 
 31 января 2020 года Европарламент все-таки утвердил  резолюцию, предусматривающую принятие единого стандарта зарядки мобильных устройств с целью сокращения электронных отходов — за соответствующее решение проголосовали 582 депутата при 40 голосах против и 37 воздержавшихся.Документ призывает Еврокомиссию к июлю принять новые правила, чтобы с покупкой нового устройства (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356688   (973883) от 03.02.2020
-
-Windows 10 X получит одну из функций MacOS
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973883.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 X - новая операционная система, основанная на модульном проекте Microsoft Core OS, недавно была продемонстрирована вместе с устройством Surface Neo. Хотя Windows 10 X была создана и оптимизирована для устройств с двумя экранами, но согласно утечкам информации, она будет устанавливаться и на традиционные ноутбуки.Windows 10 X будет иметь ряд эксклюзивных (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077146   (973881) от 03.02.2020
-
-Марс / Mars (2016) HDTVRip [H.264/720p-LQ] (сезон 1, серия 1-6 из 6 + Марс: закулисье) студия «Велес»
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973881.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие приключенческого сериала происходит в настоящем и недалеком будущем. В 2033 году на красную планету на борту корабля «Дедал» должна отправиться первая интернациональная команда исследователей под командованием американца Бена Сойера (Бен Коттон). Задача астронавтов — успешно высадиться на планете и начать ее заселение. В сериале «Марс» использованы художественные (   Читать дальше...   )Производство: США / Imagine Entertainment, Radical Media, Zak ProductionsЖанр: фантастика, драма, приключенияРежиссер: Эверардо Валерио ГоутАктеры: Альберто Амман, Бен Коттон, Ката Сарбо, Николас Уиттман, Карен Ганьон, Том Нгуйен, Ген Сето, Наранцогт Цогцаикхан, Цогбаатар Бацориг, Алекс Саракко и др.Перевод: Двухголосый закадровый, профессиональный - студия «Велес»Озвучка: Марина Гладкая и Дмитрий СтрелковПродолжительность: ~00:47:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76E6F0AA44F57AED599D3E6530CE791A55F50DF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 18650   (973536) от 17.01.2010
-
-Близкие друзья / Queer as folk (2000-2005) TVRip (сезоны 1-5) (американская версия)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973536.jpg" />
-</div>
-
-
-###  Подробнее
-
-3 главных героя – Брайн, обеспеченный, хорошо зарабатывающий 29-летний парень, симпатяга, пользующийся тем, что ему все готовы отдаться, уверенный в себе и нагловатый. Майкл – его друг -  добрый и безнадежно влюбленный в Брайана; и Джастин – 17-летний парень, которого в первой серии Брайан лишает девственности и который также влюбляется в Брайана. И весь остальной (   Читать дальше...   )Жанр: Комедия / Мелодрама / Сериал /Перевод: Одноголосый закадровыйПродолжительность: 80:00:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 439180   (973269) от 20.01.2012
-
-Агент Джонни Инглиш: Перезагрузка / Johnny English Reborn (2011) HDRip
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973269.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма разворачивается через 8 лет после событий предшествующего фильма и с тех пор карьера сэра Джонни Инглиша ухудшается. За 5 лет до начала фильма его направили с заданием в Мозамбик, но миссия пошла ужасно плохо. С тех пор он живёт в пещере в горах Тибета, прячась ото всех из-за стыда, сожалений и обвинений в провале миссии.
-
-Фильм начинается, когда (   Читать дальше...   )Производство: США / Франция / Великобритания, Universal PicturesЖанр: Боевик, Комедия, ПриключенияРежиссер: Оливер ПаркерАктеры: Роуэн Эткинсон, Джиллиан Андерсон, Роджер Барклай, Эрик Карте, Того Игава, Элинор Уайлд, Мэнди Сидху, Маргарет Клуни, Розамунд Пайк, Доминик УэстПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:41:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98A3137C36AB96920CFF0D4575F8DA11DB19B73D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616590   (973011) от 11.02.2013
-
-Kaspersky Endpoint Security 10 build 10.1.0.867 RePack by SPecialiST V13.2 [2013/RUS]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973011.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kaspersky Endpoint Security 10 для Windows (для рабочих станций) - современная многоуровневая защита компьютеров и ноутбуков под управлением Windows в локальной сети организации.
-
-Комплексная защита от всех видов угроз обеспечивается многоуровневой системой, включающей контроль запуска и активности программ, контроль внешних устройств, веб-контроль доступа к ресурсам сети Интернет и защиту от вредоносных программ, онлайн и сетевых угроз.
-
-Каждый тип угроз контролируется и обрабатывается отдельным компонентом Kaspersky Endpoint Security. Компоненты можно включать и выключать независимо друг от друга, а также настраивать различные параметры их работы, обеспечивая оптимальный уровень защиты.
-
-Инструмент централизованного управления защитой в локальной сети организации Kaspersky Security Center позволяет удаленно установить антивирусное решение на рабочие станции, настроить параметры защиты для компьютеров сети, управлять обновлениями ПО и антивирусных баз, контролировать статус защиты и оперативно реагировать на (   Читать дальше...   )Название программы: Kaspersky Endpoint SecurityЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616816   (973010) от 11.02.2013
-
-Elcomsoft Wireless Security Auditor 5.2.272 Professional Edition [Multi/Rus]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elcomsoft Wireless Security Auditor - новая программа, эффективно использующая вычислительные мощности современных видеокарт для восстановления и аудита паролей в беспроводных сетях со скоростью, недостижимой обычными средствами. При использовании этой технологии наиболее ресурсоёмкие части программы выполняются на мощных суперскалярных процессорах, использующихся в современных видеокартах ATI и NVIDIA. Если в системе присутствуют одна или несколько карт последнего поколения (ATI HD series, NVIDIA GeForce 8, 9 or 200 series), аппаратное ускорение активизируется автоматически. Программа проверяет безопасность вашей беспроводной сети, пытаясь проникнуть в нее снаружи или изнутри.Название программы: Elcomsoft Wireless Security Auditor Professional EditionЯзык интерфейса: Multi/Rus
 
 ## Скачать торент
 ```bash

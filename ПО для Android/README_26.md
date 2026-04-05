@@ -1,3 +1,108 @@
+###  Публикация: 1465311   (1019247) от 25.04.2021
+
+mcpro24fps v035b [Ru] - для профессиональной записи видео
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возможно самая богатая настройками кинематографическая видеокамера для Анроид устройств. На устройствах Sony Xperia 5 и Xperia 1 пишет в 10 бит. Достаточно гибкое приложение, которое можно настроить под возможности своего аппарата.Тип издания: Пиратка (Paid)Релиз состоялся: 21 апреля 2021 г.Разработчик: Chantal Pro SIAПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2BD948BD39900263663D0799D02A1023BE73DED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465647   (1019105) от 26.04.2021
+
+Песни с аккордами PRO v5.3.8368 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одно из лучших оффлайновых приложений. Не требует подключения к Интернету для доступа к базе песен.
+Даже если у вас нет с собой гитары или укулеле - просто нажимайте на аккорды и пойте песни!Тип издания: Пиратка (Paid)Релиз состоялся: 4 марта 2020 гРазработчик: RUSABПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF002A630347A384366FAC78E60749FF52AB1DC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465640   (1019104) от 26.04.2021
+
+Песни под гитару Pro v7.4.31 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Часто бывают ситуации, когда в компании друзей дело доходит до гитары. И тогда начинаются долгие попытки вспомнить подходящую песню - чтобы и гитарист мог сыграть, и все, желающие подпевать, текст помнили. Спасти ситуацию поможет данная программа - удобный песенник с аккордами для гитары.Тип издания: Пиратка (Paid)Релиз состоялся: 4 января 2021 г.Разработчик: Suslov AlexanderПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69CD46CC8B805DE15EF0EE571821E5B1FECE54DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465387   (1019098) от 26.04.2021
+
+Проезд перекрестков. Тренажер v1.38 [Ru] (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019098.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тренажер проезда перекрестков создан для закрепления теоретических знаний по проезду перекрестков и основан на новейших требованиях Правил дорожного движения РФ за 2021 год и охватывает такие темы как: проезд регулируемых, нерегулируемых равнозначных, нерегулируемых неравнозначных перекрестков, перекрестки с круговым движением, дорожные ситуации с участием трамваев, (   Читать дальше...   )Тип издания: Пиратка (разблокирован Premium)Релиз состоялся: 21.01.2021Разработчик: VolgaAppsПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0239281547775A4B446CD5FC620D62BD22ED7A99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273787   (1019009) от 26.04.2021
 
 MyLifeOrganized 3 Pro 3.4.5 [Ru/Multi]
@@ -6,7 +111,7 @@ MyLifeOrganized 3 Pro 3.4.5 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019009.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ PhotoPills v1.7.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018938.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ Sunnytrack v6.2.2 [Ru] – Положение солнца, Тени, Золот
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018918.jpg" />
 </div>
 
 
@@ -85,7 +190,7 @@ Songsterr Guitar Tabs & Chords v3.2.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018882.jpg" />
 </div>
 
 
@@ -114,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018760.jpg" />
 </div>
 
 
@@ -142,7 +247,7 @@ PROстройку+ Строительный калькулятор v1.8.6 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018743.jpg" />
 </div>
 
 
@@ -171,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018742.jpg" />
 </div>
 
 
@@ -197,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018738.jpg" />
 </div>
 
 
@@ -223,7 +328,7 @@ ChipTip v3.0 [Ru] - резьбы, скорость резания, посадк�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018736.jpg" />
 </div>
 
 
@@ -250,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018719.jpg" />
 </div>
 
 
@@ -279,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018679.jpg" />
 </div>
 
 
@@ -308,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018675.jpg" />
 </div>
 
 
@@ -334,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018666.jpg" />
 </div>
 
 
@@ -360,7 +465,7 @@ ReaderPro - UNLIMIT v1.12.7.7 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018398.jpg" />
 </div>
 
 
@@ -386,7 +491,7 @@ Guitar Pro v1.6.4 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018332.jpg" />
 </div>
 
 
@@ -413,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018311.jpg" />
 </div>
 
 
@@ -442,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018234.jpg" />
 </div>
 
 
@@ -471,7 +576,7 @@ Mojo v1.2.15 [Ru/Multi] - Создавайте Stories (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018177.jpg" />
 </div>
 
 
@@ -500,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018051.jpg" />
 </div>
 
 
@@ -526,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017914.jpg" />
 </div>
 
 
@@ -552,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017897.jpg" />
 </div>
 
 
@@ -578,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017857.jpg" />
 </div>
 
 
@@ -592,111 +697,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:792F304776C82762C562210337300D24360DC457
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467426   (1017817) от 03.05.2021
-
-SketchCut PRO v3.9.45 [Ru/Multi] - Раскрой под рукой
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017817.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полная обновленная версия SketchCut. Для смартфонов и планшетов. Без рекламы.
-Приложение разработано с учетом особенностей раскроя листовых материалов (ДСП, МДФ, стекло, пластики, мебельный щит и т.д.) как в ручную, так и на станках.Тип издания: Paid (Куплена в Маркете)Релиз состоялся: 8 февраля 2021 г.Разработчик: TaLi SoftwareПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:962764BD8BEA7F72CFE42EC2482D889EE092C6B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306079   (1017788) от 03.05.2021
-
-Hotspot Shield Free VPN  v8.6.0 Premium [Ru/En]
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017788.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hotspot Shield - приложение для быстрого, безопасного и анонимного доступа в Интернет и к заблокированным приложениям и сайтам. Создано AnchorFree™. Доступ к приложениям мультимедиа, видео и обмена сообщениями из любой точки мира | Разблокировка социальных сетей | Защита соединения Wi-Fi | Обеспечение безопасности и конфиденциальности при использовании мобильных (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 27.04.2021Разработчик: AnchorFree GmbHПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский  Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF297244F23872CBD1C815FE4EB8039EA78ACB82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467524   (1017727) от 04.05.2021
-
-Classic Notes + App Box 1.0.51 [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017727.jpg" />
-</div>
-
-
-###  Подробнее
-
-Classic Notes - это намного больше, чем стандартный блокнот. В приложение включен широкий ассортимент утилит, которые можно найти в разделе дополнительных функций.Тип издания: PaidРелиз состоялся: 04.05.2021Разработчик: Fluffy DelusionsПоддерживаемая ОС: Android 4.1+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98CCD773A11F185DC0C8B40CFC0E1B70D128B12E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467662   (1017721) от 04.05.2021
-
-Voicella v0.75 [Ru] - создание видео субтитров автоматически
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Voicella — это лучший инструмент для перевода речи и добавления субтитров в видео. Voicella переводит речи и голос в текст практически без ошибок с более чем 40 доступных языков. Исследования показывают, что видео с субтитрами в социальных сетях получают значительно больше просмотров, чем видео без субтитров. Voicella позволяет переводить речь, добавлять и накладывать (   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 25 апреля 2021 г.Разработчик: Anti PuПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6423F9DE7A6CBDB35A5B162F71C041116F20472
 ```
 
 https://mybot314.ru/tekegram_catalog/

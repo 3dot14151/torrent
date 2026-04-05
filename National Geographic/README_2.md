@@ -6,7 +6,7 @@ NGW. Гигантские змеи. Удавы / Monster Constrictors (2019) HDT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936193.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ NG: Тайное оружие Гитлера / Hitler's (Nazi) Secret Weapon (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_935956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_935956.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926037.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ NG. Cуперпрайд (Львиные страсти) / Superpride (2007) HDTV
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920928.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ NG: Тайные жизни Иисуса / Secret Lives of Jesus (2006) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917052.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914054.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ NG: Подъём Коста Конкордия / The Raising Of The Costa Conkor
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911629.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ NG. Расследование на месте катастрофы / Crash Scen
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911350.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ NG: Осушить океан. Бермудский треугольник / Dra
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904602.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903224.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902981.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899663.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898746.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ N.G. Дикие животные 24 часа / Wild 24 (2015) HDTVRip [H.264/720
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896013.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ NG. 9/11: Один день из жизни Америки / 9/11: One Day in Am
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893394.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ NG. Звездное выживание с Беаром Гриллсом / Runni
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893278.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ N.G. Момент смерти / Moment of death (2008) WEB-DLRip [H.264/720p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892787.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ N.G. Нацистские тайны Второй мировой / Nazi weird wa
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892287.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ NG: Христианство. Восхождение к власти / Иису�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890343.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Nat Geo Wild: Секреты крокодила / Croc Inside Out (2015) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889223.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ NG: Самые страшные мировые морские катастроф
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889082.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ NG: Миссия полета к Солнцу / Mission to the Sun (2018) IPTVRi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884959.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881795.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ NGW. Болотный отряд (Павианы Окаванго) / Swamp Troop
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880138.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ NG: Спасти Титаник: сокровища с глубины / Save the
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878255.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ NG: Спасение старейшей пирамиды Египта / Saving E
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878118.jpg" />
 </div>
 
 

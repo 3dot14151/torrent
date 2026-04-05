@@ -1,3 +1,108 @@
+###  Публикация: 1857136   (1059603) от 04.03.2026
+
+Pixlr AI Art Photo Editor v3.8.2 Mod by Mixroot [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059603.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pixlr - фоторедактор с множеством бесплатных фильтров и эффектов, который одинаково легок в использовании как профессионалами, так и новичками. В приложении доступно более двух миллионов наборов из бесплатных эффектов созданных сообществом Pixlr. Делитесь своими работами в социальных сетях и получайте множество лайков!Тип издания: ProРелиз состоялся: 19.11.2025Разработчик: Inmagine LabПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB065B843A2D18FCBF4D251E38284766372E904D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857214   (1059593) от 04.03.2026
+
+SuperImage Pro - AI Enhancer v3.17.2 Mod by SAGUN12 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059593.jpg" />
+</div>
+
+
+###  Подробнее
+
+SuperImage — это ваш универсальный инструмент для обработки фотографий на основе искусственного интеллекта — быстрый, конфиденциальный и работающий на базе встроенного интеллекта.Тип издания: Paid PatchedРелиз состоялся: 04.03.2026Разработчик: Zhenxiang ChenПоддерживаемая ОС: Android 6.0+Язык интерфейса: Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B85D40ADCCBC01FC0925A74387029F68887568BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857151   (1059588) от 04.03.2026
+
+AirBrush: ИИ Фоторедактор v8.3.0 Mod by PieMods [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Овладейте искусством селфи с AirBrush — мощным редактором фото и видео! Благодаря простым в использовании функциям вы можете обрабатывать свои селфи и фото с помощью инструментов, созданных, чтобы усиливать естественную красоту, сохраняя при этом природное очарование.Тип издания: Premium / ModРелиз состоялся: 04.03.2026Разработчик: PPIXOCIAL LABS PTE. LTD.Поддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C8580A571D4931B4FFB62D0AB78CF6E49D68DF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857145   (1059587) от 04.03.2026
+
+Kitchen Timer / Кухонный мульти-таймер v5.4.0 GP Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059587.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удобный и простой таймер для кухонных дел. Можно запустить несколько таймеров одновременно. Весьма красиво выглядит. В наличии тёмная тема и подробные настройки таймера.
+Легко управляйте своим временем с помощью нашего универсального приложения для таймера на кухне, созданного для того, чтобы удовлетворить все ваши потребности в тайминге с лёгкостью и стилем. Будь (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 04.03.2026Разработчик: Maxim KablukaПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1477F7D45C126A51CDF2DE75741A4F8EB48C0F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1857173   (1059566) от 04.03.2026
 
 Call Filter / Фильтр Звонков v1.33.6 Mod by FreeSoftware [Ru/Multi]
@@ -6,7 +111,7 @@ Call Filter / Фильтр Звонков v1.33.6 Mod by FreeSoftware [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059566.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ Magic Eraser / Магический ластик v3.1.14 Mod by Maximoff⁠ [Ru/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059420.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ Grok - ИИ ассистент v1.1.34-release.05 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059413.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ TVGuide v4.7.0 Premium Mod by Alex.Strannik [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059326.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059251.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059244.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059234.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ Vanced Tube v5.5.80.506 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059229.jpg" />
 </div>
 
 
@@ -214,7 +319,7 @@ Screen Mirroring - TV Miracast v4.0.0.232 Mod by vadj [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059115.jpg" />
 </div>
 
 
@@ -240,7 +345,7 @@ Mubert: AI Music Streaming v4.2.2 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059099.jpg" />
 </div>
 
 
@@ -267,7 +372,7 @@ Vanced Tube v5.5.80.503 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059098.jpg" />
 </div>
 
 
@@ -293,7 +398,7 @@ Device Info / Информация об устройстве v3.4.1.4 Mod by Bal
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059097.jpg" />
 </div>
 
 
@@ -319,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059092.jpg" />
 </div>
 
 
@@ -345,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059091.jpg" />
 </div>
 
 
@@ -371,7 +476,7 @@ Genius Art: Image AI Generator v1.5.6 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059086.jpg" />
 </div>
 
 
@@ -398,7 +503,7 @@ Grok - ИИ ассистент v1.1.33-release.18 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059085.jpg" />
 </div>
 
 
@@ -424,7 +529,7 @@ FBReader Premium v3.8.23 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059084.jpg" />
 </div>
 
 
@@ -450,7 +555,7 @@ Remini / Улучшение Фото v3.7.1288.202519828 Mod by Mixroot [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059083.jpg" />
 </div>
 
 
@@ -476,7 +581,7 @@ LazyMedia Deluxe v3.434 Mod by Alex.Strannik [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059082.jpg" />
 </div>
 
 
@@ -502,7 +607,7 @@ Battery Guru: Monitor & Health v2.4.6.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059033.jpg" />
 </div>
 
 
@@ -528,7 +633,7 @@ MobiOffice: Word, Sheets, PDF Premium v16.2.59179 Extra Mod by Balatan [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059032.jpg" />
 </div>
 
 
@@ -554,7 +659,7 @@ Smart Tools v2.1.17 mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059027.jpg" />
 </div>
 
 
@@ -565,111 +670,6 @@ Smart Tools® это набор инструментов состоящий из
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:059A62C6EC598664039C273C5E8A99E3473694E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856651   (1059026) от 01.03.2026
-
-Smart Tools 2 v1.2.4 Mod by TryRoon [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059026.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smart Tools® 2 - это расширенный набор инструментов. «Smart Tools 2» включает в себя все функции существующих «Smart Tools», поэтому мы рекомендуем новым пользователям приобрести это приложение. «Smart Tools 2» = «Smart Tools» + больше инструментов + больше возможностейТип издания: ModРелиз состоялся: 27.02.2026Разработчик: Smart Tools co.Поддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C69FBA01F2FB7C5FDA13C0F1DF747F3319CCF001
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856557   (1058960) от 01.03.2026
-
-PortalWG Lite 2.1.6 Mod by STR_BYPASS [Ru/Multi]
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058960.jpg" />
-</div>
-
-
-###  Подробнее
-
-Форк AmneziaWG 1.5 со встроенным генератором конфигураций. Быстрый и надежный VPN-протокол благодаря компактному коду и высокой эффективности.
-Лёгкий VPN-клиент для обхода блокировок. Оптимизирован под слабые устройства - быстро и стабильно.Тип издания: FreeПоддерживаемая ОС: Android 7.0 и вышеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63B2DEE88BE4C2D1E67DCBDF4FA34151CA94EBC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856487   (1058817) от 28.02.2026
-
-Logic Circuit Simulator Pro / Симулятор Логической Схемы v39.0.2 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058817.jpg" />
-</div>
-
-
-###  Подробнее
-
-Logic Circuit Simulator PRO предоставляет вам место для разработки собственной цифровой схемы. Хотите понять, как работает электроника? Приложение поможет вам изучить основы электроники и электротехники. Создавайте удивительные логические схемы со всеми предоставленными логическими элементами. Используйте различные элементы, чтобы развиваться, экспериментировать (   Читать дальше...   )Тип издания: ProРелиз состоялся: 27.02.2026Разработчик: Stefan BelinovПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3E463E36CFEE898BBA5E620A9BEF3DC3082E38B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856490   (1058816) от 28.02.2026
-
-HiPER Calc Pro v11.3.3 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058816.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощный и стильный научный калькулятор с обширными настройками внешнего вида. В наличии несколько удобных тем оформления, построение графиков и возможность поделиться подробным результатом вычислений в виде изображения. Поддерживается смена системы счисления. Реализовано вычисление превеликого числа функций.Тип издания: Pro / ModРелиз состоялся: 27.02.2026Разработчик: HiPER LabsПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D7EBDC3348E6BD2575559628D221A57A22BC3A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

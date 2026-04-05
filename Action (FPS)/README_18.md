@@ -1,3 +1,56 @@
+###  Публикация: 1228419   (637235) от 31.05.2018
+
+Downward Spiral: Horus Station (2018) [Ru/Multi] (1.0) Repack xatab
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Downward Spiral: Horus Station - это таинственный и атмосферный триллер, действие в котором происходит в полной невесомости на заброшенной станции "Horus Station".
+В игре Downward Spiral: Horus Station, где акцент сделан на графическое развитие сюжета, игрок попадет на корабль, покинутый экипажем.Тип издания: RepackРазработчик: 3rd Eye StudiosЖанр: Adventure, Action, 3D, 1st PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAAC05D144919CEE954B616FF8683028A20D9BC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228421   (637089) от 31.05.2018
+
+Downward Spiral: Horus Station (2018) [Ru/Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637089.jpg" />
+</div>
+
+
+###  Подробнее
+
+В игре Downward Spiral: Horus Station, где акцент сделан на графическое развитие сюжета, игрок попадет на корабль, покинутый экипажем. Играть можно в одиночку или вдвоем в режиме сетевой совместной игры. Игрокам придется восстановить сюжет по кусочкам, наблюдая и интерпретируя происходящее на заброшенной космической станции. Атмосферное действие сопровождается электронной (   Читать дальше...   )Тип издания: RepackРазработчик: 3rd Eye StudiosЖанр: Adventure, Action, 3D, 1st PersonЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0309E5E1302DFBBC58FAAB0FAB90873F156758A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1143339   (636812) от 17.06.2017
 
 Blood 2: The Blood Group (1998) [En] (2.1/1.0.233/dlc) License GOG
@@ -6,7 +59,7 @@ Blood 2: The Blood Group (1998) [En] (2.1/1.0.233/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636812.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ House of Evil 2 (2019) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_636780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636780.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ Tom Clancy's Rainbow Six + Eagle Watch [Ru] (RePack) 1998-1999 | Pilotus
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_636585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_636585.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ Borderlands - The Pre-Sequel (2014) [Ru/Multi] (1.0.8/dlc) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635084.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ Borderlands - The Pre-Sequel (2014) [Ru/Multi] (1.0.8/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634952.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ Generation Zero (2019) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634945.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ Bunker 58 (2017) [En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_632828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632828.jpg" />
 </div>
 
 
@@ -188,7 +241,7 @@ Agony (2018) [Ru/Multi] (1.0/upd1) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_631515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631515.jpg" />
 </div>
 
 
@@ -214,7 +267,7 @@ GAIN (2016) [En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629814.jpg" />
 </div>
 
 
@@ -240,7 +293,7 @@ Tales of Destruction (2016) [En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_629806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629806.jpg" />
 </div>
 
 
@@ -267,7 +320,7 @@ Dead Effect 2 (2016) [Ru/Multi] (190 401.1357/dlc) License SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627575.jpg" />
 </div>
 
 
@@ -293,7 +346,7 @@ The Occupation (2019) [Ru/Multi] (1.02) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627557.jpg" />
 </div>
 
 
@@ -319,7 +372,7 @@ Dead Effect 2 (2016) [Ru/Multi] (190 401.1357/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_627312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627312.jpg" />
 </div>
 
 
@@ -345,7 +398,7 @@ Get Even (2017) [Ru/En] (1.0) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626907.jpg" />
 </div>
 
 
@@ -371,7 +424,7 @@ GHOUL (2018) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625875.jpg" />
 </div>
 
 
@@ -397,7 +450,7 @@ GHOUL (2018) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624052.jpg" />
 </div>
 
 
@@ -423,7 +476,7 @@ Crysis 3 (2013) [Ru] (1.3/upd3) Portable PortGamPC
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623996.jpg" />
 </div>
 
 
@@ -449,7 +502,7 @@ Call of Duty: World at War (2008) [Ru] (1.7.1263) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623590.jpg" />
 </div>
 
 
@@ -475,7 +528,7 @@ The Forest (2018) [Ru/Multi] (1.08) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620518.jpg" />
 </div>
 
 
@@ -501,7 +554,7 @@ Aliens: Colonial Marines (2013) [Ru/En] (1.0.210.751923/upd1.4.0/dlc) Repack nem
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_620309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620309.jpg" />
 </div>
 
 
@@ -527,7 +580,7 @@ Necromunda: Hired Gun (2021) [Ru/Multi] (1.62662/dlc) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_619792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619792.jpg" />
 </div>
 
 
@@ -553,7 +606,7 @@ Space Hulk: Deathwing (2018) [Ru/En] (2.42/dlc) Repack Mizantrop1337 [Enhanced E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618375.jpg" />
 </div>
 
 
@@ -579,7 +632,7 @@ We Happy Few (2018) [Ru/Multi] (1.7.79954/dlc) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_618363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618363.jpg" />
 </div>
 
 
@@ -605,7 +658,7 @@ Doom 3 [Ru/En] (RePack/1.3.1) 2004 l kuha
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616157.jpg" />
 </div>
 
 
@@ -616,58 +669,6 @@ Doom 3 [Ru/En] (RePack/1.3.1) 2004 l kuha
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A9A8F06AFC8B2FD5CA76F93C3CF1092758B0C18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037211   (614874) от 23.07.2016
-
-World Of Undead (2016) [En] (1.0 Hotfix) Repack Other s
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614874.jpg" />
-</div>
-
-
-###  Подробнее
-
-World Of Undead является новым захватывающим шутером от первого лица с элементами развития персонажа и режимом Tower Defense.Тип издания: RepackРазработчик: ZK-TechЖанр: Action (Survival horror, Shooter, Tower Defense), 3D, 1st Person, IndieЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCDEE2311D9F403FBF8EBF198EF22B4FE441B91A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128954   (614126) от 29.06.2017
-
-Outlast 2 (2017) [Ru/En] (1.0.17517) Repack R.G. Механики
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614126.jpg" />
-</div>
-
-
-###  Подробнее
-
-Outlast 2 – это продолжение Outlast, популярной игры в жанре «хоррор». Ее события разворачиваются в той же вселенной, но уже с другими действующими лицами и в совершенно другом месте. Outlast 2 предоставляет уникальную возможность погрузиться в бездну человеческого разума, скрывающего по-настоящему страшные тайны. Ни одно противостояние нельзя разделить на «белых» (   Читать дальше...   )Тип издания: RepackРазработчик: Red BarrelsЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10FFACCDF2184C5100D532F1A03E43B4F1605190
 ```
 
 https://mybot314.ru/tekegram_catalog/

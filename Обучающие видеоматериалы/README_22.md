@@ -1,3 +1,30 @@
+###  Публикация: 1440429   (1035036) от 30.01.2021
+
+Евгений Карпов | Интерьер в SketchUp (2019)
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035036.jpg" />
+</div>
+
+
+###  Подробнее
+
+О курсе
+Похож на виртуальную стройку: начинаем со существующих стен, затем возводим перегородки, наносим штукатурку, рассчитываем площади и объемы чернового и чистового пола, вставляем окна и двери, текстурируем, собственноручно моделируем мебель и расставляем готовую. В конце курса получается виртуальная модель дома, которая выводится на страницы в виде картинок, (   Читать дальше...   )Производство: UdemyЖанр: ГрафикаПродолжительность: 15:01:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:364A5EF274488DDF9FC3D873C1422DC3AB813F0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1443751   (1035035) от 30.01.2021
 
 Knower School, Дмитрий Смирнов | Курс по созданию моделей мягкой мебели (2021) PCRec
@@ -6,7 +33,7 @@ Knower School, Дмитрий Смирнов | Курс по созданию м
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035035.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ react12.io, Reed Barger | Создайте YouTube с помощью React / Bui
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034860.jpg" />
 </div>
 
 
@@ -61,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034846.jpg" />
 </div>
 
 
@@ -90,7 +117,7 @@ Udemy, Jose Portilla | 2021 Полный Python Bootcamp: c нуля до гер
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034790.jpg" />
 </div>
 
 
@@ -117,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034778.jpg" />
 </div>
 
 
@@ -143,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034776.jpg" />
 </div>
 
 
@@ -171,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034772.jpg" />
 </div>
 
 
@@ -199,7 +226,7 @@ OTUS, Михаил Кузнецов | Супер-интенсив "Версио�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034770.jpg" />
 </div>
 
 
@@ -228,7 +255,7 @@ Udemy, Jose Portilla м др. | Go: Полноценный Bootcamp (Golang) / G
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034766.jpg" />
 </div>
 
 
@@ -254,7 +281,7 @@ Udemy, Виктор Черемных | Кибербезопасность (2020)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034763.jpg" />
 </div>
 
 
@@ -280,7 +307,7 @@ OTUS, Наталья Науменко | Супер-интенсив "CI/CD ил�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034756.jpg" />
 </div>
 
 
@@ -307,7 +334,7 @@ Total TypeScript, Matt Pocock | Professional TypeScript Training by Matt Pocock 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034727.jpg" />
 </div>
 
 
@@ -335,7 +362,7 @@ Smirnov School, Марина Пахомова | Рисование в Procreate 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034720.jpg" />
 </div>
 
 
@@ -364,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034619.jpg" />
 </div>
 
 
@@ -393,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034552.jpg" />
 </div>
 
 
@@ -419,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034551.jpg" />
 </div>
 
 
@@ -445,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034550.jpg" />
 </div>
 
 
@@ -471,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034549.jpg" />
 </div>
 
 
@@ -500,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034525.jpg" />
 </div>
 
 
@@ -526,7 +553,7 @@ Udemy, Stephen Grider | React и Typescript: создание портфолио
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034518.jpg" />
 </div>
 
 
@@ -553,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034516.jpg" />
 </div>
 
 
@@ -582,7 +609,7 @@ Udemy, ZTM Academy, Andrei Neagoie | The Complete Junior to Senior Web Developer
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034494.jpg" />
 </div>
 
 
@@ -608,7 +635,7 @@ MakeWeb | Практический курс «Javascript Fullstack разраб�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034489.jpg" />
 </div>
 
 
@@ -637,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034373.jpg" />
 </div>
 
 
@@ -664,7 +691,7 @@ Udemy, Stephen Grider | The Modern Angular Bootcamp [2020] (2020) PCRec [En / En
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034370.jpg" />
 </div>
 
 
@@ -676,33 +703,6 @@ Angular разрабатывалась Google почти десять лет. У
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF923E8BE56DD2B102253C94333D893466454578
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444566   (1034332) от 02.02.2021
-
-Дмитрий Шатров | Организация хранилища для фотографа (2020) PCRec
-
->>Обучающие видеоматериалы
->>Фотография и Видео (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034332.jpg" />
-</div>
-
-
-###  Подробнее
-
-Преврати архив в удобное хранилище
-С каждым годом производители выпускают всё более навороченные камеры, выдающие всё более прожорливые файлы. Где их хранить? Как организовать архив и управлять им? Если вы уже пытались разобраться в аббревиатурах HDD, SSD, NAS, RAID – то проблема стоит для вас остро. Если нет, то у вас есть шанс заблаговременно позаботиться об архиве, (   Читать дальше...   )Производство: LiveclassesЖанр: ФотографияПродолжительность: 01:57:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87AD86765DD2BDEC6936387A0FDFE6CF2FD92DD7
 ```
 
 https://mybot314.ru/tekegram_catalog/

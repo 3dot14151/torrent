@@ -6,7 +6,7 @@ One Piece Burning Blood (2016) [PSVita] [EUR] 3.60 [NoNpDrm] [License / DLC] [Ru
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800526.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Asura's Wrath (2012) [Xbox360] [RegionFree] 13599 [FreeBoot] [Unofficial / TU1 /
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799007.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Driver: San Francisco / Driver: Сан-Франциско (2011) [PS3] [EUR] 3.6
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798582.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ The Outer Worlds (2019) [PS4] [EUR] [HEN] [License / 1.06] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797819.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Rugby Challenge 3 (2016) [Xbox360] [RegionFree] 17349 [FreeBoot] [License] [En]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797410.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ The Legend of Korra (2014) [Xbox360] [RegionFree] 16537 [FreeBoot] [XBLA] [En]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797344.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Harry Potter and the Order of the Phoenix / Гарри Поттер и Орде�
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797283.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ The Walking Dead: Michonne - Episode 1 - 3 (2016) [Xbox360] [RegionFree] 17349 [
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796574.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Iron Man: Dilogy (2008 - 2010) [Xbox360] [RegionFree] 6683 - 8955 [FreeBoot] [Un
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795855.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Deadfall Adventures (2013) [Xbox360] [RegionFree] 16202 [FreeBoot] [License] [Ru
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795164.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ R.A.W.: Realms of Ancient War (2012) [Xbox360] [RegionFree] 13599 [FreeBoot] [XB
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794405.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ All Zombies Must Die! (2011) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [PSN 
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794355.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Strider (2014) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [PSN] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794354.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Gatling Gears (2011) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [PSN] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794353.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ R.A.W.: Realms of Ancient War (2012) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO IS
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794349.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ UFC 2009 Undisputed (2009) [Xbox360] [RegionFree] 7363 [FreeBoot] [Unofficial] [
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794345.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Mortal Kombat: Deadly Alliance (2002) [Xbox] [NTSC] 5101 [СофтМод] [Licen
 >>Другие приставки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794302.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Imagine Champion Rider (Horsez ranch rescue) [ULES-01273] [RUS] (2009) [PSP] [EU
 >>PSP
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794179.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793271.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Giana Sisters: Twisted Dreams (2013) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO IS
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793268.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Grand Theft Auto III (2001) [Xbox] [RegionFree] 5101 [СофтМод] [Unofficia
 >>Другие приставки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793262.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Dungeon Hunter: Alliance (2011) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [P
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_793214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793214.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Grand Theft Auto: The Trilogy The Definitive Edition (2021) [Switch] [USA] 13.0.
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792549.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Shining Resonance Refrain (2018) [Switch] [USA] 8.1.0 [NSP] [Unofficial / 1.0.1]
 >>Switch
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791751.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ L.A. Noire: The Complete Edition (2011) [PS3] [USA] 3.72 [Cobra ODE / E3 ODE PRO
 >>PS3
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790192.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Def Jam: Fight for NY (2004) [GameCube] [USA] [License] [En]
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786924.jpg" />
 </div>
 
 

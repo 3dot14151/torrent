@@ -6,7 +6,7 @@
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060904.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060903.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Usman Abdur Rehman | Web Forms with React. Build Robust and Scalable Forms with 
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060899.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Maaike van Putten, Imke van Putten | Python Illustrated. Not another boring Pyth
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060761.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Valentine G. Nachi, Donald A. Tevault | Linux Shell Scripting for Hackers. Autom
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060760.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Rich Yonts | 100 C++ Mistakes and How to Avoid Them (2025) [PDF, EPUB] [EN]
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060759.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Tobias Scheible | Hacking Hardware. The Practical Guide to Hands-On Hardware Pen
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060758.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060757.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Dan Gookin | PCs & Laptops For Dummies (2025) [PDF, EPUB] [EN]
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060755.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060754.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060752.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060748.jpg" />
 </div>
 
 
@@ -322,58 +322,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858714   (1060557) от 12.03.2026
-
-С. Чернышев, Ю. Петров, С. Ильин и др. | Основы Flutter (2026) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060557.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга предназначена для всех, кто хочет погрузиться в эффективную кроссплатформенную разработку с Flutter. Вы не только изучите синтаксис языка Dart и основы фреймворка, но и сразу примените знания на практике, разрабатывая проект, который развивается на протяжении всей книги. После каждой новой темы вас ждут задания по доработке его кодовой базы, что позволит уверенно (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00BA9860B34117EAA198BBEB11E5F6BBAAF6A2FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858106   (1060211) от 08.03.2026
-
-R. Gill, S. Hooda, D. Srivastava et al. (Eds.) | Handbook of Intelligent Automation Systems Using Computer Vision and Artificial Intelligence (2025) [PDF] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1060211.jpg" />
-</div>
-
-
-###  Подробнее
-
-Handbook of Intelligent Automation Systems Using Computer Vision and Artificial Intelligence explores the significant role, current trends, challenges, and potential solutions to existing challenges in the field of intelligent automation systems, making it an invaluable guide for researchers, industry professionals, and students looking to apply these innovative (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: Wiley-ScrivenerФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AAE3F73EC6FFD6AC31304276EB56C2802E35B6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1857521   (1059669) от 06.03.2026
 
 А.В. Постолит | Компьютерное зрение и искусственный интеллект в приложениях на Python и Django (интерактивная цифровая книга) (2025) [PDF]
@@ -382,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059669.jpg" />
 </div>
 
 
@@ -408,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059668.jpg" />
 </div>
 
 
@@ -435,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059667.jpg" />
 </div>
 
 
@@ -461,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059666.jpg" />
 </div>
 
 
@@ -487,7 +435,7 @@ Ganeshkumar Patil | Django REST APIs Demystified. Simplifying API Development wi
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059665.jpg" />
 </div>
 
 
@@ -515,7 +463,7 @@ Jason W. Eckert, triOS College | CompTIA Linux+ and LPIC-1 Guide to Linux Certif
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059664.jpg" />
 </div>
 
 
@@ -541,7 +489,7 @@ John Schwartzman | Assembly Language Reimagined. Programming the Intel x64 Micro
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059663.jpg" />
 </div>
 
 
@@ -569,7 +517,7 @@ Bert Gollnick | PyTorch. The Practical Guide to Building, Training, and Deployin
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059662.jpg" />
 </div>
 
 
@@ -595,7 +543,7 @@ Jason Hodson | Applied Machine Learning. A Practical Guide to Preparing Data, Se
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059661.jpg" />
 </div>
 
 
@@ -621,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059660.jpg" />
 </div>
 
 
@@ -647,7 +595,7 @@ Shantanu Baruah, N. Baruah | Generative AI for Full-Stack Development. AI Empowe
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059564.jpg" />
 </div>
 
 
@@ -675,7 +623,7 @@ Fottiniya | Промпт-инженер текстовых моделей ИИ. 
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059562.jpg" />
 </div>
 
 
@@ -688,6 +636,61 @@ Fottiniya | Промпт-инженер текстовых моделей ИИ. 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:816480ACEE43803BD4B72CB1A64F49ED69BEA947
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857252   (1059551) от 05.03.2026
+
+Анастасия Невзорова | Будущее Chat GPT. Тенденции и прогнозы (2025) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059551.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данном издании использованы изображения, сгенерированные системой DALL-E.
+В этой электронной книге вы найдете эксклюзивную информацию о будущем ChatGPT и его развитии. Узнайте о ключевых тенденциях и прогнозах, которые будут определять путь искусственного интеллекта в ближайшие годы. Эта книга предназначена для всех, кто интересуется новыми технологиями и стремится (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: СамиздатФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:308780AA0A50544E00A8AA7A5A38638BEC804A9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856333   (1059090) от 28.02.2026
+
+Андрей Столяров | Программирование введение в профессию. В 3-х томах + задачи и этюды. 2,91 издание [4 книги] (2025) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059090.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый том серии «Программирование: введение в профессию» включает две основные части.
+
+В первую часть книги вошли избранные сведения из истории вычислительной техники, обсуждение некоторых областей математики, непосредственно используемых программистами (таких как алгебра логики, комбинаторика, позиционные системы счисления), математических основ программирования (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: МАКС ПрессФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39FEDDA9D56C479C9681607C1A4CF08EA9ED181A
 ```
 
 https://mybot314.ru/tekegram_catalog/

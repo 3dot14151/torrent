@@ -1,135 +1,3 @@
-###  Публикация: 1692408   (122613) от 16.01.2024
-
-Алина Аксёнова | История искусств. Просто о важном. Стили, направления и течения (2019) [EPUB]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы хотите научиться разбираться в искусстве – эта книга для вас. Она поможет вам понять, как искусство развивается, как оно устроено, и заговорить на языке искусства. С ней вы сможете разобраться в истории европейского искусства, научиться различать стили, направления и течения, а также понимать причины появления в искусстве тех или иных тенденций.
-Книга написана (   Читать дальше...   )Жанр: Искусствоведение, История искусстваИздательство: ЭксмоФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32EBDEA7C86A67565CAF2D0C1F1A0F2F8360AA10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692399   (122598) от 16.01.2024
-
-Егор Сартаков | Русская литература. Просто о важном. Писатели, жанры, произведения (2019) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122598.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если у образованного европейца или американца спросить, что он знает о русской культуре, обычно назовут два явления: великая русская литература и великий русский балет. Произведения Гоголя, Толстого, Достоевского, Чехова читают по всему миру. Эти писатели стоят в одном ряду с Гомером, Данте и Шекспиром и являются частью мировой культуры. Книга литературоведа Егора (   Читать дальше...   )Жанр: ЛитературоведениеИздательство: Эксмо, БомбораФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AA8DA3AD54FF858084BF6F294B2013D4CE79BF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692402   (122594) от 16.01.2024
-
-Алина Аксёнова | Искусство XX века. Ключи к пониманию: события, художники, эксперименты (2021) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Презираемое и окруженное насмешками или до крайности интеллектуальное искусство XX века изменило парадигмы, взорвало коды и избавилось от правил. Прошлый век, отличающийся ускоренной сменой авангардных движений, распространением новых практик, пулом единичных произведений, манифестов и заявлений художников, кажется одним из самых богатых и плодотворных моментов в (   Читать дальше...   )Жанр: Искусствоведение, история искусстваИздательство: ЭксмоФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:255374D918E8173C0E5BBC70B07DBC7381DBA91F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692590   (122410) от 17.01.2024
-
-Д.Ю. Косицин | Язык программирования Python (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное учебно-методическое пособие является дополнением к дисциплине «Скриптовые языки программирования (Python)» и содержит лекции с примерами и пояснениями. Материал разбит на главы, после которых помещены задачи для отработки изложенного материала. В издании рассматривается Python 3.x как основная версия языка, но приводится сравнение с Python 2.x и отличия между (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: БГУФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:139D3CA2C8DE4545A2A77C54E766F450A483F885
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692941   (122254) от 18.01.2024
-
-Семён Федосеев, Алексей Ардашев | Снайперы. Самая полная энциклопедия (2021) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122254.jpg" />
-</div>
-
-
-###  Подробнее
-
-САМАЯ ПОЛНАЯ ЭНЦИКЛОПЕДИЯ СНАЙПЕРСКОГО ИСКУССТВА. Не ремесла, а именно искусства! – ведь точность выстрела зависит от десятков факторов: времени суток и температуры воздуха, скорости и направления ветра, расстояния до цели, как падает свет, куда перемещаются тени…
-Искусство боевого снайпера окружено целым ворохом мифов и легенд и часто граничит с мистикой. Эффект (   Читать дальше...   )Жанр: Военное делоИздательство: ЯузаФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CD16E4A99C6767C0CD237A734A91108062F1026
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692824   (122215) от 18.01.2024
 
 В.О. Афонько, Н.В. Новикова | Электрорадиоизмерения. Лабораторный практикум (2021) [PDF]
@@ -138,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122215.jpg" />
 </div>
 
 
@@ -165,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122204.jpg" />
 </div>
 
 
@@ -192,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122194.jpg" />
 </div>
 
 
@@ -218,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122071.jpg" />
 </div>
 
 
@@ -244,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122063.jpg" />
 </div>
 
 
@@ -270,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122049.jpg" />
 </div>
 
 
@@ -297,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122025.jpg" />
 </div>
 
 
@@ -324,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122023.jpg" />
 </div>
 
 
@@ -351,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122015.jpg" />
 </div>
 
 
@@ -378,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121918.jpg" />
 </div>
 
 
@@ -404,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121893.jpg" />
 </div>
 
 
@@ -430,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121884.jpg" />
 </div>
 
 
@@ -456,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121776.jpg" />
 </div>
 
 
@@ -482,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121759.jpg" />
 </div>
 
 
@@ -508,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121758.jpg" />
 </div>
 
 
@@ -534,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121752.jpg" />
 </div>
 
 
@@ -560,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121745.jpg" />
 </div>
 
 
@@ -586,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121558.jpg" />
 </div>
 
 
@@ -613,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121546.jpg" />
 </div>
 
 
@@ -642,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121544.jpg" />
 </div>
 
 
@@ -668,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121505.jpg" />
 </div>
 
 
@@ -679,6 +547,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C0242B66C24F8A41ECC75B3856FBBD0C7784DD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823091   (121490) от 10.10.2025
+
+Б.М. Аскеров | Кинетические эффекты в полупроводниках (1970) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Излагается современная теория гальваномагнитных и термомагнитных явлений в полупроводниках. Рассмотрены случаи параболической и непараболической зон, а также зоны со многими минимумами. В книге большое место занимает квантовая теория кинетических эффектов. Учитывается влияние непараболичности зоны проводимости на кинетические эффекты в квантующем магнитном поле. (   Читать дальше...   )Жанр: ФизикаИздательство: НаукаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C060AB97E79DA542EA32FCC1D297BAA3F9E79FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823089   (121488) от 10.10.2025
+
+Б.М. Аскеров | Электронные явления переноса в полупроводниках (1985) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Систематическое изложение теории стационарных электронных явлений переноса в полупроводниках. Классическая и квантовая теория гальвано- и термомагнитных эффектов. Теория рассеяния носителей. Для специалистов, старшекурсников и аспирантов.Жанр: ФизикаИздательство: НаукаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FFCDC44581C257F706D7A6EA573278CC82C8506
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694062   (121356) от 23.01.2024
+
+К.И. Сухачев, Д.В. Родин, А.С. Дорофеев | Особенности проектирования цифровой электроники на базе программируемой логики (2022) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121356.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данном учебном пособии представлена информация об основных семействах программируемых логических микросхем, дано их сравнение и области применения. Представлен вводный курс в HDL Verilog, проведено сравнение с другими популярными HDL и графическим методом разработки дизайна ПЛИС. Дано описание среды разработки Quartusfree, на примере полного цикла разработки реального (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Самарский университетФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6683E8CD8A2C4D899B5BEA829E0103E35468EEEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694043   (121336) от 23.01.2024
+
+И.П. Матвеенко | Электроника и основы микропроцессорной техники. Курсовое проектирование (2017) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание содержит методические рекомендации по выполнению курсовой работы по дисциплине «Электроника и основы микропроцессорной техники», основные требования к оформлению, образец выполнения курсовой работы с подробными рекомендациями, приложения, список литературы.
+Для студентов специальности 1-53 01 01 Автоматизация технологических процессов и производств (по направлениям) (   Читать дальше...   )Жанр: ЭлектроникаИздательство: БГАТУФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F3242649A038FEB897A496B5892EEF3AD3816EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693967   (121326) от 23.01.2024
+
+Книжная серия | Задачник «Кванта». Физика. Части 1, 2 и 3  [3 книги] (2010 - 2012) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книги представляют собой три части «полного состава» задач по физике, опубликованных в разделе «Задачник «Кванта» журнала «Квант» (1997 - 2010 г.). Задачи в большинстве своем авторские, многие задачи предлагались на олимпиадах различного уровня. К задачам даются краткие ответы. Книга адресована учащимся и преподавателям средних школ, лицеев и гимназий, членам и руководителям (   Читать дальше...   )Жанр: ФизикаИздательство: МЦНМОФормат: PDF, DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CD16957FD7FFDCAE605281AAEB613CC53A12E27
 ```
 
 https://mybot314.ru/tekegram_catalog/

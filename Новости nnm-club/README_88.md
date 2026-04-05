@@ -1,3 +1,30 @@
+###  Публикация: 549682   (766694) от 16.04.2017
+
+Индиана Джонс: Коллекция / Indiana Jones: Collection (1981-2008) [1080p] 5*Blu-ray + 1*DVD-9
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_766694.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из лучших картин приключенческого жанра, поражающая богатством выдумки,
+невероятными трюками, уникальным использованием всевозможных визуальных эффектов и компьютерной техники.Производство: США, Lucasfilm Ltd., Paramount PicturesЖанр: Фантастика, боевик, триллер, приключенияРежиссер: Стивен СпилбергАктеры: Харрисон Форд, Карен Аллен, Пол Фримен, Джон Рис-Дэвис, Альфред Молина, Кейт Кэпшоу, Джонатан Ке Кван, Амриш Пури, Шон Коннери, Денхолм Эллиот, Элисон Дуди, Кейт Бланшетт, Шайа ЛаБаф, Рэй Уинстон, Джон ХёртСубтитры: (PGS): English, French, Spanish, PortugueseПродолжительность: 01:55:18 | 01:58:28 | 02:06:53 | 02:02:35 + Bonus
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 266414   (766605) от 28.01.2019
 
 Блокада: Фильм 1: Лужский рубеж, Пулковский меридиан (1974) DVDRip
@@ -6,7 +33,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766605.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ Counter Strike: Source - Южная Осетия / South Osetia (2006) [Ru] (1.0
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766602.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ ZORIN OS 12.3 ULtimate 12.3 [X64] ISO
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766489.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765925.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ proDAD Mercalli V4 Plugins for Adobe 4.0.477.1: Stabilizer + CMOS Correction 1.0
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765918.jpg" />
 </div>
 
 
@@ -138,7 +165,7 @@ Metro: Last Light Redux (2014) [Ru/Multi] (1.0.0.3) Repack Other s [Bundle Editi
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765912.jpg" />
 </div>
 
 
@@ -165,7 +192,7 @@ Metro 2033 Redux (2014) [Ru/Multi] (1.0.0.3) Repack Other s [Bundle Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765910.jpg" />
 </div>
 
 
@@ -191,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765898.jpg" />
 </div>
 
 
@@ -217,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765826.jpg" />
 </div>
 
 
@@ -245,7 +272,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2019.01.28 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765819.jpg" />
 </div>
 
 
@@ -271,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765816.jpg" />
 </div>
 
 
@@ -297,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765789.jpg" />
 </div>
 
 
@@ -324,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765788.jpg" />
 </div>
 
 
@@ -351,7 +378,7 @@ Acronis BootCD 10PE x86/x64 by naifle (19.03.2018) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765623.jpg" />
 </div>
 
 
@@ -377,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_765124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_765124.jpg" />
 </div>
 
 
@@ -404,7 +431,7 @@ TNod User & Password Finder 1.6.2 Beta 3 Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765033.jpg" />
 </div>
 
 
@@ -430,7 +457,7 @@ Genesis Alpha One (2019) [Ru/En] (1.0) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764987.jpg" />
 </div>
 
 
@@ -456,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764982.jpg" />
 </div>
 
 
@@ -482,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_764945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_764945.jpg" />
 </div>
 
 
@@ -508,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764673.jpg" />
 </div>
 
 
@@ -539,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764188.jpg" />
 </div>
 
 
@@ -565,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_764160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_764160.jpg" />
 </div>
 
 
@@ -591,7 +618,7 @@ Adguard 6.2.346.1819 Beta [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764094.jpg" />
 </div>
 
 
@@ -617,7 +644,7 @@ TechSmith Camtasia Studio 9.0.4 Build 1948 RePack by KpoJIuK [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764090.jpg" />
 </div>
 
 
@@ -643,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_764087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_764087.jpg" />
 </div>
 
 
@@ -654,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126766   (764082) от 19.04.2017
-
-Притяжение (2017) BDRip [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764082.jpg" />
-</div>
-
-
-###  Подробнее
-
-…Как только что стало известно, сбитый над Москвой неопознанный объект имеет, возможно, внеземное происхождение. Большая часть столичного Чертанова оцеплена, к месту крушения стягиваются представители силовых структур, решается вопрос об эвакуации местных жителей. По словам нашего источника в Минобороны, сейчас специальная комиссия пытается вступить в контакт с так (   Читать дальше...   )Производство: Россия / Кинокомпания «Водород», Art Pictures StudioЖанр: фантастикаРежиссер: Фёдор БондарчукАктеры: Ирина Старшенбаум, Олег Меньшиков, Александр Петров, Никита Кукушкин, Евгений Сангаджиев, Дарья Руденок, Риналь Мухаметов, Людмила Максакова, Евгений Коряковский, Ульяна Куликова, Сергей Шаталов, Евгений Михеев, Никита Тарасов, Сергей ГармашПеревод: Не требуется (Русский, Лицензия BD RUS)Субтитры: ОтсутствуютПродолжительность: 02:12:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:829C4E3C69CB6DA13B97258AABBA1D2EED676E36
 ```
 
 https://mybot314.ru/tekegram_catalog/

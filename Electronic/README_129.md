@@ -1,3 +1,61 @@
+###  Публикация: 1199849   (797501) от 18.01.2018
+
+VA - Aly & Fila - Future Sound of Egypt 531 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jody Wisternoff ft. Hendrik Burkhard - For All Time
+02. Wellenrausch & Gai Barone - Heroes Of Light (Jerome Isma-Ae & Alastor Remix)
+03. Pablo Artigas - Daybreak
+04. Kastis Torrau - Glice Glice(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:57:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03E76CBAC77B47F5EF9B55BCBB9B0AEE6EBA7DCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199773   (797499) от 18.01.2018
+
+VA - Back To The Future, Vol. 6 (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sasse - On My Mind (Metrica Remix) (05:32)
+02. Benny Grauer - Falling (Markus Homm Remix) (07:18)
+03. Frankey, Sandrino - Cephei (Locked Groove Remix) (09:13)
+04. Ben La Desh - 2912 (Original Mix) (07:28)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:28:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4EC2D2E634A739539FF1BB439CE73E9956A781C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385731   (797277) от 25.05.2020
 
 VA - SPECTRO-017 (2020) Specimen Records [FLAC|Lossless|WEB-DL|tracks] <Electro>
@@ -6,7 +64,7 @@ VA - SPECTRO-017 (2020) Specimen Records [FLAC|Lossless|WEB-DL|tracks] <Electro>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797277.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Bare Essentials Vol. 2 (2003) [FLAC|Lossless|tracks + .cue] <Deep House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797205.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Aquanote - The Pearl (2002) [FLAC|Lossless|tracks + .cue] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797201.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - HIIT Workout Mix (2020) [MP3|320 Kbps] <House, Dance, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797196.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Top 40 Beatspot Summer '20 (2020) [MP3|320 Kbps] <House, Future House, Bass
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797193.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ BELLATRIX - Droids (2020) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Disco>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797161.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Pop Hits in Bossa (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Lou
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797160.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Homestudio Fitness Moves: 100 Great Tracks to Train At Home (2020) [MP3|320
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797141.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Eguana - Synchronicity (2019) [MP3|320 Kbps] <Electronic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797122.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Forteba - For Some Time Past (2008) [FLAC|Lossless|image + .cue] <Deep House, Te
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797050.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Melodic Progressive House Vol. 05 (2016) [MP3|320 кб/с] <House, Progress
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797040.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Forteba - Stereoform (2012) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797031.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Sieren - Transients of Light (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, A
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797022.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Club House - Selected Works Vol.01 (2008) [FLAC|Lossless|tracks] <House, El
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797012.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Street King Presents Winter 2018 [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797010.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - AVA Seasons Selected By Somna - Winter (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797007.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Tech-Trance Essentials Vol. 1 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797003.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Amsterdam Trance Sessions Vol.14 (2018) [MP3|320 Kbps] <Trance, Uplifting T
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796998.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Markus Schulz - Global DJ Broadcast (2018) [MP3|320 Kbps] <Trance,Progressi
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796997.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Emotions Music - Summer Vol 1 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796995.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Markus Schulz - Global DJ Broadcast - Top 20 January (2018) [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796993.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Ori Uplift & Miss Cortex - Uplifting Only 258 (2018) [MP3|320 Kbps] <Trance
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796990.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Rameses B - Spacewalk (2018) [MP3|320 Kbps] <Chillout, Drum & Bass, Ambient>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796971.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Deep House Hits (2018) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796970.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Deep House Hits (2018) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:555343FFEF90494834EAD8074A93531D5607EBBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200043   (796961) от 19.01.2018
-
-VA - Sun:Sets 2018 (Selected by Chicane) (2018) [MP3|320 Kbps] <Deep House, Progressive House, Trance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Halftribe  -  Outward Momentum (Original Mix)  2:59
-02.  Thomas Datt  -  The Edge (Original Mix)  4:11
-03.  Alex Blest  -  Fragments Of Bliss (Magdelayna Chilldown Mix)  4:10
-04.  Tontario  -  Late (Original Mix)  4:16(   Читать дальше...   )Жанр: Deep House, Progressive House, TranceПродолжительность: 02:58:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C44B59C3D40D268210357AA6E0D80CE07CBEAA91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200046   (796913) от 19.01.2018
-
-VA - Sun:Sets 2018 (Selected by Chicane) (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Halftribe  -  Outward Momentum (Original Mix)  2:59
-02.  Thomas Datt  -  The Edge (Original Mix)  4:11
-03.  Alex Blest  -  Fragments Of Bliss (Magdelayna Chilldown Mix)  4:10
-04.  Tontario  -  Late (Original Mix)  4:16(   Читать дальше...   )Жанр: Progressive House, Deep House, Trance, DowntempoПродолжительность: 02:58:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DFCC07253F30BFC91495C062CA3D3A365DE0F97
 ```
 
 https://mybot314.ru/tekegram_catalog/

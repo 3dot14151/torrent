@@ -1,3 +1,29 @@
+###  Публикация: 1016149   (697279) от 28.02.2022
+
+Как поднять миллион. Исповедь Z@drota (2014) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697279.jpg" />
+</div>
+
+
+###  Подробнее
+
+Женя живет в маленьком провинциальном городке. Он просиживает за компьютерами сутками, не отвлекаясь на еду и сон. Однажды Женя выясняет: на виртуальной реальности можно неплохо заработать. Начав с порносайтов, юноша вскоре получает свои первые деньги. Это в корне меняет его жизнь: больше он — не школьный изгой. Вчерашние недруги здороваются первыми, а самые красивые (   Читать дальше...   )Производство: Россия, Марс Медиа Энтертейнмент, Магнум ФильмЖанр: ДрамаРежиссер: Клим ШипенкоАктеры: Виктор Грудев, Дмитрий Калязин, Соня Карпунина, Анастасия Акатова, Николай Амосов, Александр Самойленко, Лидия Байрашевская, Михаил Бабичев, Любовь Толкалина, Михаил ДовженкоПеревод: Не требуется (русский)Продолжительность: 01:29:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB66C039492D4F4403B8D9E70EC0E8531E8C18BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 84001   (697277) от 28.02.2022
 
 Worms 3D (2003) [Ru] (1.0) License
@@ -6,7 +32,7 @@ Worms 3D (2003) [Ru] (1.0) License
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697277.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697189.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Generation П (2011) DVDRip [H.264]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_697014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697014.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696838.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ ESET Smart Security 10.1.204.5 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696474.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_696362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696362.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_696145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_696145.jpg" />
 </div>
 
 
@@ -195,7 +221,7 @@ Red Giant Magic Bullet Suite 12.1.5 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695777.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_695554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_695554.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695421.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695059.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_694601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694601.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ Anvir Task Manager 8.1.2 DC 18.06.2016 Final RePack (& Portable) by KpoJIuK [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693884.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693878.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693871.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693703.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ Parallels Desktop Business Edition 16.0.04 + Toolbox 4.0.0 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693610.jpg" />
 </div>
 
 
@@ -459,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693396.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693130.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ Perfect World: Legends of the Seas / Идеальный Мир: Легенды �
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693102.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ VA - 333 Лучшие Детские Песни (2004) 12CD [MP3|320 кб/с]<Д
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693090.jpg" />
 </div>
 
 
@@ -568,7 +594,7 @@ ESET Endpoint Security / Antivirus 6.1.2227.3 RePack by KpoJIuK [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693062.jpg" />
 </div>
 
 
@@ -594,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693044.jpg" />
 </div>
 
 
@@ -620,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693043.jpg" />
 </div>
 
 
@@ -646,7 +672,7 @@ ICO Factory 1.0.0.0 [Ru] (авторское ПО)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692733.jpg" />
 </div>
 
 
@@ -657,32 +683,6 @@ ICO Factory - легковесный конвертер изображений �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C87AEF2204579C963E784388EFB5825FEE289173
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133742   (692635) от 13.05.2017
-
-Adobe After Effects CC 2017 (v14.2.0) Multilingual Update 2
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692635.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe After Effects CC 2017 - популярная программа для редактирования видео и динамических изображений, создания композиций, различных эффектов и анимации. Наиболее часто ее используют для обработки видеоматериалов (постпродакшн), создания музыкальных клипов, рекламных роликов, анимации, титров, а также множества других элементов, для которых необходимы цифровые (   Читать дальше...   )Язык интерфейса: Английский / Испанский / Итальянский / Китайский (упрощенный) / Корейский / Немецкий / Португальский / Русский / Французский / Японский / Английский с поддержкой арабского письма / Английский с поддержкой иврита / Английский (Великобритания) / Испанский (Мексика) / Французский (Канада) / Французский (Марокко)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADEF7BA98A1B9E929C41ABC12EFF896B596A95AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

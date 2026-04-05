@@ -1,4 +1,56 @@
 https://t.me/izofen
+###  Публикация: 1863144   (1063807) от 
+
+Dune 2000 (1998) [Ru/En] (1.6.7) Repack dixen18 [GruntMods Edition]
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра является продолжением Dune II на игровом движке, сходном с движком Command & Conquer: Red Alert от Westwood. Действие игры разворачивается на планете Арракис. В игре доступно три враждующих дома: Атрейдес, Харконнен, Ордос. В игре присутствуют видеозаставки перед началом миссии с живыми актёрами.Тип издания: RepackРазработчик: Intelligent GamesЖанр: Стратегия в реальном времениЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5290F7A36F57DA9DEE96C3170166727213FAAE5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862386   (1063158) от 
+
+63 Days (2024) [Ru/Multi] (shipping10) License GOG
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063158.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я принадлежу к первому поколению, родившемуся в свободной Польше после 123 лет иностранной оккупации. Начало Второй мировой войны лишило меня семьи, дома и будущего. Мы злы, устали, но едины. Нам не терпится что-то сделать, вернуть себе хоть какой-то контроль над жизнью. Мои товарищи и я чувствуем, что у нас есть только один выбор: отомстить и вернуть независимость (   Читать дальше...   )Тип издания: LicenseРазработчик: Destructive CreationsЖанр: Инди, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A542F8F0D743B5E5BF786AFBC714C73FDB0F3127
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1862029   (1063062) от 
 
 Endless Space 2 (2017) [Ru/Multi] (1.5.75.2/dlc) License GOG [Definitive Edition]
@@ -7,7 +59,7 @@ Endless Space 2 (2017) [Ru/Multi] (1.5.75.2/dlc) License GOG [Definitive Edition
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1063062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063062.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ Overthrown (2026) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061573.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ The King is Watching (2025) [Ru/Multi] (1.2.2/dlc) Repack Let'sРlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061408.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ Dune 2000: Long Live the Fighters! (1998) [Ru/En] (1.06) Repack 1nomok
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_1060132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060132.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ Total War: Attila (2015) [Ru/Multi] (1.8.1.1299.3427123/dlc) Repack FitGirl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059535.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ Knights of Honor (2004) [En] (1.05) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059519.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ Rome: Total War (2004) [Ru/Multi] (1.5/dlc) Repack kosak4 [Launcher Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1059017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059017.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ Total War: Attila (2015) [Ru/Multi] (1.8.1/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058114.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ Total War: Rome II (2) (2013) [Ru/Multi] (2.5.6.3427123/dlc) Repack FitGirl [Emp
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057458.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ Total War: Rome II (2) (2013) [Ru/Multi] (2.5.6/dlc) License GOG [Emperor Editio
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1057299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057299.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ Nobunaga's Ambition: Sphere of Influence - Ascension (2016) [Multi] (1.0) Scene 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052751.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ The Hive (2016) [En] (1.3.10) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052746.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ Age of Empires II: Definitive Edition (2019) [Ru/Multi] (101.103.31214.0/dlc) Re
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051936.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ Dungeons and Dragons: Dragonshard / Кристалл всевластья (2005)
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051929.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ Age of Empires III: Definitive Edition (2020) [Ru/Multi] (100.15.59076.0/dlc) Re
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051855.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ Medieval: Total War (2002) [En] (v1/dlc) License GOG [Collection]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050983.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ Rome: Total War (2004) [En] (v1/dlc) License GOG [Collection]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050980.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ Rome: Total War - Alexander (2006) [En] (v1) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050968.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ Total War: MEDIEVAL II (2) (2006) [En] (v1/dlc) License GOG [Definitive Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050967.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ Total War: MEDIEVAL II (2) (2006) [Ru] (v1/dlc) License GOG [Definitive Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050966.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ SHOGUN: Total War (2000) [Multi] (v1/dlc) License GOG [Collection]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050903.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ Total War: Three Kingdoms (2019) [Ru/Multi] (1.7.8/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050074.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ Call to Arms - Gates of Hell: Ostfront (2021) [Ru/Multi] (1.057.0/dlc) Repack se
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048330.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ Age of Empires IV (2021) [Ru/En] (15.2.7445.0/dlc) Repack Let'sРlay [Anniversar
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047822.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ Age of Empires IV (2021) [Ru/En] (15.2.7445.0/dlc) Repack Let'sРlay [Anniversar
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88DC26AA1C9371E4DF99540C2B0A100078DDDC1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841178   (1047783) от 09.12.2025
-
-Steel Division 2 (2019) [Ru/Multi] (165547/dlc) Scene Rune
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стальная дивизия II предлагает не только тактический опыт в ВМВ. Этот основанный на Восточном фронте 1944 г. сиквел оценённой критиками игры RTS поставит вас во главе армии во время операции «Багратион» – советского наступления против нацистов на белорусской земле. Играйте как генерал в динамичных стратегических кампаниях масштаба 1:1, как полковник в эпичных тактических (   Читать дальше...   )Тип издания: SceneРазработчик: Eugen SystemsЖанр: Инди, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4756F7D7FA0B3300081CFB17D4717DB7ABAB69C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839974   (1046952) от 02.12.2025
-
-Company of Heroes 3 (2023) [Ru/Multi] (2.2.0.40455/dlc) Repack FitGirl
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Театром военных действий выступает Средиземноморье, где также важно принимать стратегически правильные решения, планируя каждый шаг. Здесь реализован продуманный геймплей, новый фронт боевых действий, множество юнитов и фракций и возможность принять участие в кинематографически развивающихся схватках. В TBS юзер сражается с разными фракциями с применением боевых (   Читать дальше...   )Тип издания: RepackРазработчик: Relic EntertainmentЖанр: Strategy, Real-TimeЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49DDECB713076903CB7BD251A936E7917776DD21
 ```
 
 https://mybot314.ru/tekegram_catalog/

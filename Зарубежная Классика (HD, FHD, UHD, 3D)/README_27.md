@@ -1,3 +1,81 @@
+###  Публикация: 1206778   (780035) от 21.02.2018
+
+Ночь живых мертвецов / Night of the Living Dead (1968) Blu-ray [H.264/1080p] [Custom]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Барбра и её брат Джонни приезжают на кладбище, расположенное в уединённом загородном месте. Неожиданно на них совершают нападение существа, напоминающие мертвецов, восставших из могил. Барбра укрывается в расположенном неподалёку доме, где также находят убежище темнокожий парень по имени Бен, супруги Гарри и Хелен Куперы с дочерью Карен, а также возлюбленные Том (   Читать дальше...   )Производство: США / Image Ten, Laurel Group, Market Square Productions, Off Color FilmsЖанр: Ужасы, фантастикаРежиссер: Джордж А. РомероАктеры: Дуэйн Джонс, Джудит О`Ди, Карл Хардмен, Мэрилин Истман, Кит Уэйн, Джудит Ридли, Кира Шон, Чарльз Крэйг, С. Уильям Хинцмен, Джордж Косана, Фрэнк ДоакПеревод: Профессиональный (двухголосый), Профессиональный (одноголосый)Субтитры: АнглийскиеПродолжительность: 01:36:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27A78E840DF1F60AD345EACCB3DACCD9E33DFF02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208458   (779860) от 22.02.2018
+
+Молчание ягнят / The Silence Of The Lambs (1991) BDRip [H.264/720p] [Criterion Collection] [Remastered]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779860.jpg" />
+</div>
+
+
+###  Подробнее
+
+Психопат похищает и убивает молодых женщин по всему Среднему Западу Америки. ФБР, уверенное в том, что все преступления совершены одним и тем же человеком, поручает агенту Клариссе Стерлинг встретиться с заключенным-маньяком, который мог бы объяснить следствию психологические мотивы серийного убийцы и тем самым вывести на его след. Заключенный, доктор психиатрии (   Читать дальше...   )Производство: США / Strong Heart/Demme Production, Orion Pictures CorporationЖанр: Триллер, Детектив, КриминалРежиссер: Джонатан ДеммеАктеры: Джоди Фостер, Энтони Хопкинс, Скотт Гленн, Энтони Хилд, Тед Левайн, Фрэнки Фэйзон, Кэйси Леммонс, Брук Смит, Пол Лэзар, Дэн Батлер, Джим Роше, Билл МиллерПеревод: Дублированный, профессиональный (многоголосый, закадровый), профессиональный (двухголосый, закадровый), авторский (одноголосый, закадровый)Субтитры: Русские (R5, Киномания, Позитив), английские (full, SDH)Продолжительность: 01:58:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25AD325C26A102AADFC971C91E3A63E44D695462
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207270   (779732) от 23.02.2018
+
+Горец 4: Конец игры / Highlander: Endgame (2000) BDRip [H.264/720p] [Producer's cut]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779732.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коннор Маклауд, Горец, - один из группы сверхвоинов, которого можно убить, лишь обезглавив его священным мечом. Бессмертные сражаются между собой на протяжении всей истории человечества за право быть «Единственным», но, когда Коннор встречается с другим «бессмертным» Дунканом, они объединяются в борьбе против могущественного Джэкоба Келла, собравшего вокруг себя (   Читать дальше...   )Производство: США / Davis-Panzer Productions, Dimension FilmsЖанр: Боевик, Фантастика, ФэнтезиРежиссер: Дуглас АрниокоскиАктеры: Эдриэн Пол, Кристофер Ламберт, Эдж, Иан Пол Кэссиди, Орис Эруэро, Дэймон Дэш, Лиза Барбаскиа, Питер Уингфилд, Шила Гиш, Джим БирнсПеревод: Профессиональный (двухголосый, закадровый), дублированный, авторский (одноголосый, закадровый)Субтитры: Русские, английскиеПродолжительность: 01:40:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6DEF334D636C0CC02EBC34B2ACD5FFF12F28936
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209078   (779221) от 27.02.2018
 
 Семинолы / Seminole (1953) BDRip [H.264/1080p] [VO]
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779221.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779194.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778897.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778673.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778092.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778091.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778062.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777812.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777811.jpg" />
 </div>
 
 
@@ -244,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777800.jpg" />
 </div>
 
 
@@ -270,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777716.jpg" />
 </div>
 
 
@@ -297,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777393.jpg" />
 </div>
 
 
@@ -323,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776732.jpg" />
 </div>
 
 
@@ -350,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776041.jpg" />
 </div>
 
 
@@ -377,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775984.jpg" />
 </div>
 
 
@@ -403,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775556.jpg" />
 </div>
 
 
@@ -429,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775496.jpg" />
 </div>
 
 
@@ -455,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775345.jpg" />
 </div>
 
 
@@ -481,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775031.jpg" />
 </div>
 
 
@@ -508,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774835.jpg" />
 </div>
 
 
@@ -534,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_774731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774731.jpg" />
 </div>
 
 
@@ -561,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_773734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773734.jpg" />
 </div>
 
 
@@ -587,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772929.jpg" />
 </div>
 
 
@@ -598,88 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F6BA46CAD2A9217A1E5FA637A69D0252D273A77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014430   (771155) от 13.05.2016
-
-Омбре: Отважный стрелок / Hombre (1967) HDTV [H.264/1080i-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_771155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда Джон Рассел, белый американец, воспитанный в Аризоне индейским племенем, продаёт небольшую гостиницу, доставшуюся от отца, он вынужден вступить в конфликт с обществом, которое сам презирает. Джон покидает город в дилижансе, и настроенные против него пассажиры заставляют его ехать вместе с кучером. Но на обоз нападают разбойники, бросают пассажиров в пустыне, (   Читать дальше...   )Производство: США, Twentieth Century Fox Film Corporation, Hombre ProductionsЖанр: ВестернРежиссер: Мартин РиттАктеры: Пол Ньюман, Фредрик Марч, Ричард Бун, Дайан Чиленто, Кэмерон Митчелл, Барбара Раш, Питер Лазер, Маргарет Блай, Мартин Болсам, Скип Уорд, Фрэнк Сильвера, Дэвид Канари, Вэл Эйвери, Ларри УордПеревод: Многоголосый закадровый, профессиональный (Первый канал)Субтитры: Teletext Sub Page 888 (Rus)Продолжительность: 01:45:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:375BBC976146997799D1AC83F47FA9AE7CFAA06C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015834   (770884) от 13.05.2016
-
-Молчание ягнят / The Silence of the Lambs (1991) BDRip [H.265/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770884.jpg" />
-</div>
-
-
-###  Подробнее
-
-Психопат похищает и убивает молодых женщин по всему Среднему Западу Америки. ФБР, уверенное в том, что все преступления совершены одним и тем же человеком, поручает агенту Клариссе Старлинг встретиться с заключенным-маньяком, который мог бы объяснить следствию психологические мотивы серийного убийцы и тем самым вывести на его след.
-
-Заключенный, доктор психиатрии (   Читать дальше...   )Производство: США / Orion Pictures Corporation, Strong Heart/Demme ProductionЖанр: Триллер, Криминал, Детектив, ДрамаРежиссер: Джонатан ДеммеАктеры: Джоди Фостер, Энтони Хопкинс, Скотт Гленн, Тед Левайн, Брук Смит, Энтони Хилд, Кейси Леммонс, Дайан Бэйкер, Фрэнки Фэйзон, Дэн БатлерПеревод: Многоголосый профессиональныйСубтитры: русские, итальянские, английские, французские, испанские, шведские, финские, датские, немецкиеПродолжительность: 01:58:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BE85E26A871F8E9871795700B3F5A0DA2146A34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013408   (769424) от 15.05.2016
-
-Охотники за привидениями / Ghost Busters (1984) BDRip [H.265/1080p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769424.jpg" />
-</div>
-
-
-###  Подробнее
-
-В конце двадцатого века оказывается, что в Нью — Йорке живут не только обычные граждане, но и… привидения. Многомиллионное население не может противостоять натиску сверхъестественного.
-
-В конце концов на пути бесчисленных монстров не остается никого — кроме троих ученых — парапсихологов, которым известно все о потустороннем мире, правда только в теории. И теперь (   Читать дальше...   )Производство: США / Black Rhino Productions, Columbia Pictures Corporation, DelphiЖанр: Комедия, Боевик, Фантастика, ФэнтезиРежиссер: Айвен РайтманАктеры: Билл Мюррэй, Дэн Эйкройд, Сигурни Уивер, Харольд Рэмис, Рик Моранис, Энни Поттс, Уильям Этертон, Эрни Хадсон, Дэвид Маргулис, Стивен ТэшПеревод: Многоголосый закадровыйЯзык субтитров: Итальянский, английский, русский, немецкий, французский, испанскийПродолжительность: 01:45:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5057305A364096A7BAE8A88AECB359EA8FDD1CCF
 ```
 
 https://mybot314.ru/tekegram_catalog/

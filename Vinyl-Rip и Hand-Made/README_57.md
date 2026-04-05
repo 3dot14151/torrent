@@ -1,3 +1,33 @@
+###  Публикация: 1597443   (166735) от 14.12.2022
+
+Fozzy - Studio Albums (8 releases) (2000 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fozzy — американская хэви-метал группа.
+В 1999 году рестлер Крис Джерико и гитарист группы "Stuck Mojo" Рич Уорд создали кавер-группу "Fozzy Osbourne". Вскоре название сократилось до "Fozzy", а в 2000 году на лейбле "Megaforce Records" вышел одноименный дебютный альбом.2000 - Fozzy
+2002 - Happenstance
+2005 - All That Remains
+2009 - Chasing The GrailЖанр: Heavy Metal, Hard RockПродолжительность: 06:20:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46559443E0979F542F4D933AF84E9D407EA52E82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596628   (166534) от 14.12.2022
 
 Маленький Принц - Мы встретимся снова (1989) [WavPack 2.0|192/32|tracks|MB-Rip] <Pop, Dance, Disco>
@@ -6,7 +36,7 @@
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166534.jpg" />
 </div>
 
 
@@ -35,7 +65,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165887.jpg" />
 </div>
 
 
@@ -64,7 +94,7 @@ DGM - Tragic Separation (2020) [FLAC|24/192|tracks|Vinyl-Rip] <Progressive Power
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165417.jpg" />
 </div>
 
 
@@ -93,7 +123,7 @@ Bernie Marsden - And About Time Too (1979) [FLAC|24/192|image + .cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165395.jpg" />
 </div>
 
 
@@ -122,7 +152,7 @@ Electric Sun - Earthquake (1979) [FLAC|24/192|image + .cue|Vinyl-Rip] <Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165358.jpg" />
 </div>
 
 
@@ -151,7 +181,7 @@ In This Moment - Studio Albums (8 Releases) (2007-2023) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164935.jpg" />
 </div>
 
 
@@ -180,7 +210,7 @@ Stratovarius (Kotipelto, Cain's Offering) - Studio Albums (23 releases) (1989 - 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163795.jpg" />
 </div>
 
 
@@ -209,7 +239,7 @@ Riverside - Out of Myself (2003) Reissue 2021, Sony Music [FLAC|24/192|image + .
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163596.jpg" />
 </div>
 
 
@@ -238,7 +268,7 @@ Riverside - ID.Entity (2023) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163549.jpg" />
 </div>
 
 
@@ -267,7 +297,7 @@ VA - Аракс / Веселые Ребята - Песни На Стихи Ви�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163119.jpg" />
 </div>
 
 
@@ -296,7 +326,7 @@ Smackbound - 20/20 (2020) hand made [restored, declipped] [FLAC 2.0|Lossless|44/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162138.jpg" />
 </div>
 
 
@@ -325,7 +355,7 @@ HIM - Studio Albums (10 releases) (1997 - 2013) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161775.jpg" />
 </div>
 
 
@@ -354,7 +384,7 @@ Vektor - Studio Albums (4 releases) (2009-2021) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161365.jpg" />
 </div>
 
 
@@ -383,7 +413,7 @@ DGM - Momentum (2013) Reissue, 2014, Night Of The Vinyl Dead Records [FLAC|24/19
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160861.jpg" />
 </div>
 
 
@@ -412,7 +442,7 @@ David Coverdale - Snakebite (1978) [WavPack|24/192|image + .cue|Vinyl-Rip] <Blue
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160839.jpg" />
 </div>
 
 
@@ -441,7 +471,7 @@ David Coverdale - Whitesnake (1977) Japan Edition [FLAC|24/192|image + .cue|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160835.jpg" />
 </div>
 
 
@@ -470,7 +500,7 @@ ABBA - Voyage (2021) hand made, remastered [FLAC|44/16|tracks] <Pop, Dance, Euro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160800.jpg" />
 </div>
 
 
@@ -499,7 +529,7 @@ ABBA - Gold (Greatest Hits) 40th Anniversary Edition [3 CD] (1992/2014) hand mad
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160770.jpg" />
 </div>
 
 
@@ -525,7 +555,7 @@ Seventh Wonder - Mercy Falls (2008) Reissue, 2023, Frontiers Music SRL [FLAC|24/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160667.jpg" />
 </div>
 
 
@@ -554,7 +584,7 @@ Seventh Wonder - The Great Escape (2010) Reissue, 2023, Frontiers Music SRL [FLA
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160655.jpg" />
 </div>
 
 
@@ -583,7 +613,7 @@ David Coverdale - Whitesnake (1977) [FLAC|24/192|image |Vinyl-Rip] <Hard Rock, B
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160421.jpg" />
 </div>
 
 
@@ -612,7 +642,7 @@ Battle Beast - Дискография (6 releases) (2011 - 2022) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160021.jpg" />
 </div>
 
 
@@ -641,7 +671,7 @@ Earth, Wind & Fire - Touch The World (1987) [FLAC 2.0|192/24|image +.cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159988.jpg" />
 </div>
 
 
@@ -670,7 +700,7 @@ Butcher Babies - Studio Albums (5 releases) (2013-2023) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159864.jpg" />
 </div>
 
 
@@ -699,7 +729,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159385.jpg" />
 </div>
 
 
@@ -713,35 +743,6 @@ A4 Америка(   Читать дальше...   )Жанр: ChansonПродо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92D0DD2F629618176FE3824694F0D366E7F648D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676143   (158997) от 12.11.2023
-
-Angelus Apatrida - Studio Albums (8 releases) (2006-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks] <Thrash metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158997.jpg" />
-</div>
-
-
-###  Подробнее
-
-Angelus Apatrida - трэш-метал группа из Альбасете, Испания, образованная в 2000 году.2006 - Evil Unleashed
-2007 - Give 'Em War
-2010 - Clockwork
-2012 - The CallЖанр: Thrash metalПродолжительность: 06:50:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D87BCE0385384610A15E6892EE316C30AD015C24
 ```
 
 https://mybot314.ru/tekegram_catalog/

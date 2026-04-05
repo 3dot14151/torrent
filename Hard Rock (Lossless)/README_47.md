@@ -1,3 +1,96 @@
+###  Публикация: 1405272   (485725) от 29.08.2020
+
+Ramos - My Many Sides (2020) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Today Is The Day (feat. Joe Retta) (04:59)
+02. Unbroken (feat. Terry Ilous) (05:03)
+03. Blameless Blue (feat. Danny Vaughn) (05:17)
+04. Immortal (feat. Tony Harnell) (05:08)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:798441C68B64047A1CF4306476D3B6D10E90EE3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 545623   (485249) от 10.09.2012
+
+Helldorados - Helldorados (2012) [FLAC|Lossless]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Beginning (1:26)
+02. Never Gonna Stop (3:16)
+03. You Live, You Learn, You Die (3:11)
+04. Go To Hell (3:20)
+05. Changes (3:51)
+06. Shout Out (3:47)
+07. Hunter (3:18)
+08. Double Dealer (3:32)
+09. Gone (3:43)
+10. Torture Is My Name (3:49)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566277   (484421) от 28.07.2022
+
+Intelligent Music Project VII - Unconditioned (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Topic (Instrumental)
+02. Intention
+03. Sunshine Boulevard
+04. How(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:49:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC1A7A4D40C5803EFF74E33AF357CDC55A206503
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 384476   (482671) от 06.09.2011
 
 Uriah Heep - You Can't Keep A Good Band Down (2001/1970-1986) 7 Albums Box Set [FLAC|Lossless]<Hard Rock, Progressive Rock, Heavy Metal>
@@ -6,7 +99,7 @@ Uriah Heep - You Can't Keep A Good Band Down (2001/1970-1986) 7 Albums Box Set [
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482671.jpg" />
 </div>
 
 
@@ -41,7 +134,7 @@ Gathering Of Kings - Enigmatic (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482429.jpg" />
 </div>
 
 
@@ -70,7 +163,7 @@ Merzy - Rock the Blues (1991) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479277.jpg" />
 </div>
 
 
@@ -99,7 +192,7 @@ John Wetton & Geoffrey Downes - 25 albums, 29 CD (1980-2017) [FLAC|Lossless|imag
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478815.jpg" />
 </div>
 
 
@@ -128,7 +221,7 @@ Madhouse - Down 'N' Dirty (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478639.jpg" />
 </div>
 
 
@@ -157,7 +250,7 @@ Michael Schenker Group - Universal (2022) Japanese Edition [FLAC|Lossless|image 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478489.jpg" />
 </div>
 
 
@@ -186,7 +279,7 @@ Burning Rain - 3 альбомa (1999-2013) Discography [FLAC|Lossless|image + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478120.jpg" />
 </div>
 
 
@@ -215,7 +308,7 @@ Fаir Wаrning - Рimр Yоur Раst (2016) Jараnеsе Еditiоn [FLAC|Lossle
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477712.jpg" />
 </div>
 
 
@@ -244,7 +337,7 @@ Seven - 7 (2014) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477614.jpg" />
 </div>
 
 
@@ -273,7 +366,7 @@ Seven - Shattered (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477518.jpg" />
 </div>
 
 
@@ -302,7 +395,7 @@ All I Know - Vanity Kills (2008) Reissue, 2022, MelodicRock Classics [FLAC|Lossl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476490.jpg" />
 </div>
 
 
@@ -331,7 +424,7 @@ DeVicious - Black Heart (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Me
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476413.jpg" />
 </div>
 
 
@@ -360,7 +453,7 @@ David Coverdale - The Early Years: Whitesnake & Northwinds (2CD) (1976-77, Reiss
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476154.jpg" />
 </div>
 
 
@@ -395,7 +488,7 @@ Deep Purple - Machine Head (1972) Remastered /2011, KronStudioLab Int'l/ [FLAC|L
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475893.jpg" />
 </div>
 
 
@@ -427,7 +520,7 @@ Mutharoad - Midnight Stalker (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, He
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474429.jpg" />
 </div>
 
 
@@ -456,7 +549,7 @@ The Ragged Saints - The Sound Of Breaking Free (2013) Reissue, 2021, Lions Pride
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474427.jpg" />
 </div>
 
 
@@ -485,7 +578,7 @@ Ultraphonix - Original Human Music (2018) [FLAC|Lossless|tracks + .cue] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474097.jpg" />
 </div>
 
 
@@ -514,7 +607,7 @@ David Mark Pearce - Strаngе Аng3ls (2011) Jараnеsе Еditiоn [FLAC|Lossl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473184.jpg" />
 </div>
 
 
@@ -543,7 +636,7 @@ Bailey - Long Way Down (2014) Jараnеsе Еditiоn [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473060.jpg" />
 </div>
 
 
@@ -572,7 +665,7 @@ Whitesnake - 12 Альбомов (1978-2006) [FLAC,WV|Lossless]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471598.jpg" />
 </div>
 
 
@@ -607,7 +700,7 @@ H.E.A.T - Force Majeure (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470194.jpg" />
 </div>
 
 
@@ -636,7 +729,7 @@ White Lion - The Best Of White Lion (1992) [FLAC|Lossless|image + .cue] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468126.jpg" />
 </div>
 
 
@@ -665,7 +758,7 @@ The Isley Brothers & Santana - Power Of Peace (2017) [FLAC|Lossless|image + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467462.jpg" />
 </div>
 
 
@@ -679,93 +772,6 @@ The Isley Brothers & Santana - Power Of Peace (2017) [FLAC|Lossless|image + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:761BD423CE11B9F49CE024055383AECC89EB192D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058689   (466433) от 02.10.2016
-
-Blackjack - Blackjack (1979) Japanese SHM-CD, 2013 [FLAC|Lossless|image + .cue] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Me Tonight - 2:58
-02. Heart Of Stone - 3:57
-03. The Night Has Me Calling For You - 4:35
-04. Southern Ballad (If This Means Losing You) - 3:45(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 00:37:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD3E2AD99F6C934602FC3C2EBE7CD2F6803337FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058692   (466072) от 02.10.2016
-
-Blackjack - Worlds Apart (1980) Japanese SHM-CD, 2013 [FLAC|Lossless|image + .cue] <Classic Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My World Is Empty Without You - 3:09
-02. Love Is Hard To Find - 3:18
-03. Stay - 4:37
-04. Airwaves - 3:43(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 00:37:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00A28B9A8763B9A1E7F5011EB27FE1ECA78C3254
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058578   (465969) от 02.10.2016
-
-Airbourne - Breakin' Outta Hell (2016) Limited Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breakin' Outta Hell
-02. Rivalry
-03. Get Back Up
-04. It's Never Too Loud For Me(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD6E09018577D3463127BD68A0C03F76087517EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

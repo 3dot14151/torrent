@@ -1,3 +1,57 @@
+###  Публикация: 535073   (514230) от 18.08.2012
+
+Darksiders II: Death Lives - Limited Edition [Ru/En/Multi6] (Repack/1.0) 2012 | R.G. Repacker's
+
+>>След.
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пробужденный концом света, Смерть, самый страшный из легендарных Четырех Всадников, отправляется в путь, чтобы восстановить человечество и очистить имя брата. По пути всадник узнает, что есть вещи похуже земного Апокалипсиса, и что древняя вражда может угрожать всему Созиданию...
+
+События второй части развиваются параллельно событиям первой. Война все еще заточен в тюрьме и теперь нам предстоит узнать историю второго всадника Апокалипсиса - Смерти. Он пытается разобраться в заговоре между адом и раем за право обладания Землей и найти и наказать тех, кто подставил Войну. .(   Читать дальше...   )Тип издания: RepackЖанр: Action (Slasher) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский, Немецкий, Французский, Итальянский, Испанский, Польский, Чешский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:009031418CCA4114D2F49568429721C4FCBCE267
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 536351   (514188) от 18.08.2012
+
+The Expendables 2 Videogame (2012) [Multi] (1.0) License SKIDROW
+
+>>След.
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514188.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Expendables 2 или Неудержимые 2 – это игра в жанре совместного экшена для четверых игроков. Сюжет игры весьма схож с одноименном фильмом (конкретней его второй частью). Прежде всего вам предстоит выбрать персонажа – Сильвестра Сталлоне, Дольфа Лунгрена, Чака Норриса, или Арнольда Шварцнегера.Вместе вам предстоит одолеть трудности и поставить на место злодеев (   Читать дальше...   )Тип издания: ЛицензияРазработчик: -/-Жанр: Arcade / 3D / 3rd PersonЯзык озвучки: Английский,Немецкий,Испанский,Итальянский,ФранцузкийЯзык интерфейса: Английский,Немецкий,Испанский,Итальянский,Французкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AC49C17EE9000B41A5CD472B5923A32210ACFBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 930770   (513699) от 24.08.2015
 
 Tales from the Borderlands: Episode 1 - 3 (2014) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
@@ -6,7 +60,7 @@ Tales from the Borderlands: Episode 1 - 3 (2014) [Xbox360] [RegionFree] [FreeBoo
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513699.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Hockey? (L) [En] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513255.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ NHL 12 [PS3] [RUS] [PAL] (2011)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513216.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ Incoming + OST [Ru] (Rip) 1998 | RG games/Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512285.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ The Expendables 2. Videogame [En] (RePack/1.0) 2012 l R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512125.jpg" />
 </div>
 
 
@@ -136,7 +190,7 @@ NBA 2K12 [PS3] [ENG] [PAL] [MOVE] (2011)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512116.jpg" />
 </div>
 
 
@@ -162,7 +216,7 @@ Sleeping Dogs - Limited Edition [Ru/En] (Lossless RePack/1.4) 2012 l ShTeCvV
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512057.jpg" />
 </div>
 
 
@@ -189,7 +243,7 @@ Sleeping Dogs - Limited Edition [Ru] (Repack/1.4) 2012 | DangeSecond
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_512056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512056.jpg" />
 </div>
 
 
@@ -216,7 +270,7 @@ Rochard [Ru/En/Multi12) (RePack/1.23) 2011 | R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511459.jpg" />
 </div>
 
 
@@ -243,7 +297,7 @@ Rochard [Ru\En\Multi12] (Steam-Rip/1.23) 2011 | R.G. Origins
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511457.jpg" />
 </div>
 
 
@@ -270,7 +324,7 @@ Santa Fe Mysteries: Sacred Ground [Ru] (RePack) 1996 | RG games/Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511433.jpg" />
 </div>
 
 
@@ -298,7 +352,7 @@ The Expendables 2 Videogame [En] (RePack/1.0) 2012 l Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511424.jpg" />
 </div>
 
 
@@ -326,7 +380,7 @@ Darksiders II [En] (RePack/1.0) 2012 l R.G. World Games
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511351.jpg" />
 </div>
 
 
@@ -353,7 +407,7 @@ The Expendables 2 Videogame [En/Multi5] (Lossless RePack/1.0) 2012 l R.G. Origam
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511312.jpg" />
 </div>
 
 
@@ -381,7 +435,7 @@ The Expendables 2 Videogame [En/Multi5] (RePack/1.0) 2012 l VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511272.jpg" />
 </div>
 
 
@@ -409,7 +463,7 @@ Inversion [Ru] (RePack/1.0.1.0) 2012 l Fenixx
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511258.jpg" />
 </div>
 
 
@@ -436,7 +490,7 @@ Magicka + 18 DLC [Ru/En] (RePack/1.4.8.1)  2011 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511256.jpg" />
 </div>
 
 
@@ -468,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510885.jpg" />
 </div>
 
 
@@ -494,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510737.jpg" />
 </div>
 
 
@@ -520,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510404.jpg" />
 </div>
 
 
@@ -552,7 +606,7 @@ Galaxy on Fire 2 Full HD [Multi11/+] (RePack/1.0) 2012 | SEYTER
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510374.jpg" />
 </div>
 
 
@@ -578,7 +632,7 @@ Sleeping Dogs - Limited Edition [Ru] (Repack/1.3) 2012 | R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510316.jpg" />
 </div>
 
 
@@ -605,7 +659,7 @@ Resident Evil 6 [Xbox 360] [DEMO] [En] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510235.jpg" />
 </div>
 
 
@@ -631,7 +685,7 @@ Hitman: Sniper Challenge (NoDVD/1.0) 2012 | SKiDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510233.jpg" />
 </div>
 
 
@@ -642,60 +696,6 @@ Hitman: Sniper Challenge (NoDVD/1.0) 2012 | SKiDROW
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4373BAEFEB8146AAEEEF986CA1F8AD10A657731
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 534820   (510153) от 22.08.2012
-
-The Amazing Spider-Man [Ru] (RePack/1.0) 2012 | Audioslave
-
->>След.
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510153.jpg" />
-</div>
-
-
-###  Подробнее
-
-Огромный мегаполис задыхается от власти преступников. На улицах города начинается настоящая война, и только Человек-паук способен очистить родной Нью-Йорк от грабителей, воров и убийц. Питер Паркер вновь надевает свой легендарный костюм и выходит на тропу войны. Но из теней, что сгустились над Манхэттеном, за полетом паутины следит нечто зловещее… и оно жаждет крови.
-Этот невероятно зрелищный экшен по мотивам голливудского блокбастера позволит вам применить самые впечатляющие боевые приемы из арсенала Человека-паука. Вам доведется парить над городом, прыгать по небоскребам, спускаться под землю и сражаться с легендарными злодеями из классических комиксов Marvel. Сюжет игры начинается там, где заканчиваются события фильма. Узнайте, что ждет героев после того, как пройдут финальные титры.(   Читать дальше...   )Тип издания: RepackРазработчик: BeenoxЖанр: Action / 3D / 3rd PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8521D4224699B4757E4E427AD7CC192AAED7123
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 537959   (510147) от 22.08.2012
-
-Batman: Arkham City / Batman: Аркхем Сити + 14 DLC [Ru/En] (RePack/1.03) 2011 | R.G. Catalyst
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510147.jpg" />
-</div>
-
-
-###  Подробнее
-
-Студия Rocksteady — создатели проекта Batman: Arkham Asylum — приглашают игроков вновь окунуться в мрачную и таинственную атмосферу Готэма в игре «Batman: Аркхем Сити».
-Аркхем — район, где бесчинствуют выпущенные из психиатрической клиники и предоставленные сами себе безумцы, матерые преступники и маньяки. Это черное пятно в самом сердце Готэма, отгороженное от окружающего города неприступной стеной. А как известно, где зло — там и Бэтмен! В Аркхеме легендарный Человек-летучая мышь встретится со многими знаменитыми героями и злодеями, а игроки испытают на себе, каково это — быть Темным Рыцарем. (   Читать дальше...   )Тип издания: RepackЖанр: Action / 3D / 3rd Person / StealthЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C3FA4CD154FD912EC4D22F124445FCBC4212A5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

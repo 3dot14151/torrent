@@ -1,3 +1,61 @@
+###  Публикация: 1097389   (914492) от 27.01.2017
+
+The Sounds Of Nature - Dazzling Thunderstorm (1994) [MP3|320 Kbps] <New Age>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gentle Droplets (10:45)
+02. Under the Leaves (9:45)
+03. Welcome Rain (9:58)
+04. Wish You Were Here (10:00)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED764763F6ABE0EAFB826054D5B9E3A1DDF9730B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097433   (914491) от 27.01.2017
+
+VA - Lyrical Music 2017 Top Best Hits Minor Lyrical Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cj Aist - Contemplation [00:02:43]
+02. Eugene Kush - Katrin [00:06:11]
+03. Eugene Kush - Winter Waltz [00:04:28]
+04. Tom Strobe - Love Makes Me Sad [00:02:50](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:34:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5706CCA282CDD0E1C4B01C7946025F1F4D0DD3A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097480   (914379) от 27.01.2017
 
 VA - Cycles 8 (Mixed By Max Graham) (2017) [MP3|320 Kbps] <Progressive House, Techno>
@@ -6,7 +64,7 @@ VA - Cycles 8 (Mixed By Max Graham) (2017) [MP3|320 Kbps] <Progressive House, Te
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914379.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Tropical Bleyage - 4 You (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914100.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Cafe Deluxe Chill Out - Nu Jazz|Lounge Vol 3 (A Fine Selection Of 33 Smooth
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914066.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ MMYYLO - Venamy (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Techno, Electro, Dark D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914055.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Modjo - Modjo (2001) Compilation, 2CD [FLAC|Lossless|tracks + .cue] <House, Disc
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913677.jpg" />
 </div>
 
 
@@ -148,7 +206,7 @@ VA - V.I.P (Chillhouse Edition) (2016) [MP3|320 кб/с] <Deep House, Chill Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913672.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ Dj Antonio - XIII - Deja Vu. 1 Year Together (2007) [FLAC|Lossless|tracks + .cue
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913662.jpg" />
 </div>
 
 
@@ -203,7 +261,7 @@ VA - Fantastic Muscle, Vol. 2 (20 Workout Tracks For A Professional Training) (2
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913531.jpg" />
 </div>
 
 
@@ -232,7 +290,7 @@ em:t records - Label-Pack (28 Releases) emit (1994-2006) [FLAC|Lossless|image+.c
 >>Label-Packs
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913495.jpg" />
 </div>
 
 
@@ -261,7 +319,7 @@ VA - Ibiza Opening Party (2016) [MP3|320 Kbps] <Progressive House, Trance>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912670.jpg" />
 </div>
 
 
@@ -290,7 +348,7 @@ VA - Steyoyoke Black Onyx Vol.2 (2017) [MP3|320 Kbps] <Techno, Tech House, Progr
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912631.jpg" />
 </div>
 
 
@@ -319,7 +377,7 @@ VA - Cycles 8 (Mixed By Max Graham) (2017) [FLAC|Lossless|WEB|tracks|image] <Pro
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912586.jpg" />
 </div>
 
 
@@ -348,7 +406,7 @@ VA - Global Underground: Select #2 (2017) [FLAC|Lossless|WEB|tracks|image] <Deep
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912483.jpg" />
 </div>
 
 
@@ -377,7 +435,7 @@ Olaf Wempe - Anomaliac (+) (2021) L50 [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambien
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912355.jpg" />
 </div>
 
 
@@ -406,7 +464,7 @@ VA - Carnaval House (2016) [MP3|320 кб/с] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912283.jpg" />
 </div>
 
 
@@ -435,7 +493,7 @@ VA - Faze #28: Adriatique (2014) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <EDM, Deep
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912279.jpg" />
 </div>
 
 
@@ -464,7 +522,7 @@ VA - Sunset Moods: Tulum (A Selection of Finest Sundowner Island Moods & Grooves
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912270.jpg" />
 </div>
 
 
@@ -493,7 +551,7 @@ Chris Oblivion - The Collection (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Tr
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912234.jpg" />
 </div>
 
 
@@ -522,7 +580,7 @@ K Ø Z L Ø V (K O Z L O V) - Coronavirus (2020) [FLAC|Lossless|WEB-DL|tracks] <
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912221.jpg" />
 </div>
 
 
@@ -548,7 +606,7 @@ VA - Frozen Time - 50 Cool Winter Chill Sounds (2016) [MP3|320 кб/с] <Downtem
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912183.jpg" />
 </div>
 
 
@@ -577,7 +635,7 @@ VA - Reflections (Dub) (2015) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Minimal
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912174.jpg" />
 </div>
 
 
@@ -606,7 +664,7 @@ VA - Carnaval Electro 2016 (Deluxe Edition) (2016) [MP3|320 кб/с] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912166.jpg" />
 </div>
 
 
@@ -635,7 +693,7 @@ VA - Model Dreams: Winter Edition (2017) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912149.jpg" />
 </div>
 
 
@@ -664,7 +722,7 @@ VA - Sasha And John Digweed - Northern Exposure Vol. 1-3 (1996-1999) [FLAC, APE|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911981.jpg" />
 </div>
 
 
@@ -675,64 +733,6 @@ VA - Sasha And John Digweed - Northern Exposure Vol. 1-3 (1996-1999) [FLAC, APE|
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097988   (911955) от 28.01.2017
-
-Celldweller - Transmissions Vol. 04 (2017) [MP3|320 Kbps] <Industrial, Alternative>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Are Radio Transmission
-02. The Siren's Lullaby (Heart On)
-03. Pulse Injector
-04. Lifeforms (Mother-32 Version)(   Читать дальше...   )Жанр: Industrial, AlternativeПродолжительность: 00:58:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C22AB47043C12BA5DD0CFC3AF92C2CD73E67EA8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988667   (911864) от 25.02.2016
-
-VA - Club Charts 2016.1 (2016) [MP3|256 кб/с] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robin Schulz - Show Me Love (feat. J.U.D.G.E.) 04:17
- 02. DJ Tonka - She Knows You (Update Radio Mix) 03:04
- 03. Gestort aber GeiL - Ich & Du (feat. Sebastian Hamer) 03:37
- 04. EDX - Revered (Radio Edit) 03:15(   Читать дальше...   )Жанр: HouseПродолжительность: 03:42:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7858570329D65DC2EBD734D560493F44A97335BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

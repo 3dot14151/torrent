@@ -1,3 +1,31 @@
+###  Публикация: 1678339   (145636) от 21.11.2023
+
+Geekbench 6 v.6.2.2 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145636.jpg" />
+</div>
+
+
+###  Подробнее
+
+Geekbench 5 – бенчмарк для измерения производительности в реальных задачах
+Когда мы покупаем Mac или когда мы хотим быть уверены, что все компоненты нашей системы работают хорошо, мы, как правило, используем программы для выполнения тестов.
+Geekbench 5 предлагает обновленный интерфейс и ряд новых бенчмарков, которые созданы специально для измерения быстродействия (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.11.2023Разработчик: © Primate Labs Inc.Поддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6695EDCED798F7AF1B50E698426519EEF2CE104F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 969908   (144652) от 28.12.2015
 
 iGlasses 3.4.6 [En]
@@ -6,7 +34,7 @@ iGlasses 3.4.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144652.jpg" />
 </div>
 
 
@@ -33,7 +61,7 @@ FoneDog Toolkit for iOS on Mac 2.1.88 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144035.jpg" />
 </div>
 
 
@@ -59,7 +87,7 @@ PasteNow Pro 2.15.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144004.jpg" />
 </div>
 
 
@@ -85,7 +113,7 @@ Default Folder X 6.0.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143788.jpg" />
 </div>
 
 
@@ -111,7 +139,7 @@ Paragon Hard Disk Manager for Mac 1.3.873 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143493.jpg" />
 </div>
 
 
@@ -138,7 +166,7 @@ UltraCompare 23.1.0.30 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142535.jpg" />
 </div>
 
 
@@ -164,7 +192,7 @@ AnyMP4 iOS Toolkit for Mac 9.1.6 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142383.jpg" />
 </div>
 
 
@@ -190,7 +218,7 @@ AnyMP4 Android Data Recovery for Mac 2.1.16 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142318.jpg" />
 </div>
 
 
@@ -216,7 +244,7 @@ ScreenFloat-Better Screenshots 1.5.20 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142302.jpg" />
 </div>
 
 
@@ -244,7 +272,7 @@ PhoneRescue for iOS on Mac 4.2.6 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142190.jpg" />
 </div>
 
 
@@ -270,7 +298,7 @@ Magoshare Data Recovery Professional 4.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142020.jpg" />
 </div>
 
 
@@ -296,7 +324,7 @@ Easy App Locker Pro for Mac 1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140970.jpg" />
 </div>
 
 
@@ -323,7 +351,7 @@ Scrollow 1.7.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140907.jpg" />
 </div>
 
 
@@ -349,7 +377,7 @@ Duplicate Finder and Cleaner for Mac 1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140851.jpg" />
 </div>
 
 
@@ -376,7 +404,7 @@ Benchmark AI - System Monitor for Mac 1.1.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140670.jpg" />
 </div>
 
 
@@ -403,7 +431,7 @@ FoneLab Data Retriever 1.5.16 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140024.jpg" />
 </div>
 
 
@@ -429,7 +457,7 @@ Sensei 1.5.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139625.jpg" />
 </div>
 
 
@@ -455,7 +483,7 @@ Find Any File (FAF) 2.3.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139474.jpg" />
 </div>
 
 
@@ -482,7 +510,7 @@ Outside 3.1.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139430.jpg" />
 </div>
 
 
@@ -508,7 +536,7 @@ MacDroid Pro 1.4 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139244.jpg" />
 </div>
 
 
@@ -534,7 +562,7 @@ Lungo 2.4.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138458.jpg" />
 </div>
 
 
@@ -560,7 +588,7 @@ MenubarX for Mac 1.6.6 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138345.jpg" />
 </div>
 
 
@@ -586,7 +614,7 @@ DearMob iPhone Manager 6.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138228.jpg" />
 </div>
 
 
@@ -613,7 +641,7 @@ iToolab FixGo 3.3.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135249.jpg" />
 </div>
 
 
@@ -642,7 +670,7 @@ SuperDuper! 3.8 ARM [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135245.jpg" />
 </div>
 
 
@@ -653,32 +681,6 @@ SuperDuper! - утилита для клонирования жесткого д
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:007A2EA7991FC62280B639488B85797FA2F4957D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679655   (135196) от 26.11.2023
-
-CRAX Commander 1.13.4 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135196.jpg" />
-</div>
-
-
-###  Подробнее
-
-CRAX Commander — это двухпанельный файловый менеджер с удобным пользовательским интерфейсом. Он интегрирован с Subversion и имеет встроенные клиентские функции FTP/FTPS, SFTP/SSH, WebDAV, SMB, AFP. CRAX Commander предоставляет множество функций, необходимых для быстрого и эффективного доступа к локальным и удаленным файлам и управления ими.Тип издания: macOS X SoftwareРелиз состоялся: 29.09.2023Разработчик: © 2013-2023 Soft4U2Поддерживаемая ОС: macOS X 10.10+Язык интерфейса: Русский, Английский и Польский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B98EE7AE6EB81A3F9809FA8D92DB4749BD662F0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

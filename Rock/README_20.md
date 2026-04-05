@@ -6,7 +6,7 @@ OCN (Ocean) - Wojna Swin (2011) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803565.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ The Go Getters - Love & Hate (2017) [MP3|320 Kbps] <Rockabilly>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802941.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ William T. & The Black 50's - Rock'n'Roll... Baby!!! (2018) [MP3|320 Kbps] <Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802935.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Bobby Solo - Rock'n'Roll (1979) LP [MP3|320 Kbps] <Rock & Roll, Pop>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802934.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Pink Fairies - What A Bunch OF Sweeties (1972) Reissue, 2002, Polydor [MP3|320 K
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802933.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ OCN (Ocean) - Waterfall (2013) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802117.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Brit Floyd - Live At Red Rocks (2014) 2CD [MP3|320 кб/с] <Prog Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802074.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801837.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ The Beatles - Abbey Road And Beyond (2016) 6CD Box Set [MP3|320 Kbps] <Pop, Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801798.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ The Motors - 3 Albums (1977 - 1980) [MP3|320 Kbps] <Pub Rock, Power Pop, New Wav
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801734.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ BrainStorm - Год без календаря (2021) [MP3|320 Kbps] <Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801654.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Whitesnake - Restless Heart (1997) 25th Anniversary, Super Deluxe Edition, 4CD, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801395.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Stories - Stories / About Us (2007) [MP3|320 Kbps] <Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_801257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801257.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Electric Light Orchestra - Ballads (2021) [MP3|320 Kbps] <Progressive-Rock, Art-
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800897.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800851.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Panhandle - Panhandle (1972) Reissue, 2016, Prog Temple [MP3|320 Kbps] <Rock, Bl
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800608.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Stone The Crows - Ode To John Law (1970) Reissue, 1996, Repertoire Records [MP3|
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800445.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ The Doors - The Doors (1967) Remastered, 2017, 50th Anniversary Deluxe Edition [
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800428.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Night - 2 Albums (1979, 1980) Reissue CD, 2012,Gonzo Multimedia [MP3|320 Kbps] <
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800422.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Per Frost - The Calling (2018) [MP3|320 Kbps] <Rock, Blues>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800362.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Spider - 2 Albums (1980, 1981) LP [MP3|320 Kbps] <Rock, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799842.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Sweet - The Lost Singles (2017) [MP3|320 Kbps] <Classic Rock, Glam Rock, Hard Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799735.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Bob Dylan - Triplicate (2017) 3CD [MP3|320 Kbps] <Folk Rock, Country Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799629.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Jonathan - Jonathan (1978) Reissue CD, 1993, L+R Records [MP3|320 Kbps] <Electro
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799494.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Faces - The First Step (1970) Reissue, 1990, Warner Bros. Records [MP3|320 Kbps]
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799223.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Faces - A Nod Is As Good As A Wink...To A Blind Horse (1971) Reissue, 1990, Warn
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798831.jpg" />
 </div>
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 965356   (226586) от 14.12.2015
+
+Underdark - In The Name Of Chaos (2010) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Preludium Proelium(instrumental)
+02. Gospel of Netherworld
+03. World Reframed
+04. The Path(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:183308685FD863A39C0D75FE391D0F72B3AEA819
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 965246   (226581) от 14.12.2015
 
 Cadaver Mutilator - Murder Death Kill (2013) [FLAC|Lossless|image + .cue] <Brutal Death Metal>
@@ -6,7 +35,7 @@ Cadaver Mutilator - Murder Death Kill (2013) [FLAC|Lossless|image + .cue] <Bruta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226581.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ John Butler Trio - Home (2018) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226579.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Nightbreed - Nightbreed (2015) [MP3|320 кб/с] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226571.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ John Mellencamp - Other People's Stuff (2018) [MP3|320 Kbps] <Rock, Blues>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226562.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Birth Asphyxia - Human Obelisk (2012) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226518.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Domination - Infants Of Thrash (2015) [MP3|320 кб/с] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226498.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Guns N' Roses - Greatest Hits (2010) 2CD [APE|Lossless]<Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226493.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Dead Fields Of Woolwich - Dead Fields Of Woolwich (2023) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_226475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_226475.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Forest Of Shadows - Among The Dormant Watchers (2018) [MP3|320 Kbps] <Doom-Death
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226473.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Stormzone - Seven Sins (2015) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226471.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Eternal Rot - Moribound (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Doom 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_226468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_226468.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ The Shape of Chaos - The Shape of Chaos (2023) [FLAC|Lossless|WEB-DL|tracks] <Gr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_226460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_226460.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Pink Floyd - The Later Years: 1987-2019 (2019) [FLAC|24/44.1|Lossless|WEB-DL|tra
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226456.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Ambush - Desecrator (2015) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226454.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Dogs Of Neptune - One Taste Of Blood (2016) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_226444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_226444.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Blazon Stone - Down In The Dark (2017) [FLAC|Lossless|image + .cue] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226437.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Eden's Curse - Eden's Curse (2007) Japan [FLAC|Lossless|image + .cue] <Melodic H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226436.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Glass Towers - Halcyon Days (2013) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Po
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226429.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Roxette - The RoxBox! (A Collection Of Roxette's Greatest Songs) (2015) Box Set:
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226365.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ From Fall to Spring - Light Ut The Sky (2022) [FLAC|Lossless|WEB-DL|tracks] <Alt
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226343.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Voodoo Circle - Whisky Fingers (2015) Limited Edition [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226301.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Primal Scream - Give Out But Don't Give Up - The Original Memphis Recordings (20
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226270.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Aleynmord - The Blinding Light (2020) [FLAC|Lossless|image + .cue] <Atmospheric 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226269.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226211.jpg" />
 </div>
 
 
@@ -703,7 +732,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226203.jpg" />
 </div>
 
 
@@ -717,35 +746,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6E9D2D80B1778E931530E22BDB241BFAEB8292E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583841   (226161) от 17.10.2022
-
-Mamooth Band - First Steps (2022) [MP3|320 Kbps] <Hard Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Mamooth Steps [00:02:18]
-02 - Seven Steps To Love [00:04:41]
-03 - Stay On This Road [00:04:44]
-04 - The Monster [00:04:01](   Читать дальше...   )Жанр: Hard Blues RockПродолжительность: 00:23:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CF681C5D92B3C08C172B508043B482F1AEF5857
 ```
 
 https://mybot314.ru/tekegram_catalog/

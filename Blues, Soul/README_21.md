@@ -6,7 +6,7 @@ VA - Muddy Waters 100 (2015) [MP3|320 кб/с]<Blues, Chicago Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566464.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Studebaker John And The Hawks - Eternity's Descent (2016) [MP3|320 Kbps] <Blues 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565503.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Walter Trout - The Outsider (2008) [MP3|320 kbps]<Blues-Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_563807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563807.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - British Blues Cuts (2018) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562263.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Ted Drozdowski's Scissormen - Love & Life (2015) [MP3|320 кб/с]<Electric Blue
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561036.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Buddy Guy - Born To Play Guitar (2015) [MP3|320 кб/с]<Chicago Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560923.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Howard "Guitar" Luedtke And Blue Max - Face To Face With The Blues (1996) False 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560462.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Christone Kingfish Ingram - Kingfish (2019) [MP3|320 Kbps] <Blues, Electric Blue
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558166.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Joanne Shaw Taylor - Blues From The Heart Live (2022) Live [MP3|320 Kbps] <Blues
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558091.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Subluna - Subluna (2017) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557018.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Kenny Wayne Shepherd Band - Lay It On Down (2017) Limited Edition [MP3|320 Kbps]
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556872.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Vanessa Collier - Honey Up (2018) [MP3|320 Kbps] <Blues, Funk>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556592.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Two Timer - The Big Easy (2018) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556283.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ William F. Souffreau (of Irish Coffee) - Tobacco Fields (2017) [MP3|320 Kbps] <B
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554671.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Keb' Mo' - Oklahoma (2019) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553921.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Greg Serrato - Holy Smokes (1999) [MP3|256 Kbps] <Electric Blues, Blues Rock, Ch
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551935.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Joe Gorfinkle & Friends - Take A Chance (2012) [MP3|320 Kbps] <Modern Electric B
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544920.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Bootleggers - Heart Of Dixie (2012) [MP3|320 Kbps] <Blues, Country, Southern Roc
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544907.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Jeremy Spencer - Bend In The Road (2012) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544863.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Deb Rhymer - Don't Wait Up (2018) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544656.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Delgres - Mo Jodi (2018) Extended Gold Edition, 2019, Groupe Yapuka [MP3|320 Kbp
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543533.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ The Record Company - All Of This Life (2018) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542431.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Phantom Blues Band - Inside Out (2011) [MP3|320 кб/с]<Funky Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541401.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Christ Ruest & Gene Taylor - It's Too Late Now (2017) [MP3|320 Kbps] <Chicago Bl
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541050.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Nighttime Lovers Vol.25 (2016) [MP3|320 Kbps] <Electronic, Soul>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540645.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - Bar Room Blues: A 12-Track Program (2004) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538674.jpg" />
 </div>
 
 

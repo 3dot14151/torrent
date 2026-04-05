@@ -6,7 +6,7 @@ CameraBag 2 v2.8.01 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985757.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ iConvert Icons 2.9 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985475.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ PitStop Pro 13 Update 1 (626770) [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984291.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Adobe Photoshop Elements 2020.1 v18.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965895.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ EdgeView 2 v2.842 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963275.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Adobe Photoshop Lightroom Classic 2020 9.2 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960286.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ LUT Utility for Final Cut Pro X and Motion 1.44 (upd 29.10.2015) [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959380.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ PicFrame 2.8.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957141.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Super PhotoCut 2.1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951896.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Mischief 2.1.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951299.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ LensFlare Studio 5.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948282.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Overlay 3.60 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946627.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Patina 1.2 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946582.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ WaterMarker 2 v2.2.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945408.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Affinity Photo 1.8.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943900.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Graphic 3.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942470.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Ember 1.8.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941019.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ On1 Photo 10.1.0 (2689) [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938457.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Cf/x Photo Mosaic 2.0.9 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932275.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Capture One 20 Pro v13.0.3.29 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930020.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ ArtRage 6 v6.1.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927125.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ PictureCode Photo Ninja 1.4.0d Latest pre-release [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925308.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Color Finale Pro 1.94 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925178.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Logoist 3.2 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924020.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Membrane Pro - Cover image maker 1.0.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914166.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ LensFlare Studio 5.9 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914154.jpg" />
 </div>
 
 

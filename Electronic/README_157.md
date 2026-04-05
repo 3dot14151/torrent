@@ -1,3 +1,61 @@
+###  Публикация: 1211102   (777872) от 06.03.2018
+
+VA - Club Hits Workout Vol.1 (2018) [MP3|320 Kbps] <Dance, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost Frequencies and Netsky - Here with You (Bassjackers Remix)
+02. MATTN Magic Wand feat. Neisha Neshae - Let the Song Play (Futuristic Polar Bears Remix)
+03. Bombs Away feat. Elle Vee - Like You (Fresh Til' Death Remix)
+04. VASSY Afrojack feat. Oliver Rosa - Lost(   Читать дальше...   )Жанр: Dance, Club HouseПродолжительность: 02:10:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EB6DA3EB7A91F1B46F26B816519CBA7B69F0C6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211312   (777592) от 07.03.2018
+
+VA - Dark Miami (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Gamma & Attila Syah feat. Cari  -  Every Goodbye (Extended Mix)  7:18
+02.  Jan Miller & Steve Dekay  -  Melodrama (Original Mix)  3:32
+03.  Roman Messer feat. Betsie Larkin  -  Unite (Extended Full Fire Mix)  5:46
+04.  Axel Walters  -  Line (Extended Mix)  5:52(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:27:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECC1DC003BA179083316B4BE0DCC3F98EA27FBB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211180   (777563) от 07.03.2018
 
 VA - Winter Chill 2018 (Relaxed Nu-Disco & Deep House Sounds) (2018) [FLAC|Lossless|tracks] <Nu-Disco, Deep House>
@@ -6,7 +64,7 @@ VA - Winter Chill 2018 (Relaxed Nu-Disco & Deep House Sounds) (2018) [FLAC|Lossl
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777563.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Kronos Quartet & Laurie Anderson - Landfall (2018) [FLAC|Lossless|tracks + .cue]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777552.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Mediterranean Chill Out Session Vol.1 (2016) [MP3|320 кб/с] <Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777347.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - San Trance Disko Vol.1 (2016) [MP3|320 кб/с] <House, Progressve, Tech Ho
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777346.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Autumn of Communion - Broken Apart By Sunlight (2016) [MP3|320 кб/с] <Ambient
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777345.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Germind - Antimatter, Vol. 4 (2016) [MP3|320 кб/с] <Psybient Downtempo, Ambie
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777340.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Haldo, Clelia Liguori & Erika Scherlin - Napoli Lounge # 1 (2016) [MP3|320 кб/
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777339.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Ibiza Techhouse Weekend Session (2016) [MP3|320 кб/с] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777335.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Relax 2 Sax - Sensual Background Jazz Lounge Music for Perfect Chill Out (2
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777296.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Progressive Trance Vol.2 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777282.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Spatium Options Vol.01 (2018) [MP3|320 Kbps] <Downtempo, Chillout>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777280.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Individual Collection Vol.2 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lou
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777279.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Spring 2018 Collection (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777277.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Lounge Tonight (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777275.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Miami Madness 2018 [MP3|320 Kbps] <House, Tech House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777272.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Relax Vibration Vol.02 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Vocal>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777271.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Vocal Anthems Miami (2018) [MP3|320 Kbps] <Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777247.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Russian Electronica Vol.3 (2018) [MP3|320 Kbps] <House, Electronica>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777246.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Love & Relax: Temptation (2018) [MP3|320 Kbps] <Downtempo, Chillout, Vocal>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777241.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Gym Music Ultimate Workout (2018) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777233.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Cardio Workout Music Vol.2 (2018) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777232.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Koan - It's The Quiet Ones You Got To Watch (2018) [MP3|320 Kbps] <Downtempo, Ch
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777228.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Pablo Bolivar & Sensual Physics - Traverse (Reprise) (2018) [FLAC|Lossless|WEB-D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777150.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Jean-Michel Jarre - Electronica 2: The Heart of Noise (2016) Columbia [FLAC|Loss
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_777146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777146.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Jean-Michel Jarre - Electronica 2: The Heart of Noise (2016) Columbia [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B543D0C5C8323F61E60368D7CFFE5A8A3B7B219D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014166   (776946) от 06.05.2016
-
-Lemongrass - Beauty (2016) [MP3|320 кб/с] <Electronic, Ambient, Downtempo, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Something True (ft Jane Maximova) 04:32
-02. Belle Vue 05:12
-03. Beautiful and Free (ft Karen Gibson Roc) 04:15
-04. Sunset People 04:42(   Читать дальше...   )Жанр: Electronic, Ambient, Downtempo, ChilloutПродолжительность: 01:15:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5751749D6AF4D26429EE7A4C712E2F5F3EB5C130
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013809   (776938) от 06.05.2016
-
-Way Out West - We Love Machine – The Remixes (2010) 2CD [FLAC|Lossless|tracks + .cue] <House, Progressive Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Surrender (SommerStad Remix) (06:04)
-02 - Surrender (Eelke Kleijn Remix) (07:22)
-03 - Body Motion (Koen Lebens Remix) (07:58)
-04 - We Love Machine (Jaytech Remix) (07:16)(   Читать дальше...   )Жанр: House, Progressive TranceПродолжительность: 02:17:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1620CF2140D24E296D9D772EAEC595A96389AD27
 ```
 
 https://mybot314.ru/tekegram_catalog/

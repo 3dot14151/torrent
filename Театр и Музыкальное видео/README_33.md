@@ -6,7 +6,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857505.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ ABBA - The Definitive Collection (1974-1982) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857390.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857298.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Status Quo - The Last Night Of The Electrics 2016 (2017) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855893.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Sara Tunes - VIP (2013) WEBRip [H.264/720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855438.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Marty - Suddenly (2013) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855371.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Chase The Ace - California (2013) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855285.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854167.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Zucchero - Zu & Co - Live at Royal Albert Hall (2004) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852590.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852405.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ The Beatles: Вечер трудного дня / A Hard Day's Night (1964/2014)
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852255.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Within Temptation - Let Us Burn (Elements & Hydra Live In Concert) (2014) BDRip 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852151.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851990.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851981.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Rammstein - Volkerball (2006) DVDRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851647.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Nightwish - Vehicle of Spirits (2015) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851368.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Jackie Evancho - Music Of The Movies (2012) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851098.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Beth Hart / 37 Days (2008) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850994.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_850460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850460.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Klaus Schulze feat. Lisa Gerrard - Dziekuje Bardzo (2009) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849864.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Eagles - Live at the Capital Centre (1977) BDRip [H.264/1080p] [audio - self mad
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849784.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849748.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Eric Clapton - One More Car, One More Rider (Live On Tour 2001) (2002) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848295.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Rammstein - Lichtspielhaus (2003) DVDRip [H.264]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848067.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847303.jpg" />
 </div>
 
 
@@ -709,7 +709,7 @@ Blackmore's Night - The Beginning Box(2012) 2*DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847089.jpg" />
 </div>
 
 

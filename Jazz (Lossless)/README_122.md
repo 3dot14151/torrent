@@ -6,7 +6,7 @@ James P. Johnson - 1921 - 1928 (1992) Classics [FLAC|Lossless|tracks + .cue] <Ra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646936.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Dave Ferris - The Quiet One (1991) Nine Winds Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646934.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Chris Connor - Free Spirits (1961, 1962) 2014, Warner [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646931.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Calvin Johnson Jr. - Native Son (2013) Alma Records [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646930.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Alan Pasqua - Twin Bill: Two Piano Music of Bill Evans (2012) Challenge Records 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646928.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Dizzy Gillespie - 1947 - 1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646921.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Mitsuaki Kishi & Hiro Minowa - Time For Life (2018) Swingbros [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646919.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Aretha Franklin - The Real... Aretha Franklin (2014) 3CD [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646608.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Nat Adderley - Live At Memory Lane (1966) Remaster, 2012, Warner[FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646178.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Denny Zeitlin - Cathexis (1964) Remaster, 2014, Sony Music[FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646177.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Darji & Hank Jones - Darji Meets Hank Jones (1982) Remaster, 2015, Solid Records
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646171.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Kenny Dorham - Whistle Stop (1959, 1961) 2CD, 2012, Not Now Music[FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646168.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Pamela Williams - Eight Days of Ecstasy (1988) [FLAC|Lossless|tracks + .cue] <Sm
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646061.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Randy Brecker - Nostalgic Journey: Tykocin Jazz Suite (2009) [FLAC|Lossless]<Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645803.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Wynton Marsalis‎ - He And She (2009) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_645367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_645367.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Chet Baker - Career 1952-1988 (2005) 2CD, Shout! Factory [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645290.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Thelonious Monk - Making The Right Moods (1999) KRB [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644965.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Antonio Farao - Black Inside (1998) 2005, Landy Star Music [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644963.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Special EFX - Mystique (1987) GRP Records [FLAC|Lossless|tracks + .cue] <Smooth 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644961.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ The Don Ellis Orchestra - Electric Bath (1967) 2016, Sony Music [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644889.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Thierry Lang Trio - Serenity (2014) Universal [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644863.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Rodney Jones - When You Feel The Love (1980) Remaster, 2015, Solid Records[FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644118.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Francy Boland & The Orchestra - Blue Flame / Red Hot / White Heat (1972) 2CD, 20
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644111.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Sinne Eeg - Don't Be So Blue (2011) Japan Edition [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644104.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ Sinne Eeg & Thomas Fonnesbaek - Eeg-Fonnesbaek (2015) [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644017.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ Lambert, Hendricks & Ross - Everybody's Boppin' (1989) [FLAC|Lossless]<Jazz, Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_643738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_643738.jpg" />
 </div>
 
 

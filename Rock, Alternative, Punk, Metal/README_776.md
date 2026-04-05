@@ -1,3 +1,32 @@
+###  Публикация: 666534   (279116) от 24.11.2018
+
+Разные люди - 21 альбом (1987-2008) [MP3|160-320kbps]<рок, хард-рок, рок-н-ролл, блюз>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Дороги (5:53)
+02 - Водка (3:17)
+03 - Год (4:04)
+04 - Тепло (6:37)(   Читать дальше...   )Жанр: рок, хард-рок, рок-н-ролл, блюзПродолжительность: 01:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF1D3B04E91C70B5FB322BD87DB0B013907796C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1082387   (279102) от 12.12.2016
 
 Ruud Cooty - Aftermath (2002) [MP3|320 Kbps] <Hard Rock, Heavy Blues>
@@ -6,7 +35,7 @@ Ruud Cooty - Aftermath (2002) [MP3|320 Kbps] <Hard Rock, Heavy Blues>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279102.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Epica - Consign To Oblivion (2005) 2CD, Expanded Edition, 2015, Transmission Rec
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279100.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ No To Co i Piotr Janczerski - 4 альбома (1968-2006) 4CD, Collection [WavP
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279002.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Blind Guardian Twilight Orchestra - Legacy Of The Dark Lands (2019) [MP3|320 Kbp
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278952.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278949.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278937.jpg" />
 </div>
 
 
@@ -186,7 +215,7 @@ David Crosby - Sky Trails (2017) [FLAC|Lossless|tracks + .cue] <Acoustic, Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278852.jpg" />
 </div>
 
 
@@ -215,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278782.jpg" />
 </div>
 
 
@@ -241,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278702.jpg" />
 </div>
 
 
@@ -270,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278694.jpg" />
 </div>
 
 
@@ -299,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278687.jpg" />
 </div>
 
 
@@ -328,7 +357,7 @@ VA - Отечественные Рок Баллады (2010) [FLAC|Lossless]<Roc
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278684.jpg" />
 </div>
 
 
@@ -363,7 +392,7 @@ Gary Moore - Blues And Beyond (2017) Box Set 4CD, Limited Edition [MP3|320 Kbps]
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278601.jpg" />
 </div>
 
 
@@ -392,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278570.jpg" />
 </div>
 
 
@@ -421,7 +450,7 @@ WHITE LION - Дискография (1985-2008) [MP3|320 kbps]<Hard Rock,Glam Ro
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278554.jpg" />
 </div>
 
 
@@ -448,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278550.jpg" />
 </div>
 
 
@@ -483,7 +512,7 @@ Paul McCartney - Privet Chuvaki! (Live In Moscow 2011.12.14) bootleg (2011) [MP3
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278196.jpg" />
 </div>
 
 
@@ -518,7 +547,7 @@ Tom Morello / The Nightwatchman - The Fabled City (2008) [MP3|128-192 kbps]<Folk
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278131.jpg" />
 </div>
 
 
@@ -553,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277973.jpg" />
 </div>
 
 
@@ -582,7 +611,7 @@ Antiquus Scriptum - Immortalis Factus (2008) [FLAC|Lossless|image + .cue] <Symph
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277917.jpg" />
 </div>
 
 
@@ -611,7 +640,7 @@ George Harrison - Early Takes, Volume 1 (2012) [FLAC 2.0 24/96|tracks (WEB-DL)]<
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277898.jpg" />
 </div>
 
 
@@ -640,7 +669,7 @@ Death - For The Whole World To See (1975) Reissue, 2009, Drag City [MP3|320 Kbps
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277838.jpg" />
 </div>
 
 
@@ -669,7 +698,7 @@ Help - Help & Second Coming (1971) Unofficial Release, 2000, Free Records [MP3|3
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277835.jpg" />
 </div>
 
 
@@ -698,7 +727,7 @@ Docker's Guild - The Heisenberg Diaries Book A: Sounds Of Future Past (2015) [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277832.jpg" />
 </div>
 
 
@@ -727,7 +756,7 @@ VA - Children Of Nuggets - Original Artyfacts From The Second Psychedelic Era 19
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277778.jpg" />
 </div>
 
 
@@ -741,35 +770,6 @@ VA - Children Of Nuggets - Original Artyfacts From The Second Psychedelic Era 19
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1E69B013D141A9B3F5827C7CEE474CD46A10024
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264889   (277772) от 25.11.2018
-
-Docker's Guild - The Mystic Technocracy - Season 1: The Age Of Ignorance (2012) [FLAC|Lossless|image + .cue] <Progresssive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trailer - A Matter Of Energy (2:05)
-02. Pilot Episode - The Mystic Technocracy (6:44)
-03. Episode 1.1 - Darwin's Tears (8:14)
-04. Episode 1.2 - Norse Cosmogony (Part 1) (4:43)(   Читать дальше...   )Жанр: Progresssive RockПродолжительность: 01:19:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A66C3AA510422D491683B24D370E146BBC671C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1038512   (605920) от 28.07.2016
+
+Проекты - VideoHive - Clean Audio Spectrum Music Visualizer - 15786650 [AEP]
+
+>>Проекты
+>>Разное (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605920.jpg" />
+</div>
+
+
+###  Подробнее
+
+Clean Audio Spectrum Music Visualizer - этот проект включает в себя 18 аудио спектральных визуализаторов. Все анимации приводятся в движение от вашей музыкальной дорожки. Добавьте свой звук, фоновое изображение, и все готово. Этот шаблон применим для Youtube-каналов, звукового воздействия, визуализации звука, отображения формы сигнала и спектра эквалайзера.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35693E8DD7771A09106F9FAAD18AB25F85CD72AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1233550   (592831) от 30.06.2018
 
 Проекты - VideoHive - Scroll Intro Bundle - 19540306 [AEP]
@@ -6,7 +32,7 @@
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592831.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583882.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537776.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_534833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534833.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527251.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413005.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410758.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390225.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ Motion Array - Rock City - Film Opener - 292941 [AEP]
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378217.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_378049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378049.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ VideoHive - Traveler's Sketchbook - Instagram Stories Pack -  24352947 [AEP]
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373991.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ VideoHive - Time - 804913 [AEP]
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372723.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ VideoHive - Photo Animator V6.0 - 12972961 [AEP]
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369504.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366952.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ VideoHive - Wordica - 110912 [AEP]
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365950.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349236.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_349234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349234.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344623.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344376.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333375.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325219.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318558.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_318446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318446.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305976.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ VideoHive - Holiday Photo Booth - 24827850 [AEP]
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300459.jpg" />
 </div>
 
 
@@ -648,32 +674,6 @@ VideoHive - Holiday Photo Booth - 24827850 [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F308424297AE5DFE4988B7D4BACDB070B308069
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078885   (297565) от 02.12.2016
-
-Проекты - VideoHive - Glitch Opener - 18741537 [AEP]
-
->>Проекты
->>Разное (проекты)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Glitch Opener - динамичный проект с эффектами цифровых глюков.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD88516E82C60AE39A17D69D49361C15DADE524F
 ```
 
 https://mybot314.ru/tekegram_catalog/

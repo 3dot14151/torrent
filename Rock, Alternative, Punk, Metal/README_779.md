@@ -1,3 +1,32 @@
+###  Публикация: 1188421   (275025) от 02.12.2017
+
+Thormenthor - Abstract Divinity (1994) [APE|Lossless|image + .cue] <Progressive Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abstract divinity
+02. The proportional dream
+03. Encircled by aura sphere
+04. Nothing expanded(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00:33:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCC95211B58C382D9FA7EBED4479CAF97E7573F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1188457   (275023) от 02.12.2017
 
 Nepal - Ideologia (1995) [APE|Lossless|image + .cue] <Thrash Metal>
@@ -6,7 +35,7 @@ Nepal - Ideologia (1995) [APE|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275023.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Master's Hammer - Ritual (1991) [APE|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275022.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Saul Blanch Revancha - Refugiado (2006) [FLAC|Lossless|image + .cue] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275017.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Nepal - Demos Originales + Ineditos (2012) [APE|Lossless|image + .cue] <Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275013.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Mirzadeh - Ancient Rites (2003) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275010.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Nepal - Manifiesto (1997) [APE|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275008.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Mirzadeh - Desired Mythic Pride (2014) [FLAC|Lossless|image + .cue] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275001.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Tyron - Rebels Shall Conquer (2016) [MP3|320 Kbps] <Heavy Metal ,Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274972.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Alex Lahey - The Best of Luck Club (2019) [FLAC|Lossless|tracks + .cue] <Indie R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274910.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Margenta - Вентиль-провокация (2019) [MP3|320 Kbps] <Heavy Meta
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274903.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Bloodrain - De Vermis Mysteriis (2001) [FLAC|Lossless|image + .cue] <Thrash Meta
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274898.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274875.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274872.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Conform - Vol I: Cigarette Lullaby (2016) [MP3|320 Kbps] <Nu Metal, Experimental
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274867.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Section A - Wall of Silence (2016) [FLAC|Lossless|image + .cue] <Progressive Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274861.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Silent Descent - Turn To Grey (2017) [MP3|320 Kbps] <Modern Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274847.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Danny B. Harvey & Mysti Moon - Hell Cat Stomp (2014) [FLAC|Lossless|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274841.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ UFO - The Best Of The Rest (1988) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274795.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Venom - Hell (2008) [MP3|320 kbps]<Black/Speed/Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274793.jpg" />
 </div>
 
 
@@ -563,7 +592,7 @@ Amish - Amish (1972) 2007, Second Harvest [MP3|320 Kbps] <Hard Rock, Prog Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274750.jpg" />
 </div>
 
 
@@ -592,7 +621,7 @@ Crematory - Live Insurrection (2017) [FLAC|Lossless|image + .cue] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274741.jpg" />
 </div>
 
 
@@ -621,7 +650,7 @@ Graham Gouldman - Play Nicely And Share (2017) E.P. [FLAC|Lossless|image + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274728.jpg" />
 </div>
 
 
@@ -650,7 +679,7 @@ VA - Air Guitar Anthems (2016) 3CD [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274725.jpg" />
 </div>
 
 
@@ -679,7 +708,7 @@ The Unguided - And the Battle Royale (2017) [FLAC|Lossless|image + .cue] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274723.jpg" />
 </div>
 
 
@@ -708,7 +737,7 @@ Septicflesh - Codex Omega (2017) [FLAC|Lossless|image + .cue] <Symphonic Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274719.jpg" />
 </div>
 
 
@@ -721,35 +750,6 @@ Septicflesh - Codex Omega (2017) [FLAC|Lossless|image + .cue] <Symphonic Death M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBFA1FD6974BF67FF8C63F4674F99510935DFF22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188462   (274718) от 02.12.2017
-
-McAuley Schenker Group - Save Yourself (1989) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_274718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Save Yourself  (06:16) 
-02. Bad Boys  (04:05) 
-03. Anytime  (05:45) 
-04. Get Down To Bizness  (04:23) (   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEC0A7D3A47FB8CCE4227D2118F7C86602D7A7AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

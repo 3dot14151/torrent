@@ -1,3 +1,32 @@
+###  Публикация: 1636015   (239291) от 28.05.2023
+
+Mike Tramp - Songs Of White Lion (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lady Of The Valley (6:48)
+02. Little Fighter (4:30)
+03. Broken Heart (4:13)
+04. Love Don't Come Easy (3:39)(   Читать дальше...   )Жанр: Hard Rock, AORПродолжительность: 01:00:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F978F60DC73EB84358008BA17794E2DFBE7552E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1636031   (239273) от 28.05.2023
 
 Offensive - Blast from the Past (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash Metal>
@@ -6,7 +35,7 @@ Offensive - Blast from the Past (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239273.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ The Blacktop Kings - Royalty (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239247.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Rival Sons - DARKFIGHTER (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239242.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Son of Sam - And The Monster Awoke... (2021) [MP3|320 Kbps] <Heavy Metal, Melodi
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239230.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Elvenking - Reader of the Runes - Rapture (2023) [FLAC|Lossless|image + .cue] <M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239228.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Excelsis - Bluetmond (2020) [MP3|320 Kbps] <Folk Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239224.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Synn Unsworth - Phobetor (2023) [FLAC|Lossless|WEB-DL|tracks] <Groove, Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239220.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Sunken State - Solace in Solitude (2021) [FLAC|Lossless|WEB-DL|tracks] <Groove M
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239219.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Bloodsugar - Join The Lines (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239217.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Mandator - Perfect Progeny / Strangled (2017) [FLAC|Lossless|image + .cue] <Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239211.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Cowboy Junkies - Such Ferocious Beauty (2023) [FLAC 24/44.1|Lossless|WEB-DL|trac
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239210.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Imagine Dragons - Mercury - Acts 1 & 2 (2022) 2xCD, Japanese Edition [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239209.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Grisly - Tomb King (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239208.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Shores Of Null - The Loss Of Beauty (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239194.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Mahr - Maelstrom (2020) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239188.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Sweetlee - Двери (2019) [FLAC|Lossless|WEB-DL|tracks] <grange, psychedelic,
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239185.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Extreme - Six (2023) [FLAC 2.0|96/24|WEB-DL|tracks] <Hard Rock, Heavy Metal, Fun
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239181.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Blind Ego - Mirror (2007) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239177.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Surujuhla - Musta maa (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239171.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239169.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Strawbs - Prognostic (2014) [FLAC|Lossless|tracks + .cue]<Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239166.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Die like Gentlemen - Hard Truths (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludge, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239106.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Raze The Void - Para Sempre (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239094.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Throne Of Heresy - Antioch (2016) [FLAC|Lossless|WEB-DL|image + .cue] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239090.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Majustice - Ancestral Recall (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239087.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Majustice - Ancestral Recall (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:851988CA8E1F435BD52507EF763E206F099F0FAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622643   (239080) от 30.03.2023
-
-Itinerum - Dream and Fly (2023) [FLAC|Lossless|WEB-DL|tracks] <alternative metal, gothic metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_239080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. intro [00:00:49]
-02. eternal night [00:03:29]
-03. a new world [00:05:02]
-04. storm [00:03:43](   Читать дальше...   )Жанр: alternative metal, gothic metalПродолжительность: 00:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3426B301867567A5E0082D41A0A9F7C5901C30B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

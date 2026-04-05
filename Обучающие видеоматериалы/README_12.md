@@ -1,3 +1,29 @@
+###  Публикация: 1437498   (1041952) от 05.01.2021
+
+Udemy, Brad Traversy | Materialize CSS с нуля + 5 проектов в курсе / Materialize CSS From Scratch With 5 Projects (2018) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041952.jpg" />
+</div>
+
+
+###  Подробнее
+
+Усвой HTML 5 и Materializ CSS-фреймворк, построив 5 реальных проектов на основе Material дизайна. Этот курс предназначен для тех, кто знает базовый HTML и немного CSS и которые хотят сделать пользовательский интерфейс на следующем уровне, используя структуру Materialize CSS, основанную на схеме Google's Material Design. Вы узнаете все компоненты CSS и JavaScript, (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 10:26:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1AAA978FD055FAE73A947B854005E49F2EF110E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1437752   (1041951) от 05.01.2021
 
 Jonathan Rush | Photogrammetry for Games (2016) PCRec [En, Ru]
@@ -6,7 +32,7 @@ Jonathan Rush | Photogrammetry for Games (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041951.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Udemy, Andrew Mead | Полный курс веб-разработчика React
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041934.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Udemy, Михаил Савчук | ИТ под контролем: как не �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041927.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041905.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ Udemy, Brad Traversy | 20 веб-проектов с использование�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041901.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ Udemy, Rocket Kids Tech education | 3D моделирование в Autodesk Ma
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041830.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041823.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041690.jpg" />
 </div>
 
 
@@ -223,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041683.jpg" />
 </div>
 
 
@@ -252,7 +278,7 @@ Stephen Wells | Polypainting in ZBrush Volume 1-3 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041669.jpg" />
 </div>
 
 
@@ -281,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041654.jpg" />
 </div>
 
 
@@ -310,7 +336,7 @@ Tim Bergholz | MACE Tutorial – COMPLETE EDITION (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041625.jpg" />
 </div>
 
 
@@ -336,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041619.jpg" />
 </div>
 
 
@@ -365,7 +391,7 @@ Brain Recktenwald | Environment Art Lookdev Using Unreal & Photogrammetry (2017)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041611.jpg" />
 </div>
 
 
@@ -392,7 +418,7 @@ Michael Pavlovich | Photogrammetry Basics (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041608.jpg" />
 </div>
 
 
@@ -418,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041599.jpg" />
 </div>
 
 
@@ -447,7 +473,7 @@ Udemy, Александр Дронин | Управление личными ф�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041588.jpg" />
 </div>
 
 
@@ -473,7 +499,7 @@ Udemy, Samuel Girma | Программирование на Go (Golang): Bootcam
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041581.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041550.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ SkillFactory | Deep Learning и Нейронные сети (2019) WEB-DL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041539.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ Udemy, YouAccel Training | Internet and Web Development Fundamentals (2019) PCRe
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041470.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ Ben Tate | An Introduction To UVMapping In 3d Studio Max Using The Unwrap UVW Mo
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041459.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041435.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ Udemy, John Dunning | Python MultiTrack - beginners and professionals - zero to 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041433.jpg" />
 </div>
 
 
@@ -663,7 +689,7 @@ Udemy, Colt Steele | The Modern Python 3 Bootcamp (2020) PCRec [En / En Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041431.jpg" />
 </div>
 
 
@@ -675,32 +701,6 @@ Udemy, Colt Steele | The Modern Python 3 Bootcamp (2020) PCRec [En / En Sub]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADBE392E4559CF57BC5D9E940FDFD6A97C2A1A08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438007   (1041415) от 07.01.2021
-
-Udemy, Tim Buchalka's Learn Programming Academy и др. | Освойте CI/CD для React Native / Master CI/CD for React Native (2020) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041415.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе вы изучите основы CI/CD, что является сокращением от Continuous Integration / Continuous Delivery, и сможете применить эти основы в процессе разработки приложения React Native. Слово «развертывание» часто используется вместо «доставка», но фактически означает то же самое. Эти навыки необходимы для максимального раскрытия вашего карьерного потенциала (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглйискийПродолжительность: 08:06:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14594FD5AE5F0359A384915584AA861EC9652DC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

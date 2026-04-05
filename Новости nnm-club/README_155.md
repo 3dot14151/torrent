@@ -1,3 +1,57 @@
+###  Публикация: 538085   (510226) от 22.08.2012
+
+Модифицированные boot.wim (x86/x64) + комплект автоустановки Win7 от Smokie BlahBlah 2012.08.22 [Multi]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510226.jpg" />
+</div>
+
+
+###  Подробнее
+
+Модифицированные boot.wim (x86/x64) ~160/~200 мб с программами + комплект для создания автоустановки Windows 7. Есть автоустановка драйверов после первого входа в систему (с помощью DriverPackSolution) и другие бонусы (читайте ниже, под спойлером). За основу взяты Win7(x86x64)Live by Xemom1Язык интерфейса: Multi
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 537981   (510151) от 22.08.2012
+
+The Bat! Professional 5.2 Final [MULTi / Русский]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510151.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Bat! - популярный клиент электронной почты; программу используют более шести миллионов пользователей сети Интернет; программа позволяет работать с неограниченным количеством почтовых ящиков, использовать мощные средства фильтрации писем, шаблоны сообщений, диспетчер писем и многое другое. The Bat! Professional Edition оснащен всеми свойствами версии Home. Кроме того, в этой версии присутствуют дополнительные опции, которые понадобятся продвинутым пользователям.
+
+(   Читать дальше...   )Название программы: The Bat! ProfessionalЯзык интерфейса: MULTi / Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 538131   (510144) от 22.08.2012
 
 Adobe Acrobat X Professional v.10.1.4 DVD [RUS / ENG]
@@ -6,7 +60,7 @@ Adobe Acrobat X Professional v.10.1.4 DVD [RUS / ENG]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510144.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Clean Master  v5.10.7 [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509810.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ VMware Workstation 12 Pro 12.0.0 build 2985596 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509808.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ Metal Gear Solid V: The Phantom Pain (2015) [PS3] [EUR] 4.75 [CFW] [License] [Ru
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509803.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509802.jpg" />
 </div>
 
 
@@ -138,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509801.jpg" />
 </div>
 
 
@@ -164,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_509496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_509496.jpg" />
 </div>
 
 
@@ -190,7 +244,7 @@ Driver Genius Professional 11.0.0.1136 DC19.08.2012 Portable by moRaLIst [Рус
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509200.jpg" />
 </div>
 
 
@@ -216,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509073.jpg" />
 </div>
 
 
@@ -243,7 +297,7 @@ Super Smash Bros. Brawl [Wii] [NTSC] [MULTI 2] (2008)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508884.jpg" />
 </div>
 
 
@@ -269,7 +323,7 @@ Acronis True Image 2016 19.0 Build 5576 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508756.jpg" />
 </div>
 
 
@@ -295,7 +349,7 @@ Reg Organizer 7.20 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508748.jpg" />
 </div>
 
 
@@ -321,7 +375,7 @@ VMware Workstation 12 Pro 12.0.0 build 2985596 RePack by KpoJIuK [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508747.jpg" />
 </div>
 
 
@@ -347,7 +401,7 @@ Microsoft Office 2016 Professional Plus Preview 16.0.4229.1020  (x86-x64) by Rat
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508746.jpg" />
 </div>
 
 
@@ -373,7 +427,7 @@ Adobe Photoshop CC 2014.2.3 (20150807.r.342) RePack by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508738.jpg" />
 </div>
 
 
@@ -399,7 +453,7 @@ Dark Souls: Prepare To Die Edition [Ru] (RePack) 2012 l kuha
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508123.jpg" />
 </div>
 
 
@@ -425,7 +479,7 @@ Ubuntu 12.04.1 LTS [i386 + x86-64] (2xDVD)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508107.jpg" />
 </div>
 
 
@@ -453,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508102.jpg" />
 </div>
 
 
@@ -481,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507936.jpg" />
 </div>
 
 
@@ -510,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_507890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_507890.jpg" />
 </div>
 
 
@@ -536,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507782.jpg" />
 </div>
 
 
@@ -563,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507738.jpg" />
 </div>
 
 
@@ -589,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507727.jpg" />
 </div>
 
 
@@ -615,7 +669,7 @@ Bitdefender Total Security 2015 19.2.0.151 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507726.jpg" />
 </div>
 
 
@@ -628,61 +682,6 @@ Bitdefender Total Security 2015 - комплексный антивирус "в�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36360977E791C38D2ADDAE9C5F2F1A6D09F46F67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 671450   (507725) от 30.08.2015
-
-Инструкция по созданию красивых 3D обложек с помощью программы Insofta Cover Commander
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_507725.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создание красивых 3D обложек с помощью программы Insofta Cover Commander
-Все мы не раз видели красивые 3D обложки для книг или дисков. Но как сделать нечто подобное самому? Оказывается очень просто!
-В этой инструкции я пошагово покажу, как создать красивую 3D обложку книги на примере первой попавшейся сканированной картинки:
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932830   (507724) от 30.08.2015
-
-Левша / Southpaw (2015) WEBRip [H.264/720p-LQ] [Line]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507724.jpg" />
-</div>
-
-
-###  Подробнее
-
-У боксера Билли Хоупа все было прекрасно: звание чемпиона, красавица-жена и любимая дочка. Но фортуна отворачивается от него: при трагических обстоятельствах погибает любимая жена, дисквалификация на ринге, нулевые доходы, суд лишает его родительских прав… Хоуп должен отстоять звание чемпиона и вернуть дочь. Есть ли у Хоупа шансы на победу? Все решит его знаменитый (   Читать дальше...   )Производство: США / Escape Artists, Fuqua Films, Riche Productions, The Weinstein CompanyЖанр: Боевик, Криминал, Драма, ТриллерРежиссер: Антуан ФукуаАктеры: Джейк Джилленхол, Рэйчел Макадамс, Наоми Харрис, Форест Уитакер, Кёртис "50 Cent" ДжексонПеревод: Дублированный (чистый звук)Язык субтитров: : АнглийскийПродолжительность: 02:03:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5877A58CFF03812B108402D1C84A00E71E668D12
 ```
 
 https://mybot314.ru/tekegram_catalog/

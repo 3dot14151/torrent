@@ -1,3 +1,55 @@
+###  Публикация: 1039374   (593542) от 03.08.2016
+
+Р.М. Малинин | Питание приемников от электросети (1950) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593542.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге приводятся практические схемы кенотронных и селеновых выпрямителей как бестрансформаторных, так и с силовыми трансформаторами и автотрансформаторами, однополупериодных и двухполупериодных. Также описываются схемы с удвоением напряжении. Даются указания по выбору кенотронов и селеновых столбиков для выпрямителей различных назначений и по расчету выпрямителей. (   Читать дальше...   )Жанр: Электроника, радиотехникаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5794E40C24CFA534C0BEB27D3FD26412A6A28A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550013   (592604) от 09.05.2022
+
+Л.И. Кечиев | Экранирование радиоэлектронной аппаратуры. Инженерное пособие (2019) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592604.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии рассматривается концепция экранирования, позволяющая наметить стратегию решения задачи, приводятся элементы теории поля и инженерные методики расчетов электростатических, магнитостатических и электродинамических экранов, включая неоднородные экраны с отверстиями, щелями и зазорами. Приведены необходимые сведения об экранирующих материалах: металлах, композитах (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21DAB6C4B9EE271B96B4FABBBB42CA6D98E1AB94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1550146   (592594) от 09.05.2022
 
 Гэбриел Крейман | Биологическое и компьютерное зрение (2022) [PDF]
@@ -6,7 +58,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592594.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Trevor Linsley | Basic Electrical Installation Work, 6th Edition (2011) [PDF] [E
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590634.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590620.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590533.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590528.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589751.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ Trevor Linsley | Basic Electrical Installation Work 9th Edition (2018) [PDF] [EN
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589743.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ Terrell Croft и др. | American Electricians' Handbook, Sixteenth Edition (201
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589734.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ Charles R. Miller | Ugly’s Electrical References, 2020 Edition 6th Edition (20
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_589727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589727.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588287.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581671.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576055.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_576042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576042.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574340.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571964.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571675.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570491.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570490.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570486.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570366.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570214.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570201.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568727.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568651.jpg" />
 </div>
 
 
@@ -621,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBCCE657B5261966E3D70DE7922D2CCD4345303B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555562   (568595) от 04.06.2022
-
-Г.В.Зайцев (ред.) | Цифровая обработка сигналов в многофункциональных радиолокаторах: Методы, Алгоритмы, Аппаратура (2015) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Монография подготовлена коллективом авторов, работающих в ОАО «Головное системное конструкторское бюро Концерна ПВО «Алмаз-Антей» имени академика А.А. Расплетина» над проектированием систем цифровой обработки сигналов (ЦОС) для многофункциональных радиолокационных комплексов. Описаны принципы разработки устройств ЦОС, алгоритмы частотно-временной обработки, методы (   Читать дальше...   )Жанр: РадиотехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BEBD49BFDD840EA6BA9A103B1B9AE7363F05AC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151968   (568586) от 21.07.2017
-
-М.Г. Бакулин и др. | Технология MIMO. Принципы и алгоритмы (2014) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены принципы построения и алгоритмы формирования и обработки сигналов в системах связи с технологией MIMO (многоантенных систем), положенные в основу систем: LTE, WiMax и Wi-Fi. Изложены фундаментальные основы многоантенных систем с пространственно-временным кодированием, давших толчок развитию этой технологии, а также приведены последние достижения в этой (   Читать дальше...   )Жанр: Связь, электроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B1FD7CC28A993CA68D25F2057B915BE1BCB8755
 ```
 
 https://mybot314.ru/tekegram_catalog/

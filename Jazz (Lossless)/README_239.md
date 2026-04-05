@@ -6,7 +6,7 @@ John Di Martino's Romantic Jazz Trio - So In Love (2010) Venus Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245785.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Camille Bertault - Bonjour mon amour (2023) [FLAC|Lossless|WEB-DL|tracks] <Conte
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245727.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ The Ray Camacho Band - Reach Out! (1980) 2016, PMG [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245719.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ David Newman - Bigger & Better (1968) Remaster, 2012, Warner[FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245707.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ The Dave Stryker Trio - Prime (2022) [FLAC|Lossless|tracks + .cue] <Jazz-Rock>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245677.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ John Lewis & Mirjana Lewis - The Chess Game Part I (1987) 2000,  Philips[APE|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245636.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ John Di Martino's Romantic Jazz Trio - Moliendo Cafe (2011) Venus Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245621.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Emily Remler - Retrospective, Vol. 2: Compositions (1991) Concord Jazz [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245560.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Karl Seglem - Nye nord (2002) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245500.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Jimmy Raney - Wisteria (1985) 1991, Criss Cross Jazz [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245471.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Dick Oatts - Standard Issue (1998) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245437.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Tania Maria - It's Only Love (2007) 2010, BHM[FLAC|Lossless|image + .cue] <Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245346.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Archie Shepp - Essential Best (2009) Venus Records [FLAC|Lossless|image + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245327.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ The Mills Brothers - BD Voices (1931 - 1955) 2CD, 2006, Nocturne [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245277.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Duke Ellington & His Famous Orchestra - Happy-Go-Lucky Local (1946) 1992, Musicr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245252.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Janet Klein - Come Into My Parlor (1998) Coeur De Jeanette Productions[FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245219.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Peggy Lee - Miss Wonderful (1959) 1992, MCA Victor[FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245211.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Billie Holiday - BD Jazz (1937 - 1952) 2CD, 2003, Nocturne [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245119.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Katie Melua - Love & Money (2023) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Pop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245094.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Hank Jones - Ain't Misbehavin' (1978) 1999, Original Jazz Classics [WavPack|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245093.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Dave Douglas - Dark Territory (2016) Greenleaf Music[FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245075.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Manuel Rocheman - misTeRIO (2016) Bonsai Music[FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245053.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Fred Hersch - plays Jobim (2009) Sunnyside Communications[FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245045.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Neil Cowley Trio - Spacebound Apes (2016) [FLAC|Lossless|WEB-DL|tracks] <Contemp
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245000.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Bunny Berigan And His Orchestra - 1937 (1994) Classics [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244946.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ George Cables - Looking For The Light (2003) MuseFX Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244936.jpg" />
 </div>
 
 

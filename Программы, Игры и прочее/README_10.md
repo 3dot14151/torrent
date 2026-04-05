@@ -1,3 +1,107 @@
+###  Публикация: 1848460   (1052631) от 17.01.2026
+
+AR Plan 3D: Линейка, Рулетка v4.10.4 Mod by srajawwal09 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052631.jpg" />
+</div>
+
+
+###  Подробнее
+
+AR Plan 3D – инновационное приложение, использующее дополненную реальность (AR) для быстрого измерения комнаты. Технология дополненной реальности AR позволяет использовать виртуальную линейку вместо обычной измерительной ленты-рулетки, делая процесс измерения и составления 3D плана помещения намного более удобным и быстрым.Тип издания: PremiumРелиз состоялся: 16.01.2026Разработчик: GrymalaПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA11878E07D2EAF2777F02E587AF61B8DB8AB908
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848073   (1052619) от 15.01.2026
+
+Electrical Calculations Pro / Электрические расчеты v11.0.4 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052619.jpg" />
+</div>
+
+
+###  Подробнее
+
+Электрические расчеты являются лучшим приложением в секторе электроэнергии, он имеет много вычислений, которые могут помочь вам в вашей работе. Он не может пропустить в вашем смартфоне!Тип издания: ProРелиз состоялся: 15.01.2026Разработчик: Ettore GallinaПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:072BC1BEB3772F0B87E750ACC3C98C08CB83525B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848074   (1052618) от 15.01.2026
+
+Яндекс.Погода v25.12.31 Mod by vadj [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052618.jpg" />
+</div>
+
+
+###  Подробнее
+
+С помощью технологии Meteum Яндекс может рассчитать локальный прогноз погоды — с точностью до дома. Meteum знает про температуру и влажность воздуха, про атмосферное давление, про ветер, про осадки — дождь и снег.Тип издания: ModРелиз состоялся: 14.01.2026Разработчик: Direct Cursus Computer Systems Trading LLCПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8D700E74C3052A6759449434D012A3E7538DA6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848079   (1052617) от 15.01.2026
+
+Лайт HD ТВ v4.5.6 Mod by vadj [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лайт — это ваше HD ТВ онлайн. Все каналы бесплатно. Можно смотреть ТВ-передачи в поездке, в очереди, на обеде, на даче, дома — телевизор всегда с собой. Простое, удобное и лёгкое приложение, чтобы телевидение смотреть: онлайн и бесплатно. 330+ ТВ-каналов бесплатно. Смотрите онлайн ТВ, кино, сериалы и мультфильмы.Тип издания: Premium / ModРелиз состоялся: 14.01.2026Разработчик: Лайм Эйч ДиПоддерживаемая ОС: Android 5.0+ и Android TVЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBF10793BB7B53FCA0EEE824EAF2D805D18C8B83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1848077   (1052616) от 15.01.2026
 
 NewPipe x SponsorBlock x Return YouTube Dislike v0.28.1 Mod by baalajimaestro  [Ru/Multi]
@@ -6,7 +110,7 @@ NewPipe x SponsorBlock x Return YouTube Dislike v0.28.1 Mod by baalajimaestro  [
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052616.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ NewPipe v0.28.1 Free + Mod by Alex.Strannik  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052615.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Grok - ИИ ассистент v1.1.04-release.09 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052614.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Eatr・Здоровые рецепты v2.11.1 Mod by vadj [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052024.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Ocean Match / Рыбки: Три в ряд v3.3.4 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052023.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ Solid Explorer File Manager v3.2.13 + Plugins Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051975.jpg" />
 </div>
 
 
@@ -166,7 +270,7 @@ DjVu Reader & Viewer (читалка) v1.0.140 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051974.jpg" />
 </div>
 
 
@@ -193,7 +297,7 @@ Vanced Tube v5.5.80.345 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051955.jpg" />
 </div>
 
 
@@ -219,7 +323,7 @@ FitAI - Планировщик тренировок v1.5.3 Mod by vadj [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051954.jpg" />
 </div>
 
 
@@ -245,7 +349,7 @@ Grok - ИИ ассистент v1.1.03-release.08 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051953.jpg" />
 </div>
 
 
@@ -271,7 +375,7 @@ Win 11 Launcher v9.33 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051952.jpg" />
 </div>
 
 
@@ -297,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051892.jpg" />
 </div>
 
 
@@ -323,7 +427,7 @@ USB Camera Pro v11.9.0 Mod by ApplicazioniCR [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051869.jpg" />
 </div>
 
 
@@ -349,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051828.jpg" />
 </div>
 
 
@@ -375,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051827.jpg" />
 </div>
 
 
@@ -401,7 +505,7 @@ MX Player Pro v1.93.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051807.jpg" />
 </div>
 
 
@@ -427,7 +531,7 @@ Strava: бег, велоезда, хайкинг v440.16 Mod by ReVanced Team [R
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051806.jpg" />
 </div>
 
 
@@ -453,7 +557,7 @@ AI Photo Editor Pro - Polish v1.711.245 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051805.jpg" />
 </div>
 
 
@@ -479,7 +583,7 @@ Zoo Match / Три в Ряд: Зоопарк и Животные v2.0.0 Mod by v
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051730.jpg" />
 </div>
 
 
@@ -507,7 +611,7 @@ AirBrush: ИИ Фоторедактор v7.23.5 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051729.jpg" />
 </div>
 
 
@@ -533,7 +637,7 @@ Flud v1.13.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051700.jpg" />
 </div>
 
 
@@ -559,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051699.jpg" />
 </div>
 
 
@@ -570,111 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE701CC56857BE92AEFC61A7079FD089FE82C81D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846631   (1051694) от 08.01.2026
-
-PictureThis - Plant Identification v5.18.0 Mod by youarefinished [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051694.jpg" />
-</div>
-
-
-###  Подробнее
-
-Распознавайте растения мгновенно. Быстро, точно и содержательно! Помимо описания растений и советов по уходу, наслаждайтесь красивыми фото растений со всего мира. PictureThis помогает более 70 млн пользователей определять, изучать и наслаждаться всеми видами растений: цветами, деревьями, суккулентами, кактусами и другими!Тип издания: GoldРелиз состоялся: 04.01.2026Разработчик: Glority LLCПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EBA44AE73BDABB2E075524678E43F06DEC9CFE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846615   (1051693) от 08.01.2026
-
-MIUI Hidden Settings Activity v1.6.13 Mod by TryRoom [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы можете использовать это приложение как средство изменения настроек, быстрый ярлык, разблокировать секретные настройки miui. Некоторые распространенные варианты использования: отключение приложения Miui, инженерный режим Xiaomi и Qualcomm, DNS miui 10, настройки специальных возможностей Mi, настройки VPN, изменение dpi Mi, увеличение частоты обновления 120 Гц, (   Читать дальше...   )Тип издания: Premium / ModРелиз состоялся: 04.01.2026Разработчик: SingAppПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF5A24F942268D8069395541D178D19CD64111DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846627   (1051691) от 08.01.2026
-
-OTT Navigator IPTV v1.7.4.1 Mod by TryRoom [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051691.jpg" />
-</div>
-
-
-###  Подробнее
-
-Просмотр IPTV вашего провайдера на любом устройстве (телефон, планшет, ТВ, ТВ-приставка). Поддерживает как Android TV / TV-приставок (DPAD-пульт), так и телефоны и планшеты.
-"Приложение не предоставляет никаких источников самостоятельно. Оно работает с плейлистом вашего провайдера или приложенным вами источником".Тип издания: Mod / PremiumРелиз состоялся: 08.01.2026Разработчик: Scillarium StudioПоддерживаемая ОС: Android 6.0+, Android TVЯзык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D019C4CFC6DB710F3363DD9E82C7669B0AE03197
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846623   (1051690) от 08.01.2026
-
-RAR for Android v7.20 build 131 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051690.jpg" />
-</div>
-
-
-###  Подробнее
-
-RAR компании RARLAB способен создавать RAR и ZIP и распаковывать RAR, ZIP, TAR, GZ, BZ2, XZ, 7z, ISO, ARJ архивы. Список команд включает восстановление поврежденных ZIP и RAR архивов, функцию измерения производительности, совместимую с аналогичной функцией WinRAR компании RARLAB. Среди прочих возможностей - данные для восстановления, обычные тома и тома для восстановления, (   Читать дальше...   )Тип издания: Premium / ModРелиз состоялся: 09.01.2026Разработчик: RARLAB (published by win.rar GmbH)Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84C939869FB516F4706144CA0F9BC0D1A319E14B
 ```
 
 https://mybot314.ru/tekegram_catalog/

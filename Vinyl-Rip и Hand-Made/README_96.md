@@ -1,3 +1,33 @@
+###  Публикация: 1519857   (38256) от 05.11.2024
+
+Motley Crue - Studio Albums (10 releases) (1981-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] < Heavy/Glam Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38256.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mötley Crüe — американская глэм-метал группа, основанная в Лос-Анджелесе в 1981 году.
+Группа была создана бас-гитаристом Никки Сиксом и барабанщиком Томми Ли, к которым впоследствии присоединились гитарист Мик Марс и вокалист Винс Нил.1981 - Too Fast for Love
+1983 - Shout At The Devil
+1985 - Theatre Of Pain
+1987 - Girls, Girls, GirlsЖанр: Heavy/Glam Metal, Hard RockПродолжительность: 11:02:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E827EA74E336AE7B60CB4C0A69FF9E7B129D728C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1668555   (38210) от 05.11.2024
 
 Withering Surface - Studio Albums (7 releases) (1997-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
@@ -6,7 +36,7 @@ Withering Surface - Studio Albums (7 releases) (1997-2024) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38210.jpg" />
 </div>
 
 
@@ -35,7 +65,7 @@ Visions of Atlantis - Studio Albums (10 releases) (2002-2024) hand made [restore
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38192.jpg" />
 </div>
 
 
@@ -65,7 +95,7 @@ Nightmare (France) - Studio Albums (10 releases) (2001-2024) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38187.jpg" />
 </div>
 
 
@@ -94,7 +124,7 @@ Sonata Arctica - Studio Albums (16 releases) (1999-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38123.jpg" />
 </div>
 
 
@@ -124,7 +154,7 @@ Astral Doors - Studio Albums (10 releases) (2003-2024) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37977.jpg" />
 </div>
 
 
@@ -153,7 +183,7 @@ Eldest 11 - Studio Albums (10 releases) (2009-2024) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37910.jpg" />
 </div>
 
 
@@ -182,7 +212,7 @@ Delain - Studio Albums (11 releases) (2006-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37797.jpg" />
 </div>
 
 
@@ -211,7 +241,7 @@ Depressive Witches - Studio Albums (3 releases) (2021-2024) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37774.jpg" />
 </div>
 
 
@@ -239,7 +269,7 @@ Paragon - Studio Albums (13 releases) (1995-2024) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37759.jpg" />
 </div>
 
 
@@ -268,7 +298,7 @@ Blind Guardian - Studio Albums (13 releases) (1988-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37545.jpg" />
 </div>
 
 
@@ -298,7 +328,7 @@ Kreator - Studio Albums (9 releases) (1995-2022) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37507.jpg" />
 </div>
 
 
@@ -327,7 +357,7 @@ VA - Golden Metal Ballads №1+№2 (1994) Compilation, Unofficial Release [FLAC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36723.jpg" />
 </div>
 
 
@@ -353,7 +383,7 @@ As the Sun Falls - Studio Albums (4 releases) (2020-2024) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36573.jpg" />
 </div>
 
 
@@ -382,7 +412,7 @@ Ancient - Studio Albums (9 releases) (1994-2016) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36463.jpg" />
 </div>
 
 
@@ -411,7 +441,7 @@ VA - Golden Ballads. Лучшие Баллады Последних Десяти
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36294.jpg" />
 </div>
 
 
@@ -440,7 +470,7 @@ VA - Romantic Collection. Metal Ballads (1999) Compilation, Unofficial Release [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36184.jpg" />
 </div>
 
 
@@ -469,7 +499,7 @@ Suicidal Angels - Studio Albums (9 releases) (2007-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36135.jpg" />
 </div>
 
 
@@ -498,7 +528,7 @@ Keep of Kalessin - Studio Albums (9 releases) (1997-2023) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35841.jpg" />
 </div>
 
 
@@ -527,7 +557,7 @@ AC/DC - Back In Black (1980) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35777.jpg" />
 </div>
 
 
@@ -556,7 +586,7 @@ Clannad - Studio Albums (15 releases) (1973-2020) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35264.jpg" />
 </div>
 
 
@@ -587,7 +617,7 @@ VA - Golden Hitss  III. Классика Зарубежной Эстрады (20
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35125.jpg" />
 </div>
 
 
@@ -616,7 +646,7 @@ Virgin Steele - Studio Albums (15 releases) (1982-2023) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35101.jpg" />
 </div>
 
 
@@ -645,7 +675,7 @@ Xandria - Studio Albums (10 releases) (2003-2024) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35046.jpg" />
 </div>
 
 
@@ -674,7 +704,7 @@ the Gathering - Studio Albums (14 releases) (1992-2022) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34821.jpg" />
 </div>
 
 
@@ -703,7 +733,7 @@ VA - Шлягеры Уходящего Века (2000) [FLAC 2.0|48/24|image +.c
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34707.jpg" />
 </div>
 
 
@@ -717,35 +747,6 @@ VA - Шлягеры Уходящего Века (2000) [FLAC 2.0|48/24|image +.c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51DF8F30C6B8827120BF08FCF07B529EFE7343B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765150   (34488) от 11.12.2024
-
-relaXX - Вечная Музыка Любви И Секса. Afternoon (qeHb) (2003) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Easy Listening, Relax>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Sparking Water
-02. Letter From Home
-03. Out Of The Deep(   Читать дальше...   )Жанр: Easy Listening, RelaxПродолжительность: 01:09:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A26F7F5A39365D6112E89330E2D35A56B3268FF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

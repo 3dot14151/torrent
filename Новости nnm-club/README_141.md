@@ -1,3 +1,55 @@
+###  Публикация: 1151174   (573923) от 18.07.2017
+
+ФАС потребовала от "большой четверки" операторов связи отменить роуминг по РФ внутри сети
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_573923.jpg" />
+</div>
+
+
+###  Подробнее
+
+МОСКВА, 17 июля. /ТАСС/. Федеральная антимонопольная служба (ФАС) России выдала предупреждение "большой четверке" операторов связи ("Билайн", МТС, "Мегафон", Теле2) по национальному роумингу, требует изменить тарифы в течение 14 дней. Об этом говорится в сообщении ведомства."Согласно предупреждению, четверка мобильных операторов (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048426   (573878) от 20.05.2019
+
+Titan Quest (2016) [Ru/En] (2.5a/dlc) Repack xatab [Anniversary Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Titan Quest - Anniversary Edition, мифический набор, из которого так и рвётся наружу отполированный до блеска эпоc оригинальной экшен/RPG и дополнения The Immortal Throne. В эпоху древних богов, полководцев и царей страна, охваченная бедствием, молила о герое... То есть, о вас!Тип издания: RepackРазработчик: THQ Nordic, Iron Lore EntertainmentЖанр: RPG (Rogue, Action), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9411AFF78C957F377C470D9526B803D19F5FD0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043353   (573875) от 15.08.2016
 
 Кибер / Blackhat (2015) BDRip [H.264/1080p-LQ]
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573875.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ KMSAuto Lite 1.2.0 Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573135.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573120.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573001.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_572567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_572567.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ Harry Potter and the Deathly Hallows Part II / Гарри Поттер и Дар
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_572267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_572267.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572084.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_572075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_572075.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571795.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571216.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_570136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_570136.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ Phase One Capture One Pro 10.1.2.23 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_570026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570026.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ Bounty Train (2016) [Ru/Multi] (0.10201/dlc) License GOG [Trainium Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569996.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ GoIT | [GO IT] GoStart (2-месячный онлайн-практикум) (201
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569993.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569974.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_569969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_569969.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_569963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_569963.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569911.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569903.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ Windows 7 SP1 x32 x64 Plus Office 2013 StartSoft 42-43 2015 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569536.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569520.jpg" />
 </div>
 
 
@@ -561,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569517.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_568886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_568886.jpg" />
 </div>
 
 
@@ -613,7 +665,7 @@ Murdered: Soul Suspect (2014) [Ru/Multi] (1.0) SteamRip R.G. Origins
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568453.jpg" />
 </div>
 
 
@@ -624,59 +676,6 @@ Murdered: Soul Suspect – увлекательное путешествие, г
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB3CA4E21BED441D20418010C113B81989415417
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 754727   (568451) от 15.08.2014
-
-Александр Прозоров и др. | Цикл "Ведун" [Книги 1-18] (2013-2014) [MP3]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568451.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он пришел из нашего мира… Его называли… ВЕДУН!
-Необдуманно произнесенное заклятие переносит главного героя в мир, для возвращения из которого ему придется изрядно потрудиться мечом и магией в борьбе с силами зла.Жанр: Фэнтези
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FA9CFE87106471AFC062B2A21CB675639F35DF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044125   (568255) от 18.08.2016
-
-Капитан Фантастик / Captain Fantastic (2016) WEB-DLRip [Line]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568255.jpg" />
-</div>
-
-
-###  Подробнее
-
-Они говорят на нескольких языках, знают квантовую физику и разбираются в философии. Они умеют охотиться и обращаться с оружием. Они живут в лесу в полной гармонии с природой. Лишь стечение обстоятельств заставляет их покинуть родной дом и отправиться в большой город. Что будет, когда они столкнутся с цивилизацией, когда на них обрушится первая любовь и мир гаджетов (   Читать дальше...   )Производство: США | Electric City Entertainment, ShivHans PicturesЖанр: Драма, Мелодрама, КомедияРежиссер: Мэтт РоссАктеры: Вигго Мортенсен, Джордж МакКэй, Саманта Ислер, Анналиса Бассо, Николас Хэмилтон, Шри Крукс, Чарли Шотуэлл, Трин Миллер, Кэтрин Хан, Стив ЗанПеревод: Многоголосый закадровый, профессиональный (Чистый звук)Продолжительность: 01:59:33Реклама: Присутствуют голосовые и текстовые вставки рекламы.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C15F784CD911404034F8F0EC4879C13F19342BC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

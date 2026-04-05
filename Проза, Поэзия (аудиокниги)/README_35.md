@@ -1,55 +1,3 @@
-###  Публикация: 1282134   (745399) от 12.02.2019
-
-Евгения Перова | Другая женщина (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745399.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лёка и Дмитрий, Варвара и Глеб, Андрей и Ирина встречают друг друга слишком поздно… «Солнечный удар», поразивший героев, ставит их перед моральным выбором – укротить свое сердце или отдаться роковому танцу любви на осколках собственной нравственности. Обстоятельства обязывают смириться. Но, может быть, стоит еще побороться с судьбой за свои чувства и по праву, данному (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 16:57:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F13BC08FC1F82ED47D543A5E26CFD968D02F0BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281897   (745395) от 12.02.2019
-
-Роберт Говард | Сын белого волка. Избранные повести (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роберт Ирвин Говард (1906–1936) – американский писатель, автор приключений и детективов, а также произведений в жанрах фэнтези и хоррор. Герои многих его романов, повестей и рассказов перекочевали на страницы комиксов и экраны голливудских фильмов. Здесь и легендарный Конан-варвар, и бесстрашный боксёр и моряк Стив Костиган, и борец со злом Соломон Кейн, и брутальный (   Читать дальше...   )Жанр: Приключения, зарубежная прозаПродолжительность: 07:22:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A008C33B6B8049B4EC798B05CDC0342EC26CF14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020448   (745375) от 26.05.2016
 
 Михаил Шишкин | Письмовник (2012) [MP3]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745375.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745330.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745268.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745199.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745095.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744084.jpg" />
 </div>
 
 
@@ -215,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744082.jpg" />
 </div>
 
 
@@ -241,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743756.jpg" />
 </div>
 
 
@@ -269,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743752.jpg" />
 </div>
 
 
@@ -295,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743476.jpg" />
 </div>
 
 
@@ -321,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743470.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743333.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743329.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742732.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742395.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_741361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_741361.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741072.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741071.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741010.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740998.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740997.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740889.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740879.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740454.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33C36A53382EFC0159998AD2F8C59FF2F0168F5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526423   (738479) от 24.01.2022
+
+Салли Руни | Разговоры с друзьями (2020) [MP3, Варвара Шалагина]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738479.jpg" />
+</div>
+
+
+###  Подробнее
+
+Студентки дублинского Тринити-колледжа Фрэнсис и Бобби дружат со школы. На одном из университетских поэтических вечеров они знакомятся с Мелиссой, известным фотографом, а позже и с её мужем Ником, актёром. Несмотря на то что Ник и Мелисса значительно старше Бобби и Фрэнсис, между ними завязываются дружеские отношения. Все четверо проводят вместе много времени, по (   Читать дальше...   )Жанр: Современная зарубежная литератураПеревод: Анна БабяшкинаПродолжительность: 07:57:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99F273FBD7F94F850B3FE2DF88F713C532AFD626
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526429   (738459) от 24.01.2022
+
+Иэн Макьюэн | Искупление (2019) [MP3, Кирилл Головин]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738459.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Искупление» – это поразительная в своей искренности «хроника утраченного времени», которую ведёт девочка-подросток, на свой причудливый и по-детски жестокий лад переоценивая и переосмысливая события «взрослой» жизни. Став свидетелем изнасилования, она трактует его по-своему и приводит в действие цепочку роковых событий, которая «аукнется» самым неожиданным образом (   Читать дальше...   )Жанр: Современная зарубежная литератураПеревод: Ирина ДоронинаПродолжительность: 14:22:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB03E4CEC79E57D97158EF6E39E3259F1A4EFAA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1408609   (150008) от 18.11.2023
+
+Капитализм: История любви / Capitalism: A Love Story (2009) BDRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта история любви закончилась громким «разводом». Фильм исследует первопричины мирового финансового кризиса, рассказывает о манипулировании деньгами американских налогоплательщиков. Обличает банки и корпорации, топ-менеджеров и политиков, совершивших, по словам режиссёра «самый большой грабёж в истории своей страны».Производство: США, Overture Films, Paramount Vantage, The Weinstein Company, Dog Eat Dog FilmsЖанр: Документальный, криминалистика, исследованиеРежиссер: Майкл МурУчастники: Тора Бёрч, Джимми Картер, Элайджа Каммингс, Барон Хилл, Джон МакКейн, Майкл Мур, Сара Пейлин, Рональд РейганПеревод: Одноголосый профессиональныйСубтитры: Русские, русские (полные), английскиеПродолжительность: 02:07:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D93813FCFA5F0553C094A7F18F213A0B94A8C7BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 903077   (149910) от 18.11.2023
 
 Банковские махинации: мировая кабала - Катасонов В.Ю. (2015) WEBRip [H.264/720p-LQ]
@@ -6,7 +32,7 @@
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149910.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149728.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149361.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148661.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148563.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146955.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146777.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145305.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145010.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144140.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143898.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143093.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142291.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140442.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ Burnt Alive in Odessa (2021) WEBRip [H.264/1080p]
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139762.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138210.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132730.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130936.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130805.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129849.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127396.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126442.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126304.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125103.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124881.jpg" />
 </div>
 
 
@@ -647,33 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:880971EEDF91FC0779809AA0E497BCEF0FF701F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690278   (124063) от 06.01.2024
-
-Камертон счастья (2023) WEB-DL [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124063.jpg" />
-</div>
-
-
-###  Подробнее
-
-Есть две концепции жизни – потребительская, в которой люди живут ради удовлетворения своих телесных потребностей, и духовная, в которой люди осознают, что они не только «тело», и наполняют свою жизнь важным смыслом и делами на благо общества.
-В новом фильме Общероссийской общественной организации «Общее дело» поднимается важнейший для каждого человека вопрос – «Как (   Читать дальше...   )Производство: Россия, ООО «Общее дело»Жанр: документальный, короткометражка, просветительскийРежиссер: Алексей Дегтярёв, Алексей СвиридовУчастники: Алексей Свиридов, Дина Корзун, Андрей Камин, Михаил Федоренко, Павел ШишкинЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:27:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0D1F99EEDE73BB308E57CA9633DEB78A0C18491
 ```
 
 https://mybot314.ru/tekegram_catalog/

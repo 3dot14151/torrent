@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188773.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188732.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185772.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ CGMA, David Mooy | Introduction to Maya / Введение в Maya [En] (2020) P
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185739.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182973.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Skillbox, Алексей Половинкин и др. | Python-фреймвор
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181013.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ JSExpert, Александр Кириченко | Фундаментальный
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179546.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178592.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Udemy, Andrey Sumin | Полный курс Андроид + Java с нуля (2
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177870.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ TrueArtSchool, Светлана Курако | Иллюстратор ПРО (20
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176524.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Udemy, Andrei Neagoie | The Complete Web Developer in 2021: Zero to Mastery (202
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176442.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Udemy, Artsiom Rusau | Тестировщик с нуля. Web, Mobile, Postman,
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170681.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169802.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169086.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168240.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167518.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167426.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166045.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Mario Brajdich | Mastering 3D Modeling in Maya Part 2 (2019) PCRec
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164704.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164576.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163459.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163444.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162065.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Udemy, Andrei Neagoie и др.| Complete Ethical Hacking Bootcamp 2021: Zero to 
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161752.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161362.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159868.jpg" />
 </div>
 
 

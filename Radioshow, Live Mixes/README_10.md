@@ -1,3 +1,60 @@
+###  Публикация: 1094450   (597728) от 12.07.2017
+
+Ori Uplift - Uplifting Only 201 - 230 (2016 - 2017) [MP3 | 320 кб/с] < Melodic / Uplifting / Emotional Trance > (Обновлён: 12-07-2017)
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ori Uplift
+
+01. [00:00:33]: Andy Blueman - Time To RestЖанр: Melodic Trance / Epic Trance / Euphoric Trance / Progressive Trance / ProgLift / Vocal Trance / Uplifting Trance / Emotional Trance / ChillOutПродолжительность: 02:12:56:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45C00051EA28E23E096443980A1C105FF0445A24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549261   (593968) от 06.05.2022
+
+Charlotte de Witte - New Form V: Universal Consciousness (2022-04-27) [MP3|320 Kbps] <Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Omis - The Other Time Intro
+02. Charlotte de Witte - Satori
+03. Charlotte de Witte - Universal Consciousness
+04. X CLUB. - Concentrate(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:55:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E1CC777B5CB05FD508E0BD97304E05D1D42B365
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1549238   (593959) от 06.05.2022
 
 Nicky Romero - Tomorrowland Friendship Mix (2022-05-05) [MP3|320 Kbps] <Progressive House, Electro House>
@@ -6,7 +63,7 @@ Nicky Romero - Tomorrowland Friendship Mix (2022-05-05) [MP3|320 Kbps] <Progress
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593959.jpg" />
 </div>
 
 
@@ -35,7 +92,7 @@ VA - Ultra Music Festival Miami (2022) [MP3|320 Kbps, (V0)] <House, Trance, Tech
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593810.jpg" />
 </div>
 
 
@@ -64,7 +121,7 @@ Enrico Sangiuliano - Live @ Awakenings Festival Easter Edition (2022-04-15) [MP3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592931.jpg" />
 </div>
 
 
@@ -93,7 +150,7 @@ Dimitri Vegas & Like Mike - Tomorrowland Friendship Mix (2022-05-12) [MP3|320 Kb
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_590740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590740.jpg" />
 </div>
 
 
@@ -122,7 +179,7 @@ DJ Kocmoc - Эксклюзивные Хиты Дискотек (MEGAMIX 80-90х)
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585898.jpg" />
 </div>
 
 
@@ -157,7 +214,7 @@ VA - Live @ Synergy (Alte Kaserne Zurich, Switzerland) 2019-04-06 [MP3|320 Kbps]
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582203.jpg" />
 </div>
 
 
@@ -186,7 +243,7 @@ Two Friends - Big Bootie Mix Volume 021 (2022-05-23) [MP3|320 Kbps] <Dance, Elec
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579031.jpg" />
 </div>
 
 
@@ -213,7 +270,7 @@ Trance Wax - Trance Wax Radio (01-07) (2021-2022) [MP3|320 Kbps] <Trance, Breaks
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_578849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578849.jpg" />
 </div>
 
 
@@ -242,7 +299,7 @@ VA - Ori Uplift & Danny Oh - Uplifting Only 282 (2018) [MP3|320 Kbps] <Trance,Up
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_569369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569369.jpg" />
 </div>
 
 
@@ -271,7 +328,7 @@ VA - Ori Uplift & Rich Triphonic - Uplifting Only 232 (2017) [MP3|320 Kbps] <Upl
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567475.jpg" />
 </div>
 
 
@@ -300,7 +357,7 @@ Gareth Emery - Metropolis Festival, The Brooklyn Mirage New York, United States 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567358.jpg" />
 </div>
 
 
@@ -329,7 +386,7 @@ Markus Schulz - Global DJ Broadcast World Tour - Canada (2022-06-02) [MP3|320 Kb
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567350.jpg" />
 </div>
 
 
@@ -358,7 +415,7 @@ Korolova - Live @ Karavela Boat Party Lisbon, Portugal (2022-06-03) [MP3|320 Kbp
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567168.jpg" />
 </div>
 
 
@@ -387,7 +444,7 @@ VA - Aly & Fila - Future Sound Of Egypt 505 (2017) [MP3|320 Kbps] <Trance,Uplift
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565673.jpg" />
 </div>
 
 
@@ -416,7 +473,7 @@ Activa - Live @ Union Club London (2019-05-11)[MP3|320 Kbps] <Trance>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564192.jpg" />
 </div>
 
 
@@ -445,7 +502,7 @@ Maria Healy - Live @ Civic Underground Sydney, Australia (2019-05-03)[MP3|320 Kb
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_562090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562090.jpg" />
 </div>
 
 
@@ -474,7 +531,7 @@ VA - Live @ quantumVALLEY, EDC Las Vegas (2019-05-18)[MP3|320 Kbps] <Trance>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555483.jpg" />
 </div>
 
 
@@ -503,7 +560,7 @@ VA - Live @ Liberation V2, Fabric London, United Kingdom 2019-05-04 [MP3|320 Kbp
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555375.jpg" />
 </div>
 
 
@@ -532,7 +589,7 @@ VA - Markus Schulz - Global DJ Broadcast - Sunrise Set (2018) [MP3|320 Kbps] <Tr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_552469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552469.jpg" />
 </div>
 
 
@@ -561,7 +618,7 @@ Steve Allen & Solis & Sean Truby & XiJaro & Pitch + More - Uplift 050 (Six Hour 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547017.jpg" />
 </div>
 
 
@@ -590,7 +647,7 @@ VA - A State Of Trance Festival 900 (IEC, Kyiv) (2019-06-22)[MP3|192 Kbps] <Tran
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_546959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546959.jpg" />
 </div>
 
 
@@ -619,7 +676,7 @@ VA - Markus Schulz & Jam El Mar - Global DJ Broadcast (2018) [MP3|320 Kbps] <Tra
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545499.jpg" />
 </div>
 
 
@@ -648,7 +705,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_539184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539184.jpg" />
 </div>
 
 
@@ -677,7 +734,7 @@ Joel Corry - Tomorrowland Friendship Mix (2022-06-16) [MP3|320 Kbps] <House, Tec
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535830.jpg" />
 </div>
 
 
@@ -691,64 +748,6 @@ Joel Corry - Tomorrowland Friendship Mix (2022-06-16) [MP3|320 Kbps] <House, Tec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:885204840C990F89D458E83B08399FBFBBB47CC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558073   (535691) от 18.06.2022
-
-Korolova - Live @ Red Rock California, United States (2022-06-17) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ID - ID
-02. Doanro & Lonner ft. F.R.I.M - Kupala
-03. Stephan Jolk - About My Dreams
-04. Binaryh - Dhruva(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:50:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:578AAAD040521E2DF5FA546D1ABC065BE2CF38CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155417   (533348) от 03.08.2017
-
-VA - Aly & Fila - Future Sound Of Egypt 507 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_533348.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.London & Niko - Burning Down (Noel Sanger Remix)
-02.L.S.G. - Netherworld (Rise And Fall Remix)
-03.Solid Stone & Michael Gin - Xonic
-04.Solid Stone - Watchmen(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:58:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FF090B83F835ED95BECA3D3384ACD540FB5858E
 ```
 
 https://mybot314.ru/tekegram_catalog/

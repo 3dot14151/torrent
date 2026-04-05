@@ -1,3 +1,29 @@
+###  Публикация: 386834   (466525) от 13.09.2011
+
+Фотография - СССР: Фото из нашего детства [JPG]
+
+>>Графика, Арт, Разное
+>>Современная фотография
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотографии разных лет эпохи СССР: юмор, праздники и просто будни советского человека.Формат: JPGРазрешение файлов: 318х480 - 700х537
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C87A457D8B8DA2B25FD102A83FD6CF3EB7C4F7EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 935273   (466424) от 25.09.2015
 
 Картинки - Соглашайся хотя бы на рай в шалаше. 7680x4320 - 50 шт [JPG]
@@ -6,7 +32,7 @@
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466424.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466338.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466282.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466278.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466124.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466120.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465658.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465649.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465599.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465596.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465594.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465586.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465585.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465580.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464604.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464300.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463677.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462381.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462233.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461492.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461489.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461487.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461482.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461410.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461173.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F77D9DED4975AE71F82F02C77A5D6D4C3E7AE96A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246654   (460894) от 11.09.2018
-
-Футажи - Москва урбанистическая [MOV]
-
->>Графика, Арт, Разное
->>Интернет-творчество
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460894.jpg" />
-</div>
-
-
-###  Подробнее
-
-8 роликов, снятых в Москве: дороги, пробки, движение, стояние. Снято мной в надежде, что может кому-то пригодиться :)Формат: MOVРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5BA01E87F4192CAA1945CC612B5047FCE7E736A
 ```
 
 https://mybot314.ru/tekegram_catalog/

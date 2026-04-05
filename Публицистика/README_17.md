@@ -1,3 +1,29 @@
+###  Публикация: 1375662   (863525) от 15.04.2020
+
+Анджела Галлоп | Когда собаки не лают. Путь криминалиста от смелых предположений до неопровержимых доказательств (2020) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Какие следы вы бы стали искать на грузовике, в котором транспортировали краденое? После прочтения этой книги вы будете знать ответ на этот вопрос. Ее автор, Анджела Галлоп, самый востребованный криминалист Великобритании, специалист по нераскрытым делам, рассказывает о том, как ведется работа по раскрытию преступлений. Анджела утверждает, что на каждом месте преступления (   Читать дальше...   )Жанр: Криминалистика, ПублицистикаПеревод: Иван ЧорныйФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E1B9237C0E0EF05722AB2B91F794908FFE46170
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375877   (863517) от 15.04.2020
 
 Себастьян Хафнер | История одного немца. Частный человек против тысячелетнего рейха (2016) [FB2, EPUB]
@@ -6,7 +32,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863517.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863516.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862771.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862156.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862043.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861931.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860833.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859264.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858928.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858792.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858561.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856894.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856670.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_856564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856564.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854929.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_854915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854915.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_853591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853591.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852202.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852054.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851646.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849902.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849901.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848493.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848428.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_848414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848414.jpg" />
 </div>
 
 
@@ -648,32 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CDADCD0F4C2F71259F1C6C136FD82123C671A8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 771282   (847159) от 27.03.2014
-
-Леонид Кучма | Украина - не Россия (2003) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847159.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга президента Украины об Украине может открыть много нового даже тем, кто знает эту страну. Сделана попытка нарушить `заговор молчания` вокруг самых сложных и болезненных тем в отношениях двух народов, связанных `одной цепью, но и одной лавровой ветвью`. Автор делится своими взглядами на украинскую старину, на события XX века и последних лет, размышляет о том, (   Читать дальше...   )Издательство: ВремяФормат: PDFКачество: Хороший скан с OCR, интероглавление
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00EAFFC33C38200D10B39FF98656AC69EFF1C8BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

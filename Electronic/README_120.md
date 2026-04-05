@@ -1,3 +1,61 @@
+###  Публикация: 1383459   (811576) от 15.05.2020
+
+Moby - All Visible Objects (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811576.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Morningside
+2. My Only Love
+3. Refuge
+4. One Last Time(   Читать дальше...   )Жанр: Electronic, DowntempoПродолжительность: 01:12:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45DF55518D8F5C17A894CD357D75D870597C33DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383444   (811573) от 15.05.2020
+
+Moby - All Visible Objects (2020) [MP3|320 Kbps] <Electronic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811573.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Morningside
+2. My Only Love
+3. Refuge
+4. One Last Time(   Читать дальше...   )Жанр: Electronic, DowntempoПродолжительность: 01:12:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7E37090F06265537BBF4E2443E645D1EDB82AAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1383381   (811566) от 15.05.2020
 
 VA - Lounge Sexy (2018) [MP3|320 Kbps] <Instrumental, Easy listening, Relax>
@@ -6,7 +64,7 @@ VA - Lounge Sexy (2018) [MP3|320 Kbps] <Instrumental, Easy listening, Relax>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811566.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Dream Dance Vol.84 (2018) 3CD [FLAC|Lossless|WEB-DL|tracks] <Trance, House,
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_811456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811456.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Etienne Daho - La Notte, La Notte... (1995) [FLAC|Lossless|tracks + .cue] <Synth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810430.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Not My God (ex-Marilyn Manson, Psyclon 9) - Simulacra (2021) [FLAC 2.0|44,1/24|W
 >>Experimental, Industrial (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810427.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Not My God (ex-Marilyn Manson, Psyclon 9) - Not my God (2020) [FLAC 2.0|48/24|WE
 >>Experimental, Industrial (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810416.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Best of Nuevadark 2017 (2018) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810368.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Venera Music Vol.5 (2016) [MP3|320 кб/с] <House, Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810295.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Acronym - Malm (2017) Field Records [FLAC|Lossless|WEB-DL|tracks] <Ambient>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810265.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Angel 1 - Terra Nova (2017) Constellation Tatsu [FLAC|Lossless|WEB-DL|tracks] <A
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810256.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Billow Observatory - II: Plains/Patterns (2017) Azure Vista Records [FLAC|Lossle
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810255.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Progressive House Winter Essentials (2018) [MP3|320 Kbps] <Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810250.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - EDM Club Tracks Part 3 (2016) [MP3|320 кб/с] <House, Progressive House, 
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810168.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - The Best Of Turbotronic: Mega Compilation Album (2017) [MP3|320 Kbps] <Hous
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810127.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Dimitri Vegas and Like Mike - Garden Of Madness (2020) EP [MP3|320 Kbps] <Electr
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810102.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Class B Band - Movie T (2011) [MP3|320 kbps]<Tech House, Nu-Disco, Techno, Elect
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810094.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ VA - Escapism 3 (Liquicity Presents) (2016) [MP3|320 кб/с] <Drum & Bass>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_810034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810034.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ Tiesto - The London Sessions (2020) [FLAC|Lossless|WEB-DL|tracks] <Future House,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809969.jpg" />
 </div>
 
 
@@ -496,7 +554,7 @@ Atrium Carceri, Cities Last Broadcast, God Body Disconnect - Miles To Midnight (
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809837.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ VA - House Ladies Vol 2 (2017) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809600.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ Cloudz - Light Spirit Body (2017) [MP3|320 Kbps] <Ambient, Chillout>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809599.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ VA - Formentera Beach Sunset & Sunrise Chill Collection (2017) [MP3|320 Kbps] <D
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809598.jpg" />
 </div>
 
 
@@ -612,7 +670,7 @@ VA - Lounge System Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809468.jpg" />
 </div>
 
 
@@ -641,7 +699,7 @@ VA - Just Chilling Effects (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809296.jpg" />
 </div>
 
 
@@ -670,7 +728,7 @@ VA - Ibiza Deep House 2017 Opening (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_809276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809276.jpg" />
 </div>
 
 
@@ -684,62 +742,6 @@ VA - Ibiza Deep House 2017 Opening (2017) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA6C5936D9E557AD49218BCF666E774A569D75A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 804412   (808734) от 27.03.2017
-
-VA - Magic Island: Music For Balearic People Vol.1-7 (Mixed by Roger Shah) (2008-2016) [FLAC|Lossless|WEB-DL]<Trance, Balearic Trance,Progressive Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brian Laruso & John James Renfrow - Holding Closer (Intro Mix) [05:22]
-02. Rogier Dulac & Miss Autumn Leaves - Endless Dream (Original Mix) [05:08]
-03. Brian Laruso - The Way (Original Mix) [05:38]
-04. Raul Pablo Sanchez - Day Out (Original Mix) [06:53](   Читать дальше...   )Жанр: Trance, Balearic Trance,Progressive TranceПродолжительность: 30:39:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13AEEF7E3CC1FEFCAAE176316A66737E57CE66D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019586   (808546) от 27.03.2017
-
-Label Pack - Future Sound Of Egypt Recordings (FSOE) - 223 Releases (2009 - 2017) [MP3|320 кб/с] <Trance , Uplifting Trance , Progressive Trance>
-
->>Electronic
->>Label-Packs
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Heaven (Radio Edit) (3:40)
-02. All Heaven (Extended Mix) (7:06)Жанр: Trance , Uplifting Trance , Progressive TranceПродолжительность: 00:10:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3F35CEDFA56FCEA8BD86686FC73FB4D1413E947
 ```
 
 https://mybot314.ru/tekegram_catalog/

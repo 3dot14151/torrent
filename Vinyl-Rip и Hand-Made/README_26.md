@@ -1,3 +1,32 @@
+###  Публикация: 1301234   (584015) от 12.05.2019
+
+VA - Rock'n'Roll (1977) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Rock & Roll>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584015.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1.a Shakin' Stevens And The Sunsets - It's Rock'N'Roll
+A1.b Shakin' Stevens And The Sunsets - I Told You So
+A2 Chas And Dave And Various - That's Alright Mama
+A3 Freddie "Fingers" Lee - Down On The Farm(   Читать дальше...   )Жанр: Rock & RollПродолжительность: 00:37:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EB95A32E2486E3A6FA6DFC163170B0380014B35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 810810   (582453) от 06.08.2014
 
 Bad Company - 10 From 6 (1985)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock>
@@ -6,7 +35,7 @@ Bad Company - 10 From 6 (1985)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582453.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Billy Idol - Rebel Yell (1983) [APE 2.0 24/192|image (Vinyl-Rip)]<Pop Rock/Synth
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581771.jpg" />
 </div>
 
 
@@ -70,7 +99,7 @@ Sandra - Into A Secret Land (1988) [APE 2.0 24/96|image (Vinyl-Rip)]<Synth-pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580828.jpg" />
 </div>
 
 
@@ -104,7 +133,7 @@ Uriah Heep - Firefly (1977) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580390.jpg" />
 </div>
 
 
@@ -133,7 +162,7 @@ Def Leppard - Diamond Star Halos (2022) 2xLP [FLAC 2.0|192/24|tracks|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577365.jpg" />
 </div>
 
 
@@ -162,7 +191,7 @@ Rammstein - Rammstein (2019) [FLAC|192/24|Lossless|tracks|Vinyl] <Industrial Met
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575535.jpg" />
 </div>
 
 
@@ -191,7 +220,7 @@ Supertramp - ...famous last words... (1982) [FLAC 2.0 24/96|image (Vinyl-Rip)]<P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575418.jpg" />
 </div>
 
 
@@ -220,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575279.jpg" />
 </div>
 
 
@@ -249,7 +278,7 @@ Manfred Mann's Earth Band - Chance (1980) [FLAC 2.0|192/24|image + .cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574558.jpg" />
 </div>
 
 
@@ -278,7 +307,7 @@ VA - Честно говоря-2 - Советская Эстрада 70-80 гг.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573767.jpg" />
 </div>
 
 
@@ -307,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572493.jpg" />
 </div>
 
 
@@ -336,7 +365,7 @@ Symphony X - Дискография (10 releases) (1994 - 2015) hand made [resto
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_572242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572242.jpg" />
 </div>
 
 
@@ -365,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571514.jpg" />
 </div>
 
 
@@ -394,7 +423,7 @@ Roger Waters - The Pros And Cons Of Hitch Hiking (1984) [FLAC 2.0 24/96|image (V
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571506.jpg" />
 </div>
 
 
@@ -423,7 +452,7 @@ Royal Knights/Ройял Найтс - Вокальный Квартет "Рой�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567283.jpg" />
 </div>
 
 
@@ -452,7 +481,7 @@ Enya - Watermark (1988) [APE 2.0 24/96|tracks (Vinyl-Rip)] <Electronic/Ambient/N
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567105.jpg" />
 </div>
 
 
@@ -481,7 +510,7 @@ Al Bano & Romina Power - Аль Бано и Ромина Пауэр (1982) [FLAC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566199.jpg" />
 </div>
 
 
@@ -510,7 +539,7 @@ Smokie - Greatest Hits (1977) Repress /1988, Балкантон/ [FLAC 2.0 24/96
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566188.jpg" />
 </div>
 
 
@@ -539,7 +568,7 @@ Bon Jovi - New Jersey (1988) [FLAC 2.0 24/48|Tracks(Vinyl-Rip)]<Хард-рок,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566136.jpg" />
 </div>
 
 
@@ -568,7 +597,7 @@ Bob Marley - Songs of Freedom. Part 2 (1994) [FLAC 2.0|48/24|image+.cue|MC-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565126.jpg" />
 </div>
 
 
@@ -597,7 +626,7 @@ Baba Yaga  (Баба Яга) - Where Will You Go (Куда Ты Пойдешь?)
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_565125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565125.jpg" />
 </div>
 
 
@@ -626,7 +655,7 @@ The Flirts - Blondes, Brunettes & Redheads (1985) US [FLAC 2.0|24/192|image|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559913.jpg" />
 </div>
 
 
@@ -652,7 +681,7 @@ Genesis - Duke (1980) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Progressive Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559064.jpg" />
 </div>
 
 
@@ -681,7 +710,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556920.jpg" />
 </div>
 
 
@@ -710,7 +739,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556844.jpg" />
 </div>
 
 
@@ -723,35 +752,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B656221AD61289DCF82480F0FA1066A83985867C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046074   (556831) от 25.08.2016
-
-Оризонт - Мой Светлый Мир (1982) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мой Светлый Мир
-02. Сани С Бубенцами
-03. Колыбельная
-04. Парус На Волне(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9619F222C9A03A8D61F87A188DE83CAFCFD6B977
 ```
 
 https://mybot314.ru/tekegram_catalog/

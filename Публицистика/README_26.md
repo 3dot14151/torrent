@@ -1,3 +1,29 @@
+###  Публикация: 1211748   (776899) от 09.03.2018
+
+Ф. Берри | Фашизм во Франции (1927) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776899.jpg" />
+</div>
+
+
+###  Подробнее
+
+Брошюра Франсуа Берри дает, в общем и целом, правильное представление о силах французского фашизма и о тенденциях его развития. Написанная в момент, когда колебания левого блока, возглавляемого Эррио и поддерживаемого французскими социалистами, привели страну к порогу финансового краха, вызвав сильнейшее недовольство мелкой буржуазии,— предлагаемая работа Берри счастливо (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99996BACCA9DAFA3A172400B4A1A11C482C3B038
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211757   (776875) от 09.03.2018
 
 Вл. Мирошевский | Буржуазные юношеские организации в Германии (1924) [PDF]
@@ -6,7 +32,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776875.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776688.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_776021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776021.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775159.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775157.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775103.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_775009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775009.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772561.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_772484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772484.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771907.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771375.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_771271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771271.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770947.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770446.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770255.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_770231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770231.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769879.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769102.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_769068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769068.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768915.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768677.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_768002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768002.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767824.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767623.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767608.jpg" />
 </div>
 
 
@@ -651,34 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:576F5D41EC5C39CCF23CD72EFC99D3AA5D6CD0E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393406   (766898) от 01.07.2020
-
-М. Фалин и др. (сост.) | Ленин и Сталин о профсоюзах (1939) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766898.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящий сборник произведений Ленина и Сталина должен помочь профсоюзному активу овладеть великим учением Ленина и Сталина о профсоюзах.
-
-Материал сборника расположен в исторической последовательности. Это даст возможность проследить, какие задачи Ленин и Сталин выдвигали перед профсоюзами на всех этапах борьбы рабочего класса за диктатуру пролетариата, за построение (   Читать дальше...   )Жанр: История, политология, социология, искусство, психология, педагогикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BACC50D7326E1EBC9D2BB5585720C9F86A6494A
 ```
 
 https://mybot314.ru/tekegram_catalog/

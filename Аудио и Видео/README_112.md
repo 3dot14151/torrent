@@ -6,7 +6,7 @@
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_715019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715019.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714930.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ VA - Oriental Deep House Gems 1 (2019) [AAC|~315 Kbps] <Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714842.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ VA - Coffee Chill Time, Vol. 5 (2019) [AAC|~314 Kbps] <Lounge, Chill Out, Smooth
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714841.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Marga Sol - Oriental Gems (2021) [AAC|~333 Kbps] <Deep House, Organic House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714838.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ VA - Coffee Chill Time, Vol. 1 (2014) [AAC|~323 Kbps] <Lounge, Chill Out, Smooth
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714837.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ VA - Oriental Deep House Gems 2 (2020) [AAC|~329 Kbps] <Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714835.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ VA - Golden Girls (Indie Soft Voices) (2022) [AAC|~329 Kbps] <Lounge, Chill Out,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714833.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714807.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714802.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_714510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714510.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713882.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713811.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713525.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713487.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ VA - This Is Smooth Jazz 1 (1999) [AAC|~333 Kbps] <Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713176.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ VA - Notes from the Depth, Vol. 12 (2020) [AAC|~332 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713168.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ VA - This Is Smooth Jazz 3 (2001) [AAC|~347 Kbps] <Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713159.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ VA - This Is Smooth Jazz 2 (2000) [AAC|~309 Kbps] <Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713150.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ VA - Tea Time Moments, Vol. 2 (2018) [AAC|~306 Kbps] <Lounge, Chill Out, Smooth 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713143.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ VA - Study Sounds 014 (2022) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713134.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713120.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ VA - Soulful Jazz Cafe, Vol. 2 (2016) [AAC|~342 Kbps] <Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713117.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ VA - Soulful Jazz Cafe, Vol. 1 (2016) [AAC|~331 Kbps] <Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713115.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ VA - Tea Time Moments, Vol. 1 (2017) [AAC|~325 Kbps] <Lounge, Chill Out, Smooth 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713109.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ VA - Tea Time Moments, Vol. 3 (2019) [AAC|~325 Kbps] <Lounge, Chill Out, Smooth 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_713107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713107.jpg" />
 </div>
 
 

@@ -1,3 +1,61 @@
+###  Публикация: 1365352   (930562) от 07.03.2020
+
+VA - Pesticides (2020) [MP3|320 Kbps] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. RAV - Arab Drum [03:40]
+02. X Company - Labyrinth [03:41]
+03. Andy Sto - Melody Power [06:25]
+04. Black Depth - Alien Signal [04:26](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:48:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C84CF6FE18FD1681FEED827D221B7E8B8ED773A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365350   (930545) от 07.03.2020
+
+VA - Miami 2020 Drum & Bass (2020) [MP3|320 Kbps] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrey Aryutkin - Motion [05:06]
+02. Cubsonic - Love Me [04:04]
+03. Aerom - Birds [04:20]
+04. Grynia - Winter Cover [07:35](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:24:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B47E69BE6C3629B0318B120FE8AB87413F01636
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 986019   (930409) от 14.02.2016
 
 Didier Marouani Space - Greatest Hits (2008) 2CD [FLAC|Lossless|image + .cue] <Electronic>
@@ -6,7 +64,7 @@ Didier Marouani Space - Greatest Hits (2008) 2CD [FLAC|Lossless|image + .cue] <E
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930409.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Neelix - Let's Just Leave (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance, Prog
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930403.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - SF035 Raveskool Retrospective Vol 1 (2020) [MP3|320 Kbps] <Hardcore, UK Har
 >>Hardstyle, Jumpstyle, Hardcore
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930281.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Clubbers Guide Summer 2007 (2007) [FLAC|Lossless|tracks + .cue] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929261.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ The Last One - Discography 3 Releases (2019) iM Electronica, opn g8s [FLAC|Lossl
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929149.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Paul Pearson - Live @ Subteran, Joshua Brooks Manchester, United Kingdom 2020-02
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929147.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Sixsense - Energy Source (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance, Progr
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929142.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Evanton - Colors - The Best Of Evanton (2016) [FLAC|Lossless|WEB-DL|tracks] <Syn
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929019.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Atongmu - Voice of the Sky (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance, Pro
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929014.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Evanton - Stretch It (2015) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929011.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Evanton - Flavors - The Best Of Evanton Vol.2 (2017) [FLAC|Lossless|WEB-DL|track
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929010.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Wind In The Field (Downtempo Series)  Vol.005 (2017) [MP3|320 Kbps] <Chillo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927919.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Disco De Bolsillo 2 - Dance Compilation (2004) [FLAC|Lossless|tracks + .cue
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927897.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Midnight Sessions  Vol.3 (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927890.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - This Is My Church Vol.4 (The Lounge Edition) (2017) [MP3|320 Kbps] <Chillou
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927859.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Extreme Cardio Vol 1 (2015) [MP3|320 Kbps] <Hard House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927852.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Extreme Cardio Vol 2 (2017) [MP3|320 Kbps] <Hard House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927809.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Best Of Dance 2005 (2005) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927767.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Kode Six - Kold Fuzion (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927416.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Sesto Sento - The Inner Light (2002) - (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927398.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Science. Art. Wonder. (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927358.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Sesto Sento - Remixer (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927275.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Sesto Sento - The Bright Side (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Tran
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927274.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Tiesto - Tomorrowland Friendship Mix (2021-08-12) [MP3|320 Kbps] <Electro Pop, B
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927157.jpg" />
 </div>
 
 
@@ -687,62 +745,6 @@ Tiesto - Tomorrowland Friendship Mix (2021-08-12) [MP3|320 Kbps] <Electro Pop, B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:319B0D638445F92CD4C1C868FED4EE95510C935A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 755839   (926944) от 11.02.2014
-
-Jonas Stenberg - Overworld (2014) [MP3|320 кб/с]<Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926944.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Overworld (Original Mix) 07:48
-2. Overworld (Alexander Popov Mix) 06:16Жанр: Trance, Progressive TranceПродолжительность: 00:14:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC215CABDFD58D8A03638EFE5C89E7A81FC28846
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987538   (926233) от 17.02.2016
-
-VA - Sweet Valentine Kuschel Lounge (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chriss De Vynal - Take Me Back to the Music [07:16]
-02. Collective Sound Members - When Love Leaves [05:19]
-03. Ludwig Zibell - Wagneritz - David Hasert Remix [07:38]
-04. John Soultek - Let the Music Talk [07:08](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:08:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9604775EE021BD6BFA8BCDBA61DE5D5703D4BAC8
 ```
 
 https://mybot314.ru/tekegram_catalog/

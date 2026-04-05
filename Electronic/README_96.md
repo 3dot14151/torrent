@@ -1,3 +1,61 @@
+###  Публикация: 1106643   (871804) от 20.02.2017
+
+VA - Midnight Lounge Vol.27 (Eternity Lounge) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Der Luchs - Locomotion  4:45
+02.  Francesco Gazzara - Point Break  2:49
+03.  Giulio Del Prato - Good Look  3:49
+04.  M.Gangalanti - Forme  2:18(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:05:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:909FF63FC9984D604FB14067E4B541D6B5460B59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106743   (871794) от 20.02.2017
+
+VA - Chillout Pool Lovers (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chiffre 100 - Revelations
+02. Performative Mode - Please Wait
+03. Chillelektro - Cabo de Creus
+04. Arrojas - Cala de Piedras(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:01:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22251F00C6E3F552C6C97EE96DC9E0EF053448BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 644424   (871773) от 15.04.2013
 
 VA - 80s Lounge Essentials (2013) [MP3|320 кб/с]<Lounge, Chillout, Lo-Fi>
@@ -6,7 +64,7 @@ VA - 80s Lounge Essentials (2013) [MP3|320 кб/с]<Lounge, Chillout, Lo-Fi>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871773.jpg" />
 </div>
 
 
@@ -32,7 +90,7 @@ VA - Chill Out Nation Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871672.jpg" />
 </div>
 
 
@@ -61,7 +119,7 @@ VA - Vocal House Maniacs Vol.1 (2017) [MP3|320 Kbps] <House, Vocal House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871664.jpg" />
 </div>
 
 
@@ -90,7 +148,7 @@ VA - 20 Best Of Ambient Chill (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871662.jpg" />
 </div>
 
 
@@ -119,7 +177,7 @@ Yoshi & Razner - Transmission Live, Spain (2021-08-28) [MP3|320 Kbps] <Trance>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871658.jpg" />
 </div>
 
 
@@ -148,7 +206,7 @@ AstroPilot & Friends - Soul Surfers (2016) [FLAC|Lossless|WEB-DL] <Psybient, Dow
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871632.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ VA - Melodic Progressive House Vol.09 (2017) [MP3|320 Kbps] <House, Progressive 
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871562.jpg" />
 </div>
 
 
@@ -206,7 +264,7 @@ Lane 8 - Fall 2021 Mixtape (2021-09-15) [MP3|320 Kbps] <Progressive House, Deep 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871546.jpg" />
 </div>
 
 
@@ -235,7 +293,7 @@ VA - Black Hole Trance Music 09-21 (2021) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871413.jpg" />
 </div>
 
 
@@ -264,7 +322,7 @@ Tiesto - Formula 1 Grand Prix Circuit Zandvoort, Netherlands (2021-09-05) [MP3|3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871404.jpg" />
 </div>
 
 
@@ -293,7 +351,7 @@ Paolo Lucchi - The Dusk Sessions (2019) Cold Tear Records [FLAC|Lossless|WEB-DL|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871199.jpg" />
 </div>
 
 
@@ -322,7 +380,7 @@ The Gnome - Pleasant Sounds For Unpleasant Times (2020) Ant-Zen [FLAC|Lossless|W
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871193.jpg" />
 </div>
 
 
@@ -351,7 +409,7 @@ Astral Terror - Liquid Brain (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Tranc
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871189.jpg" />
 </div>
 
 
@@ -380,7 +438,7 @@ VA - Static Movement Spring Collection (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871187.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ Symphonix - Symphonix Orange Box (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa T
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871186.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870435.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ Cell - Discography 7 Releases (2005-2020) Ultimae Records [FLAC|Lossless|tracks+
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870429.jpg" />
 </div>
 
 
@@ -496,7 +554,7 @@ VA - Melbourne Bounce Sound Selection Vol.2 (2017) [MP3|320 Kbps] <House, Melbou
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870144.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ Blue Foundation - 6 Albums, 9 Singles & EP (2000-2011) [MP3|128-320 кб/с]<Tri
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870117.jpg" />
 </div>
 
 
@@ -552,7 +610,7 @@ Charlotte de Witte - BBC Radio 1 Essential Mix (2021-09-18) [MP3|~245 Kbps (V0)]
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869931.jpg" />
 </div>
 
 
@@ -581,7 +639,7 @@ VA - Best Fall Hits For Aerobic & Cardio 2021 [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869925.jpg" />
 </div>
 
 
@@ -610,7 +668,7 @@ VA - Uplifting Only Orchestral Trance Year Mix 2016 (Mixed by Ori Uplift) (2017)
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869827.jpg" />
 </div>
 
 
@@ -639,7 +697,7 @@ VA - Hardstyle Workout 2021.2 Explicit [MP3|320 Kbps] <Hardstyle, Dance>
 >>Hardstyle, Jumpstyle, Hardcore
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869794.jpg" />
 </div>
 
 
@@ -668,7 +726,7 @@ VA - Hardstyle Workout 2021.1 Explicit [MP3|320 Kbps] <Hardstyle, Dance>
 >>Hardstyle, Jumpstyle, Hardcore
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869793.jpg" />
 </div>
 
 
@@ -682,61 +740,6 @@ VA - Hardstyle Workout 2021.1 Explicit [MP3|320 Kbps] <Hardstyle, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE70C7925D6D132BC9C478F614A85407441D6D2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963866   (869230) от 21.02.2017
-
-Label Pack - Damaged Records - 64 Releases (2014 - 2017) [MP3|320 кб/с]<Trance, Tech Trance, Psy-Trance>
-
->>Electronic
->>Label-Packs
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fall Into Dusk (Original Mix) (6:48)Жанр: Trance, Tech Trance, Psy-TranceПродолжительность: 00:06:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:970286DE651A069ACF45DBF32CB37E41B48D6905
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375092   (869087) от 12.04.2020
-
-Bicep - Bicep (2017) Ninja Tune [FLAC|Lossless|tracks+.cue] <House, Techno, Downtempo, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Orca (04:34)
- 02. Glue (04:29)
- 03. Kites (06:26)
- 04. Vespa (01:27)(   Читать дальше...   )Жанр: House, Techno, Downtempo, TranceПродолжительность: 00:57:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBA4FAE77EC4A32128307DCED3F4238BA7FC3E83
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 175978   (330470) от 01.10.2022
+
+Рождение Нации / The Birth of a Nation (1915) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330470.jpg" />
+</div>
+
+
+###  Подробнее
+
+В эту трехчасовую киноэпопею Гриффит вложил все свои знания в области режиссуры. Фильм "Рождение нации" (1915), в котором прослеживалась история отношений двух американских семей на протяжении Гражданской войны и последующего периода восстановления страны, стал наиболее значительной картиной из всех, снятых в Америке до того времени. Особенно зрелищными (   Читать дальше...   )Производство: СШАЖанр: Драма, военный, историяРежиссер: Дэвид Уорк ГриффитАктеры: Lillian Gish, Mae Marsh, Henry B. Walthall, Ralph Lewis, George Siegmann, Walter Long, Spottiswoode AitkenПеревод: Одноголосый закадровыйПродолжительность: 03:00:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCC2F596E0D3FC5F689308C878806D8EF2ABF190
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954786   (330147) от 14.11.2015
+
+Захват власти Людовиком ХIV / La prise de pouvoir par Louis XIV (1966) DVB [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330147.jpg" />
+</div>
+
+
+###  Подробнее
+
+Людовику XIV было всего пять лет, когда умер его отец. Вдовствующая королева Анна считалась правительницей Франции, но фактически всеми делами вершил ее фаворит кардинал Мазарини. Он способствовал переселению королевской семьи в Пале-Рояль. Там в очень простой и даже убогой обстановке юный король провел свое детство. Людовик во всем послушно следовал указаниям Мазарини. (   Читать дальше...   )Производство: Франция, Office de Radiodiffusion Tlvision Franaise (ORTF)Жанр: История, БиографияРежиссер: Роберто РосселлиниАктеры: Жан-Мари Патт, Раймон Журдан, Сильвани, Катарина Рэн, Доминик Венсан, Пьер Барра, Фернан Фабр, Франсуаз Понти, Жоэлль Ложуа, Морис БарьеПеревод: Многоголосый закадровый (ТК "Культура")Продолжительность: 01:36:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFE6BF1AA9B466F7B9B2E45A4DBC4B18CEE9807C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 955023   (329372) от 15.11.2015
 
 Человек из Аламо / The Man from the Alamo (1953) DVDRip [H.264]
@@ -6,7 +58,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329372.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_329258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329258.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328672.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_328210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328210.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327702.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327543.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327373.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327365.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_327123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327123.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326810.jpg" />
 </div>
 
 
@@ -273,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326564.jpg" />
 </div>
 
 
@@ -300,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326443.jpg" />
 </div>
 
 
@@ -327,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_326321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326321.jpg" />
 </div>
 
 
@@ -353,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325710.jpg" />
 </div>
 
 
@@ -379,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325683.jpg" />
 </div>
 
 
@@ -405,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325627.jpg" />
 </div>
 
 
@@ -431,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325305.jpg" />
 </div>
 
 
@@ -457,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325130.jpg" />
 </div>
 
 
@@ -483,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324839.jpg" />
 </div>
 
 
@@ -510,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324719.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324561.jpg" />
 </div>
 
 
@@ -564,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324297.jpg" />
 </div>
 
 
@@ -590,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_324223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324223.jpg" />
 </div>
 
 
@@ -617,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_323372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323372.jpg" />
 </div>
 
 
@@ -628,59 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0B2CC7C25037685287FBAC8B19B3ED9B5731236
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331517   (322617) от 16.10.2019
-
-Ночная Маргарита / Marguerite de la Nuit (1955) DVDRip [H.264] [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_322617.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ради любви прекрасной Маргариты последний представитель рода Фаустов продал душу дьяволу, чтобы вновь стать молодым и красивым. Но сделка с Мефистофелем меняет его характер: это проникает в сердце, дьявольские соблазны разъедают невинную душу Фауста. Дорого приходится платить влюбленным. Только одно может их спасти — новая жертва должна попасть в сети Мефистофеля (   Читать дальше...   )Производство: Франция, Италия / Cino del DucaЖанр: Драма, мистикаРежиссер: Клод Отан-ЛараАктеры: Мишель Морган, Ив Монтан, Жан Дебюкур, Жак Кланси, Поль Деманж, Жак Эрвин, Камилла Герини, Макс Меги, Женевьева МорелПеревод: Многоголосый профессиональныйСубтитры: отсутствуютПродолжительность: 02:04:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:948AF36608A2F6A49E1BE2062D07CC3C60779D13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421021   (321899) от 03.11.2020
-
-Шпион, который меня любил / The Spy Who Loved Me (1977) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_321899.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спасая мир от безумного злодея Стромберга, который разрабатывает план по уничтожению жизни на земле с помощью сверхмощного звука, Джеймс Бонд знакомится с очаровательной русской разведчицей. Вместе они вступают в неравную схватку с негодяем и его преданным слугой Джозом.
-Это по-настоящему гигантского размера детина с железными зубами, которыми он с легкостью перекусывает (   Читать дальше...   )Производство: Великобритания / Eon ProductionsЖанр: боевик, триллер, приключенияРежиссер: Льюис ГилбертАктеры: Роджер Мур, Барбара Бах, Курд Юргенс, Ричард Кил, Кэролайн Манро, Уолтер Готелл, Джеффри Кин, Бернард Ли, Джордж Бейкер, Майкл БилингтонПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 02:05:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8D78B33ED07DC8D8F32D995CC3F99E8195573F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

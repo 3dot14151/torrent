@@ -1,3 +1,55 @@
+###  Публикация: 1472171   (1014479) от 24.05.2021
+
+James Paick | Creative Environments for Games Part 1 of 4 (2014) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014479.jpg" />
+</div>
+
+
+###  Подробнее
+
+В первой части курса "Креативное окружение для игр", состоящего из 4 частей, я показываю и разбираю процесс создания окружения для видеоигр.Производство: GumroadЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 03:03:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F3BEB62236BD4B65EB4B1CAB77DDC83149E3D66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1472169   (1014474) от 24.05.2021
+
+Eytan Zana | Color and Light (2014) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трехчасовое видео, в котором я покажу, как я работаю с цветом, светом и настроением композиции из предыдущего видео.Производство: GumroadЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 02:53:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:745B13E9DE64051E6BAE0F6F6D922645A3E4BC3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1472176   (1014459) от 24.05.2021
 
 Julien Gauthier | Octane for Concept Art - Beginner (2018) PCRec [En, Ru]
@@ -6,7 +58,7 @@ Julien Gauthier | Octane for Concept Art - Beginner (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014459.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ Maciej Kuciara | Environment for Video Games: Callouts (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014456.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ Anthony Eftekhari | Concept Art for Production (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014432.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ Kurt Papstein | Character Creation in ZBrush (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014424.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014406.jpg" />
 </div>
 
 
@@ -142,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014402.jpg" />
 </div>
 
 
@@ -171,7 +223,7 @@ James Paick | Environment Basics 2 Perspective & Layout (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014344.jpg" />
 </div>
 
 
@@ -199,7 +251,7 @@ James Paick | Environment Basics 4 Lighting & Textures (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014341.jpg" />
 </div>
 
 
@@ -227,7 +279,7 @@ Eytan Zana | Graphic Composition For Environments (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014336.jpg" />
 </div>
 
 
@@ -253,7 +305,7 @@ Ben Adler | Intro to PBR in Unreal Engine 4 (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014325.jpg" />
 </div>
 
 
@@ -281,7 +333,7 @@ Nate Hallinan | Painting Fur (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014324.jpg" />
 </div>
 
 
@@ -307,7 +359,7 @@ James Paick | Environment Basics 1 Basic Composition & Values (2015) PCRec [En, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014321.jpg" />
 </div>
 
 
@@ -335,7 +387,7 @@ Mario Brajdich | Mastering 3D Modeling In Cinema 4D Part 1-3 (2017) PCRec [En, R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014257.jpg" />
 </div>
 
 
@@ -363,7 +415,7 @@ CG Cookie, Kent Trammell | Создание реалистичного пром�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014110.jpg" />
 </div>
 
 
@@ -389,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014073.jpg" />
 </div>
 
 
@@ -416,7 +468,7 @@ Jason Scheier | Composition 101 (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013989.jpg" />
 </div>
 
 
@@ -442,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013921.jpg" />
 </div>
 
 
@@ -468,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013913.jpg" />
 </div>
 
 
@@ -494,7 +546,7 @@ Jason Scheie | Visual Development for Animation (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013827.jpg" />
 </div>
 
 
@@ -521,7 +573,7 @@ John Park | Introduction to Vehicle Design - The Basics (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013802.jpg" />
 </div>
 
 
@@ -550,7 +602,7 @@ Creative Shrimp | Реалистичное освещение в Blender 2.76-2.
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013769.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Matthias De Muylder | Marvelous Designer For Concept Art (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013760.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Creative Shrimp | Космические визуальные эффекты: С
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013755.jpg" />
 </div>
 
 
@@ -631,7 +683,7 @@ Sjoerd de Jong | Materials: Essential Concepts (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013494.jpg" />
 </div>
 
 
@@ -642,58 +694,6 @@ Sjoerd de Jong сделает всесторонний разбор создан
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10F36F3FEB4316537B1BB904F3F66987C1655AD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473061   (1013464) от 30.05.2021
-
-Michael Pavlovich | ZBrush 2018 Image Based Lighting (2018) PCRec [En, Ru]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013464.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этом курсе вы научитесь использовать встроенный рендер Zbrush и разберетесь с созданием освещения на основе HDR изображений. Это обеспечит быстрый и качественный результат. Вы научитесь гибко настраивать свойства материалов, источников освещения и рендер-проходов, что в свою очередь обеспечит красивое финальное изображение при композитинге. Этот относительно короткий (   Читать дальше...   )Жанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 00:43:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABF59BF425B7C22C6284B06B395FEBE1A1809383
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473862   (1013369) от 31.05.2021
-
-Marek Okon | Part Two: Illustrating Colossus (2016) PCRec [En, Ru]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013369.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во второй части моего цикла уроков под названием "Иллюстрация без границ" я сосредоточусь на создании Киберколосса и покажу вам мой полный процесс работы, через который я прохожу, когда создаю иллюстрации. С самого начала и до конца, со множеством комментариев и принципах дизайна и рисования. Плюс небольшой забавный бонус. Более 4 часов и 20 минут материала.Производство: GumroadЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 04:10:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3094F075A075895A69EF3E2187A71767141341F
 ```
 
 https://mybot314.ru/tekegram_catalog/

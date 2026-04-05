@@ -1,3 +1,57 @@
+###  Публикация: 1246385   (463535) от 10.09.2018
+
+Журнал | Историк №9 (45) (сентябрь 2018) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463535.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Историк» – это журнал о России, о ее актуальном прошлом, о людях, делавших и делающих нашу историю. Наш журнал – это серьезное чтение для думающих людей. Для тех, кто испытывает потребность в консервативном знании о прошлом и настоящем. Для тех, кто не согласен с попытками интерпретировать историю нашей Родины лишь как цепь реализованных негативных альтернатив. (   Читать дальше...   )Жанр: Отечественная историяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:240B138EE01B6DA6DAFBDF188FBB5B33984E81A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 549624   (463174) от 20.09.2012
+
+Газета | Здоровье в чашке чая № 3 [2002] [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Информационно-познавательная газета на тему народной (нетрадиционной) медицины.
+
+В номере 12 страниц формата А3, собственный скан.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33FF7E759B6BCE4E96BE674C2A6FB70CB0F371A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 941332   (462997) от 27.09.2015
 
 Журнал | Загадки истории №35 (2015) [PDF]
@@ -6,7 +60,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462997.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462996.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462860.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461106.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461006.jpg" />
 </div>
 
 
@@ -137,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461000.jpg" />
 </div>
 
 
@@ -165,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460971.jpg" />
 </div>
 
 
@@ -191,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458394.jpg" />
 </div>
 
 
@@ -217,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457559.jpg" />
 </div>
 
 
@@ -243,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456082.jpg" />
 </div>
 
 
@@ -269,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455608.jpg" />
 </div>
 
 
@@ -295,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454073.jpg" />
 </div>
 
 
@@ -321,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_454002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454002.jpg" />
 </div>
 
 
@@ -347,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453914.jpg" />
 </div>
 
 
@@ -373,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453910.jpg" />
 </div>
 
 
@@ -400,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453310.jpg" />
 </div>
 
 
@@ -427,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_453147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453147.jpg" />
 </div>
 
 
@@ -454,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452979.jpg" />
 </div>
 
 
@@ -481,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452965.jpg" />
 </div>
 
 
@@ -507,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451881.jpg" />
 </div>
 
 
@@ -533,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450986.jpg" />
 </div>
 
 
@@ -560,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450816.jpg" />
 </div>
 
 
@@ -587,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_450117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450117.jpg" />
 </div>
 
 
@@ -613,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448377.jpg" />
 </div>
 
 
@@ -624,66 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E8380A1825C50CFF5E20939DCB92DC3F66AA916
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552437   (448269) от 26.09.2012
-
-Подборка газет | Kuryer codzienny + Kurjer poranny + Ilustrowany kuryer codzienny [сентябрь 1939] [PDF] [POL]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448269.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стремительно менялась политическая обстановка в мире в конце лета - начале осени 1939 года.
-23 августа СССР и Германия подписали пакт о ненападении, и уже 31 августа Верховный Совет СССР его ратифицировал.
-1 сентября вторжением немецких войск в Польшу начинается 2-я мировая война.
-17 сентября в Польшу входят советские войска.
-27 сентября капитулирует Варшава.
-28 сентября Германия и СССР подписывают Договор о разделе Польши.
-
-В раздаче 3 польских газеты этого периода:
-1) Варшавская "Kuryer codzienny" № 258A за 18 сентября (в номере - поражение немцев во Львове. Президент Варшавы Стефан Старжинский обращается к правительствам Англии и Франции. На Западном фронте немцы бегут в панике. Поляки и французы бомбят Берлин. Ложь Адольфа Гитлера)Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6765DB90FDF1FD9CCFC1DE79A022F1B61317206
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 827559   (447397) от 03.10.2014
-
-Журнал | Тайны ХХ века [Украина] №37 (октябрь 2014) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447397.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еженедельное популярное издание, увлекательно рассказывающее о тайнах космоса, аномальных зонах, необычных существах, авариях и глобальных катастрофах, приключениях, истории и личностях. Популярно о реальном и мистическом!Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D11807D7CB8C991480F5222C4F676ABB67A37982
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1335093   (289409) от 01.11.2019
-
-Tom Holkenborg - Терминатор: Темные судьбы / Terminator: Dark Fate (2019) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Terminated
-02. My Name Is Dani
-03. REV 9
-04. Iron Spike(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:58:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E3B5717482CEC6AF6180EE4DAE8A8D7FE34064A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1263359   (286299) от 20.11.2018
 
 Thomas E Rouch - Портал/Alpha Gateway (Original Motion Picture Soundtrack) (2018) Web-DL [MP3|320 Kbps] <Soundtrack>
@@ -35,7 +6,7 @@ Thomas E Rouch - Портал/Alpha Gateway (Original Motion Picture Soundtrack)
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286299.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Two Steps From Hell - Vanquish (2016) [MP3|320 Kbps] <Soundtrack, Trailer music,
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285715.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Tom Holkenborg aka Junkie XL - Terminator: Dark Fate / Терминатор: Т�
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_285668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285668.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Various Artists - Лондонские поля/ London Fields (Original Motion 
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284361.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Tom Holkenborg aka Junkie XL - Distance Between Dreams / Расстояние м
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282795.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Jake Butineau - Dune Sea (Original Game Soundtrack) (2019) [MP3|320 кб/с]<Sou
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282582.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Labrinth - Euphoria / Эйфория (Original Score from the HBO Series) (2019)
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282202.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ VA - Christmas Shooting Stars: The Finest Chillout and Lounge Music (2016) [MP3|
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280899.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ Tyler Bates, VA - Форсаж: Хоббс и Шоу / Fast & Furious Presents: 
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280802.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ VA - Форсаж: Хоббс и Шоу / Fast & Furious Presents: Hobbs & Shaw 
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280676.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Trent Reznor & Atticus Ross - Watchmen / Хранители: Volume 1 (Music fro
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280668.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Steven Price - The Aeronauts / Аэронавты (Original Motion Picture Sound
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280324.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ James Newton Howard - Фантастические твари: Преступл�
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279349.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Ramin Djawadi - Gears 5 (Original Soundtrack) (2019) [MP3|320 кб/с]<Soundtrac
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_279159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279159.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ VA - Office Christmas Party (Original Motion Picture Soundtrack) (2016) [MP3|320
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278762.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ VA - Suicide Squad (Unofficial Soundtrack) (2016) [MP3|320 кб/с]<Hip-Hop, Roc
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278755.jpg" />
 </div>
 
 
@@ -498,7 +469,7 @@ Tim Wynn - Freaks / Иные (Original Motion Picture Soundtrack) (2019) [MP3|32
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277528.jpg" />
 </div>
 
 
@@ -527,7 +498,7 @@ Francois Jolin - Alice VR  (original soundtrack) (2016) [MP3|320 Kbps] <OST, Sco
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277375.jpg" />
 </div>
 
 
@@ -556,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276890.jpg" />
 </div>
 
 
@@ -591,7 +562,7 @@ Ludvig Forssell, VA - Death Stranding (Original Score + Timefall) (2019) [MP3|32
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_275860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275860.jpg" />
 </div>
 
 
@@ -620,7 +591,7 @@ James Horner & Simon Franglen - The Magnificent Seven / Великолепная
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273630.jpg" />
 </div>
 
 
@@ -649,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273473.jpg" />
 </div>
 
 
@@ -678,7 +649,7 @@ Michael Giacchino - Rogue One: A Star Wars Story / Изгой-один: Звёз
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273472.jpg" />
 </div>
 
 
@@ -707,7 +678,7 @@ VA - Лучшие песни французских мюзиклов (2008) [MP3
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_272818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272818.jpg" />
 </div>
 
 
@@ -734,7 +705,7 @@ VA - Romantic Collection: Cinema (2003) [MP3|320 кб/с]<Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_271758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271758.jpg" />
 </div>
 
 
@@ -748,6 +719,35 @@ VA - Romantic Collection: Cinema (2003) [MP3|320 кб/с]<Soundtrack>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:243FDFF78FEB7C8DFA831539A3DC9723E7A6AA9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337901   (271656) от 13.11.2019
+
+Alexander Taylor - Animal Among Us / Животное среди нас (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome To Merrymaker (01:19)
+02. Better Days Past (01:57)
+03. The Merrymaker Murderer (01:17)
+04. Time, Money, Resources, and Masks (03:10)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:31:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71FE62A37521EAA41AC518433D793050DF0727A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

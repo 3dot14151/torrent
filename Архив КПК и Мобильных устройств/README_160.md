@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27950.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27926.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ HiPER Calc Pro v11.0.7 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27920.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ HDRezka TV v1.2.3 Mod by App Rezka TV [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27881.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Vanced Tube v5.3.80.132 Mod by TRUMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27873.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ AdGuard Ad Blocker  Nightly Premium [No-Root] v4.8.43 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27865.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27865.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ WPS Office + PDF v18.15.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27532.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27528.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Microsoft exFAT/NTFS for USB by Paragon Pro v5.0.0.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27525.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27520.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Plus Messenger (Telegram+) v11.7.1.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27517.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27505.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ EOBD Facile: OBD 2 авто сканер v3.71.1079 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27495.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Mock Locations (fake GPS path) v1.29.3 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27418.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ SnapEdit - AI photo editor v7.3.1 Mod by Oflarm [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27397.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27192.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27168.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27048.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ LazyMedia Deluxe v3.359 Mod by Alex.Strannik [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27044.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27024.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26948.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ TikTok Private Plus (PayBack Edition) v38.8.5 Mod by TikTok + Plugin Update [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26908.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ PowerDirector – Video Editor v14.9.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26890.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Magic Eraser / Магический ластик v2.19.2 Mod by Maximoff⁠ [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26879.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Vanced Tube v5.3.80.141 Mod by TRUMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26814.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26791.jpg" />
 </div>
 
 

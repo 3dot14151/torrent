@@ -1,3 +1,32 @@
+###  Публикация: 1572044   (425607) от 25.08.2022
+
+Sinistral King - Serpent Uncoiling (2020) [FLAC|Lossless|image + .cue] <Black, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425607.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Serpent Uncoiling
+2.	Nahemoth
+3.	Isheth Zenunim
+4.	Fields of Necromance(   Читать дальше...   )Жанр: Black, Death MetalПродолжительность: 00:41:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BB446095E0D78BA68D3A2C575F1D0BC596F8DB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1572050   (425604) от 25.08.2022
 
 Stass - The Darkside (2017) project by Felix Stass (Crematory) [FLAC|Lossless|image + .cue] <Death Metal>
@@ -6,7 +35,7 @@ Stass - The Darkside (2017) project by Felix Stass (Crematory) [FLAC|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425604.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Kerry Livgren - Q.A.R. (2022) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425600.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425587.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Metheora - Голоса (2020) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425578.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Deftones - Ohms (2020) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Nu Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425561.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Grave Digger - Symbol Of Eternity (2022) [MP3|320 Kbps] <Heavy Metal, Power Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425515.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ MUD (featuring Les Grays) - 14 Albums, 1 Box-set, 16CD (1974-2021) [FLAC|Lossles
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425513.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Matthew Lee - PianoMan (2018) [FLAC|Lossless|image + .cue] <Pop rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425468.jpg" />
 </div>
 
 
@@ -239,7 +268,7 @@ Lord - Ascendence (2007) [FLAC|image +.cue]<Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425345.jpg" />
 </div>
 
 
@@ -268,7 +297,7 @@ Akashic - Timeless Realm (2001) [FLAC|image +.cue]<Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425264.jpg" />
 </div>
 
 
@@ -297,7 +326,7 @@ Lord - Set In Stone (2009) [FLAC|image +.cue]<Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425258.jpg" />
 </div>
 
 
@@ -326,7 +355,7 @@ Lord - Digital Lies (2013) [FLAC|image +.cue]<Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425254.jpg" />
 </div>
 
 
@@ -355,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425153.jpg" />
 </div>
 
 
@@ -384,7 +413,7 @@ Mad Max - Stormchild Rising (2020) [FLAC|Lossless|image + .cue] <Heavy Metal, Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425069.jpg" />
 </div>
 
 
@@ -413,7 +442,7 @@ P.O.D. - The Awakening (2015) [FLAC|tracks+.cue]<Alternative, Nu Metal>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425053.jpg" />
 </div>
 
 
@@ -442,7 +471,7 @@ Metallica - The Woodstock Sessions (Live'99) (2020) [MP3|320 Kbps] <Thrash Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424973.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ F.P.G. - Сквозь ненависть (2015) [MP3|320 кб/с]<Punk-Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424718.jpg" />
 </div>
 
 
@@ -500,7 +529,7 @@ Deep Purple ‎– Hit Collection (2000) [FLAC|Lossless|image + .cue]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424712.jpg" />
 </div>
 
 
@@ -529,7 +558,7 @@ Powerwolf - The Sacrament Of Sin (2018) 2CD, Japanese Edition [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424606.jpg" />
 </div>
 
 
@@ -558,7 +587,7 @@ Riverdogs - California (2017) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424581.jpg" />
 </div>
 
 
@@ -587,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424475.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ Skyliner - Condition Black (2016) [MP3|320 Kbps] <Heavy, Progressive, Power Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424402.jpg" />
 </div>
 
 
@@ -645,7 +674,7 @@ Skagarack - Skagarack (1986) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424401.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ Eisenwut - Herrschaft Der Leere (2017) [MP3|320 Kbps] <Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424263.jpg" />
 </div>
 
 
@@ -703,7 +732,7 @@ Feeder - The Singles (2006) Remastered [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424220.jpg" />
 </div>
 
 
@@ -717,35 +746,6 @@ Feeder - The Singles (2006) Remastered [FLAC|Lossless|image + .cue] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F201D8D0F035D5C6A78C54023803717FD8F18312
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064977   (424210) от 21.10.2016
-
-Hell Boulevard - Inferno (2016) [MP3|320 Kbps] <Industrial Metal, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_424210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Is Dead
-02. A Lesson in Pain
-03. On the Other Side of Life
-04. A Beautiful Ending(   Читать дальше...   )Жанр: Industrial Metal, Gothic MetalПродолжительность: 00:59:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3C604741CADD256C711092D2818A2AD2B513525
 ```
 
 https://mybot314.ru/tekegram_catalog/

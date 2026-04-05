@@ -1,3 +1,58 @@
+###  Публикация: 1100888   (792349) от 31.05.2020
+
+Sraunus - Discography 20 Releases (2010-2020) [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Ambient, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ruoduo (09:44)
+ 02. Slunce Radar (06:52)
+ 03. Glaxomi III (08:54)
+ 04. Juliona Kabli (05:15)(   Читать дальше...   )Тип издания: CD, WEBЖанр: Dub Techno, Ambient, Minimal •Продолжительность: 17:24:50 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1208E3DC9A01372BAF1B15B4206ADD20510056C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117561   (792319) от 31.05.2020
+
+Robot Koch (Dreaming Of Ghosts, Robots Don't Sleep) - Discography 49 Releases (2008-2020) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Glitch-Hop, Tech House, Chillwave, Dubstep, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The First One (03:23)Жанр: Chillwave/AmbientПродолжительность: 16:54:05 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2385B8D2717F80D86901A4A593A833380B9707DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201485   (792262) от 25.01.2018
 
 VA - La Voile Rouge : St Tropez (2009) [FLAC|Lossless|tracks] <House, Electro House, Chill Out>
@@ -6,7 +61,7 @@ VA - La Voile Rouge : St Tropez (2009) [FLAC|Lossless|tracks] <House, Electro Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792262.jpg" />
 </div>
 
 
@@ -35,7 +90,7 @@ VA - Bedtime Stories Vol.4: A One Night Lounge Affair (2018) [MP3|320 Kbps] <Bal
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792261.jpg" />
 </div>
 
 
@@ -64,7 +119,7 @@ Dark Strands - Unknown Truths (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792253.jpg" />
 </div>
 
 
@@ -93,7 +148,7 @@ VA - Fitness Unlimited 2018: Made For Workout & Running (2018) [MP3|320 Kbps] <H
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792251.jpg" />
 </div>
 
 
@@ -122,7 +177,7 @@ VA - Power Workout: Pump Up Music 2019 [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792247.jpg" />
 </div>
 
 
@@ -151,7 +206,7 @@ DJ Koze - Seeing Aliens (2018) EP [FLAC|Lossless|WEB-DL|tracks] <House, Deep>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792233.jpg" />
 </div>
 
 
@@ -179,7 +234,7 @@ VA - Ministry Of Sound: The Biggest Dance Hits Of All Time (2017) [MP3|320 Kbps]
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792169.jpg" />
 </div>
 
 
@@ -208,7 +263,7 @@ Peter Pearson - Hearts and Flowers (2021) [FLAC|Lossless|WEB-DL|tracks] <Baleari
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792140.jpg" />
 </div>
 
 
@@ -237,7 +292,7 @@ VA - Big Workout Hits 2022 - Remixed for Fitness! (2021) [MP3|320 Kbps] <House, 
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792030.jpg" />
 </div>
 
 
@@ -266,7 +321,7 @@ St. Concrete - Listen Past Me (2019) Modern Cathedrals [FLAC|Lossless|WEB-DL|tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791852.jpg" />
 </div>
 
 
@@ -295,7 +350,7 @@ Exos - Indigo (2020) Figure [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Techno, A
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791851.jpg" />
 </div>
 
 
@@ -324,7 +379,7 @@ Ferrein - Valentine (2016) Echotourist [FLAC|Lossless|WEB-DL|tracks] <Dub Techno
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791850.jpg" />
 </div>
 
 
@@ -353,7 +408,7 @@ Aura Minimum - Mysterious Segments (2020) Modern Nature [FLAC|Lossless|WEB-DL|tr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791848.jpg" />
 </div>
 
 
@@ -382,7 +437,7 @@ Resoe - Discography 15 Releases (2007-2020) Baum Records, Echocord [FLAC|Lossles
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791846.jpg" />
 </div>
 
 
@@ -410,7 +465,7 @@ VA - EDM (2020) [MP3|320 Kbps] <House, Dance & Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791838.jpg" />
 </div>
 
 
@@ -439,7 +494,7 @@ Eusebeia, Atiq & Arlow - Transfiguration EP (2020) Mindtrick Records [FLAC|Lossl
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791832.jpg" />
 </div>
 
 
@@ -468,7 +523,7 @@ Felix K - Flowers Of Destruction (2013) Hidden Hawaii LTD [FLAC|Lossless|WEB-DL|
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791829.jpg" />
 </div>
 
 
@@ -497,7 +552,7 @@ Aythar - Collection 12 Releases (2016-2019) Carpe Sonum, ...txt [FLAC|Lossless|W
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791774.jpg" />
 </div>
 
 
@@ -526,7 +581,7 @@ VA - FM Radio Gods, Vol.4 (2019) [MP3|320 Kbps] <House, Dance, Big Room>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791710.jpg" />
 </div>
 
 
@@ -555,7 +610,7 @@ VA - G-House Drops Winter '19 (2019) [MP3|320 Kbps] <House, Minimal, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791709.jpg" />
 </div>
 
 
@@ -584,7 +639,7 @@ VA - House Boutique Volume 25-Funky & Uplifting House Tunes (2018) [MP3|320 Kbps
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791708.jpg" />
 </div>
 
 
@@ -613,7 +668,7 @@ Sōzuproject (Sōzu Project, Sozuproject) - Discography 7 Releases (2013-2017) V
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791707.jpg" />
 </div>
 
 
@@ -642,7 +697,7 @@ VA -MoBlack Records presents: Afro House Collection - 5 Years Label Anniversary 
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791706.jpg" />
 </div>
 
 
@@ -671,7 +726,7 @@ Koen Park (Ian Hawgood) - Discography 13 Releases (2008-2017) Folk Reels [FLAC|L
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791703.jpg" />
 </div>
 
 
@@ -683,64 +738,6 @@ Koen Park (Ian Hawgood) - Discography 13 Releases (2008-2017) Folk Reels [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F92FAF691E997F63359C6FADE85EEC6E7E805589
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201674   (791676) от 26.01.2018
-
-VA - Wurkout Vol. 6 (Dj Tonyynot) (2018) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daphne Rubin Vega - Rocket Man (Original Mix) 6:06
-02. Kitty Punch - Swish Swish (Dj Shocker Remix) 5:21
-03. Deborah Cooper - Real Love (Rosabel's Fireball Anthem Edit) 3:46
-04. Ella - Green Light (Dj Shocker Remix) 6:45(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:09:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0A0379BC322CA77D8281BB4DCDE1642119153C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201589   (791675) от 26.01.2018
-
-VA - Electronic Lounge 25 Electronic Flavoured Lounge Tunes Vol.2 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trio Eletrico - Somewhere Behind - Original Mix
-02. Miper - Last Kiss - Original Mix
-03. MoShang - Weeping Willow - Original Mix
-04. Newton - French Kisses - Original Mix(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:00:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C24CCFE136BA86223540602005048E4A0EB0DC0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1652078   (219549) от 09.08.2023
+
+Modern CSV for Mac 2.0.2 U2B [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Modern CSV — это мощное приложение для редактирования/просмотра табличных файлов для Windows, Mac и Linux. Профессионалы всех уровней технической подготовки используют его для анализа данных, проверки файлов для загрузки в базы данных, изменения файлов конфигурации, ведения списков клиентов и многого другого. Мы разработали его, чтобы компенсировать недостатки программ (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.08.2023Разработчик: © 2023 GALLIUM DIGITALПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E681B684A742C0C567441E9E1CAC3E5DBA73A4FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514232   (219425) от 02.12.2021
+
+Movavi Academic 2022 v22.0.0 [Multi/Ru]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Movavi Academic 2020 предоставляет учителям и ученикам мощный инструмент для создания комплексных образовательных видеороликов. Обогатите весь учебный процесс и переведите свой класс на новый уровень с помощью нашего программного обеспечения для редактирования видео для школ.Тип издания: macOS SoftwareРелиз состоялся: 02.12.2021Разработчик: © 2021, Movavi Software LimitedПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AA3E09E7AA158B4BD75EBD3FF95BB55BC576A0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1425870   (219236) от 22.11.2020
 
 Hostbuddy 2.2.5 [En]
@@ -6,7 +58,7 @@ Hostbuddy 2.2.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219236.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Tri-BACKUP Pro 9 v9.1.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219133.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Arturia V Collection 8 STANDALONE, VSTi, VSTi3, AAX v23.11.21 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219108.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ MacMagic 1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219020.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ Swift Publisher 5 v.5.6.6 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_218963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218963.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ Unite 4 v.4.5.0 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_218917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218917.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ FE File Explorer Pro 3.4.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_218739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218739.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ File Juicer 4.81 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218731.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ Tower 6 v6.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218705.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_218679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218679.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ PDFify 3.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_218144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_218144.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ Rottenwood 1.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_217960.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ CameraBag Photo Classic 3.2.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217828.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ Snapclear for Mac 1.0.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_217746.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ Micromat Drive Scope 1.2.15 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217707.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ Downie 4 v.4.6.25 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_217701.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ Image2icon - Make your icon‪s‬ 2.18 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_217043.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ Soulver 3 v3.4.12 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217002.jpg" />
 </div>
 
 
@@ -484,7 +536,7 @@ Cryptey - a menu bar cryptocurrency ticker 1.9.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216846.jpg" />
 </div>
 
 
@@ -510,7 +562,7 @@ BackupLoupe for Mac 3.9 U2B [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_216812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_216812.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ Room Arranger 9 v.9.7.3 U2B [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_216738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_216738.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216675.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ Topaz Gigapixel AI for Mac 5.7.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216504.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ Mirror for Panasonic TV 3.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216332.jpg" />
 </div>
 
 
@@ -628,58 +680,6 @@ Mirror for Panasonic TV 3.3 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE42467B87B220B832FAB412CD1D7B3289A323AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652846   (216200) от 13.08.2023
-
-Rectangle Pro 3.0.6 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_216200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rectangle - это приложение для управления окнами на основе Spectacle, написанное на Swift. Перемещайте и изменяйте размер окон в macOS с помощью сочетаний клавиш или областей привязки.Тип издания: macOS SoftwareРелиз состоялся: 09.08.2023Разработчик: © 2023 Ryan HansonПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:777716D6B1EB8DFBA7278FADA05852046E272E8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269935   (216039) от 17.12.2018
-
-Temp Monitor 1.2.3 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216039.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшая утилита для контроля температурного режима вашего Mac, скорости вращения вентиляторов, а так же напряжения питания отдельных компонентов и потребляемой мощности.Тип издания: macOS SoftwareРелиз состоялся: 06.12.2018Разработчик: VIMI StudiosПоддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EBD97D0E5E630E1E438A1B01EC0C899B8F5AA51
 ```
 
 https://mybot314.ru/tekegram_catalog/

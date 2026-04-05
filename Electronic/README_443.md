@@ -1,3 +1,119 @@
+###  Публикация: 1433124   (161989) от 19.12.2020
+
+VA - Pure Synthwave Vol. 3 (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Synthpop, Electronic>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Space Tourist - An Opening (Descent from Orbit) (3:38)
+02. FM-84 feat. Ollie Wride - Bend & Break (5:16)
+03. BY FOREVER - Let's Work It Out (5:00)
+04. Duett feat. Stewart Lockwood - Don't Make Me Wait (4:05)(   Читать дальше...   )Жанр: Synthwave, Synthpop, ElectronicПродолжительность: 01:41:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BC0D194718708BA06751CD1C12D6C3733F2390F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598727   (161925) от 20.12.2022
+
+VA - Music To Watch Girls By (2019) 3xCD, Compilation [FLAC|Lossless|image + .cue] <Easy Listening, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161925.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Music to Watch Girls By - Andy Williams
+02. Fly Me to the Moon - Julie London
+03. Wives and Lovers - Jack Jones(   Читать дальше...   )Жанр: Easy Listening, LoungeПродолжительность: 03:50:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1D355F2E814F122313D1ED02EBBBF04D435C39E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598387   (161902) от 20.12.2022
+
+DJ RumBuRak  - The Universe (2022) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Astro Night (Original Mix) (10:47)
+02. Dreamland (Original Mix) (08:07)
+03. Inside Your Soul (Original Mix) (07:00)
+04. No Way Out (Original Mix) (07:38)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:26:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09EE3DAE243BA53C3272EC8852304A6370D36219
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598749   (161856) от 20.12.2022
+
+Nina Hagen - Unity (2022) [FLAC|Lossless|WEB-DL|tracks] <Synth-pop, Pop Rock, Punk Rock>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shadrack [00:03:42]
+02. United Women of the World [00:03:10]
+03. Unity [00:03:32]
+04. 16 tons [00:02:38](   Читать дальше...   )Жанр: Synth-pop, Pop Rock, Punk RockПродолжительность: 00:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7AB29E7F05D926B5DE73000E5843F09762997BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517700   (161680) от 17.12.2021
 
 James Ryan - The Best Of Lounge: L.A. Lounge (2001) [FLAC|Lossless|tracks + .cue] <Latin Jazz, Lounge>
@@ -6,7 +122,7 @@ James Ryan - The Best Of Lounge: L.A. Lounge (2001) [FLAC|Lossless|tracks + .cue
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161680.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Vangarde feat. XXL - The Best Of Lounge: Buddha Lounge (2001) [FLAC|Lossless|tra
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161671.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Levantis & Friends - The Best Of Lounge: Classic Lounge (2001) [FLAC|Lossless|tr
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161666.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Peter Ellis - The Best Of Lounge: New York Lounge (2001) [FLAC|Lossless|tracks +
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161664.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Above & Beyond - 10 Years of Group Therapy (2021) Compilation [FLAC|Lossless|WEB
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161580.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Alexander Popov - Reflected (2023) [MP3|320 Kbps] <Trance, Progressive, Electron
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161402.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Oliver Koletzki - Trip to Sanity (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161352.jpg" />
 </div>
 
 
@@ -206,7 +322,7 @@ VA - Anjunadeep Explorations 24 (2023) [FLAC|Lossless|WEB-DL|tracks] <Minimal/Te
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161349.jpg" />
 </div>
 
 
@@ -235,7 +351,7 @@ Special D. - You (2023 mix) (2023) [FLAC|Lossless|WEB-DL|tracks] <Euro-Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161331.jpg" />
 </div>
 
 
@@ -262,7 +378,7 @@ Nyx Nótt (Nyx Nott, Aidan Moffat) - Aux Pieds de la Nuit (2020) [FLAC|Lossless|
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161267.jpg" />
 </div>
 
 
@@ -291,7 +407,7 @@ The Avalanches - We Will Always Love You (2020) [FLAC|Lossless|tracks + .cue] <T
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161239.jpg" />
 </div>
 
 
@@ -320,7 +436,7 @@ VER:WEST (Tiësto) - Tiësto's Club Life 767 (AFTR:HRS Yearmix) (2021-12-11) [MP
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161143.jpg" />
 </div>
 
 
@@ -349,7 +465,7 @@ Buddha Lounge - The Best Of Lounge: Buddha Lounge Vol. 2 (2007) [FLAC|Lossless|W
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161098.jpg" />
 </div>
 
 
@@ -378,7 +494,7 @@ Markus Schulz - Global DJ Broadcast Year in Review (2021) [MP3|320 Kbps] <Trance
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160986.jpg" />
 </div>
 
 
@@ -407,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Experimental Electronic
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160965.jpg" />
 </div>
 
 
@@ -436,7 +552,7 @@ VA - Angel Voices Vol.2 (Enigmatic Chill & Mystic Tracks To Relax) (2021) FLAC [
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160956.jpg" />
 </div>
 
 
@@ -465,7 +581,7 @@ VA - Solarstone Presents Pure Trance 10 (Mixed By Solarstone) (2023) [MP3|320 Kb
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160845.jpg" />
 </div>
 
 
@@ -494,7 +610,7 @@ VA - Autumn Vibes Kolibri Selection (2023) [MP3|320 Kbps] <Downtempo, Chillout, 
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160843.jpg" />
 </div>
 
 
@@ -523,7 +639,7 @@ Darude - Together (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Trance, Danc
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160827.jpg" />
 </div>
 
 
@@ -552,7 +668,7 @@ VA - Liquicity Autumn (2023) [FLAC|Lossless|WEB-DL|tracks] <Drum & Base>
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160825.jpg" />
 </div>
 
 
@@ -578,7 +694,7 @@ VA - Restaurant & Bar Best Ambience Music (2023) [MP3|320 Kbps] <Lounge, Chillou
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160824.jpg" />
 </div>
 
 
@@ -607,7 +723,7 @@ VA - Pop & Dance Anthems 2023 [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160644.jpg" />
 </div>
 
 
@@ -621,122 +737,6 @@ VA - Pop & Dance Anthems 2023 [MP3|320 Kbps] <Dance, Club, House, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4394871AB50C31CAE16C6F818BB0EFE14CFFC39F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675214   (160252) от 09.11.2023
-
-VA - Dancing Services, Vol. 4 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dado - Do it Better [04:57]
-02. Hannah Aviera - Need Your Love [02:41]
-03. George Rodgers - How Will I Know [03:30]
-04. 4brownbottles - My Memories [02:57](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:45:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5903D3234E5B368097888CD877572D7823F98406
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675572   (160246) от 09.11.2023
-
-VA - Roman Messer - For All Time (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer - For All Time (Intro) (1:34)
-02. Emma Hewitt & Roman Messer - FALLEN (Extended Mix) (6:01)
-03. Roman Messer - Back To The Future (Extended Mix) (7:45)
-04. Roman Messer & Diandra Faye - In Our Memories (Extended Mix) (5:40)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:49:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B4CD02BDE243E3CA89647F480E00915CCBA854B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675399   (160243) от 09.11.2023
-
-Pet Shop Boys - Relentless (1993) Reissue, Remastered, 2023, Parlophone [FLAC|Lossless|image + .cue] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160243.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. My Head Is Spinning 6:33
-2. Forever In Love 6:18
-3. KDX 125 6:26
-4. We Came From Outer Space 5:23(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:37:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EAFD1209FF2CF1287F3970D1B3155855CC3CE7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675322   (160201) от 09.11.2023
-
-Roger Shah and Ambedo - Tribute To Earth (2023) [FLAC|Lossless|WEB-DL|tracks] <Uplifting Trance, Chillout>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roger Shah & Ambedo - Tribute To Earth [6:34]
-02. Roger Shah & Ambedo - Sun And Moon [5:41]
-03. Roger Shah & Ambedo - Oceans [5:40]
-04. Roger Shah & Ambedo With Yelow & Capri - The Greatest Gift [6:20](   Читать дальше...   )Жанр: Uplifting Trance, ChilloutПродолжительность: 02:28:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29FA391DF0577E9342651A450E8DF6B7A201DA9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

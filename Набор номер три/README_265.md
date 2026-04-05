@@ -1,3 +1,160 @@
+###  Публикация: 1221729   (690949) от 26.04.2018
+
+Производство SSD в России: непростые вопросы
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_690949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новость о запуске серийного производства SSD-дисков вызвала достаточно скептичные дискуссии в профессиональном сообществе. Так уж сложилось, что в России с ее значительным технологическим отставанием любые попытки запустить высокотехнологичное производство воспринимаются с недоверием. Оно имеет вполне веские основания, ведь кристаллы у нас не производятся, а значит, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221681   (690948) от 26.04.2018
+
+NVIDIA GeForce Desktop 397.31 WHQL + For Notebooks [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690948.jpg" />
+</div>
+
+
+###  Подробнее
+
+NVIDIA GeForce Driver — драйвера для видеокарт производства NVIDIA. Предназначены для видеокарт семейства GeForce, работающих в операционной системе Windows. Унифицированная архитектура драйверов (CUDA) гарантирует прямую и обратную совместимость драйверов с различными поколениями графических процессоров NVIDIA, что упрощает процесс замены видеоподсистемы, так как (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9EFFF951B9A34918C39F4812C7146C154CDBCF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220963   (690947) от 26.04.2018
+
+Sublime Text 3 Build 3164 Dev + Portable [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sublime Text — быстрый кроссплатформенный редактор исходных текстов программ. Поддерживает плагины на языке программирования Python.
+Sublime Text не является свободным или открытым программным обеспечением, однако, некоторые его плагины распространяются по свободной лицензии, а также разрабатываются и поддерживаются сообществом разработчиков. Он поддерживает подсветку (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD62AD764F961CB7BD3F3140B26F2824EC554AA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134045   (690760) от 14.05.2017
+
+Прочь / Get Out (2017) BDRip [H.264/720p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знакомство с родителями подружки не предвещает молодому фотографу из Нью-Йорка ничего хорошего, ведь семья девушки принадлежит к элитному обществу и живет в уединенном загородном доме. Если бы он только знал истинную причину своего приглашения, то немедленно бросился бы прочь…Производство: США / Blumhouse Productions, QC EntertainmentЖанр: Ужасы, ДетективРежиссер: Джордан ПилАктеры: Дэниэл Калуя, Эллисон Уильямс, Кэтрин Кинер, Брэдли Уитфорд, Калеб Лэндри Джонс, Маркус Хендерсон, Бетти Гэбриел, Лейкит Стэнфилд, Стивен Рут, Лил РеллПеревод: Многоголосый закадровый, профессиональный (AlexFilm)Субтитры: Русские (полные), Английские (полные)Продолжительность: 01:44:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B229171077E141D318F30051AF119455AAECF2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134220   (690759) от 14.05.2017
+
+Adobe Illustrator CC 2017 (v21.1.0) x86-x64 RUS/ENG Update 3
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Illustrator CC 2017 – это принятое в качестве отраслевого стандарта программное обеспечение векторной графики, широко используемое дизайнерами в различных областях цифровой графики, иллюстраций и печати, при разработке любых видов мультимедийных ресурсов, как то печатных материалов, интернет-содержимого, интерактивных средств, видеороликов и мобильных приложений. (   Читать дальше...   )Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFA80D70D41BA0DE839FB4EEC22AD785065DBCED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909511   (690758) от 14.05.2017
+
+Skyforge (2015) [Ru] (0.92.1.24) License
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Skyforge - это MMORPG в фантастической вселенной. В ней боги и герои с помощью технологий будущего сражаются с мифическими созданиями и отражают вторжения из космоса. Сильнейшие игроки смогут достичь вершин славы и встать во главе Пантеона, пройдя путь от юного бессмертного до великого бога.Тип издания: LicenseРазработчик: Obsidian EntertainmentЖанр: MMORPG, Action, AdventureЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4CB402819319EFC4B400494F5465A6639E2410E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 212211   (690738) от 22.06.2010
 
 Green Disc 2010 [Русский]
@@ -6,7 +163,7 @@ Green Disc 2010 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690738.jpg" />
 </div>
 
 
@@ -36,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_690415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_690415.jpg" />
 </div>
 
 
@@ -62,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_690269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_690269.jpg" />
 </div>
 
 
@@ -88,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690235.jpg" />
 </div>
 
 
@@ -114,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690232.jpg" />
 </div>
 
 
@@ -140,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690231.jpg" />
 </div>
 
 
@@ -166,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690057.jpg" />
 </div>
 
 
@@ -192,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690055.jpg" />
 </div>
 
 
@@ -218,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689995.jpg" />
 </div>
 
 
@@ -244,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689944.jpg" />
 </div>
 
 
@@ -270,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689943.jpg" />
 </div>
 
 
@@ -296,7 +453,7 @@ Grand Theft Auto: San Andreas (2005) [Ru] (1.0us) Repack atmars96
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689942.jpg" />
 </div>
 
 
@@ -322,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689941.jpg" />
 </div>
 
 
@@ -348,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>11
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_689850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_689850.jpg" />
 </div>
 
 
@@ -374,7 +531,7 @@ Microsoft портировала DirectX 12 в Windows 7. Нет, не 1 Апр�
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_689694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_689694.jpg" />
 </div>
 
 
@@ -400,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>9
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_689691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_689691.jpg" />
 </div>
 
 
@@ -426,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>96
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_689680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_689680.jpg" />
 </div>
 
 
@@ -454,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689679.jpg" />
 </div>
 
 
@@ -480,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689507.jpg" />
 </div>
 
 
@@ -506,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689504.jpg" />
 </div>
 
 
@@ -517,169 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B572BFB60EEB70CD17958DFE0DA2CC0739AAEF7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 711114   (689502) от 12.06.2014
-
-Гриффины / Family Guy (2013) WEB-DL [H.264/1080p] (Сезон 12 / Серии 1-21 из 21) Filiza Studio
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689502.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Гриффины" (Family Guy) - анимационное ТВ-Шоу, созданное Сетом МакФерлайном (Seth MacFarlane) для телеканала FOX. Как нетрудно догадаться, главными героями шоу является семейка Гриффинов: тупой, но полный сумашедших идей, составляющих львиную долю шуток сериала, отец семейства Питер; его любящя и терпеливая жена Лойс, всеми силами пытающаяся превратить (   Читать дальше...   )Жанр: Ситком, Чёрный юмор, Буффонада, Комедия, ПародияРежиссер: Сет МакфарлейнПеревод: Профессиональный (многоголосый закадровый) -Субтитры: Русские, английскиеПродолжительность: ~ 00:22:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30B4199F137B20EEE1C31A7A6AFF6A7AA360D931
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 506399   (689464) от 05.06.2012
-
-Waterfox 13.0 x64 Final [Русский/Английский]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689464.jpg" />
-</div>
-
-
-###  Подробнее
-
-Waterfox — это браузер, основанный на исходном коде популярного обозревателя Mozilla Firefox, и предназначенный специально для 64-разрядных операционных систем семейства Windows. Waterfox обладает всеми функциональными возможностями, присущими Firefox, но благодаря наличию оптимизации кода позволяет пользователю добиться более высокой скорости работы веб-браузера. От своего оригинала (Mozilla Firefox) Waterfox, в основном, отличается тем, что это сборка скомпилирована специально по 64 архитектуру компьютеров, работающих под управлением операционной системы Windows 7. Причем ориентированность на 64-ю модель появилась в Waterfox намного раньше, чем в классической Лисе. Наиболее полное использование всех преимуществ более современной организации памяти позволила его разработчикам еще выше поднять и без того высокую скорость загрузки Интернет-станиц, которую может обеспечить Firefox. Кроме того, браузер стал быстрее загружаться.
-
-(   Читать дальше...   )Название программы: WaterfoxЯзык интерфейса: Русский/Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477091   (689210) от 05.06.2012
-
-Игра престолов / Game of Thrones (2 сезон, 1-10 серия из 10) (2012) HDTVRip [EN]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689210.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Вестеросе наступила осень — предвестник долгой зимы, когда Белые ходоки пробудятся ото сна. Но Стена и её защитники позабыты: три короля претендуют на Железный трон и два верховных лорда провозгласили себя королями над своими землями. Никто из них не желает заключить союзы, и каждый считает свое право на трон священным. И воцарился над миром кровавый хаос войны. (   Читать дальше...   )Жанр: Драма, Фэнтези, ПриключенияРежиссер: Алан Тейлор, Брайан Кирк, Даниэль МинаханАктеры: Питер Динклэйдж, Марк Эдди, Николай Костер-Валдау, Мишель Фэйрли, Лена Хиди, Эмилия Кларк, Иэн Глен, Эйдан ГилленПеревод: Субтитры  (Нотабеноид)Продолжительность: 10х~00:55:06
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 415767   (689202) от 05.06.2012
-
-Сергей Лукьяненко | Полное собрание аудио книг [1997-2011] [MP3]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сергей Лукьяненко - имя, которое для всех истинных ценителей российской фантастики не нуждается ни в комментариях, ни в представлениях. Имя, которое говорит само за себя.
-
-Свой жанр писатель определяет как «Фантастику жесткого действия» или «Фантастику Пути».
-Помимо большого числа других литературных премий, в 1999 году Сергей Лукьяненко стал самым молодым на нынешний (   Читать дальше...   )Жанр: фантастика, фентези
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 333280   (689019) от 09.05.2011
-
-Warhammer 40 000: Dawn of War 2: Chaos Risin [En/Ru] (Steam-Rip/2.6.0.5628) 2010 | R.G. Origins
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_689019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир, где война не прекращается ни на секунду уже многие тысячи лет, гигантские боевые роботы жарят из огнеметов темных колдунов, а местный космодесант холодному оружию предпочитает цепные пилы — вселенная Warhammer во всем ее великолепии, в новом стратегическом хите студии Relic.
-Добро пожаловать в 41-е тысячелетие, в котором есть только война. Но что важнее всего, добро пожаловать в будущее стратегий реального времени. Warhammer® 40 000™: Dawn of War® II, разработанный удостоенной множества наград знаменитой студией Relic Entertainment, открывает новую главу в широко известной серии стратегий реального времени. Игроку предстоит перенестись на поле боя и возглавить элитный отряд, задание которого, ни много ни мало - спасти всю галактику.
-В Подсекторе Аврелия, группе миров на краю галактики, готова разразиться грандиозная битва. Древние расы столкнутся на расположенных в этой части космоса планетах. Ставки в этих сражениях непомерно велики, ведь на кону не только права на территорию, но и сама судьба каждой расы. (   Читать дальше...   )Тип издания: Steam-RipЖанр: Add-on (Standalone) / Strategy (Real-time) / 3DЯзык интерфейса: русский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:906B5A227F16496614C4599BC2E03646B8DCC435
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 334193   (689009) от 09.05.2011
-
-PROMT Collection installer 2011[PROMT Professional v9.0.443 /PROMT Freelance v9.0.410/PROMT 4U v9.0.0.397/Коллекции словарей/Portable PROMT Professional v9.0.443/Portable PROMT 4U v9.0.0.397]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разработчик: Copyright © ООО "ПРОМТ"Язык интерфейса: Английский + Русский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

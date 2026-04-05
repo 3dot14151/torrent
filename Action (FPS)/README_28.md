@@ -1,3 +1,55 @@
+###  Публикация: 1174106   (376751) от 12.10.2018
+
+Gold Rush: The Game (2017) [Ru/Multi] (1.5.10373/dlc) License CODEX
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376751.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gold Rush: The Game – это симулятор золотодобытчика, в котором вы будете использовать различные методы добычи золота, включая использование тяжёлой техники и различного оборудования. Конечно, вы должны понимать, чем масштабнее ваша добыча, тем больше шансов найти золото, но тем выше стоимость аренды техники.Тип издания: LicenseРазработчик: Code HorizonЖанр: Simulator, 1st Person, 3DЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:067934ACA16B5F038728B9B80BBD46CD74F7EA56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949470   (376403) от 23.10.2015
+
+Vietcong Anthology (2003-2005) [Ru/En] (1.60/1.1/dlc) Repack R.G. Catalyst
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376403.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они называли это битвой за свободу. Они говорили, что выполняют братские обязательства перед гражданами Вьетнама. И их свобода пришла - заключив всех непокорных в жаркие объятия напалма, верхом на неспешных танковых гусеницах, под хлесткий стрекот М-16 и ладный хор пропаганды.Тип издания: RepackРазработчик: Pterodon и Illusion SoftworksЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8A17F7B065CABA06A5FA1ABFAB987DF70ECAABE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1258719   (376049) от 24.09.2019
 
 Agony UNRATED (2018) [Ru/Multi] (1.0/upd5) License CODEX
@@ -6,7 +58,7 @@ Agony UNRATED (2018) [Ru/Multi] (1.0/upd5) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_376049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376049.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Shadow Warrior (2013) [Ru/Multi] (1.1.2/1.5.0/dlc) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373695.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Call of Juarez Дилогия [Ru] (RePack) 2006-2009 | R.G. ReCoding
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373169.jpg" />
 </div>
 
 
@@ -90,7 +142,7 @@ In Verbis Virtus (2015) [Ru/Multi] (1.0.2420) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372701.jpg" />
 </div>
 
 
@@ -116,7 +168,7 @@ Viscera Cleanup Detail (2015) [En] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371679.jpg" />
 </div>
 
 
@@ -142,7 +194,7 @@ Shadow Warrior 2 (2016) [Ru/Multi] (1.1.11.0/dlc) Repack R.G. Catalyst [Deluxe E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371354.jpg" />
 </div>
 
 
@@ -168,7 +220,7 @@ Call of Juarez / Call of Juarez: Сокровища Ацтеков (2006) [Ru/En
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370345.jpg" />
 </div>
 
 
@@ -195,7 +247,7 @@ Deus Ex Anthology (2001-2014) [Ru/Multi] Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370321.jpg" />
 </div>
 
 
@@ -221,7 +273,7 @@ Medal of Honor (2010) [Ru] (1.0.75.0) Rip xatab [Limited Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369767.jpg" />
 </div>
 
 
@@ -247,7 +299,7 @@ Medal of Honor Warfighter (2012) [Ru] (1.0.0.3/dlc) Repack xatab [Limited Editio
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369755.jpg" />
 </div>
 
 
@@ -273,7 +325,7 @@ Neptune: Arena FPS (2017) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367155.jpg" />
 </div>
 
 
@@ -299,7 +351,7 @@ Welcome to Hanwell (2017) [En] (1.0/Hotfix) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366954.jpg" />
 </div>
 
 
@@ -325,7 +377,7 @@ Autumn Dream (2016) [Ru/En] (1.6.9.6) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365900.jpg" />
 </div>
 
 
@@ -352,7 +404,7 @@ Gods Basement (2018) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365423.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ Debris (2017) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364787.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ Welcome to Hanwell (2017) [En] (1.0/Hotfix) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364697.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ Inmates (2017) [Ru/Multi] (1.0.2) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364688.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ Wolfenstein II: The New Colossus (2017) [Ru/En] (20181127/dlc) Repack CoD - MW2
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364517.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ Deus Ex: Human Revolution (2011) [Ru/Multi] (1.4.651.0/dlc) Repack West4it [Augm
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362659.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ Void Bastards (2019) [Ru/Multi] (2.0.20/dlc) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362650.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ Crime Cities (2000) [En/Pl] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362563.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ Operation Flashpoint: Red River (2011) [Ru] (1.2.0) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359746.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ Serious Sam 3: BFE - Deluxe Edition [Ru/Multi 8] (Repack/3.0.3) 2011 l R.G. Reve
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359467.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ Serious Sam 3: Before First Encounter - Deluxe Edition [Ru/En/Multi9] (Steam-Rip
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359447.jpg" />
 </div>
 
 
@@ -623,58 +675,6 @@ Serious Sam 3: BFE — это великолепное возвращение в
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC31A18E2143A6393340AD73AC595A15CC764937
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328945   (358368) от 02.10.2019
-
-Deus Ex: Human Revolution (2011) [Ru/Multi] (1.4.651.0/dlc) Repack West4it [Augmented Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358368.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deus Ex: Human Revolution - третья часть популярного РПГ проекта, действия которого происходят в мире киберпанка. Главным героем выступает Адам Дженсен, работающий в службе безопасности компании Sarif Industries, которая является одной из лидирующих фирм по производству имплантатов для людей.Тип издания: RepackРазработчик: Eidos Montreal и Nixxes SoftwareЖанр: Action (Shooter), RPG, 3D, 1st Person, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC22B4B8CE36A68FE132622E2DD8F4CED33654EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952767   (352748) от 02.11.2015
-
-Borderlands: The Pre-Sequel (2014) [Ru/Multi] (1.0.7/dlc) Repack R.G. Механики
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352748.jpg" />
-</div>
-
-
-###  Подробнее
-
-С возвращением во вселенную Borderlands! Палите из всех стволов и хватайте все, что плохо лежит, в совершенно новом приключении, которое буквально отправит вас в космос – на поверхность спутника планеты Пандора. События Borderlands: The Pre-Sequel! происходят в промежутке между Borderlands и Borderlands 2. Узнайте побольше о прошлом Красавчика Джека, главного злодея (   Читать дальше...   )Тип издания: RepackРазработчик: 2K Australia, Gearbox Software и Aspyr MediaЖанр: Action (Shooter) / RPG (Rogue/Action) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C8B8839213B0578A8154F26C179127781919AFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

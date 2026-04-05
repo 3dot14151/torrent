@@ -1,3 +1,58 @@
+###  Публикация: 1404608   (490924) от 26.08.2020
+
+Дмитрий Казимиров | Техника рисунка цветными карандашами (2020) HDTVRip
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знакомьтесь с онлайн-курсом Дмитрия Казимирова
+посвященному рисунку цветными карандашами.
+Изучайте основы графики, свойства материалов и инструментов.
+Применяйте продвинутые техники передачи объёма и цвета.Жанр: РисованиеПродолжительность: 55:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7590AD89211024724715B50DC06247FEC1B9EC9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404923   (489073) от 27.08.2020
+
+Анастасия Штарк | Базовый курс по портретной иллюстрации (2020) HDTVRip
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489073.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс посвящен бесконечно притягательной теме - изображение человека, его самой выразительной части образа - лица. Портрет - это умение передавать внешний облик модели и, что максимально интересно как задача для рисующего, его внутренний мир. Курс нацелен на самые базовые знания и основы по портретной иллюстрации. На уроках мы будем разбираться в анатомических (   Читать дальше...   )Жанр: РисованиеПродолжительность: 09:55:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9F3C6E6AA341BE802744E7460200F93478431F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1405257   (484696) от 29.08.2020
 
 Денис Овсянников | Zbrush с абсолютного нуля до про (2020) HDTVRip
@@ -6,7 +61,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484696.jpg" />
 </div>
 
 
@@ -34,7 +89,7 @@ Pixel, Софья Палюхина, Наталья Егорова | Рисова
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483976.jpg" />
 </div>
 
 
@@ -62,7 +117,7 @@ CG Boost, Zach Reinhardt | Cubic Worlds: Create Stunning Low Poly Animations in 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_482033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482033.jpg" />
 </div>
 
 
@@ -90,7 +145,7 @@ YouSmart, Нина Наумова | Курс Adobe Illustrator, Photoshop, InDes
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479959.jpg" />
 </div>
 
 
@@ -119,7 +174,7 @@ Creative Shrimp | Риггинг механизмов в Blender 2.83 / Hard Sur
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478675.jpg" />
 </div>
 
 
@@ -146,7 +201,7 @@ Udemy, Josh Gambrell, Ponte Ryuurui | Создание Sci-Fi оружия в Bl
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478658.jpg" />
 </div>
 
 
@@ -172,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478521.jpg" />
 </div>
 
 
@@ -198,7 +253,7 @@ Blender Cloud | Создание примитивных животных в Blen
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476999.jpg" />
 </div>
 
 
@@ -224,7 +279,7 @@ CG Sphere | Create Super Detailed Shield In Blender Tutorial (Modeling, Texturin
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475888.jpg" />
 </div>
 
 
@@ -252,7 +307,7 @@ CG Cookie | Создание облаков в Blender 2.8 и Eevee/ Creating Cl
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474741.jpg" />
 </div>
 
 
@@ -278,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472630.jpg" />
 </div>
 
 
@@ -304,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472383.jpg" />
 </div>
 
 
@@ -331,7 +386,7 @@ Udemy, CG Masters | Энциклопедия Blender 2.8 / The Blender 2.8 Encyc
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472365.jpg" />
 </div>
 
 
@@ -357,7 +412,7 @@ Pluralsight.com | Blender Fundamentals (2018) PCRec [H.264/720p-LQ] [RU/EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470782.jpg" />
 </div>
 
 
@@ -386,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470331.jpg" />
 </div>
 
 
@@ -414,7 +469,7 @@ Profileschool | Пейзажная симфония (2013) [PCRec]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468458.jpg" />
 </div>
 
 
@@ -440,7 +495,7 @@ Udemy, Mrawan Hussain | BLENDER: Creating the Dune Ornithopter from start to fin
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465740.jpg" />
 </div>
 
 
@@ -469,7 +524,7 @@ Skillshare, 3D Tudor | Blender 3 to Unreal Engine 5 Dungeon Modular Kitbash (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465738.jpg" />
 </div>
 
 
@@ -496,7 +551,7 @@ Robby Branham | Multi Pass Rendering and Compositing (2017) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457682.jpg" />
 </div>
 
 
@@ -522,7 +577,7 @@ CG Cookie | Текстурирование оружия в Blender 2.79 и Subst
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457489.jpg" />
 </div>
 
 
@@ -548,7 +603,7 @@ Udemy | Создание катаны для игр в Blender 2.83 и Substance
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457355.jpg" />
 </div>
 
 
@@ -574,7 +629,7 @@ CG Cookie | Моделирование оружия для шутера от п�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457235.jpg" />
 </div>
 
 
@@ -600,7 +655,7 @@ Denis Kozhar | UE4 by Denis Kozhar (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457222.jpg" />
 </div>
 
 
@@ -629,7 +684,7 @@ Profileschool | Графический планшет для ретушера (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457211.jpg" />
 </div>
 
 
@@ -640,60 +695,6 @@ Profileschool | Графический планшет для ретушера (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE870A335A172BA90ED355FED4A234C12E393120
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550458   (456919) от 22.09.2012
-
-Андрей Росяев | Blender уроки (видеомонтаж) [2012] PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456919.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеоуроки представляют собой вводный курс по работе с трекингом, всего за 1 час видеоуроков вы научитесь использовать в видео любые 3d элементы.
-Все материалы используемые в уроках, прилагаются.
-Критику, пожелания, вопросы оставляйте лучше в комментариях на ютубе.Жанр: 3dПродолжительность: 1:07:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC125A069DD365992CB8C7D35ECC25834059BF1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408441   (455577) от 12.09.2020
-
-CG Cookie | Создание карт нормалей для игр в Blender 2.7x / Normal Map Modeling for Games in Blender 2.7x (2017) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_455577.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы должны моделировать для качества или производительности? Ответ - это баланс того и другого! Использование карт нормалей - это метод текстурирования, который позволяет нам подделывать детали с высоким разрешением на низкополигональной сетке. В этом курсе изучите методы моделирования, которые необходимы для выпекания высококачественных нормалей.Производство: CG CookieЖанр: 3D моделированиеПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 00:51:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE0DA2187925AD0E6B11C264FABD0B01E47631F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

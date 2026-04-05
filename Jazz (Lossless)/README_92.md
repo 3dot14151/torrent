@@ -6,7 +6,7 @@ Chick Webb & Ella Fitzgerald - The Quintessence: New York City (1929-1939) 1995,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744199.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Sunday Morning Snooze: Relaxing Jazz (2020) [FLAC|Lossless|WEB-DL|tracks] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_744130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744130.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Tom Harrell - Paradise (2001) BMG Bluebird [FLAC|Lossless|tracks + .cue] <Post-B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743844.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Lou Donaldson - Four Classic Albums (1957 - 1961) 2CD, 2017, Avid Jazz [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743841.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Greta Matassa - I Wanna Be Loved (2009) Resonance Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743839.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Anita O'Day - The Complete Anita O'Day Verve / Clef Sessions (1952 - 1962) 9CD, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743768.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Melanie De Biasio - Lilies (2017) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743475.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Al Di Meola - Orange And Blue (1994) [FLAC|Lossless]<Jazz, Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742884.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Roy Eldridge - Three Classic Albums Plus (1954 - 1956) 2011, 2CD, Avid Jazz [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742743.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Franklin Kiermyer & Pharoah Sanders - Solomon's Daughter (1994) Evidence [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742740.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Buddy De Franco - Sweet And Lovely (1956) Remaster, 2012, Universal [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742513.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Ron Carter / Cedar Walton Duo - Heart & Soul (1981) Remaster, 2015, Solid Record
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742512.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Azar Lawrence - Mystic Journey (2010) Furthermore [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742493.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Bud Freeman - 1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742412.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Chet Baker - Stella By Starlight (1964) 1989, West Wind [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742411.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Hank Mobley, Billy Root, Curtis Fuller, Lee Morgan - Monday Night At Birdland (1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742406.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Dinah Washington - Blue Gardenia (1955 - 1961) 1995, Emarcy [FLAC|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742358.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Ziggy Marley - Ziggy Marley (2016) [FLAC|Lossless|image + .cue] <Blues, Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742310.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Tommy Smith Sextet - Evolution (2003) [APE|Lossless|image + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742182.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Rova Saxophone Quartet - In Transverse Time (2018) Les Disques Victo [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741375.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Gene Krupa & His Orchestra - Let Me Off Uptown (1949) 2000, Trama [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741242.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Carmen McRae - Black Magic "Live" (1979 - 1981) 1992, Jazz Hour [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741241.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Benny Goodman - Stompin' At The Savoy (1935 - 1938) 1989, Jazz Hour [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741240.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ John Coltrane - Jazz Classics (1959, 1960) 2006, Flashback [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741239.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Carmen McRae - You're Lookin' At Me (1983) 1986, King Record [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741238.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Count Basie - Basie Boogie (1959) 1989, Jazz Hour [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741237.jpg" />
 </div>
 
 

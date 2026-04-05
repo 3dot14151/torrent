@@ -1,3 +1,32 @@
+###  Публикация: 1199361   (800415) от 17.01.2018
+
+VA - Hed Kandi - The Mix: Summer (2009) [FLAC|Lossless|tracks] <Progressive House, House, Electro, Deep House, Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Basement Jaxx - Raindrops
+  02. Freemasons Feat. Sophie Ellis-Bextor - Heartbreak (Make Me A Dancer)
+  03. Booty Luv - Say It (Warren Clarke Vocal Mix)
+  04. Chicane - Poppiholla(   Читать дальше...   )Жанр: Progressive House, House, Electro, Deep House, DiscoПродолжительность: 03:51:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A11742E6A185B59CD3828D906495381D13B3967B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199186   (800413) от 17.01.2018
 
 VA - Hed Kandi - Beach House (2009) [FLAC|Lossless|tracks] <House, Deep House, Disco>
@@ -6,7 +35,7 @@ VA - Hed Kandi - Beach House (2009) [FLAC|Lossless|tracks] <House, Deep House, D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800413.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - Hed Kandi - Twisted Disco (2007) [FLAC|Lossless|tracks] <House, Disco, Hard
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800411.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Hed Kandi - Nu Disco (2010) [FLAC|Lossless|tracks] <House,Vocal House,Disco
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800408.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Simone Gatto - Heaven Inside Your Frequencies Part 1 & 2 (2017) Out-Er, Pregnant
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800363.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Paul Kalkbrenner - Parts of Life (2018) [FLAC|Lossless|tracks + .cue] <Electroni
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799776.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Qrion - I Hope It Lasts Forever (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, Deep 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799091.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Pet Shop Boys - Undertow (2017) Single [FLAC|Lossless|tracks + .cue] <House, Tec
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798796.jpg" />
 </div>
 
 
@@ -208,7 +237,7 @@ Kritical Audio - Krupp EP (2006) Chillosophy Music [FLAC|Lossless|WEB-DL|tracks]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798777.jpg" />
 </div>
 
 
@@ -236,7 +265,7 @@ Kritical Audio - Katacomb (2011) Detroit Underground [FLAC|Lossless|WEB-DL|track
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798774.jpg" />
 </div>
 
 
@@ -265,7 +294,7 @@ Jody Wisternoff - Nightwhisper (2020) Extended Edition [FLAC|Lossless|WEB-DL|tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797873.jpg" />
 </div>
 
 
@@ -294,7 +323,7 @@ Lisa Shaw - Cherry (2005) [FLAC|Lossless|tracks + .cue] <Deep House, Broken Beat
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797811.jpg" />
 </div>
 
 
@@ -323,7 +352,7 @@ VA - Miguel Migs – Nude Tempo One (2002) [FLAC|Lossless|tracks + .cue] <Deep H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797801.jpg" />
 </div>
 
 
@@ -352,7 +381,7 @@ VA - Vip Room Saint-Tropez Famous Club - 20th Anniversary (2009)( mixed by Jean-
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797530.jpg" />
 </div>
 
 
@@ -381,7 +410,7 @@ VA - Back To The Future, Vol. 6 (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797499.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ VA - SPECTRO-017 (2020) Specimen Records [FLAC|Lossless|WEB-DL|tracks] <Electro>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797277.jpg" />
 </div>
 
 
@@ -439,7 +468,7 @@ VA - Bare Essentials Vol. 2 (2003) [FLAC|Lossless|tracks + .cue] <Deep House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797205.jpg" />
 </div>
 
 
@@ -468,7 +497,7 @@ Aquanote - The Pearl (2002) [FLAC|Lossless|tracks + .cue] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797201.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ Forteba - For Some Time Past (2008) [FLAC|Lossless|image + .cue] <Deep House, Te
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797050.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ Forteba - Stereoform (2012) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797031.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ Sieren - Transients of Light (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, A
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797022.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ VA - Club House - Selected Works Vol.01 (2008) [FLAC|Lossless|tracks] <House, El
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797012.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ VA - Sun:Sets 2018 (Selected by Chicane) (2018) [FLAC|Lossless|WEB-DL|tracks] <P
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796913.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ Spacekraft - Большое космическое путешествие (2016)
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796825.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ Primal Code - Konstrukt 008 (2018) Konstrukt [FLAC|Lossless|WEB-DL|tracks] <Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796427.jpg" />
 </div>
 
 
@@ -700,7 +729,7 @@ VA - Hed Kandi 2018 (2017) [FLAC|Lossless|tracks] <Electro House, Euro House, Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796319.jpg" />
 </div>
 
 
@@ -714,35 +743,6 @@ VA - Hed Kandi 2018 (2017) [FLAC|Lossless|tracks] <Electro House, Euro House, Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AFC00FBC65128A2FA5DEA640C6EC7B1B9FF5B5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385791   (795801) от 27.05.2020
-
-The KLF - Коллекция (1989 - 2010) [FLAC|Lossless|image + .cue] <Deep House, Ambient, Electronic>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795801.jpg" />
-</div>
-
-
-###  Подробнее
-
-КЕЙ ЭЛ ЭФ (KLF, сокращенно от Kopyright Liberation Front), английская панк-группа. Была образована в 1987 в Ливерпуле. В ее состав входили: вокалист, гитарист, клавишник и перкуссионист Билл «Кинг Бой Ди» Драммонд (Bill «King Boy D» Drummond) (р. 29 апреля 1953, Баттеруорт, Южная Африка) и вокалист, бас-гитарист и ударник Джимми «Рокмэн Рок» Коти (Jimmy «Rockman (   Читать дальше...   )01. Disaster Fund Collection (12' Mix)
-02. 3 A.M. Eternal
-03. Kylie Said Trance
-04. What Time Is Love? (Instrumental Acid Mix)(   Читать дальше...   )Жанр: Electronic, Ambient, Deep HouseПродолжительность: 17:58:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9682F302DA9751B194BB93642222AC5B7D7558DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

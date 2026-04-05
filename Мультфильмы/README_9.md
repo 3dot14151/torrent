@@ -1,3 +1,133 @@
+###  Публикация: 1841077   (1047716) от 09.12.2025
+
+Южный Парк / South Park (2023) UHD WEB-DLRip [AV1/2160p] [4K, SDR, 10bit] (сезон 26, серии 1-6 из 6) HDrezka
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие разворачивается вокруг приключений четырех школьников. Эрик Картман — грубый, неопрятный и постоянно сквернословящий хулиган, известный садистскими и расистскими замашками. Кайл Брофловски — религиозный мальчик, часто сталкивающийся с нападками одноклассников из-за своей ортодоксальной семьи. Стэн Марш — добросердечный пессимист, который безумно влюблён (   Читать дальше...   )Производство: США, MTV Films, Comedy Central, Paramount+Жанр: для взрослых, комедияРежиссер: Трей Паркер, Мэтт СтоунАктеры: Трей Паркер, Мэтт Стоун, Мона Маршалл, Эйприл Стюарт, Айзек Хейз, Эдриан Бирд, Элиза Шнайдер, Дженнифер Хауэлл, Джесси Томас, Мэри Кэй БергманПеревод: Многоголосый профессиональный (HDrezka 18+)Язык озвучки: РусскийСубтитры: Русскиe (forced)Продолжительность: ~00:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BDD4E8149EE6F436A40C90CF0B5FB9C32FFC892
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841061   (1047713) от 09.12.2025
+
+Берсерк / Kenpuu Denki Beruseruku / Berserk (1997-1998) BDRip [AV1/2160p] [4K, SDR, 10-bit] (сезон 1, серии 1-25 из 25) MC Entertainment [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Через предательство и кровь к власти пришел новый король. Его демоны-подручные чинят несправедливости до тех пор, пока в город однажды ночью не приходит тяжело вооруженный воин. Весь покрытый оружием, броней и шрамами он называет себя Чёрным Мечником. Размеры его меча могут сравниться только с его ненавистью к королю и его демонам.Производство: Япония, Польша / OLM, VAPЖанр: аниме, мультфильм, фэнтези, боевик, драмаРежиссер: Наохито ТакахасиАктеры: Нобутоси Канна, Унсё Исидзука, Юко Миямура, Акира Исида, Томохиро Нисимура, Тосиюки Морикава, Акико Ядзима, Масуо Амада, Ясуюки Касэ, Хироюки ЁкооПеревод: Многоголосый профессиональный (MC Entertainment)Язык озвучки: Русский, ЯпонскийСубтитры: русскиеПродолжительность: ~00:24:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF2908C23D8750F43DD8700EACFC60388D6B46DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840720   (1047456) от 07.12.2025
+
+Моб Психо 100 / Mobu Saiko Hyaku / Mob Psycho 100 (2019) BDRip [AV1/2160p] [4K, SDR, 10-bit] (сезон 2, серии 1-13 из 13) Force Media [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сигэо Кагэяма по прозвищу «Моб» – школьник, которому тяжело выражать свои чувства. Ещё он могущественный экстрасенс. Моб хочет жить обычной жизнью и подавляет свои сверхъестественные силы, но когда уровень накопленного стресса переваливает за 100%, с ним происходит нечто ужасное. Его окружают экстрасенсы-самозванцы, злые духи, таинственные организации. Что решит (   Читать дальше...   )Производство: Япония / BonesЖанр: аниме, мультфильм, боевик, комедия, фантастикаРежиссер: Юдзуру Татикава, Такэфуми Андзаи, Кацуя СигэхараАктеры: Сэцуо Ито, Такахиро Сакурай, Акио Оцука, Мию Ирино, Ёсицугу Мацуока, Ёсимаса Хосоя, Рюносукэ Ватануки, Сэйитиро Ямасита, Кохэй Амасаки, Даики ХаманоПеревод: Многоголосый профессиональный (Force Media)Язык озвучки: Русский, ЯпонскийСубтитры: русские (forced, full)Продолжительность: ~00:24:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8882965DA8F3BD6C95AB9EB34C9C8214B2EC7CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840721   (1047455) от 07.12.2025
+
+Моб Психо 100 / Mobu Saiko Hyaku / Mob Psycho 100 (2022) BDRip [AV1/2160p] [4K, SDR, 10-bit] (сезон 3, серии 1-12 из 12) Force Media [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047455.jpg" />
+</div>
+
+
+###  Подробнее
+
+Моб вместе с наставником всё так же продолжают ловить злых духов и различного рода нечисть. В этот раз им предстоит встретиться с куда более опасными противниками. Не стоит забывать и о клубе по улучшению физического здоровья, в котором состоит Моб и который получит ещё больше экранного времени.Производство: Япония / BonesЖанр: аниме, мультфильм, боевик, комедия, фантастикаРежиссер: Юдзуру Татикава, Такэфуми Андзаи, Кацуя СигэхараАктеры: Сэцуо Ито, Такахиро Сакурай, Акио Оцука, Мию Ирино, Ёсицугу Мацуока, Ёсимаса Хосоя, Рюносукэ Ватануки, Сэйитиро Ямасита, Кохэй Амасаки, Даики ХаманоПеревод: Дублированный (Force Media)Язык озвучки: Русский, ЯпонскийСубтитры: русские (forced, full)Продолжительность: ~00:24:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41FD02779D1BE4B2A8F1953DAE12DAB2FE443545
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840499   (1047431) от 05.12.2025
+
+Побег из будущего / Boonie Bears: Future Reborn (2025) WEBRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047431.jpg" />
+</div>
+
+
+###  Подробнее
+
+Озорные братья-медведи Бриар и Брамбл перенесутся в далекое будущее — в мир, где человечество оказалось на грани исчезновения. И, кажется, в этом замешан их старый приятель Вик. Отважным братьям и их друзьям предстоит раскрыть правду, предотвратить катастрофу и найти путь домой.Производство: Китай / Fantawild AnimationЖанр: мультфильм, фантастика, приключенияРежиссер: Линь ЮнчанАктеры: Чжан Вэй, Чжан Бинцзюнь, Тань Сяо, Лю СыциПеревод: Дублированный (Acoustic Alchemy)Язык озвучки: Русский, английскийСубтитры: ОтсутствуютПродолжительность: 01:46:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A7B6919394BE5F9C38F91A201CD25ECAD924AFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1840434   (1047391) от 06.12.2025
 
 Грэвити Фоллс / Gravity Falls (2012-2016) WEB-DLRip [H.265/1080p] (Сезон 1-2, серии 40 из 40)  Кириллица, Сыендук
@@ -6,7 +136,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047391.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047257.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047140.jpg" />
 </div>
 
 
@@ -85,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047072.jpg" />
 </div>
 
 
@@ -111,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046964.jpg" />
 </div>
 
 
@@ -137,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046888.jpg" />
 </div>
 
 
@@ -163,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046887.jpg" />
 </div>
 
 
@@ -189,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046688.jpg" />
 </div>
 
 
@@ -215,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046547.jpg" />
 </div>
 
 
@@ -241,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046546.jpg" />
 </div>
 
 
@@ -267,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046545.jpg" />
 </div>
 
 
@@ -293,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046544.jpg" />
 </div>
 
 
@@ -319,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046543.jpg" />
 </div>
 
 
@@ -345,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046536.jpg" />
 </div>
 
 
@@ -371,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046525.jpg" />
 </div>
 
 
@@ -397,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046490.jpg" />
 </div>
 
 
@@ -423,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046485.jpg" />
 </div>
 
 
@@ -449,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046423.jpg" />
 </div>
 
 
@@ -475,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046412.jpg" />
 </div>
 
 
@@ -501,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046408.jpg" />
 </div>
 
 
@@ -527,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046403.jpg" />
 </div>
 
 
@@ -538,136 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4167E0F9B519778603C759FF589AEB49C4F0FBA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601606   (1046393) от 01.01.2023
-
-Путешествие Муравья (1983) DVDRip [H.265/2160p] [hand made Upscale AI]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046393.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основу фильма положена сказка В. Бианки «Как муравьишка домой спешил». В нем рассказывается о злоключениях хвастливого муравьишки, унесенного ветром в лес, и о том, как гусеница, кузнечик, водомер и майский жук помогли ему до захода солнца попасть домой.Производство: СССР, СоюзмультфильмЖанр: Короткометражный, комедия, рисованная анимация, семейныйРежиссер: Эдуард НазаровАктеры: Эдуард НазаровСубтитры: отсутствуютПродолжительность: 00:09:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB75A0557EAAFE4AA537CBBF8F9A1D109ED21EE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601608   (1046391) от 01.01.2023
-
-Про Сидорова Вову (1985) DVDRip [H.265/2160p] [hand made Upscale AI]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046391.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основу мультфильма положено сатирическое стихотворение Э. Успенского, высмеивающее родителей, которые в своей слепой любви доходят до абсурда и тем самым калечат ребенка, воспитывая его неприспособленным к нормальной трудовой жизни, службе в армии.Производство: СССР, СоюзМультфильмЖанр: мультфильм, комедия, короткометражкаРежиссер: Эдуард НазаровАктеры: Сергей ЮрскийСубтитры: отсутствуютПродолжительность: 00:09:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CA141A3F4E0BA395C208D99DDC96870FE9559F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601849   (1046327) от 02.01.2023
-
-Одинокие бурундуки / Chip n Dale – The Lone Chipmunks (1954) DVDRip [H.265/2160p] [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046327.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Одинокие бурундуки» — американский короткометражный анимационный фильм 1954 года, снятый Джеком Кинни и спродюсированный Уолтом Диснеем. В короткометражном фильме Чип и Дейл находятся на Диком Западе, пытаясь поймать Черного Пита за вознаграждение в размере 10 000 долларов.Производство: США, Walt Disney ProductionsЖанр: мультфильм, короткометражка, семейный, вестернРежиссер: Джек КинниАктеры: Билли Блэтчер, Десси Флинн, Джеймс МакДональдПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 00:06:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B61C47DB013D37F12892B3729F074A703A17713
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601746   (1046250) от 03.01.2023
-
-Царство против разбойников (2022) WEBRip [H.264]
-
->>Мультфильмы
->>Отечественные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юный Царевич отказывается платить ежегодную дань разбойникам и, вопреки желанию царя и воеводы, нанимает на службу двух странствующих актеров, выдающих себя за богатырей, которые вместе с ним превращают оборону деревни в фарс, проигрывают сражение, а потом, действительно взявшись за дело, исправляют ситуацию и побеждают своих врагов.Производство: Россия / КиноФирмаЖанр: Мультфильм, комедия, приключенияРежиссер: Марина Лескова-ГакиАктеры: Прохор Чеховской, Элиза Мартиросова, Лариса Брохман, Диомид Виноградов, Михаил Хрусталёв, Ирина Киреева, Валерий Сторожик, Антон Эльдаров, Александр ГаврилинСубтитры: отсутствуютПродолжительность: 01:06:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1668FB5216FC7E8B5A2A354D20C1077AA0159D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477972   (1046237) от 03.01.2023
-
-Маша и медведь (2020-2022) WEB-DL [H.264/1080p] (сезон 5, серии 1-26 из 26)
-
->>Мультфильмы
->>Отечественные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маша - невероятно активная девочка, которая никогда не сидит на месте и считает, что весь мир создан для неё одной. Машина индивидуальность не знает границ, поэтому урок труда легко оборачивается строительством парусного корабля, а набор художника - в разукрашивание всего леса.Производство: Россия / Студия "Анимаккорд"Жанр: Детский, комедия, семейныйРежиссер: Олег Кузовков, Олег Ужинов, Денис ЧервяцовСубтитры: ОтсутствуютПродолжительность: ~00:08:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C40F3AE9844F9B8C2D2B5C2D7E5878A1920D1BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

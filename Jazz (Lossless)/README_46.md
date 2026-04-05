@@ -6,7 +6,7 @@ Mel Torme - Comin' Home Baby! (1962) Remaster, 1988, Atlantic [FLAC|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880296.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ The Frank Wess - Quartet (1960) 2004, Original Jazz Classics [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880294.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Steve Gut - Mr. C.T. (1995) Remaster, 2016, Solid Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880290.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Tete Montoliu & Jordi Sabates - Vampyria (1974) 2007, Nuevos Medios [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880281.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Bim Bam Baby - Who Am I Gonna Love Tonight (1999) [FLAC|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880275.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ McCoy Tyner Quartet - New York Reunion (1991) Chesky Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880264.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Elisabeth Melander - Reflections Of A Voice (2017) [FLAC|Lossless|WEB-DL|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880263.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Bert Kaempfert - Let's Swing (1995) [FLAC|Lossless|tracks + .cue] <Jazz-Pop, Eas
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880250.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Electro Deluxe - Circle (2016) [FLAC|Lossless|tracks + .cue] <Jazz-Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880247.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Gabor Szabo - Gypsy '66 (1965) Remaster, 2005, Universal [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880243.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Dave Weckl - Master Plan (1990) GRP Records [FLAC|Lossless|tracks + .cue] <Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880240.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Kenny G - I'm in the Mood for Love: The Most Romantic Melodies Of All Time (2006
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879976.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Brian Simpson - Out Of A Dream (2015) [FLAC|Lossless|WEB-DL|tracks]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879420.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Miles Davis - Blue Moods (1956-1984) 2001, Sony Music[FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879401.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Milt Jackson - Three Classic Albums (1958) 2CD, 2011, Real Gone [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878997.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Afro Cuban All Stars - A Toda Cuba Le Gusta (1999) [FLAC|Lossless|image + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878525.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Don Cherry - Relativity Suite (1973) Trio Records [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878298.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Don Cherry Quintets - Copenhagen 1963 & Hilversum 1966 (2010) FreeFactory [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878293.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Yuji Ohno with Friends - Boss Piano (2012) VAP Inc.[FLAC|Lossless|image+.cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877671.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Harry Allen - A Night at Birdland, Vol. 2 (1995) Nagel–Heyer Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876979.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Al Jarreau - Accentuate The Positive (2004) [FLAC|Lossless|image + .cue] <Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876891.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Thad Jones & Mel Lewis - Quartet (1977) 1989, A&M Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876745.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Denny Zeitlin - Zeitgeist (1967) Remaster, 2015, Sony Music [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876744.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Art Pepper - Modern Art, Vol.2 (1956, 1957) 1988, Blue Note [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876743.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Art Pepper - The Art Of Pepper, Vol.3 (1957) 1988, Blue Note [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876742.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Art Pepper - The Return Of Art Pepper, Vol. 1 (1956, 1957) 1988, Blue Note [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876739.jpg" />
 </div>
 
 

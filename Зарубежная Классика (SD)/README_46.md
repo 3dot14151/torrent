@@ -1,3 +1,56 @@
+###  Публикация: 1025017   (690401) от 22.06.2016
+
+Большой куш для маленькой леди / A Big Hand for the Little Lady (1966) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наивная парочка на пути в Калифорнию — хотят купить там ферму. Они случайно заезжают в городок, где проходит игра в покер между местными богачами. Ни и муж не может устоять — вступает в игру и ставит на кон все семейные деньги. Даже не смотря на то что он плохо играет в покер! И надо-же такому случиться, что в самый разгар игры, с ним случается сердечный приступ… (   Читать дальше...   )Производство: США / Eden Productions Inc.Жанр: ВестернРежиссер: Филдер КукАктеры: Генри Фонда, Джоэнн Вудворд, Джейсон Робардс, Пол Форд, Чарльз Бикфорд, Бёрджесс Мередит, Кевин МакКарти, Роберт Миддлтон, Джон Кволен, Жан-Мишель МишноПеревод: Многоголосый закадровый (ТНТ)Субтитры: ОтсутствуютПродолжительность: 01:35:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0282AEE7D27B4B89E2E2B04F1C95849560475413
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533065   (690365) от 04.03.2022
+
+Склока / La zizanie (1978) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герой Луи Де Фюнеса владеет фабрикой по производству оборудования для контроля за загрязнениями окружающей среды, которая сама же ее и загрязняет. Его жена Бернадетт обожает выращивать цветы.
+Когда муж решает расширить свою фабрику за счет собственных владений, в том числе и цветников жены, Бернадетт начинает агитационную кампанию против него.Производство: Франция / Les Films Christian Fechner,Simar FilmsЖанр: КомедияРежиссер: Клод ЗидиАктеры: Луи де Фюнес, Анни Жирардо, Морис Риш, Жан-Жак Моро, Женевьев Фонтанель, Жак Франсуа, Жорж Стаке, Марио Давид, Даниэль Буланже, Таня ЛоперПеревод: Многоголосый профессиональныйСубтитры: ФранцузскиеПродолжительность: 01:36:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19CE4087903D2E9763FB005E0776267B8FCB5F13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 504971   (689739) от 05.06.2012
 
 Под небом Прованса / Sous le ciel de Provence (1956) DVDRip [VO]
@@ -6,7 +59,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689739.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689171.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688967.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688577.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688572.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688518.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688362.jpg" />
 </div>
 
 
@@ -188,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685949.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685677.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_685142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685142.jpg" />
 </div>
 
 
@@ -268,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684569.jpg" />
 </div>
 
 
@@ -294,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_684052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684052.jpg" />
 </div>
 
 
@@ -320,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_683412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683412.jpg" />
 </div>
 
 
@@ -346,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_682192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682192.jpg" />
 </div>
 
 
@@ -372,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681951.jpg" />
 </div>
 
 
@@ -398,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681932.jpg" />
 </div>
 
 
@@ -425,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681895.jpg" />
 </div>
 
 
@@ -451,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681841.jpg" />
 </div>
 
 
@@ -477,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681498.jpg" />
 </div>
 
 
@@ -504,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_681104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681104.jpg" />
 </div>
 
 
@@ -531,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680983.jpg" />
 </div>
 
 
@@ -557,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680562.jpg" />
 </div>
 
 
@@ -583,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680510.jpg" />
 </div>
 
 
@@ -609,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_680064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680064.jpg" />
 </div>
 
 
@@ -620,59 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E32FB7F805BABFD4515B9E89ECF1F89C5C7BCF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026687   (679996) от 27.06.2016
-
-Идеальная пятница / Perfect Friday (1970) HDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скучающий помощник заместителя управляющего банком задумал простое, но надежное ограбление на 200 тысяч фунтов стерлингов. Он находит себе помощников: безпринципную девицу и избалованного ленивого пэра. Для выполнения хитроумного плана осталось лишь дождаться идеальной пятницыПроизводство: ВеликобританияЖанр: Комедия, криминалРежиссер: Питер ХоллАктеры: Урсула Андресс, Стэнли Бэйкер, Дэвид Уорнер, Пейшнс Коллиер, Т.П. МакКенна, Дэвид Уоллер, Джоан Бенэм, Джулиан Орчард, Триша Мортимер, Энн Тирард ...Перевод: Профессиональный двухголосыйСубтитры: ОтсутствуютПродолжительность: 01:34:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A290806EBBEC131B4E0F20495E99D92803D0A695
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 795507   (679583) от 17.06.2014
-
-Вор / Thief (1981) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фрэнк — эксперт по вскрытию сейфов, профессионал высшей пробы, и работы для него всегда хватает. Но он уже побывал за решеткой, и возвращаться туда не собирается. Нужен всего один, но верный взлом.
-И тут дразнящая мечта о будущем заставляет его потерять осторожность: поддавшись искушению, матерый волк-одиночка соглашается поработать на крупного мафиози! Капкан захлопнулся, (   Читать дальше...   )Производство: США / Mann/Caan ProductionsЖанр: Боевик, Триллер, Драма, КриминалРежиссер: Майкл Манн / Michael MannАктеры: Джеймс Каан, Тьюзди Уэлд, Уилли Нельсон, Джеймс Белуши, Роберт Проски, Том Сигнорелли, Деннис Фарина, Ник Никеас, В.Р. Браун, Норм ТобинПеревод: Профессиональный (Двухголосый, закадровый) + Авторский (Одноголосый) А.Гаврилов + Авторский (Одноголосый) А.Михалев + Оригинальная звуковая дорожкаПродолжительность: 02:04:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32E439F249E5D06DA5A3D6F27352AD196FD6DEFA
 ```
 
 https://mybot314.ru/tekegram_catalog/

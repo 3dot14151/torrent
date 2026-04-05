@@ -1,3 +1,55 @@
+###  Публикация: 551557   (168263) от 12.12.2020
+
+«Эгмонт Россия Лтд.» | Маша и медведь. Раскраска (2010) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Рабочие тетради, прописи и разукрашки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168263.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для детей дошкольного и младшего школьного возраста предлагается развивающая раскраска "Маша и Медведь". Каждый ребенок сможет раскрасить ее героев так, как он захочет. Эта раскраска поможет малышу поставить руку, развить фантазию и образное мышление. Раскрашивая черно-белые картинки, ребенок научится передавать цветовую гамму с помощью карандашей, красок (   Читать дальше...   )Жанр: РаскраскаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94547FDC295945A0710D116424221FEBF097A104
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345153   (168136) от 13.12.2019
+
+Е.Ю. Вечерина | Классная энциклопедия для мальчиков. Отличные советы, как быть лучшим во всем (2012) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Энциклопедия для мальчиков 10–14 лет расскажет им об этикете, поможет справиться самостоятельно с бытовыми проблемами, научит ухаживать за собой, оказывать первую помощь в походе и расскажет о многом интересном. В целом эта информация полезна с практической точки зрения и способствует гармоничному развитию личности подростка.Жанр: Детская энциклопедия, познавательная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D705C4A5618E518768D40B628BC80BFA9F377B06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1345137   (168093) от 13.12.2019
 
 Анна Быкова | Как подружить детей с эмоциями. Советы «ленивой мамы» (2018) [EPUB]
@@ -6,7 +58,7 @@
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168093.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168081.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168077.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168058.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167998.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167987.jpg" />
 </div>
 
 
@@ -169,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167914.jpg" />
 </div>
 
 
@@ -195,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167876.jpg" />
 </div>
 
 
@@ -221,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167852.jpg" />
 </div>
 
 
@@ -247,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167824.jpg" />
 </div>
 
 
@@ -273,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167594.jpg" />
 </div>
 
 
@@ -299,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167573.jpg" />
 </div>
 
 
@@ -326,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167556.jpg" />
 </div>
 
 
@@ -352,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167543.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167466.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167421.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167364.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167336.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167330.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167322.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167321.jpg" />
 </div>
 
 
@@ -561,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167318.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167305.jpg" />
 </div>
 
 
@@ -613,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167292.jpg" />
 </div>
 
 
@@ -624,59 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC9B2D3FE6A997CAE1643D5F813894D80A52A8AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 350440   (167290) от 13.12.2020
-
-Валентина Волина | Игры с буквами и словами на уроках и дома (1996) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Настольные игры и Поделки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167290.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для тех, кто хочет стать умным и находчивым, узнать интересное и разгадать трудное, - лучшие игры из коллекции Валентины Волиной. Играя в эти игры - один или с товарищем, с гостями на дне рождения или одноклассниками в школе, - вы всегда сможете проявить знания, волю, сообразительность и получить истинное удовольствие от своих маленьких побед.
-Для школьников, учителей (   Читать дальше...   )Жанр: Воспитание и развитие детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EB7DE36FDFB8A0D7029D876F5BC4ECFFDA43FF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 271050   (167280) от 13.12.2020
-
-А.Н. Куликов | Задачи ребусы головоломки стран мира (1997) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Настольные игры и Поделки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167280.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге представлены занимательные задачи и головоломки, пришедшие к нам из Древней Греции, Индии, Китая, Египта, Англии, Швеции... Она написана в форме увлекательного путешествия по разным странам. Решая задачи, ребусы и головоломки можно научиться логически рассуждать и нестандартно мыслить. Книга предназначена для учащихся средней школы, но может быть интересна (   Читать дальше...   )Жанр: Образование, развитиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F40A01A6885F6871E528E4A823AE0087ABBA8689
 ```
 
 https://mybot314.ru/tekegram_catalog/

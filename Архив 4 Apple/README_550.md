@@ -6,7 +6,7 @@ Aiseesoft Mac FoneLab for iOS 10.3.72 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224879.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SketchUp Pro 2021.0 v21.0.338 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224864.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Topaz Video AI for Mac 3.3.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224823.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Things 3 v.3.17.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224817.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Alfred PowerPack 5.1.2  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224690.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Movavi Video Converter Premium 2020 20.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224676.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Movavi Video Editor 15 Business 15.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224650.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Sublime Text 4.0 Build 4152 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224611.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Permute 3 v3.5.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224539.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Soulver 3 v3.4.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224529.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Hype 4 Pro v4.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224515.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Nisus Writer Pro 3.1 CR2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224507.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ iNotepad Pro 5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224499.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Keep It 1.8.21 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224490.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Battery Health 3 v1.0.24 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224464.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Wondershare Video Converter Ultimate 10.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224461.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Downie 4 v4.1.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224454.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Yoink 3.5.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224442.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ SILKYPIX Developer Studio Pro 10E v10.0.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224433.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Nova 3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224416.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Things 3 v3.13.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224361.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Easy Data Transform 1.10.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224259.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Wondershare Filmora Х v10.1.1.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224237.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Viper FTP 5.4 (build 54066) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224219.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Marked 2 v2.5.35 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224211.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Find Any File (FAF) 2.3.2 b11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_224201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_224201.jpg" />
 </div>
 
 

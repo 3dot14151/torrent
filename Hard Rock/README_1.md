@@ -1,3 +1,32 @@
+###  Публикация: 1452175   (1027925) от 05.03.2021
+
+Def Leppard - Deep Cuts (2021) EP [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027925.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Satellite (Remastered 2018) [4:28]
+ 2. Lady Strange (Remastered 2018) [4:39]
+ 3. Day After Day [4:37]
+ 4. Let Me Be The One [3:32]Жанр: Hard RockПродолжительность: 00:17:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55A14B79EC341B33CC64170A36E0FAF007FE8877
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451938   (1027666) от 06.03.2021
 
 Noora Louhimo Experience - Eternal Wheel Of Time And Space (2021) [MP3|320 Kbps] <Hard Rock, Blues>
@@ -6,7 +35,7 @@ Noora Louhimo Experience - Eternal Wheel Of Time And Space (2021) [MP3|320 Kbps]
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027666.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Laos - We Want It (1990) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027384.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Orion the Hunter - Orion the Hunter (1984) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027221.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Fortune - Fortune (1985) Remastered, 2004, Gypsy Rock [MP3|320 Kbps] <AOR, Melod
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027082.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Sunstorm - Afterlife (2021) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026738.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Saxon - Inspirations (2021) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025441.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Adrian Smith, Ritchie Kotzen - Smith-Kotzen (2021) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024408.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Def Leppard - All Timers (2021) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023114.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Def Leppard - Leppard on the Loose (2021) EP [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021546.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Doogie White - As yet Untitled - Then There Was This (2021) 2xCD, Bonus CD [MP3|
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018599.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ VA - The Mastermix Collection – Rock (2021) [MP3|320 Kbps] <DJ Sets, Hard Rock
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017245.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Stone Whiskey - Rebels of the Sun (2021) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017056.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ The Steel - The Steel II (2021) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016294.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Jakob Samuel - CoExist (2021) [MP3|320 Kbps] <Melodic Hard Rock, AOR>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015149.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Proud - Second Act (2021) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014370.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Ocean Dark - Hope & Chaos (2021) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011138.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Black Sabbath - Sabotage (1975) 4CD, Super Deluxe Edition, 2021, Rhino-Warner Br
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011111.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Styx - Crash Of The Crown (2021) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010653.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Crowne - Kings In The North (2021) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010621.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Platens - Of Poetry And Silent Mastery (2021) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005940.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Zeno - 5 альбомов Collection 6 CD (1986-2006) [MP3|320 Kbps] <Melodic Ha
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003497.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Doogie White & La Paz - 2 альбома Collection (2012-2013) [MP3|320 Kbps] <
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002760.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ Cruzh - Tropical Thunder (2021) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002535.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ Cornerstone - 5 альбомов Collection 6 CD (2000-2007) [MP3|320 Kbps] <Mel
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002184.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ Bad City - Welcome To The Wasteland (2010) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000510.jpg" />
 </div>
 
 
@@ -721,35 +750,6 @@ Bad City - Welcome To The Wasteland (2010) [MP3|320 кб/с]<Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E9E31AA9E193D1209F9FF9873A64CFD968F687E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598062   (1000150) от 03.01.2013
-
-Uriah Heep - Greatest Hits (2012) [MP3|320 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hard RockПродолжительность: 02:30:18
-
-CD1-01:15:02
-CD2-01:15:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A40CA892BEC9D3AEF3ACC0C248DF2E0568708CE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

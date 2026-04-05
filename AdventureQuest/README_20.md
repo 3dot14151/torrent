@@ -1,3 +1,81 @@
+###  Публикация: 1384831   (800780) от 22.05.2020
+
+Observation (2019) [Ru/Multi] (1.16) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800780.jpg" />
+</div>
+
+
+###  Подробнее
+
+Observation - это научно-фантастический триллер, в котором вам предстоит взять на себя роль системы искусственного интеллекта S.A.M. на космической станции и раскрыть тайну событий, произошедших с доктором Эммой Фишер и её командой. Играя за S.A.M., вы будете использовать системы управления станцией, камеры и инструменты, чтобы помочь Эмме понять, что происходит (   Читать дальше...   )Тип издания: LicenseРазработчик: No CodeЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A167B0B92793B6F172A5231EEC988021294630A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506257   (800772) от 30.10.2021
+
+Indicted (2021) [Multi] (1.0) License DARKSiDERS
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800772.jpg" />
+</div>
+
+
+###  Подробнее
+
+Истязаемый муками совести, в поисках искупления Артур, следователь полиции, решает взяться за свое последнее дело: дети загадочным образом исчезают, и все подсказки ведут в бывший приют RIS, где в прошлом произошла ужасная бойня, унесшая жизни многих невинных детей. Артуру предстоит исследовать это место, столкнувшись со сверхъестественными и очень могущественными (   Читать дальше...   )Тип издания: LicenseРазработчик: 616 GAMESЖанр: Приключения, Хоррор, Экшн, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Английский, Португальский (Бразилия)Язык интерфейса: Английский, Португальский (Бразилия)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1CD804FA7928AFC619A1008B33695AF46059AD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506325   (800721) от 30.10.2021
+
+Horror Story: Hallowseed (2021) [Ru/Multi] (1.0.0a) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Horror Story: Hallowseed – одиночная игра с глубоким сюжетом в жанре психологического хоррора, действие которой разворачивается в вымышленном месте под названием Хэллоусид. Вид от первого лица позволит вам насладиться детально прорисованным миром, полным всевозможных головоломок. Управляющий окружением искусственный интеллект реагирует на выбор и действия игрока, (   Читать дальше...   )Тип издания: LicenseРазработчик: Jeff WinnerЖанр: Приключение, Survival, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DB520FE51F5B14A414550380858F97701BFF3CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1303706   (800691) от 22.05.2020
 
 Observation (2019) [Ru/Multi] (1.16) Repack Other s
@@ -6,7 +84,7 @@ Observation (2019) [Ru/Multi] (1.16) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800691.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Dreamfall Chapters (2014) [Multi] (5.4.1.1) License PROPHET [Complete]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800160.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Nancy Drew: The Silent Spy / Нэнси Дрю: Безмолвный шпион 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800021.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Grotto (2021) [En] (1.1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799871.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ The Radio Station (2021) [Multi] (1.01) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799825.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ I Am Fish (2021) [Ru/Multi] (1.1.1) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_799811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799811.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Memoranda (2017) [En] (1.1.0.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798980.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Infernium (2018) [Ru/Multi] (1.0upd1) Repack SpaceX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798947.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Rugrats Go Wild (2003) [Ru/En] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798616.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Growbot (2021) [Ru/Multi] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798599.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Conway: Disappearance at Dahlia View (2021) [Multi] (7639057) License FAiRLIGHT
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798549.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ FATAL FRAME / PROJECT ZERO: Maiden of Black Water (2021) [Multi] (1.0.0.1.761591
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798513.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Happy Game (2021) [Ru/Multi] (1.0.3) License GOG [Collector's Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798508.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ In Silence (2021) [Ru/Multi] (1.01) License DARKSiDERS [Winterland Update]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798226.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Gazmatera 2 America's Least Wanted (2021) [Ru/En] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798212.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Escape Simulator (2021) [Multi] (1.0.18250r) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798208.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Escape from the Village (2021) [Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798064.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Bloodshore (2021) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_798034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798034.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ InnerSpace (2018) [Ru/Multi] (1.0.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797853.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Tormentum: Dark Sorrow (2015) [Ru/Multi] (1.4.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797108.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Dead Synchronicity: Tomorrow Comes Today (2015) [Ru/Multi] (1.0.10) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797088.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Midnight: Submersion - Nightmare Horror Story (2021) [En] (2020.3.16.302446) Lic
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796737.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Wailing Heights (2016) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796611.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Wailing Heights (2016) [En] (1.0) License PLAZA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F98A67EC3B3BCD2C965AF851E1157B506ADE338D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004347   (795816) от 28.04.2016
-
-1979 Revolution: Black Friday (2016) [En] (1.0.8) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795816.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1978 году в процветавшем и относительно демократичном в культурном плане Иране случилась так называемая Исламская революция, в результате которой шах Мохаммед Реза Пехлеви был свергнут, монархия упразднена, а к власти пришло мусульманское духовенство.Тип издания: LicenseРазработчик: iNK StoriesЖанр: Action, Adventure, 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:972A6BB649772C23F7871149B10A36FB04D15843
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416228   (795372) от 11.11.2021
-
-Neverending Nightmares (2014) [Ru/Multi] (3.3.22469) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Neverending Nightmares — это психологический хоррор, созданный на основе настоящей психологической проблемы разработчика, и её лечении. Томас просыпается в ужасе после кошмара и обнаруживает, что сон продолжается. Он начинает спускаться всё глубже в кошмар. От ужасных призраков нужно прятаться, от своих страхов — убегать. Ему придётся разобраться, какие из встреченных (   Читать дальше...   )Тип издания: LicenseРазработчик: Infinitap GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:962991AB2C679BB17DFF45F641FF61AA325DAA11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509022   (795305) от 11.11.2021
-
-Among Trees (2021) [En] (0.5.27) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Among Trees - это небольшая яркая игра-песочница с элементами выживания, действие которой разворачивается в красочном, изобилующем жизнью лесу. Исследуйте завораживающий мир, где жизнь играет яркими красками. От густых лесов до тёмных пещер. Ваш маленький деревянный домик расположен посреди густого леса, и его можно расширять за счёт новых комнат. Открывайте дополнительные (   Читать дальше...   )Тип издания: LicenseРазработчик: FJRD InteractiveЖанр: Песочница, ПриключенияЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AFA88311C890F80F0F7C3CAD2E0E6C89595700E
 ```
 
 https://mybot314.ru/tekegram_catalog/

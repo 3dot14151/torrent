@@ -1,32 +1,3 @@
-###  Публикация: 1634912   (198090) от 23.05.2023
-
-Bee Gees - E•S•P (1987)  [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Pop, Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. E-S-P
-02. You Win Again
-03. Live Or Die (Hold Me Like A Child)
-04. Giving Up The Ghost(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2AD1240B120E83B0E37B1F82754EF1F572375C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1634710   (198089) от 21.05.2023
 
 Pink Floyd - The Dark Side of the Moon (1973) 50th Anniversary 2023 remaster [DTS-ES Discrete 6.1 CD-DA|44.1/24|image+.cue|BD-Audio] <Psychedelic Rock, Prog Rock>
@@ -35,7 +6,7 @@ Pink Floyd - The Dark Side of the Moon (1973) 50th Anniversary 2023 remaster [DT
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198089.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ James Last - The James Last Album (1971) [FLAC 2.0 24/192|image+.cue (Vinyl-Rip)
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_198016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_198016.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Mike Oldfield - Tubular Bells (50th Anniversary Edition) (2023) [FLAC 24/44.1|Lo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197985.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Chris Rea - Легенды зарубежного рока (2000) [FLAC 2.0|48/2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197851.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197473.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Rammstein - Sehnsucht (1997) Anniversary Edition, 2023, Remastered, Universal Mu
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197349.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Rockets - Five Coloured Numbered Albums (2018-2021) Limited Edition, Numbered, R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196226.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Hooverphonic - No More Sweet Music (2005) [DTS-CD from DVD-Video] <lounge>
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_196172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196172.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195864.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Metallica - 72 Seasons (2023) [Vinyl Rip 24Bit/192kHz] (2LP, EU)  <Thrash Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194449.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Steely Dan - Can't Buy A Thrill (1972) SACD, Reissue, Remastered, 2023, Analogue
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194016.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ Dee Snider - Studio Albums & Projects (11 releases) (1992-2021) hand made [resto
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193512.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Garmarna - Studio Albums (7 releases) (1993-2020) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193427.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Amorphis - Дискография (26 releases) (1991-2025) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193411.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ VA - Keep On Playing/Играй еще (1982) [FLAC 2.0|192/24|image +.cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193257.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ Tiamat - Studio Albums (10 releases) (1990 - 2012) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193218.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ Electric Light Orchestra - Eldorado (1974) (2022) [DSD 128|image+.cue (Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193169.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ Avenger - Prayers of Steel (1985) [FLAC|24/96|tracks|Vinyl-Rip] <Power, Speed Me
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193142.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ Trini Lopez - Trini Lopez At PJ's (1963) Recorded Live! [FLAC 1.0|24/192|image +
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193139.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ Jerry Lee Lewis - The Collection: 20 Rock'n'Roll Greats (1988) [FLAC 2.0|96/24|i
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193138.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ Ring Of Fire - Studio Albums (5 releases) (2001-2022) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193101.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ A-ha - Дискография (1985-2022) hand made [restored, declipped] [FLAC|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_193069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193069.jpg" />
 </div>
 
 
@@ -672,7 +643,7 @@ Tankard - Studio Albums (19 releases) (1986 - 2022) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_192877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192877.jpg" />
 </div>
 
 
@@ -701,7 +672,7 @@ Russ Conway - Family   Favourites (1959) with accompaniment directed by Geoff Lo
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192771.jpg" />
 </div>
 
 
@@ -730,7 +701,7 @@ Lingua Mortis Orchestra - LMO (2013) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symph
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192745.jpg" />
 </div>
 
 
@@ -744,6 +715,36 @@ Lingua Mortis Orchestra - LMO (2013) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symph
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12C3A8194433F5153129A7C321C087E5142BB8CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531077   (192610) от 03.09.2023
+
+Hellyeah - Studio Albums (6 releases) (2007 - 2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hellyeah — американская грув-метал-группа из Далласа, штат Техас, представляющая собой «супергруппу». Коллектив был основан в 2006 году вокалистом Чедом Греем, гитаристом Грэгом Триббеттом из Mudvayne, гитаристом Томом Максвеллом из Nothingface, басистом Бобом Зилла из Damageplan и ударником Винни Полом из Pantera, Damageplan и Rebel Meets Rebel.
+В 2014 году группа (   Читать дальше...   )2007 - Hellyeah
+2010 - Stampede
+2012 - Band Of Brothers
+2014 - Blood For Blood(   Читать дальше...   )Жанр: Groove MetalПродолжительность: 04:10:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D56803B2EA75FD2EB4705BE79094586D72417EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

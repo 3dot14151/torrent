@@ -6,7 +6,7 @@ Rishal Hurbans | Grokking AI Algorithms. How AI solves complex problems. 2nd Edi
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062776.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Edward Tetz | Cisco Networking All-in-One For Dummies. 2nd Edition (2026) [PDF] 
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062775.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ John L. Hennessy, David A. Patterson, Christos Kozyrakis | Computer Architecture
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062774.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Stack Overflow | HTML5 для профессионалов. Руководств
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062773.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Erik Österlund | The Z Garbage Collector. In JDK 25 (2026) [PDF, EPUB] [EN]
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062770.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Michael Scott, Jonathan Aldrich | Programming Language Pragmatics. 5th Edition (
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062769.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Yung-Hsiang Lu, George K. Thiruvathukal | Intermediate C Programming. 2nd Editio
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062768.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062764.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Adrienne Braganza | "Looks Good To Me". Constructive code reviews (2025) [PDF, E
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062763.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Michael Soltys | An Introduction to the Analysis of Algorithms (2026) [PDF] [EN]
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062391.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062231.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061646.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Dawid Borycki | Modern App Deployment with Azure Kubernetes (Developer Reference
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061495.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061494.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061493.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061491.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Paul Deitel, Harvey Deitel | C How to Program. With an introduction to C++. 8 Th
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061490.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ John Paul Mueller, Luca Massaron | Algorithms For Dummies (For Dummies. 2nd Edit
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061489.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061488.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Hunter J. K. Knight | .NET MAUI Fundamentals. Your First Step into Cross-Platfor
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061486.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Stack Overflow | Blender. Самый подробный самоучитель. 
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061485.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061478.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061304.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Frances Buontempo | Introducing C++: The Easy Way to Start Learning Modern C++ (
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061184.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Carl Rippon | Learn React with TypeScript. A beginner’s guide to building real
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060909.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Hernando Abella | 120 Advanced JavaScript Interview Questions (2024) [PDF, EPUB]
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1060908.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060908.jpg" />
 </div>
 
 

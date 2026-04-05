@@ -1,3 +1,30 @@
+###  Публикация: 1428731   (179431) от 03.12.2020
+
+Джонатан Оксье | Питер Нимбл и волшебные глаза (2020) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179431.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фантастическая история о благородстве и волшебстве, невероятный мир, где переплелись древняя магия и наука, – все это роман «Питер Нимбл и волшебные глаза»!
+Эта история началась на берегах дальних морей в маленьком портовом городке. Море хранит много тайн и несет их к своим берегам – так в городок приплыла корзина, в которой лежал слепой младенец. Мальчик не знал (   Читать дальше...   )Жанр: Детская литература. СказкаПродолжительность: 11:19:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37F56B45C656F12CBE05C313ED51BCA139B2678B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103409   (178992) от 03.12.2020
 
 Эдуард Успенский и др | Радионяня: Смешные рассказы (2002) [WavPack]
@@ -6,7 +33,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178992.jpg" />
 </div>
 
 
@@ -35,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178985.jpg" />
 </div>
 
 
@@ -61,7 +88,7 @@ Volker Rosin - Alle Kinder tanzen (2012) [MP3|320 kbps] <Детские танц
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178897.jpg" />
 </div>
 
 
@@ -90,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178144.jpg" />
 </div>
 
 
@@ -116,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_178055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178055.jpg" />
 </div>
 
 
@@ -145,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177977.jpg" />
 </div>
 
 
@@ -172,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_177916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177916.jpg" />
 </div>
 
 
@@ -201,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_175655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_175655.jpg" />
 </div>
 
 
@@ -227,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175643.jpg" />
 </div>
 
 
@@ -253,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175181.jpg" />
 </div>
 
 
@@ -279,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174613.jpg" />
 </div>
 
 
@@ -305,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174546.jpg" />
 </div>
 
 
@@ -331,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174537.jpg" />
 </div>
 
 
@@ -357,7 +384,7 @@ VA - Русская народная колыбельная песня (2001) [M
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174100.jpg" />
 </div>
 
 
@@ -386,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174079.jpg" />
 </div>
 
 
@@ -413,7 +440,7 @@ VA - Новогодний утренник. Сборник детских пес
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174062.jpg" />
 </div>
 
 
@@ -442,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173219.jpg" />
 </div>
 
 
@@ -468,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172749.jpg" />
 </div>
 
 
@@ -497,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172730.jpg" />
 </div>
 
 
@@ -526,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172140.jpg" />
 </div>
 
 
@@ -554,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172115.jpg" />
 </div>
 
 
@@ -580,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171947.jpg" />
 </div>
 
 
@@ -608,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171944.jpg" />
 </div>
 
 
@@ -636,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171825.jpg" />
 </div>
 
 
@@ -663,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171807.jpg" />
 </div>
 
 
@@ -674,33 +701,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D372E2ECD8DA968998F64F8EB13133713BCD993
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 372966   (171799) от 21.10.2023
-
-Александр Куприн | Русские классики детям. Рассказы о животных (2010) [MP3, Иван Литвинов]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: «Русские классики детям»
-Александр Иванович Куприн очень любил животных и посвятил им многие свои произведения. В его доме жили семнадцать собак, несколько кошек, козленок и обезьянка Марья Ивановна. Все звери из его рассказов - и дворовый пес Барбос, и комнатная Жулька, и кошка Ю-ю, и белый пудель, и слон -существовали на самом деле. Трогательные и добрые (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Студия «АРДИС»Продолжительность: 04:34:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:394AE19CA99A1E651E40AF1A36A9F7751F6ED4FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

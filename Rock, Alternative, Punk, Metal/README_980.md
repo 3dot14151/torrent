@@ -1,3 +1,32 @@
+###  Публикация: 1588817   (191147) от 06.11.2022
+
+Praetorian - Furialis (2022) [FLAC|Lossless|WEB-DL|tracks] <Punch Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apostat [00:03:40]
+02. Ecran de fumée [00:04:09]
+03. L'ennemi [00:03:56]
+04. Hypnose [00:04:48](   Читать дальше...   )Жанр: Punch MetalПродолжительность: 00:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E026E1091F00A908B96C4B61CC54E4C9C6AA01D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1588793   (191144) от 06.11.2022
 
 Beneath the Embers - Condemned (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metalcore, Thrash Metal>
@@ -6,7 +35,7 @@ Beneath the Embers - Condemned (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191144.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Cathartic - Through The Abysmal Gates Of Subconscious (2022) [FLAC|Lossless|WEB-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191141.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Drallion - New Machine (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalco
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191139.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ All-Black Day - 3 Albums (2022) [MP3|320 Kbps] <Alternative, Heavy Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191137.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191136.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ Master - Master (1990) [WavPack|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191128.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ C.O.P - Enemy (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191127.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ Dragonhammer - Second Life (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191119.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191117.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ Ploho - When the Soul Sleeps (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191111.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ Brian McDonald - Wind It Up (2000) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191110.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ Jimi Jamison - Rock Hard (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191108.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ Gathering Of Kings - Enigmatic (2022) [FLAC|Lossless|image + .cue] <Melodic Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191101.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ Perfect Plan - Brace For Impact (2022) Japanese Edition [FLAC|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191098.jpg" />
 </div>
 
 
@@ -409,7 +438,7 @@ Headway - Headway (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191095.jpg" />
 </div>
 
 
@@ -439,7 +468,7 @@ Lari Basilio - Your Love (2022) [FLAC|Lossless|image + .cue] <Instrumental Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191078.jpg" />
 </div>
 
 
@@ -468,7 +497,7 @@ Vanir - Sagas (2022) [FLAC|Lossless|WEB-DL|tracks] <Viking, Folk Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191076.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191062.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ Stilgar - Живым Или Мёртвым (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191008.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ Max Shin - 2 Albums (2023) [MP3|320 Kbps] <Punk, Alternative Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191006.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_191004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191004.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ Jag Panzer - Mechanized Warfare (2001) [FLAC|Lossless|image + .cue] <Heavy, Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191003.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191000.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_190999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_190999.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190985.jpg" />
 </div>
 
 
@@ -715,35 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3603B0CD6799C394ACCFE49253995A56F56813A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658556   (190982) от 09.09.2023
-
-Ravanna - 2 Albums (2022-2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Уходя уходи [00:03:31]
-02. Всё ок [00:03:11]
-03. Лес [00:03:52]
-04. Отпусти меня [00:03:01](   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:16:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D844A8714331DF99123B99F2E23E7ED7F227ADD
 ```
 
 https://mybot314.ru/tekegram_catalog/

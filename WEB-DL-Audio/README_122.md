@@ -6,7 +6,7 @@ Juke Joint, The Everblades - Can’t Slow Me (2024) [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40875.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ The Smoothies - SoulFingers (Soul Velvet Nights) (2024) [FLAC 24/44.1|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40871.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ The Smile - Cutouts (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative & 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40867.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ The Suspenders - Funky Love Affair (Starry Night Fever) (2024) [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40811.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ E-Rotic - The Hits (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Eurodance, Euro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40805.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Crossbone Skully - High On You (feat. Nikki Sixx) (2024) (EP) [FLAC 24/96|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40791.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ The Chickens - Fused Minds (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40789.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Mario Le Mole - Evolution (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40788.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Inertia - Estranged Icon (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industria
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40787.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ The Suspenders - Funkology (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Funk>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40786.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ The Smoothies - Echoes of Velvet: A Journey Through (2024) [FLAC 24/48|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40785.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ The Smoothies - Soulful Moments (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <So
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40783.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Summer Jazz Paradise, Instrumental Jazz Music Ambient and Swing Background - Sum
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40781.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ The Smoothies - Velvet Vibes (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soul>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40776.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ John Lennon - Mind Games (Meditation Mixes) (2024) [FLAC 24/96|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40772.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Ezra Collective - Dance, No One's Watching (2024) [FLAC 24/96|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40767.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Blacksmith Tales - Pathway to Hamlet’s Mill (2024) [FLAC 24/96|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40766.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ The Offspring - Supercharged (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Punk-Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40684.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Duran Duran - Danse Macabre (2023) Deluxe Edition, 2024, BMG [FLAC 24/96|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40682.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40392.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ October London - October Nights (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <So
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40389.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Marina Viotti / Fred Chappuis / Vincent Flückiger - Melankhôlia: In Darkness T
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40382.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Andrea Bignasca - Stranger (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40370.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Gonzalo Araya - Floripa´s Mood (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40369.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Courtnay & The Unholy Reverie - Mercy (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40368.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Ilario Ferrari Trio - Above the Clouds (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40367.jpg" />
 </div>
 
 

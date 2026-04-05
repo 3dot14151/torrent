@@ -1,3 +1,30 @@
+###  Публикация: 542191   (498898) от 02.09.2012
+
+Тило Саррацин | Германия. Самоликвидация [2012] [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498898.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основываясь на обширной статистике и собственных расчетах и прогнозах, Тило Саррацин, известный политик и бывший сенатор Берлина, убедительно показывает, что мусульманское сообщество в Германии не стремится к интеграции в немецкую жизнь. Уровень образования и участие в трудовой деятельности иммигрантов остается гораздо ниже уровня коренного населения, что при традиционно высокой рождаемости у мусульман представляет реальную угрозу для страны.
+ Автор высказывается за жесткую миграционную политику и показывает пути выхода из кризиса.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7561B85EB298789A97C0615F2B118B32E5D72C37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1317744   (498388) от 03.08.2019
 
 Дэвид Гранн | Убийцы цветочной луны (2019) [FB2]
@@ -6,7 +33,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498388.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497748.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497741.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497553.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497269.jpg" />
 </div>
 
 
@@ -139,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496596.jpg" />
 </div>
 
 
@@ -165,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496294.jpg" />
 </div>
 
 
@@ -191,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495833.jpg" />
 </div>
 
 
@@ -217,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495183.jpg" />
 </div>
 
 
@@ -243,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_495164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495164.jpg" />
 </div>
 
 
@@ -271,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494597.jpg" />
 </div>
 
 
@@ -297,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493302.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493302.jpg" />
 </div>
 
 
@@ -324,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492516.jpg" />
 </div>
 
 
@@ -352,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492126.jpg" />
 </div>
 
 
@@ -378,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492089.jpg" />
 </div>
 
 
@@ -407,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492027.jpg" />
 </div>
 
 
@@ -433,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490112.jpg" />
 </div>
 
 
@@ -459,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490080.jpg" />
 </div>
 
 
@@ -488,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489031.jpg" />
 </div>
 
 
@@ -514,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488740.jpg" />
 </div>
 
 
@@ -543,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488190.jpg" />
 </div>
 
 
@@ -569,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488015.jpg" />
 </div>
 
 
@@ -595,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487328.jpg" />
 </div>
 
 
@@ -623,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487255.jpg" />
 </div>
 
 
@@ -651,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486086.jpg" />
 </div>
 
 
@@ -662,33 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AAAEEA636D8C494D6062455D58F17F8871D03ECE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405350   (485458) от 29.08.2020
-
-Поуп Брок | Шарлатан (2020) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485458.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1917 году Джон Р. Бринкли прибыл в крошечный городок Милфорд, штат Канзас. Здесь он открыл медицинскую практику и представил диковинный метод восстановления угасающей мужской силы – с использованием козлиных желез. Тысячи клиентов быстро превратили «доктора» в самого богатого и знаменитого хирурга Америки.
-Его слава привлекла внимание другого великого шарлатана (   Читать дальше...   )Жанр: Журналистские расследования, ПублицистикаПеревод: Елена ОсеневаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51CBF5C8EC69DF42306B06EB78CBCF979F440615
 ```
 
 https://mybot314.ru/tekegram_catalog/

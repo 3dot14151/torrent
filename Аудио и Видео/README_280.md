@@ -6,7 +6,7 @@ Secret Service - Aux Deux Magots (1987) [AAC|320 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29364.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Secret Service - The Lost Box (2012) [AAC|320 Kbps] <Electronic, Pop Rock, Hi NR
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29124.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Secret Service - When The Night Closes In (1985) [AAC|320 Kbps] <Electronic, Pop
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29118.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - The Best Of Italo-Disco Vol. 7 (1986) [AAC|320 Kbps] <Electronic, Pop, Ital
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28671.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Modern 80's - The Best Of Discopop (1998) [AAC|320 Kbps] <Electronic, Pop, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26659.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Modern 80's - The Best Of Discopop Vol.2 (1999) [AAC|320 Kbps] <Electronic,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26568.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Modern 80's - The Best Of Discopop Vol.3 (1999) [AAC|320 Kbps] <Electronic,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26458.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - 100 Hits Power Ballads (2016) [AAC|320 Kbps] <Classic Rock, Pop Rock, Vocal
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26277.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25986.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19084.jpg" />
 </div>
 
 

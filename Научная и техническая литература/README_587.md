@@ -1,136 +1,3 @@
-###  Публикация: 1687438   (125590) от 26.12.2023
-
-Ф.Н.X. Робинсон | Шумы и флуктуации в электронных схемах и цепях (1980) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125590.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены основные виды шумов в электронных устройствах (в частности, в входных каскадах линейных усилителей, генераторах и т. п.). Достижение малого уровня шума в этих устройствах — один из определяющих факторов получения хорошего амплитудного и временного разрешения в спектрометрии ионизирующих излучений и одна из важнейших проблем радиоэлектроники. Книга предназначена (   Читать дальше...   )Жанр: ЭлектроникаИздательство: АтомиздатФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1AC16091A6B8C86A85748D12EFD08D54C010FB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687928   (125519) от 27.12.2023
-
-Н.А. Калинина, Н.И. Костюкова | Основы программирования на языке C 2-е изд. (2016) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дается формальное изложение всех конструкций языка программирования C. Материал проиллюстрирован примерами и задачами. Все конструкции языка С, независимо от частоты использования, синтаксической и семантической сложности, описаны одинаково кратко, но исчерпывающе.Жанр: Компьютерная литератураИздательство: НОУ "Интуит"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DAC1BF262C7EF710897EA85078D5C9B3CBDE912
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687900   (125494) от 27.12.2023
-
-К.И. Зырянов, Н.П. Кисленко | Зырянов К.И., Кисленко Н.П. Программирование на C++ (v.3017) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125494.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассматриваются основы языка C++ и методы процедурного программирования на этом языке.
-Пособие соответствует программе дисциплины «Языки программирования», читаемой студентам, обучающимся по направлению подготовки «Информационные системы и технологии».
-Также оно будет полезным для всех студентов и специалистов, интересующихся современным программированием.Жанр: Компьютерная литератураИздательство: НГАСУ (Сибстрин)Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C49601CE405256E37A9CDE2A6D1C5E44D83DDD4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688281   (125384) от 28.12.2023
-
-Д.Р. Кувшинов, С.И. Осипов | Основы программирования. Язык C++ (2021) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125384.jpg" />
-</div>
-
-
-###  Подробнее
-
-На примере языка программирования C++17 вводятся основные концепции структурного программирования. Рассматривается широкий спектр тем: базовые конструкции C++, концепция неопределенного поведения, управление памятью, форматы представления чисел, концепция объекта, си-строки, конечные автоматы, простые структуры данных и алгоритмы сортировки, введение в вопросы организации (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Урал.ФУФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3A13788A716B08402992EAAED1905FE43F32828
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688421   (125275) от 29.12.2023
-
-Мария Серова | Учебник-самоучитель по графическому редактору Blender 3D. Моделирование и дизайн (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга предназначена для начинающих моделлеров и дизайнеров. Она открывает путь в профессию путем самостоятельного изучения самого современного графического редактора Blender 3D и интеграции его с программой Sweet Home 3D.
-В книгу вошли теоретические и практические материалы по трехмерному моделированию, основам физики и анимации в 3D-пространстве, развитию пространственного (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Солон-ПрессФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC1737566B5446E4B78CB9AE2B8FF9F0FCA46F9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 414582   (125267) от 29.12.2023
 
 А.А.Куликовский | Справочник по радиоэлектронике в трех томах [1967, 1968, 1970] [DJVU]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125267.jpg" />
 </div>
 
 
@@ -166,7 +33,7 @@ SAMSUNG | Собрание руководств по ремонту и обсл�
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125262.jpg" />
 </div>
 
 
@@ -192,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125246.jpg" />
 </div>
 
 
@@ -218,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125201.jpg" />
 </div>
 
 
@@ -244,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125104.jpg" />
 </div>
 
 
@@ -270,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125093.jpg" />
 </div>
 
 
@@ -296,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125071.jpg" />
 </div>
 
 
@@ -322,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124969.jpg" />
 </div>
 
 
@@ -348,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124920.jpg" />
 </div>
 
 
@@ -374,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124569.jpg" />
 </div>
 
 
@@ -400,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124545.jpg" />
 </div>
 
 
@@ -427,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124496.jpg" />
 </div>
 
 
@@ -454,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124403.jpg" />
 </div>
 
 
@@ -480,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124382.jpg" />
 </div>
 
 
@@ -507,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124374.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124374.jpg" />
 </div>
 
 
@@ -534,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124373.jpg" />
 </div>
 
 
@@ -561,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124351.jpg" />
 </div>
 
 
@@ -588,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124239.jpg" />
 </div>
 
 
@@ -614,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124216.jpg" />
 </div>
 
 
@@ -641,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124207.jpg" />
 </div>
 
 
@@ -667,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124202.jpg" />
 </div>
 
 
@@ -678,6 +545,136 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18BA168B4828C41DE2CAA0FA9664F703129AB054
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690365   (124084) от 06.01.2024
+
+В.И. Рейзлин | Язык С++ и программирование на нём (2021) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124084.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии изложены основы программирования на популярном языке высокого уровня C++. Отражены следующие темы: структура программы, типы данных, операции, операторы, функции, классы хранения и видимость переменных, указатели и работа с массивами, классы, основы объектно ориентированного программирования, списки, стеки, очереди, двоичные деревья, потоки ввода-вывода. (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Томский политехнический университетФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:083B840EC8152DE99B6A5DC5C59BDC98DD9650BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690238   (124073) от 06.01.2024
+
+В.Н.Цуканов, М.Я.Яковлев | Волоконно-оптическая техника. Практическое руководство 4-е изд., испр. и доп. (2019) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124073.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрена отечественная волоконно-оптическая компонентная база, предназначенная для жестких условий эксплуатации. Приведены основные технические характеристики волоконно-оптических компонентов и методы их измерения. Предложены методы контроля параметров безотказности с учетом принципиальных отличий волоконно-оптических компонентов от электронных. Даны практические (   Читать дальше...   )Жанр: ЭлектроникаИздательство: Инфра-инженерияФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16E9079EBE488272293FF76B5AABF1C7733EE318
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690261   (124057) от 06.01.2024
+
+В.В. Павлоградский, В.В. Пальчиковский | C++Builder Учебный курс (2014) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124057.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассматриваются вопросы разработки приложений для операционной системы Windows в среде программирования C++Builder. Рассмотрены особенности компонентного подхода к проектированию программ и визуальной технологии программирования. Большое внимание уделено практическому аспекту разработки приложений, дан обзор основных компонентов C++Builder, приведены примеры их использования (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Пермский НИПУФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B5FD219679374F353DC0BED84A142489BEB13B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690564   (123974) от 07.01.2024
+
+Андрей Харитонов, Екатерина Мартинович | Мифы и легенды гастроэнтерологии. Гастрит не болит и другие разоблачения (2023) [EPUB]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга развенчивает популярные заблуждения, связанные со здоровьем желудка и кишечника. Например, что суп улучшает пищеварение, нет яда страшнее чипсов, глютен -зло, а желчь необходимо гнать. Гастроэнтеролог, кандидат медицинских наук Андрей Харитонов знает, как мифы снижают качество жизни: приводят к запретам в еде, ненужным ритуалам с пищей, бесполезным обследованиям (   Читать дальше...   )Жанр: Здоровье, Популярно о медицинеИздательство: ИД Комсомольская правдаФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6489071AA5C4F5AF524C91A4567135EF61F95DF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690517   (123966) от 07.01.2024
+
+Т.И. Родионова | Технологии программирования (2018) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123966.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии рассматривается история развития языков программирования и технологий программирования. В работе приведены этапы жизненного цикла программного обеспечения и описание документации на программный продукт. Подробно изложены принципы объектно-ориентированного программирования. В учебном пособии приведено большое количество примеров для иллюстрации излагаемого (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: УлГТУФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8BA1EB5D12CF1F5F280884EF94B6546628D0555
 ```
 
 https://mybot314.ru/tekegram_catalog/

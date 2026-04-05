@@ -1,3 +1,29 @@
+###  Публикация: 771282   (847159) от 27.03.2014
+
+Леонид Кучма | Украина - не Россия (2003) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга президента Украины об Украине может открыть много нового даже тем, кто знает эту страну. Сделана попытка нарушить `заговор молчания` вокруг самых сложных и болезненных тем в отношениях двух народов, связанных `одной цепью, но и одной лавровой ветвью`. Автор делится своими взглядами на украинскую старину, на события XX века и последних лет, размышляет о том, (   Читать дальше...   )Издательство: ВремяФормат: PDFКачество: Хороший скан с OCR, интероглавление
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00EAFFC33C38200D10B39FF98656AC69EFF1C8BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002639   (847004) от 01.04.2016
 
 Александр Викторович Кожевников | По тонкому льду. О нравах в хоккее (2016) [FB2]
@@ -6,7 +32,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847004.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846847.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846530.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846523.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846393.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844867.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844711.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843118.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_843038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843038.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842884.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842808.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_842790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842790.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841964.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_841701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841701.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840090.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_840009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840009.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839451.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839198.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838062.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837575.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836775.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836701.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836560.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836176.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835888.jpg" />
 </div>
 
 
@@ -655,33 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:559721FF26E42116A312923A0063744EC2FBB8BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 786592   (835803) от 01.05.2020
-
-Александр Дугин | Конспирология. Наука о заговорах, секретных обществах и тайной войне (2005) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга известного философа, публициста, доктора политических наук и лидера Международного "Евразийского Движения" А.Г.Дугина рассказывает о разнообразных "теориях заговора", их социологических функциях, связях с архетипами традиций и религий, их месте в общем контексте современной политической мифологии.
-Конспирология описывается как особая экстравагантная (   Читать дальше...   )Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF1772D3D508F18726E6239E338B9A398B44F944
 ```
 
 https://mybot314.ru/tekegram_catalog/

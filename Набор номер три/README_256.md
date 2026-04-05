@@ -1,3 +1,160 @@
+###  Публикация: 1401792   (704870) от 12.08.2020
+
+Россия первой в мире зарегистрировала вакцину от коронавируса
+
+>>3
+>>18
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_704870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первой в мире зарегистрированной вакциной от коронавируса стал разработанный в России препарат под названием «Спутник V». Создатели сравнили появление вакцины с «космическим» прорывом в развитии науки.Препарат «Спутник V» разработан Федеральным научно-исследовательским центром эпидемиологии и микробиологии им. Гамалеи, сообщает ТАСС. Клинические испытания вакцина (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401984   (704862) от 12.08.2020
+
+CorelDRAW Graphics Suite 2020 22.1.1.523 Full / Lite RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Непревзойденные возможности CorelDRAW Graphics Suite 2019 в сочетании с вашими творческими способностями — прекрасная основа для проектов по созданию макетов, разработке веб-сайтов и редактированию фотографий. Пакет оснащен расширенной поддержкой Windows 10, мультидисплейным режимом просмотра и поддержкой мониторов 4K. Продукт позволяет дизайнерам самых разных уровней (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4414729E4619000F455BEC41216B7E2883ECE0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197914   (704861) от 12.08.2020
+
+Windscribe VPN: 50 ГБ ТРАФИКА В МЕСЯЦ ПОЖИЗНЕННО - БЕСПЛАТНО!
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_704861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windscribe VPN: 50 ГБ в месяц пожизненноДля участия в акции необходимо указать и подтвердить ваш адрес электронной почты.Для получения 50 ГБ в месяц выполните следующие действия: Перейдите на страницу https://rus.windscribe.com/.
+    Создайте новый бесплатный аккаунт, выбрав Есть Ваучер? и указав следующий Код Ваучера: BATKA420(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286884   (704689) от 06.03.2019
+
+Android 9 сделали доступным на десятках старых смартфонов
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_704689.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая версия операционной системы LineageOS делает Android 9 (Pie) доступным на устаревших смартфонах и планшетах, давно переставших получать официальные обновления прошивки. В список поддерживаемых устройств входят около 30 моделей, включая OnePlus One, Google Nexus 6 и несколько вариантов Samsung Galaxy S5 (вышли в 2014-м), Galaxy Tab S2 2016 года релиза, а также (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287087   (704685) от 06.03.2019
+
+mini10PE 19.3 [Ru] [x86/x64] (авторская раздача)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704685.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мини загрузочный диск на базе Microsoft Windows 10 Pro Version 1809 для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления, диагностики компьютера, восстановления файлов.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:784289FA50F80B8AA06EB85A3BC9A68CD7A36167
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287129   (704682) от 06.03.2019
+
+Выйти на митинг, чтобы выходить в интернет
+
+>>3
+>>21
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_704682.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 марта 2019 года на проспекте Сахарова в Москве состоится митинг против изоляции РунетаВласти Москвы согласовали митинг против законопроекта Клишаса-Боковой-Лугового «о суверенном Рунете», «пакета Яровой» и цензуры в интернете. Организаторы митинга — Либертарианская партия России и Общество защиты интернета. Митинг пройдёт 10 марта на проспекте Сахарова. Заявленное (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282271   (704679) от 06.03.2019
 
 Гадалка (2018) SATRip [H.264] (сезон 1, серии 1-16 из 16)
@@ -6,7 +163,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704679.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ Adobe Photoshop CC 2019 20.0.4.26077 RePack by KpoJIuK [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704677.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ Cossacks 3 / Казаки 3 (2016) [Ru/Multi] (2.1.4.90.5902/dlc) Repack R.G. М
 >>11
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704676.jpg" />
 </div>
 
 
@@ -84,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_704650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_704650.jpg" />
 </div>
 
 
@@ -110,7 +267,7 @@ Cities: Skylines (2015) [Ru/Multi] (1.14.0-f8/dlc) Repack Other s [Deluxe Editio
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704632.jpg" />
 </div>
 
 
@@ -136,7 +293,7 @@ Shadow Tactics: Blades of the Shogun (2016) [Ru/Multi] (2.2.11.f) License GOG
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704631.jpg" />
 </div>
 
 
@@ -162,7 +319,7 @@ Windows 7 SP1 IE11+ RUS-ENG x86-x64 -8in1- KMS-activation v3 (AIO)
 >>19
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704566.jpg" />
 </div>
 
 
@@ -190,7 +347,7 @@ Call of Juarez: Gunslinger (2013) [Ru/Multi] (1.0.3.0 / 2 DLC) Steam-Rip R.G. Or
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_704271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_704271.jpg" />
 </div>
 
 
@@ -216,7 +373,7 @@ Might & Magic: Heroes VI (2013) [Ru/Multi] (2.1.0 / 3 DLC) Repack R.G. Catalyst 
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704266.jpg" />
 </div>
 
 
@@ -242,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_704264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_704264.jpg" />
 </div>
 
 
@@ -268,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_704263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_704263.jpg" />
 </div>
 
 
@@ -294,7 +451,7 @@ Windows 10 PE (x86/x64) v.5.0.2 by Ratiborus [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704248.jpg" />
 </div>
 
 
@@ -320,7 +477,7 @@ Adobe Premiere Pro CC 2017.1 11.1.0.222 Portable by XpucT [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704241.jpg" />
 </div>
 
 
@@ -346,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704240.jpg" />
 </div>
 
 
@@ -372,7 +529,7 @@ The Elder Scrolls III: Morrowind (2002) [En] (1.6.18.20/dlc) License GOG [Game o
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704238.jpg" />
 </div>
 
 
@@ -398,7 +555,7 @@ Adobe Photoshop CC 2017.1.1 (18.1.1) [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704237.jpg" />
 </div>
 
 
@@ -424,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>19
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_704236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_704236.jpg" />
 </div>
 
 
@@ -450,7 +607,7 @@ Microsoft Windows 10 Professional VL x86-x64 1703 RS2 RU by OVGorskiy 05.2017 2D
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704235.jpg" />
 </div>
 
 
@@ -476,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_703978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_703978.jpg" />
 </div>
 
 
@@ -502,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_703971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_703971.jpg" />
 </div>
 
 
@@ -513,167 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220222   (703855) от 19.04.2018
-
-Первый инженерный образец российского микропроцессора МЦСТ R-2000
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_703855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сотрудник МЦСТ Максим Горшенин продолжает радовать нас информацией о новых разработках МЦСТ. Недавно он выложил фотографию инженерного образца нового микропроцессора МЦСТ R-2000.Это 8-ядерный микропроцессор с системой команд SPARC V9 и тактовой частотой 2 ГГц. Он выполнен по 28-нм техпроцессу и оснащен встроенным 2-канальным контроллером памяти типа DDR4-2400. Оценочное (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220329   (703847) от 19.04.2018
-
-Garmin: City Navigator Russia NTU 2019.10 - HERE [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703847.jpg" />
-</div>
-
-
-###  Подробнее
-
-Улицы меняются, а предприятия открываются и закрываются. Получайте самые современные данные карты на своем устройстве с этим единственным обновлением карты.
-Обновлены подробные уличные карты.
-Обновленные достопримечательности, такие как автозаправочные станции, парковочные гаражи, рестораны, гостиницы и места расположения банкоматов.
-Более быстрая и точная маршрутизация, (   Читать дальше...   )Тип издания: лицензияРелиз состоялся: апрель 2018Разработчик: Garmin / HereПоддерживаемая ОС: GarminЯзык интерфейса: русскийФормат: .IMG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3C3AAD5B0175728655928263D29FD3A0FCC3C4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 403696   (703843) от 19.04.2018
-
-[PS1] Sony PlayStation (Japan) [Redump от 02.10.2017]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703843.jpg" />
-</div>
-
-
-###  Подробнее
-
-СборникТип издания: ЛицензияЖанр: РазныеЯзык интерфейса: только Japan
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2A4B46514562C7999354691B15A4528F5B864D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026136   (703702) от 15.06.2016
-
-Создана "вечная" батарея, действующая по принципу песочных часов
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_703702.jpg" />
-</div>
-
-
-###  Подробнее
-
-В конструкции батарей, основанных на принципах перетекания жидкого электролита из одного резервуара в другой (liquid flow battery), обычно используются клапана и насосы, обеспечивающие движение электролита. Этот электролит, или электролиты двух разных типов, разделенные ионной мембраной, движутся сквозь камеру с электродами, на которых и создается электрический потенциал. (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026247   (703691) от 15.06.2016
-
-Очередное достижение: 3000 релизов от Vadimка!!!
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_703691.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередное достижение: 3000 релизов от Vadimка!!!Уважаемые одноклубники , рад сообщить Вам о возможности поздравить нашего товарища с 3000-м релизом!От всей души поздравляем Vadimка с этим достижением и выражаем огромную благодарность от имени всех одноклубников и администрации NNM-Club.me!Надеюсь, что вы все также присоединитесь к этим поздравлениям! (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 708485   (703596) от 05.06.2014
-
-Log Horizon / Лог Горизонт [2013, TV, 25 ep] HDTV 720p Raw+Rus
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_703596.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тридцать тысяч игроков из Японии и куда больше со всего мира внезапно оказались заперты в многопользовательской ролевой онлайновой игре «Легенда Древних». С одной стороны, геймеры перенеслись в новый мир физически, иллюзия реальности оказалась почти безупречной. С другой стороны, «попаданцы» сохранили прежние аватары и обретенные навыки, пользовательский интерфейс и систему прокачки, да и смерть в игре вела всего лишь к воскрешению в соборе ближайшего крупного города. Поняв, что великой цели нет, и цену за выход никто не называл, игроки стали сбиваться вместе – одни, чтобы жить и править по закону джунглей, другие – чтобы противостоять беспределу.
-
-Сироэ и Наоцугу, в миру студент и клерк, в игре - хитроумный маг и могучий воин, давно знали друг друга еще по легендарной гильдии «Безумное чаепитие». Увы, те времена ушли навсегда, но и в новой реальности можно встретить старых знакомых и просто хороших ребят, с которыми не будет скучно. А главное – в мире «Легенды» появилось коренное население, считающее пришельцев (   Читать дальше...   )Жанр: приключения, комедия, фэнтезиРежиссер: Исихира СиндзиПеревод: ZoolФормат: MKV |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B76BEF09DC1437F0AB505535A58485A4DD91FF14
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,81 +1,3 @@
-###  Публикация: 930632   (511585) от 26.08.2015
-
-Форсаж 7 / Furious Seven (2015) DVD5 [Theatrical cut]
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511585.jpg" />
-</div>
-
-
-###  Подробнее
-
-Они покорили Токио и Рио, Лос-Анджелес и Лондон. Но мир больше не играет по их правилам. Зной арабских пустынь, неприлично высокие небоскребы, миллионы долларов на колесах и очень, очень знаменитый злодей. Скорость не знает границ.Производство: США / Universal Pictures, Original Film, Media Rights Capital, China Film Co., One Race FilmsЖанр: Боевик, триллер, криминалРежиссер: Джеймс ВанАктеры: Вин Дизель, Пол Уокер, Джейсон Стэйтем, Мишель Родригес, Дуэйн Джонсон, Тайриз Гибсон, Лудакрис, Натали Эммануэль, Джордана Брюстер, Курт РасселПеревод: Дублированный (лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Английский, чешский, венгерский, польский, русский, болгарский, хорватский, эстонский, греческий, иврит, латышский, литовский, румынский, словенский, украинскийПродолжительность: 02:11:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FAB799FEE53C3852E1DF1A3E9B7A7C5D72C6F12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 231154   (510673) от 29.08.2010
-
-Центурион / Centurion (2009/2010) DVD5
-
->>След.
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие разворачивается в 117 году нашей эры. Главный герой — Квинтус Диас — единственный человек, уцелевший после налёта пиктов на пограничную римскую крепость. Вместе с легендарным Девятым легионом он отправляется на север, чтобы стереть с лица земли пиктов и уничтожить их предводителя, Горлакона.Производство: Жанр: Боевик, Триллер, Драма, Приключения, Военный, ИсторияРежиссер: Нил МаршаллАктеры: Майкл Фассбендер, Доминик Уэст, Ольга Куриленко, Ноэль Кларк, Дэвид Моррисси, Джей Джей ФилдПеревод: Профессиональный (дублированный)Продолжительность: 01:33:31
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 377150   (508257) от 19.08.2011
-
-Счастливы вместе / HappyThankYouMorePlease (2010) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508257.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сэм — молодой нью-йоркский писатель. Как часто бывает в жизни, великий роман ещё не написан, а в личной жизни полный провал. Но все меняется, когда Сэм случайно знакомится с бездомным чернокожим мальчиком, который прилипает к нему, как банный лист. С этого момента жизнь начинает течь быстрее.Производство: Paper Street Films, Tom Sawyer Entertainment, Back Lot Pictures / СШАЖанр: драма / комедияРежиссер: Джош РэднорАктеры: Джош Рэднор, Кейт Мара, Зои Казан, Пабло Шрайбер, Тони Хейл, Фэй Вульф, Мария Елена Рамирез, Малин Акерман, Майкл Альери, Джейкоб Аппельман и др.Перевод: Многоголосый (профессиональный)Язык субтитров: русскийПродолжительность: 01:34:29
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 377343   (508083) от 19.08.2011
 
 Цена измены / Derailed (2005) DVD9
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508083.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507861.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506519.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506348.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_506051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506051.jpg" />
 </div>
 
 
@@ -214,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505976.jpg" />
 </div>
 
 
@@ -240,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505315.jpg" />
 </div>
 
 
@@ -266,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503464.jpg" />
 </div>
 
 
@@ -292,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503343.jpg" />
 </div>
 
 
@@ -318,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503184.jpg" />
 </div>
 
 
@@ -344,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_503072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503072.jpg" />
 </div>
 
 
@@ -371,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502986.jpg" />
 </div>
 
 
@@ -397,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502974.jpg" />
 </div>
 
 
@@ -425,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_502454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502454.jpg" />
 </div>
 
 
@@ -451,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_501976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_501976.jpg" />
 </div>
 
 
@@ -477,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500258.jpg" />
 </div>
 
 
@@ -503,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499843.jpg" />
 </div>
 
 
@@ -529,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_499759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499759.jpg" />
 </div>
 
 
@@ -555,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498890.jpg" />
 </div>
 
 
@@ -581,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498712.jpg" />
 </div>
 
 
@@ -607,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498047.jpg" />
 </div>
 
 
@@ -633,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497254.jpg" />
 </div>
 
 
@@ -659,13 +581,92 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_497021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497021.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Картина о пришельцах, вынужденных жить в ужасных условиях на Земле. Согнанные в резервации, инопланетяне ищут поддержки у землян и находят её в лице одного из правительственных агентов.Жанр: фантастика, боевик, триллер, драмаРежиссер: Нил БломкампАктеры: Шарлто Копли, Джейсон Коуп, Натали Болтт, Сильвен Страйк, Элизабет Мкандави, Джон Саммер, Уильям Аллен Янг, Грег Мелвилл-Смит, Ник БлейкПеревод: ДублированныйСубтитры: Русские, УкраинскиеПродолжительность: 01:44:49
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 543037   (496973) от 04.09.2012
+
+Гавана, я люблю тебя / 7 dias en La Habana (2012) DVD5
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мастера мирового авторского кино сняли 7 маленьких увлекательных историй, действие которых происходит в Гаване.Производство: Франция, Испания, Full House, Morena Films S.L.Жанр: ДрамаРежиссер: Бенисио Дель Торо, Пабло Траперо, Элиа СулейманАктеры: Даниэль Брюль, Эмир Кустурица, Элиа Сулейман, Джош Хатчерсон, Владимир Крус, Мирта Ибарра, Хорхе Перугоррия, Мелвиз Санта Эстевес, Дэйзи Гранадос, Луис Альберто ГарсияПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: русскийПродолжительность: 02:03:33
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318371   (496404) от 05.08.2019
+
+Человек на Луне / First Man (2018) DVD9+DVD5
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Судьба любит смельчаков, а Нил Армстронг однозначно принадлежит к их числу. Весь мир знает его имя, но мало кому известно, какой ценой астронавту дался маленький шаг, ставший огромным скачком для всего человечества.Производство: США, Япония / Universal Pictures, DreamWorks SKG, Amblin EntertainmentЖанр: Драма, биография, историяРежиссер: Дэмьен ШазеллАктеры: Райан Гослинг, Клер Фой, Джейсон Кларк, Кайл Чандлер, Кори Столл, Патрик Фьюджит, Кристофер Эбботт, Киран Хайндс, Оливия Хэмилтон, Пабло ШрайберПеревод: Дублированный (лицензия)Субтитры: Русские, английские, польские, эстонские, латышские, литовскиеПродолжительность: 02:15:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0769C4DD10C55D9C0E52F756212D44AD547E09C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 381479   (494807) от 31.08.2011
+
+Пираты Карибского моря: На странных берегах / Pirates of the Caribbean: On Stranger Tides (2011) DVD9
+
+>>След.
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494807.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новой истории о поисках истины, предательстве, вечной молодости и смертельной опасности капитану Джеку Воробью предстоит столкнуться с женщиной из своего прошлого Анжеликой. До самого конца не будет понятно, связывает ли их настоящая любовь, или же Анжелика искусно притворяется, чтобы вместе с Джеком добраться до таинственного источника вечной молодости.
+Она силой (   Читать дальше...   )Производство: СШАЖанр: Фэнтези, Боевик, Комедия, ПриключенияРежиссер: Роб МаршаллАктеры: Джонни Депп, Пенелопа Крус, Джеффри Раш, Иэн МакШейн, Кевин МакНэлли, Стивен Грэм, Сэм Клафлин, Астрид Берже-Фрисби, Кит Ричардс, Ричард ГриффитсПеревод: ДублированныйСубтитры: РусскиеПродолжительность: 02:16:24
 
 ## Скачать торент
 ```bash

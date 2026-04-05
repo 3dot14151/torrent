@@ -1,3 +1,59 @@
+###  Публикация: 1161473   (465644) от 29.08.2017
+
+Ottmar Liebert - Slow (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Rain	4:47
+02.	Lalo Cura	5:59
+03.	Haiku4	0:23
+04.	Butterfly Dream	4:29(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E98A69919B84286094F909B5A0D4BBD57E054FF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1161394   (465639) от 29.08.2017
+
+Craig Pruess & Anuradha Paudwal - Sacred Chants Of Shakti (2012) [MP3|320 Kbps] <Meditative, Ambient, Chants>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465639.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shakti Prayer (25:23)
+02. Ripples Of Beauty (29:00)Жанр: Meditative, Ambient, ChantsПродолжительность: 00:54:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A94140A35F1076464024036E9690B830C148AB6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1161767   (465634) от 29.08.2017
 
 Alash - Achai (2017) [MP3|320 Kbps] <World, Ethnic, Folk>
@@ -6,7 +62,7 @@ Alash - Achai (2017) [MP3|320 Kbps] <World, Ethnic, Folk>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465634.jpg" />
 </div>
 
 
@@ -35,7 +91,7 @@ The Sound Of Love - 2 Albums (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambi
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465535.jpg" />
 </div>
 
 
@@ -64,7 +120,7 @@ Richard Clayderman - 16 Love Songs: Gold Collection (1991) [FLAC|Lossless|image 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465481.jpg" />
 </div>
 
 
@@ -93,7 +149,7 @@ VA - Новая рождественская сказка / Scrooged (2001 (1988
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464992.jpg" />
 </div>
 
 
@@ -122,7 +178,7 @@ Tyler Bates & VA - Atomic Blonde / Взрывная блондинка (Original
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464913.jpg" />
 </div>
 
 
@@ -151,7 +207,7 @@ Cristina Branco - Коллекция, 9 альбомов (1998-2011) [MP3|320 kb
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464673.jpg" />
 </div>
 
 
@@ -177,7 +233,7 @@ Benjamin Richter - The Grand Momentum (2015) [MP3|320 кб/с]<Piano, Instrument
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464606.jpg" />
 </div>
 
 
@@ -206,7 +262,7 @@ Benjamin Richter - The Grand Momentum (2015) [FLAC|Lossless]<Piano, Instrumental
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464462.jpg" />
 </div>
 
 
@@ -235,7 +291,7 @@ VA - 20 Золотых Уличных Мелодий (2000) [MP3|320 кб/с]<In
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464364.jpg" />
 </div>
 
 
@@ -270,7 +326,7 @@ Joel Nielsen - Black Mesa Source Soundtrack (2012) [MP3|320 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464362.jpg" />
 </div>
 
 
@@ -296,7 +352,7 @@ Patrick Watson - The 9th Life of Louis Drax / Девятая жизнь Луи �
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464044.jpg" />
 </div>
 
 
@@ -325,7 +381,7 @@ Oliver Scheffner - Ambient Dream Lounge (2016) [FLAC|Lossless|WEB-DL|tracks] <Ne
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_464024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464024.jpg" />
 </div>
 
 
@@ -354,7 +410,7 @@ Jules Calmer - Deserted Paradise (2017) [MP3|320 Kbps] <Ambient, New Age, Downte
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463649.jpg" />
 </div>
 
 
@@ -383,7 +439,7 @@ VA - Baby Driver / Малыш на драйве (Music from the Motion Picture) 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463225.jpg" />
 </div>
 
 
@@ -412,7 +468,7 @@ Peter Kater - Love (2015) [MP3|320 кб/с]<New Age, Piano>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462714.jpg" />
 </div>
 
 
@@ -441,7 +497,7 @@ Blackmore's Night - All Our Yesterdays (2015) [FLAC|image+.cue]<Folk Rock, Rock,
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462056.jpg" />
 </div>
 
 
@@ -470,7 +526,7 @@ Traces - The Rivers Of Belief (2002) [APE|Lossless|image + .cue] <New Age, Enigm
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461967.jpg" />
 </div>
 
 
@@ -499,7 +555,7 @@ Oliver Scheffner - Oasis of Dreams (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461823.jpg" />
 </div>
 
 
@@ -528,7 +584,7 @@ Michael Whalen - Kiss the Quiet (2018) [MP3|320 Kbps] <New Age, Piano, Instrumen
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461479.jpg" />
 </div>
 
 
@@ -557,7 +613,7 @@ Dario Marianelli - Everest (Original Motion Picture Soundtrack) (2015) [MP3|320 
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460057.jpg" />
 </div>
 
 
@@ -586,7 +642,7 @@ The Studio London Orchestra & Singers - Memory - 20 Love Themes (1985) [FLAC|Los
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459623.jpg" />
 </div>
 
 
@@ -615,7 +671,7 @@ Evgeny Grinko - Evgeny Grinko (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459168.jpg" />
 </div>
 
 
@@ -644,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458912.jpg" />
 </div>
 
 
@@ -673,7 +729,7 @@ Christopher Phillips - Piano Chill: Songs of the Eagles (2016) [FLAC|Lossless|WE
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458008.jpg" />
 </div>
 
 
@@ -687,64 +743,6 @@ Christopher Phillips - Piano Chill: Songs of the Eagles (2016) [FLAC|Lossless|WE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:905EEABC3110A3A5E51347826F11B0E144EEB1F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941995   (457968) от 29.09.2015
-
-Snatam Kaur - Light Of The Naam. Morning Chants (2014) [MP3|320 кб/с]<New Age, Vocal, Mantras>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waah Yantee - Creativity
-02. The Mul Mantra - Inner Truth
-03. Sat Siree Siree Akaal - Beyond Death
-04. Rakhay Rakhanahaar - Protection(   Читать дальше...   )Жанр: New Age, Vocal, MantrasПродолжительность: 01:12:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07B9E901DEE4F4C02E6FA0E31D014E0F1468F1B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568798   (457793) от 10.08.2022
-
-Tyler Bates - Sucker Punch / Запрещенный прием (Complete Motion Picture Score) (2011) [FLAC|Lossless|tracks] <Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1m1_Sweet Dreams (Are Made Of This)
-02. 1m2_Lennox House
-03. 1m3_Where Is My Mind Part I
-04. 2m1_Asleep(   Читать дальше...   )Жанр: ScoreПродолжительность: 1:21:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18F70E2FF6A90705B3D0CCB51C24F62B32898846
 ```
 
 https://mybot314.ru/tekegram_catalog/

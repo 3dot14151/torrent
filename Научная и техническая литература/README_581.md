@@ -1,133 +1,3 @@
-###  Публикация: 593096   (135164) от 23.12.2012
-
-Л.Б.Окунь | Азы физики. Очень краткий путеводитель [2012] [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135164.jpg" />
-</div>
-
-
-###  Подробнее
-
-У этой маленькой книжки есть две цели. Ближайшая цель - найти простейший способ для объяснения того, как современная физика элементарных частиц позволяет понять, как устроен окружающий нас мир. Более далёкая цель - перестроить школьное образование физики, оставаясь в рамках элементарной школьной математики. Книга адресована прежде всего преподавателям физики, но некоторые её страницы должны быть понятны и любознательным школьникам.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59988BF95514933504EB52DC58F1E1804A67E94F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679808   (135157) от 26.11.2023
-
-Ю. Орлова (ред.) | Современное искусство. Для тех, кто хочет все успеть - 2018 (2018) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135157.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современное искусство в нынешнем своем виде сформировалось на рубеже 1960-70-х годов. Художественные искания того времени можно охарактеризовать как поиск альтернатив модернизму (зачастую это выливалось в отрицание через введение прямо противоположных модернизму принципов). Это выразилось в поиске новых образов, новых средств и материалов выражения, вплоть до дематериализации (   Читать дальше...   )Жанр: ИскусствоИздательство: ЭксмоФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C4C204339096824987DD811B31A0F3A3695E874
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679640   (135149) от 26.11.2023
-
-В.А. Могилевцев | Образцы для копирования. Фигура (2013) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135149.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге представлены лучшие образцы академической школы рисунка высокого качества и, что самое главное, с деталями. Детали репродуцированы в натуральную величину и максимально приближены к оригиналу. Пособие выпущено специально для выполнения заданий по копированию, ставших обязательными с нового учебного года для всех факультетов Академии художеств (ГАиЖСА им. И.Е. (   Читать дальше...   )Жанр: Рисование, ЖивописьИздательство: АртиндексФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6C230B73A09584D139793E974D3FA92A0887A48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679873   (134869) от 27.11.2023
-
-Э. Ферми | Лекции по атомной физике (1952) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134869.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга выдающегося итальянского физика Энрико Ферми (1901—1954) представляет собой обработку стенограмм лекций Ферми, прочитанных им в 1949 г. в Италии. Эта книга занимает особое место в современной физической литературе. В своих лекциях Ферми главное внимание уделил проблемам, которые даже в монографиях по ядерной физике занимают очень мало места. По существу настоящая (   Читать дальше...   )Жанр: ФизикаИздательство: Издательство иностранной литературыФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B0C7B7E9B6852A28EEADDB29DDCE374D9C1F261
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679878   (134863) от 27.11.2023
-
-Э. Ферми | Термодинамика (1973) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134863.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Термодинамика» Энрико Ферми — одного из величайших физиков современности — представляет собой исключительно интересно построенный и глубоко оригинальный курс этой науки. Отличающаяся высокими методическими достоинствами книга хорошо передает творческую индивидуальность Ферми — теоретика, экспериментатора, лектора. Она несомненно привлечет внимание не только специалистов, (   Читать дальше...   )Жанр: ФизикаИздательство: Издательство Харьковского университетаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39A94E6FA26D977297D9F765D39AEFE19B2E7627
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679866   (134841) от 27.11.2023
 
 Э. Ферми | Квантовая механика (Конспект лекций) (1968) [PDF]
@@ -136,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134841.jpg" />
 </div>
 
 
@@ -162,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134791.jpg" />
 </div>
 
 
@@ -188,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134768.jpg" />
 </div>
 
 
@@ -214,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134700.jpg" />
 </div>
 
 
@@ -240,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134486.jpg" />
 </div>
 
 
@@ -266,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134484.jpg" />
 </div>
 
 
@@ -292,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134184.jpg" />
 </div>
 
 
@@ -318,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134163.jpg" />
 </div>
 
 
@@ -344,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134154.jpg" />
 </div>
 
 
@@ -370,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134145.jpg" />
 </div>
 
 
@@ -396,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134137.jpg" />
 </div>
 
 
@@ -423,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134129.jpg" />
 </div>
 
 
@@ -449,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134099.jpg" />
 </div>
 
 
@@ -475,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133967.jpg" />
 </div>
 
 
@@ -501,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133741.jpg" />
 </div>
 
 
@@ -527,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133661.jpg" />
 </div>
 
 
@@ -554,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133612.jpg" />
 </div>
 
 
@@ -581,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133464.jpg" />
 </div>
 
 
@@ -607,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133457.jpg" />
 </div>
 
 
@@ -633,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133449.jpg" />
 </div>
 
 
@@ -659,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133337.jpg" />
 </div>
 
 
@@ -670,6 +540,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DEED3707501FA328DCB9C235643A9669821F20A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 223435   (133227) от 01.12.2023
+
+Д.В.Сивухин | Общий курс физики (5 томов) (2002-2005) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133227.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс физики в 5 томах, широко известный у нас в стране и за рубежом. Книги написаны на основе лекций, которые в течение ряда лет читались автором студентам Московского физико-технического института. Основное внимание уделено выяснению физического смысла и содержания основных законов и понятий физики, развитию у студентов навыков физического мышления и умения ставить (   Читать дальше...   )Жанр: Научная литература, физикаЯзык: РусскийФормат: DJVUКачество: Обработанный скан с OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE91B56B45FCFDD2B7687129AFE1F82C65EAF8D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681383   (132996) от 02.12.2023
+
+Г.М. Циглер | Теория многогранников (2014) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет собой одно из лучших изложений современного состояния комбинаторной теории выпуклых многогранников, принадлежащее крупному немецкому математику. Изложение сопровождается богатым набором задач, включающим как учебные упражнения, так и нерешенные проблемы.Жанр: МатематикаИздательство: МЦНМОФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B286998CEE35E76C3F7B0130496DCBB169E126B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595085   (132990) от 27.12.2012
+
+А.А. Федоров | Справочник по электроснабжению и электрооборудованию (в 2-х томах) [1986] [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132990.jpg" />
+</div>
+
+
+###  Подробнее
+
+Излагаются общие вопросы электрических нагрузок и технико-экономических расчетов в системах электроснабжении. Даны сведения по электрооборудованию, релейной защите, автоматике и телемеханике. Рассмотрены вопросы перегрузки элементов систем электроснабжения, качества, учета н экономии электроэнергии. Дан расчет цеховых электрических сетей.
+Для инженерно-технического персонала, работающего в отделах главных энергетиков промышленных предприятий, может быть полезен студентам вузов и техникумов.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED1CCF4BDEBC5A1C91ED45CAACA73F655D127905
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681408   (132961) от 02.12.2023
+
+Р. Драго | Физические методы в химии [2 тома] (1981) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132961.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет собой современное пособие, с помощью которого химики самых различных специальностей смогут овладеть основами практически всех физических методов исследования структуры химических соединений и их реакционной способности, а также научиться применять их для структурного и количественного анализа. Автор известен советскому читателю по книге «Физические (   Читать дальше...   )Жанр: ХимияИздательство: МирФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:904F138029794B0F7BF2920EC44CB47E87308056
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681406   (132937) от 02.12.2023
+
+Н.М. Витенберг и др. | Аналоговые вычислительные машины (1964) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132937.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие по аналоговым вычислительным машинам для студентов специальности "Вычислительная техника".Жанр: Технические наукиИздательство: Издательство Московского инженерно-физического институтаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71D9830DCD84709A1B4E2D103FB4929ADB23AFDF
 ```
 
 https://mybot314.ru/tekegram_catalog/

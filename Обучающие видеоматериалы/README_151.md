@@ -1,3 +1,29 @@
+###  Публикация: 1410601   (433279) от 22.09.2020
+
+Gumroad, Pierrick Picaut | Искусство эффективного риггинга в Blender 2.80 / The Art Of Effective Rigging in Blender 2.80 (2019) PCRec [RU, EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433279.jpg" />
+</div>
+
+
+###  Подробнее
+
+Риггинг играет очень важную роль как в игровой, так и в киноиндустрии. Плохой риг может превратить создание анимации в настоящий кошмар, в то время как хороший риг может сэкономить вам много времени и позволить вам достичь большего с вашими персонажами и моделями. К сожалению, это часто обходят стороной, поскольку большинство 3D-художников быстро разочаровываются (   Читать дальше...   )Производство: GumroadЖанр: 3D моделирование, АнимацияЯзык озвучки: Русский, АнглийскийПродолжительность: 10:56:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B364F2CCB6CF02CDAAA808C3DA643552B92A6CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 945544   (432954) от 10.10.2015
 
 Сергей Жарченков, Вероника Иволжатова | Профессия копирайтер: от стажера до директора (2015)  PCRec [H.264/720p]
@@ -6,7 +32,7 @@
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432954.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432823.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_432230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432230.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ Jillian Michaels | Killer Body (2015) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431957.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ Firoz Khan | Learn Real Estate Photo Editing in Lightroom (2020) PCRec [En / En 
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431558.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ ITVDN | Решение практических задач на C++ (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431283.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431256.jpg" />
 </div>
 
 
@@ -197,7 +223,7 @@ Gumroad, Cane Townsend | Hard Surface in ZBrush (2021) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431250.jpg" />
 </div>
 
 
@@ -224,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431233.jpg" />
 </div>
 
 
@@ -250,7 +276,7 @@ Eкaтepинa Mиpимaнoва | Минус 60. Худеем за 21 день (2
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430850.jpg" />
 </div>
 
 
@@ -278,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430838.jpg" />
 </div>
 
 
@@ -305,7 +331,7 @@ Artstation Learning, Rico Cilliers | Intro to Sculpting in Blender (2020) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429336.jpg" />
 </div>
 
 
@@ -331,7 +357,7 @@ NSA, Владимир Дадали | Образовательный курс п�
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429308.jpg" />
 </div>
 
 
@@ -360,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429297.jpg" />
 </div>
 
 
@@ -389,7 +415,7 @@ Louis Van Amstel | LaBlast (2017) HDRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428015.jpg" />
 </div>
 
 
@@ -416,7 +442,7 @@ Cathe Friedrich | XTrain (2016) HDTVRip [H.264/720p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428010.jpg" />
 </div>
 
 
@@ -442,7 +468,7 @@ ITVDN | Программирование на платформе UWP (2017) PCRe
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427881.jpg" />
 </div>
 
 
@@ -468,7 +494,7 @@ ITVDN | Swift Starter (2017) PCRec [H.264/1080p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427749.jpg" />
 </div>
 
 
@@ -494,7 +520,7 @@ Chalene Johnson | PiYo (2014) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427640.jpg" />
 </div>
 
 
@@ -520,7 +546,7 @@ Lynda | Цвет для видеомонтажёров / Color for Video Editors
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427340.jpg" />
 </div>
 
 
@@ -547,7 +573,7 @@ Artstation, Aleksandr Kirilenko | Bringing Life To Clothes In ZBrush (2020) HDRi
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427216.jpg" />
 </div>
 
 
@@ -576,7 +602,7 @@ Schoolism, Nathan Fowkes | Environment Design (2015) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427215.jpg" />
 </div>
 
 
@@ -602,7 +628,7 @@ M-Art, Ольга Адамовна | Графический медиа и моу
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427214.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ Liveclasses, Андрей Журавлев | Adobe Photoshop: замена цв�
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427210.jpg" />
 </div>
 
 
@@ -657,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_427200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427200.jpg" />
 </div>
 
 
@@ -668,32 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:737AB25F53E0EB09A5CCBF3379D55672AA50C979
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572141   (425509) от 25.08.2022
-
-SideFX, Moeen Sayed | Magic Market - L-Systems (2020) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для того чтобы создать листву, нужно понять L-системы. L-системы используют простые наборы инструкций для генерации систем ветвления и роста. Их можно использовать в сочетании с геометрией для создания растений и деревьев. В этом уроке Вы познакомитесь с основами L-систем и узнаете, как они использовались в создания асcетов листвы для «Магического рынка».Производство: SideFXЖанр: Houdini 18.5Язык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 00:29:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D47BAD9F5E0BE5CC5B30C7FA32A63DB10C37636
 ```
 
 https://mybot314.ru/tekegram_catalog/

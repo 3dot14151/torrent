@@ -1,3 +1,119 @@
+###  Публикация: 1249788   (431384) от 25.09.2018
+
+VA - Pacific Trance Waves (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arjan Kramer - Pacific Ocean (Radio Edit)
+02. Cryostasis - Never Ever (Extended NRG Mix)
+03. Adam Sobiech & Angel Falls - Disillusion (Original Mix)
+04. Maratone & Dreamy feat. Emma Chatt - Out From Under (Radio Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:46:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F15F2B1BCD23825A8467C81AB3E9927A8CD23018
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249701   (431381) от 25.09.2018
+
+VA - Tech House Frequencies, Vol. 1 (2018) [MP3|320 Kbps] <House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shocknorte - Crazy Politics (Original Mix)
+02. Juanfra Munoz - Dime Que Te Duele (Original Mix)
+03. Lolo Cruzalez - Voces De Ultratumbas (Original Mix)
+04. Alex Delgado - Parara Pa Pa (Original Mix)(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 03:13:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7566DB1DC3E5BBFD152D2D31E598A540424F271
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249705   (431380) от 25.09.2018
+
+VA - Beatbox Rockers, Vol. 6 (50 Club Bangers) (2018) [MP3|320 Kbps] <House,Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jerry Ropero - Coracao (Axwell Remix) (feat. Jaqueline)
+02. Sheridan - Fatz Theme (Original Mix)
+03. Eric Prydz - In and Out (Eric Prydz Remix) (feat. Adeva)
+04. Alexandra Prince - Alive (Henrik B Remix)(   Читать дальше...   )Жанр: House,Electro HouseПродолжительность: 06:01:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02FAA9B73439042C018E86DC76AF24B92295A275
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249713   (431204) от 25.09.2018
+
+VA - Techno Ballads Collection (1996-1999) Millennium Records [FLAC|Lossless|tracks+.cue] <Techno, Ambient, Electro, Downtempo, House, Acid>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avalon - Peaks (03:44)
+ 02. Sounds From The Ground - Triangle (07:08)
+ 03. Solar Quest - Save The Whale (08:04)
+ 04. Time Modem - Promise Of Shadows (05:34)(   Читать дальше...   )Тип издания: CDЖанр: Downtempo/Techno/AmbientПродолжительность: 01:16:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03C1D49B301B7149075E9C5A05AA31B21289CF62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249812   (431198) от 25.09.2018
 
 VA - Future Trance 85 (2018) [MP3|320 Kbps] <Trance,Progressive Trance,House,>
@@ -6,7 +122,7 @@ VA - Future Trance 85 (2018) [MP3|320 Kbps] <Trance,Progressive Trance,House,>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431198.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Mirae Arts - Label 2 Releases (2018) [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambi
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_431191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431191.jpg" />
 </div>
 
 
@@ -62,7 +178,7 @@ VA - Ibiza Sundance 2017 [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430883.jpg" />
 </div>
 
 
@@ -91,7 +207,7 @@ FоrstWоlfin - Mоments Of Eternitу (2017) [MP3|320 Kbps] <Ambient, Downtempo,
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430805.jpg" />
 </div>
 
 
@@ -120,7 +236,7 @@ VA - Wind Tunes: Chicago (2017) [MP3|320 Kbps] <Downtempo, Chillout>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430802.jpg" />
 </div>
 
 
@@ -149,7 +265,7 @@ VA - Aly & Fila - Future Sound Of Egypt 513 (Beyond The Lights Album Special) (2
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430788.jpg" />
 </div>
 
 
@@ -178,7 +294,7 @@ Paul Oakenfold - Generations - Three Decades Of Dance (2017) 3 CD[Box set] [MP3|
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430611.jpg" />
 </div>
 
 
@@ -207,7 +323,7 @@ FaltyDL - Heaven Is For Quitters (2016) Beat Records [FLAC|Lossless|tracks + .cu
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_430336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430336.jpg" />
 </div>
 
 
@@ -236,7 +352,7 @@ TMUX - State Of Exception (2020) False Industries [FLAC|Lossless|WEB-DL|tracks] 
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429826.jpg" />
 </div>
 
 
@@ -265,7 +381,7 @@ VA - Nine Years Of Techno: Selected by Diarmaid O Meara (2019) [FLAC|Lossless|WE
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429795.jpg" />
 </div>
 
 
@@ -294,7 +410,7 @@ VA - Nine Years Of Techno: Selected by Anderson Noise (2019) [FLAC|Lossless|WEB-
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429794.jpg" />
 </div>
 
 
@@ -323,7 +439,7 @@ VA - Skywalker: Leaving The Dreamhouse (1996) 2xCD, Compilation [MP3|320 Kbps] <
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429793.jpg" />
 </div>
 
 
@@ -352,7 +468,7 @@ VA - Nine Years Of Techno: Selected by Agent Orange DJ (2019) [FLAC|Lossless|WEB
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429792.jpg" />
 </div>
 
 
@@ -381,7 +497,7 @@ Omni Trio - The Haunted Trax EP (1996) Sm:)e Communications [FLAC|Lossless|track
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429747.jpg" />
 </div>
 
 
@@ -410,7 +526,7 @@ VA - Fitness, Running & Dance Hits 2k20 (2020) [MP3|320 Kbps] <Progressive House
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429729.jpg" />
 </div>
 
 
@@ -439,7 +555,7 @@ Sangam & Kid Smpl - Brave Warrior (2019) Display [FLAC|Lossless|WEB-DL|tracks] <
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429716.jpg" />
 </div>
 
 
@@ -468,7 +584,7 @@ Plains Apparition - Encrypt (2019) [MP3|320 Kbps] <Ambient, New Age, Hypnagogic>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429712.jpg" />
 </div>
 
 
@@ -497,7 +613,7 @@ VA - Summer Compilation 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Deep Progress
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429666.jpg" />
 </div>
 
 
@@ -526,7 +642,7 @@ Markus Schulz - Escape (2020) [FLAC|Lossless|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429544.jpg" />
 </div>
 
 
@@ -555,7 +671,7 @@ Zedd - Clarity (Album) (02.10.2012) [MP3|256 кб/с]<Electro , Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429508.jpg" />
 </div>
 
 
@@ -590,7 +706,7 @@ VA - Lounge Tribute (The Collection) (2015) [MP3|320 кб/с]<Downtempo, Chillou
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429407.jpg" />
 </div>
 
 
@@ -619,7 +735,7 @@ VA - Summer Garden Vol.1 (2018) [MP3|320 Kbps] <House, Funky, Club>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429269.jpg" />
 </div>
 
 
@@ -633,122 +749,6 @@ VA - Summer Garden Vol.1 (2018) [MP3|320 Kbps] <House, Funky, Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA305E53A5725AD90DA1A58550C9F2BA2473B364
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250080   (429263) от 26.09.2018
-
-Hidden Rivers - Where Moss Grows (2015) Serein [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Downtempo>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flying The Nest (01:40)
- 02. In And Out Of Days (05:24)
- 03. Sunday's Child (01:13)
- 04. White Light Peak (03:39)(   Читать дальше...   )Жанр: Ambient, IDM, DowntempoПродолжительность: 00:41:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDF2AAF58BF4ABBE0F3C34D862EA5A871D3E2637
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250117   (429255) от 26.09.2018
-
-VA - The Ambient Cookbook (1995) Fax +49-69/450464 [FLAC|Lossless|tracks+.cue] <Ambient, Tribal, IDM, Downtempo, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_429255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pete Namlook - Music For Ballet (Excerpt) (07:29)
- 02. Transonic - Whirlpool (Slow Spiral Of Clouds) Excerpt (06:16)
- 03. David Moufang - In / Out (15:31)
- 04. XJacks - Celophane (10:26)(   Читать дальше...   )Тип издания: CDЖанр: Ambient, Tribal, IDM, Downtempo, Experimental •Продолжительность: 01:09:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D18A7DF9F981F6104CA7C2E7503E30D996C21473
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166002   (428655) от 15.09.2017
-
-VA - Trance International (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aly & Fila, Roger Shah & Susana - Unbreakable (Original Mix)(03:20)
-02. Ferry Tayle & Dan Stone - Vona (Original Mix) (03:54)
-03. ReOrder - Spirit Of Ecstasy (Original Mix) (03:49)
-04. Sean Tyas & Darren Porter - The Potion (Original Mix) (04:14)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 00:57:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D19E755D0A667F2B3D0927329C6ED2A3CF8BB6B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166068   (428648) от 15.09.2017
-
-VA - Latin Tribal Ibiza 2017 [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_428648.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Simon Fava – El Encanto (Dave Rose remix) (07:10)
-2. Yan Kings & Matt Petrone – Misirlou (04:23)
-3. DjM & Rachel Armenta – Besame Mucho 2k17 (06:19)
-4. Dario Nunez & Victor Perez – All Right Ya (04:21)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:35:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D7288C2FE126E00E1C49C2622DBD03D88A3156F
 ```
 
 https://mybot314.ru/tekegram_catalog/

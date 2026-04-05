@@ -6,7 +6,7 @@ Enterprise - Enterprise (1977) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766936.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ The Immortals - The Ultimate Warlord (1979) Reissue CD, 1993, Unidisc [MP3|320 K
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766927.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Ariane - Boogie Me (1979) LP [MP3|320 Kbps] <Electronic, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766322.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ One-Two-Three - One-Two-Three (1983) LP [MP3|320 Kbps] <Electronic, Hi NRG, Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_766113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766113.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ VA - Total Disco (2017) [MP3|320 Kbps] <Disco, Nu-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765479.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Tam Harrow - Incredible Idiot (2015) LP, The Italo Disco Album [MP3|320 Kbps] <E
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_765410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765410.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ The Three Degrees - 2 Albums (1978, 1979) LP [MP3|320 Kbps] <Electronic, Funk-So
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764483.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Motion - Make My Feet Wanna Dance (1997) The Best Of [MP3|320 Kbps] <Electronic,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_764058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764058.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ M.B.T. Soul - Chase! (1977) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761676.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ VA - Best Of Funk 2021 (2022) [MP3|320 Kbps] <Disco, Nu-Disco, Funk>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_760350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760350.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Arp-Life - Jumbo Jet (1977) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758092.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Reflection - A Whiter Shade Of Pale (1978) LP [MP3|320 Kbps] <Electronic, Funk-S
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756601.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Edgar Winter - The Edgar Winter Album (1979) LP [MP3|320 Kbps] <Electronic, Prog
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755295.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Curacao - 2 Albums (1988, 1989) CD [MP3|320 Kbps] <Electronic, Italo-Disco, Synt
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751955.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Rena Mason - Cherchez La Femme (1979) Reissue CD, 2013, EMI Electrola [MP3|320 K
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750021.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ VA - Venti Compilation 7 (2021) 2CD, Compilation [MP3|320 Kbps] <Italo-Disco, Di
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_749890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749890.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ La Bionda - 4 Albums (1978-1980) LP Mint [MP3|320 Kbps] <Electronic, Funk Soul, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748401.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748401.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ VA - Disco Night Fever (1979) 3LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748290.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ VA - ZYX Italo Disco New Generation Vol. 18 (2021) 2CD, Compilation [MP3|320 Kbp
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748098.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ VA - ZYX Italo Disco New Generation Vol. 19 (2021) 2CD, Compilation [MP3|320 Kbp
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_748092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748092.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Disco Dream And The Androids - The Androids (1979) [MP3|320 кб/с] <Electronic
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746733.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Ken Wilbard - You're Burning (1977) [MP3|320 кб/с] <Диско>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746722.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Madleen Kane - 5 Albums (1978-1994) [MP3|320 кб/с] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746602.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Irene Cara - 3 Albums (1982-1987) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746089.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Automat - Automat (1978) [MP3|320 кб/с] <Electronic, Disco, Ambient>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745454.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Tantra - The Collection (2013) 2CD [MP3|320 кб/с] <Electronic, Disco, Euro-Di
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743698.jpg" />
 </div>
 
 

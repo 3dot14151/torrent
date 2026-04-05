@@ -1,3 +1,55 @@
+###  Публикация: 522013   (624939) от 12.07.2012
+
+В.И. Мирясова | Звукоподражательные упражнения для развития речи дошкольников [2008] [RTF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Логопедия, Психология, Педиатрия
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624939.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга содержит задания и упражнения для развития речи детей раннего возраста. Звукоподражательные упражнения способствуют выработке движений органов речи, необходимых для формирования навыка правильного произношения звуков. Все задания просты и увлекательны. Их регулярное выполнение будет способствовать повышению речевой и познавательной активности ребенка. Пособие предназначено для родителей, логопедов, психологов, воспитателей дошкольных образовательных учреждений.Формат: RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23B4B233661421704ADE2C7CD59E68C7C4DA5775
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144895   (624922) от 23.06.2017
+
+Марк Кистлер | Вы сможете рисовать через 30 дней (2014) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Изобразительное искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Умение рисовать - приобретаемый навык, а не врожденный талант, как полагают многие. Любой может научиться красиво рисовать! Все, что вам для этого нужно - карандаш, листок бумаги и готовность открыть в себе настоящего художника. Обо всем остальном вы узнаете из этой книги. В ней раскрыты все секреты создания сложных трехмерных изображений.Жанр: РисованиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C00C3A527B80840CDD5F704DBAE5B7FCBD21BC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 522003   (624756) от 12.07.2012
 
 О. С. Ушакова | Теория и практика развития речи дошкольника [2008] [PDF]
@@ -6,7 +58,7 @@
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624756.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624618.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624599.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624579.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624381.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624229.jpg" />
 </div>
 
 
@@ -169,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623984.jpg" />
 </div>
 
 
@@ -195,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623859.jpg" />
 </div>
 
 
@@ -222,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623853.jpg" />
 </div>
 
 
@@ -248,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623820.jpg" />
 </div>
 
 
@@ -274,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623722.jpg" />
 </div>
 
 
@@ -301,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623702.jpg" />
 </div>
 
 
@@ -327,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623610.jpg" />
 </div>
 
 
@@ -354,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623544.jpg" />
 </div>
 
 
@@ -380,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623542.jpg" />
 </div>
 
 
@@ -406,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623540.jpg" />
 </div>
 
 
@@ -432,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623509.jpg" />
 </div>
 
 
@@ -460,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623249.jpg" />
 </div>
 
 
@@ -486,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622924.jpg" />
 </div>
 
 
@@ -513,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622753.jpg" />
 </div>
 
 
@@ -539,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622630.jpg" />
 </div>
 
 
@@ -566,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622553.jpg" />
 </div>
 
 
@@ -592,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622549.jpg" />
 </div>
 
 
@@ -618,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622539.jpg" />
 </div>
 
 
@@ -629,60 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:517592C1C40458EBAE4985FE6A169B2DFF14B0FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910352   (622382) от 20.06.2015
-
-Леонид Жариков | Червонные сабли (1984) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622382.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повесть «Червонные сабли» - продолжение давно известной и полюбившейся «Повести о суровом друге» писателя Леонида Жарикова. Из новой повести читатель узнает, как сложилась судьба Леньки Устинова, отважного кавалериста-буденновца, как с саблей в руках он защищал Республику труда, как мстил врагам за смерть своего друга Васи Руднева, с которым плечо к плечу отважно (   Читать дальше...   )Жанр: Детская проза, приключенияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEEB3639F5C72BDCBF36E17FE3F2800AFCDAF66D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910358   (622236) от 20.06.2015
-
-Леонид Жариков | Судьба Илюши Барабанова (1985) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_622236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дорогой друг!
-Перед тобой третья, заключительная книга трилогии о революции писателя Леонида Жарикова.
-Если в первых двух книгах — «Повесть о суровом друге» и «Червонные сабли» — перед тобой проходили вдохновенные события революционной поры, то здесь, в повести «Судьба Илюши Барабанова», автор рассказывает о том, в какой жестокой борьбе рождалась первая в мире Республика (   Читать дальше...   )Жанр: Детская проза, приключенияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:039058EEA8487258B3ACF6A06059662D42009800
 ```
 
 https://mybot314.ru/tekegram_catalog/

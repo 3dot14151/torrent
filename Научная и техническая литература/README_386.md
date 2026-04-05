@@ -1,136 +1,3 @@
-###  Публикация: 944581   (440674) от 07.10.2015
-
-Александр Гуревич | «Свободная стихия». Статьи о творчестве Пушкина (2015) [FB2]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440674.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге обсуждаются проблемы, вызывающие серьезные разногласия среди специалистов. В первой ее части речь идет о синтетической природе пушкинского романтизма, о соотношении в творчестве Пушкина начал доромантических и собственно романтических, о романтической окрашенности его реалистических произведений. Во втором разделе критически рассматриваются три устойчивых (   Читать дальше...   )Жанр: ЛитературоведениеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9F0BB69390CFEE7C5DE16F76217EC8CBD35F3E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944306   (440673) от 07.10.2015
-
-В. Ф. Асмус | Жан-Жак Руссо [К 250-летию со дня рождения] (1962) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440673.jpg" />
-</div>
-
-
-###  Подробнее
-
-В короткое время Руссо стал прославленным писателем, могучим пробудителем мысли в Германии и в других странах Европы. Его влияние объяснялось не только действием его философских идей, но и его искусством писателя. Что же представляло собой это учение, завоевавшее такой быстрый и блистательный, победоносный успех? Кто был его автор, какую жизнь вел он в своем обществе?Жанр: История, философия, биографияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D8E9B1204EDB2D91CA935CA3EEC9A5F5E2A82D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944313   (440667) от 07.10.2015
-
-В. Ф. Асмус | Философия Иммануила Канта (1957) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440667.jpg" />
-</div>
-
-
-###  Подробнее
-
-О естественнонаучных, философских и общественно-политических взглядах Иммануила Канта — родоначальника немецкой классической философии.Жанр: История, философия, биография, эстетика, политологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:513469393BC4E0ED7AAD3B4C55418A9809E21C7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944445   (440508) от 07.10.2015
-
-Гельвеций | Сочинения [2 тома] (1973-1974) [DJVU, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Том I
-В первом томе содержатся впервые публикуемые на русском языке "Записные книжки", а также заново сверенный перевод одного из основных произведений — "Об уме".
-
-Том II(   Читать дальше...   )Жанр: История, философия, этика, педагогикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6CBE29D27A94B00E464C79793353476A3FA86F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409939   (440435) от 19.09.2020
-
-Труди Скотт | Еда - лекарство от беспокойства (2019) [PDF]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многие люди со временем просто смиряются с постоянно сниженным настроением, ощущением беспомощности и высоким уровнем стресса и тревожности, полагая, что «жизнь трудна» и вот такие они «слабаки». Если это в какой-то мере относится к вам — знайте: вы можете значительно улучшить свое состояние или даже полностью изменить вашу жизнь, всего лишь пересмотрев пищевые привычки… (   Читать дальше...   )Жанр: Здоровье, МедицинаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:970F1CE67D92C5FD1F77D2245EDB832E9A22D59E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 706872   (440413) от 04.10.2013
 
 В.Д. Кузьмич | Теория локомотивной тяги (2005) [DjVu]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440413.jpg" />
 </div>
 
 
@@ -168,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440364.jpg" />
 </div>
 
 
@@ -194,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440290.jpg" />
 </div>
 
 
@@ -220,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440289.jpg" />
 </div>
 
 
@@ -247,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440243.jpg" />
 </div>
 
 
@@ -273,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440205.jpg" />
 </div>
 
 
@@ -300,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440128.jpg" />
 </div>
 
 
@@ -326,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_440050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440050.jpg" />
 </div>
 
 
@@ -354,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439946.jpg" />
 </div>
 
 
@@ -380,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439941.jpg" />
 </div>
 
 
@@ -408,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439937.jpg" />
 </div>
 
 
@@ -434,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439900.jpg" />
 </div>
 
 
@@ -460,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439898.jpg" />
 </div>
 
 
@@ -488,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439892.jpg" />
 </div>
 
 
@@ -515,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439882.jpg" />
 </div>
 
 
@@ -543,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439880.jpg" />
 </div>
 
 
@@ -569,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439878.jpg" />
 </div>
 
 
@@ -597,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439876.jpg" />
 </div>
 
 
@@ -625,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439872.jpg" />
 </div>
 
 
@@ -653,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439871.jpg" />
 </div>
 
 
@@ -679,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439867.jpg" />
 </div>
 
 
@@ -691,6 +558,139 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3802791BB193038A6E28550B92707A721BD629F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062774   (439791) от 14.10.2016
+
+В. В. Большаков | Многоликая безработица (1987) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439791.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассказывается о судьбах простых людей, граждан капиталистических стран, лишенных одного из самых существенных прав человека — права на труд.
+
+Автор знакомит читателя с теми, кто стоит в очередях за пособием по безработице, на биржах труда. Среди них можно встретить высококвалифицированного рабочего и инженера, банковского клерка и разорившегося фермера, (   Читать дальше...   )Жанр: История, политология, экономика, правоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E9A03E4B9392F222F8A431A3101DE7F2888BF53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164730   (439694) от 10.09.2017
+
+А.П. Корелин (сост.) | Россия на рубеже веков. Исторические портреты (1991) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439694.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга о деятелях различных общественных сил, действовавших на политической арене России: три премьер-министра - Витте, Столыпин, Львов; лидеры буржуазных партий - Милюков и Гучков; миллионер Рябушинский; представители революционной демократии - Плеханов, Мартов, Чернов, Спиридонова - основные персонажи книги. Их жизненные пути мало известны широкому читателю. (   Читать дальше...   )Жанр: история, биографииФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28A13301209D2C8EF737BD77A6E27E4603CDD6A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164742   (439691) от 10.09.2017
+
+В.В. Каргалов | Московские воеводы XVI-XVII вв (2002) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439691.jpg" />
+</div>
+
+
+###  Подробнее
+
+О выдающихся полководцах эпохи образования и укрепления Московского царства, московских воеводах шестнадцатого и семнадцатого столетий, рассказывается в этой книге.
+Московские воеводы сменили на полях сражений полководцев-князей при «государе всея Руси» Иване III Васильевиче и выполняли свою историческую миссию по обороне и расширению Российского государства вплоть (   Читать дальше...   )Жанр: историяФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A1A221D3D4E6092C93675A96FB054D5824E8217
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164809   (439689) от 10.09.2017
+
+Н.Г. Устрялов | О системе прагматической русской истории (1836) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439689.jpg" />
+</div>
+
+
+###  Подробнее
+
+Диссертационная работа историка Николая Герасимовича Устрялова (4 мая 1805 - 8 июня 1870), за которую он получил степень доктора истории и был избран в Академию Наук (адъюнкт по русской истории и древности с 13 января 1837 года, экстраординарный академик с 4 июня 1842 года, ординарный академик с 5 октября 1844 года).Жанр: история, диссертация, раритетФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D68B6462DCA33E5B21480CD624887A1C85D22F86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164492   (439684) от 10.09.2017
+
+С. Мартов | Сергей Витте. Первый премьер-министр (2014) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439684.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гениальный министр финансов, выдающийся дипломат, первый в истории России премьер-министр. Эпоха Сергея Юльевича Витте — это эпоха реформ, в результате которых страна испытала невиданный ранее экономический подъем. Российский рубль стал конвертируемым и получил статус надежной мировой валюты. Масштабное строительство, освоение целых регионов, постройка новых железнодорожных (   Читать дальше...   )Жанр: история, биографияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9BDF9607288ECBE27895BA87FFE14D4782C390E
 ```
 
 https://mybot314.ru/tekegram_catalog/

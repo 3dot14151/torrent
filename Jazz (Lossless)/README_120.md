@@ -6,7 +6,7 @@ Cherry Poppin' Daddies - Please Return The Evening (2014) [FLAC|image+.cue]<Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_653380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653380.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Manuel Rocheman - Cactus Dance (2007) Nocturne [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652731.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Fred Astaire - The Great MGM Stars (1940-e - 1950-e) 1991, EMI Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652730.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Kansas City Jazz Orchestra - Take One (2005) KCJO Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652729.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Albert Vila - The Unquiet Sky (2016) Fresh Sound New Talent [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652648.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Jazz Vibes: Milestones Of Legends (1949 - 1962) 10CD, 2017, The Intense Med
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652637.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Dave McKenna - Blues Up: Piano Solo (1955, 1963) 2007, Fresh Sound Records [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652566.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Marco Mezquida Trio + Bill McHenry - Cantabile (2015) Fresh Sound New Talent [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652565.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Maynard Ferguson - Birdland Dream Band, vol.1  (1956) 2017, Sony Music [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652564.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Jackie McLean - One Step Beyond (1963) 1988, Blue Note [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652563.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Billy Strayhorn with Duke Ellington - Rare Strayhorn (1941 - 1965) 2015, La Mais
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652562.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Clementine - Cle (2003) [FLAC|Lossless|tracks + .cue] <Latin Jazz, Bossa Nova, V
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652561.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ The Harry Allen Quartet - Someone to Light Up My Life (2005) Master Mix Music [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652559.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Wynton Kelly Trio & Wes Montgomery - Smokin' In Seattle: Live At The Penthouse (
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652556.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Duke Ellington - Elvin chez Duke: European Tour - January 1966 (2015) La Maison 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652551.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ David Bixler - Call It A Good Deal (2006) Zoho Music [FLAC|Lossless|image + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652469.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Jack Teagarden - 1944 - 1947 (1998) Classics [FLAC|Lossless|tracks + .cue] <Swin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652467.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Denny Zeitlin Trio - Live at the Trident (1965) Remaster, 2014, Sony Music[FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652166.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Hendrik Meurkens Quartet - A Night In Jakarta (2010) [FLAC|Lossless]<Jazz, Post-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652097.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Gerry Mulligan - The Complete Verve Gerry Mulligan Concert Band Mosaic (May 21, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651331.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Joscho Stephan - Django Nuevo (2009) Acoustic Music Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650759.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Eclectic Maybe Band - Again Alors? (2022) [FLAC|Lossless|image + .cue] <Jazz-Roc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650756.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ George Wallington - Knight Music (1956) 2000, Koch Jazz [APE|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650696.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Dizzy Gillespie - 1946 - 1947 (1998) Classics [FLAC|Lossless|tracks + .cue] <Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650695.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ David Murray - The London Concert (1999) 2CD, Cadillac Records [FLAC|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650694.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Ryan Truesdell Presents - Centennial: Newly Discovered Works of Gil Evans (2012)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_650561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650561.jpg" />
 </div>
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 1450891   (1028685) от 28.02.2021
+
+Moscow Business School | MBA Start. Модуль 3. Общий менеджмент (2008) DVDRip
+
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028685.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если Вы нашли эту раздачу – Вы знаете что такое MBA
+В данной раздаче выложен видеокурс одного из 15-ти модулей программы MBA Start:
+Модуль 3. Общий менеджмент
+от Moscow Business School, дистрибутирующей MBA General, стоимостью от 4500$ и предназначенный для дистанционного обучения в течение одного года(   Читать дальше...   )Производство: Россия. MBSЖанр: БизнесЯзык озвучки: РусскийПродолжительность: ~11:21:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36A444203A4BC150A821435193FB2F6780A6C706
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1450895   (1028681) от 28.02.2021
 
 Moscow Business School | MBA Start. Модуль 5. Финансы в организации (2008) DVDRip
@@ -6,7 +35,7 @@ Moscow Business School | MBA Start. Модуль 5. Финансы в орган
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028681.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Moscow Business School | MBA Start. Модуль 13. Управление изм
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028678.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Moscow Business School | MBA Start. Модуль 7. Общий маркетин�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028677.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Moscow Business School | MBA Start. Модуль 10. Стратегически�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028675.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Moscow Business School | MBA Start. Модуль 14. Информационны�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028674.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Moscow Business School | MBA Start. Модуль 11. Стратегически�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028666.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Moscow Business School | MBA Start. Модуль 12. Операционный м
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028664.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Moscow Business School | MBA Start. Модуль 8. Управление чел�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028660.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Moscow Business School | MBA Start. Модуль 9. Бухгалтерский, 
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028659.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Moscow Business School | MBA Start. Модуль 2. Навыки личной э
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028657.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028656.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Udemy, Sonali Shrivastava | TCP/IP Socket programming HandsOn-Windows & Linux in
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028652.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ Moscow Business School | MBA Start. Модуль 15. Управление про
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028635.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028632.jpg" />
 </div>
 
 
@@ -408,7 +437,7 @@ Moscow Business School | MBA Start. Модуль 1. Экономика и пра
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028631.jpg" />
 </div>
 
 
@@ -437,7 +466,7 @@ Skillbox, Андрей Мельниченко и др. | Методист обр
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028588.jpg" />
 </div>
 
 
@@ -466,7 +495,7 @@ Pawel Grochola | Destruction in Houdini (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028489.jpg" />
 </div>
 
 
@@ -492,7 +521,7 @@ Shawn Lipowski | VEX in Houdini (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028476.jpg" />
 </div>
 
 
@@ -518,7 +547,7 @@ Spencer Lueders | Fluids FX Using Houdini(2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028467.jpg" />
 </div>
 
 
@@ -545,7 +574,7 @@ Anthony Eftekhari | Matte Painting (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028455.jpg" />
 </div>
 
 
@@ -571,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028424.jpg" />
 </div>
 
 
@@ -599,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028418.jpg" />
 </div>
 
 
@@ -627,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028413.jpg" />
 </div>
 
 
@@ -654,7 +683,7 @@ Steven Knipping | Applied Houdini Particles I (2017) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028329.jpg" />
 </div>
 
 
@@ -680,7 +709,7 @@ Michael Hampton | Analytical Figure Drawing 2 (2011) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028321.jpg" />
 </div>
 
 
@@ -692,33 +721,6 @@ Michael Hampton | Analytical Figure Drawing 2 (2011) PCRec [En, Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2E3AA337C90270F700C5BEE5C490DEF41C4AA25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451421   (1028307) от 02.03.2021
-
-Michael Hampton | Analytical Figure Drawing 1 (2011) PCRec [En, Ru]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028307.jpg" />
-</div>
-
-
-###  Подробнее
-
-В процессе того, как студенты будут развивать набор базовых навыков, в этом курсе будет сделан акцент на понимании и применении этих основ к человеческой фигуре. В этом курсе также подчеркиваются процессуально ориентированный подход и анализ формы фигуры, ее конструкции и перспективы.
-Этот курс подразумевает глубокое изучение фигуры и анатомии, а также не упускает (   Читать дальше...   )Производство: CGMA 2D AcademyЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 09:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BA078F916313DFB9379473EA9C273047E89EE7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

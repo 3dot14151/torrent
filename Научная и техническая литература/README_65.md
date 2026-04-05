@@ -1,140 +1,3 @@
-###  Публикация: 971615   (984370) от 04.01.2016
-
-Эрих Фромм | Бегство от свободы. Человек для себя (2006) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984370.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эрих Фромм — один из тех великих психологов-теоретиков, чьи идеи оказали громадное влияние не только на собственно психологию, но и на философию, антропологию, историю, социологию.
-Начинал Фромм как ученик Фрейда, однако, подобно К.-Г. Юнгу, достаточно быстро осознал ограниченность фрейдизма. Предложенный Фроммом «гуманистический психоанализ» — это попытка преодолеть (   Читать дальше...   )Жанр: Философия, История психологииФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0691001E606A6D33308D31A773079377F4CA462
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 611208   (984183) от 03.02.2013
-
-Е.Чазов, Ю.Беленков, Е.Борисова | Рациональная фармакотерапия сердечно-сосудистых заболеваний [2005] [PDF]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984183.jpg" />
-</div>
-
-
-###  Подробнее
-
-В практическом руководстве «Рациональная фармакотерапия сердечно-сосудистых заболеваний» приведена классификация и клиническая фармакология лекарственных средств, применяемых при сердечно-сосудистых заболеваниях. Описаны типичные клинические проявления, критерии диагностики, основные принципы и схемы лечения сердечно-сосудистых заболеваний с уровнями доказательности. Освещены особенности ведения разных групп пациентов, даны алгоритмы лечения отдельных нозологических форм. В руководстве широко представлена справочная информация, облегчающая рациональный индивидуализированный выбор лекарственного средства и схемы лечения.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99BE061A8F114EA8F610A7B5A673EB40707E86DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612791   (984076) от 03.02.2013
-
-Людмила Прима | Правила успешного копирайтера [2013] [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984076.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сразу хочу предупредить: эта книга не для зеленых новичков. Здесь нет руководств, как стать копирайтером, какие книжки для этого читать, как научиться писать продающие тексты и так далее. Эта книга полезна исключительно опытным копирайтерам - тем, кто уже попробовал себя в профессии и теперь хочет расти дальше, или тем, кто уже давно пишет (а может, даже имеет постоянные заказы), но понимает, что всегда есть куда расти.
-Именно для вас, уважаемые коллеги, я подготовила эту книгу. Это свод правил УСПЕШНОГО копирайтера.
-Конечно, все эти правила - не аксиомы. Возможно, какие-то правила вам не подойдут. Какие-то вызовут непонимание. И я допускаю, что кто-то из вас знает правила и получше.
-Но позвольте вас уверить: тут нет ни одного пустого слова. Все основано на личном опыте. Какие-то советы, изложенные в книге, мне в свое время дали более опытные коллеги, до чего-то я дошла сама, что-то было мной адаптировано в рабочем процессе.
-Главное, что все эти советы ДЕЙСТВИТЕЛЬНО ПОМОГАЮТ.
-А теперь о них будете знать и вы.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E6E0580FC98F0F639E46B30DCBA42617269C538
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971627   (984050) от 04.01.2016
-
-ЕШКО | Польский язык для начинающих [20 уроков] (2008) [PDF, MP3]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984050.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс «Польский язык для начинающих» (16 журналов, 5 дисков) ориентирован на разные категории людей: учащихся, работающих, занимающихся самообразованием, воспитывающих детей, находящихся на заслуженном отдыхе и многих, многих других.
-Материалы, которые мы хотим предложить Вам, адресованы универсальному учащемуся вне зависимости от его возраста, образования, языковых (   Читать дальше...   )Жанр: Обучающий материалФормат: PDF, MP3
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7779F685C6904EA2FC684176875798B854A582EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972145   (983594) от 05.01.2016
-
-В. И. Усенин (отв. ред.) | Современное капиталистическое предприятие и хозяйская власть (1971) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая коллективная монография — первая из двух работ, подготовленных Институтом международного рабочего движения АН СССР по социальным проблемам современного капиталистического предприятия. В ней анализируются положение предприятия в системе государственно-монополистического капитализма и современные методы осуществления предпринимателями своей власти над наемными (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC9A81A927D7B3678B8451931AAE03453A86446F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971825   (983590) от 05.01.2016
 
 Армен Аванесян, Анке Хеннинг | Поэтика настоящего времени (2014) [DJVU]
@@ -143,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983590.jpg" />
 </div>
 
 
@@ -169,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983517.jpg" />
 </div>
 
 
@@ -195,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983513.jpg" />
 </div>
 
 
@@ -221,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983511.jpg" />
 </div>
 
 
@@ -247,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983509.jpg" />
 </div>
 
 
@@ -273,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983503.jpg" />
 </div>
 
 
@@ -301,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983499.jpg" />
 </div>
 
 
@@ -329,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983438.jpg" />
 </div>
 
 
@@ -355,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983435.jpg" />
 </div>
 
 
@@ -381,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983433.jpg" />
 </div>
 
 
@@ -410,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983431.jpg" />
 </div>
 
 
@@ -436,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983429.jpg" />
 </div>
 
 
@@ -462,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983427.jpg" />
 </div>
 
 
@@ -488,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983426.jpg" />
 </div>
 
 
@@ -514,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983425.jpg" />
 </div>
 
 
@@ -542,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983421.jpg" />
 </div>
 
 
@@ -568,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983420.jpg" />
 </div>
 
 
@@ -597,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983419.jpg" />
 </div>
 
 
@@ -626,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983360.jpg" />
 </div>
 
 
@@ -653,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983350.jpg" />
 </div>
 
 
@@ -682,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983347.jpg" />
 </div>
 
 
@@ -695,6 +558,136 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53F32856B9C377A2F0418CCF646363EFD1E59A7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972053   (983344) от 05.01.2016
+
+Р. Г. Скрынников | Трагедия Новгорода (1994) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983344.jpg" />
+</div>
+
+
+###  Подробнее
+
+Противоборство Руси державной и Руси удельно-вечевой — одна из драматических страниц отечественной истории. Жестокое завоевание Новгорода Москвой привело к упадку древнейшего русского города и повлияло на политическую ситуацию в государстве. Анализ этого явления и его последствий составляет содержание книги известного историка.Жанр: ИсторияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F96329A85134954E90CB135DCA94EE96C2ADDD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972164   (983335) от 05.01.2016
+
+Арнольд Шёнберг | Упражнения по композиции для начинающих. Программа обучения. Словарь. Музыкальные примеры (2003) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие выдающегося австрийского композитора, педагога и музыкального теоретика Арнольда Шёнберга впервые публикуется на русском языке. Издание адресовано преподавателям и студентам музыкальных училищ и вузов, специалистам-музыковедам и широкому кругу интересующихся проблемами музыкального искусства XX века.Жанр: Искусство, музыка, сольфеджиоПеревод: Е. А. ДоленкоФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4174E024C57BD374D3E983F950539D3EB6C9DD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355432   (983306) от 26.01.2020
+
+А.В. Кузнецов, Р.А. Рутковский (ред.) | Сборник задач и упражнений по высшей математике: Математическое программирование (2010) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983306.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены все темы дисциплины «Математическое программирование»: линейное программирование, теория двойственности, графы и потоки на сетях, включая транспортные задачи, сетевое планирование, теория матричных игр, выпуклое и динамическое программирование, равновесие экономической системы и оптимизация производства, линейное программирование в системереального экономического (   Читать дальше...   )Жанр: МатематикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7FDC572B0A32CAB0FD2D31FAC904B3735D244D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971899   (983285) от 05.01.2016
+
+Олескин А.В. | Биополитика (2006) [DOC]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983285.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие «Биополитика» (второе, обновленное и расширенное издание) посвящено социально-политическим приложениям современной биологии. Их совокупность обозначается в книге термином «биополитика». Концепции и факты современной биологии позволяют по-новому взглянуть на вопросы о месте и роли человека в планетарном многообразии живого (биоса), на нормы и рамки (   Читать дальше...   )Жанр: Биология, политологияФормат: DOC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BE9E8C0903407B32483CF2F8288D8A766A6B0FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972238   (983198) от 05.01.2016
+
+Иван Солоневич | Великая фальшивка февраля (2007) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983198.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящее время история, как точная наука, переживает кризис. Магазины заполнили «исторические труды», близкие к стилю фэнтэзи, и каждый автор стремится убедить читателя, что именного его версия истории истинна. В таких условиях особенно ценными становятся книги, содержащие свидетельства очевидцев, цифры и факты – все это является твердым фундаментом, на котором (   Читать дальше...   )Жанр: ИсторияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:627EB200B89975E40CC15B15F3E60D8EB14831F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1804787   (11678) от 13.07.2025
+
+Игра в кальмара / Ojingeo geim / Squid Game (2025) WEB-DL [H.264/1080p] (сезон 3, серии 1-6 из 6) RHS, LostFilm, HDRezka
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11678.jpg" />
+</div>
+
+
+###  Подробнее
+
+456 человек, большинство из которых испытывают серьёзные финансовые проблемы, принимают приглашение на участие в таинственном турнире по детским играм. Быстро выясняется, что это турнир на выживание. После того, как из соревнования выбывает игрок, размер приза увеличивается на 100 млн вон, то есть победитель турнира получит 45,6 млрд вон (на момент создания сериала (   Читать дальше...   )Производство: Корея Южная / Siren PicturesЖанр: триллер, драмаРежиссер: Хван Дон-хёкАктеры: Ли Джон-джэ, Пак Хэ-су, О Ён-су, Чон Хо-ён, Хо Сон-тхэ, Анупам Трипати, Ким Джу-рён, Ви Ха-джун, Ю Сон-джу, Ли Ю-миПеревод: Дублированный (Red Head Sound), многоголосый (LostFilm, HDRezka Studio)Язык озвучки: Русский, корейский, английскийСубтитры: Русские (Forced, Full), корейские (Full, SDH), английские (Forced, Full, SDH), и др.Продолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD482BEA65B56CBF3C6B8852952F5B5364C9B50E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1804154   (11270) от 17.07.2025
 
 Игра в кальмара / Ojingeo geim / Squid Game (2025) WEB-DL [H.265/2160p] [4K, SDR, 8-bit] (сезон 3, серии 1-6 из 6) Videofilm, Red Head Sound, HDrezka, LostFilm, TVShows, WStudio, LE-Production, Сербин
@@ -6,7 +32,7 @@
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11270.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11261.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_546.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106.jpg" />
 </div>
 
 

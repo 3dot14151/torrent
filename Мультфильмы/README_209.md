@@ -1,3 +1,133 @@
+###  Публикация: 393937   (449108) от 14.08.2022
+
+Верните Рекса (1975) DVDRip
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о благородной профессии ветеринарного врача, о дружбе мальчика с собакой. Верный пёс отдал жизнь за маленького друга...Производство: СССР, СоюзмультфильмЖанр: Детский, Рисованная анимацияРежиссер: Владимир Попов, Владимир ПекарьАктеры: Светлана Харлап, Всеволод Санаев, Вячеслав Невинный, Евгений ЛеоновСубтитры: ОтсутствуютПродолжительность: 00:15:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09A3EE079D6162C606CD4FFCA08359C9B8D1AD4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569372   (449107) от 14.08.2022
+
+Энканто / Encanto (2021) BDRip [H.264/1080p] [UKR, EN / UKR, EN Sub]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удивительная семья Мадригаль живет в спрятанном в горах Колумбии волшебном доме, расположенном в чудесном и очаровательном уголке под названием Энканто. Каждого ребёнка в семье Мадригаль магия этого места благословила уникальным даром — от суперсилы до способности исцелять. Увы, магия обошла стороной одну лишь юную Мирабель. Обнаружив, что магия Энканто находится (   Читать дальше...   )Производство: США, Колумбия / Walt Disney Animation Studios, Walt Disney PicturesЖанр: мультфильм, мюзикл, фэнтези, драма, комедия, приключения, семейныйРежиссер: Джаред Буш, Байрон Ховард, Чариз Кастро СмитАктеры: Стефани Беатриз, Мария Сесилия Ботеро, Джон Легуизамо, Мауро Кастильо, Джессика Дарроу, Энджи Сепеда, Каролина Гайтан, Дайан Герреро, Уилмер Вальдеррама, Рензи ФелизПеревод: Дублированный (LeDoyen)Язык озвучки: украинский, английскийСубтитры: украинские (2 x Forced, full), английские (Full, SDH)Продолжительность: 01:42:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC90772B76546ADEC7E1862DDC07534A3A95F03B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569720   (449099) от 14.08.2022
+
+Базз Лайтер / Lightyear (2022) WEB-DL [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449099.jpg" />
+</div>
+
+
+###  Подробнее
+
+История приключений легендарного космического рейнджера Базза Лайтера.Производство: США / Pixar Animation Studios, Pixar, Walt Disney PicturesЖанр: мультфильм, фантастика, боевик, драма, приключения, семейныйРежиссер: Энгус МакЛэйнАктеры: Крис Эванс, Кеке Палмер, Питер Сон, Тайка Вайтити, Дэйл Соулс, Джеймс Бролин, Узо Адуба, Мэри МаДональд-Льюис, Исайя Уитлок мл., Энгус МакЛэйнПеревод: Дублированный (Red Head Sound), Многоголосый профессиональный (Jaskier, TVShows)Язык озвучки: Русский, АнглийскийСубтитры: русские (forced, full), английские (full, SDH)Продолжительность: 01:45:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFA87B7D2A3B7DDDA620FC8C3A1411E8780E53BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943063   (448821) от 03.10.2015
+
+Любопытный Джордж 3 / Curious George 3: Back to the Jungle (2015) BDRip [H.264/720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третья часть увлекательного мультфильма по книгам Ханса Аугусто Рея и Маргрет Рей, про невероятно смышлёную и умную обезьянку, по имени Джордж. Тед - сотрудник одного из музеем, отправляется в джунгли, для поисков артефактов. Там то он и встречает нашего героя. Тед забирает Джорджа в свои каменные джунгли и приводит его в Всемирное Космическое Агентство. Там нашему (   Читать дальше...   )Производство: СШАЖанр: ПриключенияРежиссер: Фил ВайнштейнПеревод: ДублированныйПродолжительность: 01:20:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E805A9ACF84F8C2F4CC1676F3DF0075D0B43B050
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 827141   (448672) от 02.10.2014
+
+Букашки. Приключение в Долине муравьев / Minuscule - La vallee des fourmis perdues (2013) Blu-ray 3D [1080p] [3D/2D]
+
+>>Мультфильмы
+>>Мультфильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Активные и любознательные черные муравьишки обнаруживают брошенную после пикника коробку с сахаром. Дружный отряд муравьишек вместе с Божьей коровкой решают переправить лакомство в муравейник. Но сладкая коробка уже успела нарушить спокойствие во всей долине, и свои планы на лакомство появились у других обитателей леса, в частности — у злобных красных муравьев-захватчиков. (   Читать дальше...   )Производство: Франция, Бельгия, Futurikon, Entre Chien et Loup, Futurikon Production IIЖанр: Мультфильм, Семейный, ПриключенияРежиссер: Хелен Жиро, Томас ЗабоПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 01:28:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7FA43B188FEE8B7DDF18F89029E2FE73C703500
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 827116   (448668) от 02.10.2014
 
 Букашки. Приключение в Долине муравьев / Minuscule - La vallée des fourmis perdues (2013) BDRip [1080p] 3D [Вертикальная анаморфная стереопара]
@@ -6,7 +136,7 @@
 >>Мультфильмы (3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448668.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448631.jpg" />
 </div>
 
 
@@ -59,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448604.jpg" />
 </div>
 
 
@@ -87,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448581.jpg" />
 </div>
 
 
@@ -115,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448569.jpg" />
 </div>
 
 
@@ -141,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448568.jpg" />
 </div>
 
 
@@ -167,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448303.jpg" />
 </div>
 
 
@@ -194,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448236.jpg" />
 </div>
 
 
@@ -220,7 +350,7 @@ Lego Звездные войны: Хроники Йоды / LEGO STAR WARS: The 
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448216.jpg" />
 </div>
 
 
@@ -246,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448174.jpg" />
 </div>
 
 
@@ -272,7 +402,7 @@ Lego Звездные войны: Хроники Йоды / LEGO STAR WARS: The 
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448097.jpg" />
 </div>
 
 
@@ -298,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448088.jpg" />
 </div>
 
 
@@ -325,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447963.jpg" />
 </div>
 
 
@@ -352,7 +482,7 @@ LEGO Ниндзяго: Мастера кружитцу / LEGO Ninjago: Masters o
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447827.jpg" />
 </div>
 
 
@@ -378,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447747.jpg" />
 </div>
 
 
@@ -404,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447566.jpg" />
 </div>
 
 
@@ -430,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447033.jpg" />
 </div>
 
 
@@ -456,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_446854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_446854.jpg" />
 </div>
 
 
@@ -482,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446673.jpg" />
 </div>
 
 
@@ -509,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446547.jpg" />
 </div>
 
 
@@ -535,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_446521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446521.jpg" />
 </div>
 
 
@@ -548,136 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4AF374BE9F204DAA83D0A2FD12F987C7AEF46CCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551617   (445426) от 27.09.2012
-
-Обитель зла: Вырождение / Resident Evil: Degeneration (2008) [720p] BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445426.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нападение зомби приносит хаос в аэропорт Харвардвиль. Клэр Рэдфилд и Леон Кеннеди боровшиеся с корпорацией «Umbrella» во время трагедии в Раккун Сити 7 лет назад вновь вернулись. Они готовы к битве с противником который ищет мести после смерти его семьи в Раккун Сити. Смертельный G-вирус выпущен на свободу и рождает нового мутировавшего монстра. Уничтожат ли Клэр (   Читать дальше...   )Производство: Япония, Capcom Company, Resident Evil CG Film Partners, Sony Pictures Entertainment Inc.Жанр: Фантастика, Боевик, Триллер, Компьютерная анимацияРежиссер: Макото КамияПеревод: Многоголосый закадровыйЯзык субтитров: Русские (2 варианта), английскиеПродолжительность: 01:36:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FD024706BE9CACAA32D4549D2D22E2DDD625A0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551620   (445321) от 27.09.2012
-
-Обитель зла: Вырождение / Resident Evil: Degeneration (2008) [1080p] BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_445321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нападение зомби приносит хаос в аэропорт Харвардвиль. Клэр Рэдфилд и Леон Кеннеди боровшиеся с корпорацией «Umbrella» во время трагедии в Раккун Сити 7 лет назад вновь вернулись. Они готовы к битве с противником который ищет мести после смерти его семьи в Раккун Сити. Смертельный G-вирус выпущен на свободу и рождает нового мутировавшего монстра. Уничтожат ли Клэр (   Читать дальше...   )Производство: Япония, Capcom Company, Resident Evil CG Film Partners, Sony Pictures Entertainment Inc.Жанр: Фантастика, Боевик, Триллер, Компьютерная анимацияРежиссер: Макото КамияПерсонажи: Элисон Корт, Пол Мерсье, Лаура Бэйли, Стивен Блум, Криспин Фриман, Дэйв Маллоу, Жоржетт Роуз, Роджер Крэйг Смит, Майкл СоричПеревод: Многоголосый закадровыйЯзык субтитров: Русские (2 варианта), английскиеПродолжительность: 01:36:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B2D8756735B1110FDC1A9A0849813118951338E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 391433   (444855) от 23.09.2011
-
-Три мешка хитростей (1954) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация украинской народной сказки.Жанр: ДетскийРежиссер: Петр Носов, Ольга ХодатаеваПродолжительность: 00:10:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F132D44725E714497EF362D726B94290D56518D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 827998   (444374) от 04.10.2014
-
-Легенда о МорДу / The Legend of Mor'du (2012) BDRemux [1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444374.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легенда о королевстве МорДу рассказанная ведьмой из мультфильма «Храбрая сердцем»Производство: СШАЖанр: Мультфильм, Драма, Мелодрама, Приключения, Семейный, МузыкаРежиссер: Брайан ЛарсенАктеры: Джули Уолтерс, Стив Пурселл, Каллум О’НиллПеревод: Дублированный, Одноголосый,  ДвухголосыйЯзык субтитров: Русские (BD CEE), Русские (-Доцент-), Украинские (BD CEE), English, English (SDH), French, SpanishПродолжительность: 00:06:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F54DC782FCAA42999236BBC45260576F2AEBFE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570274   (444342) от 16.08.2022
-
-Я краснею / Turning Red (2022) BDRip [H.264/1080p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_444342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уверенная в себе 13-летняя Мэй Ли разрывается между тем, чтобы оставаться прилежной и послушной маминой дочкой и справиться с хаосом подросткового возраста. И, казалось бы, перемен в её интересах, отношениях и подростковых изменений в собственном теле и так достаточно, но нет — всякий раз, когда она слишком волнуется (что с подростком случается практически всегда), (   Читать дальше...   )Производство: США, Канада / Pixar Animation Studios, Walt Disney PicturesЖанр: мультфильм, фэнтези, комедия, приключенияРежиссер: Доми ШиАктеры: Чян, Сандра О, Ава Морс, Майтреи Рамакришнан, Пак Хе-ин, Джеймс Хун, Саша Ройз, Джордан Фишер, Финнеас О’Коннелл, Вай Чин Хо, Лори Тан ЧиннПеревод: ДублированныйСубтитры: Русские (forced, full), английские (full, SDH)Продолжительность: 01:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEEA2B06239A1CA9B4E3EFB1CE502AA8CB098EC5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,56 +1,3 @@
-###  Публикация: 1657259   (192998) от 02.09.2023
-
-Валентин Пикуль | Русско-японская война. Дальний Восток (Книга 1). Богатство (2006) [MP3, Николай Козий]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192998.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роман "Богатство" освещает малоизвестные страницы истории русско-японской войны 1904-05 гг. Здесь перед нами открывается богатейшая страна, земля которой таит несметные сокровища, а природа уникальна. Это Камчатка, где в цветущих долинах, осыпанных вулканическим пеплом, жили гордые и сильные люди. И эти люди были способны пренебречь личным, забыть взаимные (   Читать дальше...   )Жанр: Исторический романИздательство: Говорящая книгаПродолжительность: 13:21:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41074F72D590DED1EBAE94C991B8DD71007358C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657413   (192729) от 03.09.2023
-
-Валентин Пикуль | Русско-японская война. Дальний Восток (Книга 2). Три возраста Окини-сан (2006) [MP3, Вячеслав Герасимов]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192729.jpg" />
-</div>
-
-
-###  Подробнее
-
-Валентин Пикуль обозначил свой роман «Три возраста Окини-сан» словом «сентиментальный». Но на фоне романтической любви русского офицера к японской девушке развертывалась интереснейшая политическая интрига взаимоотношений России и Японии.
-В центре романа «Три возраста Окини-сан» — драматическая судьба Владимира Коковцева, прошедшего путь от мичмана до адмирала российского (   Читать дальше...   )Жанр: Исторический романИздательство: Говорящая книгаПродолжительность: 17:23:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58C358C0247EC97A06A3A2F3B29BBF5CF373851B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1657406   (192723) от 03.09.2023
 
 Валентин Пикуль | Русско-японская война. Дальний Восток (Книга 3). Крейсера (2017) [MP3, Иван Литвинов]
@@ -59,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192723.jpg" />
 </div>
 
 
@@ -85,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192718.jpg" />
 </div>
 
 
@@ -112,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192703.jpg" />
 </div>
 
 
@@ -138,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192666.jpg" />
 </div>
 
 
@@ -164,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192655.jpg" />
 </div>
 
 
@@ -190,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192364.jpg" />
 </div>
 
 
@@ -216,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190929.jpg" />
 </div>
 
 
@@ -243,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190137.jpg" />
 </div>
 
 
@@ -271,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188031.jpg" />
 </div>
 
 
@@ -297,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188005.jpg" />
 </div>
 
 
@@ -323,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185219.jpg" />
 </div>
 
 
@@ -349,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184140.jpg" />
 </div>
 
 
@@ -376,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183682.jpg" />
 </div>
 
 
@@ -404,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182919.jpg" />
 </div>
 
 
@@ -430,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_179568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179568.jpg" />
 </div>
 
 
@@ -456,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179291.jpg" />
 </div>
 
 
@@ -482,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176735.jpg" />
 </div>
 
 
@@ -508,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_176372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176372.jpg" />
 </div>
 
 
@@ -534,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172409.jpg" />
 </div>
 
 
@@ -560,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172406.jpg" />
 </div>
 
 
@@ -586,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172399.jpg" />
 </div>
 
 
@@ -612,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172396.jpg" />
 </div>
 
 
@@ -639,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172024.jpg" />
 </div>
 
 
@@ -665,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171306.jpg" />
 </div>
 
 
@@ -678,6 +625,59 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A90EF733F925AC875B56BEB27F64AD571E6AF732
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430522   (170852) от 10.12.2020
+
+Антон Деникин | Очерки русской смуты. Том третий. Белое движение и борьба Добровольческой армии (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170852.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор "Очерков русской смуты" Антон Иванович Деникин (1872-1947), занимая в период с 1917 по 1920 гг. ключевые посты в русской армии, сыграл значительную роль в истории России, став одним из руководителей белого движения.
+В третьей книге автор рисует политическую карту Российского государства к середине 1918 года, рассказывает о внутренней жизни Добровольческой (   Читать дальше...   )Жанр: История, мемуарыПродолжительность: 03:49:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:770130F584D5AA16832FE776426DE8C01BC91D7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344300   (170552) от 10.12.2019
+
+Мари-Бернадетт Дюпюи | Лики ревности (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170552.jpg" />
+</div>
+
+
+###  Подробнее
+
+Синеглазая красавица Изора уже испытала много разочарований в любви. Девушка часто думала: единственные люди, которые по-настоящему ее любят,□– это родители. После взрыва на шахте в поселке Феморо Изора переживала, что пострадал Тома, в которого она безнадежно влюблена. Тома выжил. Но Изора его не интересует, ведь он собирается жениться на белокурой полячке (   Читать дальше...   )Жанр: Исторические любовные романыПродолжительность: 18:56:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE31B980AD05FAB9B85C1164D0087C51EEEB2DB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

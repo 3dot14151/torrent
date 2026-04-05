@@ -1,3 +1,29 @@
+###  Публикация: 1381610   (823985) от 08.05.2020
+
+Lectrum | Продвинутый курс по Webpack v4, с чистого листа (2019) PCRec [H.264]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы изучите все возможные темы, которые относятся к Webpack: от основ эффективной сборки проекта до продвинутых подходов типа code splitting и shimming.Жанр: ПрограммированиеПродолжительность: 17:03:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4477ABB948BE549ACD61A15F3CCE8443D7275952
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1381609   (823983) от 08.05.2020
 
 Lectrum | Продвинутый курс по Redis (2019) PCRec [H.264]
@@ -6,7 +32,7 @@ Lectrum | Продвинутый курс по Redis (2019) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823983.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823973.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823815.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823739.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823726.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823724.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823324.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ kalachevaschool, Дарья Остапенко | Построение прост
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822698.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ kalachevaschool, Евгения Мельникова | Скетчи разным
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822687.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ kalachevaschool, Дарьей Остапенко | Рисуем человека
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822685.jpg" />
 </div>
 
 
@@ -277,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822577.jpg" />
 </div>
 
 
@@ -306,7 +332,7 @@ kalachevaschool, Дарьей Остапенко | Эстетика обнаже
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822576.jpg" />
 </div>
 
 
@@ -332,7 +358,7 @@ Geekbrains | Профессия Разработчик игр (2017) PCRec [H.26
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_821995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821995.jpg" />
 </div>
 
 
@@ -361,7 +387,7 @@ Unity3DSchool | Комплексное обучение созданию игр 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820312.jpg" />
 </div>
 
 
@@ -389,7 +415,7 @@ Geekbrains | Профессия Разработчик .Net (2016) PCRec [H.264/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820311.jpg" />
 </div>
 
 
@@ -418,7 +444,7 @@ YoRender | Курс 3ds Max для начинающих (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_820141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820141.jpg" />
 </div>
 
 
@@ -447,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_819236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819236.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818719.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ Udemy | Создание веб-сайта с нуля с помощью HTML & 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_818705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818705.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ WingFox, Xiao Yan | Lady Gunslinger - A tutorial of production of a model of a f
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817357.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817197.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816947.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ Geekbrains | Blockchain (2017) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816743.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816699.jpg" />
 </div>
 
 
@@ -664,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816697.jpg" />
 </div>
 
 
@@ -677,32 +703,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BFD444885B069AD5C9D39DEB51E1B9B313AAF51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382708   (816600) от 12.05.2020
-
-Дмитрий Валак | Основы HTML и CSS для начинающих (2019) PCRec [H.264]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_816600.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выучи основы HTML и CSS и научись создавать сайты с нуля! Подробные уроки в видео-формате с домашними заданиями и практикой.Производство: BrainsCloudЖанр: Верстка, HTML, CSSПродолжительность: ~13:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35BB9E01FD93236F66267252B89EDD0FB084A64F
 ```
 
 https://mybot314.ru/tekegram_catalog/

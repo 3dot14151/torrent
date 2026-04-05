@@ -1,3 +1,165 @@
+###  Публикация: 1360775   (957767) от 17.02.2020
+
+Microsoft признала, что февральское обновление безопасности KB4524244 для Windows 10 содержит критические ошибки
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957767.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обновление KB4524244 распространялось Microsoft в рамках ежемесячного обновления Patch Tuesday и стало доступно пользователям 11 февраля 2020 года. Согласно описанию обновления, оно должно было улучшить систему безопасности Windows 10 (версии 1909, 1903, 1809 и 1607) и исправить уязвимости в менеджерах загрузки, созданных сторонними производителями ноутбуков и ПК, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360850   (957765) от 17.02.2020
+
+С прискорбием сообщаем, ушел из жизни один из ведущих документалистов, alf62
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957765.jpg" />
+</div>
+
+
+###  Подробнее
+
+С прискорбием сообщаем.
+Родные и близкие, сообщество релизеров и зрители понесли невосполнимую утрату. Ушел из жизни прекрасный человек, отец и замечательный релизер Александр, известный большинству как Alf62.Более 10 лет своей жизни он посвятил релизам военно-исторической тематики.
+Он создал и оставил в сети без малого 1500 релизов, в nnmclub - 1336 релизов, касающихся (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994382   (957758) от 17.02.2020
+
+Михаил Гринберг | Как с помощью вспышки сделать необыкновенные кадры (2015) PCRec [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из курса вы узнаете, как работать с накамерной вспышкой и использовать её для получения интересных, креативных и дорогих кадров. Мы поговорим о технических деталях, приёмах использования одной или нескольких портативных вспышек, разберём кучу примеров и авторскую систему съёмки Михаила Гринберга, а также многое другое.Жанр: ИнтенсивПродолжительность: 08:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27AF632BC582CAF75AF2882AA50526FD2C819A05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 171418   (957676) от 01.02.2010
+
+Черная молния (2009) DVDRip  [H.264]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957676.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие картины разворачивается в наши дни, где главный герой, двадцатилетний Дима Майков, получает в подарок от отца старенькую «Волгу-21» и внезапно обнаруживает, что его машина летает, как настоящий истребитель. Герой бесцельно парит над столичными пробками и беззаботно наслаждается полетами, пока однажды беда не заставляет его по-другому взглянуть на мир.
+
+Теперь (   Читать дальше...   )Производство: Россия,  ГК Bazelevs (Базелевс)Жанр: Фантастика, боевик, мелодрама, комедия, приключенияРежиссер: Александр Войтинский, Дмитрий КиселёвАктеры: Григорий Добрыгин, Екатерина Вилкова, Иван Жидков, Юозас Будрайтис, Екатерина Васильева, Валерий Золотухин, Игорь Савочкин, Виктор Вержбицкий, Сергей Гармаш, Михаил ЕфремовПродолжительность: 01:46:05
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 171908   (957674) от 01.02.2010
+
+ZukoBonus 7 (Обновления для Windows 7)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957674.jpg" />
+</div>
+
+
+###  Подробнее
+
+ZukoBonus7_-_Win7.RTM.January2010.Updates-Zuko
+Обновления безопасности и программного обеспечения для Windows 7 не включённые в RTM. Часть из них как предполагается вообще не выйдет и будет включена в Service Pack1.
+Все обновления разбиты по папкам в зависимости от архитектуры. Устанавливать нужно только обновления для своей архитектуры.Язык интерфейса: Все
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 278917   (957496) от 05.01.2011
+
+Star Wolves 3: Civil War / Звездные волки 2: Гражданская война [Ru] (L) 2010
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957496.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Звездные волки 2: Гражданская война» — продолжение популярной стратегии в реальном времени с ролевыми элементами. Оригинальный масштабный сценарий, сюжетно связанный с первой частью межгалактической эпопеи, позволяет игроку влиять на развитие событий и предопределить один из множества вариантов концовки. Свобода передвижения, свобода выбора заданий, свобода в формировании (   Читать дальше...   )Тип издания: лицензияРазработчик: Elite GamesЖанр: Strategy (Real-time) / RPGЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31EEC30E95B1CE7B91461E56373124D1C0C44518
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 856478   (957164) от 05.01.2015
 
 SAMSUNG PC Share Manager 4.2 [Multi/Ru]
@@ -6,7 +168,7 @@ SAMSUNG PC Share Manager 4.2 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957164.jpg" />
 </div>
 
 
@@ -32,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957154.jpg" />
 </div>
 
 
@@ -58,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957150.jpg" />
 </div>
 
 
@@ -84,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956916.jpg" />
 </div>
 
 
@@ -110,7 +272,7 @@ Mirillis Action! 1.30.0 [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956818.jpg" />
 </div>
 
 
@@ -136,7 +298,7 @@ Anime OP & ED [1999 - 2015, OP & ED] BDRip 720p HS
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956805.jpg" />
 </div>
 
 
@@ -162,7 +324,7 @@ Adobe Premiere Pro CC 2015.2 9.2.0 (41) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956802.jpg" />
 </div>
 
 
@@ -188,7 +350,7 @@ Rise of the Tomb Raider (2015) [Xbox360] [RegionFree] 17349 [FreeBoot] [License 
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956800.jpg" />
 </div>
 
 
@@ -214,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956799.jpg" />
 </div>
 
 
@@ -240,7 +402,7 @@ Adobe Premiere Pro CC 2015 (v9.2.0) RUS/ENG Update 4
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956797.jpg" />
 </div>
 
 
@@ -268,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956687.jpg" />
 </div>
 
 
@@ -294,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956657.jpg" />
 </div>
 
 
@@ -320,7 +482,7 @@ Adobe Bridge 2020 10.0.3 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956613.jpg" />
 </div>
 
 
@@ -346,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956592.jpg" />
 </div>
 
 
@@ -372,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956588.jpg" />
 </div>
 
 
@@ -398,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956581.jpg" />
 </div>
 
 
@@ -424,7 +586,7 @@ Windows 10 Pro x64 lite 1909 build 18363.657 by Zosma [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956575.jpg" />
 </div>
 
 
@@ -453,7 +615,7 @@ Tomb Raider [XBOX360] [PAL/NTSC-U] [En] [LT+1.9] (XGD2/15574) (2013)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956326.jpg" />
 </div>
 
 
@@ -484,7 +646,7 @@ Dead Space 3 Special Limited Edition [Ru/En] (Lossless RePack/1.0) 2013 l R.G. C
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956324.jpg" />
 </div>
 
 
@@ -510,7 +672,7 @@ Smokie (Ансамбль "Смоуки") (1977) [FLAC 2.0|192/24|traсks|Vinyl-R
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955599.jpg" />
 </div>
 
 
@@ -524,163 +686,6 @@ Smokie (Ансамбль "Смоуки") (1977) [FLAC 2.0|192/24|traсks|Vinyl-R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C250154FE52FB99AFE657CEC5BA763C39F564A38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980378   (955593) от 29.01.2016
-
-Ad-Aware Free Antivirus+ 11.10.767.8917 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ad-Aware Free Antivirus+ - бесплатный антивирус, использующий технологии Bitdefender, легендарный антишпион Ad-Aware и веб-защиту для обнаружения и блокировки всех видов вредоносных программ и онлайн-угроз. Бесплатный антивирус в реальном времени следит за активными процессами, изменением реестра, сетевой активностью, загрузками и посещаемыми веб-сайтами.Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64EA703756F4A73950B3883BC816E305B94F30E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980003   (955581) от 29.01.2016
-
-Британских киноцензоров все-таки заставили 10 часов смотреть, как сохнет краска
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955581.jpg" />
-</div>
-
-
-###  Подробнее
-
-В знак протеста против устарелой традиции цензуры кинофильмов британский режиссёр Чарли Лайн (Charlie Lyne) снял фильм… как сохнет краска. Прикол в том, что это многочасовой фильм. По закону цензоры обязаны просмотреть каждую минуту.Цензурой занимается Британский совет по классификации фильмов (British Board of Film Classification, BBFC), бывшее название — Британский (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 749214   (955562) от 24.01.2014
-
-Stardock Fences Pro 2.12 [En]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955562.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fences - программа с помощью которой пользователь может организовать и привести в порядок свой рабочий стол путем группировки иконок в зависимости от их категории (файлы, папки, программы, ссылки, гиперссылки и др.), а также позволяющая скрыть неиспользуемые иконки. Категории можно переименовывать по своему усмотрению. Кроме того Fences позволяет делать скриншоты (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC0251920E457D221CBA662BD4783AD5F89912C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980542   (955464) от 29.01.2016
-
-XSplit Broadcaster 2.7.1512.2130 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955464.jpg" />
-</div>
-
-
-###  Подробнее
-
-XSplit Broadcaster - Программа для организации онлайн трансляций. Используется в основном для захвата игр на экране, перекодировку и мгновенную отправку в интернет вещательные сервисы, такие как justin.tv (twitch.tv), own3d.tv, им подобные, а также запись прямо к себе на компьютер.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2BC1EF18E79F25955632B11533B4AE47E58D788
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979876   (955463) от 29.01.2016
-
-Windows 10 научится читать переписку пользователей
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955463.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cortana будет контролировать переписку пользователей
-Голосовой помощник Cortana, появившийся в операционной системе нового поколения Windows 10, получит доступ к электронной переписке владельцев компьютеров и ноутбуков. Информация об этом появилась в официальном блоге, который ведет корпорация Microsoft.Разработчики отмечают, что анализ электронных сообщений нужен (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980495   (955459) от 29.01.2016
-
-Макбет / Macbeth (2015) HDRip [Line]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Холодные поля Шотландии, военный лагерь, всегда готовый переместиться в другое место. Макбет всегда на войне, его жена, недавно потерявшая ребенка, боится потерять еще и мужа. Чтобы удержать его рядом, она начинает свой проект по устранению конкурентов в борьбе за королевскую корону.Производство: Великобритания / США / Франция / Anton Capital Entertainment (ACE), Creative Scotland, DMC Film, Film 4, See-Saw Films, Studio CanalЖанр: Драма, ВоенныйРежиссер: Джастин Курзель / Justin KurzelАктеры: Майкл Фассбендер, Марион Котийяр, Пэдди Консидайн, Шон Харрис, Джек Рейнор, Элизабет Дебики, Дэвид Тьюлис, Росс Андерсон, Дэвид Хейман, Морис РоевзПеревод: Дублированный (Чистый звук)Субтитры: ОтсутствуютПродолжительность: 01:53:03Реклама: Присутствуют голосовые вставки.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37428D070FC79F7DED87DCB577716785B67372B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062651.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ TutorPlace, Илья Басманов | Ремонт телефонов (2026) W
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062486.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054877.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054876.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054875.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054869.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054731.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054518.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054492.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ OTUS, Артем Бражников и др. | Электроника и эле�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1052102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052102.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ TrueDO, Виталий Кудряшов | Основы сварочного де
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051820.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ TrueDO, Александра Фалендуш | Деревянная игруш�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051818.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051814.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ MaralexPRO | Проектирование и сборка корпусной м�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051783.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ TrueDO, Сергей Дёмкин | Основы столярного дела (
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051630.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ TrueDO, Ольга Танана | Основы кожевенного дела (
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051629.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ TrueDO, Александра Катайцева | Основы бытовой р
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051628.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ TrueDO, Александра Катайцева | Продвинутая быт�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051627.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051300.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051297.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051293.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051127.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051119.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048161.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045459.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Skillbox | Дизайн интерьеров с нуля до PRO (2020) PCRec
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045122.jpg" />
 </div>
 
 

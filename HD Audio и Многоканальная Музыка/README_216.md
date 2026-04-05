@@ -1,32 +1,3 @@
-###  Публикация: 1706042   (63162) от 12.03.2024
-
-The Beatles - Magical Mystery Tour, Yellow Submarine (Волшебное таинственное путешествие, Желтая субмарина) (1967, 1969) 1992 [FLAC 24/192|Lossless|tracks] <Classic Rock, Soundtrack>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Волшебное таинственное путешествие.
-Сторона 1.
-01 - Волшебное таинственное путешествие. (Джон Леннон - Пол МакКартни)
-02 - Дурак на холме. ( Джон Леннон - Пол МакКартни)(   Читать дальше...   )Жанр: Classic Rock, SoundtrackПродолжительность: 00:36:35, 00:39:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96C5536862A076106547220FC45BFBE996D92805
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706308   (63159) от 12.03.2024
 
 VA - А любовь жива (1980) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
@@ -35,7 +6,7 @@ VA - А любовь жива (1980) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63159.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Black Label Society (Zakk Wylde; Zakk Sabbath) - Studio Albums (17 releases) (19
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63055.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ VA - Песни Давида Тухманова (1979) [FLAC 24/192|Lossless|tra
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62971.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62639.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Deep Forest - Studio Albums & Projects (23 releases) (1994-2023) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62557.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62534.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Electric Light Orchestra (ELO) - Time (1981) [FLAC 24/192|Lossless|tracks] <Synt
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62437.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Samson - Survivors (1979) Reissue, 1983, Thunderbolt [FLAC|24/192|image + .cue|V
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62343.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62339.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Korn (Jonathan Davis) - Studio Albums (16 releases) (1994-2022) hand made [resto
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62268.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62237.jpg" />
 </div>
 
 
@@ -354,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62226.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62226.jpg" />
 </div>
 
 
@@ -383,7 +354,7 @@ Yello - Baby (1991) 1992 [FLAC 24/192|Lossless|tracks] <Synth-Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62215.jpg" />
 </div>
 
 
@@ -412,7 +383,7 @@ Scooter - Open Your Mind And Your Trousers (2024) [FLAC 24/44.1|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62131.jpg" />
 </div>
 
 
@@ -441,7 +412,7 @@ Genesis - Selling England By The Pound (1973) SACD, Remastered, 2024, Analogue P
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62109.jpg" />
 </div>
 
 
@@ -470,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62012.jpg" />
 </div>
 
 
@@ -499,7 +470,7 @@ VA - Наутилус Помпилиус / Бригада С (1988) [FLAC 24/192
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62006.jpg" />
 </div>
 
 
@@ -528,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61904.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61832.jpg" />
 </div>
 
 
@@ -586,7 +557,7 @@ VA - Пульс 1 - Музыкальный компьютер. (Серия "Сп
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61817.jpg" />
 </div>
 
 
@@ -615,7 +586,7 @@ VA - Пионерские песни - А. Долуханян (1969) [FLAC 24/19
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61806.jpg" />
 </div>
 
 
@@ -644,7 +615,7 @@ James Last (Джеймс Ласт) - Большой секрет (1977) [FLAC 24
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61799.jpg" />
 </div>
 
 
@@ -673,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61795.jpg" />
 </div>
 
 
@@ -702,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61626.jpg" />
 </div>
 
 
@@ -731,7 +702,7 @@ Deep Purple - Machine Head (Super Deluxe) (2024) [FLAC 24/96.0, 48.0, 44.1 kHz|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61402.jpg" />
 </div>
 
 
@@ -745,6 +716,35 @@ Disc 1: Machine Head (2024, Remix & Remaster):
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5934A58F57BC3540433E2AB22754E044F56D9F4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711254   (61393) от 29.03.2024
+
+Sheryl Crow - Evolution (2024) Deluxe [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alarm Clock
+02. Digging In The Dirt (feat. Peter Gabriel)
+03. Do It Again
+04. Love Life(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD23D9D51BEC5997D03CDC4D15779CF8DC385E8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

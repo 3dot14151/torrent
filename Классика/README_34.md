@@ -1,3 +1,29 @@
+###  Публикация: 146803   (416526) от 18.10.2009
+
+Nicolo Paganini (1782-1840) The 6 Violin Concertos (3CD) [MP3|320 kb/s]<Classical>
+
+>>Классика
+>>Концерты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_416526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ClassicalПродолжительность: 03:41:08
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1325109   (416067) от 13.09.2019
 
 Lindsey Stirling - Artemis (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Classical Crossover>
@@ -6,7 +32,7 @@ Lindsey Stirling - Artemis (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, C
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416067.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ The New London Chorale - Live In Concert (2012) A Tom Parker Project [FLAC|Lossl
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415494.jpg" />
 </div>
 
 
@@ -64,7 +90,7 @@ V.A. - Anita Meyer, Rob de Nijs, Amy Vanmeenen, Edward Reekers - The Commandment
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415493.jpg" />
 </div>
 
 
@@ -93,7 +119,7 @@ The New London Chorale - The New Amadeus Mozart (1997) [FLAC|Lossless|image + .c
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_415425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415425.jpg" />
 </div>
 
 
@@ -122,7 +148,7 @@ Dirk Maassen - An Evening at Wilhelmsburg (2020) EP [FLAC|Lossless|WEB-DL|tracks
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413617.jpg" />
 </div>
 
 
@@ -151,7 +177,7 @@ Annabel Parker - The New Classics (1994) A Tom Parker Project [FLAC|Lossless|ima
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413353.jpg" />
 </div>
 
 
@@ -180,7 +206,7 @@ Wolfgang Amadeus Mozart–Divertimento KV 287 Eine Kline nachtmusik KV 525: Berl
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411553.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ J.S.Bach - Cantatas, Vol.48 (Bach Collegium Japan, Masaaki Suzuki) (2011) [DST64
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411515.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ Buxtehude - Works for Organ (Masaaki Suzuki) (2010) [DST64 2.0, DST64 5.0|64(2,8
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411368.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ Mozart, Schubert, Debussy - Piano Duets (Sviatoslav Richter & Benjamin Britten) 
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411263.jpg" />
 </div>
 
 
@@ -302,7 +328,7 @@ Dale Kavanaugh - Toccata In Blue (2000) [FLAC|Lossless]<Contemporary Classical, 
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411035.jpg" />
 </div>
 
 
@@ -331,7 +357,7 @@ Marco Bakker - Opus (1987) A Tom Parker Project [FLAC|Lossless|image + .cue] <С
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410985.jpg" />
 </div>
 
 
@@ -357,7 +383,7 @@ Sviatoslav Richter - The Essential Richter (1996) 5CD [MP3|320 кб/с]<Classica
 >>Фортепиано
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_410935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410935.jpg" />
 </div>
 
 
@@ -386,7 +412,7 @@ Beethoven - Chamber Music for Winds Vol.3 (Consortium Classicum) (1997) [FLAC|im
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409465.jpg" />
 </div>
 
 
@@ -415,7 +441,7 @@ After Eden - Superstrings (1998) Producer – Tom Parker [FLAC|Lossless|image + 
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_409177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409177.jpg" />
 </div>
 
 
@@ -444,7 +470,7 @@ Vanessa Mae - The Best (2010) [FLAC|Lossless|image + .cue] <Classical Crossover>
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_408559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408559.jpg" />
 </div>
 
 
@@ -473,7 +499,7 @@ Giuseppe Verdi - Don Carlos (Sir Georg Solti & The Orchestra of the Royal Opera 
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407831.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407831.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ Montserrat Caballe - Recital Espagnol (2003)(2CD)(RCA RED SEAL) [FLAC|Lossless]<
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407692.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ Emmanuel Holterbach & Blutwurst - Ricercar Nell'ombra (2020) [FLAC|Lossless|trac
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406778.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ Giuseppe Verdi - Otello: Tullio Serafin & Rome Opera Orchestra and Chorus (1998)
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406570.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ Giuseppe Verdi - Aida: Riccardo Muti & Montserrat Caballe, Placido Domingo (1986
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406515.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ David Garrett - Music (2012) Deluxe Edition [MP3|320 кб/с]<Classical, Instrum
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406490.jpg" />
 </div>
 
 
@@ -646,7 +672,7 @@ Giuseppe Verdi - Rigoletto (Tullio Serafin, Orchestra & Chorus Of La Scala)  2C
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406085.jpg" />
 </div>
 
 
@@ -673,7 +699,7 @@ Anna Netrebko - 3 альбома (2006-2009) [FLAC|Lossless]<Classical, Vocal>
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406070.jpg" />
 </div>
 
 
@@ -708,7 +734,7 @@ Antonio Lucio Vivaldi Johann Sebastian Bach-Baroque Guitar Favourites: Camerata 
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405504.jpg" />
 </div>
 
 
@@ -728,41 +754,6 @@ Trio Sonata in G minor, RV 85(   Читать дальше...   )Жанр: Baroq
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D09D211DBCF4F82D8364703B1C2C30D5516BACC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 563306   (403610) от 22.10.2012
-
-VA - Reference Classics First Sampling (1990)[FLAC|Lossless]<Classical Instrumental>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист:
-
-01. Pacific Symphony Orchestra (Copland)-An Outdoor Overture [09:03]
-02. Tafelmusik Baroque Orchestra (Pachelbel)-Canon and Gigue in D [04:06]
-03. Tafelmusik Baroque Orchestra (Pachelbel)-Canon and Gigue in D [01:36]
-04. Chicago Pro Musica (Walton)-Facade Suite {Fanfare} [00:34]
-05. Chicago Pro Musica (Walton)-Facade Suite {Scotch Rhapsody} [01:10]
-06. Chicago Pro Musica (Walton)-Facade Suite {Tango Pasodoble} [01:54]
-07. Minoru Nojima (Liszt)-Feux Follets [03:40]
-08. Pacific Symphony Orchestra (Respighi)-Church Windows [06:34](   Читать дальше...   )Жанр: Classical InstrumentalПродолжительность: 01:11:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEBCF182E3F851C6237E5DEFAF9784C8A621744E
 ```
 
 https://mybot314.ru/tekegram_catalog/

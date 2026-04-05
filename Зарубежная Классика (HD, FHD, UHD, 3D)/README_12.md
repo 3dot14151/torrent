@@ -1,3 +1,81 @@
+###  Публикация: 1096481   (913799) от 27.01.2017
+
+День Шакала / The Day of the Jackal (1973) WEB-DLRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913799.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм, действие которого происходит во Франции в начале 60-х годов, основан на реальных событиях. Картина воспроизводит историю покушения на жизнь президента Франции Шарля де Голля, предпринятую ультраправой террористической организации ОАС. Исполнителем воли преступников стал опытный наемный убийца по кличке Шакал, согласившийся выполнить эту работу на полмиллиона (   Читать дальше...   )Производство: Великобритания, ФранцияЖанр: Триллер, Драма, КриминалРежиссер: Фред ЦиннеманАктеры: Эдвард Фокс, Теренс Александр, Мишель Оклер, Алан Бэдел, Тони БриттонПеревод: Многоголосый закадровый, двухголосый закадровый, одноголосый закадровыйЯзык субтитров: АнглийскийПродолжительность: 02:22:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDDA6923CDC0E7B393C9D41D2993E9F99D3EC73C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 634421   (912857) от 24.03.2013
+
+Миланский калибр 9 / Milano calibro 9 (1972) [1080p]  BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912857.jpg" />
+</div>
+
+
+###  Подробнее
+
+История закручивается на чемодане с деньгами, который бандиты передавали друг другу, а в результате босс обнаружил в нём бумагу вместо денег. Всех подельников пытали и убили, кроме одного. Это был Уго Пьяцца. Он сел в тюрьму на три года, и после выхода на свободу его сразу же начали преследовать старые подельники, на 100% уверенные, что это он украл деньги. Они не спешат убить его, а он старается доказать, что не имеет никакого отношения к пропаже денег. Но кто же тогда своровал такую большую сумму и остался незамеченным?Жанр: Боевик, КриминалРежиссер: Фернандо Ди ЛеоАктеры: Гастоне Москин, Барбара Буше, Марио Адорф, Фрэнк Вулф, Луиджи Пистилли, Иво Гаррани, Филипп Леруа, Лайонел Стэндер, Марио Новелли, Джузеппе КастелланоПеревод: Одноголосый закадровыйЯзык субтитров: Русские, АнглийскиеПродолжительность: 01:42:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C30CE9A07BBFFA61D21B2FCDBAC8D9C46E30A5D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093211   (911939) от 28.01.2017
+
+За пригоршню динамита / Giu la testa / A Fistful of Dynamite (1971) BDRip [H.265/1080p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911939.jpg" />
+</div>
+
+
+###  Подробнее
+
+На бескрайних мексиканских просторах встречаются два «солдата удачи» — развеселый бандит Хуан Миранда, грабящий со своими детишками почтовые дилижансы, и ирландский террорист и бомбометатель Мэллори, мчащийся на своем мотоцикле навстречу опасности и оставляя позади себя воронки от разрывов динамитных шашек. Миранда мечтает использовать «взрывоопасный» талант Мэллори (   Читать дальше...   )Производство: Италия, США, Испания /  Euro International Film (EIA), Rafran Cinematografica, San Miura, United ArtistsЖанр: Вестерн, ПриключенияРежиссер: Серджио ЛеонеАктеры: Джеймс Коберн, Род Стайгер, Мария Монти, Рик Батталья, Франко Грациози, Ромоло Валли, Антуан Сент-Джон, Вивьенн Майя, Дэвид Уорбек, Джулио БаттиферриПеревод: Многоголосый закадровый (ОРТ)Продолжительность: 02:37:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83FB22292E07E21EFAA76F455A0C26C1BA22FD61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 986471   (911716) от 25.02.2016
 
 Псевдоним – Джесси Джеймс / Alias Jesse James (1959) HDTV [H.264/1080i]
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911716.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911424.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910199.jpg" />
 </div>
 
 
@@ -86,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910070.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908859.jpg" />
 </div>
 
 
@@ -139,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908095.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907934.jpg" />
 </div>
 
 
@@ -192,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907699.jpg" />
 </div>
 
 
@@ -218,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907579.jpg" />
 </div>
 
 
@@ -244,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907517.jpg" />
 </div>
 
 
@@ -271,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907432.jpg" />
 </div>
 
 
@@ -298,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906442.jpg" />
 </div>
 
 
@@ -325,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906030.jpg" />
 </div>
 
 
@@ -352,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905961.jpg" />
 </div>
 
 
@@ -380,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_905944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_905944.jpg" />
 </div>
 
 
@@ -406,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905848.jpg" />
 </div>
 
 
@@ -432,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905766.jpg" />
 </div>
 
 
@@ -459,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905721.jpg" />
 </div>
 
 
@@ -485,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904963.jpg" />
 </div>
 
 
@@ -511,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904761.jpg" />
 </div>
 
 
@@ -538,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902238.jpg" />
 </div>
 
 
@@ -564,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902141.jpg" />
 </div>
 
 
@@ -590,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901900.jpg" />
 </div>
 
 
@@ -601,87 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7327DEF7224C5D7F92D7BA20E2B5D29CAC43BE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100041   (901436) от 03.02.2017
-
-Пуск торпеды / Torpedo Run (1958) WEB-DL [H.264/1080p] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901436.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая мировая война. 1942 год. Американская подводная лодка в Тихом океане получает задание потопить японский авианосец. Ситуация осложняется тем, что авианосец сопровождает транспорт с американскими пленными, включая жену и дочь командира подводной лодки.Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: Военный, ДрамаРежиссер: Джозеф ПивниАктеры: Гленн Форд, Эрнест Боргнайн, Дайан Брюстер, Дин Джонс, Л. К. Джонс, Филип Обер, Ричард Карлайл, Фредд Уэйн, Дон Кифер, Роберт ХардиПеревод: Авторский одноголосый закадровыйЯзык субтитров: АнглийскийПродолжительность: 01:35:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8026FEBC89B78EA05E8A6EFEF9452C8EA6A39A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 874324   (901271) от 24.03.2020
-
-Расёмон / Rashmon (1950) BDRip 720p
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901271.jpg" />
-</div>
-
-
-###  Подробнее
-
-По рассказу Рюноске Акутагавы "В чаще" ("In the Woods").
-Действие картины происходит в древней Японии. В лесу изнасилована женщина, а ее муж убит. Есть четыре точки зрения - у каждого из четырех свидетелей - своя.
-Каждая проливает дополнительный свет на случившееся, добавляя дополнительные детали к случившемуся. Однако какая же версия является (   Читать дальше...   )Производство: ЯпонияЖанр: Драма, КриминалРежиссер: Акира КуросаваАктеры: Тосиро Мифунэ, Матико Кё, Масаюки Мори, Такаси Симура, Минору Чиаки, Китидзиро Уэда, Норико Хонма, Дайскэ КатоПеревод: Дублированный, двухголосый закадровый (СВ Дубль по заказу ГТРК Культура), многоголосый, закадровый (DVD Магия)Язык субтитров: Русский, английскийПродолжительность: 01:28:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF34633A354906006D7D1F33444F02EBD1D7D822
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095096   (901188) от 03.02.2017
-
-Человек с востока / E poi lo chiamarono il magnifico (1972) Blu-ray [H.264/1080p] [Custom]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901188.jpg" />
-</div>
-
-
-###  Подробнее
-
-Забавные приключения молодого чопорного англичанина Томаса на Диком Западе, где он под руководством трёх довольно мирных разбойников постигает простую жизнь без затей. Томас шокирует местных жителей своими манерами, и, влюбившись в дочь богатого фермера, окончательно становится посмешищем. Но не надолго
-Его товарищи берутся превратить парня в настоящего лихого американца, (   Читать дальше...   )Производство: Италия, Франция, Югославия, Jadran Film, Les Productions Artistes Associs, Produzioni Europee Associati (PEA)Жанр: Вестерн, комедияРежиссер: Энцо БарбониАктеры: Теренс Хилл, Грегори Уэлкотт, Янти Соммер, Доминик Барто, Гарри Кэри мл., Энцо Фьермонте, Даника Ла Лоджа, Риккардо Пиццути, Жан Луис, Алессандро СперлиПеревод: Профессиональный (многоголосый, закадровый), Профессиональный (двухголосый, закадровый)Продолжительность: 02:05:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5839C1F29BDBCD270530E88F0BE435B05722425
 ```
 
 https://mybot314.ru/tekegram_catalog/

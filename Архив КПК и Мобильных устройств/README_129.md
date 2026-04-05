@@ -6,7 +6,7 @@ ToonMe v0.7.6 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111213.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PhotoRoom v4.9.4 b1364 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111176.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ PowerDirector – Video Editor v13.4.1 b2404191 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111152.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Speedtest от Ookla 5.3.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111120.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Photo Lab PRO v3.13.7 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111099.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ PhotoDirector v19.1.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111083.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ English LinDuo HD v5.32.0 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110947.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Photo Lab PRO v3.13.7 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110944.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Strava: бег, велоезда, хайкинг v357.7 Mod by ReVanced Team [Ru
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110933.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ WPS Office + PDF v18.9 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110891.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.7.11 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110523.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ OfficeSuite Pro + PDF 14.4.51682 Lite-Mod by Balatan [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110445.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ TikTok 34.5.4 Mod by Dmitry Nechiporenko + Plugin 1.35 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110443.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Soul Browser 1.4.16 Mod by youarefinished [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110436.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ ibis Paint X 12.0.5 Lite-Mod by NURIK [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110421.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ ibis Paint X 12.0.5 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110388.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ PhotoDirector - Редактор фото 19.1.7 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110307.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ OsmAnd+ — Карты & GPS Офлайн v4.7.13 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110277.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Lucky Patcher 11.3.3 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110247.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ PowerDirector – Video Editor v13.4.2 b2405031 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110245.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ PhotoRoom 4.9.4 (b1368) Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110243.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ KineMaster - Video Editor & Maker v7.4.10.32410.GP Mod by Shadow_Patcher [Ru/Mul
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110236.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ PhotoDirector v19.1.8 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110215.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Lucky Patcher 11.3.4 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109891.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Soul Browser 1.4.18 Mod by derrin [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109818.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ PhotoDirector - Редактор фото 19.2.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109779.jpg" />
 </div>
 
 

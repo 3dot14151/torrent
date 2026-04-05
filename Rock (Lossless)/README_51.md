@@ -1,3 +1,119 @@
+###  Публикация: 1020253   (744858) от 26.05.2016
+
+Jon Lord - Concerto For Group & Orchestra (2012) [FLAC|Lossless|image + .cue] <Rock, Classical Crossover, Progressive rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_744858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Movement One: Moderato - Allegro (16:23)
+02. Movement Two: Andante (19:37)
+03. Movement Three: Vivace - Presto (10:52)Жанр: Rock, Classical Crossover, Neoclassical, Progressive rockПродолжительность: 00:46:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E6E8A50313970426EC23A97CE0F274FDE8B6D5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396809   (744196) от 17.07.2020
+
+Magenta - The Lost Reel (2020) Tigermoth Records [FLAC|Lossless|image + .cue] <Progressive Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Legend (2020 remix) (6:06)
+02. Reach for the Moon (Shadow mix) (5:41)
+03. Not in Our Name (2020 remix) (7:15)
+04. The Rose (Victor's mix) (7:49)(   Читать дальше...   )Жанр: Progressive Rock, Female VocalПродолжительность: 01:13:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5B6D36E466DDA6BB8A1A9503321861128D13632
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524607   (743642) от 16.01.2022
+
+Elvis Costello & The Imposters - The Boy Named If (2022) [FLAC|Lossless|tracks + .cue] <Pop Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Farewell, OK
+02. The Boy Named If
+03. Penelope Halfpenny
+04. The Difference(   Читать дальше...   )Жанр: Pop Rock, Alternative RockПродолжительность: 00:52:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9DA3568614A48327ED6C5F54D0FC670D5DD0302
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 783460   (743558) от 05.05.2014
+
+VA - Billboard Top Hits (1985-1989) 5CD [FLAC|Lossless]<Rock, Pop, Electronic, Soft Rock, Pop Rock, Disco>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начиная с 1991 года Rhino Records изменила несколько название и оформление своей знаменитой серии, не изменив главного принципа её построения: по 10 хитов Billboard за каждый год из The Top 100. Одновременно с ежегодными выпусками стали выпускаться boxset за пять лет.
+Представляя вашему вниманию очередную часть энциклопедии музыкальной жизни 20-го века, надеюсь, (   Читать дальше...   )1985
+Продoлжитeльность: 00:41:11
+Трeклиcт:
+01. Billy Ocean - Loverboy  (4:12)(   Читать дальше...   )Жанр: Rock, Pop, Electronic, Soft Rock, Pop Rock, DiscoПродолжительность: 03:27:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F39433B9DFFDA9EA1778F55DB64C4A6937D8D567
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 783247   (743551) от 05.05.2014
 
 VA - Billboard Top Hits (1980-1984) 5CD /1992 Rhino Records/ [FLAC|Lossless]<Rock, Pop, Electronic, Soft Rock, Pop Rock, Disco>
@@ -6,7 +122,7 @@ VA - Billboard Top Hits (1980-1984) 5CD /1992 Rhino Records/ [FLAC|Lossless]<Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743551.jpg" />
 </div>
 
 
@@ -36,7 +152,7 @@ VA - Billboard Top Hits (1975-1979) 5CD /1991 Rhino Records/ [FLAC|Lossless]<Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743531.jpg" />
 </div>
 
 
@@ -66,7 +182,7 @@ Queen - A Night At The Opera (1975) GoldCD Reissue, 1992, MFSL UltraDisc II [FLA
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_743101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743101.jpg" />
 </div>
 
 
@@ -95,7 +211,7 @@ Perfect Son - Cast (2019) [FLAC|Lossless|tracks + .cue] <Soft Rock, Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742538.jpg" />
 </div>
 
 
@@ -124,7 +240,7 @@ VA - Soft Rock Ballads (2006) 3CD [FLAC|Lossless|tracks + .cue] <Soft Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742235.jpg" />
 </div>
 
 
@@ -153,7 +269,7 @@ Avril Lavigne - Head Above Water (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742223.jpg" />
 </div>
 
 
@@ -182,7 +298,7 @@ VA - The Best Rock Ballads In The World...Ever! (1995) 2CD [FLAC|Lossless|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742222.jpg" />
 </div>
 
 
@@ -211,7 +327,7 @@ Lucinda Williams - Bob’s Back Pages: A Night of Bob Dylan Songs (2021) [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_742153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742153.jpg" />
 </div>
 
 
@@ -240,7 +356,7 @@ Queen - A Day At The Races (1976) 1996, GoldCD Reissue, MFSL UltraDisc II [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741798.jpg" />
 </div>
 
 
@@ -269,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741552.jpg" />
 </div>
 
 
@@ -298,7 +414,7 @@ Pretenders - Hate for Sale (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741339.jpg" />
 </div>
 
 
@@ -327,7 +443,7 @@ Les Discrets - Prédateurs (Predateurs) (2017) [FLAC|Lossless|Web-DL|tracks] <Po
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_741169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741169.jpg" />
 </div>
 
 
@@ -356,7 +472,7 @@ Asia - Symfonia: Live In Bulgaria 2013 (2017) [FLAC|Lossless|image + .cue] <Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740913.jpg" />
 </div>
 
 
@@ -382,7 +498,7 @@ Sheryl Crow - Be Myself (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock, Country>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740897.jpg" />
 </div>
 
 
@@ -411,7 +527,7 @@ VA - 100 Hits: Total Rock (2014) 5CD, Box Set [FLAC|track+.cue]<Rock, Hard Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740501.jpg" />
 </div>
 
 
@@ -440,7 +556,7 @@ First Mountain - T-Minus; Your Highness (2020) [FLAC|Lossless|tracks] <Progressi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_740462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740462.jpg" />
 </div>
 
 
@@ -469,7 +585,7 @@ VA - Classic Rock Songs (2019) [FLAC|Lossless|WEB-DL|tracks] <Classic rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739596.jpg" />
 </div>
 
 
@@ -498,7 +614,7 @@ The Animals - The House Of The Rising Sun: Best Of The Animals (2019) [FLAC|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739563.jpg" />
 </div>
 
 
@@ -527,7 +643,7 @@ Alannah Myles - A Lan Nah (1995) [FLAC|Lossless]<Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_739245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739245.jpg" />
 </div>
 
 
@@ -556,7 +672,7 @@ Red Sand - The Sound of the Seventh Bell (2021) [FLAC|Lossless|tracks + .cue] <N
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738153.jpg" />
 </div>
 
 
@@ -585,7 +701,7 @@ The Samurai Of Prog - Omnibus – 2 (The Middle Years) (2021) Box Set, Compilati
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_738147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738147.jpg" />
 </div>
 
 
@@ -614,7 +730,7 @@ Don Airey - 8 albums, 11 CD (1988-2021) Discography [FLAC|Lossless|image + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737998.jpg" />
 </div>
 
 
@@ -628,122 +744,6 @@ Don Airey - 8 albums, 11 CD (1988-2021) Discography [FLAC|Lossless|image + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B84E97741EB6CDFD6010C3E707E507F20D337B95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526911   (737826) от 26.01.2022
-
-Cap Outrun - High On Deception (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crazy Enough
-02. High On Deception
-03. Disaster Mindset
-04. In The Shade Of The Masquerade(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:57:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C8D6B484E75F602FCC4C47E80E2F2EBC3833000
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 856582   (737552) от 22.07.2020
-
-Emitt Rhodes - Emitt Rhodes (1970) Reissue /1993, One Way Records/ [FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. With My Face On The Floor (3:10)
-02. Somebody Made For Me (2:25)
-03. She's Such A Beauty (2:24)
-04. Long Time No See (3:19)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9524287C191128C002E7F630BC70D2224522A9F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397914   (737130) от 23.07.2020
-
-The Light In The Ocean - The Light In The Ocean (2019) [FLAC|Lossless|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yakamoz (02:54)
-02. Bergherder (10:06)
-03. Space / Suit (05:40)
-04. Seafarer's Song (02:17)(   Читать дальше...   )Жанр: RockПродолжительность: 01:05:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82E120FBC257508513126B256F6564E6C8C509A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 785307   (737031) от 16.05.2014
-
-Slade - 15 Studio Albums, 5 Compilation, 3 Live (1969-1997) Discography [FLAC|Lossless]<Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_737031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock And Roll Preacher  [0:05:18.40]
-02. When I'm Dancin' I Ain't Fightin'  [0:03:44.72]
-03. Tak' Me Bak' 'Ome  [0:04:33.50]
-04. Everyday  [0:03:18.25](   Читать дальше...   )Жанр: Glam RockПродолжительность: 17:24:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:639F2FFABE6F8FB0B1E340C9624FFA2C1EC40AF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

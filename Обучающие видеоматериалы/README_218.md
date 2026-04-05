@@ -1,3 +1,32 @@
+###  Публикация: 1622458   (200708) от 28.03.2023
+
+Udemy, Muhamed Khalid | Modern OpenGL 3.3 with C++ GLSL for beginners (2021) WEB-DL [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Привет, это современный курс OpenGL, на этом курсе вы узнаете, как выполнять рендеринг в 2D / 3D пространстве, и одна из лучших особенностей этого курса в том, что вы можете найти все исходные коды на Github :) Также вы узнаете много о таких вещах, как ->
+
+- 2D-чертеж
+- 3D-рисунок(   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: Английский,Продолжительность: 16:40:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7101BF629C6E7F91D48352840E8487D89DF2F680
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1621737   (200696) от 27.03.2023
 
 Englishmaria, Мария Батхан | Разборки с училкой (2020) WEB-DL [RU]
@@ -6,7 +35,7 @@ Englishmaria, Мария Батхан | Разборки с училкой (2020
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200696.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Korean Demi School | Курс корейского языка (2022) WEB-DL [AD]
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200687.jpg" />
 </div>
 
 
@@ -63,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200683.jpg" />
 </div>
 
 
@@ -92,7 +121,7 @@ Kalacheva School, Аксинья La Paloma | Подозрительные лиц
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200666.jpg" />
 </div>
 
 
@@ -120,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200637.jpg" />
 </div>
 
 
@@ -146,7 +175,7 @@ Pikuma, Gustavo Pezzi | Raycasting Game Development with JavaScript SDL & C (202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200632.jpg" />
 </div>
 
 
@@ -172,7 +201,7 @@ Thinknetica Pro, Артем Нистратов | Метапрограммиро�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200618.jpg" />
 </div>
 
 
@@ -201,7 +230,7 @@ Maria Sw, Мария Приходько | Рисую как Maria Sw 2.0. Тар
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200612.jpg" />
 </div>
 
 
@@ -230,7 +259,7 @@ Udemy, Tomas Moravek | Best of Google SEO 2023: SEO & Copywriting Made Simple & 
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200607.jpg" />
 </div>
 
 
@@ -258,7 +287,7 @@ Udemy, Jose Portilla | OpenAI Python API Bootcamp: Learn to use AI, GPT3, and mo
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200599.jpg" />
 </div>
 
 
@@ -287,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200590.jpg" />
 </div>
 
 
@@ -315,7 +344,7 @@ CGcircuit, David Anastácio Ferreira | Houdini Elements - Particles FX (2022) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200572.jpg" />
 </div>
 
 
@@ -342,7 +371,7 @@ ArjanCodes | The Software Designer Mindset - Complete Edition (2023) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200549.jpg" />
 </div>
 
 
@@ -370,7 +399,7 @@ Geometrium studio, Павел Герасимов | Техническое зад
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200543.jpg" />
 </div>
 
 
@@ -399,7 +428,7 @@ Forms&Stones, Г. Сафиулина, Е. Салтыков | Учебный ку
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200520.jpg" />
 </div>
 
 
@@ -427,7 +456,7 @@ class101, tfvkne | From Visualization to Illustration: Understanding Basic Anato
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200509.jpg" />
 </div>
 
 
@@ -453,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200495.jpg" />
 </div>
 
 
@@ -479,7 +508,7 @@ Udemy, Uisco Dev | How To Make A Doom Clone In Unreal Engine 5 (2023) WEB-DL [EN
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200460.jpg" />
 </div>
 
 
@@ -507,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200454.jpg" />
 </div>
 
 
@@ -536,7 +565,7 @@ Udemy, Serge Lansiquot | Learn C++ Programming By Making Games Volume 2 (2022) W
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200403.jpg" />
 </div>
 
 
@@ -562,7 +591,7 @@ Udemy, Stefano Cotardo | Houdini FX - How to add Visual Effects in Real Videos (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200375.jpg" />
 </div>
 
 
@@ -588,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200365.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ Udemy, Khiari Arbia | ChatGPT and Your First Online Income: A Practical Course (
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200356.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ Maven Analytics, John Pauler | MySQL Specialist (2021) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200349.jpg" />
 </div>
 
 
@@ -668,7 +697,7 @@ Udemy, Wealth Whispers | ChatGPT Secrets | ChatGPT Mastery | ChatGPT Masterclass
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200342.jpg" />
 </div>
 
 
@@ -682,33 +711,6 @@ Udemy, Wealth Whispers | ChatGPT Secrets | ChatGPT Mastery | ChatGPT Masterclass
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32F5CDA5E9BE74BEB1036727873DA5098E88086E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624179   (200292) от 04.04.2023
-
-Udemy, Stephen Pearson | The Cloth Simulation Guide in Blender 2.8 (2021) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Привет всем и добро пожаловать в руководство по моделированию ткани в Blender 2.8! В этом курсе вы узнаете все о моделировании ткани и о том, как оно работает в Blender. Симуляции очень запутаны и иногда их трудно понять, поэтому я создал этот курс, чтобы вы точно знали, как использовать симуляцию ткани и каковы ее функции.
-В первых двух разделах мы рассмотрим, как (   Читать дальше...   )Производство: UdemyЖанр: 3D ГрафикаЯзык озвучки: РусскийПродолжительность: 01:45:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E6BF5619E1EE65095444D08BDD3443DB4039C3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

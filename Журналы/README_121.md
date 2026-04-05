@@ -1,3 +1,107 @@
+###  Публикация: 1113468   (838542) от 11.03.2017
+
+Журнал | Еда на ура! №3 (2017) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838542.jpg" />
+</div>
+
+
+###  Подробнее
+
+Существует хорошая традиция — собираться семьёй за одним столом. Пусть в наше стремительное время это удаётся не так часто, как хотелось бы, но стоит помнить, что общий стол — символ мира и согласия...Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4E7A981D6855C297EC6EA3E3193D99A00DF5F6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113479   (838541) от 11.03.2017
+
+Газета | Скатерть-самобранка. Спецвыпуск. Пасха: Праздничный стол (февраль 2017) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838541.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Скатерть-самобранка" – кулинарная газета со множеством интересных рецептов от читателей.Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7CD62CD9B309B4C1E76A33C175C798748B51412
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113464   (838536) от 11.03.2017
+
+Журнал | Вяжем крючком №3 (март 2017) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярный журнал по вязанию спицами и крючком для начинающих и мастеров.Жанр: ВязаниеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBDF5DCD65A1BED5C9185D1DE62C84D6A9C5F6FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113492   (838534) от 11.03.2017
+
+Журнал | Загадки истории №10 (март 2017) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838534.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны не только журналистами, но и писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!Жанр: Популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC5B0F2F037B2A0C11D0142C2413C51235FE2C7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004303   (838519) от 06.04.2016
 
 Журнал | Цветок №6 (288) (март 2016) [PDF]
@@ -6,7 +110,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838519.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838517.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838404.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838398.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838314.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838312.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838294.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838284.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838170.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838168.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838066.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838054.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837816.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837773.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837624.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837566.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837408.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837356.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_837285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837285.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836898.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836897.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836893.jpg" />
 </div>
 
 
@@ -565,113 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9D20D82A231D1050B58D4D663BA58379DEBE11E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113804   (836811) от 12.03.2017
-
-Газета | Тайны вселенной №3 (2017) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836811.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Тайны вселенной» – Познавательное издание, в котором каждый читатель найдет для себя интересную тему. На страницах журнала множество рубрик, посвященных различным областям знаний, в которых освещаются последние достижения науки и техники. Читая материалы этого издания вы откроете тайны генной инженерии и альтернативной энергетики, узнаете о последних разработках (   Читать дальше...   )Жанр: Популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB3CF63890304CBCF9DCFB4F86709DE27588A814
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004773   (836781) от 07.04.2016
-
-Журнал | Рыбалка на Руси №4 (163) (Апрель 2016) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рыбалка на Руси - журнал для любителей и профессионалов рыбной ловли. Здесь вы узнаете о новых методах ловли рыбы ,о применяемых снастях и наживках. А так же о практике ловли рыбы как зарубежных, так и российских рыболовов.Жанр: РыболовствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:767840738F6BE6FD3F039094E6CFA464DA9AA258
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 772870   (836717) от 02.04.2014
-
-UALinux | UserAndLinuXXX v14.04 (2014) [PDF]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836717.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тема номера - «Такого Linux вы еще не видели!» В номере Вас ждут красивые фотографии эротического содержания и их много )
-
-Дорогие читатели!
-Мы рады представить вам эксклюзивный номер журнала UserAndLINUX посвященный 1-му апреля, в котором не требуются слова. В этом номере как всегда вас ждет множество интересного материала. Оставайтесь с нами! Мы стараемся подбирать (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F3994E108C7B8D3CCBE425A9AC995E144A218B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113628   (836714) от 12.03.2017
-
-Журнал | На бабушкиной кухне №4 (апрель 2017) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836714.jpg" />
-</div>
-
-
-###  Подробнее
-
-"На бабушкиной кухне" - рецепты наших бабушек. Простые рецепты, которые придутся всем по вкусу. А готовить наши бабушки умеют...Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:968F8BC4B64232859520D102FB6E7AEB3848F118
 ```
 
 https://mybot314.ru/tekegram_catalog/

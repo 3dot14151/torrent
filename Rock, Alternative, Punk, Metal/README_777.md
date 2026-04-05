@@ -1,3 +1,32 @@
+###  Публикация: 1264889   (277772) от 25.11.2018
+
+Docker's Guild - The Mystic Technocracy - Season 1: The Age Of Ignorance (2012) [FLAC|Lossless|image + .cue] <Progresssive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trailer - A Matter Of Energy (2:05)
+02. Pilot Episode - The Mystic Technocracy (6:44)
+03. Episode 1.1 - Darwin's Tears (8:14)
+04. Episode 1.2 - Norse Cosmogony (Part 1) (4:43)(   Читать дальше...   )Жанр: Progresssive RockПродолжительность: 01:19:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A66C3AA510422D491683B24D370E146BBC671C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1264726   (277766) от 25.11.2018
 
 Accept - Symphonic Terror: Live at Wacken 2017 (2018) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -6,7 +35,7 @@ Accept - Symphonic Terror: Live at Wacken 2017 (2018) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277766.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Virgin Steele - The Book of Burning (2018) [MP3|320 Kbps] <Heavy Metal, Power Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277712.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Khymera - The Greatest Wonder (2008) [FLAC|Lossless|image+ .cue]<Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277670.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ The Presidents of the United States of America - Pure Frosting (1998) [FLAC|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277591.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Snow Patrol - Reworked (2019) [MP3|320 Kbps] <Alternative>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277517.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277517.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Royal Coda - Compassion (2019) [FLAC|Lossless|tracks + .cue] <Post-Hardcore, Exp
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277428.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ The Beatles - 9 CD (1963-1979) Remaster / Toshiba EMI Ltd./ [WavPack|Lossless]<B
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277397.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ About A Mile - Trust You All The Way (2016) [MP3|320 Kbps] <Pop Rock, Christian 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277380.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Niva - Atmospherical (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277367.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Kanoi - Blue Sky, Sunshine & Gemstone Sunrise (2015 - 2016) [FLAC|Lossless|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277365.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277332.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Santana - Tanglewood 1970 The Classic Early Broadcast (2019) [MP3|320 Kbps] <Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277329.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Fools Garden - High Times - Best of (2009) [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277248.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Queen - Sheer Heart Attack (1974) Japanese Edition, 2018 [FLAC|lossless|image + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277190.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Morbid Angel - Kingdoms Disdained (2017) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277141.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277064.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Barbe-Q-Barbies - All Over You (2010) [MP3|320 Kbps] <Hard Rock, Classic Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277061.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Deuce (ex-Hollywood Undead) - Invincible (2017) [MP3|320 Kbps] <Alternative Rock
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276959.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ U2 - Songs Of Experience (2017) Deluxe Edition [MP3|320 Kbps] <Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276872.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Five Finger Death Punch - A Decade of Destruction (2017) [MP3|320 Kbps] <Heavy M
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276870.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Silversun Pickups - 5 альбомов, 2 EP (2005 - 2017) [FLAC|Lossless|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276760.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ para bellvm - Почти оружие (2018) [MP3|320 Kbps] <Gothic Rock, Indie 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276596.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276586.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ VA - Alternative Nation (1985-1994) [FLAC|Lossless|image + .cue] <Alternative>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276584.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Snow Patrol - Reworked (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop, Indie Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276368.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Snow Patrol - Reworked (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop, Indie Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A49F38DF272385B683435015BBEEB9580818485
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 68036   (276350) от 26.11.2018
-
-Billy Joel - River Of Dreams (1993) [APE|Lossless] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Man's Land [4:48]
-02. The Great Wall Of China [5:47]
-03. Blonde Over Blue [4:55]
-04. A Minor Variation [5:36](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:49:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F704686D923032ECEB80255364164F1749BC4B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

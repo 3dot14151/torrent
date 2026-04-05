@@ -1,3 +1,31 @@
+###  Публикация: 966412   (214972) от 19.12.2015
+
+Специалист | Особенности подготовки облачной инфраструктуры средствами Microsoft System Center 2012R2 Virtual Machine Manager (2015) PCRec [H.264/720p]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интересуетесь технологиями виртуализации Microsoft для корпоративных сред? 22 ноября приглашаем всех желающих на бесплатный вебинар учебного центра «Специалист» при МГТУ имени Н.Э. Баумана «Особенности подготовки облачной инфраструктуры средствами Microsoft System Center 2012R2 Virtual Machine Manager».
+
+Занятие ориентировано на ИТ-специалистов, отвечающих за разработку, (   Читать дальше...   )Жанр: Облачная инфраструктураПродолжительность: 01:38:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:702AC31A5058C234F334BC905A580C80B86912CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 967002   (214935) от 19.12.2015
 
 Школа современных технологий | Web-дизайн. Юзабилити (2014) PCRec [H.264/720p]
@@ -6,7 +34,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214935.jpg" />
 </div>
 
 
@@ -33,7 +61,7 @@ JUG Ru Group | HolyJS 2021 Moscow. Конференция для JavaScript-ра
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214813.jpg" />
 </div>
 
 
@@ -59,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214763.jpg" />
 </div>
 
 
@@ -87,7 +115,7 @@ JUG Ru Group | DevOops 2021. DevOps-конференция (2021) WEB-DL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214570.jpg" />
 </div>
 
 
@@ -115,7 +143,7 @@ SEO Conference | Материалы VI Международной SEO Conference
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214562.jpg" />
 </div>
 
 
@@ -143,7 +171,7 @@ Udemy, Anton Golosnichenko | Разработка API на Nest.js [2021] (2021)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214550.jpg" />
 </div>
 
 
@@ -170,7 +198,7 @@ Lynda.com | Создание веб-приложений с помощью Ajax 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214411.jpg" />
 </div>
 
 
@@ -196,7 +224,7 @@ Udemy, JumpEng School | NEW! Английский для Айтишников (2
 >>Иностранные языки (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214338.jpg" />
 </div>
 
 
@@ -222,7 +250,7 @@ Rebrain, Андрей Буранов | Практикум Bash by REBRAIN (2021)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_214263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_214263.jpg" />
 </div>
 
 
@@ -251,7 +279,7 @@ Udemy, Журавлёв Сергей | C++ Основы многопоточно
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_214035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214035.jpg" />
 </div>
 
 
@@ -279,7 +307,7 @@ Udemy, Mefodiy Kelevra | Мастер Класс по шифрованию | Ver
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213995.jpg" />
 </div>
 
 
@@ -308,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213934.jpg" />
 </div>
 
 
@@ -337,7 +365,7 @@ Udemy, Mefodiy Kelevra | Wifi Pentesting | Взлом Wifi - Новый взгл
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213927.jpg" />
 </div>
 
 
@@ -366,7 +394,7 @@ Skillbox | Как открыть и развивать веб-студию (2018
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213917.jpg" />
 </div>
 
 
@@ -393,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213913.jpg" />
 </div>
 
 
@@ -420,7 +448,7 @@ Dystlab, Виталий Артемов | Видеокурс ''Основы ди�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213657.jpg" />
 </div>
 
 
@@ -447,7 +475,7 @@ designonline, Александр Шуняев | Постановка PRO осв�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213629.jpg" />
 </div>
 
 
@@ -474,7 +502,7 @@ Udemy, Creativity Unleashed | Complete Blender Megacourse: Beginner to Expert - 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213495.jpg" />
 </div>
 
 
@@ -500,7 +528,7 @@ Udemy, Creativity Unleashed | Complete Blender Megacourse: Beginner to Expert - 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213494.jpg" />
 </div>
 
 
@@ -526,7 +554,7 @@ Udemy, Creativity Unleashed | Complete Blender Megacourse: Beginner to Expert - 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213492.jpg" />
 </div>
 
 
@@ -552,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213459.jpg" />
 </div>
 
 
@@ -578,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213458.jpg" />
 </div>
 
 
@@ -606,7 +634,7 @@ Oleg Lav | DefenderUI пользовательский интерфейс Micros
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213357.jpg" />
 </div>
 
 
@@ -633,7 +661,7 @@ Liveclasses, Андрей Журавлев | Повышение резкости
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213305.jpg" />
 </div>
 
 
@@ -659,7 +687,7 @@ Patreon, FlyCat | Ahri Modelling - Full process videos and 3D model (2021) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213288.jpg" />
 </div>
 
 
@@ -671,32 +699,6 @@ Patreon, FlyCat | Ahri Modelling - Full process videos and 3D model (2021) PCRec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DA34E5CC2CC362541BF3F6D441DB3C6B88F03B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557753   (213274) от 17.06.2022
-
-Digital Tutors, Clinton Crumpler | Creating Rock Structures for Games in ZBrush and Unreal Engine (2015) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213274.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создание скальной породы для игр. Unreal Engine 4.6.1, Photoshop, Maya, nDo2, xNormal, ZBrushПроизводство: Digital TutorsЖанр: Создание ассетовЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 02:15:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B2EBE065254AD103A5A7EB0218E5191A557D600
 ```
 
 https://mybot314.ru/tekegram_catalog/

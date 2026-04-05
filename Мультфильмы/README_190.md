@@ -1,3 +1,133 @@
+###  Публикация: 1562139   (512356) от 07.07.2022
+
+Приключения царя / Olympicos (2021) WEBRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512356.jpg" />
+</div>
+
+
+###  Подробнее
+
+История эта случилась давным-давно - во время античной Олимпиады, когда в Грецию со всех сторон света съезжались лучшие атлеты. Среди славных спортсменов оказался самый настоящий Царь, прибывший из одного далекого, но очень солнечного тридевятого царства. Вместе с ним в команде - прекрасная жена, острая на язык теща, смышленая дочурка и даже домашний аист… С такой (   Читать дальше...   )Производство: Армения / Анимационная студия Роберта Саакянца, Sharm PicturesЖанр: Компьютерная анимация, Детский, Развивающий, ПриключенияРежиссер: Давид Саакянц, Айк СаакянцАктеры: Арман Навасардян, Мкртыч Арзуманян, Джульетта Степанян, Грант Тохатян, Арташес Алексанян, Заруи Бабаян, Григор Багдасарян, Нарек Дурян, Армен Газарян, Арсен ГригорянПеревод: Дублированный (KION)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:14:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C473077921BE14D2BA6D8023CD2E408A8F1C297
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 537284   (512054) от 20.08.2012
+
+Карлсон, который живет на крыше / Karlsson pa taket / Karlsson On the Roof (2002) DVDRip [H.264]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512054.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семилетний мечтатель Малыш чувствует себя очень одиноким. Ведь у него совсем нет друга. И вот в один прекрасный день в распахнутое окно его комнаты влетает «обаятельный и в меру упитанный мужчина в самом расцвете сил» с маленьким пропеллером на спине и представляется как «лучший в мире Кар-л-с-сон». Малышу очень весело с новым другом, хотя и достается за его проделки. (   Читать дальше...   )Жанр: Детский, Рисованная анимацияРежиссер: Вибеке Идсе / Vibeke IdsøeПеревод: ДублированныйЯзык субтитров: РусскийПродолжительность: 01:13:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B6E15DA90DAE498D5BAD897D9D85175415EB660
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931548   (511749) от 26.08.2015
+
+Лига справедливости: Боги и монстры / Justice League: Gods and Monsters (2015) BDRip [H.264/720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511749.jpg" />
+</div>
+
+
+###  Подробнее
+
+В альтернативной вселенной совершенно другие воплощения знаменитой супергеройской троицы после обвинения их в атаке на посольство оказываются в противостоянии с правительством.Производство: США / DC Entertainment, Warner Bros. Animation, Warner PremiereЖанр: мультфильм, боевикРежиссер: Сэм ЛьюПерсонажи: Пэйджет Брюстер, Майкл С. Холл, Джейсон Айзекс, С. Томас Хауэлл, Бенджамин Брэтт, Тамара ТейлорПеревод: Профессиональный (многоголосый, закадровый) (Официальный звук)Язык субтитров: АнглийскийПродолжительность: 01:15:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3E763F1CC54629901C4AEF8B2BBADB10AE89B11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931554   (511633) от 26.08.2015
+
+Лига справедливости: Боги и монстры / Justice League: Gods and Monsters (2015) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511633.jpg" />
+</div>
+
+
+###  Подробнее
+
+В альтернативной вселенной совершенно другие воплощения знаменитой супергеройской троицы после обвинения их в атаке на посольство оказываются в противостоянии с правительством.Производство: США / DC Entertainment, Warner Bros. Animation, Warner PremiereЖанр: мультфильм, боевикРежиссер: Сэм ЛьюПерсонажи: Пэйджет Брюстер, Майкл С. Холл, Джейсон Айзекс, С. Томас Хауэлл, Бенджамин Брэтт, Тамара ТейлорПеревод: Профессиональный (многоголосый, закадровый) (Официальный звук)Язык субтитров: АнглийскийПродолжительность: 01:15:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BAD5B369D751EC5123BF8A2E8455176011DDCB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931546   (511619) от 26.08.2015
+
+Лига справедливости: Боги и монстры / Justice League: Gods and Monsters (2015) HDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511619.jpg" />
+</div>
+
+
+###  Подробнее
+
+В альтернативной вселенной совершенно другие воплощения знаменитой супергеройской троицы после обвинения их в атаке на посольство оказываются в противостоянии с правительством.Производство: США / DC Entertainment, Warner Bros. Animation, Warner PremiereЖанр: мультфильм, боевикРежиссер: Сэм ЛьюПерсонажи: Пэйджет Брюстер, Майкл С. Холл, Джейсон Айзекс, С. Томас Хауэлл, Бенджамин Брэтт, Тамара ТейлорПеревод: Профессиональный (многоголосый, закадровый) (Официальный звук)Субтитры: ОтсутствуютПродолжительность: 01:15:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0D9034A3B5E5DB2EA6ED9E3CB7EB27D5AE2D069
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129443   (511609) от 21.07.2019
 
 Балто / Balto (1995) BDRemux [H.264/1080p]
@@ -6,7 +136,7 @@
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511609.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511597.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510695.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510310.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510224.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510222.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509684.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509505.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509412.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_509312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509312.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508863.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508781.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы (коллекции, сборники / *логии)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508779.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508708.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508703.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508693.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508669.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508661.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508631.jpg" />
 </div>
 
 
@@ -502,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508624.jpg" />
 </div>
 
 
@@ -529,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508620.jpg" />
 </div>
 
 
@@ -540,138 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:537F7BCECEA4CEDF58726E157263A0B7C0247D60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538636   (508516) от 24.08.2012
-
-Про Девочку, которая нашла своего мишку (2002) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм — экранизация одноименного стихотворения Саши Черного. Входит в альманах «Волшебный фонарь».Жанр: мультфильм, короткометражкаРежиссер: Елена ЧерноваПродолжительность: 00:06:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3BB5EA404CDC97F75469BB86C806178EDE88A92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538544   (508216) от 24.08.2012
-
-Звездный десант: Вторжение / Starship Troopers: Invasion (2012) [720p] BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508216.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удалённый аванпост Федерации «Форт Кейси» подвергается атаке жуков. Базирующийся там корабль «Джон А. Уорден» должен как можно быстрее увезти выживших на Землю, заодно доставив собранные на «Форте Кейси» данные военной разведки. На помощь к уцелевшим спешит истребитель «Алесия», однако незадолго до запланированной встречи министр Паранормальных Боевых Действий Карл Дженкинс реквизирует «Джон А. Уорден» для какой-то секретной миссии и пропадает в ближайшей туманности. И бравым десантникам с «Алесии» приходится менять курс, ещё не зная, что эта спасательная миссия может закончиться очень печально.Жанр: Мультфильм, анимационный, фантастика, боевикРежиссер: Синдзи АрамакиПерсонажи: Лерардо Анзалдуа, Люси Кристиан, Мелисса Дэвис, Джастин Доран, Дэвид Матранга, Эмили Нэвис, Дэвид ВолдПеревод: Профессиональный многоголосыйЯзык субтитров: АнглийскийПродолжительность: 01:28:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7412847CC6EBE4A6B70E0482112355438BF7DDEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 127076   (507939) от 01.09.2010
-
-Реставрационные релизы от КП
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Реставрационные релизы от студии38 попугаев (DVD5)
-Алиса в Стране Чудес. Алиса в Зазеркалье (DVD5)
-Бременские музыканты (DVD5)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316248   (507693) от 24.07.2019
-
-Маша и Медведь. Машкины страшилки (2014-2018) WEB-DL [H.264/1080p-LQ] (серии 1-26 из 26)
-
->>Мультфильмы
->>Отечественные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очаровательная непоседа Маша, которая полюбилась большим и маленьким зрителям по мультсериалу «Маша и Медведь», не только виртуозная рассказчица сказок, но еще и настоящий эксперт по детским страшилкам. Только не пугайтесь заранее: ничего по-настоящему страшного в «Машкиных страшилках» нет, это своего рода ликбез по популярным детским страхам: на ярких примерах Маша (   Читать дальше...   )Производство: Россия / Студия "Анимаккорд"Жанр: Мультсериал, Анимация, ДетскийРежиссер: Георгий Орлов, Илья Трусов, Андрей БеляевАктеры: Алина Кукушкина, Варвара Саранцева, Борис Кутневич, Эдуард Назаров, Марк Кутневич, Ирина КукушкинаПерсонажи: Маша и МедведьПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: ~00:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A453536DB952F4739E838195D41A3288F6967BB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286510   (507678) от 24.07.2019
-
-Тигтон / Tigtone (2019) WEB-DL (сезон 1, серии 1-11 из 11) [MVO] NewStation
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_507678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cага о герое, зависимом от квестов, который прокладывает свой путь через сатирическую фэнтезийную вселенную с мелодраматической свирепостью, всегда подчиняясь букве закона, но не духу.Производство: США, Adult SwimЖанр: ужасы, фэнтези, комедия, приключенияРежиссер: Фредди КристиПеревод: Двуголосый закадровый, любительский (NewStation)Субтитры: нетПродолжительность: ~00:11:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAB564C61D4FEAA51A115AE522E800AEE237565D
 ```
 
 https://mybot314.ru/tekegram_catalog/

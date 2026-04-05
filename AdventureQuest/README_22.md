@@ -1,3 +1,81 @@
+###  Публикация: 1511653   (788749) от 21.11.2021
+
+Grow: Song of the Evertree (2021) [Ru/Multi] (1.0.0) License FAIRLIGHT
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Миры Аларии постепенно увядают. Вечное древо, на чьих бесчисленных ветвях покоилось целое множество миров, совсем завяло - от него остался лишь саженец. Никто не знает, как его вырастить. Никто, кроме вас. Вы слышите песнь Солнца, разносящуюся по небу. Вы слышите, что шепчет дождь, проливаясь на землю. Вы - последний представитель поколения алхимиков, чья задача (   Читать дальше...   )Тип издания: LicenseРазработчик: Prideful SlothЖанр: Приключения, Песочница (Сим)Язык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:515046AE8474A481B46093E5BBD8AA07D6EDA75B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511441   (788743) от 21.11.2021
+
+Cloudpunk (2020) [Ru/Multi] (6861751/dlc) Repack SpaceX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788743.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вас зовут Рания. И сегодня ваша первая ночная смена в Клаудпанк, полулегальной службе доставки из необъятного города Нивалис. Этой ночью вы побываете везде: от Костяка до пронзающих свинцовое небо величественных шпилей. Опасность вам неведома, а быстрее вас нет никого в этом городе. В этой сюжетно-ориентированной игре вы встретите множество персонажей из разных слоев (   Читать дальше...   )Тип издания: RepackРазработчик: ION LANDSЖанр: Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C530FD310C7427C7174BF95DBF68D2EE456C891B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203231   (788526) от 01.02.2018
+
+Candleman The Complete Journey (2018) [Ru/Multi] (1.0) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Свеча- это приключенческий квест с уникальным геймплеем и сюжетной линией. Игрок исполняет роль свечи, которая может гореть только в течение 10 секунд, находить выход из ловушек и путаниц, пробираться сквозь свет и тьму.Тип издания: LicenseРазработчик: Spotlightor InteractiveЖанр: Adventure, Action, PlatformerЯзык озвучки: Английский, КитайскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:695C10A57D9EA125CAB85B4485596FD8DEEA44D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1276176   (788393) от 15.01.2019
 
 Catherine Classic (2019) [Ru/Multi] (1.0.1151) Repack Other s
@@ -6,7 +84,7 @@ Catherine Classic (2019) [Ru/Multi] (1.0.1151) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788393.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Starship Titanic (1998) [Multi] (1.0.0.42c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788287.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ The Medium (2021) [Ru/Multi] (1.2b7162431/dlc) License CODEX [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788278.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Gray Dawn (2018) [Ru/Multi] (1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787947.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Sally Face (2016) [Ru/Multi] (1.2.18) Repack Z0l0t0y [Episode 1&2]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787554.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ The Awesome Adventures of Captain Spirit / Life Is Strange 2 (2018) [Ru/Multi] (
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787451.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Henry's Day PLAZA (2021) [En] (7617791) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787319.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Kholat (2015) [Ru/Multi] (1.03) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786776.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ KHOLAT (2015) [Ru/Multi] (1.03/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786495.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Herald: An Interactive Period Drama - Book I & II (2017) [En] (1.1.0) License GO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786247.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ The Lion's Song (2016) [Ru/Multi] (1.0) License TiNYiSO [Episode 1-3]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785874.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Silent Descent (2018) [En] (1.03) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784265.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ The Light Remake (2020) [Ru/En] (1.01) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783843.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Deck of Ashes (2020) [Ru/Multi] (1.4.55057) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783826.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Beyond Blue (2020) [Ru/Multi] (1.3.15659) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783822.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Lost God (2018) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783743.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Lighthouse: The Dark Being (1996) [En] (2.0a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783731.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Beyond: Two Souls (2019) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781768.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Samorost 2 / Саморост 2: Звезданутое Приключение [
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780622.jpg" />
 </div>
 
 
@@ -506,7 +584,7 @@ MonteCrypto: The Bitcoin Enigma (2018) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780029.jpg" />
 </div>
 
 
@@ -532,7 +610,7 @@ Sherlock Holmes: Crimes and Punishments / Шерлок Холмс - Престу
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779844.jpg" />
 </div>
 
 
@@ -558,7 +636,7 @@ Far Out (2018) [Ru/En] (1.0.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779841.jpg" />
 </div>
 
 
@@ -584,7 +662,7 @@ Award Room of fear (2018) [Ru/En] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778425.jpg" />
 </div>
 
 
@@ -595,87 +673,6 @@ Award Room of fear (2018) [Ru/En] (1.0) License HI2U
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D06E360986F7CC9FAF08F14E5C6C762F65744F4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012954   (778215) от 02.05.2016
-
-Sylvio Remastered (2016) [En] (1.0) License RELOADED
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_778215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sylvio – приключенческий инди-хоррор от первого лица, в котором вы сыграете в роли Джульетты Вотерс, умеющей записывать голоса мертвых.
-В поисках новых материалов она отправляется в закрытый еще в 70-х годах заброшенный после чудовищного шторма парк, где попадает в ловушку и находит себя заточенной в старом подвале. Вам предстоит помочь героине выжить и выбраться (   Читать дальше...   )Тип издания: LicenseРазработчик: ApostropheЖанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7605F8882F19E601AA93CCEE80DFFCEFCF92F97C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013011   (778173) от 02.05.2016
-
-Republique Remastered Ep. 1-5 (2015-2016) [Ru/Multi] (1.0) License GOG [Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778173.jpg" />
-</div>
-
-
-###  Подробнее
-
-С вами связывается Хоуп, девушка из странной тоталитарной страны. Взломав комплексную систему наблюдения, вы помогаете Хоуп пробраться сквозь паутину опасности и обмана, используя камеры слежения и самые современные гаджеты.
-
-Republique разработана ветеранами игровой индустрии (в свое время ее авторы работали над Metal Gear Solid 4, Halo 4, F.E.A.R., SOCOM) на современном (   Читать дальше...   )Тип издания: LicenseРазработчик: CamouflajЖанр: Adventure, 3D, 3rd Person, StealthЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE4FA7A43B3408AD974AD0E763E0C47B43532DE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994038   (778136) от 02.05.2016
-
-The Walking Dead: Michonne - Episode 1-3 (2016) [Ru/Multi] (1.0.0.0) Repack R.G. Catalyst
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основной героиней игры The Walking Dead: Michonne - A Telltale Miniseries является легендарный персонаж из серии комиксов. Её преследует собственное прошлое, ей приходится справляться с невероятными потерями и сожалением. Сюжет рассказывает о том, что происходило с ней между выпусками #126 и #139. Включает в себя доступ ко всем трём эпизодам этого нового минисериала (   Читать дальше...   )Тип издания: RepackРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:653E8CC91428129295E82875D0EC5231573A68CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

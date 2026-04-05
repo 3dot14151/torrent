@@ -1,3 +1,32 @@
+###  Публикация: 187290   (876505) от 28.03.2010
+
+Stitch Art Easy 4.0 [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разное (прочее ПО)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stitch Art Easy! - вышивка- это просто!
+С этой программой вы сможете:
+Открыть любую фотографию или картинку, сделать и напечатать по ней схему для вышивания, и вышить ваш следующий шедевр!
+Изменить картинку по размеру, цветам и многое другое.(   Читать дальше...   )Язык интерфейса: Русский, Украинский, Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 300233   (875386) от 24.02.2011
 
 VerseQ 2011.02.23.226 Multiuser [Rus] RePack by elchupacabra
@@ -6,7 +35,7 @@ VerseQ 2011.02.23.226 Multiuser [Rus] RePack by elchupacabra
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_875386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_875386.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ IPTV Checker v 2.5 Portable [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867577.jpg" />
 </div>
 
 
@@ -58,7 +87,7 @@ RuntimePack 21.7.30 Full [Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862513.jpg" />
 </div>
 
 
@@ -84,7 +113,7 @@ Qemu Simple Boot 1.3 Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_847359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847359.jpg" />
 </div>
 
 
@@ -110,7 +139,7 @@ Colors Pro 2.2 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_844732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844732.jpg" />
 </div>
 
 
@@ -136,7 +165,7 @@ Microtest PentaScanner+ (firmware & manual) 5.0.0 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802475.jpg" />
 </div>
 
 
@@ -162,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_800539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800539.jpg" />
 </div>
 
 
@@ -188,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_795902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795902.jpg" />
 </div>
 
 
@@ -214,7 +243,7 @@ VanDyke SecureCRT 8.0.1 build 1082 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_794287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794287.jpg" />
 </div>
 
 
@@ -240,7 +269,7 @@ Posteriza 1.1.1 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_792790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792790.jpg" />
 </div>
 
 
@@ -268,7 +297,7 @@ Muscle Premium 4.0.09 Portable [Multi]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789597.jpg" />
 </div>
 
 
@@ -297,7 +326,7 @@ Shutter Pro 4.2 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_767215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767215.jpg" />
 </div>
 
 
@@ -323,7 +352,7 @@ CodeTwo QR Code Desktop Reader & Generator 1.1.2.4 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_761577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761577.jpg" />
 </div>
 
 
@@ -349,7 +378,7 @@ Stardock ShadowFX 1.2 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_725890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725890.jpg" />
 </div>
 
 
@@ -375,7 +404,7 @@ Windows Logon Editor 1.0 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_680674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_680674.jpg" />
 </div>
 
 
@@ -402,7 +431,7 @@ Stardock Multiplicity 3.43 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602319.jpg" />
 </div>
 
 
@@ -428,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599566.jpg" />
 </div>
 
 
@@ -454,7 +483,7 @@ Sim Aquarium 3.8 Build 63 Platinum [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588983.jpg" />
 </div>
 
 
@@ -480,7 +509,7 @@ Natura Sound Therapy 3.0 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586512.jpg" />
 </div>
 
 
@@ -507,7 +536,7 @@ RADIO AdsMan Pro 2.2.2.140 [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558868.jpg" />
 </div>
 
 
@@ -533,7 +562,7 @@ Maia Mechanics Imaging 2.8.9.0 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_545282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545282.jpg" />
 </div>
 
 
@@ -560,7 +589,7 @@ Mirillis Action! v 3.9.6 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541618.jpg" />
 </div>
 
 
@@ -587,7 +616,7 @@ Mkey 1.3.5 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_530191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530191.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ Dxtory 2.0.127 [Multi]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519140.jpg" />
 </div>
 
 
@@ -640,7 +669,7 @@ Driver Signature Enforcement Overrider 1.3b [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505051.jpg" />
 </div>
 
 
@@ -651,32 +680,6 @@ Driver Signature Enforcement Overrider - программа для подпис�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC054E4FA2F2B17EAD9C6E94EC4610816CD71670
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540860   (501887) от 30.08.2012
-
-Desktop Gadgets 1.1 [Мульти, Русский]
-
->>След.
->>Разное (прочее ПО)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501887.jpg" />
-</div>
-
-
-###  Подробнее
-
-Desktop Gadgets – в Windows 8 корпорация Microsoft полностью отказалась от использования гаджетов рабочего стола удалив модуль из системы.  Но для многих пользователей они были важным дополнение к системе. Данный патч вернет поддержку гаджетов во все редакции системы Windows 8.Название программы: Desktop GadgetsЯзык интерфейса: Мульти, Русский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

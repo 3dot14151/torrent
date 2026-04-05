@@ -1,4 +1,136 @@
 https://t.me/izofen
+###  Публикация: 1863300   (1063836) от 
+
+Resource Tuner Business | Personal 2.31 RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063836.jpg" />
+</div>
+
+
+###  Подробнее
+
+Resource Tuner - это программа для просмотра, редактирования, замены и извлечения ресурсов исполняемых файлов, т.е. всех тех элементов, которые образуют визуальный графический интерфейс приложений, работающих под Windows: иконки, строчки, изображения, звуки, диалоги, меню и многое другое.
+Программа позволяет вносить изменения во внешний вид приложений, не вмешиваясь (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17236BAE8878080EBF7B190E41401E37449C4593
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862528   (1063403) от 
+
+MEmu 9.5.1.0 [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063403.jpg" />
+</div>
+
+
+###  Подробнее
+
+MEmu — эмулятор устройств под управлением операционных систем Android. Разработчики компании Microvirt предлагают пользователям всего мира совершенно бесплатно использовать для эмуляции данный продукт.
+MEmu позволит играть в любимые игры на персональном компьютере управляя мышкой, а также пользоваться огромным большинством приложений для Android на компьютере с операционной (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8770051F45676E55305646F26E397F592A1BEE6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862532   (1063398) от 
+
+WinToHDD 7.0 Free / Pro / Enterprise / Technician RePack (& Portable) by Dodakaedr [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063398.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinToHDD - это удобное и полезное программное обеспечение, которое позволяет вам устанавливать или переустанавливать Windows 11/10/8/7/Vista без использования CD/DVD/ USB-накопителя. С помощью этого универсального средства развертывания Microsoft Windows вы можете легко переустановить Windows, установить Windows на диски, отличные от того, на котором установлена (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E865865B2A3BDBFC5D899B6765F03FAFBAE04B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862279   (1063247) от 
+
+WinToUSB Free / Pro / Enterprise / Technician 10.5 RePack (& Portable) by Dodakaedr [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063247.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinToUSB — лучший Windows To Go (WTG) Creator, который позволяет вам устанавливать и запускать полнофункциональную Windows на внешнем жестком диске, USB-накопителе или диске Thunderbolt. Это так просто и эффективно: всего за 3 шага и несколько минут вы можете создать свой первый портативный Windows 11/10/8/7 или Windows Server прямо из файла ISO, WIM, ESD, SWM, VHD, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8008C582C178EB7BBB385752ECE50090CA1603D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862463   (1063113) от 
+
+FontViewOK 9.23 + Portable [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разное (прочее ПО)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед Вами крошечная программа, которая после запуска отобразит пользователю все установленные в его операционной системе шрифты и, конечно, Вы сможете с ними работать. Особенность программы - она позволяет вводить любой текст в специальное отведенное поле и сразу просматривать результат, то есть сразу будет видно, как набранное слово будет смотреться в том или ином (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7271D80AAAE1BEC9DADD978B7BE5970B105F6D2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1862194   (1062973) от 
 
 JetBrains CLion 2026.1 Repack by IDE`a [En]
@@ -7,7 +139,7 @@ JetBrains CLion 2026.1 Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062973.jpg" />
 </div>
 
 
@@ -33,7 +165,7 @@ JetBrains PhpStorm 2026.1 Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062961.jpg" />
 </div>
 
 
@@ -60,7 +192,7 @@ JetBrains RubyMine 2026.1 Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062960.jpg" />
 </div>
 
 
@@ -87,7 +219,7 @@ JetBrains GoLand 2026.1 Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062958.jpg" />
 </div>
 
 
@@ -115,7 +247,7 @@ Jetbrains WebStorm 2026.1 Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062957.jpg" />
 </div>
 
 
@@ -141,7 +273,7 @@ Jetbrains IntelliJ IDEA Ultimate 2026.1 Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062956.jpg" />
 </div>
 
 
@@ -167,7 +299,7 @@ JetBrains DataGrip 2026.1 Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062954.jpg" />
 </div>
 
 
@@ -194,7 +326,7 @@ Active@ Boot Disk v26.0.1 WinPE x64 [En]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062926.jpg" />
 </div>
 
 
@@ -220,7 +352,7 @@ OrcaSlicer 2.3.2 + Portable [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062627.jpg" />
 </div>
 
 
@@ -247,7 +379,7 @@ SQLite Expert Professional 5.5.42.653 RePack (& Portable) by elchupacabra [Ru/En
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062577.jpg" />
 </div>
 
 
@@ -274,7 +406,7 @@ NVIDIA GeForce Desktop Game Ready 595.97 WHQL + DCH [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062575.jpg" />
 </div>
 
 
@@ -300,7 +432,7 @@ Lively Wallpaper 2.2.1.0 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062550.jpg" />
 </div>
 
 
@@ -327,7 +459,7 @@ Autodesk AutoCAD 2027 [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062493.jpg" />
 </div>
 
 
@@ -353,7 +485,7 @@ AI Text To Image Generator Pro 1.2.2 RePack [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062485.jpg" />
 </div>
 
 
@@ -379,7 +511,7 @@ EasyUEFI 6.2 Technician RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062448.jpg" />
 </div>
 
 
@@ -405,7 +537,7 @@ WinToHDD 7.0 Technician RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1062429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062429.jpg" />
 </div>
 
 
@@ -431,7 +563,7 @@ Hex Editor Neo Ultimate 8.02.00.9315 + Portable [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062336.jpg" />
 </div>
 
 
@@ -458,7 +590,7 @@ LDPlayer 9.5.3.0 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062245.jpg" />
 </div>
 
 
@@ -484,7 +616,7 @@ WinToHDD 7.0 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062161.jpg" />
 </div>
 
 
@@ -510,7 +642,7 @@ NHV Boot 2026 v2100 Extreme [En]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062078.jpg" />
 </div>
 
 
@@ -536,7 +668,7 @@ KiCad 10.0.0 Portable by 7997 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062049.jpg" />
 </div>
 
 
@@ -547,138 +679,6 @@ KiCad – уникальный в своем роде программный п�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DF9C43FD5C2402460751EC935054AE0505C09FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860742   (1062003) от 
-
-EarthView 7.15.1 RePack (& Portable) by elchupacabra [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разное (прочее ПО)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062003.jpg" />
-</div>
-
-
-###  Подробнее
-
-EarthView — это динамические обои для рабочего стола и хранитель экрана, которые отображают прекрасные виды земли с дневным светом и ночными тенями. Он создает красочные, высококачественные изображения с высоким разрешением для любого разрешения экрана — даже выше 3840x2160! Программа поддерживает виды карты и земного шара, городские районы, городские огни, атмосферные (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08DB28321FF927BEABF675F6D9A8758BEEBB8F22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860455   (1061809) от 
-
-KiCad 10.0.0 [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061809.jpg" />
-</div>
-
-
-###  Подробнее
-
-KiCad – уникальный в своем роде программный продукт, позволяющий открывать, создавать, разрабатывать электронные схемы для последующего вывода дизайна печатной платы в интерактивном просмотре. По сути, это целый комплекс программ, относящийся к отдельному классу EDA – Автоматизация проектирования электроники. Встроенные компоненты позволят не только создать, но также (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FE4E81CA69CD6BE818D7629B4B3D9E1501961B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860234   (1061731) от 
-
-Open Server Panel 6.5.1 [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061731.jpg" />
-</div>
-
-
-###  Подробнее
-
-Open Server Panel — это портативная программная среда, созданная специально для веб-разработчиков с учётом их рекомендаций и пожеланий.
-
-Наш программный пакет включает в себя тщательно подобранный набор серверного программного обеспечения, а также удобную в использовании утилиту с широкими возможностями для администрирования и настройки всех доступных компонентов. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C62A3D304F3FE96EC728A15EDB54DCC62833B60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860003   (1061584) от 
-
-Perfinity .NET Runtime Analyzer 9.0.21 + Portable [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061584.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощный профилировщик на уровне строк кода предоставляет функциональность для точного определения узких мест производительности в приложении. В отличие от классического профилировщика .NET, наше программное обеспечение позволяет пользователю анализировать процессы с помощью нативного кода. Таким образом, можно выявить проблемы с производительностью, вызванные нативным (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F28FCE9027D9CCFD5ABF47638F4A0115C85AADDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860005   (1061583) от 
-
-Microsoft Visual Studio 2026 Enterprise 18.4.1 (Offline Cache) [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1061583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Visual Studio 2026 - это один из самых амбициозных шагов вперед, которые мы предприняли в отношении IDE. В этом выпуске искусственный интеллект напрямую интегрирован в рабочий процесс разработчика, улучшена производительность, которая меняет ожидания относительно скорости в масштабах предприятия, а современный дизайн делает рабочую среду более легкой и целенаправленной. (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:048502A70FC6CA5640F93EBFA0C3C7EA5DEC4D50
 ```
 
 https://mybot314.ru/tekegram_catalog/

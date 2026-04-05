@@ -1,3 +1,119 @@
+###  Публикация: 1420026   (335487) от 30.10.2020
+
+CamelPhat - Dark Matter (2020) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Tech House, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blackbirds (feat. Leo Stannard) (3:25)
+ 02. Be Someone (3:25)
+ 03. For a Feeling (feat. RHODES) (Dark Matter Edit) (5:31)
+ 04. Inbetween the Lines (3:25)(   Читать дальше...   )Жанр: EDM, Progressive House, Tech House, DowntempoПродолжительность: 01:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F3347871E16EB0A8BCEBCF722DB7AA48FA64896
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331045   (335114) от 13.10.2019
+
+SCSI-9 - Squares And Circles LP (2019) [MP3|320 Kbps] <Deep House , Tech House , Minimal>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Rush (08:02)
+02. You & Me (07:42)
+03. Get Some Lfo (07:41)
+04. Stairs & Stars (07:35)(   Читать дальше...   )Жанр: Deep House , Tech House , MinimalПродолжительность: 01:01:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC61E89FD0D87E7E369D31F7C91E71BC9FFD487B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331086   (335113) от 13.10.2019
+
+VA - Redux Derry Selection (Mixed by Paddy Kelly) (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fischer & Miethig feat. ArDao - Far Above The Clouds (Extended Mix)
+02. Fischer & Miethig - Oxygenious (Extended Mix)
+03. Christopher Corrigan - Take Me Home (Extended Mix)
+04. Michel Westerhoff - Empire Of Love (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:16:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C583821B5DE508E18162E91C59F52671380799AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331143   (334998) от 13.10.2019
+
+VA - Retrowave 02 (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luke Million feat. Jesse Davidson - Fear The Night (3:33)
+02. Digikid84 - Rebel (4:42)
+03. Gamer - Old Money (2:26)
+04. Kfdda - Amongst The Animals (3:12)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 01:58:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8582483B698BD90BA3A36C35758E5418602AA879
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1331147   (334982) от 13.10.2019
 
 KOMPROMAT - Traum Und Existenz (2019) [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave, EBM>
@@ -6,7 +122,7 @@ KOMPROMAT - Traum Und Existenz (2019) [FLAC|Lossless|tracks + .cue] <Synthpop, N
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334982.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Makoto - Tomodachi Sessions (2019) [FLAC|Lossless|WEB|tracks] <Drum & Bass, Liqu
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334850.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334850.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Rigel - Creativity Portals (2019) [MP3|320 Kbps] <Psy-Trance>
 >>Psychedelic, psytrance, fullon
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334847.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - NDATL 10 Year Special Edition 2018 (2018) NDATL Muzik [FLAC|Lossless|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334689.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Paul Oakenfold – Four Seasons (2012)(4CD) [MP3|320 Kbps] <Trance, Progres
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334583.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - House Nation Ibiza (Mixed by Milk & Sugar) (2019) [MP3|320 Kbps] <House, De
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334551.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Dash Berlin - The New Daylight (2009) [FLAC|Lossless|image + .cue] <Trance,
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334448.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Paul Oakenfold – Mount Everest - The Base Camp Mix (2018)(2CD) [FLAC|Loss
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334340.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Suanda Music 2020 [Mixed by Roman Messer] (2020) [MP3|320 Kbps] <Trance, Up
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333980.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - We Are Trance Vol.4 - Autumn (2017) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333958.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - Cafe Bossa Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333890.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Withhold - Label Pack 12 Releases (2020) Unknown Artist Series [FLAC|Lossless|Vi
 >>Label-Packs
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333765.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Rumpistol - Discography 17 Releases (2003-2020) Rump Recordings [FLAC|Lossless|t
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333408.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ VA - Silk Music Pres. Terry Da Libra 02 (2018) [MP3|320 Kbps] <Trance,Progressiv
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333152.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Cosmic Baby - Heaven (1998) [APE|Lossless|image + .cue] <Trance, Downtempo, Ambi
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333040.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ VA - Richard Durand – The Air We Breathe (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333028.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ VA - Sublime Trance Vol. 05 (2019) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332972.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ VA - One Point Two: More Digital Listening Music From Rednetic (2007) Rednetic R
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332619.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Proswell - Remixes By Friends (2020) Touched Music [FLAC|Lossless|WEB-DL|tracks]
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332615.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Liquid Bloom - Tylepathy Remixes - One With Nature (2020) Desert Trax [FLAC|Loss
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332544.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Steve Roach - Back to Life (2012) 2CD [MP3|232-320 кб/с]<Electronic, Ambient>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332529.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ VA - Fantastic Cover Lounge Pearls Vol 1 (2015) [MP3|320 кб/с]<Lounge, Chill 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332523.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ VA - Fantastic Cover Lounge Pearls Vol 1 (2015) [MP3|320 кб/с]<Lounge, Chill 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A93D286F1CE5C8CEB738D6F83158D0F9F3E3612B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955909   (332457) от 12.11.2015
-
-VA - Goa Music (2015) [MP3|320 кб/с]<Psy, Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonic Species - Bend the Future [08:34]
-02. Earthling - Lost in Trance-Nation [07:01]
-03. Refract - Other Planet [08:21]
-04. Pixel - Technology & Spirit & Mind [08:03](   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 08:31:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1F0323B51957C5E2C269E252184BF7378AFA3E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331477   (332342) от 15.10.2019
-
-VA - SYNTH JUNIPERO - A Retrowave Compilation (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrosynth, Cyberwave, Outrun>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AM 1984 - Miami Days (4:25)
-02. Ace Buchannon - Buns of Steel (3:41)
-03. CJ Burnett - Excess (4:13)
-04. Mark Dee - Space Ryder (5:00)(   Читать дальше...   )Жанр: Synthwave, Retrosynth, Cyberwave, OutrunПродолжительность: 01:10:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B1A256C21A0DB611026E57F8C79D865B5E9DC48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331506   (332339) от 15.10.2019
-
-VA - Amsterdam 2019 - Presents By Parquet Recordings (Mixed by Solee) (2019) [FLAC|Lossless|WEB|tracks|image] <Progressive House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rinzen & Evan Casey - Fractal (6:31)
-02. Oliver Winters - Obscurity (6:47)
-03. Alyne - No One Saves You (8:40)
-04. Room Service (DE) - White Line (7:41)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 04:14:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F73A9E5FF3AE1734015A634381CBF97C9F67B59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240328   (332210) от 01.11.2020
-
-Doug Kaufman (D.P. Kaufman, Charm Days, magus_opus) - Discography 12 Releases (2013-2020) SunSeaSky [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Ambient, Modern Classical, IDM, Chillwave>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. v i l l a v i s t a ヴィラビスタ (01:22)
- 02. Hainan Industrial Complex (02:07)
- 03. 03. ｗｈｅｒｅｖｅｒ ｙｏｕ ｗ ◊ ｎｔ (02:29)
- 04. simulation_LsH04s8 (01:06)(   Читать дальше...   )Жанр: Downtempo, Ambient, Modern Classical, IDM, Chillwave •Продолжительность: 05:09:03 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33A1504BD5884F67FCBFD1F5BDA66A94E0B18680
 ```
 
 https://mybot314.ru/tekegram_catalog/

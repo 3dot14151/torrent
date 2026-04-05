@@ -1,3 +1,213 @@
+###  Публикация: 1804355   (13044) от 29.06.2025
+
+КВН-2025. Высшая лига. Четвертая 1/4 финала (2025) WEBRip [H.264/720p]
+
+>>Юмор (ТВ)
+>>КВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четвертая 1/4 финала, сезона 2025 года Высшей лиги КВН.
+Играют команды: «Близкие» (Сборная Белгородской области), «Мастер Муси РЭУ им. Г.В. Плеханова» (Москва), «Донецкий Кряж» (Донецк, ДНР), Сборная РУДН (Москва)
+Конкурсы: «Приветствие», «Разминка», «СТЭМ», «Музыкальный номер».Телекомпания: "Первый канал"Жанр: ЮморСубтитры: ОтсутствуютЯзык: РусскийПродолжительность: 01:48:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84261CDB94E5214795E6A16F1129483EA30DA229
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805473   (12366) от 06.07.2025
+
+Каламбур (Деревня Дураков, Вы Написали – Мы Сыграли, Наш Апперитивчик, Под Звуком «Пи», Бар «Каламбур», Железный Капут, Крутое Пике) (1996-2001) TVRip
+
+>>Юмор (ТВ)
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12366.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал видеокомиксов «Каламбур» - развлекательный юмористический телевизионный журнал. Изначально он производился телекомпанией Приват-ТВ и продюсерским центром «Чиз», а в 1997 году - комедийным телевидением (в титрах вместо слова «телевидение» было «телеелевидение»). К 2006 году журнал насчитывал более 150 серий. Пик популярности пришёлся на конец 1990-х - начало (   Читать дальше...   )Производство: УкраинаЖанр: Юмористический тележурналРежиссер: Юрий СтыцковскийУчастники: Юрий Стыцковский, Алексей Агопьян, Татьяна Иванова, Сергей Гладков, Вадим НабоковЯзык озвучки: русскийПродолжительность: ~00:05:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C1E07B3901B7B4F084CA11D742688BBEA047DBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815595   (5105) от 31.08.2025
+
+Звёзды (2025.08.30) WEBRip [H.264/1080p]
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5105.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 российских топ-звёзд будут соревноваться, кто же смешнее. Помогать им будут как полюбившиеся команды из первого сезона («Регионы», «Астана», «Наполеоны», «Красноярск», «Борцы»), так и новые (поверьте, будут сюрпризы). Новое, но уже легендарное шоу «Звёзды» в VK Видео! Десять супер-популярных звёзд сойдутся лицом к лицу, чтобы побороться за звание самой смешной (   Читать дальше...   )Телекомпания: Medium Quality, VK ВидеоЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 02:07:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A490B5FA1F937AF30F4C5FD6F33D7231781A0C5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797553   (4264) от 06.09.2025
+
+Однажды в России (2025) WEBRip [H.264/1080p] (сезон 12, выпуск 1-13 из 28) (обновляемая)
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4264.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сатирическом шоу «Однажды в России» на телеканале ТНТ нет высокого юмора для избранных. Это собрание скетчей об общероссийских социально-бытовых реалиях, близких любому жителю нашей необъятной страны. Актеры шоу умело и талантливо перевоплощаются в халатных врачей, ленивых полицейских, хитрых политиков, девушек самой древней профессии, рабочих, строителей, бизнесменов, (   Читать дальше...   )Телекомпания: ТНТЖанр: юмор, ТВ-шоуУчастники: Азамат Мусагалиев, Екатерина Моргунова, Тимур Тания, Ольга Картункова, Александр Пташенчук, Максим Киселёв, Денис Дорохов, Заур Байцаев, Давид Цаллаев, Яна Кошкина и др.Язык озвучки: русскийПродолжительность: ~00:40:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75CD9ED1A0517C86632EF41DF7773D55F0F55C5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816758   (4219) от 06.09.2025
+
+КВН-2025. Высшая лига. Летний Кубок (2025.09.06) SATRip
+
+>>Юмор (ТВ)
+>>КВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4219.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое КВН - это популярные юмористические игры, в которых команды различных коллективов (учебных заведений, вузов, предприятий и т. д.) соревнуются в импровизациях на заданные темы, разыгрывании заранее заготовленных сцен, остроумных ответах на вопросы и т. дТелекомпания: "Первый канал"Жанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:50:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6021FDDF3193BEF34AE33182F1C54817096F7A73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816807   (4112) от 06.09.2025
+
+Кстати (2025) WEBRip [H.264/1080p] (сезон 1, выпуск 79)
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семьдесят девятый выпуск шоу «Кстати» с Азаматом Харламовым. Дорох сегодня в образе человека, который всего добился, такой Денис нам нужен. Гостями семьдесят девятого выпуска стали: щедрая и модная Ксения Собчак; непобеждённая Яна Егорян; молодые и экономные Гурам и Эка Амарян; вернувшийся из дома Тима Белорусских.Производство: Россия | VK ВидеоЖанр: Ток-шоу, комедия, музыкаРежиссер: Станислав ИльченкоУчастники: Ксения Собчак, Тима Белорусских, Гурам и Эка Амарян, Яна ЕгорянЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:30:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A45A673E21DF25D9B02BE0E6ED42D3D614757117
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815797   (3997) от 07.09.2025
+
+Звёзды (2025.08.31) WEBRip [H.264/1080p]
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3997.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 российских топ-звёзд будут соревноваться, кто же смешнее. Помогать им будут как полюбившиеся команды из первого сезона («Регионы», «Астана», «Наполеоны», «Красноярск», «Борцы»), так и новые (поверьте, будут сюрпризы). Новое, но уже легендарное шоу «Звёзды» в VK Видео! Десять супер-популярных звёзд сойдутся лицом к лицу, чтобы побороться за звание самой смешной (   Читать дальше...   )Телекомпания: Medium Quality, VK ВидеоЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 02:03:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1E997479D2463665B7E1C189C0513A535B3CCFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816833   (3965) от 07.09.2025
+
+География Уральских Пельменей - Аргентина (2025.09.05) WEBRip [H.264/1080p]
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что можно представить, если услышать об уральских пельменях. Вкусный и любимый многими продукт, который стал уже традиционным на столе россиян, да и не только. Весёлые парни в мандариновых рубашках не дадут соскучиться и подарят отличное настроение всей семье.Телекомпания: СТСЖанр: ЮморУчастники: Дмитрий Брекоткин, Сергей Ершов, Сергей Исаев, Сергей Калугин, Вячеслав Мясников, Александр Попов, Андрей Рожков, Дмитрий Соколов, Максим Ярица, Илана Юрьева, Ксения Корнева и др.Субтитры: ОтсутствуютПродолжительность: 01:12:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9D3D94F2AB36F5050990AB30E3E3A367A6C47B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1816840   (3953) от 07.09.2025
 
 КВН-2025. Высшая лига. Летний Кубок (2025) WEBRip [H.264/1080p]
@@ -6,7 +216,7 @@
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3953.jpg" />
 </div>
 
 
@@ -32,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3864.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3864.jpg" />
 </div>
 
 
@@ -58,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3258.jpg" />
 </div>
 
 
@@ -84,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3246.jpg" />
 </div>
 
 
@@ -110,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3063.jpg" />
 </div>
 
 
@@ -136,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2951.jpg" />
 </div>
 
 
@@ -162,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2805.jpg" />
 </div>
 
 
@@ -189,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2764.jpg" />
 </div>
 
 
@@ -216,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2106.jpg" />
 </div>
 
 
@@ -242,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2105.jpg" />
 </div>
 
 
@@ -268,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2058.jpg" />
 </div>
 
 
@@ -294,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1914.jpg" />
 </div>
 
 
@@ -320,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_900.jpg" />
 </div>
 
 
@@ -346,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_830.jpg" />
 </div>
 
 
@@ -372,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_770.jpg" />
 </div>
 
 
@@ -398,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_656.jpg" />
 </div>
 
 
@@ -424,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_621.jpg" />
 </div>
 
 
@@ -450,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_551.jpg" />
 </div>
 
 
@@ -461,86 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D88C2E1EF1772180F89C76ADA0345A0F18B5E9D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820404   (538) от 27.09.2025
-
-Кстати (2025) WEBRip [H.264/1080p] (сезон 1, выпуск 82)
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_538.jpg" />
-</div>
-
-
-###  Подробнее
-
-Восемьдесят второй выпуск шоу «Кстати» с Азаматом Харламовым. Дорох сегодня придумал новую породу собак, такой новатор нам нужен. Гостями восемьдесят второго выпуска стали: доказавшие, кто тут настоящие актёры Павел и Зепюр Прилучные и показавшие, какая нас всех ждёт жизнь в тесноте с роботами Денис, Елена и Василиса Кукояки. Музыкальные гости: ELMAN и Trida.Производство: Россия | VK ВидеоЖанр: Ток-шоу, комедия, музыкаРежиссер: Станислав ИльченкоУчастники: Денис, Елена и Василиса Кукояки, Павел и Зепюр ПрилучныеЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABE5596AF47FF05F4B61466DB73E1DC3E94536ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820532   (303) от 28.09.2025
-
-КВН-2025. Высшая лига. Встреча выпускников (2025) WEBRip [H.264/1080p]
-
->>Юмор (ТВ)
->>КВН
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_303.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Екатеринбурге прошла очередная «Встреча выпускников» Клуба веселых и находчивых.
-В игре приняли участие команды: Сборная МАИ (Москва), «Четыре татарина» (Казань) и «Нарты из Абхазии» (Сухум).Телекомпания: "Первый канал"Жанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:52:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B27B500024E630E433CC4A45DB4AA199EF56D9F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820533   (263) от 28.09.2025
-
-КВН-2025. Высшая лига. Встреча выпускников (2025) WEBRip [H.264/720p]
-
->>Юмор (ТВ)
->>КВН
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_263.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Екатеринбурге прошла очередная «Встреча выпускников» Клуба веселых и находчивых.
-В игре приняли участие команды: Сборная МАИ (Москва), «Четыре татарина» (Казань) и «Нарты из Абхазии» (Сухум).Телекомпания: "Первый канал"Жанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:52:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F011E1A7178A1B1D6C424B6931BD8E6AF19EAA63
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,30 +1,3 @@
-###  Публикация: 1784238   (25130) от 10.03.2025
-
-Джесси Инчаспе | Богиня глюкозы. Нормализуйте уровень сахара в крови, чтобы изменить свою жизнь (2023) [FB2, EPUB]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Глюкоза оказывает огромное влияние на состояние нашего тела. Девяносто процентов людей страдают от ее переизбытка и даже не догадываются об этом. Для повышения уровня глюкозы характерны такие симптомы, как острое чувство голода, нехватка энергии, бесплодие, гормональные проблемы, плохое состояние кожи и даже преждевременное старение.
-Автор этой книги, французский (   Читать дальше...   )Жанр: Здоровье. Популярная анатомия и физиологияПеревод: Олег БелошеевИздательство: ПопурриФормат: FB2, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E0A215960FC5E1622D85D50F303372A07C46DB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1784988   (24697) от 14.03.2025
 
 Алия Сарманова | А мне помогло. Как ориентироваться в море информации о здоровье и осознанно принимать решения (2024) [PDF, EPUB, MOBI]
@@ -33,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24697.jpg" />
 </div>
 
 
@@ -61,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24694.jpg" />
 </div>
 
 
@@ -90,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24681.jpg" />
 </div>
 
 
@@ -117,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24092.jpg" />
 </div>
 
 
@@ -143,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22842.jpg" />
 </div>
 
 
@@ -169,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22709.jpg" />
 </div>
 
 
@@ -195,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22083.jpg" />
 </div>
 
 
@@ -221,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21084.jpg" />
 </div>
 
 
@@ -248,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21053.jpg" />
 </div>
 
 
@@ -276,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20837.jpg" />
 </div>
 
 
@@ -302,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20762.jpg" />
 </div>
 
 
@@ -328,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20760.jpg" />
 </div>
 
 
@@ -354,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20657.jpg" />
 </div>
 
 
@@ -380,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20565.jpg" />
 </div>
 
 
@@ -409,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20553.jpg" />
 </div>
 
 
@@ -438,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20541.jpg" />
 </div>
 
 
@@ -464,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20537.jpg" />
 </div>
 
 
@@ -491,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20462.jpg" />
 </div>
 
 
@@ -517,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20461.jpg" />
 </div>
 
 
@@ -543,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20455.jpg" />
 </div>
 
 
@@ -569,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20449.jpg" />
 </div>
 
 
@@ -595,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20346.jpg" />
 </div>
 
 
@@ -621,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20309.jpg" />
 </div>
 
 
@@ -647,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20238.jpg" />
 </div>
 
 
@@ -674,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20217.jpg" />
 </div>
 
 
@@ -687,6 +660,34 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E036C9C8BADB5D71BD553CA5B904A5959C65A1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483002   (20124) от 27.04.2025
+
+Джеймс Коллинз | Энергетическая ценность. План питания для здоровья и продуктивности (2021) [PDF, FB2, EPUB, MOBI]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стремление постоянно хорошо выглядеть обычно заставляет нас идти на компромисс: терпеть голод, чувство усталости и подавленное настроение. Советы о диетах заполняют страницы журналов, социальные сети и сайты, но бессмысленно хорошо выглядеть, если нет сил, чтобы полноценно жить.
+
+Джеймс Коллинз, спортивный нутрициолог, работающий с ведущими атлетами планеты, предлагает (   Читать дальше...   )Жанр: Здоровое и правильное питание, Спорт / фитнесПеревод: Евгений ПоникаровИздательство: Манн, Иванов и ФерберФормат: PDF, FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B035D42FE7383E64497473D89B8B80F8F5F0BEA1
 ```
 
 https://mybot314.ru/tekegram_catalog/

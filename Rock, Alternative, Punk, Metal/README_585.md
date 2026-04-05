@@ -1,3 +1,32 @@
+###  Публикация: 937114   (492365) от 13.09.2015
+
+Gamma Ray - Heading For Tomorrow (1990) 25 Anniversary Edition 2CD /2015, earMUSIC/ [MP3|320 кб/с]<Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Welcome (Instrumental)
+02.	Lust For Life
+03.	Heaven Can Wait
+04.	Space Eater(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 02:16:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:283689467AD62BBEA74205442A5CD3B15041F29F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565600   (492324) от 24.07.2022
 
 AC/DC - High Voltage (1976) Reissue, Remastered, 2003, Epic [FLAC|Lossless|tracks + .cue + scans] <Hard Rock>
@@ -6,7 +35,7 @@ AC/DC - High Voltage (1976) Reissue, Remastered, 2003, Epic [FLAC|Lossless|track
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492324.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ AC/DC - Highway To Hell (1979) Remastered, Reissue, 2003, Epic [FLAC|Lossless|tr
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492316.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Pantera - History Of Hostility (2015) LP [MP3|320 Kbps] <Thrash Metal, Groove Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492248.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ The Birthday Massacre - Imagica (2016) Remastered [FLAC|Lossless|tracks + .cue] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492237.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492182.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ The Amity Affliction - Misery (2018) [FLAC|Lossless|tracks + .cue] <Post-Hardcor
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492114.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Stan Meissner - Undertow (1992) Japanese Edition, 1-st press [FLAC|Lossless|imag
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492091.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Sadus - Out for Blood (2006) Enhanced CD Edition [FLAC|Lossless|image + .cue] <T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492090.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492017.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Tantara - Based On Evil (Limited Edition) (2012) [MP3|320 кб/с]<Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491978.jpg" />
 </div>
 
 
@@ -301,7 +330,7 @@ VA - 18 Classic Rock Ballads (1995) [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491881.jpg" />
 </div>
 
 
@@ -330,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491676.jpg" />
 </div>
 
 
@@ -359,7 +388,7 @@ Brume d'Automne - Fiers et Victorieux (2005) [APE|Lossless|image + .cue] <Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491592.jpg" />
 </div>
 
 
@@ -388,7 +417,7 @@ Cold Earth - Your Misery, My Triumph (2020) [FLAC|Lossless|image + .cue] <Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491591.jpg" />
 </div>
 
 
@@ -417,7 +446,7 @@ Bring Me The Horizon - That’s the Spirit (2015) [FLAC|tracks+.cue]<Metalcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491531.jpg" />
 </div>
 
 
@@ -446,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491488.jpg" />
 </div>
 
 
@@ -475,7 +504,7 @@ Abstrakt Algebra - Abstrakt Algebra (1995) Japanese Edition [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491487.jpg" />
 </div>
 
 
@@ -504,7 +533,7 @@ Entrails - Rise of the Reaper (2019) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491482.jpg" />
 </div>
 
 
@@ -533,7 +562,7 @@ Crippled Black Phoenix - Great Escape (2018) 2xCD [FLAC|Lossless|image + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491478.jpg" />
 </div>
 
 
@@ -562,7 +591,7 @@ Spun Out - Touch the Sound (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alt
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491477.jpg" />
 </div>
 
 
@@ -591,7 +620,7 @@ Glasswork - Metabole (2020) [FLAC|Lossless|image + .cue] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491475.jpg" />
 </div>
 
 
@@ -620,7 +649,7 @@ Dead Warrior - Abismos (2013) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491474.jpg" />
 </div>
 
 
@@ -649,7 +678,7 @@ Fuck Off - Hell on Earth II (Revisited & Faster) (2015) [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491472.jpg" />
 </div>
 
 
@@ -678,7 +707,7 @@ Riot City - Burn the Night (2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491471.jpg" />
 </div>
 
 
@@ -707,7 +736,7 @@ The All-American Rejects - Rejects Faves (2020) [FLAC|Lossless|WEB-DL|tracks] <I
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491312.jpg" />
 </div>
 
 
@@ -721,35 +750,6 @@ The All-American Rejects - Rejects Faves (2020) [FLAC|Lossless|WEB-DL|tracks] <I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2270FDD0EE39D9F210073A8357DD8DA3DB456CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404674   (491311) от 26.08.2020
-
-Andy James - C.S.I.L (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Shred Metal, Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Die a Devil [00:04:04]
-02. Boots on the Ground [00:04:02]
-03. Valley of Shadows [00:03:45]
-04. Satellites [00:03:54](   Читать дальше...   )Жанр: Progressive Metal, Shred Metal, InstrumentalПродолжительность: 00:37:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD0086589210CE2443E32429ECFA3616292745B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

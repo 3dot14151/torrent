@@ -6,7 +6,7 @@ W.E.T - Apex (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68532.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Don Airey - Pushed to the Edge (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68525.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Jerry T. and the Black Alligators - Bourbon Cask Finish (10 Years Edition) (2025
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68521.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ LaKnarra - Laknarra (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68520.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Anouar Brahem - After the Last Sky (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <C
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68519.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Unknown Mortal Orchestra - IC-02 Bogotá (2025) [FLAC 24/48|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68518.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Octave Lissner - Learning to Live (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68516.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Ginevra - Beyond Tomorrow (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68514.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Janiva Magness - Back For Me (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68513.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Mumford & Sons - Rushmere (2025) [FLAC 16,24/44,1,96|Lossless|WEB-DL|tracks] <Fo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68511.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Nothing More - CARNAL (Deluxe) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Har
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68509.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Nomy - Saviour (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68508.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Humpe Humpe - Humpe Humpe (1985) 40th Anniversary Edition, Remaster, 2025, Warne
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68482.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Red Rocks Worship - The King Is Coming (Live) (2025) [FLAC 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68367.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Polo & Pan - 22:22 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie Pop, Down
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68359.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Perfume Genius - Glory (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Pop, Ar
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68358.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Lola Indigo - Nave Dragon (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Latin Pop,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68356.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Jessie Frye - Otherworld (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electroni
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68353.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Skrillex - F*CK U SKRILLEX YOU THINK UR ANDY WARHOL BUT UR NOT!! <3 (2025) [FLAC
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68351.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Memphis May Fire - Shapeshifter (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Post
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68347.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Allegaeon - The Ossuary Lens (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Technic
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68341.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Aretha Franklin - The Electrifying (1962) Remastered, 2025, ZOROTY [FLAC 24/44.1
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68338.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Butcher Brown - Letters From The Atlantic (2025) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68336.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Smith/Kotzen - Black Light / White Noise (2025) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68331.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Tenebrae - Loss (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Heavy 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68329.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Iron City Houserockers - Blood On The Bricks (1981) Remastered, 2025, Omnivore R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68326.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68326.jpg" />
 </div>
 
 

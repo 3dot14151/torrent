@@ -6,7 +6,7 @@ Principle 6.32 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188256.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Magic Disk Cleaner 2.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188250.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Aiseesoft Mac FoneLab for iOS 10.3.82 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188240.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ SoundSource 5.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188233.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ The Unarchiver - Unzip RAR ZIP 3.3.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188192.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Davinci Resolve Studio 18.6 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188155.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Native Instruments Traktor Pro Plus 3 for Mac v.3.10.0.71 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188040.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Logic Pro X 10.7.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187757.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Bartender 4 4.2.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187708.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Adobe Illustrator for Mac 2023 v.27 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187322.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ DaisyDisk 4.12.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185863.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Cascadea 2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185596.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ ImageRanger Pro Edition 1.7.7.1667 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185583.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Art Files 3 v3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185570.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ PhotoSweeper X 3.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185563.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ EazyDraw 10.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185557.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ iClock Pro 5.7.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185547.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Linguist 2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185542.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Permute 3 v3.5.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185523.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Do Your Data Recovery Professional 7.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185499.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ DCommander 3 Premium v3.8.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185496.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185492.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ NetWorker Pro 8.5.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185486.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Movist Pro 2.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185484.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185484.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Downie 4 v4.1.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185482.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Things 3 v3.13.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185462.jpg" />
 </div>
 
 

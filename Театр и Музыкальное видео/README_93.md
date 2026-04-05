@@ -6,7 +6,7 @@ VA - Viva Music (1996) VHSRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373927.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Madonna: Rebel Heart Tour (2016) BDRip [H.264/720p] [EN]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373919.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373668.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373060.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_372255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372255.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_371998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371998.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_371123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_371123.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Papa Roach -  Live in Moscow (2015) WEBRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_370097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370097.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Queen - Live at Wembley Stadium (1986, 12th July) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369969.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ The Australian Pink Floyd Show - Live at the Hammersmith Apollo (2011) [1080i] B
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_369932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_369932.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369690.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ AC/DC - Live in Berlin (2015) WEBRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369399.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Караоке
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369383.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369192.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Pink Floyd - Delicate Sound Of Thunder (1989) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369117.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Assorti Creative 50 (2016) WEBRip [H.264]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368450.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367924.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ DVJ Bazuka - Make Some Sex (Uncensored) (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367907.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Lady Gaga - Bloody Mary  (2011) HDTVRip [1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367808.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ VA / ВидеоКлипы: Новинки (01.11.2011) HDTVRip 1080p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367786.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Lacuna Coil - The 119 Show - Live In London (2018) Blu-ray  [H.264/1080p] [Custo
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366936.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Tacabro - Asi Asi (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_366309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366309.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ JM - Pussy (Uncensored) (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365576.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365328.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Coldplay - Live 2012 (2012) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_365146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_365146.jpg" />
 </div>
 
 
@@ -715,7 +715,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365093.jpg" />
 </div>
 
 

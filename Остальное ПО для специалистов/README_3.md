@@ -1,3 +1,81 @@
+###  Публикация: 1174962   (382377) от 16.10.2017
+
+Novicorp WinToFlash Professional 1.12.0000  RePack (& Portable) by elchupacabra  [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382377.jpg" />
+</div>
+
+
+###  Подробнее
+
+Novicorp WinToFlash – знаменитое приложение для создания мультизагрузочных USB флэшек и жестких дисков через удобное меню с неограниченным количеством установок Windows, оффлайн антивирусов, LiveDVD, реаниматоров и других мини-ос или тестов. Программа может самостоятельно скачать из интернета образы выбранных вами дисков и создать кэш этих образов на вашем компьютере, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:210963C7BB8DDB02776E03E725CA63DE7CC657D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575204   (379215) от 08.09.2022
+
+LDPlayer 3.126 [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379215.jpg" />
+</div>
+
+
+###  Подробнее
+
+LDPlayer - Android-эмулятор для запуска мобильных игр на ПК. Имеется поддержка запуска нескольких копий, есть возможность управления с клавиатуры, присутствует запись видео, скриншоты и запись скриптов, а также полноценная поддержка Google Play Market и всех приложений внутри него.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0E02B0CF3F5BADB1F65B2295E049322CEF2A088
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948291   (371845) от 25.10.2015
+
+UniWinSetup 1.2 Beta2 [Ru]
+
+>>След.
+>>Остальное ПО для специалистов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371845.jpg" />
+</div>
+
+
+###  Подробнее
+
+UniWinSetup - программа для создания универсальных установщиков Windows XP/7/8/10, Server 2003/2008/2012 c поддержкой UEFI, на USB устройстве. А так же, для записи обычной, полноценной установки любых Windows от 7 и выше, как оригинальных образов, так и "сборок". Поддерживается запись образов размером более 4ГБ на устройство с файловой системой FAT32, так (   Читать дальше...   )Разработчик: zxenЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43163F008A76E93FBB4168DCB739B64DF9602931
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072624   (351449) от 13.11.2016
 
 QuarkXPress 2016 12.2
@@ -6,7 +84,7 @@ QuarkXPress 2016 12.2
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_351449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351449.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Samsung Smart Switch 4.1.17102.8 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_348492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348492.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ CodeLobster IDE 2.1.0 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342941.jpg" />
 </div>
 
 
@@ -86,7 +164,7 @@ VMWare ThinApp Enterprise 5.2.2 Build 4435715 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_342141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342141.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ Macromedia Dreamweaver 8.0 [RUS]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_341894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_341894.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ Adobe Dreamweaver CC 2019 19.0.0.11193 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334101.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ SQL Navigator for Oracle XPert Edition 7.6.0.124 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_332288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332288.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ Adobe Muse CC (2018.0.0.685) Portable by XpucT [Ru/En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316167.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ Hex Workshop Hex Editor Pro v.6.8.0.5419 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314915.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ Novicorp WinToFlash Business 1.13.0000 RePack (& Portable) by elchupacabra [Ru/E
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306766.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ InfToReg - установка SATA/RAID драйверов вручную [EN]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_281290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281290.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ Adobe FrameMaker 2015 13.0.5.547 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_276733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276733.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ Acme CAD Converter 2019 8.9.8.1503 RePack (& Portable) by TryRooM [Ru/En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264585.jpg" />
 </div>
 
 
@@ -347,7 +425,7 @@ Mestrelab MestReNova 16.0.0.39276 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261595.jpg" />
 </div>
 
 
@@ -373,7 +451,7 @@ PilotEdit Lite & Pro 20.4.0 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247844.jpg" />
 </div>
 
 
@@ -400,7 +478,7 @@ Brackets 2.2.1 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_245076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245076.jpg" />
 </div>
 
 
@@ -427,7 +505,7 @@ IDM UltraCompare Pro 22.20.0.26 / UltraEdit 29.1.0.90 Portable by AlexYar [Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241100.jpg" />
 </div>
 
 
@@ -453,7 +531,7 @@ Blumentals Rapid PHP 2022 17.3.0.244 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_239779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239779.jpg" />
 </div>
 
 
@@ -479,7 +557,7 @@ Turbo Studio 22.9.6 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232980.jpg" />
 </div>
 
 
@@ -505,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_227788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227788.jpg" />
 </div>
 
 
@@ -531,7 +609,7 @@ Cutting 3 v1.50 [Ru/En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219379.jpg" />
 </div>
 
 
@@ -557,7 +635,7 @@ GImageX 2.2.0 Portable [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206678.jpg" />
 </div>
 
 
@@ -583,7 +661,7 @@ Ultimaker Cura 5.11 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205656.jpg" />
 </div>
 
 
@@ -594,88 +672,6 @@ Ultimaker Cura - популярный слайсер для 3d-печати. О�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D174E1C479A8C3EFB6D47A134136A3ABE047D9C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615920   (202076) от 28.02.2023
-
-Resistor 2.1.1.6 [Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_202076.jpg" />
-</div>
-
-
-###  Подробнее
-
-Resistor - калькулятор цветовой маркировки резисторов, который поможет расшифровать по цветным кольцам на резисторе его номинал и допустимое отклонение сопротивления от его номинального значения.
-Цветную маркировку на резисторах следует читать слева направо. Как правило, первое кольцо расположено ближе к одному из выводов или шире чем остальные.
-С помощью данной (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF7DA71A88E00EAA8E028BE4813CD092A52ED666
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625485   (200018) от 10.04.2023
-
-OriginPro 2022 v.9.9.0.225 (SR1) [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_200018.jpg" />
-</div>
-
-
-###  Подробнее
-
-OriginPro - пакет программ фирмы OriginLab Corporation для численного анализа данных и научной графики, работающий на компьютере под управлением операционной системы Microsoft Windows.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:636A383379DC1C5E54193AA8200B4C1056E7B4C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634659   (198081) от 21.05.2023
-
-BlueStacks Tweaker 6.9.2 beta Portable [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198081.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение для "BlueStacks App Player".
-
-BlueStacksTweaker поможет: получить root права, убрать рекомендованные приложения, изменить модель устройства, страну, разрешение экрана, плотность DPI, оперативную и постоянную память, получить премиум бесплатно, пользоваться без авторизации в Google и многое другое.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63AF93BFD72FC3877D5978F6B6BBDF385DB02D4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

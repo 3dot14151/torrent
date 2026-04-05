@@ -1,3 +1,56 @@
+###  Публикация: 1565561   (492308) от 24.07.2022
+
+А.П. Епифанов | Электрические машины : учебник для вузов (2021) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник предназначен для студентов аграрных высших учебных заведений, обучающихся по специальности «Электрификация и автоматизация сельского хозяйства». Может быть рекомендован студентам электротехнических специальностей, изучающим электрические машины в рамках подготовки бакалавров по направлению «Электротехника, электромеханика и электротехнологии». В книге рассмотрены (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5E3A4AD67EA1D1F09C3AD4E77A885B6D6CA3327
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565704   (492306) от 24.07.2022
+
+Д.А. Мельников | Информационная безопасность открытых систем (2013) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492306.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник посвящен теоретическим основам обеспечения ИБ: архитектура ИБ, концептуальные основы (концептуальные понятия) обеспечения ИБ, основы аутентификации, управления доступом, конфиденциальности, целостности, аудита безопасности, оповещения об опасности и обеспечения ключами.
+Для студентов государственных образовательных учреждений высшего профессионального образования, (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B223595170FC812E114C8D4846E333F60F173993
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565512   (492198) от 24.07.2022
 
 В.В. Свиридов, А.В. Свиридов | Физическая химия (2022) [PDF]
@@ -6,7 +59,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492198.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492011.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492005.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491698.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491571.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491397.jpg" />
 </div>
 
 
@@ -168,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491243.jpg" />
 </div>
 
 
@@ -197,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491064.jpg" />
 </div>
 
 
@@ -224,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490972.jpg" />
 </div>
 
 
@@ -250,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490200.jpg" />
 </div>
 
 
@@ -279,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490094.jpg" />
 </div>
 
 
@@ -306,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489057.jpg" />
 </div>
 
 
@@ -332,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487446.jpg" />
 </div>
 
 
@@ -358,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486910.jpg" />
 </div>
 
 
@@ -384,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486898.jpg" />
 </div>
 
 
@@ -411,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486668.jpg" />
 </div>
 
 
@@ -438,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486077.jpg" />
 </div>
 
 
@@ -464,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485935.jpg" />
 </div>
 
 
@@ -490,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485924.jpg" />
 </div>
 
 
@@ -517,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485844.jpg" />
 </div>
 
 
@@ -544,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485827.jpg" />
 </div>
 
 
@@ -570,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484570.jpg" />
 </div>
 
 
@@ -597,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484443.jpg" />
 </div>
 
 
@@ -624,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483773.jpg" />
 </div>
 
 
@@ -635,58 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DAC58E5CE87EF4BCDA4B7D39725D25F079A5A0AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055873   (483614) от 24.09.2016
-
-В.Л. Конюх | Основы робототехники (2008) [PDF, DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены технические средства робототехники: история и предпосылки развития роботов, классификация роботов, кинематика манипуляторов, конструкции захватных устройств, приводы звеньев, сбалансированные манипуляторы, транспортные роботы, виды датчиков и управляющих устройств. Описаны способы человеко-машинного, программного, адаптивного и интеллектного управления (   Читать дальше...   )Жанр: РобототехникаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDDFB3E49E6920112CCB4CB7C744B5541A4748A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406070   (478990) от 01.09.2020
-
-Р. Лоудон | Квантовая теория света (1976) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478990.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет собой учебник, в котором детально освещены основы квантовой теории электромагнитного излучения в оптическом диапазоне и его взаимодействия с веществом. В книге содержится практически весь нужный для понимания материал, так что у читателя не возникнет необходимости обращаться к каким-либо дополнительным руководствам.Жанр: Учебное пособие, Физика, МатематикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E809CFC5DEE6898172BC0BBDDC4428B7BF84DB9
 ```
 
 https://mybot314.ru/tekegram_catalog/

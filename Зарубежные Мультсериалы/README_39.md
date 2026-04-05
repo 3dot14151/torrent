@@ -1,3 +1,55 @@
+###  Публикация: 1266376   (267536) от 05.12.2018
+
+Суперкнига / Superbook (2013) DVD9 (Сезон 1, серии 4-6 из 13)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крис Квантум - обыкновенный школьник из городка Велливью, вот только один из его лучших друзей - робот по имени Робик. А еще у него есть подруга Джой Пеппер. Вот и троица, с которой гарантированы происшествия. Приключения для друзей начались, когда появился загадочный устройство, отправляет их путешествовать по страницам Библии. «Суперкнига» - увлекательный мультипликационный (   Читать дальше...   )Производство: США, The Christian Broadcasting Network, Inc.Жанр: Религия, мультсериал, семейный, история, приключения.Режиссер: Брайан Пол РичардсонПеревод: Многоголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: ~00:26:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25727F3147A8FCA893C44573841B3FCF6A2CB82C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266032   (267529) от 05.12.2018
+
+Суперкнига / Superbook (2013) DVD9 (Сезон 1, серии 1-3 из 13)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крис Квантум - обыкновенный школьник из городка Велливью, вот только один из его лучших друзей - робот по имени Робик. А еще у него есть подруга Джой Пеппер. Вот и троица, с которой гарантированы происшествия. Приключения для друзей начались, когда появился загадочный устройство, отправляет их путешествовать по страницам Библии. «Суперкнига» - увлекательный мультипликационный (   Читать дальше...   )Производство: США, The Christian Broadcasting Network, Inc.Жанр: Религия, мультсериал, семейный, история, приключения.Режиссер: Брайан Пол РичардсонПеревод: Многоголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: ~00:26:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33B8D052611EB6EA7F6F4F590115F6F8186A6E4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1264136   (267461) от 05.12.2018
 
 Суперкнига / Superbook (2013-2014) WEBRip [H.264] (Сезон 2, серии 1-13 из 13)
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267461.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266591.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265678.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265584.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265535.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265455.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ Simon's Cat/ Кот Саймона (2008-2011) WebRip
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265452.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264444.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263328.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262037.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261876.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_261357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_261357.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260565.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260353.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259772.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259771.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259720.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258653.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257738.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257543.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257016.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_256653.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256653.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255564.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255515.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD8B521026EA758147007455F5F3F03BC28040A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605527   (255078) от 17.04.2023
-
-Звёздные войны: Бракованная партия / Star Wars: The Bad Batch (2023) WEB-DLRip [H.264/1080p] (сезон 2, серии 1-16 из 16) NewComers, AlexFilm, HDRezka Studio, Lostfilm
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет сосредоточен вокруг экспериментального отряда генно-модифицированных клонов, которые не попали под действие чипов во время поступления «Приказа 66» и стали врагами новому имперскому порядку. Пятеро солдат не могут заставить себя казнить невинных гражданских лиц и обвиняются в государственной измене. Главные герои находят поддержку в лице молодого рекрута, ребенка (   Читать дальше...   )Производство: США, Disney+, Lucasfilm Animation, Lucasfilm Ltd.Жанр: мультфильм, фантастика, фэнтези, боевик, драма, приключенияРежиссер: Стюарт Ли, Сол Руис, Брэд РауАктеры: Ди Брэдли Бэйкер, Эрнесто Баутиста, Мин-На Вэнь, Арчи Панджаби, Бен Дискин, Мэттью Вуд, Мишель Энг, Фредди Принц мл., Боб Берген, Гвендолин Ео, Том Кэйн, Бонни Вайлд, Эндрю Кисино, Стефен СтэнтонПеревод: Многоголосый профессиональный (NewComers, AlexFilm, HDRezka Studio, Lostfilm)Язык озвучки: русский, английскийСубтитры: русские (Forced, Full), английские (SDH), немецкие, французские, итальянские, испанские, голландские, португальскиеПродолжительность: ~00:25:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FD5525DAC8A4B10395B16AF215873F73F449213
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 384253   (254725) от 27.04.2023
-
-Пираты темной воды / The Pirates of Dark Water (1991-1992) DVDRip (Сезон 1-3, Серии 21 из 21) Radamant
-
->>След.
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_254725.jpg" />
-</div>
-
-
-###  Подробнее
-
-В таинственном и полном опасностей водном мире планеты Мер бесстрашный 17-летний принц Рен должен спасти свое королевство от безжалостного повелителя пиратов Блота, отыскав легендарные тринадцать Сокровищ Правления.Производство: США, Fil Cartoons Inc.Жанр: детский, приключения, фэнтезиРежиссер: Дон Ласк, Рэй Паттерсон, Пол СоммерАктеры: Джордж Ньюберн, Гектор Элизондо, Фрэнк Уэлкер, Джоди Бенсон и др.Перевод: Одноголосый любительский (Radamant)Субтитры: ОтсутствуютПродолжительность: ~ 00:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B391B776ABE2D64F62DC85022BDC49CC9F3ACA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

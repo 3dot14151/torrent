@@ -1,3 +1,57 @@
+###  Публикация: 1692582   (122367) от 17.01.2024
+
+А.Иванов | Гришка-шахтёр (1928) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гришка мечтает работать в шахте, как его отец и брат. На настойчивые просьбы взять его в шахту, отец соглашается и отправляет его с братом на смену. На их беду в этот же день случается обвал и группа шахтёров на много дней остаётся замурованной в штольнях...
+Для детей среднего школьного возраста. Иллюстрации А. Баранского.Жанр: РассказИздательство: Государственное ИздательствоФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B063BEACA1E72578BD719FF8D645AED5B419DC58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917580   (122319) от 18.01.2024
+
+Д.В. Голиков, А.Д. Голиков | Программирование на Scratch 2 [в 2 частях] (2014) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Целью книги является пропедевтика программирования, математики, естественных наук среди школьников младших классов. Книга написана на основе опыта обучения программированию на Scratch в кружке юных программистов.
+Материал рассчитан на самостоятельное изучение школьниками 3-5 классов, имеющими базовые навыки управления компьютером. Дети должны уметь пользоваться «мышью», (   Читать дальше...   )Жанр: Обучающие книги, программированиеИздательство: Интернет изданиеФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:213C53217EB3ECBDDC3FE2468AB846763D9E7301
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1449322   (122294) от 18.01.2024
 
 Юрий Винницкий, Александр Григорьев | Scratch и Arduino для юных программистов и конструкторов (2018) [PDF]
@@ -6,7 +60,7 @@
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122294.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122293.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122292.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122290.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122285.jpg" />
 </div>
 
 
@@ -138,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122275.jpg" />
 </div>
 
 
@@ -164,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122262.jpg" />
 </div>
 
 
@@ -190,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122255.jpg" />
 </div>
 
 
@@ -218,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122245.jpg" />
 </div>
 
 
@@ -245,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122167.jpg" />
 </div>
 
 
@@ -271,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122110.jpg" />
 </div>
 
 
@@ -297,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122104.jpg" />
 </div>
 
 
@@ -323,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122102.jpg" />
 </div>
 
 
@@ -350,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122100.jpg" />
 </div>
 
 
@@ -377,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122099.jpg" />
 </div>
 
 
@@ -403,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122094.jpg" />
 </div>
 
 
@@ -430,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122077.jpg" />
 </div>
 
 
@@ -457,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мультимедийные материалы для детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121923.jpg" />
 </div>
 
 
@@ -483,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121520.jpg" />
 </div>
 
 
@@ -509,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121414.jpg" />
 </div>
 
 
@@ -535,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121409.jpg" />
 </div>
 
 
@@ -564,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121391.jpg" />
 </div>
 
 
@@ -592,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121387.jpg" />
 </div>
 
 
@@ -618,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121386.jpg" />
 </div>
 
 
@@ -631,59 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A2E8B287F7D18E004A117BA2F6A26155B1D2496
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693963   (121376) от 23.01.2024
-
-Книжная серия | Программирование для детей [12 книг] (2017-2023) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121376.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программирование – одна из самых востребованных профессий в наше время, и она останется таковой в ближайшем будущем. Научите своих детей программировать уже сейчас с помощью этих книг! Вы найдете здесь много упражнений – полезных, интересных и забавных, поэтому ваш ребенок не заскучает. Материал написан доступно и просто, поэтому ему не составит труда освоить азы (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ЭксмоФормат: PDFКачество: Различное
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:655E40EFA1AE84DF190D30827989783FAA454A98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491603   (121360) от 23.01.2024
-
-А.Н. Толстой (обработка) | Как лиса училась летать (1976) [Раритет] [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Русские народные сказки в обработке А.Н. Толстого, с рисунками Е.М. Рачёва. Для детей дошкольного возраста.
-Алексей Николаевич Толстой (29 декабря 1882 (10 января 1883), Николаевск, Самарская губерния, Российская империя — 23 февраля 1945, Москва) — русский советский писатель и общественный деятель, граф. Автор социально-психологических, исторических и научно-фантастических (   Читать дальше...   )Жанр: Детская литератураИздательство: Приволжское книжное издательствоФормат: DJVUКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6A6E47E2C1109F8ACBDDF4D2931218898AE2D53
 ```
 
 https://mybot314.ru/tekegram_catalog/

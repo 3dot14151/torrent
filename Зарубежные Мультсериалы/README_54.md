@@ -1,3 +1,55 @@
+###  Публикация: 1671684   (124142) от 06.01.2024
+
+Царство падальщиков / Scavengers Reign (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-12 из 12) TVShows, LostFilm, NewStation
+
+>>След.
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124142.jpg" />
+</div>
+
+
+###  Подробнее
+
+Грузовой корабль «Деметра» терпит аварию на неизведанной планете где-то в глубинах космоса. Новый мир кажется астронавтам завораживающим и прекрасным, но он таит в себе смертельную опасность. Чтобы выжить и вернуться домой, экипажу предстоит разобраться, как устроена жизнь на этой планете.Производство: США, Green Street Pictures, HBO Max, TitmouseЖанр: Мультсериал, фантастика, драма, приключенияРежиссер: Джо Беннетт, Чарльз ХюттнерАктеры: Боб Стивенсон, Тед Тревелстид, Алиа Шокат, Вунми Моссаку, Сунита МаниПеревод: Многоголосый профессиональный (TVShows, LostFilm, NewStation)Язык озвучки: Русский, Английский, УкраинскийСубтитры: русские (full), украинские (full), английские (SDH)Продолжительность: ~00:24:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47BA1E00FECEE606F1A750A1A79C71199655DF42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690560   (123450) от 11.01.2024
+
+Кэрол и конец света / Carol & The End of the World (2023) WEBRip [H.265/1080p] (1-10 серии из 10) NewStudio
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как бы отреагировало человечество, столкнувшись с неизбежным вымиранием? Где бы мы нашли смысл? Какое утешение мы могли бы искать? Это важные вопросы, поднятые маленькой жемчужиной мультсериала «Кэрол и конец света». Для такого человека, как Кэрол, мир перевернулся с ног на голову, поскольку осталось чуть больше полгода до того, как планета-изгой врежется в Землю. (   Читать дальше...   )Производство: Канада, США / Bardel EntertainmentЖанр: компьютерная анимация, для взрослых, минисериал, комедияРежиссер: Дэн ГутерманАктеры: Бет Грант, Майкл Чернус, Марта Келли, Бриджет Эверетт, Мэл Родригес, Лоуренс Прессман, Кимберли Хеберт Грегори, Делберт ХантПеревод: Многоголосый профессиональный (NewStudio)Язык озвучки: Русский, английскийСубтитры: Русские (full, forced), английскиеПродолжительность: ~ 00:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E604D0BE4CA9301D7379677A7BD364E8472754D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692873   (122239) от 18.01.2024
 
 Соник Прайм / Sonic Prime (2022) DVBRip [H.264/1080p] (3 сезон серии 1 - 7 из 7) HDrezka Studio
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122239.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121525.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121451.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121217.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120968.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120353.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120191.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119723.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119702.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119573.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119366.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119236.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119231.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119191.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118153.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118132.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118032.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117739.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117636.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117415.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116530.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116371.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116363.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116276.jpg" />
 </div>
 
 
@@ -619,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFE4AE56636CB7109820A160C71ABFE79C839C53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598973   (116153) от 23.02.2024
-
-Соник Прайм / Sonic Prime (2022 - 2024) WEB-DL [H.264/1080p] (сезон 1-3, серии 1-23 из 23) Flarrow Films
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116153.jpg" />
-</div>
-
-
-###  Подробнее
-
-После битвы с доктором Эггманом, расколовшей Вселенную, Соник мчится по параллельным мирам, чтобы найти своих друзей и спасти мир.Производство: США, Канада, Япония / Flixzilla Aura, Man of Action Entertainment, Netflix Animation, SegaЖанр: мультфильм, фантастика, фэнтези, боевик, мелодрама, комедия, приключения, семейныйРежиссер: Эрик Висе, Иши Руделл, Kiran SangherraПеревод: многоголосый профессиональный (Flarrow Films)Язык озвучки: русский, английскийСубтитры: русские, украинские, английскиеПродолжительность: ~00:25:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B40F3AEDE53B9E0E75141BD75B24099A9F0A943
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702157   (115911) от 24.02.2024
-
-Золотой парень / Golden Boy OVA (1995 – 1996) DVDRip (1-6 серии из 6) MTV [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Парень Кинтаро Оэ колесит по стране на велосипеде в поисках приключений и любой работы. Каждый день Кинтаро находит применение своим знаниям и встречает прекрасных девушек.Производство: Япония / A.P.P.P. Company, KSS Inc., ShueishaЖанр: аниме, мультфильм, приключения, комедия, мелодрамаРежиссер: Хироюки КитакубоПеревод: Двухголосый профессиональный (MTV), Двухголосый любительский (AniLibria)Язык озвучки: РусскийСубтитры: русские (full, forced)Продолжительность: серии по ~00:28:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1001F4C0C5CE62073C55BCA46B188F6728F5F94
 ```
 
 https://mybot314.ru/tekegram_catalog/

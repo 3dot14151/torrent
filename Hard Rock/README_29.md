@@ -1,3 +1,32 @@
+###  Публикация: 1269059   (223379) от 13.12.2018
+
+Cats In Boots - Kicked & Klawed (1989) Unofficial Release, EMI USA [MP3|320 Kbps] <Hard Rock, Glam>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shot Gun Sally
+02. Nine Lives (Save Me)
+03. Her Monkey
+04. Whip It Out(   Читать дальше...   )Жанр: Hard Rock, GlamПродолжительность: 00:48:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8B3B68D8C1F918150CFA466B515D013F4D29AB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1585261   (222682) от 21.10.2022
 
 Voodoo Skin - 2 Albums (2019-2022) [MP3|320 Kbps] <Alternative, Hard Rock>
@@ -6,7 +35,7 @@ Voodoo Skin - 2 Albums (2019-2022) [MP3|320 Kbps] <Alternative, Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222682.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Collateral - Re-Wired (2022) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222659.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Turkish Delight - Volume One (2022) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222638.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ The New Roses - Sweet Poison (2022) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222549.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Ugly Kid Joe - Rad Wings Of Destiny (2022) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222285.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - The Sound Hall of Fame (2016) [MP3|320 Kbps] <Glam Metal, Hard Rock, Rhythm
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220763.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Rainbow - On Stage 1977 (Deluxe Edition) (2CD) (2012) [MP3|320 кб/с]<Hard Roc
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220417.jpg" />
 </div>
 
 
@@ -211,7 +240,7 @@ Deep Purple - 24 Carat Purple (1975) Reissue, 1987, EMI [MP3|320 кб/с] <Сlas
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220325.jpg" />
 </div>
 
 
@@ -240,7 +269,7 @@ StoneWire - Life As We Know It (2019) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220096.jpg" />
 </div>
 
 
@@ -269,7 +298,7 @@ Scorpions - Love At First Sting [24 KT + Gold CD] (1984/2012) [MP3|320 кб/с]<
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219953.jpg" />
 </div>
 
 
@@ -303,7 +332,7 @@ Outlaw Blood - Outlaw Blood (1991) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219907.jpg" />
 </div>
 
 
@@ -332,7 +361,7 @@ Gary Moore - Gold (2013) 2CD, Compilation, Remastered [MP3|320 Kbps] <Hard Rock,
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219680.jpg" />
 </div>
 
 
@@ -361,7 +390,7 @@ Woven Man - Sardonic Waters (2023) [MP3|320 Kbps] <Heavy Rock, Stoner Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219599.jpg" />
 </div>
 
 
@@ -390,7 +419,7 @@ Blackhorse - Blackhorse (1979) Remastered, 2013, Common Sounds [MP3|320 Kbps] <H
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218847.jpg" />
 </div>
 
 
@@ -419,7 +448,7 @@ Deep Purple - Time for Bedlam (2016) Single [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218170.jpg" />
 </div>
 
 
@@ -445,7 +474,7 @@ Hanoi Rocks - Up Around the Bend: The Definitive Collection (2004) 2CD, Compilat
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_216713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_216713.jpg" />
 </div>
 
 
@@ -473,7 +502,7 @@ L.A. Guns - Another Xmas in Hell (2019) [MP3|320 Kbps] <Hard Rock, Glam Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216493.jpg" />
 </div>
 
 
@@ -502,7 +531,7 @@ ZZ Top - RAW (2022) 'That Little Ol' Band From Texas' Original Soundtrack [MP3|3
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212327.jpg" />
 </div>
 
 
@@ -531,7 +560,7 @@ Extreme - Six (2023) [MP3|320 Kbps] <Hard Rock, Heavy Metal, Funk Metal>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_211989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_211989.jpg" />
 </div>
 
 
@@ -560,7 +589,7 @@ Whoopie Cat - Weight In Gold (2023) [MP3|320 Kbps] <Classic Rock, Hard Rock, Blu
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211306.jpg" />
 </div>
 
 
@@ -589,7 +618,7 @@ The Black Furs - The Mayhem Years (2023) [MP3|320 Kbps] <Heavy Rock, Psych, Ston
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209105.jpg" />
 </div>
 
 
@@ -618,7 +647,7 @@ VA - Bravo Hits Party Rock (2023) 3CD, Compilation, Digipack [MP3|320 Kbps] <Har
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_199333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199333.jpg" />
 </div>
 
 
@@ -647,7 +676,7 @@ Gary Del Vecchio - Buzzin (2023) [MP3|320 Kbps] <Proto Hard, Psych, Prog, Garage
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190558.jpg" />
 </div>
 
 
@@ -676,7 +705,7 @@ Guns N' Roses - Use Your Illusion (1991) 4CD, Super Deluxe, 2022, Guns N Roses P
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189328.jpg" />
 </div>
 
 
@@ -705,7 +734,7 @@ Kiss - Creatures Of The Night (1982) 5CD, 40th Anniversary / Super Deluxe, Remas
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186805.jpg" />
 </div>
 
 
@@ -719,35 +748,6 @@ Kiss - Creatures Of The Night (1982) 5CD, 40th Anniversary / Super Deluxe, Remas
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38DBBE43BD2D40527CCB88D314600DA43CADF560
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664904   (183157) от 29.09.2023
-
-Black Stone Cherry - Screamin' At The Sky (2023) [MP3|320 Kbps] <Southern Rock, Hard Rock, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Screamin' At The Sky [00:03:24]
-02-Nervous [00:03:15]
-03-When The Pain Comes [00:03:24]
-04-Out Of Pocket [00:03:07](   Читать дальше...   )Жанр: Southern Rock, Hard Rock, Post-GrungeПродолжительность: 00:39:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDD11E935CFDFEB5B2613FC5B5A4002846DB60F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

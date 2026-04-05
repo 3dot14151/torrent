@@ -6,7 +6,7 @@ Eros Ramazzotti - Stilelibero (2001) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76903.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_76803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_76803.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76800.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Pink: Funhouse Tour - Live in Australia (2009) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76767.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Meat Loaf - 3 Bats Live (2007) (BDRip-720p)
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76762.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76719.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76578.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76550.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Eric Clapton - Live In Hyde Park (2001) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76535.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76301.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Paul Rodgers  - Live in Glasgow (2006) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76266.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Nazareth - Live From Classic T Stage (2005) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76144.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Robert Plant & The Band Of Joy - Live From The Artists Den (2011) HDTV
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76117.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ U2 - Live at Glastonbury Festival (2011) HDTVRip [H.264]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75999.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75776.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Peter Gabriel - New Blood (Live in London) (2011) HDTV
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75736.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Robert Plant & The Strange Sensation - Sound Stage (2006) HDTVRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75661.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Bad Company - Live At Wembley (2011) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75469.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Eros Ramazzotti /Eros Live World Tour 2009/2010 (2010) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75440.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Styx: The Grand Illusion/Pieces of Eight Live (2010/2012) [1080i] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75328.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75086.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75046.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Van Canto - Клипы (2006-2011) DVDRip, WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74681.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Van Canto - Live at Wacken (2008) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74637.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74540.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ The Rolling Stones: Let's Spend the Night Together (1981/2011) [1080p] Blu-ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74518.jpg" />
 </div>
 
 

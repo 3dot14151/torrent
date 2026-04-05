@@ -1,3 +1,212 @@
+###  Публикация: 1518602   (150038) от 22.12.2021
+
+WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2021.12.20 [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150038.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузочный диск на базе Windows 10 и 8 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, антивирусной профилактики и установки ОС Windows.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2058800A97BC09673218C41C03F03A85D5EBE130
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945661   (150030) от 22.12.2021
+
+Переводчик и словарь PROMT.One (Translate.Ru) v21.09.325 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150030.jpg" />
+</div>
+
+
+###  Подробнее
+
+PROMT.One (Translate.Ru) – это онлайн и офлайн переводчик, словарь с транскрипцией и разговорники.
+Зарегистрируйтесь и пользуйтесь всеми возможностями бесплатной версии, а также получите доступ на всех устройствах к дополнительным функциям приложения и сайта с подпиской PREMIUM!Тип издания: Пиратка (Premium)Релиз состоялся: 27 октября 2021 г.Разработчик: PROMTПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9C4D2ECD5EBB6C5805EFA3E502A31ED5CA8F74B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518509   (150027) от 22.12.2021
+
+Windows 10 Pro 21H2 Build 19044.1415 x64 by SanLex [Ru] (2021.12.19)
+
+>>3
+>>9
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150027.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на официальном оригинал образе Windows_10_Pro_consumer_editions_21h2_Russian_x64, для более приватного и комфортного пользования. Отключены или удалены нежелательные службы, сбор телеметрических данных, рекламные модули и всё, что влияет на приватность и дискомфорт (в пределах возможного) + оптимизировано для игровой и корпоративной среды.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35A64BF42FCC1463D2EADE688E4AB911AF52C0B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502450   (150024) от 22.12.2021
+
+The Riftbreaker (2021) [Ru/Multi] (1.50) License GOG
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150024.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы играете за капитана Эшли Новак - Вы рифтбрейкер, элитный учёный/коммандо внутри мощного меха-костюма. Пройдите сквозь односторонний портал на Галатею-37, отдалённую планету на окраине Млечного Пути, чтобы построить базу, которая позволит возвращаться на Землю, а также начать колонизацию. Меха-костюм Эшли, которому она дала прозвище "Мистер Ригз", может (   Читать дальше...   )Тип издания: LicenseРазработчик: EXOR StudiosЖанр: Action, Adventure, Simulator, Strategy, Indie, RPGЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CC2544165FCDD161940E479F8768050D68425E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038477   (150019) от 22.12.2021
+
+Stardew Valley (2016) [Ru/Multi] (1.5.6.1909543277) Repack Other s
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой Stardew Valley унаследовал от дедушки старую ферму. Однако от нее остался только небольшой участок заросшего поля. Вашей целью будет вернуть жизнь на этот клочок земли! Вы можете удариться в сельское хозяйство и стать экспертом в семенах, выращивании овощей и животных, шахтерском деле, рыболовстве, строительстве, приготовлении еды, исследовании, уничтожении (   Читать дальше...   )Тип издания: RepackРазработчик: ConcernedApeЖанр: RPG, Sandbox, FarmingЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25F8E2976F716120529C2CFD2A90FC2CEF4F4911
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415161   (150013) от 22.12.2021
+
+Medieval Dynasty (2020) [Ru/Multi] (1.1.1.0/dlc) License GOG [Digital Supporter Edition]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150013.jpg" />
+</div>
+
+
+###  Подробнее
+
+В игре Medieval Dynasty вам предстоит примерить на себя роль юноши, который сбежал от войны и хочет взять жизнь в свои руки. Изначально вы одиноки, неопытны и бедны, однако вам предстоит многому научиться, возглавить других и основать процветающую династию, которая будет процветать многие века. Раннее Средневековье в Европе. Миром правят дворяне и церковь. Разные (   Читать дальше...   )Тип издания: LicenseРазработчик: Render CubeЖанр: Adventure, RPG, Simulation, SandboxЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDB7FDA3045F96B7511CB7DEC70A3CF7A75E38CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676769   (149984) от 18.11.2023
+
+«150 фильмов в 1 секунду»: Китай начинает внедрение самого быстрого в мире интернета
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149984.jpg" />
+</div>
+
+
+###  Подробнее
+
+Магистральная оптоволоконная линия Пекин-Ухань-Гуанчжоу длиной более 3000 км и скоростью передачи 1,2 терабита в секунду была запущена в июле и официально сдана в эксплуатацию 13 ноября после многоэтапных эксплуатационных испытаний. Это знаковое событие произошло более чем на два года раньше, чем прогнозировали эксперты. Десятилетний план развития сетевой инфраструктуры (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968813   (149925) от 25.12.2015
+
+Adguard 6.0.146.791 RC [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149925.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adguard - одно из известных приложений разработчика программных продуктов компании Инсофт, предназначенное для блокирования рекламных баннеров и всплывающих окон при работе в сети Интернет. Данная утилита поддерживает фильтрацию при работе с такими браузерами, как Internet Explorer, Google Chrome, Mozilla Firefox, Safari, Opera, Maxthon, Avant Browser, Netscape Navigator, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F790AB26DC4C82C5AAE331E57D15763148712D06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 968831   (149856) от 25.12.2015
 
 IP-TV Player 0.28.1.8842 Final [Ru]
@@ -6,7 +215,7 @@ IP-TV Player 0.28.1.8842 Final [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149856.jpg" />
 </div>
 
 
@@ -32,7 +241,7 @@ Adobe Dreamweaver CC 2015 (v16.1.0) x86-x64 RUS/ENG Update 2
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149830.jpg" />
 </div>
 
 
@@ -58,7 +267,7 @@ TeamViewer 11.0.53254 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149813.jpg" />
 </div>
 
 
@@ -84,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149807.jpg" />
 </div>
 
 
@@ -111,7 +320,7 @@ Adobe Photoshop Lightroom 6.3 RePack by D!akov (24.12.2015) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149781.jpg" />
 </div>
 
 
@@ -137,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149775.jpg" />
 </div>
 
 
@@ -163,7 +372,7 @@ PROMT Professional 11 Build 9.0.556 DC 20.11.2015 + Dictionaries Collection [Ru/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149758.jpg" />
 </div>
 
 
@@ -189,7 +398,7 @@ PROMT Expert 11 Build 9.0.556 DC 20.11.2015 + Dictionaries Collection [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149751.jpg" />
 </div>
 
 
@@ -215,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149747.jpg" />
 </div>
 
 
@@ -247,7 +456,7 @@ W.D.I | Веб-дизайн Интенсив (2015) PCRec [H.264]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149733.jpg" />
 </div>
 
 
@@ -276,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149724.jpg" />
 </div>
 
 
@@ -302,7 +511,7 @@ Navitel Navigator / Навител v9.6.1964 Full и другие [Ru/Multi]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149709.jpg" />
 </div>
 
 
@@ -328,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149141.jpg" />
 </div>
 
 
@@ -354,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>10
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149052.jpg" />
 </div>
 
 
@@ -381,7 +590,7 @@ Launcher for GoodbyeDPI v.1.9.9 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149032.jpg" />
 </div>
 
 
@@ -410,7 +619,7 @@ Ashen (2018) [Ru/Multi] (1.0.12.0) License CODEX
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149017.jpg" />
 </div>
 
 
@@ -436,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>14
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149011.jpg" />
 </div>
 
 
@@ -462,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149003.jpg" />
 </div>
 
 
@@ -473,218 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3778B00268477C6E6657201AEED183B4B375C6B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230921   (148991) от 23.12.2018
-
-Wreckfest (2018) [Ru/Multi] (1.233553/dlc) Repack xatab
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Забудьте о правилах! Wreckfest - это полный контакт и никакой пощады! Эпические столкновения, нешуточная борьба до самого финиша и миллион способов гнуть и корежить металл - вот что ждет вас в Wreckfest, новой гоночной игре со сверхреалистичной симуляциейТип издания: RepackРазработчик: BugbearЖанр: Action, Indie, Racing, Simulator, SportsЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F7C9108DA42D6F7740EC871993755B3DC0E4E72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086399   (148988) от 25.12.2016
-
-Microsoft признала агрессивной свою политику обновления до Windows 10
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148988.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Microsoft признались, что обманом вынуждали пользователей устанавливать Windows 10
-С момента официального выхода Windows 10 в адрес компании Microsoft все чаще стала звучать критика за агрессивные меры перевода пользователей операционной системы на новую версию. Компания начала с раздражающих уведомлений с предложением о переходе на новую систему и закончила откровенным (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271491   (148966) от 23.12.2018
-
-WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2018.12.23 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148966.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузочный диск на базе Windows 10 и 8 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, антивирусной профилактики и установки ОС Windows.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2E8C4F2A73BAB12DB7519654A5A302996B0C679
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086927   (148930) от 25.12.2016
-
-ACDSee Ultimate 10.2 Build 878 RePack by KpoJIuK [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148930.jpg" />
-</div>
-
-
-###  Подробнее
-
-ACDSee Ultimate 10 сочетает в себе поддержку слоев, поддержку GPU-ускорения обработки изображений, поддержку прозрачности со всеми функциями регулировки изображений из режима редактирования. ACDSee - функциональная программа, рассчитанная как на профессиональных фотографов, так и на любителей. ACDSee позволяет работать с цифровыми фотографиями, RAW-изображениями (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D442A631CC06638CDD952BAEBE2F2DFCB6D28E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244352   (148923) от 23.12.2018
-
-Shadows: Awakening (2018) [Ru/Multi] (1.31/dlc) License GOG
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148923.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shadows: Awakening - это уникальная изометрическая ролевая игра с тактической системой боя в реальном времени и одиночной кампанией. Вы играете за Пожирателя - демона, призванного из Мира теней, чтобы поглотить души давно погибших героев.Вас ждет опасное, но захватывающее приключение, увлекательная сюжетная линия и невероятно красивая графика. Достанет ли вам силы (   Читать дальше...   )Тип издания: LicenseРазработчик: Games FarmЖанр: RPG (Open World), Action, 3rd Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F91956C06B1DE0EDF0B66FF33F3A78D6B4A28D51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519331   (148908) от 23.12.2021
-
-Сабатовский | Davinci resolve с нуля (2021) PCRec
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148908.jpg" />
-</div>
-
-
-###  Подробнее
-
-Освой весь функционал программы с нуля за 3 месяца
-Монтируй, работай с цветом, графикой и саунд-дизайном — в одной программе
-Создай полноценный видеоролик для портфолио
-Перейти в DaVinci, получить комплексные знания о работе в программе.(   Читать дальше...   )Жанр: монтаж, цветПродолжительность: 14:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40B4A8370360E26D4D367EE44CFB36626B784F4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 738900   (148901) от 26.12.2013
-
-Next Car Game (2013) [En] (alpha 0.167610) Repack Cat-a-Cat
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148901.jpg" />
-</div>
-
-
-###  Подробнее
-
-Next Car Game - рабочее название нового рейсинга от студии Bugbear Entertainment. Игра возьмет лучшее от FlatOut и Destruction Derby, предложит онлайн-режим, апгрейд своего транспортного средства, навороченную физику и модель повреждений. В отличие от других рейсингов, машины в Next Car Game - это старые, залатанные и ржавые тачки.Тип издания: Cat-a-CatРазработчик: Bugbear EntertainmentЖанр: Arcade / Racing (Cars)Язык озвучки: -/-Язык субтитров: -/-Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1608E79B6536F88CCC0C3D9EEA82AB95CFC9581A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273471   (148900) от 23.12.2021
-
-Матрица / The Matrix (1999-2003) UHD BDRip [H.265/2160p] [4K, HDR, 10-bit] [Трилогия]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148900.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм изображает будущее, в котором реальность, существующая для большинства людей, - есть в действительности симуляция, созданная разумными машинами, чтобы подчинить и усмирить человеческое население, в то время как тепло и электрическая активность их тел используются машинами в качестве источника энергии. Узнав об этом, хакер по кличке Нео оказывается втянут в (   Читать дальше...   )Производство: США, Австралия / Warner Bros., Village Roadshow PicturesЖанр: Боевик, Фантастика, ПриключенияРежиссер: Энди Вачовски, Лана ВачовскиАктеры: Киану Ривз, Лоренс Фишбёрн, Кэрри-Энн Мосс, Хьюго Уивинг, Глория Фостер, Джо Пантольяно, Маркус Чонг, Джулиан Араханга, Мэтт Доран, Белинда МакКлори, Моника Беллуччи, Ламбер Вильсон, Энтони Вон и др.Перевод: Дублированный, авторскийСубтитры: Русские, английские, украинские (2,3 часть)Продолжительность: 02:16:21 + 02:18:18 + 02:09:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65FAF2181D1E2DCE964A7B7D056F496347D974F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

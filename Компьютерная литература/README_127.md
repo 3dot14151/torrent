@@ -1,170 +1,3 @@
-###  Публикация: 1780438   (27235) от 18.02.2025
-
-В. А. Ажеронок, А. В. Островерх, М. Г. Радченко и др. | Разработка интерфейса прикладных решений на платформе «1С:Предприятие 8» (2-е изд.) (2024) [PDF, EPUB]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга адресована специалистам, имеющим опыт разработки на платформе «1С:Предприятие 8.3». Также она будет интересна и полезна всем программистам, желающим познакомиться с тем, как создаются прикладные решения, работающие в интерфейсе «Такси».
-
-Состоит из пяти частей, посвящённых различным областям разработки интерфейса: формированию командного интерфейса, разработке (   Читать дальше...   )Жанр: прикладная информатика, программирование 1С, программы, продукты 1СИздательство: 1С-ПаблишингФормат: PDF, EPUBКачество: изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E548E8C0E9E8586B0B64E831A2949FE37673D63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780447   (27228) от 18.02.2025
-
-Е. Ю. Хрусталева | Разработка сложных отчётов в «1С:Предприятии 8». Система компоновки данных (4-е изд.) (2024) [PDF, EPUB]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная книга адресована программистам и разработчикам прикладных решений в системе «1С:Предприятие 8». Она позволяет самостоятельно изучить возможности системы компоновки данных – механизма, предназначенного для создания сложных аналитических отчётов в программах «1С:Предприятия 8».
-
-Для начинающих разработчиков в книге описывается устройство системы компоновки данных, (   Читать дальше...   )Жанр: программирование 1С, программы, разработка программного обеспеченияИздательство: 1С-ПаблишингФормат: PDF, EPUBКачество: изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EA81F3875A5329DE4BADE1A44BAA8D04214FBD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780624   (27125) от 19.02.2025
-
-Ольга Пономарева | ТОП-100 вопросов и ответов из собеседований на системного аналитика (2023) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тщательно подготовьтесь к теоретической части собеседования и откройте двери к предложениям от ведущих компаний.
-
-В течение нескольких лет я как сама проходила собеседования, так и проводила их. За это время я собрала список из 100 наиболее часто задаваемых вопросов по различным темам.
-(   Читать дальше...   )Жанр: Системный анализИздательство: System AnalystФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5E295A56C5B9A7A2F7EFEF836A5476C2096A97F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780692   (27121) от 19.02.2025
-
-В. А. Ажеронок, А. В. Островерх, М. Г. Радченко и др. | Разработка интерфейса прикладных решений на платформе «1С:Предприятие 8» (2018) [EPUB]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга является обновлённым и дополненным изданием книги «Разработка управляемого интерфейса». Книга адресована специалистам, имеющим опыт разработки на платформе «1С:Предприятие 8.3». Также она будет интересна и полезна всем программистам, желающим познакомиться с тем, как создаются прикладные решения, работающие в интерфейсе «Такси».
-
-Книга состоит из пяти частей, (   Читать дальше...   )Жанр: прикладная информатика, программирование 1С, программы, продукты 1СИздательство: 1С-ПаблишингФормат: EPUBКачество: изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85289CCB42521D1DAB574DA9DBB6FDE685DBBB5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780700   (27115) от 19.02.2025
-
-Е. Ю. Хрусталева | 101 совет начинающим разработчикам в системе «1С:Предприятие 8» (2015) [EPUB]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27115.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга адресована начинающим разработчикам прикладных решений в системе «1С:Предприятие 8». Она поможет овладеть наиболее эффективными приёмами разработки приложений.
-
-Средства разработки «1С:Предприятия 8» позволяют решать широкий круг задач. Начинающим разработчикам бывает сложно сориентироваться в многообразии имеющихся инструментов и возможностей. Зачастую бывает (   Читать дальше...   )Жанр: 1С:Предприятие, программирование 1С, продукты 1СИздательство: 1С-ПаблишингФормат: EPUBКачество: изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C41492AD894089577FFC578C7DCFECE0DBC268E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781076   (26943) от 21.02.2025
-
-Мария Новосадова | Справочник IT-терминов (2023) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представлены основные IT-термины в области разработки, тестирования, системного администрирования, облачных вычислений. Для начинающих IT-рекрутеров и всех, кто интересуется информационными технологиями.Жанр: Компьютерная литература, справочникИздательство: Инфра-ИнженерияФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03F520FBB2630D0325D880327F594403A310BC0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1781352   (26839) от 22.02.2025
 
 Д. Хиллард | Публикация пакетов Python. Тестирование, распространение и автоматизация проектов (2024) [PDF]
@@ -173,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26839.jpg" />
 </div>
 
 
@@ -202,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26329.jpg" />
 </div>
 
 
@@ -230,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26234.jpg" />
 </div>
 
 
@@ -256,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26187.jpg" />
 </div>
 
 
@@ -282,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26181.jpg" />
 </div>
 
 
@@ -308,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25159.jpg" />
 </div>
 
 
@@ -335,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25054.jpg" />
 </div>
 
 
@@ -361,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24849.jpg" />
 </div>
 
 
@@ -387,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24743.jpg" />
 </div>
 
 
@@ -415,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24628.jpg" />
 </div>
 
 
@@ -441,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24627.jpg" />
 </div>
 
 
@@ -467,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23794.jpg" />
 </div>
 
 
@@ -495,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23505.jpg" />
 </div>
 
 
@@ -522,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23470.jpg" />
 </div>
 
 
@@ -549,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23396.jpg" />
 </div>
 
 
@@ -577,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23376.jpg" />
 </div>
 
 
@@ -603,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23286.jpg" />
 </div>
 
 
@@ -629,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23271.jpg" />
 </div>
 
 
@@ -656,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23268.jpg" />
 </div>
 
 
@@ -683,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23262.jpg" />
 </div>
 
 
@@ -697,6 +530,167 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:066ABC3B375FFE19927ED4986F388F8FC234944C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788062   (23248) от 28.03.2025
+
+ChatGPT-4; М.Р. Брослав, О.А. Яблокова (сост.) | Автобиография нейросети (2023) [PDF, EPUB]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга, написанная нейросетью, – уникальное путешествие в мир искусственного интеллекта. Нейросеть открывает двери в свой виртуальный мир, рассказывая о своем происхождении, развитии и обширных возможностях.
+«Автобиография нейросети. Искусственный интеллект, который научился общаться» – невероятный взгляд на внутреннюю работу искусственного интеллекта. Нейросеть (   Читать дальше...   )Жанр: Компьютерная литература, нейросетиИздательство: АСТФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A48D02FA67302CF62B96789B10986AAD059B9610
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788077   (23242) от 28.03.2025
+
+Александр Чичулин | Правильные запросы ChatGPT (2023) [PDF, EPUB]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга «Правильные запросы ChatGPT. Ваше взаимодействие с виртуальными помощниками.
+Раскройте весь потенциал ChatGPT» содержит важные рекомендации по составлению эффективных запросов в ChatGPT. От ясности и грамматики до шаблонов и примеров, читатели узнают, как эффективно общаться с ChatGPT и другими ИИ помощниками. Благодаря практическим советам и упражнениям эта (   Читать дальше...   )Жанр: Компьютерная литература, нейросетиИздательство: Издательские решения в системе RideroФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56F46284686658A9A17EF931E90E0D65DC9E4B58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788069   (23238) от 28.03.2025
+
+Ильдар Султангулов | Магия ChatGPT (2024) [PDF, DJVU]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23238.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Магия ChatGPT" – практическое руководство, которое проведет вас через все этапы работы с одной из самых продвинутых нейросетей современности. Эта книга откроет для вас новые возможности – от создания контента до автоматизации рутинных задач. Здесь вы найдете пошаговые инструкции, советы и примеры запросов, которые помогут освоить и эффективно использовать (   Читать дальше...   )Жанр: Компьютерная литература, нейросетиИздательство: СамиздатФормат: PDF, DJVUКачество: Изначально электронное (ebook), Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A258D7292D4ED1B81AAB956BDDE4F0E8E2C6B7FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788921   (22849) от 01.04.2025
+
+Михаил Евгеньевич Фленов | Библия C#. Шестое издание (2024) [PDF, DJVU]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена программированию на языке C# для платформы Microsoft . NE T, начиная с основ языка и разработки программ для работы в режиме командной строки и заканчивая созданием современных веб-приложений. Материал сопровождается большим количеством практических примеров. Подробно описывается логика выполнения каждого участка программы. Уделено внимание вопросам (   Читать дальше...   )Жанр: Программирование. Интернет и технологииИздательство: БХВ-ПетербургФормат: PDF, DJVUКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A3088273122F0D7999FCC78FFEDD2F01DB7DAA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790999   (21692) от 12.04.2025
+
+Ярослав Суков | Python. Основы программирования (2025) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21692.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга охватывает широкий спектр тем, связанных с использованием Python для решения различных задач. Каждая глава посвящена отдельной области применения Python, предоставляя подробное описание библиотек, инструментов и примеров их использования. Изучение этих тем позволяет разработчикам, ученым и специалистам в различных областях эффективно использовать язык программирования (   Читать дальше...   )Жанр: Обучение программированию. Языки программированияИздательство: Самиздат, LitresФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34A810B76319616DFF0981B9C130AC524C8744CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790996   (21689) от 12.04.2025
+
+Дмитрий Зверев | Нейросеть ChatGPT - расширенная версия (2025) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21689.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот инфопродукт специально для тех, кому нужна четкая и доступная для быстрого внедрения информация.
+Это конкретные инструкции по нейросети ChatGPT.
+По шагам вы пройдете, весь процесс и сможете освоить навык создания неограниченного количества единиц уникальной информации.
+На примерах из практики.(   Читать дальше...   )Жанр: Учебное пособие. Курс. Искусственный интеллект, Нейронные сети.Издательство: СамиздатФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A9EEA810E80202170A580992BFFD1F0D2C49236
 ```
 
 https://mybot314.ru/tekegram_catalog/

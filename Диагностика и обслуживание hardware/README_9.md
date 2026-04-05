@@ -1,3 +1,319 @@
+###  Публикация: 1823592   (125832) от 12.10.2025
+
+AOMEI Partition Assistant Technician Edition 10.9.1 + Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aomei Partition Assistant – мощная программа для работы с жёстким диском, администрирования разделов для ПК и рабочих станций. Программа ответит на такие вопросы, как: “Как изменить размер раздела или объединить разделы без потери данных? Как увеличить производительность компьютера?” Кроме того, PA включает AOMEI Dynamic Disk Manager Pro (DDM), что означает наличие (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF6DB0CFAC1A1EB37306E381A66FC5651C9DE034
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823604   (125821) от 12.10.2025
+
+AOMEI Partition Assistant Technician Edition 10.9.1 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aomei Partition Assistant – мощная программа для работы с жёстким диском, администрирования разделов для ПК и рабочих станций. Программа ответит на такие вопросы, как: “Как изменить размер раздела или объединить разделы без потери данных? Как увеличить производительность компьютера?” Кроме того, PA включает AOMEI Dynamic Disk Manager Pro (DDM), что означает наличие (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C359B22ABAE262B0ECE7D5D0100E44A01240072
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689531   (124711) от 02.01.2024
+
+ColorControl 9.8.0.1 Portable [En]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124711.jpg" />
+</div>
+
+
+###  Подробнее
+
+ColorControl - небольшая программа которая после запуска предлагает новые функции и возможности для пользователей, имеющих видеокарты от компании NVIDIA или АМД. С помощью нее можно изменить не только основные параметры дисплея, но и некоторые скрытые значения, которые обычно недоступны через стандартную панель управления, что значительно расширяет возможности наши (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3515291DAA18F8A43ECEE2CB31EB929E19461C68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692173   (122825) от 15.01.2024
+
+SanDisk (Western Digital) SSD Dashboard 4.1.2.4 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122825.jpg" />
+</div>
+
+
+###  Подробнее
+
+SanDisk (Western Digital) SSD Dashboard - официальная программа от Western Digital, которая предназначена для работы с твердотельными SSD накопителями SanDisk. По функциональным возможностям, программа схожа с инструментом Western Digital SSD Dashboard, а начиная с версии 2.5.1.0 полноценно поддерживает работу с накопителями брэнда WD.
+Программа SanDisk SSD Dashboard (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC960FE93832F5F34AC44204D3256625330A8D80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692394   (122633) от 16.01.2024
+
+Memtest86+ 7.00 [En]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122633.jpg" />
+</div>
+
+
+###  Подробнее
+
+Опубликован выпуск программы для тестирования оперативной памяти MemTest86+. Программа не привязана к операционным системам и может запускаться напрямую из прошивки BIOS/UEFI или из загрузчика для проведения полной проверки оперативной памяти. В случае выявления проблем построенная в Memtest86+ карта сбойных участков памяти может использоваться в ядре Linux для исключения (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:376FCACFDFCF8CD413ECD1C2F016AF6F8D423C00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693080   (122041) от 19.01.2024
+
+HiBit System Information 2.1.20 + Portable [En]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122041.jpg" />
+</div>
+
+
+###  Подробнее
+
+HiBit System Information - программа для получения информации об оборудовании и комплектующих компьютера или ноутбука, а также сведения об операционной системе, программах и процессах.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF4FAC9402B5E5807D700744D23709485C26D623
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823278   (121431) от 11.10.2025
+
+O&O Defrag Professional 30.0 Build 1057 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121431.jpg" />
+</div>
+
+
+###  Подробнее
+
+O&O Defrag Professional – инструмент дефрагментации дисков, регулярное использование которого может ускорить скорость работы с компьютером до 100 процентов.
+При дефрагментации файлы, которые Windows разделила на части по всему жесткому диску помещаются вместе согласно логической структуре для быстрого распознавания и поиска головками записи и чтения вашего жесткого (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB99B9DF7A1B30339AFC9700881645D2426D0BE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699406   (117847) от 13.02.2024
+
+GPU Shark 0.32.0 Portable [En]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117847.jpg" />
+</div>
+
+
+###  Подробнее
+
+GPU Shark - небольшая бесплатная и очень простая в использовании утилита, предназначенная для мониторинга состояния работы GPU. Основана на ZoomGPU и работает на базе чипсетов NVIDIA GeForce и ATI Radeon. GPU Shark может отображать для каждого GPU тактовые частоты (ядра, памяти и шейдерных процессоров), состояния производительности (или PStates), скорость вентилятора, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE4BDBB989B6DC2D870B4CAC0552942EF0751016
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699403   (117843) от 13.02.2024
+
+GPU Caps Viewer 1.63.0 Portable [En]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117843.jpg" />
+</div>
+
+
+###  Подробнее
+
+GPU Caps Viewer - информационная утилита, позволяющая получить информацию о графической карте, провести несколько OpenGL и OpenCL тестов и вести мониторинг различных параметров GPU карт в реальном времени. Программа отображает OpenGL, OpenCL и CUDA информацию для всех графических карт имеющихся в системе, а также предлагает GPU мониторинг карт NVIDIA GeForce и AMD (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B8535904C842B73DD18A97EF5CFF6BE863880CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823094   (117651) от 10.10.2025
+
+Hard Disk Sentinel PRO 6.30.4 Build 13402 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117651.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hard Disk Sentinel Pro — отличная программа для мониторинга состояния HDD/SSD носителей. Сейчас как никогда важна информация, хранящаяся на них. Сам неоднократно сталкивался со случаями, когда пользователи не делали резервных копий важных файлов, а потом сильно расстраивались из-за их потери. Сами подумайте - работа, семейный архив фото/видео, а также другая информация, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51BF2B34E82859BE9D8400A7C795EDC914B77CC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701620   (116473) от 21.02.2024
+
+CPUID HWMonitor Pro 1.53 + Portable [En]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116473.jpg" />
+</div>
+
+
+###  Подробнее
+
+CPUID HWMonitor Pro - расширенная версия утилиты, предназначенной для мониторинга показателей компонентов компьютера. В этот перечень входит температура, скорость вращения вентиляторов, а также напряжение. Поддерживаются мониторинг процессорных датчиков, множества различных чипов мониторинга, abit uGuru 2003 и uGuru 2005, сенсоров блоков питания Gigabyte ODIN, S.M.A.R.T. (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C3A2FC0DF122AA4E7782EB34C432C5489A3CFC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701482   (116418) от 21.02.2024
+
+NVIDIA NVFlash 5.821.0 (x64) Portable [Ru/En]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116418.jpg" />
+</div>
+
+
+###  Подробнее
+
+NVFlash - это программа для прошивки BIOS видеокарт семейства Nvidia. Она используется для обновления прошивки, хранящейся в EEPROM видеоадаптера. Приложение так же позволяет сохранять копии текущего BIOS в файл или отображать его версию и многое другое, включая перепрошивку BIOS на старых графических процессорах NVIDIA.
+
+Перед прошивкой сделайте резервную копию (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D9502EF8F77037F49B5F1EFF60F7EE2072AD70B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701548   (116410) от 21.02.2024
 
 CPUID HWMonitor 1.53 + Portable [En]
@@ -6,7 +322,7 @@ CPUID HWMonitor 1.53 + Portable [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116410.jpg" />
 </div>
 
 
@@ -32,7 +348,7 @@ CPUID HWMonitor Pro 1.53 (x64) Portable by Padre Pedro [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116404.jpg" />
 </div>
 
 
@@ -58,7 +374,7 @@ CineBench 2024.1.0 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115266.jpg" />
 </div>
 
 
@@ -85,7 +401,7 @@ StressMyPC 5.33 Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111967.jpg" />
 </div>
 
 
@@ -111,7 +427,7 @@ Macrorit Partition Expert 8.6.0 Technician Edition RePack by KpoJIuK [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100876.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100876.jpg" />
 </div>
 
 
@@ -137,7 +453,7 @@ TestDisk 6.11 (Востанови то что казалось-бы потеря
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79090.jpg" />
 </div>
 
 
@@ -170,7 +486,7 @@ Transcend SSD Scope 4.22 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62119.jpg" />
 </div>
 
 
@@ -197,7 +513,7 @@ Samsung SSD Magician Tool 8.1.0.800 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61772.jpg" />
 </div>
 
 
@@ -223,7 +539,7 @@ MSI Kombustor 4.1.29.0 [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60786.jpg" />
 </div>
 
 
@@ -251,7 +567,7 @@ CpuFrequenz 4.31 + Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59905.jpg" />
 </div>
 
 
@@ -277,7 +593,7 @@ Macrorit Partition Expert 8.1.6 Technician Edition Portable by 7997 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59633.jpg" />
 </div>
 
 
@@ -303,7 +619,7 @@ Geekbench 6.3.0 Pro RePack (& Portable) by elchupacabra [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58371.jpg" />
 </div>
 
 
@@ -329,7 +645,7 @@ ASUS GPU Tweak III 1.7.7.0 [Multi]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58334.jpg" />
 </div>
 
 
@@ -356,7 +672,7 @@ AOMEI Partition Assistant Standard Edition 10.4.0 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58098.jpg" />
 </div>
 
 
@@ -367,319 +683,6 @@ AOMEI Partition Assistant Standard Edition бесплатный многофун
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71E0731E9C1BB42BE830F52D1D8899C8D592E547
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719864   (57961) от 01.05.2024
-
-CrystalMark Retro 1.0.2 + Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57961.jpg" />
-</div>
-
-
-###  Подробнее
-
-CrystalMark - это простая в обращении и мощная по функциям программа для тестирования и сравнения скорости работы компьютера и отдельных его компонентов. Также, CrystalMark позволяет просматривать подробную информацию об аппаратных компонентах компьютера.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAF5375A42CD00F14A419681954B274B3FF16D0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724177   (56152) от 18.05.2024
-
-Quick CPU 4.10.0.0 [En]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Quick CPU — это приложение, разработанное для точной настройки и мониторинга производительности процессора, параметров питания и напряжения, таких как: парковка ядер, масштабирование частоты, Turbo Boost, C-States, Speed ​​Shift и FIVR Контроль, а также некоторые другие возможности.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:546CD4A7572FA1903F706B0156B9E498FB5620FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725419   (55587) от 24.05.2024
-
-Futuremark 3DMark 2.29.8256 Professional Edition RePack by KpoJIuK [Multi/Ru]
-
->>След.
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55587.jpg" />
-</div>
-
-
-###  Подробнее
-
-3DMark - поможет вам протестировать ваше оборудование для игр. Играете вы на персональном компьютере, ноутбуке или планшете? В 3DMark есть все инструменты для вашей платформы что бы протестировать игровую производительность. 3DMark поможет вам протестировать ваше оборудование в основных популярных базовых и таких разрешениях как 2K и 4K и даже супер экстремальных (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D231C436ED859DB60E4E2970CA11FB351FAB63B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726956   (54800) от 31.05.2024
-
-UninstallView 1.51 Portable [Ru/En]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54800.jpg" />
-</div>
-
-
-###  Подробнее
-
-UninstallView - это инструмент для Windows, который собирает информацию обо всех программах, установленных в вашей системе, и отображает сведения об установленных программах в одной таблице. Вы можете использовать его для получения информации об установленных программах для вашей локальной системы, для удаленного компьютера в вашей сети и для внешнего жесткого диска, (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E1E503EAB8CC6555A99C4B59233D31B59B63E18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821387   (52130) от 02.10.2025
-
-Mem Reduct 3.5.2 + Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mem Reduct - это легкое и хорошо себя зарекомендовавшее приложение для ручного управления памятью или автоматического контроля и освобождения памяти в режиме реального времени. В программе использованы родные недокументированные возможности системы (Native API) по очистке системного кэша (system working set, working set, standby page lists, modified page lists) с (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:078376F6B1014B9FED293D56156CFD9AA21600B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733976   (51431) от 01.07.2024
-
-3D.Benchmark.OK 2.15 Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51431.jpg" />
-</div>
-
-
-###  Подробнее
-
-3D.Benchmark.OK- это небольшое, но достаточно мощное приложение для максимально быстрого и точного тестирования возможностей вашей видеокарты.
-Особенно с недавно купленными видеокартами или после установки нового драйвера, вы можете сравнить значения, чтобы определить, есть ли прирост производительности, тест занимает всего 65 секунд, или вы просто запускаете автопилот, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4046B971995C967A69211A3D9E4900547AED377F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734489   (51185) от 03.07.2024
-
-AusLogics Disk Defrag Ultimate 4.13.0.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51185.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics Disk Defrag Ultimate - это профессиональная версия компактного и быстрого дефрагментатора, работающего как с FAT 16/32, так и с NTFS файловыми системами. Программа использует ряд алгоритмов, которые позволяют оптимизировать и упорядочить файлы Вашего жесткого диска, дефрагментировать файловую структуру и ускорить работу приложений и Windows.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23A9BC37B14D02EC1B090696FF0247E5A7C67BC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734716   (51078) от 04.07.2024
-
-AusLogics Disk Defrag Ultimate 4.13.0.2 RePack (& Portable) by Dodakaedr [Ru/En]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics Disk Defrag Ultimate - это профессиональная версия компактного и быстрого дефрагментатора, работающего как с FAT 16/32, так и с NTFS файловыми системами. Программа использует ряд алгоритмов, которые позволяют оптимизировать и упорядочить файлы Вашего жесткого диска, дефрагментировать файловую структуру и ускорить работу приложений и Windows.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73246EABF8871AE060AE3D7059D6BAD56849BED1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734825   (50954) от 05.07.2024
-
-AusLogics Disk Defrag Ultimate 4.13.0.2 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50954.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics Disk Defrag Ultimate - это профессиональная версия компактного и быстрого дефрагментатора, работающего как с FAT 16/32, так и с NTFS файловыми системами. Программа использует ряд алгоритмов, которые позволяют оптимизировать и упорядочить файлы Вашего жесткого диска, дефрагментировать файловую структуру и ускорить работу приложений и Windows.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C8F839FB0831DFE07360670F2B8AD89D914F94D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734979   (50902) от 06.07.2024
-
-AusLogics Disk Defrag Ultimate 4.13.0.2 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50902.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics Disk Defrag Ultimate - это профессиональная версия компактного и быстрого дефрагментатора, работающего как с FAT 16/32, так и с NTFS файловыми системами. Программа использует ряд алгоритмов, которые позволяют оптимизировать и упорядочить файлы Вашего жесткого диска, дефрагментировать файловую структуру и ускорить работу приложений и Windows.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D20F7E71795C70C7C844A9A7543EFDEE34669EDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735434   (50670) от 08.07.2024
-
-WhyNotWin11 2.6.1.0 Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Утилита WhyNotWin11 предоставляет информацию о том, совместим ли ваш компьютер и встроенные аппаратные компоненты с Windows 11.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:774A71BB0CCBEE88569F5ABD6DF0EC614C8D1C08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738579   (49111) от 23.07.2024
-
-PassMark RAMMon 3.3 Build 1000 [En]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49111.jpg" />
-</div>
-
-
-###  Подробнее
-
-PassMark RAMMon - удобная и полезная утилита для получения и отображения информации SPD (Serial Presence Detect) из установленных на ПК модулей оперативной памяти. Эта информация представляет собой срез имеющихся данных для каждого модуля оперативной памяти, установленной в системе. Отображаются такие атрибуты как производитель, тактовая частота, серийный номер, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C31F274E111B1D3A173DC7616AA1CA6DF47C525
 ```
 
 https://mybot314.ru/tekegram_catalog/

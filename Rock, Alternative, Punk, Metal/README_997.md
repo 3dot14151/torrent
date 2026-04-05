@@ -1,3 +1,32 @@
+###  Публикация: 1664138   (186007) от 25.09.2023
+
+Raspy Junker - Bad Queen (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal / Female Vocals>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Start a Revolution [00:03:50]
+02. Snake Eyes [00:04:10]
+03. Hypnotized [00:05:16]
+04. Battle Cry [00:05:10](   Читать дальше...   )Жанр: Heavy Metal, Female VocalsПродолжительность: 00:50:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C20402BC10A85F937408A4C1A355D02E01148316
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1664308   (186002) от 25.09.2023
 
 Сны Африканца - Кислота (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -6,7 +35,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186002.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Atrophy - Lexical Occultation 1.618 The Veil From Beyond (2009) [FLAC|Lossless|W
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185989.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_185973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_185973.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ public static void main - Всё_пропало (2023) [FLAC|Lossless|WEB-DL|tra
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185966.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Primal Scream - More Light (2013) Japanese Deluxe Edition [FLAC|Lossless]<Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185822.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Tulus - Old Old Death (2020) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185642.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Gaupa - Myriad (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185639.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Diamonds to Dust - Amidst the Hallowed and the Vanquished (2022) [FLAC|Lossless|
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185635.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Nocny Kochanek - O Jeden Most Za Daleko (2022) [FLAC|Lossless|WEB-DL|tracks] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185631.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Sascha Paeth's Masters Of Ceremony - Signs Of Wings (2019) Japanese Edition [FLA
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185629.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Without Warning - Making Time (1993) 2003 reissue [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185622.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ The Re-Stoned - Orange Session (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185621.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Without Warning - Believe (1995) [FLAC|Lossless|image + .cue] <Progressive Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185616.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Wardog - A Sound Beating (1999) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185612.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Hollow Haze - Between Wild Landscapes And Deep Blue Seas (2019) Japanese Edition
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185609.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Vigilance - Secrecy (1997) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185608.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Insignium - In die Abgründe (2005) [FLAC|Lossless|image + .cue] <Black Metal, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185604.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Nir Nakav - The Nir-Death Experiment (2020) [MP3|320 Kbps] <Progressive Metal, D
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185600.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Vigilance - Edge Of Time (1999) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185588.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Orbiter - A Goddamn Classic (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, St
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185581.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Strigoi - Abandon All Faith (2019) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185578.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Freternia - The Gathering (2019) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185576.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Desert Wave - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185573.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Vigilance - Behind The Mask (1996) [FLAC|Lossless|image + .cue] <Progressive Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_185566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185566.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ The Silence - Angelus Custos (2022) [MP3|320 Kbps] <Post Metal, Post Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185562.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ The Silence - Angelus Custos (2022) [MP3|320 Kbps] <Post Metal, Post Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5117E373D10F8134F109AB7593AFF3E459E3744C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591984   (185558) от 20.11.2022
-
-Экспонаты КунсткамерЫ - 2 Albums (2022) [MP3|320 Kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Болото [00:03:10]
-02. Опасная жизнь [00:02:56]
-03. Всё против нас [00:02:50]
-04. Адововлечение [00:02:38](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 2 CD, 01:07:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46333797DF57FE63847AD2CC1B0855BA5EFCC29E
 ```
 
 https://mybot314.ru/tekegram_catalog/

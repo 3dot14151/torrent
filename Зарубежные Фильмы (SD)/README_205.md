@@ -1,55 +1,3 @@
-###  Публикация: 1388880   (785131) от 08.06.2020
-
-В твоих руках / Forbrydelser / In Your Hands (2004) DVDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анна недавно закончила богословский факультет. Она замужем за Франком . Уже несколько лет они безуспешно пытались завести ребенка. Но после того, как Анна принимает предложение временно поработать тюремным капелланом, под попечением которого находится женское отделение, ее жизнь меняется навсегда. В качестве духовного наставника она знакомится с Катэ, которую недавно (   Читать дальше...   )Производство: Дания / Zentropa EntertainmentsЖанр: ДрамаРежиссер: Аннетт К. ОлесенАктеры: Анн Элеонора Ёргенсен, Трине Дюрхольм, Николай Коперникус, Соня Рихтер, Ларс Ранте, Хенрик Прип, Йенс Альбинус, Керстен Олесен, Метте Мунк Плум, Бенедикте ХансенПеревод: Многоголосый профессиональныйСубтитры: Русские (VOBSUB), АнглийскиеПродолжительность: 01:36:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:490EB66C731425B058FFE483A972D78BBECD1E55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204350   (784883) от 05.02.2018
-
-Клуб радости и удачи / The Joy Luck Club (1993) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784883.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает о китайцах, их жизни и проблемах в стране, ставшей их новой Родиной. Восемь китаянок, давно эмигрировавших в Штаты, вспоминают свое детство, жизнь в Китае до эмиграции.Производство: США, Китай / Hollywood PicturesЖанр: ДрамаРежиссер: Уэйн ВанАктеры: Кью Чинх, Тсаи Чин, Франс Нуйен, Лиза Лу, Минг-На, Тэмлин Томита, Лорен Том, Розалинд Чао, Чао Ли Чи, Мелани ЧангПеревод: Двухголосый (Elrom)Субтитры: АнглийскиеПродолжительность: 02:19:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A34C79D35BE8C5FBD405000B2573F1ED9F24F9A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203999   (784848) от 05.02.2018
 
 Честная игра / Fair Game (1995) WEB-DLRip [H.264]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784848.jpg" />
 </div>
 
 
@@ -85,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784847.jpg" />
 </div>
 
 
@@ -111,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784824.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784802.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784765.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784764.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784713.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784612.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784576.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784572.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784564.jpg" />
 </div>
 
 
@@ -346,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784563.jpg" />
 </div>
 
 
@@ -372,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784545.jpg" />
 </div>
 
 
@@ -398,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784537.jpg" />
 </div>
 
 
@@ -424,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784530.jpg" />
 </div>
 
 
@@ -450,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784451.jpg" />
 </div>
 
 
@@ -476,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784436.jpg" />
 </div>
 
 
@@ -502,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784327.jpg" />
 </div>
 
 
@@ -528,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784294.jpg" />
 </div>
 
 
@@ -554,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784239.jpg" />
 </div>
 
 
@@ -580,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784118.jpg" />
 </div>
 
 
@@ -606,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784023.jpg" />
 </div>
 
 
@@ -632,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783972.jpg" />
 </div>
 
 
@@ -658,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783971.jpg" />
 </div>
 
 
@@ -669,6 +617,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBD64C97B40617FFBBA1E953BB4552F67E63D0C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205035   (783967) от 08.02.2018
+
+Здравствуй, папа, Новый год! 2 / Daddy's Home 2 (2017) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отец и отчим, Дасти и Брэд, объединяются, чтобы организовать для своих детей идеальный рождественский праздник. Но их с горем пополам достигнутый нейтралитет оказывается под угрозой, когда к внукам приезжают олдскульный мачо-папаша Дасти и чувствительный и эмоциональный папочка Брэда. Они как нельзя кстати, чтобы превратить Рождество в кошмарный хаос.Производство: СШАЖанр: комедияРежиссер: Шон АндерсАктеры: Уилл Феррелл, Марк Уолберг, Мэл Гибсон, Джон Литгоу, Линда Карделлини, Алессандра Амброзио, Оуэн Ваккаро, Скарлет Эстевез, Диди Костин, Коннор УайзПеревод: Дублированный (iTunes)Субтитры: русские (полные + форс.)Продолжительность: 01:39:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C91C2C76A2FB441523E9273CA44366C4EAE2B09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204946   (783965) от 08.02.2018
+
+Несчастный случай / Accident Man (2018) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Майк Фэллон известен тем, что превращает все свои убийства в несчастный случай. Но его отношение к делу полностью меняется, когда умирает его бывшая девушка.Производство: Великобритания / Kritzer Levine Wilkins Griffin Entertainment, Six Demon FilmsЖанр: боевик, триллер, криминалРежиссер: Джесси ДжонсонАктеры: Скотт Эдкинс, Рэй Стивенсон, Эшли Грин, Дэвид Пэймер, Майкл Джей Уайт, Рэй Парк, Эми Джонстон, Перри Бенсон, Ник Моран, Росс О'ХеннессиПеревод: Профессиональный (многоголосый, закадровый) (Лицензия Blu-ray EUR)Субтитры: отсутствуютПродолжительность: 01:45:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AB63F2FB458B24CAD8AFE7FF6483ACAF3085201
 ```
 
 https://mybot314.ru/tekegram_catalog/

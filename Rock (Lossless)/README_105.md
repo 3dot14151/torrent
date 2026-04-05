@@ -1,3 +1,119 @@
+###  Публикация: 1256180   (359173) от 20.10.2018
+
+VA - Rock Sound: Bugging Your Ears! No. 132 (2010) [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. High on Fire - Frost Hammer (06:04)
+02. Rob Zombie - Sick Bubblegum (03:40)
+03. The Unwinding Hours - There are Worse Things than Being Alone (04:40)
+04. Delain - April Rain (04:33)(   Читать дальше...   )Жанр: RockПродолжительность: 01:07:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3960311FEC46BF3EB678C4706323104974F15B43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256176   (359170) от 20.10.2018
+
+VA - Rock Sound: Bugging Your Ears! No. 134 (2010) [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cancer Bats - Sabotage (02:56)
+02. Sick of it All - Death or Jail (02:50)
+03. Black Breath - Children of the Horn (03:12)
+04. Cloudkicker - % (04:11)(   Читать дальше...   )Жанр: RockПродолжительность: 00:59:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAA9DC0DB8E08C0D5A56080F18B3E788A79490E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256149   (359157) от 20.10.2018
+
+VA - Rock Sound: 100% Volume No. 149 (2011) [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Veil Brides - Fallen Angels (03:43)
+02. Fucked Up - A Little Death (04:34)
+03. Frank Turner - I am Disappeared (04:39)
+04. Touché Amoré - ~ (01:28)(   Читать дальше...   )Жанр: RockПродолжительность: 00:59:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C0BCF8B8822CDE28945906A4D815B372F7E9338
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256182   (359140) от 20.10.2018
+
+VA - Rock Sound: Bugging Your Ears! No.131 (2010) [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Me at Six - The Consequence (04:29)
+02. We Are the Ocean - (I’ll Grab You by the) Neck of the Woods (03:46)
+03. Day of the Sirens - Juneifer (03:53)
+04. Dommin - Dark Holiday (03:15)(   Читать дальше...   )Жанр: RockПродолжительность: 01:00:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B15E27AA9A4DA5529E684D21BD5B4199551402FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328895   (359072) от 02.10.2019
 
 Eloy - The Vision, The Sword And The Pyre, Part II (2019) [FLAC|Lossless|tracks + .cue] <Psychedelic Rock, Space Rock>
@@ -6,7 +122,7 @@ Eloy - The Vision, The Sword And The Pyre, Part II (2019) [FLAC|Lossless|tracks 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359072.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Think - We'll Give You a Buzz (1976) Remastered /2008, SouthSide/ [FLAC|image+.c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358967.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Electric Light Orchestra - On the Third Day (1973) Special Edition /2006, Epic/ 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358463.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Mysteria Noctis - Vulnera (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358414.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Ron Keel Band - South X South Dakota (2020) [FLAC|Lossless|tracks + .cue] <South
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358266.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Mojo Presents • David Gilmour & Friends (2015) [FLAC|tracks + .cue]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358084.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Simon & Garfunkel - Old Friends: Live On Stage (2004) 2xCD [FLAC|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_358065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358065.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Frank Zappa - Road Tapes (1968, 1973) 4CD /2012, 2013 Vaulternative Records/ [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357838.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Michael Learns To Rock - Scandinavia (2012) [FLAC (tracks+cue)|Lossless]<Soft Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_357667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_357667.jpg" />
 </div>
 
 
@@ -273,7 +389,7 @@ Sir Lord Baltimore - 3 альбома (1970 - 2006) дискография [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_357661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_357661.jpg" />
 </div>
 
 
@@ -304,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357175.jpg" />
 </div>
 
 
@@ -333,7 +449,7 @@ Colour Haze - We Are (2019) remastered version, 2021, Electrohasch [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357174.jpg" />
 </div>
 
 
@@ -362,7 +478,7 @@ David Paich - Forgotten Toys (2022) [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357166.jpg" />
 </div>
 
 
@@ -391,7 +507,7 @@ Simple Minds - Acoustic (2016) [FLAC|Lossless|image + .cue] <Post-Punk, Alternat
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357120.jpg" />
 </div>
 
 
@@ -420,7 +536,7 @@ VA - Rock Sound: Sound Check No. 129 (2009) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357045.jpg" />
 </div>
 
 
@@ -449,7 +565,7 @@ Creedence Clearwater Revival - At The Royal Albert Hall (London, UK, April 14, 1
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357038.jpg" />
 </div>
 
 
@@ -478,7 +594,7 @@ Kula Shaker - 4 Releases (2016-2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_357031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357031.jpg" />
 </div>
 
 
@@ -507,7 +623,7 @@ VA - Rock Sound: Ones to Watch 2010 Rock Sound 130 (2009) [FLAC|Lossless|tracks 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356918.jpg" />
 </div>
 
 
@@ -536,7 +652,7 @@ Darren Hayes Feat. Savage Garden - Music Box (2002) [APE|image+.cue]<Soft Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_356051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356051.jpg" />
 </div>
 
 
@@ -565,7 +681,7 @@ The BossHoss - Dos Bros (2015) [FLAC|Lossless|WEB-DL]<Alternative, Country Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355719.jpg" />
 </div>
 
 
@@ -594,7 +710,7 @@ The Brian Setzer Orchestra - Rockin' Rudolph (2015) [FLAC|Lossless|WEB-DL]<Rocka
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355697.jpg" />
 </div>
 
 
@@ -623,7 +739,7 @@ The Honeydrippers (Robert Plant, Jimmy Page, Jeff Beck) - Volume One (CD EP) (19
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_355142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_355142.jpg" />
 </div>
 
 
@@ -638,127 +754,6 @@ The Honeydrippers (Robert Plant, Jimmy Page, Jeff Beck) - Volume One (CD EP) (19
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 723547   (354853) от 18.11.2013
-
-Joe Cocker - Hit Collection (2000) [FLAC|Lossless|image + .cue]<Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_354853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  My Father's Son   (4:29)
-02.  Night Calls   (3:29)
-03.  That's All I Need To Know   (4:08)
-04.  When The Night Comes   (4:00)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:18:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E11B94D2A7B5D3BB6FE009936B9048D09F4519C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 578115   (354757) от 20.11.2012
-
-David Byron (ex.Uriah Heep) - 7 альбомов (1975 - 1984) дискография [FLAC|Lossless]<Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_354757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock'N'Roll (3:28)
-02. Lookin' For You (4:07)
-03. Lock And Key (4:58)
-04. Seasong (7:35)
-05. By The Horn (3:13)
-06. Scared (5:34)
-07. Hobo (5:45)
-08. The Link (2:19)
-09. End Of The Line (5:46)Жанр: Hard Rock, Classic RockПродолжительность: 00:42:45
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417823   (353415) от 22.10.2020
-
-Eagles - Live From The Forum MMXVIII (2020) 2xCD [FLAC|Lossless|WEB-DL|tracks] <Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353415.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Seven Bridges Road (Live at The Forum, Inglewood, CA, 9/12, 14, 15/2018) (03:33)
-02. Joe Walsh: "How ya doin'?" (Live at The Forum, Inglewood, CA, 9/12, 14, 15/2018) (00:33)
-03. Take It Easy (Live at The Forum, Inglewood, CA, 9/12, 14, 15/2018) (04:14)(   Читать дальше...   )Жанр: Soft RockПродолжительность: 02:17:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37A4300FCDA83C3C1D35758A3D56EDE452CADCAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577609   (352459) от 20.09.2022
-
-A Mountain Of One - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Crossover, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_352459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Custards Last Stand [00:06:44]
-02. Black Apple Pink Apple [00:07:20]
-03. Make My Love Grow [00:04:20]
-04. Surrender [00:07:33](   Читать дальше...   )Жанр: Progressive, Crossover, RockПродолжительность: 2 CD, 01:32:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7805E52E5C5C5F04E95F340C0380138E5F1439E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1143248   (427000) от 25.09.2020
+
+Blood: One Unit Whole Blood (1998) [En] (1.21hf/dlc) License GOG
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427000.jpg" />
+</div>
+
+
+###  Подробнее
+
+На службе у темного бога вы разорвали свою душу на кусочки, но вашей единственной наградой стали ложные обещания и предательство. Теперь вы хотите свести счеты, и они будут оплачены кровью! Испытайте безумие в атмосфере кровавой резни! Все на войну с нечистью! Зомби, горгульи, адские гончие и прочие кровавые ужасы уже ждут вас! Уничтожьте гадкое зло могучего Чернобога! (   Читать дальше...   )Тип издания: LicenseРазработчик: Monolith ProductionsЖанр: Шутер, От первого лица, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1219CEABB77FCB5B349E26431BBFACBA944E3B13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148842   (426993) от 25.09.2020
+
+Serious Sam Anthology (2001-2013) [Ru/Multi] (1.05/1.07/2.080.00/206580/263699/1.0/13.11.2015/261096/dlc) Repack R.G. Механики
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Serious Sam Double D - это аркадный платформер про приключения понятно какого героя компьютерных игр. Это 2D-игра, где по-прежнему есть возможность нацеплять оружие друг на друга. Тем не менее, есть несколько больших различий. Во-первых, игра поддерживает кооператив для двух игроков. Второй игрок может уйти в любой момент, нажав на соответствующую кнопку. Во-вторых, (   Читать дальше...   )Тип издания: RepackРазработчик: Mommy's Best GamesЖанр: Arcade (Platform, Shoot'em up)Язык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ABA11668E56901C79F31549F410ABF3EEB215C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452325   (425102) от 25.08.2022
 
 ELDERBORN (2020) [Ru/Multi] (1.09/dlc) License GOG [Metal AF Edition]
@@ -6,7 +58,7 @@ ELDERBORN (2020) [Ru/Multi] (1.09/dlc) License GOG [Metal AF Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_425102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425102.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Deliver Us The Moon: Fortuna (2018) [En] (1.0.0) License HOODLUM
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_423891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423891.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Wolfenstein [Ru] (Repack/1.1) 2009 | R.G.Spieler
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_423554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_423554.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Painkiller: Overdose / Painkiller: Передозировка (2007) [Ru] (84.4)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422942.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ BPM: Bullets Per Minute (2020) [En] (1.0) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_422424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422424.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ HYPERGUN (2018) [Ru/Multi] (1.1.0.6) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_419284.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419284.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Don't Knock Twice (2017) [Ru/Multi] (1.0) Repack Covfefe
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418915.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ ECHO (2017) [En/Fr/Ge] (1.0) Unofficial CoolGames
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_418900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418900.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Medal of Honor (2010) [Ru/En] (1.0.75.0) Rip =nemos= [Limited Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_417414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417414.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Battlefield 3 (2011) [Ru] (1.6.0) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416296.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Medal of Honor Anthology (2002-2012) [Ru/En] Rip/Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_416240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416240.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ Die Young (2019) [En] (1.0.0.20) License SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_413892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413892.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ Call of Juarez: Bound in Blood (2009) [Multi] (1.1.0.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411767.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ Call of Juarez: Gunslinger (2013) [Ru/Multi] (1.0.5) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411596.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ Serious Sam 4 (2020) [Ru/Multi] (1.03/dlc) License HOODLUM [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_411185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411185.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ Bulletstorm (2017) [Ru/Multi] (1.1.41044.0/dlc) Repack R.G. Catalyst [Full Clip 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407576.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ Immortal Redneck (2017) [Ru/Multi] (1.3.3) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_407215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407215.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ Borderlands 3 (2019) [Ru/Multi] (5382210/dlc) License EMPRESS [Super Deluxe Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406982.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ Star Wars: Battlefront (2004) [En] (1.3.7.4) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_406969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406969.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ Chivalry: Medieval Warfare [Ru] (Repack) 2012 | R.G Repacker's
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_405124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405124.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ E.Y.E. Divine Cybermancy [Ru] (Repack/1.37) 2011 | Fenixx
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_403305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403305.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ RAID: World War II (2017) [Ru/Multi] (1.0/dlc) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402956.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ Home Sweet Home (2017) [Ru/Multi] (1.0) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402952.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ Half-Life 2: Episode Two / Offshore [Ru] (Mod/P) 2004/2008
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_402821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_402821.jpg" />
 </div>
 
 
@@ -620,58 +672,6 @@ Half-Life 2: Episode Two / Offshore [Ru] (Mod/P) 2004/2008
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169658   (402093) от 28.09.2017
-
-Home Sweet Home (2017) [Ru/Multi] (1.0) License HI2U
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь Тима кардинально изменилась с тех пор, как его жена таинственно исчезла. В одну ночь, после долгого страдания, он просыпается в незнакомом месте, не в своем доме. Но выбраться из этого места мешает призрак неизвестной женщины.Тип издания: LicenseРазработчик: YGGDRAZIL GROUЖанр: Action, Horror, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF38E7815A22CE1388C4C3193C17AC6555518FA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169605   (402078) от 28.09.2017
-
-RAID: World War II / RAID: World War 2 (2017) [Ru/En] (1.0) Repack =nemos=
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_402078.jpg" />
-</div>
-
-
-###  Подробнее
-
-RAID: World War 2 - это захватывающий кооперативный шутер для четырех игроков, отправляющий вас в Европу времен Второй мировой войны. Только вы с друзьями сможете остановить безжалостный натиск нацистского зверя. Четверо военнопленных - Стерлинг, Ривит, Курган и Вольфганг - получили свободу благодаря «миссис Уайт», тайному агенту британской разведки: ей нужны бойцы, (   Читать дальше...   )Тип издания: RepackРазработчик: Lion Game LionЖанр: Action, Shooter, StealthЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46A2A0693599144D2CE29FEDA07E85BEAB0E2E7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

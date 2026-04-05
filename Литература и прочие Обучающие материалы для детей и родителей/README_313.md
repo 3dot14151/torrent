@@ -1,3 +1,56 @@
+###  Публикация: 1180910   (337019) от 05.11.2017
+
+Е.А. Андреева | Русский язык. Суперрепетитор для подготовки  к ЕГЭ (2017) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пособие содержит основные правила русского языка, изучаемые в средней и старшей школе. Материал изложен в доступной форме и соответствует требованиям ФГОС.
+Более 150 упражнений по всем разделам орфографии, синтаксиса и пунктуации и задания для комплексного анализа текста дадут возможность повторить пройденный материал и подготовиться к любым экзаменам, в том числе (   Читать дальше...   )Жанр: ЕГЭ, русский языкФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D1C5EFF160322B6C82E5835F5DAE92E633AA4DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180774   (337018) от 05.11.2017
+
+И.В. Ященко, С.А. Шестаков | Я сдам ЕГЭ! Математика. Модульный курс. Методика подготовки. Ключи и ответы (2017) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337018.jpg" />
+</div>
+
+
+###  Подробнее
+
+Модульный курс «Я сдам ЕГЭ!» создан авторским коллективом из числа членов Федеральной комиссии по разработке контрольных измерительных материалов и экспертов ЕГЭ. Учебное пособие «Типовые задания» предназначено для подготовки обучающихся 10—11 классов к государственной итоговой аттестации. Оно посвящено практической отработке навыков решения задач, выполнения типовых (   Читать дальше...   )Жанр: МатематикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F772A41D8F75AD534A2A692C62FA6D152D04189
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 954838   (336662) от 09.11.2015
 
 Коллектив авторов | Раскраски "Золотая осень"  (2000-2015) [JPG]
@@ -6,7 +59,7 @@
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336662.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336321.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336320.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335930.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335929.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335841.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335810.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335683.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335655.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335655.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335648.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335643.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335555.jpg" />
 </div>
 
 
@@ -326,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335440.jpg" />
 </div>
 
 
@@ -354,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335431.jpg" />
 </div>
 
 
@@ -380,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335177.jpg" />
 </div>
 
 
@@ -406,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334930.jpg" />
 </div>
 
 
@@ -434,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334736.jpg" />
 </div>
 
 
@@ -460,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334708.jpg" />
 </div>
 
 
@@ -487,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334694.jpg" />
 </div>
 
 
@@ -514,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334691.jpg" />
 </div>
 
 
@@ -541,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_334685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334685.jpg" />
 </div>
 
 
@@ -568,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333998.jpg" />
 </div>
 
 
@@ -597,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333991.jpg" />
 </div>
 
 
@@ -623,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333914.jpg" />
 </div>
 
 
@@ -636,61 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C9FBC6607F72A6658D3B001A84DA0809B2A19F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955512   (333907) от 11.11.2015
-
-Николай Ютанов | Оборотень (1990) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333907.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оборотень
-Приключения маленькой фехтовальщицы Лены в сказочном Королевстве Тридцати Близнецов и его окрестностях.
-
-Фея красного карлика(   Читать дальше...   )Жанр: Детская фантастика, ФэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F858969DDEE200B299E2F1D011DE22CD81E1EB2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955492   (333889) от 11.11.2015
-
-Дмитрий Нагишкин | Таёжные сказки (2015) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_333889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Много чудес таит в себе амурская тайга. Летает над ней железная птица Кори, прячется в её чаще Скрипучая старушка, а за живущими среди лесов людьми приглядывает хранитель домашнего очага Дюлен. В трудную минуту на помощь смельчакам приходят мапа-медведь, амба-тигр или царица-рыба калуга, а в ближайшую избушку запросто, по-соседски, может заглянуть хитрая лисица. (   Читать дальше...   )Жанр: Сказки, Народные сказкиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65B40D0FF8B81BEA07B6497A0E3A232ECD1DFB9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

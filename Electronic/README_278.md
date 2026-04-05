@@ -1,3 +1,119 @@
+###  Публикация: 1156067   (529688) от 05.08.2017
+
+Moon Boots - First Landing (2017) [MP3|320 Kbps] <Deep House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Fortune Teller (feat. King Kona)  4:27
+02.  Keep The Faith (feat. Nic Hanson)  4:18
+03.  First Landing  4:57
+04.  Never Get To You (feat. Antony & Cleopatra)  4:51(   Читать дальше...   )Жанр: Deep House, ProgressiveПродолжительность: 00:47:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C3E45290EBF12A460B9FDCB2B368E35411C5B31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155717   (529673) от 05.08.2017
+
+VA - Goa Culture Vol.25 (2017) [MP3|320 Kbps] <Psy-Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Kiraz - The Upside Down  6:54
+02.  Ritmo - All At Once (Rocky Tilbor Remix)  8:16
+03.  Cosmic Tone & Cosmic Flow - Boombay  8:08
+04.  Kristallklar - Extrasensory  7:27(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 02:15:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08F1F91378E84637C8927787B22218B750985B9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155823   (529550) от 05.08.2017
+
+Liquid Bloom - ReGen (AtYyA Remixes) (2017) [FLAC|Lossless|WEB-DL|tracks] <PsyChill, Downtempo, Psydub>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529550.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Fire Gathering (AtYyA Remix) 07:15
+2. Numatik - Ensename (Liquid Bloom + AtYyA Remix) 06:48
+3. Resonant Migration feat. Deya Dova (AtYyA Remix) 05:35
+4. Jaguar Dreaming (AtYyA Remix) 07:39(   Читать дальше...   )Жанр: PsyChill, Downtempo, PsydubПродолжительность: 00:047:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1590033ABEBCF0C398D9BFAF6CEDBC938ECE071C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312849   (529016) от 06.07.2019
+
+VA - Lucid Sounds, Vol. 32 (A Fine and Deep Sonic Flow of Club House, Electro, Minimal and Techno) (2019) [MP3|320 Kbps] <Techno, Minimal, Deep House>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mrs. Robot - Lucid Sounds, Vol. Thirty Two Deep Flow (Original Mix)
+02. dreamAwaken - Trilithon (Original Mix)
+03. D. Diggler & Nadja Lind - Kahuna (Helmut Ebritsch Remix)
+04. Dennis Allen - A61v3 (Original Mix)(   Читать дальше...   )Жанр: Techno, Minimal, ElectroПродолжительность: 04:54:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02623060E96D543D6ACE8C9F07D40E0E3FDF8CAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1558434   (528856) от 22.06.2022
 
 Justus - Live at W Amsterdam, Netherlands (Exclusive Mix) (2022-05-30) [MP3|320 Kbps] <Big Room>
@@ -6,7 +122,7 @@ Justus - Live at W Amsterdam, Netherlands (Exclusive Mix) (2022-05-30) [MP3|320 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528856.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528856.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ David Guetta & MORTEN - Live @ kineticFIELD, EDC Las Vegas, United States (2022-
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528797.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Swedish House Mafia & The Weeknd - Live @ Coachella Stage, Coachella Festival We
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528789.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Ancestral Voices - Discography 7 Releases (2015-2018) Horo, Samurai Horo [FLAC|L
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528751.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Fresh Moods Pres. Lazy Days, Vol. 2 (2015) [MP3|320 кб/с]<Lounge, Chill 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528702.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - A State Of Trance: Ibiza 2018 (Mixed By Armin Van Buuren) (2018) [MP3|320 K
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528616.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Club St Tropez 2015 (Mixed By Dj Jack-E & Djette Benji De La House) (2015) 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528579.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Delicious Deep House Collection Vol.3 (2017) [MP3|320 Kbps] <Deep House, Ch
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528558.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Alter Nature - Chillout Collection Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chill
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528556.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Lost Years - Amplifier (2013) [MP3|320 кб/с]<Electronic, Electro, Disco, Synt
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528502.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - Despacito (Summer Breeze Beach Chillout Beats Music) (2017) [MP3|320 Kbps] 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528497.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - Morning Delights (Beautiful Lounge Experience) Vol. 1 (2019) [MP3|320 Kbps]
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528224.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Supersimmetria - Discography 6 Releases (2012-2019) Hands Productions [FLAC|Loss
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_528108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528108.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ VA - Summer In Space Vol. 5 (2022) [MP3|320 Kbps] <Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527801.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ VA - Summer Selection (2017) [MP3|320 Kbps] <Progressive Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527782.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ VA - Trance Music Lounge (2017) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527777.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ VA - Big House Nights (25 Groovy House Tunes) Vol 1 (2017) [MP3|320 Kbps] <Funky
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527734.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ VA - Ibiza Beach Vibes Vol 1 (Finest Balearic Deep House) (2017) [MP3|320 Kbps] 
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527730.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ VA - Ibiza Lounge Cafe (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527728.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ VA - Armada Deep Top 10 August 2017 [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527719.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Rey & Kjavik - Rkadash (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Downtem
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527666.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Alcyone Project - The Worldseeker (2017)Single [MP3|320 Kbps] <Trance,Uplifting 
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527652.jpg" />
 </div>
 
 
@@ -628,122 +744,6 @@ Alcyone Project - The Worldseeker (2017)Single [MP3|320 Kbps] <Trance,Uplifting 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFEC7268A8141D6D673B3178C8632764B5A8FB91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156209   (527597) от 07.08.2017
-
-VA - Toolroom Ibiza 2017 Vol 2 [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dusky - Cold Heart (Original Mix) 06:34
-02. Route 94 - House &Amp; Pressure (Original Mix) 05:09
-03. Secondcity - Kwelanga (Original Mix) 06:30
-04. Bicep - Aura (Original Mix) 05:16(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 11:05:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:931AC5F0864E689E57CA741258E6EFCFBC5EC908
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052864   (527339) от 15.09.2016
-
-VA - Good Morning Chillhouse Beats (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Josefina Keller - Like Lovers Do (Vox Version) [05:12]
-02. Chillo - Angel's Call [04:38]
-03. Yurajet - For Eight Crosses [04:22]
-04. Roy Bennett - Sex and Freedom [04:28](   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 03:40:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:967016C354B71250FA27D572B2F62DADD306162F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052789   (527262) от 15.09.2016
-
-Lars Leonhard - Erstwhile (2016) [FLAC|Lossless|WEB-DL-24Bit|tracks] <Ambient, Dub Techno>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Delicious (05:43)
-02. Soothing (05:50)
-03. Charming (05:56)
-04. Therefore (06:09)(   Читать дальше...   )Жанр: Ambient, Dub TechnoПродолжительность: 01:04:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BABB158A2E82368630A05D15FE23897B25473C07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559337   (527182) от 24.06.2022
-
-Hardwell - Tomorrowland Friendship Mix (2022-06-23) [MP3|320 Kbps] <Techno, Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_527182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hardwell - INTO THE UNKNOWN
-02. Hardwell - BLACK MAGIC
-03. J Balvin & Skrillex - In Da Getto (Hardwell Bootleg)
-04. Oxia - Domino (Hardwell Bootleg)(   Читать дальше...   )Жанр: Techno, Big RoomПродолжительность: 00:59:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71FF70D1E7473FBD19A0A0838790B4669BCD9DFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

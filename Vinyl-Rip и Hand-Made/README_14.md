@@ -1,3 +1,32 @@
+###  Публикация: 1387269   (791768) от 01.06.2020
+
+Diana Krall - All For You (A Dedication to the Nat King Cole Trio) (1996) 2016 [DSD 128|tracks|Vinyl-Rip] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm an Errand Girl for Rhythm (2:55)
+ 02. Gee Baby, Ain't I Good to You (4:07)
+ 03. You Call It Madness (4:36)
+ 04. Frim Fram Sauce (5:01)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F168EFECC63290A2C66FD7EE949660AA2BB0E0B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275130   (791112) от 10.01.2019
 
 Squeeze - East Side Story (1981) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Alternative Rock, New Wave, Pop Rock>
@@ -6,7 +35,7 @@ Squeeze - East Side Story (1981) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Alternative
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791112.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791092.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Bryan Ferry - As Time Goes By (1999) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Jazz, P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_791047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791047.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_790889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790889.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ George Gershwin – with Todd Duncan and Anne Brown - Porgy And Bess (1939) 4×S
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789501.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_789500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789500.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788574.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ A-Ha - Headlines And Deadlines: The Hits Of A-Ha Vol.2 (1992) Unofficial Release
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788507.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788096.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_788095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788095.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Judas Priest - Painkiller (1990) Reissue, 2017, Columbia [FLAC 2.0|192/24|image 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787557.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787557.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ KOTO - The Original Masterpiece (2014) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <It
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785741.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Elton John - Made In England (1995) Mercury-526185-4 [FLAC|Lossless|tracks] <Cla
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785265.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785232.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Pink Floyd - Atom Heart Mother (1978) EMS-80320 [FLAC|Lossless|tracks] <Rock Sty
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785217.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Beth Hart & Joe Bonamassa - Black Coffee (2018) [FLAC 2.0 24/192|image|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783986.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783180.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Teruo Yoda and Moody Kings - The Season Of Love (1968) [FLAC 2.0|192/24|image +.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_783152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783152.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Robert Plant - Digging Deep (2020) [DSD 128|tracks|Vinyl-Rip] <Pop/Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781360.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Demis Roussos - 5 Albums (1971-1978) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780371.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Queen - The Game (1980) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780193.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Lindsey Stirling - Brave Enough (2016) [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Mo
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_780176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780176.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Within Temptation - Hydra (2014) [FLAC 2.0|192/24|image + cue|Vinyl-Rip] <Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779760.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Lindsey Stirling - Shatter Me (2014) [FLAC 2.0|192/24|image + cue|Vinyl-Rip] <Du
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779755.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Imagine Dragons - Night Visions (2012) [FLAC 2.0|192/24|image + cue|Vinyl-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_779729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779729.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Imagine Dragons - Night Visions (2012) [FLAC 2.0|192/24|image + cue|Vinyl-Rip] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A5388CE1B361B85EDF1692D9AC925DA26CFDB4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210826   (778426) от 04.03.2018
-
-Pink Floyd - The Dark Side Of The Moon (1973) Repress, 1974, Harvest [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Psychedelic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778426.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Speak To Me (1:08)
-02. Breathe (In The Air) (2:49)
-03. On The Run (3:44)
-04. Time (6:56)(   Читать дальше...   )Производство: EMI Records / Harvest - EMS-80324Жанр: Psychedelic RockПродолжительность: 00:42:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3165A902D9E0EAA39B5C3CCCA330F85F1C9CD7DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

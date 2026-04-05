@@ -1,3 +1,58 @@
+###  Публикация: 1444040   (1034856) от 31.01.2021
+
+А.В. Диков | Web-программирование на jаvascript (2021) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034856.jpg" />
+</div>
+
+
+###  Подробнее
+
+разработки сценариев для веб-браузера. В книге делается акцент на актуальную версию стандарта ES2015 (ES6) и не рассматриваются устаревшие возможности. Технология DOM выделена в отдельную часть книги, так как является самостоятельной, но может быть реализована посредством jаvascript. Потенциал DOM, выражающийся в возможности любого динамического изменения контента (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFBB4E5BDC2F41351ADBCBCF7FB195E43EBB9B2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444018   (1034768) от 31.01.2021
+
+В. Босс | Лекции по математике [16 томов] (2004  -2011) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034768.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для нормального изучения любого математического предмета необходимы, по крайней мере, 4 ингредиента:
+1) живой учитель;
+2) обыкновенный подробный учебник;
+3) рядовой задачник;(   Читать дальше...   )Жанр: МатематикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A02FC403C1CAB2A65D4C6319DB847DDC15898FE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1618140   (1034396) от 10.03.2023
 
 В.Т. Воднев (ред.) | Сборник задач и упражнений по дифференциальной геометрии (1970) [PDF]
@@ -6,7 +61,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034396.jpg" />
 </div>
 
 
@@ -33,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034304.jpg" />
 </div>
 
 
@@ -59,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034158.jpg" />
 </div>
 
 
@@ -85,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034152.jpg" />
 </div>
 
 
@@ -111,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034079.jpg" />
 </div>
 
 
@@ -137,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033627.jpg" />
 </div>
 
 
@@ -163,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033624.jpg" />
 </div>
 
 
@@ -189,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033487.jpg" />
 </div>
 
 
@@ -216,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033016.jpg" />
 </div>
 
 
@@ -243,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033013.jpg" />
 </div>
 
 
@@ -269,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032944.jpg" />
 </div>
 
 
@@ -295,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032912.jpg" />
 </div>
 
 
@@ -321,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032697.jpg" />
 </div>
 
 
@@ -347,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032687.jpg" />
 </div>
 
 
@@ -374,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032215.jpg" />
 </div>
 
 
@@ -400,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032060.jpg" />
 </div>
 
 
@@ -427,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031586.jpg" />
 </div>
 
 
@@ -453,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031562.jpg" />
 </div>
 
 
@@ -479,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031542.jpg" />
 </div>
 
 
@@ -505,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031109.jpg" />
 </div>
 
 
@@ -531,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031099.jpg" />
 </div>
 
 
@@ -557,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031087.jpg" />
 </div>
 
 
@@ -583,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030915.jpg" />
 </div>
 
 
@@ -610,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030913.jpg" />
 </div>
 
 
@@ -621,59 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC242F4EFA824393601DEC6D8BB6D46E269AEB2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449215   (1030202) от 20.02.2021
-
-А.И. Жур | Электрооборудование предприятий и гражданских зданий (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие содержит сведения об электрооборудовании термических установок, металлорежущих станков, установок электрической сварки, общепромышленных установок, электрических талей, прессов и лифтов. Рассмотрены вопросы охраны труда, электрооборудование взрывоопасных и опасных установок, особенности монтажа и проектирования электрооборудования станков.
-Предназначено учащимся (   Читать дальше...   )Жанр: ЭлектроснабжениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:445A32B15CE8200EE9AC7035FA183F11894FDEBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449085   (1030196) от 20.02.2021
-
-К.К. Ким и др. | Средства электрических измерений и их поверка (2-е изд.) (2021) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемое учебное пособие предназначено по своему содержанию для всех, кто желает познакомиться с принципами действия средств электрических измерений и их поверкой. Авторы имели при этом в виду обучающихся в высших учебных заведениях, но и практических работников электротехники, занятых в лабораториях, на электрических подстанциях, электрическом транспорте и т. (   Читать дальше...   )Жанр: МетрологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E492290C02CE439A24716B7E587C1B9532003B5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

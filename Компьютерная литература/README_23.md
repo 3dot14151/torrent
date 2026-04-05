@@ -1,162 +1,3 @@
-###  Публикация: 971270   (987087) от 02.01.2016
-
-А.А. Овчаров | Linux Mint 17.3 Rosa и её Xfce (2016) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное практическое пособие, написано в стиле для «чайников» и предназначено для начинающих пользователей, которые впервые знакомятся с рабочим окружением Xfce дистрибутива Linux Mint 17.3 Rosa. Имеющиеся в Пособии объяснения, написаны простым и доступным языком. Для быстрого ориентирования в материале книги, используются пиктограммы и скриншоты рабочих окон системы (   Читать дальше...   )Жанр: Практическое пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BF6311134A9B3569023FA88D4EB1A957E078DA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612442   (986391) от 01.02.2013
-
-"CoolReader" | Руководство пользователя Cool Reader 3 [2013] [FB2]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986391.jpg" />
-</div>
-
-
-###  Подробнее
-
-CoolReader — это удобная программа для чтения электронных книг.
-Незаменима для тех, кому приходится читать большой объем текста с экрана. CoolReader создан для того, чтобы сделать чтение текстовых файлов (электронных книг) удобным и комфортным.Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A55F7703920331AB13CCE1BCEEA0B1F548A45D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354912   (985784) от 24.01.2020
-
-Tom Steele, Chris Patten / Том Стил, Крис Паттен | Black Hat Go. Go Programming For Hackers and Pentesters / Black Hat Go. Программирование для хакеров и пентестеров (2019) [PDF] [En]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Black Hat Go исследует более скрытую сторону популярного языка программирования, почитаемого хакерами за его простоту, эффективность и надёжность. Он предоставляет арсенал практической тактики с точки зрения специалистов по безопасности и хакеров, чтобы помочь вам протестировать свои системы, создать и автоматизировать инструменты в соответствии с вашими потребностями, (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4527C7BE31DA48597C98E4E3EF80A08AF898CA5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355178   (984486) от 25.01.2020
-
-Кирупа Чиннатхамби | Javascript полное руководство для начинающих (2020) [[FB2] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная книга рассчитана для тех, кто впервые знакомится с jаvascript. Не для того, чтобы говорить на нем, а для того, чтобы использовать его как язык программирования. Не будем вдаваться в подробности о значении и использовании этого языка в масштабах программирования как специальности. Просто скажем, что это - один из стандартов, который необходимо знать программисту. (   Читать дальше...   )Жанр: ПрограммированиеФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D325AAEF8543D6EBC105ED4EA3A74DA349F79E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951053   (984306) от 25.01.2020
-
-Дебу Панда и др. | EJB 3 в действии (2015) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984306.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фреймворк EJB 3 предоставляет стандартный способ оформления прикладной логики в виде управляемых модулей, которые выполняются на стороне сервера, упрощая тем самым создание, сопровождение и расширение приложений Java EE. Версия EJB 3.2 включает большее число расширений и более тесно интегрируется с другими технологиями Java, такими как CDI, делая разработку еще проще. (   Читать дальше...   )Жанр: программирование для профессионаловФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD9ED3C0B53E07B9AF5521A341455EF8B8B90B2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356165   (980355) от 29.01.2020
-
-Артём Слаква | Руководство по Freestyle (версия 1.0 по Blender 2.79) (2018) [PDF, EPUB]
-
->>Компьютерная литература
->>3D графика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980355.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данной книге собрано все, что имеет хоть какое-то отношение к движку рендеринга Freestyle.
-Freestyle — это нефотореалистичный движок рендеринга ребер и линий.
-NPR - Non-Photorealistic Rendering (нефотореалистичный рендеринг) - область компьютерной графики, посвященная созданию методов имитации большого разнообразия выразительных стилей в цифровом искусстве. В отличие (   Читать дальше...   )Жанр: 3D моделирование, Нефотореалистичный рендерингФормат: PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1A0FD79FDD61CD3BB976A4DEF6F74BE27B3D396
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 973421   (979958) от 08.01.2016
 
 Ян Гойвертс, Стивен Левитан | Регулярные выражения. Сборник рецептов .( 2-е издание) (2015) [DJVU]
@@ -165,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979958.jpg" />
 </div>
 
 
@@ -192,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>2D графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979893.jpg" />
 </div>
 
 
@@ -218,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979794.jpg" />
 </div>
 
 
@@ -244,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979450.jpg" />
 </div>
 
 
@@ -272,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978531.jpg" />
 </div>
 
 
@@ -298,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978529.jpg" />
 </div>
 
 
@@ -324,7 +165,7 @@ Microsoft Corporation | Компьютерные сети. Сертификац�
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977884.jpg" />
 </div>
 
 
@@ -350,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977469.jpg" />
 </div>
 
 
@@ -378,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977448.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977448.jpg" />
 </div>
 
 
@@ -404,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977420.jpg" />
 </div>
 
 
@@ -430,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977163.jpg" />
 </div>
 
 
@@ -457,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976809.jpg" />
 </div>
 
 
@@ -483,7 +324,7 @@ Photodex | ProShow Producer 7.0. Руководство пользователя
 >>2D графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976429.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976429.jpg" />
 </div>
 
 
@@ -511,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>2D графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975060.jpg" />
 </div>
 
 
@@ -539,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>2D графика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975052.jpg" />
 </div>
 
 
@@ -565,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974882.jpg" />
 </div>
 
 
@@ -591,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974649.jpg" />
 </div>
 
 
@@ -617,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974300.jpg" />
 </div>
 
 
@@ -643,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974298.jpg" />
 </div>
 
 
@@ -671,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974215.jpg" />
 </div>
 
 
@@ -684,6 +525,167 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F2A338F2528CC0C92224A75345E031266DED6A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357306   (974205) от 03.02.2020
+
+Сэм Вила | Визуальные эффекты в Blender / Blender for Visual Effects (2015) [PDF] [En]
+
+>>Компьютерная литература
+>>2D графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974205.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приводя конкретные примеры из отрасли, эта книга объясняет как использовать Blender для создания визуальных эффектов в производстве видео/фильмов. Она предоставляет читателям практический способ узнать, как использовать инструменты Blender в широком диапазоне случаев, включая установку камер на сцене, освещение и другие производственные процессы.
+Сохраняя акцент (   Читать дальше...   )Жанр: Визуальные эффекты, BlenderФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CE4683618BBDE9A47A493BB9D8A43B8653B38B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974649   (974173) от 13.01.2016
+
+Мурат Йенер, Алекс Фидом | Java EE. Паттерны проектирования для профессионалов (2016) [DJVU]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974173.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга "Java EE. Паттерны проектирования для профессионалов" - незаменимый ресурс для всех, кто желает более эффективно работать с Java EE, а также единственная книга, в которой рассмотрены как теория, так и практика использования паттернов проектирования на примерах реальных прикладных задач.
+Авторы знакомят читателя и с фундаментальными, и с наиболее передовыми (   Читать дальше...   )Жанр: ПрограммированиеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0823830CDC71C29F02BC63D667B4DD495CB0329F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357375   (974118) от 03.02.2020
+
+Тари Фарук и др. | Руководство по диагностике и устранению проблем в Oracle (2017) [DJVU]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974118.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга предоставляет исчерпывающие и актуальные рекомендации по обеспечению надежной и эффективной работы СУБД Oracle в сложных производственных корпоративных средах. Семь ведущих экспертов по Oracle объединили свои усилия, чтобы создать не имеющий аналогов сборник испытанных решений, практических примеров и пошаговых описаний процедур для Oracle версий 12c, 11g и (   Читать дальше...   )Жанр: Компьютерная литератураФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:469B84373450CCE5475DA8768E29E48809529EAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357475   (974103) от 03.02.2020
+
+Оливер Виллар | Обучение Blender: Практическое руководство по созданию 3D анимированных персонажей / Learning Blender [2 издания] (2014-2017) [PDF, EPUB] [En]
+
+>>Компьютерная литература
+>>3D графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974103.jpg" />
+</div>
+
+
+###  Подробнее
+
+Learning Blender проведет вас через каждый шаг создания выдающегося 3D-анимированного персонажа с помощью Blender, а затем с помощью композитинга мы вставим его в реальное видео.
+Эта книга охватывает новые мощные инструменты моделирования, а также высокоэффективные улучшения, связанные с другими частями проекта, такими как рисование текстур, затенение, риггинг, рендеринг (   Читать дальше...   )Жанр: 3D моделирование, АнимацияФормат: PDF, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4B65687E72883E84D7DC477E5645B2DE43A24A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974994   (974093) от 13.01.2016
+
+Андрей Грачев | Создаем свой сайт на WordPress: быстро, легко и бесплатно (2014) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974093.jpg" />
+</div>
+
+
+###  Подробнее
+
+С помощью этой книги вы сможете самостоятельно создать собственный сайт на базе популярной системы WordPress 3. Использование CMS WordPress не потребует от вас знания языков программирования и навыков интернет-разработок, что делает веб-строительство доступным для всех пользователей Сети.
+
+В книге рассмотрены такие вопросы, как регистрация доменного имени и приобретение (   Читать дальше...   )Жанр: web-технологии, создание сайтовФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AD1B27C00135CA578FB7DA4D5C69289DEDF46AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357458   (974007) от 03.02.2020
+
+Алан Торн | Анимация 2D персонажей для игр в Blender / Animating 2D Characters for Games in Blender (2015) [PDF] [En]
+
+>>Компьютерная литература
+>>2D графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974007.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге Алан Торн предлагает полный, пошаговый рабочий процесс для моделирования, настройки и анимации 2D-персонажей, которые хорошо работают для игр в реальном времени, всё с использованием мощного бесплатного программного обеспечения Blender.Жанр: 2D анимация, BlenderФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D5D8C2F5CC95D41F07904AF6BADA2573CD02684
 ```
 
 https://mybot314.ru/tekegram_catalog/

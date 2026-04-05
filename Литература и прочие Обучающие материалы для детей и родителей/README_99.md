@@ -1,3 +1,29 @@
+###  Публикация: 1372102   (886982) от 02.04.2020
+
+Кеннет Грэм | Ветер в ивах [илл. Роберт Ингпен] (2017) [FB2, EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886982.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Ветер в ивах» – детская повесть, которую с равным удовольствием читают дети и взрослые. Написанная и изданная в начале прошлого века в Англии, она разошлась по всему миру, переведена на множество языков. Читателям полюбились её герои – разумный и добрый Крот, гостеприимный, рассудительный Водяной Крыс, тщеславный Жаб, суровый, надёжный в дружбе Барсук и другие обитатели (   Читать дальше...   )Жанр: Классическая детская литератураПеревод: Александр Колотов, Михаил Яснов (стихи)Формат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E95F5D466B7AA2039908BA28B09F45EBF0A93469
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371923   (886962) от 02.04.2020
 
 Эйко Кадоно | Цикл "Ведьмина служба доставки" [5 книг] (2018-2019) [FB2]
@@ -6,7 +32,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886962.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886883.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886867.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886241.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885636.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885634.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885604.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885600.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885552.jpg" />
 </div>
 
 
@@ -250,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885480.jpg" />
 </div>
 
 
@@ -277,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885243.jpg" />
 </div>
 
 
@@ -303,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884769.jpg" />
 </div>
 
 
@@ -329,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884699.jpg" />
 </div>
 
 
@@ -358,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884331.jpg" />
 </div>
 
 
@@ -384,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_884113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884113.jpg" />
 </div>
 
 
@@ -410,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883846.jpg" />
 </div>
 
 
@@ -436,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883764.jpg" />
 </div>
 
 
@@ -464,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883723.jpg" />
 </div>
 
 
@@ -491,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883634.jpg" />
 </div>
 
 
@@ -518,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883632.jpg" />
 </div>
 
 
@@ -544,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883629.jpg" />
 </div>
 
 
@@ -570,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883621.jpg" />
 </div>
 
 
@@ -596,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883544.jpg" />
 </div>
 
 
@@ -622,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883502.jpg" />
 </div>
 
 
@@ -649,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883496.jpg" />
 </div>
 
 
@@ -660,33 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0067F324C1C596C9F60949999AD54F254C5BDFEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372925   (883493) от 04.04.2020
-
-Фил Найт | Продавец обуви. Как я создал Nike. Версия для детей и подростков (2020) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883493.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мировой бестселлер впервые в изложении для детей и подростков!
-Когда-то молодой, неудержимый, только что окончивший школу Фил Найт занял у отца 50 долларов, чтобы открыть собственную компанию с одной простой идеей: импортировать недорогую и качественную обувь из Японии. За первый год продаж с фургона Найт заработал 8 тысяч долларов и основал компанию Nike. Сегодня (   Читать дальше...   )Жанр: Познавательная и развивающая литература для детейПеревод: А.С. ГоряиноваФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEFC3E785759E44EE0517FEA667EFB5EFE2D0EED
 ```
 
 https://mybot314.ru/tekegram_catalog/

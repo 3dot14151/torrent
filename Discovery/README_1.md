@@ -6,7 +6,7 @@ Discovery: Железная дорога Аляски / Railroad Alaska (2015) (
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915047.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913814.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913681.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Discovery: Железная дорога Аляски / Railroad Alaska (2016) H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913559.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912046.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Discovery: Почему? Вопросы мироздания. Как зарож�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911492.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910296.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Discovery: Понимание: Лёд / Understanding: Ice (1998) TVRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909583.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Discovery: Понимание: Тоннели / Understanding: Tunnels (2004) TV
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909580.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Discovery: Понимание: Астероиды / Understanding: Asteroids (20
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909579.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Discovery: Понимание: Дорожное движение / Understanding
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909576.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Discovery: Понимание: Шансы в жизни / Understanding: The Odd
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909522.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Discovery. Техногеника. Ледоколы (2016) HDTVRip [720p-LQ]
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909424.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Discovery: Каннибализм. Последний запрет / Cannibalism
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909414.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Discovery: Понимание: Авиа-диспетчерская служба 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909409.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909380.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Discovery: Тело человека. Грани Возможного (4 Сер�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909307.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909267.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908138.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Discovery: Понимание: Убийства / Understanding: Murder (2004) T
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907767.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Discovery: Понимание: Сила генов / Understanding: The Power of
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907748.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907740.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Discovery: Понимание: Огонь / Understanding: Fire (1998) TVRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907732.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Discovery: Понимание: Искатели острых ощущений / 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907728.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907721.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907719.jpg" />
 </div>
 
 

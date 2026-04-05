@@ -1,3 +1,107 @@
+###  Публикация: 1841864   (1048433) от 13.12.2025
+
+Журнал | InfoCity №12 (218) (декабрь 2025) [PDF]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048433.jpg" />
+</div>
+
+
+###  Подробнее
+
+InfoCity - Азербайджанский ежемесячный журнал о технике и технологиях выпускается с ноября 2007 г. На страницах журнала InfoCity вы найдете информацию о компьютерах, технике и новых технологиях. Штат журналистов тщательно набирается из лиц, уже публиковавшихся на данную тематику, с высшим техническим и экономическим образованием или имевших опыт работы в маркетинговых (   Читать дальше...   )Жанр: Компьютерные журналыИздательство: InfoCityФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25B6DC86666A834CCDB5AF0BA560EBAACF52EE67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842029   (1048355) от 14.12.2025
+
+Журнал | Охота и рыбалка XXI век №12-1 (272-273) (декабрь 2025-январь 2026) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048355.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ежемесячный глянцевый журнал - единственный в России альманах по охотничьей тематике. Верность русским классическим традициям охотничьей прозы, эксклюзивная информация и материалы, творческий подход и отличные иллюстрации. "Охота и рыбалка XXI век" - это не только полезное и познавательное чтение, но и собрание настоящих произведений искусства по охотничьей (   Читать дальше...   )Жанр: ХоббиИздательство: АО "Редакция газеты "Московский Комсомолец"Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9B25D3B29902B3D926897C64C38A16B89741E29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842030   (1048354) от 14.12.2025
+
+Журнал | Lingerie Plus (ноябрь 2025) [PDF] [EN]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048354.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lingerie Plus – настоящий мужской журнал. В нем вас встретят сексуальные девушки в откровенном белье и ничего больше. Наслаждайтесь горячими красотками, листая страницы Lingerie Plus!Жанр: Мужской журналЯзык: АнглийскийИздательство: Universe 137 Studios Productions CorpФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25ED7B3D1677E41805B203D50839569E574D0515
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842031   (1048353) от 14.12.2025
+
+Журнал | Lingerie Plus (октябрь 2025) [PDF] [EN]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lingerie Plus – настоящий мужской журнал. В нем вас встретят сексуальные девушки в откровенном белье и ничего больше. Наслаждайтесь горячими красотками, листая страницы Lingerie Plus!Жанр: Мужской журналЯзык: АнглийскийИздательство: Universe 137 Studios Productions CorpФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67BBA22A4CCA482B360C4922ECCB56A9AB6DAB2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1842033   (1048352) от 14.12.2025
 
 Журнал | Lingerie Plus (сентябрь 2025) [PDF] [EN]
@@ -6,7 +110,7 @@
 >>Мужские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048352.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048169.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048168.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игровые журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048154.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048092.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048091.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048066.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048065.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047942.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047941.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047940.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047773.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047772.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047771.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047648.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047647.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047601.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047599.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047527.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047526.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047525.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047524.jpg" />
 </div>
 
 
@@ -565,110 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BBEC01ECD401C500915F20DA5432D9852F6DB44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840290   (1047101) от 04.12.2025
-
-Журнал | Вокруг света №10 (3010) (декабрь 2025-январь 2026) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047101.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал публикует новые взгляды на известные исторические события, рассказы о знаменитых людях и их судьбах, информацию о новых научных открытиях и технических достижениях. Он был основан в Санкт-Петербурге в 1861 году и с того времени практически без перерывов издаётся на протяжении уже полутора веков. За это время журнал прошел несколько этапов от географического (   Читать дальше...   )Жанр: Научно-популярный журналИздательство: ООО "Шкулёв Медиа Холдинг"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C37B155548E0D0AA7EF93DE61D9032BB0FCACE80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840287   (1047100) от 04.12.2025
-
-Журнал | Вокруг света №9 (3009) (ноябрь 2025) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал публикует новые взгляды на известные исторические события, рассказы о знаменитых людях и их судьбах, информацию о новых научных открытиях и технических достижениях. Он был основан в Санкт-Петербурге в 1861 году и с того времени практически без перерывов издаётся на протяжении уже полутора веков. За это время журнал прошел несколько этапов от географического (   Читать дальше...   )Жанр: Научно-популярный журналИздательство: ООО "Шкулёв Медиа Холдинг"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:963C45E8D771DC2F4399E08D95A82C274B60B400
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840015   (1047051) от 02.12.2025
-
-Журнал | Знание-сила №12 (1182) (декабрь 2025) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1047051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Знание-сила» мыслит себя как «мост между наукой и обществом». Основной своей задачей он видит разговор с думающими людьми всех возрастов и специальностей о новых тенденциях в науке и обществе, о связях между разными областями науки и мысли и главное – выявления человеческого смысла всякого знания.Жанр: Научно-популярный журналИздательство: АНО "Редакция журнала "Знание-сила"Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF0ABD5CB0BC429BA7D83F6CD654F44A388CF288
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839990   (1047050) от 02.12.2025
-
-Журнал | Знание-сила №11 (1181) (ноябрь 2025) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1047050.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Знание-сила» мыслит себя как «мост между наукой и обществом». Основной своей задачей он видит разговор с думающими людьми всех возрастов и специальностей о новых тенденциях в науке и обществе, о связях между разными областями науки и мысли и главное – выявления человеческого смысла всякого знания.Жанр: Научно-популярный журналИздательство: АНО "Редакция журнала "Знание-сила"Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C20006AC4BCC1B854DC95042808284D4AB1912B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

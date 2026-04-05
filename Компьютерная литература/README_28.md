@@ -1,160 +1,3 @@
-###  Публикация: 1490600   (916738) от 21.08.2021
-
-Крис Игл, Кара Нэнс | GHIDRA. Полное руководство (2021) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916738.jpg" />
-</div>
-
-
-###  Подробнее
-
-Платформа Ghidra, ставшая итогом более десяти лет работы в АНБ, была разработана для решения наиболее трудных задач обратного конструирования, стоящих перед агентством. После раскрытия исходного кода этого инструмента, ранее предназначавшегося только для служебного пользования, один из лучших в мире дизассемблеров и интуитивно понятных декомпиляторов оказался в руках (   Читать дальше...   )Жанр: ПрограммированиеПеревод: А. А. СлинкинФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:254067C711BDDE6174937D011E3B4F7FBC13C997
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367260   (916692) от 15.03.2020
-
-Кевин Татро, Питер Макинтайр | Программирование на PHP: создание динамических веб-страниц [4-е издание] (2020) [PDF, EPUB] [En]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916692.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему PHP является наиболее широко используемым языком программирования в Интернете? В этом обновленном выпуске содержится все, что вам нужно знать для создания эффективных веб-приложений с использованием новейших функций PHP 7.4. Вы начнете с общей картины, а затем погрузитесь в синтаксис языка, методы программирования и другие детали, используя примеры, иллюстрирующие (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FD84867F7CB8919C5CE51AB89475117D3189E46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368056   (911880) от 18.03.2020
-
-Энтони Уильямс | C++. Практика многопоточного программирования (2020) [DJVU]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Язык программирования С++ выбирают тогда, когда нужно создать по-настоящему быстрые приложения. А качественная конкурентная обработка сделает их еще быстрее. Новые возможности С++17 позволяют использовать всю мощь многопоточного программирования, чтобы с легкостью решать задачи графической обработки, машинного обучения и др.
-Энтони Уильямс, эксперт конкурентной обработки, (   Читать дальше...   )Жанр: Компьютерная литератураФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A89DC2836AF98E16EC71A4F9B6F231C2F92FCFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491272   (911645) от 24.08.2021
-
-Титус Винтерс, Том Маншрек | Делай как в Google. Разработка программного обеспечения (2021) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911645.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современные программисты должны не только эффективно программировать, но и знать надлежащие инженерные практики, позволяющие сделать кодовую базу стабильной и качественной. В чем же разница между программированием и программной инженерией? Как разработчик может управлять живой кодовой базой, которая развивается и реагирует на меняющиеся требования на всем протяжении (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B444FAD9562C7D96281D014A9908E174CC3449F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990208   (911273) от 25.02.2016
-
-Йен Маклин, Орин Томас | Установка и настройка Windows 7 (2011) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это подробное руководство по настройке операционной системы Windows 7. В нем детально описаны установка и развертывание системы как в ручном, так и в автоматическом режиме, обновление до Windows 7 и перенос данных пользователя, управление устройствами и драйверами. Уделено особое внимание вопросам безопасности – ограничениям на использование приложений, проверке (   Читать дальше...   )Жанр: ОС и Сети, Зарубежная образовательная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:379DC9A8921A1FFD6118BDF65B7AB8D0813875AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990328   (911068) от 25.02.2016
-
-Джозеф Албахари, Бен Албахари | C# 6.0. Карманный справочник [+ файлы к книге] (2016) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда вам нужны ответы на вопросы по программированию на языке C# 6.0, эта практическая и узкоспециализированная книга предложит именно то, что вам необходимо знать - безо всяких длинных введений или раздутых примеров. Легкая в чтении, она идеальна в качестве краткого справочника или даже руководства в том случае, если вы знакомы с языком Java, C++ или более ранней (   Читать дальше...   )Жанр: Языки и системы программированияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A60F99F5D991A5DA490087FECB633A9ED8386573
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988755   (911055) от 25.02.2016
 
 Михаил Русаков | Как сделать сайт-визитку своими руками (2016) [PDF]
@@ -163,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911055.jpg" />
 </div>
 
 
@@ -190,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_910957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_910957.jpg" />
 </div>
 
 
@@ -216,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910187.jpg" />
 </div>
 
 
@@ -244,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910044.jpg" />
 </div>
 
 
@@ -270,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909269.jpg" />
 </div>
 
 
@@ -296,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908822.jpg" />
 </div>
 
 
@@ -323,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908478.jpg" />
 </div>
 
 
@@ -349,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908155.jpg" />
 </div>
 
 
@@ -375,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905161.jpg" />
 </div>
 
 
@@ -401,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903347.jpg" />
 </div>
 
 
@@ -428,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_903230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_903230.jpg" />
 </div>
 
 
@@ -454,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903065.jpg" />
 </div>
 
 
@@ -480,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903052.jpg" />
 </div>
 
 
@@ -506,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902354.jpg" />
 </div>
 
 
@@ -532,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902174.jpg" />
 </div>
 
 
@@ -560,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901886.jpg" />
 </div>
 
 
@@ -586,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901843.jpg" />
 </div>
 
 
@@ -613,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900688.jpg" />
 </div>
 
 
@@ -639,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898439.jpg" />
 </div>
 
 
@@ -668,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897736.jpg" />
 </div>
 
 
@@ -680,6 +523,163 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:074A240A4551FE669E2A74B3BA02A9A12CE47730
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993411   (895225) от 05.03.2016
+
+Л.А. Мацяшек, Б.Л. Лионг | Практическая программная инженерия на основе учебного примера (2012) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895225.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены вопросы современных методов создания сложного программного обеспечения, использующего информацию, хранимую в базе данных. Подчеркнуты особенности создания такого программного обеспечения коллективом разработчиков: итеративный характер разработки, использование стандартных средств создания программ (стандартные компоненты, паттерны, Bean-компоненты и т. (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DF51751BE4F9798C6E2B4D3DDF3905936494573
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993703   (895149) от 05.03.2016
+
+Ричард Шеферд | Создание макросов для Microsoft Excel (2007) [PDF, DJVU]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895149.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иногда при работе в Microsoft Excel перед пользователем встает задача, выполнение которой либо невозможно, либо затруднено большим количеством операций, которые надо выполнить через меню и панели инструментов. Однако программисты, создававшие Excel, позаботились, чтобы можно было решить любую задачу с помощью Excel. Для решения таких задач Excel включает в свой состав (   Читать дальше...   )Жанр: Офисные программы, Майкрософт  MS Excel, Электронные таблицыФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21F02391D4015D06E58790D7E54001C9BDFFF181
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993406   (895039) от 05.03.2016
+
+Андрей Кашкаров | Сам себе сисадмин. Победа над "домашним" компьютером (2016) [FB2]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895039.jpg" />
+</div>
+
+
+###  Подробнее
+
+Практический опыт, описанный в книге, предназначен для освоения во время экономического кризиса, когда цены на новое оборудование – в силу разных причин – завышены, а требования и предпочтения пользователя к функционалу оборудования невысоки и ограничиваются "домашними" задачами. Сегодня почти у каждого активного пользователя скопились запчасти или старые (   Читать дальше...   )Жанр: Компьютерная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98994B7D12966D6515617F4C4196B473F190F0B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101817   (893859) от 07.02.2017
+
+Василий Халявин | Безопасная халява в интернете (2017) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из новой книги Василия Халявина вы узнаете: как зашифровать весь интернет-трафик; как анонимно скачивать с интернета, в том числе и с торрентов; что такое «глубинный интернет» и как им пользоваться; как пользоваться независимым (децентрализованным) поиском; поиск без цензуры; о защищенных почтовых сервисах и других безопасных способах обмена информацией; как узнать (   Читать дальше...   )Жанр: Практическое руководствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5941BBB3C45397247E61A0E5F4FC11163932B1E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370994   (893179) от 29.03.2020
+
+Б.А. Новиков и др. | Основы технологий баз данных 2-е изд. (2020) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Материал первой части учебного пособия составляет основу для базового курса и содержит краткий обзор требований и критериев оценки СУБД и баз данных, теоретическую реляционную модель данных, основные конструкции языка запросов SQL, организацию доступа к базе данных PostgreSQL, вопросы проектирования приложений и основные расширения, доступные в системе PostgreSQL. (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:181006C671F4036F2F5AA9F0EB7EA80769864222
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993774   (893172) от 06.03.2016
+
+Дэн Рамел | Joomla! для профессионалов (2014) [PDF]
+
+>>Компьютерная литература
+>>Веб-дизайн
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893172.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге представлены искусные приемы и способы, которые помогут читателю извлечь максимальную пользу из такой сложной системы управления информационным наполнением веб-сайтов, какой является Joomla!. Материал этой книги будет полезен в решении самых разных вопросов создания веб-сайта на Joomla! и его дальнейшего усовершенствования.
+  Из этой книги Вы узнаете, (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A48BBC3C048056561D863207BB48A5844728068
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,32 +1,3 @@
-###  Публикация: 1401468   (708922) от 10.08.2020
-
-NizamovStudio | Разработка мобильного приложения B2B в 1С (2020) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создание мобильного приложения 1С для B2B с нуля до 100%.
-В итоге вы научитесь создавать:
-- Кроссплатформенные мобильные приложение на базе платформы 1С
-- HTTP сервисы для обмена с центральной базой(   Читать дальше...   )Жанр: Программирование 1СПродолжительность: 05:14:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9470C7DDFC1E80C5D92C1B1F5F3B50C4F5FFF6DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1401470   (708830) от 10.08.2020
 
 [Курсы-по-1С.РФ] Гилев Евгений, Насипов Фарид | Тренинг-интенсив по 1С: Конвертации данных 2.1 (2016) PCRec
@@ -35,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_708830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708830.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704881.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Skillbox | Работа в командной строке Bash (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704874.jpg" />
 </div>
 
 
@@ -119,7 +90,7 @@ Skillbox | Excel + Google Таблицы с нуля до PRO (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_704863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704863.jpg" />
 </div>
 
 
@@ -148,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_702008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702008.jpg" />
 </div>
 
 
@@ -176,7 +147,7 @@ WebForMySelf | Курс по базе данных MySQL (2014) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_701439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701439.jpg" />
 </div>
 
 
@@ -203,7 +174,7 @@ ITVDN | ASP.NET WEB API2 (2018) PCRec [H.264/1080p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_700919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700919.jpg" />
 </div>
 
 
@@ -229,7 +200,7 @@ School.php | Пошаговое создание сайта от А до Я (д�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_699605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699605.jpg" />
 </div>
 
 
@@ -255,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_695427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695427.jpg" />
 </div>
 
 
@@ -281,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_693303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693303.jpg" />
 </div>
 
 
@@ -307,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_692121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692121.jpg" />
 </div>
 
 
@@ -333,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691801.jpg" />
 </div>
 
 
@@ -359,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_691039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691039.jpg" />
 </div>
 
 
@@ -388,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690962.jpg" />
 </div>
 
 
@@ -416,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690956.jpg" />
 </div>
 
 
@@ -444,7 +415,7 @@ Sean Allen | iOS Dev Launchpad (2020) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690328.jpg" />
 </div>
 
 
@@ -473,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690018.jpg" />
 </div>
 
 
@@ -502,7 +473,7 @@ learn.nestjs.com | Основы NestJS / NestJS Fundamentals (2020) PCRec [En / 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_690012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690012.jpg" />
 </div>
 
 
@@ -530,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689997.jpg" />
 </div>
 
 
@@ -557,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_689849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689849.jpg" />
 </div>
 
 
@@ -584,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688828.jpg" />
 </div>
 
 
@@ -610,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688098.jpg" />
 </div>
 
 
@@ -636,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688020.jpg" />
 </div>
 
 
@@ -665,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687952.jpg" />
 </div>
 
 
@@ -694,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_686604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686604.jpg" />
 </div>
 
 
@@ -705,6 +676,34 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57E9D0EB5C36D847B690632DC7953EE2240D852C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403864   (686028) от 22.08.2020
+
+[Udemy] Maximilian Schwarzmüller | Ускоренное обучение JavaScript / Accelerated JavaScript Training (2020) PCRec [En]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Глубоко погрузитесь в JavaScript, язык, который необходимо знать в веб-разработке, с практическим подходом, основанным на примерах.
+Изучите один из самых важных языков в веб-разработке - быстро и с нуля!
+JavaScript - одна из самых важных частей каждой современной, реактивной, удобной веб-страницы или приложения. Несмотря на этот факт, вы, возможно, знаете много руководств, (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 07:34:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D68BDBEA6478BEDB528F82FD5F2410D5D86ED948
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1172346   (393227) от 08.10.2017
+
+Loudness - Super Best (2013) japan [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Let It Go
+02 Black Star Oblivion
+03 S.D.I.
+04 Rock'n Roll Gypsy(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5F25118B07FCA0D1157B490F531F4DA440DE581
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 568949   (393141) от 02.11.2012
 
 Netherbird - 2 Albums + 5 EPs + 1 Single (2005-2011) [MP3|320]<Symphonic Black Metal>
@@ -6,7 +35,7 @@ Netherbird - 2 Albums + 5 EPs + 1 Single (2005-2011) [MP3|320]<Symphonic Black M
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393141.jpg" />
 </div>
 
 
@@ -33,7 +62,7 @@ Rapture - 3 Albums (1999-2005) [MP3|320]<Melodic Doom/Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393132.jpg" />
 </div>
 
 
@@ -67,7 +96,7 @@ The Black Dahlia Murder - Nightbringers (2017) Limited Edition [MP3|320 Kbps] <M
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_393111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393111.jpg" />
 </div>
 
 
@@ -96,7 +125,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_393012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_393012.jpg" />
 </div>
 
 
@@ -131,7 +160,7 @@ Carach Angren - 3 Albums + EP + Demo (2004-2012) [MP3|256-320]<Symphonic Black M
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392987.jpg" />
 </div>
 
 
@@ -161,7 +190,7 @@ Ten Years After - 2 альбома (1971-1972) 2011-2012, Audio Fidelity [WavPac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_392679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_392679.jpg" />
 </div>
 
 
@@ -190,7 +219,7 @@ Hanging Garden - 2 Albums (2007-2009) [MP3|320]<Melodic Doom/Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392235.jpg" />
 </div>
 
 
@@ -223,7 +252,7 @@ West Of Hell - Spiral Empire (2012) [MP3|320 кб/с]<Heavy Metal, Power Metal, 
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392230.jpg" />
 </div>
 
 
@@ -258,7 +287,7 @@ Cryogenic Implosion - Creation Of The New World (2011) [MP3|320 кб/с]<Death M
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392225.jpg" />
 </div>
 
 
@@ -291,7 +320,7 @@ Chaosweaver - 2 Albums (2008-2012) [MP3|320]<Industrial/Symphonic Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392222.jpg" />
 </div>
 
 
@@ -326,7 +355,7 @@ Upcdownc - I, Awake (2017) [MP3|320 Kbps] <Post Rock, Metal, Experimental>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392093.jpg" />
 </div>
 
 
@@ -355,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_392033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392033.jpg" />
 </div>
 
 
@@ -384,7 +413,7 @@ Somali Yacht Club - Sandsongs (2011) [MP3|320 кб/с]<Stoner Psychedelic Rock /
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391937.jpg" />
 </div>
 
 
@@ -416,7 +445,7 @@ Unheilig - Lichter der Stadt Live (2012) [MP3|320 кб/с]<Gothic/Synth Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391931.jpg" />
 </div>
 
 
@@ -451,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_391871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_391871.jpg" />
 </div>
 
 
@@ -486,7 +515,7 @@ Air Raid - Across the Line (2017) Japan [FLAC|Lossless|image + .cue] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391370.jpg" />
 </div>
 
 
@@ -515,7 +544,7 @@ Devastation Inc. - No Way For Salvation (2016) [FLAC|Lossless|WEB-DL|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391155.jpg" />
 </div>
 
 
@@ -544,7 +573,7 @@ Mark Knopfler - This Is Not Enough For Me (2017) Live, Bootleg [FLAC|Lossless|im
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_391081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391081.jpg" />
 </div>
 
 
@@ -573,7 +602,7 @@ Madness - Oui, Oui, Si, Si, Ja, Ja, Da Da (2012) [MP3|320 кб/с ]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390880.jpg" />
 </div>
 
 
@@ -608,7 +637,7 @@ Suicidal Angels - Bloodbath (Japan Edition) (2012) [FLAC|Lossless]<Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_390839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_390839.jpg" />
 </div>
 
 
@@ -636,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390612.jpg" />
 </div>
 
 
@@ -665,7 +694,7 @@ Joon Wolfsberg - 1220 Wells Street (2017) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390564.jpg" />
 </div>
 
 
@@ -694,7 +723,7 @@ The Voice of Deep Purple - The Gillan Years (2017) 3CD [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390411.jpg" />
 </div>
 
 
@@ -723,7 +752,7 @@ Marilyn Manson - Heaven Upside Down (2017) [FLAC|Lossless|tracks + .cue] <Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390341.jpg" />
 </div>
 
 
@@ -752,7 +781,7 @@ Raventale - 6 Albums (2006-2012) [MP3|320]<Atmospheric Black/Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_390337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390337.jpg" />
 </div>
 
 
@@ -766,41 +795,6 @@ Raventale - 6 Albums (2006-2012) [MP3|320]<Atmospheric Black/Doom Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF6E3217E549212EC713A6CA4D4B64B3208164C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570614   (389982) от 05.11.2012
-
-Flyleaf - New Horizons (2012) [MP3|320 кб/с]<Alt.Rock | Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_389982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire Fire
-02. New Horizons
-03. Call You Out
-04. Cage On The Ground
-05. Great Love
-06. Bury Your Heart
-07. Freedom
-08. Saving Grace
-09. Stand
-10. Green Heart(   Читать дальше...   )Жанр: Alt.Rock | Female VocalПродолжительность: 00:36:28
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

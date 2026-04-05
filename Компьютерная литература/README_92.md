@@ -1,160 +1,3 @@
-###  Публикация: 1424734   (226391) от 17.11.2020
-
-Джон Поль Мюллер, Лука Массарон | Глубокое обучение для чайников (2020) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_226391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Глубокое обучение предоставляет средства для выявления шаблонов в данных, лежащих в основе онлайновых операций, медицине, исследованиях, социальных сетях и во многих элементах повседневной жизни. В этой книге предоставлена вся информация, необходимая для устранения загадочности этой темы, а также описаны все основные технологии, связанные с ней. Вскоре вы сможете (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7D0D0416CD7E4EEC137873210296DE11BC259BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267823   (225652) от 11.12.2018
-
-Дмитрий Дементий (ред.) | Как создать сайт самому: пошаговое руководство для гуманитариев (2017) [PDF]
-
->>Компьютерная литература
->>Веб-дизайн
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225652.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если бюджет отсутствует или сильно ограничен – создайте сайт самостоятельно. В этом вам как раз поможет наша книга. Она написана для предпринимателей и частных специалистов, которые в начале бизнес-пути – осознанно или вынуждено – следуют принципам бутстрэппинга. То есть финансируют бизнес собственными средствами и развивают проект в условиях ограниченных ресурсов. (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7915C4CD704B93A0FE8D7895C0C25539E0348C52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965477   (225026) от 14.12.2015
-
-Николай Комлев | Полезное программирование. Уникальное руководство к действию (2016) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_225026.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уникальное руководство к действию, опыт и практика, сконцентрированные на двух сотнях страниц. Книга для тех, кто умеет программировать и уже готов этим зарабатывать. Курс молодого, но профессионального программиста. Практические советы. Что пригодится вам из пройденного и сданного. Что вы будете программировать сначала, а что позже, когда наберётесь опыта. К чему (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70D5E59802DEA6BE22CEFAD727614427E08F6C51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965354   (224858) от 14.12.2015
-
-Виталий Леонтьев | Office 2016. Новейший самоучитель (2015) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224858.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью Office 2016 вы сможете создавать тексты, таблицы, презентации, сообщения, заметки и красочные электронные документы еще легче и быстрее! Он предлагает массу новых возможностей, которые помогут вам использовать компьютер на все 100%.Жанр: MS Office. Офисные программы МайкрософтФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42246B5B6D7F8C03CB1FCD68DC8373D73DFA1164
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342176   (224599) от 01.12.2019
-
-Роберт Мартин | Идеальный программист. Как стать профессионалом разработки ПО (2016) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_224599.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всех программистов, которые добиваются успеха в мире разработки ПО, отличает один общий признак: они больше всего заботятся о качестве создаваемого программного обеспечения. Это - основа для них. Потому что они являются профессионалами своего дела.
-В этой книге легендарный эксперт Роберт Мартин (более известный в сообществе как "Дядюшка Боб"), автор бестселлера (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42747F759BF2B75FFDD48415D788CFD5070C473E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513650   (223216) от 29.11.2021
-
-А.Г. Додонов и др. | Компьютерная конкурентная разведка (2021) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223216.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена рассмотрению вопросов компьютерной конкурентной разведки, разведки в открытых ресурсах сети Интернет. Компьютерная конкурентная разведка охватывает автоматизированные процедуры сбора и аналитической обработки информации, которые проводятся с целью поддержки принятия управленческих решений, повышения конкурентоспособности исключительно из открытых (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:269D75FEEF2C8C04F4318B281D2F5F4B26562F32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1513519   (223199) от 29.11.2021
 
 Кайл Симпсон | Вы пока еще не знаете JS. Область видимости и замыкания, 2-е международное издание (2022) [PDF]
@@ -163,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_223199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223199.jpg" />
 </div>
 
 
@@ -189,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222292.jpg" />
 </div>
 
 
@@ -215,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_222141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222141.jpg" />
 </div>
 
 
@@ -241,7 +84,7 @@ Charles Pfleeger, Shari Lawrence Pfleeger, Lizzie Coles-Kemp | Security in Compu
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_221760.jpg" />
 </div>
 
 
@@ -269,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_221694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221694.jpg" />
 </div>
 
 
@@ -295,7 +138,7 @@ George Chapline | Quantum Mechanics And Bayesian Machines (2023) [PDF][EN]
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_220938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_220938.jpg" />
 </div>
 
 
@@ -321,7 +164,7 @@ Stuart McClure и др. | Hacking Exposed 6: Network Security Secrets & Solution
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_220171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220171.jpg" />
 </div>
 
 
@@ -356,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219520.jpg" />
 </div>
 
 
@@ -382,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219482.jpg" />
 </div>
 
 
@@ -408,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219346.jpg" />
 </div>
 
 
@@ -435,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219278.jpg" />
 </div>
 
 
@@ -461,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218657.jpg" />
 </div>
 
 
@@ -487,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218569.jpg" />
 </div>
 
 
@@ -513,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218341.jpg" />
 </div>
 
 
@@ -541,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217998.jpg" />
 </div>
 
 
@@ -567,7 +410,7 @@ Kevin Wilson | MacOS Fundamentals: Catalina Edition. The Step-by-step Guide to U
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217826.jpg" />
 </div>
 
 
@@ -593,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Веб-дизайн
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217140.jpg" />
 </div>
 
 
@@ -619,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_217080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217080.jpg" />
 </div>
 
 
@@ -645,7 +488,7 @@ Kevin Wilson | iPad Fundamentals: iPadOS Edition: The Step-by-step Guide to Usin
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216677.jpg" />
 </div>
 
 
@@ -671,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216531.jpg" />
 </div>
 
 
@@ -682,6 +525,164 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E5433A4F21D364EB2CA6CD0855F488D3BA6D409
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652077   (216516) от 12.08.2023
+
+Михал Яворски, Тарек Зиаде | Python. Лучшие практики и инструменты (2024) [PDF] [4-издание]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_216516.jpg" />
+</div>
+
+
+###  Подробнее
+
+Python - простой, но мощный язык, поэтому он используется в самых разных областях. Написать код на Python легко, но сделать его удобочитаемым и пригодным для повторного использования и сопровождения может оказаться проблемой. Четвертое издание этой книги дополнено лучшими практиками, полезными инструментами и стандартами, которые применяют профессиональные разработчики, (   Читать дальше...   )Жанр: ПрограммированиеПеревод: Е. МатвеевИздательство: ПитерФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FBF4348C7F13B6B52EE2336C319D462603B471E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513165   (216017) от 03.12.2021
+
+Кристиан Майер | Однострочники Python. Лаконичный и содержательный код (2022) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216017.jpg" />
+</div>
+
+
+###  Подробнее
+
+Краткость - сестра программиста. Эта книга научит вас читать и писать лаконичные и функциональные однострочники. Вы сможете системно разбирать и понимать код на Python, а также писать выразительно и компактно, как настоящий эксперт.Здесь вы найдете приёмы и хитрости написания кода, регулярные выражения, примеры использования однострочников в различных сферах, а также (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E09F4486A5438E77FD73B0558AA3DDA6326CE2B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426116   (215620) от 23.11.2020
+
+Бен Рэдвуд и др. | 3D-печать. Практическое руководство (2020) [PDF]
+
+>>Компьютерная литература
+>>3D графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215620.jpg" />
+</div>
+
+
+###  Подробнее
+
+3D-печать. Практическое руководство — Книга посвящена стремительно развивающимся технологиям 3D-печати, которые находят свое применение во множестве отраслей: дизайне, строительстве, медицине и других. Помимо самих технологий и материалов печати рассматриваются характеристики различных 3D-принтеров, общие особенности 3D-моделей и методы их постобработки. Благодаря (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:742DEACBED7F7C33673DD981429429CA6D0BA163
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426098   (215543) от 23.11.2020
+
+Дмитрий Зиновьев | Основы проектирования в КОМПАС-3D v17 (2019) [PDF]
+
+>>Компьютерная литература
+>>3D графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215543.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга рассчитана на начинающих пользователей. В ней представлены уроки по основам проектирования в этой программе. Однако опытным пользователям она также пригодится – поможет систематизировать ранее полученные знания и навыки и узнать неочевидные приемы проектирования.Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29AECFA642691875F174E505024BDEAB3FC635E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966927   (215179) от 19.12.2015
+
+Павел Козловский, Питер Бэкон Дарвин | Разработка веб-приложений с использованием AngularJS (2014) [PDF, RTF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215179.jpg" />
+</div>
+
+
+###  Подробнее
+
+С появлением HTML5 и CSS3 разработка клиентских веб-приложений на языке JavaScript приобрела особую популярность. Создатели фреймворка AngularJS предприняли революционный подход к решению вопроса превращения браузера в самую лучшую платформу для разработки веб-приложений.
+ Книга проведет вас через основные этапы конструирования типичного одностраничного веб-приложения. (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCA4FA8907E7A90FA5A96AA70F18F7D0F51B8749
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653028   (215132) от 14.08.2023
+
+Серхио Рохас-Галеано | ChatGPT: ваш наставник по Python. Овладение основами за 100 запросов (2023) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_215132.jpg" />
+</div>
+
+
+###  Подробнее
+
+Откройте для себя мир программирования на Python с помощью ChatGPT! Погрузитесь в основные концепции, решайте увлекательные и веселые задачи и исследуйте безграничный потенциал программирования. Этакнига позволит вам освоить Python всего за 100 запросов, сформировав у вас необходимые навыки.
+Python — один из наиболее широко используемых и универсальных языков программирования, (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: LeanpubФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DD106C466750DD06B3BBD48560FAC4E4678D58C
 ```
 
 https://mybot314.ru/tekegram_catalog/

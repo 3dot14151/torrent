@@ -1,3 +1,56 @@
+###  Публикация: 1141922   (646606) от 12.06.2017
+
+А.Н. Игнатов | Микросхемотехника и наноэлектроника (2011) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646606.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изложены физические основы полупроводниковых электронных приборов. Рассмотрены основные типы радиокомпонентов, элементы и узлы аналоговых и цифровых микроэлектронных устройств и систем, интегральные схемы высоких степеней интеграции. Показана целесообразность и возможности перехода от классической электроники к наноэлектронике.
+Рассмотрены физические и технологические (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22D91BE9C208A93364F5CE006B3690EB352BAB66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227482   (646596) от 26.05.2018
+
+А.А. Барыбин и др. | Физико-технологические основы макро-, микро, и наноэлектроники (2011) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена основным физическим явлениям и закономерностям, лежащим в основе технологических методов и процессов современной электроники. Особое внимание уделено наноматериалам и перспективным направлениям нанотехнологии. Изложение построено так, чтобы дать читателю возможность самостоятельно сформировать общие физико-технологические представления, как правило, (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A3F2847D0EC6500D0FCD6B2CBAB4BB71552AF93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1541367   (646528) от 02.04.2022
 
 А.В. Лупачев, В.Г. Лупачев | Источники питания и оборудование сварки плавлением (2018) [PDF]
@@ -6,7 +59,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646528.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646518.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646508.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646506.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646502.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646202.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_646198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646198.jpg" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645688.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645686.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644721.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643232.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642963.jpg" />
 </div>
 
 
@@ -322,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642920.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642832.jpg" />
 </div>
 
 
@@ -376,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642825.jpg" />
 </div>
 
 
@@ -404,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642824.jpg" />
 </div>
 
 
@@ -430,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642822.jpg" />
 </div>
 
 
@@ -456,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642716.jpg" />
 </div>
 
 
@@ -482,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642714.jpg" />
 </div>
 
 
@@ -508,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642604.jpg" />
 </div>
 
 
@@ -535,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642581.jpg" />
 </div>
 
 
@@ -562,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641511.jpg" />
 </div>
 
 
@@ -588,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641049.jpg" />
 </div>
 
 
@@ -615,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640800.jpg" />
 </div>
 
 
@@ -627,60 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F11EB3904C6CE89676CE599E739BCCA7A11412F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142645   (640662) от 15.06.2017
-
-С.К. Варлатая, М.В. Шаханова | Защита информационных процессов в компьютерных сетях (2015) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебно-методический комплекс содержит рабочую учебную программу, учебное пособие, а также актуальный материал справочно-аналитического характера по теме "Зашита информационных процессов в компьютерных сетях".
- В учебном пособии отражаются основные методы защиты информации в компьютерных сетях и стандарты оценки защищенности таких сетей. Особое внимание уделено (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C49F1428D83E91FE5C20F8CB1576FB22F6A3437B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542098   (640603) от 05.04.2022
-
-Ю.П. Галишников | Трансформаторы и электрические машины (2021) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640603.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее издание отличается тем, что в нем описаны особенности работы, возможности и ограничения электрических машин как элементов сложных систем больше, чем «анатомия» самих машин. Для более полного раскрытия предмета рассмотрены переходные электро­магнитные и электромеханические процессы.
-Предназначено студентам, обучающимся по направлению 13.03.02 «Электроэнергетика (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06FFEF0FBD4018F3E6DD5D587299E5CE81AF01BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

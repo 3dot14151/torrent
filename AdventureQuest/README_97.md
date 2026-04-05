@@ -1,3 +1,81 @@
+###  Публикация: 1760950   (30401) от 20.01.2025
+
+Little Big Adventure – Twinsen’s Quest (2024) [Ru/Multi] (1.1.2/dlc) License GOG [Digital Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перенеситесь в причудливый мир Твинсана в ремейке приключенческого экшена, вышедшего ещё в 1994 году! В Little Big Adventure - Twinsen's Quest вас ждут обновлённая графика, новая музыка от оригинального композитора и улучшенный игровой процесс. В этом улучшенном и осовремененном ремейке вы опять повстречаете Твинсена. Как и в оригинальной игре, в Little Big Adventure (   Читать дальше...   )Тип издания: LicenseРазработчик: [2.21]Жанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7804549CA4D0DE84E8861FE93B20E9839E57094
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774281   (30376) от 20.01.2025
+
+Willie's Nightfall (2025) [Ru/Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30376.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра в жанре хоррор от первого лица. Исследуйте жуткие офисы компании Вилли в поисках секретных документов. Но вы не одиноки. Зловещий талисман компании, Вилли - искаженный, кровожадный мышонок - охотится за вами. Во время исследования вам нужно будет разгадывать головоломки, находить ключи и карточки доступа, чтобы открыть зоны с ограниченным доступом. В этих зонах (   Читать дальше...   )Тип издания: SceneРазработчик: Runebox StudioЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACFB47624BA9BBCA11D537F81C6C9B396CCDA65F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774457   (30272) от 21.01.2025
+
+The Other Me (2025) [Ru/Multi] (build 16992762) Repack seleZen
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30272.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта игра ориентирована на исследование и тайны. Чтобы предоставить более значимый опыт истории, напряжение постепенно нарастает. История раскрывается через сюрреалистические образы и детали окружения, которые могут быть не сразу заметны. Учтите, что в игре используется нестандартная система сложности. Предупреждение: Эта игра может вызвать приступы у людей с фоточувствительной (   Читать дальше...   )Тип издания: RepackРазработчик: Anomalybyte StudioЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Турецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Турецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16E23AEE73EA6D92F37B06376572DEAE43D0DEE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1774448   (30236) от 21.01.2025
 
 The Star Named EOS (2024) [Ru/Multi] (1.0.0.04) Repack FitGirl
@@ -6,7 +84,7 @@ The Star Named EOS (2024) [Ru/Multi] (1.0.0.04) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30236.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ The Other Me (2025) [Ru/Multi] (build 16992762) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30167.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ The Night of the Rabbit (2013) [Ru/Multi] (2.2.325) Repack Let'sРlay [Premium E
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29937.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Sable (2021) [Ru/Multi] (4.3) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29910.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Mark of the Deep (2025) [Ru/Multi] (1.0.0.0.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29825.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Pine: A Story of Loss (2024) [Ru/Multi] (1.4.12853) Repack FitGirl [Collector's 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29714.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Matsuro Palette / Палитра Смерти (2020) [Ru/Multi] (1.0.0) License 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29683.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ DEEP IN THE DREAD (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29646.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Brothers: A Tale of Two Sons Remake (2024) [Ru/Multi] (Build 15058792) Repack Le
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29511.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ The Lies We Tell Ourselves (2025) [Ru/Multi] (Build 17168908) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29452.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Gift Collector (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29383.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ The End of the Sun (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29316.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ The End of the Sun (2025) [Ru/Multi] (1.0.3) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29224.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Ad Infinitum (2023) [Ru/Multi] (1.0.8.271534) Repack Let'sРlay [Supporter Editi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29066.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ The Other Me (2025) [Ru/Multi] (build 16992762) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29065.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Somnus (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29031.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Deliver Us Mars (2023) [Ru/Multi] (build 17157569) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29013.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ NEEDY STREAMER OVERLOAD / NEEDY GIRL OVERDOSE: Internet Angel Pack (2022) [Ru/Mu
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28983.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Poppy Playtime (2021) [Ru/Multi] (build 17177248/dlc) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28976.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Deliver Us Mars (2023) [Ru/Multi] (2.0.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28917.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Code Alkonost: Awakening of Evil (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28914.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Poppy Playtime (2021) [Ru/Multi] (Build 17162178/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28897.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ From The Past (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28892.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ From The Past (2025) [Ru/Multi] (1.0) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCC192ACE82E78F5C5782071CB4F2F2B6D32E538
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776872   (28820) от 03.02.2025
-
-Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.258 834/dlc) Repack Wanterlude
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28820.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучайте новые здания и локации – в некоторые из них нельзя было попасть в оригинальной игре, а некоторые впервые появились в ремейке. Насладитесь знаменитым сюжетом, взглянув при этом на Сайлент Хилл по-новому благодаря расширенной карте.Тип издания: RepackРазработчик: Bloober Team SAЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, Английский, ЯпонскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB50C4BA525C3C8B9A6F7E2B4DE4E094635F6BAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759982   (28745) от 04.02.2025
-
-Alone in the Dark (2024) [Ru/Multi] (1.0.5/dlc) Repack Let'sРlay [Digital Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28745.jpg" />
-</div>
-
-
-###  Подробнее
-
-Психологический хоррор переплетается с шармом южной готики в леденящем душу переосмыслении культовой Alone in the Dark, ставшей эталоном жанра. Вам приоткроется дверь в мир безумия, где каждая встреча может оказаться последней. Вы ощутите, как с каждым шагом, что приближает вас к разгадке тайны Дерсето, взирающие из тьмы глаза становятся все голоднее.Тип издания: RepackРазработчик: Pieces InteractiveЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F034D43A761D22734FD3E8A43C8ED182A2992B47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763690   (28594) от 05.02.2025
-
-Snufkin: Melody of Moominvalley (2024) [Ru/Multi] (Build 17112046/dlc) Repack Let'sРlay [Digital Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Снусмумрик: Мелодия Муми-дола – это музыкальное приключение с захватывающим сюжетом. Станьте Снусмумриком и отправляйтесь спасать Муми-дол и помогать удивительным существам, которые в нем обитают. На территории Муми-дола разбили целую сеть регулярных парков, уродующих его неповторимый ландшафт. Вам придется отвлекать полицейских, срывать вывески и опрокидывать совершенно (   Читать дальше...   )Тип издания: RepackРазработчик: Hyper GamesЖанр: Приключенческие игры, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDA35211B901DEAB71CF672CC656E30604E8C405
 ```
 
 https://mybot314.ru/tekegram_catalog/

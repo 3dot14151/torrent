@@ -1,3 +1,58 @@
+###  Публикация: 1786715   (23634) от 24.03.2025
+
+Якуб Колас, Анатолий Волков | Диво (1966) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23634.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказки о животных, бытовые сказки, волшебные сказки в пересказе классика белорусской литературы Якуба Коласа с иллюстрациями Анатолия Волкова.
+19 трёхцветных иллюстраций, 14 чёрно-белых, 6 полноцветных (2 обложки и 4 вклейки).Жанр: СказкиЯзык: РусскийИздательство: Издательство «Беларусь»Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FBF35051DCC3E96F1779C3B609C70BD451AD2DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787414   (23529) от 25.03.2025
+
+С.М. Козел | Физика. 10-11 класс. Учебное пособие (в 2 частях, часть 2) (2010) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во вторую часть пособия включены разделы «Электродинамика», «Электромагнитные колебания и волны», «Оптика», «Специальная теория относительности», «Квантовая физика», «Физика атома и атомного ядра». Вместе с материалом первой части пособие охватывает все разделы физики, изучаемые в 10—11 классах средней школы.
+
+Материал излагается в компактной форме на профильном (   Читать дальше...   )Жанр: Учебное пособиеЯзык: РусскийИздательство: МнемозинаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E193B0BD52040658DE048C012B9D6889266AACE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1787410   (23528) от 25.03.2025
 
 С.М. Козел | Физика. 10-11 класс. Учебное пособие (в 2 частях, часть 1) (2010) [PDF]
@@ -6,7 +61,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23528.jpg" />
 </div>
 
 
@@ -35,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23526.jpg" />
 </div>
 
 
@@ -61,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23524.jpg" />
 </div>
 
 
@@ -89,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23519.jpg" />
 </div>
 
 
@@ -115,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23515.jpg" />
 </div>
 
 
@@ -141,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23421.jpg" />
 </div>
 
 
@@ -169,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23420.jpg" />
 </div>
 
 
@@ -197,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23414.jpg" />
 </div>
 
 
@@ -223,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23413.jpg" />
 </div>
 
 
@@ -249,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23318.jpg" />
 </div>
 
 
@@ -277,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23215.jpg" />
 </div>
 
 
@@ -305,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23211.jpg" />
 </div>
 
 
@@ -333,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23109.jpg" />
 </div>
 
 
@@ -360,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23106.jpg" />
 </div>
 
 
@@ -386,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23102.jpg" />
 </div>
 
 
@@ -414,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22895.jpg" />
 </div>
 
 
@@ -441,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22795.jpg" />
 </div>
 
 
@@ -469,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22785.jpg" />
 </div>
 
 
@@ -495,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22645.jpg" />
 </div>
 
 
@@ -521,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22577.jpg" />
 </div>
 
 
@@ -547,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22572.jpg" />
 </div>
 
 
@@ -573,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22571.jpg" />
 </div>
 
 
@@ -599,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22501.jpg" />
 </div>
 
 
@@ -627,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22481.jpg" />
 </div>
 
 
@@ -638,59 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:564551E5610D45ED5911815B463DEF3D71E73FE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789468   (22476) от 04.04.2025
-
-Г.Е. Рудзитис, Ф.Г. Фельдман | Химия. Учебник для 10 класса (базовый уровень) (2022) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22476.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный учебник — основной элемент информационно-образовательной среды учебно-методического комплекта по органической химии для 10 класса. Учебник позволяет обеспечить достижение предметных, метапредметных и личностных результатов образования в соответствии с требованиями Федерального государственного образовательного стандарта среднего общего образования. Материал (   Читать дальше...   )Жанр: УчебникЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9CA1E1C4CFB52A8F7F0A81033C16D48317FE241
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789487   (22459) от 04.04.2025
-
-К.Ю. Поляков, Е.А. Еремин | Информатика. Учебник для 9 класса (2022) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник предназначен для изучения предмета «Информатика» в 9 классе (базовое и углублённое изучение). Содержание учебника является продолжением курса 8 класса. В нём рассматриваются вопросы, связанные с компьютерными сетями и моделированием, основы математической логики, программирование, работа с табличными процессорами и базами данных, социальная информатика.
- (   Читать дальше...   )Жанр: УчебникЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB71E92F0A058AD56D5A629E21B639AEFFF1A84F
 ```
 
 https://mybot314.ru/tekegram_catalog/

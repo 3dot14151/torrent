@@ -1,3 +1,161 @@
+###  Публикация: 1818170   (2744) от 14.09.2025
+
+Своя игра (14.09.2025) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2744.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «2В Медиа»Жанр: Интеллектуальная играУчастники: Михаил Манжуло, Лилия Якунина, Максим КузнецовЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C51646FE2CE1E6947B6E41D51F3FDB3B035952C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818129   (2736) от 14.09.2025
+
+Первая передача на НТВ. Автомобильная передача (14.09.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2736.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 13 лет за рулем он как мастер спорта и даже приятеля обучает… Что затеял несовершеннолетний экипаж?
+ Симбиоз мотокроса и футбола: правила игры в мотобол.
+ «Картечь» из-под задних колес: кто должен оплатить перекрас бампера — водители или дорожники?Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:24:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9D844E7F05117B855A78CA3F5658FE62BC2FA80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 646624   (2706) от 15.09.2025
+
+Гитлер. Неизвестный солдат / Hitler: The Unknown Soldier (2004) DVDRip
+
+>>Документалистика и Телепередачи
+>>Личности в истории
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2706.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о жизни Гитлера в период с 1914 по 1918 годы. Адольф Гитлер, боец — предмет этой захватывающей картины, которая описывает хронику боевого опыта будущего диктатора, как пехотинца, участника Первой Мировой войны. Выдержки из писем Гитлера с фронта, воспоминания полковых товарищей и его оценка чиновниками представляют собой обличительный портрет задумчивого (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 01:20:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF530829CB5EB0EBBF7DC79A4179B01CF9C42F2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 341929   (2699) от 15.09.2025
+
+Гитлер. Неизвестный солдат / Hitler: The Unknown Soldier (2004) DVDRip
+
+>>Документалистика и Телепередачи
+>>История
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2699.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о жизни Гитлера в период с 1914 по 1918 годы. Адольф Гитлер, боец — предмет этой захватывающей картины, которая описывает хронику боевого опыта будущего диктатора, как пехотинца, участника Первой Мировой войны. Выдержки из писем Гитлера с фронта, воспоминания полковых товарищей и его оценка чиновниками представляют собой обличительный портрет задумчивого (   Читать дальше...   )Жанр: ДокументальныйРежиссер: Стюарт РасселлПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 01:20:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E7F531EC349D805D96CB3DAA815BD95E38C1841
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818178   (2658) от 15.09.2025
+
+Уроки забвения (2025) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2658.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм Ивана Благого о том, как с помощью манипуляций со школы принижают роль СССР в разгроме нацистской Германии. Были проанализированы учебники 12 стран. Объясняется, почему немцы не помнят о блокаде Ленинграда, а британцы не могут ответить на простейший вопрос о том, кто взял Берлин. Продемонстрировано, как убитых нацистами выдают за жертв советской власти. Почему (   Читать дальше...   )Производство: Россия / Первый каналЖанр: документальный, история, война, ВОВРежиссер: Андрей СтоляровУчастники: Иван БлагойЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:449F2B4914F32E778DCFA349D1444055D705D8EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818289   (2649) от 15.09.2025
+
+Арена смелых (1953) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2649.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм запечатлел цирковое представление с участием лучших молодых мастеров советского цирка.Производство: СССР / МосфильмЖанр: Документальный, циркРежиссер: Сергей Гуров, Юрий ОзеровУчастники: Олег Попов, Эдуард Середа, артисты Шубины, Мануэла Папян, Хосров Абдулаев, артисты Кожуховы, Виолетта Кисс, Александр Кисс, артисты Молдавского цирка, Борис БресслерСубтитры: ОтсутствуютПродолжительность: 01:14:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C332EC0F2ACD08FD4D25D0FF3FFBE6ABAA76A22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1818102   (2641) от 15.09.2025
 
 Военная приемка. Танкостроение. Уралвагонзавод (14.09.2025) WEBRip [H.264/1080p]
@@ -6,7 +164,7 @@
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2641.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2223.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ Pink Floyd - История создания альбома "Wish You Were Here"
 >>Посвящение искусству
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2083.jpg" />
 </div>
 
 
@@ -84,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1812.jpg" />
 </div>
 
 
@@ -110,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1803.jpg" />
 </div>
 
 
@@ -136,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1785.jpg" />
 </div>
 
 
@@ -163,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1775.jpg" />
 </div>
 
 
@@ -189,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1772.jpg" />
 </div>
 
 
@@ -218,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1579.jpg" />
 </div>
 
 
@@ -247,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1564.jpg" />
 </div>
 
 
@@ -276,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1510.jpg" />
 </div>
 
 
@@ -302,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1495.jpg" />
 </div>
 
 
@@ -328,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1471.jpg" />
 </div>
 
 
@@ -354,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1454.jpg" />
 </div>
 
 
@@ -380,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1337.jpg" />
 </div>
 
 
@@ -406,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1289.jpg" />
 </div>
 
 
@@ -432,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_774.jpg" />
 </div>
 
 
@@ -458,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_741.jpg" />
 </div>
 
 
@@ -484,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_514.jpg" />
 </div>
 
 
@@ -512,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_509.jpg" />
 </div>
 
 
@@ -523,165 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F9B82E9457C5149AF399231639AC5134DF9D0C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820464   (504) от 27.09.2025
-
-Следствие вели... (27.09.2025) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_504.jpg" />
-</div>
-
-
-###  Подробнее
-
-«СЭР». 1991 год. В Волгограде один за другим гибнут подростки. Кто превратил крышу в место кровавых расправ — маньяк, сумасшедший или поклонник Сатаны? Какую роль в этом деле сыграли работник ЖЭКа и советское радушие? И при чем тут старый холодильник и роман о Дракуле?Производство: Россия | Телекомпания «НТВ»Жанр: Документальный, криминал, расследованиеЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71322010CD20D46548FB179730D8662B23ACB171
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820387   (493) от 27.09.2025
-
-Живая еда с Сергеем Малозёмовым (27.09.2025) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_493.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вареные яйца! Команда программы проверила способ варки идеальных яиц от итальянских физиков, который занимает целых 32 минуты, а еще выяснила, почему яйцо всмятку полезнее крутого, и на какой день вареное яйцо, оставленное на столе, становится опасным.
-Рейтинг продуктов со скрытым сахаром: какие безобидные на первый взгляд продукты есть в рейтинге, как производители (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00AF62437B01F832DDCE8FE53F88B15BDC1EC972
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820439   (471) от 27.09.2025
-
-Своя игра (27.09.2025) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_471.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «2В Медиа»Жанр: Интеллектуальная играУчастники: Ольга Ратникова, Сергей Сыромятников, Юрий КалякинЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:41:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F460F013A04175C562A4CEC246A865AB682EDC16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820366   (465) от 27.09.2025
-
-Тест-драйв Kia Rio X 2020 — Минтранс (27.09.2025) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_465.jpg" />
-</div>
-
-
-###  Подробнее
-
-🔸 Юридические тонкости. Кто обязан выставлять знак аварийной остановки при аварии на парковке? За что могут выписать штраф в такой ситуации?
-🔸 Тест-драйв Kia Rio X 2020: почему подросшего «корейца» не стоит называть кроссовером?
-🔸 Нарушение или нет? Могут ли выписать штраф за внесение изменений в конструкцию кабины автомобиля? Законна ли установка (   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:47:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A908A60969245787CBF7C71EE650639A7EEC5D47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820426   (459) от 27.09.2025
-
-Пятеро на одного (27.09.2025) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E21D5ABA06DE0D321BA25B4889CE57D2050EA401
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820379   (458) от 27.09.2025
-
-Воткинск: любимый завтрак Чайковского и отдых в оздоровительном комплексе | «Поедем, поедим» (27.09.2025) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_458.jpg" />
-</div>
-
-
-###  Подробнее
-
-Федерико Арнальди и «Поедем, поедим!» отправились на родину П. И. Чайковского — в город Воткинск! Здесь ведущий прогулялся по дому, в котором композитор провел свое детство, попробовал любимый завтрак и любимое варенье великого композитора, а также отправился на бал и принял участие в играх XIX века! Ну а после всего уже с современным размахом отдохнул в местном (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:47:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3B4D8603EF8871B6659E256EC8BCE46C9465FA9
 ```
 
 https://mybot314.ru/tekegram_catalog/

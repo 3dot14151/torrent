@@ -1,3 +1,32 @@
+###  Публикация: 1719687   (58081) от 30.04.2024
+
+Stepik | HTML CSS (pro) (2024) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58081.jpg" />
+</div>
+
+
+###  Подробнее
+
+На курсе web-разработки вы познакомитесь с основами HTML и CSS, научитесь верстать адаптивные страницы. Освоите современные технологии и инструменты. Узнайте как работать с Git репозиторием, а также получите базовые знания для работы с Figma.
+
+Чему вы научитесь
+✅В разделе HTML: создавать веб-страницы, добавлять изображения, изменять цвета и строить списки. (   Читать дальше...   )Производство: StepikЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 01:59:40Реклама: Присутствуют сторонние вставки и наложения
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE6C8263468B1103F0C76E81D0F0230C58CBFF20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1719570   (58071) от 30.04.2024
 
 Scott Eaton.com, Scott Eaton | Portraiture and Facial Anatomy. Week 1-6 (2014) PCRec [EN]
@@ -6,7 +35,7 @@ Scott Eaton.com, Scott Eaton | Portraiture and Facial Anatomy. Week 1-6 (2014) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58071.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57798.jpg" />
 </div>
 
 
@@ -58,7 +87,7 @@ Learn Python, М. Корнеев, И. Лебедев, В. Филонов и др
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57691.jpg" />
 </div>
 
 
@@ -87,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57675.jpg" />
 </div>
 
 
@@ -116,7 +145,7 @@ Product University, Алексей Черняк, Павел Сидоров | Blo
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57661.jpg" />
 </div>
 
 
@@ -145,7 +174,7 @@ Product University, Аркадий Морейнис, Алексей Черняк
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57656.jpg" />
 </div>
 
 
@@ -173,7 +202,7 @@ Product University, Аркадий Морейнис, Алексей Черняк
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57650.jpg" />
 </div>
 
 
@@ -202,7 +231,7 @@ Product University, Аркадий Морейнис, Алексей Черняк
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57644.jpg" />
 </div>
 
 
@@ -231,7 +260,7 @@ Product University, Аркадий Морейнис, Алексей Черняк
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57619.jpg" />
 </div>
 
 
@@ -259,7 +288,7 @@ Pat Warner | Универсальный ручной фрезер (The Versatile
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57595.jpg" />
 </div>
 
 
@@ -285,7 +314,7 @@ Product University | Telegram-бот Developer (2022) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57570.jpg" />
 </div>
 
 
@@ -313,7 +342,7 @@ Product University | Основы контент-маркетинга (2024) WEB
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57569.jpg" />
 </div>
 
 
@@ -342,7 +371,7 @@ Product University | UX/UI Design. Дизайнер интерфейсов  (202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57558.jpg" />
 </div>
 
 
@@ -371,7 +400,7 @@ DevEducation | Курс Frontend 2.0  (2022 -2023) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57555.jpg" />
 </div>
 
 
@@ -397,7 +426,7 @@ Product University | Антистартап (2024) WEB-DL [AD] [RU]
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57546.jpg" />
 </div>
 
 
@@ -426,7 +455,7 @@ Product University, Аркадий Морейнис, Алексей Черняк
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57537.jpg" />
 </div>
 
 
@@ -454,7 +483,7 @@ Product University | Анализ данных с AI (2023) WEB-DL [AD] [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57534.jpg" />
 </div>
 
 
@@ -483,7 +512,7 @@ Product University, Аркадий Морейнис, Алексей Черняк
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57438.jpg" />
 </div>
 
 
@@ -512,7 +541,7 @@ Product University, Аркадий Морейнис, Алексей Черняк
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57432.jpg" />
 </div>
 
 
@@ -541,7 +570,7 @@ Zrobim architects | Авторский курс интерьерного диз�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57354.jpg" />
 </div>
 
 
@@ -569,7 +598,7 @@ Blender Market, Jean-yan BABOIS | The Ride - A Blender Car Animation Course (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57252.jpg" />
 </div>
 
 
@@ -596,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57134.jpg" />
 </div>
 
 
@@ -625,7 +654,7 @@ Udemy, Александр Малейко | Тестирование API (Postman
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57120.jpg" />
 </div>
 
 
@@ -653,7 +682,7 @@ Grasser, Алёна Ижак | Курс по пошиву нижнего бел�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57087.jpg" />
 </div>
 
 
@@ -682,7 +711,7 @@ CG Masters, Chris Plush | 3D Cars: Inside and Out in Blender [Chapters 1-37] (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56959.jpg" />
 </div>
 
 
@@ -694,35 +723,6 @@ Subsurface моделирование - важный рабочий процес
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4E4E79F09F32821EAD3C9836C4AE792B2F7C4E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722419   (56926) от 11.05.2024
-
-GeekBrains | Факультет дизайна (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Длительность курса 18 месяцев при обучении 2-3 занятия в неделю.
-После обучения Вы сможете:
-✅Работать в Figma, Photoshop, Illustrator, After Effects, InVision, Tilda
-✅Создавать фирменный стиль бренда и дизайн полиграфической продукции(   Читать дальше...   )Производство: GeekBrainsЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 329:22:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5E3141C1DE589EB5DB23D97776461798D381398
 ```
 
 https://mybot314.ru/tekegram_catalog/

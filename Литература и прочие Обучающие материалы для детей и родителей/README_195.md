@@ -1,3 +1,55 @@
+###  Публикация: 1033961   (635813) от 12.07.2016
+
+В.Г. Борисов | Юный радиолюбитель (5-е изд.) (1972) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635813.jpg" />
+</div>
+
+
+###  Подробнее
+
+В форме популярных бесед книга знакомит читателей с историей и развитием радио, с элементарной электро- и радиотехникой, с современным применением радиоэлектроники. Она содержит около 50 описаний различных по сложности конструкций приемников и усилителей низкой частоты, радиоузла, аппаратуры для радиоспорта, электромузыкальных инструментов, автоматически действующих (   Читать дальше...   )Жанр: РадиоэлектроникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D515EC4062C4B17BD378882F088C26851ECD7BD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907958   (635729) от 13.06.2015
+
+Л. Киселев | Ремонт жилья и школы (1948) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Прочие материалы для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635729.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мелкий ремонт жилья и школы - дело нетрудное, его может выполнить бригада школьников при помощи самых простых приспособлений, инструментов и материалов.Жанр: Строительство, ремонтФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3496A4486A3B20CEE8A7F5E2437EEC030A196CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 907983   (635728) от 13.06.2015
 
 О. Л. Соболева, В. В. Агафонов | Тайны страны Акитаммарг, или удивительные путешествия с Запятайкиным (1994) [PDF]
@@ -6,7 +58,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635728.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635500.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635396.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635393.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635327.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635324.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635220.jpg" />
 </div>
 
 
@@ -194,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_635161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635161.jpg" />
 </div>
 
 
@@ -221,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634965.jpg" />
 </div>
 
 
@@ -248,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634879.jpg" />
 </div>
 
 
@@ -274,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634847.jpg" />
 </div>
 
 
@@ -300,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634759.jpg" />
 </div>
 
 
@@ -328,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634361.jpg" />
 </div>
 
 
@@ -354,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634234.jpg" />
 </div>
 
 
@@ -381,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634196.jpg" />
 </div>
 
 
@@ -409,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634184.jpg" />
 </div>
 
 
@@ -435,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_634175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634175.jpg" />
 </div>
 
 
@@ -462,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633986.jpg" />
 </div>
 
 
@@ -488,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633950.jpg" />
 </div>
 
 
@@ -516,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633877.jpg" />
 </div>
 
 
@@ -542,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633873.jpg" />
 </div>
 
 
@@ -568,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633863.jpg" />
 </div>
 
 
@@ -594,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633855.jpg" />
 </div>
 
 
@@ -621,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633829.jpg" />
 </div>
 
 
@@ -633,60 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A62821106B569FCE3F1559C2971CAAA4CD4BE1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543064   (633816) от 09.04.2022
-
-Тур Оге Брингсвярд | Руффен и «Летучий голландец» (2020) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633816.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тур Оге Брингсвярд – очень известный писатель. Он сочиняет книги и для взрослых, и для детей. Но самый знаменитый его герой – Руффен, маленький морской змей.
-Однажды Руффен увидел корабль-призрак – «Летучий голландец». Все его боятся, считают, что встреча с ним приносит несчастья. Капитан корабля обречен вечно скитаться по морям и океанам. А Руффену жаль Капитана. (   Читать дальше...   )Жанр: Детская литература, Приключения, СказкаПеревод: Ольга ДроботФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:277EFEEC11274CDB4B7CE15A9121833D2BBD5A3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908248   (633758) от 14.06.2015
-
-Е. Ф. Рау, В. И. Рождественская | Исправление недостатков произношения у школьников (1980) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Логопедия, Психология, Педиатрия
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_633758.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии даются методические рекомендации по постановке правильного произношения различных звуков, приводится примерное планирование занятий с детьми, имеющими нарушения произношения.
-Книга рассчитана на учителей-логопедов массовых школ.Жанр: Педагогика, Пособие для логопедовФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C437FC203CF63F3949AF3260372C75D832A794F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

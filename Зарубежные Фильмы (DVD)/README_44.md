@@ -1,81 +1,3 @@
-###  Публикация: 1255308   (363968) от 18.10.2018
-
-Логан / Logan (2017) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363968.jpg" />
-</div>
-
-
-###  Подробнее
-
-В недалеком будущем уставший от жизни Логан заботится о больном профессоре Икс, который прячется неподалеку от мексиканской границы. Но Логан больше не сможет скрывать свое прошлое, когда встретится с юным мутантом, которого преследуют темные силы.Производство: США / 20th Century Fox, TSG Entertainment, Marvel EntertainmentЖанр: Фантастика, боевик, триллер, драмаРежиссер: Джеймс МэнголдАктеры: Хью Джекман, Патрик Стюарт, Дафни Кин, Бойд Холбрук, Стивен Мерчант, Элизабет Родригес, Ричард Э. Грант, Эрик Ла Салль, Элиз Нил, Куинси ФаусПеревод: Дублированный (лицензия)Субтитры: Русские, английские, эстонские, латышские, литовские, украинскиеПродолжительность: 02:11:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E66ED0FC49E1E72CBB751B1F4CA803FD0152647
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255303   (363833) от 18.10.2018
-
-Под покровом ночи / Nocturnal Animals (2016) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363833.jpg" />
-</div>
-
-
-###  Подробнее
-
-У Сьюзен роскошная жизнь в Лос-Анджелесе, прекрасный муж и собственная галерея. Но однажды она получает неожиданную посылку от бывшего супруга — он хотел бы встретиться, но сначала просит прочитать его новый роман. Сьюзен не подозревает, что как только она откроет рукопись, она вернется в прошлое, которое считала надежно укрытым под покровом ночи.Производство: США / Universal Pictures, Focus Features, Fade to Black ProductionsЖанр: Триллер, драма, мелодрама, криминалРежиссер: Том ФордАктеры: Эми Адамс, Джейк Джилленхол, Майкл Шеннон, Аарон Тейлор-Джонсон, Айла Фишер, Элли Бамбер, Арми Хаммер, Карл Глусман, Роберт Арамайо, Лора ЛинниПеревод: Дублированный (лицензия)Субтитры: Русские, английские, чешские, венгерские, польские, греческие, болгарские, эстонские, латышские, литовские, румынские, словенскиеПродолжительность: 01:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C92DB494E63E4170EB965BF998410E2D795BB7B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255335   (363630) от 18.10.2018
-
-Заклятие 2 / The Conjuring 2 (2016) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363630.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на случае, с которым столкнулись практикующие исследователи паранормальных явлений Эд и Лоррэйн Уоррены. На этот раз вызов будет из северного пригорода Лондона, где семья, состоящая из четырех детей и матери-одиночки, подвергается нападениям потусторонних сил. Супругам предстоит выяснить, какова природа этих явлений, полтергейст ли это, или что-то другое, (   Читать дальше...   )Производство: Канада, США / Warner Bros., New Line Cinema, RatPac-Dune EntertainmentЖанр: Ужасы, триллер, детективРежиссер: Джеймс ВанАктеры: Патрик Уилсон, Вера Фармига, Мэдисон Вульф, Фрэнсис О’Коннор, Лорен Эспозито, Саймон МакБерни, Мария Дойл Кеннеди, Саймон ДеланиПеревод: Дублированный (лицензия)Субтитры: Русские, английские, чешские, эстонские, латышские, литовские, португальскиеПродолжительность: 02:08:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F70F6523714053DE31784BA1C93FDFFF9D95DB22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1255322   (363620) от 18.10.2018
 
 Тарзан. Легенда / The Legend of Tarzan (2016) DVD9
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363620.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363619.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363459.jpg" />
 </div>
 
 
@@ -162,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363454.jpg" />
 </div>
 
 
@@ -188,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363453.jpg" />
 </div>
 
 
@@ -214,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363274.jpg" />
 </div>
 
 
@@ -240,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363272.jpg" />
 </div>
 
 
@@ -266,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363261.jpg" />
 </div>
 
 
@@ -292,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363259.jpg" />
 </div>
 
 
@@ -318,7 +240,7 @@ Tomb Raider: Лара Крофт / Tomb Raider (2018) DVD9
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_363054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363054.jpg" />
 </div>
 
 
@@ -344,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_363033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_363033.jpg" />
 </div>
 
 
@@ -372,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_362869.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_362869.jpg" />
 </div>
 
 
@@ -398,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362780.jpg" />
 </div>
 
 
@@ -424,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362482.jpg" />
 </div>
 
 
@@ -451,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362479.jpg" />
 </div>
 
 
@@ -478,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361486.jpg" />
 </div>
 
 
@@ -504,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361480.jpg" />
 </div>
 
 
@@ -530,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361475.jpg" />
 </div>
 
 
@@ -556,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361350.jpg" />
 </div>
 
 
@@ -582,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361333.jpg" />
 </div>
 
 
@@ -608,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361236.jpg" />
 </div>
 
 
@@ -634,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361234.jpg" />
 </div>
 
 
@@ -660,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_361188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361188.jpg" />
 </div>
 
 
@@ -671,6 +593,86 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7FC82BE9B983689FDE1D2F41E7BF917CBA9B81F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255886   (361031) от 19.10.2018
+
+Тарзан. Легенда / The Legend of Tarzan (2016) DVD5 [Custom]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361031.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приспособившийся к жизни в Лондоне Тарзан возвращается в свой бывший дом, в джунгли, чтобы разобраться в том, что происходит в лагере горнодобывающей компании.Производство: Великобритания, Канада, США / Warner Bros., Village Roadshow Pictures, RatPac-Dune EntertainmentЖанр: Фэнтези, боевик, драма, мелодрама, приключенияРежиссер: Дэвид ЙейтсАктеры: Александр Скарсгард, Марго Робби, Сэмюэл Л. Джексон, Кристоф Вальц, Джимон Хонсу, Джим Бродбент, Каспер Крамп, Хэдли Фрайзер, Женевьев О’Рейли, Саймон Расселл БилПеревод: Дублированный (лицензия)Субтитры: Русские, английские, чешские, эстонские, латышские, литовские, португальскиеПродолжительность: 01:45:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:905AB692CB7939974AF298C2A0E7ED05F0E3B0D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255368   (361017) от 19.10.2018
+
+Золушка / Cinderella (2015) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361017.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отец молодой девушки по имени Элла, овдовев, женится во второй раз, и вскоре Элла оказывается один на один с жадными и завистливыми новыми родственницами — мачехой Леди Тремэйн и ее дочерьми — Анастасией и Дризеллой. Из хозяйки дома она превращается в служанку, вечно испачканную золой, за что и получает от своих сварливых сводных сестриц прозвище — Золушка.
+
+Несмотря (   Читать дальше...   )Производство: США, Великобритания / Walt Disney Pictures, Allison Shearmur Productions, Genre FilmsЖанр: Фэнтези, драма, мелодрама, семейныйРежиссер: Кеннет БранаАктеры: Лили Джеймс, Кейт Бланшетт, Ричард Мэдден, Хелена Бонем Картер, Нонсо Анози, Стеллан Скарсгард, Софи МакШера, Холлидей Грейнджер, Дерек Джекоби, Бен ЧаплинПеревод: Дублированный (лицензия)Субтитры: Русские, английскиеПродолжительность: 01:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97F93F4C9902DB7F99008D686A2B7FF91A77223F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255863   (361012) от 19.10.2018
+
+Под покровом ночи / Nocturnal Animals (2016) DVD5 [Custom]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361012.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Сьюзен роскошная жизнь в Лос-Анджелесе, прекрасный муж и собственная галерея. Но однажды она получает неожиданную посылку от бывшего супруга — он хотел бы встретиться, но сначала просит прочитать его новый роман. Сьюзен не подозревает, что как только она откроет рукопись, она вернется в прошлое, которое считала надежно укрытым под покровом ночи.Производство: США / Universal Pictures, Focus Features, Fade to Black ProductionsЖанр: Триллер, драма, мелодрама, криминалРежиссер: Том ФордАктеры: Эми Адамс, Джейк Джилленхол, Майкл Шеннон, Аарон Тейлор-Джонсон, Айла Фишер, Элли Бамбер, Арми Хаммер, Карл Глусман, Роберт Арамайо, Лора ЛинниПеревод: Дублированный (лицензия)Субтитры: Русские, английские, чешские, венгерские, польские, греческие, болгарские, эстонские, латышские, литовские, румынские, словенскиеПродолжительность: 01:51:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E8D158CF04A6E8B44404CB8388CD7DD8EEE85A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

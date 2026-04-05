@@ -1,3 +1,55 @@
+###  Публикация: 1742122   (47258) от 10.08.2024
+
+Deathbound (2024) [Ru/Multi] (1.1.3) Scene FairLight
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deathbound - действие игры разворачивается в средневековом мире Зиеминал, в котором технологическое прошлое сочетается со средневековым настоящим и где сталкиваются жизнь и смерть. В Deathbound игроки управляют существом, которое является результатом экспериментов по обретению вечной жизни, проводимых Культом Жизни. Тем временем Церковь Смерти отправляется в крестовый (   Читать дальше...   )Тип издания: SceneРазработчик: Trialforge StudioЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E3C34756C83D6D11A15969387563A19D65407B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742139   (47241) от 10.08.2024
+
+That Time I Got Reincarnated as a Slime ISEKAI Chronicles (2024) [Multi] (1.01) Scene Tenoke
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Присоединитесь к любимым героям аниме-сериала и станьте творцом новой истории о Федерации Джуры-Темпеста! Игроков ждут захватывающие бои с использованием эффектных способностей и мощных комбо-атак. Укрепляйте дружбу со своими соратниками, чтобы сражаться с ними плечом к плечу и открывать для Римуру новые спецатаки. Применяйте анимированные в 8-битном стиле спецнавыки (   Читать дальше...   )Тип издания: SceneРазработчик: ZOC Co.,Ltd.Жанр: Экшены, Ролевые игрыЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Немецкий, Французский, Китайский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Китайский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:198A87EB17BFD522D9888E392F832D3378EEF93C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1672609   (47093) от 12.08.2024
 
 Voltaire: The Vegan Vampire (2023) [Multi] (1.03.3) License GOG
@@ -6,7 +58,7 @@ Voltaire: The Vegan Vampire (2023) [Multi] (1.03.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47093.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Atlas Fallen (2023) [Ru/Multi] (1.118888.1721314771/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47090.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ The Thaumaturge (2024) [Ru/Multi] (73.424/dlc) Repack Decepticon [Digital Deluxe
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47087.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Deathbound (2024) [Ru/Multi] (1.1.3) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47070.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ That Time I Got Reincarnated as a Slime ISEKAI Chronicles (2024) [Multi] (1.01/d
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47062.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Space Prison (2024) [Ru/Multi] (1.0.6/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47000.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Artifact Seeker (2024) [Ru/Multi] (1.2.8/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46990.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Atlas Fallen (2023) [Ru/Multi] (1.118888/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46981.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ One More Night (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46892.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Old School RPG (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46753.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Tale of Immortal (2021) [Multi] (1.1.103.259/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46731.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ The Last Case of Benedict Fox (2023) [Multi] (1.40.2.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46549.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46432.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Shoulders of Giants: Ultimate (2024) [Multi] (1.9.1) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46343.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Hero's Adventure: Road to Passion (2023) [Multi] (1.2.0813b65/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46216.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ In Woods (2022) [Ru/Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46132.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Old School RPG (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46030.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ For The King II (2023) [Ru/Multi] (1.2.15/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45949.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Yog-Sothoth’s Yard (2023) [Multi] (1.0.11/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45915.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Trinity Trigger (2024) [Multi] (1.0.5/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45895.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Hellcard (2024) [Ru/Multi] (1.1.240821/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45746.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Yohane the Parhelion - NUMAZU in the MIRAGE - (2024) [Multi] (1.0.14/dlc) Scene 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45725.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Elemental Exiles / Странники стихий (2024) [Ru/Multi] (1.0) Scene
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45720.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Rise Eterna War (2024) [Multi] (20240813 2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45703.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Rise Eterna War (2024) [Multi] (20240813 2) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5779841EE1404F51ECF57DE116CB500F9B002840
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745190   (45695) от 25.08.2024
-
-Cavalry Girls (2023) [Multi] (1.1.1715/dlc) Scene Tenoke
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45695.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cavalry Girls - захватывающий шутер с видом сверху вниз, который погружает в футуристический мир, где отважные и бесстрашные девушки-солдаты сражаются с неумолимыми врагами. В этой увлекательной игре органично сочетаются экшен, стратегия и кастомизация, что обещает захватывающий игровой процесс. В мире, где универсальный минерал "нефрит" способствует революции (   Читать дальше...   )Тип издания: SceneРазработчик: 中子星游戏研究所Жанр: Инди, Ролевые игры, СтратегииЯзык озвучки: Английский, Китайский, ЯпонскийЯзык субтитров: Английский, Китайский (упрощенный, традиционный), ЯпонскийЯзык интерфейса: Английский, Китайский (упрощенный, традиционный), Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0188C966C560D93BB691A96CCB35C6A0143DB07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745169   (45656) от 25.08.2024
-
-Heroes of Eternal Quest (2024) [Multi] (1.1.2) Scene Tenoke
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Heroes of Eternal Quest – окунитесь с головой в настоящее бесконечное приключение, приправленное множеством испытаний. Собирайте полезные ресурсы, займитесь строительством зданий, откройте немало таинственных карт и встаньте во главе группы героев. Отправьтесь в неизведанное и покорите Башню Осколков, чтобы освободиться от своей незавидной судьбы. Никто и не ожидал (   Читать дальше...   )Тип издания: SceneРазработчик: Drakkar Game StudioЖанр: Ролевые игры, СтратегииЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Французский, Немецкий, Китайский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Китайский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:082EA33DCC5C57E6D100065FFA8082FA9102442F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Def Leppard - And there will be a next time... Live from Detroit (2017) Blu-ray 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_883204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883204.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881182.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881048.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880537.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Def Leppard - And there will be a next time... Live from Detroit (2017) BDRip [H
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879644.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ Def Leppard - And there will be a next time... Live from Detroit (2017) BDRip [H
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_877893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877893.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ Metallica – Quebec Magnetic (2012)[iTunes Movie – HD]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_871597.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871597.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870798.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870602.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ Pink Floyd - The Later Years 1987-2019 (2019) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870240.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870239.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Styx And The Contemporary Youth Orchestra: One With Everything (2006) [1080i] Bl
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868053.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867871.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867871.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867599.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Scorpions: Moment of Glory (Live with the Berlin Philharmonic Orchestra) (2000/2
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863376.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Caro Emerald - Montreux Jazz Festival 2015 (2015) HDTVRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860581.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860457.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Kiss - Live At Rock Am Ring (2010) HDTV[1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859621.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858545.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857673.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857673.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Status Quo - The Last Night Of The Electrics 2016 (2017) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_855893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855893.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Within Temptation - Let Us Burn (Elements & Hydra Live In Concert) (2014) BDRip 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_852151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852151.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Nightwish - Vehicle of Spirits (2015) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_851368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851368.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Eagles - Live at the Capital Centre (1977) BDRip [H.264/1080p] [audio - self mad
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_849784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849784.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846415.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_846388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846388.jpg" />
 </div>
 
 

@@ -1,3 +1,61 @@
+###  Публикация: 1206465   (782158) от 14.02.2018
+
+VA - Progressive Trance Vol.1 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Roman Messer & Roxanne Emery  -  Lullaby (Original Mix)  3:56
+02.  WeareD  -  Through The Universe (Original Mix)  3:04
+03.  Aelyn  -  Water & Fire (Ruslan Radriges Remix)  3:49
+04.  Huem  -  Ryzen (Original Mix)  3:34(   Читать дальше...   )Жанр: TranceПродолжительность: 00:54:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56A7382E7CD40CF685449156091D32C1089E48C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206535   (782157) от 14.02.2018
+
+VA - Club Masters Vol.15 (2018) [MP3|320 Kbps] <Future House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  BAZZFLOW  -  Lost In You (Bragaa Remix)  4:21
+02.  Menshee  -  All Night (Original Mix)  4:06
+03.  Jean Beatz  -  Future (Original Mix)  5:54
+04.  Terri B! & Slippy Beats  -  Deep In The Night (Original Mix)  5:56(   Читать дальше...   )Жанр: Future House, ProgressiveПродолжительность: 01:31:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:127C4E26F6B74D4C60A54BFF8414F87E1FC1982C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206501   (782155) от 14.02.2018
 
 Facechain - Accensor (2018) Dream Catalogue [FLAC|Lossless|WEB-DL|tracks] <Techno, IDM, Ambient>
@@ -6,7 +64,7 @@ Facechain - Accensor (2018) Dream Catalogue [FLAC|Lossless|WEB-DL|tracks] <Techn
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782155.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782155.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Deep Progressive House Set (2018) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782150.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Dinner In Love (Romantic Lounge Music Playlist) (2018) [MP3|320 Kbps] <Bale
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782149.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Chillout Empire Costa Del Sol Selection (2018) [MP3|320 Kbps] <Downtempo, C
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782147.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Workout Music, Vol. 8 (2018) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782123.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - The Dream - Best Of Torsten Fenslau (1994) 2CD [MP3|320 Kbps] <Electronic, 
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782113.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Faithless - Forever Faithless: The Greatest Hits (2005) Limited Edition [FLAC|Lo
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782101.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Tângela (Tangela) - Dolphin Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa 
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781884.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Trancetorn - Sonic Experience (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Tran
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781880.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Universal Frequencies, Vol.1-10 (2014-2020) [FLAC|Lossless|WEB-DL|tracks] <
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781813.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Fluida - Branches (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781742.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Territories (2017) 79Ancestors [FLAC|Lossless|WEB-DL|tracks] <Ambient, Expe
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781740.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Ekke - Klangfarbenmodular (2018) Detroit Underground [FLAC|Lossless|WEB-DL|track
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781738.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Zero Cult - Tangoa (2018) Cosmicleaf Records [FLAC|Lossless|WEB-DL|tracks] <Tech
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781718.jpg" />
 </div>
 
 
@@ -410,7 +468,7 @@ Physical Dreams - Ambient Sounds (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781705.jpg" />
 </div>
 
 
@@ -439,7 +497,7 @@ Propellerheads - Decksandrumsandrockandroll (Delux) (1998) Virgin [FLAC|Lossless
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781694.jpg" />
 </div>
 
 
@@ -468,7 +526,7 @@ Scrap.edx | Scrape[dx] - Discography 7 Releases (2001-2009) DTA Records, Hands P
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781690.jpg" />
 </div>
 
 
@@ -497,7 +555,7 @@ Burn in Noise - We Stand (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_781415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_781415.jpg" />
 </div>
 
 
@@ -526,7 +584,7 @@ Boris Brejcha - Cocoloco (Live Stream Part 2) (2020) [FLAC|Lossless|WEB-DL|track
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781404.jpg" />
 </div>
 
 
@@ -555,7 +613,7 @@ Phon.O - Collection 16 Releases (2005-2020) 50Weapons, Shitkatapult, BPitch Cont
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781400.jpg" />
 </div>
 
 
@@ -581,7 +639,7 @@ VA - Freaky House 2018 [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781337.jpg" />
 </div>
 
 
@@ -610,7 +668,7 @@ VA - Back To Love 3 (2001) [FLAC|Lossless|tracks] <Acid House, House, Disco, Dee
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781334.jpg" />
 </div>
 
 
@@ -639,7 +697,7 @@ LTO - Storybook (2017) Injazero Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, 
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781333.jpg" />
 </div>
 
 
@@ -668,7 +726,7 @@ VA - WInter 2018 - Best Of Inception (2018) [MP3|320 Kbps] <Progressive House, P
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781323.jpg" />
 </div>
 
 
@@ -682,64 +740,6 @@ VA - WInter 2018 - Best Of Inception (2018) [MP3|320 Kbps] <Progressive House, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C49F6B1B3D0DA41A444FAB5802F7E3FABA714575
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206944   (781319) от 16.02.2018
-
-VA - Dave202 - Backstage Hits (2018) [MP3|320 Kbps] <House, Future House, Big Room>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dave202  -  Open Up Your Heart (Original Club Mix)  4:26
-02.  Dave202 & Gino G  -  Along With You (Extended Mix)  4:33
-03.  Dave202 & Gino G  -  Like An Animal (Club Mix)  4:15
-04.  Dave202  -  Kimura (Original Club Mix)  4:44(   Читать дальше...   )Жанр: House, Future House, Big Room, Electro HouseПродолжительность: 02:54:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:655303D3294844E7536DF1F99C4118757935B34A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206914   (781317) от 16.02.2018
-
-VA - Deep Progressive House Set | Mixed by Johnny M (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Johnny M - Deep Progressive House Set (Dj Continuous Mix) (2:01:36)
-02. Nahuel Carrizo - Blind in the Mist (Original Mix) (8:44)
-03. Robert R. Hardy - Sensus (GMJ Rmx) (9:14)
-04. Robert R. Hardy - Chasing Pleasure (Silinder Rmx) (9:01)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 04:22:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A98CA3BA4109400723AEED5866D75D37527ECCA1
 ```
 
 https://mybot314.ru/tekegram_catalog/

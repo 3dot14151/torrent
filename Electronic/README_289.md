@@ -1,3 +1,119 @@
+###  Публикация: 1565430   (494663) от 23.07.2022
+
+VA - Above & Beyond - Anjunabeats Volume 16 (2022) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Jordin Post; Dan Soleil -  Deserve You (Intro Mix)  (4:46)
+02.  Deeparture; Belle Doron -  Brake  (4:14)
+03.  ANUQRAM -  Get On  (4:51)
+04.  Avenue One -  Upstairs Terrace  (4:56)(   Читать дальше...   )Жанр: Progressive House, Trance, DJ MixПродолжительность: 02:46:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69782C59A15EB8602B68B65E62729504A802961C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243306   (494210) от 26.08.2018
+
+Fennesz & Ryuichi Sakamoto - Cendre (2007) Touch [FLAC|Lossless|tracks+.cue] <Ambient, Modern Classical, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oto (03:49)
+02. Aware (04:46)
+03. Haru (04:39)
+04. Trace (05:46)(   Читать дальше...   )Жанр: Ambient, Modern Classical, ExperimentalПродолжительность: 00:51:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83476CD2C1F57B87DA2403959034AC33CB24D7FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936216   (493859) от 12.09.2015
+
+Duran Duran - Paper Gods (2015) Deluxe Edition [MP3|320 кб/с]<New Wave, Pop Rock>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paper Gods (feat. Mr Hudson)
+02. Last Night In The City (feat. Kiesza)
+03. You Kill Me With Silence
+04. Pressure Off (feat. Janelle Monáe & Nile Rodgers)(   Читать дальше...   )Жанр: New Wave, Pop RockПродолжительность: 01:10:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7888DECD9D05E0B6D29A0BE5866ED2A67AC9103D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158427   (493824) от 15.08.2017
+
+VA - Full Moon Dinner Chillout, Vol. 1 (Finest Romantic Dinner Music) (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James Butler - Dinner in Milano
+02. Alexander S. Karlov - Sex With Yoga
+03. Martin Liege - Doin It
+04. Castlebed - Cartoon Mountains(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:11:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:211B620D1CF72738E541C0196A6F2519B50B8A19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1158085   (493705) от 15.08.2017
 
 VA - Chill-Out Music Market (Take-It-Easy Tunes) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -6,7 +122,7 @@ VA - Chill-Out Music Market (Take-It-Easy Tunes) (2017) [MP3|320 Kbps] <Downtemp
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493705.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Summer Cocktail Lounge (Ibiza Beach Chillout Classics) (2012) [MP3|320 кб
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493591.jpg" />
 </div>
 
 
@@ -61,7 +177,7 @@ Depeche Mode - Spirit / Live in BBC 6 Music Festival (2017) 2CD [FLAC|Lossless|t
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493328.jpg" />
 </div>
 
 
@@ -91,7 +207,7 @@ VA - 50 Vocal Dance Hits 2020 - Best Of EDM Playlist Compilation [MP3|320 Kbps] 
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493217.jpg" />
 </div>
 
 
@@ -120,7 +236,7 @@ Vanello - Planet Synth (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Italod
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493121.jpg" />
 </div>
 
 
@@ -149,7 +265,7 @@ Paul Denton - Live @ Trance Room, Bahrein Club Buenos Aires, Argentina 2019-06-2
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492849.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492849.jpg" />
 </div>
 
 
@@ -178,7 +294,7 @@ Mexico City Blondes - Blush (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop, Tri
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492833.jpg" />
 </div>
 
 
@@ -207,7 +323,7 @@ Denner (FR) - Shades & Parasols (2022) [MP3|320 Kbps] <French Coldwave, New Wave
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492461.jpg" />
 </div>
 
 
@@ -236,7 +352,7 @@ Digital Emotion - The Freaks (2013) [FLAC|Lossless|WEB-DL|tracks] <Tech House, T
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492435.jpg" />
 </div>
 
 
@@ -265,7 +381,7 @@ VA - Vocal House Essentials Vol.2 (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492096.jpg" />
 </div>
 
 
@@ -294,7 +410,7 @@ Frameworks - Kings (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo, Exp
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492086.jpg" />
 </div>
 
 
@@ -323,7 +439,7 @@ Art-Tek Records - Label-Pack 9 Releases (1997-2006) [FLAC|Lossless|tracks+.cue, 
 >>Label-Packs
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491905.jpg" />
 </div>
 
 
@@ -352,7 +468,7 @@ Enabl.ed - Discography 15 Releases (2010-2020) CleanError Records, M-Tronic [FLA
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491108.jpg" />
 </div>
 
 
@@ -381,7 +497,7 @@ A Hundred Birds - In The Sky (2005) [MP3|320 Kbps] <Ambient, Leftfield>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490988.jpg" />
 </div>
 
 
@@ -410,7 +526,7 @@ Remix Sport Workout - Hard Body Training 2019 [MP3|320 Kbps] <Funky, Club House,
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490888.jpg" />
 </div>
 
 
@@ -439,7 +555,7 @@ Berlin - Transcendance (2019) Cleopatra Records [FLAC|Lossless|WEB-DL|tracks] <E
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490773.jpg" />
 </div>
 
 
@@ -468,7 +584,7 @@ S.K.E.T. - Collection 4 Releases (2005-2017) Hands Productions [FLAC|Lossless]<R
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490762.jpg" />
 </div>
 
 
@@ -497,7 +613,7 @@ Sex Music, Slow Sex Music, Music For Sex - Relaxing Instrumental Music For Sex (
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490606.jpg" />
 </div>
 
 
@@ -526,7 +642,7 @@ Brazilian Lounge Project, DJ Infinity Night, Sexy Chillout Music Cafe & Ministry
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490487.jpg" />
 </div>
 
 
@@ -555,7 +671,7 @@ VA - Katermukke Playground XVI (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490423.jpg" />
 </div>
 
 
@@ -584,7 +700,7 @@ VA - Autumn Impressions: Hottest Lounge and Chillout Tracks (2016) [MP3|320 Kbps
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490416.jpg" />
 </div>
 
 
@@ -613,7 +729,7 @@ VA - Suanda Spring Vol.5 (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490230.jpg" />
 </div>
 
 
@@ -627,122 +743,6 @@ VA - Suanda Spring Vol.5 (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6E7CAD4AA3A34A000858BF61EC6579D77328FCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243608   (490226) от 28.08.2018
-
-VA - Trance Revolution 8 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arcania - This Means War (Radio Edit)
-02. Brent Rix - Hyper Drive (Radio Edit)
-03. Sven E - Horizons (Radio Edit)
-04. Skysound - Project X (Radio Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:32:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0657F88E77FE13FD30BED8412BEB00124DAA1A16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243609   (490225) от 28.08.2018
-
-VA - Trance Anthems 7 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Delta - Back In My Life (DJ Osip Radio Edit)
-02. Brent Rix - Solar Flare (Radio Edit)
-03. Martin Soundriver & Skysound - Project X (Radio Edit)
-04. Arcania - This Means War (Radio Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:31:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92D1073AB98FE2B513451F4F263B0B469AEAA640
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935933   (490189) от 14.09.2015
-
-VA - Mind Technologies Vol. 5 (2015) [MP3|320 кб/с]<Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ginyu Force - Turn To Dust
-02. Signal - Existence
-03. 4Flexx - Psychological Impact
-04. Flare - Supression(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:26:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26361FA72248563A329AC2A702D98CC80E76F6E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158807   (490183) от 17.08.2017
-
-VA - Ori Uplift & Kevin 3Ngel - Uplifting Only 235 (2017) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.BREAKDOWN OF THE WEEK: Suplifth - Victory (AirLab7 Remix)
-02.PRE-RELEASE PICK: New World - Ikigai
-03.Follow Focus - Synchronous Idle (EXCLUSIVE PREMIERE)
-04.James Kelly & Craig Johnstone - Return To Reality(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:04:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC21A01AD96DA8A279E984767E8376FF655AA2D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

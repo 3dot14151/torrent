@@ -1,3 +1,116 @@
+###  Публикация: 1553084   (584641) от 23.05.2022
+
+ЭкоГид: Грибы - Определитель v1.0.4 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584641.jpg" />
+</div>
+
+
+###  Подробнее
+
+ПОЛЕВОЙ определитель и атлас-энциклопедия грибов России, с помощью которого можно ОПРЕДЕЛИТЬ название гриба по морфологическим и экологическим признакам! 329 ВИДОВ ГРИБОВ
+В определитель включены Сумчатые и Базидиальные грибы, распространенные в пределах лесной и лесостепной зон от западных границ России до Дальнего Востока. Из Сумчатых это строчки, сморчки, пецицы (   Читать дальше...   )Тип издания: Пиратка (разблокирован Pro)Релиз состоялся: 27.09.2021Разработчик: EcosystemaПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6F94B021966E95FEDDAAB906BA5639579C238A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527514   (584510) от 23.05.2022
+
+Компьютер: основы v3.0 [Ru] (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение содержит статьи, связанные с компьютерными технологиями.
+В приложении присутствуют 4 раздела:
+1. Аппаратное обеспечение 🖥️
+2. Сборка ПК ⚙️(   Читать дальше...   )Тип издания: Пиратка (AdFree - удалена реклама)Релиз состоялся: 19 мая 2022 г.Разработчик: SergeyV AppsПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:046831798E44D3DC00D992D69058F352EDAD3699
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301800   (584004) от 12.05.2019
+
+Поздравления на все случаи v1.2 Free и LiteMod [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584004.jpg" />
+</div>
+
+
+###  Подробнее
+
+В нашей жизни праздники занимают далеко не последнее место.
+Многие из вас хотели бы преподнести поздравительный сюрприз своим близким, друзьям, любимым, коллегам по случаю Дня Рождения или другого праздника, чтобы это событие осталось в памяти надолго.
+Необходимо подписать открытку С Днем Рождения, отправить СМС к Празднику, найти застольные Пожелания и Тосты или (   Читать дальше...   )Тип издания: Free и LiteModРелиз состоялся: 24.12.2018Разработчик: BIBAPPSПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67E2474CCAD335CF8BB2EC460401643F1D5F57D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 825308   (580701) от 21.07.2015
+
+High-Speed Camera Plus v3.1.0 [Ru/Multi] - высокоскоростная камера
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580701.jpg" />
+</div>
+
+
+###  Подробнее
+
+Высокоскоростная камера (до 40 кадров/сек). Превратите свой смартфон в бесшумную Высокоскоростную Камеру! И никогда не упускайте важных моментов! Создавайте анимированные GIF. Различные затворы камеры (высокоскоростной, High-Definition, Тихий). Простота в использовании:
+- Переключение авто и ручного сохранения
+- Встроенная фото галерея
+- Светодиодный фонарик(   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 20.07.2015Разработчик: HANTORПоддерживаемая ОС: Android 2.3+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73FD396E8A6432DAC1028A3663370FFA40CD1C77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1496165   (579779) от 28.05.2022
 
 KinoTrend v2.2.4 [Ru/En] (обновляемая)
@@ -6,7 +119,7 @@ KinoTrend v2.2.4 [Ru/En] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_579779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579779.jpg" />
 </div>
 
 
@@ -32,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577644.jpg" />
 </div>
 
 
@@ -58,7 +171,7 @@ YARVITTO v3.18 Pro [Ru/Multi] - путеводитель по Европе и н
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575747.jpg" />
 </div>
 
 
@@ -84,7 +197,7 @@ All GPS Tools Pro v2.6.2 + Mod [En] (Compass, Weather, Map Location)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575628.jpg" />
 </div>
 
 
@@ -110,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575055.jpg" />
 </div>
 
 
@@ -136,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_574995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574995.jpg" />
 </div>
 
 
@@ -162,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573239.jpg" />
 </div>
 
 
@@ -188,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_571960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571960.jpg" />
 </div>
 
 
@@ -214,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_568461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568461.jpg" />
 </div>
 
 
@@ -242,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566447.jpg" />
 </div>
 
 
@@ -268,7 +381,7 @@ Learn English - Listening and Speaking v6.3.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556995.jpg" />
 </div>
 
 
@@ -295,7 +408,7 @@ FaceLab: Face Editor, Voila! v2.6.1 Pro [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556862.jpg" />
 </div>
 
 
@@ -321,7 +434,7 @@ Adguard Premium 2.9.136 Final [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556642.jpg" />
 </div>
 
 
@@ -348,7 +461,7 @@ Text Scanner [OCR] v9.3.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556324.jpg" />
 </div>
 
 
@@ -374,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555530.jpg" />
 </div>
 
 
@@ -403,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_555516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555516.jpg" />
 </div>
 
 
@@ -429,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_554989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554989.jpg" />
 </div>
 
 
@@ -455,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553452.jpg" />
 </div>
 
 
@@ -484,7 +597,7 @@ VidTrim Pro - Video Editor v2.6.1 [Ru/Multi] - видеоредактор
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_553413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553413.jpg" />
 </div>
 
 
@@ -510,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551834.jpg" />
 </div>
 
 
@@ -536,7 +649,7 @@ Cloud Radio Pro ( Record & Lyrics ) v5.3.1 [Ru/Multi] - Онлайн радио 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551355.jpg" />
 </div>
 
 
@@ -562,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_551301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551301.jpg" />
 </div>
 
 
@@ -573,112 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A03617318740200B0DEF0321B7CF24152523A80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003060   (549996) от 20.06.2019
-
-Screen Translator Plus v3.2.1 [Ru/Multi] - Переводчик буфера обмена в любом приложении Android
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_549996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Переводчик буфера обмена! Работает в любом приложении! Выделить и скопировать - два простых шага, для того, что бы перевести сообщение в любом приложении на вашем смартфоне. Без необходимости переключаться в другие приложения. С помощью быстрого переключения языков вы сможете общаться с людьми на любых языках! Работает во всех мессенджерах. Три системы перевода на (   Читать дальше...   )Тип издания: Пиратка (Full)Релиз состоялся: 05.12.2018Разработчик: uxnameПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11535DB5AF08E6D00A3BAC2CD066438412A0E6DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310346   (547567) от 23.06.2019
-
-Сильные утренние привычки v1.1.7 Premium [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_547567.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если быть честным это приложение было создано, потому что я хотел такое приложение, но нигде не мог найти. Либо содержание было настолько плоским, что советы дворника были бы полезнее, либо его не было совсем – только голый скелет с наваленными фичерами.  Я же хотел приложение, которое привычки объявит задачами и сформирует из них идеальную рутину, где нужно просто (   Читать дальше...   )Тип издания: Пиратка (открыт Premium)Релиз состоялся: 27.05.2019Разработчик: Icsus AppsПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C458592FA897EB0680AD1CE960A9D175630D20E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239512   (538294) от 05.08.2018
-
-Отрывной календарь эпохи 70-х v1.5.04 Pro [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что может быть лучше отрывного календаря для наблюдения за рекой времени? Этот календарь позволит вам ощутить вкус того времени, когда компьютеры еще не были встроены в каждый предмет в вашем доме. И каждый новый день отмечался новым сорванным листком календаря. В нашем приложении вы узнаете о знаменательных событиях в этот день произошедших в двадцатом веке. Стараясь (   Читать дальше...   )Тип издания: Пиратка (разблокирована Pro)Релиз состоялся: 09.09.2015Разработчик: Deniss TkatsjovПоддерживаемая ОС: Android 2.3+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C78B788E5D8E056E28171B3EC4EB796AA9D087E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925306   (535155) от 09.08.2015
-
-RunKeeper 5.8.3 [Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_535155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Присоединяйся к 26-миллионному сообществу пользователей RunKeeper, которые уже превратили телефон в личного карманного тренера! Отслеживай прогулки, пробежки, походы и поездки на велосипеде с помощью GPS на своем телефоне Android.
-Отслеживай физическую активность и получай при этом удовольствие:
-- Просматривай подробные статистики о темпе, дистанции, времени и сожженных (   Читать дальше...   )Релиз состоялся: 04.08.2015Разработчик: FitnessKeeper, Inc.Поддерживаемая ОС: Android 4.0 +Язык интерфейса: Русский, Английский, и другие.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AAEDA72C0A7DE108EAA39DCD73DA41CF0970BFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

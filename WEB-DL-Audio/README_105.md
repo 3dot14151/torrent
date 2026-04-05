@@ -6,7 +6,7 @@ Snoop Dogg - Iz It a Crime (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66776.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Karfagen - Omni (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Progressiv
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66769.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66765.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Bury Tomorrow - Will You Haunt Me, With That Same Patience (2025) [FLAC 24/44.1|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66760.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Hundredth - Faded Splendor (2025) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Indi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66759.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Nytt Land - Songs of the Shaman (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Da
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66757.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Rufige Kru, Goldie & Submotive - Alpha Omega (2025) [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66753.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Rokets - Bad Choices (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Ston
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66752.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Shanti Celeste - Romance (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dance, El
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66730.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Downward - Downward 2 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66713.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Nomy - Dreams And Lies (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66696.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Sheila E. - Bailar (2024) Deluxe, 2025, Sony Music Latin [FLAC 24/44.1|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66682.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Ballet Mecanico - Primera Secuencia (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66676.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Giant - Stand And Deliver (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66674.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Azure Riff - Thunder in My Heart (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66647.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Ben Joseph & The Lay-Lows - The Burns (2025) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66646.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66646.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Earnest 'Guitar' Roy - This Is Earnest 'Guitar' Roy (2025) [FLAC 24/48|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66645.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66645.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Brandon Santini - Which Way Do We Go? (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66644.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Bob Stroger & The Headcutters - Bob Is Back (2025) [FLAC 24/48|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66643.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Ace Monroe - Wild Card (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66642.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66641.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Charlie Musselwhite - Look Out Highway (2025) [FLAC 24/96|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66640.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Elles Bailey - Beneath the Neon Glow (Reimagined) (2025) [FLAC 24/44.1|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66639.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Inka Inka - Reconsider (1992) Special Edition, 2025, [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66637.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Degenerate - Rituals Of Rage (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66620.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66615.jpg" />
 </div>
 
 

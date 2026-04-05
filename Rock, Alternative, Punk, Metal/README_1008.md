@@ -1,3 +1,32 @@
+###  Публикация: 1665441   (181453) от 01.10.2023
+
+The Jeffrey Lee Pierce Sessions Project - The Task Has Overwhelmed Us (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Neofolk, Post-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mother of Earth [00:03:25]
+02. La La Los Angeles [00:02:36]
+03. Yellow Eyes [00:05:55]
+04. Debbie by the Christmas Tree [00:02:15](   Читать дальше...   )Жанр: Psychedelic Rock, Neofolk, Post-PunkПродолжительность: 01:19:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDA85D47638BBDC140B8DCBBE0C1093C6646D706
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427933   (181451) от 30.11.2020
 
 Cliff Richard - Music ... The Air That I Breathe (2020) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
@@ -6,7 +35,7 @@ Cliff Richard - Music ... The Air That I Breathe (2020) [FLAC|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181451.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Nick Cave & The Bad Seeds - Idiot Prayer (2020) Nick Cave Alone at Alexandra Pal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181449.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Omega - Testamentum (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Hard
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_181444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181444.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Jorn - 50 Years On Earth [The Anniversary Box Set] (2018) 12CD [FLAC|Lossless|im
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_181403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_181403.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Within Temptation - Ritual (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Rock,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181388.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ V.A. - Melodic Rock 100 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181352.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Jon Lord - Live (2023) [MP3|320 Kbps] <Symphonic Rock, Rock, Classical>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181346.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Stalker - Tales From Heaven (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181338.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Dead Addiction - ...of Vice and Men (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181319.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Till Lindemann - Zunge (2023) Single [MP3|320 Kbps] <Industrial metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181314.jpg" />
 </div>
 
 
@@ -295,7 +324,7 @@ Slade - 70's Hits (2023) [MP3|320 Kbps] <Rock, Glam Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181311.jpg" />
 </div>
 
 
@@ -324,7 +353,7 @@ LVA - Ας αρχισει η τελετη (2020) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181245.jpg" />
 </div>
 
 
@@ -353,7 +382,7 @@ Sword - III (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181225.jpg" />
 </div>
 
 
@@ -382,7 +411,7 @@ Ciminero - Shadows Digging the Grave (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181223.jpg" />
 </div>
 
 
@@ -411,7 +440,7 @@ Judicator - The Majesty Of Decay (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181217.jpg" />
 </div>
 
 
@@ -440,7 +469,7 @@ WITCHROT - Live In The Hammer (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181213.jpg" />
 </div>
 
 
@@ -469,7 +498,7 @@ Gods of Ancient - Historia Mali et Lucis (2022) [FLAC|Lossless|WEB-DL|tracks] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181206.jpg" />
 </div>
 
 
@@ -498,7 +527,7 @@ Burnt Out Wreck - Stand and Fight (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181201.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ Jordsjo - Jord Sessions (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181197.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ In the Woods... - Diversum (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181189.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ Skarlett Roxx - Skarlett's Web (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181179.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181179.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ SpiritWorld - Deathwestern (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181177.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ Leather - We Are The Chosen (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181165.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ Bad Sister - 2 Albums (2009-2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181159.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ Tom Petty And The Heartbreakers - Live at the Fillmore (1997) Deluxe Edition, 20
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181141.jpg" />
 </div>
 
 
@@ -715,35 +744,6 @@ Tom Petty And The Heartbreakers - Live at the Fillmore (1997) Deluxe Edition, 20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DE60197006C43C97671165AB4117A10E23C82E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593218   (181139) от 26.11.2022
-
-Elder - Innate Passage (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Stoner, Prog>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Catastasis
-02. Endless Return
-03. Coalescence
-04. Merged In Dreams - Ne Plus Ultra(   Читать дальше...   )Жанр: Heavy Psych, Stoner, ProgПродолжительность: 00:53:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAD66A90D78CF0013D42CC007310358FB892FF73
 ```
 
 https://mybot314.ru/tekegram_catalog/

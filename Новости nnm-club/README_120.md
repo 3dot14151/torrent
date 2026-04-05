@@ -1,3 +1,58 @@
+###  Публикация: 906380   (645048) от 08.06.2015
+
+Российские эксперты научились управлять техникой силой мысли
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_645048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Глава Фонда перспективных исследований (ФПИ) Андрей Григорьев сообщил об успешном завершении проекта по разработке интерфейса «мозг-компьютер», который позволит управлять техникой при помощи мысли.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 43388   (644792) от 08.06.2015
+
+Muse - 7albums + 7EPs + 27singles (1997-2015) [MP3|320kbps] <Alternative Rock>
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644792.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Alternative Rock, New Prog, Electronic Rock |Продолжительность: 00:09:45
+01  Follow Me                                            3:51
+02  Follow Me (Jacques Lu Cont's Thin White Duke Mix)    5:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBB4586BDAA5F74F1AF3F69678B9193F776E6496
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 906394   (644790) от 08.06.2015
 
 SONY Vegas Movie Studio Platinum 13.0 Build 942|943 (x86|x64) [Multi/Ru]
@@ -6,7 +61,7 @@ SONY Vegas Movie Studio Platinum 13.0 Build 942|943 (x86|x64) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644790.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ Flash Master Kit 1.1 by Евгений724 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644789.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644551.jpg" />
 </div>
 
 
@@ -84,7 +139,7 @@ IObit Advanced SystemCare Pro 11.4.0.232 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644370.jpg" />
 </div>
 
 
@@ -110,7 +165,7 @@ Total Commander 9.22а Final LitePack / PowerPack + Portable 2019.3 by SamLab [M
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644316.jpg" />
 </div>
 
 
@@ -136,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_644234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644234.jpg" />
 </div>
 
 
@@ -162,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_643527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_643527.jpg" />
 </div>
 
 
@@ -189,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_643451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_643451.jpg" />
 </div>
 
 
@@ -215,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_643252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_643252.jpg" />
 </div>
 
 
@@ -241,7 +296,7 @@ Prototype 2 (2012) [Ru] (1.0/dlc) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643249.jpg" />
 </div>
 
 
@@ -267,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643248.jpg" />
 </div>
 
 
@@ -293,7 +348,7 @@ OS X El Capitan 10.11 DB1 (15A178w) [Multi/Ru] (Installer)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642941.jpg" />
 </div>
 
 
@@ -321,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642427.jpg" />
 </div>
 
 
@@ -347,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_642424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_642424.jpg" />
 </div>
 
 
@@ -380,7 +435,7 @@ Max Payne 3 (Lossless RePack/1.0.0.29) [Ru/En/Multi8] 2012 l R.G. Origami
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642417.jpg" />
 </div>
 
 
@@ -408,7 +463,7 @@ TEKKEN 7 (2017) [Ru/En] (2.21/dlc) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642352.jpg" />
 </div>
 
 
@@ -434,7 +489,7 @@ VA - The Sound Of Hell - UltraTraxx Rare Remixes Vol.1-148 (Bootlegs) (2009-2012
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642351.jpg" />
 </div>
 
 
@@ -463,7 +518,7 @@ Acronis BootCD/DVD 2019 RePack By Elgujakviso (v.30.03.19) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642349.jpg" />
 </div>
 
 
@@ -489,7 +544,7 @@ Windows 10 PE (x86/x64) v.5.0.4 by Ratiborus [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642240.jpg" />
 </div>
 
 
@@ -515,7 +570,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2017.06.13 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642236.jpg" />
 </div>
 
 
@@ -541,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642225.jpg" />
 </div>
 
 
@@ -567,7 +622,7 @@ Dishonored 2 (2016) [Ru/Multi] (1.77.5.0/dlc) SteamRip R.G. Origins
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_642223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642223.jpg" />
 </div>
 
 
@@ -593,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641310.jpg" />
 </div>
 
 
@@ -619,7 +674,7 @@ Blades of Time / Клинки Времени (2012) [Ru/En] (1.6/dlc) Repack =ne
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_641308.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641308.jpg" />
 </div>
 
 
@@ -630,58 +685,6 @@ Blades of Time / Клинки Времени (2012) [Ru/En] (1.6/dlc) Repack =ne
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2E4D20E9C2673199ECF0981557C9EDA230DFAE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906829   (640998) от 10.06.2015
-
-SoftMaker Office Professional 2016 rev 733.0527 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640998.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программный офисный пакет Softmaker Office 2016, основная разработка компании Softmaker GmbH, является отличной заменой для Microsoft Office. Пакет офисных программ в том или ином составе необходим и в организациях и дома на персональном компьютере для улучшения, оптимизации, облегчения процессов документирования, контроля и учета, автоматизации офисной работы. Вы, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B64ADE061697B453CC117EE4551C7840F0CAF2B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906931   (640952) от 10.06.2015
-
-Оно / It Follows (2014) HDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_640952.jpg" />
-</div>
-
-
-###  Подробнее
-
-После сексуальной связи 19-летнюю девушку по имени Джей начинают мучать странные видения и непреодолимое чувство того, что кто-то или что-то за ней следит…Производство: США, Northern Lights Films, Animal Kingdom, Two FlintsЖанр: Ужасы, ДетективРежиссер: Дэвид Роберт МитчеллАктеры: Кейр Гилкрист, Кэролетт Филлипс, Лорен Басс, Оливия Луккарди, Лили Сепе, Майка Монро, Джейк Вири, Дэниэл Дзоватто, Чарльз Гертнер, Бэйли СпрайПеревод: Двуголосый закадровый, любительскийОзвучка / Автор перевода: Студия Пиратского ДубляжаСубтитры: ОтсутствуютПродолжительность: 01:40:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:055DD4B6A71088E35BCC3B6F5F8EE17B6BC0B652
 ```
 
 https://mybot314.ru/tekegram_catalog/

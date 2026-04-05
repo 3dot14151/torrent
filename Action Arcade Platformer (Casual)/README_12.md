@@ -1,3 +1,55 @@
+###  Публикация: 947890   (415216) от 18.10.2015
+
+Castle Crashers (2012) [Ru/Multi] (2.1/dlc) Repack R.G. Механики
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415216.jpg" />
+</div>
+
+
+###  Подробнее
+
+Castle Crashers - двумерный платформер от студии Behemoth создателей знаменитой игры - Alien Hominid. В этой веселой и суматошной игре Вам предстоит стать рыцарем и заняться спасением толп принцесс, из лап злодеев и прочих монстров.Тип издания: RepackРазработчик: The BehemothЖанр: ArcadeЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ADAED4788E10074B194A6520E4E099091B981DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573125   (414009) от 30.08.2022
+
+Overloop (2022) [En] (1.1) License GOG
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шагните в этически скомпрометированное будущее, где технология клонирования нанесла ущерб человечеству - и виновник этого именно вы!. Как сотрудник мега-корпорации Infinity Inc. и изобретатель Устройства Квантового Воспроизведения Материи (оно же УКВМ, оно же причина того, что мир катится к чертям), вы должны разобраться в беспорядке, который вы сами создали. Хватайте (   Читать дальше...   )Тип издания: LicenseРазработчик: Charge GamesЖанр: Экшны, Приключение, ПлатформерЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E25326CF7984E1727037E43709512D80E03E388
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 562862   (404263) от 21.10.2012
 
 Rocketbirds: Hardboiled Chicken [En/Multi11] (L) 2012 | TiNYiSO
@@ -6,7 +58,7 @@ Rocketbirds: Hardboiled Chicken [En/Multi11] (L) 2012 | TiNYiSO
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_404263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404263.jpg" />
 </div>
 
 
@@ -36,7 +88,7 @@ Hob (2017) [Ru/Multi] (1.12.2.0/dlc) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397335.jpg" />
 </div>
 
 
@@ -62,7 +114,7 @@ Hob (2017) [Ru/Multi] (1.12.2.0) Repack Covfefe
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396406.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ Omega Strike (2017) [Ru/Multi] (1.0.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395423.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ Albert and Otto: The Adventure Begins (2015) [En] (1.0) Repack R.G. Механи
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382076.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ Toby: The Secret Mine (2015) [En] (1.0) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_382074.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382074.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ Portal Knights (2017) [Ru/Multi] (1.2/dlc) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_373571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373571.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ Castle Crashers (2012) [Ru/Multi] (2.2.1/dlc) SteamRip Let'sРlay [Steam Edition
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_369280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369280.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ Raiden IV: OverKill (2015) [En] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_368350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368350.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ Tinykin (2022) [Ru/Multi] (1.0.7) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367975.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ Cuphead (2017) [Ru/Multi] (1.3.4/dlc) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_367970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367970.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ Yoku's Island Express (2018) [Ru/Multi] (1.2) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_365418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365418.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ Spelunker Party! (2017) [Ru/Multi] (1.0) License SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_364707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364707.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ The Mummy Demastered (2017) [Ru/Multi] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_362293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362293.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ Fly'N [En] (L) 2012 | SKIDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_359644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359644.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ Final Exam (2013) [Ru/En] (1.0u3) RePack Audioslave
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_355917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355917.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ Candle (2016) [Ru/Multi] (1.0) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_353990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353990.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ ScourgeBringer (2020) [Ru/Multi] (1.42) License GOG [Supporter Bundle]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350644.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ Party of Sin (2012) [Ru/Multi] (1.0.0.5766) License [indiegamestand]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_350110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350110.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ Hob (2017) [Ru/Multi] (1.16.3.0) Repack R.G. Catalyst
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344131.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ Renoir (2016) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339688.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ Nation Red / Зомбилэнд (2009) [Ru/En] (1.00.1000) Lossless Repack R.G. 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_339101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339101.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ Forge Quest (2015) [En] (1.56.5) Repack Hazestalker
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_336546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336546.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ ICEY (2016) [Muti] (1.0) License SKiDROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_335252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335252.jpg" />
 </div>
 
 
@@ -622,58 +674,6 @@ ICEY - это 2D платформер с динамическим процесс
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AFC1346B3801E37F441463B740E2889B1520D2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419678   (331907) от 01.11.2020
-
-GONNER2 (2020) [Rui/Multi] (1.1.8.2) License GOG [The Full Ikk Edition]
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_331907.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наш бескорыстный и внезапный герой Икк возвращается в GONNER2. На этот раз в нем нуждается сама Смерть. В ее логове обосновалось нечто таинственное, и теперь Икк должен помочь избавиться от незваного гостя. Отправляйтесь в путешествие по мрачным и хаотичным местам, где мелькают лишь редкие проблески цвета, сражайтесь с безумными боссами и помните: самое главное – (   Читать дальше...   )Тип издания: LicenseРазработчик: Art in HeartЖанр: Экшн, Приключение, ПлатформерЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65ACA67F7A85881B22D668D66342BEF9A31AE7F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907015   (325409) от 19.11.2015
-
-Казуальные игры (2015) [Ru/En] (15.06) RePack adguard [июнь]
-
->>След.
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_325409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Казуальные игры - это маленькие и увлекательные компьютерные игры, отличающиеся простым геймплеем. Неотъемлемой частью подобных игр являются легкий игровой процесс, красочная графика, а также отсутствие элементов жестокости. Они быстро скачиваются, не требуют мощного "железа" и специальных навыков владения компьютером, а вот удовольствия могут подарить (   Читать дальше...   )Тип издания: RePackРазработчик: Alawar Entertainment | Nevosoft | Big Fish Games | 8Floor Games и другиеЯзык озвучки: Русский / АнглийскийЯзык субтитров: Русский / АнглийскийЯзык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6893EEE752B311EE355F19A3C29975936B25FFE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

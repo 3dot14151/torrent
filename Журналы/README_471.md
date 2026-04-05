@@ -1,3 +1,133 @@
+###  Публикация: 1621519   (245103) от 25.03.2023
+
+Журнал | A Radio. Prakticka Elektronika №2 (2023) [PDF][Cz]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245103.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чешский радиолюбительский журнал. В каждом номере описания практических конструкций для радиолюбителей различной тематики: аудиотехника, измерительные приборы, бытовая электроника и другое. На все конструкции предлагаются печатные платы. Отдельные разделы посвящены применению компьютеров и радиоспортЖанр: ЭлектроникаЯзык: ЧешскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C17D875BCF0E8E5AD65DBD3890CDB4FB0072CAEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621133   (245086) от 23.03.2023
+
+Подшивка | Электронные компоненты №1-12 [12 выпусков] (2022) [PDF]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245086.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Электронные компоненты» — журнал издается с 1995 года, и уже более 20 лет является авторитетным источником профессиональной информации для разработчиков электронной аппаратуры, технического руководства предприятий отрасли, директоров по снабжению и надежным маркетинговым партнером для производителей и дистрибьюторов электронных компонентовЖанр: Электронные компонентыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C5F5CF49C47FEC190DF5925DA418410B646CCF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609376   (244924) от 03.02.2023
+
+Журнал | Загадки истории №05 (2023) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны не только журналистами, но и писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!Жанр: Научно-популярное, История, ЖурналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00CB72E6EA40F3EAF00ACD08D77AEA5F16FA4126
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631226   (244835) от 06.05.2023
+
+Газета | СПОРТ-ЭКСПРЕСС № 80 (Май 2023) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244835.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Спорт-Экспресс» — ежедневная газета, полностью посвященная спорту. На страницах издания вы найдете интервью с известными спортсменами и тренерами, последние новости, материалы о футболе и хоккее с шайбой, баскетболе и керлинге, теннисе и фигурном катании, в общем, обо всех существующих ныне видах спорта. Вот уже несколько лет «СЭ» представляет Россию в European (   Читать дальше...   )Жанр: СпортФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BEE4149CF713356374C542B96A7C812ED520CB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541278   (244223) от 03.04.2022
+
+Журнал | Maxim [Россия] №4-5 (апрель 2022) [PDF]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Maxim является абсолютно уникальным журналом с неповторимым стилем и юмором, а количество великолепных женщин и качество съемок не оставляют другим журналам вообще никаких шансов стать лидерами. Журнал Maxim радует познавательными материалами из всех областей, доступных человеческому пониманию, а уж за пределами этого понимания журналу вообще нет равных.Жанр: Мужской журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF710C7B0F41AB1921EA2C2830988F111DD17105
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1632489   (244094) от 10.05.2023
 
 Журнал | Загадки истории. Спецвыпуск №3/С «Любовные страсти» (2023) [PDF]
@@ -6,7 +136,7 @@
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244094.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_244052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244052.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243357.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243340.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243161.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_243134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243134.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_243025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243025.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242893.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242883.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242773.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242648.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242590.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242571.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242482.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242457.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242438.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242414.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242334.jpg" />
 </div>
 
 
@@ -476,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242256.jpg" />
 </div>
 
 
@@ -502,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242171.jpg" />
 </div>
 
 
@@ -528,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242120.jpg" />
 </div>
 
 
@@ -539,136 +669,6 @@ Cosmopolitan — международный женский журнал. Сод�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:462EB07191A7463D46A1E279C1A15BDE1E13B93C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624493   (242108) от 06.04.2023
-
-Журнал | Делаем сами №7 (2023) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242108.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Делаем сами» — журнал для мастеров и мастериц, находящихся в постоянном поиске свежих творческих идей и решений. Уникальность издания в том, что оно состоит главным образом из писем читателей. В каждом номере: схемы популярных вышивок, идеи для детского творчества, советы по ремонту, оформление дачного участка и дома, секреты рыбалки, новые техники рукоделия, мастер-классы (   Читать дальше...   )Жанр: ДомоводствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AAD6E1B2B1359633BCF3D2FC6AFD410B584A0D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458819   (242100) от 30.03.2021
-
-Журнал | Elle Netherlands №3 (март 2021) [PDF] [Nl]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elle — французский женский журнал о моде, красоте, досуге и здоровье, издающийся с 1945 года. В середине 1980-х годах, при выходе на международный рынок, стал выпускаться ежемесячно, сохранив еженедельный формат для Франции.Жанр: Женский журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D1CD289157561E83005CD4315D8FB735B473B15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458825   (242093) от 30.03.2021
-
-Журнал | Elle México №3 (март 2021) [PDF] [Es]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elle, женский журнал о моде и моде в мире. Его страницы приблизят вас к миру моды, эстетики, последних тенденций, культурного авангарда, социальных вкусов или любого прогресса, направленного на улучшение вашего стиля жизни.Жанр: Женский журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0C888C74E891ACAD22FBC568F3607E12216EC71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458829   (242051) от 30.03.2021
-
-Журнал | Elle Italia №12 (март 2021) [PDF] [It]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elle, женский журнал о моде и моде в мире. Его страницы приблизят вас к миру моды, эстетики, последних тенденций, культурного авангарда, социальных вкусов или любого прогресса, направленного на улучшение вашего стиля жизни.Жанр: Женский журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4984CA6CB596DD15F6CCD26603D15E08B26D9BD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108737   (242029) от 25.02.2017
-
-Газета | Великие открытия №2 (февраль 2017) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242029.jpg" />
-</div>
-
-
-###  Подробнее
-
-Будущее человечества напрямую связано с освоением космического пространства. Население Земли растет, минеральных ресурсов становится все меньше, экологические проблемы все острее. Нам жизненно необходимо осваивать не только планеты Солнечной системы, но и дальний космос, и быть готовыми защитить Землю от потенциально опасных астероидов и комет. Если в свое время (   Читать дальше...   )Жанр: Популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64C5671AC5E17D4D273EA7B08DB84AEBDE78D624
 ```
 
 https://mybot314.ru/tekegram_catalog/

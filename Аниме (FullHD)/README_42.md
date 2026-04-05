@@ -6,7 +6,7 @@ Alice to Zouroku | Алиса и Дзороку [2017, TV, 12 эп.] BDrip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_291583.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291583.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Psycho-Pass: Sinners of the System| Психопаспорт: Грешники �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_290536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290536.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Ichiban Ushiro no Daimaou / Князь тьмы с задней парты [2010
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_289566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289566.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Onii-sama e... | Dear Brother | Уважаемый старший брат [ТВ
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_287551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287551.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ DNA2: Dokoka de Nakushita Aitsu no Aitsu | ДНК 2 [1994, TV+OVA, 15 эп.] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_286016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286016.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Suki ni Naru Sono Shunkan o. Kokuhaku Jikkou Iinkai | The Moment You Fall in Lov
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284055.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Zutto Mae kara Suki Deshita. Kokuhaku Jikkouiinkai | I've Always Liked You: Conf
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_282177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282177.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Turn A Gundam | Гандам: Объединение [1999, TV, 50 из 50] BDRi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_280525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280525.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Mouretsu Pirates - Akuu no Shin'en | Moretsu Pirates: Abyss of Hyperspace | Ли
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278991.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Sword Art Online | Мастера меча онлайн [2012, TV, 25 эп. + 9 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_278785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278785.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ UQ Holder! Mahou Sensei Negima! 2 | Хранитель вечности! Вол�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277672.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277632.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Koukaku Kidoutai Stand Alone Complex: Solid State Society / Ghost in the Shell: 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_277271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277271.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Shin Kidou Senki Gundam Wing | Mobile Suit Gundam Wing | Мобильный во
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273615.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Koi to Uso | Love and Lies | Любовь и ложь [2017, TV, 12 из 12] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_273436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273436.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Galilei Donna - Storia di tre sorelle a caccia di un mistero | Галилей Д
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266827.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Shuumatsu Nani Shitemasuka? Isogashii Desuka? Sukutte Moratte Ii Desuka? | Sukas
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266745.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Gyakusatsu Kikan | Genocidal Organ | Орган геноцида [2017, Movie] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265671.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Kidou Butouden G Gundam | Mobile Fighter G Gundam | Мобильный воин 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265332.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Twin Angel Break | Ангельский дуэт: Прорыв [2017, TV, 12 э�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265007.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Kimi no Koe o Todoketai | Я хочу донести твой голос [2017, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265004.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Yuru Yuri Ten | Лилии на ветру OVA 2 [2019, OVA, 1 эп.] BDRip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264002.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Gunsmith Cats | Оружейницы [1995, OVA, 3 эп.] BDRip 1080 10bit raw+e
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263973.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Ushio to Tora TV | Усио и Тора ТВ (сезон 1 и 2) [2015, TV, 26 +
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263410.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Kanojo to Kanojo no Neko: Everything Flows | Она и её кот: Всё те�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262291.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Guilty Crown | Корона греха [2011, TV, 22 эп.] BDRip 1080p 10-bit r
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_255209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255209.jpg" />
 </div>
 
 

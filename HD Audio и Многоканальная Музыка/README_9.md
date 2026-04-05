@@ -1,32 +1,3 @@
-###  Публикация: 983450   (943612) от 06.02.2016
-
-Dire Straits - Dire Straits (1978) Phonogram [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Down To The Waterline
-02 - Water Of Love
-03 - Setting Me Up
-04 - Six Blade Knife(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AB81131B695136D0A311CD203087858A122DDC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1091572   (942728) от 09.01.2017
 
 Supertramp - The Very Best Of (1992) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
@@ -35,7 +6,7 @@ Supertramp - The Very Best Of (1992) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942728.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ VA - RETROспектива, часть VII: Эстрадные оркестры 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942626.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942626.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Bee Gees - Size Isn't Everything (1993) [FLAC|24Bit/96kHz] <pop-rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941990.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941862.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Demis Roussos - Souvenirs (1975) [FLAC|24Bit/96kHz]<pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940464.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Fiona Joy Hawkins - Blue Dream (2009) 2008 [DTS 5.1 CD-DA|44.1/16|image+cue|SACD
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939750.jpg" />
 </div>
 
 
@@ -211,7 +182,7 @@ Boney M - Ma Baker, Sunny, Daddy Cool (1977) Japan [WavPack 2.0|192/32|tracks|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939717.jpg" />
 </div>
 
 
@@ -240,7 +211,7 @@ Michael Jackson - Thriller (1982) Japan [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Funk 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939704.jpg" />
 </div>
 
 
@@ -269,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938360.jpg" />
 </div>
 
 
@@ -295,7 +266,7 @@ Europe - The Final Countdown (Upmix) (1986) [DTS]<ROCK>
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937547.jpg" />
 </div>
 
 
@@ -324,7 +295,7 @@ Supertramp - Breakfast In America (1979)  Japan Press [FLAC 2.0 24/96|image (Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935842.jpg" />
 </div>
 
 
@@ -353,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935713.jpg" />
 </div>
 
 
@@ -379,7 +350,7 @@ Pink Floyd - Wish you were here (2011) 1975 [DTS 5.1 CD-DA|44.1/16|image+cue|SAC
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934344.jpg" />
 </div>
 
 
@@ -408,7 +379,7 @@ The Crystal Method - Divided By Night (Upmix) (2009) [DTS]<Breakbeat/Electronic>
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934333.jpg" />
 </div>
 
 
@@ -437,7 +408,7 @@ Rainbow - Ritchie Blackmore's Rainbow (1975) Phonogram [FLAC 2.0|192/24|image+cu
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933975.jpg" />
 </div>
 
 
@@ -466,7 +437,7 @@ Def Leppard - High'N'Dry 1981 (1984) Vertigo [FLAC 2.0|192/24|image+cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932473.jpg" />
 </div>
 
 
@@ -495,7 +466,7 @@ VA (Various Artists) - Greenpeace Rocks (1993) SNC [FLAC 2.0|192/24|image+cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932468.jpg" />
 </div>
 
 
@@ -524,7 +495,7 @@ Pink Floyd - The Dark Side of the Moon (2003) 1973 [DTS 5.1 CD-DA|44.1/16|image+
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931488.jpg" />
 </div>
 
 
@@ -553,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930906.jpg" />
 </div>
 
 
@@ -582,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930459.jpg" />
 </div>
 
 
@@ -611,7 +582,7 @@ VA - RETROспектива, часть VIII: Эстрадные оркестры
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930129.jpg" />
 </div>
 
 
@@ -640,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928780.jpg" />
 </div>
 
 
@@ -669,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928765.jpg" />
 </div>
 
 
@@ -698,7 +669,7 @@ Def Leppard - Hysteria (1987) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip]<Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925762.jpg" />
 </div>
 
 
@@ -727,7 +698,7 @@ Mark Knopfler – Shangri-La (2004) [DTS 5.1 CD-DA|44.1/16|image+.cue|SACD] <Fol
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925285.jpg" />
 </div>
 
 
@@ -741,6 +712,35 @@ Mark Knopfler – Shangri-La (2004) [DTS 5.1 CD-DA|44.1/16|image+.cue|SACD] <Fol
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A82E678A012D4DA5609CDC2DE8879C4F9067418A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366026   (925052) от 10.03.2020
+
+Dire Straits - Brothers in Arms (2005) 1985 [DTS 5.1 CD-DA|44.1/16|image+.cue|SACD] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So Far Away                              [05:13]
+  02. Money For Nothing                        [08:26]
+   03. Walk Of Life                             [04:12]
+   04. Your Latest Trick                        [06:33](   Читать дальше...   )Жанр: rockПродолжительность: 00:54:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52415CCA8C7849D1914A96FAB9CA11A87CED8CD0
 ```
 
 https://mybot314.ru/tekegram_catalog/

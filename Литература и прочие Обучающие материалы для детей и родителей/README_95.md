@@ -1,3 +1,29 @@
+###  Публикация: 867313   (898791) от 10.02.2015
+
+Foxford | МАТЕМАТИКА. Подготовка к ЕГЭ. Часть B, 11 класс. (2014-2015) [unpacked]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898791.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный курс предназначен в первую очередь тем, у кого есть значительные пробелы в базовых математических знаниях. На занятиях мы уделим особое внимание темам, вызывающим наибольшие сложности у школьников, - теории вероятностей, производной и интегралам, стереометрии и тригонометрии. У вас есть все возможности для успешной подготовки к экзамену: в части В, по сути, (   Читать дальше...   )Жанр: Математика, ЕГЭ, видеокурсыФормат: MP4
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBEDD007BDD586A351713A915021C830228C86A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992934   (898729) от 03.03.2016
 
 Д.В. Криволапов | Полевые прогулки и игры пионеров (1928) [PDF]
@@ -6,7 +32,7 @@
 >>Подвижные Игры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898729.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Foxford | ИНФОРМАТИКА. Подготовка к ЕГЭ, 11 класс,
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898713.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898572.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898472.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898442.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898409.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898393.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898380.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898200.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898199.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898023.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898010.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897992.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897943.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897919.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897902.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897808.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897537.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897409.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897104.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897038.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897038.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896964.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896922.jpg" />
 </div>
 
 
@@ -617,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896677.jpg" />
 </div>
 
 
@@ -646,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896623.jpg" />
 </div>
 
 
@@ -658,32 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF07F7A4F34ADD0D9C1F64B801150EEED947AB61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370451   (896618) от 27.03.2020
-
-Фрауке Шойнеманн | Приключения кота-детектива [6 книг] (2019) [FB2, EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фрауке Шойнеманн – немецкая писательница, ее серия детективов о приключениях кота Уинстона продается миллионными тиражами. Эти книги переведены на 10 языков, дважды входили в TOP-3 лучших детских книг по версии авторитетного немецкого портала «Lovely Books». Главные герои серии – кот Уинстон и девочка Кира – расследуют преступления, помогают друг другу, а однажды (   Читать дальше...   )Жанр: Детская остросюжетная литература, детский детективФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F765093D49E7F93259E55E3A3C42F007832FA29
 ```
 
 https://mybot314.ru/tekegram_catalog/

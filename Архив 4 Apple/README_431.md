@@ -6,7 +6,7 @@ Algoriddim djay Pro 1.4.1 (Complete FX Pack) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345206.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345174.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_345025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345025.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344888.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Yate 6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344828.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Piezo 1.6.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344826.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Iridient Developer 3.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344825.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Loopback 2.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344710.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ ON1 HDR 2020.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344697.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Capto – Screen Recording, Screen Captures, and Editing 1.2.19 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344558.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Aiseesoft Mac FoneLab for iOS 10.2.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344550.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Canvas X Draw 7.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344436.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ IINA 1.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344430.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Wirecast Pro 8.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344324.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Sublime Text 4.0 Dev build 4090 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344311.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344311.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ ON1 Portrait AI 2021 v15.0.0.9618 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344296.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Adobe Zii 2021 - Universal Patcher 6.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344204.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ CleanMyMac 3.1.2 fix [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_344161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344161.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ ABBYY FineReader OCR Pro for Mac 12.1.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343698.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Find Any File 2.0 (210)  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343659.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Amadeus Pro 2.6.2 (2210) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343658.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Studies 1.5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343580.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Cardhop 1.1.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343574.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ BlueHarvest 7 v7.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343562.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343562.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Blocs 3.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343549.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Jettison 1.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_343445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343445.jpg" />
 </div>
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 1643719   (209844) от 03.07.2023
+
+ZZ Top - Degüello (1979) Remastered, 2013, Rhino - Warner Records [FLAC 2.0|24/192|WEB-DL|tracks] <Hard Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Thank You [00:03:25]
+02. She Loves My Automobile [00:02:23]
+03. I'm Bad, I'm Nationwide [00:04:52]
+04. A Fool for Your Stockings [00:04:16](   Читать дальше...   )Жанр: Hard Blues RockПродолжительность: 00:34:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A4C0C08BF8BD5023EA4033F99FBA3F02CBE2667
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1341794   (209824) от 24.08.2022
 
 Nagart - 3 Альбома, 4 Сингла (2017-2022) [MP3|320 Kbps] <Punk Rock>
@@ -6,7 +35,7 @@ Nagart - 3 Альбома, 4 Сингла (2017-2022) [MP3|320 Kbps] <Punk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209824.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ ScreaMachine - Church of the Scream (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209710.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209560.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Katatonia - Sky Void of Stars (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209446.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Gary Glitter / The Glitter Band - 21 Albums, 2 Box-sets, 26CD (1972-2021) [FLAC|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209376.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Adrian Benegas - The Revenant (2019) Japanese Edition [MP3|320 Kbps] <Melodic He
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209299.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ The Blood Diary - Дневник кровавых историй (2023) [MP3|320
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209296.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Adrian Benegas - Arcanvm - El mantra secreto de los espíritus (2023) [MP3|320 K
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209266.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209242.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ The Rolling Stones - Voodoo Lounge (1994) [FLAC|Lossless]<Hard rock, blues rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209215.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209208.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ VA - Rock Classics (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209121.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Don Henley [ex. Eagles] - 6 Albums (1982-2015) Collection [MP3|320 Kbps] <Soft R
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209118.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ The Black Furs - The Mayhem Years (2023) [MP3|320 Kbps] <Heavy Rock, Psych, Ston
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209105.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Pink Floyd - Ummagumma (1969) Japanese Edition, 2 x CD, Reissue, 1994, Toshiba E
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209082.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209066.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209065.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ Powerwolf - Interludium (2023) 2 x CD [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209048.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ Uriah Heep - Chaos & Colour (2023) [MP3|320 Kbps] <Classic Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_209009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209009.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ Nothing But Thieves - Dead Club City (2023) [FLAC|Lossless|WEB-DL|tracks] <Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208975.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ Smokie - The Greatest Hits Rerecorded 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208854.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208854.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ Scream Maker - Land Of Fire (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208799.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ A Dark Halo - Omnibus One (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208778.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ Blur - The Ballad Of Darren (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208763.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208642.jpg" />
 </div>
 
 
@@ -714,35 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AAAAEC3D30ACAF2F809F158C3205C0620451893
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404845   (208560) от 19.07.2023
-
-Haken - 8 Studio Albums (2010-2023) 12xCD [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_208560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Haken - является английской прогрессивной метал - группой , образованной в 2007 году мульти-инструменталистом Ричард Хеншолл , гитаристом Мэтью Маршалл и вокалистом Росс Дженнингс. В то время как Хеншолл, Маршалл, и Дженнингс первой была идея формирования Haken в 2004 году, они решили продолжать  использовать свои инструменты и написание песен первыми. Позднее были (   Читать дальше...   )Альбомы :
-2010 - Aquarius
-2011 - Visions
-2013 - The Mountain(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 11:30:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B15BC4F587F1C50EF116B410C8650E34F3339B1C
 ```
 
 https://mybot314.ru/tekegram_catalog/

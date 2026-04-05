@@ -6,7 +6,7 @@ VA - Night Cruise 2 (2020) [AAC|~315 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751777.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Musica Del Sol, Vol. 5 (2020) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751775.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Musica Del Sol, Vol. 4 (2018) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751774.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Musica Del Sol, Vol. 6 (2020) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751772.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Organica 2021 (2021) [AAC|~312 Kbps] <Chill Out, Downtempo, Organic House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751770.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Musica Del Sol, Vol. 7 (2021) [AAC|~315 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751768.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Orientalia 2021 (2021) [AAC|~302 Kbps] <Chill Out, Downtempo, Organic House
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751764.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Best Pop Female Vocals (2022) [AAC|~309 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751763.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751725.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751693.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ VA - Cozy Lofi Beats (2022) [AAC|~299 Kbps] <Lo Fi, Lounge, Chill Out>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751681.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ VA - Musica Del Sol, Vol. 3 (2017) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751680.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Daminika - Collection of the Best Tracks From: Daminika, Pt. 1 (2021) [AAC|~342 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751679.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ VA - Cutaneum (Skin Deep) (2022) [AAC|~320 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751678.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ VA - Musica Del Sol, Vol. 2 (2015) [AAC|~334 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751677.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ VA - Musica Del Sol, Vol. 1 (2013) [AAC|~312 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751666.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751638.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751533.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751495.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Daminika - Snatches of Memory (2021) [AAC|~343 Kbps] <Lounge, Chill Out, Downtem
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751441.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751405.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751223.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751223.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_751190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751190.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ VA - Wunderwerk 1 Connected Souls (2021) [AAC|~336 Kbps] <Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750006.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ VA - Melodica 2021 (2021) [AAC|~324 Kbps] <Chill Out, Downtempo, Organic House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750005.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ VA - Travel & Living Lounge, Vol. 3 (2018) [AAC|~314 Kbps] <Lounge, Chill Out, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_750003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750003.jpg" />
 </div>
 
 

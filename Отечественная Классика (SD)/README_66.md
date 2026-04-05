@@ -1,3 +1,55 @@
+###  Публикация: 1809357   (9769) от 31.07.2025
+
+Ищите женщину (1982) DVDRip (серии 1-2 из 2)
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9769.jpg" />
+</div>
+
+
+###  Подробнее
+
+В нотариальной конторе обнаружен покойник. В поиски убийцы включается секретарь конторы — женщина неукротимой энергии. Постепенно выясняется, что чрезмерная активность самодеятельного сыщика не лучшим образом влияет на расследование.Производство: СССР / Мосфильм, Гостелерадио СССРЖанр: детектив, комедия, криминалРежиссер: Алла СуриковаАктеры: Софико Чиаурели, Леонид Куравлёв, Сергей Юрский, Александр Абдулов, Елена Соловей, Леонид Ярмольник, Людмила Дмитриева, Елена Укращенок, Владимир Басов, Нина Тер-ОсипянСубтитры: отсутствуютПродолжительность: 01:16:00+01:09:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2929889D24B9CC3606A2936AB54BA89C0E291E54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806886   (9640) от 01.08.2025
+
+Баллада о солдате (1959) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9640.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великая Отечественная война. Молодой солдат Алёша Скворцов совершает подвиг — подбивает два немецких танка. Командование собирается представить его к ордену, но Алёша просит дать ему отпуск, чтобы повидаться с мамой. Путь домой оказывается долог и непрост.Производство: СССР / МосфильмЖанр: драма, мелодрама, военныйРежиссер: Григорий ЧухрайАктеры: Владимир Ивашов, Жанна Прохоренко, Антонина Максимова, Николай Крючков, Евгений Урбанский, Эльза Леждей, Александр Кузнецов, Евгений Тетерин, Валентина Маркова, Мария Кремнева и другиеСубтитры: отсутствуютПродолжительность: 01:27:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E94816B25F778F25C551A17D56039C1C45E0355A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212148   (9611) от 02.08.2025
 
 Чародеи (1982) HDTVRip [H.264] (серии 1-2 из 2)
@@ -6,7 +58,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9611.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9385.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8803.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7294.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5918.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5647.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5023.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5016.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4514.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3051.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2028.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2004.jpg" />
 </div>
 
 

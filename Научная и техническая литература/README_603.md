@@ -1,142 +1,3 @@
-###  Публикация: 478406   (86641) от 05.04.2012
-
-Адиль Гаджинский | Логистика: Учебник. 20-е изд. [2012] [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86641.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебнике изложены современная концепция и задачи логистики, охарактеризованы участники логистического процесса, описаны методы, обеспечивающие повышение эффективности хозяйственной деятельности за счет рациональной организации материальных потоков.
-
-Для студентов высших учебных заведений, а также практических работников сферы распределения, закупок, транспорта, организации торговых и производственных процессов.
-
-Практикум по логистике. 8-е изд.: Адиль Гаджинский | Практикум по логистике. 8-е изд. [2012]Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C8B374D304D75B625CEAEC8A67AE6AB0E1F60D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478408   (86623) от 05.04.2012
-
-Адиль Гаджинский | Практикум по логистике. 8-е изд. [2012] [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86623.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящий практикум разработан по наиболее общим темам, включенным в образовательные стандарты по дисциплине “Логистика” для различных специальностей, т. е. по складам, транспорту, закупкам и распределению. В него входят как задачи и деловые игры по перечисленным темам, так и тестовые вопросы по всему курсу данной дисциплины.
-Для студентов высших и средних специальных учебных заведений, а также практических работников сферы распределения, закупок, транспорта, организации торговых и производственных процессов.
-
-Практикум является дополнением к учебнику «Логистика», изданному автором и рекомендованному Министерством общего и профессионального образования для студентов высших и средних специальных учебных заведений.
-
-Логистика: Учебник. 20-е изд.: Адиль Гаджинский | Логистика: Учебник. 20-е изд. [2012]Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0810557664935BF863D096584AD30A8795E00A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478498   (86587) от 05.04.2012
-
-А.В. Дёмина, Т.Ф. Ельчищева | Малоэтажное жилое здание: учебное пособие. В 2 ч. [2010] [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие «Малоэтажное жилое здание» выполнено в двух частях: часть I «Несущие и ограждающие конструкции», часть II «Части здания». Изложены основные правила проектирования и подбора параметров малоэтажных жилых зданий. Рассмотрены правила привязки к модульным координационным осям, варианты проектирования объёмно-планировочного и конструктивного решения здания, вопросы подбора оптимальных основных несущих и ограждающих конструкций здания, приёмы проектирования фундаментов, стен, перегородок, перекрытий и покрытия здания.2010Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E3656456C41FAF17B73B59F028080866E42FF94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477884   (86455) от 04.04.2012
-
-С.П. Дугин | Английский язык за 42 урока [2010] [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86455.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный учебник раскрывает читателям уникальную методику изучения английского языка. Секрет её действенности заключается в том, что автор делится большим количеством полезных советов. Главной ошибкой начинающих является то, что они используют английские слова, но используют русскую систему грамматики. Решить эту и многие другие проблемы поможет учебник «Английский язык за 42 урока». Всего за 42 урока вы обретете надежный фундамент и сможете выработать индивидуальный подход к самостоятельному изучению английского языка.2010Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB844C16D0C12EB70E3FA84562189FD00D0CB901
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478066   (86414) от 04.04.2012
-
-EASY Deutsch Словарь русско-немецкий [2004] [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86414.jpg" />
-</div>
-
-
-###  Подробнее
-
-Русско-немецкий словарь известного издательства, достаточно подробный и простой в обращении.2004Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D157F327A1ACCB915B2BA2A4ABEF853DB391A15F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 478077   (86394) от 04.04.2012
 
 EASY Deutsch Worterbuch Словарь немецко-русский [2004] [PDF]
@@ -145,7 +6,7 @@ EASY Deutsch Worterbuch Словарь немецко-русский [2004] [PDF
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86394.jpg" />
 </div>
 
 
@@ -171,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86381.jpg" />
 </div>
 
 
@@ -198,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86366.jpg" />
 </div>
 
 
@@ -227,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86347.jpg" />
 </div>
 
 
@@ -254,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86301.jpg" />
 </div>
 
 
@@ -280,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86168.jpg" />
 </div>
 
 
@@ -307,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85998.jpg" />
 </div>
 
 
@@ -333,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85713.jpg" />
 </div>
 
 
@@ -359,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85668.jpg" />
 </div>
 
 
@@ -385,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85651.jpg" />
 </div>
 
 
@@ -413,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85616.jpg" />
 </div>
 
 
@@ -439,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85614.jpg" />
 </div>
 
 
@@ -465,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85609.jpg" />
 </div>
 
 
@@ -493,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85606.jpg" />
 </div>
 
 
@@ -521,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85589.jpg" />
 </div>
 
 
@@ -547,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нормативная документация
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85578.jpg" />
 </div>
 
 
@@ -573,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85576.jpg" />
 </div>
 
 
@@ -599,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85496.jpg" />
 </div>
 
 
@@ -631,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85354.jpg" />
 </div>
 
 
@@ -659,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85281.jpg" />
 </div>
 
 
@@ -685,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85258.jpg" />
 </div>
 
 
@@ -697,6 +558,141 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF1DF0D82FF7FADC609DD04E312AE38F602706B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475245   (85058) от 29.03.2012
+
+Н.А.Рубакин | Миллионы лет истории Русской земли [2009] [PDF]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами книга Николая Александровича Рубакина, выдающегося русского просветителя, ученого, книговеда, библиографа, библиофила, популяризатора науки и писателя, виднейшего теоретика и практика самообразования, которая впервые увидела свет в 1920 г.
+По существу, она состоит из трех книг:2009Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CB7EB2926C94D14B7033699BA223D051BCAD059
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474416   (85004) от 28.03.2012
+
+Книжная серия | «Загадки древних народов» [2009-2012] [FB2]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издательство "Центрполиграф", изначально позиционирующееся на выпуске детективов и другой остросюжетной литературы, в конце 90-х годов несколько изменило редакционную политику, расширив тематику издаваемых книг. Были напечатаны замечательные серии научно-популярной литературы. К их числу можно отнести и проект "Загадки древних цивилизаций".
+       Серия «Загадки древних народов» является своеобразным продолжением вышеназванной серии.
+       Для любителей, искателей и первооткрывателей Древнего Мира.
+
+"Загадки древних цивилизаций" - Серия - «Загадки древних цивилизаций» [2002 - 2008]Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0C15ACD2F534058C429481B73D2BA27498601E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474820   (84998) от 28.03.2012
+
+Подборка книг | Управление персоналом [1998-2011] [DJVU, PDF, DOC]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка  содержит издания по правовым,  кадровым, организационным, экономическим и социально-психологическим аспектам управления персоналом организации (предприятия). Может быть полезна не только студентам, но и практическим работникам.1998-2011Формат: DJVU, PDF, DOC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:736B7027FCD70E8FA81E4C44716AE5CE4C478CC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474708   (84962) от 28.03.2012
+
+Подборка книг | Управление предприятием [1998-2011] [DJVU, PDF,DOC]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка содержит литературу по организационно-правовым, экономическим  и финансовым аспектам  деятельности  предприятия. Для студентов, обучающихся по специальности "Экономика и управление на предприятии", а также для специалистов-практиков1998-2011Формат: DJVU, PDF, DOC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77988DB1B80EDF7191E6A2C8337EABE01AA1F1E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474424   (84955) от 28.03.2012
+
+Хаген Виктор Фон | Ацтеки, майя, инки. Великие царства древней Америки [2010] [FB2]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84955.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге известного американского этнолога Виктора фон Хагена представлена история ацтеков, майя, инков. Хаген выделяет и подвергает подробному анализу наиболее важные этапы формирования этих культур, от зарождения и динамического развития до момента их падения. Автор охватил все стороны практической и духовной жизни народов солнечных царств. Легко и увлекательно ученый рассказывает о том, как они вели хозяйство, занимались ремеслами, заключали браки и воспитывали детей, об их религиозных верованиях и кровавых жертвоприношениях, о способах ведения войны и оружии, о системе налогообложения, о преступлениях и наказаниях…2010Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B8A535D38BC2160AA7091B30E46AEA5F03B13CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

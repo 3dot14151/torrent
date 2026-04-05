@@ -6,7 +6,7 @@ Wipeout 3 [Wii] [ENG] [NTSC] (2012)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132444.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Fire Emblem Path Of Radiance [GameCube] [Multi-5] [PAL] (2003)
 >>Другие приставки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132420.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Shenmue III Digital Deluxe Edition (2019) [PS4] [USA] 6.0 + Backport [5.05] [Lic
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131680.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ King's Field IV: The Ancient City [Multi-5] (2002) [PS2]
 >>PS2
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131258.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Gran Turismo 7 (2022) [PS4] [USA] 9.00 (backport 5.05/6.72/7.xx/8.xx) [License] 
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130660.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Hogwarts Legacy: Deluxe Edition (2023) [PS4] [EUR]  5.05 [HEN] [License / 1.04 /
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130613.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ GRAN TURISMO 5 Prologue (2008) [PS3] [EUR] 2.16 [Cobra ODE / E3 ODE PRO ISO] [Li
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130204.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130112.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130077.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ GRAN TURISMO 5 Prologue Spec III (2007) [PS3] [JAP] 2.42 [Cobra ODE / E3 ODE PRO
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129824.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Broforce (2015) [PS4] [EUR] 5.05 [HEN] [License / 1.07] [Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127922.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127511.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ The Callisto Protocol Digital Deluxe Edition (2022) [PS4] [USA] 9.0 [HEN] [Repac
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127346.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ The Callisto Protocol Digital Deluxe Edition (2022) [PS4] [EUR] 5.05 [HEN] [Repa
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127288.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ KingStation 0.3a (2024) [PC] [License] [Ru/Multi]
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122699.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Resident Evil Village - Gold Edition (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122107.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Sniper Elite 5 - Deluxe Edition (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.29 / 
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122095.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ GRID Legends - Deluxe Edition (2022) [PS4] [EUR] 5.05 [HEN] [License / 6.01] [Ru
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121383.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101650.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90317.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89144.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PSP
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88069.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86651.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85631.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85631.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85434.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85412.jpg" />
 </div>
 
 

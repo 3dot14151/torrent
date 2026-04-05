@@ -6,7 +6,7 @@ VA - 12 Inch Dance: 80s Pop (2016) [FLAC|Lossless|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544249.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Top Of The Pops '1983 (2017) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <19
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_544211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544211.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ Nedelle Torrisi - Only For You (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543834.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ VA - Sounds Of The Eighties The Rolling Stone Collection 1982-1983 (1995) Time L
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_543766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543766.jpg" />
 </div>
 
 
@@ -124,7 +124,7 @@ Elton John - Madman Across The Water (2022) 3xCD, Deluxe Edition [FLAC|Lossless|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542687.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Tove Styrke - Sway (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Electronic, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542432.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Kylie Minogue - Fever (2001) [FLAC|Lossless|tracks + .cue] <House, Synth-pop, Di
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_542423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542423.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Helen Shapiro - Sensational (Uncollected Helen Shapiro) (2003) [FLAC|Lossless|im
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541975.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Budka Suflera - Mokre Oczy (2002?) [FLAC|Lossless|image + .cue] <Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541900.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Kim Petras - Clarity (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541898.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Budka Suflera - Bal Wszystkich Swietych (2000) [FLAC|Lossless|tracks + .cue] <Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541800.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Los Rivera Destino - Besitos Y Besitas (2022) [FLAC|Lossless|WEB-DL|tracks] <Lat
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_541123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541123.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ VA - Divas (2004) [FLAC|Lossless|image + .cue] <Pop, Electronic, Jazz, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540654.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ MarieMarie - O (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Art Pop, D
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540622.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ VA - Sounds Of The Eighties The Rolling Stone Collection 1983-1985 (1995) Time L
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540485.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Bee Gees - Best Of Bee Gees Vol.1 (1969) Reissue, 1987, Polydor [FLAC|Lossless|i
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_540368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540368.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Tracey Thorn - SOLO : Songs And Collaborations 1982 - 2015 (2015) 2CD [FLAC|Loss
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538983.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ KAZKA - КАРМА (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538446.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Carrie Underwood - Greatest Hits - Decade #1 (2014) [FLAC|Lossless|WEB-DL|tracks
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_538279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538279.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Hanne Sorvaag - Cover Me (2010) [FLAC|image + .cue]<Pop / Soft Rock / Country>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_537201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537201.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ VA - The Late '50s - The Top 10 Collection (1998) 4CD [FLAC|Lossless]<Pop, Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536430.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Heather Nova - Pearl (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536391.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ VA - Sláger Rádió - Sláger Slágerek. Vol 3 (2000) [FLAC|Lossless|image + .c
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536383.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Tarkan - Tarkan (1999) [FLAC|Lossless|tracks + .cue] <Pop, Folk, World, & Countr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536372.jpg" />
 </div>
 
 
@@ -710,7 +710,7 @@ Mark Ronson - Late Night Feelings (2019) [FLAC|Lossless|tracks + .cue] <Electron
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536319.jpg" />
 </div>
 
 
@@ -739,7 +739,7 @@ VA - Sláger Rádió - Sláger Slágerek. Vol 2 (1999) [FLAC|Lossless|image + .c
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_536310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536310.jpg" />
 </div>
 
 

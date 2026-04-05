@@ -1,3 +1,32 @@
+###  Публикация: 1081175   (284894) от 09.12.2016
+
+Loya - Aimovoria (2016) [MP3|320 Kbps] <Alternative Metal, Post-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aster 02:58
+02. Crimson 04:49
+03. Vitaly 04:43
+04. Void 04:32(   Читать дальше...   )Жанр: Alternative Metal, Post-RockПродолжительность: 00:52:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E219B181C2D2602F129763B1BEEAA1E5C75F5553
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1081163   (284893) от 09.12.2016
 
 Those Who Fear - 3 Альбома (2013-2016) [MP3|320 кб/с]<Moshable Metalcore, Hardcore, Christian Deathcore>
@@ -6,7 +35,7 @@ Those Who Fear - 3 Альбома (2013-2016) [MP3|320 кб/с]<Moshable Metalco
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284893.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Those Who Fear - 3 Альбома (2013-2016) [FLAC|tracks|Lossless]<Moshable Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284892.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Ghost Of Mary - Oblivaeon (2016) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284886.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Merge - Ineffable (2016) [MP3|320 Kbps] <Alternative Rock, Post-Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284802.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Edge - Edge (1970) Reissue, 2009, Tone Arm [MP3|320 Kbps] <Psychedelic Rock, Har
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284796.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Peter Cox - The S1 Sessions (2010) [FLAC|Lossless|image + .cue] <Rock, Blues Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284780.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284769.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Centric Jones - The Antikythera Method (2011) [FLAC|Lossless|image + .cue] <Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284730.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Circus Brimstone - Live - Brimstoned In Europe (2005) [FLAC|Lossless|image + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284729.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Missa Mercuria - Missa Mercuria (2002) [FLAC|Lossless|image + .cue] <Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284686.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Aqualung - Memory Man (2007) Japan Edition [FLAC|Lossless|tracks + .cue] <Pop Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284684.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Joe Satriani - Supernova Remix - The Free EP (2016) [MP3|320 Kbps] <Instrumental
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284629.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Luca Turilli's Rhapsody - Prometheus: Cinematic and Live (2016) [MP3|320 Kbps] <
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284614.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Lorelei - Тени Октября (2017) [MP3|320 Kbps] <Gothic Doom Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284607.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284607.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Circle Of Dust (Klayton) - Machines Of Our Disgrace (2016) [MP3|320 Kbps] <Indus
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284602.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Peter Gabriel - Hit (2003) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Art R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284489.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284439.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284417.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Alter Bridge - Walk The Sky (2019) [MP3|320 Kbps] <Alternative Rock, Alternative
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284398.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284282.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284271.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ VA - Het Allerbeste Uit Radio 1 Classics 1000 - 2019 (2019) 4CD, Compilation [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284256.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Event Horizon - Naked On The Black Floor (2006) [FLAC|mage +.cue|Lossless]<Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284145.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Thomsen - Unbroken (2014) [FLAC|mage +.cue|Lossless]<Heavy, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284144.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Mortal Infinity - Final Death Denied (2015) [MP3|320 кб/с]<Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284141.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Mortal Infinity - Final Death Denied (2015) [MP3|320 кб/с]<Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D552A728F5C6A5551247FFD47E7E58821312E2D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964145   (284137) от 10.12.2015
-
-Cachemire - Photochope-moi (2015) [FLAC|Lossless]<Pop-Rock, Hard-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_284137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L'animal [2:37]
-02. Hasbeen [3:22]
-03. Mustang [3:43]
-04. Photochope-moi [5:04](   Читать дальше...   )Жанр: Pop-Rock, Hard-RockПродолжительность: 00:49:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84055FE1C52D184777F76BD472E4335CE83EC963
 ```
 
 https://mybot314.ru/tekegram_catalog/

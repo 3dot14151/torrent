@@ -1,3 +1,84 @@
+###  Публикация: 1459665   (1023102) от 02.04.2021
+
+Ульяна Соболева | Цикл «Чёрный Аспид» [2 книги] (2018-2021) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023102.jpg" />
+</div>
+
+
+###  Подробнее
+
+Арина — студентка из провинции, знакомится с девушкой Лизой из очень богатой семьи, они становятся лучшими подругами. В разгар одной из вечеринок в доме Лизы Арине становится плохо, а когда она приходит в себя, то оказывается, что ее похитили и не просто похитили, а отдали на откуп царю Преисподней. Она, девушка из мегаполиса, попала совсем в иной мир, где царит (   Читать дальше...   )Жанр: Историческое фэнтези, Любовное фэнтези, Эротические романыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACEFE3404F293419A5177989789A221A95BB2414
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459605   (1023083) от 02.04.2021
+
+Кирилл Киреев | Первый (2021) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023083.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ужасающая древняя война не пощадила никого. Ни нападающих, ни защитников. Из пепла поднимались города, чтобы снова рассыпаться в пыль. Для противостояния врагам, нужна огромная сила и мудрость прошлых поколений. Сотни тысяч лет Хранители защищали этот мир, но всему приходит конец. Сталь покрывает ржа, боевые кристаллы дают трещины, а мир на пороге новой Войны. Войны (   Читать дальше...   )Жанр: Боевая фантастика, ФэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5043516D7310958EF8CA905A0A817AD3F4F6B9A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420394   (1023036) от 02.04.2021
+
+Владислав Бобков | «Алчущий силы» [3 книги] (2020-2021) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023036.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цикл: «Алчущий силы». книги 1-3.
+
+Он ищет опасности, вызова, адреналина. Смертельные схватки, чудовищные монстры - все это то, чего он жаждет всем своим существом.
+Он тот, кто лишь закаляется в огне битв.(   Читать дальше...   )Жанр: Боевое фэнтези, Попаданцы в магические мирыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C12B4222141DD7A76743EE947A9BDB552FA4B223
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329699   (1022885) от 03.04.2021
 
 Юрий  Погуляй |Цикл "Мир Сценариста" [3 книги] (2019 - 2021) [FB2] [Обновляемая]
@@ -6,7 +87,7 @@
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022885.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022684.jpg" />
 </div>
 
 
@@ -61,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022516.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022219.jpg" />
 </div>
 
 
@@ -113,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021772.jpg" />
 </div>
 
 
@@ -141,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021537.jpg" />
 </div>
 
 
@@ -167,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021481.jpg" />
 </div>
 
 
@@ -195,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021405.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021405.jpg" />
 </div>
 
 
@@ -224,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020906.jpg" />
 </div>
 
 
@@ -253,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020636.jpg" />
 </div>
 
 
@@ -281,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020545.jpg" />
 </div>
 
 
@@ -307,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020371.jpg" />
 </div>
 
 
@@ -336,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019899.jpg" />
 </div>
 
 
@@ -364,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019879.jpg" />
 </div>
 
 
@@ -390,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019748.jpg" />
 </div>
 
 
@@ -418,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019689.jpg" />
 </div>
 
 
@@ -446,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019618.jpg" />
 </div>
 
 
@@ -472,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019533.jpg" />
 </div>
 
 
@@ -501,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019197.jpg" />
 </div>
 
 
@@ -529,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018579.jpg" />
 </div>
 
 
@@ -555,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018509.jpg" />
 </div>
 
 
@@ -584,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018363.jpg" />
 </div>
 
 
@@ -613,7 +694,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018337.jpg" />
 </div>
 
 
@@ -624,90 +705,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD520ACB01CDDD733973665FBB952959AF864400
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466822   (1018216) от 01.05.2021
-
-Игорь Осипов | Леди Артур (2021) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018216.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая книга цикла "Бабье царство"
-
-Новые приключения нашего соотечественника Юрия в мире Реверс. На сей раз ему предстоит помочь юной графине Клэр свершить кучу подвигов, состояться как рыцарше и обрести уверенность в себе. В отряде будут новые герои и героини, и всем им предстоит много приключений, совмещенных с открытием белых пятен на карте и закрытием (   Читать дальше...   )Жанр: Героическое фэнтези, Попаданство, Городское фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE97EFD084535995E18D98BA0E89DBEF2B27FF26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466935   (1018155) от 01.05.2021
-
-Василий Горъ | «Ромм» [3 книги] (2021) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цикл: «Ромм». книги 1-3.
-
-Столкновение цивилизаций бывает разным. И далеко не всегда шероховатости в менталитетах их представителей сглаживают специалисты. Иногда этим приходится заниматься личностям, интересы которых лежат очень далеко от проблем прикладной ксенологии. И вот что из этого получается...Жанр: Боевая фантастика, Космическая фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BF295697A840B025F376EF227F929B440197913
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467074   (1017994) от 02.05.2021
-
-Павел Иевлев | Цикл «Хранители Мультиверсума» [7 книг] (2020-2021) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017994.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цикл о приключениях в смежных мирах множественной вселенной.
-
-Однажды тебе просто открывают дверь, за которой все немного не так. Или совсем не так? Или эта дверь - не то, что ты думаешь?Жанр: Научная Фантастика, ПриключенияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53EB13715DCDE93359242A9D39D80BF3DF3F844C
 ```
 
 https://mybot314.ru/tekegram_catalog/

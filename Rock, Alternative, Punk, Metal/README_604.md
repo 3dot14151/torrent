@@ -1,3 +1,32 @@
+###  Публикация: 1161037   (467636) от 28.08.2017
+
+Svartsyn - In Death (2017) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	Seven Headed Snake 	07:25
+02. 	Dark Prophet 		07:53
+03. 	With Death 		06:14
+04. 	Inside the White Mask 	06:48(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:46:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12D8E59C903DAE9C7E6BEE282877A38E79650950
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1160973   (467634) от 28.08.2017
 
 Taberah - Sinner's Lament (2017) Japan [FLAC|Lossless|image + .cue] <Power Metal>
@@ -6,7 +35,7 @@ Taberah - Sinner's Lament (2017) Japan [FLAC|Lossless|image + .cue] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467634.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Hidria Spacefolk - Astronautica (2012) [MP3|~240 kbps] <Psychedelic Rock,Progres
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467602.jpg" />
 </div>
 
 
@@ -65,7 +94,7 @@ Humanitas Error Est - Human Pathomorphism (2016) [FLAC|Lossless|image + .cue] <B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467596.jpg" />
 </div>
 
 
@@ -94,7 +123,7 @@ Secret Sphere - The Nature Of Time (2017) Japan [FLAC|Lossless|image + .cue] <Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467594.jpg" />
 </div>
 
 
@@ -123,7 +152,7 @@ Masterplan - PumpKings (2017) Japan[FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467589.jpg" />
 </div>
 
 
@@ -152,7 +181,7 @@ Signum Regis - Decennium Primum (2017) Japan [FLAC|Lossless|image + .cue] <Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467585.jpg" />
 </div>
 
 
@@ -181,7 +210,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467491.jpg" />
 </div>
 
 
@@ -214,7 +243,7 @@ The Isley Brothers & Santana - Power Of Peace (2017) [FLAC|Lossless|image + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467462.jpg" />
 </div>
 
 
@@ -243,7 +272,7 @@ Suicidal Angels - Years of Aggression (2019) [FLAC|Lossless|WEB-DL|tracks] <Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467270.jpg" />
 </div>
 
 
@@ -272,7 +301,7 @@ Howe Gelb - Gathered (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Singer So
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467269.jpg" />
 </div>
 
 
@@ -301,7 +330,7 @@ Deo - Deo (1982) [MP3|320 Kbps] <Electronic, Rock, New Wave>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467267.jpg" />
 </div>
 
 
@@ -330,7 +359,7 @@ HammerFall - Dominion (2019) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467253.jpg" />
 </div>
 
 
@@ -359,7 +388,7 @@ Skepticism - Ordeal (2015) [MP3|320 кб/с]<Funeral Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467190.jpg" />
 </div>
 
 
@@ -388,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467098.jpg" />
 </div>
 
 
@@ -417,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467036.jpg" />
 </div>
 
 
@@ -446,7 +475,7 @@ Joe Perry (Aerosmith) - 2 Альбома (2005-2009) [MP3|320 кб/с]<Hard Rock
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466966.jpg" />
 </div>
 
 
@@ -473,7 +502,7 @@ Angelus Apatrida - Clockwork (2010) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466586.jpg" />
 </div>
 
 
@@ -502,7 +531,7 @@ VA - Rock Classics Top 100 (2007) 6CD [FLAC|image + .cue]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466539.jpg" />
 </div>
 
 
@@ -531,7 +560,7 @@ Eyal Raz - A Story Under The Blanket (2016) [MP3|320 Kbps] <Progressive Rock, Fe
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466444.jpg" />
 </div>
 
 
@@ -560,7 +589,7 @@ AOR - L.A Connection (2014) Japanese Edition [FLAC|Lossless|image + .cue] <Melod
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466441.jpg" />
 </div>
 
 
@@ -589,7 +618,7 @@ Blackjack - Blackjack (1979) Japanese SHM-CD, 2013 [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466433.jpg" />
 </div>
 
 
@@ -618,7 +647,7 @@ Stairway to Heaven - Brain Damage Tribute to Pink Floyd (2012) [MP3|320 Kbps] <R
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466390.jpg" />
 </div>
 
 
@@ -647,7 +676,7 @@ The Pete Best - The Pete Best Combo - Beyong The Beatles 1964-66 (1996) [MP3|320
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466372.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466372.jpg" />
 </div>
 
 
@@ -682,7 +711,7 @@ Necromantia - Chthonic Years / Demo Collection (2018) 2CD [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466304.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466304.jpg" />
 </div>
 
 
@@ -708,7 +737,7 @@ Ars Goetia - Anachoreta (2007) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466109.jpg" />
 </div>
 
 
@@ -722,35 +751,6 @@ Ars Goetia - Anachoreta (2007) [FLAC|Lossless|image + .cue] <Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:479D41F94161D13E25EA0F3192B2B68757084D6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567970   (466108) от 06.08.2022
-
-Voracious Scourge - In Death (2020) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Retribution of the Damned (Intro) 01:44
-02. Heaven's Scorched 05:09
-03. Defleshed Messiah 04:54
-04. Voracious Scourge 03:51(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:40:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C7B7E62A12517E031EE19001426ADA689B98D27
 ```
 
 https://mybot314.ru/tekegram_catalog/

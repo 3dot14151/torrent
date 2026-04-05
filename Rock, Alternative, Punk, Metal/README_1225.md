@@ -1,3 +1,32 @@
+###  Публикация: 1794476   (67238) от 29.04.2025
+
+Corrupter - Gloria in Profundis (2025) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eucharist
+02. Beating Heart Cadaver
+03. Permanent Storage Down Below
+04. Heading for Afterlife(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:32:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48AC25977C51CBBDD3701FBFB13189A8EC1AE992
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1794473   (67236) от 29.04.2025
 
 Aryoch - The Passage (2025) [MP3|320 Kbps] <Symphonic Black, Death Metal>
@@ -6,7 +35,7 @@ Aryoch - The Passage (2025) [MP3|320 Kbps] <Symphonic Black, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67236.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Crematory - Destination (2025) [MP3|320 Kbps] <Industrial Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67220.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ The Cult - Electric Peace (2013) 2xCD, Reissue, Compilation [FLAC|Lossless|image
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67206.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Three Dog Night - Joy To The World - Their Greatest Hits (1974) MCA Records -199
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67202.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Ataudes - Tempus Edax Rerum (2025) [FLAC|Lossless|WEB-DL|tracks] <Black, Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67193.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Awaken the Night - Total Kommando (2025) [MP3|320 Kbps] <Speed, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67192.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Acephala - Division By Zero (2010) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67191.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ VA - Mittelalter Rock (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67163.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Power Surge - Shadows Warning (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67147.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Erroiak - Echoes from the Dark Lands (2025) [FLAC|Lossless|WEB-DL|tracks] <Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67120.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Fit For A King - Collection (2011-2022) 7CD [FLAC|Lossless|tracks + .cue] <Chris
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67105.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Francis Rossi - The Way We Were Vol. 1 (2025) [MP3|320 Kbps] <Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67104.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Tankard - For A Thousand Beers (2022) Box Set, 7xCD, Compilation, Deluxe Edition
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67081.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Bloodtooth - Bloodtooth (2025) [MP3|320 Kbps] <Industrial Black, Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67069.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Finch - Galleons Of Passion (1977) Japanese Edition, Reissue, Remastered, 2007, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67062.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67062.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ His Kingdom Suffers - Lord Have Mercy (2025) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67050.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Desolator - Spirit of Speed (2025) [MP3|320 Kbps] <Speed, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67047.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Conan - Violence Dimension (2025) [MP3|320 Kbps] <Sludge, Stoner, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67046.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ The Night Eternal - Fatale (2023) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67040.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67040.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Changeling - Changeling (2025) [MP3|320 Kbps] <Progressive, Technical Death Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67037.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Gormoth - Oh My Bitter Addictions (2025) [FLAC|Lossless|WEB-DL|tracks] <Atmosphe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67034.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Death Kommander - Pro Patria Mori (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67029.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Dredge the Lethe - Blood Metal (2025) [MP3|320 Kbps] <Symphonic Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67028.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Dessiderium - Keys to the Palace (2025) [MP3|320 Kbps] <Melodic, Progressive Dea
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67026.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Hyena - About Rock and Roll (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67023.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Hyena - About Rock and Roll (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2921AD6FE8F77013F1771E165B42D50EB1E211BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795702   (67020) от 06.05.2025
-
-Slizard - Wicked Tales (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Undead Nightmare (07:27)
- 02. To Neverland (04:31)
- 03. Outstretched Arms (03:20)
- 04. No Way Out (03:26)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A58E66C211AFB224445B6FAC11F7F155B78FB471
 ```
 
 https://mybot314.ru/tekegram_catalog/

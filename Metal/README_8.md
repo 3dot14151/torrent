@@ -6,7 +6,7 @@ Sinner Guard - Sinner Guard (2021) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006293.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Dream Theater - Lost Not Forgotten Archives: A Dramatic Tour of Events - Select 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005733.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Yngwie Malmsteen - Parabellum (2021) [MP3|320 Kbps] <Neoclassical Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005704.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ The Mixgrape - Berried Alive (2021) [MP3|320 Kbps] <Progressive Metal, Math Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005110.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Slipknot - Официальная Дискография (1996-2019) [MP3|320 к
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005023.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Geezer Butler - Manipulations of the Mind: The Complete Collection (2021) [MP3|3
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004875.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Thronehammer - Incantation Rites (2021) [MP3|320 Kbps] <Doom, Sludge>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004382.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Sorceress Of Sin - Constantine (2021) [MP3|320 Kbps] <Melodic Power Metal, Femal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003384.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Dee Snider - Leave a Scar (2021) [MP3|320 kbps] <Heavy Metal, Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003346.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Vanexa - The Last In Black (2021) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002839.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Apocalyptica - Cell-0 (2020) [MP3|320 Kbps] <Cello Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002412.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Mystic Prophecy - Metal Division (2020) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001679.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Rage - Wings of Rage (2020) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001650.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Brothers of Metal - Emblas Saga (2020) [MP3|320 Kbps] <Folk Metal, Viking Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001639.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Destruction - Live Attack (2021) 2xCD [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001463.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Sepultura - Sepulquarta (2021) [MP3|320 Kbps] <Groove Metal, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001417.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Kryptos - The Coils Of Apollyon (2012) [MP3|320 кб/с]<Thrash Metal/Heavy Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000697.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Mechina - Empyrean (2013) [MP3|320 кб/с]<Industrial Death Metal / Cyber Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000477.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Gehenna - 10 альбомов (1994 - 2012) Дискография [MP3|CBR:320,
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999404.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ VA - Futuristic Metal Compilation: Cyber Metal (2011) [MP3|256-320 kbps] <Cyber 
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999337.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Ending Tyranny - Perpetual Greed (2013) [MP3|320 кб/с]<Brutal Deathcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998962.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ A Body Divided - The Rescuer [EP] (2012) [MP3|320 кб/с]<Technical Deathcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998941.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Black Veil Brides - Wretched and Divine: The Story of the Wild Ones (2013) [MP3|
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998288.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ Afgrund - The Age Of Dumb (2012) [MP3|320 кб/с]<Crust Grindcore / Deathgrind>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998101.jpg" />
 </div>
 
 
@@ -741,7 +741,7 @@ Ni - Ni [EP] (2012) [MP3|320 кб/с]<Mathcore / Math Rock / Experimental>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997606.jpg" />
 </div>
 
 
@@ -771,7 +771,7 @@ My Bitter Half - No More Idols (2013) [MP3|320 кб/с]<Deathcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996764.jpg" />
 </div>
 
 

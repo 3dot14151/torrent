@@ -1,177 +1,3 @@
-###  Публикация: 1294827   (626098) от 09.04.2019
-
-Аурика Ротару - Счастье - свободная птица (2006) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Счастье - свободная птица (3:20)
-02. Двi голубки (3:25)
-03. Сентiменте (4:48)
-04. Сопiлка (3:31)(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:144C094C57712EE94E7F082D166C21B29B3323B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909741   (626003) от 18.06.2015
-
-Lenka - The Bright Side (2015) [FLAC|Lossless|WEB-DL]<Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Long Way Home
-02. Blue Skies
-03. Free
-04. Unique(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:35:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14E2D3437DD824E10AA070292D857FDD7F75C35A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909755   (626002) от 18.06.2015
-
-Giorgio Moroder - Deja-Vu (2015) [FLAC|Lossless]<Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 4 U With Love
-02. Deja Vu (feat. Sia)
-03. Diamonds (feat. Charli XCX)
-04. Don’t Let Go (feat. Mikky Ekko)(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:42:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9B554833FFAAA455846A61A8B57E7355DDF7700
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294734   (625979) от 09.04.2019
-
-Miko Mission - Greatest Hits & Remixes (2019) 2CD, Compilation [MP3|320 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How Old Are You (Radio Version) (4:05)
-02. The World Is You (Radio Version) (3:57)
-03. One Step To Heaven (Original Mix) (4:16)
-04. Two For Love (Original Edit Mix) (4:03)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:56:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0083371ACEBB31229F8B6F590BBE3E0BBE37D99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294830   (625975) от 09.04.2019
-
-Алёна Апина - Alena Apina (2016) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ДиДжей (3:57)
-02. S.M.W. (3:13)
-03. Deep in the dark (4:12)
-04. Мелодия (3:01)(   Читать дальше...   )Жанр: PopПродолжительность: 00:27:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6402243D267925C68A7AFC171CBF65B90740F722
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294837   (625969) от 09.04.2019
-
-Lika Star - The Best (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Одинокая луна (4:14)
-02. Падай (4:26)
-03. Пусть пройдёт дождь (4:28)
-04. Падший ангел (4:38)(   Читать дальше...   )Жанр: PopПродолжительность: 01:26:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13D59430C04B436E4BD4B3491459E5F9428C96BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294844   (625965) от 09.04.2019
 
 Miko Mission - Greatest Hits & Remixes (2019) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco>
@@ -180,7 +6,7 @@ Miko Mission - Greatest Hits & Remixes (2019) 2CD, Compilation [FLAC|Lossless|tr
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625965.jpg" />
 </div>
 
 
@@ -209,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625803.jpg" />
 </div>
 
 
@@ -238,7 +64,7 @@ VA - Мальчики это тоже любят (2003) [FLAC|Lossless|image + .
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625795.jpg" />
 </div>
 
 
@@ -267,7 +93,7 @@ Sabrina - Boys: The Best Of Sabrina (2013) Compilation [FLAC|Lossless|tracks + .
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625794.jpg" />
 </div>
 
 
@@ -296,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625715.jpg" />
 </div>
 
 
@@ -325,7 +151,7 @@ VA - Super Italo Made in Spain, 2CD (2019) Compilation [FLAC|Lossless|image + .c
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625656.jpg" />
 </div>
 
 
@@ -351,7 +177,7 @@ Bad Boys Blue - House Of Silence (1991) [FLAC|Lossless|image + .cue] <Disco, Eur
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625635.jpg" />
 </div>
 
 
@@ -380,7 +206,7 @@ Timecop1983 - Lovers (part I) EP (2016) [FLAC|Lossless|WEB-DL|tracks] <80's Retr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625359.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625359.jpg" />
 </div>
 
 
@@ -409,7 +235,7 @@ Culture Beat - Best Of (2003) [FLAC|Lossless]<Techno, Eurodance>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_624916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_624916.jpg" />
 </div>
 
 
@@ -438,7 +264,7 @@ Savage - Tonight (2009) [FLAC|Lossless]<italo-disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_624587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_624587.jpg" />
 </div>
 
 
@@ -473,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624375.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624375.jpg" />
 </div>
 
 
@@ -502,7 +328,7 @@ Billy - I'm Not Ok (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Pop, Electro, Downte
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624122.jpg" />
 </div>
 
 
@@ -531,7 +357,7 @@ Captain & Tennille - Come In From The Rain (1977) CD, Album, Remastered, 2005, U
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624116.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624116.jpg" />
 </div>
 
 
@@ -560,7 +386,7 @@ Andee - Black And White Heart (2015) Deluxe Version [MP3|320 кб/с]<Pop Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624080.jpg" />
 </div>
 
 
@@ -589,7 +415,7 @@ Belle Epoque - The Best Of (2015) DV Digital [FLAC|Lossless|WEB-DL|tracks] <Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623872.jpg" />
 </div>
 
 
@@ -618,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623837.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623837.jpg" />
 </div>
 
 
@@ -647,7 +473,7 @@ Boys Town Gang - Disco Kicks (The Complete Moby Dick Records Recordings) (1994) 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623780.jpg" />
 </div>
 
 
@@ -677,7 +503,7 @@ Joe Yellow - Greatest Hits & Remixes (2017) 2CD, Compilation [MP3|320 Kbps] <Ita
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623775.jpg" />
 </div>
 
 
@@ -706,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623728.jpg" />
 </div>
 
 
@@ -735,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623427.jpg" />
 </div>
 
 
@@ -749,6 +575,186 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E667F11B64F8C978210CD265A18783E72A49D86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910206   (623419) от 19.06.2015
+
+Комиссар - Grand Collection (2010) [FLAC|image +.cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Королева снежная [4:33]
+02. Нам любовь пророчили [3:17]
+03. Туман-туманище [4:09]
+04. А если честно сказать [3:35](   Читать дальше...   )Жанр: PopПродолжительность: 01:17:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77098645FF3D1E3B1BD961DF138B0710BB33C076
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909994   (623296) от 19.06.2015
+
+Скрябін (Скрябин) - Дякую люди (Останній запис) (2015) 2CD Live [FLAC|image+.cue]<Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кинули
+02. Танець пінгвіна
+03. Мам (6:50)
+04. Годинник(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 02:23:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63EA813E48DC9D92DADFC4CADA4121A75E1F8699
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 522229   (622724) от 13.07.2012
+
+Батыр Закиров - Золотая Коллекция (1959-1971) (2005) [MP3|320 кб/с]<Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622724.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Арабское танго (6:24)
+ 2. Очарован тобой (2:53)
+ 3. Красивая девушка (3:56)
+ 4. О, цветок (2:51)
+ 5. Поцелуй меня (5:29)
+ 6. Я слышу твой голос (3:37)
+ 7. Где ты? (3:42)
+ 8. Раъно (4:17)
+ 9. Приди любимая (2:42)
+ 10. Проводник каравана (3:22)(   Читать дальше...   )Жанр: РетроПродолжительность: 00:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53A19B8B8CB3319D799167A5C37DE45E256B9346
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229838   (622705) от 08.06.2018
+
+Lykke Li - So Sad So Sexy (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hard Rain
+02. Deep End
+03. Two Nights (feat. Aminé)
+04. Last Piece(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28190CB3CEF1590CE3BF29581CA9C612AAFF07CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229743   (622626) от 08.06.2018
+
+Leif Garrett - 3 Studio Albums (1977-1979) LP [MP3|320 Kbps] <Electronic, Pop Rock, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622626.jpg" />
+</div>
+
+
+###  Подробнее
+
+Родился: 11/8/1961 в Голливуде, Калифорния. Американская юная звезда, начал сниматься с сестрой в кино с 5 лет. Осенью 1976 года Лайф Гарретт подписал контракт с Atlantic Records и записал свой первый одноименный альбом выпущенный в 1977 году, и вскоре первые четыре сингла из альбома стали хитами, занимая лидирующие позиции в чартах. В 1978 году он заключил контракт (   Читать дальше...   )Список альбомов:
+1977 - Leif Garrett
+1978 - Feel The Need
+1979 - Same Goes For You(   Читать дальше...   )Жанр: Electronic, Pop Rock, DiscoПродолжительность: 01:31:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FED752BA253BFB611C92A215ABBCCDDCB56DF76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229857   (622610) от 08.06.2018
+
+Belle Epoque - Now (1979) RM, 2002, CD-Maximum [APE|Lossless|image + .cue] <Disco, Funk>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jump Down (5:47)
+ 02. Gimmie Time (3:40)
+ 03. Lose My Man (4:51)
+ 04. Now (5:32)(   Читать дальше...   )Жанр: Disco, FunkПродолжительность: 00:51:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06E7311CA9A453086637D0D46EEC8F9AA86FD94D
 ```
 
 https://mybot314.ru/tekegram_catalog/

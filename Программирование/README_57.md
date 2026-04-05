@@ -1,81 +1,3 @@
-###  Публикация: 1729429   (53277) от 15.06.2024
-
-Билл Любанович | FastAPI: веб-разработка на Python (2024) [PDF, EPUB]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53277.jpg" />
-</div>
-
-
-###  Подробнее
-
-FastAPI — относительно новый, но надежный фреймворк с чистым дизайном, использующий преимущества актуальных возможностей Python. Как следует из названия, FastAPI отличается высоким быстродействием и способен конкурировать в этом с аналогичными фреймворками на таких языках, как Golang. Эта практическая книга расскажет разработчикам, знакомым с Python, как FastAPI (   Читать дальше...   )Жанр: ПрограммированиеИздательство: ПитерФормат: PDF, EPUBКачество: Изначально электронное (ebook) (PDF, EPUB), OCR (PDF)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED43AAEF70E8770D7A347A3310C140F5D384886E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821418   (52067) от 02.10.2025
-
-Лили Мара, Джоэл Холмс | Переход на Rust. Рефакторинг исходного кода с других языков (2025) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга научит вас расширять функциональность и повышать производительность приложений за счет поэтапного рефакторинга кодовой базы на язык Rust. Вы узнаете, как использовать Rust для обертывания опасного исходного кода, вызывать стандартные и прикладные библиотеки языка Rust и даже использовать формат байт-кода Wasm для исполнения кода Rust в браузере, а также (   Читать дальше...   )Жанр: ПрограммированиеПеревод: А. В. ЛогуновИздательство: ДМК ПрессФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E73691CD21B7D3161CC95AB8ED3AB70BCDC1F40E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558904   (51879) от 27.06.2024
-
-Книжная серия | Профессиональное программирование [63 книги (+2СD, код, пример)] (2005-2023) [PDF][Обновляемая]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия "Профессиональное программирование" - незаменимый помощник в изучении современных технологий программирования и выборе оптимальных и эффективных решений при разработке программ. Для квалифицированных разработчиков программного обеспечивания, системных аналитиков, архитекторов проектовЖанр: Компьютерная литератураИздательство: БХВ-ПетербургФормат: PDFКачество: Различное
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B8F70AD38088D42DEFA6149F529383EF8102CE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1733088   (51870) от 27.06.2024
 
 О.И. Цилюрик | Расширения ядра Linux: драйверы и модули (2023) [PDF]
@@ -84,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51870.jpg" />
 </div>
 
 
@@ -110,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51578.jpg" />
 </div>
 
 
@@ -136,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50089.jpg" />
 </div>
 
 
@@ -164,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50057.jpg" />
 </div>
 
 
@@ -190,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49968.jpg" />
 </div>
 
 
@@ -216,7 +138,7 @@ Nimish Sanghi | Deep Reinforcement Learning with Python: RLHF for Chatbots and L
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49956.jpg" />
 </div>
 
 
@@ -243,7 +165,7 @@ Neil Smyth | SwiftUI Essentials- iOS 15 Edition: Learn to Develop iOS Apps Using
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49737.jpg" />
 </div>
 
 
@@ -270,7 +192,7 @@ T. Edet | Database Fundamentals (2024) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49287.jpg" />
 </div>
 
 
@@ -296,7 +218,7 @@ S.L. Nita, M.J. Mihailescu | Cryptography and Cryptanalysis in Java. Second edit
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49280.jpg" />
 </div>
 
 
@@ -323,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48855.jpg" />
 </div>
 
 
@@ -350,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48844.jpg" />
 </div>
 
 
@@ -376,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48826.jpg" />
 </div>
 
 
@@ -402,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48822.jpg" />
 </div>
 
 
@@ -428,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48810.jpg" />
 </div>
 
 
@@ -455,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48803.jpg" />
 </div>
 
 
@@ -481,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48641.jpg" />
 </div>
 
 
@@ -507,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48617.jpg" />
 </div>
 
 
@@ -535,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46260.jpg" />
 </div>
 
 
@@ -561,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46027.jpg" />
 </div>
 
 
@@ -590,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44472.jpg" />
 </div>
 
 
@@ -616,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43621.jpg" />
 </div>
 
 
@@ -642,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43413.jpg" />
 </div>
 
 
@@ -668,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42914.jpg" />
 </div>
 
 
@@ -679,6 +601,84 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:449E690BF2BBFEC49EA71A10F00CCF8E0BA20714
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751002   (42764) от 22.09.2024
+
+Huseyin Babal | gRPC Microservices in Go (2023) [PDF][EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга научит вас создавать готовые к производству микросервисы с помощью Go и gRPC. В нем вы научитесь создавать эффективные API на Go, использовать gRPC для сетевого взаимодействия, а также развертываться в облаке и Kubernetes. Полезные примеры, в том числе полное веб-приложение для электронной коммерции, облегчают понимание каждой концепции. Вы также получите представление (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Manning PublicationsФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A307F8546003AD7BB4D515BBBE07444F8BDAFD1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752044   (42141) от 28.09.2024
+
+Мара Бос | Rust. Атомарности и блокировки (2024) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42141.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга позволяет программистам получить четкое представление о низкоуровневой конкурентности и ее реализации. Даны основы конкурентности в Rust. Раскрыты понятия об атомарности и упорядочении памяти. Рассмотрены практические аспекты создания своих собственных каналов, своего собственного типа Arc и своих собственных блокировок. Дано представление о внуrренней "кухне" (   Читать дальше...   )Жанр: ПрограмированиеПеревод: Н. ВильчинскийИздательство: O'ReillyФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFF014144F7349B3D5B3306B12CEB150425DBAF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753996   (41060) от 08.10.2024
+
+Matt Neuburg | iOS 15 Programming Fundamentals with Swift (2021) [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Move into iOS development by getting a firm grasp of its fundamentals, including the Xcode 13 IDE, Cocoa Touch, and the latest version of Apple's acclaimed programming language, Swift 5.5. With this thoroughly updated guide, you'll learn the Swift language, understand Apple's Xcode development tools, and discover the Cocoa framework.Жанр: Программирование, Swift, iOSЯзык: АнглийскийИздательство: O'Reilly Media, Inc.Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:645F812A674867689329E60584232BBC5828C992
 ```
 
 https://mybot314.ru/tekegram_catalog/

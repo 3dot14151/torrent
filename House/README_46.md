@@ -1,3 +1,90 @@
+###  Публикация: 1157728   (524775) от 13.08.2017
+
+VA - Deep House Holiday 2017 [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexx Rave - Dance With Me (feat. Alexeev) 04:35
+02. FacoustiK - OM 07:19
+03. Rompasso - Angetenar 06:05
+04. Purecloud5 - Paradise For Us 04:57(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:58:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E3B36C1D333A6F78219BD86D8A5527B5B3E5D95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240547   (524251) от 12.08.2018
+
+VA - Ibiza Deep House Essentials (2018) [MP3|320 Kbps] <House, Deep House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KVPV - Star (Club Mix) 4:16
+02. Jozeph - Black Christmas (Original Mix) 8:40
+03. TAKIRU - The Nazz (Original Mix) 7:04
+04. FAT V - Wake Me (Original Mix) 10:09(   Читать дальше...   )Жанр: House, Deep House, ProgressiveПродолжительность: 04:18:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F1EB2AFF928817671C029315AB52E970F4C43FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313461   (523749) от 09.07.2019
+
+VA - Tour De Traum XVII (2019) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emde & Clock - Time
+02. Tas Kessler - Maitage
+03. Davidovitch - Digital Moon
+04. Room Service - Never Ending Story(   Читать дальше...   )Жанр: HouseПродолжительность: 10:29:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3744535F1CA10928ECD839776E3516BE0C522168
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1241110   (522200) от 15.08.2018
 
 VA - Black Hole House Music 08-18 (2018) [MP3|320 Kbps] <House>
@@ -6,7 +93,7 @@ VA - Black Hole House Music 08-18 (2018) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522200.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Moonbeam - The Secret: Remixes (Live Edition) (2012) [MP3|320 кб/с]<Progressi
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520351.jpg" />
 </div>
 
 
@@ -70,7 +157,7 @@ VA - Groove Culture Ibiza (Compiled By Micky More & Andy Tee) (2019) [MP3|320 Kb
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520337.jpg" />
 </div>
 
 
@@ -96,7 +183,7 @@ VA - Deep House Summer '18 (2018) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520256.jpg" />
 </div>
 
 
@@ -125,7 +212,7 @@ VA - Pop Bangers, Vol. 2 (2019) [MP3|320 Kbps] <Deep House, Tech House, Progress
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519443.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Novaspace - Cubes (2004) [MP3|320 Kbps] <Euro-House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518428.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ VA - Elrow Vol. 3 (Mixed By Claptone, Tini Gessler & Eddy M) (2018) [MP3|320 Kbp
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518422.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ VA - Deep House Summer (2018) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518419.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Marfen - Velvet Summer (2018) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_517187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517187.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ VA - Dirty Sexy House Club 8 (Smashing Tunes) (2018) [MP3|320 Kbps] <Funky, Club
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_516234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516234.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ VA - Barcelona to Mykonos - The Circuit Music Guide (2018) [MP3|320 Kbps] <House
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513984.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ VA - Power Lifting Platinum Hits Fitness Session (2019) [MP3|320 Kbps] <Funky, C
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513901.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Jaytech - Multiverse (2012) [MP3|~225 кб/с (V1)]<Progressive House, Trance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_513519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513519.jpg" />
 </div>
 
 
@@ -389,7 +476,7 @@ VA - Deep House Music DJ Charts Ibiza (2015) [MP3|320 кб/с]<Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511885.jpg" />
 </div>
 
 
@@ -418,7 +505,7 @@ VA - Ibiza Club Hits (2015) [MP3|320 кб/с]<Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511873.jpg" />
 </div>
 
 
@@ -447,7 +534,7 @@ VA - Milk & Sugar Summer Sessions 2022 [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_511485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511485.jpg" />
 </div>
 
 
@@ -476,7 +563,7 @@ VA - Future House (2019) [MP3|320 Kbps] <House, Progressive House, FutureHouse, 
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510982.jpg" />
 </div>
 
 
@@ -505,7 +592,7 @@ VA - Like A Summer Day, Vol. 3 (2019) [MP3|320 Kbps] <House, Deep House, Indie D
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510978.jpg" />
 </div>
 
 
@@ -534,7 +621,7 @@ Hard Bass School - Album (2012) [MP3|320 кб/с]<Pumping House / Hardbass>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_510444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510444.jpg" />
 </div>
 
 
@@ -567,7 +654,7 @@ VA - Progressive Essentials 02 (2015) [MP3|320 кб/с]<Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_508245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508245.jpg" />
 </div>
 
 
@@ -596,7 +683,7 @@ VA - Summer Party 2019 [MP3|320 Kbps] <House, Club, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505970.jpg" />
 </div>
 
 
@@ -625,7 +712,7 @@ VA - Ice Cream 2019 [MP3|320 Kbps] <House, Deep  House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_505220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505220.jpg" />
 </div>
 
 
@@ -654,7 +741,7 @@ Motivation Sport Fitness - Dance Booty Workout Motivation (2019) [MP3|320 Kbps] 
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504140.jpg" />
 </div>
 
 
@@ -668,105 +755,6 @@ Motivation Sport Fitness - Dance Booty Workout Motivation (2019) [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E445685EC31A7D9AA91F654B1F41774E5F920ED0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 162437   (504120) от 14.07.2022
-
-Brooklyn Bounce - 10 Albums + 39 Singles/Remixes (1996 - 2012) [MP3|320 kbps]<Progressive House, House, Progressive Trance>
-
->>След.
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_504120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cold Rock A Party 2012 (Dirty Herz Radio Vocal Mix) (4:00)
-02. Cold Rock A Party 2012 (Ido Shoam Remix Edit) (3:48)
-03. Cold Rock A Party (Die Hoerer Remix Edit) (3:40)
-04. Cold Rock A Party 2012 (Diverson & Mixee Remix Edit) (3:33)(   Читать дальше...   )Жанр: Progressive House, House, Progressive TranceПродолжительность: 00:48:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E6B761E95BC6BB93AA88B35F6BB86DF4EEB5DF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541103   (501606) от 31.08.2012
-
-VA - London Chill House Night - Chilled Grooves Deluxe Selection (2012) [MP3|320 кб/с]<Deep House, Chill House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calvin Adam - True (Chill Night Instrumental)
-02. Mandalay - Infinity (Westwood Remix)
-03. Sundance - New Gold Dream (Instant Classic Remix)
-04. Benny Santiago - Give Me the Night (Soho Edit)
-05. Brett Sinclair - Sex On the Beach (UK Mix)
-06. Damon Everett - Soulful Night (Ritchie and Guy Dub)
-07. Neal Caffrey - Year of the Cat (Jody Negro Chill House Mix)
-08. Limelight - New Year's Day (Villalobos Deep Mix)
-09. Scott Simmons - Children (London Bar Grooves Remix)
-10. Clifton Jones - Could You Be Loved (TC Boulevard Dub)(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:50:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D23931980BEC2E6C4F37FDB9B4C0D94D5BBE4F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541096   (501599) от 31.08.2012
-
-VA - Messages Ibiza 2012 (compiled & mixed By Spiritchaser) (2012) [MP3|320 кб/с]<Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_501599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Osunlade - Same Thing (Spiritchaser Remix) (feat. Maiya James)
-02. Spiritchaser - Conch
-03. The Layabouts - Here With You (The Layabouts Vocal Mix) (feat. Terri Walker)
-04. Baunz - The Same Thing (Huxley Dub)
-05. Aki Bergen - Into My Soul (Spiritchaser Remix) (feat. Carmen Sherry)
-06. LD-10 - Earthworks (Main Mix)
-07. The Realm - When in Rome (Spiritchaser's Balearic Re-Touch)
-08. Imaani - Found My Light (Spiritchaser Re-Edit)
-09. Kyodai - Do You Wanna (Original Mix)
-10. Alison David - Dreams (Andre Lodemann Still Dreaming Remix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:02:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71B0280D48BCDF65630F285937483041527A23CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

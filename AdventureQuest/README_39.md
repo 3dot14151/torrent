@@ -1,3 +1,81 @@
+###  Публикация: 1563888   (502218) от 16.07.2022
+
+MADiSON (2022) [Ru/Multi] (1.0.0) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502218.jpg" />
+</div>
+
+
+###  Подробнее
+
+MADiSON - это психологический хоррор от первого лица с напряженным геймплеем и ужасающей, но захватывающей историей. Что бы вы сделали, если бы проснулись в темной запертой комнате с окровавленными руками? Вам предстоит играть за Луку и пережить адские пытки MADiSON - демона, который заставляет вас совершать чудовищные вещи для продолжения многолетнего кровавого (   Читать дальше...   )Тип издания: LicenseРазработчик: BLOODIOUS GAMES LLCЖанр: Action, Adventure, HorrorЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Турецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Турецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99B347B3A74114A3495A2865B0517D8CDBF50627
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317208   (502050) от 30.07.2019
+
+CENTRALIA (2019) [Ru/Multi] (1.0) License PLAZA
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502050.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная история начнется в Сентралие, штате Пенсильвания. Я жил обычной жизнью, работа, любящая жена, любимая дочка. Я не мог представить себе, что произойдет в роковой день в мае 1992 года. Меня зовут Генри Нельсон, и я расскажу вам свою ужасную историю. Моя жена пропала без вести 7 лет назад, страшная авария в неприметном городке Сентралия, забрала ее жизнь, под (   Читать дальше...   )Тип издания: LicenseРазработчик: indie_games_studioЖанр: Adventure (Horror), Puzzle, 1st Person, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43E9F2259F119A3D6629B24DE5385267EF7E7C60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317296   (502045) от 30.07.2019
+
+CENTRALIA (2019) [Ru/Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502045.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная история начнется в Сентралие, штате Пенсильвания. Я жил обычной жизнью, работа, любящая жена, любимая дочка. Я не мог представить себе, что произойдет в роковой день в мае 1992 года. Меня зовут Генри Нельсон, и я расскажу вам свою ужасную историю. Моя жена пропала без вести 7 лет назад, страшная авария в неприметном городке Сентралия, забрала ее жизнь, под (   Читать дальше...   )Тип издания: RepackРазработчик: indie_games_studioЖанр: Adventure (Horror), Puzzle, 1st Person, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B18A65238BC8E8437CE8BE14DAD6564E6DED744F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072091   (500269) от 18.07.2022
 
 Atlantis 2: Beyond Atlantis / Атлантида 2 (1999) [Multi] (1.0) License GOG
@@ -6,7 +84,7 @@ Atlantis 2: Beyond Atlantis / Атлантида 2 (1999) [Multi] (1.0) License 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500269.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ MADiSON (2022) [Ru/Multi] (1.1.0/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_500259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500259.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Syberia 2 / Сибирь 2 (2004) [Ru/Multi] (1.0.0.10) Repack Cheshire28
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498952.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_498428.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498428.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_496183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496183.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Wind Peaks (2020) [Ru/Multi] (2019.3.15.65342) Repack DeMax-95
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494714.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Obduction (2016) [Ru/Multi] (1.8.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494385.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Endling - Extinction is Forever (2022) [Ru/Multi] (0.16.25) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_494306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494306.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Event[0] (2016) [En] (1.0/u1) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_493498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493498.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ CYPHER: Cyberpunk Text Adventure [En] (Lossless Repack/1.0) 2012 | SHARINGAN
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492697.jpg" />
 </div>
 
 
@@ -271,7 +349,7 @@ Silver Chains (2019) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_492285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492285.jpg" />
 </div>
 
 
@@ -297,7 +375,7 @@ The Trail: Frontier Challenge (2017) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_491270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491270.jpg" />
 </div>
 
 
@@ -323,7 +401,7 @@ Raji: An Ancient Epic (2020) [Ru/Multi] (1.6.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_490014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490014.jpg" />
 </div>
 
 
@@ -349,7 +427,7 @@ Ken Follett's The Pillars of the Earth (2017) [Ru/Multi] (1.0.536) Repack Covfef
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489427.jpg" />
 </div>
 
 
@@ -375,7 +453,7 @@ The Long Dark (2017) [Ru/Multi] (1.10) SteamRip R.G. Игроманы [Episode 1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489424.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489424.jpg" />
 </div>
 
 
@@ -401,7 +479,7 @@ The Vanishing of Ethan Carter Redux (2014) [En/Multi] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_489278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489278.jpg" />
 </div>
 
 
@@ -427,7 +505,7 @@ Ever Forward (2020) [Ru/Multi] (0.1.5/dlc) License GOG [Special Launch Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_488972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488972.jpg" />
 </div>
 
 
@@ -453,7 +531,7 @@ Virginia (2016) [Ru/Multi] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487695.jpg" />
 </div>
 
 
@@ -481,7 +559,7 @@ Virginia (2016) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_487692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487692.jpg" />
 </div>
 
 
@@ -509,7 +587,7 @@ The Suicide of Rachel Foster (2020) [Ru/Multi] (1.0.9V) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486020.jpg" />
 </div>
 
 
@@ -535,7 +613,7 @@ In Fear I Trust (2016) [Ru/Multi] (1.0) Repack Other s [Episodes 1-4]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485063.jpg" />
 </div>
 
 
@@ -561,7 +639,7 @@ Deponia (2012) [Ru/Multi] (4.0.1386/dlc) License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484466.jpg" />
 </div>
 
 
@@ -587,7 +665,7 @@ Apsulov: End of Gods (2019) [Ru/Multi] (1.0.4) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484456.jpg" />
 </div>
 
 
@@ -598,87 +676,6 @@ Apsulov: End of Gods (2019) [Ru/Multi] (1.0.4) License HOODLUM
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7703AD67A730D2D8197B45894F94659AC3D015D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545243   (484223) от 10.09.2012
-
-Black Mirror / Черное зеркало Трилогия [Ru] (Repack) 2003-2011 | Sash HD
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484223.jpg" />
-</div>
-
-
-###  Подробнее
-
-Black Mirror III завершит историю ужасных событий семьи Гордонов, наполненную чередой загадочных убийств, связанных с ними и с проклятием замка "Чёрное Зеркало". Действие этой части начинается через несколько минут после окончания Black Mirror II. Замок горит, и Эдриан пытается скрыться в лесу. Но его, как главного подозреваемого, арестовывает полиция...
-     Находясь под стражей, парень страдает от непонятных кошмаров, которые не дают ему спать по ночам и преследуют днем. За отсутствием улик преступления Эдриана отпускают на свободу. Его гложет множество вопросов, на которых нет ответа, и страхи. Вскоре главный герой начинает подозревать, что его прошлое связано со злом.
- В игре вас ждут 6 частей, на протяжении которых вы побываете в Уиллоу-Крик и районах, расположенных вблизи замка "Чёрное Зеркало", а также во множестве новых локаций. Кроме этого в игре вы повстречаете 50 новых персонажей.
-(   Читать дальше...   )Тип издания: RePackРазработчик: Cranberry ProductionsЖанр: AdventureЯзык озвучки: AнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41E74B7537F45C08C3BC4B0F52D408EAF88904A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159599   (483656) от 20.08.2017
-
-Real Myst (2000) [En] (1.11) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обновленная версия Myst – хита среди приключенческих игр. Теперь – со свободным перемещением на 360°, улучшенной анимацией и многим другим! С самого начала создатели хотели видеть игру именно такой. Так что потушите свет, включите звук погромче и приготовьтесь окунуться с головой в этот сюрреалистический мир...Тип издания: LicenseРазработчик: Cyan WorldsЖанр: Приключение, От первого лица, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3BCC41404E744AD0E2BF000B1526750A89CF854
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938025   (483501) от 17.09.2015
-
-Nightmares from the Deep The Cursed Heart (2012) [Ru/Multi] (Build_7278.286428) Repack Let'sРlay
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_483501.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправляйтесь в захватывающее пиратское приключение! Вы владелец музея, преследующий пирата-нежить, который похитил вашу дочь. Вы быстро поймете, что пират запутался в трагической, многовековой история любви и хочет воскресить свою возлюбленную, используя жизненную силу вашей дочери. Вам ничего не осталось сделать, только покинуть свой безопасный современный музей (   Читать дальше...   )Тип издания: RepackРазработчик: Artifex Mundi sp. z o.o.Жанр: Adventure / Casual Quest / Hidden Object / PuzzleЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский, Итальянский, ИспанскийЯзык интерфейса: Русский, Английский, Немецкий, Французский, Итальянский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C78293DCD9B48435E692D93961A12073CFE35F32
 ```
 
 https://mybot314.ru/tekegram_catalog/

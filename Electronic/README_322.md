@@ -1,3 +1,125 @@
+###  Публикация: 564424   (402993) от 23.10.2012
+
+VA - Ocean Deep Ibiza: The Exquisite Deep House Collection By Eva Pacifico (2012) [MP3|320 кб/с]<Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jorge Takei - Paris (Los Suruba Remix)
+02. Phonique - Vincent Price (Original Mix)
+03. Valentin Huedo - Campo De Flores (Original Mix)
+04. Rosa Lux - Lose You (T. Finland Remix)
+05. Marek Hemmann - You Know (Original Mix)
+06. Oliver Schories - I'm Not (Original Mix)
+07. Robag Wruhme - Donnerkuppel (Original Mix)
+08. Alex Niggemann - Don?t Wait (Original Mix)
+09. Inxec, Droog - Westbound (Original Mix)
+10. 1988 - Youandewan (Original Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:25:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A138A81336EEE4298F3B7C4759AF2D7D0C609CFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169105   (402471) от 28.09.2017
+
+VA - Recoverworld Radio 012 (Mixed by Para X) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dream State - Patagonia (Extended Mix)  8:31
+02.  Manuel Le Saux, Amos & Riot Night - Hand On Heart (Original Mix)  6:45
+03.  Marco Van Deroga - I Know You (Original Mix)  6:17
+04.  Simon McCann - The Unknown (Original Mix)  7:32(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:11:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C58FCF33B8BA3CF9EF249BE28A66950E157971EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169122   (402465) от 28.09.2017
+
+VA - Recoverworld Radio 013 (Mixed by Para X) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Daydreamer - Levitation (JP Bates Remix)  6:44
+02.  Obi - Soulmate (Original Mix)  8:07
+03.  Para X - Dream Zone (Original Mix)  7:12
+04.  Greg Dusten - Higher State (Original Mix)  7:36(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADAB89C2B3C6104DFAB165FAC2DEBC9AD1DAA52A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169498   (402351) от 28.09.2017
+
+Pola & Bryson - This Time Last Year: The Remixes (2017) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pola & Bryson - Call Of The Night (Silence Groove Remix) (05:00)
+ 02. Pola & Bryson feat. Siege MC - Way Back (Data 3 Remix) (05:02)
+ 03. Pola & Bryson feat. BLAKE - Temporary Love (S.P.Y Remix) (06:56)
+ 04. Pola & Bryson - This Time Last Year (Chords Remix) (04:59)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:36:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C551727CF08E92B78A41158C0C589EE3C520926
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169566   (401601) от 29.09.2017
 
 VA - Valleys & Tries Chillout Sounds (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lo-Fi>
@@ -6,7 +128,7 @@ VA - Valleys & Tries Chillout Sounds (2017) [MP3|320 Kbps] <Downtempo, Chillout,
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401601.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401601.jpg" />
 </div>
 
 
@@ -35,7 +157,7 @@ VA - Spot On Epic Ambient Chill (2017) [MP3|320 Kbps] <Ambient, Chillout>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401600.jpg" />
 </div>
 
 
@@ -64,7 +186,7 @@ Ivo Dimchev - Sculptures (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401594.jpg" />
 </div>
 
 
@@ -93,7 +215,7 @@ VA - Deep Study Vol.3 (The Ultimate Playlist To Stay Focus At Work, For  Study O
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401590.jpg" />
 </div>
 
 
@@ -122,7 +244,7 @@ VA - Aly & Fila - Future Sound Of Egypt 515 (2017) [MP3|320 Kbps] <Trance,Uplift
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401588.jpg" />
 </div>
 
 
@@ -151,7 +273,7 @@ VA - Female Vocal Trance Anthems (2017) [FLAC|Lossless|WEB-DL|tracks] <Vocal Tra
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401468.jpg" />
 </div>
 
 
@@ -180,7 +302,7 @@ Depeche Mode - Going Backwards (Remixes) (2017) [FLAC|Lossless|WEB-DL|tracks] <S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_401412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401412.jpg" />
 </div>
 
 
@@ -209,7 +331,7 @@ VA - Ori Uplift & Ahmed Romel - Uplifting Only 242 (2017) [MP3|320 Kbps] <Uplift
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_400611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400611.jpg" />
 </div>
 
 
@@ -238,7 +360,7 @@ VA - 2 Years Suanda True (2017) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399819.jpg" />
 </div>
 
 
@@ -267,7 +389,7 @@ VA - Festival Hits (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399812.jpg" />
 </div>
 
 
@@ -296,7 +418,7 @@ VA - ADE Trance Anthems (2017) [MP3|320 Kbps] <Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399804.jpg" />
 </div>
 
 
@@ -325,7 +447,7 @@ VA - Trance Workout Hits (2017) [MP3|320 Kbps] <Vocal Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_399479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399479.jpg" />
 </div>
 
 
@@ -354,7 +476,7 @@ VA - ADE Trance Festival (2017) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398745.jpg" />
 </div>
 
 
@@ -383,7 +505,7 @@ VA - Pump & Run, Vol. 1 (Workout Selection) (2017) [MP3|320 Kbps] <Progressive H
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398686.jpg" />
 </div>
 
 
@@ -412,7 +534,7 @@ DJ VoJo - Aloha (2017) [FLAC|Lossless|WEB-DL|tracks] <Tropical House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398683.jpg" />
 </div>
 
 
@@ -441,7 +563,7 @@ VA - Uplifting Trance Sessions Vol.3 (2017) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398677.jpg" />
 </div>
 
 
@@ -470,7 +592,7 @@ VA - Best of: Ibiza Beach House 2007-2012 (2012) [MP3|320 кб/с]<Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_398128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398128.jpg" />
 </div>
 
 
@@ -505,7 +627,7 @@ VA - Sunset Lovers Lounge – Chill Vibes Del Mar (2017) [MP3|320 Kbps] <Baleari
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397771.jpg" />
 </div>
 
 
@@ -534,7 +656,7 @@ DJ VoJo - Aloha (2017) [MP3|320 Kbps] <Tropical House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_397770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397770.jpg" />
 </div>
 
 
@@ -563,7 +685,7 @@ VA - Ahmed Romel - Orchestrance 212 (2017) [MP3|256 Kbps] <Trance,Uplifting Tran
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396778.jpg" />
 </div>
 
 
@@ -592,7 +714,7 @@ VA - BIPPP : French Synth-Wave 1979/85 (2006) CD [MP3|320 Kbps] <Electronic, New
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396682.jpg" />
 </div>
 
 
@@ -621,7 +743,7 @@ The Art of Noise - Discography (42 Albums) & Anne Dudley (19 Albums) (1983-2010)
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396570.jpg" />
 </div>
 
 
@@ -643,128 +765,6 @@ Art of Noise — британская группа новой волны, обр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3680560B7CBD230A69A94A6A4F0EFC2ECE6A50E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 567679   (396148) от 30.10.2012
-
-VA - Halloween Nights (2012) [MP3|320 кб/с]<Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_396148.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Calippo - Halloween - Original Mix (6:38)
-2. Dinka - Here I Am - Original Mix (6:36)
-3. Ad Brown - Good Feeling - Chris Reece Remix (6:06)
-4. George F. Zimmer - Progressive Nights - Original Mix (6:41)
-5. Johnson & Haske vs. Jerome Isma-Ae feat. Mo Morsy - Too Bad to Forgive - Original Mix (8:07)
-6. Leventina - Right or Wrong - Original Mix (6:22)
-7. Dave202 - Vintage - Original Mix (6:37)
-8. Helvetic Nerds - Herodes - Original Mix (6:06)
-9. Jidax - Thunder - Original Mix (5:53)
-10. Hailing Jordan - Rat - Original Mix (5:58)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:09:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C418E338B44248E0092814744884AAF041B313BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171528   (395816) от 05.10.2017
-
-VA - Autumn Chill: Ecliptic (2017) [MP3|320 Kbps] <Downtempo, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Kasstedy - Comedown (Original Mix)  5:45
-02.  Seven24 - Believe In A Better Future (feat. Soty) (Original Mix)  5:45
-03.  Alexander Volosnikov - Ancient Shores (Original Mix)  5:09
-04.  Soty - The Assent (Original Mix)  3:46(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 01:40:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1519C7542C6FB5163EF19263505DAF780F545A37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171557   (395811) от 05.10.2017
-
-VA - Embassy Of Lounge Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Life Audience - All Day (Original Mix)  5:56
-02.  Xemplify - Metamorphosis (Original Mix)  6:44
-03.  Krystian Shek - Memories (Original Mix)  4:02
-04.  Ambient North - Dark Keys (Original Mix)  3:48(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:52:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBE6EC50D8EA616B5019B373C4BE0CA8FDE85266
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171573   (395765) от 05.10.2017
-
-VA - Amsterdam Coffeeshop Chillout Vol.12 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Deep House>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_395765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Soulful-Cafe - Reach For Me (Radio Version)  3:13
-02.  Dreadboxx - Todo Nascido  3:50
-03.  Soulful-Cafe - I Wish That I Could (Radio Version)  3:24
-04.  Tedjep Soulful House - No One Is Giving You Guarantee  4:37(   Читать дальше...   )Жанр: Downtempo, Chillout, Deep HouseПродолжительность: 01:29:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:789CC08369747F9941C2E9D419442AB025F1D985
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1053009   (525966) от 17.09.2016
+
+Johann Johannsson - Orphee (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern Classical>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flight From The City (06:31)
+02. A Song For Europa (02:34)
+03. The Drowned World (02:21)
+04. A Deal With Chaos (02:06)(   Читать дальше...   )Жанр: New Age, Modern ClassicalПродолжительность: 00:46:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84C97E5FBD8B811E74C8BC32310BAE53F6E05E4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157258   (525820) от 10.08.2017
+
+Blackmore's Night - To the Moon and Back-20 Years and Beyond (2017) [MP3|320 Kbps] <Folk Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525820.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Shadow of the Moon
+2. Spirit of the Sea
+3. Renaissance Faire
+4. Play Minstrel Play(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:48:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C9CFEB082C5E613C3791FD9B5C521EFC49D1CCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1157274   (525466) от 11.08.2017
 
 Two Steps From Hell - Nero Anthology (2017) [MP3|320 Kbps|CBR] <Soundtrack, Instrumental, Epic Orchestral>
@@ -6,7 +64,7 @@ Two Steps From Hell - Nero Anthology (2017) [MP3|320 Kbps|CBR] <Soundtrack, Inst
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525466.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Еврейские народные хиты (2011) [MP3|256 kbps] <Folk>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525281.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Alex Williams - Better Than Myself (2017) [MP3|320 Kbps] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_525218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525218.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Era - The Best Of (2013) [MP3|320 кб/с]<New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524848.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Era - The Best Of (2004 - 2013) [FLAC|Lossless] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524847.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Latin Fitness:Summer Edition (2018) [MP3|320 Kbps] <Rumba, Salsa, Brazilian
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524462.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Hildur Gudnadottir - Chernobyl / Чернобыль (Music from the HBO Miniseri
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524332.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Heilung - Discography 4 Releases (2015-2019) [FLAC|Lossless|tracks+.cue, tracks]
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524220.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Rondo Classico - Carnevalo (1990) [FLAC|Lossless|image + .cue] <Instrumental, Cl
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522964.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Rondo Classico - Yellow River (2002) [FLAC|Lossless|image + .cue] <Instrumental,
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522925.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Grimwater - Silvermoor (2018) [MP3|320 Kbps] <Medieval Neofolk, Instrumental, Sy
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522189.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Fausto Papetti - Magic Sax, Vol. 2 (1989) /Sony Music/ [FLAC|tracks+.cue]<Instru
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521540.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Dexter Britain - Impression (2015) [MP3|320 кб/с]<Electronic, Neoclassical, A
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521471.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521471.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Deva Epica - Freedom (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521322.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_521071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521071.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Pakarina - 4 albums (2010-2012) [MP3|320 kbps]<New age, Instrumental, Native ame
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520774.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ Don Davis - The Matrix Trilogy (Сomplete original motion picture soundtrack) (1
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_520309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520309.jpg" />
 </div>
 
 
@@ -496,7 +554,7 @@ Nickos Chortis - Elements (2015) [MP3|320 кб/с]<Ambient, New Age, Electronic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519591.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ Kevin Monaco - Endless Sky (2018) [MP3|320 Kbps] <New Age, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519211.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ Atom Music Audio - Urban Warfare: Action Sci-Fi Epic Tracks (2018) [MP3|320 Kbps
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_519197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519197.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ Wayra Nan - Music Zum Traumen (2012) [MP3|320 кб/с]<Instrumental>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518695.jpg" />
 </div>
 
 
@@ -618,7 +676,7 @@ Lisa Mitts - Heart Song (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Pian
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518410.jpg" />
 </div>
 
 
@@ -647,7 +705,7 @@ VA - Absolute 60's (2018) [MP3|320 Kbps] <Blue-Eyed Soul, Rhythm and Blues, Schl
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518215.jpg" />
 </div>
 
 
@@ -676,7 +734,7 @@ VA, Hans Zimmer - The Lion King / Король Лев (Original Motion Picture S
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518170.jpg" />
 </div>
 
 
@@ -690,64 +748,6 @@ VA, Hans Zimmer - The Lion King / Король Лев (Original Motion Picture S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:230318E1CD56D768B4E7C5B3DC185AB31EFEF381
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241204   (518122) от 19.08.2018
-
-VA - 70's Soul: Classic Singles (2018) [MP3|320 Kbps] <Soul, Disco, Philly Soul, Rhythm and Blues, Funk>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ben E. King - Supernatural Thing
-02. Donny Hathaway - The Ghetto
-03. Aretha Franklin - Im In Love
-04. Wilson Pickett - Engine Number 9(   Читать дальше...   )Жанр: Soul, Disco, Philly Soul, Rhythm and Blues, FunkПродолжительность: 01:59:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EEBDB44C38333EDA6BCFF59C435DC72594A4D70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314390   (518071) от 15.07.2019
-
-VA, Hans Zimmer - The Lion King / Король Лев (Оригинальный саундтрек) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_518071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дарья Антонюк - Круг жизни (04:02)
-02. Hans Zimmer - Life's Not Fair (01:44)
-03. Hans Zimmer - Rafiki's Fireflies (01:53)
-04. Давид Хиникадзе, Алиса Хилько, Илья Бледный - О, скорей бы мне стать королем (03:23)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:17:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA1F1A650AECDCA185AD1AEFFC6E98F0A800E40A
 ```
 
 https://mybot314.ru/tekegram_catalog/

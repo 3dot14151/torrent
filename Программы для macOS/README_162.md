@@ -1,3 +1,59 @@
+###  Публикация: 1519235   (149717) от 23.12.2021
+
+TouchRetouch for Mac 2.3.5 [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149717.jpg" />
+</div>
+
+
+###  Подробнее
+
+TouchRetouch — это приложение, которое поможет в одно мгновение убрать ненужные объекты с вашых фото. Приложение также пригодится при работе с цветокоррекцией и проблемами в композиции.
+
+Всего за несколько простых шагов вы сможете эффективно удалить следующие элементы с ваших фотографий:
+● Нежелательные объекты, такие как мусор, мусорные баки, уличные знаки, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.07.2021Разработчик: © 2021 ADVA SoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1DDD1DDFDED1C03B311F693CD3D4204A44102F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086830   (149389) от 25.12.2016
+
+Hopper Disassembler 4.0.8 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149389.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hopper Disassembler  - дизассемблер для macOS
+По возможностям Hopper Disassembler основательно уступает IDA Pro, но, в большинстве случаев вся мощь IDA Pro не очень-то нужна и возможностей Hopper вполне хватает. Hopper Disassembler поддерживает множество нужных форматов бинарников (включая Win32, ELF, Mach-O), поддерживает, в частности, x86_64 и ARMv7. А самое главное (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.11.2016Разработчик: Cryptic Apps SARLПоддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EEB941862D66BF9968FF2E22A611A0DC5C97168
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347771   (148840) от 24.12.2019
 
 Curio Professional 13.1.1.4 [Multi]
@@ -6,7 +62,7 @@ Curio Professional 13.1.1.4 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148840.jpg" />
 </div>
 
 
@@ -34,7 +90,7 @@ mirethMusic 4.4.3 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148830.jpg" />
 </div>
 
 
@@ -60,7 +116,7 @@ Tweak and Tuneup 4.2.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148573.jpg" />
 </div>
 
 
@@ -87,7 +143,7 @@ Yummy FTP Watcher 2.2.12 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148528.jpg" />
 </div>
 
 
@@ -115,7 +171,7 @@ Expressions 1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148463.jpg" />
 </div>
 
 
@@ -144,7 +200,7 @@ ConceptDraw Office 6.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148430.jpg" />
 </div>
 
 
@@ -170,7 +226,7 @@ TunePat Apple Music Converter 1.4.4 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148417.jpg" />
 </div>
 
 
@@ -196,7 +252,7 @@ IZotope Iris 2 2.02.455 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148406.jpg" />
 </div>
 
 
@@ -224,7 +280,7 @@ Letter Templates for Pages 4.1.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148379.jpg" />
 </div>
 
 
@@ -253,7 +309,7 @@ Movavi Screen Recorder Studio 10.1.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148365.jpg" />
 </div>
 
 
@@ -279,7 +335,7 @@ PDF Office Max: Acrobat Expert 7.1.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148192.jpg" />
 </div>
 
 
@@ -305,7 +361,7 @@ ACDSee Photo Studio 8 v8.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148125.jpg" />
 </div>
 
 
@@ -332,7 +388,7 @@ Isotropix Clarisse iFX 4.0 SP14 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148070.jpg" />
 </div>
 
 
@@ -358,7 +414,7 @@ Deliver Express 2.7.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148003.jpg" />
 </div>
 
 
@@ -384,7 +440,7 @@ Currency Assistant 3.6.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147879.jpg" />
 </div>
 
 
@@ -411,7 +467,7 @@ FoneLab Location Changer for Mac 1.0.12 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147875.jpg" />
 </div>
 
 
@@ -438,7 +494,7 @@ Affinity Publisher 1.10.8 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147807.jpg" />
 </div>
 
 
@@ -465,7 +521,7 @@ JixiPix Rip Studio Pro 1.1.18 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147753.jpg" />
 </div>
 
 
@@ -491,7 +547,7 @@ Affinity Designer 1.10.8 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147708.jpg" />
 </div>
 
 
@@ -518,7 +574,7 @@ Balsamiq Mockups For Desktop 3.5.18 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147697.jpg" />
 </div>
 
 
@@ -545,7 +601,7 @@ Affinity Photo 1.10.8 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147656.jpg" />
 </div>
 
 
@@ -571,7 +627,7 @@ FoneLab iPhone Password Manager for Mac 1.0.16 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147650.jpg" />
 </div>
 
 
@@ -598,7 +654,7 @@ Spotless 1.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147625.jpg" />
 </div>
 
 
@@ -626,7 +682,7 @@ Wolf 2 - Responsive Designer Pro 2.30.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147622.jpg" />
 </div>
 
 
@@ -637,58 +693,6 @@ Wolf Website Designer нативное приложение для Mac, что �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:642B5E83ABB3E90DE0FFF62529CB4E2797A9F949
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347873   (147608) от 25.12.2019
-
-Coherence Pro 2.0.3 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147608.jpg" />
-</div>
-
-
-###  Подробнее
-
-Coherence Pro позволяет вам легко превратить любой веб-сайт в мощное приложение на вашем Mac. Используя переработанный инструмент создания, вы можете быстро создавать приложение с помощью встроенной функции или использовать один из нескольких новых режимов приложений для дальнейшего расширения возможностей.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: BZG Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D39F2BB3E6475514C57F5D56A04BA46C92464CB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678211   (147549) от 20.11.2023
-
-Mac FoneLab for iOS 10.2.30 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Mac FoneLab для iOS для восстановления данных Mac iPhone, восстановление системы Mac iOS, резервное копирование и восстановление данных Mac iOS. Передача Mac WhatsApp для iOS в комплекте.Тип издания: macOS SoftwareРелиз состоялся: 01.11.2023Разработчик: © 2023 FoneLab Studio.Поддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E85506F6A7FB4C42D3ECE2165A085DAAEF75FBE4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,57 @@
+###  Публикация: 944541   (440076) от 07.10.2015
+
+Наталья Царенко | Как мы портим наших детей: коллекция родительских заблуждений (2015) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Логопедия, Психология, Педиатрия
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440076.jpg" />
+</div>
+
+
+###  Подробнее
+
+В детстве все мечтают о добрых, понимающих, великодушных родителях. Более того, мы просто уверены, что со своими детьми ни за что не допустим тех ошибок, которыми грешили наши собственные родители.
+
+Но как только сами становимся папами и мамами, обнаруживаем, что все гораздо сложнее, чем казалось когда-то: и дети все разные, и родители – живые люди с трепетными нервами, (   Читать дальше...   )Жанр: Воспитание детей, детская психологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56D08454FBAA2A805A28FB92FB8380ED83582CBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062778   (439927) от 14.10.2016
+
+Ким Фупс Окесон | Как дедушка стал привидением (2008) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439927.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жил-был мальчик, звали его Эсбен, и был у него дедушка, которого он называл Дедушкой. Но однажды все изменилось, вернее, Эсбен по-прежнему называл своего дедушку Дедушкой, только Дедушки не стало. Мама сказала Эсбену, что Дедушка отправился на небеса, а папа сказал, что Дедушку похоронят и он станет землей. Но родители ошибались, потому что в тот же вечер Дедушка (   Читать дальше...   )Жанр: Детская проза, сказкаПеревод: Мария ЛюдковскаяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D079DC9EEECAB2D778219C84841F2C7771FD1D81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1164601   (439868) от 10.09.2017
 
 Виктор Аланов | Лесная сторожка (1959) [DJVU]
@@ -6,7 +60,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439868.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439805.jpg" />
 </div>
 
 
@@ -61,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_439759.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_439759.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439693.jpg" />
 </div>
 
 
@@ -113,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439602.jpg" />
 </div>
 
 
@@ -139,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439575.jpg" />
 </div>
 
 
@@ -165,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439573.jpg" />
 </div>
 
 
@@ -192,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_439560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439560.jpg" />
 </div>
 
 
@@ -221,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_439009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_439009.jpg" />
 </div>
 
 
@@ -247,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438963.jpg" />
 </div>
 
 
@@ -275,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_438715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_438715.jpg" />
 </div>
 
 
@@ -301,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438550.jpg" />
 </div>
 
 
@@ -327,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438462.jpg" />
 </div>
 
 
@@ -356,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438427.jpg" />
 </div>
 
 
@@ -382,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438409.jpg" />
 </div>
 
 
@@ -408,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438402.jpg" />
 </div>
 
 
@@ -437,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438350.jpg" />
 </div>
 
 
@@ -463,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438345.jpg" />
 </div>
 
 
@@ -489,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438210.jpg" />
 </div>
 
 
@@ -516,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438091.jpg" />
 </div>
 
 
@@ -545,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438054.jpg" />
 </div>
 
 
@@ -571,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438032.jpg" />
 </div>
 
 
@@ -597,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_438017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438017.jpg" />
 </div>
 
 
@@ -623,7 +677,7 @@ Judy Stang | Coloring Book Forest Babies to Color (1966) [JPЕG]
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437981.jpg" />
 </div>
 
 
@@ -634,58 +688,6 @@ Judy Stang | Coloring Book Forest Babies to Color (1966) [JPЕG]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5AF3F7FEF38F57648F438AEA8561D599A04E1909
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 392869   (437962) от 26.09.2011
-
-«Golden Books» | Annabelle's Wish - If You Believe (Coloring Book) (1998) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Рабочие тетради, прописи и разукрашки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437962.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книжка-раскраска со сказкой Annabelle's Wish - If You Believe.Жанр: РаскраскаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17C45B883417CEF346E087A43DB167E5CE4BCE65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 392245   (437950) от 26.09.2011
-
-Д. Лемко | Снегурочка. Книжка-раскраска (2003) [JPЕG]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Рабочие тетради, прописи и разукрашки
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_437950.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книжка-раскраска со сказкой Снегурочка. Для детей дошкольного и младшего школьного возраста.Жанр: РаскраскаФормат: JPЕG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B700D32242405FDA827FB1468F2E7843AA6BEF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

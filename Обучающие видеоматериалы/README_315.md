@@ -1,3 +1,29 @@
+###  Публикация: 1799595   (16391) от 29.05.2025
+
+Владимир Рябов | Манипуляция и лидерство (2024) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Психология и саморазвитие (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16391.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс — уникальный синтез базовых знаний нейролингвистического программирования и методов боевой коммуникации. На нём Вы овладеете всеми известными методами психологического давления, а также способами защиты от любого воздействия на психику человека.Жанр: видеокурс, обучающий курс, психология общения, межличностные коммуникации, НЛПЯзык озвучки: русскийПродолжительность: 09:39:05Реклама: cторонние вставки и наложения на видео (водяной знак спонсора)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E84DA2245A772258E85CDE1F218268A24B056A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1799588   (16352) от 29.05.2025
 
 f5game, Ольга Грищенко | Гений вопросов (2025) WEB-DL [AD] [RU]
@@ -6,7 +32,7 @@ f5game, Ольга Грищенко | Гений вопросов (2025) WEB-DL 
 >>Психология и саморазвитие (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16352.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16352.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ CGMA, Yves Yumol | Absolute Beginners (2020) WEB-DL [EN / EN, RU Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15983.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15981.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15981.jpg" />
 </div>
 
 
@@ -90,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15980.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ Groove3, Thomas Cochran | Serum 2: Making Synthwave (2025) WEB-DL [EN]
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15931.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ PurpleSchool, Антон Ларичев | Основы Git (2024) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15917.jpg" />
 </div>
 
 
@@ -170,7 +196,7 @@ f5game, Ольга Грищенко | 9 загадок Шерлока Холмс
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15878.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ The Gnomon Workshop, April Connors | Gesture Drawing Fundamentals (2021) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15872.jpg" />
 </div>
 
 
@@ -224,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15814.jpg" />
 </div>
 
 
@@ -250,7 +276,7 @@ Udemy, Julien Deville | Blender 4.4 The complete training (2025) PCRec [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15789.jpg" />
 </div>
 
 
@@ -276,7 +302,7 @@ Udemy, Sam Parulekar | Learning AutoCAD 2026 (2025) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15772.jpg" />
 </div>
 
 
@@ -302,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15668.jpg" />
 </div>
 
 
@@ -331,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15416.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15416.jpg" />
 </div>
 
 
@@ -357,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15402.jpg" />
 </div>
 
 
@@ -384,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15387.jpg" />
 </div>
 
 
@@ -413,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15381.jpg" />
 </div>
 
 
@@ -439,7 +465,7 @@ The Gnomon Workshop, Victor Javier Garza | Grooming in Yeti: Hair Solutions for 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15366.jpg" />
 </div>
 
 
@@ -467,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15364.jpg" />
 </div>
 
 
@@ -494,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15362.jpg" />
 </div>
 
 
@@ -520,7 +546,7 @@ LiveClasses, Артур Орлов | Создание музыки с помощ
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15253.jpg" />
 </div>
 
 
@@ -546,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15230.jpg" />
 </div>
 
 
@@ -572,7 +598,7 @@ LiveClasses, Антон Мартынов | Обзор возможностей D
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15222.jpg" />
 </div>
 
 
@@ -598,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15201.jpg" />
 </div>
 
 
@@ -624,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15196.jpg" />
 </div>
 
 
@@ -650,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15192.jpg" />
 </div>
 
 
@@ -661,32 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3902B3ADF63E26FC69A7D3A3AF977021AD8BBDF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801116   (15175) от 09.06.2025
-
-LiveClasses, Дмитрий Ларионов | Подготовка монтажа к отправке звукорежиссёру в Premiere Pro (2025) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Фотография и Видео (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед тем как отправить монтаж на финальное озвучание, важно правильно подготовить проект — иначе звукорежиссёр получит хаос вместо стройной структуры. В этом мастер-классе вы шаг за шагом освоите процесс подготовки: от создания референс-видео с таймкодом и пипами до экспорта AAF с нужными настройками. Вы узнаете, какие параметры нужно заранее согласовать со студией, (   Читать дальше...   )Производство: LiveClassesЖанр: видеокурс, обучающий курс, видеомонтажЯзык озвучки: русскийПродолжительность: 00:41:34Реклама: cторонние вставки и наложения на видео (водяной знак спонсора)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:255CDE9000FF2C2D71D850F6C3B56E5CD93B4B1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

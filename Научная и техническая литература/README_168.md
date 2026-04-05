@@ -1,136 +1,3 @@
-###  Публикация: 1277284   (785441) от 20.01.2019
-
-Труды Первого Всероссийского Съезда по борьбе с торгом женщинами и его причинами [2 тома] (1911-1912) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Труды первого всероссийского съезда по борьбе с торгом женщинами и его причинами, происходившего в С.-Петербурге с 21 по 25 Апреля 1910 года.
-
-Среди вызванных условиями современной жизни прискорбных явлений, содействующих физическому и нравственному развращению населения, одно из первых мест принадлежит торговле женщинами и проституции во всех ее видах.
-(   Читать дальше...   )Жанр: История, политология, экономика, психология, криминология, правоведение, документалистика, публицистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B68201265E55CD31751EFDE65DB1505A0CB0DAA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203926   (785426) от 04.02.2018
-
-В. Г. Трухановский (отв. ред.) | Против фальсификации истории (1959) [DJVU, PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785426.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник статей подготовлен коллективом сотрудни­ков Института истории Академии наук СССР. На основе большого фактического материала авторы статей опровергают антинаучные концепции буржуазных истори­ков по некоторым основным проблемам всемирной истории. В статьях сборника дается марксистское освещение поставленных проблем, вскрывается ложный путь, по которому развивается (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB7715BC83AD832F4BC5DCCE5C5E5C154F5A2DB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277106   (785327) от 20.01.2019
-
-Марк Е. Хернитер | 10 увлекательных проектов аналоговой электроники (2008) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785327.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге рассматриваются несколько случаев и примеров разработки проектов, отобранных с одной, ярко выраженной целью, — продемонстрировать читателям несколько полезных стильных «штучек», которые могут быть созданы с использованием аналоговой техники. Подобные примеры поощряют далее изучать аналоговую электронику, а также демонстрируют, в каких областях техники (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B96716C3C9E45BAA5290FADEEF6D0AF86C6CFDC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275764   (785324) от 20.01.2019
-
-Карлос Маригелла | Бразильская герилья. Краткий учебник городского партизана (1969) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Находясь в подполье, Карлос Маригелла написал множество работ по теории революционной борьбы. Наиболее известная из них — «Краткий учебник городской герильи», написанный в июне 1969 года. Эта небольшая книга стала своего рода библией для всех участников мирового революционного движения и в короткое время была переведена на множество языков мира.Жанр: политическая, военная, историческаяФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E44D1D419A1FB8CA37472DDC5E3255A7BD13F8E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277397   (785322) от 20.01.2019
-
-О.Л. Коваленко, А.А. Банников, П.А. Пустошный | Компоненты автомобильной электроники (2016) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785322.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассматриваются различные компоненты автомобильной электроники, назначение, принцип действия различных электронных устройств автомобилей, перспективы применения современных электронных средств для автомобилейЖанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F06AA1B183D771E44B492C53A6C8A7FCB17EAB01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204015   (785198) от 04.02.2018
 
 Бо Лотто | Преломление. Наука видеть иначе (2018) [PDF]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785198.jpg" />
 </div>
 
 
@@ -167,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785025.jpg" />
 </div>
 
 
@@ -195,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_785021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785021.jpg" />
 </div>
 
 
@@ -221,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_784972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_784972.jpg" />
 </div>
 
 
@@ -247,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_784971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_784971.jpg" />
 </div>
 
 
@@ -273,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_784939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_784939.jpg" />
 </div>
 
 
@@ -301,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784903.jpg" />
 </div>
 
 
@@ -327,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784899.jpg" />
 </div>
 
 
@@ -353,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784834.jpg" />
 </div>
 
 
@@ -379,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784766.jpg" />
 </div>
 
 
@@ -405,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784750.jpg" />
 </div>
 
 
@@ -431,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784683.jpg" />
 </div>
 
 
@@ -457,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784682.jpg" />
 </div>
 
 
@@ -483,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784680.jpg" />
 </div>
 
 
@@ -509,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784679.jpg" />
 </div>
 
 
@@ -535,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784678.jpg" />
 </div>
 
 
@@ -561,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784674.jpg" />
 </div>
 
 
@@ -587,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784648.jpg" />
 </div>
 
 
@@ -613,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784620.jpg" />
 </div>
 
 
@@ -641,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784617.jpg" />
 </div>
 
 
@@ -667,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784615.jpg" />
 </div>
 
 
@@ -678,6 +545,136 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEF980F95381A7562556343B048654A46E8A97BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204492   (784613) от 06.02.2018
+
+С.Н. Рязанский | Удивительная Земля (2018) [PDF]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами уникальный фотоальбом с редкими кадрами съемки Земли прямо с борта Международной космической станции, созданный действующим космонавтом, героем России, ученым и просто увлеченным человеком Сергеем Рязанским. Вулканы и острова, реки и ночные города, горы и поля… Таких кадров вы не увидите из иллюминатора самолета. Наша Земля предстанет перед вами в необычном (   Читать дальше...   )Жанр: География и науки о ЗемлеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C215D6358BE55E1B54604A573826E1887DDEE2B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389386   (784513) от 10.06.2020
+
+Олег Фейгин | Удивительная космонавтика. Маленькие рассказы о тайнах, загадках и открытиях на пути в большой космос (2018) [EPUB]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784513.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассказывается о малоизвестных страницах покорения космоса. Приводится антология таинственных случаев в истории космонавтики. Обсуждаются интересные научные гипотезы и факты. Рассматриваются мифы и легенды, возникшие вокруг космических экспедиций. Обсуждаются перспективы дальнейшего освоения Солнечной системы и полетов к звездам.Жанр: Научно-популярная литератураФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:689DE949A1E3E295154FE5023D7260942F6524C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389409   (784510) от 10.06.2020
+
+Гельмут Шибель | Война на Востоке. Дневник командира моторизованной роты. 1941—1945 (2019) [EPUB]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гельмут Шибель, командир роты в составе 13-й танковой дивизии вермахта, описывает путь, пройденный им по дорогам Второй мировой войны. Это рассказ о тяжелых боях на Восточном фронте, о суровых солдатских буднях, о том, как сражались и погибали фронтовики. Его дневник – свидетельство солдата, испытавшего на себе ужасы страшной войны, но не утратившего человеческое (   Читать дальше...   )Жанр: Биографии и мемуары, Военная историяПеревод: Сергей ЧупровФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB803C1F49731CD83AED584E3BFE6B488A9D5770
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389406   (784506) от 10.06.2020
+
+Эрих Куби | Русские в Берлине. Сражения за столицу Третьего рейха и оккупация. 1945 (2018) [EPUB]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784506.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эрих Куби – известный немецкий публицист, участник Второй мировой войны – анализирует военную и политическую обстановку, сложившуюся на международной арене весной 1945 г., в преддверии Битвы за Берлин. Описывает процесс падения столицы Третьего рейха и последствия этих событий для Германии и всей Европы. Во время Второй мировой войны Куби служил в вермахте, воевал (   Читать дальше...   )Жанр: Биографии и мемуары, Военная историяФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4B6462A52F7502AA3BBE7856B3712BE1D8F9020
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389412   (784494) от 10.06.2020
+
+Эйке Миддельдорф | Русская военная кампания. Опыт Второй мировой войны. 1941–1945 (2018) [EPUB]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немецкий военный историк, офицер вермахта и генерал-майор бундесвера Эйке Миддельдорф анализирует особенности ведения боевых действий немецкой и советской армиями в 1941–1945 гг., организацию и вооружение основных родов войск воюющих сторон и тактику подразделений и частей. Книгу характеризует полнота систематизированных и обобщенных фактов, благодаря чему она отвечает (   Читать дальше...   )Жанр: Биографии и мемуары, Военная историяПеревод: Сергей ЧупровФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2A3CB5123F55856F1C9CF1FF5B4910EAE33150B
 ```
 
 https://mybot314.ru/tekegram_catalog/

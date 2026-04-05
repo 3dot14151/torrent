@@ -6,7 +6,7 @@
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137677.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135760.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135760.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132866.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ LinkedIn Learning, Dr. Chaz Austin | Creating a Career Plan (2020) PCRec [EN]
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132633.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ LinkedIn Learning, Dr. Chaz Austin | Succeeding in a New Job (2020) PCRec [EN / 
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131402.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127841.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127841.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Udemy, Christ Raharja | The Future of Copywriting: Creating Ad Copy & Video with
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127672.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Udemy, Konstantin Fink | Нейросети: Chat GPT от Новичка до �
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127333.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ ProFinansy, Наталья Котовская | Финансовая подуш�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125873.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124917.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124104.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Udemy, Emma Grimberg | Искусство создания текстов с ч�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124094.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Domestika, Jessica Roux | Illustrated Stationery: A Guide to Sell and Market You
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123732.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Udemy, Dekker Fraser | SaaS Marketing: SaaS Startup Lead Generation with Dekker 
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123699.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121942.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121921.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Cryptology School | Cryptology 9.0. Base. Advanced. Pro (2023) WEB-DL [AD] [RU]
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116099.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ Cryptology School | Cryptology 10 (2023) WEB-DL [AD] [RU]
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115949.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115612.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115612.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115431.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115396.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Infostart, Римма Фролова | Сложный учет НДС в 1С - E
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115381.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115294.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Udemy, Ilyas Shakenov | Финансовая математика (2024) WEB-DL 
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115261.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Udemy, Ерлан Тургумбаев | Финансовое моделиров
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115113.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114740.jpg" />
 </div>
 
 

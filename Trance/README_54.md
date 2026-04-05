@@ -1,3 +1,61 @@
+###  Публикация: 1679465   (134930) от 27.11.2023
+
+VA - Infrasonic: The Best Of 2023 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ultimate - Stages (Extended Mix) [7:19]
+02. Epidemika - High (Extended Mix) [6:16]
+03. Incredia - Cropp (Extended Mix) [5:43]
+04. Kataploks - Sobaeksan (Extended Mix) [5:39](   Читать дальше...   )Жанр: TranceПродолжительность: 02:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42DC9E556369B319E4A779783DAF4DE37D2CA471
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679404   (134928) от 27.11.2023
+
+VA - Keep It Trance Vol. 16 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Only One & Eric Vanegard - T.A.T(Original Mix) [5:26]
+02. Intra De Aeris - Voice Of The Dark Planet (Extended Mix) [6:28]
+03. Denis Airwave & T'eira - My Freedom (Yuri Yavorovskiy Remix) [3:50]
+04. Spy - Ori (Original Mix) [5:57](   Читать дальше...   )Жанр: TranceПродолжительность: 02:08:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:282137401D9A835FECC19D56A54F2A76131A287B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681416   (133125) от 02.12.2023
 
 VA - The Best Of Suanda Future (2023) [MP3|320 Kbps] <Trance>
@@ -6,7 +64,7 @@ VA - The Best Of Suanda Future (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133125.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133125.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - The Best Of Suanda Music 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133119.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Chicane - The Greatest Misses (2023) Extended Mixes [MP3|320 Kbps] <Trance, Prog
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133080.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Armada Music - 20 Years (Remixed) (2023) [MP3|320 Kbps] <Trance, Progressiv
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133018.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Best Of FSOE 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132711.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Nothing But... Trancetopia Vol. 10 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132109.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - The Best Of Suanda Dark 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132105.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Top 7 November 2023 Emotional and Uplifting Trance (2023) [MP3|320 Kbps] <T
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132093.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - In Search Of Sunrise 19 (Mixed by Markus Schulz, Ilan Bluestone & Daniel Wa
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132085.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Armada Music - Trance Legacy II (2023) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131430.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - The Best Of Suanda Base 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131159.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - The Best Of Suanda Voice 2023 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131147.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - A State of Trance Year Mix 2023 - Mixed by Armin van Buuren (2023) [MP3|320
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131008.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - The Best Of Suanda True 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129829.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Talla 2XLC - All The Dreams I Share (The Vocal Album) (2023) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129804.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Black Hole Trance Music 01-22 (2022) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129186.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Abora Recordings: Best of 2022 (Mixed by Ori Uplift) (incl. Extended Mixes)
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128098.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - The Best Of Suanda Progressive 2023 [MP3|320 Kbps] <Trance, Progressive, Vo
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127976.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - The Best Of Gert 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127942.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Black Hole Trance Music 12-23 (2023) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127582.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Interplay 2023 (Selected By Alexander Popov) - Extended Versions (2023) [MP
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127565.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - The Best Of Full On 140 Records 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127219.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - The Best Of Trancemission 2023 [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127208.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - The Best Of Aerodynamica Music Group 2023 [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126899.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - The Best Of Aerodynamica Music Group 2023 [MP3|320 Kbps] <Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5290A6141579EEC4DBDF4D2DDBA6CC1D6C186309
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686407   (126622) от 22.12.2023
-
-Armin van Buuren - Feel Again (Remixes) - Extended Versions (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren feat. Wrabel - Feel Again (Extended Club Mix) [6:11]
-02. Armin van Buuren feat. Wrabel - Feel Again (anamē Extended Remix) [7:01]
-03. Armin van Buuren feat. Wrabel - Feel Again (LÜRUM Extended Remix) [6:52]
-04. Armin van Buuren & The Stickmen Project - No Fun (Öwnboss Extended Remix) [3:21](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:20:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB116F5510366A8C3B117C9FE22862E6DA0E4E33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686661   (126444) от 23.12.2023
-
-VA - The best of Tecnomind 2023 [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126444.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ahmed Walid - Crystal Eyes (Original Mix) [6:17]
-02. Artifi - Exhausted (Original Mix) [5:36]
-03. Asier - Discover (Original Mix) [7:03]
-04. Atmospherika - Dark Matter (Original Mix) [6:51](   Читать дальше...   )Жанр: TranceПродолжительность: 02:23:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03B80C29004E80B1C3EDD21A3AFC5FEAE4117D1C
 ```
 
 https://mybot314.ru/tekegram_catalog/

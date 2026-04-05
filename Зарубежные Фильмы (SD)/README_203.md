@@ -1,55 +1,3 @@
-###  Публикация: 1512197   (787292) от 24.11.2021
-
-Аннетт / Annette (2021) HDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие развернётся в Лос-Анджелесе. По сюжету Генри работает стендап-комиком, а его супруга Энн — певицей. Они представляют собой идеальную пару, привыкшую сверкать в свете софитов и вести гламурный образ жизни. Но всё меняется после рождения их первого ребёнка Аннетт — таинственной девочки, которой уготована необычная судьба.Производство: Франция, Бельгия, Германия, США, Япония, Мексика, Швейцария / CG Cinema, ARTE, Arte France CinemaЖанр: Мюзикл, драма, мелодрамаРежиссер: Леос КараксАктеры: Адам Драйвер, Марион Котийяр, Саймон Хелберг, Девин Макдауэлл, Анжель, Кико Мидзухара, Натали Джексон Мендоса, Синай Бавурхе, Франциска ГроманнПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: Русский, АнглийскийСубтитры: Русские (forced, full), Английские (forced, SDH)Продолжительность: 02:20:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4695CABAF7C01AAD82AFA94EE7E85B44A88255C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459936   (787283) от 24.11.2021
-
-Роковое число 23 / The Number 23 (2007) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787283.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сотрудник службы по отлову бездомных животных Уолтер Спэрроу берется за чтение загадочного романа "Номер 23", который подарила ему на день рождения его жена Агата. В итоге тихая и спокойная жизнь Уолтера превращается в невыносимые муки, которые могут привести и его, и близких ему людей к самому печальному концу. А виной всему – число 23. Дело в том, что (   Читать дальше...   )Производство: СШАЖанр: Триллер, Драма, ДетективРежиссер: Джоэл ШумахерАктеры: Джим Керри, Вирджиния Мэдсен, Логан Лерман, Дэнни Хьюстон, Линн Коллинз, Рона Митрэ, Мишель Артур, Марк Пеллегрино, Пол Батчер, Дэвид Стифел, Кори Столл, Эд Лоутер, Патриция БелчерПеревод: Профессиональный многоголосыйПродолжительность: 01:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2321B0258BF9181075B6EA8F31EC5CDFB46FA33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1512400   (787282) от 24.11.2021
 
 Законы границ / Las leyes de la frontera (The Laws of the Border) (2021) WEB-DLRip [DVO]
@@ -58,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787282.jpg" />
 </div>
 
 
@@ -84,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787281.jpg" />
 </div>
 
 
@@ -110,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_787268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787268.jpg" />
 </div>
 
 
@@ -137,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786901.jpg" />
 </div>
 
 
@@ -163,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786836.jpg" />
 </div>
 
 
@@ -189,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786829.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786829.jpg" />
 </div>
 
 
@@ -216,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786663.jpg" />
 </div>
 
 
@@ -242,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786625.jpg" />
 </div>
 
 
@@ -268,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786621.jpg" />
 </div>
 
 
@@ -294,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786618.jpg" />
 </div>
 
 
@@ -320,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786551.jpg" />
 </div>
 
 
@@ -347,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786546.jpg" />
 </div>
 
 
@@ -373,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786537.jpg" />
 </div>
 
 
@@ -399,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786500.jpg" />
 </div>
 
 
@@ -425,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786498.jpg" />
 </div>
 
 
@@ -451,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786481.jpg" />
 </div>
 
 
@@ -477,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786464.jpg" />
 </div>
 
 
@@ -503,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786461.jpg" />
 </div>
 
 
@@ -529,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786446.jpg" />
 </div>
 
 
@@ -555,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786431.jpg" />
 </div>
 
 
@@ -581,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786321.jpg" />
 </div>
 
 
@@ -607,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786289.jpg" />
 </div>
 
 
@@ -634,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_786265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786265.jpg" />
 </div>
 
 
@@ -660,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_786245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_786245.jpg" />
 </div>
 
 
@@ -671,6 +619,58 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033225   (786238) от 08.04.2017
+
+Дежавю / Deja Vu (2006) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый из нас хотя бы раз в жизни испытывал эффект дежа вю, когда нам вдруг начинает казаться, что мы знакомы с людьми, которых на самом деле раньше никогда не видели, и уже бывали в местах, где на самом деле никогда не были. И, возможно, в такие моменты кому-то приходила в голову мысль, что эти ощущения — не что иное, как предупреждения, посланные нам из прошлого, (   Читать дальше...   )Производство: США, ВеликобританияЖанр: Фантастика, боевик, триллерРежиссер: Тони СкоттАктеры: Дензел Вашингтон, Пола Пэттон, Вэл Килмер, Джеймс Кэвизел, Адам Голдберг, Элден Хенсон, Эрика Александр, Брюс Гринвуд, Рич Хатчмэн, Мэтт Крэвен ...Перевод: Дублированный, профессиональный многоголосый, авторскийЯзык субтитров: Английский, русский, украинскийПродолжительность: 02:06:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75C8896008110579220156EBDA6B6D0BC3B19365
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123753   (786076) от 09.04.2017
+
+Братья / Brodre / Brothers (2004) DVDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786076.jpg" />
+</div>
+
+
+###  Подробнее
+
+Михаэль отправляется служить по контракту в Афганистан, оставляя свою семью и только что вышедшего из тюрьмы младшего брата Янника. В первый же день его вертолет с экипажем летящим на задание терпит крушение. Теперь Саре и двум маленьким девочкам предстоит налаживать свою жизнь без мужа и отца. На геройских похоронах хоронили пустой гроб. Сара не верит в смерть мужа, (   Читать дальше...   )Производство: Дания, Великобритания, Швеция, Норвегия, Two Brothers Ltd., Fjellape Film AS, Memfis FilmЖанр: Военный, ДрамаРежиссер: Сюзанна БирАктеры: Конни Нильсен, Ульрих Томсен, Николай Ли Каас, Сара Джуел Вернер, Rebecca Logstrup, Бент Мейдинг, Солбьорг Ходжфельдт, Нильс Олсен, Пав Хенриксон, Ларс ХьортшоПеревод: Профессиональный (двухголосый закадровый)Субтитры: Aнглийские, итальянскиеПродолжительность: 01:52:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:282B52D0AB15F1F2798FC394313AD0579C780726
 ```
 
 https://mybot314.ru/tekegram_catalog/

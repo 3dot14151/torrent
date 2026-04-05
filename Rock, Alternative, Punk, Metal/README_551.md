@@ -1,3 +1,90 @@
+###  Публикация: 927566   (524111) от 14.08.2015
+
+Stray Cats - Les Genies du Rock - Rockabilly Live (1994) [MP3|320 кб/с]<Rockabilly, Psychobilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Blast Off (2:58)
+02.  Runaway Boys (3:34)
+03.  Stray Cat Strut (4:36)
+04.  Rockabilly Rules O.K. (3:19)(   Читать дальше...   )Жанр: Rockabilly, PsychobillyПродолжительность: 01:14:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1C33548774D36D846D5DBD9B0100DA5E0230C14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927808   (524066) от 14.08.2015
+
+The Kinks - Les Genies du Rock - Waterloo Sunset (1995) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  David Watts (2:37)
+02.  Death of a Clown (3:14)
+03.  Two Sisters (2:04)
+04.  No Return (2:03)(   Читать дальше...   )Жанр: RockПродолжительность: 01:01:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5686FFF6EA3DA0082990E06EB4FF83168ED183B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927598   (524053) от 14.08.2015
+
+Hair Of The Dog - The Siren's Song (2015) [MP3|320 кб/с]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524053.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into the Storm (02:18)
+02. You Soft Spoken Thing (03:53)
+03. Don't Know My Name (05:35)
+04. The Spell (03:03)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BEDF0853BB5CC2E37E21BA0D4C270ECF6D5C351
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927780   (524011) от 14.08.2015
 
 Stillwater - Stillwater (1977) [MP3|320 кб/с]<Classic Rock>
@@ -6,7 +93,7 @@ Stillwater - Stillwater (1977) [MP3|320 кб/с]<Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_524011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524011.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Bullet For My Valentine - Venom (2015) Deluxe Edition [FLAC|tracks+.cue]<Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523887.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Sanguis - Ascension (2008) [FLAC|Lossless|image + .cue] <Melodic Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523786.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Silent Stream Of Godless Elegy - Behind The Shadows (1998) [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523785.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Moonrise - Travel Withi (2019) [FLAC|Lossless|image + .cue] <Neo Progressive, Po
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523757.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Abbath - Outstrider (2019) Deluxe Edition [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523751.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Power Tale - Семь Подземных Королей (2018) [MP3|320 Kbps] <�
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523743.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Santana - Africa Speaks (2019) [FLAC|Lossless|tracks + .cue] <Rock, Blues-rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523718.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Sinsaenum - Repulsion for Humanity (2018) [FLAC|Lossless|image + .cue] <Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523703.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Blue Blud - The Big Noise (1989) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523664.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Lethal Injektion - Remember Chester Bennington (2018) [MP3|320 Kbps] <Nu Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523654.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Power Tale - Огненный бог марранов (2019) [MP3|320 Kbps] <М�
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523652.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523644.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Cachemira - Ambos Mundos (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523605.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Black River - Generation aXe (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523552.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Mystery Dudes - Exit Through The Wormhole (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523550.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Coheed and Cambria - Vaxis II: A Window of the Waking Mind (2022) [FLAC 2.0|48/2
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523542.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Mecca - 20 Years (2022) Compilation, Reissue, Frontiers Music SRL [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523540.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Dawn Of Destiny - Of Silence (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523492.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523480.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ The Warning - ERROR (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Hard Rock, Female Voc
 >>Hard Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523425.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Hanna Turi - Tracks in the Water (2015) [MP3|320 кб/с]<Piano Rock, Alternativ
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523328.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Dead Letter Circus - Aesthesis (2015) [OGG| 490-512 кб/с]<Alternative Rock, P
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_523292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523292.jpg" />
 </div>
 
 
@@ -658,90 +745,6 @@ Dead Letter Circus - Aesthesis (2015) [OGG| 490-512 кб/с]<Alternative Rock, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FA0E3EA9F7DC8F2A1BE936017F4AA4B2687FA0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 143040   (523131) от 15.08.2015
-
-Linkin Park - Chiba City Japan Live (2009) [MP3|320 kb/s]<Alt.Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_523131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Alt.RockПродолжительность: 01:30:36
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313760   (522961) от 10.07.2019
-
-Stigmata - Калейдоскоп (2019) [FLAC|Lossless|WEB-DL|tracks] <Acoustic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Истории (3:14)
- 02. Цунами (4:22)
- 03. До девятой ступени (4:23)
- 04. Сожжённый дотла (4:11)(   Читать дальше...   )Жанр: Acoustic RockПродолжительность: 00:31:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E012CAF505DD6FF6A58B525F2246D14B16DE7C76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240948   (522895) от 14.08.2018
-
-Dead Man's Whiskey - Under the Gun (2017) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_522895.jpg" />
-</div>
-
-
-###  Подробнее
-
-◈ 01 - Live, Loud And Ready (00:05:03)
-◈ 02 - This Fight (00:03:43)
-◈ 03 - My Year (00:05:23)
-◈ 04 - Hoe Street (00:05:12)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F170CCC513C678B71A185657F87C8683933A42D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

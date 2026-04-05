@@ -1,3 +1,134 @@
+###  Публикация: 1847775   (1052319) от 14.01.2026
+
+JetBrains PyCharm Professional 2025.3.1.1 (x64-arm64) Repack by IDE`a [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052319.jpg" />
+</div>
+
+
+###  Подробнее
+
+JetBrains PyCharm Professional – это мощная и многофункциональная интегрированная среда разработки, предназначенная для работы с языком программирования Python. Она разработана компанией JetBrains, которая также создала такие продукты, как IntelliJ IDEA, RubyMine и WebStorm. PyCharm включает в себя все необходимые инструменты для быстрой и эффективной разработки (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6C90ADC763644450227F30FA29F234D1916A505
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847374   (1052085) от 18.01.2026
+
+WinPE 11-10 Sergei Strelec (x64) 2026.01.11 [Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>LiveCD/DVD/Flash
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052085.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузочный диск на базе Windows 11, 10 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, антивирусной профилактики и установки ОС Windows.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:469C2374F8296D4961096C19FDDD0B5D652C7C58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847383   (1052034) от 12.01.2026
+
+WinPE 11-10 Sergei Strelec (x64) 2026.01.11 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>LiveCD/DVD/Flash
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052034.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузочный диск на базе Windows 11, 10 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, антивирусной профилактики и установки ОС Windows.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CB81F26B6F867080502EC292DF390733C82AC4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847258   (1051915) от 11.01.2026
+
+JetBrains DataGrip 2025.3.3 (x64-arm64) Repack by IDE`a [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051915.jpg" />
+</div>
+
+
+###  Подробнее
+
+JetBrains DataGrip - это инновационное программное обеспечение, специально разработанное для работы с различными базами данных, включая Oracle, SQL Server, MySQL, Sybase, HyperSQL, DB2, SQLite и многие другие. Оно представляет собой полноценный пакет инструментов, который обеспечивает удобство и эффективность при работе с данными.
+Одной из ключевых особенностей является (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2C8B9E69982F6C92E3620A5DD10F2888E9BAA24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847260   (1051914) от 11.01.2026
+
+Jetbrains WebStorm 2025.3.1.1 (x64-arm64) Repack by IDE`a [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051914.jpg" />
+</div>
+
+
+###  Подробнее
+
+JetBrains WebStorm — это мощная интегрированная среда для разработки веб-приложений и UI-тестирования на JavaScript, HTML, and CSS. Она предлагает расширенные функции автодополнения, рефакторинга и анализа кода, которые ускоряют разработку и улучшают качество кода. Также WebStorm поддерживает современные технологии, такие как Node.js, Angular, React, и Vue.js, и (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60689DEE2779BFB2696140F5E406AA14B0BCE6D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1847262   (1051913) от 11.01.2026
 
 Jetbrains IntelliJ IDEA Ultimate 2025.3.1.1 (x64-arm64) Repack by IDE`a [En]
@@ -6,7 +137,7 @@ Jetbrains IntelliJ IDEA Ultimate 2025.3.1.1 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051913.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ JetBrains GoLand 2025.3.1 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051912.jpg" />
 </div>
 
 
@@ -60,7 +191,7 @@ JetBrains PhpStorm 2025.3.1.1 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051903.jpg" />
 </div>
 
 
@@ -87,7 +218,7 @@ InfineonSpice 2025.04.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051422.jpg" />
 </div>
 
 
@@ -115,7 +246,7 @@ QSPICE 2026.1.4 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051392.jpg" />
 </div>
 
 
@@ -143,7 +274,7 @@ Missler Topsolid 7.17.400.000 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051381.jpg" />
 </div>
 
 
@@ -171,7 +302,7 @@ SQL Dynamite 2.5.3.1 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051347.jpg" />
 </div>
 
 
@@ -197,7 +328,7 @@ WinToHDD 6.9 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051247.jpg" />
 </div>
 
 
@@ -223,7 +354,7 @@ NVIDIA GeForce Desktop Studio 591.74 WHQL + DCH [Multi/Ru]
 >>Драйверы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051239.jpg" />
 </div>
 
 
@@ -249,7 +380,7 @@ PilotEdit Lite & Pro 20.5.0 [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051152.jpg" />
 </div>
 
 
@@ -276,7 +407,7 @@ DipTrace 5.2.0.4 + 3D Models [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1050701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050701.jpg" />
 </div>
 
 
@@ -302,7 +433,7 @@ Altium Designer 26.1.1 Build 7 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1050694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050694.jpg" />
 </div>
 
 
@@ -328,7 +459,7 @@ Molsoft  ICM-Pro 3.9-4 [En]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050468.jpg" />
 </div>
 
 
@@ -354,7 +485,7 @@ Jinn'sLiveUSB 11.6 - флешка с Windows 7, 8.1, 10 и 11 [Ru/En] [Авто�
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050338.jpg" />
 </div>
 
 
@@ -380,7 +511,7 @@ Multiboot Collection Full v.8.9 (Обновляемая) [Ru/En]
 >>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050158.jpg" />
 </div>
 
 
@@ -406,7 +537,7 @@ JetBrains DataGrip 2025.3.2 (x64-arm64) Repack by IDE`a [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049995.jpg" />
 </div>
 
 
@@ -433,7 +564,7 @@ Microsoft Visual Studio 2026 Enterprise 18.1.1 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049161.jpg" />
 </div>
 
 
@@ -459,7 +590,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.23 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049159.jpg" />
 </div>
 
 
@@ -485,7 +616,7 @@ WinToUSB Technician 10.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Остальное ПО для специалистов
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049115.jpg" />
 </div>
 
 
@@ -511,7 +642,7 @@ SkyCAD Electrical Pro 1.3.61.23785 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049052.jpg" />
 </div>
 
 
@@ -537,7 +668,7 @@ Altair PSIM 2026.0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048994.jpg" />
 </div>
 
 
@@ -548,139 +679,6 @@ PSIM - программа для проектирования и моделир�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18155F363671998CEEC45159B56F8E6D9EF5BE52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842884   (1048988) от 18.12.2025
-
-Keysight Advanced Design System 2026 Update 1 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048988.jpg" />
-</div>
-
-
-###  Подробнее
-
-Система ADS является самой передовой в отрасли системой автоматизированного проектирования (САПР) ВЧ, СВЧ и высокоскоростных цифровых электронных устройств. В САПР ADS впервые использованы такие инновационные и коммерчески успешные технологии, как X-параметры* и 3D электромагнитное (ЭМ) моделирование, применяемые ведущими компаниями в сфере беспроводной связи, компьютерных (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD9718FDE5B7F4F488826B4912B863062B8504A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843095   (1048940) от 18.12.2025
-
-Hex Editor Neo Ultimate 7.50.04.8813 [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hex Editor Neo – Редактор Шестнадцатеричных и Бинарных Файлов под Windows. Программа имеет многооконный интерфейс, возможности по просмотру, поиску, замене и отладке данных.
-Вы можете широко использовать следующие основные функции: Type, Cut, Copy, Paste, Fill, Delete, Insert, Import и Export и др. Поддерживаются режимы перезаписи и вставки, присутствует возможность (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39703A93B0B16214CD006DC583CF6A51F11D245C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842804   (1048870) от 17.12.2025
-
-1С:Зарплата и управление персоналом (ЗУП) базовая 3.1.36.39 [Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Остальное ПО для специалистов
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для управления человеческими ресурсами предприятия фирмой «1С» разработан современный инструмент автоматизации задач управления персоналом, ведения кадрового учета и расчетов в соответствии с требованиями законодательства для коммерческих предприятий различного масштаба — 1С:Зарплата и управление персоналом 8.
-
-1С:Зарплата и управление персоналом 8 — решение для (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:473AC5F36404578CDF50E911999A8C464F4F3F62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842222   (1048577) от 16.12.2025
-
-WinPE 11-10-8 Sergei Strelec (x86/x64/Native x86) 2025.12.14 [Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>LiveCD/DVD/Flash
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048577.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузочный диск на базе Windows 11, 10 и 8 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, антивирусной профилактики и установки ОС Windows.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8F406AFB847D0041AB9356D5B8DB12F62368369
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841670   (1048075) от 12.12.2025
-
-SAS.Планета 251212 portable [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Системы навигации и карты
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048075.jpg" />
-</div>
-
-
-###  Подробнее
-
-SAS.Планета / SAS.Planet / SASPlanet – свободно распространяемая портативная программа, предназначенная для просмотра и загрузки спутниковых снимков высокого разрешения и обычных карт, представляемых такими сервисами, как Google Earth, Google Maps, Bing Maps, DigitalGlobe, “Космоснимки“, Яндекс.карты, Yahoo! Maps, VirtualEarth, Gurtam, OpenStreetMap, eAtlas, iPhone (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39921FC81B73E25738A55173F903A9F4EEEA85B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

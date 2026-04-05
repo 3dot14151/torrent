@@ -1,138 +1,3 @@
-###  Публикация: 1667855   (175072) от 10.10.2023
-
-П.Е. Данко и др. | Высшая математика в упражнениях и задачах [2 книги] (1999) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Содержание I части охватывает следующие разделы программы: аналитическую геометрию, основы линейной алгебры, дифференциальное исчисление функций одной и нескольких переменных, интегральное исчисление функций одной переменной, элементы линейного программирования.
-
-Содержание II части охватывает следующие разделы программы: кратные и криволинейные интегралы, ряды, (   Читать дальше...   )Жанр: МатематикаИздательство: Высшая школаФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35CFFBE98ABD117809867CF5C4F15991BCC9FF61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429610   (175058) от 08.12.2020
-
-Д.В. Пегов (ред.) | Скоростной электропоезд Sm6 Allegro (2019) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_175058.jpg" />
-</div>
-
-
-###  Подробнее
-
-Электропоезд Sm6 "Allegro" выпущен итальянским подразделением компании Alstom (серия ETR 480).
-Относится к типу скоростных поездов под общим названием "Pendolino" (по-итальянски - "маятник"). Особенность таких поездов заключается в наклоняемом кузове, что обеспечивает прохождение кривых с более высокой допустимой скоростью. С 2010 года (   Читать дальше...   )Жанр: техническое пособиеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF8D809FA4F2E06674327979C041B62749BE5FE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595578   (175012) от 06.12.2022
-
-А.В. Усова, А.А. Бобров | Формирование умений и навыков на уроках физики (1988) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175012.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге раскрываются основы методики формирования у школьников учебных умений по физике на различных этапах обучения; дается классификация этих умений.
-Использование материала данного пособия поможет учителю более полно и глубоко осуществлять всестороннее развитие подрастающего поколения.
-Показывая методы формирования обобщенных познавательных и практических умений, (   Читать дальше...   )Жанр: физикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E1CC420B40454D412F9A53B8EBC79FCF63C9BE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595577   (175009) от 06.12.2022
-
-А.Е. Марон, В.Е. Марон | Задания по физике для учащихся 9 класса вечерней (заочной) средней школы (1986) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие содержит задания по физике для самостоятельной работы учащихся IX класса вечерней (заочной) школы. Каждое задание состоит из перечня вопросов программы, указаний к работе с учебником, вариантов зачетных работ, заданий повышенной сложности.Жанр: физикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E16DC0599AC3809092D0706D2163F35AA53046D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595566   (174975) от 06.12.2022
-
-Е.Н. Архангельский и др. | Судовая электротехника и электроника (1985) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174975.jpg" />
-</div>
-
-
-###  Подробнее
-
-В соответствии с программой рассмотрены вопросы, составляющие основное содержание подготовки инженеров неэлектротехнических специальностей в области технического использования электрических и магнитных явлений: теории электрических цепей, электроники (главным образом, энергетической электроники), электрических машин и электрического привода. Теоретический материал (   Читать дальше...   )Жанр: ЭлектроникаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C6D01078C65A2096C90C2CB99A6EE1DAEA15F29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595579   (174972) от 06.12.2022
 
 В.П. Орехов, А.В. Усова | Методика преподавания физики в 6-7 классах средней школы [Изд. 2-е] (1972) [PDF]
@@ -141,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174972.jpg" />
 </div>
 
 
@@ -167,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174916.jpg" />
 </div>
 
 
@@ -194,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174915.jpg" />
 </div>
 
 
@@ -220,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174825.jpg" />
 </div>
 
 
@@ -247,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174522.jpg" />
 </div>
 
 
@@ -274,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174462.jpg" />
 </div>
 
 
@@ -300,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174392.jpg" />
 </div>
 
 
@@ -326,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174387.jpg" />
 </div>
 
 
@@ -354,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174384.jpg" />
 </div>
 
 
@@ -381,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174343.jpg" />
 </div>
 
 
@@ -409,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174342.jpg" />
 </div>
 
 
@@ -435,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174332.jpg" />
 </div>
 
 
@@ -461,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174316.jpg" />
 </div>
 
 
@@ -487,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174310.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174310.jpg" />
 </div>
 
 
@@ -514,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174307.jpg" />
 </div>
 
 
@@ -540,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174264.jpg" />
 </div>
 
 
@@ -567,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174229.jpg" />
 </div>
 
 
@@ -593,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_174185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174185.jpg" />
 </div>
 
 
@@ -620,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173974.jpg" />
 </div>
 
 
@@ -646,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_173966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_173966.jpg" />
 </div>
 
 
@@ -672,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173959.jpg" />
 </div>
 
 
@@ -683,6 +548,137 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A92485F03C66DFEE66CD7C664F09DF0C36DDF062
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596014   (173956) от 08.12.2022
+
+Н.С. Фролова | Тектонофизика. Дополнительные главы (2022) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_173956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конспект лекций по курсу "Тектонофизика".Жанр: ФизикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDED8ACB6C692A5D404B9C9E4F4F889879B9DC5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596186   (173944) от 08.12.2022
+
+С.А. Спектор | Электрические измерения физических величин. Методы измерений (1987) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_173944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены методы измерений и физические основы построения средств электрических измерений физических величин, а также вопросы общей теории измерений, метрологического обеспечения и коррекции погрешностей измерений. Приводятся характеристики современных средств измерений.
+Для студентов вузов по курсу "Методы измерений физических величин". Может быть полезно (   Читать дальше...   )Жанр: ЭлектротехникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBEFF9ED9B5877669ACE27788CB6BE45445DA174
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596032   (173895) от 08.12.2022
+
+Д.Ю. Нечипуренко | Экспериментальные методы в биофизике (2022) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_173895.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конспект лекций по курсу "Экспериментальные методы в биофизике".Жанр: ФизикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98215475FE446E6B7B48191383B8695E0F26928A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194064   (173835) от 23.12.2017
+
+Сергей Парновский | Как работает Вселенная: Введение в современную космологию (2018) [PDF, FB2, RTF]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173835.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга посвящена космологии – науке, недавно отпраздновавшей свое столетие. Она объясняет, почему мы уверены, что у Вселенной есть начало, где и когда произошел Большой взрыв, что означает разбегание галактик, как образовалось все, что нас окружает, от атомов до галактик, каково будущее Вселенной, существуют ли миры с другими физическими законами, что такое черные (   Читать дальше...   )Жанр: Научно-популярная литература, КосмологияФормат: PDF, FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C258575453015007FDCFF0A687C37AD0F67D061
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596044   (173805) от 08.12.2022
+
+Н.В. Кленов | Современные экспериментальные исследования основ квантовой механики (2022) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_173805.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конспект содержит 12 лекций по современным экспериментальным исследованиям основ квантовой механикиЖанр: ФизикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81F3E419CB2EBDFAFEFE59B7F5CF9DC65339CF0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

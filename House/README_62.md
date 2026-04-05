@@ -1,3 +1,90 @@
+###  Публикация: 1189332   (271051) от 05.12.2017
+
+VA - Deep Progressive 2017 [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Danny Stubbs - This Is Desire (Original Mix) 06:43
+02. Jssst - Moving Forward (Original Mix) 09:31
+03. Emran Badalov - Baku 2015 (Original Mix) 06:27
+04. Bravofox - Too Many Ninja (Original Mix) 07:08(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 03:39:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:060EA706E6970009FAE64A4A71AF43FA3B012B13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337933   (270665) от 14.11.2019
+
+VA - 128 BPM Fitness Music 2020: For Cardio, Aerobics, Workout, Total Body Exercise (2019) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jack Mazzoni - The Show (Radio Edit) 2:42
+02. Luka J Master & Carlo M - El Numerado (Radio Mix) 2:37
+03. Carlo M feat. Pony Lu - Wonderful Love (Radio Mix) 2:27
+04. Luka J Master feat. Giulia I and Shark - Shake Your Body (Carlo M Extended Remix) 3:08(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:01:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3158F8247464B36751E1FF496C7F9963F89C5E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266657   (269197) от 03.12.2018
+
+VA - Future Sounds. EDM 2019 (2018) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turbotronic - Animal (Radio Edit)
+02. Rene Rodrigezz, Zootah - No Sick No Big (Original Mix)
+03. 2room, Raph - Apache (Radio Edit)
+04. Alka & Feiv - Drop The Boom (Radio Edit)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:10:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:401B4293114F541E049F713B6C140C3B724F71C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1338774   (268222) от 17.11.2019
 
 VA - Full House, Vol. 58 (2019) [MP3|320 Kbps] <Club, Groove, Future House>
@@ -6,7 +93,7 @@ VA - Full House, Vol. 58 (2019) [MP3|320 Kbps] <Club, Groove, Future House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268222.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ VA - Sunshine Dance (2019) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_268219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268219.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ VA - EDM Dance 2018 (2017) [MP3|320 Kbps] <House, Club, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267105.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ VA - Dance Hits 2018 (2017) [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_267051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267051.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ VA - Best Of EDM Party 2019 (2018) [MP3|320 Kbps] <House, Electro House, BigRoom
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265485.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ VA - 25 Best Christmas Songs Ever For Fitness & Workout (2019) [MP3|320 Kbps] <F
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264661.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ VA - Best Of Dance 2019 (Presented by Spinnin' Records) [MP3|320 Kbps] <Progress
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264287.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264287.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ VA - Planeta Mix Hits 2020: Winter Edition (2019) [MP3|320 Kbps] <Progressive Ho
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262917.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ VA - Destination Chill House (2017) [MP3|320 Kbps] <Deep House,  Lounge, Downtem
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262502.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262502.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Steve Angello - Genesis-Inferno-Paradiso (2017) Single [MP3|320 Kbps] <Electro H
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262489.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ VA - Planeta Mix Hits 2018: Winter Edition (2017) [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262487.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ VA - Buddha-Bar By Armen Miran And Ravin (2017) [MP3|320 Kbps] <Deep House,  Lou
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262454.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ VA - 35 Best Flat ABS Hits 2019 (35 Tracks For Fitness & Workout) (2019) [MP3|32
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262331.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262331.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ VA - Remembering The 90's: Best Hits Remixed (2017) [MP3|320 Kbps] <House, Club,
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262096.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ VA - Twelve Inch Nineties: Feels Like Heaven (2017) [MP3|320 Kbps] <House, Euro-
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261978.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261978.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ VA - Black Hole House Music 12-17 (2017) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261830.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261830.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ VA - House Party (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261816.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ VA - Balearic Deep-House Winter 2026 (2025) [MP3|320 Kbps] <House, Deep House, D
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261708.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ VA - Polyptych Limited: Year Four (2024) [MP3|320 Kbps] <Progressive House, Melo
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261682.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ VA - Ministry of Sound - The Annual 2026 (2025) 2 CD [MP3|320 Kbps] <Dance, Club
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261552.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ VA - Purified Chronicles 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic 
 >>House
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260622.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Barcode Brothers - 2 Альбома , 4 Сингла (2000-2002) [MP3|320 кб/�
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260476.jpg" />
 </div>
 
 
@@ -641,7 +728,7 @@ Groove Coverage feat. Rameez - Think About The Way (WEB) (2012) [MP3|320 кб/с
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259555.jpg" />
 </div>
 
 
@@ -656,98 +743,6 @@ Groove Coverage feat. Rameez - Think About The Way (WEB) (2012) [MP3|320 кб/с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12F73FE04C67C17BCAEC451C670151883E039566
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 503408   (259522) от 30.05.2012
-
-Alice DeeJay - Better Off Alone (Laidback Luke Remixes) (WEB) (2011) [MP3|320 кб/с]<Electronic, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_259522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Better Off Alone (Laidback Luke Hit Radio Remix) 02:46
-02. Better Off Alone (Laidback Luke Dance Radio Remix) 03:15
-03. Better Off Alone (Laidback Luke Full Length Remix) 05:02
-04. Better Off Alone (Remastered 1999 Original Hit Radio Mix) 03:34
-05. Better Off Alone (Remastered 1999 Original Mix) 06:49Жанр: Electronic, DanceПродолжительность: 00:21:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CEDE66AB739E25BFAC22FEEC4F61EC9F97BBE8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 501310   (258752) от 27.05.2012
-
-VA - Dada Life's Musical Freedom (2012) [MP3|~245 кб/с ]<House, Vocal House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_258752.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - Dada Life's Musical Freedom (2012)
-
-Год: 2012
-Жанр: House, Vocal House
-Продолжительность: 02:17:59Кодек: MP3
-Битрейт: ~245 кб/с
-Тип битрейта: VBRТрек лист:
- 01. Dada Life - Kick Out the Epic Motherf**cker (Vocal Extended Mix) [03:45](   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:956C258A9B75BD654DE57B8925AF464BFDFAF6A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838178   (257985) от 21.11.2025
-
-VA - Balearic Melodic House and Techno Winter 2026 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Francesco Diaz - Oh L'amour 03:01
-02. Neurolyze - Existence 03:52
-03. Berti Boomsen - Three Dee 03:21
-04. Jaques Le Noir - We Find An Island (Techno Mix) 06:32(   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 02:23:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94D95906C981C59A200F20939CF0545BE8DE1BD0
 ```
 
 https://mybot314.ru/tekegram_catalog/

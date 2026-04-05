@@ -1,3 +1,29 @@
+###  Публикация: 1403812   (688636) от 21.08.2020
+
+Марина Аромштам | Желуденок (2013) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688636.jpg" />
+</div>
+
+
+###  Подробнее
+
+На большом дубе, среди могучих ветвей и кудрявых листьев, жил-был Желудь. Не Желудь даже, а Желуденок - такой он был маленький и зеленый. И была уЖелуденка шапочка,такая же маленькая и зеленая, как он сам. Эту шапочку Желуденок никогда не снимал - ни днем, ни ночью: очень она ему нравилась. Особенно тоненький хвостик на макушке, который крепился к дубовой веточке... (   Читать дальше...   )Жанр: Детская литература/Проза для детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D4D6D08E79BD377A6079C68974D44ADA13109A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1403726   (688635) от 21.08.2020
 
 Жаклин Уэст | Книги Иных Мест. Книга секретов. Книга 3.  (2016) [FB2, EPUB, MOBI]
@@ -6,7 +32,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688635.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688634.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688558.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688551.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688467.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688206.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688053.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688039.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688036.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_688035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688035.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687964.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687790.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687623.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687623.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687609.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687588.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687574.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687570.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687563.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687561.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687560.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687495.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687493.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687492.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687341.jpg" />
 </div>
 
 
@@ -644,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687334.jpg" />
 </div>
 
 
@@ -655,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FA2BF4883CAA91EFB41A2AC75D4FDF8CF729DCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222335   (687249) от 28.04.2018
-
-Алексей Лебедев | Шаг за шагом. Букварь для обучения чтению и письму (1917) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_687249.jpg" />
-</div>
-
-
-###  Подробнее
-
-С иллюстрациями в тексте. Изданный Вахтеровым в самом конце XIX века Букварь выдержал более 120 изданий. В конце букваря краткая церковнославянская азбука.Жанр: Обучение и развитие детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A49D2D929C9FC24FF45A1D1E8686AF969290A1AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

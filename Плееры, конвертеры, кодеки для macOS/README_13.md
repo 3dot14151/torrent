@@ -1,3 +1,29 @@
+###  Публикация: 1678593   (144155) от 22.11.2023
+
+Apeaksoft DVD Creator for Mac 1.0.56 [Multi]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144155.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы хотите создать DVD-диск в качестве подарка для любимой или хотите сохранить классический фильм на DVD-диске, чтобы сохранить его навсегда, даже если вы хотите сделать различные DVD-диски для своего клиента, DVD Creator будет вашим лучшим выбором.Тип издания: macOS SoftwareРелиз состоялся: 17.11.2023Разработчик: © 2023 Apeaksoft Studio.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Итальянский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE16FA884E425E2942E50BA1321D80E26A0BA6BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088139   (140619) от 30.12.2016
 
 Tuner - experience YouTube music 3.0 [En]
@@ -6,7 +32,7 @@ Tuner - experience YouTube music 3.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140619.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ Cisdem Video Player 5.6.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140572.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ VideoSolo BD-DVD Ripper 2.0.12 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140202.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ RAW Converter 2 v2.6 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139555.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ Music Paradise Player 1.3.2 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138036.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ iFunia Video Converter Pro for Mac 7.4.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135267.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Audirvana Origin for Mac 2.4.0 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134681.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ TunesKit Video Converter 2.1.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130329.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Filmage Screen-Screen Recorder 1.4.3 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130057.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ AnyMP4 DVD Creator for Mac 6.2.26 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129538.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ iMusic 2.2.2 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129255.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ Aiseesoft Mac Video Converter Ultimate for Mac 10.5.18 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123078.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ Pro Audio Converter 1.9.2 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122762.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ Audkit Apple Music Converter for Mac  1.2.0 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121132.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ Total Video Converter Pro for Mac 5.1.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120435.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ DRmare Music Converter for Spotify 2.11.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120158.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ Viwizard Spotify Music Converter for Mac 2.13.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120157.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ HitPaw Edimakor (Video Editor) for Mac 2.6.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120136.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ AudKit Spotify Music Converter for Mac 2.5.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120111.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ AudFree Spotify Music Converter for Mac 2.11.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120086.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ AnyMP4 Audio Converter for Mac 8.2.20 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119616.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ dBpoweramp Music Converter 2024-02-01 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119504.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ Tipard DVD Creator for Mac 3.2.50 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119101.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ ff-Works for Mac 4.0.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118425.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ NCH Express Burn Plus for Mac 12.02 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117050.jpg" />
 </div>
 
 
@@ -651,33 +677,6 @@ Express Burn Plus приложение для быстрого и простог
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDDCC2054BB58F454780DE83F934E812C74497FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700639   (117046) от 17.02.2024
-
-Smart Converter Pro 3 v.3.1.5 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smart Converter Pro - Просто и эффективно конвертируем медиафайлы
-Smart Converter позиционируется разработчиками из компании Systemic Pty Ltd как «умный» и мощный конвертер аудио- и видео для всей линейки apple-устройств, а также ряда других девайсов, причем вся его мощь скрыта от пользователя — последнему остается нажать только пару кнопок, для того чтобы начать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.02.2024Разработчик: © 2024 Systemic Pty LtdПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:569F4BDD1FE1E500946E170785AD59BC07A27308
 ```
 
 https://mybot314.ru/tekegram_catalog/

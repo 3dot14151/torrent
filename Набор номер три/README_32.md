@@ -1,3 +1,159 @@
+###  Публикация: 1461068   (1021689) от 10.04.2021
+
+Несколько сортов яблок, которые вы вряд ли пробовали
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021689.jpg" />
+</div>
+
+
+###  Подробнее
+
+Яблоко яваЭкзотический сорт диких азиатских яблок, которые совсем не хранятся. По вкусу недозрелые плоды ближе к овощу, чем к фрукту. Едят их с солью и вообще используют как замену огурцу – добавляют в салаты, соусы, тушат с другими овощами. А вот вызревшие, красные, они становятся сладкими и похожими на фрукт, потому их едят в качестве десертов, варят варенья, компоты (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461533   (1021686) от 10.04.2021
+
+Поехали! «Ю.А. Гагарин» стартовал к МКС
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021686.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя 60 лет после Юрия Алексеевича Гагарина знаменитое «Поехали!» произнес командир транспортного пилотируемого корабля «Ю.А. Гагарин» (Союз МС-18), космонавт Роскосмоса Олег Новицкий, когда ракета оторвалась от стартового стола. В пятницу, 9 апреля 2021 года, в 10:42:41 по московскому времени со стартовой площадки № 31 космодрома Байконур выполнен пуск ракеты-носителя (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461555   (1021647) от 10.04.2021
+
+Родные (2021) WEBRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021647.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды утром отец семейства решает исполнить мечту всей жизни: отправиться с родными на Грушинский фестиваль и выступить там со своей песней. Семья вынуждена смириться с желанием отца-самодура и пуститься в автопутешествие через всю Россию. В пути их ждут приключения, различные испытания, проверка отношений на прочность и важная встреча, которую отец ждал двадцать (   Читать дальше...   )Производство: Россия, Hype FilmЖанр: Комедия, ДрамаРежиссер: Илья АксеновАктеры: Сергей Бурунов, Ирина Пегова, Семен Трескунов, Монеточка, Катерина Беккер, Анна Уколова, Никита Павленко, Сергей Шакуров, Павел Ворожцов, Дмитрий РусаковПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60A7212C508904796B39ED8059B9441F8F4608D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276033   (1021644) от 10.04.2021
+
+Оранжевая корова (2018-2021) WEB-DLRip [H.264/720p-LQ] (сезон 1-2, серии 1-52 из 52) [Обновляемая]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021644.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веселые и поучительные истории из жизни одной дружной семьи коров, где подрастают маленькие брат и сестра Бо и Зо. Каждый день малыши узнают что-нибудь новое и приучаются к добрым делам. Красочный музыкальный сериал для дошкольников «Оранжевая корова» рассказывает о ценности дружбы, семьи и чуткого отношения к окружающим людям. Брат и сестра Боря и Зоя, более известные (   Читать дальше...   )Производство: Россия / СоюзмультфильмЖанр: Развивающий мультсериал для детейРежиссер: Елена ЧерноваАктеры: Лариса Брохман, Владимир Антоник, Анна Мосолова, Алиса ЛандерПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: ~00:06:30 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:828E0B5633FDC6BB9BF7026D3DA3B1948BDA9388
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461671   (1021485) от 11.04.2021
+
+Neuralink представила обезьяну, играющую "силой мысли" в видеоигры
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американская компания Neuralink, к созданию которой приложил руку миллиардер Илон Маск, показала как научила играть чипированную макаку в ментальный пинг-понг.Участником эксперимента стала 9-летняя обезьяна Пэйджер. Ей установили имплант Neuralink примерно за шесть недель до записи видеоролика. Сначала её научили играть в игры при помощи джойстика, за что наградили (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417623   (1021470) от 11.04.2021
+
+Amnesia: Rebirth (2020) [Ru/Multi] (1.31) Repack Other s
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021470.jpg" />
+</div>
+
+
+###  Подробнее
+
+В игре Amnesia: Rebirth от создателей культовой серии вас ждет новое погружение во тьму. Преодолевая отчаяние и безысходность, вам предстоит проверить на прочность человеческую способность выносить страдания. В Amnesia: Rebirth вы играете за Таси Трианон, которая приходит в себя в недрах алжирской пустыни. Прошло уже много дней. Где вы были? Что делали? Где все остальные? (   Читать дальше...   )Тип издания: RepackРазработчик: Frictional GamesЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A76D338355B3EB7EEC6AAE7C43484610D430C836
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461302   (1021468) от 11.04.2021
 
 Гуляй, Вася! Свидание на Бали (2021) WEBRip [H.264/1080p-LQ]
@@ -6,7 +162,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021468.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ JetBrains PyCharm Professional 2021.1 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021467.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021465.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ Forza Horizon 4 (2018) [Ru/Multi] (1.467.171.0/dlc) Repack Other s [Ultimate Edi
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021464.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021386.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021362.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021349.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ No Man's Sky (2016) [Ru/Multi] (3.35/dlc) Repack Other s
 >>16
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021340.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021239.jpg" />
 </div>
 
 
@@ -241,7 +397,7 @@ SkillBox, Сергей Корниенко и др.| Веб-разработчи�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021233.jpg" />
 </div>
 
 
@@ -270,7 +426,7 @@ Google запустила новую функцию Android, которая по
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021100.jpg" />
 </div>
 
 
@@ -296,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021078.jpg" />
 </div>
 
 
@@ -322,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021065.jpg" />
 </div>
 
 
@@ -348,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021054.jpg" />
 </div>
 
 
@@ -374,7 +530,7 @@ ABBYY FineReader PDF 15.0.114.4683 RePack (& Portable) by TryRooM [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021053.jpg" />
 </div>
 
 
@@ -400,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020910.jpg" />
 </div>
 
 
@@ -426,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020894.jpg" />
 </div>
 
 
@@ -452,7 +608,7 @@ Adobe Photoshop 2021 22.3.1.122 RePack by KpoJIuK [Multi/Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020884.jpg" />
 </div>
 
 
@@ -478,7 +634,7 @@ CronosPlus 3.04.72
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020880.jpg" />
 </div>
 
 
@@ -504,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020724.jpg" />
 </div>
 
 
@@ -515,162 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462586   (1020709) от 16.04.2021
-
-Где самый дешевый мобильный интернет в мире?
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Британский портал Cable.co.uk недавно опубликовал свежий отчет о стоимости интернета в мире. Проанализировав данные о более чем 6 тысячах тарифных планов, которые были доступны у сотовых операторов в 230 странах в период с 8 декабря 2020-го по 25 февраля 2021 года, специалисты сравнили, во сколько в среднем обходился 1 Гигабайт мобильного трафика жителям разных уголков (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 683491   (1020701) от 16.04.2021
-
-Blitzkrieg 2.5 / Блицкриг 2.5 (2020) [Ru] (2.0.7) Repack/Mod Stroibat II
-
->>3
->>10
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020701.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мод "Блицкриг 2.5" меняет тактико технические характеристики техники времен ВМВ и игру в целом в сторону реализма. Новые качественные образцы техники, новое звуковое оформление, качественные ретекстуринг создают уникальную атмосферу и выводят игру на новый уровень. Поиграв в "Блицкриг 2.5" Вы погрузитесь в атмосферу Второй Мировой войны, побываете (   Читать дальше...   )Тип издания: Repack / ModРазработчик: Nival InteractiveЖанр: Strategy (Real-time), 3DЯзык озвучки: Русский, Немецкий, АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51014D8CFA078B0321838DAAFB6EDAFDDFA7415B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 845342   (1020700) от 16.04.2021
-
-Поисковик NNM-Club 3.2.1.0 Portable [Ru] (Авторская раздача)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Само название программы говорит за себя. Отмечу лишь, что она не требует установки в систему, очень проста в использовании (Запустил, ввёл запрос и нашёл искомое), есть RSS-Ридер. Результат поиска откроется в браузере, который установлен в Вашей системе по умолчанию. Пользуйтесь быстрым поиском нужных Вам релизов на NNMClub.toЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A29283BCA7B197089F4377516A3C45E18FBE2EB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463043   (1020537) от 17.04.2021
-
-Плановое обновление Windows 10 приводит к сбоям, проблемам с играми и «Синему экрану смерти»
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020537.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Microsoft выпустила на этой неделе традиционное ежемесячное «обновление по вторникам» (Patch Tuesday) для операционной системы Windows 10. Судя по отзывам пользователей, обновление обернулось изрядными неприятностями.Для Windows 10 версий 20H2 (октябрьский апдейт) и 2004 (майский), обновление имеет маркировку KB5001330. Оно приносит исправление более чем (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462589   (1020531) от 17.04.2021
-
-«Вельми понеже» и другие фразы Якина , которые зрители не поняли
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020531.jpg" />
-</div>
-
-
-###  Подробнее
-
-В культовой картине Леонида Иовича Гайдая «Иван Васильевич меняет профессию» имеется весьма интересный эпизод, в котором кинорежиссер Карп Савельевич Якин вынужден упасть перед Иваном Грозным на колени. После этого между персонажами случился довольно любопытный диалог.Царь садится на кресло и начинает спрашивать Карпа: «Ты боярыню соблазнил?», Якин отвечает невнятными (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463076   (1020523) от 17.04.2021
-
-Windows 10 Enterprise LTSC (x86/x64) 4in1 by Eagle123 (04.2021) [Ru/En]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020523.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 Enterprise LTSC v1809 17763.1879, включающая в себя 2 русских и 2 английских редакции x86/x64, с обновлениями по 04.2021, дополнительными системными библиотеками (C++ Redistributable Package), с возможностью выбора опций установки и наличием MSDaRT.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CE71387F8800B5C7A85D28FF0FD985AB87BFA29
 ```
 
 https://mybot314.ru/tekegram_catalog/

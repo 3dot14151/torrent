@@ -1,30 +1,3 @@
-###  Публикация: 984535   (938841) от 09.02.2016
-
-Владимир Антонов | Служба внешней разведки. История, люди, факты (2014) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938841.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ни одно государство не может обойтись без внешней разведки. Это доказала история. Это подтверждает и современность. Ведь основной ее задачей является добывание для высшего руководства страны достоверной, во многом упреждающей информации по тем проблемам, которые могли бы нанести ущерб ее интересам.
-Каким образом Советскому Союзу удалось создать самую эффективную (   Читать дальше...   )Жанр: Биографии и Мемуары, CпецслужбыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B4D53A451CAF04F5AC0F5B8C7E52EE9BC6820E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984907   (937018) от 10.02.2016
 
 Анатолий Терещенко | Колокола тревог (2015) [FB2]
@@ -33,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937018.jpg" />
 </div>
 
 
@@ -60,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936909.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936909.jpg" />
 </div>
 
 
@@ -87,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936142.jpg" />
 </div>
 
 
@@ -114,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935561.jpg" />
 </div>
 
 
@@ -140,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935554.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935554.jpg" />
 </div>
 
 
@@ -168,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935553.jpg" />
 </div>
 
 
@@ -194,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935544.jpg" />
 </div>
 
 
@@ -222,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935019.jpg" />
 </div>
 
 
@@ -248,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934414.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934414.jpg" />
 </div>
 
 
@@ -274,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933952.jpg" />
 </div>
 
 
@@ -303,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933721.jpg" />
 </div>
 
 
@@ -329,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933481.jpg" />
 </div>
 
 
@@ -355,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933476.jpg" />
 </div>
 
 
@@ -382,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932617.jpg" />
 </div>
 
 
@@ -408,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932616.jpg" />
 </div>
 
 
@@ -434,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932535.jpg" />
 </div>
 
 
@@ -460,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932377.jpg" />
 </div>
 
 
@@ -486,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930738.jpg" />
 </div>
 
 
@@ -514,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927898.jpg" />
 </div>
 
 
@@ -542,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927690.jpg" />
 </div>
 
 
@@ -569,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927671.jpg" />
 </div>
 
 
@@ -595,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927663.jpg" />
 </div>
 
 
@@ -621,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927661.jpg" />
 </div>
 
 
@@ -647,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927164.jpg" />
 </div>
 
 
@@ -673,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927150.jpg" />
 </div>
 
 
@@ -684,6 +657,32 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB53546C80395541B3796D993BBD78BA5A2DCDBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365845   (927033) от 09.03.2020
+
+Василий Цветков | Белое дело в России. 1917-1919, 1920–1922 гг. [2 книги] (2019) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927033.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Эта книга – самое фундаментальное, информативное и подробное исследование, написанное крупнейшим специалистом по истории Белого движения и Гражданской войны в России. Всё о формировании и развитии политических структур Белого движения – от падения монархии к установлению власти Верховного правителя России адмирала А.В. Колчака и до непоправимых ошибок белых в (   Читать дальше...   )Жанр: История России, МонографииФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EBF70B6C11029DFC26FD714B21E97A0BA82976E
 ```
 
 https://mybot314.ru/tekegram_catalog/

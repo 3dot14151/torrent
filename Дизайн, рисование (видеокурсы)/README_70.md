@@ -1,3 +1,58 @@
+###  Публикация: 1630421   (199046) от 30.04.2023
+
+Udemy, Joakim Tornhill | The Emitter Particle Course for Blender 2.8 and above (2020) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_199046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс предназначен для тех, кто действительно хочет воспользоваться преимуществами мощной системы частиц, существующей в Blender.
+В нем будут рассмотрены все аспекты, такие как размещение и вращение частиц, их раскрашивание, использование различных типов физики, как различные силы взаимодействуют с системой частиц, как текстуру можно использовать различными способами (   Читать дальше...   )Производство: UdemyЖанр: 3D моделирование, ЧастицыЯзык озвучки: АнглийскийПродолжительность: 08:26:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DAE2310FD33B1002BAC792321A1EA9CF127EB20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630419   (199028) от 30.04.2023
+
+Udemy, Joakim Tornhill | Shader Magic in Blender 3.41 and above (2023) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_199028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы один из тех, кто думает, что ноды выглядят устрашающе, когда вы видите большое дерево нодов ... или, возможно, вам просто любопытно, как вода в игре может так красиво обтекать эти камни в реке и идеально следовать течению?
+Независимо от причины, здесь вы узнаете больше о том, как соединить эти ноды!
+Я расскажу о том, как создавать фигуры, как работает векторная (   Читать дальше...   )Производство: UdemyЖанр: 3D моделирование, ШейдерыЯзык озвучки: АнглийскийПродолжительность: 13:54:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DF7FABA86BD89E42AC0BB1CED30B814CD85615A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1630597   (199002) от 01.05.2023
 
 Udemy, Joakim Tornhill | A Workflow to Create Realistic Material in Blender (2021) PCRec [EN]
@@ -6,7 +61,7 @@ Udemy, Joakim Tornhill | A Workflow to Create Realistic Material in Blender (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_199002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_199002.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ Udemy, Joakim Tornhill | All About Eevee for Blender 2.8 and above (2020) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_199000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_199000.jpg" />
 </div>
 
 
@@ -59,7 +114,7 @@ CGcircuit, Tim Van Helsdingen | Aggregation – Rigid body Self Assembly (2021) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198795.jpg" />
 </div>
 
 
@@ -88,7 +143,7 @@ CGcircuit, Radu Cius | Houdini Tutorial Procedural Modeling – Escalator (2022)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198787.jpg" />
 </div>
 
 
@@ -117,7 +172,7 @@ Kalacheva School, Вероника Калачева | Акварель 2.0 (2020
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198761.jpg" />
 </div>
 
 
@@ -145,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198741.jpg" />
 </div>
 
 
@@ -174,7 +229,7 @@ CGcircuit, Arsen Margaryan | Discovering Houdini VOP 2 (2022) WEB-DL [Без о�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198720.jpg" />
 </div>
 
 
@@ -200,7 +255,7 @@ ivelizar_, Елизавета Иванова | Exterior atmosphere training (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198716.jpg" />
 </div>
 
 
@@ -228,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198698.jpg" />
 </div>
 
 
@@ -255,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198688.jpg" />
 </div>
 
 
@@ -284,7 +339,7 @@ Bangbangeducation, Анна Матвеева | Дизайн мобильных �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198629.jpg" />
 </div>
 
 
@@ -310,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198621.jpg" />
 </div>
 
 
@@ -339,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198563.jpg" />
 </div>
 
 
@@ -368,7 +423,7 @@ Kalacheva School, Вероника Калачева | Композиция си�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198559.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198559.jpg" />
 </div>
 
 
@@ -397,7 +452,7 @@ Enterclass, Мария Хаэт | Рисование карандашом (2023)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198545.jpg" />
 </div>
 
 
@@ -425,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198526.jpg" />
 </div>
 
 
@@ -454,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198520.jpg" />
 </div>
 
 
@@ -482,7 +537,7 @@ Udemy, Alex Cordebard | The Ultimate Blender 3D Geometry Nodes Course (2023) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198444.jpg" />
 </div>
 
 
@@ -509,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198442.jpg" />
 </div>
 
 
@@ -538,7 +593,7 @@ FXPHD, Charles Chorein | HOU115 – Height Fields in Houdini, Part 1 (2022) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198430.jpg" />
 </div>
 
 
@@ -564,7 +619,7 @@ Kalacheva School, Вероника Калачева | Акварель Про 2.
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198393.jpg" />
 </div>
 
 
@@ -593,7 +648,7 @@ FXPHD, Charles Chorein | HOU116 – Height Fields in Houdini, Part 2 (2022) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198380.jpg" />
 </div>
 
 
@@ -619,7 +674,7 @@ Watermedia, Татьяна Ширбидова | Базы акварели Сту
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198347.jpg" />
 </div>
 
 
@@ -647,7 +702,7 @@ LavandaSchool, Анастасия Чиркова | Цифровой портре
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198340.jpg" />
 </div>
 
 
@@ -661,61 +716,6 @@ LavandaSchool, Анастасия Чиркова | Цифровой портре
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8CE97486C65013212BE28DDF7361BB9A54598B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633748   (198295) от 17.05.2023
-
-Bengala.art, Ирина Глушкова | Мини-курс NFT (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый иллюстратор должен попробовать себя в NFT
-Зачем?
-Рисовать для души и продавать дороже в несколько раз, чем на заказ
-Стать популярным и востребованным среди известных коллекционеров(   Читать дальше...   )Производство: Bengala.artЖанр: ИллюстрацияЯзык озвучки: РусскийПродолжительность: 05:36:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D09E252C99F1B37171A3F7C388CFA10E181EE81C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633878   (198271) от 17.05.2023
-
-Леся Гусева | Создание персонажа (2022) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что ждет тебя на мастер-классе:Жанр: РисованиеЯзык озвучки: РусскийПродолжительность: 02:12:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D55CC6BF5350E47BF84DB14E70FCFEA60843CDC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,269 @@
+###  Публикация: 1832949   (230485) от 31.10.2025
+
+Шрифты - Creative Market - Diraga || Modern Serif Font - 291785207 [OTF, TTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Diraga Serif — современный и стильный шрифт для любого дизайна брендинга и логотипов. Этот современный и стильный шрифт с засечками обладает красивым характером. Он подходит для дизайна пригласительных открыток, стильных логотипов, названий фильмов, визитных карточек, названий книг, названий брендов и различных других дизайнов. Diraga Serif — это плавный шрифт с (   Читать дальше...   )Формат: OTF, TTF, WOFF, WOFF2Поддержка кириллицы: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97A68E6EAFC69A2949471F7ACC0F083598DEC246
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832965   (230363) от 31.10.2025
+
+Шрифты - Envato - Harume - Nothim - 9LWNR6G [OTF, TTF, WOFF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230363.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nothim Font — современный и аутентичный шрифт.Формат: OTF, TTF, WOFFПоддержка кириллицы: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A40C600EDA9D7184F70F5D8AC2CE99DE580EACF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832983   (230273) от 31.10.2025
+
+Шрифты - Creative Market - Rolinks - Rounded Display Font - 291776545 [OTF, TTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230273.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rolinks — округлый акцидентный шрифт с выразительным начертанием. Сочетание винтажного очарования и современного стиля. Этот шрифт отличается выразительными, уверенными засечками, которые вызывают ностальгию, оставаясь при этом неоспоримо свежими. Rolinks лучше всего подходит для заголовков, логотипов, цитат, ретро-дизайна, приглашений, плакатов, флаеров, поздравительных (   Читать дальше...   )Формат: OTF, TTF, WOFF, WOFF2Поддержка кириллицы: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB9A076FEFFEC20D673378A7723AD0EDFDCE2AD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832887   (221271) от 30.10.2025
+
+Шрифты - MyFonts - Gunko Street [OTF, TTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_221271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gunko Street — это смелый акцидентный шрифт для граффити, сочетающий динамичный уличный стиль с захватывающим эффектом трёхмерной тени. Разработанный для создания впечатляющего эффекта как в цифровых, так и в печатных приложениях, он отлично подходит для брендинга уличной одежды, постеров музыкальных мероприятий, графики скейт-культуры и любых проектов, стремящихся (   Читать дальше...   )Формат: OTF, TTF, WOFF, WOFF2Поддержка кириллицы: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA2D36BF749AA4F83E187F95907216C7E8179841
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084389   (220487) от 18.12.2016
+
+Шрифты - Phantom Regular [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220487.jpg" />
+</div>
+
+
+###  Подробнее
+
+Количество: 2 шт.
+Разработчик: Identikal
+Поддержка кириллицы: Есть (Русская, Белорусская, Украинская, Молдавская)
+(   Читать дальше...   )Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B2A3567F64820BF6FCAFBEB9360A78FDFE69AC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084906   (218261) от 19.12.2016
+
+Шрифты - Ghost Regular [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218261.jpg" />
+</div>
+
+
+###  Подробнее
+
+Количество: 2 шт.
+Разработчик:  Hyperion Graphics
+
+Поддержка кириллицы: Есть (Русская, Белорусская, Украинская, Молдавская)(   Читать дальше...   )Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B04627BC2F171D818E40F8E7B89A6D8A8A3905F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832288   (213552) от 30.10.2025
+
+Шрифты - Creative Market - Mikado - Modern Serif Font - 291785469 [OTF, TTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213552.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mikado — смелый и уверенный современный шрифт с засечками, сочетающий в себе классическое очарование и современную выразительность. Благодаря контрастным штрихам и геометрическим пропорциям Mikado идеально подходит для редакционных заголовков, брендинга и упаковки, которые привлекают внимание и обладают вневременной привлекательностью. Его выразительный стиль придаёт (   Читать дальше...   )Формат: OTF, TTF, WOFF, WOFF2Поддержка кириллицы: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFCD6532B397668D328F03B01745F0F1FD1A846F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832396   (213535) от 30.10.2025
+
+Шрифты - Envato - Milday - Handwritten Font - QY8VEMK [OTF, TTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213535.jpg" />
+</div>
+
+
+###  Подробнее
+
+Milday создан специально для тех, кто ищет рукописный шрифт без маркеров. Он вдохновлён абстрактным стилем дудл, но некоторые его сочетания создают игривый и выразительный дудл-стиль. Раскройте свой творческий потенциал с помощью шрифта Milday. Он идеально подходит для любых проектов благодаря лёгкому для чтения, игривому и смелому шрифту!Формат: OTF, TTF, WOFF, WOFF2Поддержка кириллицы: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D8309DD13CB8FEB9574F260AD6F61EF4C5E8E34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832567   (213474) от 30.10.2025
+
+Шрифты - Envato - Harume - Modern Stylish Serif - YBLDA2U [OTF, TTF, WOFF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Harume — универсальный и уникальный шрифт, представленный в различных стилях, каждый из которых обладает уникальным ощущением и характером, отличаясь высокой контрастностью, чёткими деталями и классическим шармом. Благодаря изысканным деталям и универсальному стилю он легко адаптируется для самых разных творческих проектов. Он придаст любому проекту элегантный и (   Читать дальше...   )Формат: OTF, TTF, WOFFПоддержка кириллицы: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D5BF3DFA7ED97AD83878046D1F0A9A96CD101AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832193   (213453) от 29.10.2025
+
+Шрифты - Creative Market - Koyrone - Retro Typeface Font - 291751245 [OTF, TTF, WOFF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213453.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шрифт Koyrone — лучший и аутентичный акцидентный шрифт. Он подойдёт для самых разных нужд. Мы предлагаем различные темы и стили шрифтов. Посетите наш профиль, чтобы найти широкий выбор тем и стилей шрифтов, которые вам нужны.Формат: OTF, TTF, WOFFПоддержка кириллицы: Есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:447895D82AE613CC61F85EA99D47B12D485FDEA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1832227   (213450) от 29.10.2025
 
 Шрифты - Creative Market - Manifesto Classic Modern Serif Font - 291882177 [OTF, TTF]
@@ -6,7 +272,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213450.jpg" />
 </div>
 
 
@@ -32,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_213248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213248.jpg" />
 </div>
 
 
@@ -59,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212658.jpg" />
 </div>
 
 
@@ -85,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212637.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212637.jpg" />
 </div>
 
 
@@ -111,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212635.jpg" />
 </div>
 
 
@@ -137,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212578.jpg" />
 </div>
 
 
@@ -164,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212576.jpg" />
 </div>
 
 
@@ -192,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212574.jpg" />
 </div>
 
 
@@ -220,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212556.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212556.jpg" />
 </div>
 
 
@@ -246,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212537.jpg" />
 </div>
 
 
@@ -272,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212477.jpg" />
 </div>
 
 
@@ -298,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212475.jpg" />
 </div>
 
 
@@ -324,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212465.jpg" />
 </div>
 
 
@@ -350,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212439.jpg" />
 </div>
 
 
@@ -378,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212206.jpg" />
 </div>
 
 
@@ -404,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212138.jpg" />
 </div>
 
 
@@ -417,272 +683,6 @@ TT Montero — это шрифт с узкими засечками, сочет�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E58D89C6A2E2ED06D0C1E53A33E630942502659
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1830940   (205713) от 27.10.2025
-
-Шрифты - Envato - Bubblegum - Modern Classy Script Font - TMJB6FB [OTF, TTF, WOFF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205713.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bubblegum — это современный стильный рукописный шрифт, созданный с учётом элегантности, изысканности и вневременной красоты. Благодаря плавным изгибам, стильным росчеркам и изысканным каллиграфическим штрихам, Bubblegum идеально подходит для придания любому проекту нотки роскоши и роскоши.
-
-Этот универсальный шрифт сочетает в себе мастерство классической каллиграфии (   Читать дальше...   )Формат: OTF, TTF, WOFF, WOFF2Поддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7F50BA9F1A4B0BDA6856BF69FD052E0FA8BE93B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1830561   (205703) от 27.10.2025
-
-Шрифты - Behance  - Denis Kukushkin - Sjz [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205703.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный рукописный шрифт SJZ с базовой поддержкой латиницы и кириллицы. Версия шрифта 0.1. В будущем он будет совершенствоваться.
-SJZ бесплатен для личного и коммерческого использования.Формат: OTFПоддержка кириллицы: Есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:179BEBF387D0B3398B30DD570CDA94E03C3AAC24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1830606   (205670) от 27.10.2025
-
-Шрифты - Creative Market - Cobrale - Family Grotesk - 291794327 [OTF, TTF, WOFF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cobrale — это современное семейство шрифтов без засечек, сочетающее в себе выразительность и яркую универсальность. Разработанный в трёх различных стилях: Regular, Medium и Bold, он предлагает гибкость для широкого спектра дизайнерских задач, от минималистичных редакционных макетов до эффектных заголовков. Этот шрифт обладает чистым гротескным характером, чёткими (   Читать дальше...   )Формат: OTF, TTF, WOFFПоддержка кириллицы: Есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CFF8347FE59F2599946CF2AD1689CA18C7C1757
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1830492   (205612) от 26.10.2025
-
-Шрифты - Creative Market - Gaider - Western Vintage Typeface - 291803067 [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205612.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gaider — смелый и уникальный акцидентный шрифт, вдохновлённый винтажным стилем вестерн в современной интерпретации. Его толстые изгибы, игривые линии и ретро-стиль делают его идеальным выбором для создания эффектных дизайнов. Этот шрифт создаёт ностальгическое, но в то же время свежее настроение и идеально подходит для проектов, которым нужна яркая и привлекающая (   Читать дальше...   )Формат: OTF, TTFПоддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAB4C0DDD7F3CB0F171EE804C100E8A4C4C38E1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1830230   (202389) от 26.10.2025
-
-Шрифты - Envato - Celvin - Minimal Clean Elegant - 8DJWQNN [OTF, TTF, WOFF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202389.jpg" />
-</div>
-
-
-###  Подробнее
-
-Celvin — это шрифт в стиле Minimal Clean Elegant , сочетающий простоту и изысканность. Благодаря плавным изгибам и современным пропорциям, этот шрифт обладает вневременной эстетикой, идеально подходящей для создания корпоративных логотипов, туристических плакатов или титров к фильмам. Его универсальность гарантирует профессиональный и стильный вид каждого проекта, (   Читать дальше...   )Формат: OTF, TTF, WOFF, WOFF2Поддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DC874176BAFD684748B7035A1DC1B7219B388AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829432   (202111) от 25.10.2025
-
-Шрифты - Envato - Nehana - ZCFF6F7 [OTF, TTF, WOFF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202111.jpg" />
-</div>
-
-
-###  Подробнее
-
-С гордостью представляем наш новый продукт Nehana - современный и аутентичный шрифт.Формат: OTF, TTF, WOFFПоддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:228CEC506F90045F88931682280BCC961D8DB604
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829677   (201939) от 25.10.2025
-
-Шрифты - Creative Market - Klodera || Modern Tall Sans Serif - 291791164 [OTF, TTF, WOFF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем шрифт Klodera без засечек. Этот современный жирный шрифт без засечек привлекает внимание чёткими линиями, уверенной насыщенностью и поразительной простотой. Созданный для создания эффекта, он обеспечивает чёткость и мощь, не жертвуя элегантностью. Геометрическая структура и чёткие контуры делают его универсальным для заголовков, брендинга, плакатов и (   Читать дальше...   )Формат: OTF, TTF, WOFF, WOFF2Поддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B146B4473CA2755E989810187A5F6AEA1526CCEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829045   (199885) от 24.10.2025
-
-Шрифты - Behance - Pixel Surplus - Chicoree - 236284013 [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_199885.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chicoree - геометрический гротескный шрифт без засечек от Лизы Марс с плавными округлыми формами и выразительным дизайном. Он прост, понятен и невероятно универсален для современного визуального языка. Разработан для расширенной латиницы и кириллицы в двух вариантах. Поддерживается более 150 языков. Шрифт также включает цифры и некоторые символы.
-
-Материал раздаётся (   Читать дальше...   )Формат: OTFПоддержка кириллицы: Есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74E1793B36571D0BFCBD609418D4293CE36F2738
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829118   (199882) от 24.10.2025
-
-Шрифты - Peter Wiegel - Ketwurst [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_199882.jpg" />
-</div>
-
-
-###  Подробнее
-
-И ещё один вопрос с форума: «Как называется этот шрифт?». С фотографией 1970-х годов - инновационной на тот момент надписи фольгой на батончике. Тогда только появились первые режущие плоттеры, но цифровых шрифтов, подобных сегодняшним, ещё не существовало. Приходилось рисовать самому. Поэтому поиски шрифта ни к чему не привели. Так из нескольких букв родился этот (   Читать дальше...   )Формат: TTFПоддержка кириллицы: Есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:223643D7088F950021F52A6EFB907EBA4D0B77EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829132   (199826) от 25.10.2025
-
-Шрифты - Peter Wiegel - Bernardo Moda [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_199826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда я выбираю шрифт, которого и так предостаточно у других поставщиков, всегда есть на то причина. Мне не хватает некоторых символов, например, заглавной ß, которую я хотел бы видеть во всё большем количестве шрифтов, а также подходящего знака €. Не говоря уже о длинных s и лигатурах, символах Восточной Европы, и особенно кириллицы.
-Поэтому я ещё раз взглянул (   Читать дальше...   )Формат: TTFПоддержка кириллицы: Есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:325D5260D4DC1AAFAFBC91791DD61D581C1D0EA3
 ```
 
 https://mybot314.ru/tekegram_catalog/

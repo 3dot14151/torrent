@@ -1,3 +1,55 @@
+###  Публикация: 628172   (937996) от 09.03.2013
+
+Фархат: Черный скорпион / Farhat: The Black Scorpion (2 сезон: 1-26 серии из 26) (2009) WEB-DLRip
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прекрасный Восток, изобилие колдовства и тайн, где магия древности тесно переплелась с настоящим, а благородство и зависть гуляют рука об руку. Какие загадки и опасности готовит он? Юный принц Фархат при помощи верных друзей ищет кусочки кристалла Шаримана, чтобы собрать их воедино и освободить из плена родителей. По всем частям света проходит их необыкновенное путешествие, (   Читать дальше...   )Жанр: Рисованная анимация, ПриключенияРежиссер: Джузеппе ЛаганаПеревод: Многоголосый закадровыйПродолжительность: ~ 00:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CA9DED09D07539FC9F2F405B704DDA3863BC9C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983969   (937926) от 09.02.2016
+
+Вспыш и чудо-машинки / Blaze and the Monster Machines (2014-2015) SATRip / WEB-DL [H.264/1080p - LQ] (1 сезон, серий 20 из 20)
+
+>>След.
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эй-Джей — восьмилетний любитель техники, который водит пикап по имени Вспыш, побеждающий на всех гонках в Аксель-Сити. Они вместе отправляются в приключения, требующие знания физики и математики. Их ждет множество трудностей от главного соперника Вспыша — Крушилы, грузовика, который готов пойти на всё, чтобы быть на финише первым.Производство: СШАЖанр: ДетскийРежиссер: Блэр Симмонс, Майкл Мартинес, Daniel IfeПеревод: Полный дубляж, вкл. песниПродолжительность: 22:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:482401ADBDBB38579A4248F93EBEC4AFD2D1B8DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 563155   (937764) от 09.03.2013
 
 Звёздные Войны: Войны Клонов / Star Wars: The Clone Wars (2012) WEB-DLRip (сезон 5, полный) (LostFilm)
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937764.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937549.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936146.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936143.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935701.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ LEGO Ниндзяго: Мастера кружитцу / LEGO Ninjago: Masters o
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935670.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935670.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933140.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931419.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931259.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929522.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928634.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928316.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928127.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926529.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925209.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925044.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923313.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921482.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_921259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_921259.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919926.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919749.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917809.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917111.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916765.jpg" />
 </div>
 
 
@@ -622,58 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAE723D5AF578AD9E199DA7B51D73EE3609EED57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361557   (913326) от 17.03.2020
-
-Дунканвилль / Duncanville (2020) WEB-DL [H.264/1080p-LQ] (Сезон 1, Серии 1-5 из 13) (Обновляемая)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913326.jpg" />
-</div>
-
-
-###  Подробнее
-
-История про 15-летнего Дункана, который живёт в самой обычной семье: с матерью, работающей на парковке, заботливым растяпой-отцом и двумя сестрами. Дункан хочет повзрослеть, а его сестра — выйти за него замуж.Производство: США / 20th Century Fox Television, 3 Arts Entertainment, Fox Entertainment, Fox Television Animation, Paper Kite Productions, Universal Animation Studios, Universal TVЖанр: мультфильм, комедияРежиссер: Энн Уокер Фаррелл, Фрэнк МариноПеревод: Многоголосый профессиональный (Zone Vision Studio)Субтитры: Английские (SDH)Продолжительность: ~00:22:00 Серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6E1E5D1169FAD5CE4E612178954CE1A46E751CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951709   (912821) от 24.02.2016
-
-Симпсоны / The Simpsons (2015) WEB-DL [H.264/1080p] (27 сезон, 1-14 серии из 22) КетчупТВ (Обновляемая)
-
->>След.
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Симпсоны живут в вымышленном городе Спрингфилд, со своим обществом и историей. Гомер - отец семейства, который дает плохие советы и работает инспектором безопасности на атомной электростанции; Мардж - любящая мать и жена, старается сохранить спокойствие в семье; Барт - 10 летний хулиган; Лиза - философский 8-летний ребенок; и Мэгги - младенец, который общается посредством (   Читать дальше...   )Производство: США / Телеканал FoxЖанр: Мультсериал, КомедияРежиссер: Мэтт ГроунингПеревод: Одноголосый закадровый, профессиональныйОзвучка / Автор перевода: КетчупТВЯзык субтитров: АнглийскийПродолжительность: ~00:22:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:722F9DA982B620A6210BE390EE4E5748689949E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

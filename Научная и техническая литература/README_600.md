@@ -1,133 +1,3 @@
-###  Публикация: 486320   (100233) от 22.04.2012
-
-Григорий Кириллов | Подводный разведчик [1957] [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100233.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга "Подводный разведчик" содержит ряд рассказов, повествующих о героизме подводников во время Великой Отечественной войны 1941–1945 годов.1957Жанр: Военно-историческийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3134C6B53B117128FB94AF26935BEDBDA4784E79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482919   (99659) от 14.04.2012
-
-Алексей Харузин | Славянское жилище в Северо-Западном крае [1907] [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Труд «Славянское жилище в Северо-Западном крае» Алексея Николаевича Харузина (1864 — 8 мая 1932), русского этнографа и антрополога, государственного деятеля, основан на шестилетних «личных наблюдениях над жилищами белорусов, великороссов, малороссов и поляков в губерниях: Виленской, Ковенской, Гродненской, Витебской, Могилевской и Минской, а равно в разных великоросских (   Читать дальше...   )Жанр: Этнография, история, раритетФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5871EB358012E8A29816463FB5F94E4F941DA34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479357   (98959) от 07.04.2012
-
-Евдокимъ Зябловскiй | География Российской Империи [1837] [PDF]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Евдоким Филиппович Зябловский (1763 - 1846) - русский профессор статистики, воспитанник Севской духовной семинарии и учительской гимназии в Санкт-Петербурге, в 1788 был отправлен на службу учителем Народного училища в Колывань, откуда на собственные скудные средства разъезжал по разным местам Колыванского наместничества и составил их описание. В 1797 Зябловский был (   Читать дальше...   )Жанр: История, раритеты, учебная литература, географияЯзык: Русский (старая орфография)Издательство: Россiйская Имперiя, С.Петербургъ, типографія Министерства Внутреннихъ ДелъФормат: PDFКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3292C904EEC8D99DE639FA5CA10BD50DD654527
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478159   (98614) от 04.04.2012
-
-В. Курносов | Царское золото [2011] [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98614.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге содержится информация о 17815,147 кг золота. Эти тонны исчезли из хранилища Казанского отделения Народного банка России в августе 1918 года. Ценности до сих пор не обнаружены. В МВД существует оперативно-розыскное дело «Золотое руно»; часть информации на эту тему хранится под грифом «совершенно секретно». В настоящее время к поиску царского золота подключились и кладоискатели. Автор впервые приводит данные двух рассекреченных фондов Национального архива Татарстана. Исторический контекст событий, развернувшихся одновременно с работами по эвакуации золотого запаса, воспроизводится на основе мемуаров и трудов историков.2011Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48B8E2E7831F312603D95EB7001356DD39D10FE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475351   (98112) от 30.03.2012
-
-Н.И. Яковкина | История русской культуры. XIX век [2002] [RTF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98112.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена наиболее яркому и плодотворному периоду культурной жизни России - XIX веку, освещает развитие образования, литературы, изобразительного искусства, театра. Особое место в изложении уделяется Петербургу, как крупнейшему культурному центру того времени.2002Формат: RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:932C344E1CF7201CB9F06DEDC95CF30D97DBCF4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 475360   (98053) от 30.03.2012
 
 Ю.М. Ключников | Лики русской культуры [2010] [PDF]
@@ -136,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98053.jpg" />
 </div>
 
 
@@ -162,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98004.jpg" />
 </div>
 
 
@@ -188,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97712.jpg" />
 </div>
 
 
@@ -215,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97671.jpg" />
 </div>
 
 
@@ -241,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97549.jpg" />
 </div>
 
 
@@ -268,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97142.jpg" />
 </div>
 
 
@@ -294,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97036.jpg" />
 </div>
 
 
@@ -320,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96813.jpg" />
 </div>
 
 
@@ -346,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96127.jpg" />
 </div>
 
 
@@ -372,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_95826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_95826.jpg" />
 </div>
 
 
@@ -398,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_95787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_95787.jpg" />
 </div>
 
 
@@ -424,7 +294,7 @@ C. Васильев | Александровская слобода [1971] [PDF]
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_95764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_95764.jpg" />
 </div>
 
 
@@ -450,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_95720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_95720.jpg" />
 </div>
 
 
@@ -476,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_95700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_95700.jpg" />
 </div>
 
 
@@ -503,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_95480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_95480.jpg" />
 </div>
 
 
@@ -529,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_95474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_95474.jpg" />
 </div>
 
 
@@ -555,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_95325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_95325.jpg" />
 </div>
 
 
@@ -581,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_95277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_95277.jpg" />
 </div>
 
 
@@ -607,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94896.jpg" />
 </div>
 
 
@@ -634,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94810.jpg" />
 </div>
 
 
@@ -660,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94794.jpg" />
 </div>
 
 
@@ -671,6 +541,136 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D337D6B34E6B3A46A0003D4F9C368B57FD9554C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 458621   (94594) от 26.02.2012
+
+Г. Тельберг | Стенограммы допросовъ [1923] [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стенограммы допросовъ слѣдователем Е.С.Кобылинскаго въ качествѣ свидѣтеля, а П. Медвѣдева, Ф.Проскурякова и А.Акимова въ качествѣ обвиняемыхъ по дѣлу объ убiйствѣ Императора Николая IIФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C196B83B73D1B77B0452DBE8BF80C7B22C576C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488295   (90949) от 26.04.2012
+
+А.М. Сербиновская | Английский язык для турбизнеса и сервиса [2006] [PDF]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Целью данного учебника является обучение специалистов в области туризма и сервиса профессионально-ориентированному общению на английском языке, развитие умений и навыков устного и письменного общения в контексте как для развития профессиональной коммуникации, так и непосредственного общения с иноязычными партнерами и клиентами.  Основными достоинствами учебника являются его коммуникативная направленность, комплексная организация учебного материала и взаимосвязанное обучение всем видам речевой деятельности. Текстовый материал аутентичен. Проверочные задания, включенные в учебник, призваны оценить уровень и глубину усвоения пройденного материала.2006Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:849C2A603EF48694A91F42D21CAE5085008BFAD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488584   (90908) от 26.04.2012
+
+Н.П.Акимов | О принципах игры [1941 - 1946] [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90908.jpg" />
+</div>
+
+
+###  Подробнее
+
+О принципах игры. Многообразие театрального поиска. Выбор жанра и позиция художника. Выбор режиссёрских приёмов.1941 - 1946Формат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488448   (90818) от 26.04.2012
+
+Сисели Берри | Голос и актер [1996] [DOC]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90818.jpg" />
+</div>
+
+
+###  Подробнее
+
+Слово — основной выразитель действия. Слово определяет уровень культуры. Слово — хранитель профессионального достоинства актера. Поэтому Московский фонд сохранения культуры и предлагает вашему вниманию эту книгу.1996Формат: DOC
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488071   (90800) от 26.04.2012
+
+Антонен Арто | Театр и его двойник [2000] [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Антонен Арто принадлежит к тому ряду деятелей культуры XX века, значение которых для современности огромно и непреложно. Вместе с тем его имя постоянно вульгаризируется, связывается с явлениями, ему чуждыми. Чтобы понять значение Арто, можно применить дзэнский принцип определения предмета через отрицание тех трактовок, которые этому предмету не соответствуют. Итак, первое заблуждение в определении практического и теоретического значения деятельности Арто сводится к...2000Формат: PDF
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 871392   (479094) от 19.09.2015
+
+Стар против сил зла  / Star vs. The Forces of Evil (2015) WEB-DL [1080p] (Сезон 1, серии 1-11 из 13) [Обновляемая]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479094.jpg" />
+</div>
+
+
+###  Подробнее
+
+После бесчисленных драк с опасными монстрами в своём родном измерении, Стар Баттерфляй прибывает на Землю в городок Эхо Крик, где живёт с семьёй Диез. Но и здесь её не ждет мирная жизнь. Вместе с новым другом Марко Диезом она продолжает сражаться с силами зла по всей Вселенной (и в школе), чтобы защитить свой невероятно мощный волшебный жезл, которым, впрочем, она (   Читать дальше...   )Производство: США, Disney XDЖанр: Мультфильм, комедия, приключенияРежиссер: Майкл Маллен, Дэвид ВассонПерсонажи: Иден Шер - Star Butterfly, Адам МакАртур - Marco Diaz, Дженни Слейт - Flying Princess Pony Head, Алан Тьюдик - Ludo и другие.Перевод: Любительский многоголосый закадровыйЯзык субтитров: РусскийПродолжительность: ~ 00:23:00 каждая серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26DD0AB6508BA6DB2CD6C78104F3D66644AA1CFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938681   (479093) от 19.09.2015
+
+The Vanishing of Ethan Carter Redux (2014) [Ru/Multi] (1.0/upd2) Repack R.G. Механики
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479093.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Vanishing of Ethan Carter это мистическая приключенческая игра от первого лица. Никаких драк и взрывов, только изучение и исследование, только поиск истины. Вы будете играть за детектива Пола Просперо, который получил странное письмо от Итена Картера. Подозревая, что мальчуган находится в смертельной опасности, Пол приезжает к нему домойТип издания: RepackРазработчик: The AstronautsЖанр: Action (Survival horror) / 3D / 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:843CCA7BD0B7F637E93C1849DE891EEF4462EBA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 934063   (479091) от 19.09.2015
 
 Пёс (2015) SATRip (сезон 1, серии 1-12 из 20) (обновляемая)
@@ -6,7 +58,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479091.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ WPI x86-x64 by OVGorskiy® 09.2015 1DVD [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_479087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479087.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Capture One Pro 9.3 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478609.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ Syndicate (2012) [Ru/En] (1.0.0.1) Repack R.G. Revenants
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478591.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ Call of Juarez: The Cartel / Call of Juarez: Картель [Multi9/+] (RePack) 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478037.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477810.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ Dear Esther / Дорогая Эстер [Ru/En] (RePack/1.0u17) 2012 l R.G. Ме
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477806.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ Prototype 2 [Ru/En] (RePack) 2012 | R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477772.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ MAGIX Vegas Pro 16.0 Build 261 RePack by KpoJIuK [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477635.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ Adguard Premium 6.3.1399.4073 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477634.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477104.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477102.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ Win 7 PE x86 compact by Xemom1 (18.09.15) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476965.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476965.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ Katawa Shoujo / Disability Girls/ Калечные девы (2012) Ru,En,Fr,Es,J
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476945.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476667.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_476541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_476541.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ Special [K] Utility for Sierra 1.0 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476508.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ Acronis True Image 20.0.5554 / Universal Restore 11.5.40028 / Disk Director 12.0
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476493.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ LEGO Star Wars: The Force Awakens (2016) [Ru/Multi] (1.0.3/upd3/dlc) Repack =nem
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476489.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475967.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475874.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475711.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_475514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_475514.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ Windows 10 HSL/Pro 1803 x64 by kuloymin v14.1 (esd) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475431.jpg" />
 </div>
 
 
@@ -624,58 +676,6 @@ Windows 10 HSL/Pro 1803 x64 by kuloymin v14.1 (esd) [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03016AA8D902F0EEC5B087386C408943F949AC13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245118   (475421) от 04.09.2018
-
-Mass Effect 2 (2010) [Ru/En] (1.2/dlc) Repack xatab [Digital Deluxe Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Через два года после того, как командор Шепард отразил вторжение Пожинателей, у человечества появился новый враг. На окраинах обитаемого космоса кто-то постепенно уничтожает колонии людей. Чтобы остановить надвигающуюся угрозу, Шепарду предстоит сотрудничать с сетью Цербер - безжалостной организацией, провозглашающей выживание человечества любой ценой.Тип издания: RepackРазработчик: BioWareЖанр: Adventure (Space), RPG (Rogue, Action), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:565B3BBB3D4C9BC31CFE69ACFBF9A525EE246F54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547267   (475406) от 14.09.2012
-
-Trend Micro Titanium Maximum Security 2013 v6.0 rus
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Trend Micro Titanium Maximum Security — комплексное, простое в использовании решение, которое защитит вас и вашу семью при выполнении любых действий в Интернете, таких как работа с электронной почтой, общение, банковские операции, просмотр веб-сайтов, покупки и т. д. В нем предусмотрен дружелюбный интерфейс, удобные окна и понятные отчеты.Название программы: Trend Micro Titanium Maximum Security 2013Язык интерфейса: Мультиязычный (русский присутствует)
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

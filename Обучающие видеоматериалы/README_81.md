@@ -1,3 +1,29 @@
+###  Публикация: 998621   (861842) от 23.03.2016
+
+Profileschool | DaVinci Resolve 11 Lite. Базовый уровень (2015) PCRec [H.264]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несмотря на то, что обучение программе DaVinci Resolve ведется с нуля, курс подойдет далеко не всем учащимся школы, работающим над самообразованием и расширением областей своих профессиональных компетенций. Дело в том, что, являясь специализированным софтом для цветокоррекции, DaVinci имеет очень высокий входной порог по системным требованиям к железу и адекватно (   Читать дальше...   )Жанр: Видеомонтаж, цветокоррекцияПродолжительность: 13:04:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8007A04C6074C0CABBCBAE1298E08D63C448AA1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 999681   (861826) от 23.03.2016
 
 Geekbrains | Java. Практическое применение (2015) PCRec [H.264/720p-1080p]
@@ -6,7 +32,7 @@ Geekbrains | Java. Практическое применение (2015) PCRec [H
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861826.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861470.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861470.jpg" />
 </div>
 
 
@@ -63,7 +89,7 @@ Profileschool | Съёмка города в режимное время: инт
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860741.jpg" />
 </div>
 
 
@@ -92,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860110.jpg" />
 </div>
 
 
@@ -118,7 +144,7 @@ Edwin Diaz, Coding Faculty Solutions | PHP for Beginners - Become a PHP Master -
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859972.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859972.jpg" />
 </div>
 
 
@@ -144,7 +170,7 @@ ITVDN | iOS Developer (2015-2020) PCRec [H.264/1080p,720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859961.jpg" />
 </div>
 
 
@@ -170,7 +196,7 @@ Jose Portilla | Complete Python Bootcamp: Go from zero to hero in Python 3 (2019
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859863.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859863.jpg" />
 </div>
 
 
@@ -198,7 +224,7 @@ Liveclasses, Дмитрий Ларионов | Работа с разными р
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859345.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859345.jpg" />
 </div>
 
 
@@ -224,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859301.jpg" />
 </div>
 
 
@@ -251,7 +277,7 @@ Liveclasses, Дмитрий Ларионов | Работа с разными р
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859300.jpg" />
 </div>
 
 
@@ -277,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859298.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859298.jpg" />
 </div>
 
 
@@ -305,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859295.jpg" />
 </div>
 
 
@@ -334,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859291.jpg" />
 </div>
 
 
@@ -363,7 +389,7 @@ Udemy, Anna Kuzina | Парсинг сайтов. Scrapy, Splash, Selenium, requ
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859238.jpg" />
 </div>
 
 
@@ -391,7 +417,7 @@ Skillbox, Павел Елисеев | Профессия Архитектор П
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859230.jpg" />
 </div>
 
 
@@ -419,7 +445,7 @@ Patrick Goudeau's | Lean Hot Body (2010) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858785.jpg" />
 </div>
 
 
@@ -445,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858664.jpg" />
 </div>
 
 
@@ -472,7 +498,7 @@ Mike Chang's | Insane Home Fat Loss Review (2012) DVDRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858650.jpg" />
 </div>
 
 
@@ -498,7 +524,7 @@ Jerry Ghionis | День с Джерри Гионисом (2011) PCRec
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858533.jpg" />
 </div>
 
 
@@ -525,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858527.jpg" />
 </div>
 
 
@@ -551,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858438.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фотография и Видео (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858436.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857635.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857635.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857408.jpg" />
 </div>
 
 
@@ -662,7 +688,7 @@ XYZ School, Егор Гришин | Основы иллюстрации (2021) W
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857403.jpg" />
 </div>
 
 
@@ -674,32 +700,6 @@ XYZ School, Егор Гришин | Основы иллюстрации (2021) W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5E2209869E2F273AB97CEDB6F38076BD8CEC4B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109217   (857052) от 28.02.2017
-
-Patrick Goudeau's | Extreme Calorie Burn (2011) DVDRip [EN]
-
->>Обучающие видеоматериалы
->>Здоровье и Спорт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_857052.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интервальная программа, в которой непрерывно чередуются сегменты чистой аэробики и аэробики с отягощением (акцент на кардио обеспечит высокий пульс). Аэробные интервалы отличает высокая ударность и интенсивность, но сами упражнения понятны и просты в выполнении. Отличительная черта программы - смешанные сегменты с силовым компонентом, в которых непрерывно чередуются (   Читать дальше...   )Производство: СШАЖанр: ФитнесПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:19:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A09B21AD417A770EBD8C85BDC391D22AD27078B
 ```
 
 https://mybot314.ru/tekegram_catalog/

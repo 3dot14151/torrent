@@ -1,3 +1,109 @@
+###  Публикация: 1843464   (1049399) от 20.12.2025
+
+Мультфильмы v313 Mod by clubtime2009 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049399.jpg" />
+</div>
+
+
+###  Подробнее
+
+Смотрите любимые Мультфильмы и Сказки онлайн прямо сейчас. Хотите всегда иметь доступ к анимационному контенту Мультфильмов и Сказок и получать новинки каждый день?Тип издания: AdfreeРелиз состоялся: 09.11.2025Разработчик: Мульт твПоддерживаемая ОС: Android / Android TV 5.0Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:790A0A789F23C60544684C554169D05767E5833E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843478   (1049387) от 20.12.2025
+
+Bananastreet: Deep House & EDM v4.1.63 Mod by vadj [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наша жизнь – это череда событий. Чтобы эмоции были ярче достаточно подобрать правильный саундтрек. Включай Bananastreet и открывай для себя новую музыку от лучших диджеев каждый день!
+Слушай плейлисты для разных занятий и настроений, чарты с популярными треками, а также тысячи релизов от топовых российских и мировых диджеев.Тип издания: ModРелиз состоялся: 18.12.2025Разработчик: Bananastreet EUПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4077A7CF0F1BB27312F1071407B5E81FE6E665B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843495   (1049386) от 20.12.2025
+
+NokoPrint v5.24.8 Mod by derrin [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049386.jpg" />
+</div>
+
+
+###  Подробнее
+
+Виртуальный принтер для вашего устройства. Поддерживает печать с вэб-страницы. Позволяет отправить на печать файлы прямо с телефона. Печатайте фотографии и делитесь ими с друзьями и близкими. Печатайте документы, PDF-файлы, счета, квитанции, посадочные талоны и многое другое дома, на работе или в дороге!
+Вы можете печатать изображения, фотографии, веб-страницы, PDF-документы (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 19.12.2025Разработчик: AlbafateПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F663D3A24DE6B7D5BB7AB3F704003B57F7E0146
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843456   (1049380) от 20.12.2025
+
+Эфир ТВ + : Телевизор Онлайн v4.2.8 Mod by vadj [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049380.jpg" />
+</div>
+
+
+###  Подробнее
+
+OTT Онлайн прямое телевидение, в котором вы найдете прямой эфир, а также все популярные тв каналы: в том числе 20 цифровых общероссийских каналов и не менее интересное и познавательное региональное цифровое ТВ & ТВЦ. Наше мобильное приложение это ваш ключ к миру “Ц” телевидения нового поколения! Забудьте о скучных программах и ограниченных возможностях традиционного (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 19.12.2025Разработчик: Лайм ЭйчДиПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FCC0C1EED43433C3551CD81E613C5822848D00A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1843486   (1049379) от 20.12.2025
 
 VK Музыка: песни и подкасты v8.6 Mod by VK Equals [Ru/En]
@@ -6,7 +112,7 @@ VK Музыка: песни и подкасты v8.6 Mod by VK Equals [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049379.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ VRadio - Online Radio App v2.8.10 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049342.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ FotoTweak - AI Image Generator v1.0.48 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049333.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049333.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ AI Music Maker & Cover Songs v1.13 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049323.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049322.jpg" />
 </div>
 
 
@@ -136,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049321.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049321.jpg" />
 </div>
 
 
@@ -163,7 +269,7 @@ FacePic - AI Face App v3.3.0 Pro Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049319.jpg" />
 </div>
 
 
@@ -189,7 +295,7 @@ Grok - ИИ ассистент v1.0.91-release.00 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049318.jpg" />
 </div>
 
 
@@ -215,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049313.jpg" />
 </div>
 
 
@@ -241,7 +347,7 @@ Universal Copy v7.0.2 Мод by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049153.jpg" />
 </div>
 
 
@@ -267,7 +373,7 @@ Food.ru: пошаговые рецепты v02.16.01 Mod by vadj [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049152.jpg" />
 </div>
 
 
@@ -296,7 +402,7 @@ LazyMedia Deluxe v3.422 Mod by Alex.Strannik [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049150.jpg" />
 </div>
 
 
@@ -322,7 +428,7 @@ HiPER Calc Pro v11.2.9 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049044.jpg" />
 </div>
 
 
@@ -348,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049043.jpg" />
 </div>
 
 
@@ -374,7 +480,7 @@ Smart AudioBook Player Pro v11.6.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049042.jpg" />
 </div>
 
 
@@ -400,7 +506,7 @@ PianoMeter – Piano Tuner v4.1.1 Mod by Alex.Strannik [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049039.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049039.jpg" />
 </div>
 
 
@@ -426,7 +532,7 @@ One Read / Все Документы Читатель - Офис v1.2.7 Mod by v
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049037.jpg" />
 </div>
 
 
@@ -452,7 +558,7 @@ Plus Messenger (Telegram+)  v12.2.10.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049036.jpg" />
 </div>
 
 
@@ -478,7 +584,7 @@ Xiaomi Home (Ранее. MiHome) v11.0.622 Mod by Vevs [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048925.jpg" />
 </div>
 
 
@@ -504,7 +610,7 @@ Universal Copy v7.0.2 Мод by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048890.jpg" />
 </div>
 
 
@@ -530,7 +636,7 @@ Sketchbook v6.2.4 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048888.jpg" />
 </div>
 
 
@@ -557,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048887.jpg" />
 </div>
 
 
@@ -568,110 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:950420F12BCF78C1FE8065099145DE6C3E0B09B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842763   (1048886) от 16.12.2025
-
-Vanced Tube v5.5.80.314 Mod by TRUMods [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vanced — это модифицированная версия YT, которая включает в себя различные улучшения, такие как отсутствие рекламы, автоматический пропуск заставок и рекламы в середине видео, фоновое воспроизведение, регулировку громкости и яркости и многое другое.Тип издания: ModРелиз состоялся: 16.12.2025Разработчик: getvanced2020@gmail.comПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDA0542C14AE26BA6626A66BCAEF958F465D64AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842766   (1048875) от 20.12.2025
-
-Grok - ИИ ассистент v1.0.89-release.00 Mod by kljovyj [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grok — это AI-ассистент, разработанный xAI, предназначенный для максимальной правдивости, полезности и любопытства. Получайте ответы на любые вопросы, генерируйте впечатляющие изображения и видео, ведите естественные разговоры в голосовом режиме и загружайте картинки, чтобы глубже понять свой мир. С Grok вселенная в ваших руках!Тип издания: ModРелиз состоялся: 16.12.2025Разработчик: xAIПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F41CFDF9AD39EB940CF69645A0164E4347AD947
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842083   (1048675) от 14.12.2025
-
-Vanced Tube v5.5.80.306 Mod by TRUMods [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048675.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vanced — это модифицированная версия YT, которая включает в себя различные улучшения, такие как отсутствие рекламы, автоматический пропуск заставок и рекламы в середине видео, фоновое воспроизведение, регулировку громкости и яркости и многое другое.Тип издания: ModРелиз состоялся: 13.12.2025Разработчик: getvanced2020@gmail.comПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBFFC7EB48BB08A0130E2F58089E9609D1C39698
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842082   (1048674) от 14.12.2025
-
-Узлы 3D / Knots 3D v10.6.0 Paid [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Завязывайте, развязывайте и вращайте пальцем более 190 узлов в 3D! Наше популярное 3D-приложение Knots 3D позволит вам взглянуть на узлы совершенно по-новому! Берите кусок веревки и развлекайтесь!Тип издания: Paid / FullРелиз состоялся: 14.12.2025Разработчик: Nynix LLCПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:739288694D7C7466EB3AF6B05D0FE7E6B92E835A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ BBC: Тайны Тихого океана (6 серий из 6) / BBC: South Pac
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759394.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_759303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759303.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ BBC: Исаак Ньютон: Последний чародей (Последн�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758975.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758975.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758966.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Discovery. Беар Гриллс: Выбраться живым / Get Out Alive 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758900.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ NG. Суперсооружения. Мегазаводы. Экстремальн
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758832.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ NGW: Прайд / Pride (2014) HDTV [H.264/1080i-LQ] (серии 1-2 из 2)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758615.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758615.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ BBC. США: Великая история и большое надувател�
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758497.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758332.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ NG: Крокодил против акулы / The Croc That Ate Jaws (2021) WEB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758243.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ NG: Потоп / The Flood (2018) WEB-DL [H.264/1080p] (серии 1-2 из 2)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758239.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758193.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ NG: Кремниевая долина / Valley of the Boom (2019) SATRip (сер
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758189.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ BBC: Horizon. Исчезнувшие племена человечества / T
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_758149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_758149.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_758015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758015.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ BBC: Египет. Тайны, скрытые под землей. Часть 2 
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757918.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ BBC: История хирургии. Запасные части [3 из 5] / B
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757914.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ NG: Увлекательная зоология: лучшее / Ultimate Animals
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757855.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ BBC: Амазонка - Великая река мира / BBC: Amazon: super ri
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757840.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ BBC. Тайны мозга. Патология / The Brain: A Secret History. Br
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757763.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ BBC. Horizon: Не верь глазам своим / Is Seeing Believing? (2010
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757658.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Discovery. Американские гангстеры / American Gangsters (200
 >>Discovery
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757329.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757172.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ BBC Earth. 8 дней до Луны и обратно / 8 days to the Moon and b
 >>BBC
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_757007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757007.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ NGW: Львы на деревьях / Tree Climbing Lions (2018) HDTV [H.264/108
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756834.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ NGW: Рождение прайда / Birth of a Pride (2018) HDTV [H.264/1080i-L
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756833.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756833.jpg" />
 </div>
 
 

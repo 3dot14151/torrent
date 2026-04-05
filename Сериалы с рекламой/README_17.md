@@ -1,3 +1,56 @@
+###  Публикация: 1434475   (619793) от 16.04.2022
+
+Шериф / Cherif (2013-2018) WEB-DLRip [H.264/1080p-LQ] (сезон 1-5, серии 1-48 из 48) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619793.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кадер Шериф служит в полиции Лиона, и неплохо успел изучить город. От него невозможно укрыться. Буквально все время он проводит на службе, ведь даже его дом расположен в соседнем от полицейского участка доме. Кадер Шериф занимается расследованиями наиболее запутанных преступлений. За долгие годы службы у него появились собственные методы распутывания сложных дел, (   Читать дальше...   )Производство: Франция / Making ProdЖанр: криминалРежиссер: Винсент Джованни, Жюльен Зиди, Аким ИскерАктеры: Абделхафид Металси, Грег Жермен, Франсуа Бюрелу, Венсан Примо, Элоди Эсме, Carole Bianic, Мелезе Бузид, James Gonin, Аврора Эрги, Тассадит Манди и д.р.Перевод: Двуголосый профессиональный (ViruseProject)Субтитры: РусскиеПродолжительность: ~00:55:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DF4B3A9779B86E2D210AB7A83FC2DE201EA0389
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229908   (618657) от 10.06.2018
+
+Импульс / Impulse (2018) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-10 из 10) OMSKBIRD [AD]
+
+>>След.
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618657.jpg" />
+</div>
+
+
+###  Подробнее
+
+16-летняя девушка Генри Коул открывает в себе способность к телепортации, которая не поддается ее контролю.
+Действие сериала разворачивается в том же мире, что и события фильма "Телепорт" 2008 года.Производство: США / Universal Cable ProductionsЖанр: фантастика, боевикРежиссер: Шерин Дабис, Эд ФрэйманАктеры: Крэйг Арнольд, Сара Дежарден, Мэдди Хассон, Тэннер Стайн, Дэниэл Маслани, Каллум Кит Ренни и др.Перевод: Многоголосый закадровый, профессиональный | OMSKBIRDПродолжительность: ~00:44:00 серияРеклама: присутствуют аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A54392EE811BCC82484AABB6740CB15359F230FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1540909   (617771) от 17.04.2022
 
 Кокетка / Minx (2022) WEBRip [H.264/720p] (сезон 1, серии 1-10 из 10) OmskBird [AD]
@@ -6,7 +59,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617771.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617769.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_617768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617768.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616654.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_616394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616394.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_614138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614138.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_612456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612456.jpg" />
 </div>
 
 
@@ -188,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_609077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609077.jpg" />
 </div>
 
 
@@ -214,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602979.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602979.jpg" />
 </div>
 
 
@@ -240,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602942.jpg" />
 </div>
 
 
@@ -266,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_602184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602184.jpg" />
 </div>
 
 
@@ -293,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595489.jpg" />
 </div>
 
 
@@ -319,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595476.jpg" />
 </div>
 
 
@@ -345,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_592672.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592672.jpg" />
 </div>
 
 
@@ -371,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_588911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588911.jpg" />
 </div>
 
 
@@ -397,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583953.jpg" />
 </div>
 
 
@@ -424,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_581078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581078.jpg" />
 </div>
 
 
@@ -450,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577496.jpg" />
 </div>
 
 
@@ -477,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575866.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575866.jpg" />
 </div>
 
 
@@ -503,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575744.jpg" />
 </div>
 
 
@@ -529,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_575548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575548.jpg" />
 </div>
 
 
@@ -555,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573951.jpg" />
 </div>
 
 
@@ -581,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_573660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573660.jpg" />
 </div>
 
 
@@ -607,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_567214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567214.jpg" />
 </div>
 
 
@@ -618,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CB0BD5AE5F606A2BD46ECA745979045A627950B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288506   (566860) от 24.05.2019
-
-Невыразимое / Unspeakable (2019) WEB-DLRip (сезон 1, серии 1-8 из 8) NewStudio [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_566860.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал-хроника основанный на реальных событиях описанных журналистами и учеными о недостатке крови в банке крови в 1980-х годах в Канаде при зародившейся и разрастающейся эпидемии ВИЧ и Гепатита.Производство: Канада / Mezo EntertainmentЖанр: драма, историяРежиссер: Грегори Смит, Роберт С. Купер, Энди МикитаАктеры: Шон Дойл, Майкл Шэнкс, Камилль Салливан, Сара Уэйн Кэллис, Дэвид Льюис, Кэролайн Кейв, Брайан Маркинсон, Амитай Мэрморштейн, Лоссен Чэмберс, Анна Галвин и др.Перевод: Многоголосый закадровый, профессиональный | NewStudioПродолжительность: ~00:43:00 серияРеклама: присутствуют аудио и видео вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E29FBBA6BF4F9534EA1DA1B3B8AB856E2910EF88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293032   (564846) от 25.05.2019
-
-Брокмайр / Brockmire (2019) WEBRip [H.264/1080p-LQ] (сезон 3, серии 1-8 из 8) OMSKBIRD [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_564846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джим Брокмайр — знаменитый комментатор игр Главной лиги бейсбола. Однако узнав об изменах жены, он послал к чертям профессионализм и слетел с катушек в прямом эфире. Ролик с буйствующим Брокмайром попал в сеть, превратив бывшую звезду во всеобщее посмешище. Но десять лет спустя главный герой решает восстановить свою карьеру и наладить личную жизнь, устроившись комментатором (   Читать дальше...   )Производство: США / Funny or DieЖанр: драма, комедия, спортРежиссер: Морис Мэрэбл, Тим КиркбиАктеры: Хэнк Азария, Тайрел Джексон Уильямс, Аманда Пит, Хемки Мадера, Пол Рэй, Кэти Финнеран, Стив Култер, Уткарш Амбудкар, Молли Эфраим, Тоби Хасс и др.Перевод: Двухголосый профессиональный (OMSKBIRD)Продолжительность: ~00:23:00 серияРеклама: присутствуют аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CE682173D1165B783DDC8CF6D9524B8758E3CB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

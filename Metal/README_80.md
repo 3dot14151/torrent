@@ -6,7 +6,7 @@ Evildead - United States of Anarchy (2020) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317763.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Fates Warning - Long Day Good Night (2020) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317751.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Battlecreek - Hate Injection (2015) [MP3|320 кб/с]<Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317392.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ White Magician - Dealers of Divinity (2020) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315525.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Lucid Dreaming - The Chronicles, Pt. III (2020) [MP3|320 Kbps] <Heavy Metal, Pow
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315519.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Royal Hunt - 20th Anniversary: Special Edition (2012) [MP3|320 кб/с]<Progress
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_315245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315245.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ The Unguided - And the Battle Royale (2017) [MP3|320 Kbps] <Melodic Death Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314998.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Varials - Scars For You To Remember (2022) [MP3|320 Kbps] <Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314656.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ She Must Burn - Umbra Mortis (2022) [MP3|320 Kbps] <Symphonic Deathcore, Metalco
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_314561.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314561.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Burning Point - The Blaze (2016) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313857.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313857.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Lindemann - Ich weiß es nicht (2019) Single [MP3|320 Kbps] <Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313656.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Celebrity Sex Scandal - The Fundamental (2020) [MP3|320 Kbps] <Avant-Garde, Prog
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313395.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Eternal Champion - Ravening Iron (2020) [MP3|320 Kbps] <Epic Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_313279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313279.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Vhaldemar - Against All Kings (2017) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_312346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312346.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Words Of Farewell - A Quiet World (2016) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_311730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311730.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Iron Savior - Skycrest (2020) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310802.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Skylark - The Storm & The Horizon (2015) 4CD, Deluxe Edition, Extended Version [
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_310206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310206.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ All That Remains - Victim of the New Disease (2018) [MP3|320 Kbps] <Melodic Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_309842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309842.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Mors Principium Est - 5 albums (2003-2014) [MP3|320kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308872.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Mago De Oz - Hechizos, Pocimas Y Brujeria (2012) [MP3|320 кб/с]<Folk Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_308270.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308270.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Saturnus - Saturn In Ascension (2012) [MP3|320 кб/с]<Melodic Death, Doom Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307990.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Decembre Noir - Autumn Kings (2018) [MP3|320 Kbps] <Doom-Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307699.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Beast In Black (ex-Battle Beast) - Berserker (2017) [MP3|320 Kbps] <Heavy Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_307409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307409.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Nightmare - Dead Sun (2016) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_306798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306798.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ Metallica - The Best Ballads (2005) 2CD [MP3|320 Kbps] <Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305982.jpg" />
 </div>
 
 
@@ -735,7 +735,7 @@ Game Over - Claiming Supremacy (2017) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_305546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305546.jpg" />
 </div>
 
 

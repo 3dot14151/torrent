@@ -1,3 +1,55 @@
+###  Публикация: 1115428   (670520) от 24.05.2017
+
+Самурай Джек / Samurai Jack (2017) WEB-DL [H.264/720p] (Сезон 5, серии 1-10 из 10)
+
+>>След.
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670520.jpg" />
+</div>
+
+
+###  Подробнее
+
+История самурая продолжается. И она еще далека от завершения. Коварный злой колдун по имени Аку отправил мужественного воина из древних времен в далекое будущее. Ему тяжело в этом мире, но приходится адаптироваться и учиться выживать. И благодаря своему внутреннему моральному кодексу он становится храбрым героем. Тем более, что только ему одному и под силу защитить (   Читать дальше...   )Производство: СШАЖанр: Приключения, Фантастика, ТриллерРежиссер: Генндий ТартаковскийПерсонажи: Самурай Джек, Аку и др.Перевод: Многоголосый закадровый, любительскийОзвучка: Студия Drunk Tank, NewComers, Saint-Sound TVСубтитры: Русские, АнглийскиеПродолжительность: 10x 00:22:30Реклама: Нет
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:859544CD9830E2DDB426EE0D82D28D1952271448
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115423   (670427) от 24.05.2017
+
+Самурай Джек / Samurai Jack (2017) WEB-DL [H.264/1080p-LQ] (Сезон 5, серии 1-10 из 10)
+
+>>След.
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670427.jpg" />
+</div>
+
+
+###  Подробнее
+
+История самурая продолжается. И она еще далека от завершения. Коварный злой колдун по имени Аку отправил мужественного воина из древних времен в далекое будущее. Ему тяжело в этом мире, но приходится адаптироваться и учиться выживать. И благодаря своему внутреннему моральному кодексу он становится храбрым героем. Тем более, что только ему одному и под силу защитить (   Читать дальше...   )Производство: СШАЖанр: Приключения, Фантастика, ТриллерРежиссер: Генндий ТартаковскийПерсонажи: Самурай Джек, Аку и др.Перевод: Многоголосый закадровый, любительскийОзвучка: Студия Drunk Tank, NewComers, Saint-Sound TVСубтитры: Русские, АнглийскиеПродолжительность: 10x 00:22:30Реклама: Нет
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C51104A4385FE8EE9423E9D771FF41A55E47E77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1057338   (670402) от 24.05.2017
 
 Гриффины / Family Guy (2016) WEB-DLRip (сезон 15, серии 1-20 из 20) OMSKBIRD
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670402.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670402.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_670400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670400.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_669713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_669713.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_668077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668077.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_667511.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667511.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_666357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666357.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665324.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665324.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665273.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665259.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665184.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_663572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663572.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_663318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_663318.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ LEGO Ниндзяго: Мастера кружитцу / LEGO Ninjago: Masters o
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662951.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662751.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_662059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662059.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Hello Kitty. Сказочный театр / Hello Kitty. Выпуски 1-4, 18
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658699.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654910.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_654053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654053.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_652265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652265.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ LEGO Ниндзяго: Мастера кружитцу / LEGO Ninjago: Masters o
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651955.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651872.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_651018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651018.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648714.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648052.jpg" />
 </div>
 
 
@@ -618,59 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:314F49A4307CEFEA79E2CAA60C35B38FA895B779
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 679938   (645968) от 15.07.2013
-
-Куриный городок / Chicken town (2011) SATRip (1 сезон, 39 серий из 39)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_645968.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комедийный мультсериал о злоключениях кур и их хозяев. "Куриный городок" расположился в центре города, на парковке автомобилей.
-В какие только переделки, не попадают действующие персонажи...Жанр: Комедия, семейныйРежиссер: Нико МеулемансПеревод: Дублированный (СТС)Продолжительность: 39 х ~00:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D28EF07EDA6129230D823BED392579DBC49A1DFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031909   (643365) от 08.07.2016
-
-Аватар: Легенда об Аанге / Avatar: The Last Airbender (2006) DVDRip [H.264] (сезон 2, серии 1-20 из 20) (Арт-Дубляж) [MP4|640x480]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_643365.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир разделен на четыре народа: Водные племена, королевство Земли, Воздушные кочевники и Огненная нация. Представители каждого народа обладают способностями управления своей стихией и именуют себя магами Воды, Земли, Воздуха или Огня. Только Аватар является властелином всех четырех стихий. Его роль заключается в поддержке баланса между народами и сохранении мирового (   Читать дальше...   )Производство: США / Nickelodeon Animation StudiosЖанр: Фэнтези, Приключения, Mультфильм, СемейныйРежиссер: Майкл Данте ДиМартино,  Брайан Кониецко, Джанкарло Волп, Этан Сполдинг, Лорен МакМалленАктеры: Зак Тайлер, Мэй Уитман, Джек Де Сена, Ди Брэдли Бейкер, Данте Баско, Джесси Флауер, Мако, Грэй Гриффин, Андре Соглиуззо, Крикет ЛиПеревод: Дублированный - Арт-ДубляжПродолжительность: ~00:24:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32C58B961E8E7C2BF6A86DEBDC068FB9D200D2AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

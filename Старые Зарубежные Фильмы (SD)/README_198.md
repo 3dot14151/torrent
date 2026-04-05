@@ -1,3 +1,134 @@
+###  Публикация: 1679715   (135223) от 26.11.2023
+
+Семь дней в мае / Seven Days in May (1964) BDRip [H.264] [DVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на одноимённом романе Флетчера Кнебеля и Чарльза У. Бейли II (1962)... Из-за подписания мирного договора с Советским Союзом популярность президента США Лимена падает, и этим решает воспользоваться генерал ВВС Джеймс Скотт. Военным переворотом он хочет устранить руководителя страны. О заговоре случайно узнает ближайший помощник Скотта полковник Кейси, (   Читать дальше...   )Производство: США, Joel Productions, Seven Arts ProductionsЖанр: драма, триллерРежиссер: Джон ФранкенхаймерВ ролях: Бёрт Ланкастер, Кирк Дуглас, Фредрик Марч, Ава Гарднер, Эдмонд О’Брайен, Мартин Болсам, Эндрю Дагган, Хью Марлоу, Уит Бисселл, Хелен КлеебПеревод: профессиональный двухголосыйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:57:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5168D72D39E4B6CECB531EBF6AC64A3AAF3E2700
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680026   (134967) от 27.11.2023
+
+Наша банда. Лучший фильм / Our Gang. Better Movies (1925) WEBRip [PR]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134967.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этот раз Банда решила заняться кинобизнесом. Ах, этот дивный мир кино! Многих он влечет к себе. А тут еще по соседству старая закрытая киностудия с реквизитом, оборудованием и декорациями. Но не все попали в киногруппу. Обделенные обиделись и стали всячески вредить кинопроцессу...
+Качество копии плохонькое.Производство: США, Hal Roach StudiosЖанр: короткометражный, комедия, семейный, немое киноРежиссер: Роберт Ф. МакгоунАктеры: Джо Кобб, Джеки Кондон, Мики Дэниелс, Джонни Даунс, Аллен ’Фарина’ Хоскинс, Мэри Корнман, Джей Р. Смит, Дэвид Дюран, Уильям Гиллеспи, Джеки ХанесПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:15:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C09CF1FE57A60BD0C14943F9DAC6758FB8F856F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680028   (134919) от 27.11.2023
+
+Мужчина получше / The Better Man (1912) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134919.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пристрастие Джима Сондерса к азартным играм заставляет его пренебрегать женой и ребенком. Однажды ночью, когда он был в салуне, Мигель Гомес, мексиканский преступник, за которого предложена награда в 1000 долларов, врывается в дом Джима....Производство: США, Vitagraph Company of AmericaЖанр: короткометражный, драма, немое киноРежиссер: Роллин С. СтарджонАктеры: Роберт Торнби, Джордж Стэнли, Энн Шефер, Чарльз БеннеттПеревод: Немой с интертитрами (В. Сачков)Язык озвучки: немойСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:12:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1235536DC76A9AB65221640604008D90CBDB632
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680003   (134911) от 27.11.2023
+
+Доллар истинный и фальшивый / Un Dollaro tra i denti (1967) BDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134911.jpg" />
+</div>
+
+
+###  Подробнее
+
+В практически вымерший городок приезжает незнакомец. Здесь он становится свидетелем массового убийства мексиканских солдат бандой некоего Агиллы. Скоро в городок должна прибыть американская кавалерия с деньгами для мексиканцев. И незнакомец предлагает бандитам сделку. Он поможет бандитам завладеть долларами, но за значительную часть суммы. Плюс к этому, смельчак (   Читать дальше...   )Производство: Италия, США, Primex Italiana, Taka ProductionsЖанр: драма, боевик, вестернРежиссер: Луиджи ВанциАктеры: Тони Энтони, Гия Сандри, Раф Бальдассарре, Фрэнк Вулф, Альдо Берти, Энрико Каполеони, Антонио Марсина, Артуро Корсо, Фортунато Арена, Френк Вульф, Николя Ди Джиоиа, Анжела Миневини, Йоланда Модио, Сальтаворе Пунтилло, Уго КарбониПеревод: авторский, любительский одноголосыйЯзык озвучки: русский, итальянскийСубтитры: русские, английскиеПродолжительность: 01:26:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E93DAE5D7486FFB642BD599A7A735ECB3F96A0C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592814   (134824) от 24.12.2012
+
+Коровёнка / La vaquilla (1985) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134824.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит в конце гражданской войны в Испании. Несмотря на военное присутствие, конфликт окончен, и солдаты в основном занимаются тем, что пишут письма домой. Однако шаткий мир и покой нарушен в тот момент, когда пятеро солдат со стороны Республики воруют телку (в буквальном смысле, с рогами) с тем чтобы съесть ее на грядущем общенациональном празднике.Жанр: Комедия, ВоенныйРежиссер: Луис Гарсия Берланга / Luis García BerlangaАктеры: Альфредо Ланда, Гильермо Монтесинос, Сантьяго Рамос, Хосе Сакристан, Карлес Велат, Эдуардо Кальво, Виолета Села, Агустин Гонсалес, Мария Луиза Понте, Хуанхо ПуигкорбеПеревод: Одноголосый закадровыйПродолжительность: 1:57:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FBFE182B646F398F8A950FAC7023A72BEB85D3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680245   (134613) от 28.11.2023
 
 Наша банда. Одна дикая поездочка / Our Gang. One Wild Ride (1925) WEBRip
@@ -6,7 +137,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134613.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134566.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134527.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134518.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134518.jpg" />
 </div>
 
 
@@ -110,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133821.jpg" />
 </div>
 
 
@@ -136,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133548.jpg" />
 </div>
 
 
@@ -162,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133542.jpg" />
 </div>
 
 
@@ -188,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133450.jpg" />
 </div>
 
 
@@ -214,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133442.jpg" />
 </div>
 
 
@@ -240,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133177.jpg" />
 </div>
 
 
@@ -266,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133097.jpg" />
 </div>
 
 
@@ -292,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133056.jpg" />
 </div>
 
 
@@ -318,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132950.jpg" />
 </div>
 
 
@@ -344,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132948.jpg" />
 </div>
 
 
@@ -370,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132751.jpg" />
 </div>
 
 
@@ -396,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132738.jpg" />
 </div>
 
 
@@ -423,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132696.jpg" />
 </div>
 
 
@@ -449,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132621.jpg" />
 </div>
 
 
@@ -475,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132599.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132599.jpg" />
 </div>
 
 
@@ -501,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132301.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132301.jpg" />
 </div>
 
 
@@ -527,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132064.jpg" />
 </div>
 
 
@@ -538,136 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24CBEFD4A6A732AB8DAC3317AEBDEF3A57B13ED7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682288   (131873) от 06.12.2023
-
-Наша банда. Перья войны / Our Gang. War Feathers (1926) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мальчишки всегда играли и играют в "войнушку". Просто в разных странах и временах эти игры немного отличаются. Персонажами и атрибутикой. У нас, к примеру, казаки-разбойники. У них ковбои-индейцы. Потому что детские игры рождаются из окружающей действительности, а иногда переплетаются с реальностью... :wink:Производство: США, Hal Roach StudiosЖанр: короткометражный, комедия, семейный, немое киноРежиссер: Роберт А. МакГоун, Роберт Ф. МакгоунАктеры: Джо Кобб, Джеки Кондон, Джонни Даунс, Аллен ’Фарина’ Хоскинс, Джэнни Хоскинс, Милдред Корнман, Скутер Лоури, Джей Р. Смит, Клифтон Янг, Пегги ЭхернПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:26:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F551B2A2EE05203B5E3B62C27740C06204E569DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596064   (131853) от 29.12.2012
-
-Мужчина, женщина и зверь / L'uomo la donna e la bestia (1977) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131853.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: ИталияЖанр: Эротика, Драма, АвангардРежиссер: Альберто КаваллонеАктеры: Мартиал Бошеро, Джованни Де Анджелис, Анджела Дория, Эммануеле Джуарино, Маша Магалл, Альдо Массассо, Антония МеаПеревод: Одноголосый закадровыйПродолжительность: 01:39:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56410EC5F31D33C771584388804E8152391AB83F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596032   (131798) от 29.12.2012
-
-Охотница за сексом / Охотница за сексом (1980) HDTV
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131798.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: ЯпонияЖанр: Эротика, ДрамаРежиссер: Тошихару ИкедаАктеры: Ерина Миуаи, Аяко Ота, Нобуюки Иноуэ, Теруо Мацуяма, Нобуко Мацумото, Юкари Тагучи, Рей Асо, Кодзи Ясиро, Такаши Канематсу, Тессен Накашира, Шу МазуиПеревод: Одноголосый закадровыйПродолжительность: 01:07:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:287BE009C344566790AA870536EFA541F66E3666
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682546   (131536) от 07.12.2023
-
-Детский труд / Children Who Labor (1912) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм художественный, но представляет собой, по существу, социально-пропагандисткий ролик о таком безобразном явлении как детский наемный труд. Капиталисты, из алчности, нанимали на работу даже не подростков, а буквально детей, малышей. Жестоко эксплуатировали их, а платили крохи, намного меньше чем взрослым работникам. Вот оно - хищное рыло капитализьма!Производство: США, Edison CompanyЖанр: короткометражный, драма, немое киноРежиссер: Эшли МиллерАктеры: Роберт Коннесс, Мириам Несбитт, Ширли Мэйсон, Джон Старджон, Мэри Фуллер, Виола Дэна, Edna May Weick, Бигелоу Купер, Роберт Броуер, Херберт ЙостПеревод: Немой с интертитрамиЯзык озвучки: немойСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:13:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C0E05018B5EA70E2AE213FD89DFA3F22E187B7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682545   (131529) от 07.12.2023
-
-Наша банда. Рассказывая небылицы / Our Gang. Telling Whoppers (1926) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131529.jpg" />
-</div>
-
-
-###  Подробнее
-
-Местный хулиган уже всех достал! Пора с ним разобраться. Для этой отвественной миссии были выбраны Фарина и Джо. После своего похода они отчитываются перед бандой. И немного приврали. Да что там "немного". Они все наврали. О том как жестоко и кроваво расправились с хулиганом. Вроде не беда - кто в детстве не сочинял про свои подвиги. Но оказывается, что (   Читать дальше...   )Производство: США, Hal Roach StudiosЖанр: короткометражный, комедия, семейный, немое киноРежиссер: Роберт А. МакГоун, Роберт Ф. МакгоунАктеры: Джо Кобб, Джеки Кондон, Аллен ’Фарина’ Хоскинс, Скутер Лоури, Джей Р. Смит, Клифтон Янг, Билли Нэйлор, Джонни Даунс, Пегги Имис, Чарльз МакЭвойПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:27:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20B1BAD08E483789A4B7CE144A73A950CBE06684
 ```
 
 https://mybot314.ru/tekegram_catalog/

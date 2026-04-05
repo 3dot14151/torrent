@@ -6,7 +6,7 @@ Charles Mingus - Mingus Ah Um (1959) 2019, Mobile Fidelity Sound Lab [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452596.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Party Jazz (2010) Jazzclub [FLAC|Lossless|image + .cue]<Jazz, Swing, Easy L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452011.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Black Power (2009) Jazzclub [FLAC|Lossless|image + .cue]<Jazz, Jazz-Funk, D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_452006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452006.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Jacques Loussier Trio - Plays Debussy (2000) Telarc [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451897.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Rebecca Hardiman - Easy Living (2015) [FLAC|image+.cue]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451886.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451886.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ VA - Jazz Loves Marvin Gaye (2011) Jazzclub [FLAC|Lossless|image + .cue]<Jazz, S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451853.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ June Christy - Ballads For Night People (1959) 2005, Capitol Jazz [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451838.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Tianna Hall - Hit Me With A Hot Note (2015) [FLAC|Lossless]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451763.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ VA - Feel Good Jazz (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451606.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451606.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Cecil L. Recchia - The Gumbo (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451384.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Frank Strozier - Long Night (1961, 1962) 2002, Milestone[FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451295.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Frank Rosolino - Thinking About You (1976) 2CD, 2001, Sackville Recordings[FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_451293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451293.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Archie Shepp - Four for Trane (1964) /1997, MCA Records/[FLAC|tracks+.cue]<Avant
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449692.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Mildred Aubry - Caminho (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449691.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Monique Dimattina - Everybody Loves Somebody (2015) [FLAC|tracks]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449689.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Matt Bianco - Sunshine Days (The Official Greatest Hits) (2010) [FLAC|Lossless]<
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449574.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Sonny Thompson - Swings In Paris (1972) 2019, Solid Records [FLAC|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449461.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ VA - Bar Jazz (2006) Jazzclub [FLAC|Lossless|image + .cue]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449376.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ J.J. Johnson - First Place (1957) Remaster, 2015, Sony Music[FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449297.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Masabumi Kikuchi - One Way Traveller (1982) Remaster, 2016, Sony Music[FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449169.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Frank Strozier - The Fantastic Frank Strozier (1959,1960) 1997, Vee Jay[FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_449168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449168.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ VA - Bar Jazz Vol.2 (2010) Jazzclub [FLAC|Lossless|image + .cue]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448921.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ VA - Cocktail Jazz (2008) Jazzclub [FLAC|Lossless|image + .cue]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448911.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Carlos Santana - Blues For Salvador (1987) [FLAC|Lossless|image + .cue] <Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448870.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Herbie Hancock - The Very Best Of (1991) [FLAC|Lossless|image + .cue] <Jazz-Funk
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448867.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Edward Simon - Edward Simon (1995) Kokopelli Records [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_448810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448810.jpg" />
 </div>
 
 

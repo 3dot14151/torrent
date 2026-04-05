@@ -1,3 +1,107 @@
+###  Публикация: 1373263   (880420) от 06.04.2020
+
+Журнал | DOM & podium №23 (2019) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_880420.jpg" />
+</div>
+
+
+###  Подробнее
+
+DOM & podium – яркий, уникальный глянцевый журнал об архитектуре, дизайне интерьеров и стильных решениях для комфортного образа жизни.Жанр: Дизайн, архитектура, интерьерФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D4B97791326D0FAD9D8545085ABD3BBDF3A0A7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373508   (880418) от 06.04.2020
+
+Журнал | Дачный сезон №3 (2020) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_880418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Замечательный журнал для садоводов и огородников — секреты больших урожаев. Издание полностью составлено из писем читателей, которые делятся своим опытом, советами и успехами. На страницах журнала - советы по посадке и уходу за растениями, рекомендации умелого мастера, консультации специалистов и многое другое.Жанр: Дом, сад, огород, дачаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8E020BE4E88A8613334E0560CAA99F9A0E0A74A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373262   (880417) от 06.04.2020
+
+Журнал | DOM & podium №21-22 (2019) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880417.jpg" />
+</div>
+
+
+###  Подробнее
+
+DOM & podium – яркий, уникальный глянцевый журнал об архитектуре, дизайне интерьеров и стильных решениях для комфортного образа жизни.Жанр: Дизайн, архитектура, интерьерФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A553EDCE8ECB791C3DF1B971E859E1204D56322
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373397   (880349) от 06.04.2020
+
+Газета | Сезон у дачи №6(307) (Март 2020) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для садоводов. Множество практических советов и рекомендаций специалистов, овощеводов-любителей помогут вам в выращивании и получении гарантированного и высокого урожая. Очень много интересной и полезной информации.Жанр: Дача, сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06D3FAE923D5ADBBA64383F34C0B8F71B140F751
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1373316   (880343) от 06.04.2020
 
 Журнал | Elle Decoration [UK] №5 (май 2020) [PDF] [En]
@@ -6,7 +110,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880343.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880341.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880339.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880309.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880309.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880224.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/009/save_picture_880184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_880184.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880180.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880158.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880158.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880133.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880085.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_880048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880048.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879952.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879942.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879891.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879838.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879835.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879835.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879772.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879712.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879577.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879569.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879548.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879450.jpg" />
 </div>
 
 
@@ -565,110 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CF8C2BF5F5A72BF0A96A5AA8CF04E7EE94AC43F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 871684   (879438) от 22.02.2015
-
-Журнал | ID.Interior Design №12-1 (декабрь 2014 - январь 2015) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторитетный журнал о дизайне и архитектуре. Все новое в декоре интерьеров, уникальное в архитектуре, эксклюзивное в интерьере, что создается в стране и мире, находит свое отражение в журнале, помогая читателям всегда быть в курсе современных тенденций архитектуры и дизайна.Жанр: Дизайн интерьеровФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCC8BCA8FE20CDF06B23AABCAF6928029643ED8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 871725   (879374) от 22.02.2015
-
-Журнал | РБК №3 (Март 2015) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879374.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал "РБК" - это аналитика и прогнозы о глобальных тенденциях экономики и политики, рассказ о влиятельных людях, новых идеях и перспективных компаниях, о том, на что тратят деньги и как их зарабатывают.Жанр: Экономика и политикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5299789A1EA008EC290B9F47B7E8B3E45065768
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 871734   (879253) от 22.02.2015
-
-Журнал | Единственная №2 (февраль 2015) [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал Единственная - мода и стиль, красота и здоровье, семья, карьера, интервью со звездами, путешествия и спорт, новости культуры, рукоделие и оригинальные идеи для дома и дачи - отражение интересов современной, успешной, сильной, энергичной женщины, которая умело строит свою карьеру, оставаясь прекрасной женой и матерью, заботится о близких и находит время для себя.Жанр: женский журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EC190E37986AD05A47A175D19C76A5B5C283414
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 871522   (879244) от 22.02.2015
-
-Журнал | Stereo & Video [Россия] №2-3 (240) (февраль-март 2015) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_879244.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stereo & Video первым встречает и представляет самые последние новинки Hi-Fi аудио- и видео-продукции на российском и мировом рынке, проводит сравнительные тесты с объективными оценками, делится впечатлениями от общения с интересными людьми и рассчитан на широкий круг читателей, интересующихся аудио- и видеоаппаратурой или заинтересованных в её приобретении.Жанр: Спутник покупателя аудио-видео-продукцииФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8B233E8162FF9E96847B809CCB71A1FCC907B8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

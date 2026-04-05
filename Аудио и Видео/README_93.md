@@ -6,7 +6,7 @@
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747430.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_747041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747041.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VA - A Winter Sampler 2 (2020) [AAC|~330 Kbps] <Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746745.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - A Winter Sampler 3 (2021) [AAC|~336 Kbps] <Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746744.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ VA - A Winter Sampler 1 (2019) [AAC|~331 Kbps] <Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746743.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ VA - A Winter Sampler 4 (2022) [AAC|~338 Kbps] <Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746742.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ VA - Parquet Recordings - Retrospective 2021 (2021) [AAC|~324 Kbps] <Progressive
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746741.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ VA - Ishtar II (2022) [AAC|~313 Kbps] <Organic House, Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746740.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ VA - Ishtar (2021) [AAC|~317 Kbps] <Organic House, Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746739.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ VA - Totally Mobilee - Greatest Hits 2021 (2022) [AAC|~343 Kbps] <Deep House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746737.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746654.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746545.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746515.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746468.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746425.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746425.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746305.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746215.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746210.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746201.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_746157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746157.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745991.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745962.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745892.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745884.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745827.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_745818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745818.jpg" />
 </div>
 
 

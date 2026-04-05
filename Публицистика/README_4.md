@@ -1,3 +1,29 @@
+###  Публикация: 1457268   (1024618) от 25.03.2021
+
+Пат Инголдзби | Особое чувство собственного ирландства (2020) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024618.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Особое чувство собственного ирландства» – сборник лиричных и остроумных эссе о Дублине и горожанах вообще, национальном ирландском характере и человеческих нравах в принципе, о споре традиций и нового. Его автор Пат Инголдзби – великий дублинский романтик ХХ века, поэт, драматург, а в прошлом – еще и звезда ирландского телевидения, любимец детей. Эта ироничная и (   Читать дальше...   )Жанр: ПублицистикаПеревод: Шаши МартыноваФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A898FF76DF0055930835F57AFECF99186F5D990
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457857   (1024221) от 27.03.2021
 
 Павел Крусанов, Александр Етоев (сост.) | Как мы пишем. Писатели о литературе, о времени, о себе (2018) [EPUB]
@@ -6,7 +32,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024221.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024221.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024207.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023794.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023789.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023788.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023651.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023482.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023482.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023452.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023452.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022065.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021409.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020781.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020262.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019811.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019757.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019294.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019120.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019088.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018233.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018213.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017386.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017190.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013848.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011999.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011825.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011656.jpg" />
 </div>
 
 
@@ -651,32 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1F2AC808AC60BF0125AB9EA0B62168782BA2CFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477835   (1010810) от 16.06.2021
-
-Рэйчел Луиза Снайдер | Без видимых повреждений (2021) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010810.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несмотря на то что в Америке случаи домашнего насилия составляют более 15% всех преступлений, о нем до сих пор не принято говорить громко. Журналистка Рэйчел Луиза Снайдер посвятила несколько лет исследованию этой проблемы. Она проследила всё: от того, как зарождается жестокость в отношениях, до принципов, которыми руководствуется полиция, расследуя подобные дела. (   Читать дальше...   )Жанр: Публицистика, Социология, Социальная психологияПеревод: Екатерина КуроваФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B596ABF5D90ADDEB4838F8A08224651189485A29
 ```
 
 https://mybot314.ru/tekegram_catalog/

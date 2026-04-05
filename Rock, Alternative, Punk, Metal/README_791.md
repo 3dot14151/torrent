@@ -1,3 +1,32 @@
+###  Публикация: 1838759   (261299) от 24.11.2025
+
+Queen - Live Magic (1986) Japanese Edition, SHM-CD, Reissue, 2024, EMI, Limited Edition [FLAC|Lossless|image + .cue] <Rock, Arena Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_261299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Vision
+02. Tie Your Mother Down
+03. Seven Seas of Rhye
+04. A Kind of Magic (full live version)(   Читать дальше...   )Жанр: Rock, Arena RockПродолжительность: 00:49:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F73653D7218B28D5B13DCD83F639A4D3C88F665B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 505473   (261197) от 04.06.2012
 
 Артерия - 2 альбома+Сингл (2005-2010) [FLAC|Lossless] <Heavy Metal>
@@ -6,7 +35,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261197.jpg" />
 </div>
 
 
@@ -34,7 +63,7 @@ CG Bros. - За Единый народ и Единую Власть! (2012) [MP
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261195.jpg" />
 </div>
 
 
@@ -69,7 +98,7 @@ Sweet 75 - Sweet 75 (1997) [MP3|320 кб/с]<Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261120.jpg" />
 </div>
 
 
@@ -104,7 +133,7 @@ The Pretty Wild - zero.point.genesis (2025) [MP3|320 Kbps] <Metalcore, Alternati
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260974.jpg" />
 </div>
 
 
@@ -133,7 +162,7 @@ Richard Marx - Inside My Head (Compilation 2CD) (2012) [MP3|256 кб/с]<Melodic
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260845.jpg" />
 </div>
 
 
@@ -168,7 +197,7 @@ Queen - Live Killers (1979) Japanese Edition, 2 x CD, SHM-CD, Reissue, Remastere
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260793.jpg" />
 </div>
 
 
@@ -197,7 +226,7 @@ The Beatles - Anthology Collection (2025) 8CD Boxset [FLAC|Lossless|tracks + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260786.jpg" />
 </div>
 
 
@@ -226,7 +255,7 @@ Garrison - The Final Chapter (2025) [FLAC|Lossless|tracks] <AOR, Arena Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260785.jpg" />
 </div>
 
 
@@ -255,7 +284,7 @@ Black Sabbitch - Unrest In The West (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard-R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260777.jpg" />
 </div>
 
 
@@ -284,7 +313,7 @@ The Pretty Wild - zero.point.genesis (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260773.jpg" />
 </div>
 
 
@@ -313,7 +342,7 @@ Cristiano Filippini's Flames Of Heaven - Symphony Of The Universe (2025) [FLAC 2
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260769.jpg" />
 </div>
 
 
@@ -342,7 +371,7 @@ Hell in the Club - Joker In the Pack (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260767.jpg" />
 </div>
 
 
@@ -371,7 +400,7 @@ Exodus - Tempo Of The Damned; Shovel Headed Kill Machine (2024) Compilation, Rei
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260748.jpg" />
 </div>
 
 
@@ -400,7 +429,7 @@ Garrison - The Final Chapter (2025) [MP3|320 Kbps] <AOR, Arena-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260671.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260671.jpg" />
 </div>
 
 
@@ -429,7 +458,7 @@ Sterbhaus - Next Akin to Chaos (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260571.jpg" />
 </div>
 
 
@@ -458,7 +487,7 @@ Paul McCartney - The Gold Collection [3CD] (2012) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260515.jpg" />
 </div>
 
 
@@ -493,7 +522,7 @@ Vanessa Peters & Ice Cream On Mondays - 3 альбома [FLAC|Lossless]<Rock, F
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260483.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260327.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ VA - NOW That's What I Call Classic Rock Hits (2012) [MP3|256 кб/с]<2012>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260243.jpg" />
 </div>
 
 
@@ -589,7 +618,7 @@ Sennen - Lost Harmony (2012) [MP3|~281 кб/с (V0)]<Indie Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260162.jpg" />
 </div>
 
 
@@ -624,7 +653,7 @@ The Beatles - Anthology 4 (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classic Ro
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260073.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260073.jpg" />
 </div>
 
 
@@ -653,7 +682,7 @@ The Smashing Pumpkins - Mellon Collie And The Infinite Sadness (1995) 30th Anniv
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260072.jpg" />
 </div>
 
 
@@ -682,7 +711,7 @@ Spock's Beard - The Archaeoptimist (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260071.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260071.jpg" />
 </div>
 
 
@@ -711,7 +740,7 @@ The Beatles - Anthology 4 (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260070.jpg" />
 </div>
 
 
@@ -740,7 +769,7 @@ Thin Lizzy - Night Life / Fighting (2024 Mix) (2025) [FLAC 24/44.1|Lossless|WEB-
 >>Hard Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260069.jpg" />
 </div>
 
 
@@ -754,35 +783,6 @@ Thin Lizzy - Night Life / Fighting (2024 Mix) (2025) [FLAC 24/44.1|Lossless|WEB-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1AA40071DBD534C60299D711F4A7DCB70C4C0090
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838292   (260068) от 22.11.2025
-
-Treat - The Wild Card (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic-Hard-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_260068.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Out With a Bang (4:08)
-02. Rodeo (3:54)
-03. 1985 (4:02)
-04. Endeavour (4:20)(   Читать дальше...   )Жанр: Melodic-Hard-RockПродолжительность: 00:52:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50722107A5C81399E95307CF8C6F6EC489C622FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

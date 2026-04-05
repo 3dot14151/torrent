@@ -1,3 +1,55 @@
+###  Публикация: 1430627   (919866) от 19.08.2021
+
+Cyberpunk 2077 (2020) [Ru/Multi] (1.3) License CODEX
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919866.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cyberpunk 2077 приключенческая ролевая игра, действие которой происходит в мегаполисе Найт-Сити, где власть, роскошь и модификации тела ценятся выше всего. Вы играете за V, наёмника в поисках уникального устройства, позволяющего обрести бессмертие. Вы сможете менять киберимпланты, навыки и стиль игры своего персонажа, исследуя огромный открытый мир, где ваши поступки (   Читать дальше...   )Тип издания: LicenseРазработчик: CD PROJEKT REDЖанр: Action, Cyberpunk, Open World, RPG, Futuristic, Sci-fiЯзык озвучки: Английский (остальные озвучки устанавливаются отдельно)Язык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EDF261FE85A5CB7138C04E446183750AF05765A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989907   (914583) от 23.02.2016
+
+Dragon's Dogma: Dark Arisen (2016) [En/Multi] (1.0.10.6911) Repack R.G. Origami
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бои игры Dragon’s Dogma: Dark Arisen разворачиваются в огромном открытом мире. Игроки отправляются в эпическое приключение по живописному краю с тремя ИИ-спутниками — «пешками». «Пешки» сражаются сами по себе, вырабатывая сноровку и боевое умение на основе черт, перенятых от того или иного игрока. Игроки могут публиковать своих «пешек», получая в обмен ценности, (   Читать дальше...   )Тип издания: RepackРазработчик: CapcomЖанр: Add-on (Standalone), RPG, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский и другиеЯзык интерфейса: Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ABD8D0AB8DC9CE69512491468E09065B5EFACC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989808   (914558) от 23.02.2016
 
 Tales of Zestiria (2015) [Ru/Multi] (1.4.0.0/dlc) Repack R.G. Catalyst
@@ -6,7 +58,7 @@ Tales of Zestiria (2015) [Ru/Multi] (1.4.0.0/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914558.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914558.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ KnightShift / Рыцари за работой (2003) [Ru/En] (1.3) Repack Maggo
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911590.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Tyranny (2016) [Ru/En] (1.0.4.0048/dlc) Repack R.G. Revenants
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909660.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ We Are The Dwarves (2016) [Ru/Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909266.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Sword of the Necromancer (2021) [Multi] (2.0.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908190.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Torchlight (2009) [Ru/En] (1.15) Repack R.G. Origami
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905663.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ NEO Scavenger (2014) [En] (1.15) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904544.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ The Surge 2 (2019) [Ru/Multi] (1.40405.1/dlc) License GOG [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904537.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Sea Dogs / Корсары: Проклятие дальних морей (2000) [
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904245.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Baldo: The Guardian Owls (2021) [Ru/Multi] (7256917) License DOGE
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903426.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Cthulhu Saves Christmas (2019) [En] (2.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903041.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903041.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Kult: Heretic Kingdoms / Heretic Kingdoms: The Inquisition / Культ. Кор�
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902642.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ The Sorceress (2017) [En] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902572.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902572.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ The Elder Scrolls V: Skyrim (2016) [Ru/Multi] (1.4.2.0.8) SteamRip Let'sPlay [Sp
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900664.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Trulon: The Shadow Engine (2016) [Ru/Multi] (1.0) License FANiSO
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900273.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ The Incredible Adventures of Van Helsing (2013) [Ru/En] (1.3.3d/7dlc) Repack R.G
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898689.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Fae Tactics (2020) [Multi] (1.010) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898487.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898487.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Cosmic Star Heroine (2017) [En] (1.19) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898437.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Icewind Dale (2001) [Ru/En] (1.061/1.42/dlc) License GOG [Complete]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897008.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Ultimate ADOM - Caverns of Chaos (2021) [Multi] (1.0.0.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893400.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ King's Bounty: Warriors of the North / King's Bounty: Воин Севера (201
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891956.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ The Forgotten City (2021) [Ru/Multi] (1.2.1) License GOG [Digital Collector's Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891722.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Disgaea PC: Digital Dood Edition (2016) [En/Multi] (1.0.3) Repack АRMENIAC
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890706.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Shadowrun: Hong Kong (2015) [Ru/En] (3.0.8) License GOG [Extended Edition Deluxe
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890214.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Shadowrun: Hong Kong (2015) [Ru/En] (3.0.8) License GOG [Extended Edition Deluxe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEDD6E6F44E013CB856ED7BF1A039384EB0BDB28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371504   (889683) от 31.03.2020
-
-Neverwinter Nights: Enhanced Edition (2018) [Ru/En] (80.8193.9/dlc) Repack xatab [Digital Deluxe Edition]
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Потрясающий Neverwinter возвращается! Трудно найти геймера, старого фаната жанра RPG, который не слышал бы о Neverwinter! Поэтому нет ничего удивительного в том, что команда разработчиков из студии Beamdog взялись за работой над переизданием этой легенды! Теперь вы можете поиграть в Neverwinter Nights: Enhanced Edition и насладиться улучшенным специальным изданием, (   Читать дальше...   )Тип издания: RepackРазработчик: BeamdogЖанр: Ролевая игра, Приключение, ФэнтезиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8133907CF598F158728D8971E058DBB6F38C6A42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049865   (888617) от 10.02.2017
-
-Little King's Story (2016) [En/Multi] (1.0/09.02.2017) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888617.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый проект студии Town Factory позволит нам осуществить мечту многих и стать полноценным королем. Сюжет таков. Мальчик Коробо, как и любой ребенок его возраста, любит играть и обладает живым и богатым воображением. В один прекрасный день он пускается в небольшую погоню за стаей крыс, которых он обнаружил в своей комнате.Тип издания: LicenseРазработчик: Town Factory, CingЖанр: Стратегия, Ролевая игра, ФэнтезиЯзык интерфейса: Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9C8C7D14D4F65A1DB4D713CD4506DC1C112E5A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

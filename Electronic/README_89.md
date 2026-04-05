@@ -1,3 +1,61 @@
+###  Публикация: 1102794   (889572) от 10.02.2017
+
+VA - Dash Deep Harsh Crazy 2015.04 (2017) [MP3|320 Kbps] <House, Tech House, Deep House, Electronic, Progressive, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cesar Estrella - Montana 06:37
+02. Flavio Knada - Directed (Ayoze Diaz Remix) 07:40
+03. Grant Genera - Control 06:12
+04. Afterboy a.k.a. Joseph Pecsvari - Crackling Speaker 06:08(   Читать дальше...   )Жанр: House, Tech House, Deep House, Electronic, Progressive, DanceПродолжительность: 01:52:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17FB22A4E7D4892EEE47E772639B3852AF577C29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102702   (889562) от 10.02.2017
+
+VA - Enormous Deep (Sexy Deep House Tunes) Vol.1 (2016) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mario Chris - Take Me Away
+02. M. Orlando - Dance with Me - Antony Miles Remix
+03. Komplexx - Special - Terrace Dub
+04. Dimix - Coming Alive - Fallow Dub Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:04:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFAF1C86A2732977104B3A4D3B58646650498F7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994586   (889514) от 08.03.2016
 
 The Qemists - Warrior Sound (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic Rock, Drum & Bass>
@@ -6,7 +64,7 @@ The Qemists - Warrior Sound (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic Roc
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889514.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Enormous Deep (Sexy Deep House Tunes), Vol. 2 (2017) [MP3|320 Kbps] <Deep H
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889472.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889472.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Indie & Nu Disco 2017  [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889455.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889455.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Asana Yoga Session Vol.1 Music for Body and Mind (2017) [MP3|320 Kbps] <Dow
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889453.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Blank & Jones - #WhatWeDoAtNight (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889319.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889319.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Elektro Codes (One, Two, Three) (1997-2000) Elektrolux [FLAC|Lossless|track
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889217.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Endless Summer: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Ba
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889112.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Artist Showcase - 2nd Edition (2021) Point Source Electronic Arts [FLAC|Los
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889076.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ John Beltran (Placid Angles, Nostalgic) - Discography 43 Releases (1995-2021) De
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888786.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888786.jpg" />
 </div>
 
 
@@ -266,7 +324,7 @@ Midge Ure (Ex. Ultravox) - The Works (2013) 2CD [APE|Lossless]<Synthpop, New Wav
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888769.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Depeche Mode - 4CD's Rare Album Set (2006, 2013) Compilation [FLAC|Lossless|trac
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888737.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Trigg & Gusset - Discography 5 Releases (2013-2021) Preserved Sound [FLAC|Lossle
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888729.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Push Button Objects - Ghetto Blaster (2003) Chocolate Industries [FLAC|Lossless|
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888710.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Spring Break 2020 (Best of Dance, House & Electro) (2020) [MP3|320 Kbps] <H
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888587.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888584.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ Peter Pearson - Quantum of Dreams (2019) [FLAC|Lossless|WEB-DL|tracks] <Electron
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888580.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ VA - Armada Music - Decade (2010-2020) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888573.jpg" />
 </div>
 
 
@@ -496,7 +554,7 @@ Sundaze - Saturnia (2020) Melusine Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <Psy
 >>Psybient, Psychill, Psydub (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888464.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ Nicolas Jaar - Cenizas (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <Experimental,  Dow
 >>Downtempo, Ambient (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888439.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ Flowers for Bodysnatchers - Alive with Scars (2019) Cryo Chamber [FLAC|Lossless|
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888426.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ VA - Minimal Daydream (2016) [MP3|320 кб/с] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888175.jpg" />
 </div>
 
 
@@ -612,7 +670,7 @@ VA - Cr2 Live & Direct Presents: Secondcity (2017) [FLAC|Lossless|Web-DL|tracks+
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887894.jpg" />
 </div>
 
 
@@ -641,7 +699,7 @@ VA - Luminosity Beach Festival, Netherlands (2021) [MP3|128-320 Kbps] <Trance, P
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887852.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887852.jpg" />
 </div>
 
 
@@ -670,7 +728,7 @@ VA - Dance Essentials (Armada Music) (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887787.jpg" />
 </div>
 
 
@@ -684,63 +742,6 @@ VA - Dance Essentials (Armada Music) (2017) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCDC747A6A29726CAC2410E63A3F15B5AD600F96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494652   (887691) от 08.09.2021
-
-VA - The Shadow Masters: Drum'n'Bass (2000) Shadow Records [FLAC|Lossless|tracks+.cue] <Drum n Bass, Jungle>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magnetic - Hostile (05:03)
- 02. Cujo - Paris Streatham (05:01)
- 03. Icarus - Cactus (09:09)
- 04. Le Gooster - Tales From The Darkside (05:35)(   Читать дальше...   )Жанр: Drum n Bass, JungleПродолжительность: 01:00:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D7FEF5761FEBBD2DED9D3B665C8F19877DD1902
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103188   (887575) от 11.02.2017
-
-Anugama - Shamanic Dream II (2000) [FLAC|Lossless|tracks + .cue] <New Age,Meditation,Relax>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_887575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shamanic Journey (Om Shanti) : (29:04)
-02. Sweetness Of The Earth : (28:03)
-03. Magic Flow : (16:01)Жанр: New Age,Meditation,RelaxПродолжительность: 01:13:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:238711076A43029F0D48AA91215EF28A24843693
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,161 @@
+###  Публикация: 1199575   (797250) от 18.01.2018
+
+Российские атлеты могут выступить на Олимпиаде-2018 под флагом СССР
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_797250.jpg" />
+</div>
+
+
+###  Подробнее
+
+Международный олимпийский комитет может рассмотреть вопрос об участии сборной России в зимних Олимпийских играх — 2018 под флагом СССР. На церемонии награждения отечественных атлетов предлагается включать советский гимн. В интервью «Газете.Ru» двукратная олимпийская чемпионка по спортивной гимнастике Светлана Хоркина призвала не провоцировать МОК такими идеями, а (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199999   (797237) от 18.01.2018
+
+Человек с Земли: Голоцен / The Man from Earth: Holocene (2017) BDRip [H.264/720p] [MVO] [AD]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Десять лет назад Джон Олдман оставил свой пост профессора колледжа и рассказал коллегам, что на самом деле он — многотысячелетний пещерный человек. Так началось путешествие сквозь историю и философские размышления бессмертного человека.Производство: США / Falling Sky EntertainmentЖанр: Фантастика, фэнтези, драмаРежиссер: Ричард ШенкманАктеры: Майкл Дорн, Бриттани Каррен, Ванесса Уильямс, Уильям Кэтт, Стерлинг Найт, Джон Биллингсли, Даг Хейли, Дэвид Ли Смит, Дави Сантос, Тэрин ЛукПеревод: Профессиональный многоголосый (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:37:40Реклама: Присутствуют вставки текстовой рекламы!
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0144B966D83C5E5F250013FEA1AC47AC7C077802
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199917   (797236) от 18.01.2018
+
+Dead Space 2 (2011) [Ru/En] (1.1/upd1/dlc) Repack Other s
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797236.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Dead Space™ 2 вам вновь предстоит взять роль инженера Айзека Кларка из оригинального Dead Space. Айзек просыпается в неизвестном месте через три года после ужасных событий на USG Ишимуре, космическом корабле класса "Планетарный потрошитель", где впервые и встретились с ожившими мертвецами - "Некроморфами". После того как Айзек уничтожил Обелиск (   Читать дальше...   )Тип издания: RepackРазработчик: Visceral GamesЖанр: Adventure, Action (Survival horror), 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAE690DCD2A4B330196DC1D8B8FAF00BF9A0DFEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069767   (797235) от 18.01.2018
+
+Call of Duty: Infinite Warfare (2016) [Ru] (6.3.12226785/dlc) Rip xatab [Digital Deluxe Edition]
+
+>>3
+>>13
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797235.jpg" />
+</div>
+
+
+###  Подробнее
+
+В игре Call of Duty: Infinite Warfare вас ждет три уникальных режима: кампания, сетевая игра и режим «Зомби». Кампания объединяет суровые военные корни серии со множеством смелых нововведений и захватывающим сюжетом, уникальным для Call of Duty. Ее история, выстроенная по всем канонам жанра, повествует о крупномасштабной войне будущего, охватившей всю Солнечную систему.Тип издания: RipРазработчик: Infinity Ward, High Moon StudiosЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:640B759B50B3944DAEBC170936D569692A2CECEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947125   (797220) от 26.04.2016
+
+Helldivers (2015) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [PSN / 4.03] [Ru/Multi]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797220.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вступайте в элитное подразделение Адский десант – последнюю линию обороны человечества в войне против безжалостных инопланетян. Спускайтесь на планету в адской капсуле и уничтожайте злейших врагов человечества на их территории в составе боевых частей Адского десанта в этом динамичном шутере с видом сверху.
+
+Приземляйтесь на поверхность враждебных планет в составе (   Читать дальше...   )Тип издания: PSNРазработчик: Arrowhead Game StudiosЖанр: Shoot 'em upЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F12A11F70B951EC94675C8A3728D9325D2E300B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010876   (797218) от 26.04.2016
+
+Дэдпул / Deadpool (2016) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797218.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уэйд Уилсон — наемник. Будучи побочным продуктом программы вооруженных сил под названием «Оружие Х», Уилсон приобрел невероятную силу, проворство и исцеляющий фактор. Но страшной ценой: его клеточная структура постоянно меняется, а его здравомыслие сомнительно. Все чего Уилсон хочет — это держаться на плаву в социальной выгребной яме. Но течение в ней слишком быстрое.Производство: США, Канада 20th Century Fox Film CorporationЖанр: Фантастика, Боевик, Комедия, ПриключенияРежиссер: Тим МиллерАктеры: Райан Рейнольдс, Морена Баккарин, Джина Карано, ТиДжей Миллер, Эд Скрейн, Рэйчел Шин, Брианна Хилдебранд, Андре Трикоте, Тэйлор Хиксон, Джед РиисПеревод: Дублированный (iTunes)Язык субтитров: Русский (Forced, Full), Украинский (Forced, Full), Английский (Full)Продолжительность: 01:48:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B81B9B361BAFA4AAC531F4C78598AFA7CAA3FCC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1010763   (797216) от 26.04.2016
 
 MyLifeOrganized PRO 4.3.3 [Ru/En]
@@ -6,7 +164,7 @@ MyLifeOrganized PRO 4.3.3 [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797216.jpg" />
 </div>
 
 
@@ -33,7 +191,7 @@ Navitel / Навител Навигатор v9.6.2385 RePack [Ru/En] - толь�
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797215.jpg" />
 </div>
 
 
@@ -59,7 +217,7 @@ Windows 7 Максимальная Ru x86-x64 Orig w. BootMenu by OVGorskiy® 03
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797213.jpg" />
 </div>
 
 
@@ -85,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797212.jpg" />
 </div>
 
 
@@ -111,7 +269,7 @@ Heroes of Might and Magic VII / Меч и Магия Герои VII (2015) [Ru/M
 >>13
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797211.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797211.jpg" />
 </div>
 
 
@@ -137,7 +295,7 @@ Windows XP Pro SP3 VLK Rus (x86) v.16.4.24 by VIPsha [Ru]
 >>14
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797210.jpg" />
 </div>
 
 
@@ -166,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_797176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_797176.jpg" />
 </div>
 
 
@@ -193,7 +351,7 @@ Windows 11 сломалась: Microsoft предупреждает о нера�
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_797173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_797173.jpg" />
 </div>
 
 
@@ -219,7 +377,7 @@ MInstAll v.07.11.2021 By Andreyonohov (Unpacked) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797168.jpg" />
 </div>
 
 
@@ -245,7 +403,7 @@ Age of Empires IV (2021) [Ru/En] (5.0.7274.0/dlc) License CODEX [Deluxe Edition]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797165.jpg" />
 </div>
 
 
@@ -271,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_797082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_797082.jpg" />
 </div>
 
 
@@ -297,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_797079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_797079.jpg" />
 </div>
 
 
@@ -323,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_797078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797078.jpg" />
 </div>
 
 
@@ -349,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_796782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_796782.jpg" />
 </div>
 
 
@@ -375,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_796762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_796762.jpg" />
 </div>
 
 
@@ -401,7 +559,7 @@ X3: Terran War Pack (2008-2011) [Ru/Multi] (3.4/3.3) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796684.jpg" />
 </div>
 
 
@@ -427,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_796680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_796680.jpg" />
 </div>
 
 
@@ -453,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_796625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_796625.jpg" />
 </div>
 
 
@@ -479,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_796621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_796621.jpg" />
 </div>
 
 
@@ -505,7 +663,7 @@ STAR WARS Jedi: Fallen Order (2019) [Ru/Multi] (1.0.10.0/dlc) License DARKSiDERS
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796619.jpg" />
 </div>
 
 
@@ -516,163 +674,6 @@ STAR WARS Jedi: Fallen Order (2019) [Ru/Multi] (1.0.10.0/dlc) License DARKSiDERS
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1EFB6A1FBAAEDF6B79EDDC379B07FA19B2BF0F16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011489   (796613) от 27.04.2016
-
-Internet Download Manager 6.25 Build 16 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного (   Читать дальше...   )Язык интерфейса: Русский | Английский | Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5BB4998267843144B00D055711494F1DD7759B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011208   (796576) от 27.04.2016
-
-ESET Smart Security 9.0.377.1 Final [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796576.jpg" />
-</div>
-
-
-###  Подробнее
-
-ESET NOD32 Smart Security - новая версия комплексного антивируса NOD32 с облачной технологией ESET Live Grid. Решение "все-в-одном" с многоуровневой защитой. Защитите свой компьютер или ноутбук от потери или кражи с помощью функциональности нового компонента Анти-Вор. Функция Антивор (Anti-Theft) позволяет обнаружить местоположение и вернуть потерянный (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A2113CA47A4E84A249B7B5A92B997BF6D04EAEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007270   (796556) от 27.04.2016
-
-FINAL FANTASY IX (2016) [En/Multi] (1.0 u1) License CODEX
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Final Fantasy IX радует фанатов старых частей серии прежними сундуками с предметами, традиционной броней, оружием и четырьмя персонажами во время ведения сражений.Тип издания: LicenseРазработчик: SQUARE ENIXЖанр: RPG (Japanese-style), 3DЯзык озвучки: -/-Язык субтитров: Английский и другиеЯзык интерфейса: Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC88969B2299D5B971B1EE08AC1B913D38BF4592
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011435   (796555) от 27.04.2016
-
-Ori and the Blind Forest: Definitive Edition (2016) [Ru/Multi] (1.0) License CODEX
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лес Нибель умирает. Сильнейшая буря поразила его в самое сердце, и теперь его судьба зависит от того, сможет ли маленький герой по имени Ори найти в себе мужество и бросить вызов ужасному врагу. «Ori and the Blind Forest», умопомрачительно прекрасный платформер от студии Moon Studios, повествует о молодом сироте, которому предначертана судьба героя. Нарисованные (   Читать дальше...   )Тип издания: LicenseРазработчик: Moon StudiosЖанр: Arcade (Platform), 3DЯзык озвучки: -/-Язык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0B5F5D923DA44D92E2225146B11E7192917FD84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011375   (796554) от 27.04.2016
-
-Дэдпул / Deadpool (2016) BDRip [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уэйд Уилсон — наёмник. Будучи побочным продуктом программы вооружённых сил под названием «Оружие X», Уилсон приобрёл невероятную силу, проворство и способность к исцелению. Но страшной ценой: его клеточная структура постоянно меняется, а здравомыслие сомнительно. Всё, чего Уилсон хочет, — это держаться на плаву в социальной выгребной яме. Но течение в ней слишком (   Читать дальше...   )Производство: США, Канада / 20th Century Fox Film Corporation, Donners' Company, Kinberg GenreЖанр: фантастика, боевик, комедия, приключенияРежиссер: Тим МиллерАктеры: Райан Рейнольдс, Морена Баккарин, Эд Скрейн, ТиДжей Миллер, Джина Карано, Брианна Хилдебранд, Стефан Капичич, Лесли Уггэмс, Джед Риис, Каран Сони, Майкл Беняер, Стайл Дэйн, Кайл Кэсси, Тэйлор Хиксон, Айзи, Наика Туссэн, Рендал Ридер, Айзек С. Синглтон мл., Джастин Шиппелт, Донна ЯмамотоПеревод: Дублированный (iTunes), Авторский (одноголосый, закадровый) (Гаевский), Любительский (одноголосый, закадровый) (Zamez)Язык субтитров: Русский, Английский, УкраинскийПродолжительность: 01:48:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4C99E816588D5894E09976BD8B9B90D8B105F37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011337   (796552) от 27.04.2016
-
-ESET Smart Security + NOD32 Antivirus 9.0.377.1 Repack by SmokieBlahBlah [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_796552.jpg" />
-</div>
-
-
-###  Подробнее
-
-ESET NOD32 Antivirus - новое антивирусное решение от ESET, предлагающее улучшенный эвристический анализ неизвестных угроз, "облачные" технологии ESET Live Grid для определения репутации файлов и обновленный интерфейс.
-ESET Smart Security - новая версия комплексного антивируса с облачной технологией ESET Live Grid. Решение "все-в-одном" с многоуровневой (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B11B8AE05F9C511D326DF666BA63A515FFCAB2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

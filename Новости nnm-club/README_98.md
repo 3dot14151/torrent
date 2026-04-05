@@ -1,3 +1,29 @@
+###  Публикация: 1021927   (730428) от 31.05.2016
+
+Ученым удалось "размножить" кошку Шредингера
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_730428.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кошка Шредингера - это мысленный эксперимент, который демонстрирует парадокс состояния квантовой суперпозиции на примере понятных нам объектов, с которыми мы сталкиваемся в повседневной жизни. Идея этого эксперимента заключается в том, что живую кошку заключают в коробку, внутри которой находится устройство, содержащее радиоактивный элемент и яд. Если атом радиоактивного (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203050   (730427) от 19.02.2019
 
 Subnautica (2018) [Ru/Multi] (61056) Repack R.G. Catalyst
@@ -6,7 +32,7 @@ Subnautica (2018) [Ru/Multi] (61056) Repack R.G. Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730427.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730427.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_730422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_730422.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Acronis Disk Director 12 Build 12.5.163 RePack by KpoJIuK [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730418.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730323.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730264.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ The Forest (2015) [En] (0.59b) Repack Mr.Weegley
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730235.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Windows 7 Home Premium SP1 (x86/x64) Elgujakviso Edition (v.22.04.17) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730231.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730231.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ Tor Browser Bundle 6.0 Final [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730224.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730210.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730208.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730204.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_730194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730194.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729489.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ Thronebreaker: The Witcher Tales / Кровная вражда: Ведьмак. 
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729447.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729447.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ Microsoft Windows 7 SP1 x86/x64 Ru 9 in 1 Origin-Upd 02.2019 by OVGorskiy® 1DVD
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729445.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ Windows 11 Pro x64 21Н2 (build 22000.469) by ivandubskoj 07.02.2022 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729430.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729430.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729419.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ Sandboxie 5.18 Final [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729363.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_729314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_729314.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_729293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_729293.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ Adobe Audition CC 2017.1 10.1.0.174 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729289.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729197.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729197.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729154.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729131.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ SCAD Office 21.1.1.1 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729129.jpg" />
 </div>
 
 
@@ -647,34 +673,6 @@ SCAD Office - система нового поколения, разработа
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8850910DDC8BA6C27A70D398DF1D15187FD5107
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 323693   (729067) от 18.04.2011
-
-Commandos Антология [Ru] (L) 2011 | R.G. Origins
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_729067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарный отряд коммандос возвращается на поле боя! Все сражения, приключения и битвы в тылу врага собраны на одном диске. Грандиозная игровая серия, которая воплотила мечты миллионов поклонников и положила начало новому жанру тактических стратегий, стала еще доступнее! Повинуясь вашим приказам, бойцы особого подразделения совершат невероятные подвиги, выполнят самые опасные задания и сорвут планы нацистов по достижению мирового господства.
-
-Кроме того, в состав диска входит бонус – стратегии Praetorians и Imperial Glory, снискавшие признание множества игроков по всему миру.Тип издания: ЛицензияЖанр: Action / Strategy (Real-time / Tactical) / IsometricЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0692ED38D801376BFAC8FA1E66C53F69015C43B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

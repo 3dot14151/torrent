@@ -1,3 +1,35 @@
+###  Публикация: 545399   (487553) от 09.09.2012
+
+Ian Gillan - Chercazoo & Other Stories (1972) [MP3|192 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Intro (1:15)
+02.  Cherkazoo (2:10)
+03.  Monster in Paradise (2:34)
+04.  The Bull of Birantis (4:08)
+05.  Intro (2:15)
+06.  Hogwash (2:43)
+07.  Driving Me WildЖанр: RockПродолжительность: 01:04:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:383A30560EE6D97E3EA4B1E766EED0BB14284FC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 545220   (486767) от 09.09.2012
 
 VA - Re-Machined. A Tribute To Deep Purple's Machine Head (2012) [MP3|320 кб/с]<Hard Rock>
@@ -6,7 +38,7 @@ VA - Re-Machined. A Tribute To Deep Purple's Machine Head (2012) [MP3|320 кб/�
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_486767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486767.jpg" />
 </div>
 
 
@@ -41,7 +73,7 @@ Furious Zoo - Back To Blues Rock (2014) [MP3|320 Kbps] <Hard Rock, Blues Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485888.jpg" />
 </div>
 
 
@@ -70,7 +102,7 @@ Tony Mitchell - Church Of A Restless Soul (2020) [MP3|320 Kbps] <Melodic Hard Ro
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_485604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485604.jpg" />
 </div>
 
 
@@ -99,7 +131,7 @@ Unruly Child - Big Blue World (2019) [MP3|320 Kbps] <Melodic Hard Rock, AOR>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484717.jpg" />
 </div>
 
 
@@ -128,7 +160,7 @@ Oceans of Noise (feat. Sertab Erener) - Oceans of Noise (2018) EP [MP3|320 Kbps]
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_484089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484089.jpg" />
 </div>
 
 
@@ -157,7 +189,7 @@ Chemia - Let Me (2015) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481947.jpg" />
 </div>
 
 
@@ -186,7 +218,7 @@ Seven - Shattered (2016) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481889.jpg" />
 </div>
 
 
@@ -215,7 +247,7 @@ Stranded by Choice - Lost by Design (2020) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481483.jpg" />
 </div>
 
 
@@ -244,7 +276,7 @@ Grumpynators - Still Alive (2020) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481351.jpg" />
 </div>
 
 
@@ -273,7 +305,7 @@ Deep Purple - Live In Copenhagen (1972) Reissue, Remastered, 2013, 2xCD [MP3|320
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_481097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481097.jpg" />
 </div>
 
 
@@ -302,7 +334,7 @@ Black Oak County - Black Oak County (2017) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_480049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480049.jpg" />
 </div>
 
 
@@ -331,7 +363,7 @@ Deep Purple - Live On The BBC (2004) SACD Version [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478966.jpg" />
 </div>
 
 
@@ -360,7 +392,7 @@ Slowbone - Tales Of A Crooked Man (1972-74) (1992) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_478858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478858.jpg" />
 </div>
 
 
@@ -395,7 +427,7 @@ Tanna - Storm in Paradise (2020) [MP3|320 Kbps] <Melodic Hard Rock, AOR>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_477480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477480.jpg" />
 </div>
 
 
@@ -424,7 +456,7 @@ Bullet - Full Pull (2012) [MP3|320 кб/с]<Hard N' Heavy>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_476469.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476469.jpg" />
 </div>
 
 
@@ -459,7 +491,7 @@ Martina Edoff - Unity (2015) [MP3|320 кб/с]<Melodic Hard Rock / Melodic Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475600.jpg" />
 </div>
 
 
@@ -488,7 +520,7 @@ Celladoor - Maktub (2020) [MP3|320 Kbps] <Psychedelic Rock, Stoner Rock, Grunge>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473067.jpg" />
 </div>
 
 
@@ -517,7 +549,7 @@ The Atomic Bitchwax - Scorpio (2020) [MP3|320 Kbps] <Stoner, Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_472934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472934.jpg" />
 </div>
 
 
@@ -546,7 +578,7 @@ Sweet - The Best Of... (1997) [MP3|320 кб/с]<Classic Rock & Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471740.jpg" />
 </div>
 
 
@@ -581,7 +613,7 @@ Ugly Kid Joe - Uglier Than They Used Ta Be (2015) [MP3|320 кб/с]<Hard Rock, A
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_471347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471347.jpg" />
 </div>
 
 
@@ -610,7 +642,7 @@ The Hawkins - Silence is a Bomb (2020) [MP3|320 Kbps] <Hard Rock, Rock & Roll, P
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470990.jpg" />
 </div>
 
 
@@ -639,7 +671,7 @@ Devilfire - Black Soul Vendetta (2020) [MP3|320 Kbps] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_470858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470858.jpg" />
 </div>
 
 
@@ -668,7 +700,7 @@ Violet Janine - Queen Of Rock (2020) [MP3|320 Kbps] <Melodic Hard Rock, Female V
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468278.jpg" />
 </div>
 
 
@@ -697,7 +729,7 @@ Joe Perry (Aerosmith) - 2 Альбома (2005-2009) [MP3|320 кб/с]<Hard Rock
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466966.jpg" />
 </div>
 
 
@@ -724,7 +756,7 @@ Dream Child - Until Death Do We Meet Again (2018) Japanese Edition [MP3|320 Kbps
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465648.jpg" />
 </div>
 
 
@@ -738,35 +770,6 @@ Dream Child - Until Death Do We Meet Again (2018) Japanese Edition [MP3|320 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F49B78013F3787A0A55FEE6FB77069FD5AE36BC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407696   (462589) от 09.09.2020
-
-Motion Device - Motion Device IV (2020) [MP3|320 Kbps] <Hard Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_462589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Pill (00:38)
- 02. Blindfold It Away (05:13)
- 03. I'm Still Waiting (04:23)
- 04. No Control (05:05)(   Читать дальше...   )Жанр: Hard Rock, Female VocalПродолжительность: 01:14:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88DC1853AA364FAA686F5494CFFC8289642D48B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 1184496   (301493) от 17.11.2017
+
+Diagrammix 2.15 (3013) [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301493.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инструмент для для построения любых видов диаграмм с минимальными услилиями с вашей стороны. Если вы студент, менеджер или руководитель, то с этим инструментом вы можете составить диаграмму любой сложности легко и просто. Такой инструмент пригодится для иллюстрирования отчетов и при подготовке презентаций. Он поможет вам схематично выразить свои мысли, обнаружить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.11.2017Разработчик: Deep IT ProПоддерживаемая ОС: OS X 10.8 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91B9D6A8DD594AE2D221CF550FCE1D3841ADFA5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333920   (300952) от 26.10.2019
+
+Movavi Video Editor 15.4.1 [Multi/Ru]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300952.jpg" />
+</div>
+
+
+###  Подробнее
+
+Редактор видео для Mac OS от Movavi
+Встречайте лучшую программу для обработки видео на Мак – вам понадобится всего несколько минут, чтобы ее освоить! В Видеоредакторе Movavi есть все, что нужно для быстрого видеомонтажа на Mac, удобной нарезки видео и создания красочных слайд-шоу из фотографий. Просто загрузите фото и видео в программу, исправьте качество одним нажатием (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Movavi Software Limited.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD0C86E6C95EF9A86BEE639AD67C5144635AA523
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261872   (300890) от 12.11.2018
 
 CCleaner Pro 1.15.507 [En]
@@ -6,7 +59,7 @@ CCleaner Pro 1.15.507 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300890.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ GraphicConverter 11 v11.3.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300755.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ Adobe Media Encoder CC 2019 v13.0.1 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300362.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ Infographics 3.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300300.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300300.jpg" />
 </div>
 
 
@@ -115,7 +168,7 @@ FoxTrot Professional Search 5.7 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_300154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300154.jpg" />
 </div>
 
 
@@ -143,7 +196,7 @@ Cisdem PDFCreator 7.1.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_299118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299118.jpg" />
 </div>
 
 
@@ -171,7 +224,7 @@ Cisdem WindowManager 3.2.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298954.jpg" />
 </div>
 
 
@@ -197,7 +250,7 @@ Split Screen 3.12 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298887.jpg" />
 </div>
 
 
@@ -225,7 +278,7 @@ VoodooPad 5 v5.2.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298764.jpg" />
 </div>
 
 
@@ -251,7 +304,7 @@ Orion PDF Author 2 v2.30 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298762.jpg" />
 </div>
 
 
@@ -277,7 +330,7 @@ PDF Expert 1.1.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298722.jpg" />
 </div>
 
 
@@ -306,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298691.jpg" />
 </div>
 
 
@@ -333,7 +386,7 @@ Total Video Tools 1.2.3 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298679.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298679.jpg" />
 </div>
 
 
@@ -361,7 +414,7 @@ Dr. Cleaner Pro 1.2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298617.jpg" />
 </div>
 
 
@@ -389,7 +442,7 @@ Framer Studio v123 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_298523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298523.jpg" />
 </div>
 
 
@@ -417,7 +470,7 @@ Debit & Credit - Учет финансов 2.5.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297433.jpg" />
 </div>
 
 
@@ -443,7 +496,7 @@ Logic Pro  10.6.0 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297342.jpg" />
 </div>
 
 
@@ -469,7 +522,7 @@ ShredIt X 6.2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297022.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297022.jpg" />
 </div>
 
 
@@ -497,7 +550,7 @@ MiniNote Pro 5.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297018.jpg" />
 </div>
 
 
@@ -525,7 +578,7 @@ Touch Forms Pro 7 v7.27.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_297016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297016.jpg" />
 </div>
 
 
@@ -551,7 +604,7 @@ Curio 10.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296991.jpg" />
 </div>
 
 
@@ -578,7 +631,7 @@ PDFPen 11.1.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296927.jpg" />
 </div>
 
 
@@ -604,7 +657,7 @@ Photo Wall - Collage Maker 8.6 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296858.jpg" />
 </div>
 
 
@@ -630,7 +683,7 @@ iExplorer 3.8.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296795.jpg" />
 </div>
 
 
@@ -642,59 +695,6 @@ iExplorer - утилита для (   Читать дальше...   )Тип и
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF098739CB70D8B1BA56A4841A2FFDEE5DD8D651
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262329   (296782) от 14.11.2018
-
-Wondershare Video Converter Ultimate 10.2.0 [Multi]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_296782.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самое быстрое универсальное решение для развлечений с цифровым видео. Скачивайте видео на сверхвысокой скорости одним нажатием мыши! А ещё оцените мощь универсального медиа-плеера, встроенного видео-редактора, интегрированного DVD-привода и многого другого.Тип издания: macOS SoftwareРелиз состоялся: 12.11.2018Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: Mac OS X 10.7 или вышеЯзык интерфейса: Английский, Испанский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06C2052432D8259909B13DDE7AD3ABCB0237CA2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079054   (295982) от 03.12.2016
-
-Priime Styles 1.2 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_295982.jpg" />
-</div>
-
-
-###  Подробнее
-
-Применить профессиональные пресеты, созданные и используемые лучшими в мире современными фотографами.
-Priime обладает более чем 100 фотографическими стилям (также известные как предварительные настройки или фильтры), которые создаются в сотрудничестве с ведущими фотографами мира в форме их фотографических стилей. Работает, не требуя каких-либо других программ, чтобы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01 декабря 2016Разработчик: Priime, Inc.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F6F43A392ECE8F76C023D92071DC48BCB56DA2D
 ```
 
 https://mybot314.ru/tekegram_catalog/

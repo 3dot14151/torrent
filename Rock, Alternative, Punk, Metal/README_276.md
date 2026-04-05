@@ -1,3 +1,145 @@
+###  Публикация: 1504891   (806380) от 26.10.2021
+
+Pink Floyd - The Piper at the Gates of Dawn (1967) Remastered 2011, Pink Floyd Records [FLAC 2.0|192/24|WEB-DL|tracks] <Psychedelic rock, Experimental rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Astronomy Domine (4:12)
+02. Lucifer Sam (3:07)
+03. Matilda Mother (3:08)
+04. Flaming (2:46)(   Читать дальше...   )Жанр: Psychedelic rock, Experimental rockПродолжительность: 00:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:757D9C246C7478D9AD854B611395A5127B561C8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198590   (806365) от 12.01.2018
+
+Сруб - Скорбь (2018) [MP3|320 Kbps] <Post-Punk, Dark Folk, Occult Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806365.jpg" />
+</div>
+
+
+###  Подробнее
+
+"...Когда я возвратился, в маленьком доме царила мертвая тишина, покойник, по русскому обычаю, лежал на столе в зале, поодаль сидел живописец Рабус, его приятель, и карандашом, сквозь слёз, снимал его портрет; возле покойника молча, сложа руки, с выражением бесконечной грусти, стояла высокая женская фигура; ни один артист не сумел бы изваять такую благородную (   Читать дальше...   )01. По Ягоды
+02. Вспять
+03. В чаще, где пал крест
+04. Храни(   Читать дальше...   )Жанр: Post-Punk, Dark Folk, Occult PunkПродолжительность: 00:41:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAA100D633261FDDF82EB4E22F7B0F5601E84C3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198620   (806361) от 12.01.2018
+
+Black Rebel Motorcycle Club - Wrong Creatures (2018) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Garage Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DFF (01:54)
+02. Spook (03:45)
+03. King Of Bones (03:56)
+04. Haunt (05:50)(   Читать дальше...   )Жанр: Blues Rock, Garage Rock, Indie RockПродолжительность: 00:59:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C0BEC71296A1E0A1B65DF401F64F5EED1BCE6A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198592   (806360) от 12.01.2018
+
+7Б - 13 декабрь (2018) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806360.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 13 декабрьЖанр: RockПродолжительность: 00:03:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1CB87752BD3AC063C50A0ED8FA7900E83654E1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384178   (806352) от 18.05.2020
+
+Taurus 5 - Taurus 5 (1980) LP [MP3|320 Kbps] <Hard Rock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Haine Des Gens (4:56)
+02. La Fille Du Diable (3:56)
+03. Toujours Ce Meme Reve (3:43)
+04. Quand Je Te Vois (5:03)(   Читать дальше...   )Жанр: Hard Rock, Prog RockПродолжительность: 00:34:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ADF2985896D01B4DBD7BA39944B5EA092D1E4BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1505194   (806317) от 26.10.2021
 
 Кипелов - Жить Вопреки (2011) [FLAC|Lossless|image + .cue] <Heavy Metal>
@@ -6,7 +148,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806317.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806317.jpg" />
 </div>
 
 
@@ -35,7 +177,7 @@ Pink Floyd - Obscured by Clouds (1972) Remastered 2011, Pink Floyd Records [FLAC
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806316.jpg" />
 </div>
 
 
@@ -64,7 +206,7 @@ Pink Floyd - Meddle (1971) Remastered 2011, Pink Floyd Records [FLAC 2.0|192/24|
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806307.jpg" />
 </div>
 
 
@@ -93,7 +235,7 @@ Dream Theater - A View from the Top of the World (2021) 2xCD, Limited Edition [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806306.jpg" />
 </div>
 
 
@@ -122,7 +264,7 @@ Ozzy Osbourne - Blizzard Of Ozz (1980) 40th Anniversary Expanded Edition, 2020, 
 >>Metal (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806303.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806303.jpg" />
 </div>
 
 
@@ -151,7 +293,7 @@ Nothing More - Nothing More (2013) Deluxe Edition [MP3|320 Kbps] <Alternative Ro
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806286.jpg" />
 </div>
 
 
@@ -180,7 +322,7 @@ Nothing More - The Stories We Tell Ourselves (2017) [MP3|320 Kbps] <Alternative 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806278.jpg" />
 </div>
 
 
@@ -209,7 +351,7 @@ Pink Floyd - The Final Cut (1983) Reissue 2016, Pink Floyd Records [FLAC 2.0|192
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806256.jpg" />
 </div>
 
 
@@ -238,7 +380,7 @@ Pink Floyd - A Collection Of Great Dance Songs (1981) Remastered 2001, Pink Floy
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806255.jpg" />
 </div>
 
 
@@ -267,7 +409,7 @@ Pink Floyd - A Momentary Lapse Of Reason (1987) 2019 Remix, Reissue, 2021, Rhino
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806248.jpg" />
 </div>
 
 
@@ -296,7 +438,7 @@ Pink Floyd - Animals (1977) remastered 2011, reissue 2021 [FLAC 2.0|192/24|track
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806243.jpg" />
 </div>
 
 
@@ -325,7 +467,7 @@ Pink Floyd - Atom Heart Mother (1970) Reissue, 2016, Pink Floyd Records [FLAC 2.
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806239.jpg" />
 </div>
 
 
@@ -354,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806238.jpg" />
 </div>
 
 
@@ -380,7 +522,7 @@ Joe Satriani - What Happens Next (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock, Ins
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806194.jpg" />
 </div>
 
 
@@ -409,7 +551,7 @@ Pink Floyd - A Foot in the Door: The Best Of Pink Floyd (2011) Remastered Versio
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806156.jpg" />
 </div>
 
 
@@ -438,7 +580,7 @@ Mark Knopfler - The Studio Albums 1996-2007 (2021) 6CD box-set, Reissue, Remaste
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806147.jpg" />
 </div>
 
 
@@ -467,7 +609,7 @@ The Georgia Thunderbolts - Can We Get A witness (2021) [FLAC 2.0|96/24|WEB-DL|t
 >>Hard Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806145.jpg" />
 </div>
 
 
@@ -496,7 +638,7 @@ Pink Floyd - The Dark Side of the Moon (1973) Remastered 2011, Pink Floyd Record
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806137.jpg" />
 </div>
 
 
@@ -525,7 +667,7 @@ Striker - Striker (2017) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806067.jpg" />
 </div>
 
 
@@ -554,7 +696,7 @@ Pink Floyd - The Wall (1979) 2CD, remastered 2011, reissue 2021 [FLAC 2.0|96/24|
 >>Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_806008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806008.jpg" />
 </div>
 
 
@@ -583,7 +725,7 @@ Jaded Heart - Guilty by Design (2016) [MP3|320 кб/с] <Hard Rock, Hard 'n' Hea
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805996.jpg" />
 </div>
 
 
@@ -597,150 +739,6 @@ Jaded Heart - Guilty by Design (2016) [MP3|320 кб/с] <Hard Rock, Hard 'n' Hea
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:361926DD599C0857B89B7B2E9E46F3A194195620
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010066   (805984) от 23.04.2016
-
-Ангел НеБес - Идиотрока. Том II (2016) [MP3|320 кб/с] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пролог: На рассвете
-02. Только не это
-03. З.И.М.А.
-04. Не сколько(   Читать дальше...   )Жанр: RockПродолжительность: 01:01:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A0F96359617ABD949113E41C6F4E1E56D89B051
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010055   (805981) от 23.04.2016
-
-Phil Collins - Testify (2002) 2CD Deluxe Edition, 2016, Atlantic [FLAC|Lossless|image + .cue] <Soft Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wake Up Call (5:16)
-02. Come With Me (4:34)
-03. Testify (6:32)
-04. Don't Get Me Started (4:41)(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 01:44:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8809ED7BCB50C85BB2700E1BDAF6A3B15071213B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010044   (805979) от 23.04.2016
-
-Phil Collins - No Jacket Required (1985) 2CD Deluxe Edition, 2016, Atlantic [FLAC|Lossless|image + .cue] <Soft Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sussudio (4:24)
-02. Only You Know And I Know (4:21)
-03. Long Long Way To Go (4:23)
-04. I Don't Wanna Know (4:15)(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 02:01:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63245F5D12E91502FB9D47C1404A35C62A797511
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010087   (805851) от 23.04.2016
-
-Ин Тим - Стриптиз (2016) [MP3|320 кб/с] <Rockabilly, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805851.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Стриптиз (03:50)
-02. Дубровский (03:13)
-03. Насос (03:43)
-04. В роли невесты (03:59)(   Читать дальше...   )Жанр: Rockabilly, Blues RockПродолжительность: 00:41:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6440E36AA2839C023807C60D87F66023D19108E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009747   (805558) от 23.04.2016
-
-Rainbow - The Singles Box Set 1975-1986 (2014) 19CD, Compilation, Limited Edition, ReMastered [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Girl (4:53)
-02. Spotlight Kid (Live At Budokan, Tokyo) (6:02)
-03. Man On The Silver Mountain (Live) (8:17)Жанр: Hard RockПродолжительность: 03:14:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD6825ECF6EAFAB4D5648165FEC75BF21D370993
 ```
 
 https://mybot314.ru/tekegram_catalog/

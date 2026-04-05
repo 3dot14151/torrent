@@ -1,3 +1,217 @@
+###  Публикация: 269888   (28002) от 11.02.2025
+
+S.T.A.L.K.E.R. Антология (2007-2009) [Ru] (1.0006/1.5.10/1.6.02) License
+
+>>3
+>>35
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие игры "S.T.A.L.K.E.R.: Зов Припяти" разворачивается после окончания событий игры "S.T.A.L.K.E.R." и уничтожения Стрелком проекта "О-Сознание".
+
+Узнав об открытии дороги к центру Зоны, правительство решает провести крупномасштабную военную операцию по взятию ЧАЭС под свой контроль. Операция получает кодовое название "Фарватер". (   Читать дальше...   )Тип издания: ЛицензияРазработчик: GSC Game WorldЖанр: Action (Shooter) / Add-on / 3D / 1st PersonЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFA19A4E9F7C0E1842EBDC5876C402DDA8D6E23F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779005   (27991) от 11.02.2025
+
+ИИ  DeepMind обыграл золотых медалистов математической олимпиады
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27991.jpg" />
+</div>
+
+
+###  Подробнее
+
+Google DeepMind разработала систему искусственного интеллекта AlphaGeometry2, которая превзошла лучших студентов-математиков в решении задач по геометрии Международной математической олимпиады (IMO).ИИ решил 84% геометрических задач IMO за последние 25 лет, превысив средний результат золотого медалиста.AlphaGeometry2 использует смесь ИИ Gemini от Google и движка, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 384385   (27905) от 12.02.2025
+
+Kenny Wayne Shepherd - 13 Albums (1995 - 2024) 15 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Blues Rock>
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кенни Уэйн Шеппард (англ. Kenny Wayne Shepherd; 12 июня 1977, Шривпорт) - американский блюзовый гитарист, певец, автор песен. Он вышел на сцену нью-орлеанского фестиваля уже в 13 лет. Отец-продюсер прочил сыну карьеру юриста, но Кенни Уэйн спустя год уже гастролировал со своей группой, а в 18 лет записал дебютный альбом "Ledbetter Heights", который имел (   Читать дальше...   )Список альбомов:
+1995 - Ledbetter Heights
+1997 - Trouble Is
+1999 - Live OnЖанр: Blues RockПродолжительность: 14:30:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79468B556F5199A9DF729BD56AF1B04707A786A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779224   (27899) от 12.02.2025
+
+Windows 11 24in1 (incl. LTSC) +/- Office 2024 by SmokieBlahBlah 2025.02.12 [Ru/En]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27899.jpg" />
+</div>
+
+
+###  Подробнее
+
+6 редакций Windows 11 (русские и английские) с обновлениями по февраль 2025, основанных на оригинальном русском дистрибутиве и интегрированными системными библиотеками
++6 таких же редакций со встроенным MS Office LTSC 2024 Pro Plus (можно выбрать, ставить ли Office. Галочка перед началом установки.) Язык офиса зависит от выбранного языка ОС. Файлы Office вынесены (   Читать дальше...   )Язык интерфейса: русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43D9530F4F275E44306B48C132F1556EA526D4CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760658   (27897) от 12.02.2025
+
+Укрытие / Бункер / Silo (2024) WEB-DL [H.264/1080p] (сезон 2, серии 1-10 из 10) HDrezka, TVShows, LostFilm, NewComers, Red Head Sound, 1WinStudio, LE-Production
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во 2-м сезоне сериала «Укрытие» инженер Джульетта продолжает свое опасное расследование. В то время как жалкие остатки человечества ютятся в подземном бункере, спасаясь от токсичных последствий утраченной цивилизации, героиня пытается найти новые свидетельства гибели своего возлюбленного. Однако открытия Джульетты неожиданно затрагивают не только ее личную жизнь, (   Читать дальше...   )Производство: США / AMC StudiosЖанр: фантастика, драма, триллерРежиссер: Адам Бернштейн, Берт, Мортен ТильдумАктеры: Ребекка Фергюсон, Коммон, Харриет Уолтер, Тим Роббинс, Чиназа Уче, Ави Наш, Ремми Милнер, Билли Постлетуэйт, Шэйн МакРей, Рик ГомесПеревод: Многоголосый (HDrezka, TVShows, LostFilm, NewComers, Red Head Sound, 1WinStudio, LE-Production)Язык озвучки: русский, английскийСубтитры: русские (Forced, Full), английские (Full, SDH) и другиеПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:606EA6C2451813BC5DD87D2BB5915688E4E8829F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779082   (27884) от 12.02.2025
+
+Загородившему проезд водителю теперь можно написать на «Госуслугах». С ним предлагают связаться по госномеру
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27884.jpg" />
+</div>
+
+
+###  Подробнее
+
+На портале «Госуслуги» появилась функция анонимной связи с водителями. Пользователи сервиса начали получать уведомления о соответствующем обновлении сегодня, 11 февраля.Новая функция позволяет связаться с автовладельцем по регистрационному номеру его автомобиля. Можно сообщить, к примеру, что его авто загораживает проезд, об эвакуации транспортного средства, ДТП, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779163   (27802) от 13.02.2025
+
+В России полностью запретят вывески и названия на иностранных языках
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дума в первом чтении поддержала законопроект, которым предлагается запретить coffee и sale, но сохранить вайфай. Ко второму чтению депутаты обещали существенно его доработатьДепутаты Госдумы на заседании во вторник практически единогласно поддержали законопроект о защите русского языка — «за» проголосовали 417 человек, один воздержался (трансляция заседания велась (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694262   (27800) от 13.02.2025
+
+Интерстеллар / Interstellar (2014) BDRip [AV1/2160p] [4K, SDR, 10-bit] [IMAX Edition] [hand made Upscale AI]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда засуха приводит человечество к продовольственному кризису, коллектив исследователей и учёных отправляется сквозь червоточину (которая предположительно соединяет области пространства-времени через большое расстояние) в путешествие, чтобы превзойти прежние ограничения для космических путешествий человека и переселить человечество на другую планету.Производство: США, Великобритания / Warner Bros. Pictures, Legendary PicturesЖанр: фантастика, драма, приключенияРежиссер: Кристофер НоланАктеры: Мэттью МакКонахи, Энн Хэтэуэй, Кейси Аффлек, Маккензи Фой, Майкл Кейн, Дэвид Гяси, Уэс Бентли, Джессика Честейн, Джон Литгоу, Мэтт ДэймонПеревод: Дублированный (Blu-ray CEE)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:49:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CDA6704888D410970D94D5B8358E25CB52975BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1779068   (27798) от 13.02.2025
 
 Процессоры Intel перестали покупать почти полностью
@@ -6,7 +220,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27798.jpg" />
 </div>
 
 
@@ -32,7 +246,7 @@ Half-Life 2 (2004) [Ru/Multi] (Build 17324696/dlc) Repack Let'sРlay [20th Anniv
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27794.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27794.jpg" />
 </div>
 
 
@@ -58,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27792.jpg" />
 </div>
 
 
@@ -84,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27787.jpg" />
 </div>
 
 
@@ -110,7 +324,7 @@ Windows 10 Pro/Ent LTSC by OneSmiLe 22H2 build 19045.5487 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27700.jpg" />
 </div>
 
 
@@ -139,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27697.jpg" />
 </div>
 
 
@@ -165,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27688.jpg" />
 </div>
 
 
@@ -191,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27596.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27596.jpg" />
 </div>
 
 
@@ -217,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27595.jpg" />
 </div>
 
 
@@ -243,7 +457,7 @@ Launcher for zapret 1.9 [Ru]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27586.jpg" />
 </div>
 
 
@@ -271,7 +485,7 @@ Windows 10 x64 20in1 (incl. LTSC) +/- Office 2024 x64 by SmokieBlahBlah 2025.02.
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27585.jpg" />
 </div>
 
 
@@ -298,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27584.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27584.jpg" />
 </div>
 
 
@@ -324,7 +538,7 @@ Battery Mode 4.3.2.204 [Multi/Ru] (Авторская раздача обнов�
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27582.jpg" />
 </div>
 
 
@@ -350,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27493.jpg" />
 </div>
 
 
@@ -376,7 +590,7 @@ AliExpress проигнорировал снижение курса доллар
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27485.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27485.jpg" />
 </div>
 
 
@@ -402,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27477.jpg" />
 </div>
 
 
@@ -428,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27380.jpg" />
 </div>
 
 
@@ -454,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27373.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27373.jpg" />
 </div>
 
 
@@ -465,214 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA9381402DA74CECA664ACE9C9638850AD2E37AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 109019   (27267) от 18.02.2025
-
-Diablo Антология (1996-2001) [Ru/En] (1.9b/1.0.1/1.11b) Unofficial
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27267.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эту игру многие не без основания считают самой популярной ролевой игрой современности. Игрой, установившей новые законы жанра, перевернувшей представления о коллективных играх и установившей стандарт игры через интернет. Diablo II игра достаточно простая, чтобы в нее было легко втянуться практически любому игроку и столь захватывающая и разнообразная, что играть (   Читать дальше...   )Тип издания: UnofficialРазработчик: Blizzard EntertainmentЖанр: RPGЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D372B0F0E93B1C7E0FC3D9C83F6730D4E3933FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780095   (27248) от 18.02.2025
-
-Американский лунный модуль компании Firefly Aerospace вышел на орбиту Луны
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27248.jpg" />
-</div>
-
-
-###  Подробнее
-
-Техасский стартап Firefly Aerospace, (в становлении и развитии которого принял активное участие украинский бизнесмен Максим Поляков), сообщил о выходе посадочного модуля Blue Ghost на орбиту Луны. Для этого было произведено торможение, что потребовало запустить двигатели на четыре минуты. Спуск на поверхность планируется 2 марта. Для США, чьи модули не спускались (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780347   (27177) от 19.02.2025
-
-Как должны были называться известные книги, если бы авторы не одумались в последний момент?
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пока над романом кипит работа, писатель часто дает ему рабочее название. Да еще и меняет его по ходу дела. А бывает и так, что он вовсе не считает это название рабочим, собирается издавать книгу именно с ним на обложке, но издатель встает на дыбы. Мол, никуда не годится, читатель не оценит и не поймет, приходится идти на компромисс и придумывать что-то новенькое. (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779998   (27171) от 19.02.2025
-
-Ущелье / The Gorge (2025) WEB-DL [H.265/2160p] [4K, SDR, 10-bit]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27171.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двое снайперов из элитных спецотрядов выполняют загадочную и опасную миссию. Им поручено охранять разные стороны глубокого, непроходимого ущелья. При этом никто из них не догадывается, что находится на дне. В этих суровых, смертельно опасных условиях двое находят друг в друге родственную душу.Производство: Великобритания, США / Crooked Highway, Lit Entertainment Group, Skydance Productions, Transportation ResourcesЖанр: ужасы, фантастика, боевик, мелодрама, приключенияРежиссер: Скотт ДерриксонАктеры: Майлз Теллер, Аня Тейлор-Джой, Сигурни Уивер, Сопе Дирису, Уильям Хьюстон, Кобна Холдбрук-Смит, Джеймс Марлоу, Julianna Kurokawa, Рута Гедминтас, Оливер ТревенаПеревод: Дублированный (Red Head Sound), Многоголосый (HDRezka, LE-Production)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Forced, Full, SDH)Продолжительность: 02:07:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E62E4ECCCBBC473016B659678CA607C4EF9ABDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779832   (27164) от 19.02.2025
-
-Ущелье / The Gorge (2025) WEB-DL [H.265/2160p] [4K, HDR10+, Dolby Vision Profile 8.1, 10-bit]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27164.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двое снайперов из элитных спецотрядов выполняют загадочную и опасную миссию. Им поручено охранять разные стороны глубокого, непроходимого ущелья. При этом никто из них не догадывается, что находится на дне. В этих суровых, смертельно опасных условиях двое находят друг в друге родственную душу.Производство: Великобритания, США / Crooked Highway, Lit Entertainment Group, Skydance Productions, Transportation ResourcesЖанр: ужасы, фантастика, боевик, мелодрама, приключенияРежиссер: Скотт ДерриксонАктеры: Майлз Теллер, Аня Тейлор-Джой, Сигурни Уивер, Сопе Дирису, Уильям Хьюстон, Кобна Холдбрук-Смит, Джеймс Марлоу, Julianna Kurokawa, Рута Гедминтас, Оливер ТревенаПеревод: Дублированный (Red Head Sound)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Forced, Full, SDH)Продолжительность: 02:07:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:215206A3895EDD471BA38E9F68758961F9DA5B90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779717   (27162) от 19.02.2025
-
-Ущелье / The Gorge (2025) WEB-DL [H.264/1080p]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двое снайперов из элитных спецотрядов выполняют загадочную и опасную миссию. Им поручено охранять разные стороны глубокого, непроходимого ущелья. При этом никто из них не догадывается, что находится на дне. В этих суровых, смертельно опасных условиях двое находят друг в друге родственную душу.Производство: Великобритания, США / Crooked Highway, Lit Entertainment Group, Skydance Productions, Transportation ResourcesЖанр: ужасы, фантастика, боевик, мелодрама, приключенияРежиссер: Скотт ДерриксонАктеры: Майлз Теллер, Аня Тейлор-Джой, Сигурни Уивер, Сопе Дирису, Уильям Хьюстон, Кобна Холдбрук-Смит, Джеймс Марлоу, Julianna Kurokawa, Рута Гедминтас, Оливер ТревенаПеревод: Дублированный (Red Head Sound)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Forced, Full, SDH)Продолжительность: 02:07:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AAF2B583F48AF1494CC534E86D3180DD221FDC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780565   (27142) от 19.02.2025
-
-Nvidia сломала PhysX во множестве старых игр на новых видеокартах 50-й серии
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеокарты GeForce RTX 50-й серии лишились поддержки физического движка PhysX в 32-битных играх, и Nvidia, похоже, не собирается это исправлять. При запуске до сих пор весьма популярной игры Borderlands 2 на карте RTX 50, движок PhysX использует центральный, а не графический процессор, что приводит к проблемам с производительностью. Nvidia назвала это «ожидаемым (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780449   (27109) от 19.02.2025
-
-Очередное достижение: 4000 релизов от Russian Mafia!!
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27109.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередное достижение: 4000 релизов от Russian Mafia!!Уважаемые одноклубники, в преддверии Дня Защитника Отечества рада сообщить Вам о возможности поздравить нашего товарища и активного релизера фильмов, сериалов и мультфильмов с преодолением очередного рубежа в  4000 релизов!! Такими темпами следующая круглая цифра должна быть к Новому Году!! ❄️ Так (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

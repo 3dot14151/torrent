@@ -1,3 +1,56 @@
+###  Публикация: 1695632   (120136) от 30.01.2024
+
+HitPaw Edimakor (Video Editor) for Mac 2.6.0 [Multi/Ru]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120136.jpg" />
+</div>
+
+
+###  Подробнее
+
+HitPaw Video Editor — это простое в освоении программное обеспечение для редактирования видео с необходимыми вам функциями. Помимо некоторых базовых работ по редактированию видео, оно может еще многое сделать. Приложение способно решать множество задач, таких как редактирование видео, объединение видео, обрезка видео и так далее.
+Чтобы ваше видео отличалось от других, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.01.2024Разработчик: © 2024 HitPawПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F504F67672A9F97BD8C1C4B95AAADEEF30DEA19E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695841   (120111) от 30.01.2024
+
+AudKit Spotify Music Converter for Mac 2.5.0 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120111.jpg" />
+</div>
+
+
+###  Подробнее
+
+Без потерь конвертируйте и загружайте треки и плейлисты Spotify для прослушивания в автономном режиме на любом устройстве. AudKit Spotify Converter поддерживает преобразование списка воспроизведения Spotify в MP3, AAC, M4A, M4B, WAV, FLAC и другие распространенные аудиоформаты.Тип издания: macOS SoftwareРазработчик: © 2023 AudKitЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0515DFE639E92CE6D4167DF29D31571B2DFE0EEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695872   (120092) от 30.01.2024
 
 Amadeus Pro 2.8.13 [Multi]
@@ -6,7 +59,7 @@ Amadeus Pro 2.8.13 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120092.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Folder Hub for Mac 1.8.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120087.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ AudFree Spotify Music Converter for Mac 2.11.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120086.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ ABBYY FineReader PDF for Mac 15.2.14 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120055.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ Imagenomic Professional Plugin Suite For Adobe Photoshop 2024 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120028.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ Bartender 5 v.5.0.50 beta [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120016.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ Native Instruments Traktor Pro Plus 3 for Mac v.3.11.1.17  [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119997.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ coconutBattery 3 Plus for Mac 3.9.15 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119988.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ JetBrains GoLand for Mac 2023.2.3 Intel/ARM  [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119973.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ Cycling'74 Max 8.6.0 + RNBO U2B [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119961.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ Imagenomic Noiseware for PS (Mac) 6.0.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119953.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ CopyQueue Evaluation for Mac 3.1E [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119916.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ iStat Menus 6 v.6.73 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119891.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ SwitchResX 4.13.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119802.jpg" />
 </div>
 
 
@@ -377,7 +430,7 @@ OmniFocus Pro 4.0.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119793.jpg" />
 </div>
 
 
@@ -404,7 +457,7 @@ My PaintBrush Pro 2.4.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119790.jpg" />
 </div>
 
 
@@ -430,7 +483,7 @@ LuLu 2.6.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119656.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119656.jpg" />
 </div>
 
 
@@ -456,7 +509,7 @@ AnyMP4 Audio Converter for Mac 8.2.20 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119616.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119616.jpg" />
 </div>
 
 
@@ -482,7 +535,7 @@ HitPaw Photo AI for Mac 3.1.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119533.jpg" />
 </div>
 
 
@@ -509,7 +562,7 @@ HitPaw Watermark Remover for Mac 2.4.4 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119514.jpg" />
 </div>
 
 
@@ -535,7 +588,7 @@ dBpoweramp Music Converter 2024-02-01 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119504.jpg" />
 </div>
 
 
@@ -561,7 +614,7 @@ PowerPhotos 2.5.6 U2B [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119446.jpg" />
 </div>
 
 
@@ -587,7 +640,7 @@ XMind Pro 2024 24.03 beta [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119154.jpg" />
 </div>
 
 
@@ -613,7 +666,7 @@ Tipard DVD Creator for Mac 3.2.50 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119101.jpg" />
 </div>
 
 
@@ -626,59 +679,6 @@ Tipard DVD Creator для Mac позволяет записывать любые
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C2227EC8E51068A492A66FE5CA52444DCB0B707
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698175   (118663) от 08.02.2024
-
-iToolab UnlockGo (Android) for Mac 7.6.0 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118663.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обход FRP для Samsung/Mi/vivo/OPPO. Главный ключ блокировки экрана Android. Вы застряли на проверке учетной записи Google после сброса настроек Samsung? Вас просят указать неизвестный предыдущий PIN-код или шаблон для проверки? Вы боретесь с отключенными продавцами и блокировкой FRP? Не принимайте близко к сердцу.
-UnlockGo (Android), мощный инструмент для снятия (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.01.2024Разработчик: © 2024 iToolabПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5F9854B44945B343AB35B7890E9311F10F825DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698241   (118653) от 08.02.2024
-
-JetBrains DataGrip for Mac 2023.3.4 Intel/ARM [En]
-
->>Программы для macOS
->>CAD, 3D, ПО для специалистов для macOS
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118653.jpg" />
-</div>
-
-
-###  Подробнее
-
-JetBrains DataGrip – новейшее программное обеспечение, представляющее собой функциональный пакет инструментов для работы с базами Oracle, SQL Server, MySQL, Sybase, HyperSQL, DB2, SQLite и т.д. Продукт с мультикурсорным текстовым редактором, синтаксически выделяет код, поддерживает работу с контролирующими системами для Subversion, Git и т.д. Генерация кода, работа (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.01.2024Разработчик: © 2000-2024 JetBrains s.r.o.Поддерживаемая ОС: macOS 10.15 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B875152CC6D8F985E695112C7C9B5BCAE1A678D
 ```
 
 https://mybot314.ru/tekegram_catalog/

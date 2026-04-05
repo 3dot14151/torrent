@@ -1,29 +1,3 @@
-###  Публикация: 1615160   (206537) от 24.02.2023
-
-Udemy, Eric Roby | FastAPI - The Complete Course (Beginner + Advanced) (2022) WEB-DL [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206537.jpg" />
-</div>
-
-
-###  Подробнее
-
-FastAPI — The Complete Course 2022 (Beginner + Advanced) — это учебный курс RESTful API с языком программирования Python и фреймворком FastAPI, опубликованный Udemy Academy. В этом учебном курсе, помимо Python и платформы FastAPI, вы узнаете о SQLAlchemy, протоколе OAuth, а также о том, как получить доступ и авторизовать пользователей, JWT или JSON Web Token и многое (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 17:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66E726FFD172A32204283A23E94E85DEFB27F52E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1615142   (206533) от 24.02.2023
 
 Udemy, Catalin Stefan | Complete FastAPI masterclass from scratch (2022) WEB-DL [EN / EN Sub]
@@ -32,7 +6,7 @@ Udemy, Catalin Stefan | Complete FastAPI masterclass from scratch (2022) WEB-DL 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206533.jpg" />
 </div>
 
 
@@ -58,7 +32,7 @@ Udemy, Ashutosh Pawar | Django 4 Masterclass 2022: From Development To Deploymen
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206437.jpg" />
 </div>
 
 
@@ -86,7 +60,7 @@ Udemy, Imran Teli | DevOps Beginners to Advanced | Decoding DevOps with Projects
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206410.jpg" />
 </div>
 
 
@@ -112,7 +86,7 @@ Udemy, StudyEasy Organisation, Chaand Sheikh | Full Stack Java-разработ�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_206385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206385.jpg" />
 </div>
 
 
@@ -138,7 +112,7 @@ Udemy, Bo Andersen | Complete Guide to Elasticsearch (2022) WEB-DL [EN / EN Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205985.jpg" />
 </div>
 
 
@@ -164,7 +138,7 @@ CodeWithMosh, Mosh Hamedani | The Ultimate C++ Series (2022) WEB-DL [Part 1-3] [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205826.jpg" />
 </div>
 
 
@@ -193,7 +167,7 @@ Global Digital Space, Алексей Лукацкий | Как обеспечи�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205540.jpg" />
 </div>
 
 
@@ -222,7 +196,7 @@ Udemy, Ben Tristem, Sam Pattuzzi | Unreal Engine Blueprint Game Developer: Learn
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205443.jpg" />
 </div>
 
 
@@ -250,7 +224,7 @@ Udemy, Grim Future Studio | Unreal Engine - базовый курс №2. От �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_205306.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205306.jpg" />
 </div>
 
 
@@ -279,7 +253,7 @@ Zero To Mastery Academy (ZTM), Daniel Bourke | PyTorch for Deep Learning (2022) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_205109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205109.jpg" />
 </div>
 
 
@@ -306,7 +280,7 @@ O’Reilly, Valaxy Technologies | DevOps Complete Course (2022) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204927.jpg" />
 </div>
 
 
@@ -334,7 +308,7 @@ Adrian Cantrill | AWS Certified Solutions Architect - Professional (2022) WEB-DL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204764.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204764.jpg" />
 </div>
 
 
@@ -362,7 +336,7 @@ Udemy, GameDev.tv Team, Ben Tristem и др. | RPG Core Combat Creator: Learn In
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204654.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204654.jpg" />
 </div>
 
 
@@ -389,7 +363,7 @@ Udemy, Kevin Nguyen | JavaScript & LeetCode | The Interview Bootcamp (2019) WEB-
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204594.jpg" />
 </div>
 
 
@@ -416,7 +390,7 @@ Udemy, Piotr Jura | Master NestJS - The JavaScript Node.js Framework (2022) WEB-
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204567.jpg" />
 </div>
 
 
@@ -442,7 +416,7 @@ Frontendmasters, Steve Kinney | React Performance (2022) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204528.jpg" />
 </div>
 
 
@@ -468,7 +442,7 @@ ardanlabs.com, Miki Tebeka | Practical Go Foundations (2022) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204521.jpg" />
 </div>
 
 
@@ -494,7 +468,7 @@ Udemy, iwayQ Technology | Project in DevOps: Jenkins CI/CD for Kubernetes Deploy
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204513.jpg" />
 </div>
 
 
@@ -521,7 +495,7 @@ Udemy, Laith Harb | Docker and Kubernetes - The Complete Developers Guide (2022)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204497.jpg" />
 </div>
 
 
@@ -547,7 +521,7 @@ amigoscode, Mama Samba Braima | Docker for DevOps Engineers (2022) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204492.jpg" />
 </div>
 
 
@@ -574,7 +548,7 @@ Udemy, AR Shankar | Valaxy Technologies | DevOps Project - 2022: CI/CD with Jenk
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204476.jpg" />
 </div>
 
 
@@ -602,7 +576,7 @@ Ryan Laley Games, Ryan Laley | Unreal Engine Tutorials  (2019-2023) WEBRip [EN /
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204460.jpg" />
 </div>
 
 
@@ -630,7 +604,7 @@ Dmitri Nesteruk | Паттерны проектирования C# и .NET (2021
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204253.jpg" />
 </div>
 
 
@@ -659,7 +633,7 @@ Podlodka Crew | PHP Crew #1 (2022) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204036.jpg" />
 </div>
 
 
@@ -687,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_204004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204004.jpg" />
 </div>
 
 
@@ -699,6 +673,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:060524CFC44D5B2AAE16E77506DE73C300242BE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604818   (204001) от 15.01.2023
+
+ЯЮниор, Роман Сакутин, Валентин Кравченко | C# c 0 до профи (2022) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полный курс C# от ЯЮниор, таймкоды онлайн-версии и перечень тем:
+00:00:00 - Предисловие от Романа Сакутина
+00:02:27 - Введение в программирование
+00:05:15 - Установка Visual Studio бесплатно(   Читать дальше...   )Производство: ЯЮниорЖанр: Программирование, C#Язык озвучки: РусскийПродолжительность: 09:19:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:572985A62F88231D848A93B41B1ED813967B8CD0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1215783   (756509) от 27.03.2018
+
+VA - A State Of Trance Episode 850 – Ultra Music Festival, Miami (2018) [MP3|~256 - 320 Kbps] <Trance,Progressive Trance,House,Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fernando Olaya – Coffee With U (Pacco & Rudy B Remix)
+02. A.M.R. – Uncharted
+03. Hello Machines – Air
+04. Quivver – A Higher State(   Читать дальше...   )Жанр: Trance,Progressive Trance,House,Progressive HouseПродолжительность: 11:53:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FC62BB2CA62B7CB506E1D917A514038B5D7B6E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215644   (756478) от 27.03.2018
+
+DJ Krush - Cosmic Yard (2018) Es.U.Es Corporation [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Breakbeat, Trip Hop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Regulus (03:49)
+02. Stellar Wind (03:21)
+03. Divine Protection (feat. 渥美幸裕) (04:18)
+04. Asterism (Interlude) (01:37)(   Читать дальше...   )Жанр: Downtempo, Breakbeat, Trip HopПродолжительность: 00:47:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30CAB3F06285BA56ED1E64A19C310835E79B5DD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 799788   (756446) от 27.03.2018
 
 First Rebirth - Discography 4 Releases (2009-2017) [FLAC|Lossless|WEB-DL]<Downtempo, IDM, Trip Hop, Experimental, Leftfield, Dark Ambient>
@@ -6,7 +64,7 @@ First Rebirth - Discography 4 Releases (2009-2017) [FLAC|Lossless|WEB-DL]<Downte
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756446.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Rick Pier O'Neil - Mysterious (2016) [MP3|320 кб/с] <Progressive House, Techn
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_756119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756119.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ The Reels - Beautiful (1982) LP [MP3|320 Kbps] <Electronic, New Wave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755571.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Boris Budarin - Moda Chillout 1-2 (2005-2006) [MP3|320 Kbps] <Lounge, Chillout, 
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755296.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755296.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Groove Affair - Easy Listening Lounge (2019) [MP3|320 Kbps] <Balearic, Downtempo
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755291.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Boris Brejcha - Live Stream Mix (Continuous Mix) (2020) [FLAC|Lossless|WEB-DL|im
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755281.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755281.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Top Of The Lounge Music on Ciacofon Records (2018) [MP3|320 Kbps] <Downtemp
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755205.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Spacehawk - Laser Squad (2018) [MP3|320 Kbps] <Spacesynth, Spacedisco>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755204.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ E.R.P. - Afterimage (2018) Forgotten Future [FLAC|Lossless|Vinyl|tracks] <Electr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755201.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Smooth Jazz Morning Lounge (Chillout Your Mind) (2019) [MP3|320 Kbps] <Bale
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755199.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755199.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Hard EDM Workout - Running 70s 80s 90s Hits: 150 bpm (2020) [MP3|320 Kbps] <Hous
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_755172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755172.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Sascha Dive - Back 2 Life (2022) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_755171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_755171.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Veky - Alone (2018) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754860.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Spring Break Is Coming (Tech House Fever Is All Over) (2018) [MP3|320 Kbps]
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754859.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754859.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Robert Babicz - A Moment of Loud Silence (2016) Traum Schallplatten [FLAC|Lossle
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754851.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Hello Meteor - Dusk Aquarium (Bandcamp Exclusive) (2019) Evergreen Prefecture [F
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754842.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Black Hole House Music 05-16 (2016) [MP3|320 кб/с] <House, Progressive H
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754147.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Tribal House Sensations Vol. 3 (2016) [MP3|320 кб/с] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754100.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Spring Tube Sampler 07 (2016) [MP3|320 кб/с] <Deep House, House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754090.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Pure Bliss Vocals (Spring 2016) (2016) [MP3|320 кб/с] <Trance, Vocal Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_754015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754015.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Mohlao - Ambrose (2009) Meanwhile [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ele
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753594.jpg" />
 </div>
 
 
@@ -613,7 +671,7 @@ Tension (GER) - Currents (2019) Be Sure [FLAC|Lossless|WEB-DL|tracks] <Techno, A
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753492.jpg" />
 </div>
 
 
@@ -642,7 +700,7 @@ Dirk Serries - Epitaph (2018) Consouling Sounds [FLAC|Lossless|tracks+.cue] <Amb
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753491.jpg" />
 </div>
 
 
@@ -671,7 +729,7 @@ Front Line Assembly - Wake Up The Coma (2019) [FLAC|Lossless|tracks + .cue] <Ind
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753368.jpg" />
 </div>
 
 
@@ -685,64 +743,6 @@ Front Line Assembly - Wake Up The Coma (2019) [FLAC|Lossless|tracks + .cue] <Ind
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A322782F53A9C9933373EF1382E22FCA5B7169EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274538   (753318) от 11.07.2020
-
-VA - Ibiza Beats Series: Sunset Chill & Beach Lounge - 13 Releases (2007-2020) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Deep House>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753318.jpg" />
-</div>
-
-
-###  Подробнее
-
-2007 - Ibiza Beats • Sunset Chill & Beach House (2CD)
-2009 - Ibiza Beats Vol.2 • Sunset Chill & Beach Lounge (2CD)
-2010 - Ibiza Beats Vol.3 • Sunset Chill & Beach Lounge (2CD)
-2011 - Ibiza Beats Vol.4 • Sunset Chill & Beach Lounge (2CD)(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, Deep HouseПродолжительность: 24:19:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7D86D004626745BEAD3DE6AA5A307450FB9DB57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523164   (753291) от 10.01.2022
-
-VA - Future Trance - Best Of 25 Years (2022) [MP3|320 Kbps] <Trance, Progressive, Dance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_753291.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Scooter - The Logical Song (3:53)
-002. Groove Coverage - God Is A Girl (Radio Edit) (3:38)
-003. ATB - Don't Stop! (Airplay Edit) (3:46)
-004. Sylver - Turn The Tide (Radio Edit) (4:04)(   Читать дальше...   )Жанр: Trance, Progressive, DanceПродолжительность: 05:38:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EC9F7B8F7B28D813C37480EE449DCF63D940CF2
 ```
 
 https://mybot314.ru/tekegram_catalog/

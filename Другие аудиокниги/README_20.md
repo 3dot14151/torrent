@@ -1,3 +1,55 @@
+###  Публикация: 1038070   (606854) от 28.07.2016
+
+Рачо Стоянов | Мастера (1970) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606854.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит в затерявшемся в горах болгарском селении, где живут резчики по дереву и золотых дел мастера. В жизни героев пьесы - мастера Найдена и его жены - красавицы Милканы происходит трагедия: после многих лет отсутствия домой возвращается мастер Живко, которого любит Милкана...Жанр: ДрамаПродолжительность: 01:43:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F876D8FE7367C542195F0EDFB2C9ED4490F43FB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038429   (606714) от 28.07.2016
+
+Питер Марвел | Шутка мертвого капитана (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606714.jpg" />
+</div>
+
+
+###  Подробнее
+
+В конце 16 века стало ясно, что великим европейским державам слишком тесно на континенте. Тогда-то и началась настоящая война за метрополии в Атлантике. Волей судьбы Карибские острова оказались на пути «дороги золота и пряностей» и стали приютом для негодяев всего мира: пиратов, корсаров, рейдеров и флибустьеров. Обладая картой пропавших сокровищ сэра Уолтера Рэли, (   Читать дальше...   )Жанр: Морские приключенияПродолжительность: 10:42:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9520CA7055663996090290D3CB0B40A319001ED2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038454   (606603) от 28.07.2016
 
 Андрей Таманцев | Рука Москвы (2016) [MP3]
@@ -6,7 +58,7 @@
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_606603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606603.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_605563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605563.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_604744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604744.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_603573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603573.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599669.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_599643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599643.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598450.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_598012.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598012.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_597065.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597065.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595576.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595519.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595514.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595514.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595456.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_595454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595454.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_593533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593533.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_586538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586538.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585853.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585464.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585464.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_585357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585357.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583842.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_583363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583363.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582198.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582157.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_582154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582154.jpg" />
 </div>
 
 
@@ -621,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CFEB0F488564635B0027EC1FEFF1073084119CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041653   (580466) от 11.08.2016
-
-Василий Ливанов | Путь из детства. Эхо одного тире. [Книга1] (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_580466.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами первая книга воспоминаний Василия Борисовича Ливанова. Это удивительный, особой формации человек. Все, кто уже имел счастье прочитать этот текст в рукописи или же удостоились чести слышать отрывки от самого автора признавались, что это невероятная книга, событие в нашей литературе. Мы завидуем вам, дорогой читатель, которому только предстоит совершить (   Читать дальше...   )Жанр: Биографии и МемуарыПродолжительность: 04:51:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9561DA9C5B35407F6CF93F66D7EB2E2DC24D79FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150641   (577555) от 16.07.2017
-
-Дэн Миллмэн | Путь мирного воина (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_577555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга "Путь мирного воина" стала одной из самых любимых духовных саг нашего времени. Этот "народный" бестселлер, изданный более чем на двадцати языках тиражом в миллионы экземпляров, принес вдохновение мужчинам и женщинам всех возрастов во всем мире. Эта ставшая классической история, рассказанная с теплотой и юмором, обращена к мирному воину внутри (   Читать дальше...   )Жанр: ЭзотерикаПродолжительность: 09:07:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ABFF2A2407ADBF254C972C063E8B6321C512139
 ```
 
 https://mybot314.ru/tekegram_catalog/

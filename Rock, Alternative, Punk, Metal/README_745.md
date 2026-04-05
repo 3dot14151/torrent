@@ -1,3 +1,32 @@
+###  Публикация: 1421682   (317567) от 05.11.2020
+
+Proteus - Prometheia I: Arrival (2020) [MP3|320 Kbps] <Progressive Rock, Pop Rock, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disappearing Grace (05:03)
+ 02. Here and Now (05:15)
+ 03. From the Shadows (03:27)
+ 04. Merciless (05:20)(   Читать дальше...   )Жанр: Progressive Rock, Pop Rock, ElectronicПродолжительность: 01:12:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AA58D641CF45B98E968224676EAFA4476FD154D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1421590   (317560) от 05.11.2020
 
 Игорь Романов И Его группа (Союз) - Учитель успеха (1988) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal, New Wave>
@@ -6,7 +35,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317560.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317560.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Bon Jovi - This Left Feels Right (2003) Hybrid SACD [FLAC|Lossless]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_317510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_317510.jpg" />
 </div>
 
 
@@ -70,7 +99,7 @@ Whitesnake - Love Songs (2020) 2020 Remix [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317412.jpg" />
 </div>
 
 
@@ -99,7 +128,7 @@ Battlecreek - Hate Injection (2015) [MP3|320 кб/с]<Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317392.jpg" />
 </div>
 
 
@@ -128,7 +157,7 @@ The Delmonas - Delmonas 5 • The Delmonas (1993) [MP3|VBR 228-324 кб/с]<Punk
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317314.jpg" />
 </div>
 
 
@@ -157,7 +186,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317307.jpg" />
 </div>
 
 
@@ -186,7 +215,7 @@ Limp Bizkit - Интервью с Фредом Дерстом на радио UL
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317200.jpg" />
 </div>
 
 
@@ -215,7 +244,7 @@ Status Quo - Accept No Substitute: The Definitive Hits (2015) 3CD [MP3|320 кб/
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_317086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317086.jpg" />
 </div>
 
 
@@ -244,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316999.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ Uriah Heep - Totally Driven (2015) 2CD [FLAC|tracks|WEB-DL]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316966.jpg" />
 </div>
 
 
@@ -302,7 +331,7 @@ Suspyria - The Valley Of Despair (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316943.jpg" />
 </div>
 
 
@@ -331,7 +360,7 @@ The Flow - A Change Of Seasons (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316942.jpg" />
 </div>
 
 
@@ -360,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316940.jpg" />
 </div>
 
 
@@ -389,7 +418,7 @@ Royal Hell - Second Sight of the Grand Seer (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316939.jpg" />
 </div>
 
 
@@ -418,7 +447,7 @@ Silver People - Gnome Country (2022) [FLAC|Lossless|WEB-DL|tracks] <psychedelic 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316937.jpg" />
 </div>
 
 
@@ -447,7 +476,7 @@ Midnight Rider - Beyond The Blood Red Horizon (2022) [FLAC|Lossless|WEB-DL|track
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316934.jpg" />
 </div>
 
 
@@ -476,7 +505,7 @@ Dim Vision - Epidermis (2006) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316923.jpg" />
 </div>
 
 
@@ -505,7 +534,7 @@ Agora - Silencio Acustico (2008) [FLAC|Lossless|image + .cue] <Progressive Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316921.jpg" />
 </div>
 
 
@@ -534,7 +563,7 @@ Agora - Zona De Silencio (2005) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316920.jpg" />
 </div>
 
 
@@ -563,7 +592,7 @@ Crazy Backwards Alphabet - Crazy Backwards Alphabet (1987) [FLAC|Lossless|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316919.jpg" />
 </div>
 
 
@@ -592,7 +621,7 @@ Primus - Sailing the Seas of Cheese (1991) [FLAC|Lossless|tracks + .cue] <Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316917.jpg" />
 </div>
 
 
@@ -621,7 +650,7 @@ Klint - Klint (2002) [FLAC|Lossless|tracks + .cue] <Blues Rock, Soft Rock, Pop R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316911.jpg" />
 </div>
 
 
@@ -650,7 +679,7 @@ Primus - Pork Soda (1993) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316910.jpg" />
 </div>
 
 
@@ -676,7 +705,7 @@ Echelon - Secret Power (2022) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316834.jpg" />
 </div>
 
 
@@ -705,7 +734,7 @@ Skid Row - The Gang's All Here (2022) [FLAC 2.0|48/24|tracks|WEB-DL] <Hard Rock,
 >>Hard Rock (Hi-Res)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316825.jpg" />
 </div>
 
 
@@ -719,35 +748,6 @@ Skid Row - The Gang's All Here (2022) [FLAC 2.0|48/24|tracks|WEB-DL] <Hard Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72C0532E0C4A218B9EC2CC6AB85B4E90307A6C61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259988   (316786) от 05.11.2018
-
-Primus - Frizzle Fry (1990) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_316786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To Defy The Laws Of Tradition (6:42)
- 02. Ground Hog's Day (4:58)
- 03. Too Many Puppies (3:58)
- 04. Mr. Knowitall (3:51)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:51:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7275F89C0B819A409BFFA37BC4AE1B753FECA810
 ```
 
 https://mybot314.ru/tekegram_catalog/

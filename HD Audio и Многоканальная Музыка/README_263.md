@@ -1,32 +1,3 @@
-###  Публикация: 1818736   (2145) от 18.09.2025
-
-Exelerate - Hell For The Helpless (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal, Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Breach [00:02:45]
-02. The Madness [00:03:19]
-03. The Summoning [00:06:07]
-04. Headfirst Into The Void [00:04:27](   Читать дальше...   )Жанр: Power Metal, Thrash MetalПродолжительность: 00:52:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:581420F3E7B98A726CF1029BC904864F857D9E8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1818659   (2144) от 18.09.2025
 
 Fear My Thoughts - Studio Albums (6 releases) (2001-2008) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore, Melodic Death Metal>
@@ -35,7 +6,7 @@ Fear My Thoughts - Studio Albums (6 releases) (2001-2008) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2144.jpg" />
 </div>
 
 
@@ -64,7 +35,7 @@ Karel Vacek - Zustan Tu S Nami Muziko Ceska - Pisnicky Karla Vacka (1974) [FLAC 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2141.jpg" />
 </div>
 
 
@@ -93,7 +64,7 @@ Infektum - Schicksal (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2140.jpg" />
 </div>
 
 
@@ -122,7 +93,7 @@ Sfinx - Feral (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <progressive metalcore,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2139.jpg" />
 </div>
 
 
@@ -151,7 +122,7 @@ Rinrin - The Nut House (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2136.jpg" />
 </div>
 
 
@@ -180,7 +151,7 @@ Booze & Glory - Whiskey Tango Foxtrot (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2134.jpg" />
 </div>
 
 
@@ -209,7 +180,7 @@ Paradise Lost - Studio Albums (18 releases) (1990-2025) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2110.jpg" />
 </div>
 
 
@@ -238,7 +209,7 @@ Zaz - Sains et saufs (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2017.jpg" />
 </div>
 
 
@@ -267,7 +238,7 @@ I Prevail - Studio Albums (5 releases) (2014-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2007.jpg" />
 </div>
 
 
@@ -296,7 +267,7 @@ Novembers Doom - Studio Albums (12 releases) (1995-2025) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1995.jpg" />
 </div>
 
 
@@ -325,7 +296,7 @@ Ravager (Germany) - Studio Albums (4 releases) (2017-2025) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1988.jpg" />
 </div>
 
 
@@ -353,7 +324,7 @@ Paradise Lost - Ascension (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Doom Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1982.jpg" />
 </div>
 
 
@@ -382,7 +353,7 @@ Yasmine Hamdan - I remember I forget (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1963.jpg" />
 </div>
 
 
@@ -411,7 +382,7 @@ Native American Music Consort - The Calling of the Wolf (2025) [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1962.jpg" />
 </div>
 
 
@@ -440,7 +411,7 @@ Sins Of Omission - Studio Albums (2 releases) (1999-2001) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1950.jpg" />
 </div>
 
 
@@ -467,7 +438,7 @@ Arjen Anthony Lucassen - Songs No One Will Hear (No Narration) (2025) [FLAC 24/4
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1946.jpg" />
 </div>
 
 
@@ -496,7 +467,7 @@ Nine Inch Nails - TRON: Ares (2025) Original Motion Picture Soundtrack [FLAC 24/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1843.jpg" />
 </div>
 
 
@@ -525,7 +496,7 @@ Sarah McLachlan - Better Broken (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1791.jpg" />
 </div>
 
 
@@ -554,7 +525,7 @@ Neverlove - Kings Of Strip Club (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1790.jpg" />
 </div>
 
 
@@ -583,7 +554,7 @@ I Prevail - Violent Nature (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternati
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1782.jpg" />
 </div>
 
 
@@ -612,7 +583,7 @@ Novembers Doom - Major Arcana (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Deat
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1781.jpg" />
 </div>
 
 
@@ -641,7 +612,7 @@ Catsclaw - Perfect Death (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1780.jpg" />
 </div>
 
 
@@ -670,7 +641,7 @@ King Princess - Girl Violence (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1778.jpg" />
 </div>
 
 
@@ -699,7 +670,7 @@ Cardiacs - LSD (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1774.jpg" />
 </div>
 
 
@@ -728,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1598.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1598.jpg" />
 </div>
 
 
@@ -742,6 +713,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A44B76F2986582ADE32B19ABE0DC0C38FD021C0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819303   (1586) от 21.09.2025
+
+Lolita (Edith "Ditta" Einzinger) - Sailor, Sailor And Lolita's Greatest Hits (1961) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1586.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Sailor (Your Home Is The Sea)
+A2 La Luna (The Moon)
+A3 Lieber Jonny, Komm' Doch Wieder (Paper Roses)
+A4 Souvenir D'Amour (Memory Of Love)(   Читать дальше...   )Жанр: PopПродолжительность: 00:31:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BDC18F99BB11232D658BE3BA9C7636040F7E81B
 ```
 
 https://mybot314.ru/tekegram_catalog/

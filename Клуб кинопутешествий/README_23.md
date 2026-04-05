@@ -6,7 +6,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_679087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679087.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_677982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677982.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676995.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676851.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_676844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676844.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671413.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671413.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_671029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671029.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665578.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665577.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665445.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_665436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665436.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_660132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660132.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658219.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658144.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658131.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658109.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658033.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_658023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658023.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657991.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_657675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657675.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Viasat Nature: Тайны заливного леса – национальны
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656918.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ NG. Дикая Аляска / Wildes Alaska (2012) BDRip [H.264/720p]
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656569.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_656436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656436.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_649407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649407.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648708.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_648695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648695.jpg" />
 </div>
 
 

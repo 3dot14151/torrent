@@ -6,7 +6,7 @@ Ben Webster Quartet - My Man: Live At Montmartre (1973) 1986, SteepleChase [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219618.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ James Moody - Return From Overbrook (1958) 1996, GRP [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219527.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Dakota Staton - Time To Swing (1959) 2009, DRG Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219318.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Sonny Cox - The Wailer (1966) Remaster, 1998, Universal[FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219233.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Coleman Hawkins - Bouncing With Bean (1926-1949) 2CD, 2010, Le Chant Du Monde[FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219224.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Mal Waldron - You And The Night And The Music (1983) 2005, King Record [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219164.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - 'That's What I Call Sweet Music': American Dance Orchestras of the 1920s (1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219066.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Big Band Brothers - A Jazz Celebration of The Allman Brothers Band (2019) New We
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_219051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219051.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Oscar Pettiford - Another One (1955) 2000, Bethlehem [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219015.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ The Ray Conniff Singers - Christmas With Conniff (1959) 1990, Columbia[FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218991.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Jim Stahlhut - Exit 228 (2013) Self-Released [FLAC|Lossless|image + .cue] <Post-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218819.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Christmas Favorites (2016) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Folk, Pop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218674.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218674.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ The Power Quintet - High Art (2016) HighNote [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218364.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Gil Evans - The Individualism of Gil Evans (1963, 1964) 2003, Universal [APE|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218356.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Tom Harrell - Something Gold, Something Blue (2016) HighNote [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_218350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218350.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Betty Buckley - Hope (2018) Palmetto+ [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218342.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Stephane Grappelli & Barney Kessel - Limehouse Blues (1969) 1991, Black Lion [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218327.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218327.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Bobo Stenson Trio - Contra La Indecision (2018) ECM [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218318.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Eddie Daniels - Heart Of Brazil: A Tribute to Egberto Gismonti (2018) Resonance 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218307.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218307.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Cannonball Adderley - The Complete Albums Collection 1960-1962 (2016) 4CD, Enlig
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218286.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Bob Reynolds - Quartet (2018) Bob Reynolds Music [FLAC|Lossless|WEB-DL|tracks] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218207.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Michel Legrand - Six Classic Albums (1954 - 1958) 4CD, 2016, Real Gone Jazz [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218192.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Big Bad Voodoo Daddy - Louie Louie Louie (2017) Savoy Jazz [FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218145.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Benny Green - Then and Now (2018) Sunnyside Records [FLAC|Lossless|WEB-DL|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217980.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217980.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Bill Evans Trio - Consecration. The Last Complete Collection (1980) 8CD, 1989, A
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_217932.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Steve Kuhn Torio - Easy To Love (2004) Venus Records [FLAC|Lossless|image + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217804.jpg" />
 </div>
 
 

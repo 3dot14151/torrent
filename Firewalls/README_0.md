@@ -1,3 +1,31 @@
+###  Публикация: 1799819   (16271) от 30.05.2025
+
+simplewall 3.8.6.1 + Portable [Multi/Ru]
+
+>>Безопасность
+>>Firewalls
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой в использовании и нетребовательный к ресурсам компьютера фаервол, имеющий все необходимые опции для блокировки входящего и исходящего трафика приложений.
+Поддерживаются два режима работы: фильтрация по белому или черному списку.
+Работа simplewall реализована через возможности WFP (Windows Filtering Platform).Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03FB78389977D75EA4DB73C7D2D72D9CF4F53D9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1821037   (8544) от 30.09.2025
 
 Minimal Firewall 2.2.6 Portable [En]
@@ -6,7 +34,7 @@ Minimal Firewall 2.2.6 Portable [En]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8544.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ Fort Firewall 3.19.6 + Portable [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3329.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ Minimal Firewall 2.2.4 Portable [En]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_325.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_325.jpg" />
 </div>
 
 

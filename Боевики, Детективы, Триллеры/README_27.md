@@ -1,3 +1,109 @@
+###  Публикация: 1004671   (838059) от 06.04.2016
+
+Наталья Александрова | Священный изумруд апостола Петра (2016) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот камень Рагнар нашел в великом, но разграбленном варварами Риме, в подземном склепе, где был похоронен христианский святой. На груди у мертвого святого был крест с четырьмя драгоценными камнями. Четверо воинов-германцев поделили их между собой и разошлись в разные стороны. Рагнару, который отправился на север и прибился к викингам, несказанно везло – несколько (   Читать дальше...   )Жанр: Современные детективыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:313B1AEC8E3AE1195A33BC14D3912858A345C730
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113826   (836468) от 12.03.2017
+
+Николай Леонов, Алексей Макеев | Киллер из Лиги справедливости (2017) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836468.jpg" />
+</div>
+
+
+###  Подробнее
+
+От рук киллера один за другим погибают врач частной клиники, банкир, биатлонистка, владелец баскетбольного клуба… В ходе расследования полковники МУРа Гуров и Крячко установили, что убитые были связаны с теневой стороной большого спорта: занимались подкупом спортсменов, договорными матчами и прочими грязными делами. Похоже, что ликвидацией нечистых на руку дельцов (   Читать дальше...   )Жанр: Полицейские детективы, Современные детективыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D164A621C37EE307167395E552A2645DF0B26102
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004865   (836430) от 07.04.2016
+
+Камилла Лэкберг | Укрощение (2016) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девятый роман цикла «Патрик Хедстрём»
+
+Писательница Эрика Фальк работает над книгой о Лайле Ковальской — женщине, много лет назад зверски убившей мужа и державшей дочь в подвале на цепи. Книга не пишется: Лайла упорно молчит, а частное расследование Эрики приносит лишь россыпь странных, расплывчатых намеков. Но события тех давних лет приобретают новый смысл, когда (   Читать дальше...   )Жанр: Современные детективыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7B38D8C9D0D55E616C8E4180AD7B9E6F0192739
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113831   (836350) от 12.03.2017
+
+Николай Леонов, Алексей Макеев | Проклятая усадьба (2017) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Банкир Аркадий Кононов убит в усадьбе своего друга при весьма загадочных обстоятельствах. Что это – месть конкурентов, семейные разборки или любовная интрига? Следователь МУРа Лев Гуров приступает к расследованию. Он лично знаком с каждым из подозреваемых – не так давно полковнику довелось отдыхать в их компании. Гуров пытается разобраться в непростых отношениях (   Читать дальше...   )Жанр: Полицейские детективы, Современные детективыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BD5617171979151CFDC2A6F3353659BCB5885B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113797   (836335) от 12.03.2017
 
 Александр Тамоников | Крымская пленница (2017) [FB2]
@@ -6,7 +112,7 @@
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836335.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836067.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836067.jpg" />
 </div>
 
 
@@ -60,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835976.jpg" />
 </div>
 
 
@@ -86,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835618.jpg" />
 </div>
 
 
@@ -112,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_835031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835031.jpg" />
 </div>
 
 
@@ -138,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834489.jpg" />
 </div>
 
 
@@ -164,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833500.jpg" />
 </div>
 
 
@@ -192,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833491.jpg" />
 </div>
 
 
@@ -218,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832954.jpg" />
 </div>
 
 
@@ -245,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831840.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831840.jpg" />
 </div>
 
 
@@ -271,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831595.jpg" />
 </div>
 
 
@@ -297,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831573.jpg" />
 </div>
 
 
@@ -324,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831565.jpg" />
 </div>
 
 
@@ -350,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831456.jpg" />
 </div>
 
 
@@ -377,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831445.jpg" />
 </div>
 
 
@@ -403,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831444.jpg" />
 </div>
 
 
@@ -429,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831389.jpg" />
 </div>
 
 
@@ -457,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831358.jpg" />
 </div>
 
 
@@ -484,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831349.jpg" />
 </div>
 
 
@@ -511,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829658.jpg" />
 </div>
 
 
@@ -539,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829187.jpg" />
 </div>
 
 
@@ -565,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829064.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829064.jpg" />
 </div>
 
 
@@ -576,112 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D9EB905ADBEEDF664C0973660D31B97FD7731DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006150   (828872) от 11.04.2016
-
-Дональд Гамильтон, Дэвид Джонсон | Дерево Джошуа. Группа ликвидации [Сборник] (1995) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Традиционный сюжет о невинно осужденном человеке, вынужденом в одиночку противостоять облеченным властью преступникам, обречен на успех, если в роли жертвы выступает герой без страха и упрека, способный преодолеть любые трудности. Именно такой образ создает писатель Девид Джонсон в романе "Дерево Джошуа", и именно таким он предстает в исполнении Долфа Лундгрена (   Читать дальше...   )Жанр: БоевикФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45759CCA4F4185CD4A6C9483B455956935CF0FC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006330   (828389) от 11.04.2016
-
-Сара Джио | Утреннее сияние (2016) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828389.jpg" />
-</div>
-
-
-###  Подробнее
-
-Печальные события в жизни Ады Санторини вынуждают ее уехать на другой конец страны и поселиться в очаровательном плавучем домике на Лодочной улице. Жизнь на озере кажется настоящим приключением, а соседи становятся близкими друзьями. Но однажды Ада находит на чердаке сундук, в котором покоятся свадебное платье, записная книжка и несколько фотографий. Ада рассказывает (   Читать дальше...   )Жанр: Современные любовные романы, ДетективыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BECEDEFF874BC9807CAA6EB30A3A0C64D24A028
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006325   (828382) от 11.04.2016
-
-Владимир Першанин | «Братская могила экипажа». Самоходки в операции «Багратион» (2016) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828382.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новые атаки отчаянных самоходок Су-76, которые из-за слабой брони и открытого боевого отделения на фронте прозвали «брезентовым фердинандом», «сукой» и «братской могилой экипажа».
-Однако эти легкие подвижные машины с мощной пушкой и высокой проходимостью, ставшие самыми массовыми САУ СССР, сыграли огромную роль во второй половине войны.
-Особенно отличились экипажи (   Читать дальше...   )Жанр: Боевики: ПрочееФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55964D7AE8C626FB5E3D07729E8EDD1B50983BB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005934   (828220) от 11.04.2016
-
-Данил Корецкий, Игорь Текалов | "Сандал" пахнет порохом (2016) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828220.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старинный кинжал, захваченный при разбойном нападении на ювелира, причудливым образом связывает средневековую секту профессиональных убийц и основоположников террора – ассасинов с международным руководителем терроризма, засевшим в годы Чеченской войны в неприступном горном укрепрайоне. Он практически неуязвим, но неожиданно на территории республики появляется некая (   Читать дальше...   )Жанр: БоевикФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C16533282124559032283FCD6000819B77693B5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

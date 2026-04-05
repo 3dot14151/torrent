@@ -6,7 +6,7 @@ Milky Chance - Blossom (2017) [FLAC|Lossless|tracks + .cue] <Indie Pop, Folk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475640.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475640.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Shinedown - Threat To Survival (2015) [FLAC|tracks+.cue]<Alternative Metal, Hard
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_475587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475587.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ The Mysterines - Reeling (2022) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474433.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Sex Pistols - The Original Recordings (2022) [FLAC|Lossless|tracks + .cue] <Punk
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_474250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474250.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ King Gizzard And The Lizard Wizard - Infest the Rats' Nest (2019) [WEB] [FLAC|Lo
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_473267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473267.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Keane - The Best Of Keane (2013) 2CD, Deluxe Edition [FLAC|Lossless|tracks + .cu
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468904.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ New Years Day - Malevolence (2015) [FLAC|Lossless|tracks] <Alternative Rock, Fem
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_468846.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468846.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ JJ72 - JJ72 (2000) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_467902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467902.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ The Flatliners - New Ruin (2022) [FLAC|Lossless|WEB-DL|tracks] <Punk,New Wave>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_466037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466037.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ JJ72 - I To Sky (2002) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465756.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ JJ72 - October Swimmer (2001) Japan Promo [FLAC|Lossless|tracks + .cue] <Alterna
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_465754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465754.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Red Hot Chili Peppers - Freaky Styley (1985) 2003, Reissue, Remastered [FLAC|Los
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463620.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Florist - Emily Alone (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_463387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463387.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Better Than Ezra - Friction, Baby (1996) [FLAC|Lossless|tracks + .cue] <Alternat
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461566.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Kasabian - For Crying Out Loud (2017) 2CD, Delux Edition [FLAC|Lossless|tracks+.
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461346.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ The Night Cafe - 0151 (2019) TNC Recordings [FLAC|Lossless|WEB-DL|tracks] <Indie
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461218.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Oso Oso - basking in the glow (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461217.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ The Fray - Through the Years: The Best of The Fray (2016) Epic Records [FLAC|Los
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_461214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461214.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Boysetsfire - Boysetsfire (2015) [FLAC|Lossless|WEB-DL]<Alt.Rock | Post-Hardcore
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460198.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ The Bloodline - We Are One (2015) [FLAC|Lossless|WEB-DL]<Melodic Metalcore | Mod
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460190.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ XXI - Inside Out (2015) [FLAC|Lossless|WEB-DL]<Alt.Rock | Post-Hardcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_460056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460056.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Gorillaz - Song Machine Episode 6 (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Trip-
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_459958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459958.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Eskimo Callboy - MMXX (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_458018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458018.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Skillet - Victorious: The Aftermath (2019) Deluxe Edition, 2020 [FLAC|Lossless|W
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457853.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457853.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Green Day - iUno! (2012) [FLAC|Lossless] <Punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_457412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457412.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Cel Damage - Runoff of Acid, Oil and Water (2020) EP [FLAC|Lossless|WEB-DL|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_456121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456121.jpg" />
 </div>
 
 

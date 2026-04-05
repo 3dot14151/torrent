@@ -7,7 +7,7 @@ Gorillaz - The Mountain (2026) Deluxe Edition [MP3|320 Kbps] <Alternative-Rock, 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1058758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058758.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ The Imperial Mustard - Turn the Stone (2025) [MP3|320 Kbps] <Psychedelic, Krautr
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047787.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ Anti-Flag - Lies They Tell Our Children (2023) [MP3|320 Kbps] <Alternative Rock,
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046106.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ Cincinatti Bowtie - Incantation (2023) [MP3|320 Kbps] <Deathcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044329.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ King 810 - follow my tears (2023) EP [MP3|320 Kbps] <Nu-Metal, Rapcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044315.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Emarosa - Sting (2023) [MP3|320 Kbps] <Synth Pop, Alt.Rock, Pop-Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043750.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Dreams of Demise - Decipula (2020) [MP3|320 Kbps] <Metalcore, Deathcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043089.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Muntro Coutant - 2020 Out (2020) [MP3|320 Kbps] <Alternative Rock, Indie, New Wa
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042812.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Anna Pest - Dark Arms Reach Skyward With Bone White Fingers (2021) [MP3|320 Kbps
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042797.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Eyes - Congratulations (2023) [MP3|320 Kbps] <Punk, Metalcore, Hardcore, Noise r
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042437.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Paramore - This Is Why (2022) 2023, Atlantic Records [MP3|320 Kbps] <Alt. Rock, 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041836.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Skillet - Dominion: Day of Destiny (2023) [MP3|320 Kbps] <Alt. Rock, Modern Rock
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040096.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Half Me - Soma (2023) [MP3|320 Kbps] <Nu-Metalcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039915.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ See You Next Tuesday - Distractions (2023) [MP3|320 Kbps] <Mathcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039809.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Blue Stahli - Obsidian (2021) [MP3|320 Kbps] <Industrial Rock, Alternative>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039534.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Venomous Concept - The Good Ship Lollipop (2023) [MP3|320 Kbps] <Punk Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038371.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Dope - Blood Money Part Zer0 (2023) [MP3|320 Kbps] <Nu-Metal, Industrual Metal>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038362.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Escape The Fate - Chemical Warfare (2021) [MP3|~245 Kbps (V0)] <Post-Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037196.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Weezer - OK Human (2021) [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035699.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Love And Death - Perfectly Preserved (2021) [MP3|320 Kbps] <Nu-Metal, Christian-
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031877.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031877.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Dead Poet Society - -!- (2021) [MP3|320 Kbps] <Alt.Rock / Indie Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026953.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Celldweller - Demo Vault: Wasteland (2021) [MP3|320 Kbps] <Industrial, Alternati
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026947.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Evanescence - The Bitter Truth (2021) [MP3|320 Kbps] <Alternative Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026875.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Papa Roach - Greatest Hits, Vol. 2: The Better Noise Years 2010-2020 (2021) [MP3
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025775.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Serj Tankian - Elasticity (2021) EP [MP3|320 Kbps] <Alt. Rock, Metal, Experiment
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025453.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ RA - Intercorrupted (2021) [MP3|320 Kbps] <Alternative, Hard Rock>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024261.jpg" />
 </div>
 
 

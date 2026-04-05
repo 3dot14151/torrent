@@ -1,3 +1,135 @@
+###  Публикация: 1711506   (61279) от 30.03.2024
+
+Переполох / Ruckus (1980) DVDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61279.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кайл Хэнсон является ветераном Вьетнама. Эта война оставила в его психике незаживающую рану. Когда Кайл, уставший и грязный, останавливается в небольшом городке на некоторое время чтобы поесть, местные задиры не могут удержаться, чтобы не унизить его и начинают преследование. Кайлу приходится использовать всё то, чему его учили в отряде специального назначения, чтобы (   Читать дальше...   )Производство: США / International VisionЖанр: боевик, триллер, драмаРежиссер: Макс КлевенАктеры: Дирк Бенедикт, Линда Блэр, Ричард Фарнсуорт, Мэтт Кларк, Джон Ван Несс, Тэйлор Лочер, Клиффорд А. Пеллоу, Бен Бейтс, Джерри Гэтлин, Бенни Е. ДоббинсПеревод: Авторский (А. Гаврилов, А. Михалев, М. Иванов)Язык озвучки: Русский, английскийСубтитры: ОтсутствуютПродолжительность: 01:31:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB03D11EABF840E28CA29B039FEA798847FF108E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526475   (61224) от 31.03.2024
+
+Велосипед / Le Triporteur (1957) VHSRip [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация романа Рене Фалле.
+Для преданного болельщика, желающего во что бы то ни стало поддержать любимую команду, расстояния – не преграда. 500 километров от родного Вобреля до стадиона дю Рэ в Ницце необходимо преодолеть рассыльному кондитерского магазина Антуану Пейралу в надежде увидеть, как земляки завоюют Кубок Франции по футболу. Забавные приключения и (   Читать дальше...   )Производство: Франция / Les Films du CyclopeЖанр: комедия, спортРежиссер: Жак ПинотоАктеры: Дарри Коул, Беатрис Альтариба, Пьер Монди, Роже Карель, Maurice Gardett, Жак Тибо, Christian Nohel, Simone Jarnac, Жан Озенн, Пьер ДорисПеревод: Одноголосый любительскийЯзык озвучки: Русский, французскийСубтитры: РусскиеПродолжительность: 01:27:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E110D2A506B4DF39ABB6E0FC586DF48F1E23A198
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 874866   (61151) от 01.04.2024
+
+Чужие среди нас (Они живут) / They Live (1988) DVDRip [H.264] [MVO]
+
+>>След.
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды простой рабочий-строитель Нейда, которому не очень везёт в жизни, находит необычные солнечные очки. Надев их, он получает возможность увидеть мир таким, какой он есть.
+Реальность пугает! Оказывается, правительство и средства массовой информации бомбардируют людей скрытыми сообщениями, воздействующими на уровне подсознания: «Спите!», «Не давайте волю воображению», (   Читать дальше...   )Производство: США, Alive Films, Larry Franco ProductionsЖанр: ужасы, фантастика, боевик, триллерРежиссер: Джон КарпентерАктеры: Родди Пайпер, Кит Дэвид, Мег Фостер, Джордж «Бак» Флауэр, Питер Джейсон, Рэймонд Сейнт-Жак, Джейсон Робардс III, Джон Лоуренс, Сьюзэн Барнс, Сай РичардсонПеревод: Многоголосый закадровыйПродолжительность: 01:30:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB5587427557FB1CBCB51B0350B3CBA42AA7DAB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538407   (60988) от 02.04.2024
+
+40 карат / 40 Carats (1973) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60988.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Греции случайно встречаются Питер и Энн Стенли, которая старше его на много лет. Но любовь Питера оказывается настолько сильной, что он готов преодолеть все преграды, в том числе и нерешительность самой Энн, чтобы жениться на любимой женщине.Производство: США / Columbia Pictures Corporation, Frankovich ProductionsЖанр: Kомедия, MелодрамаРежиссер: Милтон КацеласАктеры: Лив Ульман, Эдвард Альберт, Джин Келли, Бинни Барнс, Дебора Раффин, Билли Грин Буш, Нэнси Уокер, Дон Портер, Розмари Мерфи, Натали ШаферПеревод: Многоголосый профессиональный, студия "Пифагор" по заказу ГТРК "Культура"Субтитры: ОтсутствуютПродолжительность: 01:48:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7AB1A265ED17A73F0A3E37FF7660F8DC5C805CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713025   (60754) от 04.04.2024
+
+Иствикские ведьмы / The Witches of Eastwick (1987) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три современные ведьмы тоскуют по своему идеальному мужчине в маленьком городке Новой Англии. Неужели появление богатого и неотразимого Дэрила Ван Хорна просто совпадение – или, сработало непреднамеренное женское колдовство?Производство: США /  Guber-Peters Company, Kennedy Miller Productions, Warner Bros.Жанр: фэнтези, комедияРежиссер: Джордж МиллерАктеры: Джек Николсон, Мишель Пфайффер, Шер, Сьюзен Сарандон, Вероника Картрайт, Ричард Дженкинс, Кит Джоким, Карел Стрёйкен, Хелен Ллойд Брид, Кэролин СтрузикПеревод: Дублированный (Мост-Видео)Язык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:58:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:267A675E1B1BE645D5FC51A16E8DA51BB9714CD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1713598   (60555) от 06.04.2024
 
 Замкнутый круг / Circuito Chiuso (1978) BDRip [H.264] [AVO]
@@ -6,7 +138,7 @@
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60555.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60555.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60420.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60404.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60404.jpg" />
 </div>
 
 
@@ -84,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60239.jpg" />
 </div>
 
 
@@ -110,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60049.jpg" />
 </div>
 
 
@@ -136,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59927.jpg" />
 </div>
 
 
@@ -164,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59595.jpg" />
 </div>
 
 
@@ -190,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59419.jpg" />
 </div>
 
 
@@ -216,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59285.jpg" />
 </div>
 
 
@@ -242,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59177.jpg" />
 </div>
 
 
@@ -268,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59021.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59021.jpg" />
 </div>
 
 
@@ -295,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58996.jpg" />
 </div>
 
 
@@ -321,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58687.jpg" />
 </div>
 
 
@@ -347,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58657.jpg" />
 </div>
 
 
@@ -373,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58486.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58486.jpg" />
 </div>
 
 
@@ -401,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58246.jpg" />
 </div>
 
 
@@ -427,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58029.jpg" />
 </div>
 
 
@@ -453,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57939.jpg" />
 </div>
 
 
@@ -479,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57828.jpg" />
 </div>
 
 
@@ -505,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57791.jpg" />
 </div>
 
 
@@ -531,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57608.jpg" />
 </div>
 
 
@@ -542,137 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:147FCD57857B8D781546AD38C1312136245C5501
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721311   (57389) от 06.05.2024
-
-Небеса могут подождать / Heaven Can Wait (1978) HDTVRip [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57389.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация (ремейк) по одноимённой пьесе Гарри Сигалла.
- Стареющая звезда футбола Джо Пендлтон погибает в результате несчастного случая на дороге, а его дух оказывается в руках сверхусердного ангела. После того как тело Джо уже кремировано, на небесах выясняется, что ему ещё не пришло время умирать. И перед ангелом и самим Всевышним стоит нелёгкая задача — найти (   Читать дальше...   )Производство: США / Paramount Pictures, Shelburne AssociatesЖанр: фэнтези, мелодрама, комедия, спорт, экранизацияРежиссер: Уоррен Битти, Бак ГенриАктеры: Уоррен Битти, Джули Кристи, Джеймс Мейсон, Джек Уорден, Чарльз Гродин, Дайан Кэннон, Бак Генри, Винсент Гардения, Джозеф Маэр, Хэмилтон КэмпПеревод: Многоголосый профессиональныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:36:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F858E0590848220015C5910F16FBC472A4554D98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721533   (57088) от 09.05.2024
-
-Путешествие к центру Земли / Journey to the Center of the Earth (1959) BDRip [H.264] [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57088.jpg" />
-</div>
-
-
-###  Подробнее
-
-По одноимённому роману Жюля Верна... 1880 год. Эдинбург, Англия. Профессор геологии Линденбрук обнаруживает в образцах лавы из окрестностей вулкана на севере Исландии остатки организмов, исчезнувших с лица Земли тысячи лет назад. Вывод - под земной корой могла сохраниться доисторическая жизнь. Линденбрук готовит экспедицию к центру Земли, которая должна стартовать (   Читать дальше...   )Производство: США / 20th Century Fox Film Corporation, Cooga Mooga, Joseph M. Schenck EnterprisesЖанр: фантастика, приключенияРежиссер: Генри ЛевинАктеры: Пэт Бун, Джеймс Мэйсон, Дайан Бейкер, Арлин Даль, Питер Ронсон, Тэйер Дэвид, Боб Адлер, Алан Напье, Мэри Брэйди, Алан Кайу, Джон Эппер, Эдит Эвансон, Алекс Финлейсон, Молли Глиссинг, Фредерик ХоллидэйПеревод: профессиональный многоголосый, любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:11:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCABD73DF81ABE7EE929B869681C01CFE227866B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722441   (56870) от 11.05.2024
-
-Незнакомец / Убийца Розмари / The Prowler (1981) BDRip [H.264] [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56870.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1945 году вернувшийся с войны солдат убил свою девушку и её нового парня. Дело было во время школьного выпускного бала. И с тех пор в городе этот праздник не проводился, пока в 1980 году его не решили провести снова... В городе тут же начали появляться новые юные жертвы. И деятельная девушка Пэм взяла на себя труд раскопать давнишнюю историю так и не пойманного (   Читать дальше...   )Производство: США / GraduationЖанр: ужасы, детектив, триллерРежиссер: Джозеф ЗитоАктеры: Вики Даусон, Кристофер Гутмэн, Лоуренс Тирни, Фарли Грейнджер, Синди Вентрауб, Лиза Дансхет, Дэвид Седерхолм, Билл Нуннери, Том Брэй, Дайан Роуд, Брайан Инглунд, Донна Дэвис, Карлтон Карпентер, Джой Глаккум, Тимоти УорерПеревод: профессиональный многоголосый, авторский, любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:28:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D5F3B54B8FBA773481E19C4FE8BC63A6DB2E064
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723177   (56568) от 14.05.2024
-
-Калоян / Kaloyan (1963) DVDRip [DVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56568.jpg" />
-</div>
-
-
-###  Подробнее
-
-1197 год. Часть болгарских земель всё ещё остаётся под византийским владычеством. Царь Петр убит заговорщиками, а на престол восходит его младший брат Калоян. Калоян желает вернуть болгарские земли, для чего, в связи со сложной обстановкой в тогдашней Европе, ему приходится проводить очень гибкую внешнюю политику. Римский папа Иннокентий III признает его царство, (   Читать дальше...   )Производство: Болгария / Киностудия «Бояна»Жанр: драма, историяАктеры: Василь Стойчев, Богомил Симеонов, Спас Джонев, Андрей Михайлов, Магдалена Мирчева, Цветана Манева, Иван Стефанов, Иван Тон,Николай Дойчев, Любомир ДимитровПеревод: Двуголосый любительский (den904 и DeadSno)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:41:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29FFB017E2AF51AB9ABC63A7B8ABBAE44FE88164
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724154   (56175) от 18.05.2024
-
-Клещ / Il saprofita / The Profiteer (1974) DVDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немой семинарист устраивается в богатую семью ухаживать за мальчиком, прикованным к инвалидной коляске. Он использует предоставившийся ему шанс, чтобы устроить собственную судьбу, не взирая на моральные принципы...Производство: Италия / Belial, Ministero del Turismo e dello SpettacoloЖанр: драма, мелодрамаРежиссер: Серджо НаскаАктеры: Валерия Морикони, Эл Клайвер, Джанкарло Мэринэнджели, Джанет Агрен, Чинция Бруно, Леопольдо Триесте, Джанкарло Бадесси, Даниэле Дублино, Пиа Морра, Клара КолозимоПеревод: авторский (Владимир Штейн)Язык озвучки: русский, итальянскийСубтитры: русские, английские (VobSub)Продолжительность: 01:33:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D64F7C031F5FE4791A1438C26F35AAB67DD3C56A
 ```
 
 https://mybot314.ru/tekegram_catalog/

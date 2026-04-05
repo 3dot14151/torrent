@@ -1,3 +1,32 @@
+###  Публикация: 1112175   (844855) от 07.03.2017
+
+Axxis - Retrolution (2017) [MP3|320 Kbps] <Hard Rock, Melodic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844855.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Burn! Burn! Burn! (3:02)
+2. All My Friends Are Liars (3:55)
+3. Dream Chaser (3:19)
+4. Burn Down Your House (3:59)(   Читать дальше...   )Жанр: Hard Rock, Melodic Heavy MetalПродолжительность: 00:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67C2313C8C617D17FCF78DDA0E5AB36E9DDF0E1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1500929   (839821) от 07.10.2021
 
 Gus G. - Quantum Leap (2021) [MP3|320 Kbps] <Hard Rock, Heavy Metal, Guitar Instrumental>
@@ -6,7 +35,7 @@ Gus G. - Quantum Leap (2021) [MP3|320 Kbps] <Hard Rock, Heavy Metal, Guitar Inst
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839821.jpg" />
 </div>
 
 
@@ -36,7 +65,7 @@ Deep Purple - All I Got Is You (2017) EP [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839648.jpg" />
 </div>
 
 
@@ -65,7 +94,7 @@ Joe Satriani - Unstoppable Momentum (2013) [MP3|320 кб/с]<Instrumental-Rock, 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839507.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839507.jpg" />
 </div>
 
 
@@ -94,7 +123,7 @@ Slade - Singles Collection, 3CD (2003) [MP3|320 kbps]<Glam Rock, Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_839100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839100.jpg" />
 </div>
 
 
@@ -120,7 +149,7 @@ Cheap Trick - Bang Zoom Crazy … Hello (2016) [MP3|320 кб/с] <Rock, Hard Roc
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838297.jpg" />
 </div>
 
 
@@ -149,7 +178,7 @@ AC/DC - Greatest Hell's Hits (2009) [MP3|320 кб/с]<Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_838090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838090.jpg" />
 </div>
 
 
@@ -178,7 +207,7 @@ Eclipse - Monumentum (2017) Japanese Edition [MP3|320 Kbps] <Hard Rock, Melodic 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836210.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836210.jpg" />
 </div>
 
 
@@ -207,7 +236,7 @@ Deep Purple - Limitless (2017) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_836066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836066.jpg" />
 </div>
 
 
@@ -236,7 +265,7 @@ Uriah Heep - Three Years With Lawton (2011) [MP3|320 кб/с] <Rock, Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_834267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834267.jpg" />
 </div>
 
 
@@ -265,7 +294,7 @@ The Snakes - Once Bitten... (1998) [MP3|320 кб/с] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830911.jpg" />
 </div>
 
 
@@ -294,7 +323,7 @@ Velvet Insane - Velvet Insane (2017) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826551.jpg" />
 </div>
 
 
@@ -323,7 +352,7 @@ Hardbone - No Frills (2020) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826246.jpg" />
 </div>
 
 
@@ -352,7 +381,7 @@ Jodo - Guts (1971) Reissue, 2007,  Lion Records [MP3|320 Kbps] <Psych Hard Rock 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824868.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824868.jpg" />
 </div>
 
 
@@ -381,7 +410,7 @@ Sunz of Sam - One Night Only (2017) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824664.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ Joker - Joker (1990) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822893.jpg" />
 </div>
 
 
@@ -439,7 +468,7 @@ Treat - Ghost Of Graceland (2016) [MP3|320 кб/с] <Melodic Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817945.jpg" />
 </div>
 
 
@@ -468,7 +497,7 @@ Ace Frehley - Origins Vol. 1 (2016) [MP3|320 кб/с] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_817845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817845.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ Drive She Said - Pedal To The Metal (2016) [MP3|320 кб/с] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815934.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ The Lucky Dutch - Cadillac Coffin (2016) [MP3|320 кб/с] <Hard Rock, Blues Roc
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815928.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ Bonfire - Byte the Bullet (2017) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_815063.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815063.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ Black Veil Brides - Vale (2018) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808157.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ Def Leppard - Too Many Jitterbugs (B-Sides and Rarities) (2020) [MP3|320 Kbps] <
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_808002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808002.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ Jaded Heart - Guilty by Design (2016) [MP3|320 кб/с] <Hard Rock, Hard 'n' Hea
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_805996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805996.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ Ladies Ballbreaker - Whole Lotta Bobby (2020) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_804275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804275.jpg" />
 </div>
 
 
@@ -700,7 +729,7 @@ MIKE TRAMP & Freak Of Nature - Дискография (1993-2011) [MP3|320 kbps]
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_803382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803382.jpg" />
 </div>
 
 
@@ -711,35 +740,6 @@ MIKE TRAMP & Freak Of Nature - Дискография (1993-2011) [MP3|320 kbps]
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198850   (802838) от 14.01.2018
-
-Dirty Tricks - Night Man (1976) Reissue, 2004, Majestic Rock [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_802838.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Night Man
-2. Weekend Raver
-3. Armageddon (Song For A Rainbow)
-4. Fun Brigade(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:15:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A82D43024B155E525DB1678E4C2222CB1630EEFA
 ```
 
 https://mybot314.ru/tekegram_catalog/

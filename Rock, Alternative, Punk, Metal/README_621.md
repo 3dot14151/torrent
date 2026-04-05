@@ -1,3 +1,32 @@
+###  Публикация: 1163510   (448147) от 06.09.2017
+
+Бранимир - Жизнь и смерть Скруджа Макдака (2017) [MP3|256 Kbps] <Acoustic, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Банга (5:16)
+02. Щенки (7:28)
+03. Нули (7:07)
+04. Малиновый Король (4:36)(   Читать дальше...   )Жанр: Acoustic, RockПродолжительность: 00:45:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42997E1A9DD908BA590D268903B9ECDC05882777
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 552435   (447805) от 26.09.2012
 
 VA - Re-Machined: A Tribute To Deep Purple's Machine Head (2012) [FLAC|Lossless]<Hard Rock/Heavy Metal>
@@ -6,7 +35,7 @@ VA - Re-Machined: A Tribute To Deep Purple's Machine Head (2012) [FLAC|Lossless]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_447805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_447805.jpg" />
 </div>
 
 
@@ -41,7 +70,7 @@ VA - WWE Raw Greatest Hits: The Music 15th Anniversary (2008) [FLAC|Lossless]<Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_447721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_447721.jpg" />
 </div>
 
 
@@ -76,7 +105,7 @@ The Beatles & The Rolling Stones - When Two Legends Collide [BOOTLEG] (1967) [MP
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_447705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_447705.jpg" />
 </div>
 
 
@@ -111,7 +140,7 @@ Scorpions - 3 альбома (1972-1995) Japan Mini-LP SHM-CD /2010/ [FLAC|Lossl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_447629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_447629.jpg" />
 </div>
 
 
@@ -140,7 +169,7 @@ Joe Satriani - The Very Best (2010) [MP3|320 kbps]<Рок / Guitar, Instrumental
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_447628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_447628.jpg" />
 </div>
 
 
@@ -175,7 +204,7 @@ Tramtracks - Then? (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447589.jpg" />
 </div>
 
 
@@ -204,7 +233,7 @@ Ensepulchre - Desolation (2020) [MP3|320 Kbps] <Blackened Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447588.jpg" />
 </div>
 
 
@@ -233,7 +262,7 @@ Heat Affected Zone - Limbo Bar (2020) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447586.jpg" />
 </div>
 
 
@@ -262,7 +291,7 @@ Tramtracks - Then? (2020) [MP3|320 Kbps] <Progressive Rock, Crossover Prog>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447578.jpg" />
 </div>
 
 
@@ -291,7 +320,7 @@ Ihsahn - Pharos (2020) EP [FLAC|Lossless|image + .cue] <Extreme Progressive Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447574.jpg" />
 </div>
 
 
@@ -320,7 +349,7 @@ Militarie Gun - My Life Is Over (2020) EP [MP3|320 Kbps] <Post-Hardcore, Garage�
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447496.jpg" />
 </div>
 
 
@@ -349,7 +378,7 @@ Raven - Metal City (2020) [MP3|320 Kbps] <Speed, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447489.jpg" />
 </div>
 
 
@@ -378,7 +407,7 @@ Mythos - 3 Albums (1978-1980) Reissue CD [MP3|320 Kbps] <Electronic, Krautrock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447488.jpg" />
 </div>
 
 
@@ -407,7 +436,7 @@ Gazpacho - Fireworker (2020) [MP3|320 Kbps] <Progressive Rock, Atmospheric Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447483.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447483.jpg" />
 </div>
 
 
@@ -436,7 +465,7 @@ Altars - Ascetic Reflection (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447411.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447411.jpg" />
 </div>
 
 
@@ -465,7 +494,7 @@ Finntroll - Vredesvävd (2020) [MP3|320 Kbps] <Blackened Folk Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447368.jpg" />
 </div>
 
 
@@ -494,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447361.jpg" />
 </div>
 
 
@@ -523,7 +552,7 @@ Heart Of A Coward - Deliverance (2015) [FLAC|tracks|WEB-DL]<Progressive Metalcor
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447332.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447332.jpg" />
 </div>
 
 
@@ -552,7 +581,7 @@ Deer Creek - Menticide (2022) [MP3|320 Kbps] <Sludge, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447323.jpg" />
 </div>
 
 
@@ -581,7 +610,7 @@ Axioma - Sepsis (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447322.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447322.jpg" />
 </div>
 
 
@@ -610,7 +639,7 @@ Loa Ride - 2 Relises (2021-2022) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner, Doom
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447320.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447320.jpg" />
 </div>
 
 
@@ -639,7 +668,7 @@ El Astronauta - 2 Albums (2021-2022) [MP3|320 Kbps] <Heavy Stoner Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447318.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447318.jpg" />
 </div>
 
 
@@ -668,7 +697,7 @@ Stress im Bus - Chruzpe (2022) [MP3|320 Kbps] <Grunge, Stoner, Fuzz, Garage>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447316.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447316.jpg" />
 </div>
 
 
@@ -697,7 +726,7 @@ The Bardic Depths - 2 Albums (2020-2022) [MP3|320 Kbps] <Psychedelic Rock, Stone
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447312.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447312.jpg" />
 </div>
 
 
@@ -726,7 +755,7 @@ Dogz Of War - Judgment (2022) [MP3|320 Kbps] <Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447305.jpg" />
 </div>
 
 
@@ -740,35 +769,6 @@ Dogz Of War - Judgment (2022) [MP3|320 Kbps] <Hardcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1AA4DF3C46BA6E06E695319C17ACB197E1EBD20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569890   (447303) от 15.08.2022
-
-Хаме-леоН - Крики! (2022) [MP3|320 Kbps] <Heavy Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_447303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Утро мёртвых [00:01:08]
-02 - Бежать! [00:04:42]
-03 - Navigator [00:06:38]
-04 - Я знаю имя [00:05:18](   Читать дальше...   )Жанр: Heavy Power MetalПродолжительность: 00:54:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DDA0CBD33E25B791FBB0E11415252D9F8DA82BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

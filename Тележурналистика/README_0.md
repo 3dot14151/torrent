@@ -1,3 +1,29 @@
+###  Публикация: 1851534   (1055331) от 02.02.2026
+
+Предательство (2026) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм расскажет о гражданах страны, осужденных за террористическую и экстремистскую деятельность, о тех, кто предал родных, близких, родину. В основе фильма – истории от отбывающих наказание. Считают ли они себя предателями? Что толкнуло их на совершение преступления против своих же? В каких семьях они выросли? Что видели в родном городе? О чем мечтали?Производство: Россия 1Жанр: ДокументальныйРежиссер: Андрей МедведевЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:00:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5A5CABA4509F5359FBA7484FDFFF0B5893F0E43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1851332   (1054989) от 01.02.2026
 
 Чудо техники с Сергеем Малозёмовым (01.02.2026) WEBRip [H.264/720p]
@@ -6,7 +32,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054989.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1054748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054748.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053875.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053875.jpg" />
 </div>
 
 
@@ -91,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1053618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053618.jpg" />
 </div>
 
 
@@ -117,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051727.jpg" />
 </div>
 
 
@@ -143,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1051725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051725.jpg" />
 </div>
 
 
@@ -169,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050315.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050315.jpg" />
 </div>
 
 
@@ -197,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050263.jpg" />
 </div>
 
 
@@ -223,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1050156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050156.jpg" />
 </div>
 
 
@@ -249,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1049550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049550.jpg" />
 </div>
 
 
@@ -278,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049396.jpg" />
 </div>
 
 
@@ -306,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1049328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049328.jpg" />
 </div>
 
 
@@ -332,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048473.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048473.jpg" />
 </div>
 
 
@@ -360,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048335.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048335.jpg" />
 </div>
 
 
@@ -386,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1048255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048255.jpg" />
 </div>
 
 
@@ -413,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047542.jpg" />
 </div>
 
 
@@ -439,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_1047531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047531.jpg" />
 </div>
 
 
@@ -467,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047348.jpg" />
 </div>
 
 
@@ -494,7 +520,7 @@ NG. Лос-Анджелес 92. Беспорядки / LA 92 (2017) WEB-DL [H.26
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_1047167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047167.jpg" />
 </div>
 
 
@@ -520,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046897.jpg" />
 </div>
 
 
@@ -546,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046839.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046839.jpg" />
 </div>
 
 
@@ -574,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046783.jpg" />
 </div>
 
 
@@ -600,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046622.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046622.jpg" />
 </div>
 
 
@@ -627,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044547.jpg" />
 </div>
 
 
@@ -653,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043861.jpg" />
 </div>
 
 
@@ -665,32 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5687E15E7D974F77D7A7CEFD87EBB549C43470ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608049   (1043804) от 28.01.2023
-
-Следствие вели... (28.01.2023) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043804.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Не твой ребенок!». 1983 год. В Калининграде исчезает беременная женщина, а вскоре ее находят мертвой. Как сыщики шли по следу убийцы? Какую роль в этом деле сыграли сумка на колесиках и кольцо с янтарем? И какое еще преступление было раскрыто в ходе расследования?Производство: Россия | Телекомпания «НТВ»Жанр: Документальный, криминал, расследованиеЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB7E71BC25323BE8C6C136C9982467C840CEA09C
 ```
 
 https://mybot314.ru/tekegram_catalog/

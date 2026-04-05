@@ -1,3 +1,82 @@
+###  Публикация: 1183438   (298786) от 18.11.2017
+
+Ванька (1959) HDTVRip [H.264/1080p-LQ]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298786.jpg" />
+</div>
+
+
+###  Подробнее
+
+O том, как 9-летний мальчик Ванька Жуков в письме к дедушке жалуется на свою тяжелую жизнь…Производство: СССРЖанр: Короткометражный, детскийРежиссер: Эдуард БочаровАктеры: Саша Барсов, Николай Никитич, Николай Плотников, Нонна Мордюкова, Петр Алейников, Владимир Борискин, Георгий Бударов, Алевтина Румянцева, Николай Сморчков, Ксения КозьминаПродолжительность: 00:30:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD6E4C8A0298E647C6E2CA2761B4E86D6B84AC8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 426057   (273938) от 22.12.2011
+
+Золушка (1947) BDRip [H.264/1080p] [Цветной. Реставрация]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273938.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основа сюжета — старинный сказочный мотив о трудолюбивой Золушке, злой мачехе и ленивых сестрах. Разумеется, Шварцем переработанный и оживленный до уровня комедии, в которой есть и просто юмор, и злая сатира.
+До сих пор этот нежный и добрый фильм продолжает радовать и удивлять больших и маленьких. А вы попробуйте не удивиться тому, что к вам в гости приходит волшебница (   Читать дальше...   )Производство: СССР / ЛенфильмЖанр: Мюзикл, фэнтези, мелодрама, комедия, семейныйРежиссер: Надежда Кошеверова, Михаил ШапироАктеры: Янина Жеймо, Алексей Консовский, Эраст Гарин, Фаина Раневская, Елена Юнгер, Тамара Сезеневская, Василий Меркурьев, Александр Румнев, Варвара Мясникова, Игорь КлименковПеревод: оригиналСубтитры: нетПродолжительность: 01:18:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:049793B28C4B14270E6A97EE19E670F842600E85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262457   (270964) от 01.12.2018
+
+Большое приключение (1985) WEBRip [H.264/1080p-LQ] (серии 1-2 из 2)
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270964.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пионеры Вася, Олег, Игорь, Яна, Таня и самый младший из них Вовочка со своим питомцем, петухом Федей, отправляются в поход по родному краю. Много приключений выпадает на их долю. Приходится проявить смекалку, смелость, трудолюбие. Надолго останутся в памяти ребят встречи с разными людьми…Производство: СССРЖанр: Приключения, семейныйРежиссер: Вячеслав НикифоровАктеры: Сергей Семянов, Ольга Богданова, Анастасия Гиренкова, Олег Курочкин, Антон Дворников, Александр Старовойтов, Александр Денисов, Валерий Шальных, Владимир Шевельков, Сергей Скрибо, Галина МакароваСубтитры: ОтсутствуютПродолжительность: ~01:15:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1910E876DA08BBCB8C865F98DC9AB00D83428E86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1267657   (265728) от 07.12.2018
 
 Огоньки (2018) WEBRip [H.264/1080p-LQ]
@@ -6,7 +85,7 @@
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265728.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263024.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263024.jpg" />
 </div>
 
 
@@ -59,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260600.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257923.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_257775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257775.jpg" />
 </div>
 
 
@@ -137,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_252563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252563.jpg" />
 </div>
 
 
@@ -163,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_250380.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250380.jpg" />
 </div>
 
 
@@ -189,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_247545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247545.jpg" />
 </div>
 
 
@@ -216,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242984.jpg" />
 </div>
 
 
@@ -242,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241075.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241075.jpg" />
 </div>
 
 
@@ -268,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_238055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238055.jpg" />
 </div>
 
 
@@ -294,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_237533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237533.jpg" />
 </div>
 
 
@@ -321,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237336.jpg" />
 </div>
 
 
@@ -347,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_237100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237100.jpg" />
 </div>
 
 
@@ -373,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235641.jpg" />
 </div>
 
 
@@ -399,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235610.jpg" />
 </div>
 
 
@@ -425,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235283.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235283.jpg" />
 </div>
 
 
@@ -451,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_233910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233910.jpg" />
 </div>
 
 
@@ -477,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_232926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232926.jpg" />
 </div>
 
 
@@ -503,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_229632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229632.jpg" />
 </div>
 
 
@@ -529,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212742.jpg" />
 </div>
 
 
@@ -555,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212630.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212630.jpg" />
 </div>
 
 
@@ -582,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212476.jpg" />
 </div>
 
 
@@ -594,86 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18FFF075E4AB7667AF01DFD604229F4ED0AC790A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564875   (212324) от 21.07.2022
-
-Добро пожаловать, или Посторонним вход воспрещен (1964) BDRip [H.264/2160p-LQ] [upscale AI colored]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_212324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пионер Костя Иночкин, будучи в пионерском лагере, переплыл реку и оказался на запретной для посещений территории, за что и был изгнан его начальником товарищем Дыниным. Не желая доводить бабушку до инфаркта своим досрочным прибытием, мальчик тайно возвращается в лагерь, где пионеры так же тайно содержат его и предпринимают все меры, чтобы не состоялся родительский (   Читать дальше...   )Производство: СССР / МосфильмЖанр: комедия, семейныйРежиссер: Элем КлимовАктеры: Виктор Косых, Евгений Евстигнеев, Арина Алейникова, Илья Рутберг, Лидия Смирнова, Алексей Смирнов, Нина Шацкая, Лидия Волкова, Татьяна Барышева, Александр БайковЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:13:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:833C58C1941395DEE3D49443B1BB0CF039F8486C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641761   (210690) от 24.06.2023
-
-Колыбельная для брата (1982) WEB-DL [H.264/720p]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210690.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ежегодно летом ребята встречаются для того, чтобы уйти в очередное плавание на паруснике. Всем им очень повезло на верных и преданных друзей. Но семиклассник Кирилл остро ощущает отсутствие дружбы в своем классе.
-Особенно он это почувствовал, когда его обвинили в краже кошелька. Кирилл сам нашел вора — им оказался тихий и беззащитный Чирок, идущий на поводу у дворовых (   Читать дальше...   )Производство: СССР / Центральная киностудия детских и юношеских фильмов имени М. Горького, Первое творческое объединениеЖанр: драма, детский, приключенияРежиссер: Виктор ВолковАктеры: Егор Грамматиков, Елена Москаленко, Владимир Зотов, Валерий Федорищев, Андрей Монахов, Владимир Пучков, Лариса Блинова, Софья Павлова, Лев Дуров, Александра НазароваСубтитры: ОтсутствуютПродолжительность: 01:06:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F1BA1BEDA31B0EE2FBDAE2DFB1463A3BD461599
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642371   (210476) от 27.06.2023
-
-Бронзовая птица (1974) HDTVRip [H.264/720p-LQ] (серии 1-3 из 3)
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210476.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация одноименной повести Анатолия Рыбакова Бронзовая птица.
-Пионерский отряд, в который входят Миша, Гена, Слава (герои фильма Кортик), выезжает на лето за город в палаточный лагерь, расположенный у бывшего имения графа Карагаева. Два мальчика, Игорь и Сева, убегают - то ли бить итальянских фашистов, то ли из-за насмешек Генки. Пионеры прочесывают лес. Ночью (   Читать дальше...   )Производство: СССР / БеларусьфильмЖанр: Экранизация, приключения, семейный, детскийРежиссер: Николай КалининАктеры: Сергей Шевкуненко, Владимир Дичковский, Игорь Шульженко, Мария Капнист, Юрий Сидоров, Виктор Чекмарёв, Николай Кузьмин, Олег Севостьянов, Августин Милованов, Николай КрюковСубтитры: ОтсутствуютПродолжительность: 01:04:25 / 01:03:39 / 01:03:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0CF1F147DE9D38906840A48FD13089517C58639
 ```
 
 https://mybot314.ru/tekegram_catalog/

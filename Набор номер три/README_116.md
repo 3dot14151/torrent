@@ -1,3 +1,161 @@
+###  Публикация: 972954   (896668) от 04.03.2016
+
+Хроники Шаннары / The Shannara Chronicles (2016) WEB-DLRip (сезон 1, серии 1-10 из 10) BaibaKo
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896668.jpg" />
+</div>
+
+
+###  Подробнее
+
+События сериала происходят в далёком будущем. Войны разделили Северную Америку на 4 части. На какой-то из них обитают эльфы, на иной — люди, на третьей — тролли и на четвёртой — дворфы. Основными персонажами сериала окажутся отпрыски древнего рода эльфов — Шаннара. Именно от них будет зависеть будущая судьба планеты…Производство: США / Farah Films, Music Television (MTV), Sonar EntertainmentЖанр: фантастика, фэнтези, приключенияРежиссер: Брэд Тернер, Джонатан Либесман, Джеймс МаршаллАктеры: Ивана Бакеро, Дэниэл МакФерсон, Джон Рис-Дэвис, Маркус Ванко, Брук Уильямс, Ману Беннетт, Остин Роберт Батлер, Поппи Дрейтон, Аарон Якубенко и др.Перевод: Многоголосый закадровый, профессиональный - BaibaKoОзвучка: Светлана Доманова, Юлия Котурбаш, Семён Птаха и Олекса МельникПродолжительность: ~00:41:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:513D1ACBD922DB5D064EC06436DF537A63157752
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 719643   (896667) от 04.03.2016
+
+Grim Dawn (2016) [En/Ru] (1.0.0.1) SteamRip Let'sРlay
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Grim Dawn - мрачный рассвет нового века, где железо заменило золото в качестве валюты и обыкновенная соль приобрела такую цену, что ее перестали использовать в еде. Небольшие разрозненные анклавы оставшихся в живых существуют по всему миру, скрываясь в убежищах. Наблюдая, как враждующие захватчики грызут друг другу глотки, люди начали изучать слабые и сильные стороны (   Читать дальше...   )Тип издания: SteamRipРазработчик: Crate EntertainmentЖанр: RPG (Rogue, Action), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76DC52397764C645EDDC549933393AE919B5244A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368254   (896251) от 27.03.2020
+
+Кома (2020) WEB-DL [H.264/720p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896251.jpg" />
+</div>
+
+
+###  Подробнее
+
+После аварии молодой, талантливый архитектор приходит в себя в очень странном мире, лишь частично похожем на реальность. Ему предстоит выяснить, по каким законам существует это пространство, бороться за жизнь, встретить любовь, найти, наконец, выход в реальный мир и осознать его по-новому, поняв, что такое КОМА на самом деле.Производство: Россия / «Большое Кино», «Fresh Film», «КИТ», «Марс Медиа»Жанр: Фантастика, фэнтези, боевик, приключенияРежиссер: Никита АргуновАктеры: Риналь Мухаметов, Любовь Аксенова, Антон Пампушный, Милош Бикович, Константин Лавроненко, Полина Кузьминская, Ростислав Гулбис, Вилен Бабичев, Игорь Сигаев, Евгения КаратыгинаПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:50:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C297F77E6A96305D9B3094D3A60316016C2074EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 560040   (895718) от 02.04.2013
+
+Girls und Panzer / Девушки и танки [2012, TV, 12 из 12 +2sp+1OVA] HDTV 720p raw
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_895718.jpg" />
+</div>
+
+
+###  Подробнее
+
+Энергичная и непосредственная 17-летняя Михо Нисидзуми перевелась в девичью старшую школу Оарай, где быстро завела подруг. Новенькую заметили, и вскоре президент Школьного совета лично предложила ей… поучаствовать в танковых войнах. А все дело в том, что в мире сериала танковый спорт считается более подходящим для девичьей натуры, чем икэбана, танцы и домоводство вместе взятые! Если же учесть, что в скором будущем в Японии пройдет мировой чемпионат, то все престижные академии начали срочно укреплять собственные команды. Ну а главная героиня, разумеется, происходит из семьи с такими бронетанковыми традициями, что хочешь, не хочешь, а участь ее предрешена!
+
+Конечно, танковый спорт в этой истории какой-то особый, и занимаются им нежные школьницы вовсе не в промасленных робах, а в белоснежных блузках. Но суть остается прежней – надо учить матчасть, слаживать экипажи, копить опыт и мастерство, чтобы переиграть противника стратегически и тактически, превратить слабости в силу и победить. А коли новые подруги горят энтузиазмом, (   Читать дальше...   )Жанр: приключенияРежиссер: Мидзусима Цутому / Mizushima Tsutomu / 水島努Продолжительность: ТВ, 12 эп. по 25 мин. +2sp+1OVA
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBC6A4E06404B5F48EC09C79523672BDDAC7D41D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561086   (895715) от 02.04.2013
+
+Ходячие мертвецы / The Walking Dead (2012-2013) (Сезон 3 полный, Серия 1-16 (16)) WEB-DL [1080p] (Fox Russia)
+
+>>3
+>>19
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал рассказывает историю жизни семьи шерифа после того, как «зомби» — эпидемия апокалипсических масштабов захлестнула земной шар. Шериф Рик Граймс путешествует со своей семьей и небольшой группой выживших в поисках безопасного места для жизни. Но постоянный страх смерти каждый день приносит тяжелые потери, заставляя героев почувствовать глубины человеческой жестокости. (   Читать дальше...   )Жанр: Ужасы, мистика, триллерРежиссер: Эрнест Р. Дикерсон, Билл Джирхарт, Гай ФерлендАктеры: Эндрю Линкольн, Сара Уэйн Кэллис, Лори Холден, Стивен Юн, Чендлер Риггз, Норман Ридус, Айрон Э. Синглтон, Мелисса Сюзанн МакБрайд, Лорен Коэн, Джон БернталПеревод: Профессиональный многоголосый (Fox Russia)Формат: MKVПродолжительность: 16 x 00:43:07
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561071   (895714) от 02.04.2013
+
+Ходячие мертвецы / The Walking Dead (3 сезон, 16 из 16) (2012) WEB-DLRip (FOX)
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал рассказывает историю жизни семьи шерифа после того, как «зомби» — эпидемия апокалипсических масштабов захлестнула земной шар. Шериф Рик Граймс путешествует со своей семьей и небольшой группой выживших в поисках безопасного места для жизни. Но постоянный страх смерти каждый день приносит тяжелые потери, заставляя героев почувствовать глубины человеческой жестокости. (   Читать дальше...   )Жанр: Ужасы, Драма, ТриллерРежиссер: Эрнест Р. Дикерсон, Гай Ферленд, Гвинет Хордер-ПэйтонАктеры: Эндрю Линкольн, Джон Бернтал, Сара Уэйн Кэллис, Лори Холден, Джеффри ДеМанн, Стивен Юн, Чендлер Риггз, Айрон Э. Синглтон, Норман Ридус, Мелисса Сюзанн МакБрайдПеревод: Многоголосый закадровый, профессиональныйПродолжительность: ~ 00:45:00 серия
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1101235   (895696) от 06.02.2017
 
 Машины-монстры: МВТ V164-8.0 - гигантский ветряной генератор, установивший рекорд по количеству вырабатываемой энергии
@@ -6,7 +164,7 @@
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895696.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895494.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ NVIDIA GeForce Desktop 378.57 Hotfix driver + For Notebooks [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895488.jpg" />
 </div>
 
 
@@ -84,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895417.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895417.jpg" />
 </div>
 
 
@@ -110,7 +268,7 @@ S.T.A.L.K.E.R.: Call of Pripyat / S.T.A.L.K.E.R.: Зов Припяти [Ru] (Re
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895412.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895412.jpg" />
 </div>
 
 
@@ -138,7 +296,7 @@ Windows 10 PE (x86/x64) v.4.9.1 by Ratiborus [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895376.jpg" />
 </div>
 
 
@@ -164,7 +322,7 @@ Battlefield 1 (2016) [Ru/Multi] (1.0.47.30570/dlc/upd3) Rip =nemos= [Digital Del
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895363.jpg" />
 </div>
 
 
@@ -190,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895356.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895356.jpg" />
 </div>
 
 
@@ -222,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895285.jpg" />
 </div>
 
 
@@ -250,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895095.jpg" />
 </div>
 
 
@@ -276,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>11
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895093.jpg" />
 </div>
 
 
@@ -302,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895060.jpg" />
 </div>
 
 
@@ -330,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>9
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894946.jpg" />
 </div>
 
 
@@ -356,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894938.jpg" />
 </div>
 
 
@@ -382,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894918.jpg" />
 </div>
 
 
@@ -408,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894911.jpg" />
 </div>
 
 
@@ -434,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894904.jpg" />
 </div>
 
 
@@ -460,7 +618,7 @@ ESET Endpoint Security / Antivirus 6.3.2016.1 RePack by KpoJIuK [Ru/En]
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894896.jpg" />
 </div>
 
 
@@ -486,7 +644,7 @@ Into The Stars (2016) [Ru/Multi] (1.0) License FairLight
 >>4
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894891.jpg" />
 </div>
 
 
@@ -512,7 +670,7 @@ Prison Architect (2015) [Ru/Multi] (1.0/upd#4b) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894884.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894884.jpg" />
 </div>
 
 
@@ -523,165 +681,6 @@ Prison Architect - это инди-игра и в то же время стра�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:315EED110278FB9AD495CFB0403DBD05550F767B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993323   (894878) от 05.03.2016
-
-Windows 7 Ultimate SP1 IDimm Edition х86/x64 v.22.16 [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894878.jpg" />
-</div>
-
-
-###  Подробнее
-
-• Сборки представлены в виде двух отдельных образов: х86 и х64.
-• Сборки основаны на официальных образах MICROSOFT MSDN:
-ru_windows_7_ultimate_with_sp1_x86_dvd_u_677463.iso
-ru_windows_7_ultimate_with_sp1_x64_dvd_u_677391.iso.(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04B579635D01A8A0025058FBD26ED7A1F03C74A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993709   (894872) от 05.03.2016
-
-Омерзительная восьмерка / The Hateful Eight (2015) HDRip [H.264/720p-LQ] [Line]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894872.jpg" />
-</div>
-
-
-###  Подробнее
-
-США после Гражданской войны. Легендарный охотник за головами Джон Рут по кличке Вешатель конвоирует заключенную. По пути к ним прибивается еще один охотник. Снежная буря вынуждает всех троих искать укрытие в лавке на отшибе, где уже расположилась весьма пестрая компания: генерал, шериф, мексиканец, француз и ковбой… И один из них — не тот, за кого себя выдает.Производство: США, The Weinstein CompanyЖанр: ВестернРежиссер: Квентин ТарантиноАктеры: Курт Рассел, Сэмюэл Л. Джексон, Тим Рот, Майкл Мэдсен, Дженнифер Джейсон Ли, Ченнинг Татум, Уолтон Гоггинс, Зои БеллПеревод: Дубляж (чистый звук)Субтитры: Русский (ненорматив), АнглийскийПродолжительность: 02:47:00Реклама: Удалил 6 вставок рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FC621FEDBA98EE3B755A006C86175FD88A1CB51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993466   (894867) от 05.03.2016
-
-Windows 10 (v1511) RUS-ENG x86-x64 -20in1- KMS-activation (AIO)
-
->>3
->>40
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894867.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная сборка является правопреемницей сборки Windows 10 RUS-ENG x86-x64 -20in1- KMS-activation (AIO) и совмещает в себе 32-битные и 64-битные редакции в рамках общего единого дистрибутива. В сборке реализован ряд интересных решений, благодаря которым удалось получить компактный продукт, совмещающий в себе возможности шестнадцати официальных дистрибутивов. При этом (   Читать дальше...   )Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ABEAB669130E6FE2B0A6538C9E842DAC70751FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370680   (894663) от 28.03.2020
-
-Компания OneWeb объявила о банкротстве
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894663.jpg" />
-</div>
-
-
-###  Подробнее
-
-Британская компания OneWeb объявила о банкротстве. Соответствующее заявление, отправленное в суд по делам банкротств Южного округа штата Нью-Йорк, было опубликовано на сайте компании.В последнее время руководством OneWeb велись переговоры о привлечении дополнительных инвестиций, однако они провалились в связи с ухудшением мировой экономической ситуации на фоне пандемии (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369975   (894553) от 28.03.2020
-
-Лучше отойдите от меня по-хорошему
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894553.jpg" />
-</div>
-
-
-###  Подробнее
-
-Давным-давно, когда я учился в одном университете, у нас в группе был натуральный негр. Я не помню, как в те времена надо было называть представителя негроидной расы политкорректно. Этот молодой человек был необычайно общительным и все время хотел со всеми дружить, много шутил и задавал самые разнообразные темы для разговоров. Эти навыки ему потом пригодились. Говорят, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370452   (894500) от 28.03.2020
-
-Вивариум / Vivarium (2019) WEB-DL [H.264/1080p-LQ] [AVO]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894500.jpg" />
-</div>
-
-
-###  Подробнее
-
-В поисках идеального дома молодая пара знакомится со странным агентом по недвижимости. Он привозит их в новый поселок в пригороде, а затем исчезает. Том и Джемма с ужасом понимают, что они абсолютно одни в этом жутковато-стерильном лабиринте одинаковых домов и что из него нет выхода. Вскоре их одиночество будет прервано появлением у дверей коробки с младенцем, который (   Читать дальше...   )Производство: Ирландия, Дания, Бельгия / Lovely Productions, Fantastic Films, Frakas ProductionsЖанр: Фантастика, детективРежиссер: Лоркан ФиннеганАктеры: Имоджен Путс, Даниэль Райан, Молли Макканн, Джесси Айзенберг, Джонатан Арис, Сенан Дженнингс, Инна Хардвик, Ольга Верли, Джек ХадсонПеревод: Авторский (BadBajo)Субтитры: АнглийскиеПродолжительность: 01:37:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:950B5F2DD292701DEAEFD507B09D5319839B96FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

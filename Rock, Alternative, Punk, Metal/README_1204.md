@@ -1,3 +1,38 @@
+###  Публикация: 484368   (88963) от 17.04.2012
+
+Оберег - Настроение личности (2011) [MP3|320 кб/с]<Psyhodelic,Ethnic,Punk,Folk,Metall>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88963.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Каждое утро
+2 Зверь
+3 Глобальный кризис
+4 Время
+5 Утренняя сказка
+6 Подземная война
+7 Крик
+8 Шаман
+9 Убегающему
+10 В.З.С.П.(   Читать дальше...   )2011Жанр: Psyhodelic,Ethnic,Punk,Folk,Metall,Post-HardcoreПродолжительность: 00:46:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA7D2A1929EC8F8B30A0E37EFDBBE0559401CCEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 484039   (88882) от 16.04.2012
 
 Dave Gahan (солист Depeche Mode) - Дискография (2003-2008) [MP3|320 кб/с]<Alternative Rock>
@@ -6,7 +41,7 @@ Dave Gahan (солист Depeche Mode) - Дискография (2003-2008) [MP3
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88882.jpg" />
 </div>
 
 
@@ -32,7 +67,7 @@ Lostprophets - 5 альбомов - Дискография (2000-2012) [MP3|320 
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88639.jpg" />
 </div>
 
 
@@ -58,7 +93,7 @@ Digimortal - 3 альбома, 1 сингл (2007-2011) [MP3|320 кб/с]<Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88613.jpg" />
 </div>
 
 
@@ -93,7 +128,7 @@ Dave Mason - Alone Together (1970) 24Bit Remastered /2006, Universal Japan / [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88569.jpg" />
 </div>
 
 
@@ -126,7 +161,7 @@ Ylande - Северный Ветер (2012) [MP3|320 кб/с]<romantic folk>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88534.jpg" />
 </div>
 
 
@@ -161,7 +196,7 @@ Alabama Shakes - Boys & Girls (2012) [FLAC|Lossless]<Southern Rock, Blues Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88353.jpg" />
 </div>
 
 
@@ -196,7 +231,7 @@ VA - A Time To Remember Collection  30CD 1960 - 1990 (1996 - 2001) [MP3|320 кб
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88260.jpg" />
 </div>
 
 
@@ -222,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88121.jpg" />
 </div>
 
 
@@ -257,7 +292,7 @@ Dragonforce - The Power Within (2012) [MP3|320 кб/с]<Extreme Power Metal/Spee
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87567.jpg" />
 </div>
 
 
@@ -283,7 +318,7 @@ VA - The Golden Age Of American Rock 'n' Roll (1991-2009) [MP3|320 кб/с]<Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87213.jpg" />
 </div>
 
 
@@ -309,7 +344,7 @@ Vienna Symphonic Orchestra Project - Symphonic Rock (1987) [MP3|320 кб/с]<Sym
 >>Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87108.jpg" />
 </div>
 
 
@@ -341,7 +376,7 @@ The Cranberries - Roses (2012) [WavPack |Lossless|image + .cue]<Alternative>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87014.jpg" />
 </div>
 
 
@@ -370,7 +405,7 @@ Pr-Mex - 2012 (2012) [MP3|320 кб/с]<Rock, пародия>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86969.jpg" />
 </div>
 
 
@@ -405,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86816.jpg" />
 </div>
 
 
@@ -440,7 +475,7 @@ Jeff Scott Soto - Damage Control [Deluxe Edition] (2012) [MP3|320 кб/с]<Hard 
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86749.jpg" />
 </div>
 
 
@@ -470,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86619.jpg" />
 </div>
 
 
@@ -505,7 +540,7 @@ Brian Johnson - Brian Johnson And Geordie (1981) [MP3|320kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86541.jpg" />
 </div>
 
 
@@ -540,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86481.jpg" />
 </div>
 
 
@@ -575,7 +610,7 @@ Powerwolf - Alive In The Night (Live) (2012) [MP3|320 кб/с]<Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86299.jpg" />
 </div>
 
 
@@ -610,7 +645,7 @@ Rammstein - 2 бутлега (2012) Bercy, Paris, France - 2012-03-07 + Birmingh
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86212.jpg" />
 </div>
 
 
@@ -645,7 +680,7 @@ Overkill - The Electric Age (2012) [MP3|320 кб/с]<Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86124.jpg" />
 </div>
 
 
@@ -680,7 +715,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86123.jpg" />
 </div>
 
 
@@ -715,7 +750,7 @@ Foreigner - Extended Versions (2011) [FLAC|Lossless]<Rock, Hard rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86105.jpg" />
 </div>
 
 
@@ -750,7 +785,7 @@ Foreigner - Extended Versions (2011) [MP3|320 кб/с]<Rock, Hard rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86104.jpg" />
 </div>
 
 
@@ -785,7 +820,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86026.jpg" />
 </div>
 
 
@@ -805,41 +840,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476297   (85937) от 02.04.2012
-
-Yngwie Malmsteen - Best Ballads (1996) [MP3|320 кб/с]<Neo-classical metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreaming
-02. Crying
-03. Save Our Love
-04. Forever One
-05. I'm My Own Enemy
-06. Black Star
-07. I'm Die Without You
-08. Faultline
-09. Dark Ages
-10. Brothers(   Читать дальше...   )1996Жанр: Neo-classical metalПродолжительность: 01:13:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01107BC522E2C22F12D7316B1FCEE2C9C04D83C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

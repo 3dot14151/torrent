@@ -1,190 +1,3 @@
-###  Публикация: 1819112   (1895) от 20.09.2025
-
-Бренден Мэтьюз | Rust. Профессиональное программирование (2025) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1895.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга служит введением в продвинутые темы, необходимые для реализации полнофункциональных проектов на языке Rust. Rust рассматривается как сравнительно новый, но мощный и зрелый язык для серверного программирования. Рассмотрены паттерны проектирования, характерные для Rust, роль Rust в современном низкоуровневом программировании, приемы асинхронных взаимодействий (   Читать дальше...   )Жанр: ПрограммированиеПеревод: Н. ВильчинскийИздательство: АЛИСТФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C260ECF6BA52664F82FC4A1F61F6394DAC04DDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819088   (1891) от 20.09.2025
-
-Антон Жиянов | Оконные функции SQL. Анализ данных на практике (2024) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1891.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Оконные функции SQL» – книга о мощном инструменте для анализа данных, который позволяет выполнять сложные вычисления и получать информацию о группах строк или результатах окон, но если вкратце – как делать классные аналитические отчеты без участия «экселя».
-
-Вместе с Антоном Жияновым разберемся в основах SQL:
-• что такое «окно» в SQL и как оно работает;(   Читать дальше...   )Жанр: ПрограммированиеИздательство: АСТФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85B90E5AEE9394B8F654517EF96E94D807551EA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819299   (1726) от 21.09.2025
-
-Олег Кузьменко | Промптология. Искусство диалога с нейросетями (2025) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1726.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга научит вас общаться с нейросетями на понятном им языке: просто, эффективно и без лишних терминов. Вы узнаете, как правильно задавать вопросы, грамотно формулировать задачи и успешно использовать возможности ИИ в повседневной жизни и работе.
-Разнообразные примеры и доступные инструкции сделают ваше знакомство с искусственным интеллектом лёгким и полезным, (   Читать дальше...   )Жанр: Искусственный интеллект, нейронные сетиИздательство: Инфра-ИнженерияФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DA99CB8B8C61042BCE67FA39F5ACD77E83476A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819323   (1667) от 21.09.2025
-
-Игорь Вагин | Нейросеть - Ваш ментор (2023) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Люди всегда мечтали о помощнике, который может быстро, легко и дешево дать информацию для решения самых разных проблем. Как волшебная палочка, лампа Аладдина. Мечта осуществилась! Пожалуйста, получай!
-Суть моей книги – как оптимально использовать возможности нейросети в своей жизни при решении самых разных проблем: в бизнесе, карьере, маркетинге, обучении, дизайне, (   Читать дальше...   )Жанр: Научно-популярная литература, учебное пособие, искусственный интеллект, нейронные сети.Издательство: СамиздатФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D475E755F825AE5E08302F3BDB84BE76B7E3E40F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819505   (1509) от 22.09.2025
-
-Д. Феникс, М. Тейлор | Промт-инжиниринг для GenAI [2 книги] (2024, 2025) [PDF, MOBI] [RU, EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стремительное развитие ИИ меняет нашу жизнь, а поспевать за ним становится все труднее. Каждый, кто профессионально использует ИИ, быстро приходит к пониманию, что качество результатов напрямую зависит от качества входных данных. Поэтому нам сейчас не обойтись без промт-инжиниринга (prompt engineering) — набора методов повышения надежности, эффективности и точности (   Читать дальше...   )Жанр: Учебное пособие, искусственный интеллект, нейронные сетиПеревод: Л. КиселевЯзык: Русский, английскийИздательство: СПРИНТ БУК, O’Reilly MediaФормат: PDF, MOBI, AZW3Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE27CEDAAC28C11FED7D797E47369856F7AC31FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819509   (1484) от 22.09.2025
-
-Erik. Herman | Optimizing Prompt Engineering for Generative AI (2025) [PDF] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1484.jpg" />
-</div>
-
-
-###  Подробнее
-
-This book equips readers with the knowledge to effectively design, test, and refine AI prompts that lead to more accurate, engaging, and ethically aligned AI interactions. From the basics of prompt construction to advanced techniques for specific industries, the content covers a broad spectrum. Each chapter builds on the previous one, starting with an introduction (   Читать дальше...   )Жанр: Учебное пособие, искусственный интеллект, нейронные сетиЯзык: АнглийскийИздательство: Mercury Learning and InformationФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D188114C74F90670C06A2C9CC99119AD9EEE59A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819528   (1478) от 22.09.2025
-
-В.П. Часовских, В.А. Усольцев, Е.В. Кох | Естественный и искусственный интеллект как инструмент преобразования данных (2025) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1478.jpg" />
-</div>
-
-
-###  Подробнее
-
-В монографии авторы определяют естественный интеллект, как функцию головного мозга человека. Рассматриваются основные характеристики головного мозга для использования в цифровом моделировании при построении ИИ. Концептуальная основа естественного интеллекта авторов основана на философии И. Канта. В монографии используется определение ИИ из «Национальной стратегии (   Читать дальше...   )Жанр: Монография, искусственный интеллект, нейронные сетиИздательство: АМБ, МЦИТОФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C679102908B638D00B56161D0F13912C29588CF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1819950   (1054) от 25.09.2025
 
 Джордж Маунт | Современная аналитика данных в Excel (2025) [PDF]
@@ -193,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1054.jpg" />
 </div>
 
 
@@ -219,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1020.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1020.jpg" />
 </div>
 
 
@@ -245,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_883.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_883.jpg" />
 </div>
 
 
@@ -271,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_882.jpg" />
 </div>
 
 
@@ -297,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_874.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_874.jpg" />
 </div>
 
 
@@ -323,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_870.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_870.jpg" />
 </div>
 
 
@@ -349,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_588.jpg" />
 </div>
 
 
@@ -375,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_354.jpg" />
 </div>
 
 

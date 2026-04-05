@@ -1,3 +1,57 @@
+###  Публикация: 1144456   (626912) от 22.06.2017
+
+V-Ray 3.50.04 for 3ds Max 2015-2017 [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626912.jpg" />
+</div>
+
+
+###  Подробнее
+
+V-Ray — мощный инструмент визуализации, поддерживающий Depth of Field (глубина резкости), Motion Blur (эффект «размытия» в движении), Displacement (карта смещения, с увеличением детализации трехмерных объектов). Кроме этого, V-ray имеет собственные источники освещения, систему солнце-небосвод для реалистичного освещения естественным светом, и физическую камеру с (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F5FE998289A964B2FF8BD107FB66058E46E2685
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 349852   (626873) от 14.06.2011
+
+Юрий Петухов | Сборник произведений (1983-2009) [FB2]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_626873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юрий Петухов родился в Москве. В 1969—1971 гг. служил в Советской армии в Южной группе войск (Венгрия). В 1971 году вышел из рядов ВЛКСМ по идейным соображениям. В 1972—1985 гг. работал в НИИ оборонных отраслей. В 1983 году вышла первая книга Петухова «Через две весны».
+
+В 1990—1991 гг. романами-антиутопиями «Бойня» и «Сатанинское Зелье» Петухов открывает (по собственным (   Читать дальше...   )Жанр: Фантастика, ПублицистикаФормат: FB2
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 350832   (626861) от 14.06.2011
 
 Alice: Madness Returns [Multi6-] (DL) 2011
@@ -6,7 +60,7 @@ Alice: Madness Returns [Multi6-] (DL) 2011
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_626861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626861.jpg" />
 </div>
 
 
@@ -34,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_626792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_626792.jpg" />
 </div>
 
 
@@ -63,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_626035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_626035.jpg" />
 </div>
 
 
@@ -89,7 +143,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2012) [Ru/Multi] (
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625897.jpg" />
 </div>
 
 
@@ -115,7 +169,7 @@ Gravel (2018) [Multi] (1.0/dlc) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625855.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625855.jpg" />
 </div>
 
 
@@ -141,7 +195,7 @@ Opera 60.0.3255.27 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625575.jpg" />
 </div>
 
 
@@ -167,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_625453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_625453.jpg" />
 </div>
 
 
@@ -193,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625431.jpg" />
 </div>
 
 
@@ -219,7 +273,7 @@ Windows 11 21H2 x64 Rus by OneSmiLe [22000.613]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625173.jpg" />
 </div>
 
 
@@ -248,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_625105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_625105.jpg" />
 </div>
 
 
@@ -274,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625069.jpg" />
 </div>
 
 
@@ -301,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625060.jpg" />
 </div>
 
 
@@ -327,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_625055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_625055.jpg" />
 </div>
 
 
@@ -356,7 +410,7 @@ Wolfenstein: The Old Blood (2015) [Ru/Multi] (1.0/u1) Repack R.G. Games
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625051.jpg" />
 </div>
 
 
@@ -382,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_625050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625050.jpg" />
 </div>
 
 
@@ -408,7 +462,7 @@ System drivers / Системные драйверы (Windows 7 / Vista / 32BIT)
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_624777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_624777.jpg" />
 </div>
 
 
@@ -439,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_624387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_624387.jpg" />
 </div>
 
 
@@ -465,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_624143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624143.jpg" />
 </div>
 
 
@@ -491,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623995.jpg" />
 </div>
 
 
@@ -517,7 +571,7 @@ AkelPad 4.9.8 + Portable + All Plugins [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623993.jpg" />
 </div>
 
 
@@ -543,7 +597,7 @@ Mozilla Firefox Quantum 66.0.3 Final [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623740.jpg" />
 </div>
 
 
@@ -569,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_623738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_623738.jpg" />
 </div>
 
 
@@ -595,7 +649,7 @@ Amazon планирует создать спутниковую группиро
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_623605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_623605.jpg" />
 </div>
 
 
@@ -621,7 +675,7 @@ TimeShift (2007) [Ru/En] (1.02) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623591.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623591.jpg" />
 </div>
 
 
@@ -632,60 +686,6 @@ TimeShift (2007) [Ru/En] (1.02) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:122B18CD3B062C769D133CE71CE522027498EB1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 355586   (623588) от 10.04.2019
-
-Евгений Карташов | Photoshop CS5 от A до Я [2011] [Iso + Bonus]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_623588.jpg" />
-</div>
-
-
-###  Подробнее
-
-CS5 - одна из самых удачных версий фотошопа за последнее время. Не даром уже более 50% пользователей фотошопа использует именно её.
-Но проблема в том, что с каждой новой версией в фотошопе появляются все новые и новые инструменты и функции, а также изменяется внешний вид рабочего окна.
-Для новичка это просто головная боль! Об этом свидетельствуют многочисленные письма, (   Читать дальше...   )Жанр: Дизайн, графикаФормат: Iso
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B9D85AE7E55FA46EAFBB9AEC6D017691BEE937C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543764   (623320) от 14.04.2022
-
-Популярнейший торрент-трекер, многократно попадавший под блокировку, объявил, что принадлежит видному борцу с пиратством
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_623320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярный испанский торрент-трекер, распространяющий пиратское видео, после нескольких десятков случаев блокировки внутри страны решил защищаться оригинальным способом – указать в качестве владельца вице-президента американской ассоциации кинокомпаний, непримиримого борца с пиратством.Данный шаг администраторами ресурса, вероятно, расценивается лишь как остроумная (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1620343   (240638) от 20.03.2023
+
+New Mexican Doom Cult - Necropolis (2023) [FLAC|Lossless|WEB-DL|tracks] <Psych, Stoner, Doom, Sludge>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Architect [00:07:31]
+02. Seven Spirits [00:06:12]
+03. Underground [00:07:16]
+04. Necropolis [00:08:10](   Читать дальше...   )Жанр: Psych, Stoner, Doom, SludgeПродолжительность: 00:42:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AED1A68BDAF959E00F1C8876BAA440B668F0620F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463432   (240636) от 18.04.2021
 
 Iain Ashley Hersey - Nomad (2013) [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -6,7 +35,7 @@ Iain Ashley Hersey - Nomad (2013) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240636.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Dunkelheit - Inner Awakening (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240634.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Elena Volkova And Alex K. Strangel - Nova (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240633.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Witches Tears - Living With Fear (2023) [FLAC|Lossless|WEB-DL|tracks] <Psych, Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240632.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240632.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Peter Hermansson - Second Glance (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240624.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240624.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Blaze To Raise - Blaze to Raise (2023) [FLAC|Lossless|WEB-DL|tracks] <MetalCore>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240621.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240621.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Embalm - Prelude to Obscurity (2022) Compilation, 20 Buck Spin [FLAC|Lossless|WE
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240620.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240620.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Silverstein - Misery Made Me (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240619.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Lee Small - The Last Man On Earth (2023) [MP3|320 Kbps] <Melodic Rock, AOR>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240617.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Lord Loud - Timid Beast (2020) [MP3|320 Kbps] <Stoner Rock, Heavy Psych>
 >>Rock
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240614.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Twyster - Lunatic Siren (2002) [WavPack|Lossless|image + .cue] <Power Metal, Har
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240613.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Night Demon - Live Darkness (2018) 2xCD [FLAC|Lossless|image + .cue] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240611.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240611.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Sulfure - Anthropocene (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240605.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Impiety - Versus all gods (2020) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240602.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240602.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Metal Factory - Defeat All (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Ha
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240595.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240595.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Gable - Brown Paper Bag (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240594.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240594.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Anguish Force - The W8 Of The Future (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240593.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Pure Reason Revolution - Above Cirrus (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240586.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ No Point In Living - Beautiful Tragedy (2023) [FLAC|Lossless|WEB-DL|tracks] <Dep
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240585.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Eibon - Visages of God's Acre (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240580.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Richard Andersson's Space Odyssey - Embrace The Galaxy (2003) [MP3|320 Kbps] <Ne
 >>Metal
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240575.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240575.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Arcanum Sanctum - Ad Astra (2020) [MP3|320 Kbps] <Melodic Death Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240574.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240574.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Giant Brain - Grade A Gray Day (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240568.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Fame on Fire - LEVELS (2020) [MP3|320 Kbps] <Alternative Rock, Post-Hardcore>
 >>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240567.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Dodsferd (Dødsferd) - Diseased Remnants of a Dying World (2018) [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240565.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Dodsferd (Dødsferd) - Diseased Remnants of a Dying World (2018) [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A92DE52743938C720755E5E34870E0F55A9AF4C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464074   (240556) от 21.04.2021
-
-Centinex - Death in Pieces (2020) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_240556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Only Death Remains
-02. Derelict Souls
-03. God Ends Here
-04. Tomb of the Dead(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:35:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61C32683F04B4F939AD82105F399F8E82FF2C105
 ```
 
 https://mybot314.ru/tekegram_catalog/

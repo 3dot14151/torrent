@@ -1,3 +1,117 @@
+###  Публикация: 1634945   (242272) от 23.05.2023
+
+Mandy, Indiana - i've seen a way (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Electronic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Theme (4K VHS) (3:17)
+02. DragЖанр: ElectronicПродолжительность: 00:37:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E41B3620845264354C798F0D32DC45ADB452A5DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105692   (242271) от 18.02.2017
+
+VA - Deep House Resort (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Archi Nova - At A Depth 03:25
+02. Geogor Dansis - Re 04:21
+03. Lashch - Other 09:33
+04. Mizkan - Perfect Future 06:47(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:18:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62047EADB4CA15C84AD0323EF9B5B48881986313
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278179   (242262) от 12.04.2022
+
+Dawn Of Ashes + Kristof Bathory: solo album  + URILIA: side project - Discography 16 Releases (2005-2022) [MP3|320 Kbps] <Industrial Metal, Harsh EBM, Dark Electro, Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242262.jpg" />
+</div>
+
+
+###  Подробнее
+
+2005 - Sacred Fever (2018 Reissue Remastered Edition)
+2006 - In The Acts Of Violence
+2007 - The Crypt Injection
+2010 - Genocide Chapters(   Читать дальше...   )Жанр: Industrial Metal, Harsh EBM, Dark Electro, IndustrialПродолжительность: 14:50:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF5D31A3412CCA2CAEC9685451E52B85A04D3E52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458242   (242241) от 28.03.2021
+
+VA - Daniel Kandi Presents: 20 Years Of Anjunabeats (2021) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mat Zo - The Lost (Extended Mix) (8:57)
+02. Velvetine - Safe (Wherever You Are] (Rank 1 Extended Mix) (8:02)
+03. Ilan Bluestone; Sunny Lax - 43+86=129 (Extended Mix) (7:02)
+04. Boom Jinx; KEY - Eternal Reminiscence (Oliver Smith Extended Mix) (8:16)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:18:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27C263453A182F60D06446A1F3FDE5429267D077
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1543002   (242239) от 10.04.2022
 
 King Satan - Occult Spiritual Anarchy (2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal>
@@ -6,7 +120,7 @@ King Satan - Occult Spiritual Anarchy (2022) [FLAC|Lossless|WEB-DL|tracks] <Indu
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242239.jpg" />
 </div>
 
 
@@ -35,7 +149,7 @@ VA - Maretimo Sessions: The Lounge Playlist Vol 1 (2017) [MP3|320 Kbps] <Chillou
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242236.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242236.jpg" />
 </div>
 
 
@@ -61,7 +175,7 @@ VA - My Intimate Lounge World (Essential Deluxe Selection of Buddha Erotic Downb
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242213.jpg" />
 </div>
 
 
@@ -90,7 +204,7 @@ Johan Tronestam - Androids (2022) [MP3|320 Kbps] <Berlin-School, Space Music>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242201.jpg" />
 </div>
 
 
@@ -119,7 +233,7 @@ SynthAttack + Basscalate - Discography 17 Releases (2015-2022) [MP3|320 Kbps] <H
 >>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242181.jpg" />
 </div>
 
 
@@ -148,7 +262,7 @@ New Arcades - Until Now: The Decade Retrospective (2022) [MP3|320 Kbps] <Synthwa
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242180.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242180.jpg" />
 </div>
 
 
@@ -177,7 +291,7 @@ VA - Electronic Wunderland Vol.1 20 Chill out Master Pieces (2017) [MP3|320 Kbps
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242149.jpg" />
 </div>
 
 
@@ -206,7 +320,7 @@ VA - TrackWolves Best Of 2021 DJ Mix (2021-2022) [MP3|320 Kbps] <Electro House, 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242147.jpg" />
 </div>
 
 
@@ -235,7 +349,7 @@ VA - I Love Lounge Beach (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242136.jpg" />
 </div>
 
 
@@ -264,7 +378,7 @@ P.O.S. - Deeper Tales (2023) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242086.jpg" />
 </div>
 
 
@@ -293,7 +407,7 @@ VA - Armin van Buuren - A State Of Trance 1115 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242069.jpg" />
 </div>
 
 
@@ -320,7 +434,7 @@ Irrlicht - Feuerkind (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Darkwave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_242043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242043.jpg" />
 </div>
 
 
@@ -349,7 +463,7 @@ Synthatic - Take A Ride (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_242030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242030.jpg" />
 </div>
 
 
@@ -378,7 +492,7 @@ Craig Connelly - One Second Closer (2017) [FLAC|Lossless|WEB|tracks] <Trance , P
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241974.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241974.jpg" />
 </div>
 
 
@@ -407,7 +521,7 @@ Vosh - Vessel (2023) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Darksynth, Synthpo
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241894.jpg" />
 </div>
 
 
@@ -436,7 +550,7 @@ J-Kerz - WE ARE JK (I-XXIII) (2022) [MP3|320 Kbps] <House, Tech House>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241772.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241772.jpg" />
 </div>
 
 
@@ -465,7 +579,7 @@ VA - Trance Spring (2023) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_241726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_241726.jpg" />
 </div>
 
 
@@ -494,7 +608,7 @@ VA - Chill Оut Essential Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Loun
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241667.jpg" />
 </div>
 
 
@@ -523,7 +637,7 @@ VA - Armin van Buuren - A State Of Trance 1122 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_241663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_241663.jpg" />
 </div>
 
 
@@ -552,7 +666,7 @@ VA - We Love Summer Vol. 1 (Ibiza Deep House Edition) (2023) [MP3|320 Kbps] <Hou
 >>House
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_241627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_241627.jpg" />
 </div>
 
 
@@ -581,7 +695,7 @@ VA - Luxury Bar Grooves, Vol. 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241605.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241605.jpg" />
 </div>
 
 
@@ -610,7 +724,7 @@ VA - Proactive Criteria (2000) Underconstructing Records [FLAC|Lossless|tracks+.
 >>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241593.jpg" />
 </div>
 
 
@@ -624,122 +738,6 @@ VA - Proactive Criteria (2000) Underconstructing Records [FLAC|Lossless|tracks+.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B52631BE765487C7F6D68DE84F26C2E6A175BC05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233183   (241549) от 15.04.2022
-
-Freakangel + Matthew Creed (Side Project) - Discography 20 Releases (2010-2021) [MP3|320 Kbps] <Industrial, Dark Electro, Industrial Metal>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241549.jpg" />
-</div>
-
-
-###  Подробнее
-
-2010 - The Faults Of Humanity (2CD Limited Edition)
-2010 - The Faults Of Humanity (Japanese 2CD Limited Edition)
-2010 - Digital Deviations (Japanese Edition)
-2012 - Let It All End (2CD Limited Edition)(   Читать дальше...   )Жанр: Industrial, Dark Electro, Industrial Metal, Dark TechnoПродолжительность: 16:06:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E82BD7A84D09B1CB6E920E50282E1E5316E503E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378408   (241548) от 25.04.2020
-
-Veell - For What? (2005) SHUM Records [FLAC|Lossless|tracks+.cue] <IDM, Downtempo, Big Beat, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avax (05:47)
- 02. Rw (04:37)
- 03. Sli (03:50)
- 04. Z3 (04:21)(   Читать дальше...   )Жанр: IDM, Downtempo, Big Beat, ExperimentalПродолжительность: 01:04:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D4A1DE30FDDDB61B820B9586C14E9AEC36AA49A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114629   (241508) от 15.03.2017
-
-VA - Cafe Tropicana Vol.2 (30 Well Selected Lounge Tracks) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_241508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Florito - Shirabyoshi Love  4:22
-02.  Climatic - Everything  5:19
-03.  Alex Naevecke - Summerlove  4:11
-04.  Newton - Just One Touch  4:55(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:28:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD9B0477D21C46DD977B91156CDACD379A09E57E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114617   (241500) от 15.03.2017
-
-VA - Makes Sense To Me Chill Out Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="Z:/picture/004/save_picture_241500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  JB 59 - Postcard From Melecon  4:49
-02.  Thomas Lemmer - Peaceful  5:17
-03.  Marcus Koch - Whispering Birds  4:50
-04.  B.W.L. - Lullaby  5:20(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:15:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4C894CF809B73B0CCE41597A2454A2CB2BD5F58
 ```
 
 https://mybot314.ru/tekegram_catalog/

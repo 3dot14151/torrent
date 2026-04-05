@@ -1,136 +1,3 @@
-###  Публикация: 987955   (924100) от 18.02.2016
-
-Владимир Трошин (сост.) | Магия чисел и фигур. Занимательные материалы по математике (2007) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник предлагает учителям математики, учащимся средних и старших классов, всем любителям математики и логики увлекательное путешествие в магический мир чисел и фигур. Книга хорошо иллюстрирована, содержит большое количество различных нестандартных задач, числовых головоломок и интересные сведения для расширения кругозора.
-
-Сборник станет занимательным собеседником (   Читать дальше...   )Жанр: МатематикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E3C01B549A082637F59024AAB1E81090B661266
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094994   (924083) от 21.01.2017
-
-И.Г. Неудачин | Таблицы Delphi для управления базами данных (2016) [PDF, DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924083.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебно-методическом пособии предлагается руководство по визуальному программированию систем управления базами данных на языке Object Pascal в среде Delphi. Пособие содержит необходимые сведения по обработке таблиц баз данных и файлов при помощи визуальных компонентов. Описаны структуры графических интерфейсов, их настройка и технология кодирования обработки событий. (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C3F06F6229BD083B64B65753EC218935C1C8B8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489472   (923842) от 17.08.2021
-
-Н.Н. Крадин | Кочевники Евразии (2007) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923842.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данную книгу включены наиболее интересные работы известного российского этнодемографа Н.Н. Крадина, опубликованные в различных изданиях, а также прочитанные в качестве докладов на международных конференциях последних лет. Оригинальная авторская концепция показывает, что для номадов был характерен особый, своеобразный путь социальной эволюции. Ряд сюжетов посвящен (   Читать дальше...   )Жанр: МонографияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BD2722F3CABFC30C64DC580BEA056EE3A66A421
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489497   (923723) от 17.08.2021
-
-О.Н. Трубачев | Труды по этимологии. Слово, история, культура [4 тома] (2004) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923723.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга выдающегося ученого-слависта академика О.Н.Трубачева «Труды по этимологии» содержит более ста его работ.
-Разбросанные по разным отечественным и зарубежным источникам статьи (практически за 50 лет научной деятельности) найти и собрать воедино действительно было далеко непросто. Тем более приятно осознавать, что приложенные усилия не оказались напрасными. В процессе (   Читать дальше...   )Жанр: История, культура, этимологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29399BF50C67AEF08A07B7401204E90BFF874F6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489802   (923720) от 17.08.2021
-
-И. А. Плиев | Конец Квантунской армии. Записки командующего конно-механизированной группой советско-монгольских войск [2-е изд.] (1969) [DJVU]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Об славной борьбе воинов советской и монгольской армий против общего врага — японцев, об их доблести, мужестве и героизме ярко и убедительно повествует в своей книге бывший командующий советско-монгольской Конно-механизированной группой войск, дважды Герой Советского Союза генерал армии И. А. Плиев. Как непосредственный участник этих исторических событий автор с (   Читать дальше...   )Жанр: Военная документалистика и аналитикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4699598F91499E67C3B0A232072CC2F9B3336CD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366266   (923665) от 11.03.2020
 
 И.А. Ларин-Подольский | Юбилейные и памятные монеты мира (2016) [DJVU]
@@ -139,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923665.jpg" />
 </div>
 
 
@@ -165,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923544.jpg" />
 </div>
 
 
@@ -191,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923449.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923449.jpg" />
 </div>
 
 
@@ -218,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922885.jpg" />
 </div>
 
 
@@ -244,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922806.jpg" />
 </div>
 
 
@@ -270,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922617.jpg" />
 </div>
 
 
@@ -296,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922565.jpg" />
 </div>
 
 
@@ -325,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922537.jpg" />
 </div>
 
 
@@ -351,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922536.jpg" />
 </div>
 
 
@@ -377,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922442.jpg" />
 </div>
 
 
@@ -406,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922379.jpg" />
 </div>
 
 
@@ -435,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922370.jpg" />
 </div>
 
 
@@ -461,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922358.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922358.jpg" />
 </div>
 
 
@@ -487,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922253.jpg" />
 </div>
 
 
@@ -514,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922141.jpg" />
 </div>
 
 
@@ -542,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922137.jpg" />
 </div>
 
 
@@ -568,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922118.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922118.jpg" />
 </div>
 
 
@@ -594,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921904.jpg" />
 </div>
 
 
@@ -620,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921743.jpg" />
 </div>
 
 
@@ -646,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921573.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921573.jpg" />
 </div>
 
 
@@ -673,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921515.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921515.jpg" />
 </div>
 
 
@@ -685,6 +552,141 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E30B2CB1F29E00775C9744EF09FA525E678D0558
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 288288   (921481) от 29.01.2011
+
+«БХВ-Петербург» | 302 новые профессиональные схемы [2009] [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921481.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге собраны схемы готовых функциональных блоков или устройств: приемопередатчиков, устройств измерения и регулирования температуры, таймеров, ГУН, измерительных устройств, сенсорных выключателей, тестовые схемы и др. Каждая схема сопровождается кратким описанием, проста, легко читаема и не требует много времени на создание рабочего образца.
+ Для профессиональных инженеров-электронщиков и радиолюбителей.Жанр: РадиоэлектроникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B55AAE79E75C9AE00314EDD9D0FE58B98429341
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 756731   (921442) от 14.02.2014
+
+Н.Н. Новоуспенский | Иван Иванович Шишкин (1982) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921442.jpg" />
+</div>
+
+
+###  Подробнее
+
+Среди  имен  художников,  сыгравших  наиболее значительную  роль  в  формировании  и  развитии  русско­го  пейзажа  второй  половины  X IX   века,  одним  из  пер­вых  должно  быть  названо  имя  И.  И.  Шишкина.  Выдающийся живописец,  рисовальщик  и  гравер,  он  был  не­
+превзойденным  знатоком  родной  природы  и  создал произведения,  в  которых  правдиво,  с  высоким  мастер­ством отразил ее характерные черты.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2B639078A01D5068B71D7BD379A9605ADD07E78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 288294   (921356) от 29.01.2011
+
+И.П.Шелестов | Радиолюбителям: полезные схемы (книги 1-6) [1998-2005] [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921356.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для любителей-конструкторов радиоэлектронной техники, занимающихся самостоятельным техническим творчеством, приведены практические схемы различных устройств, которые могут быть полезны дома. Все они выполнены на доступных элементах и легко могут быть изготовлены самостоятельно. Кроме подробного описания принципа работы и методики настройки, к большинству схем дается топология печатной платы в масштабе 1:1, что облегчит их изготовление.
+ При этом не потребуется применять дорогостоящее оборудование и сложные промышленные технологии.
+ Эта серия книг будет интересна всем, кто увлекается радиоэлектроникой.Жанр: РадиоэлектроникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FC0C99CE168662B0DA9B6AE276A60D9929D5335
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 288272   (921354) от 29.01.2011
+
+«ЮУрГУ» | Электротехника и электроника. Наглядные пособия, таблицы, схемы [2011] [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921354.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге представлены наглядные пособия, таблицы и схемы по электротехнике и электронике в высоком разрешении.
+ Может быть полезно как для учащихся, студентов, так и преподавателей для изучения основ электротехники, электроники, а также раздела электродинамики по физике.Жанр: Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C44697BBE2AC92DCEC8AACBD57BBBB91B699259E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 756998   (921151) от 14.02.2014
+
+Август Шлецер | Нестор. Русская летописи на Древле-Славенском языке. Часть I (1809) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шлёцер (Schlozer) Август Людвиг (1735-1809), немецкий историк, филолог; на российской службе в 1761-67, адъюнкт (1762), иностранный почетный член (1769) Петербургской АН. В 1768-1809 профессор Геттингенского университета. Труды по всеобщей истории, источниковедению, истории русского летописания ("Нестор", ч. 1-3, 1809-19). По мнению С.М. Соловьева, Шлёцер, (   Читать дальше...   )Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E521EA8A0776354F5CD179674212BF6F2676DFCF
 ```
 
 https://mybot314.ru/tekegram_catalog/

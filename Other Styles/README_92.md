@@ -1,3 +1,61 @@
+###  Публикация: 1304662   (561563) от 27.05.2019
+
+Alan Menken & VA - Aladdin / Аладдин (Оригинальный саундтрек) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Арабская ночь (2019) (03:13)
+02. На миг быстрее (02:55)
+03. На миг быстрее (Реприза) (01:00)
+04. Смелой (Часть 1) (01:18)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:20:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ACC0003FD26CBFC92376E77DD2B2C5776E18268
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152250   (561486) от 25.07.2017
+
+VA - Anxiety Free. Clear Peaceful Mind: Deep Relaxation of the Soul (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calm Music Zone - Anxiety Free
+02. Meditation Mantras Guru - Breathe In & Breathe Out
+03. Calm Music Masters - Prepare Your Body for Meditation
+04. Sound Therapy Masters - Morning Meditation Music(   Читать дальше...   )Жанр: New AgeПродолжительность: 03:07:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98B6ACB54915E251EA227842230CCA0C5936C6CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045020   (561253) от 22.08.2016
 
 Jean Michel Jarre - Magnetic Fields (1981) Remastered, 2014, Sony Music [FLAC|Lossless|image + .cue]<Electronic, Instrumental, New Age>
@@ -6,7 +64,7 @@ Jean Michel Jarre - Magnetic Fields (1981) Remastered, 2014, Sony Music [FLAC|Lo
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561253.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Enya - The Magic Of Enya (2016) Chinese Dragon Music [FLAC|Lossless|tracks + .cu
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_561005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561005.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Lykke Li - Wounded Rhymes (2011) [FLAC|Lossless]<Indie Pop>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_560585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_560585.jpg" />
 </div>
 
 
@@ -90,7 +148,7 @@ Really Slow Motion & Instrumental Core - Angels Among Demons (2015) [MP3|320 Kbp
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560078.jpg" />
 </div>
 
 
@@ -119,7 +177,7 @@ Really Slow Motion & Instrumental Core - Other Worlds (2015) [MP3|320 Kbps] <Sou
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_560076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560076.jpg" />
 </div>
 
 
@@ -148,7 +206,7 @@ VA - Latin Hits 2017 The Best (Reggaeton  Bachata  Kizomba) [MP3|320 Kbps] <Lati
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559844.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ VA - Latino 2017 - Essential Summer Hits  [MP3|320 Kbps] <Latin Music, Salsa, Me
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559836.jpg" />
 </div>
 
 
@@ -206,7 +264,7 @@ VA - 40 Latin Hits 2017 (Reggaeton, Electro Latino & Mambo) [MP3|320 Kbps] <Lati
 >>Other
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559710.jpg" />
 </div>
 
 
@@ -235,7 +293,7 @@ VA - Country Car Music (2019) [MP3|320 Kbps] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_559644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559644.jpg" />
 </div>
 
 
@@ -264,7 +322,7 @@ John Galanakis - Doom Vanguard (2018) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack,
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558676.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558676.jpg" />
 </div>
 
 
@@ -293,7 +351,7 @@ Casey Weston - Find the Moon (2013) [MP3|320 Kbps] <Country Pop, Vocal>
 >>Folk
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_558036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558036.jpg" />
 </div>
 
 
@@ -322,7 +380,7 @@ Laura Sullivan - The Modern Romantic: New Relaxing Classical Piano Music (2016) 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557945.jpg" />
 </div>
 
 
@@ -351,7 +409,7 @@ Bob Dylan - The Best Of Bob Dylan (1997) [FLAC|Lossless|tracks + .cue] <Rock, fo
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557732.jpg" />
 </div>
 
 
@@ -380,7 +438,7 @@ VA - Grease (The Original Soundtrack From The Motion Picture) (1998) [FLAC|Lossl
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557724.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ Mystica - Best Of Gregorian Voices: Parts 1-4 (2016) [FLAC|Lossless|tracks] <New
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557723.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ Llewellyn - Didgeridoo Gold: Music for Relaxation and Healing (2015) [MP3|320 к
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557535.jpg" />
 </div>
 
 
@@ -465,7 +523,7 @@ VA - Southpaw (2015) [MP3|320 кб/с]<OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557477.jpg" />
 </div>
 
 
@@ -494,7 +552,7 @@ Deuter - Sattva Temple Trance (2018) [MP3|320 Kbps] <New Age, Meditative, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557323.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557323.jpg" />
 </div>
 
 
@@ -521,7 +579,7 @@ Piano Peace - Piano Music for Movies (2018) [FLAC|Lossless|WEB-DL|tracks] <Instr
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_557295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557295.jpg" />
 </div>
 
 
@@ -550,7 +608,7 @@ Aythar - The God Particle (2016) [MP3|320 Kbps] <Ambient, Space>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556912.jpg" />
 </div>
 
 
@@ -579,7 +637,7 @@ Nick Murray - To the Stars (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556910.jpg" />
 </div>
 
 
@@ -608,7 +666,7 @@ Blue Stone - Pandora's Box (2011) [FLAC|Lossless|tracks + .cue] <New Age, Ethnic
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556845.jpg" />
 </div>
 
 
@@ -637,7 +695,7 @@ Gomer Edwin Evans - Sensual Moods: Soulful Music for Erotic Moments (2014) [FLAC
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556838.jpg" />
 </div>
 
 
@@ -666,7 +724,7 @@ David Arkenstone - Barcelona Nights (2015) [FLAC|Lossless|WEB-DL|tracks] <New Ag
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556836.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556836.jpg" />
 </div>
 
 
@@ -680,64 +738,6 @@ David Arkenstone - Barcelona Nights (2015) [FLAC|Lossless|WEB-DL|tracks] <New Ag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE7BAC3B7697D8B60124A8306EF6E5A5F2992EA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045792   (556675) от 25.08.2016
-
-Kyle Dixon & Michael Stein - Stranger Things / Очень странные дела, Vol. 2 (A Netflix Original Series Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hopper Sneaks In (01:39)
-02. I Know What I Saw (02:44)
-03. Rolling Out the Pool (01:13)
-04. Over (01:39)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:13:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4320261796528C2488FE44EC162EA377D653D716
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556663   (556519) от 12.06.2022
-
-Schandmaul - Knüppel aus dem Sack (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Folk Rock>
-
->>Other Styles
->>Folk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_556519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Knüppel aus dem Sack (4:30)
-02. Königsgarde (3:31)
-03. Das Gerücht (2:47)
-04. Der Pfeifer (4:11)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:49:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41229C7481D8D15A8F7CED1F46421D6B889D7DEC
 ```
 
 https://mybot314.ru/tekegram_catalog/

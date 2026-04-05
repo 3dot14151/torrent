@@ -1,3 +1,108 @@
+###  Публикация: 997120   (876850) от 15.03.2016
+
+АлФа Шарики v1.0 Ad-Free [Ru]
+
+>>Программы, Игры и прочее
+>>Всё для детей и родителей для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876850.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обучающее приложение для детей от 3х лет.  В игре ребенок изучает цвет. На игровом поле движутся изображения разноцветных надувных шариков. При нажатии на шарик произносится название цвета и шарик лопается. По шарикам можно стрелять, нажимая на кнопку на экране. Если шарик прошла экран и ребенок не нажал, уровень повторяется. В игре через каждые пять шариков и после (   Читать дальше...   )Тип издания: Free и Ad-Free (удалена реклама)Релиз состоялся: 15.03.2016Разработчик: Ltd InovatorПоддерживаемая ОС: Android 2.3+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB43391BF42D777C39628B320E6B238169AE790A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105443   (875984) от 17.02.2017
+
+Chess King - Шахматные курсы v 0.9.6 - 0.9.7 [Ru/En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875984.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полные курсы из серии Chess King, для обучения шахматам. В серию включены курсы по тактике, стратегии, дебютам, миттельшпилям и эндшпилям, которые разделены на уровни от начинающих до опытных шахматистов.
+"С помощью этих курсов вы сможете улучшить свои шахматные навыки, узнать новые тактические приемы и комбинации, а также закрепить полученные знания на практике. (   Читать дальше...   )Релиз состоялся: 01.01.2016Разработчик: Chess KingПоддерживаемая ОС: Android 2.3+Жанр: Настольные игрыЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB94620EE65001C0D262B0651BB5194D9707A4BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104970   (875865) от 17.02.2017
+
+Карты для iGO 8.3+ Europe HERE 2016.Q4
+
+>>Программы, Игры и прочее
+>>Карты для навигационного ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875865.jpg" />
+</div>
+
+
+###  Подробнее
+
+Карты для навигационного ПО NNG iGO и PNA/PDA на его основе (Becker, Blaupunkt, Pioneer, штатная навигация на многих автомибилях и т.д.) от HERE версии 2016.Q4Релиз состоялся: 2017Разработчик: HEREПоддерживаемая ОС: WinCE/Android/iOS (зависит от версии используемого навигационного ПО iGO)Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C423EA88A237DA121B3EF47CEF3A8EAB6C9F26F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104966   (875858) от 17.02.2017
+
+Карты для iGO 8.3+ (Primo, NextGen, Becker и т.д.) [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>Карты для навигационного ПО
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Актуальные карты для навигационного ПО NNG iGO и PNA/PDA на его основе (Becker, BLAUPUNKT, Pioneer, штатная навигация на многих автомибилях и т.д.)Релиз состоялся: 2009-2017Разработчик: HERE, TomTom и другиеПоддерживаемая ОС: WinCE/Android/iOS (зависит от версии используемого навигационного ПО iGO)Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B641E62AEB6F98A96BC7CA3B8F5447C2DE45226
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 991993   (874379) от 18.02.2017
 
 WiFi Map 3.2.1 [Ru]
@@ -6,7 +111,7 @@ WiFi Map 3.2.1 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874379.jpg" />
 </div>
 
 
@@ -34,7 +139,7 @@ Door Kickers: Action Squad 1.0.32 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_874128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874128.jpg" />
 </div>
 
 
@@ -60,7 +165,7 @@ The Meridian v2.0 [En] - 3D-модель человеческого тела с 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873278.jpg" />
 </div>
 
 
@@ -86,7 +191,7 @@ Parallel SpaceMulti Accounts v4.0.8934 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872446.jpg" />
 </div>
 
 
@@ -112,7 +217,7 @@ Chromatix (Black and White Photo Colorizer) v1.3.98 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872334.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872334.jpg" />
 </div>
 
 
@@ -138,7 +243,7 @@ Wunderlist: To-Do List & Tasks Pro 3.4.19 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_868474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868474.jpg" />
 </div>
 
 
@@ -165,7 +270,7 @@ Scan - QR and Barcode Reader v2.3 [En/Ru] - Сканирование QR и сч�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867409.jpg" />
 </div>
 
 
@@ -192,7 +297,7 @@ MultiNotes v2.10 [Ru/Multi] - удобные Заметки с напомина�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866349.jpg" />
 </div>
 
 
@@ -218,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_866346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866346.jpg" />
 </div>
 
 
@@ -247,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864292.jpg" />
 </div>
 
 
@@ -273,7 +378,7 @@ FolderSync Pro v3.1.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864276.jpg" />
 </div>
 
 
@@ -299,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863285.jpg" />
 </div>
 
 
@@ -325,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_863282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863282.jpg" />
 </div>
 
 
@@ -352,7 +457,7 @@ Relax Mountain ~ Nature Sounds PRO v4.3.1 [Ru/Multi] - Расслабьтесь 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862817.jpg" />
 </div>
 
 
@@ -379,7 +484,7 @@ Relax Night ~ Nature Sounds PRO v4.4.0 [Ru/Multi] - Отдых с лучшими
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862802.jpg" />
 </div>
 
 
@@ -406,7 +511,7 @@ Relax Sea ~ Ocean Sounds PRO v5.3.1 [Ru/Multi] - Расслабьтесь с л�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862719.jpg" />
 </div>
 
 
@@ -433,7 +538,7 @@ RAR v6.10 Premium [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862625.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862625.jpg" />
 </div>
 
 
@@ -459,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862505.jpg" />
 </div>
 
 
@@ -488,7 +593,7 @@ Garden Coloring Book v2.8.6 [En/Ru]
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_862147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862147.jpg" />
 </div>
 
 
@@ -514,7 +619,7 @@ Bass Guitar Tutor Pro ver.Feels (134) [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_861087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861087.jpg" />
 </div>
 
 
@@ -540,7 +645,7 @@ Root Essentials Premium 2.4.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860183.jpg" />
 </div>
 
 
@@ -566,7 +671,7 @@ Manual FX Camera 1.0.3 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_860154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860154.jpg" />
 </div>
 
 
@@ -577,111 +682,6 @@ Manual FX Camera 1.0.3 [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71418585012259AEAB0932F827BC054DB9B8F127
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494690   (859302) от 25.09.2021
-
-Расчёты для IT v3.1.1 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859302.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Расчёты для IT" — лучшее приложение для сектора информационных технологий. В нем вы найдете множество инструментов для расчетов, которые помогут вам в вашей работе. Не пропустите это приложение и установите его в свой смартфон!Тип издания: Пиратка (открыт Pro)Релиз состоялся: 24 сентября 2021 г.Разработчик: Ettore GallinaПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F2651F37EEB89511AC683213B9D431A1839ED60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467154   (859292) от 25.09.2021
-
-Мастер СМА v14.3 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Справочная информация по ремонту стиральных машин, посудомоек и холодильников для мастеров бытовой техники.
-Данные по кодам ошибок, описание тестовых режимов, размеры деталей, распиновки клемм. Данные постоянно будут обновляться, а также планируется добавление новых разделов. Android 6 и ниже не поддерживается.Тип издания: Paid (Куплена в Маркете)Релиз состоялся: 24 сентября 2021 г.Разработчик: Mikhael ZherebtsovПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C96BE58E7557A69A683F8F5AA47595C26CC18D0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091739   (859233) от 25.09.2021
-
-ПРОраб pro v2.7.1 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_859233.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение предназначено для помощи в расчётах при строительстве, отделке или ремонте.Тип издания: Paid (Куплена в Маркете)Релиз состоялся: 8 сентября 2021 г.Разработчик: GVPdroidПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15586B0B9A80B642A75ECBEB1C0878B1E436E787
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514717   (858624) от 25.03.2016
-
-Photo Editor by Aviary Premium 4.5.5 [Rus] - Фоторедактор
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_858624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это функциональный фоторедактор, который мы создали для того, чтобы быстро,легко и без суеты редактировать фотографии на ходу. Мы оснастили его всеми необходимыми инструментами и суперинтуитивным интерфейсом, так что вы легко разберетесь в редактировании.Тип издания: Пиратка (Premium features Unlocked)Релиз состоялся: 25.03.16Разработчик: Aviary, Inc.Поддерживаемая ОС: Android. 4.1 +Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B91B2A46D7703865C13ED6A4268083F164D9E2FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

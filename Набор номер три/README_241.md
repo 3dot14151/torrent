@@ -1,3 +1,160 @@
+###  Публикация: 1284361   (728411) от 21.02.2019
+
+Ежегодное послание Президента России Владимира Путина Федеральному Собранию (20.02.2019) HDTV [H.264/1080i-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728411.jpg" />
+</div>
+
+
+###  Подробнее
+
+Владимир Путин обратился с Посланием к Федеральному Собранию. Церемония оглашения прошла в Москве, в Гостином дворе. На церемонии присутствовали члены Совета Федерации, депутаты Государственной Думы, члены Правительства, руководители Конституционного и Верховного судов, губернаторский корпус.Телекомпания: Россия 1 HDЖанр: Документальный, ПолитикаСубтитры: отсутствуютПродолжительность: 01:29:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F271DA56B62EEDA1B7CE9CE267662DA1726C6F9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284124   (728377) от 21.02.2019
+
+Пользователи Windows 7 должны будут установить патч поддержки SHA-2, чтобы получать обновления
+
+>>3
+>>10
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_728377.jpg" />
+</div>
+
+
+###  Подробнее
+
+В начале 2019 года Microsoft планирует выпустить обновления для операционных систем Windows 7 и Windows Server 2008, которые добавят поддержку обработки обновлений SHA-2На данный момент все обновления доставляются с помощью SHA-1 и SHA-2. Алгоритм хеширования SHA-1 имеет ряд известных недостатков, и Microsoft планирует отказаться от SHA-1 и полностью перейти на улучшенный (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284036   (728376) от 21.02.2019
+
+Хроники хищных городов / Mortal Engines (2018) WEB-DL [H.264/1080p] [Open Matte]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728376.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прошли тысячелетия после того, как мир настиг апокалипсис. Человечество адаптировалось и теперь живет по новым правилам. Гигантские движущиеся мегаполисы рассекают пустоши и поглощают маленькие города ради ресурсов. Том Нэтсуорти из нижнего уровня великого Лондона оказывается в смертельной опасности, когда на его пути появляется скрывающаяся от закона бунтарка Эстер (   Читать дальше...   )Производство: Новая Зеландия, США / Media Rights Capital (MRC), Scholastic Productions, Silvertongue FilmsЖанр: Фантастика, фэнтези, боевик, триллер, приключенияРежиссер: Кристиан РиверсАктеры: Гера Хилмарсдоттир, Роберт Шиэн, Хьюго Уивинг, Джихе, Ронан Рафтери, Лейла Джордж, Патрик Мэлахайд, Стивен Лэнг, Колин Сэлмон, Марк МитчинсонПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 02:08:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAD2994A5549858274FEFCCF235CABFC1A461B59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284340   (728373) от 21.02.2019
+
+Metro Exodus / Метро: Исход (2019) [Ru/Multi] (1.0.0.0/dlc) License CPY [Gold Edition]
+
+>>3
+>>20
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728373.jpg" />
+</div>
+
+
+###  Подробнее
+
+2036 год. Прошло четверть века с тех пор, как ядерная война опустошила землю. Москва лежит в руинах, и несколько тысяч выживших вынуждены бороться за существование в тоннелях метро. Их не убила отравленная природа и мутировавшие чудовища, они пережили сверхъестественный кошмар и ужасы гражданской войны.Тип издания: LicenseРазработчик: 4A GamesЖанр: Action, shooter, 3D, 1st personЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FE996041B75CBE9811B22DF29ECC47FECF89C9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529720   (728329) от 11.02.2022
+
+Правда ли, что существует профессия переворачивателя пингвинов?
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_728329.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многие слышали об уникальных работниках Южного Заполярья — переворачивателях, или поднимателях, пингвинов, которые спасают жизнь опрокинувшимся на спину птицам, помогая им снова принять вертикальное положение. Мы выяснили, существует ли такая профессия.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 41491   (728308) от 11.02.2022
+
+BBC: Планета Земля / Planet Earth (2006) HD-DVDRip [H.264/720p] (серии 1-11 из 11) [PR]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создатели отмеченного многократными наградами документального сериала "Голубая планета" сделали новый фильм, показывающий Землю такой, какой ее еще никто не видел прежде. Невероятные по красоте пейзажи и очаровательная дикая природа самых заповедных и малоизученных уголков нашей планеты. Земля предстает во всем своем многообразии, рассказывая самые сокровенные (   Читать дальше...   )Производство: Великобритания / British Broadcasting Corporation (BBC)Жанр: Документальный, ПриродаРежиссер: Аластер Фотергилл, Марк ЛинфилдПеревод: профессиональный одноголосый (читает Николай Дроздов)Продолжительность: серии ~ по 50 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A81CF38C6AE8BE0C78B969C8FD7541A19EF570C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126970   (728089) от 24.04.2017
 
 Притяжение (2017) BDRip [H.264]
@@ -6,7 +163,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728089.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728084.jpg" />
 </div>
 
 
@@ -59,7 +216,7 @@ Maxthon Cloud Browser 4.9.3.1000 Final + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728076.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728076.jpg" />
 </div>
 
 
@@ -85,7 +242,7 @@ Linux Lite 3.0 (легкий дистрибутив) [x32, x64] 2xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728010.jpg" />
 </div>
 
 
@@ -113,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728008.jpg" />
 </div>
 
 
@@ -139,7 +296,7 @@ Embarcadero RAD Studio 10.1 Berlin Architect 24.0.22858.6822 [Multi]
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728006.jpg" />
 </div>
 
 
@@ -165,7 +322,7 @@ Acronis True Image 2016 19.0.6571 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728005.jpg" />
 </div>
 
 
@@ -191,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_728000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728000.jpg" />
 </div>
 
 
@@ -217,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727998.jpg" />
 </div>
 
 
@@ -243,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>55
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727997.jpg" />
 </div>
 
 
@@ -269,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_727889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_727889.jpg" />
 </div>
 
 
@@ -295,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_727887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_727887.jpg" />
 </div>
 
 
@@ -321,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_727415.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_727415.jpg" />
 </div>
 
 
@@ -347,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_727192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_727192.jpg" />
 </div>
 
 
@@ -373,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_727182.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_727182.jpg" />
 </div>
 
 
@@ -399,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>10
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_727178.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_727178.jpg" />
 </div>
 
 
@@ -427,7 +584,7 @@ DiRT Rally 2.0 (2019) [Multi] (1.0/dlc) License CODEX [Deluxe Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727170.jpg" />
 </div>
 
 
@@ -453,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727163.jpg" />
 </div>
 
 
@@ -480,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_727160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_727160.jpg" />
 </div>
 
 
@@ -507,172 +664,13 @@ SSD-диски могут подорожать во всём мире после
 >>4
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_727149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_727149.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Western Digital и Kioxia могут вызвать дефицит и (по  данным исследовательской компании TrendForce) сильное подорожание твердотельных накопителей во всем мире.Причина: (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530530   (727138) от 12.02.2022
-
-Большой баг / BigBug (2022) WEB-DL [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_727138.jpg" />
-</div>
-
-
-###  Подробнее
-
-2045 год. Почти все обязанности людей выполняет ИИ. Ностальгическое жилище Алис не исключение, поэтому во время восстания роботов ее андроиды заботливо запирают двери.Производство: Франция / Eskwad, GaumontЖанр: фантастика, комедияРежиссер: Жан-Пьер ЖёнеАктеры: Доминик Пинон, Эльза Зильберштейн, Андре Дюссолье, Альбан Ленуар, Изабель Нанти, Клод Перрон, Claire Chust, Стефан Де Гродт, Юсеф Хаджди, Франсуа ЛевантальПеревод: Дублированный (IYUNO-SDI Group)Язык озвучки: Русский, французскийСубтитры: Русские (Forced, Full), французский (forced, SDH)Продолжительность: 01:51:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B72130F872B5FE3446DE3E73F0DD6256DBAA8F49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128566   (726981) от 25.04.2017
-
-Adobe Premiere Pro CC 2017 (v11.1.0) Multilingual Update 2
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Premiere Pro 2017 - это мощный, настраиваемый редактор для нелинейного монтажа, с помощью которого можно монтировать видео именно так, как вам этого хочется. Импорт и свободное объединение любых видеозаписей, от клипа, снятого на телефон, до необработанного 5K, с последующим монтажом, для которого не требуется выполнять перекодирование.
-
-Выполняйте монтаж видео (   Читать дальше...   )Язык интерфейса: Английский / Испанский / Итальянский / Китайский (упрощенный) / Корейский / Немецкий / Португальский / Русский / Французский / Японский / Английский с поддержкой арабского письма / Английский с поддержкой иврита / Английский (Великобритания) / Испанский (Мексика) / Французский (Канада) / Французский (Марокко)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45CF94D75A1FDBA2344CEBD8B7EDBBFD0EDA7F8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128401   (726976) от 25.04.2017
-
-Microsoft повторно выпустила обновление для Windows 7 для установки Windows 10
-
->>3
->>12
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_726976.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Microsoft повторно выпустила обновление для операционных систем Windows 7 и 8.1, которое прежде было связано с агрессивным продвижением системы Windows 10. KB3150513 выходило для Windows 7, 8.1 и Windows 10 до версии 1703, его целью является подготовка компьютеров к установке Windows 10.21 апреля Microsoft выпустила 10-ю ревизию этого обновления, его получат (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128166   (726974) от 25.04.2017
-
-Syberia 3 / Сибирь (2017) [Ru/Multi] (1.0) SteamRip R.G. Игроманы [Deluxe Edition]
-
->>3
->>11
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726974.jpg" />
-</div>
-
-
-###  Подробнее
-
-Безграничное воображение Бенуа Сокаля воплотилось в нечто абсолютно новое — захватывающее приключение «Сибирь 3». Повествование игры стартует там же, где закончилась предыдущая часть: Кейт Уокер, отправившись на поиски таинственной Сибирии, едва не погибает на дрейфующей лодке, но небольшой караван добрых юколов успевает спасти её от верной смерти.Тип издания: SteamRipРазработчик: Anuman Interactive, MicroidsЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21839D44D0AE0D2F05A49DBD9D9D31336131A2C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 753794   (726973) от 25.04.2017
-
-Набор обновлений UpdatePack Plus для русской Windows XP SP3 17.4.21 [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_726973.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный набор поможет обновить Windows XP до актуального состояния, а так же установить дополнительные компоненты не тратя время на их загрузку из различных источников.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:047F17ACCDA54B43D8F9C44A37F2CFCE9C8B8D17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022514   (726890) от 03.06.2016
-
-За троллинг в соцсетях можно будет попасть под суд
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_726890.jpg" />
-</div>
-
-
-###  Подробнее
-
-Россияне смогут получить денежную компенсацию за оскорбления в Интернете
-Факт издевательств и оскорблений (троллинга, как это называют пользователи интернета) в социальных сетях теперь можно заверить у нотариуса, что позволит запустить судебный процесс. Об этом «Известиям» рассказали в Федеральной нотариальной палате (ФНП). По словам представителей ФНП, документ (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

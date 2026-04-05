@@ -1,3 +1,55 @@
+###  Публикация: 992902   (895036) от 05.03.2016
+
+Spartan / Спартанцы. Легион 3 (2004) [Ru] (1.017) License
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895036.jpg" />
+</div>
+
+
+###  Подробнее
+
+Много сотен лет назад, на заре европейской цивилизации, на полуострове Пелопоннес возник греческий полис Спарта. Его жители прославились на весь мир как отважные и доблестные воины, которые никогда не ведали страха. Спарта, или Лакедемон, как она тогда называлась, вела непрерывные войны со всеми своими соседями. Короткие мирные передышки использовались для подготовки (   Читать дальше...   )Тип издания: LicenseРазработчик: Slitherine SoftwareЖанр: Strategy (Turn-based), 3D, Top-downЯзык озвучки: РусскийЯзык субтитров: -/-Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6139E2A7AAC6AB5A42030720C19EFEA9317EABA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493874   (891995) от 05.09.2021
+
+MicroProse™ Soccer (1988) [En] (2.0) License GOG
+
+>>Win Старые Игры
+>>Simulation (Sport)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбольный симулятор, который можно окрестить «самым серьёзным и продвинутым из аркадных». Главная отличительная особенность игры – то, что состоит она из двух частей. Первая и основная – это нормальный европейский футбол, выполненный сравнительно реалистично, хотя некоторые комбинации и удары очень странные и даже забавные. Есть возможность самому выбрать команду, (   Читать дальше...   )Тип издания: LicenseРазработчик: MicroProseЖанр: Спорт, Симулятор, ФутболЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE48DFF8EE02809DCF66B15F95297FC61F078776
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494083   (890531) от 06.09.2021
 
 King's Table - The Legend of Ragnarok (1993) [En] (1.0) License GOG
@@ -6,7 +58,7 @@ King's Table - The Legend of Ragnarok (1993) [En] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890531.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Fallout Resurrection (2016) [Ru] (1.5.116) Repack/Mod Pyran
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_889717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889717.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Caesar (1993) [Multi] (1.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888799.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Caesar 2 (1995) [En] (1.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888746.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Emperor: Rise of the Middle Kingdom (2002) [En] (1.0.1.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888638.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888638.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Wing Commander™ 4: The Price of Freedom (1995) [En] (3.0.1.0) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_888566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888566.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Aura 2: Sacred Rings / Аура 2: Кольца судьбы [Ru] (P) 2007
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886826.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Cultures:The Discovery of Vinland / Деревня Викингов [Ru] (P) 200
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_886305.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886305.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Leisure Suit Larry 6: Shape Up or Slip Out (1994) [En] (1.000.000) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_885124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885124.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Tom Clancy's Rainbow Six (1998) [En] (1.04) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882799.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Tom Clancy's Ghost Recon (2001) [En/Ge] (1.4.0.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_882788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882788.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ SiN (1998) [En] (1.13b/dlc) License GOG [Gold]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_881329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881329.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Farming Simulator 15 (2014) [Ru/Multi] (1.4.2/dlc) License SKIDROW [Gold Edition
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_878533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878533.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ The Dagger of Amon Ra (1992) [En] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876271.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ The Colonel's Bequest (1989) [En] (1.000.046) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_876213.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876213.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ Shadowgrounds (2005) [Ru/En] (1.05) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_875590.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875590.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ Psychonauts (2005) [Multi] (1.1.603.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/005/save_picture_874385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874385.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_873244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873244.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ Rally Championship 2000 [Ru] (L) 2000
 >>Racing
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_872222.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872222.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ Medal of Honor: Pacific Assault (2004) [Multi] (1.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_870229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870229.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ Star Trek: Hidden Evil (1999) [En] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869504.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ Star Trek: Elite Force II (2003) [En] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869370.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ Star Trek: Voyager Elite Force (2000) [Multi] (1.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869368.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ METAL GEAR SOLID 2 SUBSTANCE (2003) [Multi] (1.0cu) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_869216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869216.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ METAL GEAR SOLID 2 SUBSTANCE (2003) [Multi] (1.0cu) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09B32A45EA9F6E73F9941BCBA9F86EAFAD13D0E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998299   (867615) от 20.03.2016
-
-Crime Cities (2000) [En] (1.0) Licence
-
->>Win Старые Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_867615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Crime Cities - это оригинальная комбинация шутера и симулятора флайера, со сложным развитым сюжетом.XXV век, планетная система Пандемия - гигантская колония. Один из лучших агентов FSB по имени Гарм Тайгер приговорен к пожизненной ссылке на Пандемию за неповиновение и измену Федерации. Такова «легенда» Тайгера - на самом деле ему предстоит выполнить важнейшую и опаснейшую (   Читать дальше...   )Тип издания: LicenceРазработчик: TechlandЖанр: Action, Arcade, Racing (Futuristic), Simulator (Futuristic), 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:449C7072473AA644BDD849DF063467306584F21B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497372   (864290) от 22.09.2021
-
-Arcanum: Of Steamworks and Magick Obscura (2001) [En] (1.0.7.4hf) License GOG
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="Z:/picture/008/save_picture_864290.jpg" />
-</div>
-
-
-###  Подробнее
-
-Промышленная революция в мире магии. Представьте себе чудесное место, где магия и технологии сосуществуют в непростом балансе, и искатель приключений может так же легко владеть кремневым пистолетом, как и пылающим мечом. Место, где в крупных промышленных городах находятся замки и фабрики, где обитают гномы, люди, орки и эльфы. Место древних рун и паровых электростанций, (   Читать дальше...   )Тип издания: LicenseРазработчик: Troika GamesЖанр: RPG, Steampunk, AdventureЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8614647E01921281F8F6F9F33F0FE03AF8128DE
 ```
 
 https://mybot314.ru/tekegram_catalog/
